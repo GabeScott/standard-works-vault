@@ -1,6 +1,8 @@
 # “Is Any Thing Too Hard for the Lord?”
 
-By Douglas W. DeHaan - *President, Portland Oregon East Stake*
+Spencer W. Kimball
+
+By Douglas W. DeHaan - *President, Portland Oregon East Stake*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -39,8 +41,3 @@ Finally, I bear my solemn witness that there is nothing too hard for the Lord. I
 
 
 
-
-
-
-
-#Faith #Miracles #Welfare

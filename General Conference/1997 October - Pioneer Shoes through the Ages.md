@@ -1,5 +1,7 @@
 # Pioneer Shoes through the Ages
 
+Gordon B. Hinckley
+
 By Mary Ellen Smoot - *Relief Society General President*
 
 *Given in the October session of the 1997 General Conference*
@@ -58,7 +60,7 @@ Like Sister Sanchez, we can feel of our Heavenly Father’s love. He knows our c
 
 An early pioneer woman named Eliza Cheney was able to put aside the things of the world because she had nurtured the seed of faith within her. While at Winter Quarters, Eliza received a letter from her parents offering her any amount of money to denounce her newfound religion and come home. She tightened the laces on her pioneer shoes. Even in such bitter conditions, Eliza’s faith burned bright. She wrote back to her parents:
 
-“I have not the most distant idea \[of returning\], neither has Nathan … , our cause is just and must be onward. … I did not embrace this work hastily: I came into it understandingly. I weighed the subject, I counted the cost, I knew the consequence of every step I took. …
+“I have not the most distant idea \[of returning\], neither has Nathan … , our cause is just and must be onward. … I did not embrace this work hastily: I came into it understandingly. I weighed the subject, I counted the cost, I knew the consequence of every step I took. …
 
 “If I could be among the numberless throng that John saw whose robes were washed white in the blood of the lamb\[,\] I must\[,\] like them, come up through much tribulation and instead of thinking it hard that I have these difficulties to pass through, I count it all joy that I am counted worthy to suffer shame for his name.”[^6]
 
@@ -83,10 +85,5 @@ I thank my Father in Heaven for all the pioneers of the past and present who hav
 
 [^6]: Quoted in Mary Ellen Smoot and Marilyn Sheriff, *The City In-Between: History of Centerville, Utah* (1975), 379.
 
-[^7]: In Conference Report, Apr. 1982, 56; or *Ensign,* May 1982, 37.
+[^7]: In Conference Report, Apr. 1982, [[1982 April - “A Brother Offended”.md|56]]; or *Ensign,* May 1982, 37.
 
-
-
-
-
-#Faith #Fellowshipping #Pioneers #Spirituality #Visiting_Teaching

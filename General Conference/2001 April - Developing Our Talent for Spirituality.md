@@ -1,5 +1,7 @@
 # Developing Our Talent for Spirituality
 
+Gordon B. Hinckley
+
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -10,7 +12,7 @@ By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 How many of you have ever wanted to develop a new talent? Have you ever taken piano or soccer lessons? Tonight I want to talk to you about developing a talent—not just any talent, but one very special talent I bet you have never even thought about. I would like to talk to you about developing your talent for spirituality.
 
-Did you know that spirituality is a talent? Elder Bruce R. McConkie of the Quorum of the Twelve Apostles once said, “Above all talents … , chief among all endowments—stands the talent for spirituality” (*The Millennial Messiah* \[1982\], 234). Spirituality is learning how to listen to the Spirit and then letting it govern our lives.
+Did you know that spirituality is a talent? Elder Bruce R. McConkie of the Quorum of the Twelve Apostles once said, “Above all talents … , chief among all endowments—stands the talent for spirituality” (*The Millennial Messiah* \[1982\], 234). Spirituality is learning how to listen to the Spirit and then letting it govern our lives.
 
 So how do we learn to listen to the Spirit? Well, first of all, we need to understand what the Spirit is. Second, we’ll look at young women who have learned how to recognize the Spirit. As members of the Church, we are given two spiritual gifts: the Light of Christ given to all men at birth and the special gift of the Holy Ghost given after our baptism. It allows us “to live by the power of the Holy Ghost, which is the power of revelation, and … testimony” (Bruce R. McConkie, *Doctrines of the Restoration: Sermons and Writings of Bruce R. McConkie,* ed. Mark L. McConkie \[1989\], 93). Once we know what the Spirit is, how do we recognize it when we feel it? That’s the hardest part.
 
@@ -20,7 +22,7 @@ Some young women struggle to identify the Spirit. One girl wrote: “I haven’t
 
 These feelings are normal. This young woman may not know it, but the Holy Ghost is giving her a desire to feel His influence. The Spirit doesn’t always give us warm, fuzzy feelings. Most of the time, the voice of inspiration is a quiet voice, a still, small voice.
 
-I remember what the Savior said to the faithful Nephites when He visited the New World: “I perceive that ye are weak, that ye cannot understand all my words. … Go … \[into\] your homes, … ponder upon the things which I have said, and ask … the Father … that ye may understand” ([[3 Nephi 17.2|3 Ne. 17:2–3]][[3 Nephi 17.3|]]).
+I remember what the Savior said to the faithful Nephites when He visited the New World: “I perceive that ye are weak, that ye cannot understand all my words. … Go … \[into\] your homes, … ponder upon the things which I have said, and ask … the Father … that ye may understand” ([[3 Nephi 17.2|3 Ne. 17:2–3]][[3 Nephi 17.3|]]).
 
 The Savior’s words were written for us. It’s OK if we’re weak, as long as we don’t stay weak, as long as we do something about it. Katie is a young woman who did just that. Let me share her story with you.
 
@@ -48,13 +50,13 @@ And you can pray for your family. If there is contention, pray for a spirit of p
 
 Recently, our prophet, President Hinckley, prayed for the youth of the Church. It was a never-to-be-forgotten experience.
 
-Can you even imagine how wonderful it would be to know that Jesus prays for us? When He was among the Nephites, “he … knelt upon the earth; and … prayed unto the Father. … No one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father” ([[3 Nephi 17.15|3 Ne. 17:15, 17]][[3 Nephi 17.17|]]).
+Can you even imagine how wonderful it would be to know that Jesus prays for us? When He was among the Nephites, “he … knelt upon the earth; and … prayed unto the Father. … No one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father” ([[3 Nephi 17.15|3 Ne. 17:15, 17]][[3 Nephi 17.17|]]).
 
-Could it be with you as it was with the Nephite children? As the Savior ministered to them, “he did loose their tongues, and they did speak … great and marvelous things, even greater than he had revealed unto the people” ([[3 Nephi 26.14|3 Ne. 26:14]]).
+Could it be with you as it was with the Nephite children? As the Savior ministered to them, “he did loose their tongues, and they did speak … great and marvelous things, even greater than he had revealed unto the people” ([[3 Nephi 26.14|3 Ne. 26:14]]).
 
 With the power of the Spirit, you too can speak great and marvelous things in your own family.
 
-These children “saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about … ; and the angels did minister unto them” ([[3 Nephi 17.24|3 Ne. 17:24]]).
+These children “saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about … ; and the angels did minister unto them” ([[3 Nephi 17.24|3 Ne. 17:24]]).
 
 You may never see angels descending out of heaven, but I can promise you as you bear testimony and pray in your families, unseen angels will minister to you. As you share your talent for spirituality, you will feel the warmth and power of the Spirit governing your life.
 
@@ -65,8 +67,3 @@ Now that you have learned how the Spirit works and how you as young women can us
 
 
 
-
-
-
-
-#Example #Family #Holy_Ghost #Peace #Prayer #Spirituality #Talents #Testimony #Young_Women

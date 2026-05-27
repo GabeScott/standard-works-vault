@@ -1,5 +1,7 @@
 # Ripples
 
+Gordon B. Hinckley
+
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2000 General Conference*
@@ -40,7 +42,7 @@ Those descriptions fit you, the faithful Relief Society sisters of The Church of
 
 “God is my salvation; … the Lord Jehovah is my strength and my song; …
 
-“Therefore, with joy shall \[I\] draw water out of the wells of salvation” ([[2 Nephi 22.2|2 Ne. 22:2–3]][[2 Nephi 22.3|]]).
+“Therefore, with joy shall \[I\] draw water out of the wells of salvation” ([[2 Nephi 22.2|2 Ne. 22:2–3]][[2 Nephi 22.3|]]).
 
 The cause of Christ—to redeem all souls—needs your strength, time, and talents in your homes and in your communities. Your faithful works and words contribute significantly to the building of this, the kingdom of God on the earth. Elder Bruce R. McConkie reminds us how critical our roles have ever been: “This we know: Christ, under the Father, is the Creator; Michael, His companion and associate, presided over much of the creative work; and with them, as Abraham saw, were many of the noble and great ones. Can we do other than conclude that Mary and Eve and Sarah and myriads of our faithful sisters were numbered among them? Certainly these sisters labored as diligently then, and fought as valiantly in the war in heaven, as did the brethren, even as they in like manner stand firm today, in mortality, in the cause of truth and righteousness” (*Woman* \[1979\], 59).
 
@@ -71,8 +73,3 @@ God lives. His Son, Jesus Christ, provides the way for us to return and live wit
 
 
 
-
-
-
-
-#Dedication #Faith #Family #Home #Humility #Joy #Missionary_Work #Obedience #Satan #Visiting_Teaching #Women #Work

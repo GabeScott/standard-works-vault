@@ -1,6 +1,8 @@
 # Whence Cometh Our Peace?
 
-By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
+Wilford G. Edling
+
+By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -10,7 +12,7 @@ This morning as I walked into the Tabernacle, one of the attendant brethren said
 
 I suppose he had in mind that this great conference has brought so many things, so many good things—the testimonies of the prophets, seers, and revelators, exciting changes, and testimonies of the brethren that God lives and that Jesus is the Christ—to the extent that our cups truly run over.
 
-What a blessing it is to set a course and work diligently at it. This past decade I have had the privilege of working with two wonderful men. You have seen the good works and heard the good words of Elder Robert L. Simpson and Bishop Victor L. Brown. This isn’t a parting or a farewell, but I will always cherish the experience I have had in working with these two wonderful men of God. God bless them, and God bless the Church for their service.
+What a blessing it is to set a course and work diligently at it. This past decade I have had the privilege of working with two wonderful men. You have seen the good works and heard the good words of Elder Robert L. Simpson and Bishop Victor L. Brown. This isn’t a parting or a farewell, but I will always cherish the experience I have had in working with these two wonderful men of God. God bless them, and God bless the Church for their service.
 
 I know that we are led by revelation. It comes to us through the prophet of God, Joseph Fielding Smith. I have thought a good deal about this, because I know that he is a prophet and that his counselors serve God as they serve with President Smith.
 
@@ -50,7 +52,7 @@ Henry David Thoreau thought so, for we read in his book *Walden:* “The mass of
 
 And Joshua Liebman wrote similarly in his little book *Peace of Mind:* “A man may have a home, possessions, a charming family, and yet find all these things ashy to his taste because he has been outstripped in the marathon race by some other runners to the golden tape line. It is not that he does not possess enough for his wants, but that others possess more. It is the more that haunts him, makes him depreciate himself and minimize his real achievements.
 
-“The time has come when a man must say to himself: ‘I am no longer going to be interested in how much power or wealth another man possesses so long as I can attain enough for the dignity and security of my family and myself. I am going to break through this vicious circle which always asks the question of life in a comparative degree: Who is bigger? Who is richer? Who has more? I am going to set my goals for myself rather than borrow them from others. …”
+“The time has come when a man must say to himself: ‘I am no longer going to be interested in how much power or wealth another man possesses so long as I can attain enough for the dignity and security of my family and myself. I am going to break through this vicious circle which always asks the question of life in a comparative degree: Who is bigger? Who is richer? Who has more? I am going to set my goals for myself rather than borrow them from others. …”
 
 I believe that this is one thing we can learn from our youth today. They have, in many cases, set simpler values and seen through the transitory worth of material things. They recognize that ambition that leads men to seek power and domination over others brings not peace, but frustration. Certainly history is replete with examples of the rise and fall of ambitious men, and during temporary relief from hostilities between nations the cry always rises, “Now we will have peace.” How many wars have been termed “a war to end all wars”?
 
@@ -64,13 +66,13 @@ Just as running madly after worldly things does not bring peace, neither does si
 
 Probably there is no quicker way to enjoy inner peace than by serving one another. There is recorded in history a marvelous period of time when this peace did indeed banish avarice, ambition, envy, anger, and pride from men’s hearts. It was shortly after the Savior’s visit to the American continent after his death and resurrection. We read:
 
-“… the people were all converted unto the Lord … and there were no contentions and disputations among them, and every man did deal justly one with another.
+“… the people were all converted unto the Lord … and there were no contentions and disputations among them, and every man did deal justly one with another.
 
 “And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift.
 
-“And there were great and marvelous works wrought by the disciples of Jesus, insomuch that they did heal the sick, and raise the dead, and cause the lame to walk, and the blind to receive their sight, and the deaf to hear. …
+“And there were great and marvelous works wrought by the disciples of Jesus, insomuch that they did heal the sick, and raise the dead, and cause the lame to walk, and the blind to receive their sight, and the deaf to hear. …
 
-“And the Lord did prosper them exceedingly in the land. …
+“And the Lord did prosper them exceedingly in the land. …
 
 “And now, behold, it came to pass that the people of Nephi did wax strong, and did multiply exceedingly fast, and became an exceedingly fair and delightsome people.
 
@@ -88,9 +90,9 @@ Probably there is no quicker way to enjoy inner peace than by serving one anothe
 
 “And how blessed were they! For the Lord did bless them in all their doings; yea, even they were blessed and prospered until an hundred and ten years had passed away; and the first generation from Christ had passed away, and there was no contention in all the land.
 
-“… Nephi, he that kept this last record, … kept it eighty and four years, and there was still peace in the land, save it were a small part of the people. …
+“… Nephi, he that kept this last record, … kept it eighty and four years, and there was still peace in the land, save it were a small part of the people. …
 
-“And it came to pass that two hundred years had passed away. …” ([[4 Nephi 1.2|4 Ne. 1:2–3, 5, 7, 10–11, 12–13, 15–20, 22]][[4 Nephi 1.3|]][[4 Nephi 1.5|]][[4 Nephi 1.7|]][[4 Nephi 1.10|]][[4 Nephi 1.11|]][[4 Nephi 1.12|]][[4 Nephi 1.13|]][[4 Nephi 1.15|]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]][[4 Nephi 1.19|]][[4 Nephi 1.20|]][[4 Nephi 1.22|]].)
+“And it came to pass that two hundred years had passed away. …” ([[4 Nephi 1.2|4 Ne. 1:2–3, 5, 7, 10–11, 12–13, 15–20, 22]][[4 Nephi 1.3|]][[4 Nephi 1.5|]][[4 Nephi 1.7|]][[4 Nephi 1.10|]][[4 Nephi 1.11|]][[4 Nephi 1.12|]][[4 Nephi 1.13|]][[4 Nephi 1.15|]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]][[4 Nephi 1.19|]][[4 Nephi 1.20|]][[4 Nephi 1.22|]].)
 
 This was indeed a fortunate people whose history is contained in the Book of Mormon, a book which covers nearly three thousand years and which reveals that only during those periods of time when the people were keeping God’s commandments did they enjoy peace, love, happiness, and prosperity.
 
@@ -106,15 +108,10 @@ And so we say to this generation, which is so verbally calling for peace, that t
 
 Now as we go from this great conference, brothers and sisters, let us go recognizing that our cup is filled to overflowing. We have been charged with the great messages of God’s prophet. We have been charged with the testimonies of the brethren. We have been charged with the Spirit of God, which has been in our presence and is now in our presence.
 
-Let us go forth with our personal testimonies, to which I wish to add mine, that I know that God lives, that Jesus is the Christ, and that we live and serve, if we but will, under the direction of God’s prophet, Joseph Fielding Smith, supported by two other prophets, Harold B. Lee and Nathan Eldon Tanner, and supported by thirteen other prophets, the Quorum of the Twelve and the patriarch.
+Let us go forth with our personal testimonies, to which I wish to add mine, that I know that God lives, that Jesus is the Christ, and that we live and serve, if we but will, under the direction of God’s prophet, Joseph Fielding Smith, supported by two other prophets, Harold B. Lee and Nathan Eldon Tanner, and supported by thirteen other prophets, the Quorum of the Twelve and the patriarch.
 
 God be with you and bless you as we go forth to carry out our assignments, whatever they are, I humbly pray, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Peace

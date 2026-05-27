@@ -1,6 +1,8 @@
 # How to Gain a Testimony
 
-By President Loren C. Dunn - *Of the First Council of the Seventy*
+N. Eldon Tanner
+
+By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -8,7 +10,7 @@ By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 My brothers and sisters, I pray for the inspiration and strength and Spirit of the Lord during the few minutes that I am before you this afternoon.
 
-In a recent area general conference held in Mexico, President Harold B. Lee made this statement:
+In a recent area general conference held in Mexico, President Harold B. Lee made this statement:
 
 “The strength of the Church is not to be measured by the amount of money paid as tithing by faithful members, nor by the number of the total membership of the Church, or the number of Church chapels and temple buildings.
 
@@ -63,8 +65,3 @@ What greater inheritance can parents give their children than the spiritual heri
 
 
 
-
-
-
-
-#Testimony

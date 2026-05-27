@@ -1,4 +1,3 @@
 # Easter
 
-
-*See* [[Jesus Christ, Resurrection.md|Jesus Christ, Resurrection]]; [[Resurrection.md|Resurrection]]; [BD Easter](https://www.churchofjesuschrist.org/study/scriptures/bd/easter?lang=eng)
+*See also* [[Jesus Christ, Resurrection.md|Jesus Christ, Resurrection]]; [[Resurrection.md|Resurrection]]; [[BD Easter.md|BD Easter]]

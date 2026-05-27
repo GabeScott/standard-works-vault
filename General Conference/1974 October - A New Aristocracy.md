@@ -1,6 +1,8 @@
 # A New Aristocracy
 
-By Elder James E. Faust - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder James E. Faust - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -26,7 +28,7 @@ About a month ago four of the Young Adults gathered in Loughborough for a Young 
 
 During a morning of helping to scrub and of visiting patients, these four Young Adults had an unforgettable experience. They seek, as Aristotle said, to be those “who have at heart the best interests of the state and of its citizens.”
 
-This new aristocracy will follow the counsel of President Spencer W. Kimball and set styles of their own, no matter how great the peer pressure is. They will not be moved in their inner strength by the cynics, bereft of spirituality, who portray those who believe in God as being stupid, misguided, uninformed, and unsophisticated. This new aristocracy is not led astray or intimidated by the sophistries of the insincere, the hypocritical, or the self-righteous. They will remember the counsel of Brigham Young, who said: “I would put you on your guard against those who wear a long face, and pretend to be so holy, and so much better than every body else—they cannot look pleasant because they are full of the devil. Those who have got the forgiveness of their sins have countenances that look bright, and they will shine with the intelligence of heaven.” (*Times and Seasons,* 6:956.) The words of the Prophet Joseph Smith will be remembered, “I love that man better who swears a stream as long as my arm yet deals justice to his neighbors and mercifully deals his substance to the poor, than the long, smooth-faced hypocrite.” (*History of The Church of Jesus Christ of Latter-day Saints,* 5:401.)
+This new aristocracy will follow the counsel of President Spencer W. Kimball and set styles of their own, no matter how great the peer pressure is. They will not be moved in their inner strength by the cynics, bereft of spirituality, who portray those who believe in God as being stupid, misguided, uninformed, and unsophisticated. This new aristocracy is not led astray or intimidated by the sophistries of the insincere, the hypocritical, or the self-righteous. They will remember the counsel of Brigham Young, who said: “I would put you on your guard against those who wear a long face, and pretend to be so holy, and so much better than every body else—they cannot look pleasant because they are full of the devil. Those who have got the forgiveness of their sins have countenances that look bright, and they will shine with the intelligence of heaven.” (*Times and Seasons,* 6:956.) The words of the Prophet Joseph Smith will be remembered, “I love that man better who swears a stream as long as my arm yet deals justice to his neighbors and mercifully deals his substance to the poor, than the long, smooth-faced hypocrite.” (*History of The Church of Jesus Christ of Latter-day Saints,* 5:401.)
 
 This is not an aristocracy of the haughty, the snobbish, and the arrogant, but of the humble and strong. They live lives of productivity and usefulness. Approximately 18,000 of them presently perform a matchless service as missionaries at considerable monetary sacrifice to themselves and/or their loved ones. In the last fortnight I have been privileged to meet with some 200 of them laboring in a foreign country. One of them, a tall, smiling young American with his plastic raincoat folded in his coat pocket, approached.
 
@@ -60,13 +62,8 @@ Fourth, through the giving of themselves. A very special young friend of mine se
 
 I desire to leave my witness of the divinity of this great and ever-advancing cause made possible by the obedience, sacrifice, and faithfulness of the elect of God.
 
-I know that God lives. I know that this is his work. I know that he inspires his great prophet President Spencer W. Kimball. I know his path is the only way to peace and happiness here and hereafter, in the name of Jesus Christ. Amen.
+I know that God lives. I know that this is his work. I know that he inspires his great prophet President Spencer W. Kimball. I know his path is the only way to peace and happiness here and hereafter, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Example #Morality #Youth

@@ -1,4 +1,3 @@
 # Soothsayer
 
-
-*See* [[Sorcery.md|Sorcery]]
+*See also* [[Sorcery.md|Sorcery]]

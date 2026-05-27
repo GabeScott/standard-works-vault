@@ -1,6 +1,8 @@
 # Our Sisters in the Church
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -20,7 +22,7 @@ We have all been blessed with special women in our lives—women who have had a 
 
 Our wives, mothers, daughters, sisters, and friends are all the spirit children of our Heavenly Father. I hope we will always bear that in mind, my brothers, in terms of how we treat women. The sisters in this dispensation include many of the most noble daughters of our Heavenly Father. Let us always remember that God is no respecter of persons, but he loves us all, men and women, boys and girls, with a perfect love.
 
-As President Harold B. Lee frequently said, “The greatest Church work you will ever do is within the walls of your own home” (see *Strengthening the Home,* pamphlet, 1973, p. 7). Many of us have repeated that many times.
+As President Harold B. Lee frequently said, “The greatest Church work you will ever do is within the walls of your own home” (see *Strengthening the Home,* pamphlet, 1973, p. 7). Many of us have repeated that many times.
 
 Much of this special Church work will be judged by the way in which we serve and lead, in a Christlike manner, the women of the Church who are in our homes. I say serve and lead because the headship of the man in the home is to be like the headship of Christ in the Church. Christ led by love, example, and selfless service. He sacrificed himself for us. So it must be if we are leader-servants and humble patriarchs in our homes.
 
@@ -45,8 +47,3 @@ I know that God lives, my brethren (it is a great joy to say that many, many tim
 
 
 
-
-
-
-
-#Women

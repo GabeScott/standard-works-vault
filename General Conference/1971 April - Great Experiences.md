@@ -1,6 +1,8 @@
 # Great Experiences
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -70,7 +72,7 @@ Then I had another great experience. I discovered that I could be reborn as many
 
 In 1932, Walter Pitkin wrote his book *Life Begins at Forty,* but that is ridiculous. Life begins every morning. Life begins when we begin. And our real lives begin when we determine to live by every word of the Lord.
 
-I had another great experience when I was nine years old. In sacrament meeting one Sunday someone mentioned an article in the *Improvement Era* that had been written by President Heber J. Grant. And while I didn’t understand all about it, I was impressed that it was very important. And I thought what a great experience it would be if I could get possession of this magazine so I could go over it as many times as necessary for me to thoroughly understand it. Finally I took my small savings and subscribed to this great magazine. I don’t read as many good things as I should now, but back in those cow-herding days I had a little more free time and I read every article, including every advertisement in each issue. And sometimes I went over some of them many times. And I was born again each time a new issue was published.
+I had another great experience when I was nine years old. In sacrament meeting one Sunday someone mentioned an article in the *Improvement Era* that had been written by President Heber J. Grant. And while I didn’t understand all about it, I was impressed that it was very important. And I thought what a great experience it would be if I could get possession of this magazine so I could go over it as many times as necessary for me to thoroughly understand it. Finally I took my small savings and subscribed to this great magazine. I don’t read as many good things as I should now, but back in those cow-herding days I had a little more free time and I read every article, including every advertisement in each issue. And sometimes I went over some of them many times. And I was born again each time a new issue was published.
 
 Later I was married to a wonderful wife in the temple of the Lord, and our family is sealed together for time and for all eternity. I have in my possession a Holy Bible, and I have run each of its teachings through my mind many times. I also have three great volumes of new scripture, outlining in every detail the simple principles of the gospel of Christ. And each is attested by a “thus saith the Lord.” And I was born again when I firmly resolved to live every one of these important precepts of salvation.
 
@@ -78,15 +80,10 @@ Through my occupation I have had some part in helping to carry forward the work 
 
 I am presently in possession of the world’s most valuable information. I know that God lives, that we were created in his image, and that by obeying the principles of the gospel of Jesus Christ, the offspring of God may eventually hope to become like their eternal parents.
 
-But all of my great experiences are not in the past. Branch Rickey, the great baseball manager, was once asked to describe his greatest day in baseball. He said, “I can’t because I haven’t had it yet.” And most of our greatest experiences are yet ahead of us. One of them will be the glorious second coming of Jesus Christ, when with his mighty angels in flaming fire he will come to cleanse the earth of its sins and to inaugurate the millennial reign upon this earth. Every one of us will have a literal bodily resurrection, and what a great experience that will be! Charles F. Kettering, the mechanical wizard of General Motors, once said, “My interest is in the future, because I am going to spend the rest of my life there.”
+But all of my great experiences are not in the past. Branch Rickey, the great baseball manager, was once asked to describe his greatest day in baseball. He said, “I can’t because I haven’t had it yet.” And most of our greatest experiences are yet ahead of us. One of them will be the glorious second coming of Jesus Christ, when with his mighty angels in flaming fire he will come to cleanse the earth of its sins and to inaugurate the millennial reign upon this earth. Every one of us will have a literal bodily resurrection, and what a great experience that will be! Charles F. Kettering, the mechanical wizard of General Motors, once said, “My interest is in the future, because I am going to spend the rest of my life there.”
 
 And my wish for each one of you is that you may spend your eternal life in the celestial kingdom of God. Then you may say, “My heart hath had its greatest experience.” And that it may be so, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Success

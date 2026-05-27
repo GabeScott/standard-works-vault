@@ -1,5 +1,7 @@
 # One More
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -73,8 +75,3 @@ Brothers and sisters, I add my testimony of the divine mission of the Lord Jesus
 
 
 
-
-
-
-
-#Missionary_Work #Preparation #Teaching #Testimony

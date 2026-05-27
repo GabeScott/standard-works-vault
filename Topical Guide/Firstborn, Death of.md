@@ -1,4 +1,3 @@
 # Firstborn, Death of
 
-
-*See* [[Plague.md|Plague]]
+*See also* [[Plague.md|Plague]]

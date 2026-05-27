@@ -1,6 +1,5 @@
 # Accord
 
-
 they were all with one *accord* in one place, [[Acts 2.1|Acts 2:1]].
 
 continuing daily with one *accord* in the temple, [[Acts 2.46|Acts 2:46]].

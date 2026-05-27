@@ -1,4 +1,3 @@
 # Eve
 
-
-*See* [BD Eve](https://www.churchofjesuschrist.org/study/scriptures/bd/eve?lang=eng)
+*See also* [[BD Eve.md|BD Eve]]

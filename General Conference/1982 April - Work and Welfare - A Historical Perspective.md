@@ -1,12 +1,14 @@
 # Work and Welfare: A Historical Perspective
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/04/work-and-welfare-a-historical-perspective?lang=eng)
 
-Some fifty years ago, when the Church launched its welfare program, President Heber J. Grant stated, as was quoted by the former speaker: “Our primary purpose was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self-respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (In Conference Report, Oct. 1936, p. 3.)
+Some fifty years ago, when the Church launched its welfare program, President Heber J. Grant stated, as was quoted by the former speaker: “Our primary purpose was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self-respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (In Conference Report, Oct. 1936, p. 3.)
 
 We’ve all heard that quoted many times, but do we fully understand its significance? Bishops, are any of your people idle? Are all of your members independent, industrious, thrifty, and do they all have self-respect? Are any members receiving assistance as a dole? Are we helping our members to help themselves, or are we just taking care of the people? Finally, do our members understand the significance of work? If you don’t feel good about your answers, you will understand why we keep emphasizing President Grant’s statement.
 
@@ -16,7 +18,7 @@ I believe the attention many of us pay to gospel principles fluctuates as our ci
 
 A few years ago I read a lengthy book dealing with the reasons for the fall of the Roman Empire. That fall, in large measure, was due to the purchasing of votes with unearned benefits, such as entertainment, circuses, and food. The government’s actions built up in the people an expectation and demand which eventually could be kept down only by the establishment of a dictatorship. Many of our members live in countries where this history has repeated itself. In the United States, our treasured American work ethic is waning and the purchasing of votes with unearned benefits is dangerously common.
 
-I used to hear the story, when I first came under President Harold B. Lee’s influence in the welfare program, about a man whom they could not get to work. He wanted to be taken care of. The Church or government, so he thought, owed him a living because he had paid his tithing and taxes. He did not have anything to eat and refused to labor to care for himself. Out of desperation and disgust they decided they might as well take him to the cemetery.
+I used to hear the story, when I first came under President Harold B. Lee’s influence in the welfare program, about a man whom they could not get to work. He wanted to be taken care of. The Church or government, so he thought, owed him a living because he had paid his tithing and taxes. He did not have anything to eat and refused to labor to care for himself. Out of desperation and disgust they decided they might as well take him to the cemetery.
 
 On the way, one man said, “We can’t do this. I have some corn I will give to him.”
 
@@ -44,7 +46,7 @@ The whole objective behind giving help in Nauvoo was to enable people to be self
 
 After arriving in Salt Lake City with Brigham Young, the Church became completely responsible for its own economy, since it was isolated from any other society. There was no room here for the idler because survival literally depended on work.
 
-Brigham Young’s philosophy regarding work and employment can be seen in a statement he made in August of 1860: “The reason we have no poor who are able to work is because we plan to set every person to work at some profitable employment, and teach them to maintain themselves. If a person is not able to take care of himself, we will take care of him. …
+Brigham Young’s philosophy regarding work and employment can be seen in a statement he made in August of 1860: “The reason we have no poor who are able to work is because we plan to set every person to work at some profitable employment, and teach them to maintain themselves. If a person is not able to take care of himself, we will take care of him. …
 
 “If a Bishop will act to the extent of his calling and office, and magnify it, there will not be an individual in his Ward that is not employed to the best advantage.” (In *Journal of Discourses,* 8:145–46.)
 
@@ -58,11 +60,11 @@ Those who could not take care of themselves were given appropriate assistance. H
 
 “The following is a suggestive outline for a … project for each ward in the Church in the beet-growing districts of Utah and Idaho, … to take care of the unemployed members of the Church:
 
-“The Bishopric of each ward \[is\] requested to select and secure at once 100 or more acres of land suitable for sugar beets. …
+“The Bishopric of each ward \[is\] requested to select and secure at once 100 or more acres of land suitable for sugar beets. …
 
-“Then the Bishopric could divide up the acreage, … according to the size of the family, to do the hand work; namely, the thinning, the hoeing, irrigating, keeping the beets clean, the pulling and topping, and loading the same into the wagon at the time of harvesting. …
+“Then the Bishopric could divide up the acreage, … according to the size of the family, to do the hand work; namely, the thinning, the hoeing, irrigating, keeping the beets clean, the pulling and topping, and loading the same into the wagon at the time of harvesting. …
 
-“The laborers should receive an advance payment at the time of thinning, hoeing and irrigating, and when the work is done so that they may be able to live during the summer while the crop is growing. …
+“The laborers should receive an advance payment at the time of thinning, hoeing and irrigating, and when the work is done so that they may be able to live during the summer while the crop is growing. …
 
 “If this unemployment is to be solved, it must be done by all the people working together and helping each other to find employment, and if the start is made this season, more preparation can be made for another season and the project expanded so that it will become of material benefit and absorb a large percentage of the unemployed.”
 
@@ -85,8 +87,3 @@ God bless us all with a keen understanding of the foundation upon which all thes
 
 
 
-
-
-
-
-#Welfare #Work

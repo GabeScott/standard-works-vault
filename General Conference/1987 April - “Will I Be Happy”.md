@@ -1,5 +1,7 @@
 # “Will I Be Happy?”
 
+Ezra Taft Benson
+
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -28,7 +30,7 @@ All immoral behavior directly impacts society. Even innocent people are affected
 
 Second, adults and children need to know that public and private morality is not outmoded. We need to love our children enough to teach them that laws, policies, and public programs with a moral and ethical basis are necessary for the preservation of a peaceful, productive, compassionate, and happy society. Without the qualities and characteristics of integrity, honesty, commitment, loyalty, respect for others, fidelity, and virtue, a free and open society cannot endure.
 
-Elder Dallin H. Oaks recently responded to those who say, “Don’t legislate morality.” Said Elder Oaks: “I suppose persons who mouth that familiar slogan think they are saying something profound. In fact, if that is an argument at all, it is so superficial that an educated person should be ashamed to use it. As should be evident to every thinking person, a high proportion of all legislation has a moral base. That is true of the criminal law, most of the laws regulating family relations, businesses, and commercial transactions, many of the laws governing property, and a host of others” (“Gambling—Morally Wrong and Politically Unwise,” transcript of an address given at Ricks College, 6 Jan. 1987, p. 20).
+Elder Dallin H. Oaks recently responded to those who say, “Don’t legislate morality.” Said Elder Oaks: “I suppose persons who mouth that familiar slogan think they are saying something profound. In fact, if that is an argument at all, it is so superficial that an educated person should be ashamed to use it. As should be evident to every thinking person, a high proportion of all legislation has a moral base. That is true of the criminal law, most of the laws regulating family relations, businesses, and commercial transactions, many of the laws governing property, and a host of others” (“Gambling—Morally Wrong and Politically Unwise,” transcript of an address given at Ricks College, 6 Jan. 1987, p. 20).
 
 Until recently, ethics and moral philosophy were the foundation of higher education. They were a legacy passed from generation to generation. Those values are as relevant today as when they were taught by Aristotle. Said he, “Man perfected by society is the best of all animals; he is the most terrible of all when he lives without law, and without justice” (*Politics,* 1.1253a, lines 31–34). Therefore, public and private morality need much greater emphasis everywhere.
 
@@ -38,7 +40,7 @@ It is in a home and with a family that values are usually acquired, traditions a
 
 To strengthen the family, the morals of human sexuality need to be restored. Bryce Christensen recently wrote, “Children who have watched parents treat one another with affection and courtesy already understand more about the relationship between the sexes than they will ever learn from any class in reproductive physiology” (*The Family in America,* Mar. 1987, 1:3).
 
-By the word of the Lord, all men and women are to practice chastity before marriage and fidelity after marriage. “Thou shalt not commit adultery,” said the Lord ([[Exodus 20.14|Ex. 20:14]]), “nor do anything like unto it” ([[D&C 59.6|D&C 59:6]]). The Apostle Paul was more explicit in his epistle to the Corinthians (see [[1 Corinthians 6.9|1 Cor. 6:9]]), as was Alma in the Book of Mormon (see [[Alma 39.1|Alma 39:1–13]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]]).
+By the word of the Lord, all men and women are to practice chastity before marriage and fidelity after marriage. “Thou shalt not commit adultery,” said the Lord ([[Exodus 20.14|Ex. 20:14]]), “nor do anything like unto it” ([[D&C 59.6|D&C 59:6]]). The Apostle Paul was more explicit in his epistle to the Corinthians (see [[1 Corinthians 6.9|1 Cor. 6:9]]), as was Alma in the Book of Mormon (see [[Alma 39.1|Alma 39:1–13]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]]).
 
 Alternatives to the legal and loving marriage between a man and a woman are helping to unravel the fabric of human society. That fabric, of course, is the family. These so-called alternative life-styles cannot be accepted as right because they frustrate God’s commandment for a life-giving union of male and female within a legal marriage (see [[Genesis 1.28|Gen. 1:28]]). If practiced by all adults, these life-styles would mean the end of family.
 
@@ -54,11 +56,11 @@ My Aunt Angie has hand made 175 quilts for her children, grandchildren, nieces, 
 
 Good family life seems to have little to do with whether we are in affluent or humble circumstances. All over the world the poor have good, resilient families. They do their best to raise their children and be good neighbors; they are “money-poor” but “value-wealthy.” Family problems seem to fall on both the wealthy and the impoverished.
 
-The White House Conference on Families reports that “Good families, rich or poor or in between, provide encouragement and support to their children, but no excuses. They teach character. They insist upon standards. They demand respect. They require performance” (*The White House Report on the Family,* Nov. 1986, p. 32).
+The White House Conference on Families reports that “Good families, rich or poor or in between, provide encouragement and support to their children, but no excuses. They teach character. They insist upon standards. They demand respect. They require performance” (*The White House Report on the Family,* Nov. 1986, p. 32).
 
 The *White House Report on the Family* continues:
 
-“For most … life is not a matter of legislative battles, judicial decrees and executive decisions. It is a fabric of helping hands and good neighbors; bedtime stories and shared prayers; loving-packed lunchboxes and household budget balancing; tears wiped away and a precious heritage passed along; it is hard work and a little put away for the future. In a healthy society, heroes are the men, women, children who hold the world together one home at a time; the parents and grandparents who forgo pleasures, delay purchases, foreclose options, and commit most of their lives to the noblest undertaking of citizenship; raising children who, resting on the shoulders of the previous generation, will see farther than we and reach higher” (pp. 8–9).
+“For most … life is not a matter of legislative battles, judicial decrees and executive decisions. It is a fabric of helping hands and good neighbors; bedtime stories and shared prayers; loving-packed lunchboxes and household budget balancing; tears wiped away and a precious heritage passed along; it is hard work and a little put away for the future. In a healthy society, heroes are the men, women, children who hold the world together one home at a time; the parents and grandparents who forgo pleasures, delay purchases, foreclose options, and commit most of their lives to the noblest undertaking of citizenship; raising children who, resting on the shoulders of the previous generation, will see farther than we and reach higher” (pp. 8–9).
 
 Troubled as many homes may be in our society, we cannot abandon the home as the primary teacher of moral values. Nowhere else will moral values be taught so effectively. As Brigham Young counseled, we must teach children “by faith rather than by the rod, leading them kindly by good example into all truth and holiness” (*Journal of Discourses,* 12:174).
 
@@ -73,8 +75,3 @@ Someone must love the children enough to do this. Then, if it is done everywhere
 
 
 
-
-
-
-
-#Family #Joy #Morality #Parenthood

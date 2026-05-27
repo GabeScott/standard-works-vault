@@ -1,6 +1,8 @@
 # “Even As I Am”
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -86,7 +88,7 @@ You Latter-day Saints girls, younger and older; you Latter-day Saint women, marr
 
 It is true that He established His Church anciently when He lived in mortality, but uninspired men altered it and destroyed it. To preserve His gospel, He took it from this wicked earth and kept it in heaven for a time, awaiting a better day.
 
-As the prophets foretold, in the very hour of God’s judgment He would bring it back to earth. He would send an angel as His messenger, flying through the midst of heaven. (See [[Revelation 14.6|Rev. 14:6–7]][[Revelation 14.7|]].) He would raise up a new prophet to receive the angel, and through him restore His truth. (See [[2 Nephi 3.7|2 Ne. 3:7–16]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]][[2 Nephi 3.12|]][[2 Nephi 3.13|]][[2 Nephi 3.14|]][[2 Nephi 3.15|]][[2 Nephi 3.16|]].) All this the Lord has now done.
+As the prophets foretold, in the very hour of God’s judgment He would bring it back to earth. He would send an angel as His messenger, flying through the midst of heaven. (See [[Revelation 14.6|Rev. 14:6–7]][[Revelation 14.7|]].) He would raise up a new prophet to receive the angel, and through him restore His truth. (See [[2 Nephi 3.7|2 Ne. 3:7–16]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]][[2 Nephi 3.12|]][[2 Nephi 3.13|]][[2 Nephi 3.14|]][[2 Nephi 3.15|]][[2 Nephi 3.16|]].) All this the Lord has now done.
 
 Who was this new prophet?
 
@@ -199,8 +201,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Jesus_Christ #Women

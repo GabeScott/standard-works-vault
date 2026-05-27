@@ -1,5 +1,7 @@
 # “What Went Ye Out … to See?”
 
+Ezra Taft Benson
+
 By Elder Gerald E. Melchin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -21,8 +23,3 @@ As I have read the scriptures, I have watched all of the prophets who have affec
 
 
 
-
-
-
-
-#Commitment

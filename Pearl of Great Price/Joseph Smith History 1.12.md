@@ -5,6 +5,6 @@
 [Joseph Smith History 1:12](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.12?lang=eng#p12)
 
 
-[^a]: [[D&C 138.6|D&C 138:6.]]
-[^b]: TG [[Guidance, Divine]].
-[^c]: [[1 Corinthians 2.11|1 Cor. 2:11 (10-16).]]
+[^a]: [[D&C 138.6|D&C 138:6]].  
+[^b]: [[Guidance, Divine|TG Guidance, Divine]].  
+[^c]: [[1 Corinthians 2.10|1 Cor. 2:11 (10–16)]][[1 Corinthians 2.11|]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]][[1 Corinthians 2.15|]][[1 Corinthians 2.16|]].  

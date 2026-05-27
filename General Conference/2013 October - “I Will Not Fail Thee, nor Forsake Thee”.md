@@ -1,6 +1,8 @@
 # “I Will Not Fail Thee, nor Forsake Thee”
 
-By President Thomas S. Monson - *President of the Church*
+Thomas S. Monson
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -10,9 +12,9 @@ By President Thomas S. Monson - *President of the Church*
 
 In my journal tonight, I shall write, “This has been one of the most inspiring sessions of any general conference I’ve attended. Everything has been of the greatest and most spiritual nature.”
 
-Brothers and sisters, six months ago as we met together in our general conference, my sweet wife, Frances, lay in the hospital, having suffered a devastating fall just a few days earlier. In May, after weeks of valiantly struggling to overcome her injuries, she slipped into eternity. Her loss has been profound. She and I were married in the Salt Lake Temple on October 7, 1948. Tomorrow would have been our 65th wedding anniversary. She was the love of my life, my trusted confidant, and my closest friend. To say that I miss her does not begin to convey the depth of my feelings.
+Brothers and sisters, six months ago as we met together in our general conference, my sweet wife, Frances, lay in the hospital, having suffered a devastating fall just a few days earlier. In May, after weeks of valiantly struggling to overcome her injuries, she slipped into eternity. Her loss has been profound. She and I were married in the Salt Lake Temple on October 7, 1948. Tomorrow would have been our 65th wedding anniversary. She was the love of my life, my trusted confidant, and my closest friend. To say that I miss her does not begin to convey the depth of my feelings.
 
-This conference marks 50 years since I was called to the Quorum of the Twelve Apostles by President David O. McKay. Through all these years I have felt nothing but the full and complete support of my sweet companion. Countless are the sacrifices she made so that I could fulfill my calling. Never did I hear a word of complaint from her as I was often required to spend days and sometimes weeks away from her and from our children. She was an angel, indeed.
+This conference marks 50 years since I was called to the Quorum of the Twelve Apostles by President David O. McKay. Through all these years I have felt nothing but the full and complete support of my sweet companion. Countless are the sacrifices she made so that I could fulfill my calling. Never did I hear a word of complaint from her as I was often required to spend days and sometimes weeks away from her and from our children. She was an angel, indeed.
 
 I wish to express my thanks, as well as those of my family, for the tremendous outpouring of love which has come to us since Frances’s passing. Hundreds of cards and letters were sent from around the world expressing admiration for her and condolences to our family. We received dozens of beautiful floral arrangements. We are grateful for the numerous contributions which have been offered in her name to the General Missionary Fund of the Church. On behalf of those of us whom she left behind, I express deep gratitude for your kind and heartfelt expressions.
 
@@ -95,11 +97,9 @@ With all the strength of my soul, I testify that God lives and loves us, that Hi
 
 [^7]: [[Joshua 1.5|Joshua 1:5]].
 
-[^8]: Douglas Malloch, “Good Timber,” in Sterling W. Sill, *Making the Most of Yourself* (1971), 23.
+[^8]: Douglas Malloch, “Good Timber,” in Sterling W. Sill, *Making the Most of Yourself* (1971), 23.
 
 [^9]: [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
+[^10]: [[Joshua 1.5|Joshua 1:5]].
 
-
-
-#Adversity #Gratitude

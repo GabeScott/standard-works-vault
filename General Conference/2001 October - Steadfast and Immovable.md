@@ -1,5 +1,7 @@
 # Steadfast and Immovable
 
+Gordon B. Hinckley
+
 By Mary Ellen W. Smoot - *Relief Society General President*
 
 *Given in the October session of the 2001 General Conference*
@@ -81,8 +83,3 @@ That we may finish gloriously, that we may focus our energies on those things of
 
 [^8]: *Ensign,* Nov. 1999, 92.
 
-
-
-
-
-#Faith #Family #Joy #Motherhood #Peace #Prayer #Priorities #Relief_Society #Scripture_Study

@@ -1,6 +1,8 @@
 # Lengthening Your Stride as a Missionary
 
-By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Franklin D. Richards - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -58,15 +60,10 @@ May we get the vision of more than 3 1/2 million member missionaries bringing so
 
 And again, to all seekers of truth: A new life-style awaits those who accept the restored gospel and let it work in their lives; truly they will find the answer to their question, “What is the purpose of life?” We encourage you to investigate “Mormonism”—The Church of Jesus Christ of Latter-day Saints.
 
-My brothers and sisters, we are engaged in building the kingdom of God. I bear you my witness that God the Father and His Son Jesus Christ did appear to the Prophet Joseph Smith, that God lives, and that Jesus is the Christ. The gospel in its fulness has been restored through the instrumentality of the Prophet Joseph Smith, and it is our privilege and responsibility to share it with others. Joseph Smith was a great prophet, and we have a great prophet at the head of the Church today, our beloved President Spencer W. Kimball.
+My brothers and sisters, we are engaged in building the kingdom of God. I bear you my witness that God the Father and His Son Jesus Christ did appear to the Prophet Joseph Smith, that God lives, and that Jesus is the Christ. The gospel in its fulness has been restored through the instrumentality of the Prophet Joseph Smith, and it is our privilege and responsibility to share it with others. Joseph Smith was a great prophet, and we have a great prophet at the head of the Church today, our beloved President Spencer W. Kimball.
 
 Let us increase our effectiveness in missionary work in order that the kingdom of God may go forth at an accelerated rate, so that the kingdom of heaven may come. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Missionary_Work

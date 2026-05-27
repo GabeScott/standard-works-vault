@@ -1,5 +1,7 @@
 # The Opportunity to Serve
 
+Gordon B. Hinckley
+
 By Elder Gerald N. Lund - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -25,8 +27,3 @@ Again, we rejoice in this opportunity to serve. We are deeply humbled and greatl
 
 
 
-
-
-
-
-#Humility #Prophets #Service

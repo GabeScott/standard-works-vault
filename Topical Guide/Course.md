@@ -1,6 +1,5 @@
 # Course
 
-
 Hezekiah appointed the *courses* of the priests, [[2 Chronicles 31.2|2 Chronicles 31:2]].
 
 foundations of the earth are out of *course*, [[Psalms 82.5|Psalms 82:5]].

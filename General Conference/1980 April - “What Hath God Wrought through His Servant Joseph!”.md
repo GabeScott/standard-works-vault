@@ -1,6 +1,8 @@
 # “What Hath God Wrought through His Servant Joseph!”
 
-By Elder Gordon B. Hinckley - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -14,7 +16,7 @@ To a world plagued with doubt over the actuality of that resurrection, Joseph Sm
 
 First, he spoke out of the experience of his incomparable vision of the Father and the Son, whom he both saw and heard. They were individual personages of form and substance, of body and voice. They spoke with him as one man speaketh with another (see [[Exodus 33.11|Ex. 33:11]]).
 
-Secondly, as the instrumentality through which came the Book of Mormon, Joseph Smith has borne witness of the Savior to all who have read and will read that volume. Its constantly recurring message is a testimony of the promised Messiah who came to the earth and gave his life for the sins of all mankind, and who rose triumphant from the grave as “the first fruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]).
+Secondly, as the instrumentality through which came the Book of Mormon, Joseph Smith has borne witness of the Savior to all who have read and will read that volume. Its constantly recurring message is a testimony of the promised Messiah who came to the earth and gave his life for the sins of all mankind, and who rose triumphant from the grave as “the first fruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]).
 
 Thirdly, Joseph Smith bore witness of the living Lord through the Church organized here on these grounds. This church carries the name of Jesus Christ, and its members are expected by precept and example to bear witness of him in whose name they meet and serve.
 
@@ -62,13 +64,8 @@ John Taylor, who was then with him, summed up his work in these words: “Joseph
 
 Standing at the crest of a century and a half since the organization of the Church, we are inclined to exclaim, “What hath God wrought through the instrumentality of his servant Joseph!”
 
-I give you my testimony of him. He was the ordained servant of God, this Joseph raised up to become the mighty prophet of this dispensation—“a seer, a translator, a prophet, an apostle of Jesus Christ” ([[D&C 21.1|D&C 21:1]]). To that witness I add another word of testimony, that President Spencer W. Kimball, with us today, is Joseph Smith’s rightful successor, the prophet of our time, the President of the church which was organized here 150 years ago today. Its history has been heroic. It stands today a tower of strength, an anchor of certainty in an unsettled world. Its future is secure as the church and kingdom of God, of which I bear solemn witness in the sacred name of Jesus Christ, amen.
+I give you my testimony of him. He was the ordained servant of God, this Joseph raised up to become the mighty prophet of this dispensation—“a seer, a translator, a prophet, an apostle of Jesus Christ” ([[D&C 21.1|D&C 21:1]]). To that witness I add another word of testimony, that President Spencer W. Kimball, with us today, is Joseph Smith’s rightful successor, the prophet of our time, the President of the church which was organized here 150 years ago today. Its history has been heroic. It stands today a tower of strength, an anchor of certainty in an unsettled world. Its future is secure as the church and kingdom of God, of which I bear solemn witness in the sacred name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Joseph_Smith #Restoration

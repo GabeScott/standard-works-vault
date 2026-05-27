@@ -1,5 +1,7 @@
 # A Tragic Evil among Us
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2004 General Conference*
@@ -28,19 +30,19 @@ I quote now:
 
 “My husband of 35 years died recently. … He had visited with our good bishop as quickly as he could after his most recent surgery. Then he came to me on that same evening to tell me he had been addicted to pornography. He needed me to forgive him \[before he died\]. He further said that he had grown tired of living a double life. \[He had served in many important\] Church callings while knowing \[at the same time\] that he was in the grips of this ‘other master.’
 
-“I was stunned, hurt, felt betrayed and violated. I could not promise him forgiveness at that moment but pleaded for time. … I was able to review my married life \[and see how\] pornography had … put a stranglehold on our marriage from early on. We had only been married a couple of months when he brought home a \[pornographic\] magazine. I locked him out of the car because I was so hurt and angry. …
+“I was stunned, hurt, felt betrayed and violated. I could not promise him forgiveness at that moment but pleaded for time. … I was able to review my married life \[and see how\] pornography had … put a stranglehold on our marriage from early on. We had only been married a couple of months when he brought home a \[pornographic\] magazine. I locked him out of the car because I was so hurt and angry. …
 
 “For many years in our marriage … he was most cruel in many of his demands. I was never good enough for him. … I felt incredibly beaten down at that time to a point of deep depression. … I know now that I was being compared to the latest ‘porn queen.’ …
 
-“We went to counseling one time and … my husband proceeded to rip me apart with his criticism and disdain of me. …
+“We went to counseling one time and … my husband proceeded to rip me apart with his criticism and disdain of me. …
 
 “I could not even get into the car with him after that but walked around the town … for hours, contemplating suicide. \[I thought,\] ‘Why go on if this is all that my “eternal companion” feels for me?’
 
-“I did go on, but zipped a protective shield around myself. I existed for other reasons than my husband and found joy in my children, in projects and accomplishments that I could do totally on my own. …
+“I did go on, but zipped a protective shield around myself. I existed for other reasons than my husband and found joy in my children, in projects and accomplishments that I could do totally on my own. …
 
-“After his ‘deathbed confession’ and \[after taking time\] to search through my life, I \[said\] to him, ‘Don’t you know what you have done?’ … I told him that I had brought a pure heart into our marriage, kept it pure during that marriage, and intended to keep it pure ever after. Why could he not do the same for me? All I ever wanted was to feel cherished and treated with the smallest of pleasantries … instead of being treated like some kind of chattel. …
+“After his ‘deathbed confession’ and \[after taking time\] to search through my life, I \[said\] to him, ‘Don’t you know what you have done?’ … I told him that I had brought a pure heart into our marriage, kept it pure during that marriage, and intended to keep it pure ever after. Why could he not do the same for me? All I ever wanted was to feel cherished and treated with the smallest of pleasantries … instead of being treated like some kind of chattel. …
 
-“I am now left to grieve not only for his being gone but also for a relationship that could have been \[beautiful, but was not\]. …
+“I am now left to grieve not only for his being gone but also for a relationship that could have been \[beautiful, but was not\]. …
 
 “Please warn the brethren (and sisters). Pornography is not some titillating feast for the eyes that gives a momentary rush of excitement. \[Rather\] it has the effect of damaging hearts and souls to their very depths, strangling the life out of relationships that should be sacred, hurting to the very core those you should love the most.”
 
@@ -56,11 +58,11 @@ I recently read that pornography has become a $57 billion industry worldwide. Tw
 
 It robs the workplace of the time and talents of employees. “20% of men admit accessing pornography at work. 13% of women \[do so\]. … 10% of adults admit having internet sexual addiction” (“Internet Pornography Statistics: 2003”). That is their admission, but actually the number may be much higher.
 
-The National Coalition for the Protection of Children and Families states that “approximately 40 million people in the United States are sexually involved with the Internet. …
+The National Coalition for the Protection of Children and Families states that “approximately 40 million people in the United States are sexually involved with the Internet. …
 
-“One in five children ages 10–17 \[has\] received a sexual solicitation over the Internet. …
+“One in five children ages 10–17 \[has\] received a sexual solicitation over the Internet. …
 
-“Three million of the visitors to adult websites in September 2000 were age 17 or younger. …
+“Three million of the visitors to adult websites in September 2000 were age 17 or younger. …
 
 “Sex is the number 1 topic searched on the Internet” (NCPCF Online, “Current Statistics,” Internet, http://www.nationalcoalition.org/resourcesservices/stat.html).
 
@@ -84,7 +86,7 @@ I repeat, we can do better than this. We must do better than this. We are men of
 
 If there be any within the sound of my voice who are doing so, then may you plead with the Lord out of the depths of your soul that He will remove from you the addiction which enslaves you. And may you have the courage to seek the loving guidance of your bishop and, if necessary, the counsel of caring professionals.
 
-Let any who may be in the grip of this vise get upon their knees in the privacy of their closet and plead with the Lord for help to free them from this evil monster. Otherwise this vicious stain will continue through life and even into eternity. Jacob, the brother of Nephi, taught, “And it shall come to pass that when all men shall have passed from this first death unto life, insomuch as they have become immortal, … they who are righteous shall be righteous still, and they who are filthy shall be filthy still” ([[2 Nephi 9.15|2 Nephi 9:15–16]][[2 Nephi 9.16|]]).
+Let any who may be in the grip of this vise get upon their knees in the privacy of their closet and plead with the Lord for help to free them from this evil monster. Otherwise this vicious stain will continue through life and even into eternity. Jacob, the brother of Nephi, taught, “And it shall come to pass that when all men shall have passed from this first death unto life, insomuch as they have become immortal, … they who are righteous shall be righteous still, and they who are filthy shall be filthy still” ([[2 Nephi 9.15|2 Nephi 9:15–16]][[2 Nephi 9.16|]]).
 
 President Joseph F. Smith, in his vision of the Savior’s visit among the spirits of the dead, saw that “unto the wicked he did not go, and among the ungodly and the unrepentant who had defiled themselves while in the flesh, his voice was not raised” ([[D&C 138.20|D&C 138:20]]).
 
@@ -113,8 +115,3 @@ May heaven’s blessings attend you, my dear brethren. May all of us reach out t
 
 
 
-
-
-
-
-#Media #Morality #Repentance #Temptation

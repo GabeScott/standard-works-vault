@@ -1,5 +1,7 @@
 # The Shield of Faith
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -42,9 +44,9 @@ At Haun’s Mill, a heroic pioneer woman, Amanda Smith, learned by faith how to 
 
 “Flesh, hip bone, joint and all had been ploughed out. … We laid little Alma on a bed in our tent and I examined the wound. It was a ghastly sight. I knew not what to do. … Yet was I there, all that long, dreadful night, with my dead and my wounded, and none but God as our physician and help. ‘Oh my Heavenly Father,’ I cried, ‘what shall I do? Thou seest my poor wounded boy and knowest my inexperience. Oh, Heavenly Father, direct me what to do!’ And then I was directed as by a voice speaking to me.
 
-“… Our fire was still smouldering. … I was directed to take … ashes and make a lye and put a cloth saturated with it right into the wound. … Again and again I saturated the cloth and put it into the hole … , and each time mashed flesh and splinters of bone came away with the cloth; and the wound became as white as chicken’s flesh.
+“… Our fire was still smouldering. … I was directed to take … ashes and make a lye and put a cloth saturated with it right into the wound. … Again and again I saturated the cloth and put it into the hole … , and each time mashed flesh and splinters of bone came away with the cloth; and the wound became as white as chicken’s flesh.
 
-“Having done as directed I again prayed to the Lord and was again instructed as distinctly as though a physician had been standing by speaking to me. Near by was a slippery-elm tree. From this I was told to make a … poultice and fill the wound with it. … The poultice was made, and the wound, which took fully a quarter of a yard of linen to cover, … was properly dressed. …
+“Having done as directed I again prayed to the Lord and was again instructed as distinctly as though a physician had been standing by speaking to me. Near by was a slippery-elm tree. From this I was told to make a … poultice and fill the wound with it. … The poultice was made, and the wound, which took fully a quarter of a yard of linen to cover, … was properly dressed. …
 
 “I removed the wounded boy to a house … and dressed his hip; the Lord directing me as before. I was reminded that in my husband’s trunk there was a bottle of balsam. This I poured into the wound, greatly soothing Alma’s pain.
 
@@ -60,7 +62,7 @@ At Haun’s Mill, a heroic pioneer woman, Amanda Smith, learned by faith how to 
 
 “Then I laid him comfortably on his face, and said: ‘Now you lay like that, and don’t move, and the Lord will make you another hip.’
 
-“So Alma laid on his face for five weeks, until he was entirely recovered—a flexible gristle having grown in place of the missing joint and socket, which remains to this day a marvel to physicians. …
+“So Alma laid on his face for five weeks, until he was entirely recovered—a flexible gristle having grown in place of the missing joint and socket, which remains to this day a marvel to physicians. …
 
 “It is now nearly forty years ago, but Alma has never been the least crippled during his life, and he has traveled quite a long period of the time as a missionary of the gospel and \[is\] a living miracle of the power of God.”[^12]
 
@@ -68,7 +70,7 @@ The treatment was unusual for that day and time, and unheard of now, but when we
 
 “If ye will … exercise a particle of faith, … let this desire work in you, even until ye believe in a manner that ye can give place for a portion of my words.
 
-“Now … it must needs be … that the word is good, for it beginneth to enlarge \[your\] soul; yea, it beginneth to enlighten \[your\] understanding. …
+“Now … it must needs be … that the word is good, for it beginneth to enlarge \[your\] soul; yea, it beginneth to enlighten \[your\] understanding. …
 
 “Now behold, would not this increase your faith?”[^13]
 
@@ -95,7 +97,7 @@ This is the work of God. I believe and testify that, as Paul said, if we can “
 
 [^3]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 90.
 
-[^4]: [[Articles of Faith 1.1|A of F 1:1]].
+[^4]: [[Articles of Faith 1.1|A of F 1:1]].
 
 [^5]: In John Bartlett, comp., *Familiar Quotations,* 14th ed. (1968), 950.
 
@@ -119,8 +121,3 @@ This is the work of God. I believe and testify that, as Paul said, if we can “
 
 [^15]: [[Ephesians 4.13|Eph. 4:13]].
 
-
-
-
-
-#Adversity #Compassion #Education #Evil #Faith #General_Conference #Humility #Media #Spirituality #Success #Temple_Square

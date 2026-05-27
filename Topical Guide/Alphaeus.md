@@ -1,4 +1,3 @@
 # Alphaeus
 
-
-*See* [BD Alphaeus](https://www.churchofjesuschrist.org/study/scriptures/bd/alphaeus?lang=eng)
+*See also* [[BD Alphaeus.md|BD Alphaeus]]

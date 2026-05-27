@@ -1,4 +1,3 @@
 # Eternal Punishment
 
-
-*See* [[Holy Ghost, Unpardonable Sin against.md|Holy Ghost, Unpardonable Sin against]]; [[Punish, Punishment.md|Punish]]
+*See also* [[Holy Ghost, Unpardonable Sin against.md|Holy Ghost, Unpardonable Sin against]]; [[Punish.md|Punish]]

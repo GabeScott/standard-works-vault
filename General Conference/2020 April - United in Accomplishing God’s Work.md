@@ -1,6 +1,8 @@
 # United in Accomplishing God’s Work
 
-By Jean B. Bingham - *Relief Society General President*
+Russell M. Nelson
+
+By Jean B. Bingham - *Relief Society General President*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -24,17 +26,17 @@ So, over the years and around the globe, a full understanding of the divinely in
 
 And then the light of the restored gospel shone “above the brightness of the sun”[^3] when God the Father and His Son, Jesus Christ, appeared to the boy Joseph Smith early in the spring of 1820 in that hallowed woodland in upstate New York. That event began a modern outpouring of revelation from heaven. One of the first elements of Christ’s original Church to be restored was the authority of the priesthood of God. As the Restoration continued to unfold, men and women began to realize anew the importance and potential of working as partners, authorized and directed in this sacred labor by Him.
 
-In 1842, when the women of the fledgling Church wanted to form an official group to help in the work, President Joseph Smith felt inspired to organize them “under the priesthood after the pattern of the priesthood.”[^4] He said, “I now turn the key to you in the name of God … —this is the beginning of better days.”[^5] And since that key was turned, educational, political, and economic opportunities for women have begun to gradually expand throughout the world.[^6]
+In 1842, when the women of the fledgling Church wanted to form an official group to help in the work, President Joseph Smith felt inspired to organize them “under the priesthood after the pattern of the priesthood.”[^4] He said, “I now turn the key to you in the name of God … —this is the beginning of better days.”[^5] And since that key was turned, educational, political, and economic opportunities for women have begun to gradually expand throughout the world.[^6]
 
 This new Church organization for women, named the Relief Society, was unlike other women’s societies of the day because it was established by a prophet who acted with priesthood authority to give women authority, sacred responsibilities, and official positions within the structure of the Church, not apart from it.[^7]
 
 From the Prophet Joseph Smith’s day to ours, the ongoing restoration of all things has brought enlightenment on the necessity of the authority and power of the priesthood in helping both men and women accomplish their divinely appointed responsibilities. Recently we have been taught that women who are set apart under the direction of one holding priesthood keys operate with *priesthood authority* in their callings.[^8]
 
-In October 2019, President Russell M. Nelson taught that women who are endowed in the temple have *priesthood power* in their lives and in their homes as they keep those sacred covenants they made with God.[^9] He explained that “the heavens are just as open to *women* who are endowed with God’s power flowing from their priesthood covenants as they are to men who bear the priesthood.” And he encouraged every sister to “draw liberally upon the Savior’s power to help your family and others you love.”[^10]
+In October 2019, President Russell M. Nelson taught that women who are endowed in the temple have *priesthood power* in their lives and in their homes as they keep those sacred covenants they made with God.[^9] He explained that “the heavens are just as open to *women* who are endowed with God’s power flowing from their priesthood covenants as they are to men who bear the priesthood.” And he encouraged every sister to “draw liberally upon the Savior’s power to help your family and others you love.”[^10]
 
 So what does that mean for you and me? How does understanding priesthood authority and power change our lives? One of the keys is to understand that when women and men work together, we accomplish a great deal more than we do working separately.[^11] Our roles are complementary rather than competitive. Although women are not ordained to a priesthood office, as noted previously women are blessed with priesthood power as they keep their covenants, and they operate with priesthood authority when they are set apart to a calling.
 
-On a lovely August day, I was privileged to sit down with President Russell M. Nelson in the reconstructed home of Joseph and Emma Smith in Harmony, Pennsylvania, near where the Aaronic Priesthood was restored in these latter days. In our conversation, President Nelson talked about the important role women played in the Restoration.
+On a lovely August day, I was privileged to sit down with President Russell M. Nelson in the reconstructed home of Joseph and Emma Smith in Harmony, Pennsylvania, near where the Aaronic Priesthood was restored in these latter days. In our conversation, President Nelson talked about the important role women played in the Restoration.
 
 **President Nelson:** “One of the most important aspects that I am reminded of when I come to this restoration of the priesthood site is the important role that women played in the Restoration.
 
@@ -64,7 +66,7 @@ Today, “we need women who have the courage and vision of our Mother Eve”[^15
 
 Seeing women as vital participants is not about creating parity but about understanding doctrinal truth. Rather than establishing a program to bring that about, we can actively work to value women as God does: as essential partners in the work of salvation and exaltation.
 
-Are we ready? Will we strive to overcome cultural bias and instead embrace divine patterns and practices based on foundational doctrine? President Russell M. Nelson invites us to “walk arm in arm in this sacred work … \[to\] help prepare the world for the Second Coming of the Lord.”[^19] As we do, we will learn to value each individual’s contributions and increase the effectiveness with which we fulfill our divine roles. We will feel greater joy than we have ever experienced.
+Are we ready? Will we strive to overcome cultural bias and instead embrace divine patterns and practices based on foundational doctrine? President Russell M. Nelson invites us to “walk arm in arm in this sacred work … \[to\] help prepare the world for the Second Coming of the Lord.”[^19] As we do, we will learn to value each individual’s contributions and increase the effectiveness with which we fulfill our divine roles. We will feel greater joy than we have ever experienced.
 
 May each of us choose to become united in the Lord’s inspired way to help His work go forward. In the name of our beloved Savior, Jesus Christ, amen.
 
@@ -77,40 +79,35 @@ May each of us choose to become united in the Lord’s inspired way to help His 
 
 [^3]: [[Joseph Smith History 1.16|Joseph Smith—History 1:16]].
 
-[^4]: Joseph Smith, in Sarah M. Kimball, “Auto-Biography,” *Woman’s Exponent,* Sept. 1, 1883, 51; see also *Teachings of Presidents of the Church: Joseph Smith* (2007), 451.
+[^4]: Joseph Smith, in Sarah M. Kimball, “Auto-Biography,” *Woman’s Exponent,* Sept. 1, 1883, 51; see also *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-39?lang=eng)* (2007), 451.
 
 [^5]: Joseph Smith, in “[Nauvoo Relief Society Minute Book](https://www.josephsmithpapers.org/paper-summary/nauvoo-relief-society-minute-book/37),” 40, josephsmithpapers.org.
 
 [^6]: See George Albert Smith, “Address to the Members of the Relief Society,” *Relief Society Magazine,* Dec. 1945, 717.
 
-[^7]: See John Taylor, in Nauvoo Relief Society Minutes, Mar. 17, 1842, available at churchhistorianspress.org. According to Eliza R. Snow, Joseph Smith also taught that women had been formally organized in previous dispensations (see Eliza R. Snow, “Female Relief Society,” *Deseret News,* Apr. 22, 1868, 81; *Daughters in My Kingdom: The History and Work of Relief Society* \[2011\], 1–7).
+[^7]: See John Taylor, in Nauvoo Relief Society Minutes, Mar. 17, 1842, available at churchhistorianspress.org. According to Eliza R. Snow, Joseph Smith also taught that women had been formally organized in previous dispensations (see Eliza R. Snow, “Female Relief Society,” *Deseret News,* Apr. 22, 1868, 81; *[Daughters in My Kingdom: The History and Work of Relief Society](https://www.churchofjesuschrist.org/study/manual/daughters-in-my-kingdom-the-history-and-work-of-relief-society/relief-society-a-restoration-of-an-ancient-pattern?lang=eng)* \[2011\], 1–7).
 
-[^8]: See Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52.
+[^8]: See Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52.
 
-[^9]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona,* Nov. 2019, 78, 79.
+[^9]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona,* Nov. 2019, 78, 79.
 
-[^10]: Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” 77.
+[^10]: Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” 77.
 
-[^11]: “But the restored gospel teaches the eternal idea that husbands and wives are *interdependent* with each other. They are equal. They are partners” (Bruce R. and Marie K. Hafen, “[Crossing Thresholds and Becoming Equal Partners](https://churchofjesuschrist.org/study/liahona/2007/08/crossing-thresholds-and-becoming-equal-partners?lang=eng),” *Ensign,* Aug. 2007, 26; *Liahona,* Aug. 2007, 28).
+[^11]: “But the restored gospel teaches the eternal idea that husbands and wives are *interdependent* with each other. They are equal. They are partners” (Bruce R. and Marie K. Hafen, “[Crossing Thresholds and Becoming Equal Partners](https://www.churchofjesuschrist.org/study/liahona/2007/08/crossing-thresholds-and-becoming-equal-partners?lang=eng),” *Ensign,* Aug. 2007, 26; *Liahona,* Aug. 2007, 28).
 
-[^12]: Gospel Topics, “[Joseph Smith’s Teachings about Priesthood, Temple, and Women](https://churchofjesuschrist.org/study/manual/gospel-topics-essays/joseph-smiths-teachings-about-priesthood-temple-and-women?lang=eng),” topics.ChurchofJesusChrist.org.
+[^12]: Gospel Topics, “[Joseph Smith’s Teachings about Priesthood, Temple, and Women](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/joseph-smiths-teachings-about-priesthood-temple-and-women?lang=eng),” topics.ChurchofJesusChrist.org.
 
 [^13]: Personal correspondence.
 
-[^14]: See Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 95–97.
+[^14]: See Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 95–97.
 
-[^15]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” 97.
+[^15]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” 97.
 
-[^16]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints,* 1.4, ChurchofJesusChrist.org.
+[^16]: See *[General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title18#title18),* 1.4, ChurchofJesusChrist.org.
 
-[^17]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” 97.
+[^17]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” 97.
 
-[^18]: “My dear sisters, whatever your calling, whatever your circumstances, we need your impressions, your insights, and your inspiration. We need you to speak up and speak out in ward and stake councils. We need each married sister to speak as ‘a *contributing* and *full* partner’ as you unite with your husband in governing your family. Married or single, you sisters possess distinctive capabilities and special intuition you have received as gifts from God. We brethren cannot duplicate your unique influence. …
+[^18]: “My dear sisters, whatever your calling, whatever your circumstances, we need your impressions, your insights, and your inspiration. We need you to speak up and speak out in ward and stake councils. We need each married sister to speak as ‘a *contributing* and *full* partner’ as you unite with your husband in governing your family. Married or single, you sisters possess distinctive capabilities and special intuition you have received as gifts from God. We brethren cannot duplicate your unique influence. …
 
-[^19]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” 97.
+[^19]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” 97.
 
-
-
-
-
-#Priesthood #Unity #Women

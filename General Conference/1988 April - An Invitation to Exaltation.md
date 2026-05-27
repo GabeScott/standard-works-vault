@@ -1,5 +1,7 @@
 # An Invitation to Exaltation
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
@@ -61,7 +63,7 @@ We treasure the inspired thought:
 >And not a career.
 >
 
-God, our Father, and Jesus Christ, our Lord, have marked the way to perfection. They beckon us to follow eternal verities and to become perfect, as they are perfect (see [[Matthew 5.48|Matt. 5:48]]; [[3 Nephi 12.48|3 Ne. 12:48]]). We remember the inquiring lawyer who asked:
+God, our Father, and Jesus Christ, our Lord, have marked the way to perfection. They beckon us to follow eternal verities and to become perfect, as they are perfect (see [[Matthew 5.48|Matt. 5:48]]; [[3 Nephi 12.48|3 Ne. 12:48]]). We remember the inquiring lawyer who asked:
 
 “Master, which is the great commandment in the law?
 
@@ -73,7 +75,7 @@ God, our Father, and Jesus Christ, our Lord, have marked the way to perfection. 
 
 The Apostle Paul likened life to a race with a clearly defined goal. To the Saints at Corinth he urged:
 
-“Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain” ([[1 Corinthians 9.24|1 Cor. 9:24]]).
+“Know ye not that they which run in a race run all, but one receiveth the prize? So run, that ye may obtain” ([[1 Corinthians 9.24|1 Cor. 9:24]]).
 
 In our zeal, let us not overlook the sage counsel from Ecclesiastes: “The race is not to the swift, nor the battle to the strong” ([[Ecclesiastes 9.11|Eccl. 9:11]]). Actually the prize belongs to him who endures to the end.
 
@@ -109,15 +111,15 @@ Testimonies of the resurrected Lord provide comfort and understanding.
 
 First, from the Apostle Paul:
 
-“Christ died for our sins according to the scriptures; … he was buried, and … he rose again the third day: … he was seen of Cephas, then of the twelve: … he was seen of above five hundred brethren at once; … he was seen of James; then of all the apostles. And last of all he was seen of me also, as of one born out of due time” ([[1 Corinthians 15.3|1 Cor. 15:3–8]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]]).
+“Christ died for our sins according to the scriptures; … he was buried, and … he rose again the third day: … he was seen of Cephas, then of the twelve: … he was seen of above five hundred brethren at once; … he was seen of James; then of all the apostles. And last of all he was seen of me also, as of one born out of due time” ([[1 Corinthians 15.3|1 Cor. 15:3–8]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]]).
 
 Second, from the combined testimony of twenty-five hundred of his other sheep, as recorded in the Book of Mormon, Another Testament of Jesus Christ, the resurrected Lord “spake unto them saying:
 
-“Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world. …
+“Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world. …
 
 “And when they had all gone forth and had witnessed for themselves, they did cry out with one accord, saying:
 
-“Hosanna! Blessed be the name of the Most High God! And they did fall down at the feet of Jesus, and did worship him” ([[3 Nephi 11.13|3 Ne. 11:13–14, 16–17]][[3 Nephi 11.14|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]]).
+“Hosanna! Blessed be the name of the Most High God! And they did fall down at the feet of Jesus, and did worship him” ([[3 Nephi 11.13|3 Ne. 11:13–14, 16–17]][[3 Nephi 11.14|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]]).
 
 Third, from Joseph Smith: “After the many testimonies which have been given of him, this is the testimony, last of all, which we give of him: That He lives!
 
@@ -131,7 +133,7 @@ As the result of Christ’s victory over the grave, we shall all be resurrected.
 
 “There is one glory of the sun, and another glory of the moon, and another glory of the stars: for one star differeth from another star in glory.
 
-“So also is the resurrection of the dead” ([[1 Corinthians 15.40|1 Cor. 15:40–42]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]]).
+“So also is the resurrection of the dead” ([[1 Corinthians 15.40|1 Cor. 15:40–42]][[1 Corinthians 15.41|]][[1 Corinthians 15.42|]]).
 
 It is the celestial glory which we seek. It is in the presence of God we desire to dwell. It is a forever family in which we want membership. Such blessings must be earned.
 
@@ -139,7 +141,7 @@ It is the celestial glory which we seek. It is in the presence of God we desire 
 
 I testify He is a teacher of truth—but He is more than a teacher. He is the exemplar of the perfect life—but He is more than an exemplar. He is the great physician—but He is more than a physician. He is the literal Savior of the World, the Son of God, the Prince of Peace, the Holy One of Israel, even the risen Lord, who declared: “I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“… I am the light and the life of the world” ([[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]]).
+“… I am the light and the life of the world” ([[3 Nephi 11.10|3 Ne. 11:10–11]][[3 Nephi 11.11|]]).
 
 “I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father” ([[D&C 110.4|D&C 110:4]]).
 
@@ -148,8 +150,3 @@ As his witness I testify to you that He lives, in the name of Jesus Christ, amen
 
 
 
-
-
-
-
-#Jesus_Christ #Plan_Of_Salvation

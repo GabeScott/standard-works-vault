@@ -1,5 +1,7 @@
 # We Love You—Please Come Back
 
+Ezra Taft Benson
+
 By Elder Richard G. Scott - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1986 General Conference*
@@ -34,7 +36,7 @@ You will learn that sincere, repeated prayer, study, and meditation bring a full
 
 “Behold, I have come … to bring redemption unto the world, to save the world from sin.
 
-“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. … Therefore repent, and come unto me … and be saved.” ([[3 Nephi 9.21|3 Ne. 9:21–22]][[3 Nephi 9.22|]].)
+“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. … Therefore repent, and come unto me … and be saved.” ([[3 Nephi 9.21|3 Ne. 9:21–22]][[3 Nephi 9.22|]].)
 
 As you ponder such teachings, your own forgiveness will seem more attainable. As you pray from the depth of humility, with total honesty, our Father will hear you and the easing of the burden will begin.
 
@@ -64,7 +66,7 @@ Aaron, his brother, cautioned:
 
 Ammon replied:
 
-“I do not boast in my own strength, nor in my own wisdom; but behold, … my heart is brim with joy, and I will rejoice in my God. …
+“I do not boast in my own strength, nor in my own wisdom; but behold, … my heart is brim with joy, and I will rejoice in my God. …
 
 “Who could have supposed that our God would have been so merciful as to have snatched us from our awful, sinful, and polluted state?
 
@@ -85,5 +87,3 @@ We love you; we need you. Please come back. Don’t wait until all is in perfect
 
 
 
-
-#Activation #Repentance

@@ -1,5 +1,7 @@
 # He Lives! All Glory to His Name!
 
+Thomas S. Monson
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -12,13 +14,13 @@ It is Easter morning, that holy day designated throughout all Christendom to com
 
 How our Father in Heaven must have rejoiced that sacred day when His totally obedient, completely worthy Son shattered the chains of death. What eternal purpose would our Father’s plan of happiness have had except it be made alive through the infinite and eternal Atonement of His gloriously obedient Son? What eternal purpose would have come from the Creation of the earth, where intelligences tabernacled with spirits would receive a body, if death were the end of existence and none would be resurrected? What a glorious moment that morning was for all who understood its significance.
 
-Easter is that sacred season when the heart of each devout Christian turns in humble gratitude to our beloved Savior. It is a season that should bring peace and joy to all who love Him and show it by obeying His commandments. Easter brings thoughts of Jesus, His life, His Atonement, His Resurrection, His love. He has risen from the dead “with healing in his wings” ([[Malachi 4.2|Malachi 4:2]]; [[3 Nephi 25.2|3 Nephi 25:2]]). Oh, how we all need that healing the Redeemer can provide. Mine is a message of hope based on principles embodied in the teachings of the Master Teacher, Jesus Christ.
+Easter is that sacred season when the heart of each devout Christian turns in humble gratitude to our beloved Savior. It is a season that should bring peace and joy to all who love Him and show it by obeying His commandments. Easter brings thoughts of Jesus, His life, His Atonement, His Resurrection, His love. He has risen from the dead “with healing in his wings” ([[Malachi 4.2|Malachi 4:2]]; [[3 Nephi 25.2|3 Nephi 25:2]]). Oh, how we all need that healing the Redeemer can provide. Mine is a message of hope based on principles embodied in the teachings of the Master Teacher, Jesus Christ.
 
 Members of The Church of Jesus Christ of Latter-day Saints can understand more fully the breadth and depth of healing provided by His Atonement because we have the fulness of His doctrine. We realize that what He has willingly done with immense suffering and sacrifice will affect us not only in this life but throughout all eternity.
 
 This Easter, as you remember the Resurrection and the price paid and the gift given through the Atonement, ponder what the scriptures teach of those sacred events. Your personal witness of their reality will be strengthened. They must be more than principles you memorize. They must be woven into the very fiber of your being as a powerful bulwark against the rising tide of abomination that infects our world.
 
-The prophet Lehi declared a profound truth when he stated: “Wherefore, redemption cometh in and through the Holy Messiah; for he is full of grace and truth. Behold, he offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered” ([[2 Nephi 2.6|2 Nephi 2:6–7]][[2 Nephi 2.7|]]). That scripture indicates that for the proud and haughty, it is as though there never were an Atonement made.
+The prophet Lehi declared a profound truth when he stated: “Wherefore, redemption cometh in and through the Holy Messiah; for he is full of grace and truth. Behold, he offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered” ([[2 Nephi 2.6|2 Nephi 2:6–7]][[2 Nephi 2.7|]]). That scripture indicates that for the proud and haughty, it is as though there never were an Atonement made.
 
 Jesus Christ lives. He is our Savior, our Redeemer. He is a glorious, resurrected being. He has the capacity to communicate love that is so powerful, so overwhelming as to surpass the capacity of the human tongue to express adequately. He gave His life to break the bonds of death. His Atonement made fully active the plan of happiness of His Father in Heaven.
 
@@ -61,8 +63,3 @@ The Savior loves each of us and will make it possible for our every need to be s
 
 
 
-
-
-
-
-#Atonement #Jesus_Christ #Teaching

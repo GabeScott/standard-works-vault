@@ -1,5 +1,7 @@
 # The Beauty and Importance of the Sacrament
 
+Ezra Taft Benson
+
 By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -14,9 +16,9 @@ The resurrected Lord instructed the Book of Mormon people:
 
 “\[Ye\] shall break bread and bless it and give it unto the people of my church, unto all those who shall believe and be baptized in my name.
 
-“And this shall ye always observe to do, even as I have done. …
+“And this shall ye always observe to do, even as I have done. …
 
-“And this shall ye do in remembrance of my body, which I have shown unto you. And it shall be a testimony unto the Father that ye do always remember me. And if ye do always remember me ye shall have my Spirit to be with you.” ([[3 Nephi 18.5|3 Ne. 18:5–7]][[3 Nephi 18.6|]][[3 Nephi 18.7|]].)
+“And this shall ye do in remembrance of my body, which I have shown unto you. And it shall be a testimony unto the Father that ye do always remember me. And if ye do always remember me ye shall have my Spirit to be with you.” ([[3 Nephi 18.5|3 Ne. 18:5–7]][[3 Nephi 18.6|]][[3 Nephi 18.7|]].)
 
 The moving tenderness and deep significance of this transcendent event are still available to us today. But we must do as the early disciples did and follow the doctrine of Christ, which is to believe in Jesus, rely on him, repent of our sins, take his name upon us by being baptized in his church, receive the gift of the Holy Ghost, and faithfully follow Christ all of our lives.
 
@@ -24,13 +26,13 @@ He knows we need much help to do this, so he provides that the ordinance of the 
 
 This invitation of the Savior to come unto him is issued regularly and is universal. Everyone is included—men, women, and children. Old and young alike participate. None are barred except by themselves.
 
-The Lord said, “And ye see that I have commanded that none of you should go away, but rather have commanded that ye should come unto me.” ([[3 Nephi 18.25|3 Ne. 18:25]].)
+The Lord said, “And ye see that I have commanded that none of you should go away, but rather have commanded that ye should come unto me.” ([[3 Nephi 18.25|3 Ne. 18:25]].)
 
 But the Lord, who knows the terrible consequences of hypocrisy, also warned:
 
 “Ye shall not suffer any one knowingly to partake of my flesh and blood unworthily, …
 
-“For whoso eateth and drinketh my flesh and blood unworthily eateth and drinketh damnation to his soul.” ([[3 Nephi 18.28|3 Ne. 18:28–29]][[3 Nephi 18.29|]].)
+“For whoso eateth and drinketh my flesh and blood unworthily eateth and drinketh damnation to his soul.” ([[3 Nephi 18.28|3 Ne. 18:28–29]][[3 Nephi 18.29|]].)
 
 What does it mean to partake of the sacrament worthily? Or how do we know if we are unworthy?
 
@@ -87,8 +89,3 @@ Yes, I know he gives life—in all of its depth of meaning. As the emblems of hi
 
 
 
-
-
-
-
-#Sacrament #Worthiness

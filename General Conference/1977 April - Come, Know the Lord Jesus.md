@@ -1,6 +1,8 @@
 # Come, Know the Lord Jesus
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -92,7 +94,7 @@ He has appeared many other times to converse with his earthly friends; and in th
 
 He is our Friend, our Lawgiver, our King, and our Lord. We seek his face and desire to dwell in his presence. We are his people, the sheep of his fold.
 
-Our desire is “to be reconciled to God” through his blood, “for we know that it is by grace that we are saved, after all we can do.” As one of our fellow laborers of old said: “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ,” so that all men “may know to what source they may look for a remission of their sins.” ([[2 Nephi 25.23|2 Ne. 25:23, 26]][[2 Nephi 25.26|]].)
+Our desire is “to be reconciled to God” through his blood, “for we know that it is by grace that we are saved, after all we can do.” As one of our fellow laborers of old said: “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ,” so that all men “may know to what source they may look for a remission of their sins.” ([[2 Nephi 25.23|2 Ne. 25:23, 26]][[2 Nephi 25.26|]].)
 
 And so now, in keeping with our established practice and pursuant to the divine obligation laid upon us, I bear personal testimony of the divine Sonship of him who has saved us by his blood. He is truly God’s Almighty Son in whom we shall rejoice both now and forever.
 
@@ -101,8 +103,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Jesus_Christ

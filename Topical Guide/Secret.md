@@ -1,11 +1,10 @@
 # Secret
 
-
 *See also* [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Mystery.md|Mystery]]
 
 *secret* things belong unto the Lord, [[Deuteronomy 29.29|Deuteronomy 29:29]].
 
-Why askest thou ... my name, seeing it is *secret*, [[Judges 13.18|Judges 13:18]].
+Why askest thou … my name, seeing it is *secret*, [[Judges 13.18|Judges 13:18]].
 
 *secret* of God was upon my tabernacle, [[Job 29.4|Job 29:4]].
 
@@ -37,7 +36,7 @@ pray to thy Father which is in *secret*, [[Matthew 6.6|Matthew 6:6]] ([[3 Nephi 
 
 I will utter things which have been kept *secret*, [[Matthew 13.35|Matthew 13:35]].
 
-say ... he is in the *secret* chambers, [[Matthew 24.26|Matthew 24:26]] ([[Joseph Smith Matthew 1.25|Joseph Smith Matthew 1:25]]).
+say … he is in the *secret* chambers, [[Matthew 24.26|Matthew 24:26]] ([[Joseph Smith Matthew 1.25|Joseph Smith Matthew 1:25]]).
 
 neither was any thing kept *secret*, [[Mark 4.22|Mark 4:22]] ([[Luke 8.17|Luke 8:17]]).
 
@@ -51,7 +50,7 @@ mystery, which was kept *secret* since the world began, [[Romans 16.25|Romans 16
 
 thus are the *secrets* of his heart made manifest, [[1 Corinthians 14.25|1 Corinthians 14:25]].
 
-shame even to speak of those things which are done ... in *secret*, [[Ephesians 5.12|Ephesians 5:12]].
+shame even to speak of those things which are done … in *secret*, [[Ephesians 5.12|Ephesians 5:12]].
 
 I have not spoken in *secret*, [[1 Nephi 20.16|1 Nephi 20:16]].
 
@@ -59,15 +58,15 @@ nothing which is *secret* save it shall be revealed, [[2 Nephi 30.17|2 Nephi 30:
 
 rather, shall *secret* things be made manifest, [[Mosiah 8.17|Mosiah 8:17]].
 
-pour out your souls in ... your *secret* places, [[Alma 34.26|Alma 34:26]].
+pour out your souls in … your *secret* places, [[Alma 34.26|Alma 34:26]].
 
 the *secret* works of those people who have been destroyed, may be made manifest, [[Alma 37.21|Alma 37:21]].
 
-robbers ... sally forth from ... their *secret* places, [[3 Nephi 4.1|3 Nephi 4:1]].
+robbers … sally forth from … their *secret* places, [[3 Nephi 4.1|3 Nephi 4:1]].
 
 *secret* acts shall be revealed, [[D&C 1.3|D&C 1:3]] ([[D&C 88.108|D&C 88:108]]).
 
-pray ... before the world as well as in *secret*, [[D&C 19.28|D&C 19:28]].
+pray … before the world as well as in *secret*, [[D&C 19.28|D&C 19:28]].
 
 pray vocally and in *secret*, [[D&C 20.47|D&C 20:47]].
 

@@ -1,6 +1,8 @@
 # Parents, Teach Your Children
 
-By President Paul H. Dunn - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -12,11 +14,11 @@ One of the basic tenets of The Church of Jesus Christ of Latter-day Saints is th
 
 This morning we heard from a prophet of God, and he communicated the mind and will of the Lord to all who would listen and receive counsel. Concerning the importance of such an occasion as this, it was President Kimball some years ago who made this observation:
 
-“Sunday night, April 7, the great Tabernacle was closed, the lights turned out, and the record machines stopped, the door locked, and another historical conference became history. It will have been lost motion—a waste of time, energy, and money—if its messages *are not heeded.* In the seven two-hour sessions and in the several satellite meetings, truths were taught, doctrines expounded, exhortations given, enough to save the whole world from all its ills—and \[he concluded\] I mean from *all* its ills. …” (Spencer W. Kimball, “In the World But Not of It,” *Speeches of the Year,* Provo, Utah: Brigham Young University Press, 1968, pp. 2–3.) He reaffirmed that in our hearts and minds this morning.
+“Sunday night, April 7, the great Tabernacle was closed, the lights turned out, and the record machines stopped, the door locked, and another historical conference became history. It will have been lost motion—a waste of time, energy, and money—if its messages *are not heeded.* In the seven two-hour sessions and in the several satellite meetings, truths were taught, doctrines expounded, exhortations given, enough to save the whole world from all its ills—and \[he concluded\] I mean from *all* its ills. …” (Spencer W. Kimball, “In the World But Not of It,” *Speeches of the Year,* Provo, Utah: Brigham Young University Press, 1968, pp. 2–3.) He reaffirmed that in our hearts and minds this morning.
 
 I remember hearing President Kimball just the other day quote from Samuel:
 
-“And the Lord said to Samuel, Behold, I will do a thing in Israel, at which both the ears of every one that heareth it shall tingle.” ([[1 Samuel 3.11|1 Sam. 3:11]].) Today our president has caused our ears to tingle.
+“And the Lord said to Samuel, Behold, I will do a thing in Israel, at which both the ears of every one that heareth it shall tingle.” ([[1 Samuel 3.11|1 Sam. 3:11]].) Today our president has caused our ears to tingle.
 
 Now for a few moments I would like to direct some remarks to parents everywhere in this great listening audience.
 
@@ -64,7 +66,7 @@ Third, the power of parental love. Recently I came across a little article by Do
 
 “Are you going to sleep all day? … Who said you could use my hairspray? … Clean the dishes off the table. … Turn down the radio. … Have you made your bed? … That skirt is much too short. … Your closet is a mess. … Stand up straight. … Somebody has to go to the store. … Quit chewing your gum like that. … Your hair is too bushy. … I don’t care if everybody else does have one. … Turn down the radio. … Have you done your homework? … Don’t slouch. … You didn’t make your bed. … Quit banging on the piano. … Why don’t you iron it yourself? … Your fingernails are too long. … Look it up in the dictionary. … Sit up straight. … Get off the phone now. … Why did you ever buy that record? … Take the dog out. … You forgot to dust that table. … You’ve been in the bathroom long enough. … Turn off the radio and get to sleep now.
 
-“Another day gone, and not once did I say, ‘I love you.’” (Stanley E. Miller, comp., *Especially for Mormons,* Kellirae Arts, Provo, Utah, 1971, vol. 1, p. 141.)
+“Another day gone, and not once did I say, ‘I love you.’” (Stanley E. Miller, comp., *Especially for Mormons,* Kellirae Arts, Provo, Utah, 1971, vol. 1, p. 141.)
 
 Too often it is easier to criticize, to point out the faults, than to praise or give love. Mothers and dads, when was the last time you told your children “I love you”?
 
@@ -82,21 +84,16 @@ One of these of the “rising generation” was Alma the Younger. He was “a ma
 
 We are further told that he was “a great hinderment to the prosperity of the church of God” because of the dissension that he caused. ([[Mosiah 27.9|Mosiah 27:9]].)
 
-I suppose the tendency then, as it often seems to be today, was to “write him off.” But you know the miraculous story of how an angel of the Lord appeared to that young man and how he became one of the greatest missionaries in the church of Christ. What was it that caused that great change to occur? The angel testified to Alma the following: “… Behold, the Lord hath heard the prayers of his people, and also the prayers of his servant, Alma, who is thy father. …” ([[Mosiah 27.14|Mosiah 27:14]].)
+I suppose the tendency then, as it often seems to be today, was to “write him off.” But you know the miraculous story of how an angel of the Lord appeared to that young man and how he became one of the greatest missionaries in the church of Christ. What was it that caused that great change to occur? The angel testified to Alma the following: “… Behold, the Lord hath heard the prayers of his people, and also the prayers of his servant, Alma, who is thy father. …” ([[Mosiah 27.14|Mosiah 27:14]].)
 
 Think of it! The power of parental prayer! As we consider the challenge of rearing children in a world fraught with temptations, false ideologies, and materialistic enticements, do you not feel the need for guidance and inspiration beyond your human capacity? There is no greater help or strength that a father or mother can obtain than through securing that help from the Lord.
 
 Just the other day I had a sweet experience. I stood in the presence of a mother and a father who had just greeted their long-lost son home from the wars—I mean the worldly wars. What a tender moment! I can tell you their prayers were heard and answered.
 
-Remember what Alma said: “Counsel with the Lord in all thy doings, and he will direct thee for good. …” ([[Alma 37.37|Alma 37:37]].)
+Remember what Alma said: “Counsel with the Lord in all thy doings, and he will direct thee for good. …” ([[Alma 37.37|Alma 37:37]].)
 
-May I testify to all parents in Zion everywhere to the efficacy of these great principles in rearing our children righteously: the power of precept, the power of example, the power of love, and the power of prayer. I add my personal witness that Jesus Christ really lives, that his kingdom is here upon the earth, and that this morning we heard from his appointed prophet and servant, Spencer W. Kimball. May we abide by the counsel and teachings given to us by the Lord through his servants, I humbly pray as I testify to these things in the name of Jesus Christ. Amen.
-
-
+May I testify to all parents in Zion everywhere to the efficacy of these great principles in rearing our children righteously: the power of precept, the power of example, the power of love, and the power of prayer. I add my personal witness that Jesus Christ really lives, that his kingdom is here upon the earth, and that this morning we heard from his appointed prophet and servant, Spencer W. Kimball. May we abide by the counsel and teachings given to us by the Lord through his servants, I humbly pray as I testify to these things in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-#Children #Example #Family #Love #Parents #Prayer

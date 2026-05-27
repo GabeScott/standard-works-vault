@@ -35,7 +35,7 @@ See also Russell M. Nelson, “[Your Body: A Magnificent Gift to Cherish](https:
 
 “Adam and Eve were joined together in marriage for time and for all eternity by the power of \[the\] everlasting priesthood” (Russell M. Nelson, “[[1987 October - Lessons from Eve.md|Lessons from Eve]],” *Ensign*, Nov. 1987, 87). Ponder this as you read [[Genesis 1.27|Genesis 1:27–28]][[Genesis 1.28|]]; [[Genesis 2.18|2:18–25]][[Genesis 2.19|]][[Genesis 2.20|]][[Genesis 2.21|]][[Genesis 2.22|]][[Genesis 2.23|]][[Genesis 2.24|]][[Genesis 2.25|]]; [[Moses 3.18|Moses 3:18, 21–25]][[Moses 3.21|]][[Moses 3.22|]][[Moses 3.23|]][[Moses 3.24|]][[Moses 3.25|]]; and [[Abraham 5.14|Abraham 5:14–19]][[Abraham 5.15|]][[Abraham 5.16|]][[Abraham 5.17|]][[Abraham 5.18|]][[Abraham 5.19|]]. How can you treat marriage with the sacredness God has given it?
 
-See also [[1 Corinthians 11.11|1 Corinthians 11:11]]; “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
+See also [[1 Corinthians 11.11|1 Corinthians 11:11]]; “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
 [[Genesis 1.28|Genesis 1:28]]; [[Moses 2.28|Moses 2:28]]; [[Abraham 4.28|Abraham 4:28]]
 ### I am responsible for caring for God’s creations.

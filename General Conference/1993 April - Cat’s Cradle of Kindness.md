@@ -1,5 +1,7 @@
 # Cat’s Cradle of Kindness
 
+Thomas S. Monson
+
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -12,7 +14,7 @@ Do you see this piece of string? It’s just an ordinary piece of string—not v
 
 This particular cat’s cradle pattern is called four-eyes. Do you see how complex and beautiful it is? Do you see how each part supports the other parts and is connected to them? You cannot pick one part out without destroying the whole pattern. It is the same with our lives. We meet many people. With some, the association lasts for years. With others, the association is very brief. But in either case, we can make the pattern a beautiful one by making our encounter a kindly one, filled with the desire to serve.
 
-President Hinckley said something that I just love about our patterns of interconnectedness in the Church. He said: “To those of the Church, all within the sound of my voice, I give the challenge \[to\] … never lose sight of the whole majestic and wonderful picture of the purpose of this, the dispensation of the fulness of times. Weave beautifully your small thread in the grand tapestry, the pattern for which was laid out for us by the God of heaven” (in Conference Report, Oct. 1989, p. 71; or *Ensign,* Nov. 1989, p. 54).
+President Hinckley said something that I just love about our patterns of interconnectedness in the Church. He said: “To those of the Church, all within the sound of my voice, I give the challenge \[to\] … never lose sight of the whole majestic and wonderful picture of the purpose of this, the dispensation of the fulness of times. Weave beautifully your small thread in the grand tapestry, the pattern for which was laid out for us by the God of heaven” (in Conference Report, Oct. 1989, [[1989 October - An Ensign to the Nations.md|p. 71]]; or *Ensign,* Nov. 1989, p. 54).
 
 We may not know what contribution our small thread makes to the great tapestry. We may not understand the pattern that our lives make as they intersect, connect, separate, and intersect again—but God does. Of course, it was no accident that the angel who rebuked the erring Alma the Younger in a “voice of thunder” was the same angel who returned to Alma, now twenty years a missionary, to say, “Blessed art thou, Alma; … for thou hast been faithful” ([[Mosiah 27.11|Mosiah 27:11]]; [[Alma 8.15|Alma 8:15]]). Their lives made a shining pattern.
 
@@ -26,7 +28,7 @@ She continued: “\[After\] I returned home, often the sweet faces of those four
 
 “Ten years later, my husband and I were attending our sacrament meeting in the Imperial Ward, Salt Lake City, when it was announced that a young Japanese couple from Hawaii would be the speakers. … My heart nearly jumped up into my throat. Yes, it was my little Chieko. … Chieko and I had a joyous reunion after the meeting. We marveled that out of all the many wards in that big city, they should have come to speak at my ward. We were sure the Lord had a hand in it.”
 
-Rosetta lost track of me after my husband and I moved to Colorado but was surprised and delighted, when she was watching the Relief Society sesquicentennial broadcast on March 14, 1992, to hear my name announced. That afternoon she sat down at her typewriter in Arizona and began her letter to me. She said: “\[When\] I heard your name announced by Sister Jack … I sat up straight and watched the TV screen eagerly and saw your name appear on the screen. Then you started to speak. The dark hair has turned to silver, but that sweet face was easily recognized. Yes, this is my little Chieko whom I taught at the Honomakau chapel in Kohala so many years ago. As I listened to your voice, tears of joy ran down my cheeks. …
+Rosetta lost track of me after my husband and I moved to Colorado but was surprised and delighted, when she was watching the Relief Society sesquicentennial broadcast on March 14, 1992, to hear my name announced. That afternoon she sat down at her typewriter in Arizona and began her letter to me. She said: “\[When\] I heard your name announced by Sister Jack … I sat up straight and watched the TV screen eagerly and saw your name appear on the screen. Then you started to speak. The dark hair has turned to silver, but that sweet face was easily recognized. Yes, this is my little Chieko whom I taught at the Honomakau chapel in Kohala so many years ago. As I listened to your voice, tears of joy ran down my cheeks. …
 
 “I thank my Heavenly Father that I had the privilege of teaching you about Jesus Christ our Savior in that little chapel. … I have been blessed three times because of it; first, that I was there to experience that light from heaven with you; second, that you came to my ward in Salt Lake City to speak; and today, when I heard you speak to the women of the world via satellite.”
 
@@ -43,8 +45,3 @@ May we all deal kindly with one another, seeking in our lives the blessing of th
 
 
 
-
-
-
-
-#Kindness #Love #Service

@@ -1,5 +1,7 @@
 # The Word of Wisdom: The Principle and the Promises
 
+James E. Faust
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -40,7 +42,7 @@ The first driver came down slowly, hugging the wall of the cliff. The second dri
 
 The king was very thoughtful, then wisely chose the first man to drive his coach. It is best to stay on the safe side of things.
 
-The Word of Wisdom is “adapted to the capacity of the weak and the weakest of all saints” ([[D&C 89.3|D&C 89:3]]). It is buttressed by other scriptures. They teach that the good things of the earth “are made for the benefit and the use of man, … Yea,” the Lord said, “for food and for raiment, for taste and for smell, to strengthen the body and to enliven the soul, … to be used, with judgment, not to excess, neither by extortion” ([[D&C 59.18|D&C 59:18–20]][[D&C 59.19|]][[D&C 59.20|]]).
+The Word of Wisdom is “adapted to the capacity of the weak and the weakest of all saints” ([[D&C 89.3|D&C 89:3]]). It is buttressed by other scriptures. They teach that the good things of the earth “are made for the benefit and the use of man, … yea,” the Lord said, “for food and for raiment, for taste and for smell, to strengthen the body and to enliven the soul, … to be used, with judgment, not to excess, neither by extortion” ([[D&C 59.18|D&C 59:18–20]][[D&C 59.19|]][[D&C 59.20|]]).
 
 Young people, learn to use moderation and common sense in matters of health and nutrition, and particularly in medication. Avoid being extreme or fanatical or becoming a faddist.
 
@@ -58,7 +60,7 @@ The promise of health for living the standard of the revelation is not limited t
 
 And then there is a greater blessing promised in the Word of Wisdom. Those who obey it are promised that they “shall find wisdom and great treasures of knowledge, even hidden treasures” ([[D&C 89.19|D&C 89:19]]). This is the personal revelation through which you can detect invisible crocodiles or hidden mines or other dangers.
 
-When you were confirmed a member of the Church, you had conferred upon you the gift of the Holy Ghost. “Know ye not,” Paul wrote, “that your body is the temple of the Holy Ghost which is in you … ?” ([[1 Corinthians 6.19|1 Cor. 6:19]]).
+When you were confirmed a member of the Church, you had conferred upon you the gift of the Holy Ghost. “Know ye not,” Paul wrote, “that your body is the temple of the Holy Ghost which is in you?” ([[1 Corinthians 6.19|1 Cor. 6:19]]).
 
 And the Lord said, “The Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you” ([[John 14.26|John 14:26]]).
 
@@ -68,11 +70,11 @@ To understand it, we must turn to the time of Moses. The Israelites had been ens
 
 Moses told the Israelites to “take … a lamb … without blemish, a male of the first year. … Neither shall ye break a bone thereof” ([[Exodus 12.3|Ex. 12:3, 5, 46]][[Exodus 12.5|]][[Exodus 12.46|]]; see also [[John 19.33|John 19:33]]).
 
-They were to prepare the lamb as a feast and “take of the blood, and strike it on the … door post of the houses. … For I will pass through the land of Egypt this night, and will smite all the firstborn in the land … : and when I see the blood, I will pass over you, and the plague shall not be upon you to destroy you. … And this day … ye shall keep … by an ordinance for ever” ([[Exodus 12.7|Ex. 12:7, 12–14]][[Exodus 12.12|]][[Exodus 12.13|]][[Exodus 12.14|]]). “When your children shall say unto you, What mean ye by this … ? … ye shall say, It is the sacrifice of the Lord’s passover” ([[Exodus 12.26|Ex. 12:26–27]][[Exodus 12.27|]]).
+They were to prepare the lamb as a feast and “take of the blood, and strike it on the … door post of the houses. … For I will pass through the land of Egypt this night, and will smite all the firstborn in the land … : and when I see the blood, I will pass over you, and the plague shall not be upon you to destroy you. … And this day … ye shall keep … by an ordinance for ever” ([[Exodus 12.7|Ex. 12:7, 12–14]][[Exodus 12.12|]][[Exodus 12.13|]][[Exodus 12.14|]]). “When your children shall say unto you, What mean ye by this … ? … ye shall say, It is the sacrifice of the Lord’s passover” ([[Exodus 12.26|Ex. 12:26–27]][[Exodus 12.27|]]).
 
 Surely, young people, you see the prophetic symbolism in the Passover. Christ was “the Lamb of God” ([[John 1.29|John 1:29, 36]][[John 1.36|]]), the firstborn, male, without blemish. He was slain without breaking his bones, even though the soldiers were sent to do it.
 
-But it is not from mortal death that we shall be spared in such a passover if we walk in obedience to these commandments, for each of us in time shall die. But there is spiritual death which you need not suffer. If you are obedient, that spiritual death will pass over you, for “Christ our passover is sacrificed for us,” the revelation teaches ([[1 Corinthians 5.7|1 Cor. 5:7]]).
+But it is not from mortal death that we shall be spared in such a passover if we walk in obedience to these commandments, for each of us in time shall die. But there is spiritual death which you need not suffer. If you are obedient, that spiritual death will pass over you, for “Christ our passover is sacrificed for us,” the revelation teaches ([[1 Corinthians 5.7|1 Cor. 5:7]]).
 
 While the Word of Wisdom requires strict obedience, in return it promises health, great treasures of knowledge, and that redemption bought for us by the Lamb of God, who was slain that we might be redeemed.
 
@@ -86,19 +88,14 @@ Your young dreams can be realized. All of your worthy, natural physical and emot
 
 You can be sealed together for time and for all eternity in a marriage covenant and express that love freely, which has as its consummate purpose the begetting of life, of children, of family, of happiness.
 
-If you are one who’s been wandering off course, now is the time to return. You can, you know. Young people, go forward with faith. You’ll be led by the Spirit as was Nephi, “not knowing beforehand the things which \[he\] should do” ([[1 Nephi 4.6|1 Ne. 4:6]]).
+If you are one who’s been wandering off course, now is the time to return. You can, you know. Young people, go forward with faith. You’ll be led by the Spirit as was Nephi, “not knowing beforehand the things which \[he\] should do” ([[1 Nephi 4.6|1 Ne. 4:6]]).
 
 Keep the Word of Wisdom. Seek worthy companions. Attend church faithfully. Never fail daily to seek for help through prayer. And I promise you that the way will be easier and you shall have a composure of mind and a confident attitude toward life and the future. You shall be warned of dangers and shall be guided through the whisperings of the Holy Spirit.
 
-I bear witness that this revelation is a powerful protection to all members of the Church, particularly to you, the youth of the Church, as you face a life full of so many troubles and danger and uncertainties. But young members of the Church, have faith. The Lord will be with you; you will be guided. I bear witness of him and of his sacrifice and of his Atonement and of his love for you, in the name of Jesus Christ, amen.
+I bear witness that this revelation is a powerful protection to all members of the Church, particularly to you, the youth of the Church, as you face a life full of so many troubles and danger and uncertainties. But, young members of the Church, have faith. The Lord will be with you; you will be guided. I bear witness of him and of his sacrifice and of his Atonement and of his love for you, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: The context for verse 18 is verse 19: “For, behold, the beasts of the field and the fowls of the air … \[are\] ordained for the use of man for food.” Section 49 was specifically directed to members of the United Society of Believers in Christ’s Second Appearing (the Shakers) to correct some of their erroneous doctrines. One of their beliefs was not to eat flesh-meat or fish.
+[^1]: The context for verse 18 is verse 19: “For, behold, the beasts of the field and the fowls of the air \[are\] ordained for the use of man for food.” Section 49 was specifically directed to members of the United Society of Believers in Christ’s Second Appearing (the Shakers) to correct some of their erroneous doctrines. One of their beliefs was not to eat flesh-meat or fish.
 
-
-
-
-
-#Evil #Holy_Ghost #Jesus_Christ #Obedience #Repentance #Sacrament #Word_Of_Wisdom #Youth

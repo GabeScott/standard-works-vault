@@ -1,9 +1,8 @@
 # Ring
 
-
 Pharaoh took off his *ring*, [[Genesis 41.42|Genesis 41:42]].
 
-sealed with the king's *ring*, [[Esther 8.8|Esther 8:8]].
+sealed with the king’s *ring*, [[Esther 8.8|Esther 8:8]].
 
 put a *ring* on his hand, [[Luke 15.22|Luke 15:22]].
 

@@ -1,4 +1,3 @@
 # Matthew
 
-
-*See* [BD Matthew](https://www.churchofjesuschrist.org/study/scriptures/bd/matthew?lang=eng)
+*See also* [[BD Matthew.md|BD Matthew]]

@@ -1,6 +1,8 @@
 # Profanity and Swearing
 
-By Elder Ted E. Brewerton - *Of the First Quorum of the Seventy*
+Ezra Taft Benson
+
+By Elder Ted E. Brewerton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -80,7 +82,7 @@ Now listen to the prophet’s words as I read them, regarding encouraging, lifti
 
 “Cease to contend one with another; cease to speak evil one of another.
 
-“… Let your words tend to edifying one another.” ([[D&C 136.23|D&C 136:23–24]][[D&C 136.24|]].)
+“… Let your words tend to edifying one another.” ([[D&C 136.23|D&C 136:23–24]][[D&C 136.24|]].)
 
 In the magazine *Success Unlimited,* Dec. 1982, Dwight Chapin draws to our attention a crucial aspect of creating only positive emotions:
 
@@ -134,7 +136,7 @@ Self-control is an effective quality that lifts anyone above the crowd; a memory
 
 “The height of a man’s success is gauged by his self-mastery; the depth of his failure by his self-abandonment. There is no other limitation in either direction. And this law is the expression of eternal justice.
 
-“He who cannot establish a dominion over himself will have no dominion over others, he who masters himself shall be king.” (As cited by Spencer W. Kimball, *Improvement Era,* June 1966, p. 525.)
+“He who cannot establish a dominion over himself will have no dominion over others, he who masters himself shall be king.” (As cited by Spencer W. Kimball, *Improvement Era,* June 1966, p. 525.)
 
 Shouldn’t we all have mastery over our tongues and words *all* of the time, and only elevate and edify?
 
@@ -143,8 +145,3 @@ We are in the presence of and being directed by living prophets. This is an abso
 
 
 
-
-
-
-
-#Attitude #Profanity

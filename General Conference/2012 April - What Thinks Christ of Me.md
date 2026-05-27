@@ -1,6 +1,8 @@
 # What Thinks Christ of Me?
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -14,7 +16,7 @@ Jesus asked the Pharisees, “What think ye of Christ?”[^2] In the final asses
 
 Even with His love for all mankind, Jesus reprovingly referred to some around Him as hypocrites,[^4] fools,[^5] and workers of iniquity.[^6] He approvingly called others children of the kingdom[^7] and the light of the world.[^8] He disapprovingly referred to some as blinded[^9] and unfruitful.[^10] He commended others as pure in heart[^11] and hungering after righteousness.[^12] He lamented that some were faithless[^13] and of the world,[^14] but others He esteemed as chosen,[^15] disciples,[^16] friends.[^17] And so we each ask, “What thinks Christ of me?”
 
-President Thomas S. Monson has described our day as moving away “from that which is spiritual … \[with\] the winds of change \[swirling\] around us and the moral fiber of society \[continuing\] to disintegrate before our very eyes.”[^18] It is a time of growing disbelief in and disregard for Christ and His teachings.
+President Thomas S. Monson has described our day as moving away “from that which is spiritual … \[with\] the winds of change \[swirling\] around us and the moral fiber of society \[continuing\] to disintegrate before our very eyes.”[^18] It is a time of growing disbelief in and disregard for Christ and His teachings.
 
 In this turbulent environment, we rejoice in being disciples of Jesus Christ. We see the Lord’s hand all around us. Our destination is beautifully set before us. “This is life eternal,” Jesus prayed, “that they might know thee the only true God, and Jesus Christ, whom thou hast sent.”[^19] Being a disciple in these days of destiny will be a badge of honor throughout the eternities.
 
@@ -26,7 +28,7 @@ His invitation is a call to daily duty. Jesus said: “If ye love me, keep my co
 
 Wherever you now find yourself on the road of discipleship, you are on the right road, the road toward eternal life. Together we can lift and strengthen one another in the great and important days ahead. Whatever the difficulties confronting us, the weaknesses confining us, or the impossibilities surrounding us, let us have faith in the Son of God, who declared, “All things are possible to him that believeth.”[^25]
 
-Let me share two examples of discipleship in action. The first is from the life of President Thomas S. Monson, demonstrating the power of simple kindness and Jesus’s teaching, “He that is greatest among you shall be your servant.”[^26]
+Let me share two examples of discipleship in action. The first is from the life of President Thomas S. Monson, demonstrating the power of simple kindness and Jesus’s teaching, “He that is greatest among you shall be your servant.”[^26]
 
 Nearly 20 years ago, President Monson spoke in general conference about a 12-year-old young woman suffering from cancer. He told of her courage and the kindness of her friends to carry her up Mount Timpanogos in central Utah.
 
@@ -62,7 +64,7 @@ Miracles are not always so immediate. At times we thoughtfully wonder why the mi
 
 I testify that as you love Him, trust Him, believe Him, and follow Him, you will feel His love and approval. As you ask, “What thinks Christ of me?” you will know that you are His disciple; you are His friend. By His grace He will do for you what you cannot do for yourself.
 
-We eagerly await the concluding remarks of our beloved prophet. President Thomas S. Monson was ordained an Apostle of the Lord Jesus Christ when I was 12 years old. For more than 48 years we have been blessed to hear him bear witness of Jesus Christ. I testify that he now stands as the Savior’s senior Apostle upon the earth.
+We eagerly await the concluding remarks of our beloved prophet. President Thomas S. Monson was ordained an Apostle of the Lord Jesus Christ when I was 12 years old. For more than 48 years we have been blessed to hear him bear witness of Jesus Christ. I testify that he now stands as the Savior’s senior Apostle upon the earth.
 
 With great love and admiration for the many disciples of Jesus Christ who are not members of this Church, we humbly declare that angels have returned to the earth in our day. The Church of Jesus Christ as He established it anciently has been restored, with the power, ordinances, and blessings of heaven. The Book of Mormon is another testament of Jesus Christ.
 
@@ -71,7 +73,7 @@ I witness that Jesus Christ is the Savior of the world. He suffered and died for
 
 
 
-[^1]: See André Petry, “Entre a Fé e a Urna,” *Veja,* Nov. 2, 2011, 96–100.
+[^1]: See André Petry, “Entre a Fé e a Urna,” *Veja,* Nov. 2, 2011, 96–100.
 
 [^2]: [[Matthew 22.42|Matthew 22:42]].
 
@@ -105,7 +107,7 @@ I witness that Jesus Christ is the Savior of the world. He suffered and died for
 
 [^17]: See [[John 15.14|John 15:14]].
 
-[^18]: Thomas S. Monson, “Stand in Holy Places,” *Liahona* and *Ensign,* Nov. 2011, 83, 86.
+[^18]: Thomas S. Monson, “Stand in Holy Places,” *Liahona* and *Ensign,* Nov. 2011, 83, 86.
 
 [^19]: [[John 17.3|John 17:3]].
 
@@ -123,7 +125,7 @@ I witness that Jesus Christ is the Savior of the world. He suffered and died for
 
 [^26]: [[Matthew 23.11|Matthew 23:11]].
 
-[^27]: Jami Brinton, letter to author, Jan. 27, 2012.
+[^27]: Jami Brinton, letter to author, Jan. 27, 2012.
 
 [^28]: [[Mark 5.36|Mark 5:36]].
 
@@ -137,8 +139,3 @@ I witness that Jesus Christ is the Savior of the world. He suffered and died for
 
 [^33]: See [[Romans 14.11|Romans 14:11]].
 
-
-
-
-
-#Discipleship #Faith #Jesus_Christ

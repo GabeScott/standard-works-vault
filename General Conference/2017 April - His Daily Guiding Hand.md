@@ -1,6 +1,8 @@
 # His Daily Guiding Hand
 
-By M. Joseph Brough - *Second Counselor in the Young Men General Presidency*
+Bonnie H. Cordon
+
+By M. Joseph Brough - *Second Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -20,7 +22,7 @@ When thinking of guidance, we might think of a hymn we all know and love—“I 
 
 Until recently, I understood that chorus to be divine direction to parents. While pondering these words, I realized that while they contain that direction, there exists a far greater meaning. Individually, we each plead daily that Heavenly Father will guide us, lead us, and walk beside us.
 
-President Dieter F. Uchtdorf explained: “Our Father in Heaven knows His children’s needs better than anyone else. It is His work and glory to help us at every turn, giving us marvelous temporal and spiritual resources to help us on our path to return to Him.”[^2]
+President Dieter F. Uchtdorf explained: “Our Father in Heaven knows His children’s needs better than anyone else. It is His work and glory to help us at every turn, giving us marvelous temporal and spiritual resources to help us on our path to return to Him.”[^2]
 
 Listen to those words: Heavenly Father knows what you and I need better than anyone else. As a result, He has developed a personal care package suited to each one of us. It has many components. It includes His Son and the Atonement, the Holy Ghost, commandments, scriptures, prayer, prophets, apostles, parents, grandparents, local Church leaders, and many others—all to help us return to live with Him someday.
 
@@ -49,7 +51,7 @@ I thank my Heavenly Father for the blessings and happiness I found through the s
 
 In addition to having the care package components I’ve mentioned, we are each blessed with a priesthood leader to lead and guide us.
 
-President Boyd K. Packer said: “Bishops are inspired! Each of us has agency to accept or reject counsel from our leaders, but never disregard the counsel of your bishop, whether given over the pulpit or individually.”[^7]
+President Boyd K. Packer said: “Bishops are inspired! Each of us has agency to accept or reject counsel from our leaders, but never disregard the counsel of your bishop, whether given over the pulpit or individually.”[^7]
 
 These men strive to represent the Lord. Whether we are old or young, when Satan wants us to think all is lost, bishops are there to guide us. When speaking with bishops, I have found a common theme regarding confessions of disobedience or the innocent suffering from terrible wrongs. Bishops instantly want to express Heavenly Father’s love for the individual and a desire to walk beside him or her as he or she finds the way home.
 
@@ -63,17 +65,17 @@ Heavenly Father has many resources, but often He uses another person to assist H
 
 As the Young Men General Presidency, we know that youth are blessed when they have parents and leaders who act for Heavenly Father in leading, guiding, and walking beside them. Three principles[^12] that will help us become part of Heavenly Father’s care package for others are:
 
-First, be with the youth. President Henry B. Eyring emphasized this point: “There are some things we can do that could matter most. Even more powerful than using words in our teaching the doctrine will be our examples of living the doctrine.”[^13] To lead youth requires being with them. Devoted time is an expression of love that allows us to teach by word and example.
+First, be with the youth. President Henry B. Eyring emphasized this point: “There are some things we can do that could matter most. Even more powerful than using words in our teaching the doctrine will be our examples of living the doctrine.”[^13] To lead youth requires being with them. Devoted time is an expression of love that allows us to teach by word and example.
 
 Second, to truly guide youth, we must connect them with heaven. The time always comes when each must stand alone. Only Heavenly Father can be there to guide at all times and in all places. Our youth must know how to seek Heavenly Father’s guidance.
 
 Third, we must let youth lead. Like the loving parent who holds the hand of a toddler learning to walk, we must let go in order for youth to progress. Letting youth lead requires patience and love. It is harder and takes more time than doing it ourselves. They may stumble along the way, but we walk beside them.
 
-Brothers and sisters, there will be times in our lives when the blessings of guidance seem distant or lacking. For such times of distress, Elder D. Todd Christofferson promised: “Let your covenants be paramount and let your obedience be exact. Then you can ask in faith, nothing wavering, according to your need, and God will answer. He will sustain you as you work and watch. In His own time and way He will stretch forth His hand to you, saying, ‘Here am I.’”[^14]
+Brothers and sisters, there will be times in our lives when the blessings of guidance seem distant or lacking. For such times of distress, Elder D. Todd Christofferson promised: “Let your covenants be paramount and let your obedience be exact. Then you can ask in faith, nothing wavering, according to your need, and God will answer. He will sustain you as you work and watch. In His own time and way He will stretch forth His hand to you, saying, ‘Here am I.’”[^14]
 
 At one such time, I sought Heavenly Father’s counsel through constant and heartfelt prayer for more than a year to find the solution to a difficult situation. I knew logically that Heavenly Father answers all sincere prayers. Yet I reached such desperation one day that I attended the temple with one question: “Heavenly Father, do You really care?”
 
-I was sitting near the back of the Logan Utah Temple waiting room when, to my surprise, entering the room that day was the temple president, Vaughn J. Featherstone, a close family friend. He stood at the front of the congregation and welcomed all of us. When he noticed me among the temple patrons, he stopped speaking, looked me in the eyes, and then said, “Brother Brough, it is good to see you in the temple today.”
+I was sitting near the back of the Logan Utah Temple waiting room when, to my surprise, entering the room that day was the temple president, Vaughn J. Featherstone, a close family friend. He stood at the front of the congregation and welcomed all of us. When he noticed me among the temple patrons, he stopped speaking, looked me in the eyes, and then said, “Brother Brough, it is good to see you in the temple today.”
 
 I will never forget the feeling of that simple moment. It was as if—in that greeting—Heavenly Father was stretching forth His hand and saying, “Here am I.”
 
@@ -86,7 +88,7 @@ I testify that Heavenly Father does lead us, guide us, and walk beside us. As we
 
 [^1]: “I Am a Child of God,” *Hymns,* no. 301.
 
-[^2]: Dieter F. Uchtdorf, “[Our Father, Our Mentor](https://churchofjesuschrist.org/study/liahona/2016/06/our-father-our-mentor?lang=eng),” *Ensign* or *Liahona,* June 2016, 5.
+[^2]: Dieter F. Uchtdorf, “[Our Father, Our Mentor](https://www.churchofjesuschrist.org/study/liahona/2016/06/our-father-our-mentor?lang=eng),” *Ensign* or *Liahona,* June 2016, 5.
 
 [^3]: [[Alma 41.10|Alma 41:10]].
 
@@ -96,7 +98,7 @@ I testify that Heavenly Father does lead us, guide us, and walk beside us. As we
 
 [^6]: “Keep the Commandments,” *Hymns,* no. 303.
 
-[^7]: Boyd K. Packer, “[[1999 April - The Bishop and His Counselors.md|The Bishop and His Counselors]],” *Ensign,* May 1999, 58; *Liahona,* July 1999, 72.
+[^7]: Boyd K. Packer, “[[1999 April - The Bishop and His Counselors.md|The Bishop and His Counselors]],” *Ensign,* May 1999, 58; *Liahona,* July 1999, 72.
 
 [^8]: [[John 3.16|John 3:16]].
 
@@ -108,14 +110,9 @@ I testify that Heavenly Father does lead us, guide us, and walk beside us. As we
 
 [^12]: See “[Young Men Auxiliary Training](https://www.lds.org/callings/aaronic-priesthood/auxiliary-training),” lds.org/callings/aaronic-priesthood/auxiliary-training.
 
-[^13]: Henry B. Eyring, “[[2014 October - The Preparatory Priesthood.md|The Preparatory Priesthood]],” *Ensign* or *Liahona,* Nov. 2014, 61.
+[^13]: Henry B. Eyring, “[[2014 October - The Preparatory Priesthood.md|The Preparatory Priesthood]],” *Ensign* or *Liahona,* Nov. 2014, 61.
 
-[^14]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona,* May 2009, 22.
+[^14]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona,* May 2009, 22.
 
 [^15]: See “A Child’s Prayer,” *Children’s Songbook,* 12–13.
 
-
-
-
-
-#Bishops #Church_Leaders #Commandments #Jesus_Christ #Parenthood #Sacrifice #Scripture_Study #Youth

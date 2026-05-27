@@ -1,6 +1,8 @@
 # Application of Welfare Principles in the Home: A Key to Many Family Problems
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -42,7 +44,7 @@ Not all marital unhappiness stems from obvious bad habits. Some problems develop
 
 They found that by taking a fresh view of gospel principles, this time as a means of solving their own problems, they could relearn how to serve one another. They realized that expressing their affection in those mellowing years together brought a sweetness and satisfaction that was especially rewarding. They selected some projects on which they worked together around their home; they found meaningful church activity, prepared family records and histories, and learned how to preserve other valuable documents. Already, in the gospel, they had the principles they needed, and found them more than adequate as they brought them to bear on their own problems.
 
-G. K. Chesterton in an essay entitled “A Piece of Chalk” wrote of going into the countryside in the south of England to draw with his colored chalks—only to find, ruefully, that he was missing the color white. Being too far from a store to remedy the situation, he felt his expedition ruined until he suddenly realized that the rock upon which he sat was, in fact, white chalk. (In Robert K. Thomas, ed., *The Joy of Reading,* Salt Lake City: Bookcraft, 1978, pp. 35–40).
+G. K. Chesterton in an essay entitled “A Piece of Chalk” wrote of going into the countryside in the south of England to draw with his colored chalks—only to find, ruefully, that he was missing the color white. Being too far from a store to remedy the situation, he felt his expedition ruined until he suddenly realized that the rock upon which he sat was, in fact, white chalk. (In Robert K. Thomas, ed., *The Joy of Reading,* Salt Lake City: Bookcraft, 1978, pp. 35–40).
 
 There, in a Sussex meadow, he was “sitting on an immense warehouse of white chalk.” For him to think he had no chalk was like a chemist in the middle of the ocean looking for salt water to perform experiments or someone in the vast Sahara searching for sand to fill an hour glass. Many times the solutions to our problems await only our discovery that we already have the key to the answer. The need is for us to learn to use it effectively.
 
@@ -64,7 +66,7 @@ All this has been done while fulfilling their Church obligations. They are quick
 
 Life does present problems, and although the gospel provides a means for finding answers, the resolutions do not always come quickly. There are, however, desirable strengths we develop by striving against difficulties. It is often when struggling to the very extremity of our power that we come to know that our Father in Heaven is close.
 
-Sariah, the wife of Lehi, had the wrenching experience of leaving their home and their possessions to travel in the wilderness. We are not told of the trials she may have experienced; but going on foot, living in tents, and cooking over an open fire could have been devastating after their comfortable life in Jerusalem. We do read of her anguished waiting when she feared her beloved sons had perished in their return to obtain the plates. (See [[1 Nephi 5.2|1 Ne. 5:2]].) But in spite of troubles, she did love and serve her family. With the return of her sons, she knew of a certainty that the Lord had commanded her husband to flee into the wilderness, and in their safe return she found the assurance that the Lord was with them. (See [[1 Nephi 5.8|1 Ne. 5:8]].) Their circumstances did not change; they still slept in tents. But she had joy and comfort in the knowledge that the Lord was guiding them. In that light she could carry on and meet further difficulties as they came.
+Sariah, the wife of Lehi, had the wrenching experience of leaving their home and their possessions to travel in the wilderness. We are not told of the trials she may have experienced; but going on foot, living in tents, and cooking over an open fire could have been devastating after their comfortable life in Jerusalem. We do read of her anguished waiting when she feared her beloved sons had perished in their return to obtain the plates. (See [[1 Nephi 5.2|1 Ne. 5:2]].) But in spite of troubles, she did love and serve her family. With the return of her sons, she knew of a certainty that the Lord had commanded her husband to flee into the wilderness, and in their safe return she found the assurance that the Lord was with them. (See [[1 Nephi 5.8|1 Ne. 5:8]].) Their circumstances did not change; they still slept in tents. But she had joy and comfort in the knowledge that the Lord was guiding them. In that light she could carry on and meet further difficulties as they came.
 
 For each of us, whatever our knowledge of the gospel, can continue to learn. But learning is just the beginning. The fulness of blessings comes as we adopt the principles and live our lives by them. When we make them our way, when we live the principles, we are promised that they will be a light unto us. As we come to know that light, it will lead us through the midst of darkness, and as we begin to bring that light into our homes, it can become a beacon to our children, and to their children, and to theirs.
 
@@ -73,8 +75,3 @@ May we press on, with a perfect brightness of hope, overcome our problems, and e
 
 
 
-
-
-
-
-#Family #Love

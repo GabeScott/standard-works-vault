@@ -1,6 +1,5 @@
 # Fox
 
-
 Samson went and caught three hundred *foxes*, [[Judges 15.4|Judges 15:4]].
 
 they shall be a portion for *foxes*, [[Psalms 63.10|Psalms 63:10]].

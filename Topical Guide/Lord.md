@@ -1,7 +1,6 @@
 # Lord
 
-
-*See also* [[God.md|God]]; [[Jesus Christ, Jehovah.md|Jesus Christ, Jehovah]]; [[Jesus Christ, Lord.md|Jesus Christ, Lord]]; [[Jesus Christ, Messiah.md|Jesus Christ, Messiah]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[lord.md|lord]]; [[Lord of Hosts.md|Lord of Hosts]]; [[Master.md|Master]]; [[Name of the Lord.md|Name of the Lord]]; [BD Christ](https://www.churchofjesuschrist.org/study/scriptures/bd/christ?lang=eng); [Christ, names of](https://www.churchofjesuschrist.org/study/scriptures/bd/christ-names-of?lang=eng); [Jehovah](https://www.churchofjesuschrist.org/study/scriptures/bd/jehovah?lang=eng)
+*See also* [[God.md|God]]; [[Jesus Christ, Jehovah.md|Jesus Christ, Jehovah]]; [[Jesus Christ, Lord.md|Jesus Christ, Lord]]; [[Jesus Christ, Messiah.md|Jesus Christ, Messiah]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[lord.md|lord]]; [[Lord of Hosts.md|Lord of Hosts]]; [[Master.md|Master]]; [[Name of the Lord.md|Name of the Lord]]; [[BD Christ.md|BD Christ]]; [[BD Christ, names of.md|BD Christ, names of]]; [[BD Jehovah.md|BD Jehovah]]
 
 Is any thing too hard for the *Lord*, [[Genesis 18.14|Genesis 18:14]].
 
@@ -13,13 +12,13 @@ ye shall know that I am the *Lord*, [[Exodus 6.7|Exodus 6:7]].
 
 there is none like unto the *Lord*, [[Exodus 8.10|Exodus 8:10]].
 
-the earth is the *Lord's*, [[Exodus 9.29|Exodus 9:29]].
+the earth is the *Lord’s*, [[Exodus 9.29|Exodus 9:29]].
 
 Who is like unto thee, O *Lord*, among the gods, [[Exodus 15.11|Exodus 15:11]].
 
 I know that the *Lord* is greater than all gods, [[Exodus 18.11|Exodus 18:11]].
 
-Who is on the *Lord's* side, [[Exodus 32.26|Exodus 32:26]].
+Who is on the *Lord’s* side, [[Exodus 32.26|Exodus 32:26]].
 
 *Lord* spake unto Moses face to face, [[Exodus 33.11|Exodus 33:11]].
 
@@ -35,7 +34,7 @@ thou shalt love the *Lord* thy God, [[Deuteronomy 6.5|Deuteronomy 6:5]] ([[Matth
 
 *Lord* your God is God of gods, [[Deuteronomy 10.17|Deuteronomy 10:17]].
 
-*Lord* came from Sinai ... with ten thousands of saints, [[Deuteronomy 33.2|Deuteronomy 33:2]].
+*Lord* came from Sinai … with ten thousands of saints, [[Deuteronomy 33.2|Deuteronomy 33:2]].
 
 *Lord* God of Israel was their inheritance, [[Joshua 13.33|Joshua 13:33]].
 
@@ -47,7 +46,7 @@ they forsook the *Lord* God of their fathers, [[Judges 2.12|Judges 2:12]].
 
 *Lord*: let him do what seemeth him good, [[1 Samuel 3.18|1 Samuel 3:18]].
 
-he is the *Lord's* anointed, [[1 Samuel 24.10|1 Samuel 24:10]].
+he is the *Lord’s* anointed, [[1 Samuel 24.10|1 Samuel 24:10]].
 
 *Lord* is my rock, and my fortress, [[2 Samuel 22.2|2 Samuel 22:2]] ([[Psalms 18.2|Psalms 18:2]]).
 
@@ -55,7 +54,7 @@ who is God, save the *Lord*, [[2 Samuel 22.32|2 Samuel 22:32]] ([[Psalms 18.31|P
 
 if the *Lord* be God, follow him, [[1 Kings 18.21|1 Kings 18:21]].
 
-*Lord* passed by ... *Lord* was not in the wind, [[1 Kings 19.11|1 Kings 19:11]].
+*Lord* passed by … *Lord* was not in the wind, [[1 Kings 19.11|1 Kings 19:11]].
 
 Give unto the *Lord* the glory, [[1 Chronicles 16.29|1 Chronicles 16:29]] ([[Psalms 96.8|Psalms 96:8]]).
 
@@ -73,7 +72,7 @@ Blessed is the nation whose God is the *Lord*, [[Psalms 33.12|Psalms 33:12]].
 
 O taste and see that the *Lord* is good, [[Psalms 34.8|Psalms 34:8]].
 
-*Lord* ... cometh to judge the earth, [[Psalms 96.13|Psalms 96:13]].
+*Lord* … cometh to judge the earth, [[Psalms 96.13|Psalms 96:13]].
 
 *Lord* is merciful and gracious, [[Psalms 103.8|Psalms 103:8]].
 
@@ -81,7 +80,7 @@ O taste and see that the *Lord* is good, [[Psalms 34.8|Psalms 34:8]].
 
 *Lord* is high above all nations, [[Psalms 113.4|Psalms 113:4]].
 
-This is the *Lord's* doing, [[Psalms 118.23|Psalms 118:23]] ([[Matthew 21.42|Matthew 21:42]]; [[Mark 12.11|Mark 12:11]]).
+This is the *Lord’s* doing, [[Psalms 118.23|Psalms 118:23]] ([[Matthew 21.42|Matthew 21:42]]; [[Mark 12.11|Mark 12:11]]).
 
 Except the *Lord* build the house, they labour in vain, [[Psalms 127.1|Psalms 127:1]].
 
@@ -95,7 +94,7 @@ I am the *Lord*: that is my name, [[Isaiah 42.8|Isaiah 42:8]].
 
 I, am the *Lord*; and beside me there is no saviour, [[Isaiah 43.11|Isaiah 43:11]].
 
-One shall say, I am the *Lord's*, [[Isaiah 44.5|Isaiah 44:5]].
+One shall say, I am the *Lord’s*, [[Isaiah 44.5|Isaiah 44:5]].
 
 I the *Lord* am thy Saviour and thy Redeemer, [[Isaiah 60.16|Isaiah 60:16]].
 
@@ -105,7 +104,7 @@ he shall be called, The *Lord* Our Righteousness, [[Jeremiah 23.6|Jeremiah 23:6]
 
 Know the *Lord*: for they shall all know me, [[Jeremiah 31.34|Jeremiah 31:34]] ([[Hebrews 8.11|Hebrews 8:11]]).
 
-your God is ... a *Lord* of kings, [[Daniel 2.47|Daniel 2:47]].
+your God is … a *Lord* of kings, [[Daniel 2.47|Daniel 2:47]].
 
 *Lord* cometh forth out of his place, [[Micah 1.3|Micah 1:3]].
 
@@ -135,7 +134,7 @@ a Saviour, which is Christ the *Lord*, [[Luke 2.11|Luke 2:11]].
 
 why call ye me, *Lord*, *Lord*, and do not, [[Luke 6.46|Luke 6:46]].
 
-*Lord* is risen ... and hath appeared to Simon, [[Luke 24.34|Luke 24:34]].
+*Lord* is risen … and hath appeared to Simon, [[Luke 24.34|Luke 24:34]].
 
 *Lord*, to whom shall we go, [[John 6.68|John 6:68]].
 
@@ -143,13 +142,13 @@ Ye call me Master and *Lord*, [[John 13.13|John 13:13]].
 
 taken away the *Lord* out of the sepulchre, [[John 20.2|John 20:2]].
 
-Thomas ... said unto him, My *Lord* and my God, [[John 20.28|John 20:28]].
+Thomas … said unto him, My *Lord* and my God, [[John 20.28|John 20:28]].
 
 whom ye have crucified, both *Lord* and Christ, [[Acts 2.36|Acts 2:36]].
 
 *Lord* added to the church daily, [[Acts 2.47|Acts 2:47]].
 
-Who art thou, *Lord* ? And the *Lord* said, [[Acts 9.5|Acts 9:5]] ([[Acts 22.8|Acts 22:8]]; [[Acts 26.15|Acts 26:15]]).
+Who art thou, *Lord*? And the *Lord* said, [[Acts 9.5|Acts 9:5]] ([[Acts 22.8|Acts 22:8]]; [[Acts 26.15|Acts 26:15]]).
 
 *Lord* of heaven and earth, dwelleth not in temples made with hands, [[Acts 17.24|Acts 17:24]].
 
@@ -161,9 +160,9 @@ put ye on the *Lord*, [[Romans 13.14|Romans 13:14]].
 
 he might be *Lord* both of the dead and living, [[Romans 14.9|Romans 14:9]].
 
-there is ... one *Lord* Jesus Christ, [[1 Corinthians 8.6|1 Corinthians 8:6]].
+there is … one *Lord* Jesus Christ, [[1 Corinthians 8.6|1 Corinthians 8:6]].
 
-this is not to eat the *Lord's* supper, [[1 Corinthians 11.20|1 Corinthians 11:20]].
+this is not to eat the *Lord’s* supper, [[1 Corinthians 11.20|1 Corinthians 11:20]].
 
 no man can say that Jesus is the *Lord*, but by the Holy Ghost, [[1 Corinthians 12.3|1 Corinthians 12:3]].
 
@@ -221,17 +220,17 @@ with righteousness shall the *Lord* God judge the poor, [[2 Nephi 30.9|2 Nephi 3
 
 *Lord* God will consecrate my prayers, [[2 Nephi 33.4|2 Nephi 33:4]].
 
-*Lord* of the vineyard saw that his fruit was good, [[Jacob 5.75|Jacob 5:75]] ([[Jacob 5.8|5:8-75]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]]; [[D&C 103.21|D&C 103:21]]).
+*Lord* of the vineyard saw that his fruit was good, [[Jacob 5.75|Jacob 5:75]] ([[D&C 103.21|D&C 103:21]]).
 
 repentance and faith on the *Lord* Jesus, [[Mosiah 3.12|Mosiah 3:12]].
 
-salvation ... through the name of Christ, the *Lord* Omnipotent, [[Mosiah 3.17|Mosiah 3:17]] ([[Mosiah 3.5|Mosiah 3:5]]).
+salvation … through the name of Christ, the *Lord* Omnipotent, [[Mosiah 3.17|Mosiah 3:17]] ([[Mosiah 3.5|Mosiah 3:5]]).
 
 *Lord* had created all men, and had also redeemed, [[Alma 1.4|Alma 1:4]].
 
 *Lord* God ordained priests, after his holy order, [[Alma 13.1|Alma 13:1]].
 
-*Lord* God, the God of Abraham ... did deliver them out of bondage, [[Alma 29.11|Alma 29:11]].
+*Lord* God, the God of Abraham … did deliver them out of bondage, [[Alma 29.11|Alma 29:11]].
 
 *Lord* God sent our first parents forth from the garden of Eden, [[Alma 42.2|Alma 42:2]].
 
@@ -251,9 +250,9 @@ life and light of the world, your Redeemer, your *Lord*, [[D&C 10.70|D&C 10:70]]
 
 listen to the words of Jesus Christ, your *Lord*, [[D&C 15.1|D&C 15:1]].
 
-I, Jesus Christ, your *Lord* ... have spoken it unto you, [[D&C 17.9|D&C 17:9]] ([[D&C 95.17|D&C 95:17]]).
+I, Jesus Christ, your *Lord* … have spoken it unto you, [[D&C 17.9|D&C 17:9]] ([[D&C 95.17|D&C 95:17]]).
 
-I am ... Christ the *Lord*, [[D&C 19.1|D&C 19:1]].
+I am … Christ the *Lord*, [[D&C 19.1|D&C 19:1]].
 
 one thousand eight hundred and thirty years since the coming of our *Lord*, [[D&C 20.1|D&C 20:1]].
 
@@ -263,7 +262,7 @@ Listen to the voice of the *Lord*, [[D&C 35.1|D&C 35:1]].
 
 I, the *Lord*, who was crucified for the sins of the world, [[D&C 53.2|D&C 53:2]].
 
-thus saith ... the *Lord* of the whole earth, [[D&C 55.1|D&C 55:1]].
+thus saith … the *Lord* of the whole earth, [[D&C 55.1|D&C 55:1]].
 
 seek the face of the *Lord* always, [[D&C 101.38|D&C 101:38]].
 
@@ -271,7 +270,7 @@ seek the face of the *Lord* always, [[D&C 101.38|D&C 101:38]].
 
 We saw the *Lord* standing upon the breastwork, [[D&C 110.2|D&C 110:2]].
 
-*Lord* ... shall stand in the midst of his people, [[D&C 133.25|D&C 133:25]].
+*Lord* … shall stand in the midst of his people, [[D&C 133.25|D&C 133:25]].
 
 *Lord* shall be red in his apparel, [[D&C 133.48|D&C 133:48]].
 
@@ -279,4 +278,4 @@ Abraham, talked with the *Lord*, face to face, [[Abraham 3.11|Abraham 3:11]].
 
 coming of the great and dreadful day of the *Lord*, [[Joseph Smith History 1.38|Joseph Smith History 1:38]].
 
-first principles ... first, Faith in the *Lord* Jesus Christ, [[Articles of Faith 1.4|Articles of Faith 1:4]].
+first principles … first, Faith in the *Lord* Jesus Christ, [[Articles of Faith 1.4|Articles of Faith 1:4]].

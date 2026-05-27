@@ -1,5 +1,7 @@
 # Keeping Covenants
 
+Thomas S. Monson
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -16,9 +18,9 @@ With challenges like these, you need to remember that you do not face them alone
 
 When you entered the waters of baptism, you made a promise to the Lord that you would “humble \[yourselves\] before God, … and witness before the church that \[you\] have truly repented of all \[your\] sins, and are willing to take upon \[yourselves\] the name of Jesus Christ, having a determination to serve him to the end, and truly manifest by \[your\] works that \[you\] have received of the Spirit of Christ unto the remission of \[your\] sins” ([[D&C 20.37|D&C 20:37]]). You were therefore bound by covenant to “a godly walk and conversation, … walking in holiness before the Lord” ([[D&C 20.69|D&C 20:69]]).
 
-Many of you were baptized when you were eight years old, and you may not realize that this is the promise you made to your Heavenly Father when you were baptized. Always remember that you are under this covenant. Your Heavenly Father has promised in return that He will give marvelous blessings to those who honor their covenants, keep His commandments, and endure faithfully to the end. They will be sealed by the Holy Spirit of Promise and will be “given *all* things” ([[D&C 76.55|D&C 76:55]]; emphasis added; see also [[D&C 76.50|D&C 76:50–54, 70]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.70|]]), including an inheritance in the celestial kingdom (see [[2 Nephi 31.16|2 Ne. 31:16–20]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]]).
+Many of you were baptized when you were eight years old, and you may not realize that this is the promise you made to your Heavenly Father when you were baptized. Always remember that you are under this covenant. Your Heavenly Father has promised in return that He will give marvelous blessings to those who honor their covenants, keep His commandments, and endure faithfully to the end. They will be sealed by the Holy Spirit of Promise and will be “given *all* things” ([[D&C 76.55|D&C 76:55]]; emphasis added; see also [[D&C 76.50|D&C 76:50–54, 70]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.70|]]), including an inheritance in the celestial kingdom (see [[2 Nephi 31.16|2 Ne. 31:16–20]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]]).
 
-The Apostle Paul wrote that “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him” ([[1 Corinthians 2.9|1 Cor. 2:9]]). Those who live clean lives and keep the commandments “shall dwell in the presence of God and his Christ forever and ever” ([[D&C 76.62|D&C 76:62]]). They “shall have eternal life, … the greatest of all the gifts of God” ([[D&C 14.7|D&C 14:7]]).
+The Apostle Paul wrote that “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him” ([[1 Corinthians 2.9|1 Cor. 2:9]]). Those who live clean lives and keep the commandments “shall dwell in the presence of God and his Christ forever and ever” ([[D&C 76.62|D&C 76:62]]). They “shall have eternal life, … the greatest of all the gifts of God” ([[D&C 14.7|D&C 14:7]]).
 
 I remind you young men who have been ordained to the priesthood that you have made an additional covenant with God. When you were ordained, you made a sacred promise with the Lord that you would honor your priesthood faithfully. (See [[D&C 84.33|D&C 84:33–42]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]][[D&C 84.40|]][[D&C 84.41|]][[D&C 84.42|]].) We are pleased to know that many of you are true and faithful in every way to your priesthood covenants and are preparing yourselves to receive the Lord’s promised blessings. Unfortunately, we know also that too many young men of the priesthood pay little attention to the serious nature of their sacred promises made with Heavenly Father. Let me explain why you young men and women must keep your covenants you have made with God.
 
@@ -32,7 +34,7 @@ Now, my dear young friends, I understand the struggles you face every day in kee
 
 You must be honest with yourself and remain true to the covenants you have made with God. Do not fall into the trap of thinking you can sin a little and it will not matter. Remember, “the Lord cannot look upon sin with the least degree of allowance” ([[D&C 1.31|D&C 1:31]]). Some young men and women in the Church talk openly about sexual transgression. They seem to forget that the Lord forbids all sexual relations before marriage, including petting, sex perversion of any kind, or preoccupation with sex in thought, speech, or action. Some youth foolishly rationalize that it is “no big deal” to sin now because they can always repent later when they want to go to the temple or on a mission. Anyone who does that is breaking promises made to God both in the premortal life and in the waters of baptism. The idea of sinning a little is self-deception. Sin is sin! Sin weakens you spiritually, and it always places the sinner at eternal risk. Choosing to sin, even with the intent to repent, is simply turning away from God and violating covenants.
 
-Gratefully, many of you young men honor your priesthood, and many young women “stand for truth and righteousness” as stated in the Young Women’s motto (*Young Women Leadership Handbook* \[1992\], p. 5). We commend you for your fidelity and integrity.
+Gratefully, many of you young men honor your priesthood, and many young women “stand for truth and righteousness” as stated in the Young Women’s motto (*Young Women Leadership Handbook* \[1992\], p. 5). We commend you for your fidelity and integrity.
 
 For those who have strayed, the Savior has provided a way back. But it is not without pain. Repentance is not easy; it takes time—painful time! You deceive yourself if you believe you can break the promises you have made with Heavenly Father and suffer no consequence.
 
@@ -40,15 +42,15 @@ You sustain the First Presidency and the Twelve Apostles as prophets, seers, and
 
 “Our beloved young men and women,
 
-“We want you to know that we love you. We have great confidence in you. Because of that, we talk to you frankly and honestly. …
+“We want you to know that we love you. We have great confidence in you. Because of that, we talk to you frankly and honestly. …
 
-“God loves you as He loves each and every one of His children. His desire, purpose, and glory is to have you return to Him pure and undefiled, having proven yourselves worthy of an eternity of joy in His presence. …
+“God loves you as He loves each and every one of His children. His desire, purpose, and glory is to have you return to Him pure and undefiled, having proven yourselves worthy of an eternity of joy in His presence. …
 
 “We counsel you to choose to live a morally clean life. The prophet Alma declared, ‘Wickedness never was happiness’ ([[Alma 41.10|Alma 41:10]]). Truer words were never spoken!
 
 “You cannot do wrong and feel right. It is impossible! …
 
-“We pray that you—the young and rising generation—will keep your bodies and minds clean, free from the contaminations of the world, that you will be fit and pure vessels to bear triumphantly the responsibilities of the kingdom of God in preparation for the second coming of our Savior” (pp. 3–5).
+“We pray that you—the young and rising generation—will keep your bodies and minds clean, free from the contaminations of the world, that you will be fit and pure vessels to bear triumphantly the responsibilities of the kingdom of God in preparation for the second coming of our Savior” (pp. 3–5).
 
 Please make sure you have a copy of the pamphlet *For the Strength of Youth* and regularly read it. Carry the small wallet-sized summary card with you. Read carefully the section in the pamphlet that teaches principles of sexual purity, and follow the counsel with exactness.
 
@@ -60,7 +62,7 @@ Those of you who have been unwise and have transgressed should read and pray abo
 
 “The miracle of forgiveness is real, and true repentance is accepted by the Lord. Full repentance of some sins requires that we not only confess and resolve them with the Lord but that we also do so with the Church. The bishop and stake president have been appointed by revelation to serve as judges in these cases.
 
-“Only the Lord can forgive sins, but these priesthood leaders can assist the transgressor in the process of repentance. … If you have sinned, the sooner you begin to make your way back, the sooner you will find the sweet peace and joy that come with the miracle of forgiveness” (pp. 17–18).
+“Only the Lord can forgive sins, but these priesthood leaders can assist the transgressor in the process of repentance. … If you have sinned, the sooner you begin to make your way back, the sooner you will find the sweet peace and joy that come with the miracle of forgiveness” (pp. 17–18).
 
 Stake and mission presidents and bishops and branch presidents recently received instructions from the First Presidency on recommending worthy and qualified members for full-time missionary service. Brethren, we expect that you will teach youth leaders, parents, and the youth these long-established principles. Missionaries must be morally clean and spiritually prepared by you to serve the Lord in today’s world. I urge you to follow the instructions precisely and to do all in your power to help young people avoid any sin that could disqualify them for service in the kingdom of God.
 
@@ -73,8 +75,3 @@ I know this Church is true. I know God lives and Jesus is the Christ. I know tha
 
 
 
-
-
-
-
-#Covenants #Morality #Repentance

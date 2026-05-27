@@ -1,13 +1,12 @@
 # Transgress, Transgression
 
-
-*See also* [[Excommunication.md|Excommunication]]; [[Iniquity.md|Iniquity]]; [[Offense, Offend, Offender.md|Offense]]; [[Sin.md|Sin]]; [[Trespass.md|Trespass]]; [[Wickedness, Wicked.md|Wickedness]]
+*See also* [[Excommunication.md|Excommunication]]; [[Iniquity.md|Iniquity]]; [[Offense.md|Offense]]; [[Sin.md|Sin]]; [[Trespass.md|Trespass]]; [[Wickedness.md|Wickedness]]
 
 she took of the fruit thereof, and did *eat*, [[Genesis 3.6|Genesis 3:6]].
 
 he will not pardon your *transgressions*, [[Exodus 23.21|Exodus 23:21]].
 
-an atonement ... because of their *transgressions*, [[Leviticus 16.16|Leviticus 16:16]].
+an atonement … because of their *transgressions*, [[Leviticus 16.16|Leviticus 16:16]].
 
 carried away to Babylon for their *transgression*, [[1 Chronicles 9.1|1 Chronicles 9:1]].
 
@@ -55,13 +54,13 @@ by the letter and circumcision dost *transgress*, [[Romans 2.27|Romans 2:27]].
 
 where no law is, there is no *transgression*, [[Romans 4.15|Romans 4:15]].
 
-not sinned after the similitude of Adam's *transgression*, [[Romans 5.14|Romans 5:14]].
+not sinned after the similitude of Adam’s *transgression*, [[Romans 5.14|Romans 5:14]].
 
 the law? It was added because of *transgressions*, [[Galatians 3.19|Galatians 3:19]].
 
 woman being deceived was in the *transgression*, [[1 Timothy 2.14|1 Timothy 2:14]].
 
-by means of death ... redemption of the *transgressions*, [[Hebrews 9.15|Hebrews 9:15]].
+by means of death … redemption of the *transgressions*, [[Hebrews 9.15|Hebrews 9:15]].
 
 Whosoever committeth sin *transgresseth* also the law, [[1 John 3.4|1 John 3:4]].
 
@@ -79,23 +78,23 @@ never shall be blotted out, except it be through *transgression*, [[Mosiah 1.12|
 
 people of the Lord should fall into *transgression*, [[Mosiah 1.13|Mosiah 1:13]] ([[Alma 9.23|Alma 9:23]]; [[Alma 10.19|Alma 10:19]]).
 
-if ye should *transgress* ... ye do withdraw yourselves from the Spirit, [[Mosiah 2.36|Mosiah 2:36]].
+if ye should *transgress* … ye do withdraw yourselves from the Spirit, [[Mosiah 2.36|Mosiah 2:36]].
 
-having ... taken upon himself ... their *transgressions*, [[Mosiah 15.9|Mosiah 15:9]].
+having … taken upon himself … their *transgressions*, [[Mosiah 15.9|Mosiah 15:9]].
 
-church ... nothing shall overthrow it, save it is the *transgression* of my people, [[Mosiah 27.13|Mosiah 27:13]].
+church … nothing shall overthrow it, save it is the *transgression* of my people, [[Mosiah 27.13|Mosiah 27:13]].
 
 fall into sins and *transgressions*, [[Alma 9.19|Alma 9:19]].
 
 gave commandments unto men, they having first *transgressed* the first commandments, [[Alma 12.31|Alma 12:31]].
 
-enlightened ... fallen away into sin and *transgression*, [[Alma 24.30|Alma 24:30]].
+enlightened … fallen away into sin and *transgression*, [[Alma 24.30|Alma 24:30]].
 
 inequality of man is because of sin and *transgression*, [[Alma 28.13|Alma 28:13]].
 
-he that only believeth ... and falleth into *transgression*, [[Alma 32.19|Alma 32:19]].
+he that only believeth … and falleth into *transgression*, [[Alma 32.19|Alma 32:19]].
 
-Christ shall ... take upon him the *transgressions* of his people, [[Alma 34.8|Alma 34:8]].
+Christ shall … take upon him the *transgressions* of his people, [[Alma 34.8|Alma 34:8]].
 
 until we bring it upon us by our own *transgressions*, [[Alma 46.18|Alma 46:18]].
 
@@ -113,7 +112,7 @@ were it not for the *transgressions* of my people, [[D&C 105.2|D&C 105:2]].
 
 inasmuch as a President of the High Priesthood shall *transgress*, [[D&C 107.82|D&C 107:82]].
 
-those who cry *transgression* ... are the servants of sin, [[D&C 121.17|D&C 121:17]].
+those who cry *transgression* … are the servants of sin, [[D&C 121.17|D&C 121:17]].
 
 in *transgression*, having rejected the prophets, [[D&C 138.32|D&C 138:32]].
 
@@ -121,4 +120,4 @@ after they have paid the penalty of their *transgressions*, [[D&C 138.59|D&C 138
 
 because of my *transgression* my eyes are opened, [[Moses 5.10|Moses 5:10]].
 
-punished for their own sins, and not for Adam's *transgression*, [[Articles of Faith 1.2|Articles of Faith 1:2]].
+punished for their own sins, and not for Adam’s *transgression*, [[Articles of Faith 1.2|Articles of Faith 1:2]].

@@ -1,5 +1,7 @@
 # Our Testimony to the World
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1997 General Conference*
@@ -18,7 +20,7 @@ His Church will not be misled. Never fear that. If there were any disposition on
 
 Let us be good citizens of the nations in which we live. Let us be good neighbors in our communities. Let us acknowledge the diversity of our society, recognizing the good in all people. We need not make any surrender of our theology. But we can set aside any element of suspicion, of provincialism, of parochialism.
 
-“We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]). This is our primary declaration of faith. We speak unabashedly of the living reality of the Lord Jesus Christ. We declare without equivocation the fact of His great act of Atonement for all mankind. That act brought assurance of universal resurrection and opened the way to exaltation in our Father’s kingdom.
+“We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]). This is our primary declaration of faith. We speak unabashedly of the living reality of the Lord Jesus Christ. We declare without equivocation the fact of His great act of Atonement for all mankind. That act brought assurance of universal resurrection and opened the way to exaltation in our Father’s kingdom.
 
 This is the burden of our declaration to the world. It is the substance of our theology. It is the wellspring of our faith. Let no one ever say that we are not Christians.
 
@@ -28,7 +30,7 @@ Brigham Young and a handful of others are remembered from our pioneer history. B
 
 So it is with us. We each make our own contribution, and that contribution adds up to the building of the cause. Your contribution is as acceptable as ours. Jesus said, “If any man desire to be first, the same shall be last of all, and servant of all” ([[Mark 9.35|Mark 9:35]]).
 
-Brethren and sisters, we’re all part of one great family. Each has a duty; each has a mission to perform. And when we pass on, it will be reward enough if we can say to our beloved Master, “I have fought a good fight, I have finished my course, I have kept the faith” ([[2 Timothy 4.7|2 Tim. 4:7]]).
+Brethren and sisters, we’re all part of one great family. Each has a duty; each has a mission to perform. And when we pass on, it will be reward enough if we can say to our beloved Master, “I have fought a good fight, I have finished my course, I have kept the faith” ([[2 Timothy 4.7|2 Tim. 4:7]]).
 
 May each of you go safely to your homes. May you live together in love and appreciation and respect one for another. May you know the smile of heaven upon your lives.
 
@@ -37,8 +39,3 @@ Our love reaches out to you. We love you very much. We leave our blessing with y
 
 
 
-
-
-
-
-#Atonement #Church_Organization #Criticism #Fellowshipping #General_Conference #Government #Jesus_Christ #Neighbors

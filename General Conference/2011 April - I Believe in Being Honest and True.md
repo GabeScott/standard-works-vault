@@ -1,6 +1,8 @@
 # I Believe in Being Honest and True
 
-By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
+Thomas S. Monson
+
+By Ann M. Dibb - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -14,13 +16,13 @@ The thirteenth article of faith is the 2011 Mutual theme. As I’ve attended you
 
 The thirteenth article of faith is a guide for righteous, Christian living. Imagine for a moment what our world would be like if everyone chose to live by the teachings found in the thirteenth article of faith: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men; indeed, we may say that we follow the admonition of Paul—We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things. If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.”
 
-In the first Sunday morning general conference address President Thomas S. Monson delivered as the prophet, he quoted the admonition of Paul found in [[Philippians 4.8|Philippians 4:8]], which inspired many of the principles in the thirteenth article of faith. President Monson acknowledged the challenging times in which we live and provided encouragement. He said, “In this sometimes precarious journey through mortality, may we … follow that advice from the Apostle Paul which will help to keep us safe and on course.”[^1]
+In the first Sunday morning general conference address President Thomas S. Monson delivered as the prophet, he quoted the admonition of Paul found in [[Philippians 4.8|Philippians 4:8]], which inspired many of the principles in the thirteenth article of faith. President Monson acknowledged the challenging times in which we live and provided encouragement. He said, “In this sometimes precarious journey through mortality, may we … follow that advice from the Apostle Paul which will help to keep us safe and on course.”[^1]
 
 Tonight I would like to focus on two closely related principles in the thirteenth article of faith that definitely help “keep us safe and on course.” I have a strong testimony of and commitment to the important principles of being honest and being true.
 
 First, “\[I\] believe in being honest.” What does it mean to be honest? The booklet *True to the Faith* teaches, “To be honest means to be sincere, truthful, and without deceit at all times.”[^2] It is a commandment from God to be honest,[^3] and “complete honesty is necessary for our salvation.”[^4]
 
-President Howard W. Hunter taught that we must be willing to be strictly honest. He said:
+President Howard W. Hunter taught that we must be willing to be strictly honest. He said:
 
 “Several years ago there were posters in the foyers and entries of our chapels that were entitled ‘Be Honest with Yourself.’ Most of them pertained to the little, ordinary things of life. This is where the principle of honesty is cultivated.
 
@@ -63,7 +65,7 @@ It is my prayer that each of you will not only state, “I believe in being hone
 
 
 
-[^1]: Thomas S. Monson, “Looking Back and Moving Forward,” *Liahona* and *Ensign,* May 2008, 90.
+[^1]: Thomas S. Monson, “Looking Back and Moving Forward,” *Liahona* and *Ensign,* May 2008, 90.
 
 [^2]: *True to the Faith* (2004), 84.
 
@@ -71,16 +73,11 @@ It is my prayer that each of you will not only state, “I believe in being hone
 
 [^4]: *Gospel Principles* (2009), 179.
 
-[^5]: Howard W. Hunter, “Basic Concepts of Honesty,” *New Era,* Feb. 1978, 4, 5.
+[^5]: Howard W. Hunter, “Basic Concepts of Honesty,” *New Era,* Feb. 1978, 4, 5.
 
-[^6]: William J. Scott, “Forgot to Look Up,” *Scott’s Monthly Magazine,* Dec. 1867, 953.
+[^6]: William J. Scott, “Forgot to Look Up,” *Scott’s Monthly Magazine,* Dec. 1867, 953.
 
 [^7]: See *Merriam-Webster’s Collegiate Dictionary,* 11th ed. (2003), “true.”
 
 [^8]: Charlotte Brontë, *Jane Eyre* (2003), 356.
 
-
-
-
-
-#Example #Honesty

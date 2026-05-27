@@ -1,6 +1,5 @@
 # Thine
 
-
 *thine* is the kingdom, [[Matthew 6.13|Matthew 6:13]] ([[3 Nephi 13.13|3 Nephi 13:13]]).
 
 not my will, but *thine*, be done, [[Luke 22.42|Luke 22:42]].

@@ -1,5 +1,7 @@
 # Encounter at the Empty Tomb
 
+Dallin H. Oaks
+
 By President Dieter F. Uchtdorf - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -163,7 +165,7 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^15]: [[John 14.6|John 14:6]].
 
-[^16]: [[3 Nephi 5.3|3 Nephi 5:3.]]
+[^16]: [[3 Nephi 5.3|3 Nephi 5:3.]]
 
 [^17]: See [[Matthew 28.5|Matthew 28:5–6.]][[Matthew 28.6|]]
 
@@ -173,5 +175,3 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^20]: As we ponder these questions and act on this invitation, we could consider the many resources available today. We have precious access to the scriptures, including the Book of Mormon. We have the cherished words of latter-day prophets. Our Heavenly Father speaks through the Holy Ghost and has freely offered bountiful resources of inspiration and guidance. He invites us to enter His holy house to participate in sacred ordinances, make everlasting covenants, and walk with Him during our sojourn in this life.
 
-
-#Discipleship #Easter #Jesus_Christ #Resurrection #Testimony

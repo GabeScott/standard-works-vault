@@ -1,5 +1,7 @@
 # Seek the Blessings of the Church
 
+Ezra Taft Benson
+
 By Elder James M. Paramore - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -60,9 +62,9 @@ Recently, we learned a very valuable lesson from our President, Ezra Taft Benson
 
 Listen to what President David O. McKay said about the Church: “Every phase of \[the Church\] seems to me applicable to the welfare of the human family. When I consider the quorums of priesthood, I see in them an opportunity for developing that fraternity and brotherly love which is essential to the happiness of mankind. In these quorums and in the auxiliaries of the Church, I see opportunities for intellectual development, for social efficiency. In the judicial phase of the Church I see ample means of settling difficulties, of establishing harmony in society, of administering justice, and of perpetuating peace among individuals and groups. In the ecclesiastical organization, I see an opportunity for social welfare such as cannot be found in any other organization in the world.
 
-“Thus does Christ and His Church become my ideal, my inspiration in life. I think it is the highest ideal for which man can strive. …
+“Thus does Christ and His Church become my ideal, my inspiration in life. I think it is the highest ideal for which man can strive. …
 
-“I know of nothing else in the world that can even approach Christ’s Church as an anchor for the soul” (*Treasures of Life,* comp. Clare Middlemiss, Salt Lake City: Deseret Book Co., 1962, pp. 3–4).
+“I know of nothing else in the world that can even approach Christ’s Church as an anchor for the soul” (*Treasures of Life,* comp. Clare Middlemiss, Salt Lake City: Deseret Book Co., 1962, pp. 3–4).
 
 Now, may I invite all within the sound of my voice to seek the blessings of The Church of Jesus Christ of Latter-day Saints—its important, eternal blessings, its programs and activities, its opportunities to serve and to be of one heart and one mind—and to seek the peace the Savior promised. The First Presidency has extended a special invitation to all who, for whatever reason, may have gone astray from the Church, to come back, to come home, for you are needed and we love you. The Lord and His church will bless you and your families—even into eternity.
 
@@ -75,8 +77,3 @@ Beloved brothers and sisters, this is the Lord’s church, to which we are highl
 
 
 
-
-
-
-
-#Church_Organization

@@ -1,4 +1,3 @@
 # Michael
 
-
-*See* [[Adam.md|Adam]]; [BD Michael](https://www.churchofjesuschrist.org/study/scriptures/bd/michael?lang=eng)
+*See also* [[Adam.md|Adam]]; [[BD Michael.md|BD Michael]]

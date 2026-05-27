@@ -1,5 +1,7 @@
 # United in Love and Testimony
 
+Gordon B. Hinckley
+
 By Elder John K. Carmack - *Of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -73,8 +75,3 @@ President Hinckley is His prophet on the earth. This is His Church. May our unit
 
 [^13]: [[D&C 5.10|D&C 5:10]].
 
-
-
-
-
-#Atonement #Book_Of_Mormon #Church_Growth #Jesus_Christ #Love #Prophets #Testimony #Unity

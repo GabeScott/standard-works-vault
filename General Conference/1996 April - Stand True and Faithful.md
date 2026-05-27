@@ -1,5 +1,7 @@
 # Stand True and Faithful
 
+James E. Faust
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1996 General Conference*
@@ -105,7 +107,7 @@ Repentance is one of the first principles of the gospel. Forgiveness is a mark o
 
 The Prophet Isaiah declared:
 
-“Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil. …
+“Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil. …
 
 “Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool” ([[Isaiah 1.16|Isa. 1:16, 18]][[Isaiah 1.18|]]).
 
@@ -118,8 +120,3 @@ I leave my blessing upon you. Please know that we do love you. Please know that 
 
 
 
-
-
-
-
-#Agency #Education #Family #Friendship #Holy_Ghost #Honesty #Jesus_Christ #Joy #Loyalty #Morality #Parents #Pioneers #Prayer #Repentance #Self-Esteem #Seminary #Service #Temple_Work #Temptation #Word_Of_Wisdom #Youth

@@ -1,6 +1,8 @@
 # “There Am I in the Midst of Them”
 
-By Elder Joseph B. Wirthlin - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Joseph B. Wirthlin - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -28,7 +30,7 @@ Only in accepting our Savior and doing his will do we acquire the “feeling to 
 
 This conviction is clearly demonstrated in the lives of our great mission presidents, servicemen, missionaries, and devoted Church members. What I am trying to say about the Savior’s being in our midst, whether we be two or three or many, is clearly portrayed in Paul’s eloquent description of the process of attaining spiritual perfection. He said: “For our gospel came not unto you in word only, but also in power, and in the Holy Ghost, and in much assurance; as ye know what manner of men we were among you for your sake.
 
-“And ye became followers of us, and of the Lord, having received the word in much affliction, with joy of the Holy Ghost: so that ye were ensamples.” ([[1 Thessalonians 1.5|1 Thes. 1:5–6]][[1 Thessalonians 1.6|]].)
+“And ye became followers of us, and of the Lord, having received the word in much affliction, with joy of the Holy Ghost: so that ye were ensamples.” ([[1 Thessalonians 1.5|1 Thes. 1:5–6]][[1 Thessalonians 1.6|]].)
 
 May I restate for the sake of emphasis what these inspired writings contain for each of us. Paul rejoiced in the fact that what he had told the Thessalonians was not meaningless words to them, for they had listened with great interest, and what was taught them produced a powerful desire for righteousness in their lives. He was explicit in stressing that the Holy Spirit also gave them full assurance that what was taught was true. He did not hesitate to say that his life, as well, was further proof to them of the truthfulness of the message. Paul was pleased that the gospel message had been received with such joy and happiness, despite many hardships. Finally, he noted what must have been their crowning achievement—that they were inspiring examples to all their neighbors and that from them the word of the Lord had extended to others everywhere, far beyond their boundaries. Paul paid tribute to them when he told them that wherever he traveled, he found people telling him about their remarkable good works and faith in God.
 
@@ -38,15 +40,10 @@ I recall that when the Saints settled in a new area, they were troubled about ho
 
 There is a great lesson to be learned by all of us in a careful study of our history. The success of our Church may be attributed to our faith in God and to our being led under the inspired guidance of strong and devoted leaders, never taking the shortcuts, and keeping Jesus and his divine teachings dynamically in our midst.
 
-It is my privilege to testify to the truth of the gospel of Jesus Christ and to the motivating leadership of our great prophet, President Spencer W. Kimball, and to the power and appeal of his exemplary, shining life, and to the divine calling of the Brethren, and to the strength and nobility to be found in the good lives of thousands of Latter-day Saints throughout the world.
+It is my privilege to testify to the truth of the gospel of Jesus Christ and to the motivating leadership of our great prophet, President Spencer W. Kimball, and to the power and appeal of his exemplary, shining life, and to the divine calling of the Brethren, and to the strength and nobility to be found in the good lives of thousands of Latter-day Saints throughout the world.
 
 Wherever two or three of us are gathered together, I pray that the Savior may be in the midst of us because of our righteousness, the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Jesus_Christ #Obedience

@@ -1,6 +1,8 @@
 # Faith: The Essence of True Religion
 
-By President Gordon B. Hinckley - *Counselor in the First Presidency*
+Gordon B. Hinckley
+
+By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -8,7 +10,7 @@ By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 I suppose there has never been a more generous outpouring of love than that expressed in behalf of President Kimball, our prophet. Unitedly as a people with one heart and one voice we give thanks to the Lord for his blessings and pray for his continued recovery.
 
-We pray also for Elders G. Homer Durham and Theodore M. Burton, who likewise are in the hospital and acknowledge the absence of Elder Burton Howard, who is presiding over the mission in Uruguay.
+We pray also for Elders G. Homer Durham and Theodore M. Burton, who likewise are in the hospital and acknowledge the absence of Elder Burton Howard, who is presiding over the mission in Uruguay.
 
 My brethren and sisters, thank you for your faithful service in behalf of our Father’s children wherever you live. Thank you for the efforts you have made in coming here. I pray that when we separate on the morrow, we all will feel that we have been fed the bread of life. I express the same prayer in behalf of those who will receive the conference in their homes.
 
@@ -18,7 +20,7 @@ And now we are expanding the miracle of satellite transmission in behalf of the 
 
 With the growth of the Church, we likely could never build a hall large enough to accommodate all who would wish to assemble in one place. Nor would accelerating travel costs make possible their coming. The gifts of science have provided a more convenient way. We are confident that as the work of the Lord expands, he will inspire men to develop the means whereby the membership of the Church, wherever they may be, can be counseled in an intimate and personal way by his chosen prophet. Communication is the sinew that binds the Church as one great family. Between those facilities which are now available and those which are on the horizon, we shall be able to converse one with another according to the needs and circumstances of the time.
 
-Now, I hope you will pardon my speaking in a personal vein for three or four minutes. It was twenty years ago, at the October conference, that I was sustained a member of the Council of the Twelve Apostles. Previously, for two and a half years, I had served as an Assistant to the Twelve. These have been eventful years, during which four great and inspired men have presided over the Church—David O. McKay, Joseph Fielding Smith, Harold B. Lee, and Spencer W. Kimball. They have been years in which the Church has moved out across the world in a remarkable way. They have been years in which millions of members have been added. They have also been years in which strong voices have been raised against us. We have been criticized, but this criticism has in no way deterred the progress of the work. In fact, it has brought many to our defense and our support, and in some instances it has added to our numbers.
+Now, I hope you will pardon my speaking in a personal vein for three or four minutes. It was twenty years ago, at the October conference, that I was sustained a member of the Council of the Twelve Apostles. Previously, for two and a half years, I had served as an Assistant to the Twelve. These have been eventful years, during which four great and inspired men have presided over the Church—David O. McKay, Joseph Fielding Smith, Harold B. Lee, and Spencer W. Kimball. They have been years in which the Church has moved out across the world in a remarkable way. They have been years in which millions of members have been added. They have also been years in which strong voices have been raised against us. We have been criticized, but this criticism has in no way deterred the progress of the work. In fact, it has brought many to our defense and our support, and in some instances it has added to our numbers.
 
 For me personally, these have been challenging years, filled with worrisome responsibility and satisfying experience. Mine has been the opportunity to meet with the Saints over the world. I have been in your homes in many parts of the earth, and I wish to thank you for your kindness and hospitality. I have been in your meetings and listened to your declarations of faith and your expressions of testimony. I have wept with some in your sorrow and rejoiced with many in your accomplishments. My faith has grown, my knowledge has broadened, my love for our Father’s children has strengthened wherever I have gone.
 
@@ -74,15 +76,15 @@ There is no lack of certitude in that statement. For Joseph Smith that experienc
 
 So certain was he of the cause he led, so sure of his divinely-given calling, that he placed them above the value of his own life. With prescient knowledge of his forthcoming death, he surrendered himself to those who would deliver him defenseless into the hands of a mob. He sealed his testimony with his life’s blood.
 
-It was so with his followers. One will find no evidence, not a scintilla of it, that certitude was the enemy of religion in their lives and actions. Time after time they left their comfortable homes, first in New York, then in Ohio and Missouri, later in Illinois; and even after reaching this valley many left again to plant colonies over a vast area of the West. Why? Because of their faith in the cause of which they were apart.
+It was so with his followers. One will find no evidence, not a scintilla of it, that certitude was the enemy of religion in their lives and actions. Time after time they left their comfortable homes, first in New York, then in Ohio and Missouri, later in Illinois; and even after reaching this valley many left again to plant colonies over a vast area of the West. Why? Because of their faith in the cause of which they were a part.
 
 Many died in those long and difficult journeys, the victims of disease, exposure to the elements, and the brutal attacks of their enemies. Some six thousand lie buried somewhere between the Missouri River and this valley. Their love for the truth meant more to them than did life itself.
 
-It has been thus ever since. I wrote these beautiful words as President David O. McKay spoke them to a small group some years ago. Said he:
+It has been thus ever since. I wrote these beautiful words as President David O. McKay spoke them to a small group some years ago. Said he:
 
 “As absolute as the certainty that you have in your hearts that tonight will be followed by dawn tomorrow morning, so is my assurance that Jesus Christ is the Savior of mankind, the light that will dispel the darkness of the world, through the gospel restored by direct revelation to the Prophet Joseph Smith.”
 
-Our beloved President Spencer W. Kimball has said: “I know that Jesus Christ is the Son of the living God and that he was crucified for the sins of the world.
+Our beloved President Spencer W. Kimball has said: “I know that Jesus Christ is the Son of the living God and that he was crucified for the sins of the world.
 
 “He is my friend, my Savior, my Lord, my God.” (*Ensign,* Nov. 1978, p. 73.)
 
@@ -109,8 +111,3 @@ My brethren and sisters, as we begin this great conference, I not only invoke th
 
 
 
-
-
-
-
-#Testimony

@@ -1,9 +1,8 @@
 # Exalt
 
-
 *See also* [[Exaltation.md|Exaltation]]; [[Magnify.md|Magnify]]; [[Praise.md|Praise]]
 
-my father's God, and I will *exalt* him, [[Exodus 15.2|Exodus 15:2]].
+my father’s God, and I will *exalt* him, [[Exodus 15.2|Exodus 15:2]].
 
 *exalt* the horn of his anointed, [[1 Samuel 2.10|1 Samuel 2:10]].
 

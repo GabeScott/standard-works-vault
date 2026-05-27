@@ -20,7 +20,7 @@ The scriptures are the word of God, so ask Him for help to understand them.
 
 ## Look for truths about Jesus Christ
 
-All things testify of Christ (see [[2 Nephi 11.4|2 Nephi 11:4]]; [[Moses 6.63|Moses 6:63]]), so consider noting or marking verses that testify of the Savior, deepen your love for Him, and teach how to follow Him. Sometimes truths about the Savior and His gospel are stated directly, and sometimes they are implied through an example or story. Ask yourself, “What eternal truths are taught in these verses? What do these truths teach me about the Savior?”
+All things testify of Christ (see [[2 Nephi 11.4|2 Nephi 11:4]]; [[Moses 6.63|Moses 6:63]]), so consider noting or marking verses that testify of the Savior, deepen your love for Him, and teach how to follow Him. Sometimes truths about the Savior and His gospel are stated directly, and sometimes they are implied through an example or story. Ask yourself, “What eternal truths are taught in these verses? What do these truths teach me about the Savior?”
 
 ## Listen to the Spirit
 

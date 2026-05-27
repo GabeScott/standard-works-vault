@@ -1,5 +1,7 @@
 # Never Leave Him
 
+Thomas S. Monson
+
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -48,13 +50,13 @@ Offense comes in many costumes and continually finds its way onstage. People we 
 
 In our weakened moments, the adversary seeks to steal our spiritual promises. If we are not watchful, our injured, childlike spirit will retreat back into the cold, dark crust of our former bloated ego, leaving behind the warm, healing light of the Savior.
 
-When Parley P. Pratt, in 1835, was judged unfairly, bringing embarrassment and shame to him and his family, the Prophet Joseph Smith counseled, “Parley, … walk such things under your feet … \[and\] God Almighty shall be with you.”[^17]
+When Parley P. Pratt, in 1835, was judged unfairly, bringing embarrassment and shame to him and his family, the Prophet Joseph Smith counseled, “Parley, … walk such things under your feet … \[and\] God Almighty shall be with you.”[^17]
 
-Another example: In 1830, Frederick G. Williams, a prominent medical doctor, was baptized. He immediately gave of his talents and prosperity to the Church. He became a leader in the Church. He donated property for the Kirtland Temple. In 1837, caught up in difficulties of the times, Frederick G. Williams made serious mistakes. The Lord declared in a revelation that “in consequence of \[his\] transgressions \[his\] former standing \[in the leadership of the Church had\] been taken away from \[him\].”[^18]
+Another example: In 1830, Frederick G. Williams, a prominent medical doctor, was baptized. He immediately gave of his talents and prosperity to the Church. He became a leader in the Church. He donated property for the Kirtland Temple. In 1837, caught up in difficulties of the times, Frederick G. Williams made serious mistakes. The Lord declared in a revelation that “in consequence of \[his\] transgressions \[his\] former standing \[in the leadership of the Church had\] been taken away from \[him\].”[^18]
 
-The beautiful lesson we learn from Frederick G. Williams is that “whatever his personal weaknesses, he had the strength of character to \[renew\] his loyalty to the \[Lord,\] the Prophet and … to the Church, when it would have been so easy to have disintegrated in bitterness.”[^19] In the spring of 1840, he presented himself at a general conference, humbly asking forgiveness for his past conduct and expressing his determination to do the will of God in the future. His case was presented by Hyrum Smith, and he was freely forgiven. He died a faithful member of the Church.
+The beautiful lesson we learn from Frederick G. Williams is that “whatever his personal weaknesses, he had the strength of character to \[renew\] his loyalty to the \[Lord,\] the Prophet and … to the Church, when it would have been so easy to have disintegrated in bitterness.”[^19] In the spring of 1840, he presented himself at a general conference, humbly asking forgiveness for his past conduct and expressing his determination to do the will of God in the future. His case was presented by Hyrum Smith, and he was freely forgiven. He died a faithful member of the Church.
 
-I recently met the president of the Recife Brazil Temple, whose name is Frederick G. Williams. He recounted how his great-great-grandfather’s decision of character had blessed the family and hundreds of his posterity.
+I recently met the president of the Recife Brazil Temple, whose name is Frederick G. Williams. He recounted how his great-great-grandfather’s decision of character had blessed the family and hundreds of his posterity.
 
 ## Choose Not to Be Ashamed
 
@@ -70,9 +72,9 @@ Nephi declared plainly, “We heeded them not.”[^25]
 
 Sadly, there were others whose courage faltered. The scripture reads, “*After* they had tasted of the fruit they were *ashamed,* because of those \[who\] were scoffing at them; and they fell away into forbidden paths and were lost.”[^26]
 
-As disciples of Christ, we stand apart from the world. There may be times we feel uncomfortable as the fingers of scorn mock and dismiss what is sacred to us.[^27] President Thomas S. Monson warned, “Unless the roots of your testimony are firmly planted, it will be difficult for you to withstand the ridicule of those who challenge your faith.”[^28] Nephi said, “\[Heed\] them not.”[^29] Paul admonished, “God hath not given us the spirit of fear. … Be not … ashamed of the testimony of our Lord.”[^30] We never leave Him.
+As disciples of Christ, we stand apart from the world. There may be times we feel uncomfortable as the fingers of scorn mock and dismiss what is sacred to us.[^27] President Thomas S. Monson warned, “Unless the roots of your testimony are firmly planted, it will be difficult for you to withstand the ridicule of those who challenge your faith.”[^28] Nephi said, “\[Heed\] them not.”[^29] Paul admonished, “God hath not given us the spirit of fear. … Be not … ashamed of the testimony of our Lord.”[^30] We never leave Him.
 
-While accompanying President Dieter F. Uchtdorf to Eastern Europe last year, I marveled at the faith and courage of the Saints. One priesthood leader in Ukraine told us of being called to the branch presidency in the spring of 1994, only six months after his baptism. This would require becoming public with his faith and helping to register the Church in the city of Dnipropetrovs’k. It was at a time of uncertainty in Ukraine, and openly showing faith in Christ and in the restored gospel could mean difficulty, including the possibility of losing his job as a pilot.
+While accompanying President Dieter F. Uchtdorf to Eastern Europe last year, I marveled at the faith and courage of the Saints. One priesthood leader in Ukraine told us of being called to the branch presidency in the spring of 1994, only six months after his baptism. This would require becoming public with his faith and helping to register the Church in the city of Dnipropetrovs’k. It was at a time of uncertainty in Ukraine, and openly showing faith in Christ and in the restored gospel could mean difficulty, including the possibility of losing his job as a pilot.
 
 The priesthood leader told us, “I prayed and prayed. I had a testimony, and I had made a covenant. I knew what the Lord wanted me to do.”[^31] Courageously, he and his wife went forward with faith, unashamed of the gospel of Jesus Christ.
 
@@ -98,7 +100,12 @@ Will we be astonished at times to see the anger a few feel toward the Lord’s C
 
 I love these words from a favorite hymn:
 
-The soul that on Jesus hath leaned for reposeI will not, I cannot, desert to his foes;That soul, though all hell should endeavor to shake,I’ll never, no never, I’ll never, no never,I’ll never, no never, no never forsake![^37]
+>The soul that on Jesus hath leaned for repose
+>I will not, I cannot, desert to his foes;
+>That soul, though all hell should endeavor to shake,
+>I’ll never, no never, I’ll never, no never,
+>I’ll never, no never, no never forsake![^37]
+>
 
 Perfection does not come in this life, but we exercise faith in the Lord Jesus Christ and keep our covenants. President Monson has promised, “Your testimony, when constantly nourished, will keep you safe.”[^38] We push our spiritual roots deep, feasting daily on the words of Christ in the scriptures. We trust in the words of living prophets, placed before us to show us the way. We pray and pray and listen to the quiet voice of the Holy Ghost that leads us along and speaks peace to our soul. Whatever challenges arise, we never, never leave Him.
 
@@ -108,7 +115,7 @@ Peter answered:
 
 “Lord, to whom shall we go? thou hast the words of eternal life.
 
-“… We believe and are sure that thou art that Christ, the Son of the living God.”[^40]
+“… We believe and are sure that thou art that Christ, the Son of the living God.”[^40]
 
 I too have that witness. I so testify in the name of Jesus Christ, amen.
 
@@ -121,7 +128,7 @@ I too have that witness. I so testify in the name of Jesus Christ, amen.
 
 [^3]: [[D&C 42.76|Doctrine and Covenants 42:76]].
 
-[^4]: [[2 Peter 3.17|2 Peter 3:17]].
+[^4]: [[2 Peter 3.17|2 Peter 3:17]].
 
 [^5]: [[John 6.66|John 6:66]].
 
@@ -129,13 +136,13 @@ I too have that witness. I so testify in the name of Jesus Christ, amen.
 
 [^7]: [[Matthew 26.22|Matthew 26:22]].
 
-[^8]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^8]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
 [^9]: [[Matthew 22.37|Matthew 22:37]].
 
 [^10]: [[Mark 8.34|Mark 8:34]].
 
-[^11]: [[Matthew 18.3|Matthew 18:3]]; see also [[Mark 10.15|Mark 10:15]]; [[Luke 18.17|Luke 18:17]]; [[3 Nephi 9.22|3 Nephi 9:22]]; [[3 Nephi 11.37|11:37–38]][[3 Nephi 11.38|]].
+[^11]: [[Matthew 18.3|Matthew 18:3]]; see also [[Mark 10.15|Mark 10:15]]; [[Luke 18.17|Luke 18:17]]; [[3 Nephi 9.22|3 Nephi 9:22]]; [[3 Nephi 11.37|11:37–38]][[3 Nephi 11.38|]].
 
 [^12]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -145,35 +152,35 @@ I too have that witness. I so testify in the name of Jesus Christ, amen.
 
 [^15]: [[Matthew 13.21|Matthew 13:21]].
 
-[^16]: See David A. Bednar, in Conference Report, Oct. 2006, 94–98; or *Ensign,* Nov. 2006, 89–92.
+[^16]: See David A. Bednar, in Conference Report, Oct. 2006, [[2006 October - And Nothing Shall Offend Them.md|94–98]]; or *Ensign,* Nov. 2006, 89–92.
 
-[^17]: Joseph Smith, in *Autobiography of Parley P. Pratt,* ed. Parley P. Pratt Jr. (1938), 118.
+[^17]: Joseph Smith, in *Autobiography of Parley P. Pratt,* ed. Parley P. Pratt Jr. (1938), 118.
 
 [^18]: In *History of the Church,* 3:46, footnote.
 
-[^19]: Frederick G. Williams, “Frederick Granger Williams of the First Presidency of the Church,” *BYU Studies,* vol. 12, no. 3 (1972): 261.
+[^19]: Frederick G. Williams, “Frederick Granger Williams of the First Presidency of the Church,” *BYU Studies,* vol. 12, no. 3 (1972): 261.
 
-[^20]: [[1 Nephi 8.24|1 Nephi 8:24]].
+[^20]: [[1 Nephi 8.24|1 Nephi 8:24]].
 
-[^21]: [[1 Nephi 11.25|1 Nephi 11:25]].
+[^21]: [[1 Nephi 11.25|1 Nephi 11:25]].
 
-[^22]: [[1 Nephi 8.12|1 Nephi 8:12]].
+[^22]: [[1 Nephi 8.12|1 Nephi 8:12]].
 
-[^23]: [[1 Nephi 8.26|1 Nephi 8:26–27]][[1 Nephi 8.27|]]; see also [[1 Nephi 8.33|verse 33]].
+[^23]: [[1 Nephi 8.26|1 Nephi 8:26–27]][[1 Nephi 8.27|]]; see also [[1 Nephi 8.33|verse 33]].
 
-[^24]: See [[1 Nephi 11.35|1 Nephi 11:35–36]][[1 Nephi 11.36|]]; [[1 Nephi 12.18|12:18–19]][[1 Nephi 12.19|]].
+[^24]: See [[1 Nephi 11.35|1 Nephi 11:35–36]][[1 Nephi 11.36|]]; [[1 Nephi 12.18|12:18–19]][[1 Nephi 12.19|]].
 
-[^25]: [[1 Nephi 8.33|1 Nephi 8:33]].
+[^25]: [[1 Nephi 8.33|1 Nephi 8:33]].
 
-[^26]: [[1 Nephi 8.28|1 Nephi 8:28]]; emphasis added.
+[^26]: [[1 Nephi 8.28|1 Nephi 8:28]]; emphasis added.
 
-[^27]: President Boyd K. Packer said, “Largely because of television \[and the Internet\], instead of looking over into that spacious building, we are, in effect, living inside of it” (“Finding Ourselves in Lehi’s Dream,” *Liahona,* Aug. 2010, 29; *Ensign,* Aug. 2010, 23).
+[^27]: President Boyd K. Packer said, “Largely because of television \[and the Internet\], instead of looking over into that spacious building, we are, in effect, living inside of it” (“Finding Ourselves in Lehi’s Dream,” *Liahona,* Aug. 2010, 29; *Ensign,* Aug. 2010, 23).
 
-[^28]: In the same talk, President Thomas S. Monson said, “The great and spacious building in Lehi’s vision represents those in the world who mock God’s word and who ridicule those who embrace it and who love the Savior and live the commandments” (“May You Have Courage,” *Liahona* and *Ensign,* May 2009, 126).
+[^28]: In the same talk, President Thomas S. Monson said, “The great and spacious building in Lehi’s vision represents those in the world who mock God’s word and who ridicule those who embrace it and who love the Savior and live the commandments” (“May You Have Courage,” *Liahona* and *Ensign,* May 2009, 126).
 
-[^29]: [[1 Nephi 8.33|1 Nephi 8:33]].
+[^29]: [[1 Nephi 8.33|1 Nephi 8:33]].
 
-[^30]: [[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]].
+[^30]: [[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]].
 
 [^31]: From personal conversation and from a translated excerpt of an oral history by Alexander Davydov, recorded July 16, 2010.
 
@@ -183,17 +190,15 @@ I too have that witness. I so testify in the name of Jesus Christ, amen.
 
 [^34]: [[Moses 3.17|Moses 3:17]].
 
-[^35]: See [[1 Nephi 19.9|1 Nephi 19:9]].
+[^35]: See [[1 Nephi 19.9|1 Nephi 19:9]].
 
-[^36]: See [[2 Nephi 28.20|2 Nephi 28:20]].
+[^36]: See [[2 Nephi 28.20|2 Nephi 28:20]].
 
 [^37]: “How Firm a Foundation,” *Hymns,* no. 85.
 
-[^38]: Thomas S. Monson, “May You Have Courage,” 126.
+[^38]: Thomas S. Monson, “May You Have Courage,” 126.
 
 [^39]: [[John 6.67|John 6:67]].
 
+[^40]: [[John 6.68|John 6:68–69]][[John 6.69|]].
 
-
-
-#Adversity #Jesus_Christ #Loyalty #Offense

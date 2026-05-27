@@ -1,6 +1,8 @@
 # Be True to God and His Work
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+Dallin H. Oaks
+
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -8,17 +10,17 @@ By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/10/57cook?lang=eng)
 
-Last October, I was assigned, along with President M. Russell Ballard and Elder Jeffrey R. Holland, to visit the United Kingdom, where all three of us served as young missionaries. We had the privilege of teaching and testifying, as well as reliving early Church history in the British Isles, where my great-great-grandfather Heber C. Kimball and his associates were the first missionaries.[^1]
+Last October, I was assigned, along with President M. Russell Ballard and Elder Jeffrey R. Holland, to visit the United Kingdom, where all three of us served as young missionaries. We had the privilege of teaching and testifying, as well as reliving early Church history in the British Isles, where my great-great-grandfather Heber C. Kimball and his associates were the first missionaries.[^1]
 
-President Russell M. Nelson, teasing us about this assignment, noted that it was unusual to assign three Apostles to visit the area where they had served as missionaries in their youth. He acknowledged that all desire to be assigned to visit their original mission. With a big smile on his face, he succinctly explained the precedent that if there is another set of three Apostles who served in the same mission over 60 years ago, then they also may receive a similar assignment.
+President Russell M. Nelson, teasing us about this assignment, noted that it was unusual to assign three Apostles to visit the area where they had served as missionaries in their youth. He acknowledged that all desire to be assigned to visit their original mission. With a big smile on his face, he succinctly explained the precedent that if there is another set of three Apostles who served in the same mission over 60 years ago, then they also may receive a similar assignment.
 
-In preparation for that assignment, I reread the *Life of Heber C. Kimball*, written by his grandson Orson F. Whitney, who later was called to the apostleship. This volume was given to me by my precious mother when I was almost seven years old. We were preparing to attend the dedication of the This Is the Place Monument on July 24, 1947, by President George Albert Smith.[^2] She wanted me to know more about my ancestor Heber C. Kimball.
+In preparation for that assignment, I reread the *Life of Heber C. Kimball*, written by his grandson Orson F. Whitney, who later was called to the apostleship. This volume was given to me by my precious mother when I was almost seven years old. We were preparing to attend the dedication of the This Is the Place Monument on July 24, 1947, by President George Albert Smith.[^2] She wanted me to know more about my ancestor Heber C. Kimball.
 
 This book contains a profound statement attributed to President Kimball that has significance for our day. Before sharing the statement, let me provide a little background.
 
-While the Prophet Joseph Smith was incarcerated in Liberty Jail, Apostles Brigham Young and Heber C. Kimball had the responsibility, under terribly adverse circumstances, of overseeing the evacuation of the Saints from Missouri. The evacuation was required in large part because of the extermination order issued by Governor Lilburn W. Boggs.[^3]
+While the Prophet Joseph Smith was incarcerated in Liberty Jail, Apostles Brigham Young and Heber C. Kimball had the responsibility, under terribly adverse circumstances, of overseeing the evacuation of the Saints from Missouri. The evacuation was required in large part because of the extermination order issued by Governor Lilburn W. Boggs.[^3]
 
-Almost 30 years later Heber C. Kimball, then in the First Presidency, reflecting on this history with a new generation, taught, “Let me say to you, that many of you will see the time when you will have all the trouble, trial and persecution that you can stand, and plenty of opportunities to show that you are *true to God and His work*.”[^4]
+Almost 30 years later Heber C. Kimball, then in the First Presidency, reflecting on this history with a new generation, taught, “Let me say to you, that many of you will see the time when you will have all the trouble, trial and persecution that you can stand, and plenty of opportunities to show that you are *true to God and His work*.”[^4]
 
 Heber continued: “To meet the difficulties that are coming, it will be necessary for you to have a knowledge of the truth of this work for yourselves. The difficulties will be of such a character that the man or woman who does not possess this personal knowledge or witness will fall. If you have not got the testimony, live right and call upon the Lord and cease not \[until\] you \[attain\] it. If you do not you will not stand. … The time will come when no man nor woman will be able to endure on borrowed light. Each will have to be guided by the light within himself. … If you don’t have it you will not stand; therefore seek for the testimony of Jesus and cleave to it, that when the trying time comes you may not stumble and fall.”[^5]
 
@@ -26,9 +28,9 @@ We each need a personal testimony of God’s work[^6] and the seminal role of Je
 
 It is interesting that the sun has its own light, but the moon is reflected light or “borrowed light.” Speaking of the terrestrial kingdom, [[D&C 76.79|verse 79]] states, “These are they who are not valiant in the testimony of Jesus.” We cannot obtain the celestial kingdom and live with God the Father on borrowed light; we need our own testimony of Jesus Christ and His gospel.
 
-We live in a world where iniquity abounds[^8] and hearts turn from God because of the precepts of men.[^9] One of the most compelling examples in the scriptures of Heber C. Kimball’s concerns about seeking a testimony of God’s work and Jesus Christ is set forth in Alma’s counsel to his three sons—Helaman, Shiblon, and Corianton.[^10] Two of his sons had been *true to God and His work*. But one son had made some bad decisions. To me the greatest significance of Alma’s counsel is that he was imparting it as a father for the benefit of his own children.
+We live in a world where iniquity abounds[^8] and hearts turn from God because of the precepts of men.[^9] One of the most compelling examples in the scriptures of Heber C. Kimball’s concerns about seeking a testimony of God’s work and Jesus Christ is set forth in Alma’s counsel to his three sons—Helaman, Shiblon, and Corianton.[^10] Two of his sons had been *true to God and His work*. But one son had made some bad decisions. To me the greatest significance of Alma’s counsel is that he was imparting it as a father for the benefit of his own children.
 
-Alma’s first concern, like Heber C. Kimball’s, was that each have a testimony of Jesus Christ and *be true to God and His work*.
+Alma’s first concern, like Heber C. Kimball’s, was that each have a testimony of Jesus Christ and *be true to God and His work*.
 
 In Alma’s remarkable teaching to his son Helaman, he makes a profound promise that those who “put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day.”[^11]
 
@@ -60,13 +62,13 @@ Alma testified that Christ would take away sin.[^21] Without the Savior’s Aton
 
 None can return to God by his or her own good works alone; we all need the benefit of the Savior’s sacrifice. All have sinned, and it is only through the Atonement of Jesus Christ that we can obtain mercy and live with God.[^23]
 
-Alma also gave wonderful counsel to Corianton for all of us who have gone through or will go through the repentance process, regardless of whether the sins are small or as severe as those committed by Corianton. [[Alma 42.29|Verse 29 of Alma 42]] reads, “And now, my son, I desire that ye should let these things trouble you no more, and only let your sins trouble you, with that trouble which shall bring you down unto repentance.”
+Alma also gave wonderful counsel to Corianton for all of us who have gone through or will go through the repentance process, regardless of whether the sins are small or as severe as those committed by Corianton. [[Alma 42.29|Verse 29 of Alma 42]] reads, “And now, my son, I desire that ye should let these things trouble you no more, and only let your sins trouble you, with that trouble which shall bring you down unto repentance.”
 
 Corianton heeded Alma’s counsel and both repented and served honorably. Because of the Savior’s Atonement, healing is available to all.
 
 In Alma’s day, in Heber’s day, and certainly in our day, we all need to seek our own testimony of Jesus Christ, bridle our passions, repent of our sins, and find peace through the Atonement of Jesus Christ and be true to God and His work.
 
-In a recent talk and again this morning, President Russell M. Nelson said it this way: “I plead with you to take charge of your testimony of Jesus Christ. Work for it. Own it. Care for it. Nurture it so that it will grow. Then watch for miracles to happen in your life.”[^24]
+In a recent talk and again this morning, President Russell M. Nelson said it this way: “I plead with you to take charge of your testimony of Jesus Christ. Work for it. Own it. Care for it. Nurture it so that it will grow. Then watch for miracles to happen in your life.”[^24]
 
 I am grateful that we will now hear from President Nelson. I testify that President Nelson is the Lord’s prophet for our day. I love and treasure the marvelous inspiration and guidance we receive through him.
 
@@ -75,19 +77,19 @@ As an Apostle of the Lord Jesus Christ, I bear my sure witness of the Savior’s
 
 
 
-[^1]: See Ronald K. Esplin, “[A Great Work Done in That Land](https://churchofjesuschrist.org/study/ensign/1987/07/a-great-work-done-in-that-land?lang=eng&id=p8#p8),” *Ensign*, July 1987, 20: “On June 13, Elder Kimball, Orson Hyde, Joseph Fielding, and Heber’s friend Willard Richards left Kirtland for England. In New York, on June 22, Canadians Isaac Russell, John Goodson, and John Snyder joined them. The seven missionaries then booked passage for Liverpool on the *Garrick*.” (See Heber C. Kimball papers, 1837–1866; Willard Richards journals and papers, 1821–1854, Church History Library, Salt Lake City.)
+[^1]: See Ronald K. Esplin, “[A Great Work Done in That Land](https://www.churchofjesuschrist.org/study/ensign/1987/07/a-great-work-done-in-that-land?lang=eng&id=p8#p8),” *Ensign*, July 1987, 20: “On June 13, Elder Kimball, Orson Hyde, Joseph Fielding, and Heber’s friend Willard Richards left Kirtland for England. In New York, on June 22, Canadians Isaac Russell, John Goodson, and John Snyder joined them. The seven missionaries then booked passage for Liverpool on the *Garrick*.” (See Heber C. Kimball papers, 1837–1866; Willard Richards journals and papers, 1821–1854, Church History Library, Salt Lake City.)
 
-[^2]: The This Is the Place Monument, located on the east side of Salt Lake City, Utah, at the mouth of Emigration Canyon, commemorates the 100th anniversary of the arrival of the Saints into the Salt Lake Valley on July 24, 1847. The monument features statues of Brigham Young, Heber C. Kimball, and Wilford Woodruff.
+[^2]: The This Is the Place Monument, located on the east side of Salt Lake City, Utah, at the mouth of Emigration Canyon, commemorates the 100th anniversary of the arrival of the Saints into the Salt Lake Valley on July 24, 1847. The monument features statues of Brigham Young, Heber C. Kimball, and Wilford Woodruff.
 
-[^3]: Between 8,000 and 10,000 Latter-day Saints fled Missouri in early 1839 to escape violent acts of vigilantes and mobs. Under the direction of Brigham Young and Heber C. Kimball, a committee was formed to collect supplies, assess needs, and establish routes for the grueling 200-mile (320-km) winter exodus to Illinois. Compassionate residents of the town of Quincy provided temporary refuge for the suffering Saints by way of shelter and food. (See *Saints: The Story of the Church of Jesus Christ in the Latter Days*, vol. 1, *The Standard of Truth, 1815–1846* \[2018\], 375–77; William G. Hartley, “The Saints’ Forced Exodus from Missouri,” in Richard Neitzel Holzapfel and Kent P. Jackson, eds., *Joseph Smith: The Prophet and Seer* \[2010\], 347–89.)
+[^3]: Between 8,000 and 10,000 Latter-day Saints fled Missouri in early 1839 to escape violent acts of vigilantes and mobs. Under the direction of Brigham Young and Heber C. Kimball, a committee was formed to collect supplies, assess needs, and establish routes for the grueling 200-mile (320-km) winter exodus to Illinois. Compassionate residents of the town of Quincy provided temporary refuge for the suffering Saints by way of shelter and food. (See *Saints: The Story of the Church of Jesus Christ in the Latter Days*, vol. 1, *[The Standard of Truth, 1815–1846](https://www.churchofjesuschrist.org/study/history/saints-v1/32-though-all-hell-should-endeavor?lang=eng)* \[2018\], 375–77; William G. Hartley, “The Saints’ Forced Exodus from Missouri,” in Richard Neitzel Holzapfel and Kent P. Jackson, eds., *Joseph Smith: The Prophet and Seer* \[2010\], 347–89.)
 
-[^4]: In Orson F. Whitney, *Life of Heber C. Kimball: An Apostle, the Father and Founder of the British Mission* (1945), 449; emphasis added.
+[^4]: In Orson F. Whitney, *Life of Heber C. Kimball: An Apostle, the Father and Founder of the British Mission* (1945), 449; emphasis added.
 
-[^5]: In Orson F. Whitney, *Life of Heber C. Kimball*, 450.
+[^5]: In Orson F. Whitney, *Life of Heber C. Kimball*, 450.
 
-[^6]: See [[Moses 1.39|Moses 1:39]]; see also “The Work of Salvation and Exaltation,” section [1.2](https://churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title4#title4) in *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, ChurchofJesusChrist.org. We come unto Christ and assist in God’s work by living the gospel of Jesus Christ, caring for those in need, inviting all to receive the gospel, and uniting families for eternity. See also [[D&C 110.1|Doctrine and Covenants 110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]], which sets forth the keys that were given for the work of salvation.
+[^6]: See [[Moses 1.39|Moses 1:39]]; see also “The Work of Salvation and Exaltation,” section [1.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title4#title4) in *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, ChurchofJesusChrist.org. We come unto Christ and assist in God’s work by living the gospel of Jesus Christ, caring for those in need, inviting all to receive the gospel, and uniting families for eternity. See also [[D&C 110.1|Doctrine and Covenants 110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]], which sets forth the keys that were given for the work of salvation.
 
-[^7]: See also [[1 Corinthians 15.40|1 Corinthians 15:40–41]][[1 Corinthians 15.41|]].
+[^7]: See also [[1 Corinthians 15.40|1 Corinthians 15:40–41]][[1 Corinthians 15.41|]].
 
 [^8]: See [[D&C 45.27|Doctrine and Covenants 45:27]].
 
@@ -103,25 +105,23 @@ As an Apostle of the Lord Jesus Christ, I bear my sure witness of the Savior’s
 
 [^14]: See [[Alma 39.9|Alma 39:9]]. Alma instructs Corianton, “Go no more after the \[lust\] of your eyes.”
 
-[^15]: All-Party Parliamentary Group, Parliamentary sessions, Tuesday, July 5, 2022, “Preventing Violence and Promoting Freedom of Belief.”
+[^15]: All-Party Parliamentary Group, Parliamentary sessions, Tuesday, July 5, 2022, “Preventing Violence and Promoting Freedom of Belief.”
 
 [^16]: “The Family: A Proclamation to the World,” ChurchofJesusChrist.org; see also Patrick Kearon, “[[2022 April - He Is Risen with Healing in His Wings - We Can Be More Than Conquerors.md|He Is Risen with Healing in His Wings: We Can Be More Than Conquerors]],” *Liahona*, May 2022, 37–39.
 
-[^17]: See Russell M. Nelson, “[[2022 October - What Is True.md|What Is True?]],” *Liahona*, Nov. 2022, 29.
+[^17]: See Russell M. Nelson, “[[2022 October - What Is True.md|What Is True?]],” *Liahona*, Nov. 2022, 29.
 
-[^18]: See [[2 Peter 1.5|2 Peter 1:5–10]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]][[2 Peter 1.9|]][[2 Peter 1.10|]].
+[^18]: See [[2 Peter 1.5|2 Peter 1:5–10]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]][[2 Peter 1.9|]][[2 Peter 1.10|]].
 
 [^19]: See [[Alma 39.9|Alma 39:9]].
 
-[^20]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67, 68.
+[^20]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67, 68.
 
 [^21]: See [[Alma 39.15|Alma 39:15]].
 
 [^22]: See [[Alma 42.16|Alma 42:16]].
 
-[^23]: See [[2 Nephi 25.23|2 Nephi 25:23]].
+[^23]: See [[2 Nephi 25.23|2 Nephi 25:23]].
 
+[^24]: Russell M. Nelson, Facebook, Aug. 1, 2022, facebook.com/russell.m.nelson; Twitter, Aug. 1, 2022, twitter.com/nelsonrussellm; Instagram, Aug. 1, 2022, instagram.com/russellmnelson; see also “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
-
-
-#Abuse #Anger #Atonement #Repentance #Testimony

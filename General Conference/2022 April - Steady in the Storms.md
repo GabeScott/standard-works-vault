@@ -1,6 +1,8 @@
 # Steady in the Storms
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -26,7 +28,7 @@ He invited his people and us to build on the only sure rock of safety, who is th
 
 Here is how he described the consequences that follow our choice either to follow the prompting of the Spirit or to follow the evil messages that come from Satan, whose intent is to tempt and destroy us:
 
-“For behold, there is a wo pronounced upon him who listeth to obey that \[evil\] spirit; for if he listeth to obey him, and remaineth and dieth in his sins, the same drinketh damnation to his own soul; for he receiveth for his wages an everlasting punishment, having transgressed the law of God contrary to his own knowledge. …
+“For behold, there is a wo pronounced upon him who listeth to obey that \[evil\] spirit; for if he listeth to obey him, and remaineth and dieth in his sins, the same drinketh damnation to his own soul; for he receiveth for his wages an everlasting punishment, having transgressed the law of God contrary to his own knowledge. …
 
 “Therefore if that man repenteth not, and remaineth and dieth an enemy to God, the demands of divine justice do awaken his immortal soul to a lively sense of his own guilt, which doth cause him to shrink from the presence of the Lord, and doth fill his breast with guilt, and pain, and anguish, which is like an unquenchable fire, whose flame ascendeth up forever and ever.”
 
@@ -61,7 +63,7 @@ I plead with you to accept the Savior’s invitation. Like a meek and loving chi
 
 [^1]: I have felt prompted to revisit a talk that I gave several years ago. For reference, see “[[2006 April - As a Child.md|As a Child]],” *Ensign* or *Liahona*, May 2006, 14–17.
 
-[^2]: [[2 Timothy 3.1|2 Timothy 3:1]].
+[^2]: [[2 Timothy 3.1|2 Timothy 3:1]].
 
 [^3]: [[Helaman 5.12|Helaman 5:12]].
 
@@ -71,7 +73,5 @@ I plead with you to accept the Savior’s invitation. Like a meek and loving chi
 
 [^6]: [[Mosiah 3.19|Mosiah 3:19]].
 
+[^7]: [[Matthew 11.28|Matthew 11:28]].
 
-
-
-#Adversity #Covenants #Faith #Jesus_Christ #Repentance

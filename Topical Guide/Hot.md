@@ -1,6 +1,5 @@
 # Hot
 
-
 when the sun waxed *hot*, [[Exodus 16.21|Exodus 16:21]].
 
 anger of the Lord was *hot*, [[Judges 2.14|Judges 2:14]] ([[Judges 2.20|Judges 2:20]]; [[Judges 3.8|Judges 3:8]]; [[Judges 10.7|Judges 10:7]]).

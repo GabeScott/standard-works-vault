@@ -1,6 +1,8 @@
 # An Invitation to Grow
 
-By Dwan J. Young - *Primary General President*
+Spencer W. Kimball
+
+By Dwan J. Young - *Primary General President*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -24,7 +26,7 @@ Intelligent observation tells us that growth comes one step at a time. The scrip
 
 Just as the baby learns to walk one faltering step at a time and learns to speak one word at a time, we learn to care, to serve, and to love one step at a time. We learn to master everything one concept at a time.
 
-The Lord has carefully explained this great truth to us in [[2 Nephi 28.30|2 Nephi 28:30]]:
+The Lord has carefully explained this great truth to us in [[2 Nephi 28.30|2 Nephi 28:30]]:
 
 “I will give unto the children of men line upon line, precept upon precept, … and blessed are those who hearken unto my precepts, and lend an ear unto my counsel, for they shall learn wisdom; for unto him that receiveth I will give more; and from them that shall say, We have enough, from them shall be taken away even that which they have.”
 
@@ -46,7 +48,7 @@ Remember the words of Victor Hugo:
 
 Each new truth becomes ours only as we, like the bird, realize that we’re not afraid to venture forth and live by truth, knowing that we too have the capacity to fly.
 
-When a baby is very small, parents often make the choices which direct its path. But slowly, surely, as the body and spirit mature, the matter of choice becomes personal and individual. Someone has observed: “You yourself must set flame to the torches which you have brought.” (*Words of Life,* ed. Charles L. Wallis, New York: Harper & Row, 1966, p. 91.)
+When a baby is very small, parents often make the choices which direct its path. But slowly, surely, as the body and spirit mature, the matter of choice becomes personal and individual. Someone has observed: “You yourself must set flame to the torches which you have brought.” (*Words of Life,* ed. Charles L. Wallis, New York: Harper & Row, 1966, p. 91.)
 
 As we struggle forward each day intent upon accepting the Lord’s invitation to have life and have it more abundantly (see [[John 10.10|John 10:10]]), let us remember the great truth that we, as God’s children, have the capacity to direct our own growth.
 
@@ -55,8 +57,3 @@ May our Heavenly Father strengthen and guide us as we accept his invitation to g
 
 
 
-
-
-
-
-#Education #Individual_Worth

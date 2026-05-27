@@ -1,6 +1,8 @@
 # Straightway
 
-By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
+Ezra Taft Benson
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -40,7 +42,7 @@ Peter, a lowly, rough fisherman, took that first step and straightway followed J
 
 The high priest could have brought great harm to these brethren, but he only dared to command them “not to speak at all nor teach in the name of Jesus.
 
-“But Peter and John answered and said … , Whether it be right in the sight of God to hearken unto you more than unto God, judge ye.” ([[Acts 4.18|Acts 4:18–19]][[Acts 4.19|]].) In the face of threats, these Apostles were given added courage: “And with great power gave the apostles witness of the resurrection of the Lord Jesus: and great grace was upon them all.” ([[Acts 4.33|Acts 4:33]].)
+“But Peter and John answered and said … , Whether it be right in the sight of God to hearken unto you more than unto God, judge ye.” ([[Acts 4.18|Acts 4:18–19]][[Acts 4.19|]].) In the face of threats, these Apostles were given added courage: “And with great power gave the apostles witness of the resurrection of the Lord Jesus: and great grace was upon them all.” ([[Acts 4.33|Acts 4:33]].)
 
 By taking that first step straightway, Peter learned to be a fisher of men. He identified his goals, and as he moved towards them, he grew in strength, power, and conviction.
 
@@ -72,7 +74,7 @@ Our own progress can be enhanced if we can look for solutions instead of being c
 
 Can we be honest with ourselves and examine the reasons we are not following the Savior straightway? Are we being delayed by criticism of another person’s actions or attitude toward us? Has our pride been hurt or our ego bruised? Have we jumped to conclusions without accurate facts?
 
-The Savior admonished, “Have peace one with another.” ([[Mark 9.50|Mark 9:50]].) Peace must first come from within. It flows from the individual to the home, to the community, to the nations, and to the world. This peace can only come as we resist the damaging pastime of passing judgment. In the scriptures we are warned to judge not, that we be not judged. (See [[3 Nephi 14.1|3 Ne. 14:1]]; [[Matthew 7.1|Matt. 7:1]].) Somehow there seems to be something enticing and intriguing about being a self-appointed judge.
+The Savior admonished, “Have peace one with another.” ([[Mark 9.50|Mark 9:50]].) Peace must first come from within. It flows from the individual to the home, to the community, to the nations, and to the world. This peace can only come as we resist the damaging pastime of passing judgment. In the scriptures we are warned to judge not, that we be not judged. (See [[3 Nephi 14.1|3 Ne. 14:1]]; [[Matthew 7.1|Matt. 7:1]].) Somehow there seems to be something enticing and intriguing about being a self-appointed judge.
 
 Many years ago I heard a story which I’ve always remembered. Perhaps I heard it when I was running around as a young barefoot boy.
 
@@ -111,8 +113,3 @@ The gospel of Jesus Christ is true. Jesus Christ is our Redeemer and Savior. Hap
 
 
 
-
-
-
-
-#Repentance #Self-Control #Time_Management

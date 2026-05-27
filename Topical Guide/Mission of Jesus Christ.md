@@ -1,4 +1,3 @@
 # Mission of Jesus Christ
 
-
-*See* [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]
+*See also* [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]

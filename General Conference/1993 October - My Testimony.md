@@ -1,5 +1,7 @@
 # My Testimony
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1993 General Conference*
@@ -52,7 +54,7 @@ I thank the Lord for the testimony he has given me of the wholeness of the gospe
 
 “And again we bear record—for we saw and heard, and this is the testimony of the gospel of Christ concerning them who shall come forth in the resurrection of the just—
 
-“They are they who received the testimony of Jesus, and believed on his name and were baptized after the manner of his burial. …
+“They are they who received the testimony of Jesus, and believed on his name and were baptized after the manner of his burial. …
 
 “They are they into whose hands the Father has given all things—
 
@@ -111,8 +113,3 @@ To my Eternal Father I give thanks for that essence of divinity which is within 
 
 
 
-
-
-
-
-#Restoration #Testimony #Tithing

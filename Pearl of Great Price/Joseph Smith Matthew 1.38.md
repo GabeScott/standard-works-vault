@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:38](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.38?lang=eng#p38)
 
 
-[^a]: [[D&C 35.16|D&C 35:16.]]
+[^a]: [[D&C 35.16|D&C 35:16]].  

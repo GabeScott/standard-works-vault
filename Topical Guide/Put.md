@@ -1,6 +1,5 @@
 # Put
 
-
 *See also* [[Place.md|Place]]; [[Set.md|Set]]
 
 Eden; and there he *put* the man, [[Genesis 2.8|Genesis 2:8]] ([[Moses 3.8|Moses 3:8]]; [[Abraham 5.8|Abraham 5:8]]).
@@ -23,11 +22,11 @@ I will *put* a new spirit within you, [[Ezekiel 11.19|Ezekiel 11:19]] ([[Ezekiel
 
 Ye that *put* far away the evil day, [[Amos 6.3|Amos 6:3]].
 
-Joseph ... was minded to *put* her away, [[Matthew 1.19|Matthew 1:19]].
+Joseph … was minded to *put* her away, [[Matthew 1.19|Matthew 1:19]].
 
 light a candle, and *put* it under a bushel, [[Matthew 5.15|Matthew 5:15]] ([[3 Nephi 12.15|3 Nephi 12:15]]).
 
-Whosoever shall *put* away his wife, [[Matthew 5.31|Matthew 5:31]] ([[Luke 16.18|Luke 16:18]]; [[3 Nephi 12.31|3 Ne. 12:31-32]][[3 Nephi 12.32|]]).
+Whosoever shall *put* away his wife, [[Matthew 5.31|Matthew 5:31]] ([[Luke 16.18|Luke 16:18]]).
 
 for your body, what ye shall *put* on, [[Matthew 6.25|Matthew 6:25]] ([[Luke 12.22|Luke 12:22]]; [[3 Nephi 13.25|3 Nephi 13:25]]).
 
@@ -35,9 +34,9 @@ Is it lawful for a man to *put* away his wife, [[Matthew 19.3|Matthew 19:3]].
 
 let not man *put* asunder, [[Matthew 19.6|Matthew 19:6]] ([[Mark 10.9|Mark 10:9]]).
 
-I have no man ... to *put* me into the pool, [[John 5.7|John 5:7]].
+I have no man … to *put* me into the pool, [[John 5.7|John 5:7]].
 
-word of God ... but seeing ye *put* it from you, [[Acts 13.46|Acts 13:46]].
+word of God … but seeing ye *put* it from you, [[Acts 13.46|Acts 13:46]].
 
 *put* ye on the Lord Jesus Christ, [[Romans 13.14|Romans 13:14]].
 
@@ -47,13 +46,13 @@ when he shall have *put* down all rule, [[1 Corinthians 15.24|1 Corinthians 15:2
 
 baptized into Christ have *put* on Christ, [[Galatians 3.27|Galatians 3:27]].
 
-That ye *put* off ... the old man, [[Ephesians 4.22|Ephesians 4:22]] ([[Colossians 3.9|Colossians 3:9]]).
+That ye *put* off … the old man, [[Ephesians 4.22|Ephesians 4:22]] ([[Colossians 3.9|Colossians 3:9]]).
 
 *put* on the new man, [[Ephesians 4.24|Ephesians 4:24]] ([[Colossians 3.10|Colossians 3:10]]).
 
 *Put* on the whole armour of God, [[Ephesians 6.11|Ephesians 6:11]] ([[D&C 27.15|D&C 27:15]]).
 
-*Put* on ... bowels of mercies, [[Colossians 3.12|Colossians 3:12]].
+*Put* on … bowels of mercies, [[Colossians 3.12|Colossians 3:12]].
 
 to be *put* in trust with the gospel, [[1 Thessalonians 2.4|1 Thessalonians 2:4]].
 

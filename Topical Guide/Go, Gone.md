@@ -1,15 +1,14 @@
 # Go, Gone
 
-
 *See also* [[Depart.md|Depart]]
 
 keep thee in all places whither thou *goest*, [[Genesis 28.15|Genesis 28:15]].
 
 Let my son *go*, that he may serve me, [[Exodus 4.23|Exodus 4:23]].
 
-Let my people *go*, [[Exodus 5.1|Exodus 5:1]] ([[Exodus 7.16|Exodus 7:16]]; [[Exodus 8.1|Exodus 8:1]], [[Exodus 8.20|Exodus 8:20]]; [[Exodus 9.1|Exodus 9:1]], [[Exodus 9.13|Exodus 9:13]]; [[Exodus 10.3|Exodus 10:3]]).
+Let my people *go*, [[Exodus 5.1|Exodus 5:1]] ([[Exodus 7.16|Exodus 7:16]]; [[Exodus 8.1|Exodus 8:1]]; [[Exodus 8.20|Exodus 8:20]]; [[Exodus 9.1|Exodus 9:1]]; [[Exodus 9.13|Exodus 9:13]]; [[Exodus 10.3|Exodus 10:3]]).
 
-speak unto ... Israel, that they *go* forward, [[Exodus 14.15|Exodus 14:15]].
+speak unto … Israel, that they *go* forward, [[Exodus 14.15|Exodus 14:15]].
 
 Lord caused the sea to *go* back, [[Exodus 14.21|Exodus 14:21]].
 
@@ -41,7 +40,7 @@ I say to this man, *Go*, and he *goeth*, [[Matthew 8.9|Matthew 8:9]] ([[Luke 7.8
 
 take up thy bed, and *go*, [[Matthew 9.6|Matthew 9:6]] ([[Mark 2.11|Mark 2:11]]; [[Luke 5.24|Luke 5:24]]).
 
-*go* rather to the lost sheep of ... Israel, [[Matthew 10.6|Matthew 10:6]].
+*go* rather to the lost sheep of … Israel, [[Matthew 10.6|Matthew 10:6]].
 
 *Go* ye therefore, and teach all nations, [[Matthew 28.19|Matthew 28:19]] ([[Mark 16.15|Mark 16:15]]; [[Mormon 9.22|Mormon 9:22]]).
 
@@ -51,11 +50,11 @@ to whom shall we *go*, [[John 6.68|John 6:68]].
 
 then I *go* unto him that sent me, [[John 7.33|John 7:33]].
 
-I *go* my way, ... whither I *go*, ye cannot come, [[John 8.21|John 8:21]] ([[John 13.36|John 13:36]]).
+I *go* my way, … whither I *go*, ye cannot come, [[John 8.21|John 8:21]] ([[John 13.36|John 13:36]]).
 
 because I *go* unto my Father, [[John 14.12|John 14:12]].
 
-If thou let this man *go*, thou art not Cæsar's, [[John 19.12|John 19:12]].
+If thou let this man *go*, thou art not Cæsar’s, [[John 19.12|John 19:12]].
 
 manner as ye have seen him *go* into heaven, [[Acts 1.11|Acts 1:11]].
 
@@ -67,7 +66,7 @@ they have *gone* in the way of Cain, [[Jude 1.11|Jude 1:11]].
 
 I will *go* and do the things which the Lord hath commanded, [[1 Nephi 3.7|1 Nephi 3:7]].
 
-ball ... pointed the way whither we should *go*, [[1 Nephi 16.10|1 Nephi 16:10]].
+ball … pointed the way whither we should *go*, [[1 Nephi 16.10|1 Nephi 16:10]].
 
 *go* no more after the lusts of your eyes, [[Alma 39.9|Alma 39:9]].
 

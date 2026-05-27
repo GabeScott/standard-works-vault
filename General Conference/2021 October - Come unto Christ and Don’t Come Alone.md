@@ -1,6 +1,8 @@
 # Come unto Christ and Don’t Come Alone
 
-By Bonnie H. Cordon - *Young Women General President*
+Russell M. Nelson
+
+By Bonnie H. Cordon - *Young Women General President*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -8,11 +10,11 @@ By Bonnie H. Cordon - *Young Women General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/10/13cordon?lang=eng)
 
-I recently received a letter from an inquisitive young woman. She wrote: “I am stuck. … I’m not sure who I am, but I feel I’m here for something grand.”
+I recently received a letter from an inquisitive young woman. She wrote: “I am stuck. … I’m not sure who I am, but I feel I’m here for something grand.”
 
 Have you ever had that searching feeling, wondering if Heavenly Father knows who you are and if He needs you? My dear youth, and to all, I testify the answer is *yes*! The Lord has a plan for you. He has prepared you for this day, *right now*, to be a strength and force for good in His mighty work. We need you! It simply will not be as grand without you!
 
-Under sacred circumstances, our beloved prophet, President Russell M. Nelson, once reminded me of two simple truths that are foundational to your grand and glorious work.
+Under sacred circumstances, our beloved prophet, President Russell M. Nelson, once reminded me of two simple truths that are foundational to your grand and glorious work.
 
 As I sat on the couch with my husband, our prophet pulled his chair over, almost knee to knee with us, and looked at me with his piercing blue eyes. I wasn’t sure if my heart was racing or had completely stopped as he called me to serve as the Young Women General President. He asked a question that still echoes in my heart, “Bonnie, what’s the most important thing the \[youth\] need to know?”
 
@@ -42,7 +44,7 @@ At some point in the game, Tanner had become distracted and began weaving his le
 
 While Tanner’s soccer career didn’t last long, his lesson to me that day will never fade. We all occasionally get distracted from why we are here and divert our energies somewhere else. One of Satan’s most powerful weapons is to distract us with good and better causes which, in times of need, may blind and bind us away from the best cause—the very work that called us into this world.[^3]
 
-Our eternal purpose is to come unto Christ and actively join Him in His great work. It is as simple as doing what President Nelson taught: “Anytime we do anything that helps anyone … make and keep their covenants with God, we are helping to gather Israel.”[^4] And when we do His work together with Him, we come to know and love Him more.
+Our eternal purpose is to come unto Christ and actively join Him in His great work. It is as simple as doing what President Nelson taught: “Anytime we do anything that helps anyone … make and keep their covenants with God, we are helping to gather Israel.”[^4] And when we do His work together with Him, we come to know and love Him more.
 
 We continually seek to draw closer to the Savior through faith, cherished repentance, and keeping the commandments. As we bind ourselves to Him through covenants and ordinances, our lives are filled with confidence,[^5] protection,[^6] and deep and lasting joy.[^7]
 
@@ -56,13 +58,13 @@ There is a story in the Book of Mormon that speaks powerfully of the resurrected
 
 As Christ announced that He must return to the Father, “he cast his eyes *round about again*.”[^12] Seeing tears in the people’s eyes, He knew their hearts were longing for Him to linger.
 
-He asked: “Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, … deaf, or that are afflicted in any manner? Bring them hither and I will heal them.”[^13]
+He asked: “Have ye any that are sick among you? Bring them hither. Have ye any that are lame, or blind, … deaf, or that are afflicted in any manner? Bring them hither and I will heal them.”[^13]
 
 Having great compassion, He set no limits and called for all “that are afflicted in any manner.” I love that nothing is too big or too small for Jesus Christ to heal.
 
 He knows *our* suffering as well and calls, Bring forth the anxious and depressed, the weary, the prideful and misunderstood, the lonely, or those who “are afflicted in any manner.”
 
-And all “did go forth … ; and he did heal them every one. …
+And all “did go forth … ; and he did heal them every one. …
 
 “… Both they who had been healed and they who were whole, \[did\] bow down at his feet, and did worship him.”[^14]
 
@@ -91,17 +93,17 @@ I boldly testify that the Lord knows who you are and He loves you! Together, we 
 
 [^2]: See [[Romans 8.32|Romans 8:32, 35–36]][[Romans 8.35|]][[Romans 8.36|]].
 
-[^3]: See [[1 Peter 5.8|1 Peter 5:8]]; Jeffrey R. Holland, “[[2000 October - “Sanctify Yourselves”.md|Sanctify Yourselves]],” *Ensign*, Nov. 2000, 38–40; *Liahona*, Jan. 2001, 46–49.
+[^3]: See [[1 Peter 5.8|1 Peter 5:8]]; Jeffrey R. Holland, “[[2000 October - “Sanctify Yourselves”.md|Sanctify Yourselves]],” *Ensign*, Nov. 2000, 38–40; *Liahona*, Jan. 2001, 46–49.
 
 [^4]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–93.
 
 [^5]: See [[D&C 121.45|Doctrine and Covenants 121:45]].
 
-[^6]: See [[3 Nephi 4.10|3 Nephi 4:10]].
+[^6]: See [[3 Nephi 4.10|3 Nephi 4:10]].
 
 [^7]: See [[D&C 18.13|Doctrine and Covenants 18:13, 15]][[D&C 18.15|]].
 
-[^8]: See W. Craig Zwick, “[[2017 October - Lord, Wilt Thou Cause That My Eyes May Be Opened.md|Lord, Wilt Thou Cause That My Eyes May Be Opened]],” *Ensign* or *Liahona*, Nov. 2017, 97–99.
+[^8]: See W. Craig Zwick, “[[2017 October - Lord, Wilt Thou Cause That My Eyes May Be Opened.md|Lord, Wilt Thou Cause That My Eyes May Be Opened]],” *Ensign* or *Liahona*, Nov. 2017, 97–99.
 
 [^9]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 92–95.
 
@@ -109,20 +111,15 @@ I boldly testify that the Lord knows who you are and He loves you! Together, we 
 
 [^11]: See [[D&C 123.12|Doctrine and Covenants 123:12–14]][[D&C 123.13|]][[D&C 123.14|]].
 
-[^12]: [[3 Nephi 17.5|3 Nephi 17:5]]; emphasis added.
+[^12]: [[3 Nephi 17.5|3 Nephi 17:5]]; emphasis added.
 
-[^13]: [[3 Nephi 17.7|3 Nephi 17:7]].
+[^13]: [[3 Nephi 17.7|3 Nephi 17:7]].
 
-[^14]: [[3 Nephi 17.9|3 Nephi 17:9–10]][[3 Nephi 17.10|]].
+[^14]: [[3 Nephi 17.9|3 Nephi 17:9–10]][[3 Nephi 17.10|]].
 
-[^15]: [[3 Nephi 18.16|3 Nephi 18:16]].
+[^15]: [[3 Nephi 18.16|3 Nephi 18:16]].
 
 [^16]: [[John 8.12|John 8:12]].
 
-[^17]: Russell M. Nelson, *Accomplishing the Impossible: What God Does, What We Can Do* (2015), 147.
+[^17]: Russell M. Nelson, *Accomplishing the Impossible: What God Does, What We Can Do* (2015), 147.
 
-
-
-
-
-#Divine_Nature #Jesus_Christ #Youth

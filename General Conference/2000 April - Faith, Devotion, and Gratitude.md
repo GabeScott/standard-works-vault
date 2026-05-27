@@ -1,5 +1,7 @@
 # Faith, Devotion, and Gratitude
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -53,8 +55,3 @@ I know that God lives, that He is our Father—He loves us all—and that Jesus 
 
 
 
-
-
-
-
-#Family #Joseph_Smith #Testimony

@@ -1,6 +1,8 @@
 # To Forgive Is Divine
 
-By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
+Ezra Taft Benson
+
+By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -20,7 +22,7 @@ If we learn to forgive one another within the family, we will be able to forgive
 
 When Jesus taught the Nephites, he told them: “For, if ye forgive men their trespasses your Heavenly Father will also forgive you;
 
-“But if ye forgive not men their trespasses neither will your Father forgive your trespasses.” ([[3 Nephi 13.14|3 Ne. 13:14–15]][[3 Nephi 13.15|]].) That forgiveness which comes from our Heavenly Father is so complete that he will not even call to mind the sins we have committed. His forgiveness is so all-inclusive that the Lord will not even remember those sins. But there is a condition attached to that forgiveness:
+“But if ye forgive not men their trespasses neither will your Father forgive your trespasses.” ([[3 Nephi 13.14|3 Ne. 13:14–15]][[3 Nephi 13.15|]].) That forgiveness which comes from our Heavenly Father is so complete that he will not even call to mind the sins we have committed. His forgiveness is so all-inclusive that the Lord will not even remember those sins. But there is a condition attached to that forgiveness:
 
 “By this ye may know if a man repenteth of his sins—behold, he will confess them and forsake them.” ([[D&C 58.43|D&C 58:43]].)
 
@@ -45,8 +47,3 @@ As we struggle toward that perfection which Jesus Christ holds out for us, let u
 
 
 
-
-
-
-
-#Disciplinary_Councils #Forgiveness

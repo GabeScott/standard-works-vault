@@ -1,5 +1,7 @@
 # To Heal the Shattering Consequences of Abuse
 
+Dieter F. Uchtdorf
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -8,7 +10,7 @@ By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/to-heal-the-shattering-consequences-of-abuse?lang=eng)
 
-I bear solemn witness of how deeply I love our new prophet, seer, and revelator, President Thomas S. Monson—how deeply I trust him, and how I am willing to do whatever he asks me to do.
+I bear solemn witness of how deeply I love our new prophet, seer, and revelator, President Thomas S. Monson—how deeply I trust him, and how I am willing to do whatever he asks me to do.
 
 Some matters are so sensitive and intensely personal and can awaken such disturbing feelings that they are seldom mentioned publicly. Yet, if tenderly and compassionately treated in the light of truth, discussion of these matters can bring greater understanding, with the easing of pain, the blessing of healing, and even the avoidance of further tragedy.
 
@@ -46,7 +48,7 @@ Do not be discouraged if initially a bishop hesitates when you identify an abuse
 
 ## To the Perpetrator
 
-Now, to the perpetrator who has shattered the life of another by abuse: Recognize that you need help with your addiction or it will destroy you. You will not overcome it by yourself. You likely need specialized professional help. I plead with you to seek to be rescued *now.* You likely have deceived yourself in the false, temporary security that you have successfully hidden your transgression from the civil or Church authorities. But know that the Lord Jesus Christ is completely aware of your sins. He has warned: “Whoso shall offend one of these little ones … , it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.”[^2] Know that even without action by a victim, your act of abuse will be publicly known, for Satan will expose you, then abandon you.
+Now, to the perpetrator who has shattered the life of another by abuse: Recognize that you need help with your addiction or it will destroy you. You will not overcome it by yourself. You likely need specialized professional help. I plead with you to seek to be rescued *now.* You likely have deceived yourself in the false, temporary security that you have successfully hidden your transgression from the civil or Church authorities. But know that the Lord Jesus Christ is completely aware of your sins. He has warned: “Whoso shall offend one of these little ones … , it were better for him that a millstone were hanged about his neck, and that he were drowned in the depth of the sea.”[^2] Know that even without action by a victim, your act of abuse will be publicly known, for Satan will expose you, then abandon you.
 
 Simplify your life by taking steps *now* to cleanse your soul from such sin and resolve the penalties they evoke. Show your desire to heal the anguish that you have caused others. Talk to your bishop or stake president. The seriousness of your acts may require you to face civil and Church discipline. But full repentance will bring the sweet relief of forgiveness, peace of conscience, and a renewed life. It will also bring relief to the abused and their families. You will be free of the weight of remorse and the accusing thoughts of what you have caused in grief and anguish in another’s life. Recognize that it is much easier to repent in this life than it will be in the next, so repent now. You will be helped when you decide to be freed from your addiction through repentance and the support of others. Be grateful that you didn’t live anciently when abusers were stoned to death without the opportunity for repentance.[^3]
 
@@ -63,13 +65,11 @@ I pray that you, as one abused or one who has caused it, will act now to avail y
 
 
 
-[^1]: These materials may help in recovering from the tragedy of abuse: Gordon B. Hinckley, in Conference Report, Oct. 1994, 71–75; or *Ensign,* Nov. 1994, 52–54; James E. Faust, in Conference Report, Oct. 2001, 19–22; or *Ensign,* Nov. 2001, 18–20; Dallin H. Oaks, in Conference Report, Oct. 2006, 4–7; or *Ensign,* Nov. 2006, 6–9; Richard G. Scott, in Conference Report, Apr. 1992, 43–46; or *Ensign,* May 1992, 31–33; Richard G. Scott, in Conference Report, Oct. 1995, 18–21; or *Ensign,* Nov. 1995, 16–18; Richard G. Scott, in Conference Report, Oct. 2004, 14–17; or *Ensign,* Nov. 2004, 15–18; Richard G. Scott, in Conference Report, Oct. 2006, 42–45; or *Ensign,* Nov. 2006, 40–42; Jeffrey R. Holland, in Conference Report, Apr. 2006, 69–73; or *Ensign,* May 2006, 69–71; “A Conversation on Spouse Abuse,” *Ensign,* Oct. 1999, 22–27; “The Wrongful Road of Abuse,” chapter 28 in *Teachings of Presidents of the Church: Joseph F. Smith* (Melchizedek Priesthood and Relief Society course of study, 1998), 249–55; [[D&C 121.34|D&C 121:34–46]][[D&C 121.35|]][[D&C 121.36|]][[D&C 121.37|]][[D&C 121.38|]][[D&C 121.39|]][[D&C 121.40|]][[D&C 121.41|]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]][[D&C 121.45|]][[D&C 121.46|]].
+[^1]: These materials may help in recovering from the tragedy of abuse: Gordon B. Hinckley, in Conference Report, Oct. 1994, [[1994 October - Save the Children.md|71–75]]; or *Ensign,* Nov. 1994, 52–54; James E. Faust, in Conference Report, Oct. 2001, [[2001 October - The Atonement - Our Greatest Hope.md|19–22]]; or *Ensign,* Nov. 2001, 18–20; Dallin H. Oaks, in Conference Report, Oct. 2006, [[2006 October - He Heals the Heavy Laden.md|4–7]]; or *Ensign,* Nov. 2006, 6–9; Richard G. Scott, in Conference Report, Apr. 1992, [[1992 April - Healing the Tragic Scars of Abuse.md|43–46]]; or *Ensign,* May 1992, 31–33; Richard G. Scott, in Conference Report, Oct. 1995, [[1995 October - Trust in the Lord.md|18–21]]; or *Ensign,* Nov. 1995, 16–18; Richard G. Scott, in Conference Report, Oct. 2004, [[2004 October - Peace of Conscience and Peace of Mind.md|14–17]]; or *Ensign,* Nov. 2004, 15–18; Richard G. Scott, in Conference Report, Oct. 2006, [[2006 October - The Atonement Can Secure Your Peace and Happiness.md|42–45]]; or *Ensign,* Nov. 2006, 40–42; Jeffrey R. Holland, in Conference Report, Apr. 2006, [[2006 April - Broken Things to Mend.md|69–73]]; or *Ensign,* May 2006, 69–71; “A Conversation on Spouse Abuse,” *Ensign,* Oct. 1999, 22–27; “The Wrongful Road of Abuse,” chapter 28 in *Teachings of Presidents of the Church: Joseph F. Smith* (Melchizedek Priesthood and Relief Society course of study, 1998), 249–55; [[D&C 121.34|D&C 121:34–46]][[D&C 121.35|]][[D&C 121.36|]][[D&C 121.37|]][[D&C 121.38|]][[D&C 121.39|]][[D&C 121.40|]][[D&C 121.41|]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]][[D&C 121.45|]][[D&C 121.46|]].
 
 [^2]: [[Matthew 18.6|Matthew 18:6]].
 
 [^3]: See [[Deuteronomy 22.25|Deuteronomy 22:25–27]][[Deuteronomy 22.26|]][[Deuteronomy 22.27|]].
 
+[^4]: See *Church Handbook of Instructions, Book 1: Stake Presidencies and Bishoprics* (2006), 107–8, 110, 120, 122, 147, 186.
 
-
-
-#Abuse #Atonement #Healing

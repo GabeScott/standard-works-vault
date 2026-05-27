@@ -1,6 +1,8 @@
 # The True, Pure, and Simple Gospel of Jesus Christ
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+Ulisses Soares
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -28,7 +30,7 @@ The scriptures teach us that Satan desires to lead people into darkness. His eve
 
 In the last 18 months, the Lord has inspired His prophet and the Apostles to implement a number of wonderful adjustments. However, I worry that the spiritual purposes of these adjustments might become lost in the excitement about the changes themselves.
 
-Joseph F. Smith said: “The true, pure, simple gospel of Jesus Christ has been restored. We are responsible for maintaining it upon the earth.”[^6] He added that the true, pure, and simple gospel is the “saving doctrines of Christ.”[^7]
+Joseph F. Smith said: “The true, pure, simple gospel of Jesus Christ has been restored. We are responsible for maintaining it upon the earth.”[^6] He added that the true, pure, and simple gospel is the “saving doctrines of Christ.”[^7]
 
 In the Articles of Faith, the Prophet Joseph Smith taught that “through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.”[^8]
 
@@ -58,7 +60,7 @@ Let’s not complicate things with additional meetings, expectations, or require
 
 For years the leadership purposes of the Church, as stated in *Handbook 2,* are outcomes that are clear and simple, from which I quote:
 
-“Leaders encourage every member to receive all essential priesthood ordinances, keep the associated covenants, and qualify for exaltation and eternal life. …
+“Leaders encourage every member to receive all essential priesthood ordinances, keep the associated covenants, and qualify for exaltation and eternal life. …
 
 “**Adults:** Encourage each adult to be worthy to receive the ordinances of the temple. Teach all adults to identify their ancestors and perform vicarious temple ordinances for them.
 
@@ -68,28 +70,28 @@ For years the leadership purposes of the Church, as stated in *Handbook 2,* are 
 
 My service in the Church has blessed me with many remarkable and special spiritual experiences. I am a witness that the Lord directs His Church to accomplish His purposes. I have received divine guidance far beyond my capacity. The joy of gospel living for me has been centered on the true, pure, and simple doctrine and gospel of Jesus Christ.
 
-I have served under the keys and directions of *six* prophets and Church Presidents, from Spencer W. Kimball to Russell M. Nelson. I testify that each one of them was and is God’s chosen prophet. They have taught us essential principles about the Church and the gospel and doctrine of Christ. President Nelson is carrying the Lord’s work forward at a breathtaking pace. I say “breathtaking” because he’s the only one of the Apostles who is older than me, and I am having a difficult time keeping up with him! I am a witness that the priesthood keys and the mantle of a prophet of God are upon him. President Nelson teaches the true, pure, and simple gospel of Jesus Christ. I bear my testimony that Jesus is the Christ and this is His Church—of which I testify humbly in the name of Jesus Christ, amen.
+I have served under the keys and directions of *six* prophets and Church Presidents, from Spencer W. Kimball to Russell M. Nelson. I testify that each one of them was and is God’s chosen prophet. They have taught us essential principles about the Church and the gospel and doctrine of Christ. President Nelson is carrying the Lord’s work forward at a breathtaking pace. I say “breathtaking” because he’s the only one of the Apostles who is older than me, and I am having a difficult time keeping up with him! I am a witness that the priesthood keys and the mantle of a prophet of God are upon him. President Nelson teaches the true, pure, and simple gospel of Jesus Christ. I bear my testimony that Jesus is the Christ and this is His Church—of which I testify humbly in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^1]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^2]: [[John 12.46|John 12:46]].
 
 [^3]: [[D&C 18.23|Doctrine and Covenants 18:23–24]][[D&C 18.24|]].
 
-[^4]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^4]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^5]: [[Moses 1.39|Moses 1:39]].
 
-[^6]: Joseph F. Smith, “Principle, Not Popularity,” *Improvement Era,* July 1906, 732.
+[^6]: Joseph F. Smith, “Principle, Not Popularity,” *Improvement Era,* July 1906, 732.
 
-[^7]: Joseph F. Smith, “Principle, Not Popularity,” 732.
+[^7]: Joseph F. Smith, “Principle, Not Popularity,” 732.
 
 [^8]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
-[^9]: Hyrum Smith, in “[What Is My Purpose as a Missionary?](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng&id=aside2#aside2)” *Preach My Gospel: A Guide to Missionary Service,* rev. ed. (2019), 6.
+[^9]: Hyrum Smith, in “[What Is My Purpose as a Missionary?](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng&id=aside2#aside2)” *Preach My Gospel: A Guide to Missionary Service,* rev. ed. (2019), 6.
 
 [^10]: [[D&C 59.5|Doctrine and Covenants 59:5–6]][[D&C 59.6|]]; see also [[Leviticus 19.18|Leviticus 19:18]]; [[Deuteronomy 6.5|Deuteronomy 6:5]]; [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
@@ -97,10 +99,5 @@ I have served under the keys and directions of *six* prophets and Church Preside
 
 [^12]: [[D&C 59.13|Doctrine and Covenants 59:13–15]][[D&C 59.14|]][[D&C 59.15|]].
 
-[^13]: *Handbook 2: Administering the Church* (2010), 3.4.
+[^13]: *[Handbook 2: Administering the Church](https://www.churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/leadership-in-the-church-of-jesus-christ?lang=eng&id=title_number19#title_number19)* (2010), 3.4.
 
-
-
-
-
-#Joy #Ministering #Peace #Sabbath

@@ -1,6 +1,5 @@
 # Garment
 
-
 *See also* [[Apparel.md|Apparel]]; [[Clothes.md|Clothes]]; [[Clothing.md|Clothing]]; [[Raiment.md|Raiment]]; [[Robe.md|Robe]]; [[Vesture.md|Vesture]]
 
 came out red, all over like an hairy *garment*, [[Genesis 25.25|Genesis 25:25]].
@@ -15,7 +14,7 @@ priest shall put on his linen *garment*, [[Leviticus 6.10|Leviticus 6:10]].
 
 Moses stripped Aaron of his *garments*, [[Numbers 20.28|Numbers 20:28]].
 
-neither shall a man put on a woman's *garment*, [[Deuteronomy 22.5|Deuteronomy 22:5]].
+neither shall a man put on a woman’s *garment*, [[Deuteronomy 22.5|Deuteronomy 22:5]].
 
 upon their feet, and old *garments* upon them, [[Joshua 9.5|Joshua 9:5]].
 
@@ -75,10 +74,10 @@ remnant of *garment* of my son hath been preserved, [[Alma 46.24|Alma 46:24]].
 
 let all thy *garments* be plain, [[D&C 42.40|D&C 42:40]].
 
-idle shall not ... wear the *garments* of the laborer, [[D&C 42.42|D&C 42:42]].
+idle shall not … wear the *garments* of the laborer, [[D&C 42.42|D&C 42:42]].
 
-shalt not take thy brother's *garment*, [[D&C 42.54|D&C 42:54]].
+shalt not take thy brother’s *garment*, [[D&C 42.54|D&C 42:54]].
 
 Zion must arise and put on her beautiful *garments*, [[D&C 82.14|D&C 82:14]].
 
-cometh down from God ... with dyed *garments*, [[D&C 133.46|D&C 133:46]].
+cometh down from God … with dyed *garments*, [[D&C 133.46|D&C 133:46]].

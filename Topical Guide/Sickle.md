@@ -1,6 +1,5 @@
 # Sickle
 
-
 Put ye in the *sickle*, [[Joel 3.13|Joel 3:13]] ([[Revelation 14.15|Revelation 14:15]]; [[D&C 4.4|D&C 4:4]]).
 
 he putteth in the *sickle*, [[Mark 4.29|Mark 4:29]].

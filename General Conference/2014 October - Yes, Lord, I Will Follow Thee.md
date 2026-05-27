@@ -1,5 +1,7 @@
 # Yes, Lord, I Will Follow Thee
 
+Thomas S. Monson
+
 By Elder Eduardo Gavarret - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -18,7 +20,7 @@ That experience of 39 years ago had a lasting effect on me. I told myself, “Ne
 
 I want to relate this experience with the Savior’s tender invitation to us:
 
-“I am the good shepherd, and know my sheep. …
+“I am the good shepherd, and know my sheep. …
 
 “My sheep hear my voice, and I know them, and they follow me.”[^2]
 
@@ -84,7 +86,7 @@ What steps can we take today to “walk with Him”?
 
 5. *Persevere* in the decision you have made by exercising these principles daily.[^19]
 
-May the words of our beloved prophet, President Thomas S. Monson, motivate us to action in our desire to accept the Savior’s invitation. President Monson said: “Who is the King of glory, this Lord of hosts? He is our Master. He is our Savior. He is the Son of God. He is the Author of our Salvation. He beckons, ‘Follow me.’ He instructs, ‘Go, and do thou likewise.’ He pleads, ‘Keep my commandments.’”[^20]
+May the words of our beloved prophet, President Thomas S. Monson, motivate us to action in our desire to accept the Savior’s invitation. President Monson said: “Who is the King of glory, this Lord of hosts? He is our Master. He is our Savior. He is the Son of God. He is the Author of our Salvation. He beckons, ‘Follow me.’ He instructs, ‘Go, and do thou likewise.’ He pleads, ‘Keep my commandments.’”[^20]
 
 May we make the decision today to increase our level of worship and commitment to God, and may our response to His invitation be heard loud and clear: “Yes, Lord, I will follow Thee!”[^21] In the sacred name of the Lord Jesus Christ, amen.
 
@@ -107,7 +109,7 @@ May we make the decision today to increase our level of worship and commitment t
 
 [^8]: [[Mark 10.21|Mark 10:21]].
 
-[^9]: [[2 Nephi 31.10|2 Nephi 31:10]].
+[^9]: [[2 Nephi 31.10|2 Nephi 31:10]].
 
 [^10]: See [[Moses 6.33|Moses 6:33–35]][[Moses 6.34|]][[Moses 6.35|]].
 
@@ -119,7 +121,7 @@ May we make the decision today to increase our level of worship and commitment t
 
 [^14]: [[D&C 81.5|Doctrine and Covenants 81:5]]; see also [[Isaiah 35.3|Isaiah 35:3]].
 
-[^15]: See [[Alma 22.15|Alma 22:15–16]][[Alma 22.16|]]; Dallin H. Oaks, [“Desire,”](https://churchofjesuschrist.org/study/ensign/2011/05/saturday-afternoon-session/desire?lang=eng) *Ensign* or *Liahona,* May 2011, 42–45.
+[^15]: See [[Alma 22.15|Alma 22:15–16]][[Alma 22.16|]]; Dallin H. Oaks, “[Desire](https://www.churchofjesuschrist.org/study/ensign/2011/05/saturday-afternoon-session/desire?lang=eng),” *Ensign* or *Liahona,* May 2011, 42–45.
 
 [^16]: See [[Alma 34.17|Alma 34:17–27]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]]; [[Alma 37.37|37:37]].
 
@@ -127,14 +129,9 @@ May we make the decision today to increase our level of worship and commitment t
 
 [^18]: See [[Mosiah 5.5|Mosiah 5:5]].
 
-[^19]: Heber J. Grant said, “That which we persist in doing becomes easier to do, not that the nature of the thing has changed but that our power to do has increased” (quoted by Heber J. Grant, author and source unknown).
+[^19]: Heber J. Grant said, “That which we persist in doing becomes easier to do, not that the nature of the thing has changed but that our power to do has increased” (quoted by Heber J. Grant, author and source unknown).
 
-[^20]: Thomas S. Monson, “Finding Joy in the Journey,” *Ensign* or *Liahona,* Nov. 2008, 88.
+[^20]: Thomas S. Monson, “Finding Joy in the Journey,” *Ensign* or *Liahona,* Nov. 2008, 88.
 
-[^21]: See “Lord, I Would Follow Thee,” *Hymns,* no. 220.
+[^21]: See “Lord, I Would Follow Thee,” *Hymns,* no. 220.
 
-
-
-
-
-#Conversion #Jesus_Christ #Missionary_Work #Obedience

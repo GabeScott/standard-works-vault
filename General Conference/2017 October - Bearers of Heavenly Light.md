@@ -1,6 +1,8 @@
 # Bearers of Heavenly Light
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Sharon Eubank
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -133,7 +135,7 @@ It is my prayer and blessing that you will succeed in fulfilling your destiny as
 
 [^1]: [[John 5.8|John 5:8]].
 
-[^2]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^2]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^3]: [[John 8.12|John 8:12]].
 
@@ -147,7 +149,7 @@ It is my prayer and blessing that you will succeed in fulfilling your destiny as
 
 [^8]: [[D&C 88.40|Doctrine and Covenants 88:40]] teaches that “light cleaveth unto light.” In other words, the more light, truth, wisdom, and virtue we receive, the more we will attract into our lives. “He that receiveth light, and continueth in God, receiveth more light; and that light groweth brighter and brighter until the perfect day” ([[D&C 50.24|Doctrine and Covenants 50:24]]).
 
-[^9]: This is one of the promises of baptism—that as we bury our mortal, carnal lives, we emerge from the waters of baptism alive in Christ. We emerge as new creatures who walk in a newness of life (see [[Romans 6.4|Romans 6:4]]; [[2 Corinthians 5.17|2 Corinthians 5:17]]).
+[^9]: This is one of the promises of baptism—that as we bury our mortal, carnal lives, we emerge from the waters of baptism alive in Christ. We emerge as new creatures who walk in a newness of life (see [[Romans 6.4|Romans 6:4]]; [[2 Corinthians 5.17|2 Corinthians 5:17]]).
 
 [^10]: [[D&C 88.67|Doctrine and Covenants 88:67]]; see also [[Matthew 6.22|Matthew 6:22]].
 
@@ -155,20 +157,15 @@ It is my prayer and blessing that you will succeed in fulfilling your destiny as
 
 [^12]: [[Mosiah 26.3|Mosiah 26:3]].
 
-[^13]: [[3 Nephi 18.24|3 Nephi 18:24]].
+[^13]: [[3 Nephi 18.24|3 Nephi 18:24]].
 
 [^14]: [[Matthew 5.16|Matthew 5:16]].
 
 [^15]: [[Jacob 2.8|Jacob 2:8]].
 
-[^16]: See [[1 John 1.7|1 John 1:7]]; [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
+[^16]: See [[1 John 1.7|1 John 1:7]]; [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
 [^17]: See [[Matthew 5.14|Matthew 5:14]].
 
 [^18]: [[Alma 19.6|Alma 19:6]].
 
-
-
-
-
-#Healing #Jesus_Christ #Light_Of_Christ #Service #Testimony #Truth

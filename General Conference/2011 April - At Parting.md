@@ -1,6 +1,8 @@
 # At Parting
 
-By President Thomas S. Monson - *President of the Church*
+Thomas S. Monson
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -14,7 +16,7 @@ Once again the music in all of the sessions has been wonderful. I express my per
 
 We have sustained, by uplifted hand, Brethren who have been called to new positions during this conference. We want them to know that we look forward to working with them in the cause of the Master.
 
-I express my love and appreciation for my devoted counselors, President Henry B. Eyring and President Dieter F. Uchtdorf. They are men of wisdom and understanding. Their service is invaluable. I love and support my Brethren of the Quorum of the Twelve Apostles. They serve most effectively, and they are completely dedicated to the work. I also express my love to the members of the Seventy and the Presiding Bishopric.
+I express my love and appreciation for my devoted counselors, President Henry B. Eyring and President Dieter F. Uchtdorf. They are men of wisdom and understanding. Their service is invaluable. I love and support my Brethren of the Quorum of the Twelve Apostles. They serve most effectively, and they are completely dedicated to the work. I also express my love to the members of the Seventy and the Presiding Bishopric.
 
 We face many challenges in the world today, but I assure you that our Heavenly Father is mindful of us. He loves each of us and will bless us as we seek Him through prayer and strive to keep His commandments.
 
@@ -54,8 +56,3 @@ Blessings to you, my brothers and sisters. In the name of Jesus Christ, our Savi
 
 [^1]: Emily Harris, “Empty Linen,” *New Era,* Apr. 2011, 49.
 
-
-
-
-
-#Atonement

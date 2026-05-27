@@ -1,6 +1,5 @@
 # Pleasing
 
-
 *See also* [[Please.md|Please]]
 
 might walk worthy of the Lord unto all *pleasing*, [[Colossians 1.10|Colossians 1:10]].

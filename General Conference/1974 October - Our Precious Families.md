@@ -1,12 +1,14 @@
 # Our Precious Families
 
-By President Loren C. Dunn - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By President Loren C. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1974 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1974/10/our-precious-families?lang=eng)
 
-What a beautiful spirit of peace this Tabernacle Choir has established for us in that last song. It is an honor to be at this conference this morning, my brothers and sisters, and to receive the instructions and direction from the prophet of God. I bear testimony to the fact that President Kimball is a prophet of God, that he is the Lord’s legal administrator upon the earth today, that those who will follow the instructions and advice that he has given us this morning will come to know, by practical experience, that what he has told us is true and is good for the strengthening and uplifting of mankind. President Spencer W. Kimball is a prophet of God.
+What a beautiful spirit of peace this Tabernacle Choir has established for us in that last song. It is an honor to be at this conference this morning, my brothers and sisters, and to receive the instructions and direction from the prophet of God. I bear testimony to the fact that President Kimball is a prophet of God, that he is the Lord’s legal administrator upon the earth today, that those who will follow the instructions and advice that he has given us this morning will come to know, by practical experience, that what he has told us is true and is good for the strengthening and uplifting of mankind. President Spencer W. Kimball is a prophet of God.
 
 I would like to use as the key to my remarks a quote that President Kimball made on a previous occasion and a theme that he returned to this morning. He said, “The nation is built upon the foundation of its homes and the home upon its families.”
 
@@ -28,11 +30,11 @@ First, then, the right of parents to structure the attitudes and conduct of thei
 
 There are some in the world who might say that such parental influence is repressive and robs the child of its freedom, but quite the opposite is true. A group of young girls was overheard talking about the parents of one of their friends. Showing maturity beyond her years, one of the girls said, “Her parents don’t love her; they let her do anything she wants.” The others agreed.
 
-In a *New York Times Magazine* article, later condensed in *Reader’s Digest,* William V. Shannon makes the following points: “American children … are suffering from widespread parent failure. By their words and actions \[he says\] many fathers and mothers make it clear that they are almost paralyzed by uncertainty. … Many parents are in conflict as to what their own values are. Others think they know, but lack the confidence to impose discipline in behalf of their values. …”
+In a *New York Times Magazine* article, later condensed in *Reader’s Digest,* William V. Shannon makes the following points: “American children … are suffering from widespread parent failure. By their words and actions \[he says\] many fathers and mothers make it clear that they are almost paralyzed by uncertainty. … Many parents are in conflict as to what their own values are. Others think they know, but lack the confidence to impose discipline in behalf of their values. …”
 
 What is lacking, he says, is not more information on child development, but *conviction.* Although heredity plays some role in the development of a child, the greater influence “depends on whether parents care enough about their children to assert and defend the necessary values.” The author also says that both mother and father need to put family and home responsibilities first. “Rearing our children is by far the most important task that most of us will ever undertake.”
 
-He also states that “parents who do not persevere in rearing their children according to their own convictions are not leaving them ‘free’ to develop on their own. Instead, they are letting other children and the media, principally television and the movies, do the job.” (William V. Shannon, “What Code of Values Can We Teach Our Children?” *Reader’s Digest,* May 1972, pp. 187–88.)
+He also states that “parents who do not persevere in rearing their children according to their own convictions are not leaving them ‘free’ to develop on their own. Instead, they are letting other children and the media, principally television and the movies, do the job.” (William V. Shannon, “What Code of Values Can We Teach Our Children?” *Reader’s Digest,* May 1972, pp. 187–88.)
 
 The greatest principle to be learned in the family setting is love. If parents will influence and direct and persevere with love, then members of the family will also make that principle a part of all they do. The principle of love can overcome many parental mistakes in the raising of their children. But love should not be confused with lack of conviction.
 
@@ -71,8 +73,3 @@ May the Lord bless us as parents to realize our right to help formulate the live
 
 
 
-
-
-
-
-#Family #Family_Home_Evening #Responsibility

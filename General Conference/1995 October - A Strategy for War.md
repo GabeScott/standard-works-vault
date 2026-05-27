@@ -1,12 +1,14 @@
 # A Strategy for War
 
+Gordon B. Hinckley
+
 By Elder Durrel A. Woolsey - *Released Member of the Seventy*
 
 *Given in the October session of the 1995 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1995/10/a-strategy-for-war?lang=eng)
 
-I would like to speak to you today about a strategy for war. We sing the hymn “Onward, Christian Soldiers! Marching as to war” (*Hymns,* 1985, no. 246). Paul said, “For if the trumpet give an uncertain sound, who shall prepare himself to the battle?” ([[1 Corinthians 14.8|1 Cor. 14:8]]). In the book of Revelation we are told of a war in heaven (see [[Revelation 12.7|Rev. 12:7]]). What kind of battle? What kind of war?
+I would like to speak to you today about a strategy for war. We sing the hymn “Onward, Christian Soldiers! Marching as to war” (*Hymns,* 1985, no. 246). Paul said, “For if the trumpet give an uncertain sound, who shall prepare himself to the battle?” ([[1 Corinthians 14.8|1 Cor. 14:8]]). In the book of Revelation we are told of a war in heaven (see [[Revelation 12.7|Rev. 12:7]]). What kind of battle? What kind of war?
 
 The war is for the souls of men. The battle lines have been drawn since Adam: evil versus righteousness. In this the final dispensation and in preparation for the Millennium, the forces of evil have intensified and united under the powerful influences of Satan. On the opposite side of the line, the kingdom of God is clearly sounding the trumpet of righteousness as perhaps never before. The Church of Jesus Christ of Latter-day Saints is on the offensive in the declaration of good to be good and evil to be evil.
 
@@ -14,7 +16,7 @@ Isaiah prophesied of our time on this very subject when he said, “Woe unto the
 
 “For behold, at that day shall he rage in the hearts of the children of men, and stir them up to anger against that which is good.
 
-“And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]]).
+“And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]]).
 
 Satan does rage in the hearts of some. Many he will lull away into carnal security; others he flattereth, or he says there is no hell. He has lured and enlisted many followers with enticements of fame, riches, and power. He forges a Rembrandt-quality representation by calling evil good and good evil. He has confused many people, even nations and leaders, to the point of an immoral approach to moral issues.
 
@@ -57,5 +59,3 @@ I testify that God lives, that His Son, Jesus Christ, has brought to pass the re
 
 
 
-
-#Abortion #Family #Homosexuality #Jesus_Christ #Media #Morality #Spirituality #Worldliness

@@ -1,5 +1,7 @@
 # The Empty Tomb Bore Testimony
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
@@ -30,7 +32,7 @@ Now absent is the pain of mortal life. Gone is the suffering of long sickness an
 
 This is the great promise of Easter. How wonderful it is that this is a day of celebration throughout the Christian world. Of all the events of human history, none is so significant as the resurrection of the Son of God.
 
-Since the creation of man, no fact of life has been so certain as death with the close of mortality. When the last of life’s breath is drawn, there is a finality comparable to no other finality. When a father and mother lay the remains of a beloved child in the cold of the grave, there is grief almost inconsolable. When a husband buries the companion of his life, there is a loneliness that is poignant and unrelieved. When a wife closes the casket on the remains of her beloved husband, there are wounds that seem never to heal. When children are bereft of parents who loved and nurtured them, there is an abject destitution comparable to none other. Life is sacred, and death is somber. Life is buoyant and hopeful. Death is solemn and dark. It is awesome in its silence and certainty. Appropriately did Sir Walter Raleigh cry out, “O eloquent, just and mighty death” (in Alfred Noyes, *Raleigh,* in Tom Peete Cross and Clement Tyson Goode, sel., *Heath Readings in the Literature of England,* Boston: D. C. Heath and Co., 1927, p. 1132).
+Since the creation of man, no fact of life has been so certain as death with the close of mortality. When the last of life’s breath is drawn, there is a finality comparable to no other finality. When a father and mother lay the remains of a beloved child in the cold of the grave, there is grief almost inconsolable. When a husband buries the companion of his life, there is a loneliness that is poignant and unrelieved. When a wife closes the casket on the remains of her beloved husband, there are wounds that seem never to heal. When children are bereft of parents who loved and nurtured them, there is an abject destitution comparable to none other. Life is sacred, and death is somber. Life is buoyant and hopeful. Death is solemn and dark. It is awesome in its silence and certainty. Appropriately did Sir Walter Raleigh cry out, “O eloquent, just and mighty death” (in Alfred Noyes, *Raleigh,* in Tom Peete Cross and Clement Tyson Goode, sel., *Heath Readings in the Literature of England,* Boston: D. C. Heath and Co., 1927, p. 1132).
 
 But death is not final. Though it seems so when its dark shroud overshadows mortal life, to those who accept the Christ and His eternal mission there is light and comfort, there is assurance, there is certainty.
 
@@ -74,7 +76,7 @@ He was the master of life and death, the man of miracles. It was He who made the
 
 “There cometh \[one day\] one of the rulers of the synagogue, Jairus by name; and when he saw \[Jesus\], he fell at his feet,
 
-“And besought him greatly, saying, My little daughter lieth at the point of death: I pray thee, come and lay thy hands on her, that she may be healed; and she shall live. …
+“And besought him greatly, saying, My little daughter lieth at the point of death: I pray thee, come and lay thy hands on her, that she may be healed; and she shall live. …
 
 “While he yet spake, there came from the ruler of the synagogue’s house certain which said, Thy daughter is dead: why troublest thou the Master any further?
 
@@ -82,7 +84,7 @@ He was the master of life and death, the man of miracles. It was He who made the
 
 Then he took with him Peter, James, and John, and, dismissing those without faith, “he took the damsel by the hand, and said unto her, Talitha cumi; which is, being interpreted, Damsel, I say unto thee, arise.
 
-“And straightway the damsel arose, and walked; for she was of the age of twelve years. And they were astonished with a great astonishment” ([[Mark 5.41|vs. 41–42]][[Mark 5.42|]]).
+“And straightway the damsel arose, and walked; for she was of the age of twelve years. And they were astonished with a great astonishment” ([[Mark 5.41|vs. 41–42]][[Mark 5.42|]]).
 
 Small wonder that they were astonished with a great astonishment. None other in all of their acquaintance, nor in all of history, had done as He had done. He raised the damsel from death to life. And as it was with her, so it was and even more so with Lazarus, the brother of Mary and Martha, who had been dead and entombed when the Master called him forth to life, and he came forth. Surely Jesus was the Master of life and death, yet He accepted the ignominy and the horrendous pain of the cross as cruel and barbarous men planned His death. As He hung in agony, His evil tormentors cried out, “He saved others; himself he cannot save” ([[Matthew 27.42|Matt. 27:42]]).
 
@@ -108,7 +110,7 @@ Mary addressed Him as Rabboni, which means Master. The Apostles felt of His woun
 
 Nor was the miracle witnessed only in Palestine. There were other sheep of His fold of whom He had spoken. He must visit them. All of this is set forth as the testimony of many witnesses in the four gospels of the New Testament. And there is a fifth which speaks with equal power as an added witness of His divinity and of the reality of His resurrection. It is found in this other testament which we call the Book of Mormon. It concerns events that occurred in this western hemisphere when the earth trembled at His dying. There was destruction and darkness and weeping and death.
 
-And there gathered a multitude round about the temple in the land Bountiful who marveled at the great changes that had taken place and at the terrible destructions which they had witnessed. And “they heard a voice as if it came out of heaven; and they cast their eyes round about, for they understood not the voice which they heard; and it was not a harsh voice, neither was it a loud voice; nevertheless, and notwithstanding it being a small voice it did pierce them that did hear to the center, insomuch that there was no part of their frame that it did not cause to quake; yea, it did pierce them to the very soul, and did cause their hearts to burn” ([[3 Nephi 11.3|3 Ne. 11:3]]).
+And there gathered a multitude round about the temple in the land Bountiful who marveled at the great changes that had taken place and at the terrible destructions which they had witnessed. And “they heard a voice as if it came out of heaven; and they cast their eyes round about, for they understood not the voice which they heard; and it was not a harsh voice, neither was it a loud voice; nevertheless, and notwithstanding it being a small voice it did pierce them that did hear to the center, insomuch that there was no part of their frame that it did not cause to quake; yea, it did pierce them to the very soul, and did cause their hearts to burn” ([[3 Nephi 11.3|3 Ne. 11:3]]).
 
 And the voice came again, and yet a third time, “and it said unto them:
 
@@ -120,7 +122,7 @@ And the voice came again, and yet a third time, “and it said unto them:
 
 “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning” ([[3 Nephi 11.6|3 Ne. 11:6–11]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]]).
+“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning” ([[3 Nephi 11.6|3 Ne. 11:6–11]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]]).
 
 They felt of His wounds, they cried out with love and they fell at His feet and worshipped Him.
 
@@ -141,8 +143,3 @@ He is our Savior, our Redeemer, the Prince of Peace, the Prince of Life, the Son
 
 
 
-
-
-
-
-#Atonement #Death #Jesus_Christ #Resurrection

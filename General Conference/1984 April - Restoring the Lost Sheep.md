@@ -1,5 +1,7 @@
 # Restoring the Lost Sheep
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -20,11 +22,11 @@ Why do I begin with this story? Because desire in everyone involved is the first
 
 What I say, however, won’t do any good unless what is said fits in with what the listener wants for himself and has a profound hunger to attain. In every instance, those who are successful love what they are doing. It is a well-known fact that the attitude, the thinking of each of us, must be right before we can do what’s right.
 
-Elder Dean L. Larsen beautifully summarized this idea in these words: “When we understand what is right and what is wrong, we are in a position to exercise our freedom in making choices. In so doing, we must stand accountable for our decisions, and we cannot escape the inevitable consequences of these choices. Such freedom to exercise moral agency is essential in an environment where people have the highest prospects for progress and development.” (*Ensign,* May 1980, p. 76.)
+Elder Dean L. Larsen beautifully summarized this idea in these words: “When we understand what is right and what is wrong, we are in a position to exercise our freedom in making choices. In so doing, we must stand accountable for our decisions, and we cannot escape the inevitable consequences of these choices. Such freedom to exercise moral agency is essential in an environment where people have the highest prospects for progress and development.” (*Ensign,* May 1980, p. 76.)
 
 Jesus concerned himself primarily with the teaching of fundamental principles, and these principles had to do with the spiritual and mental condition of the individual. For the Savior knew that if one’s mental state is right, most everything else would be right. But if the mental state is wrong, little can be accomplished in a person’s life.
 
-It is no wonder, then, that Nephi admonished his people to “feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].)
+It is no wonder, then, that Nephi admonished his people to “feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].)
 
 Jesus said, “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” ([[Matthew 7.21|Matt. 7:21]].)
 
@@ -91,5 +93,3 @@ May the Lord bless us in this important work, I pray, in the name of Jesus Chris
 
 
 
-
-#Activation #Women

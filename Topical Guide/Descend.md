@@ -1,7 +1,6 @@
 # Descend
 
-
-*See also* [[Fall, Fallen, Fell.md|Fall]]; [[Light [verb].md|Light [verb]]]
+*See also* [[Fall.md|Fall]]; [[Light [verb].md|Light [verb]]]
 
 angels of God ascending and *descending*, [[Genesis 28.12|Genesis 28:12]].
 
@@ -33,6 +32,6 @@ he *descended* below all things, [[D&C 88.6|D&C 88:6]] ([[D&C 122.8|D&C 122:8]])
 
 Spirit of God *descended* out of heaven, [[Moses 6.26|Moses 6:26]].
 
-pillar of light ... *descended* gradually, [[Joseph Smith History 1.16|Joseph Smith History 1:16]].
+pillar of light … *descended* gradually, [[Joseph Smith History 1.16|Joseph Smith History 1:16]].
 
 messenger from heaven *descended* in a cloud of light, [[Joseph Smith History 1.68|Joseph Smith History 1:68]].

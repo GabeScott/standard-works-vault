@@ -1,7 +1,6 @@
 # Play
 
-
-people ... rose up to *play*, [[Exodus 32.6|Exodus 32:6]] ([[1 Corinthians 10.7|1 Corinthians 10:7]]).
+people … rose up to *play*, [[Exodus 32.6|Exodus 32:6]] ([[1 Corinthians 10.7|1 Corinthians 10:7]]).
 
 Provide me now a man that can *play* well, [[1 Samuel 16.17|1 Samuel 16:17]].
 

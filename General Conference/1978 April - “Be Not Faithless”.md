@@ -1,6 +1,8 @@
 # “Be Not Faithless”
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -44,7 +46,7 @@ Believe in him who was the God of Abraham, Isaac, and Jacob, who was the source 
 
 “And the government shall be upon his shoulder: and his name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].)
 
-Doubt not, but believe that it was he who was born to earth in a manger when there was no room in the inn. Well did an angel ask a prophet who had foreseen these things in vision: “Knowest thou the condescension of God?” ([[1 Nephi 11.16|1 Ne. 11:16]].) I suppose none of us can fully understand that—how the great Jehovah should come among men, his birth in a manger, among a hated people, in a vassal state. But at his birth there was an angelic chorus that sang of his glory. There were shepherds who worshiped him. There was a new star in the east. There were wise men who traveled far to bring tribute of gold, frankincense, and myrrh. One can surmise they touched those tiny hands in wonder and awe as they presented their gifts to the newborn king.
+Doubt not, but believe that it was he who was born to earth in a manger when there was no room in the inn. Well did an angel ask a prophet who had foreseen these things in vision: “Knowest thou the condescension of God?” ([[1 Nephi 11.16|1 Ne. 11:16]].) I suppose none of us can fully understand that—how the great Jehovah should come among men, his birth in a manger, among a hated people, in a vassal state. But at his birth there was an angelic chorus that sang of his glory. There were shepherds who worshiped him. There was a new star in the east. There were wise men who traveled far to bring tribute of gold, frankincense, and myrrh. One can surmise they touched those tiny hands in wonder and awe as they presented their gifts to the newborn king.
 
 Herod the Great, who knew of the prophecies, feared those hands and sought to destroy them, and in the horrible slaughter of the innocents brought blood upon his own hands and head.
 
@@ -88,9 +90,9 @@ At some time following his resurrection a voice was heard from the heavens among
 
 “And … they saw a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them,” declaring unto them:
 
-“Behold, I am Jesus Christ, whom the prophets testified shall come into the world.” ([[3 Nephi 11.7|3 Ne. 11:7–8, 10]][[3 Nephi 11.8|]][[3 Nephi 11.10|]].)
+“Behold, I am Jesus Christ, whom the prophets testified shall come into the world.” ([[3 Nephi 11.7|3 Ne. 11:7–8, 10]][[3 Nephi 11.8|]][[3 Nephi 11.10|]].)
 
-He invited them, as he invited Thomas, to feel his hands and side, and they were astonished and cried, “Hosanna! Blessed be the name of the Most High God!” ([[3 Nephi 11.17|3 Ne. 11:17]].)
+He invited them, as he invited Thomas, to feel his hands and side, and they were astonished and cried, “Hosanna! Blessed be the name of the Most High God!” ([[3 Nephi 11.17|3 Ne. 11:17]].)
 
 They doubted not, but believed, as have millions who have read this marvelous witness of the resurrected Lord. If there be those of you out there who are listening who know not of this fifth gospel and desire it, your request will bring it, and it will come with a promise that if you will read prayerfully you shall know of the truth of this remarkable new witness for Christ.
 
@@ -101,8 +103,3 @@ With so many evidences, and with the conviction borne in our hearts by the power
 
 
 
-
-
-
-
-#Faith

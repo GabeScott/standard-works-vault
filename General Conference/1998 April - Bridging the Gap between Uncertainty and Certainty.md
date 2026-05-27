@@ -1,5 +1,7 @@
 # Bridging the Gap between Uncertainty and Certainty
 
+Gordon B. Hinckley
+
 By Elder Richard E. Turley Sr. - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -30,7 +32,7 @@ To this, Jesus responded, “Blessed art thou, Simon Bar-jona: for flesh and blo
 
 In other words, the Father revealed to Peter as He can now reveal to us, through the power of the Holy Ghost, that Jesus of Nazareth, His most beloved and obedient Son, indeed was and is the long-awaited Messiah who had been foretold by all of His prophets since the world began.
 
-As I have reflected upon this young man from Boston, I have also thought of the many other young people who are searching but do not yet know how to find the answer to many of life’s questions. Young people are not living in a vacuum and, like all of us, are subjected to what the Apostle Paul called “every wind of doctrine.” Let me read from Paul’s epistle to the Ephesians, where he explained why the Lord has given us apostles, prophets, and other inspired leaders and teachers: “That we henceforth be no more children, tossed to and fro, and \[be no more\] carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive” ([[Ephesians 4.14|Eph. 4:14]]; see also [[Ephesians 4.11|vv. 11–13]][[Ephesians 4.12|]][[Ephesians 4.13|]]).
+As I have reflected upon this young man from Boston, I have also thought of the many other young people who are searching but do not yet know how to find the answer to many of life’s questions. Young people are not living in a vacuum and, like all of us, are subjected to what the Apostle Paul called “every wind of doctrine.” Let me read from Paul’s epistle to the Ephesians, where he explained why the Lord has given us apostles, prophets, and other inspired leaders and teachers: “That we henceforth be no more children, tossed to and fro, and \[be no more\] carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive” ([[Ephesians 4.14|Eph. 4:14]]; see also [[Ephesians 4.11|vv. 11–13]][[Ephesians 4.12|]][[Ephesians 4.13|]]).
 
 How grateful I am for ancient and modern prophets who help us to be aware of those who “lie in wait to deceive.”
 
@@ -40,7 +42,7 @@ This marvelous Restoration has provided that which we need to recognize misguide
 
 “Moses called upon God, saying: Tell me, I pray thee, why these things are so, and by what thou madest them?
 
-“… God said unto Moses: For mine own purpose have I made these things. …
+“… God said unto Moses: For mine own purpose have I made these things. …
 
 “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man” ([[Moses 1.30|Moses 1:30–31, 39]][[Moses 1.31|]][[Moses 1.39|]]).
 
@@ -50,13 +52,8 @@ Another example and source for our consideration is the family proclamation whic
 
 While the nations of the earth spend billions every year trying to discover more about the origins and purpose of the earth and its galaxy, the answer is right here. The earth was created for mankind to help us gain “immortality and eternal life.” The details of the Creation are undoubtedly interesting, but much higher on the list of priorities is the need to learn more about our Creator and to accept His invitation to follow Him so that we too may achieve our full potential.
 
-The Spirit will help us in our quest to bridge the gap between uncertainty and certainty. Jesus Christ is our light (see [[3 Nephi 18.24|3 Ne. 18:24]]). Let us follow this radiant light and invite others to do likewise, in the name of Jesus Christ, amen.
+The Spirit will help us in our quest to bridge the gap between uncertainty and certainty. Jesus Christ is our light (see [[3 Nephi 18.24|3 Ne. 18:24]]). Let us follow this radiant light and invite others to do likewise, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Creation #Family #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Restoration

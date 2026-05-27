@@ -1,5 +1,7 @@
 # Journey to Higher Ground
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -127,7 +129,7 @@ I leave my witness that the Lord will bless all who embark upon the paths of dis
 
 [^1]: “Sea Gypsies See Signs in the Waves,” CBS News, *60 Minutes* transcript, Mar. 20, 2005, http://www.cbsnews.com/stories/2005/03/18/60minutes/main681558.shtml.
 
-[^2]: [[2 Nephi 25.9|2 Nephi 25:9]].
+[^2]: [[2 Nephi 25.9|2 Nephi 25:9]].
 
 [^3]: [[Helaman 12.2|Helaman 12:2]].
 
@@ -139,19 +141,19 @@ I leave my witness that the Lord will bless all who embark upon the paths of dis
 
 [^7]: See [[John 15.5|John 15:5]]: “Without me ye can do nothing.”
 
-[^8]: See [[1 Kings 9.4|1 Kings 9:4–5]][[1 Kings 9.5|]].
+[^8]: See [[1 Kings 9.4|1 Kings 9:4–5]][[1 Kings 9.5|]].
 
-[^9]: See [[1 Kings 11.9|1 Kings 11:9–11]][[1 Kings 11.10|]][[1 Kings 11.11|]].
+[^9]: See [[1 Kings 11.9|1 Kings 11:9–11]][[1 Kings 11.10|]][[1 Kings 11.11|]].
 
-[^10]: See [[1 Kings 11.28|1 Kings 11:28]].
+[^10]: See [[1 Kings 11.28|1 Kings 11:28]].
 
-[^11]: [[1 Kings 11.38|1 Kings 11:38]].
+[^11]: [[1 Kings 11.38|1 Kings 11:38]].
 
-[^12]: See [[1 Kings 12.28|1 Kings 12:28–30]][[1 Kings 12.29|]][[1 Kings 12.30|]]; [[1 Kings 13.33|13:33]].
+[^12]: See [[1 Kings 12.28|1 Kings 12:28–30]][[1 Kings 12.29|]][[1 Kings 12.30|]]; [[1 Kings 13.33|13:33]].
 
-[^13]: See [[1 Kings 14.9|1 Kings 14:9]].
+[^13]: See [[1 Kings 14.9|1 Kings 14:9]].
 
-[^14]: See [[1 Kings 15.29|1 Kings 15:29]].
+[^14]: See [[1 Kings 15.29|1 Kings 15:29]].
 
 [^15]: [[D&C 87.6|D&C 87:6]].
 
@@ -163,7 +165,7 @@ I leave my witness that the Lord will bless all who embark upon the paths of dis
 
 [^19]: [[Moses 7.18|Moses 7:18]].
 
-[^20]: [[4 Nephi 1.16|4 Nephi 1:16]].
+[^20]: [[4 Nephi 1.16|4 Nephi 1:16]].
 
 [^21]: [[Mosiah 3.25|Mosiah 3:25]].
 
@@ -173,10 +175,5 @@ I leave my witness that the Lord will bless all who embark upon the paths of dis
 
 [^24]: See [[Mosiah 18.9|Mosiah 18:9]].
 
-[^25]: In Conference Report, Oct. 1995, 96; or *Ensign,* Nov. 1995, 72.
+[^25]: In Conference Report, Oct. 1995, [[1995 October - Stay the Course—Keep the Faith.md|96]]; or *Ensign,* Nov. 1995, 72.
 
-
-
-
-
-#Agency #Holy_Ghost #Obedience #Prophets #Service #Temples

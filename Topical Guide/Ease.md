@@ -1,6 +1,5 @@
 # Ease
 
-
 among these nations shalt thou find no *ease*, [[Deuteronomy 28.65|Deuteronomy 28:65]].
 
 Woe to them that are at *ease* in Zion, [[Amos 6.1|Amos 6:1]].

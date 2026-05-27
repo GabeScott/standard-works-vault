@@ -1,6 +1,8 @@
 # “And Always Remember Him”
 
-By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
+Harold B. Lee
+
+By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -20,7 +22,7 @@ Entering the garden, Jesus asked eight of the apostles to remain behind; then wi
 
 Three times he prayed, and we read: “And being in agony he prayed more earnestly: and his sweat was as it were great drops of blood falling to the ground.” ([[Luke 22.44|Luke 22:44]].)
 
-Elder James E. Talmage, a member of the Twelve in our dispensation, made this observation: “Christ’s agony in the garden is unfathomable to the finite mind, both as to intensity and cause. The thought that He suffered through fear of death is untenable. Death to Him was preliminary to resurrection and triumphal return to the Father from whom He had come, and to a state of glory even beyond what He had before possessed; and, moreover, it was within His power to lay down His life voluntarily.” Then Elder Talmage testifies: “In some manner, actual and terribly real, though to man incomprehensible, the Savior took upon Himself the burden of the sins of mankind from Adam to the end of the world.” (*Jesus the Christ,* p. 613.)
+Elder James E. Talmage, a member of the Twelve in our dispensation, made this observation: “Christ’s agony in the garden is unfathomable to the finite mind, both as to intensity and cause. The thought that He suffered through fear of death is untenable. Death to Him was preliminary to resurrection and triumphal return to the Father from whom He had come, and to a state of glory even beyond what He had before possessed; and, moreover, it was within His power to lay down His life voluntarily.” Then Elder Talmage testifies: “In some manner, actual and terribly real, though to man incomprehensible, the Savior took upon Himself the burden of the sins of mankind from Adam to the end of the world.” (*Jesus the Christ,* p. 613.)
 
 Following the Savior’s crucifixion and resurrection came the long dark night of the apostasy. Finally the heavens were reopened and the voice of the Lord was heard again on the earth. The gospel and priesthood were restored, and the church of Jesus Christ was reestablished in these latter days. Then from the Lord came this admonition to the members of the Church: “And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day.” ([[D&C 59.9|D&C 59:9]].)
 
@@ -75,8 +77,3 @@ That we may do this and thus obtain the blessings predicated upon this law, is m
 
 
 
-
-
-
-
-#Sacrament

@@ -1,6 +1,8 @@
 # Songs Sung and Unsung
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Bonnie H. Cordon
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -48,37 +50,35 @@ I testify that hour will come, that God our Eternal Father will again send to ea
 
 
 
-[^1]: “There Is Sunshine in My Soul Today,” *Hymns,* no. 227.
+[^1]: “There Is Sunshine in My Soul Today,” *Hymns,* no. 227.
 
-[^2]: *Hymns,* no. 227.
+[^2]: *Hymns,* no. 227.
 
-[^3]: *Hymns,* no. 227.
+[^3]: *Hymns,* no. 227.
 
 [^4]: [[Romans 8.25|Romans 8:25]].
 
-[^5]: *Hymns,* no. 227.
+[^5]: *Hymns,* no. 227.
 
 [^6]: Bill Staines, “All God’s Critters Got a Place in the Choir,” in Laurel Thatcher Ulrich and Emma Lou Thayne, *All God’s Critters Got a Place in the Choir* (1995), 4.
 
-[^7]: *Hymns,* no. 227.
+[^7]: *Hymns,* no. 227.
 
 [^8]: See [[Ether 12.4|Ether 12:4, 11]][[Ether 12.11|]].
 
 [^9]: William Shakespeare, *King Lear,* act 1, scene 1, lines 79–80, 93–94.
 
-[^10]: [[3 Nephi 17.16|3 Nephi 17:16–17]][[3 Nephi 17.17|]]; emphasis added.
+[^10]: [[3 Nephi 17.16|3 Nephi 17:16–17]][[3 Nephi 17.17|]]; emphasis added.
 
 [^11]: [[Alma 5.26|Alma 5:26]]; see also [[Alma 26.13|Alma 26:13]].
 
-[^12]: See [[2 Nephi 26.33|2 Nephi 26:33]].
+[^12]: See [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^13]: *Hymns,* no. 227.
+[^13]: *Hymns,* no. 227.
 
-[^14]: “The Spirit of God,” *Hymns,* no. 2.
+[^14]: “The Spirit of God,” *Hymns,* no. 2.
 
-[^15]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 142.
+[^15]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng)* (2007), 142.
 
+[^16]: *Hymns,* no. 227.
 
-
-
-#Adversity #Faith #Love #Mental_Illness #Music #Poverty #Unity

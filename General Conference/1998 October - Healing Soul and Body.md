@@ -1,5 +1,7 @@
 # Healing Soul and Body
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -18,7 +20,7 @@ I pondered deeply the purpose of pain and studied in my mind what I could learn 
 
 I have come to understand how useless it is to dwell on the *why*s, *what if*s, and *if only*s for which there likely will be given no answers in mortality. To receive the Lord’s comfort, we must exercise faith. The questions Why me? Why our family? Why now? are usually unanswerable questions. These questions detract from our spirituality and can destroy our faith. We need to spend our time and energy building our faith by turning to the Lord and asking for strength to overcome the pains and trials of this world and to endure to the end for greater understanding.
 
-In Proverbs we are told to “ponder the path of life” ([[Proverbs 5.6|Prov. 5:6]]). As we ponder the path of life, we can set our path to righteousness and feel the Spirit direct us. “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Ne. 32:3]]).
+In Proverbs we are told to “ponder the path of life” ([[Proverbs 5.6|Prov. 5:6]]). As we ponder the path of life, we can set our path to righteousness and feel the Spirit direct us. “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Ne. 32:3]]).
 
 If you and I are to feast upon the words of Christ, we must study the scriptures and absorb His words through pondering them and making them a part of every thought and action.
 
@@ -28,7 +30,7 @@ Just as studying the words of Christ is an element of pondering, so too are dili
 
 “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.62|D&C 88:62–63]][[D&C 88.63|]]).
 
-Pondering takes our thoughts from the trivial things of this world and brings us closer to the gentle, guiding hand of our Maker as we heed the “still small voice” of the Holy Ghost (see [[1 Kings 19.12|1 Kgs. 19:12]]; [[1 Nephi 17.45|1 Ne. 17:45]]; [[D&C 85.6|D&C 85:6]]). In the Doctrine and Covenants, the Lord spoke to David Whitmer: “Your mind has been on the things of the earth more than on the things of … your Maker, … and you have not given heed unto my Spirit” ([[D&C 30.2|D&C 30:2]]).
+Pondering takes our thoughts from the trivial things of this world and brings us closer to the gentle, guiding hand of our Maker as we heed the “still small voice” of the Holy Ghost (see [[1 Kings 19.12|1 Kgs. 19:12]]; [[1 Nephi 17.45|1 Ne. 17:45]]; [[D&C 85.6|D&C 85:6]]). In the Doctrine and Covenants, the Lord spoke to David Whitmer: “Your mind has been on the things of the earth more than on the things of … your Maker, … and you have not given heed unto my Spirit” ([[D&C 30.2|D&C 30:2]]).
 
 Pondering the things of the Lord—His word, His teachings, His commandments, His life, His love, the gifts He has given us, His Atonement for us—brings about a tremendous feeling of gratitude for our Savior and for the life and blessings He has given us.
 
@@ -64,7 +66,7 @@ Only by repentance and asking for forgiveness of the Lord was Alma able to put h
 
 In this mortal life, each of us is going to experience pain in one form or another. Pain may come from an accident or from a painful medical condition. We may feel deep pain from the mourning that appropriately comes with the loss of a loved one or the loss of affection from one we hold dear. Pain may come from feeling lonely or depressed. It often comes as a result of our disobedience to the commandments of God, but it also comes to those who are doing all they can to keep their lives in line with the example of the Savior.
 
-The scriptures teach that “there is … opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]). Just as times of joy and happiness come to each of us, so also comes pain to every mortal. How can we understand those moments in our life when we experience physical or emotional pain?
+The scriptures teach that “there is … opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]). Just as times of joy and happiness come to each of us, so also comes pain to every mortal. How can we understand those moments in our life when we experience physical or emotional pain?
 
 Elder Spencer W. Kimball said: “We knew before we were born that we were coming to the earth for bodies and experience and that we would have joys and sorrows, ease and pain, comforts and hardships, health and sickness, successes and disappointments, and we knew also that … we would die. We accepted all these eventualities with a glad heart, eager to accept both the favorable and unfavorable. … We were willing to come and take life as it came” (*Faith Precedes the Miracle* \[1972\], 106).
 
@@ -80,15 +82,10 @@ As we put our faith and trust in the Lord, we must battle our pain day by day an
 
 “And then, if thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes” ([[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]]).
 
-My dear brothers and sisters, when pain, tests, and trials come in life, draw near to the Savior. “Wait upon the Lord, … look for him” ([[Isaiah 8.17|Isa. 8:17]]; [[2 Nephi 18.17|2 Ne. 18:17]]). “They that wait upon the Lord shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint” ([[Isaiah 40.31|Isa. 40:31]]). Healing comes in the Lord’s time and the Lord’s way; be patient.
+My dear brothers and sisters, when pain, tests, and trials come in life, draw near to the Savior. “Wait upon the Lord, … look for him” ([[Isaiah 8.17|Isa. 8:17]]; [[2 Nephi 18.17|2 Ne. 18:17]]). “They that wait upon the Lord shall renew their strength; they shall mount up with wings as eagles; they shall run, and not be weary; and they shall walk, and not faint” ([[Isaiah 40.31|Isa. 40:31]]). Healing comes in the Lord’s time and the Lord’s way; be patient.
 
 Our Savior waits for us to come to Him through our scripture study, pondering, and prayer to our Heavenly Father. Great blessings and lessons come from overcoming adversity. As we are strengthened and healed, we can then lift and strengthen others with our faith. May we be instruments in the Lord’s hands in blessing the lives of those in pain. I give you my testimony that God lives and that Jesus is the Christ and that He waits for us to come to Him to give us counsel and compassionate caring. May the Lord’s blessings be upon each of us as we deal with the trials of life for us personally and for our loved ones, I so pray, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Adversity #Death #Faith #Healing #Jesus_Christ #Love #Prayer #Repentance #Resurrection #Spirituality

@@ -1,6 +1,8 @@
 # The Message of Easter
 
-By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -44,7 +46,7 @@ The Lord has told us that “whatever principle of intelligence we attain unto i
 
 “And if a person gains more knowledge and intelligence in this life through his diligence and obedience than another, he will have so much the advantage in the world to come.” ([[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]].)
 
-And, “We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.” ([[Articles of Faith 1.3|A of F 1:3]].)
+And, “We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.” ([[Articles of Faith 1.3|A of F 1:3]].)
 
 It was Christ’s right to be the Redeemer of mankind, and though it required sacrifice beyond our comprehension, he made the sacrifice voluntarily. He said:
 
@@ -94,7 +96,7 @@ By the power of the Holy Ghost I bear you my witness that I know that God the Fa
 
 And I know that Joseph Smith was the instrument in the hands of the Lord in restoring the gospel in its fulness. And it was through the Prophet Joseph Smith that the power to act in the name of God was restored to this earth by resurrected beings.
 
-I also testify that President Spencer W. Kimball is a prophet of God, acting under divine guidance in administering the affairs of the kingdom of God on this earth.
+I also testify that President Spencer W. Kimball is a prophet of God, acting under divine guidance in administering the affairs of the kingdom of God on this earth.
 
 The Lord has said that it is his “work and … glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) And he has said, “If you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God.” ([[D&C 14.7|D&C 14:7]].)
 
@@ -103,8 +105,3 @@ With the understanding of the gospel which we have, may we all work for eternal 
 
 
 
-
-
-
-
-#Jesus_Christ

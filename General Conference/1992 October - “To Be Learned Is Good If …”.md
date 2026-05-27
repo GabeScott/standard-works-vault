@@ -1,5 +1,7 @@
 # “To Be Learned Is Good If …”
 
+Gordon B. Hinckley
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -26,11 +28,11 @@ Because there were no public schools, the Church opened schools. Even in our own
 
 Something of the spirit of gathering touched our schools. I can remember, as supervisor of seminaries, attending stake conferences with the General Authorities to recruit students for our Church schools.
 
-In an area conference held in Mexico City in 1972, Bruce R. McConkie said: “\[The\] revealed words speak of … there being congregations of … covenant people of the Lord *in every nation, speaking every tongue,* and *among every people* when the Lord comes again. …
+In an area conference held in Mexico City in 1972, Bruce R. McConkie said: “\[The\] revealed words speak of … there being congregations of … covenant people of the Lord *in every nation, speaking every tongue,* and *among every people* when the Lord comes again. …
 
-“The place of gathering for the Mexican Saints is in Mexico; the place of gathering for the Guatemalan Saints is in Guatemala; the place of gathering for the Brazilian Saints is in Brazil; and so it goes throughout the length and breadth of the whole earth. … Every nation is the gathering place for its own people” (in Conference Report, Mexico and Central America Area Conference 1972, p. 45; emphasis added).
+“The place of gathering for the Mexican Saints is in Mexico; the place of gathering for the Guatemalan Saints is in Guatemala; the place of gathering for the Brazilian Saints is in Brazil; and so it goes throughout the length and breadth of the whole earth. … Every nation is the gathering place for its own people” (in Conference Report, Mexico and Central America Area Conference 1972, p. 45; emphasis added).
 
-The following April, President Harold B. Lee quoted those words in general conference and, in effect, announced that the pioneering phase of gathering was now over. The gathering is now to be out of the world into the Church in every nation (see Conference Report, Apr. 1973, p. 7; or *Ensign,* July 1973, pp. 4–5).
+The following April, President Harold B. Lee quoted those words in general conference and, in effect, announced that the pioneering phase of gathering was now over. The gathering is now to be out of the world into the Church in every nation (see Conference Report, Apr. 1973, p. 7; or *Ensign,* July 1973, pp. 4–5).
 
 As public schools became available, most of the Church schools were closed. At once, seminaries and institutes of religion were established in many nations.
 
@@ -78,11 +80,11 @@ We must not ignore these warnings in the Book of Mormon:
 
 “The people began to be distinguished by ranks, according to their riches and *their chances for learning;* yea, some were ignorant because of their poverty, and others did receive *great learning* because of their riches.
 
-“Some were lifted up in pride, and others were exceedingly humble; …
+“Some were lifted up in pride, and others were exceedingly humble; …
 
-“And thus there became a great inequality … insomuch that the church began to be broken up” ([[3 Nephi 6.12|3 Ne. 6:12–14]][[3 Nephi 6.13|]][[3 Nephi 6.14|]]; emphasis added).
+“And thus there became a great inequality … insomuch that the church began to be broken up” ([[3 Nephi 6.12|3 Ne. 6:12–14]][[3 Nephi 6.13|]][[3 Nephi 6.14|]]; emphasis added).
 
-Jacob warned us of those who “when they are learned they think they are wise, and they hearken not unto the counsel of God, for they set it aside, supposing they know of themselves, wherefore, their wisdom is foolishness and it profiteth them not. And they shall perish.” He added, “But to be learned is good *if* they hearken unto the counsels of God” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]]; emphasis added).
+Jacob warned us of those who “when they are learned they think they are wise, and they hearken not unto the counsel of God, for they set it aside, supposing they know of themselves, wherefore, their wisdom is foolishness and it profiteth them not. And they shall perish.” He added, “But to be learned is good *if* they hearken unto the counsels of God” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]]; emphasis added).
 
 ## A Second Tuition
 
@@ -102,7 +104,7 @@ Because of such quality teachers, our schools can be unsurpassed in meeting the 
 
 Because salaries of faculty and staff are paid from the tithes of the Church, there is a standard for them as well. A Church university is not established to provide employment for a faculty, and the personal scholarly research is not a dominant reason for funding a university.
 
-The educational Mount Everest mentioned by President Kimball will not be achieved solely through the prominence of the faculty (see see “BYU Inaugurates Ninth President,” *Church News,* 22 Nov. 1980, p. 4). It will be reached through the achievement of the students.
+The educational Mount Everest mentioned by President Kimball will not be achieved solely through the prominence of the faculty (see see “BYU Inaugurates Ninth President,” *Church News,* 22 Nov. 1980, p. 4). It will be reached through the achievement of the students.
 
 ## The Purpose
 
@@ -138,7 +140,7 @@ The Lord said:
 
 “The glory of God is intelligence, or, in other words, light and truth.
 
-“Light and truth forsake that evil one. …
+“Light and truth forsake that evil one. …
 
 “I have commanded you to bring up your children in light and truth” ([[D&C 93.36|D&C 93:36–40]][[D&C 93.37|]][[D&C 93.38|]][[D&C 93.39|]][[D&C 93.40|]]).
 
@@ -147,8 +149,3 @@ God grant that as a church and as families and as individuals we can bring up ou
 
 
 
-
-
-
-
-#Education #Institute #Seminary

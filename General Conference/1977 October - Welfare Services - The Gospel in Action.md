@@ -1,6 +1,8 @@
 # Welfare Services: The Gospel in Action
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -10,13 +12,13 @@ Singing this song \[“Improve the Shining Moments”\] takes me back some gener
 
 It’s good to meet with you again in conference—to consider our covenants, our duties, our blessings, and to learn the mind and will of our Heavenly Father.
 
-As I considered my remarks for this welfare session, I was struck by the thought that if we measure a generation as forty years, then a generation has passed since the reestablishment of this great welfare work in October of 1936. In my mind’s eye the great leaders of this effort passed in review: Presidents Heber J. Grant, J. Reuben Clark, Jr., David O. McKay, Henry D. Moyle, Harold B. Lee, Marion G. Romney, and many more too numerous to review. So also their counsels and their teachings of the scriptures have been recalled to mind.
+As I considered my remarks for this welfare session, I was struck by the thought that if we measure a generation as forty years, then a generation has passed since the reestablishment of this great welfare work in October of 1936. In my mind’s eye the great leaders of this effort passed in review: Presidents Heber J. Grant, J. Reuben Clark, Jr., David O. McKay, Henry D. Moyle, Harold B. Lee, Marion G. Romney, and many more too numerous to review. So also their counsels and their teachings of the scriptures have been recalled to mind.
 
 As I recounted their contributions and the Church’s splendid growth in Welfare Services, I encountered this question: Do our people today and more particularly do our regional, stake, and ward leaders today *have the same grasp of welfare principles and the same commitment to welfare services work* as did those of this previous generation?
 
 I am constrained to agree with President Romney’s assessment of this, when in an instructional session of General Authorities several years ago he stated:
 
-“As ‘There arose up a new king over Egypt, which knew not Joseph’ ([[Exodus 1.8|Ex. 1:8]]), so there has arisen in the Church a new generation of bishops and stake presidents who have not been taught and trained as were their predecessors.” (Marion G. Romney, *The Basics of Church Welfare,* March 6, 1974.)
+“As ‘There arose up a new king over Egypt, which knew not Joseph’ ([[Exodus 1.8|Ex. 1:8]]), so there has arisen in the Church a new generation of bishops and stake presidents who have not been taught and trained as were their predecessors.” (Marion G. Romney, *The Basics of Church Welfare,* March 6, 1974.)
 
 Because of the overriding significance of this great welfare plan, I thought it appropriate to restate the fundamental truths of this work and to emphasize how we should apply these in this generation. My hope is that we may intensify, if possible, our spiritual heritage in this work and, building on their foundation, lengthen our stride in its present implementation.
 
@@ -30,9 +32,9 @@ All through the Book of Mormon we see leaders teaching and generations learning 
 
 In Fourth Nephi we witness the blessings of the Nephites as they subdue selfishness and prosper in perfect righteousness for four generations. Who does not thrill to this picture of the ideal of Zion?
 
-“And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift. …
+“And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift. …
 
-“And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God.” ([[4 Nephi 1.3|4 Ne. 1:3, 16]][[4 Nephi 1.16|]].)
+“And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God.” ([[4 Nephi 1.3|4 Ne. 1:3, 16]][[4 Nephi 1.16|]].)
 
 It is now nearly four generations ago in this, the last dispensation, that the Lord again laid down his precepts for modern Zion when he said:
 
@@ -44,7 +46,7 @@ It is now nearly four generations ago in this, the last dispensation, that the L
 
 “Behold, this I have given unto you as a parable, and it is even as I am. I say unto you, be one; and if ye are not one ye are not mine.” ([[D&C 38.24|D&C 38:24–27]][[D&C 38.25|]][[D&C 38.26|]][[D&C 38.27|]].)
 
-President Joseph F. Smith foreshadowed the reestablishment of welfare work in 1900 when he reminded us:
+President Joseph F. Smith foreshadowed the reestablishment of welfare work in 1900 when he reminded us:
 
 “You must continue to bear in mind that the temporal and the spiritual are blended. They are not separate. One cannot be carried on without the other, so long as we are here in mortality.
 
@@ -54,7 +56,7 @@ Thus you can see that when in 1936 the First Presidency re-enunciated these prec
 
 “Our primary purpose,” said the First Presidency, “was to set up, in so far as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (*Conference Report,* October 1936, p. 3.)
 
-There is no mistaking their intent; and while often seen as temporal in nature, clearly we must understand that this work is spiritual at heart! It is people-centered and God-inspired and, as President J. Reuben Clark, Jr., put it, “The real long term objective of the Welfare Plan is the building of character in the members of the Church, givers and receivers, rescuing all that is finest down deep inside of them, and bringing to flower and fruitage the latent richness of the spirit, which after all is the mission and purpose and reason for being of this Church.” (President J. Reuben Clark, Jr., special meeting of stake presidencies, October 2, 1936.)
+There is no mistaking their intent; and while often seen as temporal in nature, clearly we must understand that this work is spiritual at heart! It is people-centered and God-inspired and, as President J. Reuben Clark, Jr., put it, “The real long term objective of the Welfare Plan is the building of character in the members of the Church, givers and receivers, rescuing all that is finest down deep inside of them, and bringing to flower and fruitage the latent richness of the spirit, which after all is the mission and purpose and reason for being of this Church.” (President J. Reuben Clark, Jr., special meeting of stake presidencies, October 2, 1936.)
 
 As we travel and visit the people throughout the world, we recognize the great temporal needs of our people. And as we long to help them, we realize the vital importance of their learning this great lesson: that the highest achievement of spirituality comes as we conquer the flesh. We build character as we encourage people to care for their own needs.
 
@@ -84,7 +86,7 @@ Fourth is *self-reliance.* The Church and its members are commanded by the Lord 
 
 The responsibility for each person’s social, emotional, spiritual, physical, or economic well-being rests first upon himself, second upon his family, and third upon the Church if he is a faithful member thereof.
 
-No true Latter-day Saint, while physically or emotionally able will voluntarily shift the burden of his own or his family’s well-being to someone else. So long as he can, under the inspiration of the Lord and with his own labors, he will supply himself and his family with the spiritual and temporal necessities of life. (See [[1 Timothy 5.8|1 Tim. 5:8]].)
+No true Latter-day Saint, while physically or emotionally able will voluntarily shift the burden of his own or his family’s well-being to someone else. So long as he can, under the inspiration of the Lord and with his own labors, he will supply himself and his family with the spiritual and temporal necessities of life. (See [[1 Timothy 5.8|1 Tim. 5:8]].)
 
 Fifth is *consecration,* which encompasses sacrifice. Consecration is the giving of one’s time, talents, and means to care for those in need—whether spiritually or temporally—and in building the Lord’s kingdom. In Welfare Services, members consecrate as they labor on production projects donate materials to Deseret Industries, share their professional talents, give a generous fast offering, and respond to ward and quorum service projects. They consecrate their time in their home or visiting teaching. We consecrate when we give of ourselves. (See *Ensign,* June 1976, pp. 3–6.)
 
@@ -118,7 +120,7 @@ I hope that in our priesthood quorums and Relief Society meetings the concepts o
 
 Let’s also teach our obligations relative to the law of the fast. Each member should contribute a generous fast offering for the care of the poor and the needy. This offering should at least be the value of the two meals not eaten while fasting.
 
-“Sometimes we have been a bit penurious and figured that we had for breakfast one egg and that cost so many cents and then we give that to the Lord. I think that when we are affluent, as many of us are, that we ought to be very, very generous. …
+“Sometimes we have been a bit penurious and figured that we had for breakfast one egg and that cost so many cents and then we give that to the Lord. I think that when we are affluent, as many of us are, that we ought to be very, very generous. …
 
 “I think we should … give, instead of the amount saved by our two meals of fasting, perhaps much, much more—ten times more when we are in a position to do it.” (*Conference Report,* Apr. 1974, p. 184.)
 
@@ -147,8 +149,3 @@ It is wonderful to be associated with this work and to be given the inspiration 
 
 
 
-
-
-
-
-#Welfare

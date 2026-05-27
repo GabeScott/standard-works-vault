@@ -1,5 +1,7 @@
 # Heirs to the Kingdom of God
 
+Thomas S. Monson
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -26,13 +28,13 @@ President David O. McKay said:
 
 “Generally there is in man a divinity which strives to push him onward and upward. We believe that this power within him is the spirit that comes from God. Man lived before he came to this earth, and he is here now to strive to perfect the spirit within. At sometime in his life, every man is conscious of a desire to come in touch with the Infinite. His spirit reaches out for God. This sense of feeling is universal, and all men ought to be, in deepest truth, engaged in the same great work—the search for and the development of spiritual peace and freedom.”[^5]
 
-As the humble servants of God—the General Authorities, the missionaries, and others—travel throughout the world, we are compelled to ask: What can we do for the peoples of the earth? What can we give that no one else can? What can justify the great expenditure of effort, time, and means to “go … into all the world,”[^6] as the Savior commanded. We cannot change the economy of countries. We do not seek to change governments. The answer is simple. We can offer the hope promised by the Savior: “Peace in this world, and eternal life in the world to come.”[^7] Lives are changed as the servants of God teach God’s children everywhere to accept and keep the commandments of God. Anyone, regardless of culture or economic circumstance, can go to the depths of his spiritual wells and drink of that water. He who partakes of this water, as the Savior said, “shall never thirst; but … shall be in him a well of water springing up into everlasting life.”[^8] The basic needs of mankind identified by Dr. Wirthlin—self-esteem, peace of mind, and personal contentment—can be fully satisfied by faithful obedience to the commandments of God. This is true of any person in any country or culture.
+As the humble servants of God—the General Authorities, the missionaries, and others—travel throughout the world, we are compelled to ask: What can we do for the peoples of the earth? What can we give that no one else can? What can justify the great expenditure of effort, time, and means to “go … into all the world,”[^6] as the Savior commanded. We cannot change the economy of countries. We do not seek to change governments. The answer is simple. We can offer the hope promised by the Savior: “Peace in this world, and eternal life in the world to come.”[^7] Lives are changed as the servants of God teach God’s children everywhere to accept and keep the commandments of God. Anyone, regardless of culture or economic circumstance, can go to the depths of his spiritual wells and drink of that water. He who partakes of this water, as the Savior said, “shall never thirst; but \[it\] shall be in him a well of water springing up into everlasting life.”[^8] The basic needs of mankind identified by Dr. Wirthlin—self-esteem, peace of mind, and personal contentment—can be fully satisfied by faithful obedience to the commandments of God. This is true of any person in any country or culture.
 
 Though many lack the necessities of life, I take comfort in the words of Nephi: “But they were … one, the children of Christ, and heirs to the kingdom of God.”[^9]
 
 As we move into more and more countries in the world, we find a rich cultural diversity in the Church. Yet everywhere there can be a “unity of the faith.”[^10] Each group brings special gifts and talents to the table of the Lord. We can all learn much of value from each other. But each of us should also voluntarily seek to enjoy all of the unifying and saving covenants, ordinances, and doctrines of the gospel of the Lord Jesus Christ.
 
-In the great diversity of peoples, cultures, and circumstances, we remember that all are equal before the Lord, for as Paul taught, “Ye are all the children of God by faith in Christ Jesus.
+In the great diversity of peoples, cultures, and circumstances, we remember that all are equal before the Lord, for as Paul taught: “Ye are all the children of God by faith in Christ Jesus.
 
 “For as many of you as have been baptized into Christ have put on Christ.
 
@@ -46,7 +48,7 @@ Our real strength is not so much in our diversity but in our spiritual and doctr
 
 The high moral standards of this church apply to all members in every country. Honesty and integrity are taught and expected everywhere. Chastity before marriage and absolute fidelity to wife or husband after marriage are required of members of the Church everywhere. Members who violate these high standards of moral conduct place their Church membership in question anywhere in the world.
 
-The requirements for temple attendance do not change from place to place. Where a temple is available, priesthood authority gives no greater or lesser blessings in one place than another. Temple worship is a perfect example of our unity as Church members. All of us answer the same questions of worthiness to enter the temple. All the men dress alike. All the women dress alike. We leave the cares of the world behind us as we enter the temple. Everyone receives the same blessings. All make the same covenants. All are equal before the Lord. Yet within our spiritual unity there is wide room for everyone’s individuality and expression. In that setting, all are heirs to the kingdom of God. President Hunter said it well, “The key to a unified church is a unified soul, one that is at peace with itself and not given to inner conflicts and tensions.”[^12]
+The requirements for temple attendance do not change from place to place. Where a temple is available, priesthood authority gives no greater or lesser blessings in one place than another. Temple worship is a perfect example of our unity as Church members. All of us answer the same questions of worthiness to enter the temple. All the men dress alike. All the women dress alike. We leave the cares of the world behind us as we enter the temple. Everyone receives the same blessings. All make the same covenants. All are equal before the Lord. Yet within our spiritual unity there is wide room for everyone’s individuality and expression. In that setting, all are heirs to the kingdom of God. President Hunter said it well: “The key to a unified church is a unified soul, one that is at peace with itself and not given to inner conflicts and tensions.”[^12]
 
 The spiritual richness of our meetings seems to have little to do with the buildings or country in which we meet. Many years ago we went to Manaus, Brazil, a city far upstream on the Amazon River, surrounded by jungle, to meet with the missionaries and the handful of Saints who were then in that area. We met in a very humble home with no glass panes in the windows. The weather was excessively hot. The children sat on the floor. The mission president, President Helio da Rocha Camargo, conducted the meeting and called on a faithful brother to give the opening prayer. The humble man responded, “I will be happy to pray, but may I also bear my testimony?” A sister was asked to lead the singing. She responded, “I would love to lead the singing, but please let me also bear my testimony.”
 
@@ -63,7 +65,7 @@ Mine is the certain knowledge that Jesus is our divine Savior, Redeemer, and the
 
 
 
-[^1]: [[1 Kings 3.7|1 Kgs. 3:7]].
+[^1]: [[1 Kings 3.7|1 Kgs. 3:7]].
 
 [^2]: “Helping Hearts and Hands Span the Globe,” *Church News,* 11 Feb. 1995, pp. 8–10.
 
@@ -71,7 +73,7 @@ Mine is the certain knowledge that Jesus is our divine Savior, Redeemer, and the
 
 [^4]: [[D&C 84.46|D&C 84:46]].
 
-[^5]: In Conference Report, Oct. 1963, p. 7.
+[^5]: In Conference Report, Oct. 1963, p. 7; or *Improvement Era,* Dec. 1963, p. 1057.
 
 [^6]: [[Mark 16.15|Mark 16:15]].
 
@@ -79,7 +81,7 @@ Mine is the certain knowledge that Jesus is our divine Savior, Redeemer, and the
 
 [^8]: [[John 4.14|John 4:14]].
 
-[^9]: [[4 Nephi 1.17|4 Ne. 1:17]].
+[^9]: [[4 Nephi 1.17|4 Ne. 1:17]].
 
 [^10]: [[Ephesians 4.13|Eph. 4:13]].
 
@@ -89,14 +91,9 @@ Mine is the certain knowledge that Jesus is our divine Savior, Redeemer, and the
 
 [^13]: [[Matthew 18.20|Matt. 18:20]].
 
-[^14]: [[1 Corinthians 10.16|1 Cor. 10:16–17]][[1 Corinthians 10.17|]].
+[^14]: [[1 Corinthians 10.16|1 Cor. 10:16]]; see also [[1 Corinthians 10.17|v. 17]].
 
-[^15]: As cited in *Providing in the Lord’s Way: A Leader’s Guide to Welfare* (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990), p. i.
+[^15]: As cited in *Providing in the Lord’s Way: A Leader’s Guide to Welfare* (welfare handbook, 1990), p. i.
 
 [^16]: [[Matthew 9.22|Matt. 9:22]].
 
-
-
-
-
-#Individual_Worth #Kingdom_Of_God #Peace #Self-Esteem #Spirituality #Tolerance #Unity #Welfare

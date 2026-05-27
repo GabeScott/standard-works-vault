@@ -1,5 +1,7 @@
 # “From Such Turn Away”
 
+Gordon B. Hinckley
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -12,7 +14,7 @@ However, during the last few days, I have had pressing upon me, by inspiration a
 
 I have here in my hand a most interesting document. Let me quote from it: “To whom it may concern:
 
-“This certifies that *Parley P. Pratt,* has been received into the church of the Latter Day Saints, … and has been ordained an elder according to the rules and regulations of said church, and is duly authorized to preach the gospel, agreeably to the authority of that office. …
+“This certifies that *Parley P. Pratt,* has been received into the church of the Latter Day Saints, … and has been ordained an elder according to the rules and regulations of said church, and is duly authorized to preach the gospel, agreeably to the authority of that office. …
 
 “Given by the direction of a conference of the elders of said church, assembled in Kirtland, Geauga County, Ohio, this *26th* day of *April,* in the year of our Lord one thousand, eight hundred, and thirty-five. \[Signed\] *Joseph Smith Jr.* … *Oliver Cowdery,* Clerk.” (Parley P. Pratt Collection, Archives of The Church of Jesus Christ of Latter-day Saints, Salt Lake City.)
 
@@ -26,11 +28,11 @@ It is important that every member of the Church understand that.
 
 The Apostle Paul wrote to Timothy of perilous times and apostasy to come in the last days.
 
-He listed the many evils that would be abroad in those perilous times, such things as false accusers, despisers of those that are good, and traitors, and he warned, “From such turn away.” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
+He listed the many evils that would be abroad in those perilous times, such things as false accusers, despisers of those that are good, and traitors, and he warned, “From such turn away.” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
 
 “Evil men and seducers shall wax worse and worse, deceiving, and being deceived.
 
-“But continue thou in the things which thou hast learned and hast been assured of, *knowing of whom thou hast learned them.”* ([[2 Timothy 3.13|2 Tim. 3:13–14]][[2 Timothy 3.14|]]; italics added.)
+“But continue thou in the things which thou hast learned and hast been assured of, *knowing of whom thou hast learned them.”* ([[2 Timothy 3.13|2 Tim. 3:13–14]][[2 Timothy 3.14|]]; italics added.)
 
 That phrase, *knowing of whom thou hast learned them,* has great significance.
 
@@ -62,7 +64,7 @@ The chapel had a dirt floor and rude hand-hewn benches. The interior walls had b
 
 I repeat the words of Paul:
 
-“Continue thou in the things which thou hast learned, … *knowing of whom thou hast learned them.”* ([[2 Timothy 3.14|2 Tim. 3:14]]; italics added.)
+“Continue thou in the things which thou hast learned, … *knowing of whom thou hast learned them.”* ([[2 Timothy 3.14|2 Tim. 3:14]]; italics added.)
 
 Even in that remote little branch the members could identify those who hold the keys of authority.
 
@@ -104,9 +106,9 @@ They may claim special revelations and callings. They may claim visions and visi
 
 There is another area where caution means safety. There are some who, motivated by one influence or another, seek through writing and publishing criticisms and interpretations of doctrine to make the gospel more acceptable to the so-called thinking people of the world.
 
-They would do well to read very thoughtfully the parable of the tree of life in the eighth chapter of 1 Nephi, and to ponder very soberly verse twenty-eight:
+They would do well to read very thoughtfully the parable of the tree of life in the eighth chapter of 1 Nephi, and to ponder very soberly verse twenty-eight:
 
-“And *after*” \[meaning after they were members of the Church\] *after* “they had tasted of the fruit they were ashamed, because of those that were scoffing at them; and they fell away into forbidden paths and were lost.” ([[1 Nephi 8.28|1 Ne. 8:28]]; italics added.)
+“And *after*” \[meaning after they were members of the Church\] *after* “they had tasted of the fruit they were ashamed, because of those that were scoffing at them; and they fell away into forbidden paths and were lost.” ([[1 Nephi 8.28|1 Ne. 8:28]]; italics added.)
 
 If their spirits are pure and their motives worthy, they will do no harm either to themselves or to others. If they are not, we would all do well to follow Paul’s admonition and “from such turn away.”
 
@@ -128,7 +130,7 @@ How marvelous! This wonderful man had reminded me that each member of the Church
 
 On one occasion, Karl G. Maeser was leading a party of young missionaries across the Alps. As they reached the summit, he looked back and saw a row of sticks thrust into the snow to mark the one safe path across the otherwise treacherous glacier.
 
-Halting the company of missionaries, he gestured toward the sticks and said, “Brethren, there stands the priesthood \[of God\]. They are just common sticks like the rest of us, … but the position they hold makes them what they are to us. If we step aside from the path they mark, we are lost.” (In Alma P. Burton, *Karl G. Maeser, Mormon Educator,* Salt Lake City: Deseret Book Co., 1953, p. 22.)
+Halting the company of missionaries, he gestured toward the sticks and said, “Brethren, there stands the priesthood \[of God\]. They are just common sticks like the rest of us, … but the position they hold makes them what they are to us. If we step aside from the path they mark, we are lost.” (In Alma P. Burton, *Karl G. Maeser, Mormon Educator,* Salt Lake City: Deseret Book Co., 1953, p. 22.)
 
 Although no one of us is perfect, the Church moves forward, led by ordinary people.
 
@@ -145,8 +147,3 @@ I sustain President Spencer W. Kimball as the prophet of God. I know that he is 
 
 
 
-
-
-
-
-#Authority #Priesthood

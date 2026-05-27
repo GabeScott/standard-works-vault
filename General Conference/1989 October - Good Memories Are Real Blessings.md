@@ -1,5 +1,7 @@
 # Good Memories Are Real Blessings
 
+Ezra Taft Benson
+
 By Elder Joe J. Christensen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -69,8 +71,3 @@ Our Heavenly Father lives. He also loves you and even knows you by name. Jesus i
 
 
 
-
-
-
-
-#Example #Missionary_Work #Obedience #Service

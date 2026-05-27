@@ -1,6 +1,8 @@
 # Prepare Now for Your Mission
 
-By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -68,15 +70,10 @@ Do you understand what has happened in the past few minutes? Will you imagine yo
 
 6. I’ll be grateful for the blessings of family home evening.
 
-Now, young man, get up from that reclining position by the fence and move! What will be the result? You will be a better missionary. When our prophet-leader, President Spencer W. Kimball, says, “Every young man on a mission,” he is looking far beyond the months spent in the mission field. Upon your return you will be a better bishop and a better stake president, a better husband, a better father, and a better whatever you will be both in this life and the one to come.
+Now, young man, get up from that reclining position by the fence and move! What will be the result? You will be a better missionary. When our prophet-leader, President Spencer W. Kimball, says, “Every young man on a mission,” he is looking far beyond the months spent in the mission field. Upon your return you will be a better bishop and a better stake president, a better husband, a better father, and a better whatever you will be both in this life and the one to come.
 
 As you make your decision, will you remember this? The Lord lives. Jesus is the Christ. This is His work in which we are engaged. In the final analysis, you must stand on your own decision. This decision will be a test of your character and obedience. May you be blessed to decide affirmatively and then prepare courageously and serve magnificently, I pray in the name of the Lord Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Missionary_Work #Preparation

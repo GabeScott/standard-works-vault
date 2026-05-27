@@ -4,6 +4,3 @@
 
 [JST Luke 24:4](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/24?lang=eng)
 
-
-
-

@@ -1,5 +1,7 @@
 # “Come, Follow Me”
 
+Gordon B. Hinckley
+
 By Elder William W. Parmley - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -8,7 +10,7 @@ By Elder William W. Parmley - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2003/10/come-follow-me?lang=eng)
 
-We are disciples of Jesus Christ. In the words of Nephi, “We believe in Christ, … we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ” ([[2 Nephi 25.24|2 Nephi 25:24, 26]][[2 Nephi 25.26|]]). To believers everywhere, the three most powerful behavioral words He spoke were “Come, follow me” ([[Luke 18.22|Luke 18:22]]; see also [[Matthew 16.24|Matthew 16:24]]; [[Mark 1.17|Mark 1:17]]; [[Luke 9.23|Luke 9:23]]). When asked by a scribe which is the most important commandment, Jesus replied:
+We are disciples of Jesus Christ. In the words of Nephi, “We believe in Christ, … we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ” ([[2 Nephi 25.24|2 Nephi 25:24, 26]][[2 Nephi 25.26|]]). To believers everywhere, the three most powerful behavioral words He spoke were “Come, follow me” ([[Luke 18.22|Luke 18:22]]; see also [[Matthew 16.24|Matthew 16:24]]; [[Mark 1.17|Mark 1:17]]; [[Luke 9.23|Luke 9:23]]). When asked by a scribe which is the most important commandment, Jesus replied:
 
 “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength: this is the first commandment.
 
@@ -40,7 +42,7 @@ The Savior emphasized this principle again when He discussed the Judgment Day an
 
 “And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.37|Matthew 25:37–40]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]]).
 
-Peter emphasized the importance of this kind of charity when he said, “And above all things have fervent charity among yourselves: for charity shall cover the multitude of sins” ([[1 Peter 4.8|1 Peter 4:8]]).
+Peter emphasized the importance of this kind of charity when he said, “And above all things have fervent charity among yourselves: for charity shall cover the multitude of sins” ([[1 Peter 4.8|1 Peter 4:8]]).
 
 Mormon expressed similar sentiments with this admonition:
 
@@ -57,8 +59,3 @@ Of the Savior, who is our exemplar, I bear personal witness that He lives. In th
 
 
 
-
-
-
-
-#Example #Jesus_Christ #Love #Mercy #Prayer

@@ -1,5 +1,7 @@
 # The Brilliant Morning of Forgiveness
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -135,7 +137,7 @@ I bear witness of Christ and of the power of His atonement. And I know that “h
 
 [^9]: [[Isaiah 1.18|Isa. 1:18–19]][[Isaiah 1.19|]].
 
-[^10]: [[2 Nephi 25.23|2 Ne. 25:23]].
+[^10]: [[2 Nephi 25.23|2 Ne. 25:23]].
 
 [^11]: See [[D&C 109.21|D&C 109:21]].
 
@@ -145,13 +147,13 @@ I bear witness of Christ and of the power of His atonement. And I know that “h
 
 [^14]: [[Alma 42.16|Alma 42:16]].
 
-[^15]: Forgiveness will come eventually to all repentant souls who have not committed the unpardonable sin (see [[Matthew 12.31|Matt. 12:31]]). Forgiveness does not, however, necessarily assure exaltation, as is the case with David (see [[D&C 132.38|D&C 132:38–39]][[D&C 132.39|]]; see also [[Psalms 16.10|Ps. 16:10]]; [[Acts 2.25|Acts 2:25–27]][[Acts 2.26|]][[Acts 2.27|]]; *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 339).
+[^15]: Forgiveness will come eventually to all repentant souls who have not committed the unpardonable sin (see [[Matthew 12.31|Matt. 12:31]]). Forgiveness does not, however, necessarily assure exaltation, as is the case with David (see [[D&C 132.38|D&C 132:38–39]][[D&C 132.39|]]; see also [[Psalms 16.10|Ps. 16:10]]; [[Acts 2.25|Acts 2:25–27]][[Acts 2.26|]][[Acts 2.27|]]; *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 339).
 
 [^16]: See [[Matthew 5.25|Matt. 5:25–26]][[Matthew 5.26|]].
 
 [^17]: See [[D&C 138.1|D&C 138]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.5|]][[D&C 138.6|]][[D&C 138.7|]][[D&C 138.8|]][[D&C 138.9|]][[D&C 138.10|]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]][[D&C 138.38|]][[D&C 138.39|]][[D&C 138.40|]][[D&C 138.41|]][[D&C 138.42|]][[D&C 138.43|]][[D&C 138.44|]][[D&C 138.45|]][[D&C 138.46|]][[D&C 138.47|]][[D&C 138.48|]][[D&C 138.49|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]][[D&C 138.53|]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]][[D&C 138.57|]][[D&C 138.58|]][[D&C 138.59|]][[D&C 138.60|]].
 
-[^18]: See *Teachings of the Prophet Joseph Smith,* pp. 256–57.
+[^18]: See *Teachings of the Prophet Joseph Smith,* pp. 256–57.
 
 [^19]: [[D&C 121.43|D&C 121:43]].
 
@@ -159,14 +161,9 @@ I bear witness of Christ and of the power of His atonement. And I know that “h
 
 [^21]: See [[Mosiah 4.1|Mosiah 4:1–3]][[Mosiah 4.2|]][[Mosiah 4.3|]].
 
-[^22]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), p. 442; emphasis added.
+[^22]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), p. 442; emphasis added.
 
-[^23]: *Teachings of the Prophet Joseph Smith,* p. 191; emphasis added.
+[^23]: *Teachings of the Prophet Joseph Smith,* p. 191; emphasis added.
 
-[^24]: [[Psalms 30.note5a|JST, Ps. 30:5]]; see also [[D&C 61.20|D&C 61:20]].
+[^24]: [JST, Ps. 30:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30?lang=eng&id=note5a#note5a); see also [[D&C 61.20|D&C 61:20]].
 
-
-
-
-
-#Atonement #Forgiveness #Jesus_Christ #Love #Repentance #Sin

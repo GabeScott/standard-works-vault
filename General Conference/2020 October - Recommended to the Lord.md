@@ -1,5 +1,7 @@
 # Recommended to the Lord
 
+Russell M. Nelson
+
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
@@ -40,11 +42,11 @@ Putting off our shoes at the door of the temple is letting go of worldly desires
 
 By divine design, our physical body is a creation of God, a temple for our spirit, and should be treated with reverence. So true are the words of the Primary song: “My body is a temple \[that\] needs the greatest care.”[^3] When the Lord appeared to the Nephites, He commanded, “Be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me.”[^4] “What manner of men ought ye to be?” asked the Lord and then answered, “Even as I am.”[^5] To be “recommended to the Lord,” we strive to be like Him.
 
-I remember hearing President Howard W. Hunter in his first general conference address as the 14th President of the Church. He said: “It is the deepest desire of my heart to have every member of the Church worthy to enter the temple. It would please the Lord if every adult member would be worthy of﻿—and carry﻿—a current temple recommend.”[^6] I would add that a limited-use recommend will set a clear path for our precious youth.
+I remember hearing President Howard W. Hunter in his first general conference address as the 14th President of the Church. He said: “It is the deepest desire of my heart to have every member of the Church worthy to enter the temple. It would please the Lord if every adult member would be worthy of﻿—and carry﻿—a current temple recommend.”[^6] I would add that a limited-use recommend will set a clear path for our precious youth.
 
-President Russell M. Nelson recalled President Hunter’s words: “On that day, June 6, 1994, the temple recommend that we carry became a different object in my wallet. Before that, it was a means to an end. It was the means to allow me to enter a sacred house of the Lord; but after he made that declaration, that became an end in itself. It became my badge of obedience to a prophet of God.”[^7]
+President Russell M. Nelson recalled President Hunter’s words: “On that day, June 6, 1994, the temple recommend that we carry became a different object in my wallet. Before that, it was a means to an end. It was the means to allow me to enter a sacred house of the Lord; but after he made that declaration, that became an end in itself. It became my badge of obedience to a prophet of God.”[^7]
 
-If you have yet to receive a recommend or if your recommend has lapsed, line up at the door of the bishop just as the early Saints lined up at the door of the Nauvoo Temple in 1846.[^8] My ancestors were among those faithful. They were abandoning their beautiful city and going west, but they knew that there were sacred experiences awaiting them in the temple. Wrote Sarah Rich from the rugged trail in Iowa, “If it had not been for the faith and knowledge that was bestowed upon us in that temple … , our journey would have been like … taking a leap in the dark.”[^9] That is what we are missing if we are going through this life alone without the inspiration and peace promised in the temple.
+If you have yet to receive a recommend or if your recommend has lapsed, line up at the door of the bishop just as the early Saints lined up at the door of the Nauvoo Temple in 1846.[^8] My ancestors were among those faithful. They were abandoning their beautiful city and going west, but they knew that there were sacred experiences awaiting them in the temple. Wrote Sarah Rich from the rugged trail in Iowa, “If it had not been for the faith and knowledge that was bestowed upon us in that temple … , our journey would have been like … taking a leap in the dark.”[^9] That is what we are missing if we are going through this life alone without the inspiration and peace promised in the temple.
 
 Begin the process now to become “recommended to the Lord” so that His Spirit will be with you in abundance and His standards will bring you “peace of conscience.”[^10]
 
@@ -62,7 +64,7 @@ Even though they could not present them at the temple, they would be presenting 
 
 We do temple work when we search for our ancestors and submit their names for ordinances. While our temples have been closed, we have still been able to research our families. With the Spirit of God in our hearts, we are, by proxy, standing in for them to be “recommended to the Lord.”
 
-When I was serving as the Executive Director of the Temple Department, I heard President Gordon B. Hinckley refer to this scripture spoken by the Lord about the Nauvoo Temple: “Let the work of my temple, and all the works which I have appointed unto you, be continued on and not cease; and let your diligence, and your perseverance, and patience, and your works be redoubled, and you shall in nowise lose your reward, saith the Lord of Hosts.”[^12]
+When I was serving as the Executive Director of the Temple Department, I heard President Gordon B. Hinckley refer to this scripture spoken by the Lord about the Nauvoo Temple: “Let the work of my temple, and all the works which I have appointed unto you, be continued on and not cease; and let your diligence, and your perseverance, and patience, and your works be redoubled, and you shall in nowise lose your reward, saith the Lord of Hosts.”[^12]
 
 Our work in the temple is tied to our eternal reward. Recently we have been put to the test. The Lord has called us to work in the temples with “diligence, … perseverance, and patience.”[^13] Being “recommended to the Lord” requires those qualities. We must be diligent in living the commandments, persevere in our attention to our temple covenants, and be grateful for what the Lord continues to teach about them and be patient as we wait for temples to reopen in their fulness.
 
@@ -73,21 +75,21 @@ I promise you as an Apostle of the Lord Jesus Christ that as you strive to redou
 
 
 
-[^1]: See James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints, 1833–1964,* 6 vols. (1965–75), 3:229.
+[^1]: See James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints, 1833–1964,* 6 vols. (1965–75), 3:229.
 
 [^2]: [[Exodus 3.5|Exodus 3:5]].
 
 [^3]: “My Body Is a Temple,” *The Children Sing* (1951), no. 99.
 
-[^4]: [[3 Nephi 27.20|3 Nephi 27:20]].
+[^4]: [[3 Nephi 27.20|3 Nephi 27:20]].
 
-[^5]: [[3 Nephi 27.27|3 Nephi 27:27]].
+[^5]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
-[^6]: *Teachings of Presidents of the Church: Howard W. Hunter* (2015), 180.
+[^6]: *[Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-13-the-temple-the-great-symbol-of-our-membership?lang=eng&id=p16#p16)* (2015), 180.
 
-[^7]: *Teachings of Russell M. Nelson* (2018), 373.
+[^7]: *Teachings of Russell M. Nelson* (2018), 373.
 
-[^8]: See *Saints: The Story of the Church of Jesus Christ in the Latter Days,* vol. 1, *The Standard of Truth, 1815–1846* (2018), 582–83.
+[^8]: See *[Saints: The Story of the Church of Jesus Christ in the Latter Days](https://www.churchofjesuschrist.org/study/history/saints-v1/46-endowed-with-power?lang=eng&id=p56#p56),* vol. 1, *The Standard of Truth, 1815–1846* (2018), 582–83.
 
 [^9]: Sarah P. Rich, Autobiography, 1885–1890, Church History Library, Salt Lake City, 66.
 
@@ -99,8 +101,3 @@ I promise you as an Apostle of the Lord Jesus Christ that as you strive to redou
 
 [^13]: [[D&C 127.4|Doctrine and Covenants 127:4]].
 
-
-
-
-
-#Temples

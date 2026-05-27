@@ -1,4 +1,3 @@
 # Salem
 
-
-*See* [BD Salem](https://www.churchofjesuschrist.org/study/scriptures/bd/salem?lang=eng)
+*See also* [[BD Salem.md|BD Salem]]

@@ -1,4 +1,3 @@
 # Defence
 
-
-*See* [[Defense.md|Defense]]
+*See also* [[Defense.md|Defense]]

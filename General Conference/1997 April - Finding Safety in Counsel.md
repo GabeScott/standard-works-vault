@@ -1,5 +1,7 @@
 # Finding Safety in Counsel
 
+Gordon B. Hinckley
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -8,7 +10,7 @@ By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1997/04/finding-safety-in-counsel?lang=eng)
 
-The Savior has always been the protector of those who would accept His protection. He has said more than once, “How oft would I have gathered you as a hen gathereth her chickens, and ye would not” ([[3 Nephi 10.5|3 Ne. 10:5]]).
+The Savior has always been the protector of those who would accept His protection. He has said more than once, “How oft would I have gathered you as a hen gathereth her chickens, and ye would not” ([[3 Nephi 10.5|3 Ne. 10:5]]).
 
 The Lord expressed the same lament in our own dispensation after describing the many ways in which He calls us to safety:
 
@@ -18,7 +20,7 @@ There seems to be no end to the Savior’s desire to lead us to safety. And ther
 
 When tensions ran high in northern Missouri in the fall of 1838, the Prophet Joseph Smith called for all the Saints to gather to Far West for protection. Many were on isolated farms or in scattered settlements. He specifically counseled Jacob Haun, founder of a small settlement called Haun’s Mill. A record of that time includes this: “Brother Joseph had sent word by Haun, who owned the mill, to inform the brethren who were living there to leave and come to Far West, but Mr. Haun did not deliver the message” (Philo Dibble, in “Early Scenes in Church History,” in *Four Faith Promoting Classics* \[1968\], 90). Later, the Prophet Joseph recorded in his history: “Up to this day God had given me wisdom to save the people who took counsel. None had ever been killed who \[had abided\] by my counsel” (*History of the Church,* 5:137). Then the Prophet recorded the sad truth that innocent lives could have been saved at Haun’s Mill had his counsel been received and followed.
 
-In our own time, we have been warned with counsel on where to find safety from sin and from sorrow. One of the keys to recognizing those warnings is that they are repeated. For instance, more than once in these general conferences, you have heard our prophet say that he would quote a preceding prophet and would therefore be a second witness and sometimes even a third. Each of us who has listened has heard President Kimball give counsel on the importance of a mother in the home and then heard President Benson quote him, and we have heard President Hinckley quote them both. The Apostle Paul wrote that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Cor. 13:1]]). One of the ways we may know that the warning is from the Lord is that the law of witnesses, authorized witnesses, has been invoked. When the words of prophets seem repetitive, that should rivet our attention and fill our hearts with gratitude to live in such a blessed time.
+In our own time, we have been warned with counsel on where to find safety from sin and from sorrow. One of the keys to recognizing those warnings is that they are repeated. For instance, more than once in these general conferences, you have heard our prophet say that he would quote a preceding prophet and would therefore be a second witness and sometimes even a third. Each of us who has listened has heard President Kimball give counsel on the importance of a mother in the home and then heard President Benson quote him, and we have heard President Hinckley quote them both. The Apostle Paul wrote that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Cor. 13:1]]). One of the ways we may know that the warning is from the Lord is that the law of witnesses, authorized witnesses, has been invoked. When the words of prophets seem repetitive, that should rivet our attention and fill our hearts with gratitude to live in such a blessed time.
 
 Looking for the path to safety in the counsel of prophets makes sense to those with strong faith. When a prophet speaks, those with little faith may think that they hear only a wise man giving good advice. Then if his counsel seems comfortable and reasonable, squaring with what they want to do, they take it. If it does not, they consider it either faulty advice or they see their circumstances as justifying their being an exception to the counsel. Those without faith may think that they hear only men seeking to exert influence for some selfish motive. They may mock and deride, as did a man named Korihor, with these words recorded in the Book of Mormon:
 
@@ -57,8 +59,3 @@ We are blessed to live in a time when the priesthood keys are on the earth. We a
 
 
 
-
-
-
-
-#Agency #Faith #General_Conference #God_The_Father #Holy_Ghost #Humility #Jesus_Christ #Priesthood #Prophets #Safety #Temptation

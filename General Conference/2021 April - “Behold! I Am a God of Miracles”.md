@@ -1,6 +1,8 @@
 # “Behold! I Am a God of Miracles”
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/04/52rasband?lang=eng)
 
-My dear brothers and sisters, what a privilege it is to stand before you today. United with those who have already addressed this conference, I testify to you that Jesus Christ lives. He directs His Church; He speaks to His prophet, President Russell M. Nelson, and He loves all Heavenly Father’s children.
+My dear brothers and sisters, what a privilege it is to stand before you today. United with those who have already addressed this conference, I testify to you that Jesus Christ lives. He directs His Church; He speaks to His prophet, President Russell M. Nelson, and He loves all Heavenly Father’s children.
 
 On this Easter Sunday we commemorate the Resurrection of Jesus Christ, our Savior and Redeemer,[^1] the Mighty God, the Prince of Peace.[^2] His Atonement, culminating with His Resurrection after three days in a borrowed tomb, stands as the greatest miracle in human history. “For behold,” He pronounced, “I am God; and I am a God of miracles.”[^3]
 
@@ -60,7 +62,7 @@ He continued:
 
 “Behold, it was the faith of Nephi and Lehi that wrought the change upon the Lamanites, that they were baptized with fire and with the Holy Ghost.
 
-“Behold, it was the faith of Ammon and his brethren which wrought so great a miracle among the Lamanites. …
+“Behold, it was the faith of Ammon and his brethren which wrought so great a miracle among the Lamanites. …
 
 “And neither at any time hath any wrought miracles until after their faith; wherefore they first believed in the Son of God.”[^18]
 
@@ -89,7 +91,7 @@ On this Easter Sunday, as we celebrate the miracle of our Lord’s Resurrection,
 
 [^2]: See [[Isaiah 9.6|Isaiah 9:6]].
 
-[^3]: [[2 Nephi 27.23|2 Nephi 27:23]].
+[^3]: [[2 Nephi 27.23|2 Nephi 27:23]].
 
 [^4]: [[Moroni 7.27|Moroni 7:27]].
 
@@ -109,11 +111,11 @@ On this Easter Sunday, as we celebrate the miracle of our Lord’s Resurrection,
 
 [^12]: [[Luke 18.22|Luke 18:22]].
 
-[^13]: [[2 Nephi 26.20|2 Nephi 26:20]].
+[^13]: [[2 Nephi 26.20|2 Nephi 26:20]].
 
 [^14]: [[D&C 133.47|Doctrine and Covenants 133:47]].
 
-[^15]: Per Michael Madsen, Jan. 11, 2021.
+[^15]: Per Michael Madsen, Jan. 11, 2021.
 
 [^16]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
@@ -135,8 +137,3 @@ On this Easter Sunday, as we celebrate the miracle of our Lord’s Resurrection,
 
 [^25]: [[Ether 12.41|Ether 12:41]].
 
-
-
-
-
-#Faith #Jesus_Christ #Miracles #Resurrection

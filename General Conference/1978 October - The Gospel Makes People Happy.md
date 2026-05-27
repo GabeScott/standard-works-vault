@@ -1,6 +1,8 @@
 # The Gospel Makes People Happy
 
-By Elder Teddy E. Brewerton - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Teddy E. Brewerton - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -21,8 +23,3 @@ I’m grateful for the intervention of the Lord in my life. I pray that I will b
 
 
 
-
-
-
-
-#Testimony

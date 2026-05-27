@@ -1,5 +1,7 @@
 # You Shall Receive the Spirit
 
+Harold B. Lee
+
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1973 General Conference*
@@ -40,13 +42,13 @@ This is a clear signal as to what the Lord would have taught by his servants tod
 
 The Lord next gives some specifics as to the conduct he expects of his authorized ministers:
 
-“And they shall observe the covenants and church articles to do them. …” ([[D&C 42.13|D&C 42:13]].)
+“And they shall observe the covenants and church articles to do them. …” ([[D&C 42.13|D&C 42:13]].)
 
 Once again, these are very plain, clear instructions. He did not say it would be “nice” if we keep the commandments. He says “they *shall* observe the covenants and church articles to do them.” Surely obedience is the first law of heaven. We are given to understand that there will be no disobedience in the celestial kingdom. It is therefore vitally important that we keep the commandments with exactness and not just “almost.”
 
 The account of the Lamanite striplings in the Book of Mormon as mentioned by Elder Monson is an excellent illustration of the blessings that flow from precise obedience. Helaman had formed them into an army of 2,060 young men who fought on the side of the Nephites, and when they were fighting for the Nephites, the Nephites could not lose.
 
-At one time 200 of them were so badly wounded that they fainted from the loss of blood. When they were carried from the battlefield, it was thought they were dead, but they weren’t. They came back to life again—it seemed they could not be killed. What was their secret? It is recorded in [[Alma 57.21|Alma 57:21]]: “Yea, and they did obey and observe to perform every word of command with exactness. …”
+At one time 200 of them were so badly wounded that they fainted from the loss of blood. When they were carried from the battlefield, it was thought they were dead, but they weren’t. They came back to life again—it seemed they could not be killed. What was their secret? It is recorded in [[Alma 57.21|Alma 57:21]]: “Yea, and they did obey and observe to perform every word of command with exactness. …”
 
 Yes, they gave their mothers credit for teaching them, but they kept the commandments with exactness. This is the great secret. It is so important that we be in condition to serve the Lord, and condition comes only through obedience. To be a great leader, we must first be a great follower.
 
@@ -60,7 +62,7 @@ Brigham Young’s counsel to missionaries going into the field was to the effect
 
 It is true that the Spirit giveth direction. It is the Spirit that carries conviction to the hearts of those who are honest.
 
-Our living prophet, President Harold B. Lee, made a significant statement on this subject and clearly illustrated the correct philosophy of a servant of the Lord. He did so shortly after he was ordained to the office.
+Our living prophet, President Harold B. Lee, made a significant statement on this subject and clearly illustrated the correct philosophy of a servant of the Lord. He did so shortly after he was ordained to the office.
 
 The new First Presidency held a news conference in the administration building with many members of the press in attendance. One reporter asked President Lee if he would mind explaining what his goals were. He asked:
 
@@ -70,7 +72,7 @@ President Lee answered in his most characteristic way, substantially as follows:
 
 “Well,” he said, “I can only answer that question in the words of a great prophet when he was given an assignment by the Lord to secure an ancient record. He said:
 
-“‘And I was led by the Spirit, not knowing beforehand the things which I should do.’” ([[1 Nephi 4.6|1 Ne. 4:6]].)
+“‘And I was led by the Spirit, not knowing beforehand the things which I should do.’” ([[1 Nephi 4.6|1 Ne. 4:6]].)
 
 Being led by the Spirit is vitally important because this is the Lord’s church and he runs it. Those who are called to serve must *let* the Lord run his church. They must be led by his Spirit because man’s thoughts are not God’s thoughts and man’s ways are not God’s ways; therefore, for man to do God’s work he must have the Spirit of the Lord or he won’t know what to do or how to perform.
 
@@ -80,7 +82,7 @@ To continue with the revelation, now that the Lord has established the necessity
 
 On the surface it appears that all that is necessary to receive the Spirit is to ask for it, but it is not quite so easy a question! What is the difference between just ordinary prayer and a “prayer of faith”?
 
-As we consider that question, the difference is immediately apparent. The difference is *faith,* and what *is* faith? Of course, there are many definitions of faith, but one definition is “a strong belief plus *action.*” It is not perfect knowledge (as Alma explains in [[Alma 32.1|Alma 32]][[Alma 32.2|]][[Alma 32.3|]][[Alma 32.4|]][[Alma 32.5|]][[Alma 32.6|]][[Alma 32.7|]][[Alma 32.8|]][[Alma 32.9|]][[Alma 32.10|]][[Alma 32.11|]][[Alma 32.12|]][[Alma 32.13|]][[Alma 32.14|]][[Alma 32.15|]][[Alma 32.16|]][[Alma 32.17|]][[Alma 32.18|]][[Alma 32.19|]][[Alma 32.20|]][[Alma 32.21|]][[Alma 32.22|]][[Alma 32.23|]][[Alma 32.24|]][[Alma 32.25|]][[Alma 32.26|]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]]), but real faith lets a man *act* as if he knows it is true when he really doesn’t.
+As we consider that question, the difference is immediately apparent. The difference is *faith,* and what *is* faith? Of course, there are many definitions of faith, but one definition is “a strong belief plus *action.*” It is not perfect knowledge (as Alma explains in [[Alma 32.1|Alma 32]]), but real faith lets a man *act* as if he knows it is true when he really doesn’t.
 
 Therefore, faith in a real sense is power—power to act and perform without actual knowledge. The Lord’s formula for receiving the Spirit, then, is to get on our knees and communicate with him. Tell him what we are going to do—make commitments with him—outline our program—and then get up off our knees and go and *do* precisely what we have told him we would do. In the *doing,* the Spirit comes.
 
@@ -117,8 +119,3 @@ Because the Lord Jesus Christ loved us, he died for us, and we accept his sacrif
 
 
 
-
-
-
-
-#Authority #Love #Obedience #Spirituality

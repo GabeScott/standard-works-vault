@@ -1,6 +1,5 @@
 # Silence, Silent
 
-
 *See also* [[Peace.md|Peace]]
 
 wicked shall be *silent* in darkness, [[1 Samuel 2.9|1 Samuel 2:9]].
@@ -47,6 +46,6 @@ opened the seventh seal, there was *silence* in heaven, [[Revelation 8.1|Revelat
 
 put the king-men to *silence*, [[Alma 51.7|Alma 51:7]].
 
-*silence* in the land for ... many hours, [[3 Nephi 10.1|3 Nephi 10:1]].
+*silence* in the land for … many hours, [[3 Nephi 10.1|3 Nephi 10:1]].
 
 Which causeth *silence* to reign, [[D&C 38.12|D&C 38:12]].

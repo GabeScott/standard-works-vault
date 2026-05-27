@@ -1,5 +1,7 @@
 # Take Up His Cross
 
+Thomas S. Monson
+
 By Elder Han In Sang - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -8,7 +10,7 @@ By Elder Han In Sang - *Of the Seventy*
 
 I feel deeply humble, and I sincerely pray for the Spirit and for support from the Lord.
 
-From the book of 3 Nephi we read: “Behold, I am a disciple of Jesus Christ, the Son of God. I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]).
+From the book of 3 Nephi we read: “Behold, I am a disciple of Jesus Christ, the Son of God. I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]).
 
 I came from Korea, traveling halfway around the world to bear my testimony of the truthfulness of the gospel of Jesus Christ. Korea has experienced wars. During my lifetime I have seen many tragic things, sadness, and changes. Yet I have also witnessed many miracles. My country of Korea is where I was born and where I have lived all my life. It is where my beloved ancestors, including my dear father and mother and the parents of my grandparents, are buried.
 
@@ -48,7 +50,7 @@ When we left our home in Korea last fall, many of our brothers and sisters came 
 
 KimPo Airport—I know that place very well. I have gone there numerous times, primarily to bring visitors in and to accompany guests out. Each time I visited KimPo Airport I would say to myself or to my wife: “Not me! Never! I will do their errands for them. I will drive for them and translate for them and all the rest. But no, sir! I will stay home and be a good Gospel Doctrine class teacher in Sunday School!” Thus, the Lord heard my selfish whispering.
 
-Elder Maxwell, you taught us about the reality of the costs of discipleship. Further, you said, “They can be paid neither at wholesale rates nor in one lump sum” (*Men and Women of Christ* \[Salt Lake City: Bookcraft, 1991\], p. 24).
+Elder Maxwell, you taught us about the reality of the costs of discipleship. Further, you said, “They can be paid neither at wholesale rates nor in one lump sum” (*Men and Women of Christ* \[Salt Lake City: Bookcraft, 1991\], p. 24).
 
 I had to learn the lesson very quickly, and I am grateful for the counsel and encouragement of the message.
 
@@ -71,8 +73,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Discipleship #Gratitude #Sacrifice

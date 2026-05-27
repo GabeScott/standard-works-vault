@@ -1,5 +1,7 @@
 # An Ensign to the Nations
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -50,7 +52,7 @@ Each of us has a small field to cultivate. While so doing, we must never lose si
 
 So it is with us in our service in the kingdom of God. Many small efforts and little acts become the cumulative pattern of a great worldwide organization.
 
-On March 26, 1907, the First Presidency issued a proclamation to the world in response to hateful criticism charging the Church and its leaders with selfish interests and narrow bigotry. The First Presidency responded: “Our motives are not selfish; our purposes not petty and earth-bound; we contemplate the human race—past, present, and yet to come—as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now, and forever.” (*Improvement Era,* May 1907, p. 495.)
+On March 26, 1907, the First Presidency issued a proclamation to the world in response to hateful criticism charging the Church and its leaders with selfish interests and narrow bigotry. The First Presidency responded: “Our motives are not selfish; our purposes not petty and earth-bound; we contemplate the human race—past, present, and yet to come—as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now, and forever.” (*Improvement Era,* May 1907, p. 495.)
 
 We serve as teachers in quorums and auxiliary organizations; we serve as missionaries at home and abroad; we serve as researchers in family history and as temple workers—hopefully each with diligence in our little corner. And from all of this there emerges a remarkable and wonderful pattern, a phenomenon grand in its comprehensiveness, as broad as the earth and encompassing all of the generations of men.
 
@@ -62,11 +64,11 @@ Under its present organization it has been moving forward for only a little more
 
 When President Young and his brethren stood atop the peak to the north of us and spoke of an ensign to the nations, they soon put in place a program to implement it, and this notwithstanding the circumstances in which they found themselves. In August of 1852, only five years later, a special conference was held in the old tabernacle on this square. President Heber C. Kimball opened by saying:
 
-“We have come together today, according to previous appointment, to hold a special conference to transact business, a month earlier than usual, inasmuch as there are elders to be selected to go to the missions of the earth, and they want an earlier start than formerly. …
+“We have come together today, according to previous appointment, to hold a special conference to transact business, a month earlier than usual, inasmuch as there are elders to be selected to go to the missions of the earth, and they want an earlier start than formerly. …
 
 “The missions we will call for during this conference are, generally, not to be very long ones; probably from three to seven years will be as long as any man will be absent from his family.”
 
-The clerk then read ninety-eight names of individuals who had been proposed for foreign missions. (*Joseph I. Earl Family History,* p. 1.)
+The clerk then read ninety-eight names of individuals who had been proposed for foreign missions. (*Joseph I. Earl Family History,* p. 1.)
 
 To me it is a thing of wonder that at a time when our people were struggling to gain a foothold in these mountains, they put the spread of the gospel ahead of comfort, security, the well-being of their families, and all other considerations. Across the broad prairie between the mountains of the West and the Missouri and Mississippi rivers there were two bodies of Latter-day Saints moving in opposite directions. Missionaries traveling to the eastern states and Europe passed converts gathering from those lands to the Zion of the West. There was likewise a movement to the West Coast and across the Pacific, with elders going to Hawaii, even to Hong Kong, China, Siam, Ceylon, and India. This was all part of this grand vision of an ensign to the nations. It has gone on ever since, and it goes on today at an accelerated pace. In a hundred nations missionaries of the Church are teaching the doctrines of salvation.
 
@@ -113,8 +115,3 @@ While grubbing the sagebrush of these western valleys to lay the foundations for
 
 
 
-
-
-
-
-#Commitment #Example #Missionary_Work #Plan_Of_Salvation #Responsibility

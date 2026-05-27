@@ -1,5 +1,7 @@
 # Find the Lambs, Feed the Sheep
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1999 General Conference*
@@ -52,7 +54,7 @@ Last year there were approximately 300,000 convert baptisms throughout the Churc
 
 The full-time missionaries may do the actual teaching, but the member, wherever possible, will back up that teaching with the offering of his home to carry on this missionary service. He will bear sincere testimony of the divinity of the work. He will be there to answer questions when the missionaries are not around. He will be a friend to the convert who is making a big and often difficult change.
 
-The gospel is nothing to be ashamed of. It is something to be proud of. “Be not thou therefore ashamed of the testimony of our Lord,” wrote Paul to Timothy ([[2 Timothy 1.8|2 Tim. 1:8]]). Opportunities for sharing the gospel are everywhere.
+The gospel is nothing to be ashamed of. It is something to be proud of. “Be not thou therefore ashamed of the testimony of our Lord,” wrote Paul to Timothy ([[2 Timothy 1.8|2 Tim. 1:8]]). Opportunities for sharing the gospel are everywhere.
 
 Dr. William Ghormley served as president of the stake in Corpus Christi, Texas. He bought his gasoline at a particular station. Each time he filled his tank he would leave a piece of Church literature with the station owner. It might have been a tract or a Church magazine or the *Church News,* but he never went there without leaving something. The man who ran the station was converted by the power of the Spirit as he read that literature. When last I checked, he was serving as a bishop.
 
@@ -181,5 +183,3 @@ This is God’s holy work. This is His Church and kingdom. The vision that occur
 
 
 
-
-#Activation #Fellowshipping #Missionary_Work

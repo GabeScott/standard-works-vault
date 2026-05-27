@@ -1,6 +1,8 @@
 # Think Celestial!
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+David A. Bednar
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -8,7 +10,7 @@ By President Russell M. Nelson - *President of The Church of Jesus Christ of La
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/51nelson?lang=eng)
 
-My dear brothers and sisters, I am deeply grateful to speak with you today. At my age, each new day brings wonderful as well as challenging surprises. Three weeks ago, I injured the muscles of my back. So, while I have delivered more than 100 general conference addresses standing, today I thought I would do so sitting. I pray that the Spirit will carry my message into your hearts today.
+My dear brothers and sisters, I am deeply grateful to speak with you today. At my age, each new day brings wonderful as well as challenging surprises. Three weeks ago, I injured the muscles of my back. So, while I have delivered more than 100 general conference addresses standing, today I thought I would do so sitting. I pray that the Spirit will carry my message into your hearts today.
 
 I recently celebrated my 99th birthday and thus commenced my 100th year of living. I am often asked the secret to living so long. A better question would be “What have I learned in nearly a century of living?”
 
@@ -64,7 +66,7 @@ Choosing to live a virtuous life in a sexualized, politicized world builds faith
 
 Spending more time in the temple builds faith. And your service and worship in the temple will help you to think celestial. The temple is a place of revelation. There you are shown how to progress toward a celestial life. There you are drawn closer to the Savior and given greater access to His power. There you are guided in solving the problems in your life, even your most perplexing problems.
 
-The ordinances and covenants of the temple are of eternal significance. We continue to build more temples to make these sacred possibilities become a reality in each of your lives. We are grateful to announce our plans to build a temple in each of the following 20 locations:
+The ordinances and covenants of the temple are of eternal significance. We continue to build more temples to make these sacred possibilities become a reality in each of your lives. We are grateful to announce our plans to build a temple in each of the following 20 locations:
 
 - Savai’i, Samoa
 
@@ -119,23 +121,23 @@ The Lord is directing us to build these temples to help us think celestial. God 
 
 [^4]: [[D&C 19.18|Doctrine and Covenants 19:18]].
 
-[^5]: [[2 Nephi 9.40|2 Nephi 9:40]].
+[^5]: [[2 Nephi 9.40|2 Nephi 9:40]].
 
-[^6]: [[2 Nephi 28.7|2 Nephi 28:7]].
+[^6]: [[2 Nephi 28.7|2 Nephi 28:7]].
 
 [^7]: It may prove to be easier to repent and progress spiritually here, while our spirit is united with our body, than in the next world between the time we die and are resurrected. As Amulek taught the apostate Zoramites, “This life is the time … to prepare to meet God” (see [[Alma 34.32|Alma 34:32–35]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]]).
 
-[^8]: [[2 Nephi 9.39|2 Nephi 9:39]].
+[^8]: [[2 Nephi 9.39|2 Nephi 9:39]].
 
-[^9]: See [[Mosiah 4.30|Mosiah 4:30]], where King Benjamin admonishes his people, “If ye do not watch yourselves, and your thoughts, and your words, and your deeds, and observe the commandments of God, and continue in the faith … , ye must perish.”
+[^9]: See [[Mosiah 4.30|Mosiah 4:30]], where King Benjamin admonishes his people, “If ye do not watch yourselves, and your thoughts, and your words, and your deeds, and observe the commandments of God, and continue in the faith … , ye must perish.”
 
 [^10]: [[D&C 132.7|Doctrine and Covenants 132:7]]; emphasis added.
 
-[^11]: Of course, your agency cannot override another’s agency and the attendant consequences. I was desperate to be sealed to my parents. However, I had to wait until *they* chose to be endowed, when they were more than 80 years of age. Then they were sealed as husband and wife, and we children were sealed to them.
+[^11]: Of course, your agency cannot override another’s agency and the attendant consequences. I was desperate to be sealed to my parents. However, I had to wait until *they* chose to be endowed, when they were more than 80 years of age. Then they were sealed as husband and wife, and we children were sealed to them.
 
-[^12]: The scriptures repeatedly testify that the gift of eternal life is only possible through the merits, mercy, and grace of the Savior Jesus Christ (see, for example, [[Moroni 7.41|Moroni 7:41]]; see also [[2 Nephi 2.6|2 Nephi 2:6–8, 27]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.27|]]).
+[^12]: The scriptures repeatedly testify that the gift of eternal life is only possible through the merits, mercy, and grace of the Savior Jesus Christ (see, for example, [[Moroni 7.41|Moroni 7:41]]; see also [[2 Nephi 2.6|2 Nephi 2:6–8, 27]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.27|]]).
 
-[^13]: See [[2 Nephi 2.11|2 Nephi 2:11]].
+[^13]: See [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^14]: See [[D&C 122.7|Doctrine and Covenants 122:7]].
 
@@ -143,13 +145,11 @@ The Lord is directing us to build these temples to help us think celestial. God 
 
 [^16]: See [[Isaiah 1.16|Isaiah 1:16–18]][[Isaiah 1.17|]][[Isaiah 1.18|]]; [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]].
 
-[^17]: [[1 Timothy 4.1|1 Timothy 4:1]]. The next verse continues, “Speaking lies in hypocrisy; having their conscience seared with a hot iron” ([[1 Timothy 4.2|verse 2]]). Paul also declared that all who “live godly in Christ Jesus shall suffer persecution” ([[2 Timothy 3.12|2 Timothy 3:12]]).
+[^17]: [[1 Timothy 4.1|1 Timothy 4:1]]. The next verse continues, “Speaking lies in hypocrisy; having their conscience seared with a hot iron” ([[1 Timothy 4.2|verse 2]]). Paul also declared that all who “live godly in Christ Jesus shall suffer persecution” ([[2 Timothy 3.12|2 Timothy 3:12]]).
 
-[^18]: [[2 Nephi 32.5|2 Nephi 32:5]]; emphasis added. If we will ask, we may “receive revelation upon revelation, knowledge upon knowledge” ([[D&C 42.61|Doctrine and Covenants 42:61]]).
+[^18]: [[2 Nephi 32.5|2 Nephi 32:5]]; emphasis added. If we will ask, we may “receive revelation upon revelation, knowledge upon knowledge” ([[D&C 42.61|Doctrine and Covenants 42:61]]).
 
-[^19]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^19]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
+[^20]: This is not to imply a cause-and-effect relationship. Some who never pay tithing attain professional opportunities, while some who pay tithing do not. The promise is that the windows of heaven *will be* opened to the tithe payer. The nature of the blessings will vary.
 
-
-
-#Adversity #Agency #Atonement #Faith #Jesus_Christ #Obedience #Plan_Of_Salvation #Sexual_Purity #Temples #Tithing

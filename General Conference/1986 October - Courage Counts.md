@@ -1,5 +1,7 @@
 # Courage Counts
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1986 General Conference*
@@ -32,11 +34,11 @@ The prophet Daniel demonstrated supreme courage by standing up for what he knew 
 
 Courage characterized the life of Abinadi, as shown in the Book of Mormon by his willingness to offer his life rather than to deny the truth (see [[Mosiah 11.20|Mosiah 11:20]]; [[Mosiah 17.20|17:20]]).
 
-Who can help but be inspired by the lives of the two thousand stripling sons of Helaman who taught and demonstrated the need of courage to follow the teachings of parents, the courage to be chaste and pure? (see [[Alma 56.1|Alma 56]][[Alma 56.2|]][[Alma 56.3|]][[Alma 56.4|]][[Alma 56.5|]][[Alma 56.6|]][[Alma 56.7|]][[Alma 56.8|]][[Alma 56.9|]][[Alma 56.10|]][[Alma 56.11|]][[Alma 56.12|]][[Alma 56.13|]][[Alma 56.14|]][[Alma 56.15|]][[Alma 56.16|]][[Alma 56.17|]][[Alma 56.18|]][[Alma 56.19|]][[Alma 56.20|]][[Alma 56.21|]][[Alma 56.22|]][[Alma 56.23|]][[Alma 56.24|]][[Alma 56.25|]][[Alma 56.26|]][[Alma 56.27|]][[Alma 56.28|]][[Alma 56.29|]][[Alma 56.30|]][[Alma 56.31|]][[Alma 56.32|]][[Alma 56.33|]][[Alma 56.34|]][[Alma 56.35|]][[Alma 56.36|]][[Alma 56.37|]][[Alma 56.38|]][[Alma 56.39|]][[Alma 56.40|]][[Alma 56.41|]][[Alma 56.42|]][[Alma 56.43|]][[Alma 56.44|]][[Alma 56.45|]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]][[Alma 56.49|]][[Alma 56.50|]][[Alma 56.51|]][[Alma 56.52|]][[Alma 56.53|]][[Alma 56.54|]][[Alma 56.55|]][[Alma 56.56|]][[Alma 56.57|]]).
+Who can help but be inspired by the lives of the two thousand stripling sons of Helaman who taught and demonstrated the need of courage to follow the teachings of parents, the courage to be chaste and pure? (see [[Alma 56.1|Alma 56]]).
 
-Perhaps each of these accounts is crowned by the example of Moroni, who had the courage to persevere to the end in righteousness (see [[Moroni 1.1|Moro. 1–10]][[Moroni 1.2|]][[Moroni 1.3|]][[Moroni 1.4|]]).
+Perhaps each of these accounts is crowned by the example of Moroni, who had the courage to persevere to the end in righteousness (see [[Moroni 1.1|Moro. 1–10]]).
 
-All were fortified by the words of Moses: “Be strong and of a good courage, fear not, nor be afraid … : for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee” ([[Deuteronomy 31.6|Deut. 31:6]]). He did not fail them. He will not fail us. He did not forsake them. He will not forsake us.
+All were fortified by the words of Moses: “Be strong and of a good courage, fear not, nor be afraid … : for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee” ([[Deuteronomy 31.6|Deut. 31:6]]). He did not fail them. He will not fail us. He did not forsake them. He will not forsake us.
 
 It was this knowledge that prompted the courage of Columbus—the quiet resolve to record in his ship’s log again and again: “This day we sailed on.” It was this witness that motivated the Prophet Joseph to declare, “I am going like a lamb to the slaughter; but I am calm as a summer’s morning” ([[D&C 135.4|D&C 135:4]]).
 
@@ -71,8 +73,3 @@ My brethren, let us be active participants—not mere spectators—on the stage 
 
 
 
-
-
-
-
-#Courage #Endurance #Faith #Prayer

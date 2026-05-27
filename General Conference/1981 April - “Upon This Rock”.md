@@ -1,6 +1,8 @@
 # “Upon This Rock”
 
-By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
+Marion G. Romney
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -26,7 +28,7 @@ We live in the midst of a swirling storm of sin. The rains of evil and the winds
 
 It is within our power to build a house of faith, a house of righteousness, a house of salvation.
 
-We can, if we will, even build a house of God, a holy sanctuary, a temple of the living God. Indeed, every Latter-day Saint who is true and faithful has built for himself a “temple of God” in which “the Spirit of God dwelleth.” And as Paul says: “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
+We can, if we will, even build a house of God, a holy sanctuary, a temple of the living God. Indeed, every Latter-day Saint who is true and faithful has built for himself a “temple of God” in which “the Spirit of God dwelleth.” And as Paul says: “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
 
 If our house is built upon a rock with the brick and mortar of good works, it will withstand the storms and perils of life and preserve us for an eternal inheritance hereafter. If it is built upon the sands of evil with the rusty nails and rotting timber of carnal things, it will be destroyed when the rains and the winds and the floods beat upon it.
 
@@ -46,7 +48,7 @@ Then comes the question to which every living soul must give proper answer if he
 
 On this occasion, first Simon Peter, then all the rest acclaims: “Thou art the Christ, the Son of the living God.” ([[Matthew 16.16|Matt. 16:16]].) Thou art the Promised Messiah; thou art the Only Begotten in the flesh; God is thy Father!
 
-What a wondrous, awesome thing this is. As Paul said, “Great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory.” ([[1 Timothy 3.16|1 Tim. 3:16]].)
+What a wondrous, awesome thing this is. As Paul said, “Great is the mystery of godliness: God was manifest in the flesh, justified in the Spirit, seen of angels, preached unto the Gentiles, believed on in the world, received up into glory.” ([[1 Timothy 3.16|1 Tim. 3:16]].)
 
 And now near the foot of that mountain in which he will soon be transfigured, the Son of Man, whose Father is divine, accepts and approves the solemn testimonies of his friends.
 
@@ -70,9 +72,9 @@ And how could it be otherwise? There is no other foundation upon which the Lord 
 
 All this is the rock, and yet there is more. *Christ is the Rock:* the Rock of Ages, the Stone of Israel, the Sure Foundation—the Lord is our Rock!
 
-Again we hear Paul’s voice: “Other foundation can no man lay than that is laid, which is Jesus Christ.” ([[1 Corinthians 3.11|1 Cor. 3:11]].) And also: Ye “are built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone.” ([[Ephesians 2.20|Eph. 2:20]].)
+Again we hear Paul’s voice: “Other foundation can no man lay than that is laid, which is Jesus Christ.” ([[1 Corinthians 3.11|1 Cor. 3:11]].) And also: Ye “are built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone.” ([[Ephesians 2.20|Eph. 2:20]].)
 
-As we ponder all these things, and as their full meaning dawns upon us, we hear anew the exhortation of our ancient Apostolic friend which says, “Examine yourselves, whether ye be in the faith; prove your own selves.” ([[2 Corinthians 13.5|2 Cor. 13:5]].) And so we ask ourselves: Shall the gates of hell prevail against us?
+As we ponder all these things, and as their full meaning dawns upon us, we hear anew the exhortation of our ancient Apostolic friend which says, “Examine yourselves, whether ye be in the faith; prove your own selves.” ([[2 Corinthians 13.5|2 Cor. 13:5]].) And so we ask ourselves: Shall the gates of hell prevail against us?
 
 If we build our house of salvation on the rock of personal revelation, if we build it on the revealed reality that Jesus is the Lord, if we build it on him who is the Eternal Rock—it will stand forever.
 
@@ -86,7 +88,7 @@ If we are founded upon a rock, we forsake the world, flee from carnal things, an
 
 If we are founded upon a rock, the gates of hell shall not prevail against us. As long as we remain in our house of faith, we shall be preserved when the rains of evil fall, when the winds of false doctrine blow, and when the floods of carnality beat upon us.
 
-Thanks be to God that we, as Latter-day Saints, are founded upon a rock. And so it is that the faithful among us hear a calm voice of quiet certainty saying: “If ye shall build up my church, upon the foundation of my gospel and my rock, the gates of hell shall not prevail against you. …
+Thanks be to God that we, as Latter-day Saints, are founded upon a rock. And so it is that the faithful among us hear a calm voice of quiet certainty saying: “If ye shall build up my church, upon the foundation of my gospel and my rock, the gates of hell shall not prevail against you. …
 
 “Behold, you have my gospel before you, and my rock, and my salvation.” ([[D&C 18.5|D&C 18:5, 17]][[D&C 18.17|]].)
 
@@ -94,13 +96,8 @@ And so we testify with Peter and with the ancients that we know, as they knew, t
 
 God grant that we may be true to Him by whose name alone salvation comes. He is our Friend, our Lord, our King, our God, and our Rock.
 
-And may I add, speaking as an Apostle of the Lord, Jesus Christ, that mingled and intertwined with this testimony which we bear and which was borne by the ancients—and I speak for myself and for my Brethren of the Twelve—that we know that God has in these last days restored again the fulness of his everlasting gospel for the salvation of all men on earth who will believe and obey; and that he has called Joseph Smith, Jr., to be his latter-day prophet, to be the first and chief Apostle in the dispensation of the fulness of times, and has given him every key and priesthood and power that Peter and the Apostles and the ancient prophets held in the days of their ministry; and that these keys and this holy Apostleship have descended in this manner: Joseph Smith, Brigham Young, John Taylor, Wilford Woodruff, Lorenzo Snow, Joseph F. Smith, Heber J. Grant, George Albert Smith, David O. McKay, Joseph Fielding Smith, Harold B. Lee, and Spencer W. Kimball; and that this holy Apostleship and these keys will continue to descend from one Apostle to another until the Lord Jesus Christ comes in the clouds of heaven to reign personally upon the earth. And this I say not of myself, but in the name of the Lord, standing as his representative and saying what he would say if he personally were here. His is the only name given under heaven whereby salvation comes, and we are his ministers. In the name of the Lord Jesus Christ, amen.
+And may I add, speaking as an Apostle of the Lord, Jesus Christ, that mingled and intertwined with this testimony which we bear and which was borne by the ancients—and I speak for myself and for my Brethren of the Twelve—that we know that God has in these last days restored again the fulness of his everlasting gospel for the salvation of all men on earth who will believe and obey; and that he has called Joseph Smith, Jr., to be his latter-day prophet, to be the first and chief Apostle in the dispensation of the fulness of times, and has given him every key and priesthood and power that Peter and the Apostles and the ancient prophets held in the days of their ministry; and that these keys and this holy Apostleship have descended in this manner: Joseph Smith, Brigham Young, John Taylor, Wilford Woodruff, Lorenzo Snow, Joseph F. Smith, Heber J. Grant, George Albert Smith, David O. McKay, Joseph Fielding Smith, Harold B. Lee, and Spencer W. Kimball; and that this holy Apostleship and these keys will continue to descend from one Apostle to another until the Lord Jesus Christ comes in the clouds of heaven to reign personally upon the earth. And this I say not of myself, but in the name of the Lord, standing as his representative and saying what he would say if he personally were here. His is the only name given under heaven whereby salvation comes, and we are his ministers. In the name of the Lord Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Jesus_Christ

@@ -1,5 +1,7 @@
 # The Miracle Made Possible by Faith
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1984 General Conference*
@@ -75,8 +77,3 @@ But the work has gone forward. The Church has never taken a backward step since 
 
 
 
-
-
-
-
-#Church_Growth

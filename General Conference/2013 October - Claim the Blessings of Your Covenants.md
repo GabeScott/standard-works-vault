@@ -1,6 +1,8 @@
 # Claim the Blessings of Your Covenants
 
-By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
+Thomas S. Monson
+
+By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -10,7 +12,7 @@ By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency
 
 Sisters, how wonderful it is to be with you again.
 
-I recently met a woman who was preparing to be baptized. This particular Sunday she arrived at church having walked two miles (3 km) in heavy mud. She immediately went into the restroom, removed her muddy clothes, washed, and put on clean Sunday clothes. In the Relief Society meeting she told of her conversion. I was touched by her overwhelming desire to be washed clean and pure through repentance and the atoning sacrifice of the Savior and her willingness to give up her “old life” in order to make sacred covenants with our Father in Heaven. She had separated from her boyfriend, was overcoming addictions in order to live the Word of Wisdom, quit her Sunday job, and lost the friendship of loved ones when she announced her plans to be baptized. She was so anxious to give away all of her sins that she might be washed clean and feel the redeeming love of the Savior. I was inspired that morning by her desire to become both physically and spiritually clean.
+I recently met a woman who was preparing to be baptized. This particular Sunday she arrived at church having walked two miles (3 km) in heavy mud. She immediately went into the restroom, removed her muddy clothes, washed, and put on clean Sunday clothes. In the Relief Society meeting she told of her conversion. I was touched by her overwhelming desire to be washed clean and pure through repentance and the atoning sacrifice of the Savior and her willingness to give up her “old life” in order to make sacred covenants with our Father in Heaven. She had separated from her boyfriend, was overcoming addictions in order to live the Word of Wisdom, quit her Sunday job, and lost the friendship of loved ones when she announced her plans to be baptized. She was so anxious to give away all of her sins that she might be washed clean and feel the redeeming love of the Savior. I was inspired that morning by her desire to become both physically and spiritually clean.
 
 We know that many of you have made similar sacrifices as you have felt the witness of the Holy Ghost and have longed to repent, be baptized, and be made clean. Perhaps at no other time do we feel the divine love of the Savior as abundantly as we do when we repent and feel His loving arms outstretched to embrace us and assure us of His love and acceptance.
 
@@ -18,7 +20,7 @@ A few Sundays ago as I listened to the sacrament prayer, I was moved by the way 
 
 Another mother I know of has sat alone at church for a number of years with her four young children. Seldom able to concentrate on the Savior during the sacrament, she formed a plan. Now she tries to spend time each Saturday reviewing her week and thinking about her covenants and what she needs to repent of. “Then,” she says, “no matter what kind of an experience I have with my children on Sunday, I am prepared to partake of the sacrament, renew my covenants, and feel of the cleansing power of the Atonement.”
 
-Why does the Savior put so much importance upon the sacrament, dear sisters? What importance does this weekly renewal of our baptismal covenants play in our lives? Do we recognize the ability of the Savior to completely cleanse us every week as we worthily and thoughtfully partake of the sacrament? President Boyd K. Packer has testified, “That is the promise of the gospel of Jesus Christ and the Atonement: … that at the end of \[our lives, we\] can go through the veil having repented of \[our\] sins and having been washed clean through the blood of Christ.”[^1]
+Why does the Savior put so much importance upon the sacrament, dear sisters? What importance does this weekly renewal of our baptismal covenants play in our lives? Do we recognize the ability of the Savior to completely cleanse us every week as we worthily and thoughtfully partake of the sacrament? President Boyd K. Packer has testified, “That is the promise of the gospel of Jesus Christ and the Atonement: … that at the end of \[our lives, we\] can go through the veil having repented of \[our\] sins and having been washed clean through the blood of Christ.”[^1]
 
 Our presidency feels great joy as our sisters and their families make and keep covenants, but our hearts ache for those of you who are experiencing great adversity in your lives because of the covenant-breaking of loved ones. The prophet Jacob, brother to Nephi, was charged by the Lord to speak to his brethren concerning the righteous women and children of his day. I testify that his words have been preserved specifically for our day. He speaks to us as if the Savior Himself were speaking. Jacob was “weighed down with much … anxiety” as he testified to husbands and fathers:
 
@@ -36,7 +38,7 @@ Sisters, I testify of the strength and power of prayer as we express our deepest
 
 Almost three years ago a devastating fire gutted the interior of the beloved, historic tabernacle in Provo, Utah. Its loss was deemed a great tragedy by both the community and Church members. Many wondered, “Why did the Lord let this happen? Surely He could have prevented the fire or stopped its destruction.”
 
-Ten months later, during the October 2011 general conference, there was an audible gasp when President Thomas S. Monson announced that the nearly destroyed tabernacle was to become a holy temple—a house of the Lord! Suddenly we could see what the Lord had always known! He didn’t cause the fire, but He allowed the fire to strip away the interior. He saw the tabernacle as a magnificent temple—a permanent home for making sacred, eternal covenants.[^4]
+Ten months later, during the October 2011 general conference, there was an audible gasp when President Thomas S. Monson announced that the nearly destroyed tabernacle was to become a holy temple—a house of the Lord! Suddenly we could see what the Lord had always known! He didn’t cause the fire, but He allowed the fire to strip away the interior. He saw the tabernacle as a magnificent temple—a permanent home for making sacred, eternal covenants.[^4]
 
 My dear sisters, the Lord allows us to be tried and tested, sometimes to our maximum capacity. We have seen the lives of loved ones—and maybe our own—figuratively burned to the ground and have wondered why a loving and caring Heavenly Father would allow such things to happen. But He does not leave us in the ashes; He stands with open arms, eagerly inviting us to come to Him. He is building our lives into magnificent temples where His Spirit can dwell eternally.
 
@@ -59,7 +61,7 @@ I testify that Jesus Christ is our Savior and Redeemer. Because of His atoning s
 
 
 
-[^1]: Boyd K. Packer, “The Atonement,” *Ensign* or *Liahona,* Nov. 2012, 77.
+[^1]: Boyd K. Packer, “The Atonement,” *Ensign* or *Liahona,* Nov. 2012, 77.
 
 [^2]: [[Jacob 2.3|Jacob 2:3, 7, 35]][[Jacob 2.7|]][[Jacob 2.35|]].
 
@@ -69,7 +71,5 @@ I testify that Jesus Christ is our Savior and Redeemer. Because of His atoning s
 
 [^5]: See [[D&C 82.10|Doctrine and Covenants 82:10]].
 
+[^6]: See Russell M. Nelson, [“Divine Love,”](https://www.churchofjesuschrist.org/study/ensign/2003/02/divine-love?lang=eng) *Ensign,* Feb. 2003, 20–25; *Liahona,* Feb. 2003, 12–17.
 
-
-
-#Adversity #Covenants #Repentance #Sacrament

@@ -1,5 +1,7 @@
 # Children
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -50,7 +52,7 @@ Among the strongest warnings and the severest penalties in the revelations are t
 
 In the days of the prophet Mormon, some who did not understand that little children are “blameless before God” ([[Mosiah 3.21|Mosiah 3:21]]) and are “alive in Christ” ([[Moroni 8.12|Moro. 8:12]]) wanted to baptize little children. Mormon said they “\[denied\] the mercies of Christ, and \[set\] at naught the atonement of him and the power of his redemption” ([[Moroni 8.20|Moro. 8:20]]).
 
-Mormon sternly rebuked them, saying: “He that supposeth that little children need baptism is in the gall of bitterness and in the bonds of iniquity; for he hath neither faith, hope, nor charity; wherefore, should he be cut off while in the thought, he must go down to hell. …
+Mormon sternly rebuked them, saying: “He that supposeth that little children need baptism is in the gall of bitterness and in the bonds of iniquity; for he hath neither faith, hope, nor charity; wherefore, should he be cut off while in the thought, he must go down to hell. …
 
 “Behold, I speak with boldness, having authority from God” ([[Moroni 8.14|Moro. 8:14, 16]][[Moroni 8.16|]]).
 
@@ -76,11 +78,11 @@ It was then we noticed marching behind him two stalwart young men who stepped fo
 
 Those who come into the Church come as children spiritually. They need someone—some friend—to lift them up.
 
-If we design the steps after baptism to fit only those who have long, strong legs, we ignore what the Lord said in the revelations. The prophets have told us that we “ought to be teachers, \[and teach that\] which be the first principles of the oracles of God; \[for they are\] such as have need of milk, and not of strong meat. …
+If we design the steps after baptism to fit only those who have long, strong legs, we ignore what the Lord said in the revelations. The prophets have told us that we “ought to be teachers, \[and teach that\] which be the first principles of the oracles of God; \[for they are\] such as have need of milk, and not of strong meat. …
 
-“… Strong meat belongeth to them that are of full age, even those who by reason of use have their senses exercised to discern both good and evil” ([[Hebrews 5.12|Heb. 5:12, 14]][[Hebrews 5.14|]]).
+“… Strong meat belongeth to them that are of full age, even those who by reason of use have their senses exercised to discern both good and evil” ([[Hebrews 5.12|Heb. 5:12, 14]][[Hebrews 5.14|]]).
 
-The Apostle Paul wrote, “I have fed you with milk, and not with meat: for hitherto ye were not able to bear it, neither yet now are ye able” ([[1 Corinthians 3.2|1 Cor. 3:2]]).
+The Apostle Paul wrote, “I have fed you with milk, and not with meat: for hitherto ye were not able to bear it, neither yet now are ye able” ([[1 Corinthians 3.2|1 Cor. 3:2]]).
 
 In a revelation given in 1830, just before the Church was organized, the Lord cautioned, “They cannot bear meat now, but milk they must receive; wherefore, they must not know these things, lest they perish” ([[D&C 19.22|D&C 19:22]]).
 
@@ -88,7 +90,7 @@ We must be careful lest we make that first step too high or design it for those 
 
 When some disciples rebuked those who brought little children, “Jesus said, Suffer little children, \[*suffer* means to permit\] and forbid them not, to come unto me: for of such is the kingdom of heaven” ([[Matthew 19.14|Matt. 19:14]]).
 
-When His disciples asked what kind of men they ought to be, Jesus set a little child in their midst (see [[Matthew 18.2|Matt. 18:2–3]][[Matthew 18.3|]]). Except we “become as a little child, \[we\] can in nowise inherit the kingdom of God” ([[3 Nephi 11.38|3 Ne. 11:38]]).
+When His disciples asked what kind of men they ought to be, Jesus set a little child in their midst (see [[Matthew 18.2|Matt. 18:2–3]][[Matthew 18.3|]]). Except we “become as a little child, \[we\] can in nowise inherit the kingdom of God” ([[3 Nephi 11.38|3 Ne. 11:38]]).
 
 A deep concern for children and their parents is in my mind and heart and soul.
 
@@ -111,8 +113,3 @@ I bear witness that the gospel is true, and the power of it is to bless little c
 
 
 
-
-
-
-
-#Children #Love #Safety #Teaching

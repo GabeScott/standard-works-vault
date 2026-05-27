@@ -1,6 +1,5 @@
 # Goodly
 
-
 Joseph was a *goodly* person, [[Genesis 39.6|Genesis 39:6]].
 
 a *goodly* child, she hid him three months, [[Exodus 2.2|Exodus 2:2]].

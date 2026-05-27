@@ -1,6 +1,8 @@
 # The Bishop—Center Stage in Welfare
 
-By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -14,25 +16,25 @@ Today we might add, “and a good workout!” He continues:
 
 “A bishop then must be blameless … vigilant, sober, of good behaviour, given to hospitality, apt to teach;
 
-“… not greedy of filthy lucre; but patient. …
+“… not greedy of filthy lucre; but patient. …
 
-“Moreover he must have a good report of them which are without.” ([[1 Timothy 3.1|1 Tim. 3:1–3, 7]][[1 Timothy 3.2|]][[1 Timothy 3.3|]][[1 Timothy 3.7|]].)
+“Moreover he must have a good report of them which are without.” ([[1 Timothy 3.1|1 Tim. 3:1–3, 7]][[1 Timothy 3.2|]][[1 Timothy 3.3|]][[1 Timothy 3.7|]].)
 
 These words burned into my soul when I read them as a newly called bishop thirty years ago. I was young—just twenty-two. The ward was large, with over 1,050 members, 87 of whom were widows. The welfare load was the heaviest of any ward in the entire Church.
 
 The street addresses in that ward did not read like some: Colonial Hills Circle, Mountain View Estates, or Skyline Drive. Rather, they were noted as Orchard Place, Gale Street, Elford Court. The ward was not east of the tracks in Salt Lake City. It was not west of the tracks. That ward spanned the railroad tracks. Many of the widows and those in financial need were hidden away in basement apartments, upstairs back rooms, or dilapidated houses situated at the rear of little-known streets. I became the shepherd. This was my flock. I was reminded of God’s warning through Ezekiel: “Woe be to the shepherds of Israel that feed not my flock” (see [[Ezekiel 34.2|Ezek. 34:2–3]][[Ezekiel 34.3|]]).
 
-My teachers were heaven-sent. May I mention but a few: our former stake president, Harold B. Lee; President Marion G. Romney; and President J. Reuben Clark.
+My teachers were heaven-sent. May I mention but a few: our former stake president, Harold B. Lee; President Marion G. Romney; and President J. Reuben Clark.
 
 Brother Lee attended our stake conference the year I was appointed as a bishop. Looking over the priesthood leadership congregation on Saturday evening, he stepped from the pulpit, called for a chalkboard, came down from the stand, stood among us, and, as the master teacher, taught us our duty. He drew five circles under the heading “The Responsibilities of a Bishop.” He then gave to each circle a designation such as “The Father of the Ward,” “The President of the Aaronic Priesthood,” “The Common Judge in Israel,” and then placed emphasis on the bishop’s role in welfare. He cautioned us to seek after the poor, to care for them, and to do so in a spirit of love, kindness, and confidentiality.
 
-Brother Romney was a frequent visitor to our stake and region. One evening he taught us the principle of faith by retelling the inspiring account of Elijah and the widow at Zarephath (see [[1 Kings 17.8|1 Kgs. 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]]). He liken her circumstances to those of some widows in our area. As he taught welfare precepts from the handbook and responded to questions, one brother asked him, “Brother Romney, why do you seem to know whatever’s in that handbook?” to which Brother Romney, with that twinkle in his eye and smile upon his lips, responded, “I wrote it!”
+Brother Romney was a frequent visitor to our stake and region. One evening he taught us the principle of faith by retelling the inspiring account of Elijah and the widow at Zarephath (see [[1 Kings 17.8|1 Kgs. 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]]). He liken her circumstances to those of some widows in our area. As he taught welfare precepts from the handbook and responded to questions, one brother asked him, “Brother Romney, why do you seem to know whatever’s in that handbook?” to which Brother Romney, with that twinkle in his eye and smile upon his lips, responded, “I wrote it!”
 
 President Clark too was a master teacher. It was my privilege during those years to assist him in the preparation of his manuscripts that they might find their way into printed volumes. What a unique and profitable experience to be with him frequently. Knowing that I was a new bishop presiding over a difficult ward, he emphasized the need for me to know my people, to understand their circumstances, and, in the spirit of tenderness, to minister to their needs. One day he recounted the example of the Savior as recorded in [[Luke 7.11|Luke, chapter seven, verses eleven through fifteen]][[Luke 7.12|]][[Luke 7.13|]][[Luke 7.14|]][[Luke 7.15|]]:
 
-“And it came to pass … that he went into a city called Nain; and many of his disciples went with him. …
+“And it came to pass … that he went into a city called Nain; and many of his disciples went with him. …
 
-“When he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow. …
+“When he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow. …
 
 “And when the Lord saw her, he had compassion on her, and said unto her, Weep not.
 
@@ -56,7 +58,7 @@ Third, *processing.* Oh, the joy of harvest time! Picture the scene of ward memb
 
 Fourth, *storage.* The Lord in the revelations spoke frequently of his storehouses. On one occasion he counseled, “The storehouse shall be kept by the consecrations of the church; and widows and orphans shall be provided for, as also the poor” ([[D&C 83.6|D&C 83:6]]). I am happy that over the entrance to our storehouses are the words *Bishops’ Storehouse!* Those who labor therein are recommended and sent by their respective bishops. Within such buildings there is found an atmosphere of love, of respect, and, indeed, of reverence. I am inspired each time I visit such a storehouse. There is no steeple or spire, no carpeted floors or stained-glass windows, but here is found the spirit of the Lord.
 
-Fifth, *distribution.* This is where the bishop’s judgment is most severely tested. He cannot shirk this God-given responsibility. President J. Reuben Clark, Jr., summarized the bishop’s role in welfare services: He “is ‘to administer all temporal things’ … ; in his calling he is to ‘administer to the … poor and needy’; he is to search ‘after the poor to administer to their wants’ \[see [[D&C 107.68|D&C 107:68]]; [[D&C 42.34|42:34]]; [[D&C 84.112|84:112]]\]. …
+Fifth, *distribution.* This is where the bishop’s judgment is most severely tested. He cannot shirk this God-given responsibility. President J. Reuben Clark, Jr., summarized the bishop’s role in welfare services: He “is ‘to administer all temporal things’ … ; in his calling he is to ‘administer to the … poor and needy’; he is to search ‘after the poor to administer to their wants’ \[see [[D&C 107.68|D&C 107:68]]; [[D&C 42.34|42:34]]; [[D&C 84.112|84:112]]\]. …
 
 “Thus to the bishop is given all the powers, and responsibilities which the Lord has specifically prescribed in the Doctrine and Covenants for the caring of the poor. … No one else is charged with this duty and responsibility, no one else is endowed with the power and functions necessary for this work.
 
@@ -66,7 +68,7 @@ Fifth, *distribution.* This is where the bishop’s judgment is most severely te
 
 Every bishop needs a sacred grove to which he can retire to meditate and to pray for guidance. Mine was our old ward chapel. I could not begin to count the occasions when on a dark night at a late hour I would make my way to the stand of this building where I was blessed, confirmed, ordained, taught, and eventually called to preside. The chapel was dimly lighted by the street light in front; not a sound would be heard, no intruder to disturb. With my hand on the pulpit I would kneel and share with Him above my thoughts, my concerns, my problems.
 
-On one occasion, a year of drought, the commodities at the storehouse had not been their usual quality, nor had they been found in abundance. Many products were missing, especially fresh fruit. My prayer that night is sacred to me. I pleaded that these widows were the finest women I knew in mortality, that their needs were simple and conservative, that they had no resources on which they might rely. The next morning I received a call from a ward member, a proprietor of a produce business. “Bishop,” he said, “I would like to send a semitrailer filled with oranges, grapefruit, and bananas to the bishops’ storehouse to be given to those in need. Could you make arrangements?” Could I make arrangements! The storehouse was alerted. Then each bishop was telephoned and the entire shipment distributed. Bishop Jesse M. Drury, that beloved welfare pioneer and storekeeper, said he had never witnessed a day like it before. He described the occasion with one word—“Wonderful!”
+On one occasion, a year of drought, the commodities at the storehouse had not been their usual quality, nor had they been found in abundance. Many products were missing, especially fresh fruit. My prayer that night is sacred to me. I pleaded that these widows were the finest women I knew in mortality, that their needs were simple and conservative, that they had no resources on which they might rely. The next morning I received a call from a ward member, a proprietor of a produce business. “Bishop,” he said, “I would like to send a semitrailer filled with oranges, grapefruit, and bananas to the bishops’ storehouse to be given to those in need. Could you make arrangements?” Could I make arrangements! The storehouse was alerted. Then each bishop was telephoned and the entire shipment distributed. Bishop Jesse M. Drury, that beloved welfare pioneer and storekeeper, said he had never witnessed a day like it before. He described the occasion with one word—“Wonderful!”
 
 Other experiences may not be so dramatic but are nevertheless real and heartwarming. I recall an elderly couple whose frame home, situated at the end of a dirt lane, had not seen a coat of paint for too many years. These were neat and tidy people; they were concerned about the appearance of their small house. In a moment of inspiration I called, not upon the elders quorum or upon volunteers to wield paint brushes, but rather, following the welfare handbook, upon the family members who lived in other areas. Four sons-in-law and four daughters took brushes in hand and participated in the project. The paint had been provided by a dealer located in our area. The result was a transformation not only of the house but of the family. The children determined how they might best help mother and dad in their old age. They did so voluntarily and with gladness of heart. A house was painted, a family united, and respect preserved.
 
@@ -107,7 +109,7 @@ I responded with the words of the Master: “Inasmuch as ye have done it unto on
 >The dear Christ enters in.
 >
 
-The poet said, “God gave his children memory, that in life’s garden there might be June roses in December” (C. Anketall Studdert-Kennedy, “Roses in December,” in *The Best Loved Poems of the American People.* sel. Hazel Felleman, Garden City, N.Y.: Garden City Publishing Co., 1936, p. 363). In my garden of memories no rose is more beautiful or fragrant than the rose brought to bloom by my participation in the welfare effort.
+The poet said, “God gave his children memory, that in life’s garden there might be June roses in December” (C. Anketall Studdert-Kennedy, “Roses in December,” in *The Best Loved Poems of the American People.* sel. Hazel Felleman, Garden City, N.Y.: Garden City Publishing Co., 1936, p. 363). In my garden of memories no rose is more beautiful or fragrant than the rose brought to bloom by my participation in the welfare effort.
 
 May our Heavenly Father ever bless our bishops in their sacred welfare responsibilities. Such duties are God-given. They were authored in heaven to bless in our day those who stand in need.
 
@@ -116,8 +118,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Charity #Welfare

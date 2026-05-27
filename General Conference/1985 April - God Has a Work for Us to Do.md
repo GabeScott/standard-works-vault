@@ -1,5 +1,7 @@
 # God Has a Work for Us to Do
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1985 General Conference*
@@ -29,8 +31,3 @@ God bless you, my beloved associates, that his Holy Spirit may abide in your hea
 
 
 
-
-
-
-
-#Service

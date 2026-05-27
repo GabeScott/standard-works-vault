@@ -1,5 +1,7 @@
 # To Be Free of Heavy Burdens
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -8,7 +10,7 @@ By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2002/10/to-be-free-of-heavy-burdens?lang=eng)
 
-Many of you suffer needlessly from carrying heavy burdens because you do not open your hearts to the healing power of the Lord. May this message encourage you to feel the prompting of the Holy Ghost to make those changes that will lead you to be free of oppressive burdens. The Savior has promised, “I will … ease the burdens which are put upon your shoulders, that … you cannot feel them … ; and this will I do … that ye may know of a surety that I, the Lord God, do visit my people in their afflictions.”[^1] I will first speak to you who suffer because of your own wrong choices; then I will give suggestions for you that anguish for what others have done to you.
+Many of you suffer needlessly from carrying heavy burdens because you do not open your hearts to the healing power of the Lord. May this message encourage you to feel the prompting of the Holy Ghost to make those changes that will lead you to be free of oppressive burdens. The Savior has promised, “I will … ease the burdens which are put upon your shoulders, that … you cannot feel them … ; and this will I do … that ye may know of a surety that I, the Lord God, do visit my people in their afflictions.”[^1] I will first speak to you who suffer because of your own wrong choices; then I will give suggestions for you that anguish for what others have done to you.
 
 Seated across from me was a despondent man, head buried in hands, sobbing from the inevitable consequences of repeated violations of the commandments of God. He anguished: “I don’t know what to do. Everything is pressing in on me. I’m tired of running. There is no peace, no happiness. When I pray, no one is listening. What’s the use?”
 
@@ -40,7 +42,7 @@ Another vital aspect of repentance is to recognize the role of the Savior throug
 
 “I was … in the most bitter pain and anguish of soul; and never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But behold, I did cry unto him and I did find peace to my soul.
 
-“… I have told you this that ye may learn wisdom, that ye may learn … that there is no other way or means whereby man can be saved, only in and through Christ. Behold, he is the life and the light of the world.”[^7]
+“… I have told you this that ye may learn wisdom, that ye may learn … that there is no other way or means whereby man can be saved, only in and through Christ. Behold, he is the life and the light of the world.”[^7]
 
 You will be helped by studying the magnificent explanation of the need for repentance and how it can be obtained, as Alma counseled his wayward son, Corianton, in the Book of Mormon.[^8] Through trust in the plan of happiness and the capacity of the Savior to realize His promises, the darkness of sin can be swept away and the joy of a worthy life returned with the trust of loved ones, when earned the Lord’s way. Do not blame others for your mistakes. Humbly repent, for it is written, “He offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered.”[^9] Please, decide to repent—now.
 
@@ -75,17 +77,15 @@ In closing, if you have felt impressions to be free of burdens caused by yoursel
 
 [^7]: [[Alma 38.8|Alma 38:8–9]][[Alma 38.9|]].
 
-[^8]: See [[Alma 39.1|Alma 39–42]][[Alma 39.2|]][[Alma 39.3|]][[Alma 39.4|]][[Alma 39.5|]][[Alma 39.6|]][[Alma 39.7|]][[Alma 39.8|]][[Alma 39.9|]][[Alma 39.10|]][[Alma 39.11|]][[Alma 39.12|]][[Alma 39.13|]][[Alma 39.14|]][[Alma 39.15|]][[Alma 39.16|]][[Alma 39.17|]][[Alma 39.18|]][[Alma 39.19|]].
+[^8]: See [[Alma 39.1|Alma 39–42]].
 
-[^9]: [[2 Nephi 2.7|2 Nephi 2:7]]; see also [[Psalms 34.18|Psalm 34:18]].
+[^9]: [[2 Nephi 2.7|2 Nephi 2:7]]; see also [[Psalms 34.18|Psalm 34:18]].
 
-[^10]: [[D&C 64.9|D&C 64:9–10]][[D&C 64.10|]]; see also [[Mark 11.25|Mark 11:25–26]][[Mark 11.26|]]; [[Luke 6.37|Luke 6:37]]; [[Mosiah 26.29|Mosiah 26:29–32]][[Mosiah 26.30|]][[Mosiah 26.31|]][[Mosiah 26.32|]]; [[3 Nephi 13.14|3 Nephi 13:14–15]][[3 Nephi 13.15|]].
+[^10]: [[D&C 64.9|D&C 64:9–10]][[D&C 64.10|]]; see also [[Mark 11.25|Mark 11:25–26]][[Mark 11.26|]]; [[Luke 6.37|Luke 6:37]]; [[Mosiah 26.29|Mosiah 26:29–32]][[Mosiah 26.30|]][[Mosiah 26.31|]][[Mosiah 26.32|]]; [[3 Nephi 13.14|3 Nephi 13:14–15]][[3 Nephi 13.15|]].
 
 [^11]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
 [^12]: See John Taylor, *The Mediation and Atonement* (1882).
 
+[^13]: See Richard G. Scott, in Conference Report, Apr. 1992, [[1992 April - Healing the Tragic Scars of Abuse.md|43–46]]; or *Ensign,* May 1992, 31.
 
-
-
-#Accountability #Atonement #Forgiveness #Healing #Peace #Repentance

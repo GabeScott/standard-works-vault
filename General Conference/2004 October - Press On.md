@@ -1,5 +1,7 @@
 # Press On
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -82,7 +84,7 @@ When we face challenges in our lives, we are comforted by the words of the Lord 
 
 Therefore, brothers and sisters, we must press on and eventually become more like the Lord in the process. We all know those who have faced great trials in life and have endured faithfully. One inspiring example is from an early Saint of the 19th century, Warren M. Johnson. He was assigned by Church leaders to operate Lee’s Ferry, an important crossing over the Colorado River in the desert of northern Arizona. Brother Johnson endured great challenges yet remained faithful his entire life. Listen to Brother Johnson explain his family tragedy in a letter to President Wilford Woodruff:
 
-“In May 1891 a family … came here \[to Lee’s Ferry\] from Richfield Utah, where they … spent the winter visiting friends. At Panguitch they buried a child, … without \[cleaning\] the wagon or themselves. … They came to our house, and remained overnight, mingling with my little children. …
+“In May 1891 a family … came here \[to Lee’s Ferry\] from Richfield Utah, where they … spent the winter visiting friends. At Panguitch they buried a child, … without \[cleaning\] the wagon or themselves. … They came to our house, and remained overnight, mingling with my little children. …
 
 “We knew nothing of the nature of the disease \[diphtheria\], but had faith in God, as we were here on a very hard mission, and had tried as hard as we knew how to obey the \[commandments\] … that our children would be spared. But alas, in four and a half days \[the oldest boy died\] in my arms. Two more were taken down with the disease and we fasted and prayed as much as we thought it wisdom as we had many duties to perform here. We fasted \[for\] twenty-four hours and once I fasted \[for\] forty hours, but to no avail, for both my little girls died also. About a week after their death my fifteen year old daughter Melinda was \[also\] stricken down and we did all we could for her but she \[soon\] followed the others. … Three of my dear girls and one boy \[have\] been taken from us, and the end is not yet. My oldest girl nineteen years old is now prostrate \[from\] the disease, and we are fasting and praying in her behalf today. … I would ask for your faith and prayers in our behalf however. What have we done that the Lord has left us, and what can we do to gain his favor again\[?\]”
 
@@ -94,9 +96,9 @@ Though heavy trials of Brother Johnson can help us to face our own challenges, m
 
 First, testimony. Testimony gives us the eternal perspective necessary to see past the trials or challenges we will inevitably face. Remember what Heber C. Kimball prophesied:
 
-“The time will come when no man nor woman will be able to endure on borrowed light. Each will have to be guided by the light within himself. …
+“The time will come when no man nor woman will be able to endure on borrowed light. Each will have to be guided by the light within himself. …
 
-“… If you don’t have it you will not stand; therefore seek for the testimony of Jesus and cleave to it, that when the trying time comes you may not stumble and fall.”[^15]
+“… If you don’t have it you will not stand; therefore seek for the testimony of Jesus and cleave to it, that when the trying time comes you may not stumble and fall.”[^15]
 
 Second, humility. Humility is the recognition and attitude that one must rely on the Lord’s assistance to make it through this life. We cannot endure to the end on our own strength. Without Him, we are nothing.[^16]
 
@@ -115,13 +117,13 @@ That we may do so this day and forever is my prayer, in the name of Jesus Christ
 
 [^2]: [[John 8.31|John 8:31]].
 
-[^3]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^3]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^4]: [[Omni 1.26|Omni 1:26]].
 
 [^5]: [[Mark 4.14|Mark 4:14–20]][[Mark 4.15|]][[Mark 4.16|]][[Mark 4.17|]][[Mark 4.18|]][[Mark 4.19|]][[Mark 4.20|]].
 
-[^6]: See Ezra Taft Benson, in Conference Report, Apr. 1989, 3–7; or *Ensign,* May 1989, 4–7.
+[^6]: See Ezra Taft Benson, in Conference Report, Apr. 1989, [[1989 April - Beware of Pride.md|3–7]]; or *Ensign,* May 1989, 4–7.
 
 [^7]: See [[D&C 130.18|D&C 130:18–19]][[D&C 130.19|]].
 
@@ -145,8 +147,3 @@ That we may do so this day and forever is my prayer, in the name of Jesus Christ
 
 [^17]: See [[Romans 8.17|Romans 8:17]].
 
-
-
-
-
-#Endurance #Humility #Media #Pride #Repentance #Testimony #Worldliness

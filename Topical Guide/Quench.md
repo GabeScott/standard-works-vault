@@ -1,7 +1,6 @@
 # Quench
 
-
-when Moses prayed ... fire was *quenched*, [[Numbers 11.2|Numbers 11:2]].
+when Moses prayed … fire was *quenched*, [[Numbers 11.2|Numbers 11:2]].
 
 *quench* not the light of Israel, [[2 Samuel 21.17|2 Samuel 21:17]].
 
@@ -23,6 +22,6 @@ able to *quench* all the fiery darts, [[Ephesians 6.16|Ephesians 6:16]] ([[D&C 2
 
 *Quenched* the violence of fire, [[Hebrews 11.34|Hebrews 11:34]].
 
-smote the rock ... that the children of Israel might *quench* their thirst, [[1 Nephi 17.29|1 Nephi 17:29]].
+smote the rock … that the children of Israel might *quench* their thirst, [[1 Nephi 17.29|1 Nephi 17:29]].
 
 *quench* the Holy Spirit, [[Jacob 6.8|Jacob 6:8]].

@@ -1,5 +1,7 @@
 # Look toward Eternity!
 
+Gordon B. Hinckley
+
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -41,7 +43,7 @@ To the youth of the noble birthright, look into the windows of eternity! See you
 
 [^4]: [[Abraham 3.25|Abraham 3:25]].
 
-[^5]: See [[Alma 37.33|Alma 37:33]]; [[3 Nephi 7.18|3 Nephi 7:18]].
+[^5]: See [[Alma 37.33|Alma 37:33]]; [[3 Nephi 7.18|3 Nephi 7:18]].
 
 [^6]: See [[D&C 88.40|D&C 88:40]].
 
@@ -61,8 +63,3 @@ To the youth of the noble birthright, look into the windows of eternity! See you
 
 [^14]: [[Revelation 3.4|Revelation 3:4]]; see also [[Revelation 3.5|v. 5]].
 
-
-
-
-
-#Morality #Repentance #Temples #Worthiness

@@ -1,5 +1,7 @@
 # New Temples to Provide “Crowning Blessings” of the Gospel
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1998 General Conference*
@@ -39,8 +41,3 @@ This is my humble prayer, my beloved brethren and sisters, as we come to the clo
 
 
 
-
-
-
-
-#Family_History #Temple_Work #Temples #Testimony

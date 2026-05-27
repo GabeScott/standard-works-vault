@@ -1,5 +1,7 @@
 # “Whom the Lord Calls, the Lord Qualifies”
 
+Thomas S. Monson
+
 By Elder Neil L. Andersen - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -23,8 +25,3 @@ I know that our Heavenly Father lives and that he loves each one of us. I know t
 
 
 
-
-
-
-
-#Commitment #Gratitude #Testimony

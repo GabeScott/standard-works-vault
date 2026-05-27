@@ -1,4 +1,3 @@
 # Being
 
-
-in him we live ... and have our *being*, [[Acts 17.28|Acts 17:28]].
+in him we live … and have our *being*, [[Acts 17.28|Acts 17:28]].

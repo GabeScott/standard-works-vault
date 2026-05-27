@@ -1,7 +1,6 @@
 # Marriage, Marry
 
-
-*See also* [[Marriage, Celestial.md|Marriage, Celestial]]; [[Marriage, Continuing Courtship in.md|Marriage, Continuing Courtship in]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Husbands.md|Marriage, Husbands]]; [[Marriage, Interfaith.md|Marriage, Interfaith]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Marriage, Plural.md|Marriage, Plural]]; [[Marriage, Temporal.md|Marriage, Temporal]]; [[Marriage, Wives.md|Marriage, Wives]]; [BD Marriage](https://www.churchofjesuschrist.org/study/scriptures/bd/marriage?lang=eng)
+*See also* [[Marriage, Celestial.md|Marriage, Celestial]]; [[Marriage, Continuing Courtship in.md|Marriage, Continuing Courtship in]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Husbands.md|Marriage, Husbands]]; [[Marriage, Interfaith.md|Marriage, Interfaith]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Marriage, Plural.md|Marriage, Plural]]; [[Marriage, Temporal.md|Marriage, Temporal]]; [[Marriage, Wives.md|Marriage, Wives]]; [[BD Marriage.md|BD Marriage]]
 
 *cleave* unto his wife: and they shall be one flesh, [[Genesis 2.24|Genesis 2:24]] ([[Matthew 19.5|Matthew 19:5]]; [[Moses 3.24|Moses 3:24]]; [[Abraham 5.18|Abraham 5:18]]).
 
@@ -35,11 +34,11 @@ let every man have his own *wife*, and let every woman have her own *husband*, [
 
 *marry*: for it is better to *marry* than to burn, [[1 Corinthians 7.9|1 Corinthians 7:9]].
 
-he that is *married* careth for the things ... of the world, [[1 Corinthians 7.33|1 Corinthians 7:33]].
+he that is *married* careth for the things … of the world, [[1 Corinthians 7.33|1 Corinthians 7:33]].
 
 Forbidding to *marry*, [[1 Timothy 4.3|1 Timothy 4:3]].
 
-I will ... that the younger women *marry*, [[1 Timothy 5.14|1 Timothy 5:14]].
+I will … that the younger women *marry*, [[1 Timothy 5.14|1 Timothy 5:14]].
 
 *Marriage* is honourable in all, [[Hebrews 13.4|Hebrews 13:4]].
 
@@ -49,7 +48,7 @@ his sons should take daughters to *wife*, [[1 Nephi 7.1|1 Nephi 7:1]].
 
 Nephi, took one of the daughters of Ishmael to *wife*, [[1 Nephi 16.7|1 Nephi 16:7]].
 
-not ... have save it be one *wife*, [[Jacob 2.27|Jacob 2:27]].
+not … have save it be one *wife*, [[Jacob 2.27|Jacob 2:27]].
 
 *husbands* love their *wives*, and their wives love their husbands, [[Jacob 3.7|Jacob 3:7]].
 

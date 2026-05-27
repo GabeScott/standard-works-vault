@@ -1,7 +1,6 @@
 # Sleep, Slept
 
-
-*See also* [[Death.md|Death]]; [[Health.md|Health]]; [[Idleness, Idle, Idler.md|Idleness]]; [[Laziness.md|Laziness]]; [[Slumber.md|Slumber]]
+*See also* [[Death.md|Death]]; [[Health.md|Health]]; [[Idleness.md|Idleness]]; [[Laziness.md|Laziness]]; [[Slumber.md|Slumber]]
 
 God caused a deep *sleep* to fall upon Adam, [[Genesis 2.21|Genesis 2:21]] ([[Moses 3.21|Moses 3:21]]; [[Abraham 5.15|Abraham 5:15]]).
 
@@ -11,7 +10,7 @@ Samuel was laid down to *sleep*, [[1 Samuel 3.3|1 Samuel 3:3]].
 
 he that keepeth Israel shall neither slumber nor *sleep*, [[Psalms 121.4|Psalms 121:4]].
 
-to sit up late ... for so he giveth his beloved *sleep*, [[Psalms 127.2|Psalms 127:2]].
+to sit up late … for so he giveth his beloved *sleep*, [[Psalms 127.2|Psalms 127:2]].
 
 How long wilt thou *sleep*, O sluggard, [[Proverbs 6.9|Proverbs 6:9]].
 
@@ -29,7 +28,7 @@ them that *sleep* in the dust of the earth shall awake, [[Daniel 12.2|Daniel 12:
 
 maid is not dead, but *sleepeth*, [[Matthew 9.24|Matthew 9:24]] ([[Mark 5.39|Mark 5:39]]; [[Luke 8.52|Luke 8:52]]).
 
-While the bridegroom tarried, they all ... *slept*, [[Matthew 25.5|Matthew 25:5]] ([[Matthew 25.1|25:1-13]][[Matthew 25.2|]][[Matthew 25.3|]][[Matthew 25.4|]][[Matthew 25.5|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]][[Matthew 25.11|]][[Matthew 25.12|]][[Matthew 25.13|]]).
+While the bridegroom tarried, they all … *slept*, [[Matthew 25.5|Matthew 25:5]].
 
 cometh unto the disciples, and findeth them *asleep*, [[Matthew 26.40|Matthew 26:40]].
 
@@ -45,7 +44,7 @@ it is high time to awake out of *sleep*, [[Romans 13.11|Romans 13:11]].
 
 weak and sickly among you, and many *sleep*, [[1 Corinthians 11.30|1 Corinthians 11:30]].
 
-Christ ... become the firstfruits of them that *slept*, [[1 Corinthians 15.20|1 Corinthians 15:20]].
+Christ … become the firstfruits of them that *slept*, [[1 Corinthians 15.20|1 Corinthians 15:20]].
 
 We shall not all *sleep*, but we shall all be changed, [[1 Corinthians 15.51|1 Corinthians 15:51]].
 
@@ -53,13 +52,13 @@ which *sleep* in Jesus will God bring with him, [[1 Thessalonians 4.14|1 Thessal
 
 let us not *sleep*, as do others, [[1 Thessalonians 5.6|1 Thessalonians 5:6]].
 
-awake ... even from the *sleep* of hell, [[2 Nephi 1.13|2 Nephi 1:13]].
+awake … even from the *sleep* of hell, [[2 Nephi 1.13|2 Nephi 1:13]].
 
 he awakened them out of a deep *sleep*, [[Alma 5.7|Alma 5:7]].
 
 not dead, but he *sleepeth* in God, [[Alma 19.8|Alma 19:8]].
 
-Lord ... watch over you in your *sleep*, [[Alma 37.37|Alma 37:37]].
+Lord … watch over you in your *sleep*, [[Alma 37.37|Alma 37:37]].
 
 redemption from an endless *sleep*, [[Mormon 9.13|Mormon 9:13]].
 

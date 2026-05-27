@@ -1,7 +1,6 @@
 # Forbear, Forbearance
 
-
-*See also* [[Forgive, Forgiveness.md|Forgive]]; [[Long-Suffering.md|Long-Suffering]]; [[Patience, Patient, Patiently.md|Patience]]
+*See also* [[Forgive.md|Forgive]]; [[Long-Suffering.md|Long-Suffering]]; [[Patience.md|Patience]]
 
 Thou shalt not *avenge*, nor bear any grudge, [[Leviticus 19.18|Leviticus 19:18]].
 
@@ -17,7 +16,7 @@ smite thee on thy right *cheek*, turn to him the other, [[Matthew 5.39|Matthew 5
 
 riches of his goodness and *forbearance*, [[Romans 2.4|Romans 2:4]].
 
-remission of sins ... through the *forbearance* of God, [[Romans 3.25|Romans 3:25]].
+remission of sins … through the *forbearance* of God, [[Romans 3.25|Romans 3:25]].
 
 with longsuffering, *forbearing* one another in love, [[Ephesians 4.2|Ephesians 4:2]].
 
@@ -25,6 +24,4 @@ with longsuffering, *forbearing* one another in love, [[Ephesians 4.2|Ephesians 
 
 Spirit *constraineth* me that I must not stretch forth mine hand, [[Alma 14.11|Alma 14:11]].
 
-if men will smite you ... *bear* it patiently, [[D&C 98.23|D&C 98:23]].
-
-*See also* [[Genesis 26.27|Genesis 26:27]]; [[Proverbs 20.22|Proverbs 20:22]]; [[Romans 12.19|Romans 12:19]]; [[1 Corinthians 6.7|1 Corinthians 6:7]]; [[1 Corinthians 13.4|1 Corinthians 13:4]]; [[1 Thessalonians 5.15|1 Thessalonians 5:15]]; [[1 Peter 3.9|1 Peter 3:9]]; [[D&C 19.30|D&C 19:30]]; [[D&C 31.9|D&C 31:9]].
+if men will smite you … *bear* it patiently, [[D&C 98.23|D&C 98:23]].

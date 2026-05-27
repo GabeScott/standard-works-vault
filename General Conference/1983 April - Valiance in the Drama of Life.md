@@ -1,6 +1,8 @@
 # Valiance in the Drama of Life
 
-By Elder Royden G. Derrick - *Of the Presidency of the First Quorum of the Seventy*
+Ezra Taft Benson
+
+By Elder Royden G. Derrick - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -36,19 +38,19 @@ Clues to other scenes in the drama have been given to other prophets such as Isa
 
 The star of the cast is Jesus Christ, the Savior of mankind. Many events in his life were the fulfillment of scenes previously shown to former-day prophets. Tomorrow, we commemorate the most important scene of all—the resurrection of Jesus Christ, who suffered and died to atone for the sins of men and women.
 
-The number of people in the cast is unlimited. “If ye have desires to serve God,” the Lord said, “ye are called to the work.” ([[D&C 4.3|D&C 4:3]].) To pass the screen test, one must repent, be baptized, and keep God’s commandments. Anyone is welcome to participate, for the prophet Nephi said, “He inviteth them all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God, both Jew and Gentile.” ([[2 Nephi 26.33|2 Ne. 26:33]].)
+The number of people in the cast is unlimited. “If ye have desires to serve God,” the Lord said, “ye are called to the work.” ([[D&C 4.3|D&C 4:3]].) To pass the screen test, one must repent, be baptized, and keep God’s commandments. Anyone is welcome to participate, for the prophet Nephi said, “He inviteth them all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God, both Jew and Gentile.” ([[2 Nephi 26.33|2 Ne. 26:33]].)
 
-The acceptance of the gospel of Jesus Christ is affected by attitude. William James, a famous author and psychologist, wrote, “The greatest discovery of my age is that men can change their circumstances by changing the attitude of their minds.” (Richard L. Evans, *Richard Evans’ Quote Book* \[Salt Lake City: Publishers Press, 1971\], p. 161.)
+The acceptance of the gospel of Jesus Christ is affected by attitude. William James, a famous author and psychologist, wrote, “The greatest discovery of my age is that men can change their circumstances by changing the attitude of their minds.” (Richard L. Evans, *Richard Evans’ Quote Book* \[Salt Lake City: Publishers Press, 1971\], p. 161.)
 
 In the book of Proverbs we read, “For as he thinketh in his heart, so is he.” ([[Proverbs 23.7|Prov. 23:7]].) Henry David Thoreau sustained that concept when he said that a man becomes what he thinks about all day long. (See *Familiar Quotations,* ed. John Bartlett, 14th ed., Boston: Little, Brown and Co., 1968, p. 682.)
 
 We have our agency. It is the decision of each of us as to the character we play in this drama—as to what kind of person we are or will become.
 
-When President David O. McKay was a young missionary in Scotland, he was homesick, discouraged, and low in spirit. As he walked down the street with his companion, he noticed an inscription chiseled in a stone lintel of an unfinished building which read, “Whate’er Thou Art, Act Well Thy Part.” From that moment, he began to act the part of a good missionary and became a great one. This was a learning experience that helped him in numerous important callings he received later in life. (See *Cherished Experiences from the Writings of President David O. McKay,* comp. Clare Middlemiss, Salt Lake City: Deseret Book, 1955, p. 174.)
+When President David O. McKay was a young missionary in Scotland, he was homesick, discouraged, and low in spirit. As he walked down the street with his companion, he noticed an inscription chiseled in a stone lintel of an unfinished building which read, “Whate’er Thou Art, Act Well Thy Part.” From that moment, he began to act the part of a good missionary and became a great one. This was a learning experience that helped him in numerous important callings he received later in life. (See *Cherished Experiences from the Writings of President David O. McKay,* comp. Clare Middlemiss, Salt Lake City: Deseret Book, 1955, p. 174.)
 
 If we want to be a person of integrity, we act as if we have integrity and we will be a person of integrity. If we want to be a person of charity and love, we act as if we have that characteristic and we will be that person.
 
-The Savior alluded to this principle when he asked, “What manner of men ought ye to be?” Then he answered his own question, “Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+The Savior alluded to this principle when he asked, “What manner of men ought ye to be?” Then he answered his own question, “Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 We should strive to become like him by acting as he would act.
 
@@ -71,8 +73,3 @@ The final scene of this great drama is near at hand. The kingdom of God is going
 
 
 
-
-
-
-
-#Restoration #Spirituality

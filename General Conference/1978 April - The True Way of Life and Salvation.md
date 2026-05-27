@@ -1,6 +1,8 @@
 # The True Way of Life and Salvation
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -60,7 +62,7 @@ We worry, therefore, conversely over these trends which would reduce the mother�
 
 It was Goethe who said, “The Eternal Feminine draws us on.” (Johann W. von Goethe, *Faust.*)
 
-“A good woman,” as the scriptures tell us, “is the glory of the man.” ([[1 Corinthians 11.7|1 Cor. 11:7]].)
+“A good woman,” as the scriptures tell us, “is the glory of the man.” ([[1 Corinthians 11.7|1 Cor. 11:7]].)
 
 The scriptures remind us that “Women have claim on their husbands for their maintenance, until their husbands are taken.” ([[D&C 83.2|D&C 83:2]].) Women also have a claim on their husbands for respect, fidelity, and thoughtfulness for in that subtle, sweet relationship that should obtain between men and women, there is partnership with the priesthood.
 
@@ -80,7 +82,7 @@ My beloved brothers and sisters, God lives, and I bear testimony of it. Jesus Ch
 
 This is the message of The Church of Jesus Christ of Latter-day Saints. It is the most important message in the world today. Jesus Christ is the son of God. He was chosen by the Father as the Savior of this world. His coming was foretold centuries before his birth upon this earth. It was seen in vision by Adam, Moses, Isaiah, Jeremiah, Ezekiel, Lehi, Nephi, King Benjamin, Alma, Samuel, and many others, including Mary, his eternal mother.
 
-A modern prophet, the late Elder James E. Talmage of the Council of the Twelve Apostles, declared who Jesus was and is:
+A modern prophet, the late Elder James E. Talmage of the Council of the Twelve Apostles, declared who Jesus was and is:
 
 “The solemn testimonies of millions dead and of millions living unite in proclaiming Him as divine, the Son of the Living God, the Redeemer and Savior of the human race, the Eternal Judge of the souls of men, the Chosen and Anointed of the Father—in short, the Christ.
 
@@ -106,7 +108,7 @@ That Christ established a church is well documented in the New Testament. In Eph
 
 In his church Christ selected twelve apostles and a council of seventy, and, having endowed them with authority he sent them forth to preach that the Father has acknowledged his Son. To the multitudes of people gathered around the temple at the approach of the Lord Jesus Christ, he was introduced again by his Father, who said,
 
-“Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
+“Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
 
 Toward the end of his earthly ministry he took his beloved apostles Peter, James and John with him to the Mount of Transfiguration. It is couched in words like this:
 
@@ -139,5 +141,3 @@ I bear testimony to this, the divinity of this cause, the truth of this church, 
 
 
 
-
-#Abuse #Family #Family_History #Jesus_Christ #Self-Reliance #Women

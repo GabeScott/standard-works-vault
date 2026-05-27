@@ -1,6 +1,8 @@
 # “By This All Will Know That You Are My Disciples”
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Dallin H. Oaks
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -32,7 +34,7 @@ Well, I quickly repented of my judgmental attitude. I had wanted picture-perfect
 
 ## That Faith Might Increase in the Earth
 
-My dear brothers and sisters, my dear friends, I love The Church of Jesus Christ of Latter-day Saints. It is the Savior’s true and living Church, and it teaches the restored fulness of the gospel of Jesus Christ. His priesthood power and authority reside here. Jesus Christ leads this Church personally, through servants He has called and authorized, and by a living prophet, even President Russell M. Nelson. The Savior has given the Latter-day Saints a unique mission to gather God’s children and prepare the world for the Savior’s Second Coming. I bear my witness that all of this is true.
+My dear brothers and sisters, my dear friends, I love The Church of Jesus Christ of Latter-day Saints. It is the Savior’s true and living Church, and it teaches the restored fulness of the gospel of Jesus Christ. His priesthood power and authority reside here. Jesus Christ leads this Church personally, through servants He has called and authorized, and by a living prophet, even President Russell M. Nelson. The Savior has given the Latter-day Saints a unique mission to gather God’s children and prepare the world for the Savior’s Second Coming. I bear my witness that all of this is true.
 
 But it’s important to remember that when most people experience the Church of Jesus Christ for the first time, they aren’t thinking about priesthood authority or ordinances or the gathering of Israel. What they’re likely to notice, above all else, is how they feel when they’re with us and how we treat each other.
 
@@ -48,7 +50,7 @@ Now, I realize that I’m describing the ideal. And in this mortal life, we rare
 
 One thing we should *not* do is give up on the ideal!
 
-The [title page of the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) includes this important caution: “If there are faults,” it says, “they are the mistakes of men; wherefore, condemn not the things of God.”
+The [title page of the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) includes this important caution: “If there are faults,” it says, “they are the mistakes of men; wherefore, condemn not the things of God.”
 
 Can a book—or a church or a person—have “faults” and “mistakes” and still be the work of God?
 
@@ -117,24 +119,19 @@ May God bless us to patiently but diligently seek to live up to the ideals our S
 
 [^8]: See [[Luke 1.37|Luke 1:37]].
 
-[^9]: [[1 Samuel 16.7|1 Samuel 16:7]], New English Translation.
+[^9]: [[1 Samuel 16.7|1 Samuel 16:7]], New English Translation.
 
-[^10]: See Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p47#p47)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+[^10]: See Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p47#p47)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
 
 [^11]: [[Galatians 3.28|Galatians 3:28]].
 
 [^12]: See [[D&C 6.36|Doctrine and Covenants 6:36]].
 
-[^13]: See [[1 Corinthians 12.12|1 Corinthians 12:12–27]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]]. In the body of Christ, we don’t ignore differences, and we don’t merely tolerate them. We are thankful for the unique contribution each member makes, for the good of the whole body.
+[^13]: See [[1 Corinthians 12.12|1 Corinthians 12:12–27]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]]. In the body of Christ, we don’t ignore differences, and we don’t merely tolerate them. We are thankful for the unique contribution each member makes, for the good of the whole body.
 
-[^14]: Just as it would be incorrect for the ear to look at the body and say, “I’m not like the eye; there must not be a place for me here,” it would be equally incorrect for the eye to say to the ear, “You’re not like me; we have no need of you here” (see [[1 Corinthians 12.16|1 Corinthians 12:16, 21]][[1 Corinthians 12.21|]]).
+[^14]: Just as it would be incorrect for the ear to look at the body and say, “I’m not like the eye; there must not be a place for me here,” it would be equally incorrect for the eye to say to the ear, “You’re not like me; we have no need of you here” (see [[1 Corinthians 12.16|1 Corinthians 12:16, 21]][[1 Corinthians 12.21|]]).
 
 [^15]: [[Alma 5.26|Alma 5:26]].
 
 [^16]: [[Mosiah 18.8|Mosiah 18:8]]. When we are baptized, we witness that, among other things, we want to be part of a people who “bear one another’s burdens” and “mourn with those \[who\] mourn” and “comfort those that stand in need of comfort” ([[Mosiah 18.8|verses 8–9]][[Mosiah 18.9|]]). In other words, when we join the Church of Jesus Christ, we are saying—humbly but clearly—that we want to become more like our beloved Savior, and we want to do it together.
 
-
-
-
-
-#Belonging #Discipleship #Love #Unity

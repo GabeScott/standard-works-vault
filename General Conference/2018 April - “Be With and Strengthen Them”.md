@@ -1,6 +1,8 @@
 # “Be With and Strengthen Them”
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -14,7 +16,7 @@ In the spirit of President Nelson’s marvelous declarations and testimonies las
 
 For all who are eager to learn the details of these matters, please know that immediately upon the conclusion of this session of conference, a sequence will begin that includes, not necessarily in this order, sending a letter from the First Presidency to every member of the Church for whom we have an email address. A seven-page document of questions and answers will be attached for all priesthood and auxiliary leaders. Lastly, those materials are being posted immediately on ministering.lds.org. “Ask, and it shall be given you; seek, and ye shall find.”[^3]
 
-Now to the wonderful assignment President Russell M. Nelson has given to me and to Sister Jean B. Bingham. Brothers and sisters, as the work of quorums and auxiliaries matures institutionally, it follows that we should mature personally as well—individually rising above any mechanical, function-without-feeling routine to the heartfelt discipleship articulated by the Savior at the conclusion of His earthly ministry. As He prepared to leave His still-innocent and somewhat-confused little band of followers, He did not list a dozen administrative steps they had to take or hand them a fistful of reports to be filled out in triplicate. No, He summarized their task in one fundamental commandment: “Love one another; as I have loved you. … By this shall all men know that ye are my disciples, if ye have love one to another.”[^4]
+Now to the wonderful assignment President Russell M. Nelson has given to me and to Sister Jean B. Bingham. Brothers and sisters, as the work of quorums and auxiliaries matures institutionally, it follows that we should mature personally as well—individually rising above any mechanical, function-without-feeling routine to the heartfelt discipleship articulated by the Savior at the conclusion of His earthly ministry. As He prepared to leave His still-innocent and somewhat-confused little band of followers, He did not list a dozen administrative steps they had to take or hand them a fistful of reports to be filled out in triplicate. No, He summarized their task in one fundamental commandment: “Love one another; as I have loved you. … By this shall all men know that ye are my disciples, if ye have love one to another.”[^4]
 
 In an effort to move us closer to that gospel ideal, this newly announced priesthood and Relief Society ministering concept will include, among other things, the following elements, some of which the Relief Society has already put in place with wonderful success.[^5]
 
@@ -28,7 +30,7 @@ In an effort to move us closer to that gospel ideal, this newly announced priest
 
 Brothers and sisters, we have a heaven-sent opportunity as an entire Church to demonstrate “pure religion … undefiled before God”[^8]—“to bear one another’s burdens, that they may be light” and to “comfort those that stand in need of comfort,”[^9] to minister to the widows and the fatherless, the married and the single, the strong and the distraught, the downtrodden and the robust, the happy and the sad—in short, all of us, every one of us, because we all need to feel the warm hand of friendship and hear the firm declaration of faith. However, I warn you, a new name, new flexibility, and fewer reports won’t make an ounce of difference in our service unless we see this as an invitation to care for one another in a bold, new, holier way, as President Nelson has just said. As we lift our spiritual eyes toward living the law of love more universally, we pay tribute to the generations who have served that way for years. Let me note a recent example of such devotion in hopes that legions more will grasp the Lord’s commandment to “be with and strengthen”[^10] our brothers and sisters.
 
-Last January 14, a Sunday, just a little after 5:00 p.m., my young friends Brett and Kristin Hamblin were chatting at their home in Tempe, Arizona, after Brett’s day serving in the bishopric and Kristin’s busy day caring for their five children.
+Last January 14, a Sunday, just a little after 5:00 p.m., my young friends Brett and Kristin Hamblin were chatting at their home in Tempe, Arizona, after Brett’s day serving in the bishopric and Kristin’s busy day caring for their five children.
 
 Suddenly Kristin, a seemingly successful survivor of breast cancer the previous year, fell unresponsive. A call to 911 brought an emergency team trying desperately to revive her. As Brett prayed and pleaded, he quickly placed just two other telephone calls: one to his mother requesting her help with the children, the other to Edwin Potter, his home teacher. The latter conversation in its entirety went as follows:
 
@@ -57,11 +59,11 @@ Brothers and sisters, I join with you in saluting every block teacher and ward t
 
 [^4]: [[John 13.34|John 13:34–35]][[John 13.35|]].
 
-[^5]: See “[Keep in Touch with Her Anytime, Anywhere, Any Way](https://churchofjesuschrist.org/study/liahona/2018/01/keep-in-touch-with-her-anytime-anywhere-any-way?lang=eng),” *Ensign* or *Liahona,* Jan. 2018, 7.
+[^5]: See “[Keep in Touch with Her Anytime, Anywhere, Any Way](https://www.churchofjesuschrist.org/study/liahona/2018/01/keep-in-touch-with-her-anytime-anywhere-any-way?lang=eng),” *Ensign* or *Liahona,* Jan. 2018, 7.
 
 [^6]: [[Mosiah 23.18|Mosiah 23:18]]; see also [[D&C 20.53|Doctrine and Covenants 20:53]].
 
-[^7]: See “Watching Over and Strengthening Members,” First Presidency letter, Dec. 10, 2001.
+[^7]: See “Watching Over and Strengthening Members,” First Presidency letter, Dec. 10, 2001.
 
 [^8]: [[James 1.27|James 1:27]].
 
@@ -79,8 +81,3 @@ Brothers and sisters, I join with you in saluting every block teacher and ward t
 
 [^15]: See [[John 15.12|John 15:12]].
 
-
-
-
-
-#Church_Organization #Love #Ministering #Service

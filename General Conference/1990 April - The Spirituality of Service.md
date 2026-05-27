@@ -1,5 +1,7 @@
 # The Spirituality of Service
 
+Thomas S. Monson
+
 By Elder Derek A. Cuthbert - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -14,7 +16,7 @@ Service changes people. It refines, purifies, gives a finer perspective, and bri
 
 How, then, does service increase our spirituality? May I share with you briefly ten aspects, from which you can choose those most applicable to your own situation?
 
-First, service helps us establish true values and priorities by distinguishing between the worth of material things that pass, and those things of lasting, even eternal, value. Our beloved prophet counsels: “If you would find yourself, learn to deny yourself for the blessing of others. Forget yourself and find someone who needs your service, and you will discover the secret to the happy, fulfilled life” (Ezra Taft Benson, in Conference Report, Apr. 1979, p. 48; or *Ensign,* May 1979, p. 34). We have a lovely sister who is living by us who has been confined to a wheelchair for twenty-seven years; she truly forgets herself in service to others as she gives firesides and helps wherever she can with a cheerful smile and a positive attitude.
+First, service helps us establish true values and priorities by distinguishing between the worth of material things that pass, and those things of lasting, even eternal, value. Our beloved prophet counsels: “If you would find yourself, learn to deny yourself for the blessing of others. Forget yourself and find someone who needs your service, and you will discover the secret to the happy, fulfilled life” (Ezra Taft Benson, in Conference Report, Apr. 1979, [[1979 April - This Is a Day of Sacrifice.md|p. 48]]; or *Ensign,* May 1979, p. 34). We have a lovely sister who is living by us who has been confined to a wheelchair for twenty-seven years; she truly forgets herself in service to others as she gives firesides and helps wherever she can with a cheerful smile and a positive attitude.
 
 Second, service helps us establish a righteous tradition. This is so necessary, particularly among young people. Wise parents will provide service opportunities in the home for their children from an early age. Growing up with this tradition will blossom into community service and Church service. It will develop a spirit of volunteerism in a world where people more often ask, “What’s in it for me?” The Lord has counseled: “For behold, it is not meet that I should command in all things; …
 
@@ -50,7 +52,7 @@ In all of these ways, righteous service brings us nearer to Christ, increases ou
 
 As some of you may know, just after last October general conference it was discovered that I had been seriously stricken with cancer, which was in its last stage. May I express my love and gratitude for the prayers and blessings and loving concern on my behalf which have brought about a miracle of recovery. As I give thanks for each new day of life, I express gratitude for the opportunities of service—past, present, and future.
 
-The wonderful thing about service is that there is no end to it. As President Benson says, “Therefore, let us serve one another with brotherly love, never tiring of the demands upon us, being patient and persevering and generous” (*So Shall Ye Reap* \[Salt Lake City: Deseret Book Co., 1960\], pp. 173–74).
+The wonderful thing about service is that there is no end to it. As President Benson says, “Therefore, let us serve one another with brotherly love, never tiring of the demands upon us, being patient and persevering and generous” (*So Shall Ye Reap* \[Salt Lake City: Deseret Book Co., 1960\], pp. 173–74).
 
 Yes, as we give Christlike service, it helps us grow spiritually, “\[put\] off the natural man and \[become\] a saint” ([[Mosiah 3.19|Mosiah 3:19]])—that is, one who is honestly trying to follow the Savior and do what He would want us to do. What a marvelous feeling it is to have the Spirit of the Lord poured out more abundantly upon us as we bear one another’s burdens and share with and mourn with those in need (see [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]]).
 
@@ -59,8 +61,3 @@ May this be our happy lot, I humbly pray, bearing my personal witness of the ris
 
 
 
-
-
-
-
-#Love #Service #Spirituality

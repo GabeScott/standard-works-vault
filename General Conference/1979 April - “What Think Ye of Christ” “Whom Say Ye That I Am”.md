@@ -1,6 +1,8 @@
 # “What Think Ye of Christ?” “Whom Say Ye That I Am?”
 
-By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -24,7 +26,7 @@ Jesus answered them, “If David then call him Lord, how is he his son?
 
 “And no man was able to answer him a word, neither durst any man from that day forth ask him any more questions.” ([[Matthew 22.41|Matt. 22:41–42, 45–46]][[Matthew 22.42|]][[Matthew 22.45|]][[Matthew 22.46|]].)
 
-On another occasion the people answered Jesus, saying, “Who is this Son of man? …
+On another occasion the people answered Jesus, saying, “Who is this Son of man? …
 
 “But though he had done so many miracles before them, yet they believed not on him.” ([[John 12.34|John 12:34, 37]][[John 12.37|]].)
 
@@ -38,7 +40,7 @@ Still yet another time Jesus asked his disciples, saying, “Whom do men say tha
 
 Jesus conversed on another occasion with a woman in Samaria:
 
-“The woman saith unto him, Sir, I perceive that thou art a prophet. …
+“The woman saith unto him, Sir, I perceive that thou art a prophet. …
 
 “The woman saith unto him \[further\], I know that Messias cometh, which is called Christ: when he is come, he will tell us all things.
 
@@ -66,7 +68,7 @@ Jesus Christ dwelt in the heavens with his Father, and we dwelt with them as spi
 
 Jesus Christ presented his Father’s eternal plan, that plan of which we are all part. We come to this earth to undergo testing for a probationary period and to have opposition in all things. Through the eternal principle of free agency, we are free to choose liberty and eternal life and return to God’s presence if we live righteous lives; or to choose captivity and spiritual death. (See [[Moses 4.1|Moses 4:1–4]][[Moses 4.2|]][[Moses 4.3|]][[Moses 4.4|]].)
 
-Jesus Christ is the creator of all things on earth, under the direction of his Father (see [[Moses 1.33|Moses 1:33]]; [[Ephesians 3.9|Eph. 3:9]]). “The Father sent the Son to be the Saviour of the world” ([[1 John 4.14|1 Jn. 4:14]]).
+Jesus Christ is the creator of all things on earth, under the direction of his Father (see [[Moses 1.33|Moses 1:33]]; [[Ephesians 3.9|Eph. 3:9]]). “The Father sent the Son to be the Saviour of the world” ([[1 John 4.14|1 Jn. 4:14]]).
 
 Jesus Christ came to this earth, born of Mary, a mortal mother. His Father was Almighty God. (See [[Luke 1.26|Luke 1:26–35]][[Luke 1.27|]][[Luke 1.28|]][[Luke 1.29|]][[Luke 1.30|]][[Luke 1.31|]][[Luke 1.32|]][[Luke 1.33|]][[Luke 1.34|]][[Luke 1.35|]].)
 
@@ -84,7 +86,7 @@ Jesus Christ’s ascension into heaven before the eyes of his disciples was acco
 
 Jesus Christ appeared with his Father and restored the same organization he established during his ministry through Joseph Smith the Prophet in these latter days. In addition to the Bible, the Book of Mormon was revealed to the world as another witness to testify of his divine calling and ministry.
 
-Jesus Christ leads and guides his church today through revelation to a prophet, President Spencer W. Kimball, and his counselors in the First Presidency and the Twelve Apostles, the same organization that he established when he was here on earth (see [[D&C 102.9|D&C 102:9, 23]][[D&C 102.23|]]; [[Articles of Faith 1.9|A of F 1:9]]).
+Jesus Christ leads and guides his church today through revelation to a prophet, President Spencer W. Kimball, and his counselors in the First Presidency and the Twelve Apostles, the same organization that he established when he was here on earth (see [[D&C 102.9|D&C 102:9, 23]][[D&C 102.23|]]; [[Articles of Faith 1.9|A of F 1:9]]).
 
 Jesus Christ’s admonition to “come … follow me” and “follow thou me” is the challenge that he gave to each of us (see [[Matthew 19.21|Matt. 19:21]]; [[John 21.22|John 21:22]]). He lived in the preexistence in the spirit world; he dwelt with God his Father. He is the Son, Jesus Christ. We took a mortal body upon us. We’ll have opposition; we will taste death and be resurrected because of the atoning sacrifice of Jesus Christ. He will be granted a degree of glory. We can have that same degree of glory—the celestial kingdom; if we are worthy. We can dwell once again with God the Father and his Son Jesus Christ throughout all the eternities.
 
@@ -95,8 +97,3 @@ During this Easter season, this is my personal witness and testimony. Oh, if I h
 
 
 
-
-
-
-
-#Jesus_Christ

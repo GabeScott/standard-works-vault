@@ -1,6 +1,8 @@
 # Focus on Jesus Christ and His Gospel
 
-By Elder I. Raymond Egbo - *Of the Seventy*
+Henry B. Eyring
+
+By Elder I. Raymond Egbo - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -16,7 +18,7 @@ At one point, they were minutes away from being eliminated from competition, but
 
 Once the football team learned to ignore the many distractions facing them and focused on their goal, they succeeded beyond what they thought possible and experienced great joy. (As did the rest of us in Nigeria!)
 
-In a similar way, when we ignore the distractions of the world and focus on Christ and His gospel, we are guaranteed success beyond what we can fully imagine and can feel great joy. President Russell M. Nelson taught: “When the focus of our lives is on … Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives.”[^1]
+In a similar way, when we ignore the distractions of the world and focus on Christ and His gospel, we are guaranteed success beyond what we can fully imagine and can feel great joy. President Russell M. Nelson taught: “When the focus of our lives is on … Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives.”[^1]
 
 I pray that the Holy Ghost will help each of us to heed President Nelson’s invitation to focus our lives on “Jesus Christ and His gospel” so we can experience joy in Christ “regardless of what is happening—or not happening—in our lives.”[^2]
 
@@ -28,9 +30,9 @@ For parents with children who have strayed, take heart! Instead of wondering why
 
 Once he experienced joy in Christ, Alma the Younger lived with that joy. But how did he maintain such joy even through difficulty and trial? He states:
 
-“From that time even until now, I have labored without ceasing, \[to\] bring souls unto repentance; that I might bring them to taste of the exceeding joy of which I did taste. …
+“From that time even until now, I have labored without ceasing, \[to\] bring souls unto repentance; that I might bring them to taste of the exceeding joy of which I did taste. …
 
-“… And … the Lord doth give me exceedingly great joy in the fruit of my labors. …
+“… And … the Lord doth give me exceedingly great joy in the fruit of my labors. …
 
 “And I have been supported under trials and troubles of every kind.”[^8]
 
@@ -59,41 +61,39 @@ He lovingly invites, “Come unto me, all ye that labour and are heavy laden, an
 
 
 
-[^1]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^1]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^2]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82; see also Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95; “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97–100.
+[^2]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82; see also Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95; “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97–100.
 
 [^3]: [[Alma 36.16|Alma 36:16]].
 
 [^4]: See [[Alma 36.17|Alma 36:17–21]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]].
 
-[^5]: See [[1 Timothy 1.1|1 Timothy 1:1]].
+[^5]: See [[1 Timothy 1.1|1 Timothy 1:1]].
 
 [^6]: [[Hebrews 9.11|Hebrews 9:11]].
 
-[^7]: See Dieter F. Uchtdorf, “[[2023 April - Jesus Christ Is the Strength of Parents.md|Jesus Christ Is the Strength of Parents]],” *Liahona*, May 2023, 55–59.
+[^7]: See Dieter F. Uchtdorf, “[[2023 April - Jesus Christ Is the Strength of Parents.md|Jesus Christ Is the Strength of Parents]],” *Liahona*, May 2023, 55–59.
 
 [^8]: [[Alma 36.24|Alma 36:24–27]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]].
 
-[^9]: Russell M. Nelson, in Joy D. Jones, “[[2020 April - An Especially Noble Calling.md|An Especially Noble Calling]],” *Ensign* or *Liahona*, May 2020, 16.
+[^9]: Russell M. Nelson, in Joy D. Jones, “[[2020 April - An Especially Noble Calling.md|An Especially Noble Calling]],” *Ensign* or *Liahona*, May 2020, 16.
 
 [^10]: [[Alma 31.38|Alma 31:38]].
 
 [^11]: [[Mosiah 23.21|Mosiah 23:21–22]][[Mosiah 23.22|]].
 
-[^12]: See Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+[^12]: See Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
 
 [^13]: [[Mosiah 24.12|Mosiah 24:12–13]][[Mosiah 24.13|]].
 
 [^14]: [[Mosiah 24.14|Mosiah 24:14–15]][[Mosiah 24.15|]]; emphasis added.
 
-[^15]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82–83.
+[^15]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82–83.
 
-[^16]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–20.
+[^16]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–20.
 
-[^17]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 92–95.
+[^17]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 92–95.
 
+[^18]: [[Matthew 11.28|Matthew 11:28]]; see also [[Matthew 11.29|verses 29–30]][[Matthew 11.30|]].
 
-
-
-#Adversity #Gospel #Jesus_Christ #Joy

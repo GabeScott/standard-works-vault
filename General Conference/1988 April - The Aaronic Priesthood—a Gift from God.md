@@ -1,5 +1,7 @@
 # The Aaronic Priesthood—a Gift from God
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1988 General Conference*
@@ -56,11 +58,11 @@ He said that this priesthood of Aaron “holds the keys of the ministering of an
 
 When President Wilford Woodruff was an elderly man, he said to the young men of the Church:
 
-“I desire to impress upon you the fact that it does not make any difference whether a man is a Priest or an Apostle, if he magnifies his calling. A Priest holds the keys of the ministering of angels. Never in my life, as an Apostle, as a Seventy, or as an Elder, have I ever had more of the protection of the Lord than while holding the office of a Priest. The Lord revealed to me by visions, by revelations, and by the Holy Spirit, many things that lay before me” (*Millennial Star,* 5 Oct. 1891, p. 629).
+“I desire to impress upon you the fact that it does not make any difference whether a man is a Priest or an Apostle, if he magnifies his calling. A Priest holds the keys of the ministering of angels. Never in my life, as an Apostle, as a Seventy, or as an Elder, have I ever had more of the protection of the Lord than while holding the office of a Priest. The Lord revealed to me by visions, by revelations, and by the Holy Spirit, many things that lay before me” (*Millennial Star,* 5 Oct. 1891, p. 629).
 
 On Sunday, February 28, 1897, ninety-one years ago, a great meeting was held here in this Salt Lake Tabernacle. It was to honor President Woodruff on his ninetieth birthday. The Tabernacle was beautifully decorated. There was appropriate music with talks of tribute. Then President Woodruff, old and somewhat crippled, stood to speak, and he said to the young men:
 
-“I have passed through the periods of boyhood, early manhood and old age. I cannot expect to tarry a great while longer with you, but I want to give to you a few words of counsel. You occupy a position in the Church and Kingdom of God and have received the power of the holy priesthood. The God of heaven has appointed you and called you forth in this day and generation. I want you to look at this. Young men, listen to the counsel of your brethren. Live near to God; pray while young; learn to pray; learn to cultivate the Holy Spirit of God; link it to you and it will become a spirit of revelation unto you, inasmuch as you nourish it” (Matthias Cowley, *Wilford Woodruff,* 2nd ed., Salt Lake City: Deseret News, 1916, pp. 602–3).
+“I have passed through the periods of boyhood, early manhood and old age. I cannot expect to tarry a great while longer with you, but I want to give to you a few words of counsel. You occupy a position in the Church and Kingdom of God and have received the power of the holy priesthood. The God of heaven has appointed you and called you forth in this day and generation. I want you to look at this. Young men, listen to the counsel of your brethren. Live near to God; pray while young; learn to pray; learn to cultivate the Holy Spirit of God; link it to you and it will become a spirit of revelation unto you, inasmuch as you nourish it” (Matthias Cowley, *Wilford Woodruff,* 2nd ed., Salt Lake City: Deseret News, 1916, pp. 602–3).
 
 President Woodruff had an inspired view of this remarkable and wonderful blessing which may be enjoyed by every boy who holds the Aaronic Priesthood and lives worthy of it. That key is the gift of the ministering of angels. I am convinced that the Lord would not have given it to us had he not desired that we have it so that we might enjoy the wonderful gifts, guidance, and protection which come therefrom.
 
@@ -89,8 +91,3 @@ I bear my witness and testimony of these things as I invoke the blessings of the
 
 
 
-
-
-
-
-#Priesthood #Youth

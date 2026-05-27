@@ -1,6 +1,8 @@
 # Tomorrow the Lord Will Do Wonders among You
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -42,21 +44,21 @@ I love that doctrine! It says again and again that we are going to be blessed fo
 
 My brothers and sisters, the first great *commandment* of all eternity is to love God with all of *our* heart, might, mind, and strength—that’s the first great commandment. But the first great *truth* of all eternity is that God loves *us* with all of *His* heart, might, mind, and strength. That love is the foundation stone of eternity, and it should be the foundation stone of our daily life. Indeed it is only with that reassurance burning in our soul that we can have the confidence to keep trying to improve, keep seeking forgiveness for our sins, and keep extending that grace to our neighbor.
 
-President George Q. Cannon once taught: “No matter how serious the trial, how deep the distress, how great the affliction, \[God\] will never desert us. He never has, and He never will. He cannot do it. It is not His character \[to do so\]. … He will \[always\] stand by us. We may pass through the fiery furnace; we may pass through deep waters; but we shall not be consumed nor overwhelmed. We shall emerge from all these trials and difficulties the better and purer for them.”[^9]
+President George Q. Cannon once taught: “No matter how serious the trial, how deep the distress, how great the affliction, \[God\] will never desert us. He never has, and He never will. He cannot do it. It is not His character \[to do so\]. … He will \[always\] stand by us. We may pass through the fiery furnace; we may pass through deep waters; but we shall not be consumed nor overwhelmed. We shall emerge from all these trials and difficulties the better and purer for them.”[^9]
 
 Now, with that majestic devotion ringing from heaven as the great constant in our lives, manifested most purely and perfectly in the life, death, and Atonement of the Lord Jesus Christ, we can escape the consequences of both sin and stupidity—our own or that of others—in whatever form they may come to us in the course of daily living. If we give our heart to God, if we love the Lord Jesus Christ, if we do the best we can to live the gospel, then tomorrow—and every other day—is ultimately going to be magnificent, even if we don’t always recognize it as such. Why? Because our Heavenly Father wants it to be! He wants to bless us. A rewarding, abundant, and eternal life is the very object of His merciful plan for His children! It is a plan predicated on the truth “that all things work together for good to them that love God.”[^10] So keep loving. Keep trying. Keep trusting. Keep believing. Keep growing. Heaven is cheering you on today, tomorrow, and forever.
 
 “Hast thou not known? hast thou not heard?” Isaiah cried.
 
-“\[God\] giveth power to the faint; and to them that have no might he increaseth strength. …
+“\[God\] giveth power to the faint; and to them that have no might he increaseth strength. …
 
-“… They that wait upon \[Him\] shall renew their strength; they shall mount up with wings as eagles. …
+“… They that wait upon \[Him\] shall renew their strength; they shall mount up with wings as eagles. …
 
 “For … the Lord … God will hold \[their\] right hand, saying unto \[them\], Fear not; I will help thee.”[^11]
 
 Brothers and sisters, may a loving Father in Heaven bless us tomorrow to remember how we felt today. May He bless us to strive with patience and persistence toward the ideals we have heard proclaimed this conference weekend, knowing that His divine love and unfailing help will be with us even when we struggle—no, will be with us *especially* when we struggle.
 
-If gospel standards seem high and the personal improvement needed in the days ahead seems out of reach, remember Joshua’s encouragement to his people when they faced a daunting future. “Sanctify yourselves,” he said, “for to morrow the Lord will do wonders among you.”[^12] I declare that same promise. It is the promise of this conference. It is the promise of this Church. It is the promise of Him who performs those wonders, who is Himself “Wonderful, Counsellor, The mighty God, … The Prince of Peace.”[^13] Of Him I bear witness. Of Him I am a witness. And to Him this conference stands as a testament of His ongoing work in this great latter day. In the name of Jesus Christ, amen.
+If gospel standards seem high and the personal improvement needed in the days ahead seems out of reach, remember Joshua’s encouragement to his people when they faced a daunting future. “Sanctify yourselves,” he said, “for to morrow the Lord will do wonders among you.”[^12] I declare that same promise. It is the promise of this conference. It is the promise of this Church. It is the promise of Him who performs those wonders, who is Himself “Wonderful, Counsellor, The mighty God, … The Prince of Peace.”[^13] Of Him I bear witness. Of Him I am a witness. And to Him this conference stands as a testament of His ongoing work in this great latter day. In the name of Jesus Christ, amen.
 
 
 
@@ -77,7 +79,7 @@ If gospel standards seem high and the personal improvement needed in the days ah
 
 [^8]: [[D&C 11.8|Doctrine and Covenants 11:8, 12, 14]][[D&C 11.12|]][[D&C 11.14|]]; emphasis added.
 
-[^9]: George Q. Cannon, “Remarks,” *Deseret Evening News,* Mar. 7, 1891, 4.
+[^9]: George Q. Cannon, “Remarks,” *Deseret Evening News,* Mar. 7, 1891, 4.
 
 [^10]: [[Romans 8.28|Romans 8:28]].
 
@@ -85,7 +87,5 @@ If gospel standards seem high and the personal improvement needed in the days ah
 
 [^12]: [[Joshua 3.5|Joshua 3:5]].
 
+[^13]: [[Isaiah 9.6|Isaiah 9:6]].
 
-
-
-#Adversity #Endurance #General_Conference #Hope #Love #Opposition #Repentance

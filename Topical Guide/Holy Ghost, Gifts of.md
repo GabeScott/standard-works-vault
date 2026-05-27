@@ -1,7 +1,6 @@
 # Holy Ghost, Gifts of
 
-
-*See also* [[Heal, Healing.md|Heal]]; [[Holy Ghost, Comforter.md|Holy Ghost, Comforter]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Prophecy.md|Prophecy]]; [[Revelation.md|Revelation]]; [[Vision.md|Vision]]
+*See also* [[Heal.md|Heal]]; [[Holy Ghost, Comforter.md|Holy Ghost, Comforter]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Prophecy.md|Prophecy]]; [[Revelation.md|Revelation]]; [[Vision.md|Vision]]
 
 filled him with the *spirit* of God, in wisdom, and in understanding, [[Exodus 31.3|Exodus 31:3]] ([[Exodus 36.1|Exodus 36:1]]).
 
@@ -13,9 +12,9 @@ ye shall receive *power*, after that the *Holy Ghost* is come, [[Acts 1.8|Acts 1
 
 began to speak with other *tongues*, [[Acts 2.4|Acts 2:4]] ([[Acts 4.31|Acts 4:31]]; [[Acts 10.46|Acts 10:46]]).
 
-he, being *full* of the *Holy Ghost* ... saw the glory of God, [[Acts 7.55|Acts 7:55]].
+he, being *full* of the *Holy Ghost* … saw the glory of God, [[Acts 7.55|Acts 7:55]].
 
-God anointed Jesus ... with the *Holy Ghost* ... who went about ... healing, [[Acts 10.38|Acts 10:38]].
+God anointed Jesus … with the *Holy Ghost* … who went about … healing, [[Acts 10.38|Acts 10:38]].
 
 God gave them the like *gift* as he did unto us, [[Acts 11.17|Acts 11:17]].
 
@@ -35,23 +34,23 @@ Quench not the *Spirit*, [[1 Thessalonians 5.19|1 Thessalonians 5:19]].
 
 thou stir up the *gift* of God, which is in thee, [[2 Timothy 1.6|2 Timothy 1:6]].
 
-God also bearing them witness ... with divers miracles, and *gifts of the Holy Ghost*, [[Hebrews 2.4|Hebrews 2:4]].
+God also bearing them witness … with divers miracles, and *gifts of the Holy Ghost*, [[Hebrews 2.4|Hebrews 2:4]].
 
-*mysteries* ... unfolded ... by the power of the *Holy Ghost*, [[1 Nephi 10.19|1 Nephi 10:19]].
+*mysteries* … unfolded … by the power of the *Holy Ghost*, [[1 Nephi 10.19|1 Nephi 10:19]].
 
 baptism of fire and of the *Holy Ghost*; and then can ye speak with the tongue of angels, [[2 Nephi 31.13|2 Nephi 31:13]].
 
-Having been visited by the Spirit ... many *gifts*, the *gift* of speaking with tongues ... preaching ... translation, [[Alma 9.21|Alma 9:21]].
+Having been visited by the Spirit … many *gifts*, the *gift* of speaking with tongues … preaching … translation, [[Alma 9.21|Alma 9:21]].
 
 *Holy Ghost* did fall upon them, [[3 Nephi 19.13|3 Nephi 19:13]].
 
-say the Lord no longer worketh ... by *gifts*, or by tongues, or by healings, or by the power of the *Holy Ghost*, [[3 Nephi 29.6|3 Nephi 29:6]].
+say the Lord no longer worketh … by *gifts*, or by tongues, or by healings, or by the power of the *Holy Ghost*, [[3 Nephi 29.6|3 Nephi 29:6]].
 
-*confesses* by the ... *Holy Ghost* that Jesus is the Christ, [[Moroni 7.44|Moroni 7:44]].
+*confesses* by the … *Holy Ghost* that Jesus is the Christ, [[Moroni 7.44|Moroni 7:44]].
 
 deny not the *gifts* of God, for they are many, [[Moroni 10.8|Moroni 10:8]].
 
-thy *gift* ... is sacred and cometh from above, [[D&C 6.10|D&C 6:10]].
+thy *gift* … is sacred and cometh from above, [[D&C 6.10|D&C 6:10]].
 
 put your trust in that *Spirit* which leadeth to do good, [[D&C 11.12|D&C 11:12]].
 
@@ -61,6 +60,6 @@ a prophet, having all the *gifts* of God, [[D&C 107.92|D&C 107:92]].
 
 *gift of tongues* be poured out upon thy people, [[D&C 109.36|D&C 109:36]].
 
-*written* ... by the power of the *Holy Ghost*, [[D&C 124.4|D&C 124:4]].
+*written* … by the power of the *Holy Ghost*, [[D&C 124.4|D&C 124:4]].
 
 We believe in the *gift* of tongues, [[Articles of Faith 1.7|Articles of Faith 1:7]].

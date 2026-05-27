@@ -1,6 +1,8 @@
 # Opening Message
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -41,16 +43,11 @@ Welcome to April 2020 general conference! I know that God, our Heavenly Father, 
 
 [^1]: [[D&C 38.30|Doctrine and Covenants 38:30]].
 
-[^2]: See [[3 Nephi 27.27|3 Nephi 27:27]].
+[^2]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
 [^3]: [[D&C 87.8|Doctrine and Covenants 87:8]].
 
 [^4]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-[^5]: *Hymns,* no. 2.
+[^5]: *Hymns,* no. 2.
 
-
-
-
-
-#Restoration

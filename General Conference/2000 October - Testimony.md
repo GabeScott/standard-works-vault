@@ -1,5 +1,7 @@
 # Testimony
 
+Gordon B. Hinckley
+
 By Elder Loren C. Dunn - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -27,8 +29,3 @@ For all who have borne witness of this work and all who will yet bear witness of
 
 
 
-
-
-
-
-#Obedience #Ordinances #Temples #Testimony

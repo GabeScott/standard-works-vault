@@ -1,5 +1,7 @@
 # The Hands of the Fathers
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -37,11 +39,11 @@ A young Laurel I met on a conference assignment not long ago wrote to me after o
 Well, as with that young woman, I don’t want this talk to sound ungrateful, nor is it meant to make fathers feel they have fallen short. Most fathers are wonderful. Most dads are terrific. I don’t know who wrote these little storybook verses remembered from my youth, but they go something like this:
 
 >Only a dad with a tired face,
->Coming home from the daily race, …
+>Coming home from the daily race, …
 >Toiling and striving from day to day,
->Facing whatever may come his way, …
+>Facing whatever may come his way, …
 >Glad in his heart that his own rejoice
->To see him come home and to hear his voice. …
+>To see him come home and to hear his voice. …
 >
 >Only a dad, but he gives his all,
 >\[Smoothing\] the way for his children small,
@@ -108,7 +110,7 @@ Fathers, this Easter weekend may we be renewed in our task as parents, bolstered
 
 [^16]: *Parisina,* stanza 13, lines 285–86.
 
-[^17]: [[1 Nephi 2.16|1 Ne. 2:16]].
+[^17]: [[1 Nephi 2.16|1 Ne. 2:16]].
 
 [^18]: [[Enos 1.3|Enos 1:3]].
 
@@ -120,8 +122,3 @@ Fathers, this Easter weekend may we be renewed in our task as parents, bolstered
 
 [^22]: [[Mark 14.36|Mark 14:36]].
 
-
-
-
-
-#Children #Fatherhood #God_The_Father #Jesus_Christ

@@ -1,5 +1,7 @@
 # Miracles—Then and Now
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -92,13 +94,13 @@ Ella Wheeler Wilcox, the poetess, wrote:
 
 May I conclude with the inspiring example of Melissa Engle of West Valley, Utah. Melissa is featured in the August 1992 issue of the *New Era.* She tells her own story:
 
-“When I was born I only had a thumb on my right hand because the umbilical cord got wrapped around my fingers and \[severed them\]. My dad wanted to find something I could do to strengthen my hand and make it useful. Playing the violin seemed like a natural because I wouldn’t have to finger with both hands, like you would with a flute. …
+“When I was born I only had a thumb on my right hand because the umbilical cord got wrapped around my fingers and \[severed them\]. My dad wanted to find something I could do to strengthen my hand and make it useful. Playing the violin seemed like a natural because I wouldn’t have to finger with both hands, like you would with a flute. …
 
-“I’ve been playing for about eight years now. I take private lessons, and I have to work at things like a paper route to help pay for them. I get to \[my violin\] lessons by riding a bus across town. …
+“I’ve been playing for about eight years now. I take private lessons, and I have to work at things like a paper route to help pay for them. I get to \[my violin\] lessons by riding a bus across town. …
 
 “A highlight \[of my life\] was Interlochen, located on a lake in Michigan, one of the best music camps in the world for \[youth\]. I sent in my application for the eight weeks of intensive music training and couldn’t believe I \[was\] accepted.
 
-“The only problem was money. It costs thousands of dollars, and there was no way \[I could\] make that much before the deadline. So I prayed and prayed, and about a week before I had to send in the money, I was called into the office of a man who had a grant for someone with a handicap who was pursuing the arts. That, to me, was a miracle. … I’m really grateful for it” (“Something You Really Love,” *New Era,* Aug. 1992, pp. 30–31).
+“The only problem was money. It costs thousands of dollars, and there was no way \[I could\] make that much before the deadline. So I prayed and prayed, and about a week before I had to send in the money, I was called into the office of a man who had a grant for someone with a handicap who was pursuing the arts. That, to me, was a miracle. … I’m really grateful for it” (“Something You Really Love,” *New Era,* Aug. 1992, pp. 30–31).
 
 Melissa, when she received the grant, turned to her mother, who had been anxious not to see her daughter disappointed and had thus attempted to curb her enthusiasm and hope, and said, “Mother, I told you Heavenly Father answers prayers, for look how He has answered mine.”
 
@@ -108,11 +110,11 @@ To all who have suffered silently from sickness, to you who have cared for those
 
 There will surely come that day, even the fulfillment of the precious promise from the Book of Mormon:
 
-“The soul shall be restored to the body, and the body to the soul; yea, and every limb and joint shall be restored to its body; yea, even a hair of the head shall not be lost; but all things shall be restored to their proper and perfect frame. …
+“The soul shall be restored to the body, and the body to the soul; yea, and every limb and joint shall be restored to its body; yea, even a hair of the head shall not be lost; but all things shall be restored to their proper and perfect frame. …
 
 “And then shall the righteous shine forth in the kingdom of God” ([[Alma 40.23|Alma 40:23, 25]][[Alma 40.25|]]).
 
-From the Psalm echoes the assurance: “My help cometh from the Lord, which made heaven and earth. …
+From the Psalm echoes the assurance: “My help cometh from the Lord, which made heaven and earth. …
 
 “He that keepeth thee will not slumber.
 
@@ -136,13 +138,8 @@ Through the years the Latter-day Saints have taken comfort from the favorite hym
 >Help and comfort give you to your journey’s end.
 >
 
-To any who from anguish of heart and sadness of soul have silently asked, “Heavenly Father, are you really there? … Do you hear and answer every … prayer?” (*Children’s Songbook,* p. 12), I bear to you my witness that He is there. He does hear and answer every prayer. His Son, the Christ, burst the bands of our earthly prisons. Heaven’s blessings await you. In the name of Jesus Christ, amen.
+To any who from anguish of heart and sadness of soul have silently asked, “Heavenly Father, are you really there? … Do you hear and answer every … prayer?” (*Children’s Songbook,* p. 12), I bear to you my witness that He is there. He does hear and answer every prayer. His Son, the Christ, burst the bands of our earthly prisons. Heaven’s blessings await you. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Adversity #Courage #Endurance #Love

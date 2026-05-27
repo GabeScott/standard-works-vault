@@ -1,5 +1,7 @@
 # “Be of Good Cheer”
 
+Gordon B. Hinckley
+
 By Jeanne Inouye - *Provo Sixteenth Ward, Provo Utah Edgemont Stake*
 
 *Given in the October session of the 1993 General Conference*
@@ -20,7 +22,7 @@ I still have much to learn about raising children, but the Relief Society has gi
 
 One thing I have learned is that motherhood entails difficult decisions. When our first child was born, I had been working for about twelve years, first as a teacher and later as a lawyer. I wondered whether to continue working. My husband’s income was sufficient to meet our needs, but we were about twenty years older than most new parents. I wondered whether we would both survive to raise our children and, if I were widowed, how I would provide for them. I wondered how difficult it would be to find a job at the age of sixty should a need arise as our children entered college or received mission calls.
 
-President Kimball, who was then the prophet, had counseled the sisters of the Church: “Some women, because of circumstances beyond their control, must work. We understand that. … Do not, however, make the mistake of being drawn off into secondary tasks which will cause the neglect of your eternal assignments such as giving birth to and rearing the spirit children of our Father in Heaven. Pray carefully over all your decisions” (Spencer W. Kimball, *Ensign,* Nov. 1979, p. 103; see also *My Beloved Sisters,* Salt Lake City: Deseret Book Co., 1979, p. 41).
+President Kimball, who was then the prophet, had counseled the sisters of the Church: “Some women, because of circumstances beyond their control, must work. We understand that. … Do not, however, make the mistake of being drawn off into secondary tasks which will cause the neglect of your eternal assignments such as giving birth to and rearing the spirit children of our Father in Heaven. Pray carefully over all your decisions” (Spencer W. Kimball, *Ensign,* Nov. 1979, p. 103; see also *My Beloved Sisters,* Salt Lake City: Deseret Book Co., 1979, p. 41).
 
 I took this counsel seriously. I knew that I had to decide whether I was among those who must work. After praying earnestly about the matter, I sought a priesthood blessing from my husband. The blessing promised that I would be able to make a decision that would be good for our family but did not indicate what the decision should be. I tried to foresee the effect my decision would have on my husband, my children, and me and to listen for inspiration. My choice was to become a full-time homemaker.
 
@@ -28,7 +30,7 @@ I have not regretted that decision. I have loved being home with the children, w
 
 Formulating priorities is an ongoing process for us all. Sisters throughout the Church, many in circumstances far more difficult than mine, have prayerfully considered the counsel of the prophets and sought the guidance of the Holy Ghost as they too have endeavored to make wise decisions regarding the well-being of their families. And though their decisions have been inevitably varied and diverse, and sometimes misunderstood by others, I believe that they too must and can trust the Lord to help them fulfill their responsibilities.
 
-When we have been honest with ourselves and humble before the Lord in decisions about work and in the myriad decisions involved in mothering, we can go forward with courage. “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind” ([[2 Timothy 1.7|2 Tim. 1:7]]).
+When we have been honest with ourselves and humble before the Lord in decisions about work and in the myriad decisions involved in mothering, we can go forward with courage. “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind” ([[2 Timothy 1.7|2 Tim. 1:7]]).
 
 As I have attempted to establish priorities, I have learned that we may almost always have too much to do. As a mother at home with only two children, I have too much to do. How much greater the demands are for women who work outside the home or whose families are large or who are parenting their children alone! As I think about our time constraints, I conclude that God has not intended that we should be able to do everything we would like to do. If there were not more to do than we are individually capable of doing, we wouldn’t have to make choices and we would never realize what we value most.
 
@@ -36,7 +38,7 @@ It is often difficult to know what the most important things are. We are blessed
 
 President Benson counseled us, as have other prophets, to read the scriptures as a family each day. For the past several years, our family has been trying to do that. Last year, however, I noticed a problem developing. Our children practice musical instruments, and I encourage them to do this in the morning when there are fewer distractions. But sometimes they would go to bed late and get up late. On those days they would not have enough time to finish practicing, dress, eat, and read the scriptures before going out the door. The activity usually slighted was scripture study. Sometimes we would read a verse or two, and sometimes we’d say we’d get to it after school, but our efforts were inconsistent. This year I realized that my priorities were wrong. It occurred to me that I might be conveying to the children that the study of music was more important than the study of the gospel. I decided that on those mornings when time was short, we would study the scriptures and postpone music practice. I want to bear you my testimony that I have felt a great peace as we have followed the counsel of the prophet in this matter.
 
-To accept the guidance of our Heavenly Father, through the scriptures and through his prophets, is a source of much strength and courage. We may not be able to do everything, but he will bless us in our efforts to do those things that he has asked us to do. Like Nephi, we can do the things the Lord has commanded, for he “giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]).
+To accept the guidance of our Heavenly Father, through the scriptures and through his prophets, is a source of much strength and courage. We may not be able to do everything, but he will bless us in our efforts to do those things that he has asked us to do. Like Nephi, we can do the things the Lord has commanded, for he “giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]).
 
 Another source of courage has been the experiences that have taught me that God will give mothers guidance concerning the individual needs of their children. Some of my most fervent prayers have been for blessings for my children and for guidance in directing them. While answers have most often come in the peaceful confirmation of a planned course of action, I have sometimes been surprised with the clarity of new ideas presented to my mind.
 
@@ -49,8 +51,3 @@ I bear testimony of his love and interest in helping us, of the accessibility of
 
 
 
-
-
-
-
-#Family #Motherhood #Prayer

@@ -1,6 +1,5 @@
 # Utterance
 
-
 speak with other tongues, as the Spirit gave them *utterance*, [[Acts 2.4|Acts 2:4]].
 
 enriched by him, in all *utterance*, [[1 Corinthians 1.5|1 Corinthians 1:5]].

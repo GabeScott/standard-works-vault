@@ -1,4 +1,3 @@
 # Areopagus
 
-
-*See* [BD Areopagus](https://www.churchofjesuschrist.org/study/scriptures/bd/areopagus?lang=eng)
+*See also* [[BD Areopagus.md|BD Areopagus]]

@@ -1,6 +1,8 @@
 # “Behold Thy Mother”
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+Harold B. Lee
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -100,9 +102,9 @@ Finally, let us contemplate “mother loved.” Universally applicable is the po
 >Which of them really loved her best?”
 >
 
-One certain way each can demonstrate genuine love for mother is to live the truths mother so patiently taught. Such a lofty goal is not new to our present generation. On this continent, in times described in the Book of Mormon, we read of a brave, a good, and noble leader named Helaman who did march in righteous battle at the head of 2,000 young men. Helaman described the activities of these young men: “… never had I seen so great courage, … as … they said unto me: … behold our God is with us, and he will not suffer that we should fall; then let us go forth; … Now they never had fought, yet they did not fear death; … yea, they had been taught by their mothers, that if they did not doubt, God would deliver them. And they rehearsed unto me the words of their mothers, saying: We do not doubt our mothers knew it.” ([[Alma 56.45|Alma 56:45–48]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]].)
+One certain way each can demonstrate genuine love for mother is to live the truths mother so patiently taught. Such a lofty goal is not new to our present generation. On this continent, in times described in the Book of Mormon, we read of a brave, a good, and noble leader named Helaman who did march in righteous battle at the head of 2,000 young men. Helaman described the activities of these young men: “… never had I seen so great courage, … as … they said unto me: … behold our God is with us, and he will not suffer that we should fall; then let us go forth; … Now they never had fought, yet they did not fear death; … yea, they had been taught by their mothers, that if they did not doubt, God would deliver them. And they rehearsed unto me the words of their mothers, saying: We do not doubt our mothers knew it.” ([[Alma 56.45|Alma 56:45–48]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]].)
 
-At the end of the battle, Helaman continued his description: “… behold, to my great joy, there had not one soul of them fallen to the earth; yea, and they had fought as if with the strength of God; yea, never were men known to have fought with such miraculous strength; and with such mighty power. …” ([[Alma 56.56|Alma 56:56]].)
+At the end of the battle, Helaman continued his description: “… behold, to my great joy, there had not one soul of them fallen to the earth; yea, and they had fought as if with the strength of God; yea, never were men known to have fought with such miraculous strength; and with such mighty power. …” ([[Alma 56.56|Alma 56:56]].)
 
 Miraculous strength, mighty power—mother’s love and love for mother had met and triumphed.
 
@@ -110,7 +112,7 @@ The holy scriptures, the pages of history are replete with tender, moving, convi
 
 The hour has come. The personal earthly ministry of the Son of God moves swiftly to its dramatic conclusion. A certain loneliness is here. Nowhere to be found are the lame beggars who, because of this man, walk; the deaf who, because of this man, hear; the blind who, because of this man, see; the dead who, because of this man, live.
 
-There remained yet a few faithful followers. From his tortured position on the cruel cross, he sees his mother and the disciple whom he loved standing by. He speaks: “… woman, behold thy son! Then saith he to the disciple, Behold thy mother! …” ([[John 19.26|John 19:26–27]][[John 19.27|]].)
+There remained yet a few faithful followers. From his tortured position on the cruel cross, he sees his mother and the disciple whom he loved standing by. He speaks: “… woman, behold thy son! Then saith he to the disciple, Behold thy mother! …” ([[John 19.26|John 19:26–27]][[John 19.27|]].)
 
 From that awful night when time stood still, when the earth did quake and great mountains were brought down—yes, through the annals of history, over the centuries of years and beyond the span of time, there echoes his simple yet divine words, “Behold thy mother!”
 
@@ -123,8 +125,3 @@ May we, by our thoughts and our actions, honor God and mother, I pray humbly yet
 
 
 
-
-
-
-
-#Love #Motherhood #Respect

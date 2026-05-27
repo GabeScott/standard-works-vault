@@ -1,5 +1,7 @@
 # Lessons from the Lord’s Prayers
 
+Thomas S. Monson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -8,7 +10,7 @@ By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/04/lessons-from-the-lords-prayers?lang=eng)
 
-With you, my dear brothers and sisters, I express love and admiration for Elder Neil L. Andersen. His call to the holy apostleship has come from the Lord as revealed to His prophet, President Thomas S. Monson. Throughout his life, President Monson has refined his ability to hearken to the will of the Lord. As the Savior submitted His will to Heavenly Father, so the prophet submits his will to the Lord. Thank you, President Monson, for developing and using that power. We congratulate you, Elder Andersen, and we pray for you!
+With you, my dear brothers and sisters, I express love and admiration for Elder Neil L. Andersen. His call to the holy apostleship has come from the Lord as revealed to His prophet, President Thomas S. Monson. Throughout his life, President Monson has refined his ability to hearken to the will of the Lord. As the Savior submitted His will to Heavenly Father, so the prophet submits his will to the Lord. Thank you, President Monson, for developing and using that power. We congratulate you, Elder Andersen, and we pray for you!
 
 ## The Lord’s Prayer
 
@@ -46,9 +48,9 @@ The Lord prefaced His prayer by first asking His followers to avoid “vain repe
 
 Other prayers of the Lord are also instructive, especially His intercessory prayers. They are so named because the Lord prayerfully interceded with His Father for the benefit of His disciples. Picture in your mind the Savior of the world kneeling in prayer, as I quote from John chapter 17:
 
-“These words spake Jesus, and lifted up his eyes to heaven, and said, Father, … glorify thy Son, that thy Son also may glorify thee. …
+“These words spake Jesus, and lifted up his eyes to heaven, and said, Father, … glorify thy Son, that thy Son also may glorify thee. …
 
-“… I have finished the work which thou gavest me to do. …
+“… I have finished the work which thou gavest me to do. …
 
 “For I have given unto them the words which thou gavest me; and they have received them, and have known surely that I came out from thee, and they have believed that thou didst send me.
 
@@ -66,7 +68,7 @@ Other lessons about prayer were taught by the Lord. He told His disciples that �
 
 Another of the Lord’s prayers teaches a lesson repeated in three consecutive verses:
 
-“Father, I thank thee that thou hast given the Holy Ghost unto these whom I have chosen. …
+“Father, I thank thee that thou hast given the Holy Ghost unto these whom I have chosen. …
 
 “Father, I pray thee that thou wilt give the Holy Ghost unto all them that shall believe in their words.
 
@@ -78,7 +80,7 @@ If companionship of the Holy Ghost is that important, we should pray for it too.
 
 The Lord has taught ways by which our prayers can be enhanced. For example, He said that “the song of the righteous is a prayer unto me, and it shall be answered with a blessing upon their heads.”[^31]
 
-Prayer can also be enhanced by fasting.[^32] The Lord said, “I give unto you a commandment that ye shall continue in prayer and fasting from this time forth.”[^33] A plea for wisdom in fasting was offered by President Joseph F. Smith, who cautioned that “there is such a thing as overdoing. A man may fast and pray till he kills himself; and there isn’t any necessity for it; nor wisdom in it. … The Lord can hear a simple prayer, offered in faith, in half a dozen words, and he will recognize fasting that may not continue more than twenty-four hours, just as readily and as effectually as He will answer a prayer of a thousand words and fasting for a month. … The Lord will accept that which is enough, with a good deal more pleasure and satisfaction than that which is too much and unnecessary.”[^34]
+Prayer can also be enhanced by fasting.[^32] The Lord said, “I give unto you a commandment that ye shall continue in prayer and fasting from this time forth.”[^33] A plea for wisdom in fasting was offered by President Joseph F. Smith, who cautioned that “there is such a thing as overdoing. A man may fast and pray till he kills himself; and there isn’t any necessity for it; nor wisdom in it. … The Lord can hear a simple prayer, offered in faith, in half a dozen words, and he will recognize fasting that may not continue more than twenty-four hours, just as readily and as effectually as He will answer a prayer of a thousand words and fasting for a month. … The Lord will accept that which is enough, with a good deal more pleasure and satisfaction than that which is too much and unnecessary.”[^34]
 
 The concept of “too much and unnecessary” could also apply to the length of our prayers. A closing prayer in a Church meeting need not include a summary of each message and should not become an unscheduled sermon. Private prayers can be as long as we want, but public prayers ought to be short supplications for the Spirit of the Lord to be with us or brief declarations of gratitude for what has transpired.
 
@@ -103,7 +105,7 @@ In our daily lives and in our own crucial hours, may we fervently apply these pr
 
 [^2]: [[Matthew 6.9|Matthew 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]].
 
-[^3]: See [[Matthew 6.9|Matthew 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]]; [[Luke 11.2|Luke 11:2–4]][[Luke 11.3|]][[Luke 11.4|]]; [[3 Nephi 13.9|3 Nephi 13:9–13]][[3 Nephi 13.10|]][[3 Nephi 13.11|]][[3 Nephi 13.12|]][[3 Nephi 13.13|]].
+[^3]: See [[Matthew 6.9|Matthew 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]]; [[Luke 11.2|Luke 11:2–4]][[Luke 11.3|]][[Luke 11.4|]]; [[3 Nephi 13.9|3 Nephi 13:9–13]][[3 Nephi 13.10|]][[3 Nephi 13.11|]][[3 Nephi 13.12|]][[3 Nephi 13.13|]].
 
 [^4]: See Joseph Smith Translation, Matthew 6:9–15 (The Holy Scriptures: Inspired Version).
 
@@ -123,71 +125,71 @@ In our daily lives and in our own crucial hours, may we fervently apply these pr
 
 [^12]: In the Hebrew and Greek languages, *amen* means “truly,” “surely,” “verily,” or “so be it.”
 
-[^13]: See [[Revelation 1.18|Revelation 1:18]]; [[Revelation 22.20|22:20–21]][[Revelation 22.21|]]. It is also used in confirming agreements (see [[1 Kings 1.36|1 Kings 1:36]]).
+[^13]: See [[Revelation 1.18|Revelation 1:18]]; [[Revelation 22.20|22:20–21]][[Revelation 22.21|]]. It is also used in confirming agreements (see [[1 Kings 1.36|1 Kings 1:36]]).
 
-[^14]: See [[1 Corinthians 14.16|1 Corinthians 14:16]].
+[^14]: See [[1 Corinthians 14.16|1 Corinthians 14:16]].
 
 [^15]: See [[Psalms 106.48|Psalm 106:48]]; [[Revelation 5.13|Revelation 5:13–14]][[Revelation 5.14|]]; [[Revelation 19.4|19:4]]; [[D&C 88.135|D&C 88:135]].
 
-[^16]: [[Matthew 6.7|Matthew 6:7]]; [[3 Nephi 13.7|3 Nephi 13:7]].
+[^16]: [[Matthew 6.7|Matthew 6:7]]; [[3 Nephi 13.7|3 Nephi 13:7]].
 
-[^17]: [[Matthew 6.9|Matthew 6:9]]; [[3 Nephi 13.9|3 Nephi 13:9]].
+[^17]: [[Matthew 6.9|Matthew 6:9]]; [[3 Nephi 13.9|3 Nephi 13:9]].
 
 [^18]: [[John 17.1|John 17:1, 4, 8–9]][[John 17.4|]][[John 17.8|]][[John 17.9|]].
 
-[^19]: See [[1 Timothy 2.5|1 Timothy 2:5]]; [[1 John 2.1|1 John 2:1]]; [[D&C 29.5|D&C 29:5]]; [[D&C 45.3|45:3]]; [[D&C 110.4|110:4]].
+[^19]: See [[1 Timothy 2.5|1 Timothy 2:5]]; [[1 John 2.1|1 John 2:1]]; [[D&C 29.5|D&C 29:5]]; [[D&C 45.3|45:3]]; [[D&C 110.4|110:4]].
 
 [^20]: See [[D&C 14.7|D&C 14:7]].
 
-[^21]: [[3 Nephi 17.17|3 Nephi 17:17]].
+[^21]: [[3 Nephi 17.17|3 Nephi 17:17]].
 
-[^22]: [[3 Nephi 17.20|3 Nephi 17:20]].
+[^22]: [[3 Nephi 17.20|3 Nephi 17:20]].
 
-[^23]: [[3 Nephi 19.23|3 Nephi 19:23]].
+[^23]: [[3 Nephi 19.23|3 Nephi 19:23]].
 
-[^24]: See [[Matthew 5.44|Matthew 5:44]]; [[Alma 34.27|Alma 34:27]]; [[3 Nephi 18.21|3 Nephi 18:21]].
+[^24]: See [[Matthew 5.44|Matthew 5:44]]; [[Alma 34.27|Alma 34:27]]; [[3 Nephi 18.21|3 Nephi 18:21]].
 
 [^25]: [[James 5.16|James 5:16]].
 
-[^26]: [[3 Nephi 18.19|3 Nephi 18:19]].
+[^26]: [[3 Nephi 18.19|3 Nephi 18:19]].
 
-[^27]: [[3 Nephi 18.21|3 Nephi 18:21]].
+[^27]: [[3 Nephi 18.21|3 Nephi 18:21]].
 
-[^28]: See [[2 Nephi 32.9|2 Nephi 32:9]]; [[2 Nephi 33.12|33:12]]; [[3 Nephi 18.23|3 Nephi 18:23, 30]][[3 Nephi 18.30|]]; [[3 Nephi 19.6|19:6–7]][[3 Nephi 19.7|]]; [[3 Nephi 20.31|20:31]]; [[3 Nephi 28.30|28:30]].
+[^28]: See [[2 Nephi 32.9|2 Nephi 32:9]]; [[2 Nephi 33.12|33:12]]; [[3 Nephi 18.23|3 Nephi 18:23, 30]][[3 Nephi 18.30|]]; [[3 Nephi 19.6|19:6–7]][[3 Nephi 19.7|]]; [[3 Nephi 20.31|20:31]]; [[3 Nephi 28.30|28:30]].
 
-[^29]: [[3 Nephi 19.20|3 Nephi 19:20–22]][[3 Nephi 19.21|]][[3 Nephi 19.22|]].
+[^29]: [[3 Nephi 19.20|3 Nephi 19:20–22]][[3 Nephi 19.21|]][[3 Nephi 19.22|]].
 
-[^30]: See [[John 10.27|John 10:27–28]][[John 10.28|]] (compare [[D&C 84.43|D&C 84:43–47]][[D&C 84.44|]][[D&C 84.45|]][[D&C 84.46|]][[D&C 84.47|]]); [[2 Nephi 31.17|2 Nephi 31:17–20]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]]; [[Alma 5.38|Alma 5:38]]. And we may invite the companionship of the Spirit, who will intercede and help us know what to pray about (see [[Romans 8.26|Romans 8:26]]).
+[^30]: See [[John 10.27|John 10:27–28]][[John 10.28|]] (compare [[D&C 84.43|D&C 84:43–47]][[D&C 84.44|]][[D&C 84.45|]][[D&C 84.46|]][[D&C 84.47|]]); [[2 Nephi 31.17|2 Nephi 31:17–20]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]]; [[Alma 5.38|Alma 5:38]]. And we may invite the companionship of the Spirit, who will intercede and help us know what to pray about (see [[Romans 8.26|Romans 8:26]]).
 
 [^31]: [[D&C 25.12|D&C 25:12]].
 
-[^32]: See [[Acts 14.23|Acts 14:23]]; [[1 Corinthians 7.5|1 Corinthians 7:5]]; [[Omni 1.26|Omni 1:26]]; [[Alma 5.46|Alma 5:46]]; [[Alma 6.6|6:6]]; [[Alma 17.3|17:3, 9]][[Alma 17.9|]]; [[Alma 28.6|28:6]]; [[Alma 45.1|45:1]]; [[3 Nephi 27.1|3 Nephi 27:1]]; [[4 Nephi 1.12|4 Nephi 1:12]]; [[Moroni 6.5|Moroni 6:5]].
+[^32]: See [[Acts 14.23|Acts 14:23]]; [[1 Corinthians 7.5|1 Corinthians 7:5]]; [[Omni 1.26|Omni 1:26]]; [[Alma 5.46|Alma 5:46]]; [[Alma 6.6|6:6]]; [[Alma 17.3|17:3, 9]][[Alma 17.9|]]; [[Alma 28.6|28:6]]; [[Alma 45.1|45:1]]; [[3 Nephi 27.1|3 Nephi 27:1]]; [[4 Nephi 1.12|4 Nephi 1:12]]; [[Moroni 6.5|Moroni 6:5]].
 
 [^33]: [[D&C 88.76|D&C 88:76]].
 
-[^34]: Joseph F. Smith, in Conference Report, Oct. 1912, 133–34.
+[^34]: Joseph F. Smith, in Conference Report, Oct. 1912, 133–34.
 
 [^35]: Joseph Smith Translation, Psalm 17:1 (The Holy Scriptures: Inspired Version).
 
-[^36]: See Spencer W. Kimball, *Faith Precedes the Miracle* (1972), 201; Stephen L Richards, in Conference Report, Oct. 1951, 175; Bruce R. McConkie, “Why the Lord Ordained Prayer,” *Ensign,* Jan. 1976, 12; L. Tom Perry, in Conference Report, Oct. 1983, 14–15; or *Ensign,* Nov. 1983, 13; and Dallin H. Oaks, in Conference Report, Apr. 1993, 16–20; or *Ensign,* May 1993, 15–18. Details of the language of prayer are explained by Don E. Norton Jr., “The Language of Formal Prayer,” *Ensign,* Jan. 1976, 44–47.
+[^36]: See Spencer W. Kimball, *Faith Precedes the Miracle* (1972), 201; Stephen L Richards, in Conference Report, Oct. 1951, 175; Bruce R. McConkie, “Why the Lord Ordained Prayer,” *Ensign,* Jan. 1976, 12; L. Tom Perry, in Conference Report, Oct. 1983, [[1983 October - “Our Father Which Art in Heaven”.md|14–15]]; or *Ensign,* Nov. 1983, 13; and Dallin H. Oaks, in Conference Report, Apr. 1993, [[1993 April - The Language of Prayer.md|16–20]]; or *Ensign,* May 1993, 15–18. Details of the language of prayer are explained by Don E. Norton Jr., “The Language of Formal Prayer,” *Ensign,* Jan. 1976, 44–47.
 
 [^37]: [[D&C 112.10|D&C 112:10]]; see also [[Psalms 24.3|Psalm 24:3–4]][[Psalms 24.4|]]; [[Matthew 6.12|Matthew 6:12]]; [[Helaman 3.35|Helaman 3:35]]; [[D&C 64.8|D&C 64:8–10]][[D&C 64.9|]][[D&C 64.10|]].
 
 [^38]: [[Revelation 3.20|Revelation 3:20]].
 
-[^39]: See [[3 Nephi 18.20|3 Nephi 18:20]]; [[D&C 88.64|D&C 88:64]].
+[^39]: See [[3 Nephi 18.20|3 Nephi 18:20]]; [[D&C 88.64|D&C 88:64]].
 
 [^40]: [[Alma 37.37|Alma 37:37]]; see also [[Philippians 4.6|Philippians 4:6]]; [[Alma 34.18|Alma 34:18–27]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]]; [[D&C 10.5|D&C 10:5]]; [[D&C 93.49|93:49]].
 
-[^41]: [[3 Nephi 20.1|3 Nephi 20:1]].
+[^41]: [[3 Nephi 20.1|3 Nephi 20:1]].
 
 [^42]: See *Ensign,* Jan. 1976, 11.
 
-[^43]: Thomas S. Monson, in Conference Report, Oct. 2007, 65; or *Ensign,* Nov. 2007, 61.
+[^43]: Thomas S. Monson, in Conference Report, Oct. 2007, [[2007 October - A Royal Priesthood.md|65]]; or *Ensign,* Nov. 2007, 61.
 
 [^44]: See [[Matthew 26.42|Matthew 26:42]]; [[Jacob 7.14|Jacob 7:14]]; [[Ether 12.29|Ether 12:29]]; [[D&C 109.44|D&C 109:44]]; [[Moses 4.2|Moses 4:2]].
 
-[^45]: See [[3 Nephi 27.13|3 Nephi 27:13–15, 21–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
+[^45]: See [[3 Nephi 27.13|3 Nephi 27:13–15, 21–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
 
 [^46]: See [[Mosiah 15.7|Mosiah 15:7]].
 
@@ -195,8 +197,3 @@ In our daily lives and in our own crucial hours, may we fervently apply these pr
 
 [^48]: [[D&C 65.5|D&C 65:5]].
 
-
-
-
-
-#Fasting #Humility #Jesus_Christ #Prayer

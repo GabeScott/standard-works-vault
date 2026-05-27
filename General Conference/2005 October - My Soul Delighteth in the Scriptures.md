@@ -1,5 +1,7 @@
 # My Soul Delighteth in the Scriptures
 
+Gordon B. Hinckley
+
 By Cheryl C. Lant - *Primary General President*
 
 *Given in the October session of the 2005 General Conference*
@@ -8,7 +10,7 @@ By Cheryl C. Lant - *Primary General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2005/10/my-soul-delighteth-in-the-scriptures?lang=eng)
 
-Our beloved prophet has recently asked us to read the Book of Mormon before the end of the year. As I have accepted this invitation, I have found myself discovering new and exciting things in this book even though I have read it many times before. For instance, I rediscovered [[2 Nephi 4.15|2 Nephi 4:15]], which reads, “For my soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children.”
+Our beloved prophet has recently asked us to read the Book of Mormon before the end of the year. As I have accepted this invitation, I have found myself discovering new and exciting things in this book even though I have read it many times before. For instance, I rediscovered [[2 Nephi 4.15|2 Nephi 4:15]], which reads, “For my soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children.”
 
 This scripture teaches us how to read the Book of Mormon. It mentions three important ideas.
 
@@ -57,8 +59,3 @@ May I bear my testimony that I know that Heavenly Father lives and loves us. I k
 
 [^2]: “A Testimony Vibrant and True,” *Liahona* and *Ensign,* Aug. 2005, 6.
 
-
-
-
-
-#Book_Of_Mormon #Children #Obedience #Scripture_Study

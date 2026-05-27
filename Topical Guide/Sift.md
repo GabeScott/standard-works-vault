@@ -1,6 +1,5 @@
 # Sift
 
-
 *sift* the nations with the sieve of vanity, [[Isaiah 30.28|Isaiah 30:28]].
 
 I will *sift* the house of Israel, [[Amos 9.9|Amos 9:9]].

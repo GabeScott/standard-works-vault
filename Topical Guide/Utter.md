@@ -1,7 +1,6 @@
 # Utter
 
-
-*See also* [[Speak, Spake, Spoken.md|Speak]]; [[Talk.md|Talk]]; [[Utterance.md|Utterance]]
+*See also* [[Speak.md|Speak]]; [[Talk.md|Talk]]; [[Utterance.md|Utterance]]
 
 I will *utter* dark sayings of old, [[Psalms 78.2|Psalms 78:2]].
 
@@ -11,7 +10,7 @@ let not thine heart be hasty to *utter* any thing before God, [[Ecclesiastes 5.2
 
 I will *utter* things which have been kept secret, [[Matthew 13.35|Matthew 13:35]].
 
-Spirit itself maketh intercession for us ... which cannot be *uttered*, [[Romans 8.26|Romans 8:26]].
+Spirit itself maketh intercession for us … which cannot be *uttered*, [[Romans 8.26|Romans 8:26]].
 
 *utter* by the tongue words easy to be understood, [[1 Corinthians 14.9|1 Corinthians 14:9]].
 

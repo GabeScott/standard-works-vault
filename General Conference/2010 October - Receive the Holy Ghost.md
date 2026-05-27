@@ -1,5 +1,7 @@
 # Receive the Holy Ghost
 
+Thomas S. Monson
+
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -14,13 +16,13 @@ My message focuses on the importance of striving in our daily lives to actually 
 
 In December of 1839, while in Washington, D.C., to seek redress for the wrongs done to the Missouri Saints, Joseph Smith and Elias Higbee wrote to Hyrum Smith: “In our interview with the President \[of the United States\], he interrogated us wherein we differed in our religion from the other religions of the day. Brother Joseph said we differed in mode of baptism, and the gift of the Holy Ghost by the laying on of hands. We considered that all other considerations were contained in the gift of the Holy Ghost” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 97).
 
-The Holy Ghost is the third member of the Godhead; He is a personage of spirit and bears witness of all truth. In the scriptures the Holy Ghost is referred to as the Comforter (see [[John 14.16|John 14:16–27]][[John 14.17|]][[John 14.18|]][[John 14.19|]][[John 14.20|]][[John 14.21|]][[John 14.22|]][[John 14.23|]][[John 14.24|]][[John 14.25|]][[John 14.26|]][[John 14.27|]]; [[Moroni 8.26|Moroni 8:26]]), a teacher (see [[John 14.26|John 14:26]]; [[D&C 50.14|D&C 50:14]]), and a revelator (see [[2 Nephi 32.5|2 Nephi 32:5]]). Revelations from the Father and the Son are conveyed through the Holy Ghost. He is the messenger for and the witness of the Father and the Son.
+The Holy Ghost is the third member of the Godhead; He is a personage of spirit and bears witness of all truth. In the scriptures the Holy Ghost is referred to as the Comforter (see [[John 14.16|John 14:16–27]][[John 14.17|]][[John 14.18|]][[John 14.19|]][[John 14.20|]][[John 14.21|]][[John 14.22|]][[John 14.23|]][[John 14.24|]][[John 14.25|]][[John 14.26|]][[John 14.27|]]; [[Moroni 8.26|Moroni 8:26]]), a teacher (see [[John 14.26|John 14:26]]; [[D&C 50.14|D&C 50:14]]), and a revelator (see [[2 Nephi 32.5|2 Nephi 32:5]]). Revelations from the Father and the Son are conveyed through the Holy Ghost. He is the messenger for and the witness of the Father and the Son.
 
 The Holy Ghost is manifested to men and women on the earth both as the power and as the gift of the Holy Ghost. The power can come upon a person before baptism; it is the convincing witness that Jesus Christ is our Savior and Redeemer. Through the power of the Holy Ghost, sincere investigators can acquire a conviction of the truthfulness of the Savior’s gospel, of the Book of Mormon, of the reality of the Restoration, and of the prophetic calling of Joseph Smith.
 
 The gift of the Holy Ghost is bestowed only after proper and authorized baptism and by the laying on of hands by those holding the Melchizedek Priesthood. The Lord declared:
 
-“Yea, repent and be baptized, every one of you, for a remission of your sins; yea, be baptized even by water, and then cometh the baptism of fire and of the Holy Ghost. …
+“Yea, repent and be baptized, every one of you, for a remission of your sins; yea, be baptized even by water, and then cometh the baptism of fire and of the Holy Ghost. …
 
 “And whoso having faith you shall confirm in my church, by the laying on of the hands, and I will bestow the gift of the Holy Ghost upon them” ([[D&C 33.11|D&C 33:11, 15]][[D&C 33.15|]]).
 
@@ -36,11 +38,11 @@ The Apostle Paul made this practice clear to the Ephesians when he asked:
 
 “And when Paul had laid his hands upon them, the Holy Ghost came on them” ([[Acts 19.2|Acts 19:2–6]][[Acts 19.3|]][[Acts 19.4|]][[Acts 19.5|]][[Acts 19.6|]]).
 
-Baptism by immersion is “the introductory ordinance of the gospel, and must be followed by baptism of the Spirit in order to be complete” (Bible Dictionary, “Baptism”). The Prophet Joseph Smith explained that “baptism is a holy ordinance preparatory to the reception of the Holy Ghost; it is the channel and key by which the Holy Ghost will be administered. The Gift of the Holy Ghost by the laying on of hands, cannot be received through the medium of any other principle than the principle of righteousness” (*Teachings: Joseph Smith,* 95–96).
+Baptism by immersion is “the introductory ordinance of the gospel, and must be followed by baptism of the Spirit in order to be complete” (Bible Dictionary, “[[BD Baptism|Baptism]]”). The Prophet Joseph Smith explained that “baptism is a holy ordinance preparatory to the reception of the Holy Ghost; it is the channel and key by which the Holy Ghost will be administered. The Gift of the Holy Ghost by the laying on of hands, cannot be received through the medium of any other principle than the principle of righteousness” (*Teachings: Joseph Smith,* 95–96).
 
 The ordinance of confirming a new member of the Church and bestowing the gift of the Holy Ghost is both simple and profound. Worthy Melchizedek Priesthood holders place their hands upon the head of an individual and call him or her by name. Then, by the authority of the holy priesthood and in the name of the Savior, the individual is confirmed a member of The Church of Jesus Christ of Latter-day Saints, and this important phrase is uttered: “Receive the Holy Ghost.”
 
-The simplicity of this ordinance may cause us to overlook its significance. These four words—“Receive the Holy Ghost”—are not a passive pronouncement; rather, they constitute a priesthood injunction—an authoritative admonition to act and not simply to be acted upon (see [[2 Nephi 2.26|2 Nephi 2:26]]). The Holy Ghost does not become operative in our lives merely because hands are placed upon our heads and those four important words are spoken. As we receive this ordinance, each of us accepts a sacred and ongoing responsibility to desire, to seek, to work, and to so live that we indeed “receive the Holy Ghost” and its attendant spiritual gifts. “For what doth it profit a man if a gift is bestowed upon him, and he receive not the gift? Behold, he rejoices not in that which is given unto him, neither rejoices in him who is the giver of the gift” ([[D&C 88.33|D&C 88:33]]).
+The simplicity of this ordinance may cause us to overlook its significance. These four words—“Receive the Holy Ghost”—are not a passive pronouncement; rather, they constitute a priesthood injunction—an authoritative admonition to act and not simply to be acted upon (see [[2 Nephi 2.26|2 Nephi 2:26]]). The Holy Ghost does not become operative in our lives merely because hands are placed upon our heads and those four important words are spoken. As we receive this ordinance, each of us accepts a sacred and ongoing responsibility to desire, to seek, to work, and to so live that we indeed “receive the Holy Ghost” and its attendant spiritual gifts. “For what doth it profit a man if a gift is bestowed upon him, and he receive not the gift? Behold, he rejoices not in that which is given unto him, neither rejoices in him who is the giver of the gift” ([[D&C 88.33|D&C 88:33]]).
 
 What should we do to make this authorized admonition to seek for the companionship of the third member of the Godhead an ongoing reality? Let me suggest that we need to (1) sincerely desire to receive the Holy Ghost, (2) appropriately invite the Holy Ghost into our lives, and (3) faithfully obey God’s commandments.
 
@@ -48,9 +50,9 @@ What should we do to make this authorized admonition to seek for the companionsh
 
 We first should desire, yearn for, and seek the companionship of the Holy Ghost. You and I can learn a great lesson about righteous desires from the faithful disciples of the Master described in the Book of Mormon:
 
-“And the twelve did teach the multitude; and behold, they did cause that the multitude should kneel down upon the face of the earth, and should pray unto the Father in the name of Jesus. …
+“And the twelve did teach the multitude; and behold, they did cause that the multitude should kneel down upon the face of the earth, and should pray unto the Father in the name of Jesus. …
 
-“And they did pray for that which they most desired; and they desired that the Holy Ghost should be given unto them” ([[3 Nephi 19.6|3 Nephi 19:6, 9]][[3 Nephi 19.9|]]).
+“And they did pray for that which they most desired; and they desired that the Holy Ghost should be given unto them” ([[3 Nephi 19.6|3 Nephi 19:6, 9]][[3 Nephi 19.9|]]).
 
 Do we likewise remember to pray earnestly and consistently for that which we should most desire, even the Holy Ghost? Or do we become distracted by the cares of the world and the routine of daily living and take for granted or even neglect this most valuable of all gifts? Receiving the Holy Ghost starts with our sincere and constant desire for His companionship in our lives.
 
@@ -72,9 +74,9 @@ Reflect on the reasons we worship in the house of the Lord and in our Sabbath me
 
 Praying, studying, gathering, worshipping, serving, and obeying are not isolated and independent items on a lengthy gospel checklist of things to do. Rather, each of these righteous practices is an important element in an overarching spiritual quest to fulfill the mandate to receive the Holy Ghost. The commandments from God we obey and the inspired counsel from Church leaders we follow principally focus upon obtaining the companionship of the Spirit. Fundamentally, all gospel teachings and activities are centered on coming unto Christ by receiving the Holy Ghost in our lives.
 
-You and I should strive to become like the stripling warriors described in the Book of Mormon, who did “perform every word of command with exactness; yea, and even according to their faith it was done unto them. …
+You and I should strive to become like the stripling warriors described in the Book of Mormon, who did “perform every word of command with exactness; yea, and even according to their faith it was done unto them. …
 
-“… And they are strict to remember the Lord their God from day to day; yea, they do observe to keep his statutes, and his judgments, and his commandments continually” ([[Alma 57.21|Alma 57:21]]; [[Alma 58.40|58:40]]).
+“… And they are strict to remember the Lord their God from day to day; yea, they do observe to keep his statutes, and his judgments, and his commandments continually” ([[Alma 57.21|Alma 57:21]]; [[Alma 58.40|58:40]]).
 
 ## Testimony
 
@@ -89,8 +91,3 @@ I bear witness of the living reality of the Father and the Son. I testify the Ho
 
 
 
-
-
-
-
-#Baptism #Holy_Ghost #Obedience #Restoration #Revelation

@@ -1,4 +1,3 @@
 # Life, Eternal
 
-
-*See* [[Eternal Life.md|Eternal Life]]
+*See also* [[Eternal Life.md|Eternal Life]]

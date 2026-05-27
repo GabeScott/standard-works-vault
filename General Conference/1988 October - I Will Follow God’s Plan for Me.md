@@ -1,5 +1,7 @@
 # I Will Follow God’s Plan for Me
 
+Ezra Taft Benson
+
 By Michaelene P. Grassli - *Primary General President*
 
 *Given in the October session of the 1988 General Conference*
@@ -22,7 +24,7 @@ I was shattered by her blunt, almost emotionless statement. “Why?” I exclaim
 
 I didn’t know what to say to my friend that day, but I do now. And I want to talk to you ten- and eleven-year-old girls—my sweet little sisters—and answer my friend, as I speak to you tonight as if we were, you and I, sitting in that beautiful hayfield together.
 
-Our Heavenly Father expects and intends for us to be happy. Man is that he might have joy, the scripture says. (See [[2 Nephi 2.25|2 Ne. 2:25]].) That means ten- and eleven-year-old girls are that they might have joy as well. Life does make sense because there is a plan—a plan by which we may have joy and be happy here on earth and eternally. My friend didn’t know that.
+Our Heavenly Father expects and intends for us to be happy. Man is that he might have joy, the scripture says. (See [[2 Nephi 2.25|2 Ne. 2:25]].) That means ten- and eleven-year-old girls are that they might have joy as well. Life does make sense because there is a plan—a plan by which we may have joy and be happy here on earth and eternally. My friend didn’t know that.
 
 You girls have often repeated in Primary this motto: “I can follow God’s plan for me.” What is the plan? I think you know it.
 
@@ -30,7 +32,7 @@ In our pre-earth life we had proved ourselves faithful. We needed to have a chan
 
 Satan was terribly angry that his method of implementing our Heavenly Father’s plan was not accepted. He swore he would turn us away from Heavenly Father.
 
-So we have a choice. We can either choose Heavenly Father’s plan, or we can follow Satan. It’s as simple as that. Now, the scriptures tell us that everything good comes from Heavenly Father and that following Satan brings misery and unhappiness. (See [[2 Nephi 2.27|2 Ne. 2:27]]; [[Alma 5.40|Alma 5:40]].) This is important for us to know.
+So we have a choice. We can either choose Heavenly Father’s plan, or we can follow Satan. It’s as simple as that. Now, the scriptures tell us that everything good comes from Heavenly Father and that following Satan brings misery and unhappiness. (See [[2 Nephi 2.27|2 Ne. 2:27]]; [[Alma 5.40|Alma 5:40]].) This is important for us to know.
 
 My birthday was a few weeks ago, and my children asked me the question they always ask on my birthday or Christmas or Mother’s Day—“Mother, what would you like for your birthday?”
 
@@ -38,13 +40,13 @@ I answered them, as I always do, “Sweetheart, just be good so you can be happy
 
 Their happiness is my fondest desire. Our happiness is our Heavenly Father’s fondest desire. He has given us the gospel of Jesus Christ. We learn his teachings through the scriptures, through revelation, and through our prophet in order that joy might be ours through our own personal goodness, or personal righteousness. He wants us to be good so we can be happy.
 
-The great Book of Mormon prophet Lehi, whom you have learned about this year, told his children, “If there be no righteousness there be no happiness.” ([[2 Nephi 2.13|2 Ne. 2:13]].) When we are good, or righteous, we are following God’s plan.
+The great Book of Mormon prophet Lehi, whom you have learned about this year, told his children, “If there be no righteousness there be no happiness.” ([[2 Nephi 2.13|2 Ne. 2:13]].) When we are good, or righteous, we are following God’s plan.
 
 But isn’t it hard to be good sometimes? We struggle with the temptations that come from being human, being mortal in a mortal world. But that, too, is part of the plan. That is where the choice comes in.
 
 Lehi also taught his children, “And to bring about his eternal purposes \[that is, that we might be happy and glorified forever\] … it must needs be that there was an opposition; even the forbidden fruit in opposition to the tree of life; the one being sweet and the other bitter.
 
-“Wherefore, the Lord gave unto man that he should act for himself. Wherefore, man could not act for himself save it should be that he was enticed by the one or the other.” ([[2 Nephi 2.15|2 Ne. 2:15–16]][[2 Nephi 2.16|]].)
+“Wherefore, the Lord gave unto man that he should act for himself. Wherefore, man could not act for himself save it should be that he was enticed by the one or the other.” ([[2 Nephi 2.15|2 Ne. 2:15–16]][[2 Nephi 2.16|]].)
 
 Yes, you have a choice. The Lord has given you control of your life by giving you a choice. Let me repeat that. The Lord has given you control of your life. I’m not saying that nothing bad will ever happen to you. You will not always be able to control what others may say or do, but you can control how you will react to them. Temptation, illness, accidents, and tragedy are part of this life. There will be some tough days in your lives—very tough days. But when you follow God’s plan, you can know what to do, and that’s when you are in control. You can decide whether or not you are going to be happy by making choices that will lead you close to your Heavenly Father and away from Satan. You can decide what you will say and do.
 
@@ -79,8 +81,3 @@ Now, let us go forth as sisters, determined that no force will turn us from our 
 
 
 
-
-
-
-
-#Agency #Children #Commitment #Plan_Of_Salvation

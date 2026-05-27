@@ -1,6 +1,8 @@
 # The Eternal Blessings of Marriage
 
-By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -10,7 +12,7 @@ By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 That beautiful message by this magnificent choir describes, I think, the pattern of life for so many of us: “trying to be like Jesus.”
 
-On July 16, 1953, my beloved Jeanene and I knelt as a young couple at an altar in the Manti Utah Temple. President Lewis R. Anderson exercised the sealing authority and pronounced us husband and wife, wedded for time and for all eternity. I have no power to describe the peace and serenity that come from the assurance that as I continue to live worthily, I will be able to be with my beloved Jeanene and our children forever because of that sacred ordinance performed with the proper priesthood authority in the house of the Lord.
+On July 16, 1953, my beloved Jeanene and I knelt as a young couple at an altar in the Manti Utah Temple. President Lewis R. Anderson exercised the sealing authority and pronounced us husband and wife, wedded for time and for all eternity. I have no power to describe the peace and serenity that come from the assurance that as I continue to live worthily, I will be able to be with my beloved Jeanene and our children forever because of that sacred ordinance performed with the proper priesthood authority in the house of the Lord.
 
 Our seven children are bound to us by the sacred ordinances of the temple. My precious wife, Jeanene, and two of our children are beyond the veil. They provide a powerful motivation for each remaining member of our family to live so that together we will receive all of the eternal blessings promised in the temple.
 
@@ -75,8 +77,3 @@ I know what it is to love a daughter of Father in Heaven who with grace and devo
 
 
 
-
-
-
-
-#Covenants #Family #Love #Marriage #Parenthood

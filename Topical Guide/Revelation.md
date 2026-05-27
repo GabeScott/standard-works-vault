@@ -1,7 +1,6 @@
 # Revelation
 
-
-*See also* [[Dream.md|Dream]]; [[God, Access to.md|God, Access to]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Inspiration, Inspire.md|Inspiration]]; [[Prophecy.md|Prophecy]]; [[Reveal.md|Reveal]]; [[Scriptures to Come Forth.md|Scriptures to Come Forth]]; [[Testimony.md|Testimony]]; [[Vision.md|Vision]]; [BD Revelation](https://www.churchofjesuschrist.org/study/scriptures/bd/revelation?lang=eng); [Revelation of John](https://www.churchofjesuschrist.org/study/scriptures/bd/revelation-of-john?lang=eng)
+*See also* [[Dream.md|Dream]]; [[God, Access to.md|God, Access to]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Inspiration.md|Inspiration]]; [[Prophecy.md|Prophecy]]; [[Reveal.md|Reveal]]; [[Scriptures to Come Forth.md|Scriptures to Come Forth]]; [[Testimony.md|Testimony]]; [[Vision.md|Vision]]; [[BD Revelation.md|BD Revelation]]; [[BD Revelation of John.md|BD Revelation of John]]
 
 God hath *shewed* thee all this, [[Genesis 41.39|Genesis 41:39]].
 
@@ -23,11 +22,11 @@ he to whomsoever the Son will *reveal* him, [[Matthew 11.27|Matthew 11:27]] ([[L
 
 sheep follow him: for they know his *voice*, [[John 10.4|John 10:4]].
 
-I will ... *manifest* myself to him, [[John 14.21|John 14:21]].
+I will … *manifest* myself to him, [[John 14.21|John 14:21]].
 
-all things ... heard of my Father I have made *known*, [[John 15.15|John 15:15]].
+all things … heard of my Father I have made *known*, [[John 15.15|John 15:15]].
 
-Spirit of truth ... will *shew* you things to come, [[John 16.13|John 16:13]].
+Spirit of truth … will *shew* you things to come, [[John 16.13|John 16:13]].
 
 given unto them the *words* which thou gavest me, [[John 17.8|John 17:8]].
 
@@ -37,11 +36,11 @@ speak to you either by *revelation*, or by knowledge, [[1 Corinthians 14.6|1 Cor
 
 I will come to visions and *revelations* of the Lord, [[2 Corinthians 12.1|2 Corinthians 12:1]].
 
-received it ... by the *revelation* of Jesus Christ, [[Galatians 1.12|Galatians 1:12]].
+received it … by the *revelation* of Jesus Christ, [[Galatians 1.12|Galatians 1:12]].
 
 I went up by *revelation*, [[Galatians 2.2|Galatians 2:2]].
 
-God ... may give unto you the spirit of wisdom and *revelation*, [[Ephesians 1.17|Ephesians 1:17]].
+God … may give unto you the spirit of wisdom and *revelation*, [[Ephesians 1.17|Ephesians 1:17]].
 
 by *revelation* he made known unto me the mystery, [[Ephesians 3.3|Ephesians 3:3]].
 
@@ -55,9 +54,9 @@ I will *shew* thee things which must be hereafter, [[Revelation 4.1|Revelation 4
 
 I did obey the *voice* of the Spirit, [[1 Nephi 4.18|1 Nephi 4:18]].
 
-voice of the Lord *spake* ... by night, [[1 Nephi 16.9|1 Nephi 16:9]].
+voice of the Lord *spake* … by night, [[1 Nephi 16.9|1 Nephi 16:9]].
 
-*revelation* from God, from the beginning ... to the ending, [[2 Nephi 27.7|2 Nephi 27:7]].
+*revelation* from God, from the beginning … to the ending, [[2 Nephi 27.7|2 Nephi 27:7]].
 
 all things shall be *revealed*, [[2 Nephi 27.11|2 Nephi 27:11]] ([[D&C 25.9|D&C 25:9]]).
 
@@ -87,11 +86,11 @@ he *showed* unto the brother of Jared all, [[Ether 3.25|Ether 3:25]].
 
 by faith that angels *appear* and minister unto men, [[Moroni 7.37|Moroni 7:37]].
 
-*manifest* the truth ... by the power of the Holy Ghost, [[Moroni 10.4|Moroni 10:4]].
+*manifest* the truth … by the power of the Holy Ghost, [[Moroni 10.4|Moroni 10:4]].
 
-called upon ... Joseph Smith, Jun., and *spake* unto him, [[D&C 1.17|D&C 1:17]].
+called upon … Joseph Smith, Jun., and *spake* unto him, [[D&C 1.17|D&C 1:17]].
 
-my *word* ... shall all be fulfilled, [[D&C 1.38|D&C 1:38]].
+my *word* … shall all be fulfilled, [[D&C 1.38|D&C 1:38]].
 
 although a man may have many *revelations*, [[D&C 3.4|D&C 3:4]].
 
@@ -105,19 +104,19 @@ it is my *voice* which speaketh, [[D&C 18.35|D&C 18:35]].
 
 Listen to the *voice* of Jesus Christ, [[D&C 27.1|D&C 27:1]].
 
-appointed to receive ... *revelations*, [[D&C 28.2|D&C 28:2]] ([[D&C 43.2|D&C 43:2]]).
+appointed to receive … *revelations*, [[D&C 28.2|D&C 28:2]] ([[D&C 43.2|D&C 43:2]]).
 
 If thou shalt ask, thou shalt receive *revelation*, [[D&C 42.61|D&C 42:61]].
 
-crowned ... with *revelations*, [[D&C 59.4|D&C 59:4]].
+crowned … with *revelations*, [[D&C 59.4|D&C 59:4]].
 
-no man has *seen* God ... except quickened by the Spirit, [[D&C 67.11|D&C 67:11]].
+no man has *seen* God … except quickened by the Spirit, [[D&C 67.11|D&C 67:11]].
 
-whatsoever they shall speak when moved upon ... shall be the *voice* of the Lord, [[D&C 68.4|D&C 68:4]].
+whatsoever they shall speak when moved upon … shall be the *voice* of the Lord, [[D&C 68.4|D&C 68:4]].
 
 speak even by the *voice* of my Spirit, [[D&C 75.1|D&C 75:1]] ([[D&C 104.36|D&C 104:36]]).
 
-understood by ... the *Holy Spirit*, [[D&C 76.116|D&C 76:116]].
+understood by … the *Holy Spirit*, [[D&C 76.116|D&C 76:116]].
 
 Ye call upon my name for *revelations*, [[D&C 82.4|D&C 82:4]].
 
@@ -127,9 +126,9 @@ he will *unveil* his face, [[D&C 88.68|D&C 88:68]].
 
 shall be a *revelator* unto thee, [[D&C 100.11|D&C 100:11]].
 
-president of the church ... is appointed by *revelation*, [[D&C 102.9|D&C 102:9]].
+president of the church … is appointed by *revelation*, [[D&C 102.9|D&C 102:9]].
 
-president ... obtain the mind of the Lord by *revelation*, [[D&C 102.23|D&C 102:23]].
+president … obtain the mind of the Lord by *revelation*, [[D&C 102.23|D&C 102:23]].
 
 designated unto them by *revelation*, [[D&C 107.39|D&C 107:39]].
 
@@ -139,13 +138,13 @@ resist no more my *voice*, [[D&C 108.2|D&C 108:2]].
 
 *knowledge* by his Holy Spirit, [[D&C 121.26|D&C 121:26]].
 
-Joseph to be ... a *revelator*, [[D&C 124.125|D&C 124:125]].
+Joseph to be … a *revelator*, [[D&C 124.125|D&C 124:125]].
 
-Father and the Son ... a personal *appearance*, [[D&C 130.3|D&C 130:3]].
+Father and the Son … a personal *appearance*, [[D&C 130.3|D&C 130:3]].
 
 *voice* declared to me, while I was praying, [[D&C 130.13|D&C 130:13]].
 
-*revelation* ... through the medium of mine anointed, [[D&C 132.7|D&C 132:7]].
+*revelation* … through the medium of mine anointed, [[D&C 132.7|D&C 132:7]].
 
 came the *voice* of the Lord unto me, [[D&C 137.7|D&C 137:7]].
 
@@ -161,6 +160,4 @@ When the light rested upon me I saw two *Personages*, [[Joseph Smith History 1.1
 
 no such things as visions or *revelations*, [[Joseph Smith History 1.21|Joseph Smith History 1:21]].
 
-We believe in ... *revelation*, [[Articles of Faith 1.7|Articles of Faith 1:7]].
-
-*See also* [[Genesis 18.17|Genesis 18:17]]; [[John 6.46|John 6:46]]; [[John 8.26|John 8:26]]; [[John 14.15|John 14:15]], [[John 14.16|John 14:16]], [[John 14.17|John 14:17]][[John 14.25|John 14:25]], [[John 14.26|John 14:26]]; [[John 15.26|John 15:26]]; [[Acts 1.1|Acts 1:1-2]][[Acts 1.2|]]; [[1 Corinthians 14.10|1 Corinthians 14:10]]; [[2 Nephi 29.9|2 Nephi 29:9]]; [[Alma 13.26|Alma 13:26-31]][[Alma 13.27|]][[Alma 13.28|]][[Alma 13.29|]][[Alma 13.30|]][[Alma 13.31|]]; [[Ether 12.6|Ether 12:6]]; [[Moses 7.62|Moses 7:62]].
+We believe in … *revelation*, [[Articles of Faith 1.7|Articles of Faith 1:7]].

@@ -5,4 +5,4 @@
 [Joseph Smith History 1:66](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.66?lang=eng#p66)
 
 
-[^a]: D&C 6:14-16; [[D&C 8.1|8:1 (1-12).]]
+[^a]: [[D&C 6.14|D&C 6:14–16]][[D&C 6.15|]][[D&C 6.16|]]; [[D&C 8.1|8:1 (1–12)]][[D&C 8.2|]][[D&C 8.3|]][[D&C 8.4|]][[D&C 8.5|]][[D&C 8.6|]][[D&C 8.7|]][[D&C 8.8|]][[D&C 8.9|]][[D&C 8.10|]][[D&C 8.11|]][[D&C 8.12|]].  

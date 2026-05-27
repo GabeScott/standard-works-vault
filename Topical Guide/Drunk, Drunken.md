@@ -1,7 +1,6 @@
 # Drunk, Drunken
 
-
-*See also* [[Drink, Drank, Drunk.md|Drink]]; [[Drunkenness.md|Drunkenness]]
+*See also* [[Drink.md|Drink]]; [[Drunkenness.md|Drunkenness]]
 
 he drank of the wine, and was *drunken*, [[Genesis 9.21|Genesis 9:21]].
 
@@ -11,7 +10,7 @@ make them *drunk* in my fury, [[Isaiah 63.6|Isaiah 63:6]].
 
 I am like a *drunken* man, [[Jeremiah 23.9|Jeremiah 23:9]].
 
-shall begin ... to eat and drink, and to be *drunken*, [[Luke 12.45|Luke 12:45]].
+shall begin … to eat and drink, and to be *drunken*, [[Luke 12.45|Luke 12:45]].
 
 these are not *drunken*, as ye suppose, [[Acts 2.15|Acts 2:15]].
 

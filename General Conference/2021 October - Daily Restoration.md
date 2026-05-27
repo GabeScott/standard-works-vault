@@ -1,6 +1,8 @@
 # Daily Restoration
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -123,15 +125,15 @@ That we will seek daily restoration and continually strive to walk in the Way of
 
 [^3]: See [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-[^4]: “Walking in Circles,” Aug. 20, 2009, Max-Planck-Gesellschaft, mpg.de.
+[^4]: “Walking in Circles,” Aug. 20, 2009, Max-Planck-Gesellschaft, mpg.de.
 
 [^5]: “Walking in Circles,” mpg.de. This image shows the GPS tracking of four participants in the study. Three of them walked on a cloudy day. One of them (SM) started walking while the sun was covered by clouds, but after 15 minutes the clouds dissipated, and the participant could see glimpses of sun. Notice how, once the sun was visible, the walker was much more successful in walking a straight line.
 
-[^6]: For one tragic example of how a course error of a mere two degrees caused a passenger jet to crash into Mount Erebus in Antarctica, killing 257 people, see Dieter F. Uchtdorf, “[[2008 April - A Matter of a Few Degrees.md|A Matter of a Few Degrees]],” *Ensign* or *Liahona*, May 2008, 57–60.
+[^6]: For one tragic example of how a course error of a mere two degrees caused a passenger jet to crash into Mount Erebus in Antarctica, killing 257 people, see Dieter F. Uchtdorf, “[[2008 April - A Matter of a Few Degrees.md|A Matter of a Few Degrees]],” *Ensign* or *Liahona*, May 2008, 57–60.
 
 [^7]: [[Judges 2.10|Judges 2:10]].
 
-[^8]: After Christ’s visit to the Americas, the people truly repented of their sins, were baptized, and received the Holy Ghost. Where they were once a contentious and prideful people, now “there were no contentions and disputations among them, and every man did deal justly one with another” ([[4 Nephi 1.2|4 Nephi 1:2]]). This period of righteousness lasted some two centuries before pride began to cause people to turn from the Way. However, spiritual drift can also happen much more quickly. As an example, decades earlier, in the 50th year of the reign of the judges in the Book of Mormon, there was “continual peace and great joy” among the people. But because of pride that entered the hearts of Church members, after a short period of four years “there were many dissensions in the church, and there was also a contention among the people, insomuch that there was much bloodshed” (see [[Helaman 3.1|Helaman 3:32–4:1]][[Helaman 3.2|]][[Helaman 3.3|]][[Helaman 3.4|]][[Helaman 3.5|]][[Helaman 3.6|]][[Helaman 3.7|]][[Helaman 3.8|]][[Helaman 3.9|]][[Helaman 3.10|]][[Helaman 3.11|]][[Helaman 3.12|]][[Helaman 3.13|]][[Helaman 3.14|]][[Helaman 3.15|]][[Helaman 3.16|]][[Helaman 3.17|]][[Helaman 3.18|]][[Helaman 3.19|]][[Helaman 3.20|]][[Helaman 3.21|]][[Helaman 3.22|]][[Helaman 3.23|]][[Helaman 3.24|]][[Helaman 3.25|]][[Helaman 3.26|]][[Helaman 3.27|]][[Helaman 3.28|]][[Helaman 3.29|]][[Helaman 3.30|]][[Helaman 3.31|]][[Helaman 3.32|]][[Helaman 3.33|]][[Helaman 3.34|]][[Helaman 3.35|]][[Helaman 3.36|]][[Helaman 3.37|]]).
+[^8]: After Christ’s visit to the Americas, the people truly repented of their sins, were baptized, and received the Holy Ghost. Where they were once a contentious and prideful people, now “there were no contentions and disputations among them, and every man did deal justly one with another” ([[4 Nephi 1.2|4 Nephi 1:2]]). This period of righteousness lasted some two centuries before pride began to cause people to turn from the Way. However, spiritual drift can also happen much more quickly. As an example, decades earlier, in the 50th year of the reign of the judges in the Book of Mormon, there was “continual peace and great joy” among the people. But because of pride that entered the hearts of Church members, after a short period of four years “there were many dissensions in the church, and there was also a contention among the people, insomuch that there was much bloodshed” (see [[Helaman 3.1|Helaman 3:32–4:1]]).
 
 [^9]: [[D&C 121.26|Doctrine and Covenants 121:26]].
 
@@ -151,8 +153,3 @@ That we will seek daily restoration and continually strive to walk in the Way of
 
 [^17]: [[Deuteronomy 28.8|Deuteronomy 28:8–9]][[Deuteronomy 28.9|]]; see also [[Deuteronomy 28.1|verses 1–7]][[Deuteronomy 28.2|]][[Deuteronomy 28.3|]][[Deuteronomy 28.4|]][[Deuteronomy 28.5|]][[Deuteronomy 28.6|]][[Deuteronomy 28.7|]].
 
-
-
-
-
-#Discipleship #Jesus_Christ #Repentance

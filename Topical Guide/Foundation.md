@@ -1,9 +1,8 @@
 # Foundation
 
-
 *See also* [[Cornerstone.md|Cornerstone]]; [[Rock.md|Rock]]
 
-lay the *foundation* ... in his firstborn, [[Joshua 6.26|Joshua 6:26]] ([[1 Kings 16.34|1 Kings 16:34]]).
+lay the *foundation* … in his firstborn, [[Joshua 6.26|Joshua 6:26]] ([[1 Kings 16.34|1 Kings 16:34]]).
 
 *foundations* of heaven moved and shook, [[2 Samuel 22.8|2 Samuel 22:8]] ([[Psalms 18.7|Psalms 18:7]]).
 
@@ -29,9 +28,9 @@ I lay in Zion for a *foundation* a stone, [[Isaiah 28.16|Isaiah 28:16]].
 
 kept secret from the *foundation* of the world, [[Matthew 13.35|Matthew 13:35]].
 
-built an house ... and laid the *foundation* on a rock, [[Luke 6.48|Luke 6:48]].
+built an house … and laid the *foundation* on a rock, [[Luke 6.48|Luke 6:48]].
 
-lest I should build upon another man's *foundation*, [[Romans 15.20|Romans 15:20]].
+lest I should build upon another man’s *foundation*, [[Romans 15.20|Romans 15:20]].
 
 I have laid the *foundation*, and another buildeth, [[1 Corinthians 3.10|1 Corinthians 3:10]].
 
@@ -41,11 +40,11 @@ built upon the *foundation* of the apostles, [[Ephesians 2.20|Ephesians 2:20]].
 
 *foundation* of God standeth sure, [[2 Timothy 2.19|2 Timothy 2:19]].
 
-Lord ... hast laid the *foundation* of the earth, [[Hebrews 1.10|Hebrews 1:10]].
+Lord … hast laid the *foundation* of the earth, [[Hebrews 1.10|Hebrews 1:10]].
 
 not laying again the *foundation* of repentance, [[Hebrews 6.1|Hebrews 6:1]].
 
-city which hath *foundations*, whose builder ... is God, [[Hebrews 11.10|Hebrews 11:10]].
+city which hath *foundations*, whose builder … is God, [[Hebrews 11.10|Hebrews 11:10]].
 
 foreordained before the *foundation* of the world, [[1 Peter 1.20|1 Peter 1:20]].
 
@@ -55,17 +54,17 @@ wall of the city had twelve *foundations*, [[Revelation 21.14|Revelation 21:14]]
 
 whose *founder* is the devil, [[1 Nephi 14.9|1 Nephi 14:9]].
 
-this stone shall become the ... only sure *foundation*, upon which the Jews can build, [[Jacob 4.16|Jacob 4:16]].
+this stone shall become the … only sure *foundation*, upon which the Jews can build, [[Jacob 4.16|Jacob 4:16]].
 
 called and prepared from the *foundation* of the world, [[Alma 13.3|Alma 13:3]].
 
-upon the rock of our Redeemer ... build your *foundation*, [[Helaman 5.12|Helaman 5:12]].
+upon the rock of our Redeemer … build your *foundation*, [[Helaman 5.12|Helaman 5:12]].
 
 power to lay the *foundation* of this church, [[D&C 1.30|D&C 1:30]].
 
 church, upon the *foundation* of my gospel, [[D&C 18.5|D&C 18:5]].
 
-one man shall not build upon another's *foundation*, [[D&C 52.33|D&C 52:33]].
+one man shall not build upon another’s *foundation*, [[D&C 52.33|D&C 52:33]].
 
 that you might be honored in laying the *foundation*, [[D&C 58.7|D&C 58:7]].
 

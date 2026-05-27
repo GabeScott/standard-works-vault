@@ -1,5 +1,7 @@
 # Unclutter Your Life
 
+Thomas S. Monson
+
 By Elder William R. Bradford - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -54,7 +56,7 @@ We must remember that a person who is not living the basics of the gospel of Jes
 
 There are, then, some serious and soul-searching questions that we must ask ourselves. One of these questions would surely be, Do I have time for prayer? I don’t mean just an occasional, quick, repetitious prayer that is like giving a wave of the hand to your Father in Heaven as you pass Him on your way to something important. I mean sincere, honest, “from the depths of a contrite spirit and a broken heart” prayer; kneeling in humility, demonstrating to the Holy Father that you really love him; private prayer which involves you in the process of repentance and pleading for forgiveness and allows time for pondering and waiting for the answers to come.
 
-As you examine your list of basics, the next question would be, do I study the scriptures? If you do, you know that Lehi saw a rod of iron, which, interpreted, means the word of God (see [[1 Nephi 11.1|1 Ne. 11:1–23]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]]). Those who held to the rod, using it as a guide at all times, came safely through the mist of darkness and arrived at the tree of life and partook of its glorious fruit (see [[1 Nephi 8.19|1 Ne. 8:19, 30]][[1 Nephi 8.30|]]).
+As you examine your list of basics, the next question would be, do I study the scriptures? If you do, you know that Lehi saw a rod of iron, which, interpreted, means the word of God (see [[1 Nephi 11.1|1 Ne. 11:1–23]][[1 Nephi 11.2|]][[1 Nephi 11.3|]][[1 Nephi 11.4|]][[1 Nephi 11.5|]][[1 Nephi 11.6|]][[1 Nephi 11.7|]][[1 Nephi 11.8|]][[1 Nephi 11.9|]][[1 Nephi 11.10|]][[1 Nephi 11.11|]][[1 Nephi 11.12|]][[1 Nephi 11.13|]][[1 Nephi 11.14|]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]]). Those who held to the rod, using it as a guide at all times, came safely through the mist of darkness and arrived at the tree of life and partook of its glorious fruit (see [[1 Nephi 8.19|1 Ne. 8:19, 30]][[1 Nephi 8.30|]]).
 
 Now the question again: Do you study the scriptures? I solemnly testify that the holy scriptures are the word of God. Constant study of them is the act of holding to the iron rod. They will guide you to the tree of life. If you are one who has said, “I want my life back,” I exhort you to go to the tree of life, where you will find the pure love of God.
 
@@ -71,8 +73,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Priorities #Spirituality #Time_Management

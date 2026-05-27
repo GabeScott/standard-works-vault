@@ -1,5 +1,7 @@
 # The Beacon in the Harbor of Peace
 
+Gordon B. Hinckley
+
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -10,7 +12,7 @@ My dear brothers and sisters, we are mindful that, in spite of hopeful progress 
 
 Our hearts are torn and our emotions touched when each day’s coverage of local or global news brings yet another story of conflict and suffering and, all too often, open warfare. Surely our prayer is to see the world made a better place in which to live, to see more care and concern for one another, and to see the cause of peace and reassurance increased in every direction and extended to all people.
 
-In the pursuit of such peace and reassurance, may I quote a great voice from the past. He said: “\[In order to make the world\] a better place … to live, … the first and most important step is to choose as a leader one whose leadership is infallible, whose teachings when practiced have never failed. In … \[any\] tempestuous sea of uncertainty, the pilot must be one who through the storm can see the beacon in the harbor of peace” (David O. McKay, *Man May Know for Himself* \[Salt Lake City: Deseret Book Co., 1967\], p. 407).
+In the pursuit of such peace and reassurance, may I quote a great voice from the past. He said: “\[In order to make the world\] a better place … to live, … the first and most important step is to choose as a leader one whose leadership is infallible, whose teachings when practiced have never failed. In … \[any\] tempestuous sea of uncertainty, the pilot must be one who through the storm can see the beacon in the harbor of peace” (David O. McKay, *Man May Know for Himself* \[Salt Lake City: Deseret Book Co., 1967\], p. 407).
 
 The message of this general conference of The Church of Jesus Christ of Latter-day Saints is that there is but one guiding hand in the universe, only one truly infallible light, one unfailing beacon to the world. That light is Jesus Christ, the light and life of the world, the light which one Book of Mormon prophet described as “a light that is endless, that can never be darkened” ([[Mosiah 16.9|Mosiah 16:9]]).
 
@@ -34,7 +36,7 @@ We all have significant opportunity to practice Christianity, and we should try 
 
 In the majesty of his life and the example of his teachings, Christ gave us much counsel with secure promises always attached. He taught with a grandeur and authority that filled with hope the educated and the ignorant, the wealthy and the poor, the well and the diseased.
 
-His message, as one writer said, “flowed forth as sweetly and as lavishly to single listeners as to enraptured crowds; and some of its very richest revelations were vouchsafed, neither to rulers nor to multitudes, but to the persecuted outcast of the Jewish synagogue, to the timid inquirer in the lonely midnight, and the frail woman by the noonday well.” His teachings dealt not so much with ceremony and minutia as “with the human soul, and human destiny, and human life—with Hope and Charity, and Faith. … Springing from the depths of holy emotions, it thrilled the being of every listener as with an electric flame. In a word, \[his\] authority was the authority of \[God\].” Christ’s voice was pure and pervaded with sympathy. Even the severity of his sternest injunctions was expressed with an unutterable love. (Frederic W. Farrar, *The Life of Christ* \[Portland, Oreg.: Fountain Publications, 1964\], p. 215.)
+His message, as one writer said, “flowed forth as sweetly and as lavishly to single listeners as to enraptured crowds; and some of its very richest revelations were vouchsafed, neither to rulers nor to multitudes, but to the persecuted outcast of the Jewish synagogue, to the timid inquirer in the lonely midnight, and the frail woman by the noonday well.” His teachings dealt not so much with ceremony and minutia as “with the human soul, and human destiny, and human life—with Hope and Charity, and Faith. … Springing from the depths of holy emotions, it thrilled the being of every listener as with an electric flame. In a word, \[his\] authority was the authority of \[God\].” Christ’s voice was pure and pervaded with sympathy. Even the severity of his sternest injunctions was expressed with an unutterable love. (Frederic W. Farrar, *The Life of Christ* \[Portland, Oreg.: Fountain Publications, 1964\], p. 215.)
 
 Let me recall one of the great stories of Christ’s triumph over that which seems to test us and try us and bring fear to our hearts. As Christ’s disciples set out on one of their frequent journeys across the Sea of Galilee, the night was dark and the elements were strong and contrary. The waves were boisterous and the wind was bold, and these mortal, frail men were frightened. Unfortunately “there was no one with them … to calm and save \[them\], for Jesus was alone upon the \[shore\].”
 
@@ -42,7 +44,7 @@ As always, he was watching over them. He loved them and cared for them. In their
 
 Peter “sprang over the vessel’s side and into the troubled waves, … and while his eye was fixed on his Lord, the wind might toss his hair, and the spray might drench his robes, but all was well.” Only when with wavering faith he removed his glance from the Master to look at the furious waves and the black gulf beneath him, only then did he begin to sink. Again, like most of us, he cried, “Lord, save me.” Nor did Jesus fail him. “He stretched out His hand, and grasped the hand of His drowning disciple, with the gentle rebuke, ‘O thou of little faith, why didst thou doubt?’”
 
-Then safely aboard their little craft, they saw the wind fall and the crash of the waves become a ripple. Soon they were at their haven, their safe port, where all would one day hope to be. “All—the crew as well as His disciples—were filled with \[deep\] amazement.” Some of them addressed him by a title which I declare today: “Truly thou art the Son of God.” (See Farrar, *The Life of Christ,* pp. 310–13; see also [[Matthew 14.22|Matt. 14:22–33]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]][[Matthew 14.32|]][[Matthew 14.33|]].)
+Then safely aboard their little craft, they saw the wind fall and the crash of the waves become a ripple. Soon they were at their haven, their safe port, where all would one day hope to be. “All—the crew as well as His disciples—were filled with \[deep\] amazement.” Some of them addressed him by a title which I declare today: “Truly thou art the Son of God.” (See Farrar, *The Life of Christ,* pp. 310–13; see also [[Matthew 14.22|Matt. 14:22–33]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]][[Matthew 14.32|]][[Matthew 14.33|]].)
 
 It is my firm belief that if as individual people, as families, communities, and nations, we could, like Peter, fix our eyes on Jesus, we too might walk triumphantly over “the swelling waves of disbelief” and remain “unterrified amid the rising winds of doubt.” But if we turn away our eyes from him in whom we must believe, as it is so easy to do and the world is so much tempted to do, if we look to the power and fury of those terrible and destructive elements around us rather than to him who can help and save us, then we shall inevitably sink in a sea of conflict and sorrow and despair.
 
@@ -53,8 +55,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Faith #Jesus_Christ #Peace

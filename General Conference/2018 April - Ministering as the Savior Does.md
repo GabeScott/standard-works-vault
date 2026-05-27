@@ -1,6 +1,8 @@
 # Ministering as the Savior Does
 
-By Jean B. Bingham - *Relief Society General President*
+Henry B. Eyring
+
+By Jean B. Bingham - *Relief Society General President*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -32,7 +34,7 @@ After a valiant effort, the sister finally succumbed to the cancer and was laid 
 
 Another blessing of these inspired announcements is the opportunity for young women ages 14 to 18 to participate in ministering as companions to Relief Society sisters, just as young men their age serve as ministering companions to Melchizedek Priesthood brethren. Youth can share their unique gifts and grow spiritually as they serve alongside adults in the work of salvation. Involving youth in ministering assignments can also increase the reach of Relief Society and elders quorums’ caring for others by increasing the number of members who participate.
 
-As I think about the stellar young women I have known, I get excited for those Relief Society sisters who will have the privilege of being blessed by a young woman’s enthusiasm, talents, and spiritual sensitivity as they serve side-by-side or are ministered to by them. And I am equally delighted by the chance young women will have to be mentored and taught and strengthened by their sisters in Relief Society. This opportunity to participate in building the kingdom of God will be a tremendous benefit to young women, helping them better prepare to fulfill their roles as leaders in the Church and the community and as contributing partners in their families. As Sister Bonnie L. Oscarson shared yesterday, young women “*want* to be of service. They need to know they are valued and essential in the work of salvation.”[^7]
+As I think about the stellar young women I have known, I get excited for those Relief Society sisters who will have the privilege of being blessed by a young woman’s enthusiasm, talents, and spiritual sensitivity as they serve side-by-side or are ministered to by them. And I am equally delighted by the chance young women will have to be mentored and taught and strengthened by their sisters in Relief Society. This opportunity to participate in building the kingdom of God will be a tremendous benefit to young women, helping them better prepare to fulfill their roles as leaders in the Church and the community and as contributing partners in their families. As Sister Bonnie L. Oscarson shared yesterday, young women “*want* to be of service. They need to know they are valued and essential in the work of salvation.”[^7]
 
 In fact, young women are already ministering to others, without assignment or fanfare. A family I know moved hundreds of miles to a new location where they knew no one. Within the first week, a 14-year-old girl from their new ward showed up on their doorstep with a plate of cookies, welcoming them to the area. Her mother stood smiling behind her as a willing chauffeur, supporting her daughter’s desire to minister.
 
@@ -58,7 +60,7 @@ May we show our gratitude and love for God by ministering with love to our etern
 
 “And it came to pass that there was no contention … because of the love of God which did dwell in the hearts of the people.
 
-“… There were no envyings, nor strifes, … and surely there could not be a happier people among all the people who had been created by the hand of God.”[^12]
+“… There were no envyings, nor strifes, … and surely there could not be a happier people among all the people who had been created by the hand of God.”[^12]
 
 I gladly bear my personal witness that these revelatory changes are inspired of God and that, as we embrace them with willing hearts, we will become better prepared to meet His Son, Jesus Christ, at His coming. We will be closer to becoming a Zion people and will feel surpassing joy with those whom we have helped along the path of discipleship. That we do so is my fervent and humble prayer in the name of Jesus Christ, amen.
 
@@ -67,35 +69,25 @@ I gladly bear my personal witness that these revelatory changes are inspired of 
 
 [^1]: See [[Acts 3.19|Acts 3:19–21]][[Acts 3.20|]][[Acts 3.21|]].
 
-[^2]: See Robert D. Hales, “[[2005 October - Preparations for the Restoration and the Second Coming - “My Hand Shall Be over Thee”.md|Preparations for the Restoration and the Second Coming: ‘My Hand Shall Be over Thee]],’” *Ensign* or *Liahona,* Nov. 2005, 88–92.
+[^2]: See Robert D. Hales, “[[2005 October - Preparations for the Restoration and the Second Coming - “My Hand Shall Be over Thee”.md|Preparations for the Restoration and the Second Coming: ‘My Hand Shall Be over Thee]],’” *Ensign* or *Liahona,* Nov. 2005, 88–92.
 
 [^3]: [[D&C 42.29|Doctrine and Covenants 42:29]].
 
-[^4]: “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* May 2017, inside front cover.
+[^4]: “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* May 2017, inside front cover.
 
 [^5]: [[D&C 20.47|Doctrine and Covenants 20:47, 53]][[D&C 20.53|]].
 
-[^6]: See *Handbook 2: Administering the Church* (2010), 9.1.1.
+[^6]: See *Handbook 2: Administering the Church* (2010), 9.1.1.
 
-[^7]: Bonnie L. Oscarson, “[[2018 April - Young Women in the Work.md|Young Women in the Work]],” *Ensign* or *Liahona,* May 2018, 38.
+[^7]: Bonnie L. Oscarson, “[[2018 April - Young Women in the Work.md|Young Women in the Work]],” *Ensign* or *Liahona,* May 2018, 38.
 
 [^8]: See [[Ephesians 5.2|Ephesians 5:2]].
 
-[^9]: Russell T. Osguthorpe, “[What If Love Were Our Only Motive?](https://speeches.byu.edu/talks/russell-t-osguthorpe_what-if-love-were-our-only-motive)” (Brigham Young University devotional, Mar. 8, 2011), 7, speeches.byu.edu.
+[^9]: Russell T. Osguthorpe, “[What If Love Were Our Only Motive?](https://speeches.byu.edu/talks/russell-t-osguthorpe_what-if-love-were-our-only-motive)” (Brigham Young University devotional, Mar. 8, 2011), 7, speeches.byu.edu.
 
 [^10]: “Lord, I Would Follow Thee,” *Hymns,* no. 220.
 
 [^11]: See [[Mosiah 2.17|Mosiah 2:17]].
 
-[^12]: [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
+[^12]: [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
 
-
-
-#Discipleship #Jesus_Christ #Ministering #Priesthood_Quorums #Relief_Society #Service #Unity #Young_Women
-
-
-
-
-
-
-#Ministering

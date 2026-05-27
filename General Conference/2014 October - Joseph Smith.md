@@ -1,6 +1,8 @@
 # Joseph Smith
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -30,7 +32,7 @@ Many of those who dismiss the work of the Restoration simply do not believe that
 
 We are especially saddened when someone who once revered Joseph retreats from his or her conviction and then maligns the Prophet.[^10]
 
-“Studying the Church … through the eyes of its defectors,” Elder Neal A. Maxwell once said, is “like interviewing Judas to understand Jesus. Defectors always tell us more about themselves than about that from which they have departed.”[^11]
+“Studying the Church … through the eyes of its defectors,” Elder Neal A. Maxwell once said, is “like interviewing Judas to understand Jesus. Defectors always tell us more about themselves than about that from which they have departed.”[^11]
 
 Jesus said, “Bless them that curse you, … and pray for them which despitefully use you, and persecute you.”[^12] Let us offer kindness to those who criticize Joseph Smith, knowing in our own hearts that he was a prophet of God and taking comfort that all this was long ago foretold by Moroni.
 
@@ -48,7 +50,7 @@ Sadly, they left too quickly. Months later experts discovered (and the forger co
 
 We might remind the inquirer that some information about Joseph, while true, may be presented completely out of context to his own day and situation.
 
-Elder Russell M. Nelson illustrated this point. He said: “I was serving as a consultant to the United States government at its National Center for Disease Control in Atlanta, Georgia. Once while awaiting a taxi to take me to the airport after our meetings were over, I stretched out on the lawn to soak in a few welcome rays of sunshine before returning to the winter weather of Utah. … Later I received a photograph in the mail taken by a photographer with a telephoto lens, capturing my moment of relaxation on the lawn. Under it was a caption, ‘Governmental consultant at the National Center.’ The picture was true, the caption was true, but the truth was used to promote a false impression.”[^17] We do not discard something we know to be true because of something we do not yet understand.
+Elder Russell M. Nelson illustrated this point. He said: “I was serving as a consultant to the United States government at its National Center for Disease Control in Atlanta, Georgia. Once while awaiting a taxi to take me to the airport after our meetings were over, I stretched out on the lawn to soak in a few welcome rays of sunshine before returning to the winter weather of Utah. … Later I received a photograph in the mail taken by a photographer with a telephoto lens, capturing my moment of relaxation on the lawn. Under it was a caption, ‘Governmental consultant at the National Center.’ The picture was true, the caption was true, but the truth was used to promote a false impression.”[^17] We do not discard something we know to be true because of something we do not yet understand.
 
 We might remind the inquirer that Joseph was not alone in the visit of angels.
 
@@ -62,7 +64,7 @@ Jesus said:
 
 “A good tree cannot bring forth evil fruit, neither can a corrupt tree bring forth good fruit. …
 
-“… By their fruits ye shall know them.”[^20]
+“… By their fruits ye shall know them.”[^20]
 
 These explanations are convincing, but the sincere inquirer should not rely on them exclusively to settle his or her search for truth.
 
@@ -80,7 +82,7 @@ A testimony of the Prophet Joseph Smith can come differently to each of us. It m
 
 To the youth listening today or reading these words in the days ahead, I give a specific challenge: Gain a personal witness of the Prophet Joseph Smith. Let your voice help fulfill Moroni’s prophetic words to speak good of the Prophet. Here are two ideas: First, find scriptures in the Book of Mormon that you feel and know are absolutely true. Then share them with family and friends in family home evening, seminary, and your Young Men and Young Women classes, acknowledging that Joseph was an instrument in God’s hands. Next, read the [[Joseph Smith History 1.1|testimony of the Prophet Joseph Smith]][[Joseph Smith History 1.2|]][[Joseph Smith History 1.3|]][[Joseph Smith History 1.4|]][[Joseph Smith History 1.5|]][[Joseph Smith History 1.6|]][[Joseph Smith History 1.7|]][[Joseph Smith History 1.8|]][[Joseph Smith History 1.9|]][[Joseph Smith History 1.10|]][[Joseph Smith History 1.11|]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]][[Joseph Smith History 1.21|]][[Joseph Smith History 1.22|]][[Joseph Smith History 1.23|]][[Joseph Smith History 1.24|]][[Joseph Smith History 1.25|]][[Joseph Smith History 1.26|]][[Joseph Smith History 1.27|]][[Joseph Smith History 1.28|]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.43|]][[Joseph Smith History 1.44|]][[Joseph Smith History 1.45|]][[Joseph Smith History 1.46|]][[Joseph Smith History 1.47|]][[Joseph Smith History 1.48|]][[Joseph Smith History 1.49|]][[Joseph Smith History 1.50|]][[Joseph Smith History 1.51|]][[Joseph Smith History 1.52|]][[Joseph Smith History 1.53|]][[Joseph Smith History 1.54|]][[Joseph Smith History 1.55|]][[Joseph Smith History 1.56|]][[Joseph Smith History 1.57|]][[Joseph Smith History 1.58|]][[Joseph Smith History 1.59|]][[Joseph Smith History 1.60|]][[Joseph Smith History 1.61|]][[Joseph Smith History 1.62|]][[Joseph Smith History 1.63|]][[Joseph Smith History 1.64|]][[Joseph Smith History 1.65|]][[Joseph Smith History 1.66|]][[Joseph Smith History 1.67|]][[Joseph Smith History 1.68|]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]][[Joseph Smith History 1.72|]][[Joseph Smith History 1.73|]][[Joseph Smith History 1.74|]][[Joseph Smith History 1.75|]] in the Pearl of Great Price or in this pamphlet, now in 158 languages. You can find it online at LDS.org or with the missionaries. This is Joseph’s own testimony of what actually occurred. Read it often. Consider recording the testimony of Joseph Smith in your own voice, listening to it regularly, and sharing it with friends. Listening to the Prophet’s testimony in your own voice will help bring the witness you seek.
 
-There are great and wonderful days ahead. President Thomas S. Monson has said: “This great cause … will continue to go forth, changing and blessing lives. … No force in the entire world can stop the work of God. Despite what comes, this great cause will go forward.”[^23]
+There are great and wonderful days ahead. President Thomas S. Monson has said: “This great cause … will continue to go forth, changing and blessing lives. … No force in the entire world can stop the work of God. Despite what comes, this great cause will go forward.”[^23]
 
 I give you my witness that Jesus is the Christ, our Savior and Redeemer. He chose a holy man, a righteous man, to lead the Restoration of the fulness of His gospel. He chose Joseph Smith.
 
@@ -105,25 +107,25 @@ In our society beyond the veil of death, we will clearly understand the sacred c
 
 [^7]: [[D&C 122.1|Doctrine and Covenants 122:1–2]][[D&C 122.2|]].
 
-[^8]: President Dieter F. Uchtdorf said: “First doubt your doubts before you doubt your faith. We must never allow doubt to hold us prisoner and keep us from the divine love, peace, and gifts that come through faith in the Lord Jesus Christ” (“Come, Join with Us,” *Ensign* or *Liahona,* Nov. 2013, 23). Elder Jeffrey R. Holland said: “This is a divine work in process, with the manifestations and blessings of it abounding in every direction, so please don’t hyperventilate if from time to time issues arise that need to be examined, understood, and resolved. They do and they will. *In this Church, what we know will always trump what we do not know*” (“Lord, I Believe,” *Ensign* or *Liahona,* May 2013, 94).
+[^8]: President Dieter F. Uchtdorf said: “First doubt your doubts before you doubt your faith. We must never allow doubt to hold us prisoner and keep us from the divine love, peace, and gifts that come through faith in the Lord Jesus Christ” (“Come, Join with Us,” *Ensign* or *Liahona,* Nov. 2013, 23). Elder Jeffrey R. Holland said: “This is a divine work in process, with the manifestations and blessings of it abounding in every direction, so please don’t hyperventilate if from time to time issues arise that need to be examined, understood, and resolved. They do and they will. *In this Church, what we know will always trump what we do not know*” (“Lord, I Believe,” *Ensign* or *Liahona,* May 2013, 94).
 
 [^9]: [[James 1.5|James 1:5]]; see also [[Joseph Smith History 1.11|Joseph Smith—History 1:11–13]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]].
 
 [^10]: Daniel Tyler recalled: “Brother Isaac Behunin and myself \[visited the Prophet\] at his residence. His persecutions were the topic of conversation. He repeated many false, inconsistent and contradictory statements made by apostates. … He also told how most of the officials who would … have \[willingly\] taken his life, when he was arrested, turned in his favor on \[knowing him better\]. …
 
-[^11]: Neal A. Maxwell, “All Hell Is Moved” (Brigham Young University devotional, Nov. 8, 1977), 3; [speeches.byu.edu](https://speeches.byu.edu/talks/neal-a-maxwell/hell-moved).
+[^11]: Neal A. Maxwell, “All Hell Is Moved” (Brigham Young University devotional, Nov. 8, 1977), 3; [speeches.byu.edu](https://speeches.byu.edu/talks/neal-a-maxwell/hell-moved).
 
 [^12]: [[Matthew 5.44|Matthew 5:44]].
 
 [^13]: *Teachings of Presidents of the Church: John Taylor* (2001), 83; see also [[D&C 135.3|Doctrine and Covenants 135:3]].
 
-[^14]: See Richard N. Ostling, “Challenging Mormonism’s Roots,” *Time,* May 20, 1985, 44.
+[^14]: See Richard N. Ostling, “Challenging Mormonism’s Roots,” *Time,* May 20, 1985, 44.
 
-[^15]: See Ostling, “Challenging Mormonism’s Roots,” 44; see also Gordon B. Hinckley, [“Lord, Increase Our Faith,”](https://churchofjesuschrist.org/study/ensign/1987/11/lord-increase-our-faith?lang=eng) *Ensign,* Nov. 1987, 52; Neil L. Andersen, [“Trial of Your Faith,”](https://churchofjesuschrist.org/study/ensign/2012/11/saturday-afternoon-session/trial-of-your-faith?lang=eng) *Ensign* or *Liahona,* Nov. 2012, 41.
+[^15]: See Ostling, “Challenging Mormonism’s Roots,” 44; see also Gordon B. Hinckley, “[Lord, Increase Our Faith](https://www.churchofjesuschrist.org/study/ensign/1987/11/lord-increase-our-faith?lang=eng),” *Ensign,* Nov. 1987, 52; Neil L. Andersen, “[Trial of Your Faith](https://www.churchofjesuschrist.org/study/ensign/2012/11/saturday-afternoon-session/trial-of-your-faith?lang=eng),” *Ensign* or *Liahona,* Nov. 2012, 41.
 
-[^16]: See Richard E. Turley Jr., *Victims: The LDS Church and the Mark Hofmann Case* (1992).
+[^16]: See Richard E. Turley Jr., *Victims: The LDS Church and the Mark Hofmann Case* (1992).
 
-[^17]: Russell M. Nelson, “Truth—*and More,*” *Ensign,* Jan. 1986, 71.
+[^17]: Russell M. Nelson, “Truth—*and More,*” *Ensign,* Jan. 1986, 71.
 
 [^18]: “The Testimony of Three Witnesses,” Book of Mormon.
 
@@ -131,16 +133,11 @@ In our society beyond the veil of death, we will clearly understand the sacred c
 
 [^20]: [[Matthew 7.18|Matthew 7:18, 20]][[Matthew 7.20|]].
 
-[^21]: President Henry B. Eyring, in speaking about those with doubts, said: “In your love for them you may decide to try to give them what they ask. You may be tempted to go with them through their doubts, with the hope that you can find proof or reasoning to dispel their doubts. Persons with doubts often want to talk about what they think are the facts or the arguments that have caused their doubts, and about how much it hurts. …
+[^21]: President Henry B. Eyring, in speaking about those with doubts, said: “In your love for them you may decide to try to give them what they ask. You may be tempted to go with them through their doubts, with the hope that you can find proof or reasoning to dispel their doubts. Persons with doubts often want to talk about what they think are the facts or the arguments that have caused their doubts, and about how much it hurts. …
 
-[^22]: President Gordon B. Hinckley said: “Many years ago when at the age of twelve I was ordained a deacon, my father, who was president of our stake, took me to my first stake priesthood meeting. … \[The opening hymn was “Praise to the Man.”\] They were singing of the Prophet Joseph Smith, and as they did so there came into my heart a great surge of love for and belief in the mighty Prophet of this dispensation. … I knew then, by the power of the Holy Ghost, that Joseph Smith was indeed a prophet of God” (“Praise to the Man,” *Ensign,* Aug. 1983, 2; *Tambuli,* Jan. 1984, 1, 2).
+[^22]: President Gordon B. Hinckley said: “Many years ago when at the age of twelve I was ordained a deacon, my father, who was president of our stake, took me to my first stake priesthood meeting. … \[The opening hymn was “Praise to the Man.”\] They were singing of the Prophet Joseph Smith, and as they did so there came into my heart a great surge of love for and belief in the mighty Prophet of this dispensation. … I knew then, by the power of the Holy Ghost, that Joseph Smith was indeed a prophet of God” (“Praise to the Man,” *Ensign,* Aug. 1983, 2; *Tambuli,* Jan. 1984, 1, 2).
 
-[^23]: Thomas S. Monson, “As We Gather Once Again,” *Ensign* or *Liahona,* May 2012, 4.
+[^23]: Thomas S. Monson, “As We Gather Once Again,” *Ensign* or *Liahona,* May 2012, 4.
 
 [^24]: “Praise to the Man,” *Hymns,* no. 27.
 
-
-
-
-
-#Joseph_Smith #Testimony

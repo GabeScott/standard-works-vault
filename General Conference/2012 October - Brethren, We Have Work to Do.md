@@ -1,6 +1,8 @@
 # Brethren, We Have Work to Do
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -34,15 +36,15 @@ Of the many places you are needed, one of the very most important is your priest
 
 Consider missionary work. Young men, you have no time to waste. You can’t wait to get serious about preparing until you are 17 or 18. Aaronic Priesthood quorums can help their members understand the oath and covenant of the priesthood and get ready for ordination as elders, they can help them understand and prepare for the ordinances of the temple, and they can help them get ready for successful missions. Melchizedek Priesthood quorums and the Relief Society can help parents prepare missionaries who know the Book of Mormon and who will go into the field fully committed. And in each ward and branch, these same quorums can lead out in an effective collaboration with the full-time missionaries who are serving there.
 
-A related work that rests primarily on priesthood shoulders is the Savior’s call, echoed by President Thomas S. Monson, to rescue those who have drifted from the gospel or who have become disaffected for any reason. We have had wonderful success in this effort, including excellent work by young men. An Aaronic Priesthood quorum in the Rio Grande (Spanish) Ward in Albuquerque, New Mexico, counseled together about whom they could bring back and then as a group went to visit each of them. One said, “When they came to my door, I felt important,” and another confided, “I feel happy inside that someone actually wants me to go to church; it makes me want to go to church now.” When the quorum members invited one young man to come back, they asked him to come with them on the next visit, and he did. They were not just inviting him to attend church; they were immediately making him a part of the quorum.
+A related work that rests primarily on priesthood shoulders is the Savior’s call, echoed by President Thomas S. Monson, to rescue those who have drifted from the gospel or who have become disaffected for any reason. We have had wonderful success in this effort, including excellent work by young men. An Aaronic Priesthood quorum in the Rio Grande (Spanish) Ward in Albuquerque, New Mexico, counseled together about whom they could bring back and then as a group went to visit each of them. One said, “When they came to my door, I felt important,” and another confided, “I feel happy inside that someone actually wants me to go to church; it makes me want to go to church now.” When the quorum members invited one young man to come back, they asked him to come with them on the next visit, and he did. They were not just inviting him to attend church; they were immediately making him a part of the quorum.
 
 Another challenging but stimulating priesthood work is that of family history and the temple. Watch for a First Presidency letter arriving shortly that will offer a renewed call and a higher vision of this vital part of the work we have to do.
 
-Our quorums also form a brotherhood of mutual support. President Gordon B. Hinckley once said: “It will be a marvelous day, my brethren—it will be a day of fulfillment of the purposes of the Lord—when our priesthood quorums become an anchor of strength to every man belonging thereto, when each such man may appropriately be able to say, ‘I am a member of a priesthood quorum of The Church of Jesus Christ of Latter-day Saints. I stand ready to assist my brethren in all of their needs, as I am confident they stand ready to assist me in mine. … Working together, we can stand, without embarrassment and without fear, against every wind of adversity that might blow, be it economic, social, or spiritual.’”[^6]
+Our quorums also form a brotherhood of mutual support. President Gordon B. Hinckley once said: “It will be a marvelous day, my brethren—it will be a day of fulfillment of the purposes of the Lord—when our priesthood quorums become an anchor of strength to every man belonging thereto, when each such man may appropriately be able to say, ‘I am a member of a priesthood quorum of The Church of Jesus Christ of Latter-day Saints. I stand ready to assist my brethren in all of their needs, as I am confident they stand ready to assist me in mine. … Working together, we can stand, without embarrassment and without fear, against every wind of adversity that might blow, be it economic, social, or spiritual.’”[^6]
 
 Despite our best efforts, things don’t always work out as we have planned, and a particular “wind of adversity” that can come into a man’s life is unemployment. An early Church welfare pamphlet stated: “A man out of work is of special moment to the Church because, deprived of his inheritance, he is on trial as Job was on trial—for his integrity. As days lengthen into weeks and months and even years of adversity, the hurt grows deeper. … The Church cannot hope to save a man on Sunday if during the week it is a complacent witness to the crucifixion of his soul.”[^7]
 
-In April 2009 former Presiding Bishopric counselor Richard C. Edgley told the story of an exemplary quorum that mobilized to assist a fellow member who had lost his job:
+In April 2009 former Presiding Bishopric counselor Richard C. Edgley told the story of an exemplary quorum that mobilized to assist a fellow member who had lost his job:
 
 “Phil’s Auto of Centerville, Utah, is a testament of what priesthood leadership and a quorum can accomplish. Phil was a member of an elders quorum and worked as a mechanic at a local automobile repair shop. Unfortunately, the repair shop where Phil worked experienced economic trouble and had to let Phil go from his job. He was devastated by this turn of events.
 
@@ -50,7 +52,7 @@ In April 2009 former Presiding Bishopric counselor Richard C. Edgley told the s
 
 “They shared their ideas with Phil; then they shared their plan with the members of their quorum. The barn was cleaned and renovated, the tools gathered, and all was put in order. Phil’s Auto was a success and eventually moved to better and more permanent quarters—all because his quorum brothers offered help in a time of crisis.”[^8]
 
-Of course, as has been repeated by prophets over the years, “The most important of the Lord’s work you will ever do will be within the walls of your own homes.”[^9] We have much to do to strengthen marriage in societies that increasingly trivialize its importance and purpose. We have much to do to teach our children “to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]). Our task is nothing less than to help our children experience the mighty change of heart or conversion to the Lord spoken of so eloquently in the Book of Mormon (see [[Mosiah 5.1|Mosiah 5:1–12]][[Mosiah 5.2|]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]][[Mosiah 5.6|]][[Mosiah 5.7|]][[Mosiah 5.8|]][[Mosiah 5.9|]][[Mosiah 5.10|]][[Mosiah 5.11|]][[Mosiah 5.12|]]; [[Alma 26.1|Alma 26]][[Alma 26.2|]][[Alma 26.3|]][[Alma 26.4|]][[Alma 26.5|]][[Alma 26.6|]][[Alma 26.7|]][[Alma 26.8|]][[Alma 26.9|]][[Alma 26.10|]][[Alma 26.11|]][[Alma 26.12|]][[Alma 26.13|]][[Alma 26.14|]][[Alma 26.15|]][[Alma 26.16|]][[Alma 26.17|]][[Alma 26.18|]][[Alma 26.19|]][[Alma 26.20|]][[Alma 26.21|]][[Alma 26.22|]][[Alma 26.23|]][[Alma 26.24|]][[Alma 26.25|]][[Alma 26.26|]][[Alma 26.27|]][[Alma 26.28|]][[Alma 26.29|]][[Alma 26.30|]][[Alma 26.31|]][[Alma 26.32|]][[Alma 26.33|]][[Alma 26.34|]][[Alma 26.35|]][[Alma 26.36|]][[Alma 26.37|]]). Together with the Relief Society, priesthood quorums can build up parents and marriages, and quorums can provide the blessings of the priesthood to single-parent families.
+Of course, as has been repeated by prophets over the years, “The most important of the Lord’s work you will ever do will be within the walls of your own homes.”[^9] We have much to do to strengthen marriage in societies that increasingly trivialize its importance and purpose. We have much to do to teach our children “to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]). Our task is nothing less than to help our children experience the mighty change of heart or conversion to the Lord spoken of so eloquently in the Book of Mormon (see [[Mosiah 5.1|Mosiah 5:1–12]][[Mosiah 5.2|]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]][[Mosiah 5.6|]][[Mosiah 5.7|]][[Mosiah 5.8|]][[Mosiah 5.9|]][[Mosiah 5.10|]][[Mosiah 5.11|]][[Mosiah 5.12|]]; [[Alma 26.1|Alma 26]]). Together with the Relief Society, priesthood quorums can build up parents and marriages, and quorums can provide the blessings of the priesthood to single-parent families.
 
 Yes, brethren, we have work to do. Thank you for the sacrifices you make and the good you do. Keep going, and the Lord will help you. At times you may not know quite what to do or what to say—just move forward. Begin to act, and the Lord assures that “an effectual door shall be opened for \[you\]” ([[D&C 118.3|D&C 118:3]]). Begin to speak, and He promises, “You shall not be confounded before men; for it shall be given you in the very hour, yea, in the very moment, what ye shall say” ([[D&C 100.5|D&C 100:5–6]][[D&C 100.6|]]). It is true that we are in many ways ordinary and imperfect, but we have a perfect Master who wrought a perfect Atonement, and we have call upon His grace and His priesthood. As we repent and purge our souls, we are promised that we will be taught and endowed with power from on high (see [[D&C 43.16|D&C 43:16]]).
 
@@ -59,28 +61,23 @@ The Church and the world and women are crying for men—men who are developing t
 
 
 
-[^1]: Kay S. Hymowitz, *Manning Up: How the Rise of Women Has Turned Men into Boys* (2011), 16.
+[^1]: Kay S. Hymowitz, *Manning Up: How the Rise of Women Has Turned Men into Boys* (2011), 16.
 
 [^2]: “When you ask young people today what will make them adults, almost no one mentions marriage. They are far more likely to see issues around work—completing education, financial independence, a full-time job—as the signs that they have arrived. Work, career, independence: these are the primary sources of identity today” (Hymowitz, *Manning Up,* 45). The pressure on women to adopt this antimarriage ethic is especially intense. A *Times* of London contributor wrote: “No one, not my family or my teachers, ever said, ‘Oh yes, and by the way you might want to be a wife and mother too.’ They were so determined we would follow a new, egalitarian, modern path that the historic ambitions of generations of women—to get married and raise a family—were intentionally airbrushed from their vision of our future” (Eleanor Mills, “Learning to Be Left on the Shelf,” *Sunday Times,* Apr. 18, 2010, www.thetimes.co.uk; in Hymowitz, *Manning Up,* 72). Another writer in her 40s quoted some responses to an article she wrote about her regrets over not marrying: “I am totally appalled by your need for a man,” “Get some self-esteem!” “You have taken codependency to a whole new low,” and “If my daughter grows up to want a man half as much as you do, I will know that I’ve done something wrong in raising her” (Lori Gottlieb, *Marry Him: The Case for Settling for Mr. Good Enough* \[2010\], 55).
 
-[^3]: Philip G. Zimbardo and Nikita Duncan, *The Demise of Guys: Why Boys Are Struggling and What We Can Do about It* (2012), e-book; see the chapter “Behind the Headlines.”
+[^3]: Philip G. Zimbardo and Nikita Duncan, *The Demise of Guys: Why Boys Are Struggling and What We Can Do about It* (2012), e-book; see the chapter “Behind the Headlines.”
 
 [^4]: Barbara Dafoe Whitehead, *Why There Are No Good Men Left: The Romantic Plight of the New Single Woman* (2003), 67.
 
 [^5]: Amanda Dickson, “‘Hunger Games’ Main Character a Heroine for Our Day,” *Deseret News,* Apr. 2, 2012, www.deseretnews.com.
 
-[^6]: Gordon B. Hinckley, “Welfare Responsibilities of the Priesthood Quorums,” *Ensign,* Nov. 1977, 86.
+[^6]: Gordon B. Hinckley, “Welfare Responsibilities of the Priesthood Quorums,” *Ensign,* Nov. 1977, 86.
 
 [^7]: *Helping Others to Help Themselves: The Story of the Mormon Church Welfare Program* (1945), 4.
 
-[^8]: Richard C. Edgley, “This Is Your Phone Call,” *Liahona* and *Ensign,* May 2009, 54.
+[^8]: Richard C. Edgley, “This Is Your Phone Call,” *Liahona* and *Ensign,* May 2009, 54.
 
-[^9]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 134.
+[^9]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 134.
 
-[^10]: “Rise Up, O Men of God,” *Hymns,* no. 323.
+[^10]: “Rise Up, O Men of God,” *Hymns,* no. 323.
 
-
-
-
-
-#Education #Marriage #Priesthood #Work

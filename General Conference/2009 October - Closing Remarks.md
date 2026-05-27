@@ -1,5 +1,7 @@
 # Closing Remarks
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2009 General Conference*
@@ -39,8 +41,3 @@ I bid you farewell until we meet again in six months’ time, and do so in the n
 
 [^2]: [[Mosiah 5.2|Mosiah 5:2]].
 
-
-
-
-
-#Jesus_Christ #Obedience #Testimony

@@ -1,6 +1,5 @@
 # Groan, Groaning
 
-
 God heard their *groaning*, [[Exodus 2.24|Exodus 2:24]].
 
 with the *groanings* of a deadly wounded man, [[Ezekiel 30.24|Ezekiel 30:24]].
@@ -9,7 +8,7 @@ How do the beasts *groan*, [[Joel 1.18|Joel 1:18]].
 
 he *groaned* in the spirit, and was troubled, [[John 11.33|John 11:33]].
 
-Jesus ... *groaning* in himself cometh to the grave, [[John 11.38|John 11:38]].
+Jesus … *groaning* in himself cometh to the grave, [[John 11.38|John 11:38]].
 
 whole creation *groaneth* and travaileth in pain, [[Romans 8.22|Romans 8:22]].
 
@@ -25,6 +24,6 @@ whole world lieth in sin, and *groaneth*, [[D&C 84.49|D&C 84:49]] ([[D&C 84.53|D
 
 earthquakes, that shall cause *groanings*, [[D&C 88.89|D&C 88:89]].
 
-whole earth *groans* under ... its iniquity, [[D&C 123.7|D&C 123:7]].
+whole earth *groans* under … its iniquity, [[D&C 123.7|D&C 123:7]].
 
 creations of God mourned; and the earth *groaned*, [[Moses 7.56|Moses 7:56]].

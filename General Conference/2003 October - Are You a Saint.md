@@ -1,5 +1,7 @@
 # Are You a Saint?
 
+Gordon B. Hinckley
+
 By Elder Quentin L. Cook - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -57,9 +59,9 @@ I testify that avoiding evil and destructive pursuits and sacrificing in order t
 
 
 
-[^1]: See [[2 Nephi 9.18|2 Nephi 9:18]].
+[^1]: See [[2 Nephi 9.18|2 Nephi 9:18]].
 
-[^2]: [[3 Nephi 27.21|3 Nephi 27:21]].
+[^2]: [[3 Nephi 27.21|3 Nephi 27:21]].
 
 [^3]: *Hymns,* no. 30.
 
@@ -73,7 +75,7 @@ I testify that avoiding evil and destructive pursuits and sacrificing in order t
 
 [^8]: [[Mormon 8.37|Mormon 8:37]].
 
-[^9]: See Wm. Grant Bangerter, in Conference Report, Apr. 1987, 12; or *Ensign,* May 1987, 11.
+[^9]: See Wm. Grant Bangerter, in Conference Report, Apr. 1987, [[1987 April - What It Means to Be a Saint.md|12]]; or *Ensign,* May 1987, 11.
 
 [^10]: *Teachings of Gordon B. Hinckley* (1997), 565.
 
@@ -83,8 +85,3 @@ I testify that avoiding evil and destructive pursuits and sacrificing in order t
 
 [^13]: [[D&C 59.23|D&C 59:23]].
 
-
-
-
-
-#Honesty #Obedience #Sacrifice #Worldliness #Worthiness

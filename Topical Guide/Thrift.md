@@ -1,4 +1,3 @@
 # Thrift
 
-
-*See* [[Family, Managing Finances in.md|Family, Managing Finances in]]
+*See also* [[Family, Managing Finances in.md|Family, Managing Finances in]]

@@ -1,6 +1,5 @@
 # Wait
 
-
 *See also* [[Tarry.md|Tarry]]
 
 I have *waited* for thy salvation, [[Genesis 49.18|Genesis 49:18]] ([[Psalms 25.5|Psalms 25:5]]; [[Micah 7.7|Micah 7:7]]).
@@ -31,15 +30,15 @@ in heart he layeth his *wait*, [[Jeremiah 9.8|Jeremiah 9:8]].
 
 *wait* on thy God continually, [[Hosea 12.6|Hosea 12:6]].
 
-Joseph of Arimathæa ... *waited* for the kingdom of God, [[Mark 15.43|Mark 15:43]] ([[Luke 23.51|Luke 23:51]]).
+Joseph of Arimathæa … *waited* for the kingdom of God, [[Mark 15.43|Mark 15:43]] ([[Luke 23.51|Luke 23:51]]).
 
-Simeon ... *waiting* for the consolation of Israel, [[Luke 2.25|Luke 2:25]].
+Simeon … *waiting* for the consolation of Israel, [[Luke 2.25|Luke 2:25]].
 
 yourselves like unto men that *wait* for their lord, [[Luke 12.36|Luke 12:36]].
 
 *wait* for the promise of the Father, [[Acts 1.4|Acts 1:4]].
 
-we ourselves groan ... *waiting* for the adoption, [[Romans 8.23|Romans 8:23]].
+we ourselves groan … *waiting* for the adoption, [[Romans 8.23|Romans 8:23]].
 
 *waiting* for the coming of our Lord, [[1 Corinthians 1.7|1 Corinthians 1:7]].
 
@@ -47,10 +46,10 @@ we ourselves groan ... *waiting* for the adoption, [[Romans 8.23|Romans 8:23]].
 
 *wait* for his Son from heaven, [[1 Thessalonians 1.10|1 Thessalonians 1:10]].
 
-Lord direct your hearts ... into the patient *waiting* for Christ, [[2 Thessalonians 3.5|2 Thessalonians 3:5]].
+Lord direct your hearts … into the patient *waiting* for Christ, [[2 Thessalonians 3.5|2 Thessalonians 3:5]].
 
 longsuffering of God *waited* in the days of Noah, [[1 Peter 3.20|1 Peter 3:20]] ([[D&C 138.9|D&C 138:9]]; [[D&C 138.28|D&C 138:28]]).
 
 hast prepared for him that *waiteth* for thee, [[D&C 133.45|D&C 133:45]].
 
-prophets ... *waited* for their deliverance, [[D&C 138.49|D&C 138:49]].
+prophets … *waited* for their deliverance, [[D&C 138.49|D&C 138:49]].

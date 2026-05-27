@@ -1,5 +1,7 @@
 # Our Earthly Stewardship
 
+Dallin H. Oaks
+
 By Bishop Gérald Caussé - *Presiding Bishop*
 
 *Given in the October session of the 2022 General Conference*
@@ -32,7 +34,7 @@ As God’s children, we have received the charge to be stewards, caretakers, and
 
 Our Heavenly Father allows us to use earthly resources according to our own free will. Yet our agency should not be interpreted as license to use or consume the riches of this world without wisdom or restraint. The Lord gave this admonition: “And it pleaseth God that he hath given all these things unto man; for unto this end were they made to be used, with judgment, not to excess, neither by extortion.”[^7]
 
-President Russell M. Nelson once remarked: “As beneficiaries of the divine Creation, what shall we do? We should care for the earth, be wise stewards over it, and preserve it for future generations.”[^8]
+President Russell M. Nelson once remarked: “As beneficiaries of the divine Creation, what shall we do? We should care for the earth, be wise stewards over it, and preserve it for future generations.”[^8]
 
 Beyond being simply a scientific or political necessity, the care of the earth and of our natural environment is a sacred responsibility entrusted to us by God, which should fill us with a deep sense of duty and humility. It is also an integral component of our discipleship. How can we honor and love Heavenly Father and Jesus Christ without honoring and loving Their creations?
 
@@ -50,7 +52,7 @@ As disciples of Christ, we have a solemn duty to work tirelessly for peace and h
 
 The divine process of creation is not yet complete. Every day, God’s creations continue to grow, expand, and multiply. A most wonderful thing is that our Heavenly Father extends to us an invitation to participate in His creative work.
 
-We participate in the work of creation whenever we cultivate the earth or add our own constructions to this world—as long as we show respect for God’s creations. Our contributions may be expressed through the creation of works of art, architecture, music, literature, and culture, which embellish our planet, quicken our senses, and brighten our lives. We also contribute through scientific and medical discoveries that preserve the earth and life upon it. President Thomas S. Monson summarized this concept with these beautiful words: “God left the world unfinished for man to work his skill upon … that man might know the joys and glories of creation.”[^12]
+We participate in the work of creation whenever we cultivate the earth or add our own constructions to this world—as long as we show respect for God’s creations. Our contributions may be expressed through the creation of works of art, architecture, music, literature, and culture, which embellish our planet, quicken our senses, and brighten our lives. We also contribute through scientific and medical discoveries that preserve the earth and life upon it. President Thomas S. Monson summarized this concept with these beautiful words: “God left the world unfinished for man to work his skill upon … that man might know the joys and glories of creation.”[^12]
 
 In Jesus’s parable of the talents, when the master returned from his journey, he praised and rewarded the two servants who grew and magnified their talents. In contrast, he called the servant who hid his unique talent in the earth “unprofitable,” and he took away even that which he had received.[^13]
 
@@ -71,34 +73,29 @@ At the end of this mortal existence, the Master will ask us to give an account f
 
 [^2]: [[D&C 59.18|Doctrine and Covenants 59:18]].
 
-[^3]: See Spencer W. Kimball, “[[1977 October - Welfare Services - The Gospel in Action.md|Welfare Services: The Gospel in Action]],” *Ensign*, Nov. 1977, 76–79.
+[^3]: See Spencer W. Kimball, “[[1977 October - Welfare Services - The Gospel in Action.md|Welfare Services: The Gospel in Action]],” *Ensign*, Nov. 1977, 76–79.
 
 [^4]: [[D&C 104.14|Doctrine and Covenants 104:14]].
 
-[^5]: See Spencer W. Kimball, “[[1977 October - Welfare Services - The Gospel in Action.md|Welfare Services]],” 76–79.
+[^5]: See Spencer W. Kimball, “[[1977 October - Welfare Services - The Gospel in Action.md|Welfare Services]],” 76–79.
 
 [^6]: [[D&C 104.13|Doctrine and Covenants 104:13]].
 
 [^7]: [[D&C 59.20|Doctrine and Covenants 59:20]].
 
-[^8]: Russell M. Nelson, “[[2000 April - The Creation.md|The Creation]],” *Ensign*, May 2000, 86; *Liahona*, July 2000, 104.
+[^8]: Russell M. Nelson, “[[2000 April - The Creation.md|The Creation]],” *Ensign*, May 2000, 86; *Liahona*, July 2000, 104.
 
-[^9]: See Gospel Topics, “[Environmental Stewardship and Conservation](https://churchofjesuschrist.org/study/manual/gospel-topics/environmental-stewardship-and-conservation?lang=eng),” topics.ChurchofJesusChrist.org.
+[^9]: See Gospel Topics, “[Environmental Stewardship and Conservation](https://www.churchofjesuschrist.org/study/manual/gospel-topics/environmental-stewardship-and-conservation?lang=eng),” topics.ChurchofJesusChrist.org.
 
 [^10]: Antoine de Saint-Exupéry, *Terre des Hommes* (1939), 214; see also *Wind, Sand and Stars* (1939), in *Airman’s Odyssey* (1984), 206.
 
 [^11]: See [[Mark 12.31|Mark 12:31]].
 
-[^12]: Thomas S. Monson, “[In Quest of the Abundant Life](https://churchofjesuschrist.org/study/ensign/1988/03/in-quest-of-the-abundant-life?lang=eng),” *Ensign*, Mar. 1988, 2; “[In Search of an Abundant Life](https://churchofjesuschrist.org/study/liahona/1988/08/in-search-of-an-abundant-life?lang=eng),” *Tambuli*, August 1988, 3.
+[^12]: Thomas S. Monson, “[In Quest of the Abundant Life](https://www.churchofjesuschrist.org/study/ensign/1988/03/in-quest-of-the-abundant-life?lang=eng),” *Ensign*, Mar. 1988, 2; “[In Search of an Abundant Life](https://www.churchofjesuschrist.org/study/liahona/1988/08/in-search-of-an-abundant-life?lang=eng),” *Tambuli*, August 1988, 3.
 
 [^13]: See [[Matthew 25.14|Matthew 25:14–30]][[Matthew 25.15|]][[Matthew 25.16|]][[Matthew 25.17|]][[Matthew 25.18|]][[Matthew 25.19|]][[Matthew 25.20|]][[Matthew 25.21|]][[Matthew 25.22|]][[Matthew 25.23|]][[Matthew 25.24|]][[Matthew 25.25|]][[Matthew 25.26|]][[Matthew 25.27|]][[Matthew 25.28|]][[Matthew 25.29|]][[Matthew 25.30|]].
 
-[^14]: See David A. Bednar and Susan K. Bednar, “[Moral Purity](https://www.byui.edu/devotionals/president-and-sister-david-a-bednar)” (Brigham Young University–Idaho devotional, Jan. 7, 2003), byui.edu.
+[^14]: See David A. Bednar and Susan K. Bednar, “[Moral Purity](https://www.byui.edu/devotionals/president-and-sister-david-a-bednar)” (Brigham Young University–Idaho devotional, Jan. 7, 2003), byui.edu.
 
 [^15]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-
-#Creation #Environment #Love #Parenthood #Plan_Of_Salvation

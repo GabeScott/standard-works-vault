@@ -1,5 +1,7 @@
 # Returning Home
 
+Thomas S. Monson
+
 By Elder Eduardo Gavarret - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -22,7 +24,7 @@ Let me share with you something that has been happening in some stakes and distr
 
 What made it possible for these persons to return home? It was the combined effort of 14 stakes and 4 districts in a mission laboring for one year to bring about the return of all these persons through reactivation and the ordinances of baptism and confirmation.
 
-This effort was inspired by the Savior’s words: “Lovest thou me? … Feed my sheep” ([[John 21.16|John 21:16]]) and by the teaching of President Thomas S. Monson, who said: “Over the years we have issued appeals to the less active, the offended, the critical, the transgressor—to come back. ‘Come back and feast at the table of the Lord, and taste again the sweet and satisfying fruits of fellowship with the Saints’” (in Conference Report, Apr. 2008, 88; or *Ensign,* May 2008, 89).
+This effort was inspired by the Savior’s words: “Lovest thou me? … Feed my sheep” ([[John 21.16|John 21:16]]) and by the teaching of President Thomas S. Monson, who said: “Over the years we have issued appeals to the less active, the offended, the critical, the transgressor—to come back. ‘Come back and feast at the table of the Lord, and taste again the sweet and satisfying fruits of fellowship with the Saints’” (in Conference Report, Apr. 2008, [[2008 April - Looking Back and Moving Forward.md|88]]; or *Ensign,* May 2008, 89).
 
 Alma, feeling great suffering for the souls of his brethren, prayed to the Lord, saying:
 
@@ -53,9 +55,9 @@ Then the man, who had stopped attending church for many years, replied, “I wil
 
 “For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in:
 
-“Naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me. …
+“Naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me. …
 
-“… Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.35|Matthew 25:35–36, 40]][[Matthew 25.36|]][[Matthew 25.40|]]).
+“… Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.35|Matthew 25:35–36, 40]][[Matthew 25.36|]][[Matthew 25.40|]]).
 
 While taking part in Sunday meetings a couple of weeks ago, I had the chance to meet a brother who was attending for the first time after many years of being away. He was accompanied by his wife, who was not a member of the Church.
 
@@ -86,5 +88,3 @@ I bear my testimony of the love of our Father and Savior. He loved us first and 
 
 
 
-
-#Activation #Home #Missionary_Work #Service

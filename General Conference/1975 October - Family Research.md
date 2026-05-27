@@ -1,6 +1,8 @@
 # Family Research
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+Spencer W. Kimball
+
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -22,7 +24,7 @@ Let us quote the Prophet Joseph Smith in Section 128 of the Doctrine and Covenan
 
 When Paul was teaching the principles of the resurrection to the Corinthians, he clinched his point by stating:
 
-“Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
+“Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 This shows that in the days of Paul there was a practice of vicarious baptism for the dead.
 
@@ -59,8 +61,3 @@ May His blessings be upon all those who are diligent in this work, that we may p
 
 
 
-
-
-
-
-#Family_History #Temple_Work

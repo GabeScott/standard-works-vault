@@ -1,6 +1,8 @@
 # Overcome the World and Find Rest
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Dallin H. Oaks
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -89,23 +91,21 @@ With the power of the holy apostleship vested in me, I bless you in your quest t
 
 [^5]: See [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
-[^6]: [[2 Nephi 28.14|2 Nephi 28:14]].
+[^6]: [[2 Nephi 28.14|2 Nephi 28:14]].
 
-[^7]: See the account of King Lamoni’s father in [[Alma 22.1|Alma 22]][[Alma 22.2|]][[Alma 22.3|]][[Alma 22.4|]][[Alma 22.5|]][[Alma 22.6|]][[Alma 22.7|]][[Alma 22.8|]][[Alma 22.9|]][[Alma 22.10|]][[Alma 22.11|]][[Alma 22.12|]][[Alma 22.13|]][[Alma 22.14|]][[Alma 22.15|]][[Alma 22.16|]][[Alma 22.17|]][[Alma 22.18|]][[Alma 22.19|]][[Alma 22.20|]][[Alma 22.21|]][[Alma 22.22|]][[Alma 22.23|]][[Alma 22.24|]][[Alma 22.25|]][[Alma 22.26|]][[Alma 22.27|]][[Alma 22.28|]][[Alma 22.29|]][[Alma 22.30|]][[Alma 22.31|]][[Alma 22.32|]][[Alma 22.33|]][[Alma 22.34|]][[Alma 22.35|]], especially [[Alma 22.18|Alma 22:18]].
+[^7]: See the account of King Lamoni’s father in [[Alma 22.1|Alma 22]], especially [[Alma 22.18|Alma 22:18]].
 
 [^8]: See [[Mosiah 5.7|Mosiah 5:7]].
 
 [^9]: [[Mosiah 3.19|Mosiah 3:19]]; emphasis added.
 
-[^10]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]].
+[^10]: See [[2 Nephi 31.1|2 Nephi 31]]; [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]].
 
 [^11]: [[Mosiah 2.41|Mosiah 2:41]].
 
-[^12]: *Teachings of Presidents of the Church: Ezra Taft Benson* (2014), 42–43.
+[^12]: *[Teachings of Presidents of the Church: Ezra Taft Benson](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-ezra-taft-benson/chapter-1-the-great-commandment-love-the-lord?lang=eng&id=p38#p38)* (2014), 42–43.
 
-[^13]: See Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
+[^13]: See Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
+[^14]: President David O. McKay said that in the temple we take a “step-by-step ascent into the Eternal Presence” (in Truman G. Madsen, *The Temple: Where Heaven Meets Earth* \[2008\], 11).
 
-
-
-#Adversity #Covenants #Jesus_Christ #Peace #Power #Worldliness

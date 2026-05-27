@@ -1,5 +1,7 @@
 # Atonement, Agency, Accountability
 
+Ezra Taft Benson
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -8,7 +10,7 @@ By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 The Lord had come from Gethsemane; before Him was His crucifixion. At the moment of betrayal, Peter drew his sword against Malchus, a servant of the high priest. Jesus said:
 
-“Put up again thy sword into his place. …
+“Put up again thy sword into his place. …
 
 “Thinkest thou that I cannot now pray to my Father, and he shall presently give me more than twelve legions of angels?” ([[Matthew 26.52|Matt. 26:52–53]][[Matthew 26.53|]]).
 
@@ -42,7 +44,7 @@ By this infinite sacrifice, through this atonement of Christ, all mankind may be
 
 But did you know that the word *atonement* appears only once in the English New Testament? Only once! I quote from Paul’s letter to the Romans:
 
-“Christ died for us. …
+“Christ died for us. …
 
 “We were reconciled to God by the death of his Son, much more, being reconciled, we shall be saved by his life.
 
@@ -52,15 +54,15 @@ Only that once does the word *atonement* appear in the English New Testament. *A
 
 I know of only one explanation. For that we turn to the Book of Mormon.
 
-Nephi testified that the Bible once “contained the fulness of the gospel of the Lord, of whom the twelve apostles bear record” ([[1 Nephi 13.24|1 Ne. 13:24]]) and that “after \[the words\] go forth by the hand of the twelve apostles of the Lamb, from the Jews unto the Gentiles, thou seest the formation of that great and abominable church, which is most abominable above all other churches; for behold, they have taken away from the gospel of the Lamb many parts which are plain and most precious; and also many covenants of the Lord have they taken away” ([[1 Nephi 13.26|1 Ne. 13:26]]).
+Nephi testified that the Bible once “contained the fulness of the gospel of the Lord, of whom the twelve apostles bear record” ([[1 Nephi 13.24|1 Ne. 13:24]]) and that “after \[the words\] go forth by the hand of the twelve apostles of the Lamb, from the Jews unto the Gentiles, thou seest the formation of that great and abominable church, which is most abominable above all other churches; for behold, they have taken away from the gospel of the Lamb many parts which are plain and most precious; and also many covenants of the Lord have they taken away” ([[1 Nephi 13.26|1 Ne. 13:26]]).
 
 Jacob defined the great and abominable church in these words:
 
-“Wherefore, he that fighteth against Zion, both Jew and Gentile, both bond and free, both male and female, shall perish; for they are they who are the whore of all the earth; for they who are not for me are against me, saith our God” ([[2 Nephi 10.16|2 Ne. 10:16]]).
+“Wherefore, he that fighteth against Zion, both Jew and Gentile, both bond and free, both male and female, shall perish; for they are they who are the whore of all the earth; for they who are not for me are against me, saith our God” ([[2 Nephi 10.16|2 Ne. 10:16]]).
 
-Nephi said, “Because of the many plain and precious things which have been taken out of the book, … an exceedingly great many do stumble, yea, insomuch that Satan hath great power over them” ([[1 Nephi 13.29|1 Ne. 13:29]]).
+Nephi said, “Because of the many plain and precious things which have been taken out of the book, … an exceedingly great many do stumble, yea, insomuch that Satan hath great power over them” ([[1 Nephi 13.29|1 Ne. 13:29]]).
 
-He then prophesied that the precious things would be restored (see [[1 Nephi 13.34|1 Ne. 13:34–35]][[1 Nephi 13.35|]]).
+He then prophesied that the precious things would be restored (see [[1 Nephi 13.34|1 Ne. 13:34–35]][[1 Nephi 13.35|]]).
 
 And they were restored. In the Book of Mormon the word *atone* in form and tense appears fifty-five times. I quote but one verse from Alma: “And now, the plan of mercy could not be brought about except an *atonement* should be made; therefore God himself *atoneth* for the sins of the world, to bring about the plan of mercy, to appease the demands of justice, that God might be a perfect, just God, and a merciful God also” ([[Alma 42.15|Alma 42:15]]; italics added).
 
@@ -76,11 +78,11 @@ Whatever else happened in Eden, in his supreme moment of testing, Adam made a ch
 
 After the Lord commanded Adam and Eve to multiply and replenish the earth and commanded them *not* to partake of the tree of knowledge of good and evil, He said: “Nevertheless, thou mayest choose for thyself, for it is given unto thee; but, remember that I forbid it, for in the day thou eatest thereof thou shalt surely die” ([[Moses 3.17|Moses 3:17]]).
 
-There was too much at issue to introduce man into mortality by force. That would contravene the very law essential to the plan. The plan provided that each spirit child of God would receive a mortal body and each would be tested. Adam saw that it must be so and made his choice. “Adam fell that men might be; and men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]).
+There was too much at issue to introduce man into mortality by force. That would contravene the very law essential to the plan. The plan provided that each spirit child of God would receive a mortal body and each would be tested. Adam saw that it must be so and made his choice. “Adam fell that men might be; and men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]).
 
 Adam and Eve ventured forth to multiply and replenish the earth as they had been commanded to do. The creation of their bodies in the image of God, as a separate creation, was crucial to the plan. Their subsequent fall was essential if the condition of mortality was to exist and the plan proceed.
 
-Jacob described what would happen to our bodies and our spirits except an atonement, an infinite atonement, were made. We should, he said, have become “like unto \[the devil\]” (see [[2 Nephi 9.7|2 Ne. 9:7–9]][[2 Nephi 9.8|]][[2 Nephi 9.9|]]).
+Jacob described what would happen to our bodies and our spirits except an atonement, an infinite atonement, were made. We should, he said, have become “like unto \[the devil\]” (see [[2 Nephi 9.7|2 Ne. 9:7–9]][[2 Nephi 9.8|]][[2 Nephi 9.9|]]).
 
 I seldom use the word *absolute.* It seldom fits. I use it now—twice. Because of the Fall, the Atonement was absolutely essential for resurrection to proceed and overcome mortal death.
 
@@ -135,5 +137,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-#Accountability #Agency #Atonement #Repentance

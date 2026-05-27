@@ -1,5 +1,7 @@
 # Receiving Divine Assistance through the Grace of the Lord
 
+Thomas S. Monson
+
 By Elder Gene R. Cook - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -20,9 +22,9 @@ Others who have suffered with sickness, discouragement, financial crisis, reject
 
 Yes, one might even cry out: “O God, where art thou? … How long shall thy hand be stayed?” ([[D&C 121.1|D&C 121:1–2]][[D&C 121.2|]]).
 
-Jesus taught that we pass through all these trials to refine us “in the furnace of affliction” ([[1 Nephi 20.10|1 Ne. 20:10]]) and that we should not bear them unaided but “in \[the\] Redeemer’s name” ([[D&C 138.13|D&C 138:13]]). In spite of our feeling, at times, that He has forgotten us, He testifies: “Yea, they may forget, yet will I not forget thee. …
+Jesus taught that we pass through all these trials to refine us “in the furnace of affliction” ([[1 Nephi 20.10|1 Ne. 20:10]]) and that we should not bear them unaided but “in \[the\] Redeemer’s name” ([[D&C 138.13|D&C 138:13]]). In spite of our feeling, at times, that He has forgotten us, He testifies: “Yea, they may forget, yet will I not forget thee. …
 
-“Behold, I have graven thee upon the palms of my hands” ([[1 Nephi 21.15|1 Ne. 21:15–16]][[1 Nephi 21.16|]]).
+“Behold, I have graven thee upon the palms of my hands” ([[1 Nephi 21.15|1 Ne. 21:15–16]][[1 Nephi 21.16|]]).
 
 I testify that the Lord, through His grace, can continually assist us in our daily lives and in our physical and mental sicknesses, pains, transgressions, and even in all of our infirmities (see [[Mosiah 14.5|Mosiah 14:5]]; [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]]; [[Alma 34.31|34:31]]).
 
@@ -30,11 +32,11 @@ I testify that the Lord, through His grace, can continually assist us in our dai
 
 However, to pass successfully through the trials we encounter, we must keep our eyes and our hearts centered on the Lord Jesus Christ. “Since man had fallen he could not merit anything of himself” ([[Alma 22.14|Alma 22:14]]); therefore, we needed an advocate, an intercessor, a mediator to assist us. “And it is *because of thy Son* that thou hast been thus merciful unto \[us\]” ([[Alma 33.11|Alma 33:11]]; emphasis added).
 
-We should have great hope in knowing, however unworthy we may feel or weak we may be, *that if we will do all we can,* He will come to our aid and provide for us whatever we may lack (see [[2 Corinthians 12.9|2 Cor. 12:9]]). That statement, to some degree, defines grace.
+We should have great hope in knowing, however unworthy we may feel or weak we may be, *that if we will do all we can,* He will come to our aid and provide for us whatever we may lack (see [[2 Corinthians 12.9|2 Cor. 12:9]]). That statement, to some degree, defines grace.
 
 ## Understanding Grace
 
-Grace is a “divine means of help or strength, given through the bounteous mercy and love of Jesus Christ.” It is “an enabling power” (Bible Dictionary, p. [697](https://churchofjesuschrist.org/study/scriptures/bd/grace?lang=eng)). The doctrine of the grace of the Father and the Son and how it affects us is so significant that it is mentioned more than two hundred times in the standard works.
+Grace is a “divine means of help or strength, given through the bounteous mercy and love of Jesus Christ.” It is “an enabling power” (Bible Dictionary, [[BD Grace|p. 697]]). The doctrine of the grace of the Father and the Son and how it affects us is so significant that it is mentioned more than two hundred times in the standard works.
 
 If we can obtain the grace of the Lord Jesus Christ, that divine enabling power to assist us, we will triumph in this life and be exalted in the life to come.
 
@@ -54,7 +56,7 @@ How many times, likewise, as we have prayed for assistance or help with our prob
 
 That great truth ought to fill us all with hope, as long as we are quick to remember that the effect of grace in our lives is conditioned upon repenting of our sins.
 
-“Therefore, blessed are they who will repent. …
+“Therefore, blessed are they who will repent. …
 
 “And may God grant … that men might be brought unto repentance and good works, that they might be restored unto grace for grace, according to their works” ([[Helaman 12.23|Hel. 12:23–24]][[Helaman 12.24|]]).
 
@@ -70,13 +72,13 @@ Humility is an essential condition to obtaining this divine assistance.
 
 “Not of works, lest any man should boast” ([[Ephesians 2.8|Eph. 2:8–9]][[Ephesians 2.9|]]).
 
-Yes, works alone cannot bring that divine gift, but they are a key condition upon which the gift is received (see [[2 Nephi 10.23|2 Ne. 10:23–25]][[2 Nephi 10.24|]][[2 Nephi 10.25|]]). “For we know that it is by grace that we are saved, after all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]).
+Yes, works alone cannot bring that divine gift, but they are a key condition upon which the gift is received (see [[2 Nephi 10.23|2 Ne. 10:23–25]][[2 Nephi 10.24|]][[2 Nephi 10.25|]]). “For we know that it is by grace that we are saved, after all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]).
 
 Thus, unless one has done all in his own power, he cannot expect the grace of God to be manifest. What a glorious principle to understand: the Lord’s assistance to us—whether we have strong faith or weak faith; whether a man, a woman, or a child—is not based just on what we know, how strong we are, or who we are, but more upon our *giving all that we can give* and *doing all that we can do* in our present circumstance. Once one has given all he can, then the Lord, through His grace, will assist him (see [[D&C 123.17|D&C 123:17]]).
 
 Clearly, the Lord’s role and our role in our receiving divine help come into clear perspective in these inspired words: “I can do all things through Christ which strengtheneth me” ([[Philippians 4.13|Philip. 4:13]]).
 
-The fifth principle, *keeping the commandments,* surely is a condition for receiving the grace of the Lord: “If you keep my commandments you shall receive of his fulness … ; therefore, … you shall receive grace for grace” ([[D&C 93.20|D&C 93:20]]; see also [[D&C 93.28|D&C 93:28]]).
+The fifth principle, *keeping the commandments,* surely is a condition for receiving the grace of the Lord: “If you keep my commandments you shall receive of his fulness … ; therefore, … you shall receive grace for grace” ([[D&C 93.20|D&C 93:20]]; see also [[D&C 93.28|D&C 93:28]]).
 
 To obtain grace, one does not have to be perfect, but he does have to be trying to keep the commandments the best that he can. Then the Lord will allow him to receive that power.
 
@@ -86,9 +88,9 @@ Moroni sums up the doctrine of grace succinctly: “If ye shall deny yourselves 
 
 ## Hope through Jesus Christ
 
-What glorious gospel news is an understanding of this doctrine of grace, which persuades us to more fully center our faith and hope upon Jesus Christ. Through the grace of the Father, we will better know how to come unto the Son. (See [[1 Nephi 15.14|1 Ne. 15:14–15]][[1 Nephi 15.15|]].)
+What glorious gospel news is an understanding of this doctrine of grace, which persuades us to more fully center our faith and hope upon Jesus Christ. Through the grace of the Father, we will better know how to come unto the Son. (See [[1 Nephi 15.14|1 Ne. 15:14–15]][[1 Nephi 15.15|]].)
 
-Let us be submissive to the Father’s will, recognizing that His will is preeminent. How thankful we ought to be to submit to His will, because He and His Son will never do anything “save it be for the benefit of the world” ([[2 Nephi 26.24|2 Ne. 26:24]]).
+Let us be submissive to the Father’s will, recognizing that His will is preeminent. How thankful we ought to be to submit to His will, because He and His Son will never do anything “save it be for the benefit of the world” ([[2 Nephi 26.24|2 Ne. 26:24]]).
 
 By seeking the intercession of the Lord more fully in our lives:
 
@@ -104,7 +106,7 @@ By seeking the intercession of the Lord more fully in our lives:
 
 “Let us therefore come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need” ([[Hebrews 4.16|Heb. 4:16]]).
 
-I bear witness that if we will seek the grace of God, He will come to our aid and the aid of our loved ones in times of need. Let us obey the Lord in all things and offer to Him the ultimate sacrifice of “a broken heart and a contrite spirit” ([[3 Nephi 9.20|3 Ne. 9:20]]; see also [[3 Nephi 12.19|3 Ne. 12:19]]).
+I bear witness that if we will seek the grace of God, He will come to our aid and the aid of our loved ones in times of need. Let us obey the Lord in all things and offer to Him the ultimate sacrifice of “a broken heart and a contrite spirit” ([[3 Nephi 9.20|3 Ne. 9:20]]; see also [[3 Nephi 12.19|3 Ne. 12:19]]).
 
 Now, as one of the Lord’s Seventy and as an especial witness of Christ to bear witness of His name in all the world and “to prepare a way before \[His\] face” ([[D&C 124.139|D&C 124:139]]), I bear witness of the majesty of the Father and of the Son.
 
@@ -119,8 +121,3 @@ May we “seek this Jesus of whom the prophets and apostles have written, that t
 
 
 
-
-
-
-
-#Atonement #Faith #Grace #Humility #Obedience #Repentance

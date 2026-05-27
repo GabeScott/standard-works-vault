@@ -1,7 +1,6 @@
 # Peculiar People
 
-
-*See also* [[Called of God.md|Called of God]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Separation, Separate.md|Separation]]
+*See also* [[Called of God.md|Called of God]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]; [[Separation.md|Separation]]
 
 ye shall be a *peculiar* treasure unto me, [[Exodus 19.5|Exodus 19:5]].
 
@@ -11,9 +10,9 @@ chosen thee to be a *special* people, [[Deuteronomy 7.6|Deuteronomy 7:6]].
 
 Lord hath chosen thee to be a *peculiar* people unto himself, [[Deuteronomy 14.2|Deuteronomy 14:2]].
 
-Lord hath avouched thee ... to be his *peculiar* people, [[Deuteronomy 26.18|Deuteronomy 26:18]].
+Lord hath avouched thee … to be his *peculiar* people, [[Deuteronomy 26.18|Deuteronomy 26:18]].
 
-Lord hath chosen ... Israel for his *peculiar* treasure, [[Psalms 135.4|Psalms 135:4]].
+Lord hath chosen … Israel for his *peculiar* treasure, [[Psalms 135.4|Psalms 135:4]].
 
 Jacob whom I have *chosen*, the seed of Abraham, [[Isaiah 41.8|Isaiah 41:8]].
 
@@ -32,5 +31,3 @@ I will raise up unto myself a *pure* people, [[D&C 100.16|D&C 100:16]].
 accounted as the *salt* of the earth, [[D&C 101.39|D&C 101:39]].
 
 shine forth, that thy *light* may be a standard, [[D&C 115.5|D&C 115:5]].
-
-*See also* [[Leviticus 20.26|Leviticus 20:26]].

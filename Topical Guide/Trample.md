@@ -1,9 +1,8 @@
 # Trample
 
+*See also* [[Tread.md|Tread]]
 
-*See also* [[Tread, Trod, Trodden.md|Tread]]
-
-I will ... *trample* them in my fury, [[Isaiah 63.3|Isaiah 63:3]].
+I will … *trample* them in my fury, [[Isaiah 63.3|Isaiah 63:3]].
 
 neither cast ye your pearls before swine, lest they *trample* them, [[Matthew 7.6|Matthew 7:6]] ([[3 Nephi 14.6|3 Nephi 14:6]]).
 

@@ -1,6 +1,8 @@
 # Shall We Not Go On in So Great a Cause?
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -22,7 +24,7 @@ Last October, I sat by the hearthstone that was in the small Smith home in Sharo
 
 Father and Mother Smith experienced personal setbacks, forcing them to move their family numerous times before finally giving up on New England and making the courageous decision to move farther west, to New York State.
 
-Because the family was united, they survived these challenges and together faced the daunting task of starting over again on a hundred-acre (0.4 km) wooded tract of land in Manchester, near Palmyra, New York.
+Because the family was united, they survived these challenges and together faced the daunting task of starting over again on a hundred-acre (0.4 km2) wooded tract of land in Manchester, near Palmyra, New York.
 
 I am not sure that many of us realize the physical and emotional challenges that starting over presented the Smith family—clearing land, planting orchards and fields, building a small log home and other farm structures, hiring out as day laborers, and making home goods to sell in town.
 
@@ -98,7 +100,7 @@ I have often wondered why Joseph and Hyrum and their families had to suffer so m
 
 Before his death in 1844, Joseph wrote a spirited letter to the Saints. It was a call to action, which continues in the Church today:
 
-“Brethren \[and sisters\], *shall we not go on in so great a cause?* Go forward and not backward. Courage, brethren \[and sisters\]; and on, on to the victory! …
+“Brethren \[and sisters\], *shall we not go on in so great a cause?* Go forward and not backward. Courage, brethren \[and sisters\]; and on, on to the victory! …
 
 “… Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness.”[^24]
 
@@ -109,7 +111,7 @@ I know that the Savior is pleased when we present Him an offering from our heart
 
 
 
-[^1]: Brigham Young, in *Teachings of Presidents of the Church: Joseph Smith* (2007), 544; see also Brigham Young, “Remarks,” *Deseret News,* Oct. 26, 1859, 266.
+[^1]: Brigham Young, in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-47?lang=eng&id=p7#p7)* (2007), 544; see also Brigham Young, “Remarks,” *Deseret News,* Oct. 26, 1859, 266.
 
 [^2]: There are four primary accounts of the First Vision from which I quote; see “[Joseph Smith’s Accounts of the First Vision](https://www.josephsmithpapers.org/articles/primary-accounts-of-first-vision),” josephsmithpapers.org.
 
@@ -127,7 +129,7 @@ I know that the Savior is pleased when we present Him an offering from our heart
 
 [^9]: [[Joseph Smith History 1.18|Joseph Smith—History 1:18]].
 
-[^10]: Joseph Smith, “[Church History](https://www.josephsmithpapers.org/paper-summary/times-and-seasons-1-march-1842/5),” *Times and Seasons,* Mar. 1, 1842, 707; see also josephsmithpapers.org.
+[^10]: Joseph Smith, “[Church History](https://www.josephsmithpapers.org/paper-summary/times-and-seasons-1-march-1842/5),” *Times and Seasons,* Mar. 1, 1842, 707; see also josephsmithpapers.org.
 
 [^11]: Joseph Smith, “[Journal, 1835–1836](https://www.josephsmithpapers.org/paper-summary/journal-1835-1836/25),” 24, josephsmithpapers.org.
 
@@ -137,13 +139,13 @@ I know that the Savior is pleased when we present Him an offering from our heart
 
 [^14]: [[Joseph Smith History 1.33|Joseph Smith—History 1:33–34]][[Joseph Smith History 1.34|]].
 
-[^15]: Joseph Smith, “[Letter to Emma Smith, 4 April 1839](https://www.josephsmithpapers.org/paper-summary/letter-to-emma-smith-4-april-1839/1),” 1–2, josephsmithpapers.org; spelling, punctuation, and capitalization standardized.
+[^15]: Joseph Smith, “[Letter to Emma Smith, 4 April 1839](https://www.josephsmithpapers.org/paper-summary/letter-to-emma-smith-4-april-1839/1),” 1–2, josephsmithpapers.org; spelling, punctuation, and capitalization standardized.
 
 [^16]: Joseph Smith, in “[Minute Book 1](https://www.josephsmithpapers.org/paper-summary/minute-book-1/190),” 186, josephsmithpapers.org; emphasis added; punctuation standardized.
 
 [^17]: See [[D&C 136.39|Doctrine and Covenants 136:39]].
 
-[^18]: Joseph Smith, “History of Joseph Smith,” *The Latter-day Saints’ Millennial Star,* Apr. 19, 1862, 248; emphasis added.
+[^18]: Joseph Smith, “History of Joseph Smith,” *The Latter-day Saints’ Millennial Star,* Apr. 19, 1862, 248; emphasis added.
 
 [^19]: [[D&C 135.3|Doctrine and Covenants 135:3]]; emphasis added.
 
@@ -157,8 +159,3 @@ I know that the Savior is pleased when we present Him an offering from our heart
 
 [^24]: [[D&C 128.22|Doctrine and Covenants 128:22, 24]][[D&C 128.24|]]; emphasis added.
 
-
-
-
-
-#Joseph_Smith #Restoration

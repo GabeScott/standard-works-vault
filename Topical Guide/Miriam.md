@@ -1,4 +1,3 @@
 # Miriam
 
-
-*See* [BD Miriam](https://www.churchofjesuschrist.org/study/scriptures/bd/miriam?lang=eng)
+*See also* [[BD Miriam.md|BD Miriam]]

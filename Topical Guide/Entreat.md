@@ -1,7 +1,6 @@
 # Entreat
 
-
-*See also* [[Beg.md|Beg]]; [[Beseech, Besought.md|Beseech]]; [[Inquire.md|Inquire]]; [[Petition.md|Petition]]; [[Plead.md|Plead]]
+*See also* [[Beg.md|Beg]]; [[Beseech.md|Beseech]]; [[Inquire.md|Inquire]]; [[Petition.md|Petition]]; [[Plead.md|Plead]]
 
 Lord was *entreated* of him, [[Genesis 25.21|Genesis 25:21]].
 

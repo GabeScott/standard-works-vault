@@ -1,13 +1,12 @@
 # Child
 
-
 *See also* [[Children.md|Children]]; [[Daughter.md|Daughter]]; [[Son.md|Son]]
 
 when she saw him that he was a goodly *child*, [[Exodus 2.2|Exodus 2:2]].
 
 If men strive, and hurt a woman with *child*, [[Exodus 21.22|Exodus 21:22]].
 
-If ... one of them die, and have no *child*, [[Deuteronomy 25.5|Deuteronomy 25:5]] ([[Matthew 22.24|Matthew 22:24]]).
+If … one of them die, and have no *child*, [[Deuteronomy 25.5|Deuteronomy 25:5]] ([[Matthew 22.24|Matthew 22:24]]).
 
 For this *child* I prayed, [[1 Samuel 1.27|1 Samuel 1:27]].
 
@@ -43,7 +42,7 @@ search diligently for the young *child*, [[Matthew 2.8|Matthew 2:8]].
 
 the *child* was cured from that very hour, [[Matthew 17.18|Matthew 17:18]].
 
-Whosoever ... humble himself as this little *child*, [[Matthew 18.4|Matthew 18:4]].
+Whosoever … humble himself as this little *child*, [[Matthew 18.4|Matthew 18:4]].
 
 woe unto them that are with *child*, [[Matthew 24.19|Matthew 24:19]] ([[Mark 13.17|Mark 13:17]]; [[Luke 21.23|Luke 21:23]]; [[Helaman 15.2|Helaman 15:2]]; [[Joseph Smith Matthew 1.16|Joseph Smith Matthew 1:16]]).
 
@@ -71,9 +70,9 @@ from a *child* thou hast known the holy scriptures, [[2 Timothy 3.15|2 Timothy 3
 
 she being with *child* cried, [[Revelation 12.2|Revelation 12:2]].
 
-virgin ... bearing a *child* in her arms, [[1 Nephi 11.20|1 Nephi 11:20]].
+virgin … bearing a *child* in her arms, [[1 Nephi 11.20|1 Nephi 11:20]].
 
-becometh as a *child*, submissive, [[Mosiah 3.19|Mosiah 3:19]] ([[3 Nephi 11.37|3 Ne. 11:37-38]][[3 Nephi 11.38|]]).
+becometh as a *child*, submissive, [[Mosiah 3.19|Mosiah 3:19]].
 
 is a liar and a *child* of the devil, [[Alma 5.39|Alma 5:39]].
 

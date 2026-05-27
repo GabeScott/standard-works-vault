@@ -1,6 +1,8 @@
 # A Call to Action
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -10,7 +12,7 @@ My dear brothers and sisters, I have been reflecting on the counsels of the Firs
 
 “Why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]].)
 
-On February 2 of this year, at a historic meeting of the General Welfare Services Committee of the Church, President Marion G. Romney stated:
+On February 2 of this year, at a historic meeting of the General Welfare Services Committee of the Church, President Marion G. Romney stated:
 
 “All Church members, from kindergarten to high priests groups and all Relief Society sisters, should be so plainly, accurately, and inspirationally taught that *they will be motivated to implement* applicable welfare principles and procedures in their personal lives and in their family and Church responsibilities.”
 
@@ -44,7 +46,7 @@ Stake and district Relief Society presidencies everywhere should plan what to te
 
 As Relief Society presidents perform these functions they will be fulfilling a primary purpose of the Relief Society as laid down by the Prophet Joseph Smith when he said that an objective of the Relief Society is “the relief of the poor, the destitute, the widow and the orphan, and for the exercise of all benevolent purposes.” (*History of The Church of Jesus Christ of Latter-day Saints,* 4:567.)
 
-As we serve we should be fulfilling the priesthood expectations as stated by President Harold B. Lee in a welfare meeting in October of 1946:
+As we serve we should be fulfilling the priesthood expectations as stated by President Harold B. Lee in a welfare meeting in October of 1946:
 
 “I would like to think this: A wife in a home, a woman, is expected to be … an intelligent and inspired participant in the family partnership. That is just where we think the place of the Relief Society is in the Welfare Program. … We expect that they shall be invited in as intelligent participants in the *planning* of the Welfare partnership, and without that invitation and without that opportunity, we are not going to get the solidarity that we otherwise could expect.” (*Relief Society Magazine,* Dec. 1946, p. 814.)
 
@@ -72,7 +74,7 @@ He said, “She actually had me waiting anxiously for each rock.” And then he 
 
 I would like to see all sisters, particularly Relief Society presidents, acting as helpmeets to the priesthood in the rendering of welfare assistance.
 
-I urge Relief Society leaders everywhere to accept the call to action of our inspired prophets to perform and to accomplish our assigned welfare tasks. May we work together as companions with the priesthood, remembering the principle of partnership; may we teach effectively the fundamentals of welfare services, and implement them by enlarging our vision of this work, particularly as it applies to the art of compassionate services. For as President Marion G. Romney once said:
+I urge Relief Society leaders everywhere to accept the call to action of our inspired prophets to perform and to accomplish our assigned welfare tasks. May we work together as companions with the priesthood, remembering the principle of partnership; may we teach effectively the fundamentals of welfare services, and implement them by enlarging our vision of this work, particularly as it applies to the art of compassionate services. For as President Marion G. Romney once said:
 
 “Effective administration of relief to the poor is an art, and it is an art which every dedicated Relief Society worker will seek to perfect in herself.” (*Relief Society Magazine,* Feb. 1961, p. 77.)
 
@@ -85,8 +87,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Relief_Society #Welfare

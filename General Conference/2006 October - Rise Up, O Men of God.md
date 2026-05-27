@@ -1,5 +1,7 @@
 # Rise Up, O Men of God
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
@@ -34,9 +36,9 @@ The words carry the spirit of the old English hymns written by Charles Wesley an
 >As brothers of the Son of Man,
 >
 
-The scriptures are very plain in their application to each of us, my brethren. For instance, Nephi quotes from Isaiah, saying, “O that thou hadst hearkened to my commandments—then had thy peace been as a river, and thy righteousness as the waves of the sea” ([[1 Nephi 20.18|1 Nephi 20:18]]; see also [[Isaiah 48.18|Isaiah 48:18]]).
+The scriptures are very plain in their application to each of us, my brethren. For instance, Nephi quotes from Isaiah, saying, “O that thou hadst hearkened to my commandments—then had thy peace been as a river, and thy righteousness as the waves of the sea” ([[1 Nephi 20.18|1 Nephi 20:18]]; see also [[Isaiah 48.18|Isaiah 48:18]]).
 
-The words of Lehi are a clarion call to all men and boys of the priesthood. Said he with great conviction: “Awake, my sons; put on the armor of righteousness. Shake off the chains with which ye are bound, and come forth out of obscurity, and arise from the dust” ([[2 Nephi 1.23|2 Nephi 1:23]]).
+The words of Lehi are a clarion call to all men and boys of the priesthood. Said he with great conviction: “Awake, my sons; put on the armor of righteousness. Shake off the chains with which ye are bound, and come forth out of obscurity, and arise from the dust” ([[2 Nephi 1.23|2 Nephi 1:23]]).
 
 There is not a man or boy in this vast congregation tonight who cannot improve his life. And that needs to happen. After all, we hold the priesthood of God. If we are boys who have received the Aaronic Priesthood, we are entitled to the ministering of angels to guide and direct, to bless and protect us. What a remarkable and wonderful thing that is. If we have had conferred upon us the Melchizedek Priesthood, we have been given the keys of the kingdom that carry with them eternal powers. These were spoken of by the Lord when He laid His hands upon the heads of His disciples.
 
@@ -66,13 +68,13 @@ In addition, your education will strengthen your service in the Church. A study 
 
 I previously mentioned pornography. It easily becomes an addiction of the worst kind. Let me read to you from a letter I received from a victim:
 
-“I would like to share something with you that I have not been able to share with anyone else. I am a 35-year-old male. For most of my adult life I have been addicted to pornography. I am very ashamed to admit this, … but for the most part, my addiction is as real as that of an alcoholic or a drug addict. …
+“I would like to share something with you that I have not been able to share with anyone else. I am a 35-year-old male. For most of my adult life I have been addicted to pornography. I am very ashamed to admit this, … but for the most part, my addiction is as real as that of an alcoholic or a drug addict. …
 
 “The main reason for my writing is to tell you that the Church can’t do enough to counsel the members to avoid pornography. I was first introduced to this material as a child. I was molested by an older male cousin, and pornography was used to attract my interest. I am convinced that this exposure at an early age to sex and pornography is at the root of my addiction today.
 
-“I think it is ironic that those who support the business of pornography say that it is a matter of freedom of expression. I have no freedom. I have lost my free agency because I have been unable to overcome this. It is a trap for me, and I can’t seem to get out of it. *Please, please, please* plead with the brethren of the Church not only to avoid but eliminate the sources of pornographic material in their lives. Besides the obvious things like books and magazines, they need to turn off cable movie channels in their homes. I know many who have these services and claim that they are able to screen the bad things out, but this is not true. …
+“I think it is ironic that those who support the business of pornography say that it is a matter of freedom of expression. I have no freedom. I have lost my free agency because I have been unable to overcome this. It is a trap for me, and I can’t seem to get out of it. *Please, please, please* plead with the brethren of the Church not only to avoid but eliminate the sources of pornographic material in their lives. Besides the obvious things like books and magazines, they need to turn off cable movie channels in their homes. I know many who have these services and claim that they are able to screen the bad things out, but this is not true. …
 
-“Pornography and perversion have become so commonplace in our lives that the sources of this material are everywhere. I have found pornographic magazines by the roadside and in dumps. We need to talk to our children and explain how evil these things are and encourage them to avoid looking at them when they come across them. …
+“Pornography and perversion have become so commonplace in our lives that the sources of this material are everywhere. I have found pornographic magazines by the roadside and in dumps. We need to talk to our children and explain how evil these things are and encourage them to avoid looking at them when they come across them. …
 
 “Finally, President Hinckley, please pray for me and others in the Church who may be like me to have the courage and strength to overcome this terrible affliction.
 
@@ -95,5 +97,3 @@ My brethren, I testify of the truth of these eternal qualities. I testify that i
 
 
 
-
-#Addiction #Education #Media #Priesthood #Worthiness

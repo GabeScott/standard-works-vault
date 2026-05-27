@@ -1,7 +1,6 @@
 # Levity
 
-
-*See also* [[Laughter, Laugh.md|Laughter]]; [[Sobriety, Sober, Soberness.md|Sobriety]]
+*See also* [[Laughter.md|Laughter]]; [[Sobriety.md|Sobriety]]
 
 is the *laughter* of the fool, [[Ecclesiastes 7.6|Ecclesiastes 7:6]].
 
@@ -17,7 +16,7 @@ you have treated *lightly* the things you have, [[D&C 84.54|D&C 84:54]].
 
 cast away your idle thoughts and your excess of *laughter*, [[D&C 88.69|D&C 88:69]].
 
-cease ... from all your pride and *light-mindedness*, [[D&C 88.121|D&C 88:121]].
+cease … from all your pride and *light-mindedness*, [[D&C 88.121|D&C 88:121]].
 
 declare in my name, in *solemnity* of heart, [[D&C 100.7|D&C 100:7]].
 

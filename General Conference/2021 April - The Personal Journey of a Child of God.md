@@ -1,6 +1,8 @@
 # The Personal Journey of a Child of God
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -18,7 +20,7 @@ This is Brother Ray Tuineau from Utah, with his beautiful family. His wife, Juli
 
 The Lord has said, “Thou shalt live together in love, insomuch that thou shalt weep for the loss of them that die.”[^4]
 
-While we weep, we also rejoice in the glorious Resurrection of our Savior. Because of Him, our loved ones and friends continue their eternal journey. As President Joseph F. Smith explained: “We can not forget them; we do not cease to love them. … They have advanced; we are advancing; we are growing as they have grown.”[^5] President Russell M. Nelson said, “Our tears of sorrow … turn to tears of anticipation.”[^6]
+While we weep, we also rejoice in the glorious Resurrection of our Savior. Because of Him, our loved ones and friends continue their eternal journey. As President Joseph F. Smith explained: “We can not forget them; we do not cease to love them. … They have advanced; we are advancing; we are growing as they have grown.”[^5] President Russell M. Nelson said, “Our tears of sorrow … turn to tears of anticipation.”[^6]
 
 ## We Know about Life before Birth
 
@@ -36,9 +38,9 @@ For a woman, having a child can be a great sacrifice physically, emotionally, an
 
 ## The Sacred Responsibility of Safeguarding Life
 
-Years ago, feeling deep concern for the number of abortions in the world, President Gordon B. Hinckley addressed the women of the Church with words that are relevant for us today. He said: “You who are wives and mothers are the anchors of the family. You bear the children. What an enormous and sacred responsibility that is. … What is happening to our appreciation of the sanctity of human life? Abortion is an evil, stark and real and repugnant, which is sweeping over the earth. I plead with the women of this Church to shun it, to stand above it, to stay away from those compromising situations which make it appear desirable. There may be some few circumstances under which it can occur, but they are extremely limited.[^10] … You are the mothers of the sons and daughters of God, whose lives are sacred. Safeguarding them is a divinely given responsibility which cannot be lightly brushed aside.”[^11]
+Years ago, feeling deep concern for the number of abortions in the world, President Gordon B. Hinckley addressed the women of the Church with words that are relevant for us today. He said: “You who are wives and mothers are the anchors of the family. You bear the children. What an enormous and sacred responsibility that is. … What is happening to our appreciation of the sanctity of human life? Abortion is an evil, stark and real and repugnant, which is sweeping over the earth. I plead with the women of this Church to shun it, to stand above it, to stay away from those compromising situations which make it appear desirable. There may be some few circumstances under which it can occur, but they are extremely limited.[^10] … You are the mothers of the sons and daughters of God, whose lives are sacred. Safeguarding them is a divinely given responsibility which cannot be lightly brushed aside.”[^11]
 
-Elder Marcus B. Nash shared with me the story of a dear 84-year-old woman who, during her baptismal interview, “acknowledged an abortion \[many years before\].” With heartfelt emotion, she said: “I have carried the burden of having aborted a child every day of my life for forty-six years. … Nothing I did would take the pain and guilt away. I was hopeless until I was taught the true gospel of Jesus Christ. I learned how to repent … and suddenly I was filled with hope. I finally came to know that I could be forgiven if I truly repented of my sins.”[^12]
+Elder Marcus B. Nash shared with me the story of a dear 84-year-old woman who, during her baptismal interview, “acknowledged an abortion \[many years before\].” With heartfelt emotion, she said: “I have carried the burden of having aborted a child every day of my life for forty-six years. … Nothing I did would take the pain and guilt away. I was hopeless until I was taught the true gospel of Jesus Christ. I learned how to repent … and suddenly I was filled with hope. I finally came to know that I could be forgiven if I truly repented of my sins.”[^12]
 
 How grateful we are for the divine gifts of repentance and forgiveness.
 
@@ -80,7 +82,7 @@ I share the story of the Laing family of Southern California. Sister Rebecca Lai
 
 The Savior loves each precious child.
 
-“And he took their little children, one by one, and blessed them. …
+“And he took their little children, one by one, and blessed them. …
 
 “And … they cast their eyes towards heaven, … and they saw angels descending out of heaven … in the midst of fire; and \[the angels\] … encircled those little ones about, … and the angels did minister unto them.”[^24]
 
@@ -99,11 +101,11 @@ May we always remember that each spirit child of God is coming to earth on his o
 
 [^4]: [[D&C 42.45|Doctrine and Covenants 42:45]].
 
-[^5]: Joseph F. Smith, in Conference Report, Apr. 1916, 3.
+[^5]: Joseph F. Smith, in Conference Report, Apr. 1916, 3.
 
-[^6]: In Trent Toone, “‘A Fulness of Joy’: President Nelson Shares Message of Eternal Life at His Daughter’s Funeral,” *Church News*, Jan. 19, 2019, thechurchnews.com.
+[^6]: In Trent Toone, “‘A Fulness of Joy’: President Nelson Shares Message of Eternal Life at His Daughter’s Funeral,” *Church News*, Jan. 19, 2019, thechurchnews.com.
 
-[^7]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org.
+[^7]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org.
 
 [^8]: [[D&C 138.56|Doctrine and Covenants 138:56]].
 
@@ -111,11 +113,11 @@ May we always remember that each spirit child of God is coming to earth on his o
 
 [^10]: The official position of The Church of Jesus Christ of Latter-day Saints:
 
-[^11]: Gordon B. Hinckley, “[[1998 October - Walking in the Light of the Lord.md|Walking in the Light of the Lord]],” *Ensign*, Nov. 1998, 99; *Liahona*, Jan. 1999, 117.
+[^11]: Gordon B. Hinckley, “[[1998 October - Walking in the Light of the Lord.md|Walking in the Light of the Lord]],” *Ensign*, Nov. 1998, 99; *Liahona*, Jan. 1999, 117.
 
-[^12]: See Neil L. Andersen, *The Divine Gift of Forgiveness* (2019), 25.
+[^12]: See Neil L. Andersen, *The Divine Gift of Forgiveness* (2019), 25.
 
-[^13]: See Dallin H. Oaks, “[[2012 October - Protect the Children.md|Protect the Children]],” *Ensign* or *Liahona*, Nov. 2012, 43–46.
+[^13]: See Dallin H. Oaks, “[[2012 October - Protect the Children.md|Protect the Children]],” *Ensign* or *Liahona*, Nov. 2012, 43–46.
 
 [^14]: Safeguarding the lives of a daughter or son of God is also the responsibility of the father. Every father has an emotional, spiritual, and financial responsibility to welcome, love, and care for the child coming to earth.
 
@@ -123,23 +125,21 @@ May we always remember that each spirit child of God is coming to earth on his o
 
 [^16]: [[Mark 9.36|Mark 9:36–37]][[Mark 9.37|]].
 
-[^17]: See Neil L. Andersen, “[A Compensatory Spiritual Power for the Righteous](https://speeches.byu.edu/talks/neil-l-andersen/a-compensatory-spiritual-power-for-the-righteous)” (Brigham Young University devotional, Aug. 18, 2015), speeches.byu.edu.
+[^17]: See Neil L. Andersen, “[A Compensatory Spiritual Power for the Righteous](https://speeches.byu.edu/talks/neil-l-andersen/a-compensatory-spiritual-power-for-the-righteous)” (Brigham Young University devotional, Aug. 18, 2015), speeches.byu.edu.
 
-[^18]: See Dallin H. Oaks, “[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign*, Nov. 1993, 75; see also Russell M. Nelson, “[[1990 October - Choices.md|Choices]],” *Ensign*, Nov. 1990, 75.
+[^18]: See Dallin H. Oaks, “[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign*, Nov. 1993, 75; see also Russell M. Nelson, “[[1990 October - Choices.md|Choices]],” *Ensign*, Nov. 1990, 75.
 
-[^19]: See “[Bishop Caussé Thanks UNICEF and Church Members for COVID-19 Relief](https://newsroom.churchofjesuschrist.org/article/bishop-causse-covid-19-thanks),” Newsroom, Mar. 5, 2021, newsroom.ChurchofJesusChrist.org.
+[^19]: See “[Bishop Caussé Thanks UNICEF and Church Members for COVID-19 Relief](https://newsroom.churchofjesuschrist.org/article/bishop-causse-covid-19-thanks),” Newsroom, Mar. 5, 2021, newsroom.ChurchofJesusChrist.org.
 
-[^20]: For example, if the United States had maintained its fertility rate of 2008, just 13 years ago, there would be 5.8 million more children alive today (see Lyman Stone, “5.8 Million Fewer Babies: America’s Lost Decade in Fertility,” Institute for Family Studies, Feb. 3, 2021, ifstudies.org/blog).
+[^20]: For example, if the United States had maintained its fertility rate of 2008, just 13 years ago, there would be 5.8 million more children alive today (see Lyman Stone, “5.8 Million Fewer Babies: America’s Lost Decade in Fertility,” Institute for Family Studies, Feb. 3, 2021, ifstudies.org/blog).
 
-[^21]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org. The scriptures record that “children are an heritage of the Lord” ([[Psalms 127.3|Psalm 127:3]]). See Russell M. Nelson, “[[2002 April - How Firm Our Foundation.md|How Firm Our Foundation]],” *Ensign*, May 2002, 75–76; *Liahona*, July 2002, 83–84; see also Dallin H. Oaks, “[[2018 October - Truth and the Plan.md|Truth and the Plan]],” *Ensign* or *Liahona*, Nov. 2018, 27.
+[^21]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org. The scriptures record that “children are an heritage of the Lord” ([[Psalms 127.3|Psalm 127:3]]). See Russell M. Nelson, “[[2002 April - How Firm Our Foundation.md|How Firm Our Foundation]],” *Ensign*, May 2002, 75–76; *Liahona*, July 2002, 83–84; see also Dallin H. Oaks, “[[2018 October - Truth and the Plan.md|Truth and the Plan]],” *Ensign* or *Liahona*, Nov. 2018, 27.
 
-[^22]: See Neil L. Andersen, “[[2011 October - Children.md|Children]],” *Ensign* or *Liahona*, Nov. 2011, 28.
+[^22]: See Neil L. Andersen, “[[2011 October - Children.md|Children]],” *Ensign* or *Liahona*, Nov. 2011, 28.
 
-[^23]: Personal correspondence, Mar. 10, 2021.
+[^23]: Personal correspondence, Mar. 10, 2021.
 
-[^24]: [[3 Nephi 17.21|3 Nephi 17:21, 24]][[3 Nephi 17.24|]].
+[^24]: [[3 Nephi 17.21|3 Nephi 17:21, 24]][[3 Nephi 17.24|]].
 
+[^25]: “In reality, we are all travelers—even explorers of mortality. We do not have the benefit of previous personal experience. We must pass over steep precipices and turbulent waters in our own journey here on earth” (Thomas S. Monson, “[[2003 October - The Bridge Builder.md|The Bridge Builder]],” *Ensign* or *Liahona*, Nov. 2003, 67).
 
-
-
-#Abortion #Children #Family #Love #Mortality #Motherhood #Plan_Of_Salvation

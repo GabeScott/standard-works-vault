@@ -1,6 +1,5 @@
 # Rag
 
-
 drowsiness shall clothe a man with *rags*, [[Proverbs 23.21|Proverbs 23:21]].
 
 all our righteousnesses are as filthy *rags*, [[Isaiah 64.6|Isaiah 64:6]].

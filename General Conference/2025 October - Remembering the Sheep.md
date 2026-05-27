@@ -1,6 +1,8 @@
 # Remembering the Sheep
 
-By Elder William K. Jackson - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder William K. Jackson - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -10,11 +12,11 @@ By Elder William K. Jackson - *Of the Seventy*
 
 Christ is the Good Shepherd. Each one of the flock is precious to Him. He patterned shepherding and taught us by word and deed the qualities of a good shepherd, including knowing your sheep by name, loving them, finding those that are lost, feeding, and, ultimately, leading them back home again. He expects us to do the same as His undershepherds.
 
-We can learn much about ministering the Lord’s way from the ancient prophet—and exceptional shepherd—Moroni. He lived during very difficult times, not having the benefits of cell phones, computers, and the internet. But he managed to keep track of the sheep. How was this done? We get a glimpse into his methodology in [[Moroni 6.1|Moroni 6]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]][[Moroni 6.5|]][[Moroni 6.6|]][[Moroni 6.7|]][[Moroni 6.8|]][[Moroni 6.9|]]. There we read that members “were numbered among the people of the church of Christ; and their names were taken, that they might be remembered and nourished by the good word of God, to keep them in the right way. … The church did meet together oft, to fast and to pray, *and to speak one with another concerning the welfare of their souls*” ([[Moroni 6.4|Moroni 6:4–5]][[Moroni 6.5|]]; emphasis added). 
+We can learn much about ministering the Lord’s way from the ancient prophet—and exceptional shepherd—Moroni. He lived during very difficult times, not having the benefits of cell phones, computers, and the internet. But he managed to keep track of the sheep. How was this done? We get a glimpse into his methodology in [[Moroni 6.1|Moroni 6]]. There we read that members “were numbered among the people of the church of Christ; and their names were taken, that they might be remembered and nourished by the good word of God, to keep them in the right way. … The church did meet together oft, to fast and to pray, *and to speak one with another concerning the welfare of their souls*” ([[Moroni 6.4|Moroni 6:4–5]][[Moroni 6.5|]]; emphasis added).
 
 For Moroni, it was all about people—names! He practiced the principle of counting and accounting so that *all* would be remembered. Any who struggled or wandered were noticed, allowing the Saints to discuss their welfare in councils. Like the shepherd who left the ninety and nine (safe and secure, I am certain) and went after the one that was lost (see [[Luke 15.4|Luke 15:4–7]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]]), we have been asked to be just as aware of our flocks—to notice and remember and go and do likewise.
 
-As a mission leader in India, I recall asking a young branch president about some of his goals for the coming year: “How many men will you prepare to receive the Melchizedek Priesthood?” His immediate response was “Seven!” 
+As a mission leader in India, I recall asking a young branch president about some of his goals for the coming year: “How many men will you prepare to receive the Melchizedek Priesthood?” His immediate response was “Seven!”
 
 I wondered from where in the ether he had conjured up that very specific number! Before I could respond, he produced a piece of paper with the numbers one through seven written down the side. The first five lines had names on them—real people that he and his elders quorum were going to invite and encourage to have the blessing of the priesthood in their lives. Of course, I had to ask about the empty lines six and seven. “Oh, President,” he said, shaking his head sympathetically, “surely we will baptize at least two men in the first of the year who could have the priesthood by the end of the year.” This superb leader understood the principle of counting and accounting.
 
@@ -26,7 +28,7 @@ I knew a family from the United States who took an assignment in Africa. On thei
 
 Then these diligent young people went to work. Over the next few months, they found every boy listed. Name by name, those lost sheep were welcomed back by their peers and fed spiritually and physically! Within a year, on any given Sunday, there was an average of 21 young men in attendance. Thank goodness for young men who counted and accounted.
 
-A dear friend of mine, as a young graduate student, moved with his family to a large American city to continue his education. He was immediately called to preside over the elders quorum. A little nervous about his first interview with the stake president, he was determined to go prepared. He told the stake president that he had three goals for the upcoming year: (1) 90 percent ministering, (2) a substantive gospel lesson each week, and (3) a well-planned quorum activity every month. 
+A dear friend of mine, as a young graduate student, moved with his family to a large American city to continue his education. He was immediately called to preside over the elders quorum. A little nervous about his first interview with the stake president, he was determined to go prepared. He told the stake president that he had three goals for the upcoming year: (1) 90 percent ministering, (2) a substantive gospel lesson each week, and (3) a well-planned quorum activity every month.
 
 Smiling at my friend, this wise stake president asked, “Can you name a less-active quorum member who you could help get to the temple with his family this year?” That caught my friend by surprise. He thought carefully and came up with a name. “Write that down,” directed the stake president. Then this experienced leader asked the same question three more times—and the interview was over. This young man walked out of that interview having learned one of his greatest lessons on leadership and ministering. He went into the interview with programs, lessons, and activities. He walked out with names! Those four names subsequently became a major focus of his ministry and that of his quorum.
 
@@ -34,7 +36,7 @@ As a mission leader, I visited one of my branches one Sunday morning. I noticed 
 
 I recall a district, hours by jet from the nearest temple, where maintaining a current recommend was a high priority, despite the fact that it would likely never be used. The first Sunday of each month, leaders used their counting tools to account for their endowed members. If they found that a recommend was soon to expire, the executive secretary would schedule a renewal interview. People with expired recommends were counseled over, then sought out to assist them in returning to the covenant path. I asked how many of their endowed members had a current recommend. The answer was an astounding 98.6 percent. When asked about the six whose recommends had expired, the leaders were able to identify them by name and described to me the efforts being made to get them back!
 
-A few years ago, my family moved back to the United States. We were excited to attend church here after 26 amazing years in smaller, more isolated units. I was called as a ward missionary. We had a great ward mission leader and were doing exciting things and teaching wonderful people. I asked to attend a ward council meeting to observe and to get their help with the friends we were working with. I was surprised when all that was discussed was an upcoming ward activity. I approached the ward mission leader afterward and opined that he didn’t get the chance to return and report on our people. His response? “Oh, I never get to report.” 
+A few years ago, my family moved back to the United States. We were excited to attend church here after 26 amazing years in smaller, more isolated units. I was called as a ward missionary. We had a great ward mission leader and were doing exciting things and teaching wonderful people. I asked to attend a ward council meeting to observe and to get their help with the friends we were working with. I was surprised when all that was discussed was an upcoming ward activity. I approached the ward mission leader afterward and opined that he didn’t get the chance to return and report on our people. His response? “Oh, I never get to report.”
 
 I contrasted that with a branch council meeting in Lahore, Pakistan, that I had attended just weeks before. This little group sat around a small table together, and all they talked about were people. Names. Each leader reported on their stewardship and the individuals and families that they were concerned about. All had the chance to add their thoughts on the best ways that they could bless those being discussed. Plans were made and assignments given. What a brilliant lesson in counting and accounting by name from our first-generation brothers and sisters.
 
@@ -43,8 +45,3 @@ In the Church of Jesus Christ, we have been instructed by prophets past and prop
 
 
 
-
-
-
-
-#Church_Callings #Individual_Worth #Ministering #Service

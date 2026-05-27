@@ -1,5 +1,7 @@
 # All Men Everywhere
 
+Robert D. Hales
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -14,29 +16,29 @@ Many other things were learned, but what was learned depended on the reader. Wha
 
 ## I.
 
-One of the things I learned in this most recent reading of the Book of Mormon was how much God loves all of His children in every nation. In the first chapter Father Lehi praises the Lord, whose “power, and goodness, and mercy are over all the inhabitants of the earth” ([[1 Nephi 1.14|1 Nephi 1:14]]). Again and again the Book of Mormon teaches that the gospel of Jesus Christ is universal in its promise and effect, reaching out to all who ever live on the earth. Here are some examples, quoted directly from that book:
+One of the things I learned in this most recent reading of the Book of Mormon was how much God loves all of His children in every nation. In the first chapter Father Lehi praises the Lord, whose “power, and goodness, and mercy are over all the inhabitants of the earth” ([[1 Nephi 1.14|1 Nephi 1:14]]). Again and again the Book of Mormon teaches that the gospel of Jesus Christ is universal in its promise and effect, reaching out to all who ever live on the earth. Here are some examples, quoted directly from that book:
 
 - “The atonement … was prepared from the foundation of the world for all mankind, which ever were since the fall of Adam, … or who ever shall be” ([[Mosiah 4.7|Mosiah 4:7]]).
 
 - “And because of the redemption of man, which came by Jesus Christ, … all men are redeemed” ([[Mormon 9.13|Mormon 9:13]]).
 
-- “He suffereth the pains of all … , both men, women, and children. … And he suffereth this that the resurrection might pass upon all men” ([[2 Nephi 9.21|2 Nephi 9:21–22]][[2 Nephi 9.22|]]).
+- “He suffereth the pains of all … , both men, women, and children. … And he suffereth this that the resurrection might pass upon all men” ([[2 Nephi 9.21|2 Nephi 9:21–22]][[2 Nephi 9.22|]]).
 
-- “Hath he commanded any that they should not partake of his salvation? … Nay; but he hath given it free for all men; and … all men are privileged the one like unto the other, and none are forbidden” ([[2 Nephi 26.27|2 Nephi 26:27–28]][[2 Nephi 26.28|]]).
+- “Hath he commanded any that they should not partake of his salvation? … Nay; but he hath given it free for all men; and … all men are privileged the one like unto the other, and none are forbidden” ([[2 Nephi 26.27|2 Nephi 26:27–28]][[2 Nephi 26.28|]]).
 
 We also read that “his blood atoneth for the sins of those … who have died not knowing the will of God concerning them, or who have ignorantly sinned” ([[Mosiah 3.11|Mosiah 3:11]]). Similarly, “the blood of Christ atoneth for \[little children\]” ([[Mosiah 3.16|Mosiah 3:16]]). These teachings that the resurrecting and cleansing power of the Atonement is for all contradict the assertion that the grace of God saves only a chosen few. His grace is for all. These teachings of the Book of Mormon expand our vision and enlarge our understanding of the all-encompassing love of God and the universal effect of His Atonement for all men everywhere.
 
 ## II.
 
-The Book of Mormon teaches that our Savior “inviteth \[all the children of men\] to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God, both Jew and Gentile” ([[2 Nephi 26.33|2 Nephi 26:33]]; see also [[Alma 5.49|Alma 5:49]]).
+The Book of Mormon teaches that our Savior “inviteth \[all the children of men\] to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God, both Jew and Gentile” ([[2 Nephi 26.33|2 Nephi 26:33]]; see also [[Alma 5.49|Alma 5:49]]).
 
-“He inviteth them all.” We understand “male and female.” We also understand “black and white,” which means all races. But what about “bond and free”? *Bond*—the opposite of free—means more than slavery. It means being bound (in bondage) to anything from which it is difficult to escape. *Bond* includes those whose freedom is restricted by physical or emotional afflictions. *Bond* includes those who are addicted to some substance or practice. *Bond* surely refers to those who are imprisoned by sin—“encircled about” by what another teaching of the Book of Mormon calls “the chains of hell” ([[Alma 5.7|Alma 5:7]]). *Bond* includes those who are held down by traditions or customs contrary to the commandments of God (see [[Matthew 15.3|Matthew 15:3–6]][[Matthew 15.4|]][[Matthew 15.5|]][[Matthew 15.6|]]; [[Mark 7.7|Mark 7:7–9]][[Mark 7.8|]][[Mark 7.9|]]; [[D&C 74.4|D&C 74:4–7]][[D&C 74.5|]][[D&C 74.6|]][[D&C 74.7|]]; [[D&C 93.39|93:39]]). Finally, *bond* also includes those who are confined within the boundaries of other erroneous ideas. The Prophet Joseph Smith taught that we preach to “liberate the captives.”[^1] Our Savior “inviteth … all to come unto him and partake of his goodness; … he denieth none that come unto him … ; and all are alike unto God.”
+“He inviteth them all.” We understand “male and female.” We also understand “black and white,” which means all races. But what about “bond and free”? *Bond*—the opposite of free—means more than slavery. It means being bound (in bondage) to anything from which it is difficult to escape. *Bond* includes those whose freedom is restricted by physical or emotional afflictions. *Bond* includes those who are addicted to some substance or practice. *Bond* surely refers to those who are imprisoned by sin—“encircled about” by what another teaching of the Book of Mormon calls “the chains of hell” ([[Alma 5.7|Alma 5:7]]). *Bond* includes those who are held down by traditions or customs contrary to the commandments of God (see [[Matthew 15.3|Matthew 15:3–6]][[Matthew 15.4|]][[Matthew 15.5|]][[Matthew 15.6|]]; [[Mark 7.7|Mark 7:7–9]][[Mark 7.8|]][[Mark 7.9|]]; [[D&C 74.4|D&C 74:4–7]][[D&C 74.5|]][[D&C 74.6|]][[D&C 74.7|]]; [[D&C 93.39|93:39]]). Finally, *bond* also includes those who are confined within the boundaries of other erroneous ideas. The Prophet Joseph Smith taught that we preach to “liberate the captives.”[^1] Our Savior “inviteth … all to come unto him and partake of his goodness; … he denieth none that come unto him … ; and all are alike unto God.”
 
 ## III.
 
 The children of God in all nations have His promise that He will manifest Himself to them. The Book of Mormon tells us:
 
-“He manifesteth himself unto all those who believe in him, by the power of the Holy Ghost; yea, unto every nation, kindred, tongue, and people, working mighty miracles, signs, and wonders, among the children of men according to their faith” ([[2 Nephi 26.13|2 Nephi 26:13]]).
+“He manifesteth himself unto all those who believe in him, by the power of the Holy Ghost; yea, unto every nation, kindred, tongue, and people, working mighty miracles, signs, and wonders, among the children of men according to their faith” ([[2 Nephi 26.13|2 Nephi 26:13]]).
 
 Note that these promised manifestations of the Lord are to “*every* nation, kindred, tongue, and people.” Today we are seeing the fulfillment of that promise in every nation where our missionaries are permitted to labor, even among peoples we have not previously associated with Christianity.
 
@@ -56,7 +58,7 @@ These are only a few examples. There are thousands more.
 
 ## IV.
 
-The Book of Mormon also teaches that the great Creator died “for all men, that all men might become subject unto him” ([[2 Nephi 9.5|2 Nephi 9:5]]). Being subject to our Savior means that if our sins are to be forgiven through His Atonement, we must comply with the conditions He has prescribed, including faith, repentance, and baptism. The fulfillment of these conditions depends on our desires, our choices, and our actions. “He cometh into the world that he may save all men if they will hearken unto his voice” ([[2 Nephi 9.21|2 Nephi 9:21]]).
+The Book of Mormon also teaches that the great Creator died “for all men, that all men might become subject unto him” ([[2 Nephi 9.5|2 Nephi 9:5]]). Being subject to our Savior means that if our sins are to be forgiven through His Atonement, we must comply with the conditions He has prescribed, including faith, repentance, and baptism. The fulfillment of these conditions depends on our desires, our choices, and our actions. “He cometh into the world that he may save all men if they will hearken unto his voice” ([[2 Nephi 9.21|2 Nephi 9:21]]).
 
 The Lord provides a way for all His children, and He desires that each of us come unto Him. In the closing chapter of the Book of Mormon, Moroni pleads:
 
@@ -64,15 +66,15 @@ The Lord provides a way for all His children, and He desires that each of us com
 
 ## V.
 
-The Bible tells us how God made a covenant with Abraham and promised him that through him all “families” or “nations” of the earth would be blessed (see [[Genesis 12.3|Genesis 12:3]]; [[Genesis 22.18|22:18]]). What we call the Abrahamic covenant opens the door for God’s choicest blessings to all of His children everywhere. The Bible teaches that “if ye be Christ’s, then are ye Abraham’s seed, and heirs according to the promise” ([[Galatians 3.29|Galatians 3:29]]; see also [[Abraham 2.10|Abraham 2:10]]). The Book of Mormon promises that all who receive and act upon the Lord’s invitation to “repent and believe in his Son” become “the covenant people of the Lord” ([[2 Nephi 30.2|2 Nephi 30:2]]). This is a potent reminder that neither riches nor lineage nor any other privileges of birth should cause us to believe that we are “better one than another” ([[Alma 5.54|Alma 5:54]]; see also [[Jacob 3.9|Jacob 3:9]]). Indeed, the Book of Mormon commands, “Ye shall not esteem one flesh above another, or one man shall not think himself above another” ([[Mosiah 23.7|Mosiah 23:7]]).
+The Bible tells us how God made a covenant with Abraham and promised him that through him all “families” or “nations” of the earth would be blessed (see [[Genesis 12.3|Genesis 12:3]]; [[Genesis 22.18|22:18]]). What we call the Abrahamic covenant opens the door for God’s choicest blessings to all of His children everywhere. The Bible teaches that “if ye be Christ’s, then are ye Abraham’s seed, and heirs according to the promise” ([[Galatians 3.29|Galatians 3:29]]; see also [[Abraham 2.10|Abraham 2:10]]). The Book of Mormon promises that all who receive and act upon the Lord’s invitation to “repent and believe in his Son” become “the covenant people of the Lord” ([[2 Nephi 30.2|2 Nephi 30:2]]). This is a potent reminder that neither riches nor lineage nor any other privileges of birth should cause us to believe that we are “better one than another” ([[Alma 5.54|Alma 5:54]]; see also [[Jacob 3.9|Jacob 3:9]]). Indeed, the Book of Mormon commands, “Ye shall not esteem one flesh above another, or one man shall not think himself above another” ([[Mosiah 23.7|Mosiah 23:7]]).
 
-The Bible teaches that some of Abraham’s descendants would be scattered “into all the kingdoms of the earth,” “among all nations,” and from “one end of the earth even unto the other” ([[Deuteronomy 28.25|Deuteronomy 28:25, 37, 64]][[Deuteronomy 28.37|]][[Deuteronomy 28.64|]]). The Book of Mormon affirms this teaching, declaring that the descendants of Abraham would be “scattered upon all the face of the earth, and … among all nations” ([[1 Nephi 22.3|1 Nephi 22:3]]).
+The Bible teaches that some of Abraham’s descendants would be scattered “into all the kingdoms of the earth,” “among all nations,” and from “one end of the earth even unto the other” ([[Deuteronomy 28.25|Deuteronomy 28:25, 37, 64]][[Deuteronomy 28.37|]][[Deuteronomy 28.64|]]). The Book of Mormon affirms this teaching, declaring that the descendants of Abraham would be “scattered upon all the face of the earth, and … among all nations” ([[1 Nephi 22.3|1 Nephi 22:3]]).
 
-The Book of Mormon adds to our knowledge of how our Savior’s earthly ministry reached out to all of His scattered flock. In addition to His ministry in what we now call the Middle East, the Book of Mormon records His appearance and teachings to the Nephites on the American continent (see [[3 Nephi 11.1|3 Nephi 11–28]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]). There He repeated that the Father had commanded Him to visit the other sheep which were not of the land of Jerusalem (see [[3 Nephi 16.1|3 Nephi 16:1]]; [[John 10.16|John 10:16]]). He also said that he would visit others “who \[had\] not as yet heard \[His\] voice” (see [[3 Nephi 16.2|3 Nephi 16:2–3]][[3 Nephi 16.3|]]). As prophesied centuries earlier (see [[2 Nephi 29.12|2 Nephi 29:12]]), the Savior told His followers in the Americas that He was going “to show \[Himself\]” to these “lost tribes of Israel, for they are not lost unto the Father, for he knoweth whither he hath taken them” ([[3 Nephi 17.4|3 Nephi 17:4]]).
+The Book of Mormon adds to our knowledge of how our Savior’s earthly ministry reached out to all of His scattered flock. In addition to His ministry in what we now call the Middle East, the Book of Mormon records His appearance and teachings to the Nephites on the American continent (see [[3 Nephi 11.1|3 Nephi 11–28]]). There He repeated that the Father had commanded Him to visit the other sheep which were not of the land of Jerusalem (see [[3 Nephi 16.1|3 Nephi 16:1]]; [[John 10.16|John 10:16]]). He also said that he would visit others “who \[had\] not as yet heard \[His\] voice” (see [[3 Nephi 16.2|3 Nephi 16:2–3]][[3 Nephi 16.3|]]). As prophesied centuries earlier (see [[2 Nephi 29.12|2 Nephi 29:12]]), the Savior told His followers in the Americas that He was going “to show \[Himself\]” to these “lost tribes of Israel, for they are not lost unto the Father, for he knoweth whither he hath taken them” ([[3 Nephi 17.4|3 Nephi 17:4]]).
 
-The Book of Mormon is a great witness that the Lord loves all people everywhere. It declares that “he shall manifest himself unto all nations” ([[1 Nephi 13.42|1 Nephi 13:42]]). “Know ye not that there are more nations than one?” the Lord said through the prophet Nephi.
+The Book of Mormon is a great witness that the Lord loves all people everywhere. It declares that “he shall manifest himself unto all nations” ([[1 Nephi 13.42|1 Nephi 13:42]]). “Know ye not that there are more nations than one?” the Lord said through the prophet Nephi.
 
-“Know ye not that I, the Lord your God, have created all men, and that I remember those who are upon the isles of the sea; and that I rule in the heavens above and in the earth beneath; and I bring forth my word unto the children of men, yea, even upon all the nations of the earth?” ([[2 Nephi 29.7|2 Nephi 29:7]]).
+“Know ye not that I, the Lord your God, have created all men, and that I remember those who are upon the isles of the sea; and that I rule in the heavens above and in the earth beneath; and I bring forth my word unto the children of men, yea, even upon all the nations of the earth?” ([[2 Nephi 29.7|2 Nephi 29:7]]).
 
 Similarly, the prophet Alma taught that “the Lord doth grant unto all nations, of their own nation and tongue, to teach his word, yea, in wisdom, all that he seeth fit that they should have” ([[Alma 29.8|Alma 29:8]]).
 
@@ -80,21 +82,21 @@ Similarly, the prophet Alma taught that “the Lord doth grant unto all nations,
 
 The Lord not only manifests Himself to all nations; He also commands that they write His words:
 
-“Know ye not that the testimony of two nations is a witness unto you that I am God, that I remember one nation like unto another? Wherefore, I speak the same words unto one nation like unto another. …
+“Know ye not that the testimony of two nations is a witness unto you that I am God, that I remember one nation like unto another? Wherefore, I speak the same words unto one nation like unto another. …
 
-“For I command all men … that they shall write the words which I speak unto them. …
+“For I command all men … that they shall write the words which I speak unto them. …
 
-“For behold, I shall speak unto the Jews and they shall write it; and I shall also speak unto the Nephites and they shall write it; and I shall also speak unto the other tribes of the house of Israel, which I have led away, and they shall write it; and I shall also speak unto all nations of the earth and they shall write it” ([[2 Nephi 29.8|2 Nephi 29:8, 11–12]][[2 Nephi 29.11|]][[2 Nephi 29.12|]]; see also [[1 Nephi 13.38|1 Nephi 13:38–39]][[1 Nephi 13.39|]]).
+“For behold, I shall speak unto the Jews and they shall write it; and I shall also speak unto the Nephites and they shall write it; and I shall also speak unto the other tribes of the house of Israel, which I have led away, and they shall write it; and I shall also speak unto all nations of the earth and they shall write it” ([[2 Nephi 29.8|2 Nephi 29:8, 11–12]][[2 Nephi 29.11|]][[2 Nephi 29.12|]]; see also [[1 Nephi 13.38|1 Nephi 13:38–39]][[1 Nephi 13.39|]]).
 
-Furthermore, the Book of Mormon teaches that all of these groups will have the writings of the others (see [[2 Nephi 29.13|2 Nephi 29:13]]).
+Furthermore, the Book of Mormon teaches that all of these groups will have the writings of the others (see [[2 Nephi 29.13|2 Nephi 29:13]]).
 
 We conclude from this that the Lord will eventually cause the inspired teachings He has given to His children in various nations to be brought forth for the benefit of all people. This will include accounts of the visit of the resurrected Lord to what we call the lost tribes of Israel and His revelations to all the seed of Abraham. The finding of the Dead Sea Scrolls shows one way this can occur.
 
-When new writings come forth—and according to prophecy they will—we hope they will not be treated with the rejection some applied to the Book of Mormon because they already had a Bible (see [[2 Nephi 29.3|2 Nephi 29:3–10]][[2 Nephi 29.4|]][[2 Nephi 29.5|]][[2 Nephi 29.6|]][[2 Nephi 29.7|]][[2 Nephi 29.8|]][[2 Nephi 29.9|]][[2 Nephi 29.10|]]). As the Lord said through a prophet in that book, “And because that I have spoken one word ye need not suppose that I cannot speak another; for my work is not yet finished; neither shall it be until the end of man” ([[2 Nephi 29.9|2 Nephi 29:9]]).
+When new writings come forth—and according to prophecy they will—we hope they will not be treated with the rejection some applied to the Book of Mormon because they already had a Bible (see [[2 Nephi 29.3|2 Nephi 29:3–10]][[2 Nephi 29.4|]][[2 Nephi 29.5|]][[2 Nephi 29.6|]][[2 Nephi 29.7|]][[2 Nephi 29.8|]][[2 Nephi 29.9|]][[2 Nephi 29.10|]]). As the Lord said through a prophet in that book, “And because that I have spoken one word ye need not suppose that I cannot speak another; for my work is not yet finished; neither shall it be until the end of man” ([[2 Nephi 29.9|2 Nephi 29:9]]).
 
 Truly, the gospel is for all men everywhere—every nation, every people. All are invited.
 
-We live in the day foretold when righteousness is sent down out of heaven and truth out of the earth “to sweep the earth as with a flood,” and to gather out the elect “from the four quarters of the earth” ([[Moses 7.62|Moses 7:62]]). The Book of Mormon has come forth to remind us of the covenants of the Lord, to the convincing of all “that Jesus is the Christ, the Eternal God, manifesting himself unto all nations” (Book of Mormon [title page](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng)). I add this, my testimony of Him and His mission, in the name of Jesus Christ, amen.
+We live in the day foretold when righteousness is sent down out of heaven and truth out of the earth “to sweep the earth as with a flood,” and to gather out the elect “from the four quarters of the earth” ([[Moses 7.62|Moses 7:62]]). The Book of Mormon has come forth to remind us of the covenants of the Lord, to the convincing of all “that Jesus is the Christ, the Eternal God, manifesting himself unto all nations” (Book of Mormon [title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng)). I add this, my testimony of Him and His mission, in the name of Jesus Christ, amen.
 
 
 
@@ -105,8 +107,3 @@ We live in the day foretold when righteousness is sent down out of heaven and tr
 
 [^3]: Examples from Nigeria, Thailand, Cambodia, and Mongolia as related by mission presidents who have served in those countries.
 
-
-
-
-
-#Book_Of_Mormon #Conversion #Jesus_Christ

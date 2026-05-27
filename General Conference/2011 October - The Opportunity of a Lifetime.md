@@ -1,6 +1,8 @@
 # The Opportunity of a Lifetime
 
-By Elder W. Christopher Waddell - *Of the Seventy*
+Richard G. Scott
+
+By Elder W. Christopher Waddell - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -34,15 +36,15 @@ For protection against “the destroyer” ([[Exodus 12.23|verse 23]]), the Lord
 
 The blood used by the Israelites, symbolic of the Savior’s future Atonement, was a product of the sacrifice they had offered. Nevertheless, the sacrifice and the blood alone would not have been sufficient to obtain the promised blessing. *Without the application of the blood to the door posts, the sacrifice would have been in vain.*
 
-President Thomas S. Monson has taught: “Missionary work is difficult. It taxes one’s energies, it strains one’s capacity, it demands one’s best effort. … No other labor requires longer hours or greater devotion or such sacrifice and fervent prayer” (in Conference Report, Apr. 1995, 67; or *Ensign,* May 1995, 49).
+President Thomas S. Monson has taught: “Missionary work is difficult. It taxes one’s energies, it strains one’s capacity, it demands one’s best effort. … No other labor requires longer hours or greater devotion or such sacrifice and fervent prayer” (in Conference Report, Apr. 1995, [[1995 April - That All May Hear.md|67]]; or *Ensign,* May 1995, 49).
 
 As a result of that sacrifice, we return from our missions with our own gifts: The gift of faith. The gift of testimony. The gift of understanding the role of the Spirit. The gift of daily gospel study. The gift of having served our Savior. Gifts carefully packaged in worn scriptures, tattered copies of *Preach My Gospel,* missionary journals, and grateful hearts. However, as with the children of Israel, the ongoing blessings associated with missionary service require application after the sacrifice.
 
 A few years ago, while Sister Waddell and I presided over the Spain Barcelona Mission, I would extend one last assignment to each missionary during their final interview. As they returned home, they were asked to immediately take time to consider the lessons and gifts provided to them by a generous Father in Heaven. They were asked to prayerfully list and consider how to best apply those lessons in post-mission life—lessons that would impact every facet of their lives: education and career choice, marriage and children, future Church service, and most important, who they would continue to become and their continued development as disciples of Jesus Christ.
 
-There is no returned missionary for whom it is too late to consider the lessons obtained through faithful service and to apply them more diligently. As we do so, we will feel the influence of the Spirit more fully in our lives, our families will be strengthened, and we will draw closer to our Savior and Father in Heaven. In a previous general conference, Elder L. Tom Perry extended this invitation: “I call on you returned missionaries to rededicate yourselves, to become reinfused with the desire and spirit of missionary service. I call on you to look the part, to be the part, and to act the part of a servant of our Father in Heaven. … I want to promise you there are great blessings in store for you if you continue to press forward with the zeal you once possessed as a full-time missionary” (in Conference Report, Oct. 2001, 94; or *Ensign,* Nov. 2001, 77).
+There is no returned missionary for whom it is too late to consider the lessons obtained through faithful service and to apply them more diligently. As we do so, we will feel the influence of the Spirit more fully in our lives, our families will be strengthened, and we will draw closer to our Savior and Father in Heaven. In a previous general conference, Elder L. Tom Perry extended this invitation: “I call on you returned missionaries to rededicate yourselves, to become reinfused with the desire and spirit of missionary service. I call on you to look the part, to be the part, and to act the part of a servant of our Father in Heaven. … I want to promise you there are great blessings in store for you if you continue to press forward with the zeal you once possessed as a full-time missionary” (in Conference Report, Oct. 2001, [[2001 October - The Returned Missionary.md|94]]; or *Ensign,* Nov. 2001, 77).
 
-Now, to the young men who have yet to serve a full-time mission, I share President Monson’s counsel from last October: “I repeat what prophets have long taught—that every worthy, able young man should prepare to serve a mission. Missionary service is a priesthood duty—an obligation the Lord expects of us who have been given so very much” (in Conference Report, Oct. 2010, 3; or *Ensign,* Nov. 2010, 5–6).
+Now, to the young men who have yet to serve a full-time mission, I share President Monson’s counsel from last October: “I repeat what prophets have long taught—that every worthy, able young man should prepare to serve a mission. Missionary service is a priesthood duty—an obligation the Lord expects of us who have been given so very much” (in Conference Report, Oct. 2010, [[2010 October - As We Meet Together Again.md|3]]; or *Ensign,* Nov. 2010, 5–6).
 
 Just as with missionaries past and present, the Lord knows you and has a mission experience prepared for you. He knows your mission president and his wonderful wife, who will love you as their own children and who will seek inspiration and direction on your behalf. He knows each of your companions and what you will learn from them. He knows each area in which you will labor, the members you will meet, the people you will teach, and the lives you will impact for eternity.
 
@@ -56,12 +58,10 @@ As you prepare to serve, there is much to do. Becoming an effective servant of t
 
 **Arrive on your mission ready to work.** “Your success as a missionary \[will be\] measured primarily by your commitment to find, teach, baptize, and confirm.” You will be expected to “work effectively every day, \[doing\] your … best to bring souls to Christ” (*Preach My Gospel,* 10, 11).
 
-I repeat Elder M. Russell Ballard’s invitation, given to a previous group of young men preparing to serve: “We look to you, my young brethren of the Aaronic Priesthood. We need you. Like Helaman’s 2,000 stripling warriors, you also are the spirit sons of God, and you too can be endowed with power to build up and defend His kingdom. We need you to make sacred covenants, just as they did. We need you to be meticulously obedient and faithful, just as they were” (in Conference Report, Oct. 2002, 50; or *Ensign,* Nov. 2002, 47).
+I repeat Elder M. Russell Ballard’s invitation, given to a previous group of young men preparing to serve: “We look to you, my young brethren of the Aaronic Priesthood. We need you. Like Helaman’s 2,000 stripling warriors, you also are the spirit sons of God, and you too can be endowed with power to build up and defend His kingdom. We need you to make sacred covenants, just as they did. We need you to be meticulously obedient and faithful, just as they were” (in Conference Report, Oct. 2002, [[2002 October - The Greatest Generation of Missionaries.md|50]]; or *Ensign,* Nov. 2002, 47).
 
-As you accept this invitation, you will learn a great lesson, as did Elder Misiego and all who have faithfully served, returned, and applied. You will learn that the words of our prophet, President Thomas S. Monson, are true: “The missionary opportunity of a lifetime is yours. The blessings of eternity await you. Yours is the privilege to be not spectators but participants on the stage of priesthood service” (in Conference Report, Apr. 1995, 67; or *Ensign,* May 1995, 49). I testify that this is true in the name of Jesus Christ, amen.
-
-
+As you accept this invitation, you will learn a great lesson, as did Elder Misiego and all who have faithfully served, returned, and applied. You will learn that the words of our prophet, President Thomas S. Monson, are true: “The missionary opportunity of a lifetime is yours. The blessings of eternity await you. Yours is the privilege to be not spectators but participants on the stage of priesthood service” (in Conference Report, Apr. 1995, [[1995 April - That All May Hear.md|67]]; or *Ensign,* May 1995, 49). I testify that this is true in the name of Jesus Christ, amen.
 
 
 
-#Activation #Book_Of_Mormon #Missionary_Work #Sacrifice #Service #Youth
+

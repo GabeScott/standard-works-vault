@@ -1,6 +1,8 @@
 # Make the Exercise of Faith Your First Priority
 
-By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -48,7 +50,7 @@ While you are working to strengthen your family and cultivate peace, remember th
 
 The structure of your evening is not as important as the time invested. The gospel should be taught both formally and informally. Make it a meaningful experience for each member of the family. Family home evening is a precious time to bear testimony in a safe environment; to learn teaching, planning, and organizational skills; to strengthen family bonds; to develop family traditions; to talk to each other; and more important, to have a marvelous time together!
 
-At last April’s conference, Sister Linda S. Reeves boldly declared: “I must testify of the blessings of daily scripture study and prayer and weekly family home evening. These are the very practices that help take away stress, give direction to our lives, and add protection to our homes.”[^8] Sister Reeves is a very wise woman. I strongly urge you to earn your own testimony of these three crucial habits.
+At last April’s conference, Sister Linda S. Reeves boldly declared: “I must testify of the blessings of daily scripture study and prayer and weekly family home evening. These are the very practices that help take away stress, give direction to our lives, and add protection to our homes.”[^8] Sister Reeves is a very wise woman. I strongly urge you to earn your own testimony of these three crucial habits.
 
 ## Temple Attendance
 
@@ -69,22 +71,17 @@ I am not suggesting that all of life’s struggles will disappear as you do thes
 
 [^3]: See [[Abraham 3.25|Abraham 3:25]].
 
-[^4]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^4]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^5]: See [[D&C 18.36|Doctrine and Covenants 18:36]]; see also [[D&C 18.34|verses 34–35]][[D&C 18.35|]].
 
 [^6]: Some examples include:
 
-[^7]: See [[2 Nephi 2.13|2 Nephi 2:13]].
+[^7]: See [[2 Nephi 2.13|2 Nephi 2:13]].
 
-[^8]: Linda S. Reeves, “Protection from Pornography—a Christ-Focused Home,” *Ensign* or *Liahona,* May 2014, 16–17.
+[^8]: Linda S. Reeves, “Protection from Pornography—a Christ-Focused Home,” *Ensign* or *Liahona,* May 2014, 16–17.
 
-[^9]: President Howard W. Hunter said: “In that spirit I invite the Latter-day Saints to look to the temple of the Lord as the great symbol of your membership. It is the deepest desire of my heart to have every member of the Church worthy to enter the temple. It would please the Lord if every adult member would be worthy of—and carry—a current temple recommend. The things that we must do and not do to be worthy of a temple recommend are the very things that ensure we will be happy as individuals and as families. Let us be a temple-attending people. Attend the temple as frequently as personal circumstances allow. Keep a picture of a temple in your home that your children may see it. Teach them about the purposes of the house of the Lord. Have them plan from their earliest years to go there and to remain worthy of that blessing” (“Exceeding Great and Precious Promises,” *Ensign,* Nov. 1994, 8).
+[^9]: President Howard W. Hunter said: “In that spirit I invite the Latter-day Saints to look to the temple of the Lord as the great symbol of your membership. It is the deepest desire of my heart to have every member of the Church worthy to enter the temple. It would please the Lord if every adult member would be worthy of—and carry—a current temple recommend. The things that we must do and not do to be worthy of a temple recommend are the very things that ensure we will be happy as individuals and as families. Let us be a temple-attending people. Attend the temple as frequently as personal circumstances allow. Keep a picture of a temple in your home that your children may see it. Teach them about the purposes of the house of the Lord. Have them plan from their earliest years to go there and to remain worthy of that blessing” (“Exceeding Great and Precious Promises,” *Ensign,* Nov. 1994, 8).
 
-[^10]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^10]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
-
-
-
-
-#Family_Home_Evening #Prayer #Scripture_Study #Temple_Work

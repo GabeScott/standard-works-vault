@@ -1,5 +1,7 @@
 # Children and the Family
 
+Gordon B. Hinckley
+
 By Elder W. Eugene Hansen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -87,8 +89,3 @@ God lives; Jesus is the Christ; this is His Church, led by a living prophet, in 
 
 
 
-
-
-
-
-#Children #Example #Family #Joy #Parenthood #Prayer #Prophets

@@ -1,5 +1,7 @@
 # Three Towels and a 25-Cent Newspaper
 
+Gordon B. Hinckley
+
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2006 General Conference*
@@ -39,8 +41,3 @@ My prayer is that as Latter-day Saints we will be known as among the most honest
 
 
 
-
-
-
-
-#Honesty

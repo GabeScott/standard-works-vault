@@ -1,5 +1,7 @@
 # A “Mother Heart”
 
+Gordon B. Hinckley
+
 By Julie B. Beck - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -14,7 +16,7 @@ She took longer than most women to find her husband, but during her single years
 
 What is a mother heart and how is one acquired? We learn about some of those qualities in the scriptures. To paraphrase Proverbs: “Who can find a … woman \[with a mother heart\]? for her price is far above rubies. … She … worketh willingly with her hands. … With the fruit of her hands she planteth a vineyard. … She stretcheth out her hand to the poor. … Strength and honour are her clothing. … She openeth her mouth with wisdom; and in her tongue is the law of kindness. She looketh well to the ways of her household, and eateth not the bread of idleness” ([[Proverbs 31.10|Proverbs 31:10, 13, 16, 20, 25–27]][[Proverbs 31.13|]][[Proverbs 31.16|]][[Proverbs 31.20|]][[Proverbs 31.25|]][[Proverbs 31.26|]][[Proverbs 31.27|]]). A woman with a mother heart has a testimony of the restored gospel, and she teaches the principles of the gospel without equivocation. She is keeping sacred covenants made in holy temples. Her talents and skills are shared unselfishly. She gains as much education as her circumstances will allow, improving her mind and spirit with the desire to teach what she learns to the generations who follow her.
 
-If she has children, she is a “goodly parent” ([[1 Nephi 1.1|1 Nephi 1:1]]) who lives and teaches standards of behavior exactly in line with the teachings of the living prophets. She teaches her “children to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]). Rather than listening to the voices and partial truths of the world, she knows that gospel standards are based on eternal, unchangeable truths. She believes that to be “primarily responsible for the nurture of \[her\] children” is a vital, dignified, and “sacred responsibilit\[y\]” (“The Family: A Proclamation to the World,” *Liahona,* Oct. 1998, 24; *Ensign,* Nov. 1995, 102). To nurture and feed them physically is as much an honor as to nurture and feed them spiritually. She is “not weary in well-doing” and delights to serve her family, because she knows that “out of small things proceedeth that which is great” ([[D&C 64.33|D&C 64:33]]).
+If she has children, she is a “goodly parent” ([[1 Nephi 1.1|1 Nephi 1:1]]) who lives and teaches standards of behavior exactly in line with the teachings of the living prophets. She teaches her “children to pray, and to walk uprightly before the Lord” ([[D&C 68.28|D&C 68:28]]). Rather than listening to the voices and partial truths of the world, she knows that gospel standards are based on eternal, unchangeable truths. She believes that to be “primarily responsible for the nurture of \[her\] children” is a vital, dignified, and “sacred responsibilit\[y\]” (“The Family: A Proclamation to the World,” *Liahona,* Oct. 1998, 24; *Ensign,* Nov. 1995, 102). To nurture and feed them physically is as much an honor as to nurture and feed them spiritually. She is “not weary in well-doing” and delights to serve her family, because she knows that “out of small things proceedeth that which is great” ([[D&C 64.33|D&C 64:33]]).
 
 Oh, that every girl and woman would have a testimony of her potential for eternal motherhood as she keeps her earthly covenants. “Each is a beloved … daughter of heavenly parents, and, as such, each has a divine … destiny” (“The Family: A Proclamation to the World”). As spirit daughters of God, women “received their first lessons in the world of spirits and were prepared to come forth” on the earth ([[D&C 138.56|D&C 138:56]]). They were among the “noble and great ones” ([[D&C 138.55|D&C 138:55]]) who “shouted for joy” ([[Job 38.7|Job 38:7]]) at the creation of the earth because they would be given a physical body with the opportunity to be proven in a mortal sphere (see [[Abraham 3.25|Abraham 3:25]]). They wished to work side by side with righteous men to accomplish eternal goals that neither can attain independently.
 
@@ -31,8 +33,3 @@ Every girl and woman who makes and keeps sacred covenants can have a mother hear
 
 
 
-
-
-
-
-#Children #Covenants #Motherhood #Testimony #Women

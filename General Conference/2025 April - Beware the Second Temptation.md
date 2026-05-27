@@ -1,6 +1,8 @@
 # Beware the Second Temptation
 
-By Elder Scott D. Whiting - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Scott D. Whiting - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -20,7 +22,7 @@ Now, this is where the story turns painfully embarrassing for me. Once I secured
 
 My screams of pain were drowned out by the blaring horn, and I had no recourse other than gingerly hobbling back to the car, confessing my “sins,” and seeking rudimentary and embarrassing medical attention.
 
-The remainder of that night, I lay on my stomach in a tent while my father, using pliers, removed the cactus spines from my … well, let me just say that I did not sit comfortably for several days afterward.
+The remainder of that night, I lay on my stomach in a tent while my father, using pliers, removed the cactus spines from my … well, let me just say that I did not sit comfortably for several days afterward.
 
 I have reflected on that experience many times. I can now laugh at the folly of my youth, even as some underlying principles have become clear to me.
 
@@ -54,9 +56,9 @@ The psalmist David most poetically exclaims:
 
 “O Lord, thou hast searched me, and known me.
 
-“Thou knowest my downsitting and mine uprising, thou understandest my thought afar off. …
+“Thou knowest my downsitting and mine uprising, thou understandest my thought afar off. …
 
-“For there is not a word in my tongue, but, lo, O Lord, thou knowest it altogether. …
+“For there is not a word in my tongue, but, lo, O Lord, thou knowest it altogether. …
 
 “Whither shall I go from thy spirit? or whither shall I flee from thy presence?
 
@@ -72,7 +74,7 @@ If these thoughts seem to ring true to you who are newly planted on the covenant
 
 A dear friend of mine, a recent convert, shared how difficult it is to sustain faith in isolation. There is great strength in becoming and remaining part of a supportive community—all stumbling yet progressing while blessed by the love of Jesus Christ.
 
-President Russell M. Nelson has taught that “overcoming the world is not an event that happens in a day or two. It happens over a lifetime as we repeatedly embrace the doctrine of Christ. We cultivate faith in Jesus Christ by repenting daily and keeping covenants that endow us with power. We stay on the covenant path and are blessed with spiritual strength, personal revelation, increasing faith, and the ministering of angels.”[^7]
+President Russell M. Nelson has taught that “overcoming the world is not an event that happens in a day or two. It happens over a lifetime as we repeatedly embrace the doctrine of Christ. We cultivate faith in Jesus Christ by repenting daily and keeping covenants that endow us with power. We stay on the covenant path and are blessed with spiritual strength, personal revelation, increasing faith, and the ministering of angels.”[^7]
 
 If you incur a physical injury, your condition will deteriorate and may become life-threatening if you don’t seek proper medical attention. That is true for spiritual wounds as well. Only, untreated spiritual wounds may threaten your eternal salvation. Don’t hide from those who will love and support you; rather, run to them. Good bishops, branch presidents, and leaders can help you access the healing power of the Atonement of Jesus Christ.
 
@@ -99,11 +101,9 @@ Instead, avail yourself of the miraculous healing power of the Atonement of Jesu
 
 [^6]: See [[Revelation 12.10|Revelation 12:10]].
 
-[^7]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
+[^7]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
 
 [^8]: [[Mosiah 2.11|Mosiah 2:11]].
 
+[^9]: See [[2 Peter 1.2|2 Peter 1:2–4]][[2 Peter 1.3|]][[2 Peter 1.4|]].
 
-
-
-#Adam_And_Eve #Atonement #Repentance #Sin #Temptation

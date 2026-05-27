@@ -1,6 +1,8 @@
 # Latter-day Saints Keep on Trying
 
-By Elder Dale G. Renlund - *Of the Seventy*
+Cheryl A. Esplin
+
+By Elder Dale G. Renlund - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -20,17 +22,17 @@ The older brother answers, “’Twas I; but ’tis not I: I do not shame to tel
 
 For us, because of God’s mercy and the Atonement of Jesus Christ, such a change is not just literary fiction. Through Ezekiel, the Lord declared:
 
-“As for the wickedness of the wicked, he shall not fall thereby in the day that he turneth from his wickedness. …
+“As for the wickedness of the wicked, he shall not fall thereby in the day that he turneth from his wickedness. …
 
-“… If he turn from his sin, and do that which is lawful and right;
+“… If he turn from his sin, and do that which is lawful and right;
 
-“… Restore the pledge, give again that he had robbed, walk in the statutes of life, without committing iniquity; he shall surely live. …
+“… Restore the pledge, give again that he had robbed, walk in the statutes of life, without committing iniquity; he shall surely live. …
 
 “None of his sins that he hath committed shall be mentioned unto him: he hath done that which is lawful and right.”[^6]
 
 In His mercy, God promises forgiveness when we repent and turn from wickedness—so much so that our sins will not even be mentioned to us. For us, because of the Atonement of Christ and our repentance, we can look at our past deeds and say, “’Twas I; but ’tis not I.” No matter how wicked, we can say, “That’s who I was. But that past wicked self is no longer who I am.”[^7]
 
-President Thomas S. Monson has taught, “One of God’s greatest gifts to us is the joy of trying again, for no failure ever need be final.”[^8] Even if we’ve been a conscious, deliberate sinner or have repeatedly faced failure and disappointment, the moment we decide to try again, the Atonement of Christ can help us. And we need to remember that it is not the Holy Ghost that tells us we’re so far gone that we might as well give up.
+President Thomas S. Monson has taught, “One of God’s greatest gifts to us is the joy of trying again, for no failure ever need be final.”[^8] Even if we’ve been a conscious, deliberate sinner or have repeatedly faced failure and disappointment, the moment we decide to try again, the Atonement of Christ can help us. And we need to remember that it is not the Holy Ghost that tells us we’re so far gone that we might as well give up.
 
 God’s desire that Latter-day Saints keep on trying also extends beyond overcoming sin. Whether we suffer because of troubled relationships, economic challenges, or illnesses or as a consequence of someone else’s sins, the Savior’s infinite Atonement can heal even—and perhaps especially—those who have innocently suffered. He understands perfectly what it is like to suffer innocently as a consequence of another’s transgression. As prophesied, the Savior will “bind up the brokenhearted, … give … beauty for ashes, the oil of joy for mourning, \[and\] the garment of praise for the spirit of heaviness.”[^9] No matter what, with His help, God expects Latter-day Saints to keep on trying.
 
@@ -49,11 +51,11 @@ I am deeply grateful for the Savior, for His infinite Atonement, and for latter-
 
 
 
-[^1]: See Nelson Rolihlahla Mandela, *Long Walk to Freedom* (1994); “Biography of Nelson Mandela,” nelsonmandela.org/content/page/biography; and President Barack Obama’s Dec. 10, 2013, eulogy for Nelson Mandela, at whitehouse.gov/the-press-office/2013/12/10/remarks-president-obama-memorial-service-former-south-african-president-. The diversity of the awards is indicated by Mandela receiving the Nobel Peace Prize, the United States Presidential Medal of Freedom, and the Soviet Order of Lenin.
+[^1]: See Nelson Rolihlahla Mandela, *Long Walk to Freedom* (1994); “Biography of Nelson Mandela,” nelsonmandela.org/content/page/biography; and President Barack Obama’s Dec. 10, 2013, eulogy for Nelson Mandela, at whitehouse.gov/the-press-office/2013/12/10/remarks-president-obama-memorial-service-former-south-african-president-. The diversity of the awards is indicated by Mandela receiving the Nobel Peace Prize, the United States Presidential Medal of Freedom, and the Soviet Order of Lenin.
 
 [^2]: See, for instance, Nelson Mandela’s address at Rice University’s Baker Institute on October 26, 1999, bakerinstitute.org/events/1221. He was likely paraphrasing the well-known statement attributed to Robert Louis Stevenson: “The saints are the sinners who keep on trying.” Over the years many have expressed similar sentiments. For instance, Confucius is credited with saying, “Our greatest glory lies not in never falling but in getting up every time we fall.”
 
-[^3]: See, for instance, [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.23|3 Nephi 11:23–31]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]]; [[3 Nephi 27.13|27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[Moroni 6.6|Moroni 6:6]]; [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]; [[D&C 59.8|59:8–9]][[D&C 59.9|]]; *Handbook 2: Administering the Church* (2010), 2.1.2.
+[^3]: See, for instance, [[2 Nephi 31.2|2 Nephi 31:2–21]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.23|3 Nephi 11:23–31]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]]; [[3 Nephi 27.13|27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[Moroni 6.6|Moroni 6:6]]; [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]; [[D&C 59.8|59:8–9]][[D&C 59.9|]]; *Handbook 2: Administering the Church* (2010), 2.1.2.
 
 [^4]: Saying that God cares a lot more about who we are and who we are becoming than about who we once were does not mean that the Savior is dismissive of the consequences of an individual’s sin on others. In fact, the Savior cares infinitely about those who suffer hurt, pain, and heartache because of another’s transgressions. The Savior “will take upon him \[His people’s\] infirmities, that his bowels may be filled with mercy, … that he may know according to the flesh how to succor his people according to their infirmities” ([[Alma 7.12|Alma 7:12]]).
 
@@ -61,9 +63,9 @@ I am deeply grateful for the Savior, for His infinite Atonement, and for latter-
 
 [^6]: [[Ezekiel 33.12|Ezekiel 33:12, 14–16]][[Ezekiel 33.14|]][[Ezekiel 33.15|]][[Ezekiel 33.16|]].
 
-[^7]: The use of present tense in verbs is notable in many scriptures related to Final Judgment. See, for instance, [[2 Nephi 9.16|2 Nephi 9:16]]; [[Mormon 9.14|Mormon 9:14]]; [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]].
+[^7]: The use of present tense in verbs is notable in many scriptures related to Final Judgment. See, for instance, [[2 Nephi 9.16|2 Nephi 9:16]]; [[Mormon 9.14|Mormon 9:14]]; [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]].
 
-[^8]: Thomas S. Monson, “The Will Within,” *Ensign,* May 1987, 68.
+[^8]: Thomas S. Monson, “The Will Within,” *Ensign,* May 1987, 68.
 
 [^9]: [[Isaiah 61.1|Isaiah 61:1–3]][[Isaiah 61.2|]][[Isaiah 61.3|]]; see also [[Luke 4.16|Luke 4:16–21]][[Luke 4.17|]][[Luke 4.18|]][[Luke 4.19|]][[Luke 4.20|]][[Luke 4.21|]].
 
@@ -71,10 +73,5 @@ I am deeply grateful for the Savior, for His infinite Atonement, and for latter-
 
 [^11]: See note 4, above.
 
-[^12]: The number of times this message appears in the sermons of the First Presidency and Quorum of the Twelve Apostles is striking. President Dieter F. Uchtdorf made this point as he said, “Of all the principles taught by prophets over the centuries, one that has been emphasized over and over again is the hopeful and heartwarming message that mankind can repent, change course, and get back on the true path of discipleship” (“You Can Do It Now!” *Ensign* or *Liahona,* Nov. 2013, 56).
+[^12]: The number of times this message appears in the sermons of the First Presidency and Quorum of the Twelve Apostles is striking. President Dieter F. Uchtdorf made this point as he said, “Of all the principles taught by prophets over the centuries, one that has been emphasized over and over again is the hopeful and heartwarming message that mankind can repent, change course, and get back on the true path of discipleship” (“You Can Do It Now!” *Ensign* or *Liahona,* Nov. 2013, 56).
 
-
-
-
-
-#Atonement #Conversion #Repentance

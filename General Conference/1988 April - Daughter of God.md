@@ -1,5 +1,7 @@
 # Daughter of God
 
+Ezra Taft Benson
+
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1988 General Conference*
@@ -36,9 +38,9 @@ Truly, “marriage is ordained of God” ([[D&C 49.15|D&C 49:15]]). “Marriage 
 
 ## Abraham’s Commitment
 
-When the Lord told Abraham to offer his only son, Isaac, on Mount Moriah, Abraham took Isaac, two servants, and a donkey and built an altar (see [[Genesis 22.2|Gen. 22:2–3]][[Genesis 22.3|]]). On the way, Isaac asked, “Where is the lamb for a burnt offering?” Though Father Abraham knew that Isaac was the one, he said, “My son, God will provide” ([[Genesis 22.7|vs. 7–8]][[Genesis 22.8|]]).
+When the Lord told Abraham to offer his only son, Isaac, on Mount Moriah, Abraham took Isaac, two servants, and a donkey and built an altar (see [[Genesis 22.2|Gen. 22:2–3]][[Genesis 22.3|]]). On the way, Isaac asked, “Where is the lamb for a burnt offering?” Though Father Abraham knew that Isaac was the one, he said, “My son, God will provide” ([[Genesis 22.7|vs. 7–8]][[Genesis 22.8|]]).
 
-When the time came, Abraham was willing to offer Isaac, and Isaac did not run away (see [[Genesis 22.9|vs. 9–11]][[Genesis 22.10|]][[Genesis 22.11|]]). Brothers and sisters, in our marriages, we need both the commitment of Abraham and also the spirit of Isaac.
+When the time came, Abraham was willing to offer Isaac, and Isaac did not run away (see [[Genesis 22.9|vs. 9–11]][[Genesis 22.10|]][[Genesis 22.11|]]). Brothers and sisters, in our marriages, we need both the commitment of Abraham and also the spirit of Isaac.
 
 ## Behold Thy Mother
 
@@ -56,7 +58,7 @@ In 1850, Brigham Young sent ten missionaries to the Hawaiian Islands. Without un
 
 As he approached this town, two ladies went screaming into a nearby house and brought out a local gentleman. The previous night, this man had had a dream that a messenger of God was coming to his town and that he must feed him. Elder Cannon was invited to stay and preach in the home of this man, Jonathon H. Napela, who was a very well-educated man and the magistrate of that district (see [[Alma 10.4|Alma 10:4]]).
 
-Subsequently, Elder Cannon and Jonathon Napela became very close friends, like Alma and Amulek in the Book of Mormon (see [[Alma 10.1|Alma 10–15]][[Alma 10.2|]][[Alma 10.3|]][[Alma 10.4|]][[Alma 10.5|]][[Alma 10.6|]][[Alma 10.7|]][[Alma 10.8|]][[Alma 10.9|]][[Alma 10.10|]][[Alma 10.11|]][[Alma 10.12|]][[Alma 10.13|]][[Alma 10.14|]][[Alma 10.15|]][[Alma 10.16|]][[Alma 10.17|]][[Alma 10.18|]][[Alma 10.19|]][[Alma 10.20|]][[Alma 10.21|]][[Alma 10.22|]][[Alma 10.23|]][[Alma 10.24|]][[Alma 10.25|]][[Alma 10.26|]][[Alma 10.27|]][[Alma 10.28|]][[Alma 10.29|]][[Alma 10.30|]][[Alma 10.31|]][[Alma 10.32|]]). Because of the guiding hand of God and Brother Napela’s great help, along with the hospitality and kindness of the Hawaiian Saints, the missionary work began to excel in Hawaii, and the foundation was laid.
+Subsequently, Elder Cannon and Jonathon Napela became very close friends, like Alma and Amulek in the Book of Mormon (see [[Alma 10.1|Alma 10–15]]). Because of the guiding hand of God and Brother Napela’s great help, along with the hospitality and kindness of the Hawaiian Saints, the missionary work began to excel in Hawaii, and the foundation was laid.
 
 ## His Great and Deep Love
 
@@ -66,7 +68,7 @@ Because his wife had to go to Kalaupapa, the leper colony, Jonathon, too, wanted
 
 Oh, how much do I love my wife? Oh, do I love her as a daughter of God, as Jonathon loved his wife? Would I be willing to go to a place like that to be with her? Would you be willing to demonstrate your pure love like Jonathon? Brethren, are we honoring our companions? Are we caring? Are we thoughtful? We must be, because God has joined us together (see [[Mark 10.9|Mark 10:9]]).
 
-History records that this valiant and giant man of God worked in the leper colony and fought to obtain government assistance for the lepers to have a more comfortable place to live. He was a giant in the pure love of Christ for his own people. Oh, I can almost hear the words of Paul to the Corinthians when he said, “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal” ([[1 Corinthians 13.1|1 Cor. 13:1]]).
+History records that this valiant and giant man of God worked in the leper colony and fought to obtain government assistance for the lepers to have a more comfortable place to live. He was a giant in the pure love of Christ for his own people. Oh, I can almost hear the words of Paul to the Corinthians when he said, “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal” ([[1 Corinthians 13.1|1 Cor. 13:1]]).
 
 This good brother later contracted that same disease and died even before his wife passed away. She followed him two years later. Husbands, do you love your wife as a daughter of God? Oh, “husbands, love your wives” as daughters of God, “even as Christ also loved the church and gave himself for it” ([[Ephesians 5.25|Eph. 5:25]]).
 
@@ -75,8 +77,3 @@ I know that God lives! This is his church. I know that the Savior lives! I know 
 
 
 
-
-
-
-
-#Love #Marriage #Women

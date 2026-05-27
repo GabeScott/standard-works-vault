@@ -1,6 +1,5 @@
 # Flesh
 
-
 *See also* [[Body.md|Body]]; [[Flesh and Blood.md|Flesh and Blood]]; [[Trust Not in the Arm of Flesh.md|Trust Not in the Arm of Flesh]]
 
 bone of my bones, and *flesh* of my *flesh*, [[Genesis 2.23|Genesis 2:23]] ([[Moses 3.23|Moses 3:23]]; [[Abraham 5.17|Abraham 5:17]]).
@@ -13,7 +12,7 @@ life of all *flesh* is the blood, [[Leviticus 17.14|Leviticus 17:14]].
 
 not make any cuttings in your *flesh* for the dead, [[Leviticus 19.28|Leviticus 19:28]] ([[Leviticus 21.5|Leviticus 21:5]]).
 
-eat the *flesh* of your sons ... of your daughters, [[Leviticus 26.29|Leviticus 26:29]] ([[Deuteronomy 28.53|Deuteronomy 28:53]]; [[Jeremiah 19.9|Jeremiah 19:9]]).
+eat the *flesh* of your sons … of your daughters, [[Leviticus 26.29|Leviticus 26:29]] ([[Deuteronomy 28.53|Deuteronomy 28:53]]; [[Jeremiah 19.9|Jeremiah 19:9]]).
 
 God of the spirits of all *flesh*, [[Numbers 16.22|Numbers 16:22]].
 
@@ -31,7 +30,7 @@ eat every man the *flesh* of his own arm, [[Isaiah 9.20|Isaiah 9:20]].
 
 All *flesh* is grass, [[Isaiah 40.6|Isaiah 40:6]] ([[1 Peter 1.24|1 Peter 1:24]]).
 
-Cursed be the man that ... maketh *flesh* his arm, [[Jeremiah 17.5|Jeremiah 17:5]].
+Cursed be the man that … maketh *flesh* his arm, [[Jeremiah 17.5|Jeremiah 17:5]].
 
 will give them an heart of *flesh*, [[Ezekiel 11.19|Ezekiel 11:19]] ([[Ezekiel 36.26|Ezekiel 36:26]]).
 
@@ -83,9 +82,9 @@ use not liberty for an occasion to the *flesh*, [[Galatians 5.13|Galatians 5:13]
 
 *flesh* lusteth against the Spirit, [[Galatians 5.17|Galatians 5:17]].
 
-works of the *flesh* are manifest ... Adultery, fornication, [[Galatians 5.19|Galatians 5:19]].
+works of the *flesh* are manifest … Adultery, fornication, [[Galatians 5.19|Galatians 5:19]].
 
-they that are Christ's have crucified the *flesh*, [[Galatians 5.24|Galatians 5:24]].
+they that are Christ’s have crucified the *flesh*, [[Galatians 5.24|Galatians 5:24]].
 
 he that soweth to his *flesh* shall of the *flesh* reap corruption, [[Galatians 6.8|Galatians 6:8]].
 
@@ -139,13 +138,13 @@ came in the meridian of time, in the *flesh*, [[D&C 20.26|D&C 20:26]].
 
 all *flesh* is corrupted before me, [[D&C 38.11|D&C 38:11]].
 
-wo be unto man that ... wasteth *flesh*, [[D&C 49.21|D&C 49:21]].
+wo be unto man that … wasteth *flesh*, [[D&C 49.21|D&C 49:21]].
 
-*flesh* also of beasts and of the fowls ... for the use of man, [[D&C 89.12|D&C 89:12]].
+*flesh* also of beasts and of the fowls … for the use of man, [[D&C 89.12|D&C 89:12]].
 
 made *flesh* my tabernacle, [[D&C 93.4|D&C 93:4]].
 
-dwelt in the *flesh* ... among us, [[D&C 93.11|D&C 93:11]].
+dwelt in the *flesh* … among us, [[D&C 93.11|D&C 93:11]].
 
 in the *flesh* I shall see God, [[Moses 5.10|Moses 5:10]].
 

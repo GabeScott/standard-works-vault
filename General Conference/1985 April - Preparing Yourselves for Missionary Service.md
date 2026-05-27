@@ -1,5 +1,7 @@
 # Preparing Yourselves for Missionary Service
 
+Gordon B. Hinckley
+
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -73,8 +75,3 @@ God bless you to prepare yourselves for future service in His Church, in the nam
 
 
 
-
-
-
-
-#Missionary_Work

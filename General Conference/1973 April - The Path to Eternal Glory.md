@@ -1,6 +1,8 @@
 # The Path to Eternal Glory
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+Harold B. Lee
+
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -24,7 +26,7 @@ The weakness and foolishness of many today cause them to be more interested in t
 
 God’s ways are not man’s ways, but are infinitely superior thereto. The Lord proclaimed to the prophet Isaiah:
 
-“For my thoughts are not your thoughts, neither are your ways my ways, …
+“For my thoughts are not your thoughts, neither are your ways my ways, …
 
 “For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts.” ([[Isaiah 55.8|Isa. 55:8–9]][[Isaiah 55.9|]].)
 
@@ -48,7 +50,7 @@ In this mortal life we not only have the opportunity, but the moral obligation, 
 
 It is unfortunate that so many have to learn the lessons of life the hard way, but what a great blessing it is to have an Eternal Father who cares enough to teach us, to bring us to repentance, and to forgive. Hear the words of encouragement as given to the prophet Ezekiel: “Have I any pleasure at all that the wicked should die? saith the Lord God: and not that he should return from his ways, and live?” ([[Ezekiel 18.23|Ezek. 18:23]].)
 
-The Lord expressed to Moses great concern for the welfare of his children when he said: “… behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
+The Lord expressed to Moses great concern for the welfare of his children when he said: “… behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
 Immortality is assured to all of us through the atonement of our Lord and Savior, Jesus Christ. But eternal life is a personal responsibility we must earn and be worthy of.
 
@@ -62,21 +64,21 @@ David the Psalmist emphasized the importance of man in this inspired statement:
 
 Man’s recent scientific and technological accomplishments, his desire and courage to explore the universe, and his attainment in so many fields of learning testify he is a child of God and, therefore, should always look to God for guidance and further light and truth.
 
-God has revealed that he desires all of his people to grow together in the unity of faith, understanding, and devotion. The apostle Paul so encouraged the Corinthian saints: “Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.” ([[1 Corinthians 1.10|1 Cor. 1:10]].)
+God has revealed that he desires all of his people to grow together in the unity of faith, understanding, and devotion. The apostle Paul so encouraged the Corinthian saints: “Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.” ([[1 Corinthians 1.10|1 Cor. 1:10]].)
 
 We are here to help each other progress, to inspire one another unto love and good works, and not just to sit in judgment. Our responsibility is to give encouragement to those who are inactive and erring. We have a duty to “see that there is no iniquity in the Church, neither hardness with each other, neither lying, backbiting, nor evil speaking.” ([[D&C 20.54|D&C 20:54]].)
 
 This teaching was emphasized by the apostle Peter when he gave this advice:
 
-“… be ye all of one mind, having compassion one of another, love as brethren, be pitiful, be courteous:
+“… be ye all of one mind, having compassion one of another, love as brethren, be pitiful, be courteous:
 
-“Not rendering evil for evil, or railing for railing: but contrariwise blessing; knowing that ye are thereunto called, that ye should inherit a blessing.” ([[1 Peter 3.8|1 Pet. 3:8–9]][[1 Peter 3.9|]].)
+“Not rendering evil for evil, or railing for railing: but contrariwise blessing; knowing that ye are thereunto called, that ye should inherit a blessing.” ([[1 Peter 3.8|1 Pet. 3:8–9]][[1 Peter 3.9|]].)
 
-The real strength of the Church is in the character and dedication of its members. The apostle Paul instructed the Corinthians: “Even so hath the Lord ordained that they which preach the gospel should live of the gospel.” ([[1 Corinthians 9.14|1 Cor. 9:14]].) This counsel can be applied to every member of The Church of Jesus Christ of Latter-day Saints—that by living the gospel and setting a good example we are automatically preaching its tenets and showing the right way for others to follow. The greatest gift we can give another is the gift of a good example.
+The real strength of the Church is in the character and dedication of its members. The apostle Paul instructed the Corinthians: “Even so hath the Lord ordained that they which preach the gospel should live of the gospel.” ([[1 Corinthians 9.14|1 Cor. 9:14]].) This counsel can be applied to every member of The Church of Jesus Christ of Latter-day Saints—that by living the gospel and setting a good example we are automatically preaching its tenets and showing the right way for others to follow. The greatest gift we can give another is the gift of a good example.
 
-President Spencer W. Kimball said: “Our challenge today is to be a light unto the world. … if the three million members of the Church would live the gospel principles, all the errors of the world would evaporate. The world would come to us, and we would change the frustration of the world to the peace of the gospel.” (*Church News,* February 26, 1972, p. 13.)
+President Spencer W. Kimball said: “Our challenge today is to be a light unto the world. … if the three million members of the Church would live the gospel principles, all the errors of the world would evaporate. The world would come to us, and we would change the frustration of the world to the peace of the gospel.” (*Church News,* February 26, 1972, p. 13.)
 
-I plead with all members of the Church to actively and honestly live the gospel of Christ. Our eternal happiness and joy depends upon the kind of life we chart and live here in mortality. The apostle Paul taught: “Ye cannot drink the cup of the Lord, and the cup of devils: ye cannot be partakers of the Lord’s table, and of the table of devils.” ([[1 Corinthians 10.21|1 Cor. 10:21]].) In other words, we cannot serve two masters, for either we will hate the one and love the other, or else we will hold to the one and despise the other. We cannot serve both God and mammon. (See [[Matthew 6.24|Matt. 6:24]].)
+I plead with all members of the Church to actively and honestly live the gospel of Christ. Our eternal happiness and joy depends upon the kind of life we chart and live here in mortality. The apostle Paul taught: “Ye cannot drink the cup of the Lord, and the cup of devils: ye cannot be partakers of the Lord’s table, and of the table of devils.” ([[1 Corinthians 10.21|1 Cor. 10:21]].) In other words, we cannot serve two masters, for either we will hate the one and love the other, or else we will hold to the one and despise the other. We cannot serve both God and mammon. (See [[Matthew 6.24|Matt. 6:24]].)
 
 Anyone who thinks he can obtain eternal goals some other way than outlined in the gospel of Christ should remember the Savior classified such as a thief and robber. (See [[John 10.1|John 10:1]].) Christ gave this parable to his disciples:
 
@@ -101,8 +103,3 @@ May God bless and guide us aright; may we be blessed with the spiritual strength
 
 
 
-
-
-
-
-#Obedience #Spirituality

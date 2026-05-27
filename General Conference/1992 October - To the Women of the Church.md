@@ -1,5 +1,7 @@
 # To the Women of the Church
 
+Gordon B. Hinckley
+
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -32,7 +34,7 @@ Is there any reason to think that he cares any less about women today? Before hi
 
 As special witnesses of our Savior, we have been given the awesome assignment to administer the affairs of his church and kingdom and to minister to his daughters and his sons wherever they are on the face of the earth. By reason of our call to testify, govern, and minister, it is required of us that despite age, infirmity, exhaustion, and feelings of inadequacy, we do the work he has given us to do, to the last breath of our lives.
 
-As our Lord and Savior needed the women of his time for a comforting hand, a listening ear, a believing heart, a kind look, an encouraging word, loyalty—even in his hour of humiliation, agony, and death—so we, his servants all across the Church, need you, the women of the Church, to stand with us and for us in stemming the tide of evil that threatens to engulf us. Together we must stand faithful and firm in the faith against superior numbers of other-minded people. It seems to me that there is a great need to rally the women of the Church to stand with and for the Brethren in stemming the tide of evil that surrounds us and in moving forward the work of our Savior. Nephi said, “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men, \[women, and children\].” ([[2 Nephi 31.20|2 Ne. 31:20]].) Obedient to him we are a majority. But only together can we accomplish the work he has given us to do and be prepared for the day when we shall see him.
+As our Lord and Savior needed the women of his time for a comforting hand, a listening ear, a believing heart, a kind look, an encouraging word, loyalty—even in his hour of humiliation, agony, and death—so we, his servants all across the Church, need you, the women of the Church, to stand with us and for us in stemming the tide of evil that threatens to engulf us. Together we must stand faithful and firm in the faith against superior numbers of other-minded people. It seems to me that there is a great need to rally the women of the Church to stand with and for the Brethren in stemming the tide of evil that surrounds us and in moving forward the work of our Savior. Nephi said, “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men, \[women, and children\].” ([[2 Nephi 31.20|2 Ne. 31:20]].) Obedient to him we are a majority. But only together can we accomplish the work he has given us to do and be prepared for the day when we shall see him.
 
 As we labor with our might to minister to needs in the same caring way that our Lord met those of the women of his day, so we entreat you to minister with your powerful influence for good in strengthening our families, our church, and our communities.
 
@@ -42,7 +44,7 @@ Those who follow Christ seek to follow his example. His suffering on behalf of o
 
 Sisters, continue to seek opportunities for service. Don’t be overly concerned with status. Do you recall the counsel of the Savior regarding those who seek the “chief seats” or the “uppermost rooms”? “He that is greatest among you shall be your servant.” ([[Matthew 23.6|Matt. 23:6, 11]][[Matthew 23.11|]].) It is important to be appreciated. But our focus should be on righteousness, not recognition; on service, not status. The faithful visiting teacher, who quietly goes about her work month after month, is just as important to the work of the Lord as those who occupy what some see as more prominent positions in the Church. Visibility does not equate to value.
 
-In a previous general meeting of the women of the Church, President Spencer W. Kimball counseled: “Bear in mind, dear sisters, that the eternal blessings which are yours through membership in The Church of Jesus Christ of Latter-day Saints are far, far greater than any other blessings you could possibly receive. No greater recognition can come to you in this world than to be known as a woman of God. No greater status can be conferred upon you than being a daughter of God who experiences true sisterhood, wifehood, and motherhood, or other tasks which influence lives for good.” (*Ensign,* Nov. 1972, p. 102.)
+In a previous general meeting of the women of the Church, President Spencer W. Kimball counseled: “Bear in mind, dear sisters, that the eternal blessings which are yours through membership in The Church of Jesus Christ of Latter-day Saints are far, far greater than any other blessings you could possibly receive. No greater recognition can come to you in this world than to be known as a woman of God. No greater status can be conferred upon you than being a daughter of God who experiences true sisterhood, wifehood, and motherhood, or other tasks which influence lives for good.” (*Ensign,* Nov. 1972, p. 102.)
 
 You are chosen to be faithful women of God in our day, to stand above pettiness, gossip, selfishness, lewdness, and all other forms of ungodliness.
 
@@ -57,7 +59,7 @@ In conclusion, these verses from an unknown poet have significant meaning:
 >There’s not a blessing nor a woe,
 >There’s not a whispered yes or no,
 >There’s not a life, or death, or birth,
->That has a feather’s weight of worth …
+>That has a feather’s weight of worth …
 >Without a woman in it.
 >
 
@@ -68,8 +70,3 @@ May the Lord bless you as you continue to serve him by serving others and as you
 
 
 
-
-
-
-
-#Jesus_Christ #Service #Women

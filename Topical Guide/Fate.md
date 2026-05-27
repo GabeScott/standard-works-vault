@@ -1,4 +1,3 @@
 # Fate
 
-
-*See* [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]
+*See also* [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]

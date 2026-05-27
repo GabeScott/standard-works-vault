@@ -1,5 +1,7 @@
 # To Please Our Heavenly Father
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1985 General Conference*
@@ -65,8 +67,3 @@ I want to suggest them to every boy and man within the sound of my voice—“I 
 
 
 
-
-
-
-
-#Love

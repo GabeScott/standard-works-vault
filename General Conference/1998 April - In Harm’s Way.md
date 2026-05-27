@@ -1,5 +1,7 @@
 # In Harm’s Way
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -85,7 +87,7 @@ For this blessing I fervently pray, in the name of Jesus Christ, amen.
 
 [^7]: [[Acts 10.38|Acts 10:38]].
 
-[^8]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^8]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^9]: [[Alma 37.47|Alma 37:47]].
 
@@ -93,8 +95,3 @@ For this blessing I fervently pray, in the name of Jesus Christ, amen.
 
 [^11]: [[Matthew 25.21|Matt. 25:21]].
 
-
-
-
-
-#Commandments #Example #Friendship #Leadership #Missionary_Work #Obedience #Prayer #Priesthood #Service #Temples #Youth

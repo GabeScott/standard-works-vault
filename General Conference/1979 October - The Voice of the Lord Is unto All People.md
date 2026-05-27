@@ -1,6 +1,8 @@
 # The Voice of the Lord Is unto All People
 
-By Elder W. Grant Bangerter - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder W. Grant Bangerter - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -14,7 +16,7 @@ One of the principal purposes of this general conference of the Church is to ann
 
 The interesting thing about prophets is that most people don’t listen to them. That is why prophets often seem to be impatient or even angry. That is how the Lord feels about us when we don’t listen. That is how you feel when your children won’t listen.
 
-We know some of you say that you do not believe in God. Some of you have even been so unwise as to say there is no God. That kind of statement raises some interesting questions. Do you think your unbelief makes any difference? He won’t go away just because you don’t believe in him. Reportedly, when Galileo was forced to say, contrary to his knowledge, that the earth did not turn, he then added, “And yet it turns” (see *Cassell’s Book of Quotations, Proverbs, and Household Words,* ed. W. Gurney Benham, London: Cassell and Co., 1914, p. 737). Perhaps you are correct in saying that God is not like you have been told, but how can you know that there is no God? Did he reveal it to you? Have you been there to make sure? All you can really know is that you don’t know there is a God, and that is an admission of ignorance.
+We know some of you say that you do not believe in God. Some of you have even been so unwise as to say there is no God. That kind of statement raises some interesting questions. Do you think your unbelief makes any difference? He won’t go away just because you don’t believe in him. Reportedly, when Galileo was forced to say, contrary to his knowledge, that the earth did not turn, he then added, “And yet it turns” (see *Cassell’s Book of Quotations, Proverbs, and Household Words,* ed. W. Gurney Benham, London: Cassell and Co., 1914, p. 737). Perhaps you are correct in saying that God is not like you have been told, but how can you know that there is no God? Did he reveal it to you? Have you been there to make sure? All you can really know is that you don’t know there is a God, and that is an admission of ignorance.
 
 Two Russians went around the world in a spacecraft a time or two and declared that they had gone to heaven and God was not there. This is a pretty weak argument for atheism. It isn’t even scientific. It reminds me of the blasphemous remark of a scoffing acquaintance of my brother who said, “I dreamed I saw God and he was a horse.” My brother’s comment was, “Certainly. That is perfectly logical to a jackass.”
 
@@ -36,13 +38,8 @@ President Kimball spoke four years ago at the closing session of a general confe
 
 We can ask some special questions of leaders of the Church. It would be a disgrace to criticize you, knowing of your devotion and sacrifice, but let me ask you, Are you really listening to what the prophet says? We know that some of you do more than others. It is five years now since he said that every boy should go on a mission (see *Ensign,* May 1974, p. 87). Why are half of them still at home? Quorum presidents and home teachers, Why are there still so many diseased and sick in spirit? Why have you not “bound up that which was broken, neither … brought again that which was driven away, neither … sought that which was lost” ([[Ezekiel 34.4|Ezek. 34:4]])? The Lord has called you through his prophet. Listen to what he says. How you listen to the prophet makes the difference between being a Laman or Lemuel or a Nephi. There are some Lamans in the priesthood of the Church.
 
-To all of you of whom I have made mention—unbelievers; nonmembers; members of the Church, both faithful and those not so devoted; and to the leaders; and all who bear the holy priesthood—I declare as one who knows and has authority, that Spencer W. Kimball, President of The Church of Jesus Christ of Latter-day Saints, is the prophet of God to all the inhabitants of the earth. He is the direct successor to Isaiah; Malachi; Peter, James, and John; and to Joseph Smith and others in between. He is the chief Apostle of Jesus Christ on the earth and is authorized to announce that the gospel has been restored to the earth in these, the last days, in preparation for the Second Coming and that these are the days to prepare. His is a voice of gladness in the glorious news he bears and a solemn warning to us all. I so testify in the name of Jesus Christ, amen.
+To all of you of whom I have made mention—unbelievers; nonmembers; members of the Church, both faithful and those not so devoted; and to the leaders; and all who bear the holy priesthood—I declare as one who knows and has authority, that Spencer W. Kimball, President of The Church of Jesus Christ of Latter-day Saints, is the prophet of God to all the inhabitants of the earth. He is the direct successor to Isaiah; Malachi; Peter, James, and John; and to Joseph Smith and others in between. He is the chief Apostle of Jesus Christ on the earth and is authorized to announce that the gospel has been restored to the earth in these, the last days, in preparation for the Second Coming and that these are the days to prepare. His is a voice of gladness in the glorious news he bears and a solemn warning to us all. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Obedience #Prophets

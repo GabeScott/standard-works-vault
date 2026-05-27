@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:13](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.13?lang=eng#p13)
 
 
-[^a]: [[D&C 133.13|D&C 133:13 (9-13).]]
+[^a]: [[D&C 133.9|D&C 133:13 (9–13)]][[D&C 133.10|]][[D&C 133.11|]][[D&C 133.12|]][[D&C 133.13|]].  

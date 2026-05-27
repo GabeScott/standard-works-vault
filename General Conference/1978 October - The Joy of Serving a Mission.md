@@ -1,5 +1,7 @@
 # The Joy of Serving a Mission
 
+Spencer W. Kimball
+
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
@@ -10,7 +12,7 @@ It’s a thrill, brethren, to stand here this evening and see this great audienc
 
 I think of when I was a young man, before I was even ordained a deacon, I went to one of our ward meetings in the little country town where I was raised, and two missionaries reported their missions down in the Southern States. In those days they traveled without purse or scrip, and they had to sleep out many nights when they couldn’t get entertainment. I don’t know whether they said anything unusual that night or not; but if they didn’t, the Lord did something unusual for me, because when I left that meeting, I felt like I could have walked to any mission field in the world, if I just had a call. And I went home, went into my little bedroom, and got down on my knees, and asked the Lord to help me to live worthy so that when I was old enough I could go on a mission. And when the train finally left the station here in Salt Lake and I was headed for the little land of Holland, the last thing I said to my loved ones was, “This is the happiest day of my life.”
 
-Before I left on that mission, President Anthon H. Lund, who was then a counselor in the First Presidency of the Church, talked to us missionaries, and he said, among other things, “The people will love you. Now,” he said, “don’t get lifted up in the pride of your hearts and think that they love you because you are better than other people. They will love you because of what you bring to them.” I did not understand that then, but before I left the little land of Holland, where I spent nearly three years, I knew what President Lund meant. I went around saying good-bye to the Saints and the converts who I had brought into the Church, and I shed a thousand tears, as compared to what I shed when I told my loved ones good-bye.
+Before I left on that mission, President Anthon H. Lund, who was then a counselor in the First Presidency of the Church, talked to us missionaries, and he said, among other things, “The people will love you. Now,” he said, “don’t get lifted up in the pride of your hearts and think that they love you because you are better than other people. They will love you because of what you bring to them.” I did not understand that then, but before I left the little land of Holland, where I spent nearly three years, I knew what President Lund meant. I went around saying good-bye to the Saints and the converts who I had brought into the Church, and I shed a thousand tears, as compared to what I shed when I told my loved ones good-bye.
 
 For instance, in Amsterdam I went into a home where I had been the first missionary there, and the little mother, looking up into my face with tears rolling down her cheeks, said, “Brother Richards, it was hard to see my daughter leave for Zion a few months ago, but it’s much harder to see *you* go.” I had been the first missionary in that home. Then I thought I could understand what President Lund meant when he said, “They will love you.”
 
@@ -47,5 +49,3 @@ God bless you all, and may we not disappoint our great leader in sending all of 
 
 
 
-
-#Activation #Conversion #Love #Missionary_Work

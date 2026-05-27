@@ -1,5 +1,7 @@
 # ’Tis Eastertide: No One Walks Alone
 
+Dallin H. Oaks
+
 By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -107,7 +109,7 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^16]: See [[Moses 6.34|Moses 6:34]]. This, of course, is also our 2026 youth theme. Dear youth of the noble birthright, you can witness and remember Jesus Christ regularly through the ordinance and covenant of the sacrament. Do your best to abide and walk with Him. Let the promises of Easter be real for you each day. Be faithful and prayerful, kind and helpful, clean and pure. Learn and grow. His Spirit will be with you. I promise.
 
-[^17]: See [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
+[^17]: See [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
 
 [^18]: With the disciples on the road to Emmaus, we sing: “Abide with me! fast falls the eventide; the darkness deepens. Lord, with me abide!” Continuing: “Earth’s joys grow dim; its glories pass away. Change and decay in all around I see; O thou who changest not, abide with me!” (“Abide with Me!,” *Hymns*, no. 166).
 
@@ -125,7 +127,7 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^25]: [[John 14.21|John 14:21]].
 
-[^26]: [[John 14.23|John 14:23]]; see also [[1 John 3.24|1 John 3:24]]; [[Revelation 3.20|Revelation 3:20]]; [[D&C 88.3|Doctrine and Covenants 88:3]]; [[D&C 130.3|130:3]]. Regarding [[John 14.23|John 14:23]], [[D&C 130.3|Doctrine and Covenants 130:3]] states, “The appearing of the Father and the Son, in that verse, is a personal appearance; and the idea that the Father and the Son dwell in a man’s heart is an old sectarian notion, and is false.” With reverence, we note that to make abode occurs when someone comes to abide—we abide in abode.
+[^26]: [[John 14.23|John 14:23]]; see also [[1 John 3.24|1 John 3:24]]; [[Revelation 3.20|Revelation 3:20]]; [[D&C 88.3|Doctrine and Covenants 88:3]]; [[D&C 130.3|130:3]]. Regarding [[John 14.23|John 14:23]], [[D&C 130.3|Doctrine and Covenants 130:3]] states, “The appearing of the Father and the Son, in that verse, is a personal appearance; and the idea that the Father and the Son dwell in a man’s heart is an old sectarian notion, and is false.” With reverence, we note that to make abode occurs when someone comes to abide—we abide in abode.
 
 [^27]: See [[John 15.1|John 15:1]].
 
@@ -145,11 +147,9 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^35]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
-[^36]: [[2 Nephi 11.5|2 Nephi 11:5]].
+[^36]: [[2 Nephi 11.5|2 Nephi 11:5]].
 
 [^37]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18) (2007), 49.
 
 [^38]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
-
-#Covenants #Easter #Jesus_Christ

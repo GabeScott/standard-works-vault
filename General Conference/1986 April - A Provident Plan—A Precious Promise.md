@@ -1,5 +1,7 @@
 # A Provident Plan—A Precious Promise
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
@@ -10,13 +12,13 @@ Today, April 6, 1986, is a day of history. One hundred fifty-six years ago The C
 
 It was fifty years ago this very day that the prophets of God outlined the general principles which became the “firm foundation” of the Church welfare plan. In a specially called and momentous meeting presided over by President Heber J. Grant and his counselors—J. Reuben Clark, Jr., and David O. McKay—watershed statements were presented and heaven-inspired counsel provided which have endured the passage of time, which have been rendered valid by the verdict of history, and which bear the seal of God’s approval.
 
-On that occasion, President David O. McKay declared, “This organization is established by divine revelation, and there is nothing else in all the world that can so effectively take care of its members.” (In Henry D. Taylor, “The Church Welfare Plan,” 1984, p. 26.)
+On that occasion, President David O. McKay declared, “This organization is established by divine revelation, and there is nothing else in all the world that can so effectively take care of its members.” (In Henry D. Taylor, “The Church Welfare Plan,” 1984, p. 26.)
 
-President J. Reuben Clark set the tone for the launching of this inspired effort by counseling: “\[The Lord\] has given us the spirituality. He has given us the actual command. … The eyes of the world are upon us. … May the Lord bless you, give us courage, give us wisdom, give us vision to carry out this great work.” (Taylor, p. 27.)
+President J. Reuben Clark set the tone for the launching of this inspired effort by counseling: “\[The Lord\] has given us the spirituality. He has given us the actual command. … The eyes of the world are upon us. … May the Lord bless you, give us courage, give us wisdom, give us vision to carry out this great work.” (Taylor, p. 27.)
 
 Fifty years have come and gone. Economic cycles have run their course. Societal changes have been numerous. The Church has expanded beyond the valleys of the mountains to the uttermost reaches of the earth. Membership is measured in millions. The word of God, provided on that historic day, is as an island of constancy in a sea of change.
 
-Let us, for a moment, review the moorings, the underpinnings, even the foundation of the welfare program. Said the First Presidency in that year of announcement: “Our primary purpose was to set up, insofar as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves.” (In Conference Report, Oct. 1936, p. 3.)
+Let us, for a moment, review the moorings, the underpinnings, even the foundation of the welfare program. Said the First Presidency in that year of announcement: “Our primary purpose was to set up, insofar as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift and self respect be once more established amongst our people. The aim of the Church is to help the people to help themselves.” (In Conference Report, Oct. 1936, p. 3.)
 
 The holy scriptures leave no doubt concerning the responsibility to care for the poor, the needy, the downtrodden. The organization has been perfected, the duties defined, and the guidelines given.
 
@@ -24,9 +26,9 @@ I am profoundly grateful to my Heavenly Father for the privilege which has been 
 
 As a publisher and printer, I had the opportunity to assist President J. Reuben Clark in the preparation of his manuscript which became the monumental book *Our Lord of the Gospels.* What a blessing was mine to learn daily at the feet of such a master teacher and principle architect of the welfare program. Knowing that I was a newly appointed bishop presiding over a difficult ward, he emphasized the need for me to know my people, to understand their circumstances, and to minister to their needs. One day he recounted the example of the Savior as recorded in the Gospel of Luke:
 
-“And it came to pass … that he went into a city called Nain; and many of his disciples went with him. …
+“And it came to pass … that he went into a city called Nain; and many of his disciples went with him. …
 
-“When he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow. …
+“When he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow. …
 
 “And when the Lord saw her, he had compassion on her, and said unto her, Weep not.
 
@@ -50,7 +52,7 @@ Just a few days ago I visited with President Marion G. Romney, known throughout 
 
 As did President Clark, as did President Lee, President Romney wept as he spoke.
 
-Appearing as a golden thread woven through the tapestry of the welfare program is the truth taught by the Apostle Paul: “The letter killeth, but the spirit giveth life.” ([[2 Corinthians 3.6|2 Cor. 3:6]].)
+Appearing as a golden thread woven through the tapestry of the welfare program is the truth taught by the Apostle Paul: “The letter killeth, but the spirit giveth life.” ([[2 Corinthians 3.6|2 Cor. 3:6]].)
 
 President Ezra Taft Benson frequently counsels us: “Remember, Brethren, in this work it is the Spirit that counts.”
 
@@ -66,7 +68,7 @@ In 1982 it was my privilege to serve as a member of President Ronald Reagan’s 
 
 On another occasion in the White House, I was asked to present to a gathering of America’s religious leaders an example of our welfare program in action. I could have chosen many illustrations, but selected as typical our response to the Teton Dam disaster in Idaho. The result was dramatic. As the First Presidency stated fifty years ago, “The eyes of the world are upon us.” While this is a most important consideration, let us particularly remember that the eyes of God are similarly focused. What might He observe?
 
-Are we generous in the payment of our fast offerings? That we should be so was taught by President Spencer W. Kimball, who urged that “instead of the amount saved by our two or more meals of fasting, perhaps much, much more—ten times more \[be given\] when we are in a position to do it.” (*Ensign,* Nov. 1977, p. 79.)
+Are we generous in the payment of our fast offerings? That we should be so was taught by President Spencer W. Kimball, who urged that “instead of the amount saved by our two or more meals of fasting, perhaps much, much more—ten times more \[be given\] when we are in a position to do it.” (*Ensign,* Nov. 1977, p. 79.)
 
 Are we prepared for the emergencies of our lives? Are our skills perfected? Do we live providently? Do we have on hand our reserve supply? Are we obedient to the commandments of God? Are we responsive to the teachings of prophets? Are we prepared to give of our substance to the poor, the needy? Are we square with the Lord?
 
@@ -120,8 +122,3 @@ I testify that God lives, that Jesus is the Christ, that we are led by a prophet
 
 
 
-
-
-
-
-#Love #Welfare

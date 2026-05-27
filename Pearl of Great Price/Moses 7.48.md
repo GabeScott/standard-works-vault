@@ -7,6 +7,6 @@
 
 [^a]: [[Earth, Purpose of|TG Earth, Purpose of]].  
 [^b]: [[Pain|TG Pain]].  
-[^c]: [[Moses 7.64|Moses 7:64 (54, 58, 64)]].  
+[^c]: [[Moses 7.54|Moses 7:64 (54, 58, 64)]][[Moses 7.58|]][[Moses 7.64|]].  
 [^d]: [[Earth, Cleansing of|TG Earth, Cleansing of]].  
 [^e]: [[Filthiness, Filthy|TG Filthiness]].  

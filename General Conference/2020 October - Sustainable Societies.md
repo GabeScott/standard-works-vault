@@ -1,6 +1,8 @@
 # Sustainable Societies
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -18,13 +20,13 @@ Anciently, the great patriarch and prophet Enoch preached righteousness and “b
 
 “And the Lord blessed the land, and they were blessed upon the mountains, and upon the high places, and did flourish.”[^4]
 
-The first- and second-century peoples in the Western Hemisphere known as Nephites and Lamanites provide another outstanding example of a flourishing society. Following the resurrected Savior’s remarkable ministry among them, “they did walk after the commandments which they had received from their Lord and their God, continuing in fasting and prayer, and in meeting together oft both to pray and to hear the word of the Lord. …
+The first- and second-century peoples in the Western Hemisphere known as Nephites and Lamanites provide another outstanding example of a flourishing society. Following the resurrected Savior’s remarkable ministry among them, “they did walk after the commandments which they had received from their Lord and their God, continuing in fasting and prayer, and in meeting together oft both to pray and to hear the word of the Lord. …
 
 “And there were no envyings, nor strifes, nor tumults, nor whoredoms, nor lyings, nor murders, nor any manner of lasciviousness; and surely there could not be a happier people among all the people who had been created by the hand of God.”[^5]
 
 The societies in these two examples were sustained by the blessings of heaven growing out of their exemplary devotion to the two great commandments: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind” and “Thou shalt love thy neighbour as thyself.”[^6] They were obedient to God in their personal lives, and they looked after one another’s physical and spiritual welfare. In the words of the Doctrine and Covenants, these were societies with “every man seeking the interest of his neighbor, and doing all things with an eye single to the glory of God.”[^7]
 
-Unfortunately, as Elder Quentin L. Cook noted this morning, the ideal society described in 4 Nephi of the Book of Mormon did not endure beyond its second century. Sustainability is not guaranteed, and a thriving society can fail in time if it abandons the cardinal virtues that uphold its peace and prosperity. In this case, yielding to the temptations of the devil, the people “began to be divided into classes; and they began to build up churches unto themselves to get gain, and began to deny the true church of Christ.”[^8]
+Unfortunately, as Elder Quentin L. Cook noted this morning, the ideal society described in 4 Nephi of the Book of Mormon did not endure beyond its second century. Sustainability is not guaranteed, and a thriving society can fail in time if it abandons the cardinal virtues that uphold its peace and prosperity. In this case, yielding to the temptations of the devil, the people “began to be divided into classes; and they began to build up churches unto themselves to get gain, and began to deny the true church of Christ.”[^8]
 
 “And it came to pass that when three hundred years had passed away, both the people of Nephi and the Lamanites had become exceedingly wicked one like unto another.”[^9]
 
@@ -40,7 +42,7 @@ Editor-at-large Gerard Baker wrote a column earlier this year in the *Wall Stree
 
 “He is from an era when life was defined primarily by duty, not by entitlement; by social responsibilities, not personal privileges. The primary animating principle throughout his century has been a sense of obligation—to family, God, country.
 
-“In an era dominated by the detritus of broken families, my father was a devoted husband to his wife of 46 years, a dutiful father to six children. He was never more present and vital than when my parents suffered the unthinkable tragedy of losing a child. …
+“In an era dominated by the detritus of broken families, my father was a devoted husband to his wife of 46 years, a dutiful father to six children. He was never more present and vital than when my parents suffered the unthinkable tragedy of losing a child. …
 
 “And in an era when religion is increasingly a curiosity, my father has lived as a true, faithful Catholic, with an unshakable belief in the promises of Christ. Indeed, I sometimes think he has lived so long because he is better prepared than anyone I have ever met to die.
 
@@ -54,15 +56,15 @@ A society, for example, in which individual consent is the only constraint on se
 
 Nephi proclaims:
 
-“Wo be unto him that hearkeneth unto the precepts of men, and denieth the power of God, and the gift of the Holy Ghost! …
+“Wo be unto him that hearkeneth unto the precepts of men, and denieth the power of God, and the gift of the Holy Ghost! …
 
-“… Wo unto all those who tremble, and are angry because of the truth of God!”[^17]
+“… Wo unto all those who tremble, and are angry because of the truth of God!”[^17]
 
 In contrast, our joyous message to our children and to all humanity is that “the truth of God” points a better way, or as Paul said, “a more excellent way,”[^18] a way to personal happiness and community well-being now and to everlasting peace and joy hereafter.
 
 The truth of God refers to the core truths that underlie His plan of happiness for His children. These truths are that God lives; that He is the Heavenly Father of our spirits; that as a manifestation of His love, He has given us commandments that lead to a fulness of joy with Him; that Jesus Christ is the Son of God and our Redeemer; that He suffered and died to atone for sins on condition of our repentance; that He rose from the dead, bringing to pass the Resurrection of all humankind; and that we will all stand before Him to be judged, that is, to account for our lives.[^19]
 
-Nine years into what was called “the reign of the judges” in the Book of Mormon, the prophet Alma resigned his position as chief judge to give full time to his leadership of the Church. His purpose was to address the pride, persecution, and greed that were growing among the people and particularly among members of the Church.[^20] As Elder Stephen D. Nadauld once observed, “\[Alma’s\] inspired decision was not to spend more time trying to make and enforce more rules to correct the behavior of his people, but to speak to them of the word of God, to teach the doctrine and have their understanding of the plan of redemption lead them to change their behavior.”[^21]
+Nine years into what was called “the reign of the judges” in the Book of Mormon, the prophet Alma resigned his position as chief judge to give full time to his leadership of the Church. His purpose was to address the pride, persecution, and greed that were growing among the people and particularly among members of the Church.[^20] As Elder Stephen D. Nadauld once observed, “\[Alma’s\] inspired decision was not to spend more time trying to make and enforce more rules to correct the behavior of his people, but to speak to them of the word of God, to teach the doctrine and have their understanding of the plan of redemption lead them to change their behavior.”[^21]
 
 There is much we can do as neighbors and fellow citizens to contribute to the sustainability and success of the societies we live in, and surely our most fundamental and enduring service will be to teach and live by the truths inherent in God’s great plan of redemption. As expressed in the words of the hymn:
 
@@ -93,50 +95,45 @@ This we declare “in solemnity of heart, in the spirit of meekness,”[^25] and
 
 [^4]: [[Moses 7.17|Moses 7:17]].
 
-[^5]: [[4 Nephi 1.12|4 Nephi 1:12, 16]][[4 Nephi 1.16|]].
+[^5]: [[4 Nephi 1.12|4 Nephi 1:12, 16]][[4 Nephi 1.16|]].
 
 [^6]: [[Matthew 22.37|Matthew 22:37, 39]][[Matthew 22.39|]].
 
 [^7]: [[D&C 82.19|Doctrine and Covenants 82:19]].
 
-[^8]: [[4 Nephi 1.26|4 Nephi 1:26]].
+[^8]: [[4 Nephi 1.26|4 Nephi 1:26]].
 
-[^9]: [[4 Nephi 1.45|4 Nephi 1:45]].
+[^9]: [[4 Nephi 1.45|4 Nephi 1:45]].
 
 [^10]: [[Mosiah 4.12|Mosiah 4:12]].
 
-[^11]: Gerard Baker, “A Man for All Seasons at 100,” *Wall Street Journal,* Feb. 21, 2020, wsj.com.
+[^11]: Gerard Baker, “A Man for All Seasons at 100,” *Wall Street Journal,* Feb. 21, 2020, wsj.com.
 
-[^12]: See Ronald F. Inglehart, “Giving Up on God: The Global Decline of Religion,” *Foreign Affairs,* Sept./Oct. 2020, foreignaffairs.com; see also Christine Tamir, Aidan Connaughton, and Ariana Monique Salazar, “The Global God Divide,” Pew Research Center, July 20, 2020, especially infographic “Majorities in Emerging Economies Connect Belief in God and Morality,” pewresearch.org.
+[^12]: See Ronald F. Inglehart, “Giving Up on God: The Global Decline of Religion,” *Foreign Affairs,* Sept./Oct. 2020, foreignaffairs.com; see also Christine Tamir, Aidan Connaughton, and Ariana Monique Salazar, “The Global God Divide,” Pew Research Center, July 20, 2020, especially infographic “Majorities in Emerging Economies Connect Belief in God and Morality,” pewresearch.org.
 
 [^13]: [[D&C 93.2|Doctrine and Covenants 93:2]]; see also [[Moroni 7.16|Moroni 7:16, 19]][[Moroni 7.19|]].
 
-[^14]: See Boyd K. Packer, “[The Light of Christ](https://churchofjesuschrist.org/study/ensign/2005/04/the-light-of-christ?lang=eng),” *Ensign* or *Liahona,* Apr. 2005, 10; see also D. Todd Christofferson, “Truth Endures,” *Religious Educator,* vol. 19, no. 3 (2018), 6.
+[^14]: See Boyd K. Packer, “[The Light of Christ](https://www.churchofjesuschrist.org/study/ensign/2005/04/the-light-of-christ?lang=eng),” *Ensign* or *Liahona,* Apr. 2005, 10; see also D. Todd Christofferson, “Truth Endures,” *Religious Educator,* vol. 19, no. 3 (2018), 6.
 
 [^15]: In giving this example, I am speaking of potential adverse consequences to children as “bitter fruit” and not of the children themselves. Every child of God is precious, and every life has priceless value regardless of the circumstances of birth.
 
-[^16]: See, for example, Pew Research Center, “The Changing Profile of Unmarried Parents,” Apr. 25, 2018, pewsocialtrends.org; Mindy E. Scott and others, “5 Ways Fathers Matter,” June 15, 2016, childtrends.org; and Robert Crosnoe and Elizabeth Wildsmith, “Nonmarital Fertility, Family Structure, and the Early School Achievement of Young Children from Different Race/Ethnic and Immigration Groups,” *Applied Developmental Science,* vol. 15, no. 3 (July–Sept. 2011), 156–70.
+[^16]: See, for example, Pew Research Center, “The Changing Profile of Unmarried Parents,” Apr. 25, 2018, pewsocialtrends.org; Mindy E. Scott and others, “5 Ways Fathers Matter,” June 15, 2016, childtrends.org; and Robert Crosnoe and Elizabeth Wildsmith, “Nonmarital Fertility, Family Structure, and the Early School Achievement of Young Children from Different Race/Ethnic and Immigration Groups,” *Applied Developmental Science,* vol. 15, no. 3 (July–Sept. 2011), 156–70.
 
-[^17]: [[2 Nephi 28.26|2 Nephi 28:26, 28]][[2 Nephi 28.28|]].
+[^17]: [[2 Nephi 28.26|2 Nephi 28:26, 28]][[2 Nephi 28.28|]].
 
-[^18]: [[1 Corinthians 12.31|1 Corinthians 12:31]].
+[^18]: [[1 Corinthians 12.31|1 Corinthians 12:31]].
 
 [^19]: See [[Alma 33.22|Alma 33:22]].
 
 [^20]: See [[Alma 4.6|Alma 4:6–19]][[Alma 4.7|]][[Alma 4.8|]][[Alma 4.9|]][[Alma 4.10|]][[Alma 4.11|]][[Alma 4.12|]][[Alma 4.13|]][[Alma 4.14|]][[Alma 4.15|]][[Alma 4.16|]][[Alma 4.17|]][[Alma 4.18|]][[Alma 4.19|]].
 
-[^21]: Stephen D. Nadauld, *Principles of Priesthood Leadership* (1999), 13; see also [[Alma 31.5|Alma 31:5]].
+[^21]: Stephen D. Nadauld, *Principles of Priesthood Leadership* (1999), 13; see also [[Alma 31.5|Alma 31:5]].
 
-[^22]: “Faith of Our Fathers,” *Hymns,* no. 84.
+[^22]: “Faith of Our Fathers,” *Hymns,* no. 84.
 
 [^23]: See [[John 3.16|John 3:16]].
 
-[^24]: [[2 Nephi 26.24|2 Nephi 26:24–25]][[2 Nephi 26.25|]]; see also [[2 Nephi 26.33|2 Nephi 26:33]].
+[^24]: [[2 Nephi 26.24|2 Nephi 26:24–25]][[2 Nephi 26.25|]]; see also [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^25]: [[D&C 100.7|Doctrine and Covenants 100:7]].
 
-
-
-
-
-#Light_Of_Christ #Morality #Religion #Spirituality #Truth

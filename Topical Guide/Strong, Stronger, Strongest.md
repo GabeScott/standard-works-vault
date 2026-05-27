@@ -1,6 +1,5 @@
 # Strong, Stronger, Strongest
 
-
 one people shall be *stronger* than the other, [[Genesis 25.23|Genesis 25:23]].
 
 Pharaoh: for with a *strong* hand shall he let them go, [[Exodus 6.1|Exodus 6:1]].
@@ -19,7 +18,7 @@ he that hath clean hands shall be *stronger*, [[Job 17.9|Job 17:9]].
 
 With a *strong* hand, [[Psalms 136.12|Psalms 136:12]].
 
-rich man's wealth is his *strong* city, [[Proverbs 10.15|Proverbs 10:15]].
+rich man’s wealth is his *strong* city, [[Proverbs 10.15|Proverbs 10:15]].
 
 wise man is *strong*, [[Proverbs 24.5|Proverbs 24:5]].
 
@@ -39,7 +38,7 @@ renowned city, which wast *strong* in the sea, [[Ezekiel 26.17|Ezekiel 26:17]].
 
 let the weak say, I am *strong*, [[Joel 3.10|Joel 3:10]].
 
-how can one enter into a *strong* man's house, [[Matthew 12.29|Matthew 12:29]].
+how can one enter into a *strong* man’s house, [[Matthew 12.29|Matthew 12:29]].
 
 When a *strong* man armed keepeth his palace, [[Luke 11.21|Luke 11:21]].
 

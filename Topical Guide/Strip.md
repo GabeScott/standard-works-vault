@@ -1,6 +1,5 @@
 # Strip
 
-
 *strip* Aaron of his garments, [[Numbers 20.26|Numbers 20:26]].
 
 Lest I *strip* her naked, [[Hosea 2.3|Hosea 2:3]].

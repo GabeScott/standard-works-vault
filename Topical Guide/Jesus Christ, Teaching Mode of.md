@@ -1,6 +1,5 @@
 # Jesus Christ, Teaching Mode of
 
-
 *See also* [[Teaching with the Spirit.md|Teaching with the Spirit]]
 
 taught them as one having *authority*, [[Matthew 7.29|Matthew 7:29]].
@@ -21,7 +20,7 @@ all these things are done in *parables*, [[Mark 4.11|Mark 4:11]].
 
 he began to *teach* them, that the Son of man, [[Mark 8.31|Mark 8:31]].
 
-they were astonished ... for his word was with *power*, [[Luke 4.32|Luke 4:32]].
+they were astonished … for his word was with *power*, [[Luke 4.32|Luke 4:32]].
 
 when Jesus *perceived* their thoughts, he answering said, [[Luke 5.22|Luke 5:22]].
 
@@ -39,12 +38,10 @@ even as the Father said unto me, so I *speak*, [[John 12.50|John 12:50]].
 
 He saith unto him the *third time*, [[John 21.17|John 21:17]].
 
-*feel* the prints ... that ye may know, [[3 Nephi 11.14|3 Nephi 11:14]].
+*feel* the prints … that ye may know, [[3 Nephi 11.14|3 Nephi 11:14]].
 
-I *bear record* of the Father ... and the Holy Ghost beareth record, [[3 Nephi 11.32|3 Nephi 11:32]].
+I *bear record* of the Father … and the Holy Ghost beareth record, [[3 Nephi 11.32|3 Nephi 11:32]].
 
 *prepare* your minds for the morrow, and I come unto you again, [[3 Nephi 17.3|3 Nephi 17:3]].
 
 How be it that ye have not *written* this thing, [[3 Nephi 23.11|3 Nephi 23:11]].
-
-*See also* [[Matthew 13.54|Matthew 13:54]].

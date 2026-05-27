@@ -1,4 +1,3 @@
 # Tolerance
 
-
-*See* [[Forbear, Forbearance.md|Forbear]]; [[Patience, Patient, Patiently.md|Patience]]; [[Understanding.md|Understanding]]
+*See also* [[Forbear.md|Forbear]]; [[Patience.md|Patience]]; [[Understanding.md|Understanding]]

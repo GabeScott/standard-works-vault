@@ -1,5 +1,7 @@
 # Sacrifice Still Brings Forth Blessings
 
+Joseph Fielding Smith
+
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
@@ -10,11 +12,11 @@ Last fall the Lord announced through his prophet that the Church would hold fami
 
 In the fourth section of the Doctrine and Covenants, the Lord sets forth the qualifications for the labors of the ministry. He says that they are “faith, hope, charity, and love, with an eye single to the glory of God.” The faith, hope, charity, and love we know something about. They are very important. But the eye single to the glory of God is probably the most important of those qualifications. Generally speaking, “an eye single to the glory of God” means sacrifice. It means that instead of endlessly doing what we want to do, we have to do what the Lord wants us to do, but we have to do it in his way when he wants us to do it. This, of course, is not the natural inclination of man.
 
-We hear much in the world today about “doing our own thing.” I doubt that this is really new. I think it has been going on since the beginning of time. Perhaps this is just a little different way of saying it. Certainly Lucifer did his own thing, contrary to the will of the Lord. Cain did his own thing, directly contrary to the counsel of his Heavenly Father. They were not concerned with what the Lord wanted them to do but rather only with what they wanted to do. Of course this kind of action has never been very profitable measured in terms of happiness, and happiness is the whole purpose for the existence of man. The prophet Lehi’s statement that “men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]) is all-inclusive.
+We hear much in the world today about “doing our own thing.” I doubt that this is really new. I think it has been going on since the beginning of time. Perhaps this is just a little different way of saying it. Certainly Lucifer did his own thing, contrary to the will of the Lord. Cain did his own thing, directly contrary to the counsel of his Heavenly Father. They were not concerned with what the Lord wanted them to do but rather only with what they wanted to do. Of course this kind of action has never been very profitable measured in terms of happiness, and happiness is the whole purpose for the existence of man. The prophet Lehi’s statement that “men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]) is all-inclusive.
 
-On the other hand, Abraham was told by God to sacrifice his “only” son Isaac as a burnt offering to the Lord. I presume Abraham could not have received a more disagreeable commandment from his Heavenly Father. Still he arose immediately, took his son and the necessary firewood, and started for the designated place. He could not be diverted from his course until an angel of the Lord intervened to stay his hand. And what was the reward for such action? Hear the Lord’s statement to Abraham: “… because thou hast done this thing, and hast not withheld thy son, thine only son:
+On the other hand, Abraham was told by God to sacrifice his “only” son Isaac as a burnt offering to the Lord. I presume Abraham could not have received a more disagreeable commandment from his Heavenly Father. Still he arose immediately, took his son and the necessary firewood, and started for the designated place. He could not be diverted from his course until an angel of the Lord intervened to stay his hand. And what was the reward for such action? Hear the Lord’s statement to Abraham: “… because thou hast done this thing, and hast not withheld thy son, thine only son:
 
-“That in blessing I will bless thee, and in multiplying I will multiply thy seed as the stars of the heaven, and as the sand which is upon the sea shore. …
+“That in blessing I will bless thee, and in multiplying I will multiply thy seed as the stars of the heaven, and as the sand which is upon the sea shore. …
 
 “And in thy seed shall all the nations of the earth be blessed; because thou hast obeyed my voice.” ([[Genesis 22.16|Gen. 22:16–18]][[Genesis 22.17|]][[Genesis 22.18|]].)
 
@@ -24,13 +26,13 @@ And how was it done? It was possible only through sacrifice. Truly sacrifice doe
 
 But how and why it happens seems to be difficult to understand, and perhaps few people really do understand it. Maybe this is the reason so few persons are willing to make the required sacrifice to allow the work of the Lord to fully succeed.
 
-The Prophet Joseph in his sixth lecture on faith gives probably the greatest statement extant on this vital subject. The Prophet said, “An actual knowledge to any person, that the course of life which he pursues is according to the will of God, is essentially necessary to enable him to have that confidence in God without which no person can obtain eternal life … and unless they have an actual knowledge that the course they are pursuing is according to the will of God they will grow weary in their minds and faint. … It was through this sacrifice, and this only, that God has ordained that men should enjoy eternal life; and it is through the medium of the sacrifice of all earthly things that men do actually know that they are doing the things that are well pleasing in the sight of God. …
+The Prophet Joseph in his sixth lecture on faith gives probably the greatest statement extant on this vital subject. The Prophet said, “An actual knowledge to any person, that the course of life which he pursues is according to the will of God, is essentially necessary to enable him to have that confidence in God without which no person can obtain eternal life … and unless they have an actual knowledge that the course they are pursuing is according to the will of God they will grow weary in their minds and faint. … It was through this sacrifice, and this only, that God has ordained that men should enjoy eternal life; and it is through the medium of the sacrifice of all earthly things that men do actually know that they are doing the things that are well pleasing in the sight of God. …
 
 “It was in offering sacrifices that Abel, the first martyr, obtained knowledge that he was accepted of God. And from the days of righteous Abel to the present time, the knowledge that men have that they are accepted in the sight of God is obtained by offering sacrifice.
 
 “It is in vain for persons to fancy to themselves that they are heirs with those, or can be heirs with them, who have offered their all in sacrifice, and by this means obtain faith in God and favor with him so as to obtain eternal life, unless they, in like manner, offer unto him the same sacrifice, and through that offering obtain the knowledge that they are accepted of him.
 
-“Those, then, who make the sacrifice, will have the testimony that their course is pleasing in the sight of God. …
+“Those, then, who make the sacrifice, will have the testimony that their course is pleasing in the sight of God. …
 
 “But those who have not made this sacrifice to God do not know that the course which they pursue is well pleasing in his sight; for whatever may be their belief or their opinion, it is a matter of doubt and uncertainty in their mind; and where doubt and uncertainty are there faith is not, nor can it be. For doubt and faith do not exist in the same person at the same time; so that persons whose minds are under doubts and fears cannot have unshaken confidence; and where unshaken confidence is not there faith is weak; and where faith is weak the persons will not be able to contend against all opposition, tribulations, and afflictions which they will have to encounter in order to be heirs of God and joint heirs with Christ Jesus; and they will grow weary in their minds, and the adversary will have power over them and destroy them.” (Lectures on Faith, 1891 ed., 6:2, 4, 7, 8, 9, 10, 12.)
 
@@ -59,8 +61,3 @@ I am a witness that God lives. I know he lives and that he hears and answers pra
 
 
 
-
-
-
-
-#Family_Home_Evening #Sacrifice

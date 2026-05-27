@@ -1,6 +1,8 @@
 # Mother, Catch the Vision of Your Call
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -14,7 +16,7 @@ The woman said that this answer almost broke her heart. There was a mommy at his
 
 Throughout my life I have seen the influence for good which dedicated mothers have had in their homes. Because of this, I should like to present my thoughts today in hopes of giving encouragement, strength, and guidance to those of your number who are confused and wondering about the importance of their call in the Lord’s eternal plan.
 
-President David O. McKay put it beautifully when he said, speaking of mothers, “This ability and willingness properly to rear children, the gift to love, and eagerness, yes, longing to express it in soul development, make motherhood the noblest office or calling in the world. She who can paint a masterpiece or write a book that will influence millions deserves the admiration and the plaudits of mankind; but she who rears successfully a family of healthy, beautiful sons and daughters, whose influence will be felt through generations to come, whose immortal souls will exert an influence throughout the ages long after paintings shall have faded, and books and statues shall have decayed or shall have been destroyed, deserves the highest honor that man can give, and the choicest blessings of God. In her high duty and service to humanity, endowing with immortality eternal spirits, she is co-partner with the Creator himself.” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, pp. 453–54.)
+President David O. McKay put it beautifully when he said, speaking of mothers, “This ability and willingness properly to rear children, the gift to love, and eagerness, yes, longing to express it in soul development, make motherhood the noblest office or calling in the world. She who can paint a masterpiece or write a book that will influence millions deserves the admiration and the plaudits of mankind; but she who rears successfully a family of healthy, beautiful sons and daughters, whose influence will be felt through generations to come, whose immortal souls will exert an influence throughout the ages long after paintings shall have faded, and books and statues shall have decayed or shall have been destroyed, deserves the highest honor that man can give, and the choicest blessings of God. In her high duty and service to humanity, endowing with immortality eternal spirits, she is co-partner with the Creator himself.” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, pp. 453–54.)
 
 One of the great tragedies of our day is the confusion in the minds of some which would cause mothers to go to work in the marketplace. Satan, that master of deceit, would have us believe that when we have problems with our children, the answer may be a nicer home in a finer neighborhood, that they might have their own bedroom, or better quality clothes, and maybe their own car. Satan would have us believe that money or the things money can buy are more important in the home than mother.
 
@@ -22,7 +24,7 @@ Now there are some mothers with school-age children who are the breadwinners of 
 
 —A mother gone when her children need her most or one who is too tired from a day spent in employment. Far better for a boy or girl to go to school in last year’s shirts or hand-me-down dresses that are clean even though not in the height of fashion and come home to find mother there, than for a boy or girl to go to school in finer and newer clothes and come home to a new TV or a baby-sitter because Mother is away working.
 
-I like the poem of Esther H. Doolittle:
+I like the poem of Esther H. Doolittle:
 
 >Sometimes when I get home from school
 >And mother isn’t there,
@@ -67,8 +69,3 @@ To you mothers who haven’t yet caught the vision of your eternal call, may you
 
 
 
-
-
-
-
-#Home #Motherhood

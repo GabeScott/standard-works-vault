@@ -1,6 +1,8 @@
 # The Blessings of Missionary Service
 
-By James M. Dunn - *Valley View Eleventh Ward, Holladay North Stake*
+Gordon B. Hinckley
+
+By James M. Dunn - *Valley View Eleventh Ward, Holladay North Stake*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -10,19 +12,19 @@ My dear brethren, to repeat an expression that’s popular among missionaries th
 
 When I left on my first mission as a young man, I had practically no understanding of missionary work. I had a feeble testimony of the gospel, but I had faith that what I was doing was right.
 
-Upon arrival in Montevideo, Uruguay, I was assigned to Elder Wayne G. Scheiss, my first senior companion. I immediately found that he cared for me. In our brief three months together, he taught me all I was smart enough to learn of the missionary discussions. He taught me the rudiments of the Spanish language. And he taught me to put my feet on the proper path toward missionary service and to turn my heart toward godly things.
+Upon arrival in Montevideo, Uruguay, I was assigned to Elder Wayne G. Scheiss, my first senior companion. I immediately found that he cared for me. In our brief three months together, he taught me all I was smart enough to learn of the missionary discussions. He taught me the rudiments of the Spanish language. And he taught me to put my feet on the proper path toward missionary service and to turn my heart toward godly things.
 
 Elder Scheiss let me baptize our first convert. Mario had already been taught most of the missionary discussions by the time I arrived, but my companion thought it best that I perform the ordinance. I studied hard to memorize the baptismal prayer in Spanish. I worked on my accent in order to be understood on that sacred occasion.
 
-I shall never forget finally finding myself standing in the baptismal font at the Deseret Branch with Mario, raising my arm to the square, and saying, “Habiendo sido comisionado por Jesucristo …” “Having been commissioned of Jesus Christ, I baptize you. …” ([[D&C 20.73|D&C 20:73]].)
+I shall never forget finally finding myself standing in the baptismal font at the Deseret Branch with Mario, raising my arm to the square, and saying, “Habiendo sido comisionado por Jesucristo …” “Having been commissioned of Jesus Christ, I baptize you. …” ([[D&C 20.73|D&C 20:73]].)
 
 I had heard of people being commissioned to paint pictures. I had heard of people being commissioned to serve as military officers. But when it occurred to me that I had been commissioned by the Savior to baptize in his sacred name for the remission of sins, I felt a rush of testimony and pride and gratitude that went through my entire soul. I knew that I was in the service of the most important Master of all. I knew I was authorized to perform that ordinance, and I knew that Mario left that font pure and clean and acceptable to our Heavenly Father. I am grateful to my companion for that baptism experience. And I am grateful for my commission from the Lord.
 
-In August of this year, the Aaronic Priesthood young men of our ward had the assignment to administer the sacrament to the residents of a local rest home. I went along with them in case they needed some assistance. Naturally, they didn’t. Everything was under control. But as a result of my attendance there, I had a great experience. After the meeting, the branch president came to me and asked: “Would you happen to be related to Billy E. Dunn?”
+In August of this year, the Aaronic Priesthood young men of our ward had the assignment to administer the sacrament to the residents of a local rest home. I went along with them in case they needed some assistance. Naturally, they didn’t. Everything was under control. But as a result of my attendance there, I had a great experience. After the meeting, the branch president came to me and asked: “Would you happen to be related to Billy E. Dunn?”
 
 I said, “Yes, sir. He’s my father.”
 
-He then said: “Your dad was one of my favorite missionary companions. We served on the mission board together. And I’ll never forget when President Murphy sent us out in the mission’s old Model A Ford to tour the island. …” And he went on reminiscing for some time, telling me of his missionary experiences with my father in Hawaii fifty years ago. By the way he spoke, the light in his eye, and the smile on his face, it was as though he lived those cherished experiences only yesterday.
+He then said: “Your dad was one of my favorite missionary companions. We served on the mission board together. And I’ll never forget when President Murphy sent us out in the mission’s old Model A Ford to tour the island. …” And he went on reminiscing for some time, telling me of his missionary experiences with my father in Hawaii fifty years ago. By the way he spoke, the light in his eye, and the smile on his face, it was as though he lived those cherished experiences only yesterday.
 
 The interpersonal relationships between missionaries are among the choicest blessings we receive as the result of missionary service. The friendships and the positive influence of one missionary upon the other can be eternal.
 
@@ -57,8 +59,3 @@ Above all the benefits and blessings of missionary service that come into the li
 
 
 
-
-
-
-
-#Missionary_Work

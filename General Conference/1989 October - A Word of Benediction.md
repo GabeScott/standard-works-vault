@@ -1,5 +1,7 @@
 # A Word of Benediction
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -30,7 +32,7 @@ As we conclude, may I leave with you, in the form of a word of benediction, some
 
 “See that ye love one another; cease to be covetous; learn to impart one to another as the gospel requires.
 
-“Cease to be idle; cease to be unclean; cease to find fault one with another. …
+“Cease to be idle; cease to be unclean; cease to find fault one with another. …
 
 “And above all things, clothe yourselves with the bond of charity, as with a mantle, which is the bond of perfectness and peace.
 
@@ -41,8 +43,3 @@ Our prayers go with you. May there come into your minds remembrances of the wond
 
 
 
-
-
-
-
-#Prophecy

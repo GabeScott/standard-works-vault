@@ -1,13 +1,12 @@
 # Countenance
 
-
 *See also* [[Face.md|Face]]
 
 Lord lift up his *countenance* upon thee, [[Numbers 6.26|Numbers 6:26]].
 
 Look not on his *countenance*, [[1 Samuel 16.7|1 Samuel 16:7]].
 
-but a youth ... of a fair *countenance*, [[1 Samuel 17.42|1 Samuel 17:42]].
+but a youth … of a fair *countenance*, [[1 Samuel 17.42|1 Samuel 17:42]].
 
 Why is thy *countenance* sad, [[Nehemiah 2.2|Nehemiah 2:2]].
 
@@ -15,7 +14,7 @@ lift thou up the light of thy *countenance*, [[Psalms 4.6|Psalms 4:6]].
 
 let our *countenances* be looked upon before thee, [[Daniel 1.13|Daniel 1:13]].
 
-king's *countenance* was changed, [[Daniel 5.6|Daniel 5:6]] ([[Alma 18.12|Alma 18:12]]).
+king’s *countenance* was changed, [[Daniel 5.6|Daniel 5:6]] ([[Alma 18.12|Alma 18:12]]).
 
 *countenance* was like lightning, [[Matthew 28.3|Matthew 28:3]] ([[D&C 20.6|D&C 20:6]]).
 

@@ -1,6 +1,8 @@
 # Choose Eternal Life
 
-By Elder Randall K. Bennett - *Of the Seventy*
+Richard G. Scott
+
+By Elder Randall K. Bennett - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -18,7 +20,7 @@ Miraculously, it seemed, a lifeguard was immediately at my side. I wasn’t awar
 
 That day I made a poor choice that produced potentially serious consequences for me and for my family. As we now consider together the gift of choice, I pray that the Holy Ghost will help each of us individually evaluate the choices we are making.
 
-Our beloved prophet, President Thomas S. Monson, has taught: “I can’t stress too strongly that decisions determine destiny. You can’t make eternal decisions without eternal consequences.”[^1]
+Our beloved prophet, President Thomas S. Monson, has taught: “I can’t stress too strongly that decisions determine destiny. You can’t make eternal decisions without eternal consequences.”[^1]
 
 Each of you—as we have been taught this conference—is a beloved spirit son or daughter of heavenly parents. You do have a divine nature and destiny.[^2] During your premortal life you learned to love truth. You made correct eternal choices. You knew that here in mortality there would be afflictions and adversity, sorrow and suffering, tests and trials to help you grow and progress. You also knew that you could continue making correct choices, repent of incorrect choices, and through the Atonement of Jesus Christ inherit eternal life.
 
@@ -36,13 +38,13 @@ We cannot successfully choose both the safety of righteousness and the dangers o
 
 Like the current that could have changed the course of my family’s lives, today’s currents of worldliness, deceptive philosophies, false teachings, and rampant immorality seek to drag us away and eternally separate us from our families and from our Heavenly Father.
 
-Our living prophets, seers, and revelators both see and seek to warn us of the often subtle but dangerous worldly currents that threaten us. They lovingly invite, encourage, teach, remind, and warn us. They know that our safety depends on choosing to follow (1) the insights we gain during daily scripture study, pondering, and prayer; (2) the guidance of the Holy Ghost; and (3) their prophetic counsel. They know that there is safety and ultimately joy only in and through our Savior, Jesus Christ, and living His gospel. As Elder Dallin H. Oaks just taught, our Savior declared, “I am the way, the truth, and the life: no man cometh unto the Father, but by me.”[^4]
+Our living prophets, seers, and revelators both see and seek to warn us of the often subtle but dangerous worldly currents that threaten us. They lovingly invite, encourage, teach, remind, and warn us. They know that our safety depends on choosing to follow (1) the insights we gain during daily scripture study, pondering, and prayer; (2) the guidance of the Holy Ghost; and (3) their prophetic counsel. They know that there is safety and ultimately joy only in and through our Savior, Jesus Christ, and living His gospel. As Elder Dallin H. Oaks just taught, our Savior declared, “I am the way, the truth, and the life: no man cometh unto the Father, but by me.”[^4]
 
 During adversity and suffering in post-Soviet Russia, Anatoly and Svetlana Reshetnikov chose righteousness over worldliness. After joining the Church, they were persecuted. He was demoted from his position at work. Valiantly they thought, “Now we have more time to serve God!” They repeatedly received threats, yet they chose to live gospel-centered lives. Elder Anatoly Reshetnikov was called as the first Russian Area Seventy. Through their choices the Reshetnikovs continue to *choose eternal life.*
 
 We all face adversity. We all have temptations. We all have made mistakes. It is never too hard or too late to make correct choices. Repentance is one of those critical correct choices.
 
-President Dieter F. Uchtdorf has taught:
+President Dieter F. Uchtdorf has taught:
 
 “Small errors and minor drifts away from the doctrine of the gospel of Jesus Christ can bring sorrowful consequences into our lives. It is therefore of critical importance that we become self-disciplined enough to make early and decisive corrections to get back on the right track and not wait or hope that errors will somehow correct themselves.
 
@@ -67,19 +69,17 @@ I bear my witness that because of Heavenly Father’s great plan of happiness, e
 
 
 
-[^1]: Thomas S. Monson, “Decisions Determine Destiny” (Church Educational System fireside for young adults, Nov. 6, 2005), [institute.lds.org](https://www.churchofjesuschrist.org/si/institute).
+[^1]: Thomas S. Monson, “Decisions Determine Destiny” (Church Educational System fireside for young adults, Nov. 6, 2005), [institute.lds.org](https://www.churchofjesuschrist.org/si/institute).
 
 [^2]: See “The Family: A Proclamation to the World,” *Liahona* and *Ensign,* Nov. 2010, 129.
 
-[^3]: [[2 Nephi 2.27|2 Nephi 2:27, 28]][[2 Nephi 2.28|]]; emphasis added.
+[^3]: [[2 Nephi 2.27|2 Nephi 2:27, 28]][[2 Nephi 2.28|]]; emphasis added.
 
 [^4]: [[John 14.6|John 14:6]].
 
-[^5]: Dieter F. Uchtdorf, in Conference Report, Apr. 2008, 59; or *Ensign,* May 2008, 59.
+[^5]: Dieter F. Uchtdorf, in Conference Report, Apr. 2008, [[2008 April - A Matter of a Few Degrees.md|59]]; or *Ensign,* May 2008, 59.
 
 [^6]: See [[Alma 5.33|Alma 5:33]].
 
+[^7]: See [[D&C 58.42|Doctrine and Covenants 58:42]].
 
-
-
-#Accountability #Agency

@@ -1,6 +1,8 @@
 # A Home Where the Spirit of the Lord Dwells
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Ulisses Soares
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -16,7 +18,7 @@ That miraculous feeling is what we all want in our homes. It is a feeling that c
 
 My purpose today is to teach what I know of how we can qualify for that feeling more often and invite it to last longer in our families. As you know from experience, that is not easy to do. Contention, pride, and sin have to be kept at bay. The pure love of Christ must come into the hearts of those in our family.
 
-Adam and Eve, Lehi and Sariah, and other parents we know from scripture found that to be a hard challenge. Yet there are encouraging examples of sustained felicity in families and homes to reassure us. And those examples let us see the way it can happen for us and our families. You remember the account from 4 Nephi:
+Adam and Eve, Lehi and Sariah, and other parents we know from scripture found that to be a hard challenge. Yet there are encouraging examples of sustained felicity in families and homes to reassure us. And those examples let us see the way it can happen for us and our families. You remember the account from 4 Nephi:
 
 “And it came to pass that there was no contention in the land, because of the love of God which did dwell in the hearts of the people.
 
@@ -26,7 +28,7 @@ Adam and Eve, Lehi and Sariah, and other parents we know from scripture found th
 
 “And how blessed were they! For the Lord did bless them in all their doings; yea, even they were blessed and prospered until an hundred and ten years had passed away; and the first generation from Christ had passed away, and there was no contention in all the land.”[^2]
 
-As you know, that happy time did not endure forever. The account in 4 Nephi describes the eventual symptoms of spiritual decline among a group of good people. It is a pattern that has appeared over the ages in entire peoples, in congregations, and, most sadly, in families. By studying that pattern, we can see how we might protect and even increase the feelings of love in our family.
+As you know, that happy time did not endure forever. The account in 4 Nephi describes the eventual symptoms of spiritual decline among a group of good people. It is a pattern that has appeared over the ages in entire peoples, in congregations, and, most sadly, in families. By studying that pattern, we can see how we might protect and even increase the feelings of love in our family.
 
 Here is the pattern of decline that appeared after 200 years of living in the perfect peace the gospel brings:
 
@@ -54,7 +56,7 @@ You will best lead by example. Family members and others must see you growing in
 
 ## Growing in Faith
 
-Your faith in the Savior has grown as you followed President Russell M. Nelson’s suggestion to reread the Book of Mormon. You marked passages and words that referred to the Savior. Your faith in Jesus Christ grew. But like a new plant, such faith in Jesus Christ will wither unless you find continued resolve to ponder and pray to increase it.
+Your faith in the Savior has grown as you followed President Russell M. Nelson’s suggestion to reread the Book of Mormon. You marked passages and words that referred to the Savior. Your faith in Jesus Christ grew. But like a new plant, such faith in Jesus Christ will wither unless you find continued resolve to ponder and pray to increase it.
 
 Your example of growing in faith may not be followed by all members of your family now. But take heart from the experience of Alma the Younger. In his painful need for repentance and forgiveness, he remembered his father’s faith in Jesus Christ. Your children may remember your faith in the Savior at a moment when they desperately need repentance. Alma said of such a moment:
 
@@ -100,25 +102,20 @@ Some have tried with full heart for that blessing, yet it has not been granted. 
 
 I believe that he would extend that happy hope to any of us in mortality who have done all we can to qualify ourselves and our family members for eternal life. I know that Heavenly Father’s plan is a plan of happiness. I testify that His plan makes it possible for each of us who has done the best we can to be sealed in a family forever.
 
-I know that the priesthood keys restored to Joseph Smith were passed on in an unbroken line to President Russell M. Nelson. Those keys make possible the sealing of families today. I know that Heavenly Father loves us, His spirit children, with a perfect love. I know that because of the Atonement of Jesus Christ, we can repent, be cleansed, and become worthy to live in loving families forever with our Heavenly Father and with His Beloved Son, Jesus Christ. I so testify in the name of Jesus Christ, amen.
+I know that the priesthood keys restored to Joseph Smith were passed on in an unbroken line to President Russell M. Nelson. Those keys make possible the sealing of families today. I know that Heavenly Father loves us, His spirit children, with a perfect love. I know that because of the Atonement of Jesus Christ, we can repent, be cleansed, and become worthy to live in loving families forever with our Heavenly Father and with His Beloved Son, Jesus Christ. I so testify in the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[Romans 8.6|Romans 8:6]].
 
-[^2]: [[4 Nephi 1.15|4 Nephi 1:15–18]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]].
+[^2]: [[4 Nephi 1.15|4 Nephi 1:15–18]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]].
 
 [^3]: [[Mosiah 5.2|Mosiah 5:2]].
 
 [^4]: [[Alma 36.17|Alma 36:17–19]][[Alma 36.18|]][[Alma 36.19|]].
 
-[^5]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 391–98.
+[^5]: See *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-34?lang=eng)* (2007), 391–98.
 
-[^6]: See *Teachings of Presidents of the Church: Ezra Taft Benson* (2014), 167.
+[^6]: See *[Teachings of Presidents of the Church: Ezra Taft Benson](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-ezra-taft-benson/chapter-13-priceless-blessings-of-the-house-of-the-lord?lang=eng&id=intro1#intro1)* (2014), 167.
 
-
-
-
-
-#Faith #Family #Home #Prayer #Repentance #Temples

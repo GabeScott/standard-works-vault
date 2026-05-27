@@ -1,6 +1,8 @@
 # Priesthood Responsibilities
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Harold B. Lee
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -20,7 +22,7 @@ If the father will love God, love his wife, love his family, and honor his pries
 
 Keep the Sabbath day holy. Keep the Word of Wisdom strictly. Pray always, and be honest with one another and with your fellowmen. Study the gospel. Know what is expected of us, why we are here, that we are actually spirit children of God, and as such we must keep ourselves morally clean. And that is one thing, fathers, that we should teach our boys to do.
 
-I should like to give you, as I speak about the family and fathers, an example by reading what Sister McKay said about President David O. McKay: “I am very, very proud of my husband. He is just as lovely, just as courteous, just as polite, just as kind and just as sweet in our home as he is anywhere else, and I am very proud of him. And I am grateful for him. I cannot see anything wrong with him. I pray that our brethren will try to follow his example in every way, shape, and form.”
+I should like to give you, as I speak about the family and fathers, an example by reading what Sister McKay said about President David O. McKay: “I am very, very proud of my husband. He is just as lovely, just as courteous, just as polite, just as kind and just as sweet in our home as he is anywhere else, and I am very proud of him. And I am grateful for him. I cannot see anything wrong with him. I pray that our brethren will try to follow his example in every way, shape, and form.”
 
 And I can’t think of much better advice, brethren, for us to have.
 
@@ -83,8 +85,3 @@ May the Lord help us to appreciate who we are and to live accordingly, realizing
 
 
 
-
-
-
-
-#Priesthood

@@ -5,5 +5,5 @@
 [Joseph Smith History 1:2](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.2?lang=eng#p2)
 
 
-[^a]: JS—H 1:60.
-[^b]: [[D&C 20.1|D&C 20:1.]]
+[^a]: [[Joseph Smith History 1.60|JS—H 1:60]].  
+[^b]: [[D&C 20.1|D&C 20:1]].  

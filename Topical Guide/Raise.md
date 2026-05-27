@@ -1,6 +1,5 @@
 # Raise
 
-
 *See also* [[Rear.md|Rear]]
 
 for this cause have I *raised* thee up, [[Exodus 9.16|Exodus 9:16]] ([[Romans 9.17|Romans 9:17]]).
@@ -51,7 +50,7 @@ God of our fathers *raised* up Jesus, [[Acts 5.30|Acts 5:30]].
 
 Him God *raised* up the third day, [[Acts 10.40|Acts 10:40]].
 
-God ... *raised* unto Israel a Saviour, [[Acts 13.23|Acts 13:23]].
+God … *raised* unto Israel a Saviour, [[Acts 13.23|Acts 13:23]].
 
 he, whom God *raised* again, saw no corruption, [[Acts 13.37|Acts 13:37]].
 
@@ -71,7 +70,7 @@ it is *raised* in incorruption, [[1 Corinthians 15.42|1 Corinthians 15:42]].
 
 when he *raised* him from the dead, [[Ephesians 1.20|Ephesians 1:20]].
 
-Jesus Christ ... was *raised* from the dead, [[2 Timothy 2.8|2 Timothy 2:8]].
+Jesus Christ … was *raised* from the dead, [[2 Timothy 2.8|2 Timothy 2:8]].
 
 God was able to *raise* him up, [[Hebrews 11.19|Hebrews 11:19]].
 
@@ -97,9 +96,9 @@ may God *raise* you from death, [[2 Nephi 10.25|2 Nephi 10:25]].
 
 serpent which he did *raise* up before them, [[2 Nephi 25.20|2 Nephi 25:20]].
 
-if I will ... *raise* up seed unto me, [[Jacob 2.30|Jacob 2:30]].
+if I will … *raise* up seed unto me, [[Jacob 2.30|Jacob 2:30]].
 
-Lord ... shall go forth ... *raising* the dead, [[Mosiah 3.5|Mosiah 3:5]].
+Lord … shall go forth … *raising* the dead, [[Mosiah 3.5|Mosiah 3:5]].
 
 view this mortal body *raised* in immortality, [[Alma 5.15|Alma 5:15]].
 
@@ -111,7 +110,7 @@ resurrection, the *raising* of the spirit or the soul, [[Alma 40.15|Alma 40:15]]
 
 mortality *raised* to immortality, [[Alma 41.4|Alma 41:4]].
 
-taught ... never to *raise* the sword, [[Alma 48.14|Alma 48:14]].
+taught … never to *raise* the sword, [[Alma 48.14|Alma 48:14]].
 
 he did *raise* the standard of liberty, [[Alma 62.4|Alma 62:4]].
 
@@ -119,11 +118,11 @@ say unto this mountain—Be thou *raised* up, [[Helaman 12.17|Helaman 12:17]].
 
 his brother did he *raise* from the dead, [[3 Nephi 7.19|3 Nephi 7:19]].
 
-whoso remembereth these sayings ... will I *raise* up at the last day, [[3 Nephi 15.1|3 Nephi 15:1]].
+whoso remembereth these sayings … will I *raise* up at the last day, [[3 Nephi 15.1|3 Nephi 15:1]].
 
 they did heal the sick, and *raise* the dead, [[4 Nephi 1.5|4 Nephi 1:5]].
 
-have hope ... to be *raised* unto life eternal, [[Moroni 7.41|Moroni 7:41]].
+have hope … to be *raised* unto life eternal, [[Moroni 7.41|Moroni 7:41]].
 
 he might be *raised* in immortality unto eternal life, [[D&C 29.43|D&C 29:43]].
 

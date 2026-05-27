@@ -1,6 +1,8 @@
 # Exceeding Great and Precious Promises
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Sharon Eubank
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -46,13 +48,13 @@ Understandably, all of the exceeding great and precious promises Heavenly Father
 
 ## Remembering the Promises
 
-President Lorenzo Snow warned, “We are too apt to forget the great object of life, the motive of our Heavenly Father in sending us here to put on mortality, as well as the holy calling with which we have been called; and hence, instead of rising above the little transitory things … , we too often allow ourselves to come down to the level of the world without availing ourselves of the divine help which God has instituted, which alone can enable us to overcome \[those transitory things\].”[^16]
+President Lorenzo Snow warned, “We are too apt to forget the great object of life, the motive of our Heavenly Father in sending us here to put on mortality, as well as the holy calling with which we have been called; and hence, instead of rising above the little transitory things … , we too often allow ourselves to come down to the level of the world without availing ourselves of the divine help which God has instituted, which alone can enable us to overcome \[those transitory things\].”[^16]
 
 The Sabbath day and the holy temple are two specific sources of divine help instituted by God to assist us in rising above the level and corruption of the world. We initially may think that the overarching purposes of keeping the Sabbath day holy and attending the temple are related but distinctive. I believe, however, that those two purposes are precisely the same and work together to strengthen us spiritually as individuals and in our homes.
 
 ### The Sabbath
 
-After God created all things, He rested on the seventh day and commanded that one day each week be a time of rest to help people remember Him.[^17] The Sabbath is God’s time, a **sacred time** specifically set apart for worshipping Him and for receiving and remembering His great and precious promises.
+After God created all things, He rested on the seventh day and commanded that one day each week be a time of rest to help people remember Him.[^17] The Sabbath is God’s time, a ***sacred time*** specifically set apart for worshipping Him and for receiving and remembering His great and precious promises.
 
 The Lord has directed in this dispensation:
 
@@ -66,7 +68,7 @@ An additional purpose of the Sabbath is to elevate our vision from the things of
 
 ### The Holy Temple
 
-The Lord always has commanded His people to build temples, holy places in which worthy Saints perform sacred gospel ceremonies and ordinances for themselves and for the dead. Temples are the most holy of all places of worship. A temple literally is the house of the Lord, a **sacred space** specifically set apart for worshipping God and for receiving and remembering His great and precious promises.
+The Lord always has commanded His people to build temples, holy places in which worthy Saints perform sacred gospel ceremonies and ordinances for themselves and for the dead. Temples are the most holy of all places of worship. A temple literally is the house of the Lord, a ***sacred space*** specifically set apart for worshipping God and for receiving and remembering His great and precious promises.
 
 The Lord has directed in this dispensation, “Organize yourselves; prepare every needful thing; and establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God.”[^21] The principal focus of temple worship is participating in ordinances and learning about, receiving, and remembering covenants. We think, act, and dress differently in the temple than in other spaces that we may frequent.
 
@@ -76,7 +78,7 @@ Please note that the Sabbath day and the temple, respectively, are a *sacred tim
 
 ### Our Homes
 
-Importantly, a home should be the ultimate combination of **time and space** wherein individuals and families remember most effectively God’s great and precious promises. Leaving our homes to spend time in Sunday meetings and to enter the sacred space of a temple is vital but insufficient. Only as we bring the spirit and strength derived from those holy activities back with us into our homes can we sustain our focus upon the great purposes of mortal life and overcome the corruption that is in the world. Our Sabbath and temple experiences should be spiritual catalysts that imbue individuals and families and our homes with continual reminders of key lessons learned, with the presence and power of the Holy Ghost, with ongoing and deepening conversion to the Lord Jesus Christ, and with “a perfect brightness of hope”[^23] in God’s eternal promises.
+Importantly, a home should be the ultimate combination of ***time and space*** wherein individuals and families remember most effectively God’s great and precious promises. Leaving our homes to spend time in Sunday meetings and to enter the sacred space of a temple is vital but insufficient. Only as we bring the spirit and strength derived from those holy activities back with us into our homes can we sustain our focus upon the great purposes of mortal life and overcome the corruption that is in the world. Our Sabbath and temple experiences should be spiritual catalysts that imbue individuals and families and our homes with continual reminders of key lessons learned, with the presence and power of the Holy Ghost, with ongoing and deepening conversion to the Lord Jesus Christ, and with “a perfect brightness of hope”[^23] in God’s eternal promises.
 
 The Sabbath and the temple can help us to establish in our homes “a more excellent way”[^24] as we “gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him.”[^25] What we do in our homes with His *sacred time* and with what we learn in His *sacred space* is pivotal to becoming partakers of the divine nature.
 
@@ -101,9 +103,9 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 
 [^1]: See [[D&C 25.10|Doctrine and Covenants 25:10]].
 
-[^2]: [[2 Peter 1.3|2 Peter 1:3–4]][[2 Peter 1.4|]]; emphasis added.
+[^2]: [[2 Peter 1.3|2 Peter 1:3–4]][[2 Peter 1.4|]]; emphasis added.
 
-[^3]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^3]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
 [^4]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
@@ -111,13 +113,13 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 
 [^6]: [[Mosiah 27.25|Mosiah 27:25]].
 
-[^7]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^7]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
 [^8]: [[D&C 93.12|Doctrine and Covenants 93:12]].
 
-[^9]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^9]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-[^10]: See [[Moroni 2.2|Moroni 2:2]]; Guide to the Scriptures, “[Holy Ghost](https://churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng),” scriptures.lds.org.
+[^10]: See [[Moroni 2.2|Moroni 2:2]]; Guide to the Scriptures, “[Holy Ghost](https://www.churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng),” scriptures.lds.org.
 
 [^11]: See [[Mosiah 4.10|Mosiah 4:10–12]][[Mosiah 4.11|]][[Mosiah 4.12|]].
 
@@ -129,13 +131,13 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 
 [^15]: [[D&C 18.40|Doctrine and Covenants 18:40]].
 
-[^16]: [Teachings of Presidents of the Church: Lorenzo Snow](https://churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-lorenzo-snow/chapter-6-becoming-perfect-before-the-lord-a-little-better-day-by-day?lang=eng) (2012), 101–2.
+[^16]: [Teachings of Presidents of the Church: Lorenzo Snow](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-lorenzo-snow/chapter-6-becoming-perfect-before-the-lord-a-little-better-day-by-day?lang=eng) (2012), 101–2.
 
 [^17]: See [[Exodus 20.8|Exodus 20:8–11]][[Exodus 20.9|]][[Exodus 20.10|]][[Exodus 20.11|]].
 
 [^18]: [[D&C 59.9|Doctrine and Covenants 59:9–10]][[D&C 59.10|]].
 
-[^19]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona,* May 2015, 130.
+[^19]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona,* May 2015, 130.
 
 [^20]: [[Alma 37.47|Alma 37:47]]; see also [[Alma 37.46|Alma 37:46]].
 
@@ -143,9 +145,9 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 
 [^22]: [[Alma 37.47|Alma 37:47]].
 
-[^23]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^23]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^24]: [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Ether 12.11|Ether 12:11]].
+[^24]: [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Ether 12.11|Ether 12:11]].
 
 [^25]: [[Ephesians 1.10|Ephesians 1:10]].
 
@@ -161,8 +163,3 @@ I witness that our Heavenly Father lives and is the author of the plan of salvat
 
 [^31]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-
-
-
-
-#Covenants #Divine_Nature #Home #Ordinances #Sabbath #Temples

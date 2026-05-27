@@ -1,5 +1,7 @@
 # The Works of God
 
+Gordon B. Hinckley
+
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -38,13 +40,13 @@ The handiwork of God is manifest with respect to the handicapped in many ways. I
 
 Many of the special ones are superior in many ways. They, too, are in a life of progression, and new things unfold for them each day as with us all. They can be extraordinary in their faith and spirit. Some are able, through their prayers, to communicate with the infinite in a most remarkable way. Many have a pure faith in others and a powerful belief in God. They can give their spiritual strength to others around them.
 
-For the handicapped, trying to cope with life is often like trying to reach the unreachable. But recall the words of the Prophet Joseph Smith: “All the minds and spirits that God ever sent into the world are susceptible of enlargement.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 354.) Certainly, in the infinite mercy of God, those with physical and mental limitations will not remain so after the Resurrection. At this time, Alma says, “the spirit and the body shall be reunited again in its perfect form; both limb and joint shall be restored to its proper frame.” ([[Alma 11.43|Alma 11:43]].) Afflictions, like mortality, are temporary.
+For the handicapped, trying to cope with life is often like trying to reach the unreachable. But recall the words of the Prophet Joseph Smith: “All the minds and spirits that God ever sent into the world are susceptible of enlargement.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 354.) Certainly, in the infinite mercy of God, those with physical and mental limitations will not remain so after the Resurrection. At this time, Alma says, “the spirit and the body shall be reunited again in its perfect form; both limb and joint shall be restored to its proper frame.” ([[Alma 11.43|Alma 11:43]].) Afflictions, like mortality, are temporary.
 
 Surely more sharing of the burden will contribute to the emotional salvation of the person who is the primary caregiver. Just an hour of help now and then would be appreciated. One mother of a child who is handicapped said, “I could never dream of going to Hawaii on a vacation; all I can hope for is to have an evening away from home.”
 
 The Savior’s teaching that handicaps are not punishment for sin, either in the parents or the handicapped, can also be understood and applied in today’s circumstances. How can it possibly be said that an innocent child born with a special problem is being punished? Why should parents who have kept themselves free from social disease, addicting chemicals, and other debilitating substances which might affect their offspring imagine that the birth of a disabled child is some form of divine disapproval? Usually, both the parents and the children are blameless. The Savior of the world reminds us that God “maketh his sun to rise on the evil and on the good, and sendeth rain on the just and on the unjust.” ([[Matthew 5.45|Matt. 5:45]].)
 
-May I express a word of gratitude and appreciation to those many who minister with such kindness and skill to our handicapped people. Special commendation belongs to parents and family members who have cared for their own children with special needs in the loving atmosphere of their own home. The care of those who are diminished is a special service rendered to the Master himself, for “inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
+May I express a word of gratitude and appreciation to those many who minister with such kindness and skill to our handicapped people. Special commendation belongs to parents and family members who have cared for their own children with special needs in the loving atmosphere of their own home. The care of those who are diminished is a special service rendered to the Master himself, for “inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
 
 Parents of handicapped children are occasionally embarrassed or hurt by others who awkwardly express sympathy but cannot know or appreciate the depth of the parents’ love for a handicapped child. Perhaps there is some comparison in the fact that there is no less love in families for the helpless infant who must be fed, bathed, and diapered than for the older but still dependent members. We love those we serve and who need us.
 
@@ -52,9 +54,9 @@ Is it not possible to look beyond the canes, the wheelchairs, the braces, and th
 
 Those who are close to the handicapped can frequently feel the nobility of the spirits who are confined in differently shaped bodies or who have crippled minds.
 
-May I also say a word of comfort for the anguished parents of children who have lost their way and have turned a deaf ear to parental pleading and teaching. While much of the time most children follow in their parents’ footsteps—obedient to their teachings, reciprocating their love—a few turn their backs like the prodigal son and waste their lives. The great principle of free agency is essential in fostering development, growth, and progress. It also permits the freedom to choose self-indulgence, wastefulness, and degradation. Children have their agency and often express it when very young. They may or may not follow the teachings and wishes of their parents. Most parents do the best they know how, but also understand well the words of Lehi: “Hear the words of a trembling parent.” ([[2 Nephi 1.14|2 Ne. 1:14]].)
+May I also say a word of comfort for the anguished parents of children who have lost their way and have turned a deaf ear to parental pleading and teaching. While much of the time most children follow in their parents’ footsteps—obedient to their teachings, reciprocating their love—a few turn their backs like the prodigal son and waste their lives. The great principle of free agency is essential in fostering development, growth, and progress. It also permits the freedom to choose self-indulgence, wastefulness, and degradation. Children have their agency and often express it when very young. They may or may not follow the teachings and wishes of their parents. Most parents do the best they know how, but also understand well the words of Lehi: “Hear the words of a trembling parent.” ([[2 Nephi 1.14|2 Ne. 1:14]].)
 
-We are indebted to Elder Howard W. Hunter for these wise words: “A successful parent is one who has loved, one who has sacrificed, and one who has cared for, taught, and ministered to the needs of a child. If you have done all of these and your child is still wayward or troublesome or worldly, it could well be that you are, nevertheless, a successful parent. Perhaps there are children who have come into the world that would challenge any set of parents under any set of circumstances. Likewise, perhaps there are others who would bless the lives of, and be a joy to, almost any father or mother.” (*Ensign,* Nov. 1983, p. 65.)
+We are indebted to Elder Howard W. Hunter for these wise words: “A successful parent is one who has loved, one who has sacrificed, and one who has cared for, taught, and ministered to the needs of a child. If you have done all of these and your child is still wayward or troublesome or worldly, it could well be that you are, nevertheless, a successful parent. Perhaps there are children who have come into the world that would challenge any set of parents under any set of circumstances. Likewise, perhaps there are others who would bless the lives of, and be a joy to, almost any father or mother.” (*Ensign,* Nov. 1983, p. 65.)
 
 As caring parents we do the best we can. I am hopeful that in parenting God will judge at least partially by the intent of the parental hearts. Children have so much to learn. Parents need to teach their children so many things. They are commanded to teach their children specifically “the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old.” ([[D&C 68.25|D&C 68:25]].) But, having lived by these truths and having taught them in their home, parents cannot always ensure their children’s good behavior. Said Ezekiel, “The son shall not bear the iniquity of the father, neither shall the father bear the iniquity of the son.” ([[Ezekiel 18.20|Ezek. 18:20]].)
 
@@ -69,8 +71,3 @@ I bear witness that Jesus is the Christ, the Savior of the world and the Redeeme
 
 
 
-
-
-
-
-#Adversity #Disabilities #Family #Tolerance

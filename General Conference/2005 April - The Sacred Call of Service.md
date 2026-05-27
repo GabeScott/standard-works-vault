@@ -1,5 +1,7 @@
 # The Sacred Call of Service
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -125,7 +127,5 @@ My sincere prayer is that all of us may qualify for this divine promise, in the 
 
 [^10]: In Conference Report, Mexico City Mexico Area Conference 1972, 77.
 
+[^11]: [[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]].
 
-
-
-#Activation #Covenants #Duty #Priesthood #Service

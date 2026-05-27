@@ -1,6 +1,8 @@
 # The Impact Teacher
 
-By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -14,7 +16,7 @@ In Ezekiel we read:
 
 As we near the close of this momentous conference, I would like to address my remarks to all who teach. I would like to discuss the role of the “impact teacher.”
 
-President David O. McKay said, “There is no greater responsibility in the world than the training of a human soul.” A great part of the personal stewardship of every parent and teacher in the Church is to teach and train. How well we fill this divinely commissioned task may well have eternal implications for many.
+President David O. McKay said, “There is no greater responsibility in the world than the training of a human soul.” A great part of the personal stewardship of every parent and teacher in the Church is to teach and train. How well we fill this divinely commissioned task may well have eternal implications for many.
 
 One of America’s philosophers, John Dewey, said, “The deepest urge in human nature is the desire to be important. It is a gnawing, unfaltering hunger. People sometimes become invalids in order to win sympathy and to get a feeling of importance. Some authorities declare that people may actually go insane in order to find, in that dreamland of insanity, the feeling of importance that has been denied them in the harsh world of reality.”
 
@@ -99,7 +101,7 @@ The impact teacher cares with an attitude of pure charity. The impact teacher as
 
 In 1966 President Kimball addressed the seminary and institute teachers and supervisors. He titled his talk, “What I Hope You Will Teach My Grandchildren.” His talk was filled with profound truths. Every teacher in the Church should read and apply it:
 
-“So I salute you, the trainers and inspirers of youth. Your responsibility is awesome. Your opportunities to become saviors near limitless. We do not excuse the parents in their failures, but we must place the burden upon your strong backs to carry on. It must be brilliant and effective. …
+“So I salute you, the trainers and inspirers of youth. Your responsibility is awesome. Your opportunities to become saviors near limitless. We do not excuse the parents in their failures, but we must place the burden upon your strong backs to carry on. It must be brilliant and effective. …
 
 “I’m depending on you to teach my offspring. I have twenty-six grandchildren. One died an infant and went to the Celestial Kingdom. Two are married and finished with their conventional schooling. But we still have twenty-three to be taught by you. … Now you can see why I’m so concerned about the men who will be employed … and why I hope they will be men of valor and faith, of forcefulness and courage, and of example. However, I expect nothing more for my own than for the other multitudes of Latter-day Saint youth.”
 
@@ -132,8 +134,3 @@ Our youth will hear the classical music of the gospel, and if they have an impac
 
 
 
-
-
-
-
-#Teaching #Youth

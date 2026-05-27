@@ -1,5 +1,7 @@
 # Reaching Down to Lift Another
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2001 General Conference*
@@ -10,7 +12,7 @@ By President Gordon B. Hinckley - *President of the Church*
 
 Now, my dear brethren, as I face this great body of men in this hall and realize there are tens of thousands more scattered across the world, all of one mind and of one heart and all carrying the authority of the priesthood of the Living God, I am subdued and humbled. I seek the guidance of the Holy Spirit.
 
-This body is unique in all the world. There is nothing else like it. You comprise the legions of the Lord, men ready to do battle with the adversary of truth, men willing to stand up and be counted, men who carry testimonies of the truth, men who have sacrificed and given much for this great cause. May the Lord bless you and sustain you and magnify you. “Ye are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]).
+This body is unique in all the world. There is nothing else like it. You comprise the legions of the Lord, men ready to do battle with the adversary of truth, men willing to stand up and be counted, men who carry testimonies of the truth, men who have sacrificed and given much for this great cause. May the Lord bless you and sustain you and magnify you. “Ye are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 Brethren, let us be worthy of the priesthood which we hold. Let us live nearer to the Lord. Let us be good husbands and fathers.
 
@@ -121,8 +123,3 @@ I so pray in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Anger #Commandments #Education #Home #Love #Priesthood #Worthiness

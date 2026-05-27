@@ -1,13 +1,12 @@
 # Eternal
 
-
 *See also* [[Eternal Life.md|Eternal Life]]; [[Everlasting.md|Everlasting]]; [[Family, Eternal.md|Family, Eternal]]; [[God, Eternal Nature of.md|God, Eternal Nature of]]
 
 in danger of *eternal* damnation, [[Mark 3.29|Mark 3:29]].
 
 even his *eternal* power and Godhead, [[Romans 1.20|Romans 1:20]].
 
-unto the King *eternal* ... be honour, [[1 Timothy 1.17|1 Timothy 1:17]].
+unto the King *eternal* … be honour, [[1 Timothy 1.17|1 Timothy 1:17]].
 
 became the author of *eternal* salvation, [[Hebrews 5.9|Hebrews 5:9]].
 
@@ -29,14 +28,14 @@ a straight course to *eternal* bliss, [[Alma 37.44|Alma 37:44]].
 
 a punishment, which also was *eternal*, [[Alma 42.16|Alma 42:16]].
 
-*Eternal* punishment is God's punishment, [[D&C 19.11|D&C 19:11]].
+*Eternal* punishment is God’s punishment, [[D&C 19.11|D&C 19:11]].
 
 God in heaven, who is infinite and *eternal*, [[D&C 20.17|D&C 20:17]].
 
-earth, in its ... *eternal* state, [[D&C 77.1|D&C 77:1]].
+earth, in its … *eternal* state, [[D&C 77.1|D&C 77:1]].
 
 elements are *eternal*, [[D&C 93.33|D&C 93:33]].
 
 reap *eternal* joy for all our sufferings, [[D&C 109.76|D&C 109:76]].
 
-bind on earth ... *eternally* bound in the heavens, [[D&C 132.46|D&C 132:46]].
+bind on earth … *eternally* bound in the heavens, [[D&C 132.46|D&C 132:46]].

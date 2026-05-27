@@ -1,5 +1,7 @@
 # Alternate Voices
 
+Ezra Taft Benson
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -12,7 +14,7 @@ At other times I have seen lambs lost in a moving herd of sheep. A great chorus 
 
 From among the chorus of voices we hear in mortality, we must recognize the voice of the Good Shepherd, who calls us to follow him toward our heavenly home.
 
-As Paul said to the Corinthians, “There are … so many kinds of voices in the world, and none of them is without signification.” ([[1 Corinthians 14.10|1 Cor. 14:10]].)
+As Paul said to the Corinthians, “There are … so many kinds of voices in the world, and none of them is without signification.” ([[1 Corinthians 14.10|1 Cor. 14:10]].)
 
 Some voices speak of the things of the world, providing the useful information we need to make our way in mortality. I will make no further reference to these voices. My remarks will refer to those voices that speak of God, of his commandments, and of the doctrines, ordinances, and practices of his church. Some of those who speak on these subjects have been called and given divine authority to do so. Others, whom I choose to call alternate voices, speak on these subjects without calling or authority.
 
@@ -22,9 +24,9 @@ Some alternate voices are those of well-motivated men and women who are merely t
 
 Other alternate voices are pursuing selfish personal interests, such as property, pride, prominence, or power. Other voices are the bleatings of lost souls who cannot hear the voice of the Shepherd and trot about trying to find their way without his guidance. Some of these voices call out guidance for others—the lost leading the lost.
 
-Some alternate voices are of those whose avowed or secret object is to deceive and devour the flock. The Good Shepherd warned, “Beware of false prophets, which come to you in sheep’s clothing, but inwardly they are ravening wolves.” ([[Matthew 7.15|Matt. 7:15]]; see also [[3 Nephi 14.15|3 Ne. 14:15]].) In both the Bible and the Book of Mormon the Savior charged his shepherds to watch over and protect the flock from such wolves. (See [[Acts 20.28|Acts 20:28–29]][[Acts 20.29|]]; [[Alma 5.59|Alma 5:59]].)
+Some alternate voices are of those whose avowed or secret object is to deceive and devour the flock. The Good Shepherd warned, “Beware of false prophets, which come to you in sheep’s clothing, but inwardly they are ravening wolves.” ([[Matthew 7.15|Matt. 7:15]]; see also [[3 Nephi 14.15|3 Ne. 14:15]].) In both the Bible and the Book of Mormon the Savior charged his shepherds to watch over and protect the flock from such wolves. (See [[Acts 20.28|Acts 20:28–29]][[Acts 20.29|]]; [[Alma 5.59|Alma 5:59]].)
 
-There have always been alternate voices whose purpose or effect is to deceive. Their existence is part of the Plan. The prophet Lehi taught that there “must needs be … an opposition in *all* things.” ([[2 Nephi 2.11|2 Ne. 2:11]]; italics added.) And there have always been other alternate voices whose purpose or effect is unselfish and wholesome.
+There have always been alternate voices whose purpose or effect is to deceive. Their existence is part of the Plan. The prophet Lehi taught that there “must needs be … an opposition in *all* things.” ([[2 Nephi 2.11|2 Ne. 2:11]]; italics added.) And there have always been other alternate voices whose purpose or effect is unselfish and wholesome.
 
 In most instances, alternate voices are heard in the same kinds of communications the Church uses to perform its mission. The Church has magazines and other official publications, a newspaper supplement, letters from Church leaders, general conferences, and regular meetings and conferences in local units. Similarly, alternate voices are heard in magazines, journals, and newspapers and at lectures, symposia, and conferences.
 
@@ -60,7 +62,7 @@ We should also seek learning by faith in God, the giver of revelation. I believe
 
 The acquisition of knowledge by revelation is an extra bonus to seekers in the sciences and the arts, but it is the fundamental method for those who seek to know God and the doctrines of his gospel. In this area of knowledge, scholarship and reason are insufficient.
 
-A seeker of truth about God must rely on revelation. I believe this is what the Book of Mormon prophet meant when he said, “To be learned is good if they hearken unto the counsels of God.” ([[2 Nephi 9.29|2 Ne. 9:29]].) It is surely what the Savior taught when he said, “Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.17|Matt. 16:17]].)
+A seeker of truth about God must rely on revelation. I believe this is what the Book of Mormon prophet meant when he said, “To be learned is good if they hearken unto the counsels of God.” ([[2 Nephi 9.29|2 Ne. 9:29]].) It is surely what the Savior taught when he said, “Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.17|Matt. 16:17]].)
 
 The way to revelation is righteousness. Marveling at the Master’s teachings, his enemies asked:
 
@@ -70,9 +72,9 @@ The way to revelation is righteousness. Marveling at the Master’s teachings, h
 
 “If any man will do his will, he shall know of the doctrine, whether it be of God, or whether I speak of myself.” ([[John 7.15|John 7:15–17]][[John 7.16|]][[John 7.17|]].)
 
-The Book of Mormon teaches that those who diligently seek shall have “the mysteries of God … unfolded unto them, by the power of the Holy Ghost.” ([[1 Nephi 10.19|1 Ne. 10:19]]; see also [[1 Corinthians 2.4|1 Cor. 2:4–16]][[1 Corinthians 2.5|]][[1 Corinthians 2.6|]][[1 Corinthians 2.7|]][[1 Corinthians 2.8|]][[1 Corinthians 2.9|]][[1 Corinthians 2.10|]][[1 Corinthians 2.11|]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]][[1 Corinthians 2.15|]][[1 Corinthians 2.16|]]; [[Alma 18.35|Alma 18:35]]; [[D&C 121.26|D&C 121:26]].) The prophet Jacob declared the impossibility of uninspired man’s understanding God: “No man knoweth of his ways save it be revealed unto him; wherefore, brethren, despise not the revelations of God.” ([[Jacob 4.8|Jacob 4:8]].)
+The Book of Mormon teaches that those who diligently seek shall have “the mysteries of God … unfolded unto them, by the power of the Holy Ghost.” ([[1 Nephi 10.19|1 Ne. 10:19]]; see also [[1 Corinthians 2.4|1 Cor. 2:4–16]][[1 Corinthians 2.5|]][[1 Corinthians 2.6|]][[1 Corinthians 2.7|]][[1 Corinthians 2.8|]][[1 Corinthians 2.9|]][[1 Corinthians 2.10|]][[1 Corinthians 2.11|]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]][[1 Corinthians 2.15|]][[1 Corinthians 2.16|]]; [[Alma 18.35|Alma 18:35]]; [[D&C 121.26|D&C 121:26]].) The prophet Jacob declared the impossibility of uninspired man’s understanding God: “No man knoweth of his ways save it be revealed unto him; wherefore, brethren, despise not the revelations of God.” ([[Jacob 4.8|Jacob 4:8]].)
 
-The Lord’s prescribed methods of acquiring sacred knowledge are very different from the methods used by those who acquire learning exclusively by study. For example, a frequent technique of scholarship is debate or adversarial discussion, a method with which I have had considerable personal experience. But the Lord has instructed us in ancient and modern scriptures that we should not contend over the points of his doctrine. (See [[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]; [[D&C 10.63|D&C 10:63]].) Those who teach the gospel are instructed not to preach with “wrath” or “strife” ([[D&C 60.14|D&C 60:14]]; see also [[2 Timothy 2.23|2 Tim. 2:23–25]][[2 Timothy 2.24|]][[2 Timothy 2.25|]]), but in “mildness and in meekness” ([[D&C 38.41|D&C 38:41]]), “reviling not against revilers” ([[D&C 19.30|D&C 19:30]]). Similarly, techniques devised for adversary debate or to search out differences and work out compromises are not effective in acquiring gospel knowledge. Gospel truths and testimony are received from the Holy Ghost through reverent personal study and quiet contemplation.
+The Lord’s prescribed methods of acquiring sacred knowledge are very different from the methods used by those who acquire learning exclusively by study. For example, a frequent technique of scholarship is debate or adversarial discussion, a method with which I have had considerable personal experience. But the Lord has instructed us in ancient and modern scriptures that we should not contend over the points of his doctrine. (See [[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]; [[D&C 10.63|D&C 10:63]].) Those who teach the gospel are instructed not to preach with “wrath” or “strife” ([[D&C 60.14|D&C 60:14]]; see also [[2 Timothy 2.23|2 Tim. 2:23–25]][[2 Timothy 2.24|]][[2 Timothy 2.25|]]), but in “mildness and in meekness” ([[D&C 38.41|D&C 38:41]]), “reviling not against revilers” ([[D&C 19.30|D&C 19:30]]). Similarly, techniques devised for adversary debate or to search out differences and work out compromises are not effective in acquiring gospel knowledge. Gospel truths and testimony are received from the Holy Ghost through reverent personal study and quiet contemplation.
 
 In the scriptures, the Lord has specified how we learn by faith. We must be humble, cultivate faith, repent of our sins, serve our fellowmen, and keep the commandments of God. (See [[Ether 12.27|Ether 12:27]]; [[D&C 1.28|D&C 1:28]]; [[D&C 12.8|12:8]]; [[D&C 50.28|50:28]]; [[D&C 63.23|63:23]]; [[D&C 136.32|136:32–33]][[D&C 136.33|]].) As the Book of Mormon says, “Yea, he that repenteth and exerciseth faith, and bringeth forth good works, and prayeth continually without ceasing—unto such it is given to know the mysteries of God.” ([[Alma 26.22|Alma 26:22]].)
 
@@ -88,7 +90,7 @@ God has promised that if we ask him, we will “receive revelation upon revelati
 
 In our day we are experiencing an explosion of knowledge about the world and its people. But the people of the world are not experiencing a comparable expansion of knowledge about God and his plan for his children. On that subject, what the world needs is not more scholarship and technology but more righteousness and revelation.
 
-I long for the day prophesied by Isaiah when “the earth shall be full of the knowledge of the Lord.” ([[Isaiah 11.9|Isa. 11:9]]; [[2 Nephi 21.9|2 Ne. 21:9]].) In an inspired utterance, the Prophet Joseph Smith described the Lord’s “pouring down knowledge from heaven upon the heads of the Latter-day Saints.” ([[D&C 121.33|D&C 121:33]].) This will not happen for those whose “hearts are set so much upon the things of this world, and aspire to the honors of men.” ([[D&C 121.35|V. 35]].) Those who fail to learn and use “principles of righteousness” ([[D&C 121.36|V. 36]]) will be left to themselves to kick against those in authority, “to persecute the saints, and to fight against God” ([[D&C 121.38|V. 38]]). In contrast, the Lord makes this great promise to the faithful:
+I long for the day prophesied by Isaiah when “the earth shall be full of the knowledge of the Lord.” ([[Isaiah 11.9|Isa. 11:9]]; [[2 Nephi 21.9|2 Ne. 21:9]].) In an inspired utterance, the Prophet Joseph Smith described the Lord’s “pouring down knowledge from heaven upon the heads of the Latter-day Saints.” ([[D&C 121.33|D&C 121:33]].) This will not happen for those whose “hearts are set so much upon the things of this world, and aspire to the honors of men.” ([[D&C 121.35|V. 35]].) Those who fail to learn and use “principles of righteousness” ([[D&C 121.36|V. 36]]) will be left to themselves to kick against those in authority, “to persecute the saints, and to fight against God” ([[D&C 121.38|V. 38]]). In contrast, the Lord makes this great promise to the faithful:
 
 “The doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
 
@@ -99,8 +101,3 @@ I testify of these things in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Agency #Contention #Education #False_Doctrines #Obedience

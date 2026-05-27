@@ -1,6 +1,5 @@
 # Good
 
-
 *See also* [[Better.md|Better]]; [[Evil.md|Evil]]; [[Goodness.md|Goodness]]; [[Good Works.md|Good Works]]
 
 God saw the light, that it was *good*, [[Genesis 1.4|Genesis 1:4]] ([[Moses 2.4|Moses 2:4]]).
@@ -19,13 +18,13 @@ God meant it unto *good*, [[Genesis 50.20|Genesis 50:20]].
 
 out of that land unto a *good* land, [[Exodus 3.8|Exodus 3:8]].
 
-It is a *good* land which the Lord ... doth give us, [[Deuteronomy 1.25|Deuteronomy 1:25]].
+It is a *good* land which the Lord … doth give us, [[Deuteronomy 1.25|Deuteronomy 1:25]].
 
 for our *good* always, that he might preserve us alive, [[Deuteronomy 6.24|Deuteronomy 6:24]].
 
 when thou doest that which is *good* and right, [[Deuteronomy 12.28|Deuteronomy 12:28]].
 
-I have set before thee ... life and *good*, [[Deuteronomy 30.15|Deuteronomy 30:15]].
+I have set before thee … life and *good*, [[Deuteronomy 30.15|Deuteronomy 30:15]].
 
 that I may discern between *good* and bad, [[1 Kings 3.9|1 Kings 3:9]].
 
@@ -37,7 +36,7 @@ give thanks unto the Lord; for he is *good*, [[1 Chronicles 16.34|1 Chronicles 1
 
 hand of our God is upon all them for *good*, [[Ezra 8.22|Ezra 8:22]].
 
-none that doeth *good*, [[Psalms 14.1|Psalms 14:1]] ([[Psalms 14.3|Psalms 14:3]]; [[Psalms 53.1|Psalms 53:1]], [[Psalms 53.3|Psalms 53:3]]; [[Romans 3.12|Romans 3:12]]).
+none that doeth *good*, [[Psalms 14.1|Psalms 14:1]] ([[Psalms 14.3|Psalms 14:3]]; [[Psalms 53.1|Psalms 53:1]]; [[Psalms 53.3|Psalms 53:3]]; [[Romans 3.12|Romans 3:12]]).
 
 taste and see that the Lord is *good*, [[Psalms 34.8|Psalms 34:8]].
 
@@ -105,7 +104,7 @@ likened unto a man which sowed *good* seed, [[Matthew 13.24|Matthew 13:24]].
 
 *Good* Master, what *good* thing shall I do, [[Matthew 19.16|Matthew 19:16]] ([[Mark 10.17|Mark 10:17]]; [[Luke 18.18|Luke 18:18]]).
 
-none *good* but ... God, [[Matthew 19.17|Matthew 19:17]] ([[Mark 10.18|Mark 10:18]]; [[Luke 18.19|Luke 18:19]]).
+none *good* but … God, [[Matthew 19.17|Matthew 19:17]] ([[Mark 10.18|Mark 10:18]]; [[Luke 18.19|Luke 18:19]]).
 
 Is thine eye evil, because I am *good*, [[Matthew 20.15|Matthew 20:15]].
 
@@ -119,7 +118,7 @@ on earth peace, *good* will toward men, [[Luke 2.14|Luke 2:14]].
 
 if ye do *good* to them which do *good* to you, [[Luke 6.33|Luke 6:33]].
 
-*good* man out of the *good* treasure of his heart bringeth forth ... *good*, [[Luke 6.45|Luke 6:45]].
+*good* man out of the *good* treasure of his heart bringeth forth … *good*, [[Luke 6.45|Luke 6:45]].
 
 Mary hath chosen that *good* part, [[Luke 10.42|Luke 10:42]].
 
@@ -139,7 +138,7 @@ he did *good*, and gave us rain from heaven, [[Acts 14.17|Acts 14:17]].
 
 I consent unto the law that it is *good*, [[Romans 7.16|Romans 7:16]].
 
-I know that in me ... dwelleth no *good* thing, [[Romans 7.18|Romans 7:18]].
+I know that in me … dwelleth no *good* thing, [[Romans 7.18|Romans 7:18]].
 
 For the *good* that I would I do not, [[Romans 7.19|Romans 7:19]].
 
@@ -165,7 +164,7 @@ stablish you in every *good* word and work, [[2 Thessalonians 2.17|2 Thessalonia
 
 law is *good*, if a man use it lawfully, [[1 Timothy 1.8|1 Timothy 1:8]].
 
-thou ... mightest war a *good* warfare, [[1 Timothy 1.18|1 Timothy 1:18]].
+thou … mightest war a *good* warfare, [[1 Timothy 1.18|1 Timothy 1:18]].
 
 *good* and acceptable in the sight of God, [[1 Timothy 2.3|1 Timothy 2:3]].
 
@@ -195,9 +194,9 @@ shew out of a *good* conversation his works, [[James 3.13|James 3:13]].
 
 knoweth to do *good*, and doeth it not, [[James 4.17|James 4:17]].
 
-by your *good* works ... glorify God, [[1 Peter 2.12|1 Peter 2:12]].
+by your *good* works … glorify God, [[1 Peter 2.12|1 Peter 2:12]].
 
-he that will ... see *good* days, let him refrain his tongue from evil, [[1 Peter 3.10|1 Peter 3:10]].
+he that will … see *good* days, let him refrain his tongue from evil, [[1 Peter 3.10|1 Peter 3:10]].
 
 eschew evil, and do *good*, [[1 Peter 3.11|1 Peter 3:11]].
 
@@ -205,7 +204,7 @@ Having a *good* conscience, [[1 Peter 3.16|1 Peter 3:16]].
 
 He that doeth *good* is of God, [[3 John 1.11|3 John 1:11]].
 
-riches ... seek them for the intent to do *good*, [[Jacob 2.19|Jacob 2:19]].
+riches … seek them for the intent to do *good*, [[Jacob 2.19|Jacob 2:19]].
 
 planted in a *good* spot of ground, [[Jacob 5.25|Jacob 5:25]] ([[Jacob 5.43|Jacob 5:43]]).
 
@@ -221,7 +220,7 @@ needs be that this is a *good* seed, [[Alma 32.28|Alma 32:28]].
 
 whatsoever is light, is *good*, [[Alma 32.35|Alma 32:35]].
 
-Counsel with the Lord ... and he will direct thee for *good*, [[Alma 37.37|Alma 37:37]].
+Counsel with the Lord … and he will direct thee for *good*, [[Alma 37.37|Alma 37:37]].
 
 do *good* continually, [[Alma 41.14|Alma 41:14]].
 
@@ -235,7 +234,7 @@ persuadeth men to do *good* is of me, [[Ether 4.12|Ether 4:12]].
 
 inviteth and enticeth to do *good*, [[Moroni 7.13|Moroni 7:13]] ([[Moroni 7.16|Moroni 7:16]]).
 
-search ... that ye may know *good* from evil, [[Moroni 7.19|Moroni 7:19]].
+search … that ye may know *good* from evil, [[Moroni 7.19|Moroni 7:19]].
 
 whatsoever thing is *good* is just and true, [[Moroni 10.6|Moroni 10:6]].
 
@@ -257,4 +256,4 @@ never should have known *good* and evil, [[Moses 5.11|Moses 5:11]].
 
 taste the bitter, that they may know to prize the *good*, [[Moses 6.55|Moses 6:55]].
 
-We believe ... in doing *good*, [[Articles of Faith 1.13|Articles of Faith 1:13]].
+We believe … in doing *good*, [[Articles of Faith 1.13|Articles of Faith 1:13]].

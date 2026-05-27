@@ -1,6 +1,8 @@
 # Preaching the Gospel of Peace
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -41,9 +43,7 @@ May this conference be a time of peace and spiritual feasting for you. May you s
 
 [^4]: [[Mark 16.15|Mark 16:15]], emphasis added; see also [[Matthew 28.19|Matthew 28:19]].
 
-[^5]: [[1 Peter 3.15|1 Peter 3:15]].
+[^5]: [[1 Peter 3.15|1 Peter 3:15]].
 
+[^6]: [[Philippians 4.7|Philippians 4:7]].
 
-
-
-#Adversity #Gathering #General_Conference #Jesus_Christ #Missionary_Work #Peace

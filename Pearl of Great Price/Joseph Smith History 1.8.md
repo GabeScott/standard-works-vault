@@ -5,5 +5,5 @@
 [Joseph Smith History 1:8](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.8?lang=eng#p8)
 
 
-[^a]: TG [[Strife]].
-[^b]: [[D&C 101.95|D&C 101:95 (93-95).]]
+[^a]: [[Strife|TG Strife]].  
+[^b]: [[D&C 101.93|D&C 101:95 (93–95)]][[D&C 101.94|]][[D&C 101.95|]].  

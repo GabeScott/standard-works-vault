@@ -1,6 +1,8 @@
 # A Tribute
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -55,8 +57,3 @@ May God grant that her memory will bring satisfaction and fulfillment to your li
 
 
 
-
-
-
-
-#Compassion #Service

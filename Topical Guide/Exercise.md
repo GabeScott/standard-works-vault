@@ -1,6 +1,5 @@
 # Exercise
 
-
 *See also* [[Body, Sanctity of.md|Body, Sanctity of]]; [[Health.md|Health]]; [[Word of Wisdom.md|Word of Wisdom]]; [[Work, Value of.md|Work, Value of]]
 
 bodily *exercise* profiteth little, [[1 Timothy 4.8|1 Timothy 4:8]].

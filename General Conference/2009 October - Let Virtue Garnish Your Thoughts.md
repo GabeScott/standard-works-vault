@@ -1,5 +1,7 @@
 # Let Virtue Garnish Your Thoughts
 
+Thomas S. Monson
+
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the October session of the 2009 General Conference*
@@ -30,11 +32,11 @@ Eight-year-old Megan enjoys playing the piano. Recently her piano teacher offere
 
 Our 15-year-old grandson, Ben, is a big-time ski enthusiast, having competed in several meets and done very well. Prior to one such competition in Idaho, his parents reminded him that his grades in school would determine whether or not he would be able to compete. A condominium in Sun Valley, Idaho, was reserved, his grandparents were planning to attend, and Ben was feverishly trying to achieve the lofty academic goals both he and his parents expected. However, at the end of the day, he fell just short of his goal. Ben missed the ski meet and lost points toward qualifying for the Junior Olympics, but Ben gained a valuable appreciation for responsibility and accountability. By remaining steadfast, parents so very often suffer and agonize more than the children they endeavor to teach.
 
-President James E. Faust suggested that integrity is the mother of many virtues. He noted that integrity can be defined “as a firm adherence to a code of moral values.” He also suggested that “integrity is the light that shines from a disciplined conscience. It is the strength of duty within us” (“Integrity, the Mother of Many Virtues,” in *Speaking Out on Moral Issues* \[1998\], 61, 62). It is difficult for a person to display virtuous traits if he or she lacks integrity. Without integrity, honesty is often forgotten. If integrity is absent, civility is impaired. If integrity is not important, spirituality is difficult to maintain. In Old Testament times, Moses counseled the children of Israel that “if a man vow a vow unto the Lord, or swear an oath to bind his soul with a bond; he shall not break his word, he shall do according to all that proceedeth out of his mouth” ([[Numbers 30.2|Numbers 30:2]]).
+President James E. Faust suggested that integrity is the mother of many virtues. He noted that integrity can be defined “as a firm adherence to a code of moral values.” He also suggested that “integrity is the light that shines from a disciplined conscience. It is the strength of duty within us” (“Integrity, the Mother of Many Virtues,” in *Speaking Out on Moral Issues* \[1998\], 61, 62). It is difficult for a person to display virtuous traits if he or she lacks integrity. Without integrity, honesty is often forgotten. If integrity is absent, civility is impaired. If integrity is not important, spirituality is difficult to maintain. In Old Testament times, Moses counseled the children of Israel that “if a man vow a vow unto the Lord, or swear an oath to bind his soul with a bond; he shall not break his word, he shall do according to all that proceedeth out of his mouth” ([[Numbers 30.2|Numbers 30:2]]).
 
-President Thomas S. Monson reminded us a few years ago that “most people will not commit desperate acts if they have been taught that dignity, honesty and integrity are more important than revenge or rage; if they understand that respect and kindness ultimately give one a better chance at success” (quoting from “Family Values in a Violent Society,” *Deseret News,* Jan. 16, 1994, A12; in “Finding Peace,” *Liahona* and *Ensign,* Mar. 2004, 4).
+President Thomas S. Monson reminded us a few years ago that “most people will not commit desperate acts if they have been taught that dignity, honesty and integrity are more important than revenge or rage; if they understand that respect and kindness ultimately give one a better chance at success” (quoting from “Family Values in a Violent Society,” *Deseret News,* Jan. 16, 1994, A12; in “Finding Peace,” *Liahona* and *Ensign,* Mar. 2004, 4).
 
-You may have heard about the *Lost* Battalion of World War I, the ten *lost* tribes of Israel, or perhaps the “*lost* boys” in J. M. Barrie’s play *Peter Pan.* You may also be acquainted with the album by Michael McLean entitled *The Forgotten Carols.* Virtuous traits, especially the “ity” virtues, must never be forgotten or set aside. If forgotten or set aside, they will inevitably become the “lost virtues.” If virtues are lost, families will be measurably weakened, individual faith in the Lord Jesus Christ will soften, and important eternal relationships may be jeopardized.
+You may have heard about the *Lost* Battalion of World War I, the ten *lost* tribes of Israel, or perhaps the “*lost* boys” in J. M. Barrie’s play *Peter Pan.* You may also be acquainted with the album by Michael McLean entitled *The Forgotten Carols.* Virtuous traits, especially the “ity” virtues, must never be forgotten or set aside. If forgotten or set aside, they will inevitably become the “lost virtues.” If virtues are lost, families will be measurably weakened, individual faith in the Lord Jesus Christ will soften, and important eternal relationships may be jeopardized.
 
 Traits of virtue broadly practiced can loosen Satan’s firm grip on society and derail his insidious plan to capture the hearts, minds, and spirits of mortal men.
 
@@ -45,8 +47,3 @@ I testify and declare that our Heavenly Father expects His children to exercise 
 
 
 
-
-
-
-
-#Character #Example #Honesty #Virtue

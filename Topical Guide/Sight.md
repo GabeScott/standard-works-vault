@@ -1,6 +1,5 @@
 # Sight
 
-
 *See also* [[Eye.md|Eye]]
 
 every tree that is pleasant to the *sight*, [[Genesis 2.9|Genesis 2:9]] ([[Moses 3.9|Moses 3:9]]; [[Abraham 5.9|Abraham 5:9]]).
@@ -36,5 +35,3 @@ in your midst and ye cannot *see* me, [[D&C 38.7|D&C 38:7]].
 He who hath faith to *see* shall see, [[D&C 42.49|D&C 42:49]].
 
 you shall *see* me and know that I am, [[D&C 67.10|D&C 67:10]].
-
-*See also* [[Isaiah 29.18|Isaiah 29:18]]; [[Isaiah 35.5|Isaiah 35:5]]; [[3 Nephi 26.15|3 Nephi 26:15]].

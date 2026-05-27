@@ -1,5 +1,7 @@
 # A Royal Priesthood
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -18,9 +20,9 @@ As I sat with pencil in hand, I thought of the question, “What do I want to be
 
 One of greater childhood determination was Steve Alford, who plays for the Dallas Mavericks team in the National Basketball Association. He remembers telling his eighth grade counselor, as she completed a career path form for him, that he was going to be an NBA player. She responded, “I can’t put that answer down.” Steve Alford replied, “Then leave it blank, ‘cause that’s what I’m going to do!” And he did.
 
-One of the great leaders of our time, President Harold B. Lee, in a devotional address at BYU, spoke of a Latter-day Saint young man who, during World War II, was in England. He had gone to an officers’ club where they were holding a riotous kind of celebration. He noticed, off to the side, a young British officer who didn’t seem to appreciate the party at all. So he walked over to him and said, “You don’t seem to be enjoying this kind of party.” And this young British officer straightened himself a few inches taller than he was before and replied, “No, sir; I can’t engage in this kind of party because, you see, I belong to the royal household of England.” As our Latter-day Saint young man walked away, he said to himself, “Neither can I, because I belong to the royal household of the kingdom of God” (“Be Loyal to the Royal within You,” in *Speeches of the Year, 1973* \[Provo: Brigham Young University Press, 1973\], p. 100).
+One of the great leaders of our time, President Harold B. Lee, in a devotional address at BYU, spoke of a Latter-day Saint young man who, during World War II, was in England. He had gone to an officers’ club where they were holding a riotous kind of celebration. He noticed, off to the side, a young British officer who didn’t seem to appreciate the party at all. So he walked over to him and said, “You don’t seem to be enjoying this kind of party.” And this young British officer straightened himself a few inches taller than he was before and replied, “No, sir; I can’t engage in this kind of party because, you see, I belong to the royal household of England.” As our Latter-day Saint young man walked away, he said to himself, “Neither can I, because I belong to the royal household of the kingdom of God” (“Be Loyal to the Royal within You,” in *Speeches of the Year, 1973* \[Provo: Brigham Young University Press, 1973\], p. 100).
 
-Perhaps the young man remembered the bold declaration of the Apostle Peter: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]). Brethren, be loyal to the royal within you.
+Perhaps the young man remembered the bold declaration of the Apostle Peter: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]). Brethren, be loyal to the royal within you.
 
 My thoughts of late have focused upon the words of the Savior during the week of the atoning sacrifice, when He said: “Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world:
 
@@ -105,8 +107,3 @@ May we hear His voice. May we follow His example. May we live His teachings. The
 
 
 
-
-
-
-
-#Fasting #Love #Service #Welfare

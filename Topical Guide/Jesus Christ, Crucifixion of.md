@@ -1,6 +1,5 @@
 # Jesus Christ, Crucifixion of
 
-
 *See also* [[Jesus Christ, Death of.md|Jesus Christ, Death of]]
 
 my God, why hast thou *forsaken* me, [[Psalms 22.1|Psalms 22:1]] ([[Mark 15.34|Mark 15:34]]).
@@ -23,9 +22,9 @@ they *crucified* him, [[Matthew 27.35|Matthew 27:35]] ([[Mark 15.15|Mark 15:15]]
 
 ye seek Jesus, which was *crucified*, [[Matthew 28.5|Matthew 28:5]] ([[Mark 16.6|Mark 16:6]]).
 
-Son of man ... must *suffer* many things, and be set at nought, [[Mark 9.12|Mark 9:12]] ([[Mark 9.31|Mark 9:31]]).
+Son of man … must *suffer* many things, and be set at nought, [[Mark 9.12|Mark 9:12]] ([[Mark 9.31|Mark 9:31]]).
 
-cried out again, *Crucify* him, [[Mark 15.13|Mark 15:13]] ([[John 19.6|John 19:6]], [[John 19.15|John 19:15]]).
+cried out again, *Crucify* him, [[Mark 15.13|Mark 15:13]] ([[John 19.6|John 19:6]]; [[John 19.15|John 19:15]]).
 
 Calvary, there they *crucified* him, [[Luke 23.33|Luke 23:33]].
 
@@ -49,7 +48,7 @@ Jesus, whom ye slew and *hanged* on a tree, [[Acts 5.30|Acts 5:30]].
 
 we preach Christ *crucified*, [[1 Corinthians 1.23|1 Corinthians 1:23]].
 
-not to know any thing ... save Jesus Christ, and him *crucified*, [[1 Corinthians 2.2|1 Corinthians 2:2]].
+not to know any thing … save Jesus Christ, and him *crucified*, [[1 Corinthians 2.2|1 Corinthians 2:2]].
 
 they would not have *crucified* the Lord, [[1 Corinthians 2.8|1 Corinthians 2:8]].
 
@@ -84,5 +83,3 @@ Jesus, to be *crucified* for the world, [[D&C 76.41|D&C 76:41]].
 time intervening between the *crucifixion* and his resurrection, [[D&C 138.27|D&C 138:27]].
 
 sacrifice of the Son of God upon the *cross*, [[D&C 138.35|D&C 138:35]].
-
-*See also* [[Deuteronomy 21.23|Deuteronomy 21:23]]; [[Daniel 9.26|Daniel 9:26]]; [[Galatians 3.1|Galatians 3:1]].

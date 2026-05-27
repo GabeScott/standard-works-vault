@@ -1,5 +1,7 @@
 # The Love of God
 
+Thomas S. Monson
+
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -125,23 +127,23 @@ Let us be known as a people who love God with all our heart, soul, and mind and 
 
 [^5]: See [[Matthew 22.39|Matthew 22:39]].
 
-[^6]: [[1 John 4.19|1 John 4:19]].
+[^6]: [[1 John 4.19|1 John 4:19]].
 
 [^7]: See [[Isaiah 54.10|Isaiah 54:10]]; [[Jeremiah 31.3|Jeremiah 31:3]].
 
-[^8]: See [[1 Samuel 16.7|1 Samuel 16:7]].
+[^8]: See [[1 Samuel 16.7|1 Samuel 16:7]].
 
 [^9]: See [[D&C 88.63|D&C 88:63]].
 
-[^10]: [[1 John 4.8|1 John 4:8]].
+[^10]: [[1 John 4.8|1 John 4:8]].
 
-[^11]: See [[Romans 5.5|Romans 5:5]]; [[1 John 4.7|1 John 4:7, 16]][[1 John 4.16|]].
+[^11]: See [[Romans 5.5|Romans 5:5]]; [[1 John 4.7|1 John 4:7, 16]][[1 John 4.16|]].
 
 [^12]: [[Jeremiah 29.13|Jeremiah 29:13]].
 
-[^13]: [[1 John 5.3|1 John 5:3]]; see also [[2 John 1.6|2 John 1:6]].
+[^13]: [[1 John 5.3|1 John 5:3]]; see also [[2 John 1.6|2 John 1:6]].
 
-[^14]: [[1 John 2.4|1 John 2:4]]; see also [[Isaiah 29.13|Isaiah 29:13]].
+[^14]: [[1 John 2.4|1 John 2:4]]; see also [[Isaiah 29.13|Isaiah 29:13]].
 
 [^15]: [[Moses 6.59|Moses 6:59]].
 
@@ -149,8 +151,3 @@ Let us be known as a people who love God with all our heart, soul, and mind and 
 
 [^17]: See [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-
-
-
-
-#Discipleship #God_The_Father #Hope #Love #Obedience

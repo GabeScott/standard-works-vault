@@ -1,12 +1,14 @@
 # Joy and Mercy
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1991/10/joy-and-mercy?lang=eng)
 
-One of the greatest of all God’s revelations is Father Lehi’s teaching that “men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]). Joy is more than happiness. Joy is the ultimate sensation of well-being. It comes from being complete and in harmony with our Creator and his eternal laws.
+One of the greatest of all God’s revelations is Father Lehi’s teaching that “men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]). Joy is more than happiness. Joy is the ultimate sensation of well-being. It comes from being complete and in harmony with our Creator and his eternal laws.
 
 The opposite of joy is misery. Misery is more than unhappiness, sorrow, or suffering. Misery is the ultimate state of disharmony with God and his laws.
 
@@ -14,21 +16,21 @@ Joy and misery are eternal emotions whose ultimate extent we are not likely to e
 
 An example of our two emotional extremes occurred two years ago. As part of an outing, a group of Latter-day Saint Boy Scouts entered an abandoned mine in the mountains not far from here. Somehow, young Joshua Dennis was separated from the group and became lost in the mine. Anyone who has ever lost something valuable will remember that terrible feeling. The pain is most extreme when we have lost a loved one. Joshua’s family and friends feared their loss might be permanent.
 
-Search efforts were organized. For days, many good people dropped everything they were doing to search for the one who was lost. Many shared the pain of his loss. Then, miraculously, he was found. Prayers were answered, and the mercy of a loving Heavenly Father was manifest in the happiness of family and friends reunited with the one who was lost. The pain of loss turned to the overwhelming joy of reunion. (See "Hidden Treasure," *Ensign,* Aug. 1991, pp. 30–35.)
+Search efforts were organized. For days, many good people dropped everything they were doing to search for the one who was lost. Many shared the pain of his loss. Then, miraculously, he was found. Prayers were answered, and the mercy of a loving Heavenly Father was manifest in the happiness of family and friends reunited with the one who was lost. The pain of loss turned to the overwhelming joy of reunion. (See "Hidden Treasure," *Ensign,* Aug. 1991, pp. 30–35.)
 
 Few experiences illustrate mortal feelings of joy better than the recovery of something precious we fear we have lost. The scriptures illustrate this experience. In the parable of the lost sheep, the shepherd invited his friends to rejoice with him, for he had “found \[his\] sheep which was lost” ([[Luke 15.6|Luke 15:6]]). “Likewise,” Jesus explained, “joy shall be in heaven over one sinner that repenteth” ([[Luke 15.7|Luke 15:7]]). In another parable, a father rejoiced in the return of a prodigal son, explaining, “For this thy brother was dead, and is alive again; and was lost, and is found” ([[Luke 15.32|Luke 15:32]]).
 
-These experiences are symbolic of our eternal journey. The Fall has separated us from our heavenly home. We must choose which way we will go. Satan, who was separated from God and permanently lost, would like to see our separation become permanent also. Father Lehi taught that Satan’s purpose is to make men miserable. “Because he had fallen from heaven, and had become miserable forever, \[Satan\] sought also the misery of all mankind” ([[2 Nephi 2.18|2 Ne. 2:18]]; see also [[2 Nephi 2.27|2 Ne. 2:27]]). Those who yield to his enticings are on the way to the same miserable destiny as he. Shut out from the presence of God, they will be in “a state of misery and endless torment” ([[Mosiah 3.25|Mosiah 3:25]]; see also [[2 Nephi 2.5|2 Ne. 2:5]]). As the Lord said about the wicked, “misery shall be their doom” ([[Moses 7.37|Moses 7:37]]).
+These experiences are symbolic of our eternal journey. The Fall has separated us from our heavenly home. We must choose which way we will go. Satan, who was separated from God and permanently lost, would like to see our separation become permanent also. Father Lehi taught that Satan’s purpose is to make men miserable. “Because he had fallen from heaven, and had become miserable forever, \[Satan\] sought also the misery of all mankind” ([[2 Nephi 2.18|2 Ne. 2:18]]; see also [[2 Nephi 2.27|2 Ne. 2:27]]). Those who yield to his enticings are on the way to the same miserable destiny as he. Shut out from the presence of God, they will be in “a state of misery and endless torment” ([[Mosiah 3.25|Mosiah 3:25]]; see also [[2 Nephi 2.5|2 Ne. 2:5]]). As the Lord said about the wicked, “misery shall be their doom” ([[Moses 7.37|Moses 7:37]]).
 
 Much of the misery encouraged by Satan comes from losses. Satan experienced that kind of misery when he lost his first estate. Now he tries to inflict similar losses on those who have proceeded to mortality, the second estate. Satan encourages a loss of virtue, a loss of integrity, a loss of reputation, a loss of ideals, a loss of wholesome associations, and even a loss of life.
 
 In contrast, our Heavenly Father created us to resist and to overcome such losses, to be whole, to have joy. He wants us to return to him, and he has provided a way for that reunion to be achieved. No wonder we say that his gospel is “a voice of mercy from heaven; … a voice of gladness for the living and the dead; glad tidings of great joy” ([[D&C 128.19|D&C 128:19]]).
 
-Our Creator wants us to be happy in this life. The Prophet Joseph Smith taught that “happiness is the object and design of our existence” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 255). The things of the earth were created for our happiness. Modern revelation tells us that “all things which come of the earth … are made for the benefit and the use of man, both to please the eye and to gladden the heart” ([[D&C 59.18|D&C 59:18]]). Even on the Sabbath, a day of worship, the Lord expects us to have “a glad heart and a cheerful countenance” ([[D&C 59.15|D&C 59:15]]). A prophet has called the gospel plan “the great plan of happiness” ([[Alma 42.8|Alma 42:8]]).
+Our Creator wants us to be happy in this life. The Prophet Joseph Smith taught that “happiness is the object and design of our existence” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 255). The things of the earth were created for our happiness. Modern revelation tells us that “all things which come of the earth … are made for the benefit and the use of man, both to please the eye and to gladden the heart” ([[D&C 59.18|D&C 59:18]]). Even on the Sabbath, a day of worship, the Lord expects us to have “a glad heart and a cheerful countenance” ([[D&C 59.15|D&C 59:15]]). A prophet has called the gospel plan “the great plan of happiness” ([[Alma 42.8|Alma 42:8]]).
 
 How do we seek happiness or joy? King Benjamin invited his people to consider “the blessed and happy state of those that keep the commandments of God. For behold,” he said, “they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven … \[to\] dwell with God in a state of never-ending happiness ([[Mosiah 2.41|Mosiah 2:41]]).
 
-Father Lehi explained that if Adam and Eve had not gone through the process we call the Fall, they would have remained forever in their initial state of innocence, “having no joy, for they knew no misery; doing no good, for they knew no sin” ([[2 Nephi 2.23|2 Ne. 2:23]]).
+Father Lehi explained that if Adam and Eve had not gone through the process we call the Fall, they would have remained forever in their initial state of innocence, “having no joy, for they knew no misery; doing no good, for they knew no sin” ([[2 Nephi 2.23|2 Ne. 2:23]]).
 
 Our first parents recognized this principle. When the Holy Ghost fell upon them and bore record of the Father and the Son, Adam blessed the name of the Lord, declaring that “because of my transgression my eyes are opened, and in this life I shall have joy” ([[Moses 5.10|Moses 5:10]]). With inspired insight, Eve explained the purpose of life and the source of joy:
 
@@ -48,7 +50,7 @@ But despite all we can do, we cannot have a fulness of joy in this world or thro
 
 We are able to have a fulness of joy only when spirit and body are inseparably connected in the glorious resurrection to celestial glory (see [[D&C 93.33|D&C 93:33]]; [[D&C 76.50|76:50–70]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]][[D&C 76.60|]][[D&C 76.61|]][[D&C 76.62|]][[D&C 76.63|]][[D&C 76.64|]][[D&C 76.65|]][[D&C 76.66|]][[D&C 76.67|]][[D&C 76.68|]][[D&C 76.69|]][[D&C 76.70|]]). That joy, of course, comes only through the mercy of the Holy Messiah, whose resurrection broke the bands of death and whose atonement unlocks the reservoir of mercy by which we can be cleansed of our sins and come into the presence of God to receive the fulness of the Father.
 
-We joyously proclaim that “there is no flesh that can dwell in the presence of God, save it be through the merits, and mercy, and grace of the Holy Messiah” ([[2 Nephi 2.8|2 Ne. 2:8]]). God’s mercy is the only source of the ultimate and eternal joy, which restores every loss, dries every tear, and erases every pain. Eternal joy transcends all suffering. In this life and in the life to come, that joy comes about through the Resurrection and the remission of sins.
+We joyously proclaim that “there is no flesh that can dwell in the presence of God, save it be through the merits, and mercy, and grace of the Holy Messiah” ([[2 Nephi 2.8|2 Ne. 2:8]]). God’s mercy is the only source of the ultimate and eternal joy, which restores every loss, dries every tear, and erases every pain. Eternal joy transcends all suffering. In this life and in the life to come, that joy comes about through the Resurrection and the remission of sins.
 
 Remembering his early life, Alma told how his sins caused him to be “tormented with the pains of hell” ([[Alma 36.13|Alma 36:13]]). He said he was “racked, even with the pains of a damned soul” ([[Alma 36.16|Alma 36:16]]). At length he remembered his father’s teachings about the Savior, who would atone for the sins of the world. He cried out, “O Jesus, thou Son of God, have mercy on me” ([[Alma 36.18|Alma 36:18]]).
 
@@ -62,7 +64,7 @@ The joy that follows the remission of sins comes from the Spirit of the Lord (se
 
 In contrast, those who yield to the enticing of Satan may, as the scripture says, “enjoy the pleasures of sin for a season” ([[Hebrews 11.25|Heb. 11:25]]), but that kind of pleasure can never lead to lasting happiness or eternal joy. The spirit and influence of Satan bring feelings of confusion, contention, darkness, disorder, anger, hate, and misery.
 
-Persons who pursue Satan’s way are certain to have Satan’s misery. Unless they repent they will “remain with the father of lies, in misery, like unto himself” ([[2 Nephi 9.9|2 Ne. 9:9]]). As Alma said to his wayward son, “Wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]).
+Persons who pursue Satan’s way are certain to have Satan’s misery. Unless they repent they will “remain with the father of lies, in misery, like unto himself” ([[2 Nephi 9.9|2 Ne. 9:9]]). As Alma said to his wayward son, “Wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]).
 
 Our personal experiences and almost every newscast and newspaper remind us of the unhappiness and pain suffered on this earth. Some of this is traceable to sin. Many letters sent to Church headquarters describe the pain people inflict upon one another, often within those family relationships that should be the source of life’s greatest joy.
 
@@ -89,8 +91,3 @@ I testify to the truth of God’s promise that the faithful “shall enter into 
 
 
 
-
-
-
-
-#Joy #Mercy #Repentance #Resurrection

@@ -1,6 +1,8 @@
 # The Lord’s Richest Blessings
 
-By Elder Carl B. Pratt - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Carl B. Pratt - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Carl B. Pratt - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/the-lords-richest-blessings?lang=eng)
 
-I am grateful for righteous ancestors who taught the gospel to their children in the home long before there were formal family home evenings. My maternal grandparents were Ida Jesperson and John A. Whetten. They lived in the small community of Colonia Juárez, Chihuahua, Mexico. The Whetten children were taught by precept and by observing the examples of their parents.
+I am grateful for righteous ancestors who taught the gospel to their children in the home long before there were formal family home evenings. My maternal grandparents were Ida Jesperson and John A. Whetten. They lived in the small community of Colonia Juárez, Chihuahua, Mexico. The Whetten children were taught by precept and by observing the examples of their parents.
 
 The early 1920s in Mexico were hard times. The violent revolution had just ended. There was little cash circulating, and most of it was in silver coins. People often conducted their business through barter, or exchange of goods and services.
 
@@ -34,13 +36,13 @@ First, you will notice that the payment of tithing in this case was not related 
 
 That is a reminder of the implication in the Lord’s words when He asks: “Will a man rob God? Yet ye have robbed me.” The people ask, “Wherein have we robbed thee?” And the Lord thunders back, “In tithes and offerings” ([[Malachi 3.8|Malachi 3:8]]). Yes, brothers and sisters, just as John and Ida Whetten realized that summer decades ago, we are all indebted to the Lord. Let us not be accused of robbing God. Let us be honest and pay our debts to the Lord. All He asks is 10 percent. Integrity in paying our debts to the Lord will help us be honest with our fellowmen.
 
-The next thing I notice about that story is that my grandparents paid tithing regardless of the poor condition of their family finances. They knew the Lord’s commandment; they likened the scriptures unto themselves (see [[1 Nephi 19.23|1 Nephi 19:23–24]][[1 Nephi 19.24|]]) and obeyed the law. This is what the Lord expects of all His people. He expects us to pay tithing not from our abundance nor from the “leftovers” of the family budget but, as He commanded anciently, from the “firstlings” of our income, be it scarce or abounding. The Lord has commanded, “Thou shalt not delay to offer the first … fruits” ([[Exodus 22.29|Exodus 22:29]]). It has been my personal experience that the surest way to pay tithing faithfully is to pay it as soon as I receive any income. In fact, I’ve found it to be the only way.
+The next thing I notice about that story is that my grandparents paid tithing regardless of the poor condition of their family finances. They knew the Lord’s commandment; they likened the scriptures unto themselves (see [[1 Nephi 19.23|1 Nephi 19:23–24]][[1 Nephi 19.24|]]) and obeyed the law. This is what the Lord expects of all His people. He expects us to pay tithing not from our abundance nor from the “leftovers” of the family budget but, as He commanded anciently, from the “firstlings” of our income, be it scarce or abounding. The Lord has commanded, “Thou shalt not delay to offer the first … fruits” ([[Exodus 22.29|Exodus 22:29]]). It has been my personal experience that the surest way to pay tithing faithfully is to pay it as soon as I receive any income. In fact, I’ve found it to be the only way.
 
 We learn from my Whetten grandparents that tithing is not a matter of money, really; it is a matter of faith—faith in the Lord. He promises blessings if we obey His commandments. Clearly, John and Ida Whetten showed great faith in paying their tithing. Let us show our faith in the Lord by paying our tithing. Pay it first; pay it honestly. Let us teach our children to pay tithing even on their allowance or other income, and then take them with us to tithing settlement so they know of our example and our love for the Lord.
 
 There is a possibility of misinterpretation in this story from my grandparents. We might conclude that since we pay tithing with money, the Lord will always bless us with money. I tended to think that way as a child. I have since learned it doesn’t necessarily work that way. The Lord promises blessings to those who pay their tithing. He promises to “open … the windows of heaven, and pour … out a blessing, that there shall not be room enough to receive it” ([[Malachi 3.10|Malachi 3:10]]). I testify that He fulfills His promises, and if we faithfully pay our tithing, we will not lack for the necessities of life, but He does not promise wealth. Money and bank accounts are not His richest blessings. He blesses us with wisdom to manage our limited material resources, wisdom that enables us to live better with 90 percent of our income than with 100 percent. Thus, faithful tithe payers understand provident living and tend to be more self-reliant.
 
-I have come to understand that the Lord’s richest blessings are spiritual, and they often have to do with family, friends, and the gospel. He often seems to give the blessing of a special sensitivity to the influence and guidance of the Holy Spirit, especially in marriage and family matters like raising children. Such spiritual sensitivity can help us enjoy the blessings of harmony and peace in the home. President James E. Faust suggested that the payment of tithing is “an excellent insurance against divorce” (“Enriching Your Marriage,” *Liahona,* Apr. 2007, 5; *Ensign,* Apr. 2007, 7).
+I have come to understand that the Lord’s richest blessings are spiritual, and they often have to do with family, friends, and the gospel. He often seems to give the blessing of a special sensitivity to the influence and guidance of the Holy Spirit, especially in marriage and family matters like raising children. Such spiritual sensitivity can help us enjoy the blessings of harmony and peace in the home. President James E. Faust suggested that the payment of tithing is “an excellent insurance against divorce” (“Enriching Your Marriage,” *Liahona,* Apr. 2007, 5; *Ensign,* Apr. 2007, 7).
 
 The payment of tithing helps us develop a submissive and humble heart and a grateful heart that tends to “confess … his hand in all things” ([[D&C 59.21|D&C 59:21]]). Tithe paying fosters in us a generous and forgiving heart and a charitable heart full of the pure love of Christ. We become eager to serve and bless others with an obedient heart, submissive to the Lord’s will. Regular tithe payers find their faith in the Lord Jesus Christ strengthened, and they develop a firm, abiding testimony of His gospel and of His Church. None of these blessings are monetary or material in any way, but surely they are the Lord’s richest blessings.
 
@@ -49,8 +51,3 @@ I testify that as we pay our tithing faithfully, the Lord will open the windows 
 
 
 
-
-
-
-
-#Faith #Tithing

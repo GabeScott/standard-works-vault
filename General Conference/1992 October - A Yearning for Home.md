@@ -1,5 +1,7 @@
 # A Yearning for Home
 
+Gordon B. Hinckley
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -58,7 +60,7 @@ What world-class runner, after training for well over a decade, would find himse
 
 These examples may seem preposterous—but how much more tragic it is for someone who, equipped with a testimony of the truth and a knowledge of the purpose of life, becomes more absorbed in life today than in life forever. Who’s just a little more concerned about his or her status and standing in mortality than in eternity. Whose focus is not directed to God the Father and his Son, Jesus Christ, with whom it is possible to have a glorious connection and bond.
 
-I fear that, at times, we run the risk of acting like seasoned, conditioned athletes who are more interested in what kind of jogging suits we’ll wear than in buckling down to train for the race. C. S. Lewis had an intriguing way of evaluating this dilemma: “We are half-hearted creatures, fooling about with drink and sex and ambition when infinite joy is offered us, like an ignorant child who wants to go on making mud pies in a slum because he cannot imagine what is meant by the offer of a holiday at the sea. … We are far too easily pleased” (*A Mind Awake: An Anthology of C. S. Lewis,* ed. Clyde S. Kilby \[New York: Harcourt, Brace and World, 1968\], p. 168).
+I fear that, at times, we run the risk of acting like seasoned, conditioned athletes who are more interested in what kind of jogging suits we’ll wear than in buckling down to train for the race. C. S. Lewis had an intriguing way of evaluating this dilemma: “We are half-hearted creatures, fooling about with drink and sex and ambition when infinite joy is offered us, like an ignorant child who wants to go on making mud pies in a slum because he cannot imagine what is meant by the offer of a holiday at the sea. … We are far too easily pleased” (*A Mind Awake: An Anthology of C. S. Lewis,* ed. Clyde S. Kilby \[New York: Harcourt, Brace and World, 1968\], p. 168).
 
 The prophet Mormon put it another way: “Why are ye ashamed to take upon you the name of Christ? Why do ye not think that greater is the value of an endless happiness than that misery which never dies—because of the praise of the world?” ([[Mormon 8.38|Morm. 8:38]]).
 
@@ -73,8 +75,3 @@ May our yearning for home be the motivation we need to so live that we can retur
 
 
 
-
-
-
-
-#Endurance #Home #Safety

@@ -1,5 +1,7 @@
 # “Be of Good Cheer”
 
+Ezra Taft Benson
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -60,7 +62,7 @@ A constant effort must be made to lift our daily conduct so that it squares with
 
 One form of self-deceit is rationalization. We prevent the Lord from being with us because we stray from his paths and explain our actions by consciously or unconsciously making excuses. We say to ourselves: “I did it just to see what it was like.” “Everyone else was doing it.” “I didn’t want to be different.” “There was no other way to be accepted graciously.” Or “He made me do it.”
 
-The companionship of good cheer is possible through keeping the commandments of God, not through rationalization. We must commit ourselves to principles and not live by comparison or excuses. Horace Mann wisely said, “In vain do they talk of happiness who never subdued an impulse in obedience to a principle.” (From *Common School Journal,* quoted in *Horace Mann: His Ideas and Ideals,* comp. Joy Elmer Morgan, Washington, D.C.: National Home Library Foundation, 1936, p. 149.)
+The companionship of good cheer is possible through keeping the commandments of God, not through rationalization. We must commit ourselves to principles and not live by comparison or excuses. Horace Mann wisely said, “In vain do they talk of happiness who never subdued an impulse in obedience to a principle.” (From *Common School Journal,* quoted in *Horace Mann: His Ideas and Ideals,* comp. Joy Elmer Morgan, Washington, D.C.: National Home Library Foundation, 1936, p. 149.)
 
 Self-deceit is at best only temporarily successful. Then when the gap between truth and our knowledge of the right and our behavior becomes too large, we are forced to close it with rationalization. The true test is, how do we measure up when Christlike conduct standards are applied.
 
@@ -74,15 +76,10 @@ Being of good cheer makes it possible for us to turn all of our sunsets into sun
 
 With good cheer, carrying our cross can be our ladder to happiness. When Jesus comes into our lives, cheer lights the way. How powerful and comforting is the Savior’s declaration, “In the world ye shall have tribulation: but be of good cheer; I have overcome the world.” ([[John 16.33|John 16:33]].)
 
-He promises to stand by us. He invites us to bear record and witness of him. What a joy and honor it is for me to declare in good cheer and without fear that Jesus Christ is the Son of the living God, that he was the Only Begotten of the Father, that he is, and that he will yet come again in God’s name. I thank God for the Savior’s life, his cheerful love, and his example. “There is no fear in love; but perfect love casteth out fear.” ([[1 John 4.18|1 Jn. 4:18]].)
+He promises to stand by us. He invites us to bear record and witness of him. What a joy and honor it is for me to declare in good cheer and without fear that Jesus Christ is the Son of the living God, that he was the Only Begotten of the Father, that he is, and that he will yet come again in God’s name. I thank God for the Savior’s life, his cheerful love, and his example. “There is no fear in love; but perfect love casteth out fear.” ([[1 John 4.18|1 Jn. 4:18]].)
 
 To all mankind everywhere I cheerfully testify that our Lord and Savior Jesus Christ is our Redeemer. He will sustain us now and forever if we will walk in his paths, be of good cheer, and not fear. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Joy

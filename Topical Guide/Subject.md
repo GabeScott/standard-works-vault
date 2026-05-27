@@ -1,9 +1,8 @@
 # Subject
 
-
 *See also* [[Subjection.md|Subjection]]
 
-he ... came to Nazareth, and was *subject* unto them, [[Luke 2.51|Luke 2:51]].
+he … came to Nazareth, and was *subject* unto them, [[Luke 2.51|Luke 2:51]].
 
 devils are *subject* unto us through thy name, [[Luke 10.17|Luke 10:17]].
 
@@ -31,17 +30,17 @@ that all men might become *subject* unto him, [[2 Nephi 9.5|2 Nephi 9:5]].
 
 flesh becoming *subject* to the Spirit, [[Mosiah 15.5|Mosiah 15:5]].
 
-ye have become *subjected* to ... the devil, [[Alma 34.35|Alma 34:35]] ([[D&C 29.40|D&C 29:40]]).
+ye have become *subjected* to … the devil, [[Alma 34.35|Alma 34:35]] ([[D&C 29.40|D&C 29:40]]).
 
 all things are *subject* unto him, [[D&C 50.27|D&C 50:27]].
 
 be *subject* to the powers that be, [[D&C 58.22|D&C 58:22]].
 
-unbelieving husband was desirous that his children ... become *subject* to the law of Moses, [[D&C 74.3|D&C 74:3]].
+unbelieving husband was desirous that his children … become *subject* to the law of Moses, [[D&C 74.3|D&C 74:3]].
 
-Zion ... let us become *subject* unto her laws, [[D&C 105.32|D&C 105:32]].
+Zion … let us become *subject* unto her laws, [[D&C 105.32|D&C 105:32]].
 
-God ... who controllest and *subjectest* the devil, [[D&C 121.4|D&C 121:4]].
+God … who controllest and *subjectest* the devil, [[D&C 121.4|D&C 121:4]].
 
 all things are *subject* unto them, [[D&C 132.20|D&C 132:20]].
 

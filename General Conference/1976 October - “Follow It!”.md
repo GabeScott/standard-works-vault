@@ -1,6 +1,8 @@
 # “Follow It!”
 
-By Elder Paul H. Dunn - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By Elder Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -76,15 +78,10 @@ He said, “Didn’t you like my workshop?”
 
 I said, “I loved it. But every time you opened your mouth, you offended me and a lot of other people out there. I’m going to challenge you tonight, as your friend, to clean up your language.”
 
-I thought of the apostle Paul and Joseph Smith and particularly of a prophet today, Spencer W. Kimball; and I learned on that occasion, as I have on many others, that people really want what you and I have, if we have the courage to give it.
+I thought of the apostle Paul and Joseph Smith and particularly of a prophet today, Spencer W. Kimball; and I learned on that occasion, as I have on many others, that people really want what you and I have, if we have the courage to give it.
 
 God grant us to have that courage and determination as we go forth, edified and fortified by the influences of great men in our lives, to be an example unto the world. I testify that I know that God lives, that Jesus is the Christ, and that here sits his prophet. In the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Commitment #Courage #Obedience

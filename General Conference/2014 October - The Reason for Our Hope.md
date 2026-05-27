@@ -1,6 +1,8 @@
 # The Reason for Our Hope
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -12,13 +14,13 @@ Several years ago, Sister Packer and I went to Oxford University. We were lookin
 
 The following year we returned to Oxford to present a beautifully bound set of the standard works for the library at Christ’s College. It seemed a bit awkward for Dr. Poppelwell. Perhaps he thought we were not really Christians. So he called for the college chaplain to receive the books.
 
-Before handing the scriptures to the chaplain, I opened the Topical Guide and showed him one subject: 18 pages, very fine print, single-spaced, listing references to the subject of “Jesus Christ.” It is one of the most comprehensive compilations of scriptural references on the subject of the Savior that has ever been assembled in the history of the world—a testimony from the Old and New Testaments, the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price.
+Before handing the scriptures to the chaplain, I opened the Topical Guide and showed him one subject: 18 pages, very fine print, single-spaced, listing references to the subject of “[[Jesus Christ|Jesus Christ]].” It is one of the most comprehensive compilations of scriptural references on the subject of the Savior that has ever been assembled in the history of the world—a testimony from the Old and New Testaments, the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price.
 
 “However you follow these references,” I told him, “side to side, up and down, book to book, subject after subject—you will find that they are a consistent, harmonious witness to the divinity of the mission of the Lord Jesus Christ—His birth, His life, His teachings, His Crucifixion, His Resurrection, and His Atonement.”
 
 After I shared with the chaplain some of the teachings of the Savior, the atmosphere changed, and he gave us a tour of the facility, including a recent excavation revealing murals which dated to Roman days.
 
-Among the references listed in the Topical Guide is this one from the Book of Mormon: Another Testament of Jesus Christ: “We preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
+Among the references listed in the Topical Guide is this one from the Book of Mormon: Another Testament of Jesus Christ: “We preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
 
 In His own words, the Savior has declared, “I am the way, the truth, and the life: no man cometh unto the Father, but by me” ([[John 14.6|John 14:6]]).
 
@@ -26,9 +28,9 @@ And from the Book of Mormon, He declares: “Behold, I am he who was prepared fr
 
 There are many, many other references throughout the standard works which proclaim the divine role of Jesus Christ as the Redeemer of all who have ever been or ever will be born into mortality.
 
-Through the Atonement of Jesus Christ we are all redeemed from the Fall of man, which occurred when Adam and Eve partook of the forbidden fruit in the Garden of Eden, as stated in 1 Corinthians: “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Corinthians 15:22]]).
+Through the Atonement of Jesus Christ we are all redeemed from the Fall of man, which occurred when Adam and Eve partook of the forbidden fruit in the Garden of Eden, as stated in 1 Corinthians: “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Corinthians 15:22]]).
 
-The Book of Mormon teaches, “For it is expedient that an atonement should be made … , or else all mankind must unavoidably perish; yea, all are hardened; yea, all are fallen and are lost, and must perish except it be through the atonement … an infinite and eternal sacrifice” ([[Alma 34.9|Alma 34:9–10]][[Alma 34.10|]]).
+The Book of Mormon teaches, “For it is expedient that an atonement should be made … , or else all mankind must unavoidably perish; yea, all are hardened; yea, all are fallen and are lost, and must perish except it be through the atonement … an infinite and eternal sacrifice” ([[Alma 34.9|Alma 34:9–10]][[Alma 34.10|]]).
 
 We may not live perfect lives, and there are penalties for our mistakes, but before we came to earth, we agreed to be subject to His laws and to accept the punishment for violating those laws.
 
@@ -58,23 +60,18 @@ We seek to strengthen the testimonies of the young and old, the married and sing
 
 “For as the body is one, and hath many members, and all the members of that one body, being many, are one body: so also is Christ.
 
-“For by one Spirit are we all baptized into one body. …
+“For by one Spirit are we all baptized into one body. …
 
-“For the body is not one member, but many” ([[1 Corinthians 12.12|1 Corinthians 12:12–14]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]]).
+“For the body is not one member, but many” ([[1 Corinthians 12.12|1 Corinthians 12:12–14]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]]).
 
 Each member serves as a testimony of the life and teachings of Jesus Christ. We are at war with the forces of the adversary, and we need each and every one of us if we are going to succeed in the work the Savior has for us to do.
 
 You might think, “What can I do? I am only one person.”
 
-Certainly Joseph Smith felt very alone at times. He rose to greatness, but he started as a 14-year-old boy who had a question: “Which of all the churches should I join?” (see [[Joseph Smith History 1.10|Joseph Smith—History 1:10]]). Joseph’s faith and testimony of the Savior grew as ours must grow, “line upon line, precept upon precept, here a little and there a little” ([[2 Nephi 28.30|2 Nephi 28:30]]; see also [[D&C 128.21|D&C 128:21]]). Joseph knelt to pray, and what marvelous things have come about as a result of that prayer and the First Vision.
+Certainly Joseph Smith felt very alone at times. He rose to greatness, but he started as a 14-year-old boy who had a question: “Which of all the churches should I join?” (see [[Joseph Smith History 1.10|Joseph Smith—History 1:10]]). Joseph’s faith and testimony of the Savior grew as ours must grow, “line upon line, precept upon precept, here a little and there a little” ([[2 Nephi 28.30|2 Nephi 28:30]]; see also [[D&C 128.21|D&C 128:21]]). Joseph knelt to pray, and what marvelous things have come about as a result of that prayer and the First Vision.
 
 As one of the Twelve Apostles, I bear witness of the Lord Jesus Christ. He lives. He is our Redeemer and our Savior. “Through the Atonement of Christ, all mankind may be saved” ([[Articles of Faith 1.3|Articles of Faith 1:3]]). He presides over this Church. He is no stranger to His servants. As we move into the future with quiet confidence, His Spirit will be with us. There is no end to His power to bless and direct the lives of those who seek truth and righteousness. I bear witness of Him in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Atonement #Forgiveness #Hope #Jesus_Christ #Repentance #Testimony

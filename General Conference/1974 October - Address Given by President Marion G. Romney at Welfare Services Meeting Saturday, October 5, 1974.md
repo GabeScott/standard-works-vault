@@ -1,6 +1,8 @@
 # Address Given by President Marion G. Romney at Welfare Services Meeting Saturday, October 5, 1974
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -153,7 +155,7 @@ In this last dispensation, before the Church was a year old, the Lord in a revel
 
 Now he gives the condition of the fulfillment of that promise:
 
-“Wherefore, hear my voice and follow me, and you shall be a free people, …
+“Wherefore, hear my voice and follow me, and you shall be a free people, …
 
 “And let every man esteem his brother as himself, and practise virtue and holiness before me.
 
@@ -163,9 +165,9 @@ Now he gives the condition of the fulfillment of that promise:
 
 “Behold, this I have given unto you as a parable, and it is even as I am. I say unto you, be one; and if ye are not one ye are not mine.
 
-“And now, I give unto the church … a commandment, that certain men among them shall be appointed, …
+“And now, I give unto the church … a commandment, that certain men among them shall be appointed, …
 
-“And they shall look to the poor and the needy, and administer to their relief that they shall not suffer; …
+“And they shall look to the poor and the needy, and administer to their relief that they shall not suffer; …
 
 “And if ye seek the riches which it is the will of the Father to give unto you, ye shall be the richest of all people, for ye shalt have the riches of eternity; …” ([[D&C 38.16|D&C 38:16–20, 22, 24–27, 34–35, 39]][[D&C 38.17|]][[D&C 38.18|]][[D&C 38.19|]][[D&C 38.20|]][[D&C 38.22|]][[D&C 38.24|]][[D&C 38.25|]][[D&C 38.26|]][[D&C 38.27|]][[D&C 38.34|]][[D&C 38.35|]][[D&C 38.39|]].)
 
@@ -209,7 +211,7 @@ In “the law of the Church” as recorded in the forty-second section of the Do
 
 “If thou lovest me thou shalt serve me and keep all my commandments.
 
-“And behold, thou wilt remember the poor, and consecrate of thy properties for their support …
+“And behold, thou wilt remember the poor, and consecrate of thy properties for their support …
 
 “And inasmuch as ye impart of your substance unto the poor, ye will do it unto me; …” ([[D&C 42.29|D&C 42:29–31]][[D&C 42.30|]][[D&C 42.31|]].)
 
@@ -238,8 +240,3 @@ If you here today would like to test this promise, double your fast offerings an
 
 
 
-
-
-
-
-#Welfare

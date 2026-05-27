@@ -1,6 +1,8 @@
 # The Refiner’s Fire
 
-By Elder James E. Faust - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder James E. Faust - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -10,7 +12,7 @@ Coming to this pulpit is always a very humbling responsibility. I seek the guida
 
 I wish to speak this morning to all, but especially to those who feel they have had more trials, sorrows, pricks, and thorns than they can bear and in their adversity are almost drowned in the waters of bitterness. My message is intended as one of hope, strength, and deliverance. I speak of the refiner’s fire.
 
-Some years ago president David O. McKay told from this pulpit of the experience of some of those in the Martin handcart company. Many of these early converts had emigrated from Europe and were too poor to buy oxen or horses and a wagon. They were forced by their poverty to pull handcarts containing all of their belongings across the plains by their own brute strength. President McKay relates an occurrence which took place some years after the heroic exodus: “A teacher, conducting a class, said it was unwise ever to attempt, even to permit them \[the Martin handcart company\] to come across the plains under such conditions.
+Some years ago president David O. McKay told from this pulpit of the experience of some of those in the Martin handcart company. Many of these early converts had emigrated from Europe and were too poor to buy oxen or horses and a wagon. They were forced by their poverty to pull handcarts containing all of their belongings across the plains by their own brute strength. President McKay relates an occurrence which took place some years after the heroic exodus: “A teacher, conducting a class, said it was unwise ever to attempt, even to permit them \[the Martin handcart company\] to come across the plains under such conditions.
 
 “\[According to a class member,\] some sharp criticism of the Church and its leaders was being indulged in for permitting any company of converts to venture across the plains with no more supplies or protection than a handcart caravan afforded.
 
@@ -28,19 +30,19 @@ Into every life there come the painful, despairing days of adversity and buffeti
 
 In our extremities, it is possible to become born again, born anew, renewed in heart and spirit. We no longer ride with the flow of the crowd, but instead we enjoy the promise of Isaiah to be renewed in our strength and “mount up with wings as eagles” ([[Isaiah 40.31|Isa. 40:31]]).
 
-The proving of one’s faith goes before the witnessing, for Moroni testified, “Ye receive no witness until after the trial of your faith” ([[Ether 12.6|Ether 12:6]]). This trial of faith can become a priceless experience. Stated Peter, “That the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ” ([[1 Peter 1.7|1 Pet. 1:7]]). Trials and adversity can be preparatory to becoming born anew.
+The proving of one’s faith goes before the witnessing, for Moroni testified, “Ye receive no witness until after the trial of your faith” ([[Ether 12.6|Ether 12:6]]). This trial of faith can become a priceless experience. Stated Peter, “That the trial of your faith, being much more precious than of gold that perisheth, though it be tried with fire, might be found unto praise and honour and glory at the appearing of Jesus Christ” ([[1 Peter 1.7|1 Pet. 1:7]]). Trials and adversity can be preparatory to becoming born anew.
 
 A rebirth out of spiritual adversity causes us to become new creatures. From the book of Mosiah we learn that all mankind must be born again—born of God, changed, redeemed, and uplifted—to become the sons and daughters of God. (See [[Mosiah 27.24|Mosiah 27:24–27]][[Mosiah 27.25|]][[Mosiah 27.26|]][[Mosiah 27.27|]].)
 
-President Marion G. Romney, speaking for the Lord, has said of this marvelous power: “The effect upon each person’s life is likewise similar. No person whose soul is illuminated by the burning Spirit of God can in this world of sin and dense darkness remain passive. He is driven by an irresistible urge to fit himself to be an active agent of God in furthering righteousness and in freeing the lives and minds of men from the bondage of sin.” (In Conference Report, 4 Oct. 1941, p. 89.)
+President Marion G. Romney, speaking for the Lord, has said of this marvelous power: “The effect upon each person’s life is likewise similar. No person whose soul is illuminated by the burning Spirit of God can in this world of sin and dense darkness remain passive. He is driven by an irresistible urge to fit himself to be an active agent of God in furthering righteousness and in freeing the lives and minds of men from the bondage of sin.” (In Conference Report, 4 Oct. 1941, p. 89.)
 
-The feelings of being reborn were expressed by Parley P. Pratt as follows:
+The feelings of being reborn were expressed by Parley P. Pratt as follows:
 
 “If I had been set to turn the world over, to dig down a mountain, to go to the ends of the earth, or traverse the deserts of Arabia, it would have been easier than to have undertaken to rest, while the Priesthood was upon me. I have received the holy anointing, and I can never rest till the last enemy is conquered, death destroyed, and truth reigns triumphant.” (*Journal of Discourses,* 1:15.)
 
-Unfortunately, some of our greatest tribulations are the result of our own foolishness and weakness and occur because of our own carelessness or transgression. Central to solving these problems is the great need to get back on the right track and, if necessary, engage in each of the steps for full and complete repentance. Through this great principle, many things can be made fully right and all things better. We can go to others for help. To whom can we go? Elder Orson F. Whitney asked and answered this question: “To whom do we look, in days of grief and disaster, for help and consolation? … They are men and women who have suffered, and out of their experience in suffering they bring forth the riches of their sympathy and condolences as a blessing to those now in need. Could they do this had they not suffered themselves?
+Unfortunately, some of our greatest tribulations are the result of our own foolishness and weakness and occur because of our own carelessness or transgression. Central to solving these problems is the great need to get back on the right track and, if necessary, engage in each of the steps for full and complete repentance. Through this great principle, many things can be made fully right and all things better. We can go to others for help. To whom can we go? Elder Orson F. Whitney asked and answered this question: “To whom do we look, in days of grief and disaster, for help and consolation? … They are men and women who have suffered, and out of their experience in suffering they bring forth the riches of their sympathy and condolences as a blessing to those now in need. Could they do this had they not suffered themselves?
 
-“… Is not this God’s purpose in causing his children to suffer? He wants them to become more like himself. God has suffered far more than man ever did or ever will, and is therefore the great source of sympathy and consolation.” (*Improvement Era,* Nov. 1918, p. 7.)
+“… Is not this God’s purpose in causing his children to suffer? He wants them to become more like himself. God has suffered far more than man ever did or ever will, and is therefore the great source of sympathy and consolation.” (*Improvement Era,* Nov. 1918, p. 7.)
 
 Isaiah, before the Savior’s birth, referred to him as “a man of sorrows” ([[Isaiah 53.3|Isa. 53:3]]). Speaking in the Doctrine and Covenants of himself, the Savior said:
 
@@ -48,9 +50,9 @@ Isaiah, before the Savior’s birth, referred to him as “a man of sorrows” (
 
 Some are prone to feel that their afflictions are punishment. Roy Doxey states:
 
-“The Prophet Joseph Smith taught that it is a false idea to believe that the saints will escape all the judgments—disease, pestilence, war, etc.—of the last days; consequently, it is an unhallowed principle to say that these adversities are due to transgression. …
+“The Prophet Joseph Smith taught that it is a false idea to believe that the saints will escape all the judgments—disease, pestilence, war, etc.—of the last days; consequently, it is an unhallowed principle to say that these adversities are due to transgression. …
 
-“President Joseph F. Smith taught that it is a feeble thought to believe that the illness and affliction that come to us are attributable either to the mercy or the displeasure of God.” (*The Doctrine and Covenants Speaks,* Salt Lake City: Deseret Book Co., 1970, vol. 2, p. 373.)
+“President Joseph F. Smith taught that it is a feeble thought to believe that the illness and affliction that come to us are attributable either to the mercy or the displeasure of God.” (*The Doctrine and Covenants Speaks,* Salt Lake City: Deseret Book Co., 1970, vol. 2, p. 373.)
 
 Paul understood this perfectly. When referring to the Savior, he said:
 
@@ -68,7 +70,7 @@ The Stillman Pond family arrived at Winter Quarters and, like many other familie
 
 The journal of Horace K. and Helen Mar Whitney verifies the following regarding four more of the children of Stillman Pond who perished:
 
-“On Wednesday, the 2nd of December 1846, Laura Jane Pond, age 14 years, … died of chills and fever.” Two days later on “Friday, the 4th of December 1846, Harriet M. Pond, age 11 years, … died with chills.” Three days later, “Monday, the 7th of December, 1846, Abigail A. Pond, age 18 years, … died with chills.” Just five weeks later, “Friday, the 15th of January, 1847, Lyman Pond, age 6 years, … died with chills and fever. Four months later, on the 17th of May, 1847, his wife Maria Davis Pond also died. Crossing the plains, Stillman Pond lost nine children and a wife. He became an outstanding colonizer in Utah, and became the senior president of the thirty-fifth Quorum of Seventy. (See Leon Y. and H. Ray Pond, comps., “Stillman Pond, a Biographical Sketch,” in *Sterling Forsyth Histories,* typescript, Church Historical Dept. Archives, pp. 4–5.)
+“On Wednesday, the 2nd of December 1846, Laura Jane Pond, age 14 years, … died of chills and fever.” Two days later on “Friday, the 4th of December 1846, Harriet M. Pond, age 11 years, … died with chills.” Three days later, “Monday, the 7th of December, 1846, Abigail A. Pond, age 18 years, … died with chills.” Just five weeks later, “Friday, the 15th of January, 1847, Lyman Pond, age 6 years, … died with chills and fever. Four months later, on the 17th of May, 1847, his wife Maria Davis Pond also died. Crossing the plains, Stillman Pond lost nine children and a wife. He became an outstanding colonizer in Utah, and became the senior president of the thirty-fifth Quorum of Seventy. (See Leon Y. and H. Ray Pond, comps., “Stillman Pond, a Biographical Sketch,” in *Sterling Forsyth Histories,* typescript, Church Historical Dept. Archives, pp. 4–5.)
 
 Having lost these nine children and his wife in crossing the plains, Stillman Pond did not lose his faith. He did not quit. He went forward. He paid a price, as have many others before and since, to become acquainted with God.
 
@@ -83,8 +85,3 @@ I now wish to conclude by testifying concerning Jesus as the Christ and the Divi
 
 
 
-
-
-
-
-#Adversity #Endurance #Faith #Jesus_Christ #Pioneers #Spirituality

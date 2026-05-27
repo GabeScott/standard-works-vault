@@ -1,6 +1,8 @@
 # His Spirit to Be with You
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Henry B. Eyring
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -124,14 +126,12 @@ I bear my personal witness that the Father is at this moment aware of you, your 
 
 “He that hath an ear, let him hear what the Spirit saith” ([[Revelation 3.20|Revelation 3:20–22]][[Revelation 3.21|]][[Revelation 3.22|]]).
 
-I pray with all my heart that you will hear the voice of the Spirit, which is sent to you so generously. And I pray that you will open your heart always to receive Him. If you ask with real intent and with faith in Jesus Christ for inspiration, you will receive it in the Lord’s way and in His time. God did that for the young Joseph Smith. He does it today for our living prophet, President Russell M. Nelson. He has placed you in the way of other children of God to serve them for Him. I know that not only by what I have seen with my eyes but more powerfully by what the Spirit has whispered to my heart.
+I pray with all my heart that you will hear the voice of the Spirit, which is sent to you so generously. And I pray that you will open your heart always to receive Him. If you ask with real intent and with faith in Jesus Christ for inspiration, you will receive it in the Lord’s way and in His time. God did that for the young Joseph Smith. He does it today for our living prophet, President Russell M. Nelson. He has placed you in the way of other children of God to serve them for Him. I know that not only by what I have seen with my eyes but more powerfully by what the Spirit has whispered to my heart.
 
 I have felt the love of the Father and of His Beloved Son for all the children of God in the world and for His children in the spirit world. I have felt the comfort and the direction of the Holy Ghost. I pray that you may have the joy of having the Spirit with you as your companion constantly. In the name of Jesus Christ, amen.
 
 
 
 
+[^1]: “Abide with Me; ’Tis Eventide,” *Hymns,* no. 165.
 
-
-
-#Adversity #Holy_Ghost #Inspiration #Joseph_Smith #Love

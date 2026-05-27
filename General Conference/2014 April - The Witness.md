@@ -1,6 +1,8 @@
 # The Witness
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -26,7 +28,7 @@ The revelations promise that “whatever principle of intelligence we attain unt
 
 One eternal truth that I have come to know is that God lives. He is our Father. We are His children. “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|Articles of Faith 1:1]]).
 
-Of all the other titles that He could have used, He chose to be called “Father.” The Savior commanded, “After this manner therefore pray ye: Our Father who art in heaven” ([[3 Nephi 13.9|3 Nephi 13:9]]; see also [[Matthew 6.9|Matthew 6:9]]). His use of the name “Father” is a lesson for all as we come to understand what it is that matters most in this life.
+Of all the other titles that He could have used, He chose to be called “Father.” The Savior commanded, “After this manner therefore pray ye: Our Father who art in heaven” ([[3 Nephi 13.9|3 Nephi 13:9]]; see also [[Matthew 6.9|Matthew 6:9]]). His use of the name “Father” is a lesson for all as we come to understand what it is that matters most in this life.
 
 Parenthood is a sacred privilege, and depending upon faithfulness, it can be an eternal blessing. The ultimate end of all activity in the Church is that a man and his wife and their children can be happy at home.
 
@@ -58,7 +60,7 @@ There is that great incident in the Book of Mormon where the Nephites “were pr
 
 “And whoso taketh upon him my name, and endureth to the end, the same shall be saved. …
 
-“Therefore, whatsoever ye shall do, ye shall do it in my name; therefore ye shall call the church in my name; and ye shall call upon the Father in my name that he will bless the church for my sake” ([[3 Nephi 27.2|3 Nephi 27:2–7]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]]).
+“Therefore, whatsoever ye shall do, ye shall do it in my name; therefore ye shall call the church in my name; and ye shall call upon the Father in my name that he will bless the church for my sake” ([[3 Nephi 27.2|3 Nephi 27:2–7]][[3 Nephi 27.3|]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]]).
 
 It is His name, Jesus Christ, “for there is none other name under heaven given among men, whereby we must be saved” ([[Acts 4.12|Acts 4:12]]).
 
@@ -66,7 +68,7 @@ In the Church we know who He is: Jesus Christ, the Son of God. He is the Only Be
 
 Each Sunday across the world where congregations gather of any nationality or tongue, the sacrament is blessed with the same words. We take upon ourselves the name of Christ and always remember Him. That is imprinted upon us.
 
-The prophet Nephi declared, “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
+The prophet Nephi declared, “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
 
 Each of us must come to our own personal testimony of the Lord Jesus Christ. We then share that testimony with our family and others.
 
@@ -99,8 +101,3 @@ I bear my witness that the Savior lives. I *know* the Lord. I am His witness. I 
 
 
 
-
-
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Parenthood #Testimony #Truth

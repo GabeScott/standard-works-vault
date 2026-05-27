@@ -1,6 +1,8 @@
 # The Bond of Charity
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -14,7 +16,7 @@ In Spanish the word *charity* means “the love that never ceases to be.” In M
 
 This seemed to be a characteristic of Ruth, whose feelings for Naomi are recorded in the Old Testament. Ruth was compassionate, even though the circumstances of her life were bitter. Bitter experiences come into the lives of all of us. Without the bitter, we cannot know the sweet. The prophet Lehi explained:
 
-“For it must needs be, that there is an opposition in all things. If not so, … righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad. Wherefore, all things must needs be a compound in one.” ([[2 Nephi 2.11|2 Ne. 2:11]].)
+“For it must needs be, that there is an opposition in all things. If not so, … righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad. Wherefore, all things must needs be a compound in one.” ([[2 Nephi 2.11|2 Ne. 2:11]].)
 
 Ruth knew this opposition. She was just a young woman when her husband died and left her alone without child. It was a bitter time, and yet there was the sweetness of her relationship with her mother-in-law and the strength of her faith in the God of Israel. Both had come into her life because of her marriage.
 
@@ -53,8 +55,3 @@ God grant that we may “learn, then teach” with receptive minds and clear pur
 
 
 
-
-
-
-
-#Charity #Relief_Society

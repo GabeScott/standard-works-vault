@@ -1,5 +1,7 @@
 # The Family: A Proclamation to the World
 
+Gordon B. Hinckley
+
 By The First Presidency and Council of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints
 
 *Given in the October session of the 1995 General Conference*
@@ -29,8 +31,3 @@ We call upon responsible citizens and officers of government everywhere to promo
 
 
 
-
-
-
-
-#Children #Family #Home #Marriage #Morality #Parenthood

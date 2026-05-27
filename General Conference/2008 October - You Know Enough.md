@@ -1,5 +1,7 @@
 # You Know Enough
 
+Thomas S. Monson
+
 By Elder Neil L. Andersen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -54,22 +56,20 @@ Then, unexpectedly, Hadley turned to the little boy and said, “Did you know th
 
 Hadley knew enough.
 
-Jesus is the Christ. He is resurrected. He is our Savior and Redeemer. All will be made well when He comes again. This is His holy work. Through the Prophet Joseph Smith, His priesthood was restored upon the earth, and His prophet today is President Thomas S. Monson. I so testify in the name of Jesus Christ, amen.
+Jesus is the Christ. He is resurrected. He is our Savior and Redeemer. All will be made well when He comes again. This is His holy work. Through the Prophet Joseph Smith, His priesthood was restored upon the earth, and His prophet today is President Thomas S. Monson. I so testify in the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[Moroni 6.3|Moroni 6:3]].
 
-[^2]: [[1 Nephi 11.17|1 Nephi 11:17]].
+[^2]: [[1 Nephi 11.17|1 Nephi 11:17]].
 
-[^3]: [[Luke 14.note27b|Joseph Smith Translation, Luke 14:28]].
+[^3]: [Joseph Smith Translation, Luke 14:28](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14?lang=eng&id=note27b#note27b).
 
 [^4]: [[Mark 5.36|Mark 5:36]].
 
 [^5]: [[D&C 50.24|D&C 50:24]].
 
+[^6]: [[Matthew 18.3|Matthew 18:3]].
 
-
-
-#Adversity #Faith #Testimony

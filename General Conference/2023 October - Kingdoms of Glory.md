@@ -1,6 +1,8 @@
 # Kingdoms of Glory
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+David A. Bednar
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -32,11 +34,11 @@ A uniquely valuable teaching to help us prepare for exaltation is the 1995 procl
 
 The Apostle Paul describes the three degrees of glory, likening them to the glories of the sun, moon, and stars.[^12] He names the highest “celestial” and the second “terrestrial.”[^13] He does not name the lowest, but a revelation to Joseph Smith added its name: “telestial.”[^14] Another revelation also describes the nature of the persons to be assigned to each of these kingdoms of glory. Those who do not choose “to abide the law of a celestial kingdom”[^15] will inherit another kingdom of glory, lesser than the celestial but suited to the laws they have chosen and can comfortably “abide.” That word *abide*, so common in the scriptures, means a secure placement.[^16] For example, those in the terrestrial kingdom—comparable to the popular concept of heaven—“are they who receive of the presence of the Son, but not of the fulness of the Father.”[^17] They were “honorable men of the earth, who were blinded by the craftiness of men,”[^18] but “not valiant in the testimony of Jesus.”[^19]
 
-The revealing description of those assigned to the lowest of the kingdoms of glory, the telestial, is “he who cannot abide … a terrestrial glory.”[^20] That describes those who reject the Savior and have observed no divine limits on their behavior. This is the kingdom where the wicked abide, after they have suffered for their sins. These are described in modern revelation as “they who received not the gospel of Christ, neither the testimony of Jesus. …
+The revealing description of those assigned to the lowest of the kingdoms of glory, the telestial, is “he who cannot abide … a terrestrial glory.”[^20] That describes those who reject the Savior and have observed no divine limits on their behavior. This is the kingdom where the wicked abide, after they have suffered for their sins. These are described in modern revelation as “they who received not the gospel of Christ, neither the testimony of Jesus. …
 
 “These are they who are liars, and sorcerers, and adulterers, and whoremongers, and whosoever loves and makes a lie.”[^21]
 
-Speaking of the three kingdoms of glory with his prophetic vision, President Russell M. Nelson recently wrote: “Mortal lifetime is barely a nanosecond compared with eternity. But what a crucial nanosecond it is! Consider carefully how it works: During this mortal life you get to choose which laws you are willing to obey—those of the celestial kingdom, or the terrestrial, or the telestial—and, therefore, in which kingdom of glory you will live forever. What a plan! It is a plan that completely honors *your* agency.”[^22]
+Speaking of the three kingdoms of glory with his prophetic vision, President Russell M. Nelson recently wrote: “Mortal lifetime is barely a nanosecond compared with eternity. But what a crucial nanosecond it is! Consider carefully how it works: During this mortal life you get to choose which laws you are willing to obey—those of the celestial kingdom, or the terrestrial, or the telestial—and, therefore, in which kingdom of glory you will live forever. What a plan! It is a plan that completely honors *your* agency.”[^22]
 
 ## III.
 
@@ -48,7 +50,7 @@ From such teachings we conclude that the Final Judgment is not just an evaluatio
 
 Because of Jesus Christ and His Atonement, when we fall short in this life, we can repent and rejoin the covenant path that leads to what our Heavenly Father desires for us.
 
-The Book of Mormon teaches that “this life is the time for \[us\] to prepare to meet God.”[^25] But that challenging limitation to “this life” was given a hopeful context (at least to some extent for some persons) by what the Lord revealed to President Joseph F. Smith, now recorded in [[D&C 138.1|Doctrine and Covenants section 138]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.5|]][[D&C 138.6|]][[D&C 138.7|]][[D&C 138.8|]][[D&C 138.9|]][[D&C 138.10|]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]][[D&C 138.38|]][[D&C 138.39|]][[D&C 138.40|]][[D&C 138.41|]][[D&C 138.42|]][[D&C 138.43|]][[D&C 138.44|]][[D&C 138.45|]][[D&C 138.46|]][[D&C 138.47|]][[D&C 138.48|]][[D&C 138.49|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]][[D&C 138.53|]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]][[D&C 138.57|]][[D&C 138.58|]][[D&C 138.59|]][[D&C 138.60|]]. “I beheld,” the prophet wrote, “that the faithful elders of this dispensation, when they depart from mortal life, continue their labors in the preaching of the gospel of repentance and redemption, through the sacrifice of the Only Begotten Son of God, among those who are in darkness and under the bondage of sin in the great world of the spirits of the dead.
+The Book of Mormon teaches that “this life is the time for \[us\] to prepare to meet God.”[^25] But that challenging limitation to “this life” was given a hopeful context (at least to some extent for some persons) by what the Lord revealed to President Joseph F. Smith, now recorded in [[D&C 138.1|Doctrine and Covenants section 138]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.5|]][[D&C 138.6|]][[D&C 138.7|]][[D&C 138.8|]][[D&C 138.9|]][[D&C 138.10|]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]][[D&C 138.38|]][[D&C 138.39|]][[D&C 138.40|]][[D&C 138.41|]][[D&C 138.42|]][[D&C 138.43|]][[D&C 138.44|]][[D&C 138.45|]][[D&C 138.46|]][[D&C 138.47|]][[D&C 138.48|]][[D&C 138.49|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]][[D&C 138.53|]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]][[D&C 138.57|]][[D&C 138.58|]][[D&C 138.59|]][[D&C 138.60|]]. “I beheld,” the prophet wrote, “that the faithful elders of this dispensation, when they depart from mortal life, continue their labors in the preaching of the gospel of repentance and redemption, through the sacrifice of the Only Begotten Son of God, among those who are in darkness and under the bondage of sin in the great world of the spirits of the dead.
 
 “The dead who repent will be redeemed, through obedience to the ordinances of the house of God,
 
@@ -56,7 +58,7 @@ The Book of Mormon teaches that “this life is the time for \[us\] to prepare t
 
 In addition, we know that the Millennium, the thousand years that follow the Second Coming of the Savior, will be a time to perform the required ordinances for those who have not received them in their mortal lives.[^27]
 
-There is much we do not know about the three major periods in the plan of salvation and their relationship to one another: (1) the premortal spirit world, (2) mortality, and (3) the next life. But we do know these eternal truths: “Salvation is an individual matter, but exaltation is a family matter.”[^28] We have a loving Heavenly Father who will see that we receive every blessing and every advantage that our own desires and choices allow. We also know that He will force no one into a sealing relationship against his or her will. The blessings of a sealed relationship are assured for all who keep their covenants but never by forcing a sealed relationship on another person who is unworthy or unwilling.
+There is much we do not know about the three major periods in the plan of salvation and their relationship to one another: (1) the premortal spirit world, (2) mortality, and (3) the next life. But we do know these eternal truths: “Salvation is an individual matter, but exaltation is a family matter.”[^28] We have a loving Heavenly Father who will see that we receive every blessing and every advantage that our own desires and choices allow. We also know that He will force no one into a sealing relationship against his or her will. The blessings of a sealed relationship are assured for all who keep their covenants but never by forcing a sealed relationship on another person who is unworthy or unwilling.
 
 My dear brothers and sisters, I testify of the truth of these things. I testify of our Lord Jesus Christ, “the author and finisher of our faith,”[^29] whose Atonement, under the plan of our Father in Heaven, makes it all possible, in the name of Jesus Christ, amen.
 
@@ -71,7 +73,7 @@ My dear brothers and sisters, I testify of the truth of these things. I testify 
 
 [^4]: [[D&C 88.36|Doctrine and Covenants 88:36]].
 
-[^5]: [[1 Corinthians 15.40|1 Corinthians 15:40]]; see also [[JST 1 Corinthians 15.40|Joseph Smith Translation, 1 Corinthians 15:40]] (in [[1 Corinthians 15.40|1 Corinthians 15:40]], footnote *a*).
+[^5]: [[1 Corinthians 15.40|1 Corinthians 15:40]]; see also [[JST 1 Corinthians 15.40|Joseph Smith Translation, 1 Corinthians 15:40]] (in [[1 Corinthians 15.40|1 Corinthians 15:40]], footnote *a*).
 
 [^6]: See [[D&C 131.1|Doctrine and Covenants 131:1]].
 
@@ -79,21 +81,21 @@ My dear brothers and sisters, I testify of the truth of these things. I testify 
 
 [^8]: [[D&C 76.62|Doctrine and Covenants 76:62]].
 
-[^9]: See [[1 Corinthians 11.11|1 Corinthians 11:11]]; [[D&C 132.19|Doctrine and Covenants 132:19–20]][[D&C 132.20|]].
+[^9]: See [[1 Corinthians 11.11|1 Corinthians 11:11]]; [[D&C 132.19|Doctrine and Covenants 132:19–20]][[D&C 132.20|]].
 
-[^10]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
+[^10]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
 
-[^11]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1).”
+[^11]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1).”
 
-[^12]: See [[1 Corinthians 15.41|1 Corinthians 15:41]].
+[^12]: See [[1 Corinthians 15.41|1 Corinthians 15:41]].
 
-[^13]: [[1 Corinthians 15.40|1 Corinthians 15:40]].
+[^13]: [[1 Corinthians 15.40|1 Corinthians 15:40]].
 
-[^14]: [[JST 1 Corinthians 15.40|Joseph Smith Translation, 1 Corinthians 15:40]] (in [[1 Corinthians 15.40|1 Corinthians 15:40]], footnote *a*).
+[^14]: [[JST 1 Corinthians 15.40|Joseph Smith Translation, 1 Corinthians 15:40]] (in [[1 Corinthians 15.40|1 Corinthians 15:40]], footnote *a*).
 
 [^15]: [[D&C 88.22|Doctrine and Covenants 88:22]].
 
-[^16]: See Topical Guide, [“Abide”](https://churchofjesuschrist.org/study/scriptures/tg/abide?lang=eng); [[John 15.4|John 15:4–7, 10]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.10|]].
+[^16]: See Topical Guide, [[Abide|“Abide”]]; [[John 15.4|John 15:4–7, 10]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.10|]].
 
 [^17]: [[D&C 76.77|Doctrine and Covenants 76:77]].
 
@@ -105,24 +107,19 @@ My dear brothers and sisters, I testify of the truth of these things. I testify 
 
 [^21]: [[D&C 76.82|Doctrine and Covenants 76:82, 103]][[D&C 76.103|]].
 
-[^22]: Russell M. Nelson, *Heart of the Matter* (2023), 45.
+[^22]: Russell M. Nelson, *Heart of the Matter* (2023), 45.
 
 [^23]: [[Ephesians 4.13|Ephesians 4:13]].
 
-[^24]: See Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32–34; *Liahona*, Jan. 2001, 40–43.
+[^24]: See Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32–34; *Liahona*, Jan. 2001, 40–43.
 
 [^25]: [[Alma 34.32|Alma 34:32]].
 
 [^26]: [[D&C 138.57|Doctrine and Covenants 138:57–59]][[D&C 138.58|]][[D&C 138.59|]].
 
-[^27]: See [[D&C 29.11|Doctrine and Covenants 29:11]]; *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 413–14.
+[^27]: See [[D&C 29.11|Doctrine and Covenants 29:11]]; *[Teachings of Presidents of the Church: Joseph F. Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-f-smith/chapter-46?lang=eng&id=p27#p27)* (1998), 413–14.
 
-[^28]: Russell M. Nelson, “[[2019 April - “Come, Follow Me”.md|Come, Follow Me]],” *Ensign* or *Liahona*, May 2019, 89.
+[^28]: Russell M. Nelson, “[[2019 April - “Come, Follow Me”.md|Come, Follow Me]],” *Ensign* or *Liahona*, May 2019, 89.
 
 [^29]: [[Hebrews 12.2|Hebrews 12:2]]; see also [[Moroni 6.4|Moroni 6:4]].
 
-
-
-
-
-#Agency #Church_Doctrine #Covenants #Ordinances #Plan_Of_Salvation

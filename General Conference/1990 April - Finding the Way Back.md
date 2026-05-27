@@ -1,5 +1,7 @@
 # Finding the Way Back
 
+Thomas S. Monson
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -12,7 +14,7 @@ I speak to you who find yourselves caught in a pattern of life that you neither 
 
 I need not define your specific problem to help you overcome it. It doesn’t matter what it is. If it violates the commandments of the Lord, it comes from Satan, and the Lord can overcome all of Satan’s influence through your application of righteous principles.
 
-Please understand that the way back is not as hard as it seems to you now. Satan wants you to think that it is impossible. That is not true. The Savior gave His life so that you can completely overcome the challenges you face (see [[2 Nephi 2.6|2 Ne. 2:6–8]][[2 Nephi 2.7|]][[2 Nephi 2.8|]]).
+Please understand that the way back is not as hard as it seems to you now. Satan wants you to think that it is impossible. That is not true. The Savior gave His life so that you can completely overcome the challenges you face (see [[2 Nephi 2.6|2 Ne. 2:6–8]][[2 Nephi 2.7|]][[2 Nephi 2.8|]]).
 
 Do you find that when someone mentions the mistakes you’re making, you are prone to lie about them, to indicate that they are much less severe than they truly are? Do you admit only to what is publicly seen and try to hide from others how really bad conditions are? Worst of all, do you lie to yourself, pretending that things are all right when they are not? That attitude prevents you from getting the help you need. It provides an invitation to more serious problems.
 
@@ -32,9 +34,9 @@ Why the giving of self? Because selfishness is at the root of your problem. Wher
 
 Your exercise of faith permits you to call upon the strength of the Lord when you need it. Obedience to His commandments allows that help to be given. The power of God will come into your life because of your faithful obedience to His commandments.
 
-Don’t live your life in despair, feeling sorry for yourself because of the mistakes you have made. Let the sunshine in by doing the right things—now (see [[1 Nephi 22.26|1 Ne. 22:26]]).
+Don’t live your life in despair, feeling sorry for yourself because of the mistakes you have made. Let the sunshine in by doing the right things—now (see [[1 Nephi 22.26|1 Ne. 22:26]]).
 
-It may be difficult to begin, but pick up the scriptures and immerse yourself in them. Look for favorite passages. Lean on the Master’s teachings, on His servants’ testimonies. Refresh your parched soul with the word of God (see [[2 Nephi 4.15|2 Ne. 4:15–16]][[2 Nephi 4.16|]]). The scriptures will give you comfort and the strength to overcome (see [[Helaman 3.29|Hel. 3:29–30]][[Helaman 3.30|]]).
+It may be difficult to begin, but pick up the scriptures and immerse yourself in them. Look for favorite passages. Lean on the Master’s teachings, on His servants’ testimonies. Refresh your parched soul with the word of God (see [[2 Nephi 4.15|2 Ne. 4:15–16]][[2 Nephi 4.16|]]). The scriptures will give you comfort and the strength to overcome (see [[Helaman 3.29|Hel. 3:29–30]][[Helaman 3.30|]]).
 
 If you’ve tangled your ordered life into a ball of knots, it has taken time to get it that way. It is unreasonable to expect to unravel it all at once. Start knot by knot, decision by decision, and be sure that while you are untying the knots, you don’t let any more get put there through transgression.
 
@@ -70,7 +72,7 @@ When you decide to change and then discover that there is a way to cheat on your
 
 To reach a goal you have never before attained, you must do things you have never before done.
 
-Don’t confront your problem armed with only your own experience, understanding, and strength. Count on the infinite power of the Lord by deciding *now* to be obedient to His teachings (see [[2 Nephi 31.19|2 Ne. 31:19–21]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]).
+Don’t confront your problem armed with only your own experience, understanding, and strength. Count on the infinite power of the Lord by deciding *now* to be obedient to His teachings (see [[2 Nephi 31.19|2 Ne. 31:19–21]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]).
 
 If loved ones seem to ignore you, it is because they don’t know what to do. Their past attempts to help have been rejected; you have not wanted help. Reach out to them trustingly. Ask for support in your sincere efforts to change. Give them reason to know that this time is different because you will do it the Lord’s way.
 
@@ -81,8 +83,3 @@ I wish I could replace your doubt with my certainty, but I can’t give it to yo
 
 
 
-
-
-
-
-#Plan_Of_Salvation #Repentance

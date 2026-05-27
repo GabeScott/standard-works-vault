@@ -1,5 +1,7 @@
 # Tithing—Putting God First
 
+Dallin H. Oaks
+
 By Elder Jorge T. Becerra - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -10,7 +12,7 @@ By Elder Jorge T. Becerra - *Of the Seventy*
 
 The prophet Alma asked several penetrating questions to help the Church members in Zarahemla have “a mighty change” of heart as disciples of Jesus Christ ([[Alma 5.12|Alma 5:12]]). Shortly thereafter, he taught the people of Gideon. Something he taught caught my attention as I read, “I have come having great hopes … that ye had humbled yourselves before God, and that … ye were not in the *awful dilemma* that our brethren were in at Zarahemla” ([[Alma 7.3|Alma 7:3]]; emphasis added).
 
-Later in the same sermon, he repeated, “I had much desire that ye were not in the *state of dilemma* like your brethren” ([[Alma 7.18|Alma 7:18]]; emphasis added). What was this awful dilemma? The footnote in [[Alma 7.18|verse 18]] leads us to a possible answer. The Apostle James taught us what this dilemma could be: “A double minded man is unstable in all his ways” ([[James 1.8|James 1:8]]).
+Later in the same sermon, he repeated, “I had much desire that ye were not in the *state of dilemma* like your brethren” ([[Alma 7.18|Alma 7:18]]; emphasis added). What was this awful dilemma? The footnote in [[Alma 7.18|verse 18]] leads us to a possible answer. The Apostle James taught us what this dilemma could be: “A double minded man is unstable in all his ways” ([[James 1.8|James 1:8]]).
 
 A double-minded person is one who is wavering, indecisive, or conflicted, someone who lacks commitment to a single purpose or belief. One way to overcome double-mindedness is to learn to put God *first* in our lives. Jesus Christ taught, “Seek ye *first* the kingdom of God, and his righteousness” ([[Matthew 6.33|Matthew 6:33]]; emphasis added).
 
@@ -63,4 +65,5 @@ Elder David A. Bednar observed: “The imagery of the ‘windows’ of heaven us
 I witness that Jesus Christ is the perfect example of how to put God first in our lives. I witness that He laid down His life as a symbol of complete submission to His Father’s will. He is the Christ, the Redeemer and Savior of us all. Dallin H. Oaks is His prophet. I bear solemn witness that He lives, in the name of Jesus Christ, amen.
 
 
-#Obedience #Sacrifice #Tithing
+
+

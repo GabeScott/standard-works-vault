@@ -1,5 +1,7 @@
 # Keeping the Covenants We Make at Baptism
 
+Gordon B. Hinckley
+
 By Dwan J. Young - *Primary General President*
 
 *Given in the October session of the 1984 General Conference*
@@ -75,7 +77,7 @@ We can all do what Christ asks us to do. He has a plan that will bring us happin
 >And in my home above.
 >
 
-In this song the ten- and eleven-year-old girls have told us we can be happy now and forever if we follow God’s plan, which begins with baptism. It is the gate to the celestial kingdom. (See [[2 Nephi 31.18|2 Ne. 31:18]].)
+In this song the ten- and eleven-year-old girls have told us we can be happy now and forever if we follow God’s plan, which begins with baptism. It is the gate to the celestial kingdom. (See [[2 Nephi 31.18|2 Ne. 31:18]].)
 
 As followers of Christ, we should “look forward with one eye, having one faith and one baptism, having … hearts knit together in unity and in love one towards another.” ([[Mosiah 18.21|Mosiah 18:21]].)
 
@@ -86,8 +88,3 @@ I pray that we will have unity and love as we strive together to keep the covena
 
 
 
-
-
-
-
-#Covenants #Ordinances

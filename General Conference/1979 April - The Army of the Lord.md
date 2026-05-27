@@ -1,6 +1,8 @@
 # The Army of the Lord
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -46,7 +48,7 @@ By so doing, you will ever be found part of that royal army of the Lord. Let us 
 
 Isn’t it appropriate that you do not call yourselves to this work? Isn’t it wise that your parents do not call you? Rather, you are called of God by prophecy and by revelation. Your call bears the signature of the President of the Church.
 
-It was my privilege to serve for many years with President Spencer W. Kimball when he was chairman of the Missionary Executive Committee of the Church. Those never-to-be-forgotten missionary assignment meetings were filled with inspiration and occasionally interspersed with humor. Well do I remember the recommendation form for one prospective missionary on which the bishop had written: “This young man is very close to his mother. She wonders if he might be assigned to a mission close to home in California so that she can visit him on occasion and telephone him weekly.” As I read aloud this comment, I awaited from President Kimball the pronouncement of a designated assignment. I noticed a twinkle in his eye and a sweet smile cross his lips as he said, without additional comment, “Assign him to the Johannesburg South Africa Mission.”
+It was my privilege to serve for many years with President Spencer W. Kimball when he was chairman of the Missionary Executive Committee of the Church. Those never-to-be-forgotten missionary assignment meetings were filled with inspiration and occasionally interspersed with humor. Well do I remember the recommendation form for one prospective missionary on which the bishop had written: “This young man is very close to his mother. She wonders if he might be assigned to a mission close to home in California so that she can visit him on occasion and telephone him weekly.” As I read aloud this comment, I awaited from President Kimball the pronouncement of a designated assignment. I noticed a twinkle in his eye and a sweet smile cross his lips as he said, without additional comment, “Assign him to the Johannesburg South Africa Mission.”
 
 Too numerous to mention are the many instances where a particular call proved providential. This I know—divine inspiration attends such sacred assignments. We, with you, acknowledge the truth stated so simply in the Doctrine and Covenants: “If ye have desires to serve God ye are called to the work” ([[D&C 4.3|D&C 4:3]]).
 
@@ -117,8 +119,3 @@ This is my earnest and sincere prayer. I ask it humbly and in the name of Jesus 
 
 
 
-
-
-
-
-#Missionary_Work #Priesthood

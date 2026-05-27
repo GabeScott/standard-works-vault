@@ -1,5 +1,7 @@
 # Making the Right Choices
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -55,48 +57,43 @@ Please stay morally clean. The Lord will make that possible as you do your part 
 
 
 
-[^1]: See *Discourses of Wilford Woodruff,* sel. G. Homer Durham (Salt Lake City: Bookcraft, 1946), p. 64; see also “Discourse by President Wilford Woodruff,” *Millennial Star,* 21 Oct. 1889, p. 657.
+[^1]: See *Discourses of Wilford Woodruff,* sel. G. Homer Durham (Salt Lake City: Bookcraft, 1946), p. 64; see also “Discourse by President Wilford Woodruff,” *Millennial Star,* 21 Oct. 1889, p. 657.
 
-[^2]: See [[1 Corinthians 10.13|1 Cor. 10:13]].
+[^2]: See [[1 Corinthians 10.13|1 Cor. 10:13]].
 
-[^3]: See H. Burke Peterson, in Conference Report, Oct. 1993, pp. 58–61; or *Ensign,* Nov. 1993, pp. 42–44.
+[^3]: See H. Burke Peterson, in Conference Report, Oct. 1993, [[1993 October - “Touch Not the Evil Gift, nor the Unclean Thing”.md|pp. 58–61]]; or *Ensign,* Nov. 1993, pp. 42–44.
 
-[^4]: See *The Teachings of Ezra Taft Benson* (Salt Lake City: Bookcraft, 1988), pp. 278, 445–46.
+[^4]: See *The Teachings of Ezra Taft Benson* (Salt Lake City: Bookcraft, 1988), pp. 278, 445–46.
 
-[^5]: See Boyd K. Packer, in Conference Report, Oct. 1973, pp. 23–24; or *Ensign,* Jan. 1974, pp. 27–28.
+[^5]: See Boyd K. Packer, in Conference Report, Oct. 1973, [[1973 October - Inspiring Music—Worthy Thoughts.md|pp. 23–24]]; or *Ensign,* Jan. 1974, pp. 27–28.
 
-[^6]: See Thomas S. Monson, in Conference Report, Oct. 1990, p. 61; or *Ensign,* Nov. 1990, p. 47; see also Robert L. Simpson, in Conference Report, Oct. 1972, p. 144; or *Ensign,* Jan. 1973, p. 112.
+[^6]: See Thomas S. Monson, in Conference Report, Oct. 1990, [[1990 October - That We May Touch Heaven.md|p. 61]]; or *Ensign,* Nov. 1990, p. 47; see also Robert L. Simpson, in Conference Report, Oct. 1972, [[1972 October - Pollution of the Mind.md|p. 144]]; or *Ensign,* Jan. 1973, p. 112.
 
-[^7]: See Spencer W. Kimball, in Conference Report, Apr. 1974, p. 9; or *Ensign,* May 1974, p. 7.
+[^7]: See Spencer W. Kimball, in Conference Report, Apr. 1974, [[1974 April - Guidelines to Carry Forth the Work of God in Cleanliness.md|p. 9]]; or *Ensign,* May 1974, p. 7.
 
-[^8]: See Boyd K. Packer, in Conference Report, Apr. 1972, pp. 136–39; or *Ensign,* July 1972, pp. 111–13.
+[^8]: See Boyd K. Packer, in Conference Report, Apr. 1972, [[1972 April - Why Stay Morally Clean.md|pp. 136–39]]; or *Ensign,* July 1972, pp. 111–13.
 
-[^9]: See Spencer W. Kimball, “President Kimball Speaks Out on Morality,” *Ensign,* Nov. 1980, pp. 97–98.
+[^9]: See Spencer W. Kimball, “President Kimball Speaks Out on Morality,” *Ensign,* Nov. 1980, pp. 97–98.
 
 [^10]: See [[D&C 43.9|D&C 43:9, 15–16]][[D&C 43.15|]][[D&C 43.16|]].
 
-[^11]: See Spencer W. Kimball, in Conference Report, Oct. 1974, p. 8; or *Ensign,* Nov. 1974, p. 8; in Conference Report, Oct. 1977, pp. 6–7; or *Ensign,* Nov. 1977, p. 6; “President Kimball Speaks Out on Morality,” *Ensign,* Nov. 1980, p. 97.
+[^11]: See Spencer W. Kimball, in Conference Report, Oct. 1974, [[1974 October - God Will Not Be Mocked.md|p. 8]]; or *Ensign,* Nov. 1974, p. 8; in Conference Report, Oct. 1977, [[1977 October - The Foundations of Righteousness.md|pp. 6–7]]; or *Ensign,* Nov. 1977, p. 6; “President Kimball Speaks Out on Morality,” *Ensign,* Nov. 1980, p. 97.
 
-[^12]: See *The Teachings of Ezra Taft Benson,* pp. 283–84.
+[^12]: See *The Teachings of Ezra Taft Benson,* pp. 283–84.
 
-[^13]: See *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), pp. 264–65, 280–81.
+[^13]: See *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), pp. 264–65, 280–81.
 
-[^14]: *The Teachings of Ezra Taft Benson,* pp. 70–72.
+[^14]: *The Teachings of Ezra Taft Benson,* pp. 70–72.
 
 [^15]: See [[D&C 64.33|D&C 64:33–34]][[D&C 64.34|]].
 
-[^16]: See [[D&C 84.35|D&C 84:35–39]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]]; see also Spencer W. Kimball, *The Miracle of Forgiveness* (Salt Lake City: Bookcraft, 1969), pp. 124–25.
+[^16]: See [[D&C 84.35|D&C 84:35–39]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]]; see also Spencer W. Kimball, *The Miracle of Forgiveness* (Salt Lake City: Bookcraft, 1969), pp. 124–25.
 
-[^17]: See *The Teachings of Spencer W. Kimball,* p. 494.
+[^17]: See *The Teachings of Spencer W. Kimball,* p. 494.
 
 [^18]: See [[Moroni 10.32|Moro. 10:32]].
 
 [^19]: [[D&C 82.10|D&C 82:10]].
 
-[^20]: See [[3 Nephi 18.20|3 Ne. 18:20]].
+[^20]: See [[3 Nephi 18.20|3 Ne. 18:20]].
 
-
-
-
-
-#Agency #Friendship #Holy_Ghost #Love #Marriage #Media #Morality #Peer_Pressure #Repentance #Satan #Sin #Youth

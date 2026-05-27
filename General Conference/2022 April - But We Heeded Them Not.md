@@ -1,8 +1,8 @@
 # But We Heeded Them Not
 
-([[1 Nephi 8.33|1 Nephi 8:33]])
+Russell M. Nelson
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -10,7 +10,7 @@ By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/04/14bednar?lang=eng)
 
-My wife, Susan, our three sons and their wives, all of our grandchildren, and Elder Quentin L. Cook, my seatmate in the Quorum of the Twelve for almost 15 years, all readily will attest to the fact that I do not sing well. But in spite of my lack of vocal talent, I love to sing the hymns of the Restoration. The combination of inspired lyrics and majestic melodies helps me to learn essential gospel principles and stirs my soul.
+My wife, Susan, our three sons and their wives, all of our grandchildren, and Elder Quentin L. Cook, my seatmate in the Quorum of the Twelve for almost 15 years, all readily will attest to the fact that I do not sing well. But in spite of my lack of vocal talent, I love to sing the hymns of the Restoration. The combination of inspired lyrics and majestic melodies helps me to learn essential gospel principles and stirs my soul.
 
 One hymn that has blessed my life in remarkable ways is “Let Us All Press On.” Recently I have been pondering and learning about a specific phrase in the refrain of that hymn. “*We will heed not* what the wicked may say, but the Lord alone we will obey.”[^1]
 
@@ -46,7 +46,7 @@ The cardinal direction for all of us in mortality is to come unto and be perfect
 
 ## Holding Fast to the Iron Rod
 
-Our covenant connection with God and Jesus Christ is the channel through which we can receive the capacity and strength to “heed not.” And this bond is strengthened as we continually hold fast to the rod of iron. But as Nephi’s brethren asked, “What meaneth the rod of iron which our father saw … ?
+Our covenant connection with God and Jesus Christ is the channel through which we can receive the capacity and strength to “heed not.” And this bond is strengthened as we continually hold fast to the rod of iron. But as Nephi’s brethren asked, “What meaneth the rod of iron which our father saw … ?
 
 “And \[Nephi\] said unto them that it was the *word of God*; and whoso would hearken unto *the word of God*, and would *hold fast unto it*, they would never perish; neither could the temptations and the fiery darts of the adversary overpower them unto blindness, to lead them away to destruction.”[^19]
 
@@ -54,9 +54,9 @@ Please note that the ability to resist the temptations and the fiery darts of th
 
 Interestingly, the Apostle John described Jesus Christ as the Word.[^20]
 
-“In the beginning was *the Word*, and *the Word* was with God, and *the Word* was God. …
+“In the beginning was *the Word*, and *the Word* was with God, and *the Word* was God. …
 
-“All things were made by him; and without him was not any thing made that was made. …
+“All things were made by him; and without him was not any thing made that was made. …
 
 “And *the Word* was made flesh, and dwelt among us, (and we beheld his glory, the glory as of the only begotten of the Father,) full of grace and truth.”[^21]
 
@@ -66,7 +66,7 @@ In addition, the [[Articles of Faith 1.8|eighth article of faith]] states, “We
 
 Thus, the teachings of the Savior, as recorded in the holy scriptures, also are “the word.”
 
-Let me suggest that holding fast to the word of God entails (1) remembering, honoring, and strengthening the personal connection we have with the Savior and His Father through the covenants and ordinances of the restored gospel and (2) prayerfully, earnestly, and consistently using the holy scriptures and the teachings of living prophets and apostles as sure sources of revealed truth. As we are bound and “hold fast” to the Lord and are transformed by living His doctrine,[^24] I promise that individually and collectively we will be blessed to “stand in holy places, and shall not be moved.”[^25] If we abide in Christ, then He will abide in and walk with us.[^26] Surely, “in the days of trial his Saints he will cheer, and prosper the cause of truth.”[^27]
+Let me suggest that holding fast to the word of God entails (1) remembering, honoring, and strengthening the personal connection we have with the Savior and His Father through the covenants and ordinances of the restored gospel and (2) prayerfully, earnestly, and consistently using the holy scriptures and the teachings of living prophets and apostles as sure sources of revealed truth. As we are bound and “hold fast” to the Lord and are transformed by living His doctrine,[^24] I promise that individually and collectively we will be blessed to “stand in holy places, and shall not be moved.”[^25] If we abide in Christ, then He will abide in and walk with us.[^26] Surely, “in the days of trial his Saints he will cheer, and prosper the cause of truth.”[^27]
 
 ## Testimony
 
@@ -79,15 +79,15 @@ I witness that fidelity to the covenants and ordinances of the Savior’s restor
 
 [^1]: “Let Us All Press On,” *Hymns*, no. 243; emphasis added.
 
-[^2]: [[1 Nephi 8.24|1 Nephi 8:24]].
+[^2]: [[1 Nephi 8.24|1 Nephi 8:24]].
 
-[^3]: [[1 Nephi 8.30|1 Nephi 8:30]].
+[^3]: [[1 Nephi 8.30|1 Nephi 8:30]].
 
-[^4]: [[1 Nephi 8.33|1 Nephi 8:33]].
+[^4]: [[1 Nephi 8.33|1 Nephi 8:33]].
 
-[^5]: [[1 Nephi 8.33|1 Nephi 8:33]]; emphasis added.
+[^5]: [[1 Nephi 8.33|1 Nephi 8:33]]; emphasis added.
 
-[^6]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^6]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
 [^7]: *Hymns*, no. 243.
 
@@ -95,35 +95,35 @@ I witness that fidelity to the covenants and ordinances of the Savior’s restor
 
 [^9]: See [[Moroni 7.28|Moroni 7:28]]; [[D&C 110.4|Doctrine and Covenants 110:4]].
 
-[^10]: See [[John 14.6|John 14:6]]; [[1 Timothy 2.5|1 Timothy 2:5]]; [[D&C 107.19|Doctrine and Covenants 107:19]].
+[^10]: See [[John 14.6|John 14:6]]; [[1 Timothy 2.5|1 Timothy 2:5]]; [[D&C 107.19|Doctrine and Covenants 107:19]].
 
-[^11]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^11]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^12]: See [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
-[^13]: See [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
+[^13]: See [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
 
 [^14]: *Hymns*, no. 243.
 
 [^15]: *Hymns*, no. 243.
 
-[^16]: See [[3 Nephi 12.20|3 Nephi 12:20]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
+[^16]: See [[3 Nephi 12.20|3 Nephi 12:20]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^17]: See [[2 Nephi 25.23|2 Nephi 25:23]].
+[^17]: See [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^18]: *Hymns*, no. 243.
 
-[^19]: [[1 Nephi 15.23|1 Nephi 15:23–24]][[1 Nephi 15.24|]]; emphasis added.
+[^19]: [[1 Nephi 15.23|1 Nephi 15:23–24]][[1 Nephi 15.24|]]; emphasis added.
 
 [^20]: Joseph Smith Translation, John 1:1 reads: “In the beginning was the gospel preached through the Son. And the gospel was the word, and the word was with the Son, and the Son was with God, and the Son was of God” (in the Bible appendix).
 
 [^21]: [[John 1.1|John 1:1, 3, 14]][[John 1.3|]][[John 1.14|]]; emphasis added.
 
-[^22]: “The Word” is a title of Jesus Christ found in several places in the scriptures (see [[John 1.1|John 1:1, 14]][[John 1.14|]]; [[1 John 1.1|1 John 1:1]]; [[Revelation 19.13|Revelation 19:13]]; [[D&C 93.8|Doctrine and Covenants 93:8–10]][[D&C 93.9|]][[D&C 93.10|]]; [[Moses 1.32|Moses 1:32]]).
+[^22]: “The Word” is a title of Jesus Christ found in several places in the scriptures (see [[John 1.1|John 1:1, 14]][[John 1.14|]]; [[1 John 1.1|1 John 1:1]]; [[Revelation 19.13|Revelation 19:13]]; [[D&C 93.8|Doctrine and Covenants 93:8–10]][[D&C 93.9|]][[D&C 93.10|]]; [[Moses 1.32|Moses 1:32]]).
 
 [^23]: [[Articles of Faith 1.8|Articles of Faith 1:8]]; emphasis added.
 
-[^24]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 3.19|Mosiah 3:19]]; [[Mosiah 5.2|5:2]]; [[Mosiah 27.25|27:25–26]][[Mosiah 27.26|]]; [[Alma 5.49|Alma 5:49]]; [[Moroni 10.32|Moroni 10:32]].
+[^24]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 3.19|Mosiah 3:19]]; [[Mosiah 5.2|5:2]]; [[Mosiah 27.25|27:25–26]][[Mosiah 27.26|]]; [[Alma 5.49|Alma 5:49]]; [[Moroni 10.32|Moroni 10:32]].
 
 [^25]: [[D&C 45.32|Doctrine and Covenants 45:32]].
 
@@ -133,8 +133,3 @@ I witness that fidelity to the covenants and ordinances of the Savior’s restor
 
 [^28]: *Hymns*, no. 243.
 
-
-
-
-
-#Covenants #Discipleship #Jesus_Christ #Ordinances

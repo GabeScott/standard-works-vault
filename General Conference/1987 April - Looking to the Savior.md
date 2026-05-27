@@ -1,5 +1,7 @@
 # Looking to the Savior
 
+Ezra Taft Benson
+
 By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -22,7 +24,7 @@ The coming of the Savior was prophesied by many prophets in the Bible and in the
 
 The Book of Mormon, as another testament of Jesus Christ, records that an angel appeared unto King Benjamin and declared the glad tidings of great joy, 124 years before the coming of Christ. The angel said:
 
-“For behold, the time cometh, and is not far distant, that with power, the Lord Omnipotent who reigneth, who was, and is from all eternity to all eternity, shall come down from heaven among the children of men, and shall dwell in a tabernacle of clay, and shall go forth amongst men, working mighty miracles, such as healing the sick, raising the dead, causing the lame to walk, the blind to receive their sight, and the deaf to hear, and curing all manner of diseases. …
+“For behold, the time cometh, and is not far distant, that with power, the Lord Omnipotent who reigneth, who was, and is from all eternity to all eternity, shall come down from heaven among the children of men, and shall dwell in a tabernacle of clay, and shall go forth amongst men, working mighty miracles, such as healing the sick, raising the dead, causing the lame to walk, the blind to receive their sight, and the deaf to hear, and curing all manner of diseases. …
 
 “And he shall be called Jesus Christ, the Son of God, the Father of heaven and earth, the Creator of all things from the beginning; and his mother shall be called Mary” ([[Mosiah 3.5|Mosiah 3:5, 8]][[Mosiah 3.8|]]).
 
@@ -38,7 +40,7 @@ I hope and pray that we will follow the admonition of our beloved prophet, Presi
 
 The Savior, as the Son of God, showed you and me the great example of obedience in keeping the commandments of His Father. Nephi tells us that Christ was baptized so men can follow in His footsteps and receive the Holy Ghost:
 
-“Know ye not that he was holy? But notwithstanding he being holy, he showeth unto the children of men that, according to the flesh he humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments” ([[2 Nephi 31.7|2 Ne. 31:7]]).
+“Know ye not that he was holy? But notwithstanding he being holy, he showeth unto the children of men that, according to the flesh he humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments” ([[2 Nephi 31.7|2 Ne. 31:7]]).
 
 Several weeks ago I was assigned to a stake conference in Provo. The Sunday morning welfare meeting was scheduled to begin at 7:30 a.m., so it was necessary that I leave home about 6:15 a.m. Just as I came to an intersection before turning onto the on-ramp to enter the freeway, the light changed to red. As I stopped for the light at that early hour, now about 6:30 a.m., there were no cars in sight. Mine was the only car parked at the stop light.
 
@@ -60,13 +62,13 @@ He also said the sufferings of our Savior were part of his education. “Though 
 
 “And being made perfect, he became the author of eternal salvation unto all them that obey him” ([[Hebrews 5.8|Heb. 5:8–9]][[Hebrews 5.9|]]).
 
-Elder James E. Talmage wrote, “No pang that is suffered by man or woman upon the earth will be without its compensating effect … if it be met with patience” (in Spencer W. Kimball, “Tragedy or Destiny,” *Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 98).
+Elder James E. Talmage wrote, “No pang that is suffered by man or woman upon the earth will be without its compensating effect … if it be met with patience” (in Spencer W. Kimball, “Tragedy or Destiny,” *Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 98).
 
 On the other hand, wrong choices can crush us with their mighty impact, if we yield to weaknesses, complaints, and criticisms.
 
 In closing, may I quote Orson F. Whitney, who said:
 
-“No pain that we suffer, no trial that we experience is wasted. It ministers to our education, to the development of such qualities as patience, faith, fortitude and humility. All that we suffer and all that we endure, especially when we endure it patiently, builds up our characters, purifies our hearts, expands our souls, and makes us more tender and charitable, more worthy to be called the children of God … and it is through sorrow and suffering, toil and tribulation, that we gain the education that we come here to acquire and which will make us more like our Father and Mother in heaven” (in *Faith Precedes the Miracle,* p. 98).
+“No pain that we suffer, no trial that we experience is wasted. It ministers to our education, to the development of such qualities as patience, faith, fortitude and humility. All that we suffer and all that we endure, especially when we endure it patiently, builds up our characters, purifies our hearts, expands our souls, and makes us more tender and charitable, more worthy to be called the children of God … and it is through sorrow and suffering, toil and tribulation, that we gain the education that we come here to acquire and which will make us more like our Father and Mother in heaven” (in *Faith Precedes the Miracle,* p. 98).
 
 The Lord, who suffered much for the sins of all mankind and was crucified and resurrected, said:
 
@@ -79,8 +81,3 @@ The Lord, who suffered much for the sins of all mankind and was crucified and re
 
 
 
-
-
-
-
-#Adversity #Atonement #Jesus_Christ #Obedience

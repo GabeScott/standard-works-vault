@@ -1,5 +1,7 @@
 # Modern Pioneers
 
+Ezra Taft Benson
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -8,19 +10,19 @@ By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 The days of the pioneers are not past. There are modern pioneers whose achievements are an inspiration to all of us.
 
-In a message about the pioneers who crossed the plains over a century ago, President J. Reuben Clark spoke words that apply to pioneers in every age. In his description of “Them of the Last Wagon,” President Clark paid tribute to the rank and file, “those great souls, … in name unknown, unremembered, unhonored in the pages of history, but lovingly revered round the hearthstones of their children and their children’s children.” (*J. Reuben Clark: Selected Papers on Religion, Education, and Youth,* ed. David H. Yarn, Jr., Provo: Brigham Young University Press, 1984, pp. 67–68; see also *Improvement Era,* Nov. 1947, pp. 704–5, 747–48.)
+In a message about the pioneers who crossed the plains over a century ago, President J. Reuben Clark spoke words that apply to pioneers in every age. In his description of “Them of the Last Wagon,” President Clark paid tribute to the rank and file, “those great souls, … in name unknown, unremembered, unhonored in the pages of history, but lovingly revered round the hearthstones of their children and their children’s children.” (*J. Reuben Clark: Selected Papers on Religion, Education, and Youth,* ed. David H. Yarn, Jr., Provo: Brigham Young University Press, 1984, pp. 67–68; see also *Improvement Era,* Nov. 1947, pp. 704–5, 747–48.)
 
-In every great cause there are leaders and followers. In the wagon trains, the leaders were “out in front where the air was clear and clean and where they had unbroken vision of the blue vault of heaven.” (*Clark,* p. 69.) But, as President Clark observed, “Back in the last wagon, not always could they see the brethren way out in front and the blue heaven was often shut out from their sight by heavy, dense clouds of the dust of the earth. Yet day after day, they of the last wagon pressed forward, worn and tired, footsore, sometimes almost disheartened, borne up by their faith that God loved them, that the Restored Gospel was true, and that the Lord led and directed the brethren out in front.” (*Clark,* p. 69.)
+In every great cause there are leaders and followers. In the wagon trains, the leaders were “out in front where the air was clear and clean and where they had unbroken vision of the blue vault of heaven.” (*Clark,* p. 69.) But, as President Clark observed, “Back in the last wagon, not always could they see the brethren way out in front and the blue heaven was often shut out from their sight by heavy, dense clouds of the dust of the earth. Yet day after day, they of the last wagon pressed forward, worn and tired, footsore, sometimes almost disheartened, borne up by their faith that God loved them, that the Restored Gospel was true, and that the Lord led and directed the brethren out in front.” (*Clark,* p. 69.)
 
-The purposes of God were accomplished by the unswerving loyalty and backbreaking work of the faithful tens of thousands who pushed on, as President Clark said, “with little praise, with not too much encouragement, and never with adulation.” (*Clark,* pp. 69–70.)
+The purposes of God were accomplished by the unswerving loyalty and backbreaking work of the faithful tens of thousands who pushed on, as President Clark said, “with little praise, with not too much encouragement, and never with adulation.” (*Clark,* pp. 69–70.)
 
-“And thousands upon thousands of these … measured to their humble calling and to their destiny as fully as Brother Brigham and the others measured to theirs, and God will so reward them. They were pioneers in word and thought and act and faith, even as were they of more exalted station. … God keep their memories ever fresh among us … to help us meet our duties even as they met theirs.” (*Clark,* pp. 73–74.)
+“And thousands upon thousands of these … measured to their humble calling and to their destiny as fully as Brother Brigham and the others measured to theirs, and God will so reward them. They were pioneers in word and thought and act and faith, even as were they of more exalted station. … God keep their memories ever fresh among us … to help us meet our duties even as they met theirs.” (*Clark,* pp. 73–74.)
 
 President Clark’s words of tribute also apply to the membership of The Church of Jesus Christ of Latter-day Saints in our day. In every nation, in every worthy occupation and activity, members of this church face hardships, overcome obstacles, and follow the servants of the Lord Jesus Christ as valiantly as the pioneers of any age. They pay their tithes and offerings. They serve as missionaries or as Church Service volunteers, or they support others who do so. Like the noble young mothers who postpone the pursuit of their personal goals in order to provide the needs of their children, they sacrifice immediate pleasures to keep commitments that are eternal. They accept callings and, in the service of others, they willingly give their time and sometimes their lives.
 
 They do as the Savior taught: They deny themselves; they take up their crosses daily; they follow Him. (See [[Luke 9.23|Luke 9:23]].) These are those the Savior likened to the seed that fell on good ground: “in an honest and good heart, having heard the word, \[they\] keep it, and bring forth fruit with patience.” ([[Luke 8.15|Luke 8:15]].)
 
-The fruits of the gospel issue from every honest and good heart, without regard to past origins or current positions in the Church. As President Clark declared, “There is no aristocracy of birth in this Church; it belongs equally to the highest and the lowliest.” (*Clark,* p. 73.)
+The fruits of the gospel issue from every honest and good heart, without regard to past origins or current positions in the Church. As President Clark declared, “There is no aristocracy of birth in this Church; it belongs equally to the highest and the lowliest.” (*Clark,* p. 73.)
 
 I will give some illustrations of modern pioneers. My examples are not necessarily the most notable, but I believe they are typical of the rank-and-file Latter-day Saints who are the heart and the hands of this great latter-day work.
 
@@ -46,7 +48,7 @@ Others, including those who have been called to prominent positions, are more no
 
 “Sure,” the boy replied. “He’s one of those guys who hangs on the wall at seminary.”
 
-Prominent position—“hanging on the wall at seminary”—does not put anyone on a fast-track to exaltation. The criteria for that ultimate goal is the same for every person—leader or follower, prominent or obscure: Have we received the ordinances of salvation and kept our covenants? A member of the Church in Great Britain said it best. He had served as stake president. As that period of prominence came to an end, he told Elder Boyd K. Packer why it did not bother him to be released: “I served because I am under *covenant.* And I can keep my covenants quite as well as a home teacher as I can serving as stake president.” (In Conference Report, Apr. 1987, p. 26; or *Ensign,* May 1987, p. 24.)
+Prominent position—“hanging on the wall at seminary”—does not put anyone on a fast-track to exaltation. The criteria for that ultimate goal is the same for every person—leader or follower, prominent or obscure: Have we received the ordinances of salvation and kept our covenants? A member of the Church in Great Britain said it best. He had served as stake president. As that period of prominence came to an end, he told Elder Boyd K. Packer why it did not bother him to be released: “I served because I am under *covenant.* And I can keep my covenants quite as well as a home teacher as I can serving as stake president.” (In Conference Report, Apr. 1987, [[1987 April - Covenants.md|p. 26]]; or *Ensign,* May 1987, p. 24.)
 
 Numberless officers, teachers, advisers, and clerks keep their covenants in that same way. Their service is almost invisible, except to Him who sees all things and promises all who do good that they shall “in nowise lose their reward.” ([[D&C 58.28|D&C 58:28]]; see also [[Matthew 10.42|Matt. 10:42]].)
 
@@ -80,7 +82,7 @@ How grateful we are for the service and example of these faithful members! Like 
 
 Our faith and resolve are strengthened by the spiritual achievements and service of ordinary Latter-day Saints. There are thousands of such inspirational examples, but they are rarely published except on the pages of the *Church News* and the Church magazines—the *Ensign, New Era,* and *Friend.* I encourage everyone to have these unique publications in their home.
 
-Some of the unsung heroes and heroines of our day are the faithful home teachers and visiting teachers who feed the Master’s sheep. When the Apostle Paul likened the Church to a body, he referred to such less-visible members as the hands and the feet, saying that upon these we should “bestow more abundant honour.” ([[1 Corinthians 12.23|1 Cor. 12:23]].)
+Some of the unsung heroes and heroines of our day are the faithful home teachers and visiting teachers who feed the Master’s sheep. When the Apostle Paul likened the Church to a body, he referred to such less-visible members as the hands and the feet, saying that upon these we should “bestow more abundant honour.” ([[1 Corinthians 12.23|1 Cor. 12:23]].)
 
 An LDS girl whose two parents took no part in Church activities later wrote this recollection to an elder who had been her home teacher:
 
@@ -103,8 +105,3 @@ This is His work. We are His children. He loves us—one and all. Of this I test
 
 
 
-
-
-
-
-#Courage #Faith #Forgiveness #Pioneers #Service

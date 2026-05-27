@@ -1,6 +1,8 @@
 # Foreordained to Serve
 
-By Elder Steven R. Bangerter - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Steven R. Bangerter - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -10,7 +12,7 @@ By Elder Steven R. Bangerter - *Of the Seventy*
 
 This evening, I speak to the youth of the Church, the rising generation of young men and young women who are the standard bearers for the next generation.
 
-In October 2013, our beloved prophet, President Russell M. Nelson, declared: “Your Heavenly Father has known you for a very long time. You, as His son or daughter, were chosen by Him to come to earth at this precise time, to be a leader in His great work on earth.”[^1]
+In October 2013, our beloved prophet, President Russell M. Nelson, declared: “Your Heavenly Father has known you for a very long time. You, as His son or daughter, were chosen by Him to come to earth at this precise time, to be a leader in His great work on earth.”[^1]
 
 Two years ago, President Nelson continued:
 
@@ -28,11 +30,11 @@ Before you were born, God appointed each of you to fulfill specific missions dur
 
 Why does it matter to seek to know and understand your foreordination? In a day when questions abound, when so many seek to know their true identity, the fact that God knows and has blessed each one of us individually before we were ever born on this earth with “essential characteristic\[s\] of … premortal, mortal, and eternal identity and purpose” brings sweet peace and assurance to our mind and heart.[^15] Knowing who you are begins with understanding God’s foreordained blessings bestowed upon you before you were ever born on this earth. Our Heavenly Father desires to reveal to you your personal foreordination, and He will do so as you seek to learn and follow His will.[^16]
 
-I love to read President Nelson’s Instagram posts. One of my favorites was on July 20, 2022. He wrote:
+I love to read President Nelson’s Instagram posts. One of my favorites was on July 20, 2022. He wrote:
 
-“I believe that if the Lord were speaking to you directly, the first thing He would make sure you understand is your true identity. My dear friends, you are literally spirit children of God. …
+“I believe that if the Lord were speaking to you directly, the first thing He would make sure you understand is your true identity. My dear friends, you are literally spirit children of God. …
 
-“… Make no mistake about it: Your potential is divine. With your diligent seeking, God will give you glimpses of who you may become.”[^17]
+“… Make no mistake about it: Your potential is divine. With your diligent seeking, God will give you glimpses of who you may become.”[^17]
 
 May I share with you how my earthly father taught me to discover my identity and God’s plan in my life?
 
@@ -57,46 +59,41 @@ Our Father in Heaven will answer your prayers, especially your prayers offered d
 
 
 
-[^1]: Russell M. Nelson, “[[2013 October - Decisions for Eternity.md|Decisions for Eternity]],” *Ensign* or *Liahona*, Nov. 2013, 107.
+[^1]: Russell M. Nelson, “[[2013 October - Decisions for Eternity.md|Decisions for Eternity]],” *Ensign* or *Liahona*, Nov. 2013, 107.
 
-[^2]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
+[^2]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
 
-[^3]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p66#p66)” (worldwide youth devotional, June 3, 2018), Gospel Library: “Our Heavenly Father has reserved many of His most noble spirits—perhaps, I might say, His finest team—for this final phase. Those noble spirits—those finest players, those heroes—are *you*!”
+[^3]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p66#p66)” (worldwide youth devotional, June 3, 2018), Gospel Library: “Our Heavenly Father has reserved many of His most noble spirits—perhaps, I might say, His finest team—for this final phase. Those noble spirits—those finest players, those heroes—are *you*!”
 
 [^4]: See [[Jeremiah 1.5|Jeremiah 1:5]].
 
 [^5]: [[Moses 3.5|Moses 3:5]].
 
-[^6]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library; “[Young Women Theme](https://churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng&id=p1#p1),” Gospel Library; “[Aaronic Priesthood Quorum Theme](https://churchofjesuschrist.org/study/manual/aaronic-priesthood-quorum-theme/aaronic-priesthood-quorum-theme?lang=eng&id=p1#p1),” Gospel Library.
+[^6]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library; “[Young Women Theme](https://www.churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng&id=p1#p1),” Gospel Library; “[Aaronic Priesthood Quorum Theme](https://www.churchofjesuschrist.org/study/manual/aaronic-priesthood-quorum-theme/aaronic-priesthood-quorum-theme?lang=eng&id=p1#p1),” Gospel Library.
 
-[^7]: Topics and Questions, “[Premortal Life: Overview](https://churchofjesuschrist.org/study/manual/gospel-topics/premortality?lang=eng&id=p4#p4),” Gospel Library.
+[^7]: Topics and Questions, “[Premortal Life: Overview](https://www.churchofjesuschrist.org/study/manual/gospel-topics/premortality?lang=eng&id=p4#p4),” Gospel Library.
 
-[^8]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p3#p3),” Gospel Library.
+[^8]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p3#p3),” Gospel Library.
 
 [^9]: See [[Alma 13.1|Alma 13:1–4]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]].
 
-[^10]: Topics and Questions, “[Premortal Life: Overview](https://churchofjesuschrist.org/study/manual/gospel-topics/premortality?lang=eng&id=p4#p4),” Gospel Library; see also [[D&C 138.55|Doctrine and Covenants 138:55–56]][[D&C 138.56|]].
+[^10]: Topics and Questions, “[Premortal Life: Overview](https://www.churchofjesuschrist.org/study/manual/gospel-topics/premortality?lang=eng&id=p4#p4),” Gospel Library; see also [[D&C 138.55|Doctrine and Covenants 138:55–56]][[D&C 138.56|]].
 
-[^11]: See Topics and Questions, “[Foreordination](https://churchofjesuschrist.org/study/manual/gospel-topics/foreordination?lang=eng&id=p1#p1),” Gospel Library.
+[^11]: See Topics and Questions, “[Foreordination](https://www.churchofjesuschrist.org/study/manual/gospel-topics/foreordination?lang=eng&id=p1#p1),” Gospel Library.
 
-[^12]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p58#p58).”
+[^12]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p58#p58).”
 
-[^13]: Topics and Questions, “[Foreordination](https://churchofjesuschrist.org/study/manual/gospel-topics/foreordination?lang=eng&id=p4#p4),” Gospel Library; see also [[Jeremiah 1.5|Jeremiah 1:5]]; “[What Is the Relationship between Foreordination and Agency?](https://churchofjesuschrist.org/study/liahona/2023/10/come-follow-me/22-what-is-the-relationship-between-foreordination-and-agency?lang=eng),” *Liahona*, Oct. 2023, 47; Guide to the Scriptures, “[Foreordination](https://churchofjesuschrist.org/study/scriptures/gs/foreordination?lang=eng),” Gospel Library.
+[^13]: Topics and Questions, “[Foreordination](https://www.churchofjesuschrist.org/study/manual/gospel-topics/foreordination?lang=eng&id=p4#p4),” Gospel Library; see also [[Jeremiah 1.5|Jeremiah 1:5]]; “[What Is the Relationship between Foreordination and Agency?](https://www.churchofjesuschrist.org/study/liahona/2023/10/come-follow-me/22-what-is-the-relationship-between-foreordination-and-agency?lang=eng),” *Liahona*, Oct. 2023, 47; Guide to the Scriptures, “[Foreordination](https://www.churchofjesuschrist.org/study/scriptures/gs/foreordination?lang=eng),” Gospel Library.
 
 [^14]: See [[Alma 13.1|Alma 13:1–4]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]]; [[D&C 130.20|Doctrine and Covenants 130:20–21]][[D&C 130.21|]].
 
-[^15]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
+[^15]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
 
 [^16]: See [[Jeremiah 1.5|Jeremiah 1:5]].
 
-[^17]: Russell M. Nelson, Instagram, July 20, 2022, Instagram.com/russellmnelson.
+[^17]: Russell M. Nelson, Instagram, July 20, 2022, Instagram.com/russellmnelson.
 
-[^18]: Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p20#p20)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+[^18]: Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p20#p20)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
 
-[^19]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93–96.
+[^19]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93–96.
 
-
-
-
-
-#Divine_Nature #Foreordination #Gathering #Missionary_Service #Plan_Of_Salvation #Premortal_Existence #Service #Youth

@@ -1,5 +1,7 @@
 # The Lifeline of Prayer
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2002 General Conference*
@@ -22,7 +24,7 @@ What is a prayer? The Savior gave us an example in the Lord’s Prayer when He p
 
 “And lead us not into temptation, but deliver us from evil: For thine is the kingdom, and the power, and the glory, for ever. Amen.”[^3]
 
-First, prayer is a humble acknowledgment that God is our Father and that the Lord Jesus Christ is our Savior and Redeemer. Second, it is a sincere confession of sin and transgression and a request for forgiveness. Third, it is recognition that we need help beyond our own ability. Fourth, it is an opportunity to express thanksgiving and gratitude to our Creator. It is important that we frequently say, “We thank Thee … ,” “ “We acknowledge before Thee … ,” “We are grateful unto Thee. …” Fifth, it is a privilege to ask Deity for specific blessings.
+First, prayer is a humble acknowledgment that God is our Father and that the Lord Jesus Christ is our Savior and Redeemer. Second, it is a sincere confession of sin and transgression and a request for forgiveness. Third, it is recognition that we need help beyond our own ability. Fourth, it is an opportunity to express thanksgiving and gratitude to our Creator. It is important that we frequently say, “We thank Thee … ,” “ “We acknowledge before Thee … ,” “We are grateful unto Thee. …” Fifth, it is a privilege to ask Deity for specific blessings.
 
 Many prayers are spoken while we are on our knees. The Savior knelt as He prayed to the Father in the Garden of Gethsemane.[^4] But silent prayers of the heart also reach to heaven. We sing, “Prayer is the soul’s sincere desire, / Uttered or unexpressed.”[^5] Sincere prayers come from the heart. Indeed, sincerity requires that we draw from the earnest feelings of our hearts when we pray rather than using vain repetitions or pretentious affectations such as those condemned by the Savior in the parable of the Pharisee and the publican.[^6] Our prayers then truly become the “song of the heart” and “a prayer,”[^7] not only reaching God but touching the hearts of others as well.
 
@@ -52,9 +54,9 @@ Fear of the dark should not be our only motivation to pray, morning or night.
 
 Family prayer is a powerful and sustaining influence. During the dark days of World War II, a 500-pound bomb fell outside the little home of Brother Patey, a young father in Liverpool, England, but the bomb did not go off. His wife had died, so he was rearing his five children alone. He gathered them together at this very anxious time for family prayer. They “all prayed … earnestly and when they had finished praying, the children said: ‘Daddy, we will be all right. We will be all right in our home tonight.’
 
-“And so they went to bed, imagine, with that terrific bomb lying just outside the door half submerged in the ground. If it had gone off it would have destroyed probably forty or fifty houses and killed two or three hundred people. …
+“And so they went to bed, imagine, with that terrific bomb lying just outside the door half submerged in the ground. If it had gone off it would have destroyed probably forty or fifty houses and killed two or three hundred people. …
 
-“The next morning the … whole neighborhood was removed for forty-eight hours and the bomb was finally taken away. …
+“The next morning the … whole neighborhood was removed for forty-eight hours and the bomb was finally taken away. …
 
 “On the way back Brother Patey asked the foreman of the A.R.P. Squad: ‘Well, what did you find?’
 
@@ -77,7 +79,7 @@ I sincerely hope that as we say our daily prayers we remember to ask the Lord’
 
 [^1]: [[Genesis 4.26|Gen. 4:26]].
 
-[^2]: See [[2 Nephi 32.9|2 Ne. 32:9]]; [[3 Nephi 20.31|3 Ne. 20:31]].
+[^2]: See [[2 Nephi 32.9|2 Ne. 32:9]]; [[3 Nephi 20.31|3 Ne. 20:31]].
 
 [^3]: [[Matthew 6.9|Matt. 6:9–13]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]].
 
@@ -105,7 +107,7 @@ I sincerely hope that as we say our daily prayers we remember to ask the Lord’
 
 [^15]: See [[Matthew 6.8|Matt. 6:8]].
 
-[^16]: [[3 Nephi 18.21|3 Ne. 18:21]].
+[^16]: [[3 Nephi 18.21|3 Ne. 18:21]].
 
 [^17]: Adapted from Tal D. Bonham, *The Treasury of Clean Church Jokes,* as quoted in Cal and Rose Samra, eds., *Holy Humor* (1997), 23.
 
@@ -121,10 +123,5 @@ I sincerely hope that as we say our daily prayers we remember to ask the Lord’
 
 [^23]: [[John 15.7|John 15:7]].
 
-[^24]: [[1 John 5.14|1 Jn. 5:14]].
+[^24]: [[1 John 5.14|1 Jn. 5:14]].
 
-
-
-
-
-#Faith #Family #Jesus_Christ #Prayer

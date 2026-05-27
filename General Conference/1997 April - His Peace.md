@@ -1,5 +1,7 @@
 # His Peace
 
+Gordon B. Hinckley
+
 By Elder Dennis E. Simmons - *Of the Seventy*
 
 *Given in the April session of the 1997 General Conference*
@@ -40,7 +42,7 @@ Just as Helaman discovered in the midst of battle that “he did speak peace to 
 
 As Elder Packer has stated: “The Spirit does not get our attention by shouting or shaking us with a heavy hand. Rather it whispers. It caresses so gently that if we are preoccupied we may not feel it at all” (“The Candle of the Lord,” *Ensign,* Jan. 1983, 53).
 
-Accordingly, many do not hear the voice. In fact, many do not *want* to hear the voice. Many men desire to be, and are determined to be self-sufficient, rejecting and scoffing at anything which would potentially call into question their own power or ability. “The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Cor. 2:14]]).
+Accordingly, many do not hear the voice. In fact, many do not *want* to hear the voice. Many men desire to be, and are determined to be self-sufficient, rejecting and scoffing at anything which would potentially call into question their own power or ability. “The natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Cor. 2:14]]).
 
 But although the Spirit is gentle, it speaks with great power. To receive the Spirit, a type of surrender is necessary. A few years before the first advent of Jesus Christ, the Nephite prophets “Nephi and Lehi were encircled about as if by fire” while confined in prison ([[Helaman 5.23|Hel. 5:23]]). Their would-be slayers heard “a voice as if it were above the cloud of darkness” which had gripped the crowd of unbelievers, calling them to repentance as the earth shook ([[Helaman 5.29|Hel. 5:29]]).
 
@@ -68,9 +70,9 @@ Paul described the fruit of the Spirit—that is, what the Spirit produces: “T
 
 - Gives knowledge (see [[D&C 121.26|D&C 121:26]]).
 
-- Speaks in a “still small voice” ([[1 Nephi 17.45|1 Ne. 17:45]]).
+- Speaks in a “still small voice” ([[1 Nephi 17.45|1 Ne. 17:45]]).
 
-- Teaches a man to pray (see [[2 Nephi 32.8|2 Ne. 32:8]]).
+- Teaches a man to pray (see [[2 Nephi 32.8|2 Ne. 32:8]]).
 
 - Brings about mighty change (see [[Mosiah 5.2|Mosiah 5:2]]).
 
@@ -78,7 +80,7 @@ Paul described the fruit of the Spirit—that is, what the Spirit produces: “T
 
 - Fills with “hope and perfect love” ([[Moroni 8.26|Moro. 8:26]]).
 
-- Gives liberty (see [[2 Corinthians 3.17|2 Cor. 3:17]]).
+- Gives liberty (see [[2 Corinthians 3.17|2 Cor. 3:17]]).
 
 - Comforts (see [[John 14.16|John 14:16]]).
 
@@ -93,8 +95,3 @@ Jesus’ invitation is extended to all: “Come unto me, all ye that labour and 
 
 
 
-
-
-
-
-#Adversity #Holy_Ghost #Jesus_Christ #Love #Peace

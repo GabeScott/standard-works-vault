@@ -1,5 +1,7 @@
 # An Anchor for Eternity—and Today
 
+James E. Faust
+
 By Bonnie D. Parkin - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -37,8 +39,3 @@ Will you do it? Will you listen to his words now and find a message for your lif
 
 
 
-
-
-
-
-#Faith #Holy_Ghost #Prophets #Testimony

@@ -1,5 +1,7 @@
 # Small Acts Lead to Great Consequences
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1984 General Conference*
@@ -30,7 +32,7 @@ On that Sunday Brigham Young was conducting a meeting and introduced to the cong
 
 Said President Brigham Young to the congregation:
 
-“Brother Thomas B. Marsh, formerly the President of the Quorum of the Twelve Apostles, has now come to us, after an absence of nearly nineteen years. He is on the stand to-day, and wishes to make a few remarks to the congregation. …
+“Brother Thomas B. Marsh, formerly the President of the Quorum of the Twelve Apostles, has now come to us, after an absence of nearly nineteen years. He is on the stand to-day, and wishes to make a few remarks to the congregation. …
 
 “He came into my office and wished to know whether I could be reconciled to him, and whether there could be a reconciliation between himself and the Church of the living God. He reflected for a moment and said, I am reconciled to the Church, but I want to know whether the Church can be reconciled to me.
 
@@ -81,8 +83,3 @@ May the blessings of the Lord attend you, beloved associates. May the peace of t
 
 
 
-
-
-
-
-#Humility #Obedience

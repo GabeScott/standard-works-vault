@@ -1,15 +1,14 @@
 # Generosity
 
-
-*See also* [[Almsgiving.md|Almsgiving]]; [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Give, Gave, Given.md|Give]]
+*See also* [[Almsgiving.md|Almsgiving]]; [[Benevolence.md|Benevolence]]; [[Charity.md|Charity]]; [[Give.md|Give]]
 
 man that *giveth* it willingly with his heart, [[Exodus 25.2|Exodus 25:2]].
 
-they brought the Lord's *offering* to the work, [[Exodus 35.21|Exodus 35:21]].
+they brought the Lord’s *offering* to the work, [[Exodus 35.21|Exodus 35:21]].
 
 people *bring* much more than enough, [[Exodus 36.5|Exodus 36:5]].
 
-open thine *hand* wide unto ... thy poor, [[Deuteronomy 15.11|Deuteronomy 15:11]].
+open thine *hand* wide unto … thy poor, [[Deuteronomy 15.11|Deuteronomy 15:11]].
 
 He hath dispersed, he hath *given* to the poor, [[Psalms 112.9|Psalms 112:9]].
 
@@ -29,7 +28,7 @@ sell whatsoever thou hast, and *give* to the poor, [[Mark 10.21|Mark 10:21]].
 
 she of her want did cast in *all* that she had, [[Mark 12.44|Mark 12:44]].
 
-He that hath two coats ... *impart* to him that hath none, [[Luke 3.11|Luke 3:11]].
+He that hath two coats … *impart* to him that hath none, [[Luke 3.11|Luke 3:11]].
 
 *lend*, hoping for nothing, [[Luke 6.35|Luke 6:35]].
 
@@ -61,9 +60,9 @@ they were *liberal* to all, both old and young, [[Alma 1.30|Alma 1:30]].
 
 if ye do not remember to be *charitable*, [[Alma 34.29|Alma 34:29]].
 
-Why do ye ... suffer the *hungry* ... to pass by you, [[Mormon 8.39|Mormon 8:39]].
+Why do ye … suffer the *hungry* … to pass by you, [[Mormon 8.39|Mormon 8:39]].
 
-*giveth* a gift ... grudgingly ... counted evil, [[Moroni 7.8|Moroni 7:8]].
+*giveth* a gift … grudgingly … counted evil, [[Moroni 7.8|Moroni 7:8]].
 
 impart of your *substance* unto the poor, [[D&C 42.31|D&C 42:31]].
 

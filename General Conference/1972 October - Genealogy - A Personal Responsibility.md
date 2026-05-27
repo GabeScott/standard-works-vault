@@ -1,6 +1,8 @@
 # Genealogy: A Personal Responsibility
 
-By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
+N. Eldon Tanner
+
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -44,7 +46,7 @@ A logical question then follows: For *whom* am I to be a savior? In [[D&C 127.6|
 
 Joseph Smith explained the coming of Elijah as follows:
 
-“… It is sufficient to know, in this case, that the earth will be smitten with a curse unless there is a welding link of some kind or other between the fathers and the children. …” ([[D&C 128.18|D&C 128:18]].)
+“… It is sufficient to know, in this case, that the earth will be smitten with a curse unless there is a welding link of some kind or other between the fathers and the children. …” ([[D&C 128.18|D&C 128:18]].)
 
 Our dead, then, are clearly our own progenitors or direct ancestors, as Joseph Smith explained:
 
@@ -70,17 +72,17 @@ God gave the following promise to Abraham, referring to us who are Abraham’s d
 
 Brigham Young taught that our genealogical responsibility is to our own family first. He said:
 
-“We have a work to do just as important in its sphere as the Savior’s work was in its sphere. Our fathers cannot be made perfect without us; we cannot be made perfect without them. They have done their work and now sleep. We are now called upon to do ours; which is to be the greatest work man ever performed on the earth. …
+“We have a work to do just as important in its sphere as the Savior’s work was in its sphere. Our fathers cannot be made perfect without us; we cannot be made perfect without them. They have done their work and now sleep. We are now called upon to do ours; which is to be the greatest work man ever performed on the earth. …
 
-“There must be this chain in the holy Priesthood; it must be welded together from the latest generation that lives on the earth back to Father Adam, to bring back all that can be saved and placed where they can receive salvation and glory in some kingdom. This Priesthood has to do it; this Priesthood is for this purpose. …
+“There must be this chain in the holy Priesthood; it must be welded together from the latest generation that lives on the earth back to Father Adam, to bring back all that can be saved and placed where they can receive salvation and glory in some kingdom. This Priesthood has to do it; this Priesthood is for this purpose. …
 
-“The ordinance of sealing must be performed here man to man, and woman to man, and children to parents, etc., until the chain of generation is made perfect in the sealing ordinances back to Father Adam. …
+“The ordinance of sealing must be performed here man to man, and woman to man, and children to parents, etc., until the chain of generation is made perfect in the sealing ordinances back to Father Adam. …
 
 “Now, all you children, are you looking to the salvation of your fathers? Are you seeking diligently to redeem those that have died without the Gospel, inasmuch as they sought the Lord Almighty to obtain promises for you? For our fathers did obtain promises that their seed should not be forgotten. O ye children of the fathers, look at these things. You are to enter into the temples of the Lord and officiate for your forefathers.” (*Discourses of Brigham Young* \[Deseret Book, 1971\], pp. 406–408.)
 
 President Woodruff received a revelation on this subject and presented it in a general conference on April 8, 1894:
 
-“We want the Latter-day Saints from this time to trace their genealogies as far as they can, and to be sealed to their fathers and mothers. Have children sealed to their parents and run this chain through as far as you can get it. … This is the will of the Lord to his people, and I think when you come to reflect upon it, you will find it to be true.” (James R. Clark, comp., *Messages of the First Presidency* \[Bookcraft, 1966\], vol. 3, pp. 256–57.)
+“We want the Latter-day Saints from this time to trace their genealogies as far as they can, and to be sealed to their fathers and mothers. Have children sealed to their parents and run this chain through as far as you can get it. … This is the will of the Lord to his people, and I think when you come to reflect upon it, you will find it to be true.” (James R. Clark, comp., *Messages of the First Presidency* \[Bookcraft, 1966\], vol. 3, pp. 256–57.)
 
 The responsibility to officiate for our direct-line ancestors has continued to this day. Our recently deceased President Joseph Fielding Smith, whom we loved and respected, contrasted our personal responsibility with the responsibility of the Church:
 
@@ -95,8 +97,3 @@ I bear my witness of the divinity of this priesthood goal, in the name of Jesus 
 
 
 
-
-
-
-
-#Family_History

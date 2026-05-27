@@ -4,6 +4,3 @@
 
 [JST 2 Chronicles 18:22](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-2-chr/18?lang=eng)
 
-
-
-

@@ -1,9 +1,8 @@
 # Ram
 
-
 *ram* caught in a thicket, [[Genesis 22.13|Genesis 22:13]].
 
-*rams'* skins dyed red, [[Exodus 25.5|Exodus 25:5]] ([[Exodus 26.14|Exodus 26:14]]; [[Exodus 35.7|Exodus 35:7]]; [[Exodus 36.19|Exodus 36:19]]; [[Exodus 39.34|Exodus 39:34]]).
+*rams’* skins dyed red, [[Exodus 25.5|Exodus 25:5]] ([[Exodus 26.14|Exodus 26:14]]; [[Exodus 35.7|Exodus 35:7]]; [[Exodus 36.19|Exodus 36:19]]; [[Exodus 39.34|Exodus 39:34]]).
 
 put their hands upon the head of the *ram*, [[Exodus 29.15|Exodus 29:15]] ([[Leviticus 8.18|Leviticus 8:18]]).
 

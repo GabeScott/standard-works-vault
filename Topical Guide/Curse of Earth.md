@@ -1,4 +1,3 @@
 # Curse of Earth
 
-
-*See* [[Earth, Curse of.md|Earth, Curse of]]
+*See also* [[Earth, Curse of.md|Earth, Curse of]]

@@ -1,6 +1,5 @@
 # Carnal
 
-
 *See also* [[Carnal Mind.md|Carnal Mind]]; [[Lust.md|Lust]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]
 
 law is spiritual: but I am *carnal*, [[Romans 7.14|Romans 7:14]].
@@ -17,4 +16,4 @@ lull them away into *carnal* security, [[2 Nephi 28.21|2 Nephi 28:21]].
 
 according to their own *carnal* wills, [[Mosiah 16.12|Mosiah 16:12]].
 
-Which gospel is ... the law of *carnal* commandments, [[D&C 84.27|D&C 84:27]].
+Which gospel is … the law of *carnal* commandments, [[D&C 84.27|D&C 84:27]].

@@ -1,17 +1,16 @@
 # Knowledge
 
-
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Education.md|Education]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Knowledge about.md|God, Knowledge about]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Ignorance, Ignorant.md|Ignorance]]; [[Intelligence.md|Intelligence]]; [[Learn, Learning.md|Learn]]; [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Testimony.md|Testimony]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]; [BD Knowledge](https://www.churchofjesuschrist.org/study/scriptures/bd/knowledge?lang=eng)
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Education.md|Education]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Knowledge about.md|God, Knowledge about]]; [[God, Omniscience of.md|God, Omniscience of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Ignorance.md|Ignorance]]; [[Intelligence.md|Intelligence]]; [[Learn.md|Learn]]; [[Mysteries of Godliness.md|Mysteries of Godliness]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Testimony.md|Testimony]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]; [[BD Knowledge.md|BD Knowledge]]
 
 tree of *knowledge* of good and evil, [[Genesis 2.9|Genesis 2:9]] ([[Moses 3.9|Moses 3:9]]; [[Abraham 5.9|Abraham 5:9]]).
 
-of the tree of the *knowledge* ... thou shalt not eat, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]; [[Abraham 5.13|Abraham 5:13]]).
+of the tree of the *knowledge* … thou shalt not eat, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]; [[Abraham 5.13|Abraham 5:13]]).
 
-be as gods, *knowing* good and evil, [[Genesis 3.5|Genesis 3:5]] ([[Genesis 3.22|Genesis 3:22]]; [[Moses 4.11|Moses 4:11]], [[Moses 4.28|Moses 4:28]]).
+be as gods, *knowing* good and evil, [[Genesis 3.5|Genesis 3:5]] ([[Genesis 3.22|Genesis 3:22]]; [[Moses 4.11|Moses 4:11]]; [[Moses 4.28|Moses 4:28]]).
 
-I have filled him with the spirit of God ... in *knowledge*, [[Exodus 31.3|Exodus 31:3]].
+I have filled him with the spirit of God … in *knowledge*, [[Exodus 31.3|Exodus 31:3]].
 
-children ... had no *knowledge* between good and evil, [[Deuteronomy 1.39|Deuteronomy 1:39]].
+children … had no *knowledge* between good and evil, [[Deuteronomy 1.39|Deuteronomy 1:39]].
 
 Lord is a God of *knowledge*, [[1 Samuel 2.3|1 Samuel 2:3]].
 
@@ -23,7 +22,7 @@ wondrous works of him which is perfect in *knowledge*, [[Job 37.16|Job 37:16]].
 
 Have all the workers of iniquity no *knowledge*, [[Psalms 14.4|Psalms 14:4]] ([[Psalms 53.4|Psalms 53:4]]).
 
-fear of the Lord is the beginning of *knowledge*, [[Proverbs 1.7|Proverbs 1:7]] ([[Proverbs 1.22|Proverbs 1:22]], [[Proverbs 1.29|Proverbs 1:29]]; [[Proverbs 2.5|Proverbs 2:5]]).
+fear of the Lord is the beginning of *knowledge*, [[Proverbs 1.7|Proverbs 1:7]] ([[Proverbs 1.22|Proverbs 1:22]]; [[Proverbs 1.29|Proverbs 1:29]]; [[Proverbs 2.5|Proverbs 2:5]]).
 
 *knowledge* rather than choice gold, [[Proverbs 8.10|Proverbs 8:10]].
 
@@ -59,17 +58,17 @@ wisdom and *knowledge* shall be the stability, [[Isaiah 33.6|Isaiah 33:6]].
 
 by his *knowledge* shall my righteous servant justify, [[Isaiah 53.11|Isaiah 53:11]].
 
-pastors ... which shall feed you with *knowledge*, [[Jeremiah 3.15|Jeremiah 3:15]].
+pastors … which shall feed you with *knowledge*, [[Jeremiah 3.15|Jeremiah 3:15]].
 
 God gave them *knowledge* and skill in all learning, [[Daniel 1.17|Daniel 1:17]].
 
-he giveth ... *knowledge* to them that know understanding, [[Daniel 2.21|Daniel 2:21]].
+he giveth … *knowledge* to them that know understanding, [[Daniel 2.21|Daniel 2:21]].
 
 run to and fro, and *knowledge* shall be increased, [[Daniel 12.4|Daniel 12:4]].
 
 because thou hast rejected *knowledge*, [[Hosea 4.6|Hosea 4:6]].
 
-I desired ... the *knowledge* of God more than burnt offerings, [[Hosea 6.6|Hosea 6:6]].
+I desired … the *knowledge* of God more than burnt offerings, [[Hosea 6.6|Hosea 6:6]].
 
 To give *knowledge* of salvation unto his people, [[Luke 1.77|Luke 1:77]].
 
@@ -85,7 +84,7 @@ have a zeal of God, but not according to *knowledge*, [[Romans 10.2|Romans 10:2]
 
 riches both of the wisdom and *knowledge* of God, [[Romans 11.33|Romans 11:33]].
 
-ye also are ... filled with all *knowledge*, [[Romans 15.14|Romans 15:14]].
+ye also are … filled with all *knowledge*, [[Romans 15.14|Romans 15:14]].
 
 we all have *knowledge. Knowledge* puffeth up, [[1 Corinthians 8.1|1 Corinthians 8:1]].
 
@@ -129,7 +128,7 @@ they will not search *knowledge*, [[2 Nephi 32.7|2 Nephi 32:7]].
 
 having the *knowledge* of God, that they might teach, [[Mosiah 18.26|Mosiah 18:26]].
 
-this account ... gave them much *knowledge*, [[Mosiah 28.18|Mosiah 28:18]].
+this account … gave them much *knowledge*, [[Mosiah 28.18|Mosiah 28:18]].
 
 so much light and so much *knowledge* given unto them, [[Alma 9.19|Alma 9:19]].
 
@@ -143,19 +142,19 @@ God hath given unto you a *knowledge*, [[Helaman 14.30|Helaman 14:30]].
 
 true *knowledge*, which is the *knowledge* of their Redeemer, [[Helaman 15.13|Helaman 15:13]].
 
-given ... *knowledge* unto the salvation of our souls, [[3 Nephi 5.20|3 Nephi 5:20]].
+given … *knowledge* unto the salvation of our souls, [[3 Nephi 5.20|3 Nephi 5:20]].
 
 receive a *knowledge* of you by the Holy Ghost, [[3 Nephi 16.4|3 Nephi 16:4]].
 
-Israel ... shall come unto the *knowledge* of the fulness of my gospel, [[3 Nephi 16.12|3 Nephi 16:12]].
+Israel … shall come unto the *knowledge* of the fulness of my gospel, [[3 Nephi 16.12|3 Nephi 16:12]].
 
-because of the *knowledge* of this man ... he saw the finger of Jesus, [[Ether 3.19|Ether 3:19]].
+because of the *knowledge* of this man … he saw the finger of Jesus, [[Ether 3.19|Ether 3:19]].
 
 *knowledge* which is hid up because of unbelief, [[Ether 4.13|Ether 4:13]].
 
 to another, that he may teach the word of *knowledge*, [[Moroni 10.10|Moroni 10:10]].
 
-humble they might ... receive *knowledge*, [[D&C 1.28|D&C 1:28]].
+humble they might … receive *knowledge*, [[D&C 1.28|D&C 1:28]].
 
 *knowledge* of a Savior has come unto the world, [[D&C 3.16|D&C 3:16]].
 
@@ -165,7 +164,7 @@ you shall receive a *knowledge* concerning the engravings, [[D&C 8.1|D&C 8:1]].
 
 you must *study* it out in your mind; then you must ask, [[D&C 9.8|D&C 9:8]].
 
-ask, thou shalt receive ... *knowledge* upon *knowledge*, [[D&C 42.61|D&C 42:61]].
+ask, thou shalt receive … *knowledge* upon *knowledge*, [[D&C 42.61|D&C 42:61]].
 
 grow in grace and in the *knowledge* of the truth, [[D&C 50.40|D&C 50:40]].
 
@@ -183,7 +182,7 @@ that my *knowledge* and glory may dwell upon all the earth, [[D&C 101.25|D&C 101
 
 temporal things, having a *knowledge* of them by the Spirit, [[D&C 107.71|D&C 107:71]].
 
-Israel ... come to a *knowledge* of the truth, [[D&C 109.67|D&C 109:67]].
+Israel … come to a *knowledge* of the truth, [[D&C 109.67|D&C 109:67]].
 
 pouring down *knowledge* from heaven upon the heads, [[D&C 121.33|D&C 121:33]].
 
@@ -197,7 +196,7 @@ It is impossible for a man to be saved in *ignorance*, [[D&C 131.6|D&C 131:6]].
 
 died without a *knowledge*, [[D&C 137.7|D&C 137:7]].
 
-preached to those ... without a *knowledge* of the truth, [[D&C 138.32|D&C 138:32]].
+preached to those … without a *knowledge* of the truth, [[D&C 138.32|D&C 138:32]].
 
 I gave unto them their *knowledge*, in the day I created, [[Moses 7.32|Moses 7:32]].
 

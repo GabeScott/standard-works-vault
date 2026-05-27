@@ -1,4 +1,3 @@
 # Daniel
 
-
-*See* [BD Daniel](https://www.churchofjesuschrist.org/study/scriptures/bd/daniel?lang=eng); [Daniel, book of](https://www.churchofjesuschrist.org/study/scriptures/bd/daniel-book-of?lang=eng)
+*See also* [[BD Daniel.md|BD Daniel]]; [[BD Daniel, book of.md|BD Daniel, book of]]

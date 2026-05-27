@@ -1,5 +1,7 @@
 # Did You Get the Right Message?
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -69,13 +71,13 @@ In the nine years that President Thomas S. Monson and I have served as counselor
 
 [^6]: [[Exodus 3.8|Exodus 3:8]].
 
-[^7]: [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
+[^7]: [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]].
 
 [^8]: See [[Jonah 1.1|Jonah 1–3]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]].
 
 [^9]: [[Ether 3.5|Ether 3:5]].
 
-[^10]: [[3 Nephi 2.1|3 Nephi 2:1]].
+[^10]: [[3 Nephi 2.1|3 Nephi 2:1]].
 
 [^11]: [[Enos 1.10|Enos 1:10]].
 
@@ -83,7 +85,7 @@ In the nine years that President Thomas S. Monson and I have served as counselor
 
 [^13]: [[D&C 85.6|D&C 85:6]].
 
-[^14]: See [[1 Nephi 17.45|1 Nephi 17:45]].
+[^14]: See [[1 Nephi 17.45|1 Nephi 17:45]].
 
 [^15]: [[Exodus 20.12|Exodus 20:12]].
 
@@ -91,7 +93,7 @@ In the nine years that President Thomas S. Monson and I have served as counselor
 
 [^17]: [[D&C 121.34|D&C 121:34–35]][[D&C 121.35|]].
 
-[^18]: [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]]; see also [[Matthew 6.note33a|Matthew 6:33, footnote a.]]
+[^18]: [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]]; see also [Matthew 6:33, footnote a.](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a)
 
 [^19]: [[Proverbs 22.7|Proverbs 22:7]].
 
@@ -99,8 +101,3 @@ In the nine years that President Thomas S. Monson and I have served as counselor
 
 [^21]: [[Alma 5.40|Alma 5:40]].
 
-
-
-
-
-#Holy_Ghost #Honesty #Prophets #Spirituality #Temples

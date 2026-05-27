@@ -1,6 +1,8 @@
 # The Answer Is Jesus
 
-By Elder Ryan K. Olsen - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Ryan K. Olsen - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -10,9 +12,9 @@ By Elder Ryan K. Olsen - *Of the Seventy*
 
 What an honor to speak to you in this session of conference. Today I address you as friends. In the Gospel of John, the Savior taught that we are His friends if we do what He asks us to do.[^1]
 
-It is our individual and collective love of the Savior, and our covenants with Him, that bind us together. As President Henry B. Eyring taught: “To you I wish to say how much the Lord loves you and trusts you. And, even more, I wish to tell you how much He depends on you.”[^2]
+It is our individual and collective love of the Savior, and our covenants with Him, that bind us together. As President Henry B. Eyring taught: “To you I wish to say how much the Lord loves you and trusts you. And, even more, I wish to tell you how much He depends on you.”[^2]
 
-When I was called as a General Authority by President Russell M. Nelson, I was flooded with emotions. It was overwhelming. My wife, Julie, and I anxiously awaited the Saturday afternoon session of general conference. It was humbling to be sustained. I carefully counted the steps to my designated seat so as not to fall in my first assignment.
+When I was called as a General Authority by President Russell M. Nelson, I was flooded with emotions. It was overwhelming. My wife, Julie, and I anxiously awaited the Saturday afternoon session of general conference. It was humbling to be sustained. I carefully counted the steps to my designated seat so as not to fall in my first assignment.
 
 At the conclusion of that session, something happened that had a profound effect on me. The quorum members formed a line and greeted the new General Authorities one by one. Each one shared their love and support. With a hearty *abrazo* they said, “Don’t worry—you belong.”
 
@@ -38,7 +40,7 @@ In the Gospel of John, the Savior said to His disciples that He would prepare a 
 
 The Savior taught His disciples that He is “the way, the truth, and the life.” He is the answer to the question of how to come unto Heavenly Father. Gaining a testimony of His divine role in our lives was something I learned as a young man.
 
-While I was serving as a missionary in Argentina, President Howard W. Hunter invited us to do something that had a profound effect on my life. He said, “We must know Christ better than we know him; we must remember him more often than we remember him; we must serve him more valiantly than we serve him.”[^6]
+While I was serving as a missionary in Argentina, President Howard W. Hunter invited us to do something that had a profound effect on my life. He said, “We must know Christ better than we know him; we must remember him more often than we remember him; we must serve him more valiantly than we serve him.”[^6]
 
 At that time, I had been concerned with how to be a better missionary. This was the answer: to know Christ, to remember Him, and to serve Him. Missionaries throughout the world are united in this purpose: to “invite others to come unto Christ by helping them receive the restored gospel through faith in \[Him\] and His Atonement” and through “repentance, baptism, receiving the gift of the Holy Ghost, and enduring to the end.”[^7] To our friends who are listening to the missionaries, I add my invitation to come unto Christ. Together we will strive to know Him, remember Him, and serve Him.
 
@@ -74,9 +76,9 @@ How grateful we are that God so loved us that He sent His Son. He is the answer.
 
 President Nelson recently said:
 
-“The gospel of Jesus Christ has never been needed more than it is today. …
+“The gospel of Jesus Christ has never been needed more than it is today. …
 
-“… This underscores the urgent need for us to follow the Lord’s instruction to His disciples to ‘go … into *all* the world, and preach the gospel to *every* creature.’”[^10]
+“… This underscores the urgent need for us to follow the Lord’s instruction to His disciples to ‘go … into *all* the world, and preach the gospel to *every* creature.’”[^10]
 
 To those who will choose to serve, I can attest to the blessings that will come as you heed a prophet’s call. Serving is not about you; it is about the Savior. You will be called to a place, but more importantly you will be called to a people. You will have the great responsibility and blessing of helping new friends understand that the answer is Jesus.
 
@@ -93,25 +95,23 @@ I love the Savior. I bear witness of His name, even Jesus Christ. I testify that
 
 [^1]: See [[John 15.14|John 15:14]].
 
-[^2]: Henry B. Eyring, “[[2005 April - Hearts Bound Together.md|Hearts Bound Together]],” *Ensign* or *Liahona*, May 2005, 77.
+[^2]: Henry B. Eyring, “[[2005 April - Hearts Bound Together.md|Hearts Bound Together]],” *Ensign* or *Liahona*, May 2005, 77.
 
-[^3]: See [[1 Samuel 16.7|1 Samuel 16:7]]; [[Acts 10.34|Acts 10:34–35]][[Acts 10.35|]]; [[D&C 1.34|Doctrine and Covenants 1:34–35]][[D&C 1.35|]].
+[^3]: See [[1 Samuel 16.7|1 Samuel 16:7]]; [[Acts 10.34|Acts 10:34–35]][[Acts 10.35|]]; [[D&C 1.34|Doctrine and Covenants 1:34–35]][[D&C 1.35|]].
 
-[^4]: Russell M. Nelson, in “[Worldwide Youth Devotional: Messages from President Russell M. Nelson and Sister Wendy W. Nelson](https://www.churchofjesuschrist.org/church/events/worldwide-youth-devotional-messages-from-president-and-sister-russell-m-nelson?),” June 3, 2018, ChurchofJesusChrist.org.
+[^4]: Russell M. Nelson, in “[Worldwide Youth Devotional: Messages from President Russell M. Nelson and Sister Wendy W. Nelson](https://www.churchofjesuschrist.org/church/events/worldwide-youth-devotional-messages-from-president-and-sister-russell-m-nelson?),” June 3, 2018, ChurchofJesusChrist.org.
 
 [^5]: [[John 14.5|John 14:5–6]][[John 14.6|]].
 
-[^6]: Howard W. Hunter, “[[1994 April - “What Manner of Men Ought Ye to Be”.md|What Manner of Men Ought Ye to Be?]],” *Ensign*, May 1994, 64.
+[^6]: Howard W. Hunter, “[[1994 April - “What Manner of Men Ought Ye to Be”.md|What Manner of Men Ought Ye to Be?]],” *Ensign*, May 1994, 64.
 
 [^7]: *Preach My Gospel: A Guide to Missionary Service* (2019), 1.
 
-[^8]: See [[1 Corinthians 14.33|1 Corinthians 14:33]]; [[James 3.16|James 3:16]]; [[D&C 123.7|Doctrine and Covenants 123:7]]; [[D&C 132.8|132:8]].
+[^8]: See [[1 Corinthians 14.33|1 Corinthians 14:33]]; [[James 3.16|James 3:16]]; [[D&C 123.7|Doctrine and Covenants 123:7]]; [[D&C 132.8|132:8]].
 
-[^9]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 89.
+[^9]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 89.
 
-[^10]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
+[^10]: Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6.
 
+[^11]: [[Hebrews 12.2|Hebrews 12:2]].
 
-
-
-#Adversity #Jesus_Christ #Missionary_Work #Youth

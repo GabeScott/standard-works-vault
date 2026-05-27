@@ -1,5 +1,7 @@
 # Do Your Duty—That Is Best
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2005 General Conference*
@@ -123,8 +125,3 @@ Young men of the Aaronic Priesthood, your future beckons; prepare for it. May He
 
 [^7]: Paraphrasing James Barrie, in *Peter’s Quotations: Ideas for Our Time,* comp. Laurence J. Peter (1977), 335.
 
-
-
-
-
-#Church_Callings #Duty #Faith #Priesthood #Service

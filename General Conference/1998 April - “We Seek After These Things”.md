@@ -1,5 +1,7 @@
 # “We Seek After These Things”
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -36,7 +38,7 @@ As members of the Church and particularly as holders of the priesthood, we belie
 
 As the Prophet Joseph wrote in the thirteenth article of faith, “We believe in being … benevolent … and in doing good \[works\].” Since the beginning of the Church, full-time missionaries have done good works. We are grateful for the 58,000-plus missionaries who are currently serving. The First Presidency have the opportunity to meet with many ambassadors, prime ministers, rulers, and prominent public and political figures from all over the world. Frequently they say, “We have met your missionaries. We have seen them in many places.” Sometimes these prominent people visit the Missionary Training Center in Provo and see the thousands of missionaries there. These officials always seem to be greatly impressed. The missionaries appear well groomed and dignified. Sometimes they say, “We would like our children to be associated with your young people at one of your schools.”
 
-Being a missionary is a continuing responsibility. Returned missionaries need to be exemplary in living the principles which they taught to others in the mission field. President Spencer W. Kimball said: “Please, you returned missionaries … , please do not abandon in appearance or principle or habit the great experiences of the mission field when you were like Alma and the sons of Mosiah, as the very angels of God to the people you met and taught and baptized. We do not expect you to wear a tie, white shirt, and a dark blue suit every day now that you are back in school. But surely it is not too much to ask that your good grooming be maintained, that your personal habits reflect cleanliness and dignity and pride in the principles of the gospel you taught. We ask you for the good of the kingdom and all those who have done and yet do take pride in you.”[^14]
+Being a missionary is a continuing responsibility. Returned missionaries need to be exemplary in living the principles which they taught to others in the mission field. President Spencer W. Kimball said: “Please, you returned missionaries … , please do not abandon in appearance or principle or habit the great experiences of the mission field when you were like Alma and the sons of Mosiah, as the very angels of God to the people you met and taught and baptized. We do not expect you to wear a tie, white shirt, and a dark blue suit every day now that you are back in school. But surely it is not too much to ask that your good grooming be maintained, that your personal habits reflect cleanliness and dignity and pride in the principles of the gospel you taught. We ask you for the good of the kingdom and all those who have done and yet do take pride in you.”[^14]
 
 The admonition of Paul includes the hope to be able to endure all things. Elder Clinton Cutler exemplified how hope, perseverance, and steadfastness call forth the blessings of heaven. He literally became an instrument in the hands of the Lord. Clint and Carma Cutler were high school sweethearts. They began married life by attending college on a basketball scholarship. But they soon became pressed financially, so Clint went to work for the telephone company. His first job was washing, greasing, and maintaining the company trucks. That led to work in the central office as a cable repairman. For three and a half years, Clint worked full time and went to college full time. He graduated in December 1960 with honors. By that time he had four children.
 
@@ -61,7 +63,7 @@ In His infinite wisdom, since the beginning of the earth, God has led His people
 
 [^2]: [[Alma 53.20|Alma 53:20]].
 
-[^3]: [[Articles of Faith 1.13|A of F 1:13]].
+[^3]: [[Articles of Faith 1.13|A of F 1:13]].
 
 [^4]: *Discourses of Brigham Young* (1954), 232–33.
 
@@ -89,8 +91,3 @@ In His infinite wisdom, since the beginning of the earth, God has led His people
 
 [^16]: *Discourses of Brigham Young,* 280.
 
-
-
-
-
-#Character #Endurance #Honesty #Jesus_Christ #Missionary_Work #Morality #Priesthood

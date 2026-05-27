@@ -1,5 +1,7 @@
 # You Can’t Pet a Rattlesnake
 
+Gordon B. Hinckley
+
 By Elder David E. Sorensen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -57,7 +59,7 @@ Don’t allow the poison to touch your souls, brethren. Remember, “He that is 
 
 [^2]: [[Isaiah 5.20|Isa. 5:20]].
 
-[^3]: See [[2 Samuel 11.1|2 Sam. 11]][[2 Samuel 11.2|]][[2 Samuel 11.3|]][[2 Samuel 11.4|]][[2 Samuel 11.5|]][[2 Samuel 11.6|]][[2 Samuel 11.7|]][[2 Samuel 11.8|]][[2 Samuel 11.9|]][[2 Samuel 11.10|]][[2 Samuel 11.11|]][[2 Samuel 11.12|]][[2 Samuel 11.13|]][[2 Samuel 11.14|]][[2 Samuel 11.15|]][[2 Samuel 11.16|]][[2 Samuel 11.17|]][[2 Samuel 11.18|]][[2 Samuel 11.19|]][[2 Samuel 11.20|]][[2 Samuel 11.21|]][[2 Samuel 11.22|]][[2 Samuel 11.23|]][[2 Samuel 11.24|]][[2 Samuel 11.25|]][[2 Samuel 11.26|]][[2 Samuel 11.27|]]; [[D&C 132.39|D&C 132:39]].
+[^3]: See [[2 Samuel 11.1|2 Sam. 11]][[2 Samuel 11.2|]][[2 Samuel 11.3|]][[2 Samuel 11.4|]][[2 Samuel 11.5|]][[2 Samuel 11.6|]][[2 Samuel 11.7|]][[2 Samuel 11.8|]][[2 Samuel 11.9|]][[2 Samuel 11.10|]][[2 Samuel 11.11|]][[2 Samuel 11.12|]][[2 Samuel 11.13|]][[2 Samuel 11.14|]][[2 Samuel 11.15|]][[2 Samuel 11.16|]][[2 Samuel 11.17|]][[2 Samuel 11.18|]][[2 Samuel 11.19|]][[2 Samuel 11.20|]][[2 Samuel 11.21|]][[2 Samuel 11.22|]][[2 Samuel 11.23|]][[2 Samuel 11.24|]][[2 Samuel 11.25|]][[2 Samuel 11.26|]][[2 Samuel 11.27|]]; [[D&C 132.39|D&C 132:39]].
 
 [^4]: See [[Alma 53.4|Alma 53:4, 7]][[Alma 53.7|]].
 
@@ -81,17 +83,17 @@ Don’t allow the poison to touch your souls, brethren. Remember, “He that is 
 
 [^14]: See [[Mosiah 26.29|Mosiah 26:29]].
 
-[^15]: See [[2 Nephi 9.23|2 Ne. 9:23]]; [[2 Nephi 26.27|26:27]].
+[^15]: See [[2 Nephi 9.23|2 Ne. 9:23]]; [[2 Nephi 26.27|26:27]].
 
-[^16]: See [[Alma 34.1|Alma 34]][[Alma 34.2|]][[Alma 34.3|]][[Alma 34.4|]][[Alma 34.5|]][[Alma 34.6|]][[Alma 34.7|]][[Alma 34.8|]][[Alma 34.9|]][[Alma 34.10|]][[Alma 34.11|]][[Alma 34.12|]][[Alma 34.13|]][[Alma 34.14|]][[Alma 34.15|]][[Alma 34.16|]][[Alma 34.17|]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]][[Alma 34.28|]][[Alma 34.29|]][[Alma 34.30|]][[Alma 34.31|]][[Alma 34.32|]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]][[Alma 34.36|]][[Alma 34.37|]][[Alma 34.38|]][[Alma 34.39|]][[Alma 34.40|]][[Alma 34.41|]]; [[3 Nephi 18.29|3 Ne. 18:29–32]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]].
+[^16]: See [[Alma 34.1|Alma 34]]; [[3 Nephi 18.29|3 Ne. 18:29–32]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]].
 
 [^17]: See [[D&C 64.7|D&C 64:7]].
 
 [^18]: [[John 8.32|John 8:32]].
 
-[^19]: See [[2 Nephi 2.25|2 Ne. 2:25]]; [[2 Nephi 9.18|9:18]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Mosiah 4.3|4:3]].
+[^19]: See [[2 Nephi 2.25|2 Ne. 2:25]]; [[2 Nephi 9.18|9:18]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Mosiah 4.3|4:3]].
 
-[^20]: See [[Articles of Faith 1.13|A of F 1:13]].
+[^20]: See [[Articles of Faith 1.13|A of F 1:13]].
 
 [^21]: [[John 13.35|John 13:35]].
 
@@ -99,14 +101,9 @@ Don’t allow the poison to touch your souls, brethren. Remember, “He that is 
 
 [^23]: See [[D&C 101.22|D&C 101:22]].
 
-[^24]: In Conference Report, Oct. 1999, 71; or *Ensign,* Nov. 1999, 54.
+[^24]: In Conference Report, Oct. 1999, [[1999 October - Why We Do Some of the Things We Do.md|71]]; or *Ensign,* Nov. 1999, 54.
 
-[^25]: In Conference Report, Oct. 2000, 68; or *Ensign,* Nov. 2000, 51.
+[^25]: In Conference Report, Oct. 2000, [[2000 October - “Great Shall Be the Peace of Thy Children”.md|68]]; or *Ensign,* Nov. 2000, 51.
 
-[^26]: [[1 Nephi 17.35|1 Ne. 17:35]].
+[^26]: [[1 Nephi 17.35|1 Ne. 17:35]].
 
-
-
-
-
-#Forgiveness #Media #Morality #Prayer #Preparation #Repentance #Sin #Standards #Temptation

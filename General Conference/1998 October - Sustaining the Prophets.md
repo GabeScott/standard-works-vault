@@ -1,12 +1,14 @@
 # Sustaining the Prophets
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
 
 >*The gospel is true; it is the hope of the world; it will move onward to accomplish all that it must do.*
 
-[Link](https://www.churchofjesuschrist.org/study/general-conference/1998/10/sustaining-the-prophets)
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1998/10/sustaining-the-prophets?lang=eng)
 
 A friend of mine recently said to me, “Do you know what you and Steve Young, the quarterback of the 49ers, have in common?”
 
@@ -44,7 +46,7 @@ And so, as we see the work move forward and move on, I would only declare to you
 
 I remind you that the Savior taught, as recorded in Matthew, that whosoever “findeth his life shall lose it: and he that loseth his life for my sake shall find it” ([[Matthew 10.39|Matt. 10:39]]). Now, some scholars and others have thought: “Well, that’s a paradox. It’s probably a mistranslation. It really doesn’t make very good sense.” It’s very clear in my mind, and I hope it is in yours, that as we live in the world of materialism, in Babylon that we live in today, and see the happenings of the world, whether you read the financial pages or the political pages or whatever, you can sense and feel that where we find our strength and where we find the answer to our challenges and our problems would be as we listen to the voice of the prophet—God’s prophet here upon the earth.
 
-In that statement of the Savior’s, we see that as we live in the materialistic world, we’re concerned with only the materialistic side of life. We think of all we can accumulate for ourselves. We’re not thinking of others or not living to help other people live on a higher plane. The Lord is saying that when you find the life that He exemplifies, then you lose your self-centered life: “He that loseth his life for my sake. …”
+In that statement of the Savior’s, we see that as we live in the materialistic world, we’re concerned with only the materialistic side of life. We think of all we can accumulate for ourselves. We’re not thinking of others or not living to help other people live on a higher plane. The Lord is saying that when you find the life that He exemplifies, then you lose your self-centered life: “He that loseth his life for my sake. …”
 
 When we’re concerned about doing something for someone else and when we’re thinking about sharing the gospel or helping someone move on to a higher plane morally or physically, when we’re doing something for someone else and sharing with them, then we’re coming to their aid, we’re coming to their rescue. In all that, we find the life that the Savior talks about, the eternal blessings, the heavenly blessings, the temple blessings, all of those blessings of a loving family that we can have.
 
@@ -66,8 +68,3 @@ It’s as simple, it’s as pure and as clean as that little, simple song. It te
 
 
 
-
-
-
-
-#Adversity #Agency #Blessings #Jesus_Christ #Joseph_Smith #Prophets

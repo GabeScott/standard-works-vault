@@ -1,6 +1,8 @@
 # Divine Discontent
 
-By Michelle D. Craig - *First Counselor in the Young Women General Presidency*
+Russell M. Nelson
+
+By Michelle D. Craig - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -12,7 +14,7 @@ When I was in elementary school, we walked home on a paved trail that wound back
 
 As a young Primary girl, that is what I thought I could do to prepare. Now I know differently! Rather than walking barefoot up mountain trails, I know I can prepare my feet to walk on the covenant path by responding to the invitations of the Holy Ghost. For the Lord, through His prophet, is calling each of us to live and care in a “higher and holier way” and to “take a step higher.”[^1]
 
-These prophetic calls to action, coupled with our innate sense that we can do and be more, sometimes create within us what Elder Neal A. Maxwell called “divine discontent.”[^2] Divine discontent comes when we compare “what we *are* \[to\] what we have the power to *become.*”[^3] Each of us, if we are honest, feels a gap between where and who we are, and where and who we want to become. We yearn for greater personal capacity. We have these feelings because we are daughters and sons of God, born with the Light of Christ yet living in a fallen world. These feelings are God given and create an urgency to act.
+These prophetic calls to action, coupled with our innate sense that we can do and be more, sometimes create within us what Elder Neal A. Maxwell called “divine discontent.”[^2] Divine discontent comes when we compare “what we *are* \[to\] what we have the power to *become.*”[^3] Each of us, if we are honest, feels a gap between where and who we are, and where and who we want to become. We yearn for greater personal capacity. We have these feelings because we are daughters and sons of God, born with the Light of Christ yet living in a fallen world. These feelings are God given and create an urgency to act.
 
 We should welcome feelings of divine discontent that call us to a higher way, while recognizing and avoiding Satan’s counterfeit—paralyzing discouragement. This is a precious space into which Satan is all too eager to jump. We can choose to walk the higher path that leads us to seek for God and His peace and grace, or we can listen to Satan, who bombards us with messages that we will never be enough: rich enough, smart enough, beautiful enough, anything enough. Our discontent can become divine—or destructive.
 
@@ -28,9 +30,9 @@ Well, Joseph *did* something. He shared, “I often said to myself: What is to b
 
 The world often uses a feeling of discontent as an excuse for self-absorption, for turning our thoughts inward and backward and dwelling individually on who *I* am, who *I* am not, and what *I* want. Divine discontent motivates us to follow the example of the Savior, “who went about doing good.”[^8] As we walk the path of discipleship, we will receive spiritual nudges to reach out to others.
 
-A story I heard years ago has helped me recognize and then act on promptings from the Holy Ghost. Sister Bonnie D. Parkin, former Relief Society General President, shared the following:
+A story I heard years ago has helped me recognize and then act on promptings from the Holy Ghost. Sister Bonnie D. Parkin, former Relief Society General President, shared the following:
 
-“Susan … was a wonderful seamstress. President \[Spencer W.\] Kimball lived in \[her\] ward. One Sunday, Susan noticed that he had a new suit. Her father had recently … brought her some exquisite silk fabric. Susan thought that fabric would make a handsome tie to go with President Kimball’s new suit. So on Monday she made the tie. She wrapped it in tissue paper and walked up the block to President Kimball’s home.
+“Susan … was a wonderful seamstress. President \[Spencer W.\] Kimball lived in \[her\] ward. One Sunday, Susan noticed that he had a new suit. Her father had recently … brought her some exquisite silk fabric. Susan thought that fabric would make a handsome tie to go with President Kimball’s new suit. So on Monday she made the tie. She wrapped it in tissue paper and walked up the block to President Kimball’s home.
 
 “On her way to the front door, she suddenly stopped and thought, ‘Who am I to make a tie for the prophet? He probably has plenty of them.’ Deciding she had made a mistake, she turned to leave.
 
@@ -62,22 +64,22 @@ Have you ever felt your talents and gifts were too small for the task ahead? I h
 
 The truth is that each of us is one generation away from Deity—each is a child of God.[^18] And just as He has done with both prophets and ordinary men and women through the ages, so Heavenly Father intends to transform us.
 
-C. S. Lewis explained God’s transforming power this way: “Imagine yourself as a living house. God comes in to rebuild that house. At first, perhaps, you can understand what He is doing. He is getting the drains right and stopping the leaks in the roof and so on; you knew that those jobs needed doing and so you are not surprised. But presently He starts knocking the house about in a way that hurts abominably. … \[You see,\] He is building quite a different house from the one you thought of. … You thought you were \[being\] made into a decent little cottage: but He is building a palace. He intends to come and live in it Himself.”[^19]
+C. S. Lewis explained God’s transforming power this way: “Imagine yourself as a living house. God comes in to rebuild that house. At first, perhaps, you can understand what He is doing. He is getting the drains right and stopping the leaks in the roof and so on; you knew that those jobs needed doing and so you are not surprised. But presently He starts knocking the house about in a way that hurts abominably. … \[You see,\] He is building quite a different house from the one you thought of. … You thought you were \[being\] made into a decent little cottage: but He is building a palace. He intends to come and live in it Himself.”[^19]
 
 Because of our Savior’s atoning sacrifice, we can be made equal to the tasks that lie ahead. The prophets have taught that as we climb the path of discipleship, we can be sanctified through the grace of Christ. Divine discontent can move us to act in faith, follow the Savior’s invitations to do good, and give our lives humbly to Him. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, in Tad Walch, “‘The Lord’s Message Is for Everyone’: President Nelson Talks about Global Tour,” *Deseret News,* Apr. 12, 2018, deseretnews.com.
+[^1]: Russell M. Nelson, in Tad Walch, “‘The Lord’s Message Is for Everyone’: President Nelson Talks about Global Tour,” *Deseret News,* Apr. 12, 2018, deseretnews.com.
 
-[^2]: Neal A. Maxwell, “[Becoming a Disciple](https://churchofjesuschrist.org/study/ensign/1996/06/becoming-a-disciple?lang=eng),” *Ensign,* June 1996, 18.
+[^2]: Neal A. Maxwell, “[Becoming a Disciple](https://www.churchofjesuschrist.org/study/ensign/1996/06/becoming-a-disciple?lang=eng),” *Ensign,* June 1996, 18.
 
-[^3]: Neal A. Maxwell, “[Becoming a Disciple](https://churchofjesuschrist.org/study/ensign/1996/06/becoming-a-disciple?lang=eng),” 16; emphasis added.
+[^3]: Neal A. Maxwell, “[Becoming a Disciple](https://www.churchofjesuschrist.org/study/ensign/1996/06/becoming-a-disciple?lang=eng),” 16; emphasis added.
 
-[^4]: “Discouragement will weaken your faith. If you lower your expectations, your effectiveness will decrease, your desire will weaken, and you will have greater difficulty following the Spirit” (“[What Is My Purpose as a Missionary?](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng)” *Preach My Gospel: A Guide to Missionary Service,* rev. ed. \[2018\], lds.org/manual/missionary).
+[^4]: “Discouragement will weaken your faith. If you lower your expectations, your effectiveness will decrease, your desire will weaken, and you will have greater difficulty following the Spirit” (“[What Is My Purpose as a Missionary?](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng)” *Preach My Gospel: A Guide to Missionary Service,* rev. ed. \[2018\], lds.org/manual/missionary).
 
-[^5]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 28.
+[^5]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-1?lang=eng)* (2007), 28.
 
 [^6]: [[Joseph Smith History 1.8|Joseph Smith—History 1:8]].
 
@@ -85,13 +87,13 @@ Because of our Savior’s atoning sacrifice, we can be made equal to the tasks t
 
 [^8]: [[Acts 10.38|Acts 10:38]].
 
-[^9]: Bonnie D. Parkin, “[Personal Ministry: Sacred and Precious](https://speeches.byu.edu/talks/bonnie-d-parkin_personal-ministry-sacred-precious)” (Brigham Young University devotional, Feb. 13, 2007), 1, speeches.byu.edu.
+[^9]: Bonnie D. Parkin, “[Personal Ministry: Sacred and Precious](https://speeches.byu.edu/talks/bonnie-d-parkin_personal-ministry-sacred-precious)” (Brigham Young University devotional, Feb. 13, 2007), 1, speeches.byu.edu.
 
 [^10]: [[Moroni 7.13|Moroni 7:13]].
 
-[^11]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
+[^11]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
 
-[^12]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^12]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^13]: “I can do all things through Christ which strengtheneth me” ([[Philippians 4.13|Philippians 4:13]]).
 
@@ -103,12 +105,7 @@ Because of our Savior’s atoning sacrifice, we can be made equal to the tasks t
 
 [^17]: [[John 6.9|John 6:9]].
 
-[^18]: President Boyd K. Packer taught: “However many generations in your mortal ancestry, no matter what race or people you represent, the pedigree of your spirit can be written on a single line. You are a child of God!” (“[[1989 April - To Young Women and Men.md|To Young Women and Men]],” *Ensign,* May 1989, 54).
+[^18]: President Boyd K. Packer taught: “However many generations in your mortal ancestry, no matter what race or people you represent, the pedigree of your spirit can be written on a single line. You are a child of God!” (“[[1989 April - To Young Women and Men.md|To Young Women and Men]],” *Ensign,* May 1989, 54).
 
-[^19]: C. S. Lewis, *Mere Christianity* (1960), 160.
+[^19]: C. S. Lewis, *Mere Christianity* (1960), 160.
 
-
-
-
-
-#Faith #Humility #Service

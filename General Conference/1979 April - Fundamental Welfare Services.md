@@ -1,6 +1,8 @@
 # Fundamental Welfare Services
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -14,7 +16,7 @@ At the base of Church Welfare is the commandment that we are to live *by our own
 
 As we sift the ways of the world let us reject the commonly accepted attitude of expecting the government to supply us with the necessities of life. This practice, if fully adopted, will change any society from one of freedom to one of slavery. Let us contend for the gospel of work. Let us be self-reliant. Salvation is an individual matter. There will be no mass salvation. Some have mistakenly concluded from Paul’s statement—“For by grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works” ([[Ephesians 2.8|Eph. 2:8–9]][[Ephesians 2.9|]])—some have erroneously concluded from this statement that works are not necessary.
 
-The truth was spoken by Nephi when he said, “We are saved \[by grace\], after all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]).
+The truth was spoken by Nephi when he said, “We are saved \[by grace\], after all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]).
 
 It will require maximum effort for us to bring ourselves within the reach of the atoning blood of Jesus Christ so that we can be saved. There will be no government dole which can get us through the pearly gates. Nor will anyone go through those gates who wants to go through on the efforts of another.
 
@@ -42,15 +44,15 @@ One of the important things the Lord has told us to do is to be liberal in our p
 
 How like *our* performances. We are prone to get a headache when we fast, and sometimes we pretend to be starving to death. To ancient Israel the Lord put the question:
 
-“Is not this the fast that I have chosen? …
+“Is not this the fast that I have chosen? …
 
-“… to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him … ?
+“… to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him … ?
 
 “\[When thou hast done these things\],” he added, “then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the Lord shall be thy rereward.
 
-“Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. …
+“Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. …
 
-“… if thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness be as the noonday.” ([[Isaiah 58.6|Isa. 58:6–10]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]].)
+“… if thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness be as the noonday.” ([[Isaiah 58.6|Isa. 58:6–10]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]].)
 
 Think of these matchless blessings. They are all promised to those who will liberally contribute to the care of the poor.
 
@@ -60,11 +62,11 @@ According to the teachings of the great Book of Mormon prophet, Amulek, the very
 
 He then gave these classic instructions on prayer:
 
-“Cry unto him in your houses, yea, over all your household, both morning, mid-day, and evening. …
+“Cry unto him in your houses, yea, over all your household, both morning, mid-day, and evening. …
 
 “Yea, cry unto him against the devil, who is an enemy to all righteousness.
 
-“Cry unto him over the crops of your fields, that ye may prosper in them. …
+“Cry unto him over the crops of your fields, that ye may prosper in them. …
 
 “But this is not all; ye must pour out your souls in your closets, and your secret places, and in your wilderness.
 
@@ -131,8 +133,3 @@ That we may all vigorously pursue our duties in living and in implementing the C
 
 
 
-
-
-
-
-#Charity #Welfare

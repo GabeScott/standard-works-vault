@@ -1,6 +1,8 @@
 # Protection from Pornography—a Christ-Focused Home
 
-By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
+Thomas S. Monson
+
+By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -12,7 +14,7 @@ Dear brothers and sisters, today I am blessed to have my 13 oldest grandchildren
 
 We as leaders are increasingly concerned about the destruction that pornography is causing in the lives of Church members and their families. Satan is attacking with unprecedented fury.
 
-One reason we are here on earth is to learn to manage the passions and feelings of our mortal bodies. These God-given feelings help us want to marry and have children. The intimate marriage relationship between a man and a woman that brings children into mortality is also meant to be a beautiful, loving experience that binds together two devoted hearts, unites both spirit and body, and brings a fulness of joy and happiness as we learn to put each other first. President Spencer W. Kimball taught that in marriage, “the spouse … becomes preeminent in the life of the husband or wife, and … \[no\] other interest \[or\] person \[or\] thing shall ever take precedence over the companion spouse. …
+One reason we are here on earth is to learn to manage the passions and feelings of our mortal bodies. These God-given feelings help us want to marry and have children. The intimate marriage relationship between a man and a woman that brings children into mortality is also meant to be a beautiful, loving experience that binds together two devoted hearts, unites both spirit and body, and brings a fulness of joy and happiness as we learn to put each other first. President Spencer W. Kimball taught that in marriage, “the spouse … becomes preeminent in the life of the husband or wife, and … \[no\] other interest \[or\] person \[or\] thing shall ever take precedence over the companion spouse. …
 
 “Marriage presupposes total allegiance and total fidelity.”[^1]
 
@@ -26,7 +28,7 @@ Pornography is more vile, evil, and graphic than ever before. As we counsel with
 
 Young people and adults, if you are caught in Satan’s trap of pornography, remember how merciful our beloved Savior is. Do you realize how deeply the Lord loves and cherishes you, even now? Our Savior has the power to cleanse and heal you. He can remove the pain and sorrow you feel and make you clean again through the power of His Atonement.
 
-We as leaders are also greatly concerned about the spouses and families of those suffering from pornography addiction. Elder Richard G. Scott has pleaded: “If you are free of serious sin yourself, don’t suffer needlessly the consequences of another’s sins. … You can feel compassion. … Yet you should not take upon yourself a feeling of responsibility for those acts.”[^3] Know that you are not alone. There is help. Addiction recovery meetings for spouses are available, including phone-in meetings, which allow spouses to call in to a meeting and participate from their own homes.
+We as leaders are also greatly concerned about the spouses and families of those suffering from pornography addiction. Elder Richard G. Scott has pleaded: “If you are free of serious sin yourself, don’t suffer needlessly the consequences of another’s sins. … You can feel compassion. … Yet you should not take upon yourself a feeling of responsibility for those acts.”[^3] Know that you are not alone. There is help. Addiction recovery meetings for spouses are available, including phone-in meetings, which allow spouses to call in to a meeting and participate from their own homes.
 
 Brothers and sisters, how do we protect our children and youth? Filters are useful tools, but the greatest filter in the world, the only one that will ultimately work, is the personal internal filter that comes from a deep and abiding testimony of our Heavenly Father’s love and our Savior’s atoning sacrifice for each one of us.
 
@@ -48,22 +50,20 @@ Youth, take responsibility for your own spiritual well-being. Turn off your phon
 
 What do I want my grandchildren to know? I want them and you to know that I know the Savior lives and loves us. He has paid the price for our sins, but we must kneel before our Father in Heaven, in deep humility, confessing our sins, and plead with Him for forgiveness. We must want to change our hearts and our desires and be humble enough to seek the help and forgiveness of those we may have hurt or forsaken.
 
-I know that Joseph Smith saw God, our Heavenly Father, and our Savior, Jesus Christ. I testify that we have a living prophet upon the earth, President Thomas S. Monson. I also testify that we will never be led astray if we heed the counsel of the prophet of God. I testify of the power of our covenants and the blessings of the temple.
+I know that Joseph Smith saw God, our Heavenly Father, and our Savior, Jesus Christ. I testify that we have a living prophet upon the earth, President Thomas S. Monson. I also testify that we will never be led astray if we heed the counsel of the prophet of God. I testify of the power of our covenants and the blessings of the temple.
 
 I know that the Book of Mormon is true! I cannot explain the power of this great book. I only know that, coupled with prayer, the Book of Mormon carries the power to protect families, strengthen relationships, and give personal confidence before the Lord. I testify of these things in the holy name of Jesus Christ, amen.
 
 
 
 
-[^1]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 199–200.
+[^1]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 199–200.
 
-[^2]: See Clay Olsen, “What Teens Wish Parents Knew” (address given at Utah Coalition Against Pornography Conference, Mar. 22, 2014); utahcoalition.org.
+[^2]: See Clay Olsen, “What Teens Wish Parents Knew” (address given at Utah Coalition Against Pornography Conference, Mar. 22, 2014); utahcoalition.org.
 
-[^3]: Richard G. Scott, “To Be Free of Heavy Burdens,” *Ensign* or *Liahona,* Nov. 2002, 88.
+[^3]: Richard G. Scott, “To Be Free of Heavy Burdens,” *Ensign* or *Liahona,* Nov. 2002, 88.
 
-[^4]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^4]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
+[^5]: See David A. Bednar, “[The Hearts of the Children Shall Turn](https://www.churchofjesuschrist.org/study/ensign/2011/11/saturday-afternoon-session/the-hearts-of-the-children-shall-turn?lang=eng),” *Ensign* or *Liahona,* Nov. 2011, 24–27; Richard G. Scott, “[The Joy of Redeeming the Dead](https://www.churchofjesuschrist.org/study/ensign/2012/11/sunday-afternoon-session/the-joy-of-redeeming-the-dead?lang=eng),” *Ensign* or *Liahona,* Nov. 2012, 93–95; Neil L. Andersen, “Find Our Cousins!” (address given at RootsTech 2014 Family History Conference, Feb. 8, 2014); lds.org/prophets-and-apostles/unto-all-the-world/find-our-cousins.
 
-
-
-#Addiction #Pornography #Prayer #Scripture_Study

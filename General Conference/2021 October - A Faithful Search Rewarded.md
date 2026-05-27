@@ -1,6 +1,8 @@
 # A Faithful Search Rewarded
 
-By Elder Patricio M. Giuffra - *Of the Seventy*
+Russell M. Nelson
+
+By Elder Patricio M. Giuffra - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -58,7 +60,7 @@ The missionaries gave us our own copy of the Book of Mormon. We read and accepte
 
 It has been almost 45 years since my mother and I first learned the joy and power of having faith in Christ. It was because of their faith in Christ that the Lopez family shared their new faith with me. It was because of their faith in Christ that these two missionaries left their homes in the United States to find my mother and me. It was the faith of all these dear friends that planted a mustard seed of faith in us that has since grown into a mighty tree of eternal blessings.
 
-During these blessed years, we have known, as President Russell M. Nelson declared: “Everything good in life—every potential blessing of eternal significance—begins with faith. Allowing God to prevail in our lives begins with faith that He is willing to guide us. True repentance begins with faith that Jesus Christ has the power to cleanse, heal, and strengthen us.”[^8]
+During these blessed years, we have known, as President Russell M. Nelson declared: “Everything good in life—every potential blessing of eternal significance—begins with faith. Allowing God to prevail in our lives begins with faith that He is willing to guide us. True repentance begins with faith that Jesus Christ has the power to cleanse, heal, and strengthen us.”[^8]
 
 I invite us all to continually increase our faith in Christ, who has changed the lives of my beloved mother and me and continues to change the lives of all who seek Him. I know that Joseph Smith is the Prophet of the Restoration, that President Nelson is our prophet today, that Jesus is the living Christ and our Redeemer, and that Heavenly Father lives and answers all His children’s prayers. I testify of these truths in the sacred name of Jesus Christ, amen.
 
@@ -75,14 +77,9 @@ I invite us all to continually increase our faith in Christ, who has changed the
 
 [^5]: See [[D&C 27.12|Doctrine and Covenants 27:12]].
 
-[^6]: [[3 Nephi 11.10|3 Nephi 11:10]].
+[^6]: [[3 Nephi 11.10|3 Nephi 11:10]].
 
 [^7]: [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].
 
-[^8]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 102.
+[^8]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 102.
 
-
-
-
-
-#Book_Of_Mormon #Conversion #Faith #First_Vision #Joseph_Smith #Missionary_Work #Restoration

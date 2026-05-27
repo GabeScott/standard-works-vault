@@ -1,6 +1,8 @@
 # The Language of the Gospel
 
-By Elder Valeri V. Cordón - *Of the Seventy*
+Bonnie H. Cordon
+
+By Elder Valeri V. Cordón - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -24,11 +26,11 @@ I will discuss three ways that this language can be preserved.
 
 ## First: Being More Diligent and Concerned at Home
 
-In the Doctrine and Covenants, the Lord invited many prominent members of the Church, including Newel K. Whitney, to set their homes in order. The Lord said, “My servant Newel K. Whitney … hath need to be chastened, and set in order his family, and see that *they are more diligent and concerned at home,* and pray always, or they shall be removed out of their place.”[^6]
+In the Doctrine and Covenants, the Lord invited many prominent members of the Church, including Newel K. Whitney, to set their homes in order. The Lord said, “My servant Newel K. Whitney … hath need to be chastened, and set in order his family, and see that *they are more diligent and concerned at home,* and pray always, or they shall be removed out of their place.”[^6]
 
 One factor that influences language loss is when parents don’t spend time teaching their children the native language. It is not enough to merely *speak* the language in the home. If parents desire to preserve their language, it must be *taught.* Research has found that parents who make a conscious effort to preserve their native language tend to succeed in doing so.[^7] So what would be a conscious effort to preserve the language of the gospel?
 
-Elder David A. Bednar of the Quorum of the Twelve Apostles cautioned that “weak gospel teaching and modeling in the home” is a powerful cause that may break the cycle of multigenerational families in the Church.[^8]
+Elder David A. Bednar of the Quorum of the Twelve Apostles cautioned that “weak gospel teaching and modeling in the home” is a powerful cause that may break the cycle of multigenerational families in the Church.[^8]
 
 We can therefore conclude that powerful teaching is extremely important to preserve the gospel in our families, and it requires diligence and effort.
 
@@ -70,7 +72,7 @@ As families, we need to avoid any tradition that will prevent us from keeping th
 
 In the scriptures, we find several examples of “language loss.”[^15] For example:
 
-“Now it came to pass that there were many of the rising generation that *could not understand the words* of king Benjamin, being little children at the time he spake unto his people; and they did not believe the tradition of their fathers. …
+“Now it came to pass that there were many of the rising generation that *could not understand the words* of king Benjamin, being little children at the time he spake unto his people; and they did not believe the tradition of their fathers. …
 
 “And now because of their unbelief *they could not understand the word of God;* and their hearts were hardened.”[^16]
 
@@ -83,13 +85,13 @@ No achievement in this life, important as it may be, will be relevant if we lose
 
 
 
-[^1]: Among Hispanics, by the third generation “the level of English monolingualism is … 72 percent” (Richard Alba, “Bilingualism Persists, but English Still Dominates,” Migration Policy Institute, Feb. 1, 2005, migrationpolicy.org/article/bilingualism-persists-english-still-dominates).
+[^1]: Among Hispanics, by the third generation “the level of English monolingualism is … 72 percent” (Richard Alba, “Bilingualism Persists, but English Still Dominates,” Migration Policy Institute, Feb. 1, 2005, migrationpolicy.org/article/bilingualism-persists-english-still-dominates).
 
 [^2]: “Speaking only English is the predominant pattern by the third generation” (Alba, “Bilingualism Persists, but English Still Dominates”).
 
-[^3]: [[1 Nephi 3.19|1 Nephi 3:19]]; emphasis added.
+[^3]: [[1 Nephi 3.19|1 Nephi 3:19]]; emphasis added.
 
-[^4]: [[1 Nephi 3.20|1 Nephi 3:20]]; emphasis added.
+[^4]: [[1 Nephi 3.20|1 Nephi 3:20]]; emphasis added.
 
 [^5]: A language can be defined as “a system of communication used by a particular country or community” (Oxford Living Dictionaries, “language,” oxforddictionaries.com).
 
@@ -97,30 +99,25 @@ No achievement in this life, important as it may be, will be relevant if we lose
 
 [^7]: “\[Preserving a native language\] is possible, but it takes dedication and planning” (Eowyn Crisfield, “Heritage Languages: Fighting a Losing Battle?” onraisingbilingualchildren.com/2013/03/25/heritage-languages-fighting-a-losing-battle). “For example, German speakers in the Midwest were successful in maintaining their mother tongue across generations” (Alba, “Bilingualism Persists, but English Still Dominates”).
 
-[^8]: David A. Bednar, “[Multigenerational Families](http://www.lds.org/broadcasts/archive/general-conference-leadership-training/2015/04),” in General Conference Leadership Meetings, Apr. 2015, broadcasts.lds.org.
+[^8]: David A. Bednar, “[Multigenerational Families](https://www.lds.org/broadcasts/archive/general-conference-leadership-training/2015/04),” in General Conference Leadership Meetings, Apr. 2015, broadcasts.lds.org.
 
-[^9]: One modern example is instruction from the First Presidency: “We counsel parents and children to give highest priority to family prayer, family home evening, gospel study and instruction, and wholesome family activities” (First Presidency letter, Feb. 11, 1999).
+[^9]: One modern example is instruction from the First Presidency: “We counsel parents and children to give highest priority to family prayer, family home evening, gospel study and instruction, and wholesome family activities” (First Presidency letter, Feb. 11, 1999).
 
 [^10]: “You need to *bring the language alive* for your children, so that they can understand and communicate and feel a part of the people represented by the language” (Crisfield, “Heritage Languages: Fighting a Losing Battle?” emphasis added).
 
 [^11]: [[John 5.19|John 5:19]].
 
-[^12]: “A proper fast day observance typically includes abstaining from food and drink for two consecutive meals in a 24-hour period, attending fast and testimony meeting, and giving a generous fast offering to help care for those in need” (*Handbook 2: Administering the Church* \[2010\], 21.1.17).
+[^12]: “A proper fast day observance typically includes abstaining from food and drink for two consecutive meals in a 24-hour period, attending fast and testimony meeting, and giving a generous fast offering to help care for those in need” (*Handbook 2: Administering the Church* \[2010\], 21.1.17).
 
 [^13]: See [[Omni 1.17|Omni 1:17]].
 
 [^14]: [[D&C 93.39|Doctrine and Covenants 93:39]]; emphasis added.
 
-[^15]: In the context of this talk, “language loss” refers to how the gospel can be lost (see [[Judges 2.10|Judges 2:10]]; [[Omni 1.17|Omni 1:17]]; [[3 Nephi 1.30|3 Nephi 1:30]]).
+[^15]: In the context of this talk, “language loss” refers to how the gospel can be lost (see [[Judges 2.10|Judges 2:10]]; [[Omni 1.17|Omni 1:17]]; [[3 Nephi 1.30|3 Nephi 1:30]]).
 
 [^16]: [[Mosiah 26.1|Mosiah 26:1, 3]][[Mosiah 26.3|]]; emphasis added.
 
-[^17]: See [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]].
+[^17]: See [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]].
 
 [^18]: See [[Matthew 16.24|Matthew 16:24–26]][[Matthew 16.25|]][[Matthew 16.26|]].
 
-
-
-
-
-#Example #Family #Parenthood #Sabbath #Scripture_Study #Tithing

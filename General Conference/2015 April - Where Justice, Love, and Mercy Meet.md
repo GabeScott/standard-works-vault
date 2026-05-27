@@ -1,6 +1,8 @@
 # Where Justice, Love, and Mercy Meet
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/where-justice-love-and-mercy-meet?lang=eng)
 
-Without safety ropes, harnesses, or climbing gear of any kind, two brothers—Jimmy, age 14, and John, age 19 (though those aren’t their real names)—attempted to scale a sheer canyon wall in Snow Canyon State Park in my native southern Utah. Near the top of their laborious climb, they discovered that a protruding ledge denied them their final few feet of ascent. They could not get over it, but neither could they now retreat from it. They were stranded. After careful maneuvering, John found enough footing to boost his younger brother to safety on top of the ledge. But there was no way to lift himself. The more he strained to find finger or foot leverage, the more his muscles began to cramp. Panic started to sweep over him, and he began to fear for his life.
+Without safety ropes, harnesses, or climbing gear of any kind, two brothers—Jimmy, age 14, and John, age 19 (though those aren’t their real names)—attempted to scale a sheer canyon wall in Snow Canyon State Park in my native southern Utah. Near the top of their laborious climb, they discovered that a protruding ledge denied them their final few feet of ascent. They could not get over it, but neither could they now retreat from it. They were stranded. After careful maneuvering, John found enough footing to boost his younger brother to safety on top of the ledge. But there was no way to lift himself. The more he strained to find finger or foot leverage, the more his muscles began to cramp. Panic started to sweep over him, and he began to fear for his life.
 
 Unable to hold on much longer, John decided his only option was to try to jump vertically in an effort to grab the top of the overhanging ledge. If successful, he might, by his considerable arm strength, pull himself to safety.
 
@@ -51,27 +53,25 @@ In the sacred name of the resurrected Lord Jesus Christ, amen.
 
 
 
-[^1]: Correspondence in the possession of Jeffrey R. Holland.
+[^1]: Correspondence in the possession of Jeffrey R. Holland.
 
 [^2]: “I Stand All Amazed,” *Hymns,* no. 193.
 
-[^3]: See [[2 Nephi 2.19|2 Nephi 2:19–29]][[2 Nephi 2.20|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]][[2 Nephi 2.29|]], especially [[2 Nephi 2.20|verses 20–23]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]]; [[Moses 5.10|Moses 5:10–11]][[Moses 5.11|]].
+[^3]: See [[2 Nephi 2.19|2 Nephi 2:19–29]][[2 Nephi 2.20|]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]][[2 Nephi 2.29|]], especially [[2 Nephi 2.20|verses 20–23]][[2 Nephi 2.21|]][[2 Nephi 2.22|]][[2 Nephi 2.23|]]; [[Moses 5.10|Moses 5:10–11]][[Moses 5.11|]].
 
-[^4]: [[2 Nephi 2.24|2 Nephi 2:24]].
+[^4]: [[2 Nephi 2.24|2 Nephi 2:24]].
 
-[^5]: See [[1 Corinthians 15.45|1 Corinthians 15:45]].
+[^5]: See [[1 Corinthians 15.45|1 Corinthians 15:45]].
 
-[^6]: [[1 Corinthians 15.45|1 Corinthians 15:45]].
+[^6]: [[1 Corinthians 15.45|1 Corinthians 15:45]].
 
-[^7]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
+[^7]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
 
-[^8]: [[2 Nephi 2.25|2 Nephi 2:25–26]][[2 Nephi 2.26|]].
+[^8]: [[2 Nephi 2.25|2 Nephi 2:25–26]][[2 Nephi 2.26|]].
 
-[^9]: [[2 Nephi 9.6|2 Nephi 9:6]].
+[^9]: [[2 Nephi 9.6|2 Nephi 9:6]].
 
 [^10]: [[John 20.7|John 20:7]].
 
+[^11]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-
-
-#Adam_And_Eve #Atonement #Brotherhood #Fall #Jesus_Christ #Resurrection

@@ -1,6 +1,8 @@
 # That All May Be Edified
 
-By Brother Chad H Webb - *First Counselor in the Sunday School General Presidency*
+Dallin H. Oaks
+
+By Brother Chad H Webb - *First Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -12,7 +14,7 @@ A story is told of a young university student who struggled with a challenging c
 
 ## The Holy Ghost
 
-As members of The Church of Jesus Christ of Latter-day Saints, blessed with the companionship of a member of the Godhead, we can have the help of the perfect Tutor. The Holy Ghost knows all things,[^1] testifies of truth,[^2] and will “bring all things to \[our\] remembrance.”[^3] President Russell M. Nelson frequently spoke about the importance of hearing the voice of the Lord. He taught us how to invite the guidance of the Holy Ghost and repeatedly pleaded with us to increase our spiritual capacity to receive revelation.[^4]
+As members of The Church of Jesus Christ of Latter-day Saints, blessed with the companionship of a member of the Godhead, we can have the help of the perfect Tutor. The Holy Ghost knows all things,[^1] testifies of truth,[^2] and will “bring all things to \[our\] remembrance.”[^3] President Russell M. Nelson frequently spoke about the importance of hearing the voice of the Lord. He taught us how to invite the guidance of the Holy Ghost and repeatedly pleaded with us to increase our spiritual capacity to receive revelation.[^4]
 
 Today I invite you to consider the role of the Holy Ghost, specifically related to gospel learning and teaching in the home and at church. The Holy Ghost is given by the prayer of faith and as we strive to live worthy of this precious gift.[^5] The inspired Church manual *Teaching in the Savior’s Way* outlines additional principles the Lord has established that will help invite the influence of the Holy Ghost.[^6]
 
@@ -63,15 +65,15 @@ I’m grateful for the teachers in my life, from goodly parents and local leader
 
 [^3]: [[John 14.26|John 14:26]].
 
-[^4]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93–96; “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 88–92; “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 78–80; “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–20; “[[2025 April - Confidence in the Presence of God.md|Confidence in the Presence of God]],” *Liahona*, May 2025, 127–29.
+[^4]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93–96; “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 88–92; “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 78–80; “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–20; “[[2025 April - Confidence in the Presence of God.md|Confidence in the Presence of God]],” *Liahona*, May 2025, 127–29.
 
 [^5]: See [[D&C 42.14|Doctrine and Covenants 42:14]].
 
-[^6]: See also *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 180–81.
+[^6]: See also *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/18-chapter-10?lang=eng&id=p12-p22#p12)* (2023), 180–81.
 
-[^7]: See *Teaching in the Savior’s Way* (2024), 24–27.
+[^7]: See *[Teaching in the Savior’s Way](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/07-part-2/11-invite-diligent-learning?lang=eng)* (2024), 24–27.
 
-[^8]: See *Teaching in the Savior’s Way*, 26.
+[^8]: See *[Teaching in the Savior’s Way](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/07-part-2/11-invite-diligent-learning?lang=eng&id=p18-p19#p18)*, 26.
 
 [^9]: See [[D&C 88.122|Doctrine and Covenants 88:122]].
 
@@ -79,58 +81,53 @@ I’m grateful for the teachers in my life, from goodly parents and local leader
 
 [^11]: See [[D&C 19.23|Doctrine and Covenants 19:23]].
 
-[^12]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
+[^12]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
 
-[^13]: See [[Matthew 13.1|Matthew 13:1–9, 18–23]][[Matthew 13.2|]][[Matthew 13.3|]][[Matthew 13.4|]][[Matthew 13.5|]][[Matthew 13.6|]][[Matthew 13.7|]][[Matthew 13.8|]][[Matthew 13.9|]][[Matthew 13.18|]][[Matthew 13.19|]][[Matthew 13.20|]][[Matthew 13.21|]][[Matthew 13.22|]][[Matthew 13.23|]]; [[3 Nephi 17.3|3 Nephi 17:3]].
+[^13]: See [[Matthew 13.1|Matthew 13:1–9, 18–23]][[Matthew 13.2|]][[Matthew 13.3|]][[Matthew 13.4|]][[Matthew 13.5|]][[Matthew 13.6|]][[Matthew 13.7|]][[Matthew 13.8|]][[Matthew 13.9|]][[Matthew 13.18|]][[Matthew 13.19|]][[Matthew 13.20|]][[Matthew 13.21|]][[Matthew 13.22|]][[Matthew 13.23|]]; [[3 Nephi 17.3|3 Nephi 17:3]].
 
 [^14]: See [[Matthew 16.13|Matthew 16:13–17]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]]; [[Moroni 6.5|Moroni 6:5]]; [[D&C 88.122|Doctrine and Covenants 88:122]].
 
 [^15]: See [[Luke 10.36|Luke 10:36–37]][[Luke 10.37|]]; [[James 1.22|James 1:22]]; [[Mosiah 4.10|Mosiah 4:10]].
 
-[^16]: See [[Luke 22.31|Luke 22:31–32]][[Luke 22.32|]]; [[John 17.1|John 17]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.7|]][[John 17.8|]][[John 17.9|]][[John 17.10|]][[John 17.11|]][[John 17.12|]][[John 17.13|]][[John 17.14|]][[John 17.15|]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.19|]][[John 17.20|]][[John 17.21|]][[John 17.22|]][[John 17.23|]][[John 17.24|]][[John 17.25|]][[John 17.26|]]; [[3 Nephi 17.15|3 Nephi 17:15–18]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]]; [[3 Nephi 19.19|19:19–23, 27–34]][[3 Nephi 19.20|]][[3 Nephi 19.21|]][[3 Nephi 19.22|]][[3 Nephi 19.23|]][[3 Nephi 19.27|]][[3 Nephi 19.28|]][[3 Nephi 19.29|]][[3 Nephi 19.30|]][[3 Nephi 19.31|]][[3 Nephi 19.32|]][[3 Nephi 19.33|]][[3 Nephi 19.34|]].
+[^16]: See [[Luke 22.31|Luke 22:31–32]][[Luke 22.32|]]; [[John 17.1|John 17]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.7|]][[John 17.8|]][[John 17.9|]][[John 17.10|]][[John 17.11|]][[John 17.12|]][[John 17.13|]][[John 17.14|]][[John 17.15|]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.19|]][[John 17.20|]][[John 17.21|]][[John 17.22|]][[John 17.23|]][[John 17.24|]][[John 17.25|]][[John 17.26|]]; [[3 Nephi 17.15|3 Nephi 17:15–18]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]]; [[3 Nephi 19.19|19:19–23, 27–34]][[3 Nephi 19.20|]][[3 Nephi 19.21|]][[3 Nephi 19.22|]][[3 Nephi 19.23|]][[3 Nephi 19.27|]][[3 Nephi 19.28|]][[3 Nephi 19.29|]][[3 Nephi 19.30|]][[3 Nephi 19.31|]][[3 Nephi 19.32|]][[3 Nephi 19.33|]][[3 Nephi 19.34|]].
 
-[^17]: See *Teaching in the Savior’s Way*, 12–15.
+[^17]: See *[Teaching in the Savior’s Way](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/07-part-2/08-love-those-you-teach?lang=eng&id=p1-p21#p1)*, 12–15.
 
-[^18]: Elder David A. Bednar taught: “A learner exercising agency by acting in accordance with correct principles opens his or her heart to the Holy Ghost and invites His teaching, testifying power, and confirming witness. Learning by faith requires spiritual, mental, and physical exertion and not just passive reception. It is in the sincerity and consistency of our faith-inspired action that we indicate to our Heavenly Father and His Son, Jesus Christ, our willingness to learn and receive instruction from the Holy Ghost. Thus, learning by faith involves the exercise of moral agency to act upon the assurance of things hoped for and invites the evidence of things not seen from the only true teacher, the Spirit of the Lord” (“[Seek Learning by Faith](https://churchofjesuschrist.org/study/ensign/2007/09/seek-learning-by-faith?lang=eng&id=p25#p25),” *Ensign*, Sept. 2007, 64).
+[^18]: Elder David A. Bednar taught: “A learner exercising agency by acting in accordance with correct principles opens his or her heart to the Holy Ghost and invites His teaching, testifying power, and confirming witness. Learning by faith requires spiritual, mental, and physical exertion and not just passive reception. It is in the sincerity and consistency of our faith-inspired action that we indicate to our Heavenly Father and His Son, Jesus Christ, our willingness to learn and receive instruction from the Holy Ghost. Thus, learning by faith involves the exercise of moral agency to act upon the assurance of things hoped for and invites the evidence of things not seen from the only true teacher, the Spirit of the Lord” (“[Seek Learning by Faith](https://www.churchofjesuschrist.org/study/ensign/2007/09/seek-learning-by-faith?lang=eng&id=p25#p25),” *Ensign*, Sept. 2007, 64).
 
-[^19]: See *Teaching in the Savior’s Way*, 20–23.
+[^19]: See *[Teaching in the Savior’s Way](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/07-part-2/10-teach-the-doctrine?lang=eng)*, 20–23.
 
-[^20]: See [[1 Nephi 15.14|1 Nephi 15:14]].
+[^20]: See [[1 Nephi 15.14|1 Nephi 15:14]].
 
 [^21]: [[John 7.16|John 7:16]].
 
-[^22]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^22]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^23]: See [[Deuteronomy 6.5|Deuteronomy 6:5–7]][[Deuteronomy 6.6|]][[Deuteronomy 6.7|]].
 
 [^24]: See [[Hebrews 10.25|Hebrews 10:25]]; [[Moroni 6.5|Moroni 6:5]].
 
-[^25]: Elder Robert D. Hales taught: “When we want to speak to God, we pray. And when we want Him to speak to us, we search the scriptures; for His words are spoken through His prophets. He will then teach us as we listen to the promptings of the Holy Spirit” (“[[2006 October - Holy Scriptures - The Power of God unto Our Salvation.md|Holy Scriptures: The Power of God unto Our Salvation]],” *Ensign* or *Liahona*, Nov. 2006, 26–27).
+[^25]: Elder Robert D. Hales taught: “When we want to speak to God, we pray. And when we want Him to speak to us, we search the scriptures; for His words are spoken through His prophets. He will then teach us as we listen to the promptings of the Holy Spirit” (“[[2006 October - Holy Scriptures - The Power of God unto Our Salvation.md|Holy Scriptures: The Power of God unto Our Salvation]],” *Ensign* or *Liahona*, Nov. 2006, 26–27).
 
-[^26]: See *Teaching in the Savior’s Way*, 6–7.
+[^26]: See *[Teaching in the Savior’s Way](https://www.churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/04-part-1/05-teach-about-jesus-christ?lang=eng)*, 6–7.
 
 [^27]: [[D&C 20.79|Doctrine and Covenants 20:79]].
 
-[^28]: See [[John 14.6|John 14:6]]; *Teachings of Presidents of the Church: Howard W. Hunter* (2015), 306–8.
+[^28]: See [[John 14.6|John 14:6]]; *[Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-24-following-the-example-of-jesus-christ?lang=eng&id=p7-p24#p7)* (2015), 306–8.
 
-[^29]: See Lynnette McConkie, “Elder Gerrit W. Gong: The Missionary Purpose in ‘Repentance, Commitment, Conversion,’” *Church News*, June 21, 2025, thechurchnews.com.
+[^29]: See Lynnette McConkie, “Elder Gerrit W. Gong: The Missionary Purpose in ‘Repentance, Commitment, Conversion,’” *Church News*, June 21, 2025, thechurchnews.com.
 
 [^30]: [[Alma 34.15|Alma 34:15]].
 
-[^31]: See [[1 Nephi 3.7|1 Nephi 3:7]].
+[^31]: See [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^32]: See [[1 Nephi 1.20|1 Nephi 1:20]].
+[^32]: See [[1 Nephi 1.20|1 Nephi 1:20]].
 
 [^33]: See [[Alma 33.22|Alma 33:22–23]][[Alma 33.23|]]; [[D&C 76.40|Doctrine and Covenants 76:40–42]][[D&C 76.41|]][[D&C 76.42|]].
 
-[^34]: Boyd K. Packer, “[[1980 April - A Tribute to the Rank and File of the Church.md|A Tribute to the Rank and File of the Church]],” *Ensign*, May 1980, 62.
+[^34]: Boyd K. Packer, “[[1980 April - A Tribute to the Rank and File of the Church.md|A Tribute to the Rank and File of the Church]],” *Ensign*, May 1980, 62.
 
-[^35]: See *Come, Follow Me—For Home and Church: Doctrine and Covenants 2025*, 1.
+[^35]: See *[Come, Follow Me—For Home and Church: Doctrine and Covenants 2025](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-doctrine-and-covenants-2025/001-conversion?lang=eng&id=p1#p1)*, 1.
 
 [^36]: See [[Ether 12.41|Ether 12:41]].
 
-
-
-
-
-#Holy_Ghost #Jesus_Christ #Learning #Scripture_Study #Teaching

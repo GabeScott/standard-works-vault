@@ -1,6 +1,8 @@
 # By Divine Design
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+Sharon Eubank
+
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -22,7 +24,7 @@ The man was Amulek.
 
 Now, did Alma just happen upon Amulek? No, it was no coincidence that he went into the city by the way that would lead him to this faithful man who would become his missionary companion.
 
-Elder Neal A. Maxwell once explained: “None of us ever fully utilizes the people-opportunities allocated to us within our circles of friendship. You and I may call these intersectings ‘coincidence.’ This word is understandable for mortals to use, but *coincidence* is not an appropriate word to describe the workings of an omniscient God. He does not do things by ‘coincidence’ but … by ‘divine design.’”[^5]
+Elder Neal A. Maxwell once explained: “None of us ever fully utilizes the people-opportunities allocated to us within our circles of friendship. You and I may call these intersectings ‘coincidence.’ This word is understandable for mortals to use, but *coincidence* is not an appropriate word to describe the workings of an omniscient God. He does not do things by ‘coincidence’ but … by ‘divine design.’”[^5]
 
 Our lives are like a chessboard, and the Lord moves us from one place to another—if we are responsive to spiritual promptings. Looking back, we can see His hand in our lives.
 
@@ -32,7 +34,7 @@ Significant events unfold in the gospel and in the Church that further the kingd
 
 Likewise, events and associations unfold in each of our lives that further God’s work on earth.
 
-Dear Elder Joseph B. Wirthlin spoke of an occasion when President Thomas S. Monson said to him: “There is a guiding hand above all things. Often when things happen, it’s not by accident. One day, when we look back at the seeming coincidences of our lives, we will realize that perhaps they weren’t so coincidental after all.”[^7]
+Dear Elder Joseph B. Wirthlin spoke of an occasion when President Thomas S. Monson said to him: “There is a guiding hand above all things. Often when things happen, it’s not by accident. One day, when we look back at the seeming coincidences of our lives, we will realize that perhaps they weren’t so coincidental after all.”[^7]
 
 Most often, our good works are known to only a few. They are, however, recorded in heaven. One day, we will stand as a witness of our whole-souled devotion to works of righteousness. No trial or calamity can derail God’s plan of happiness. Indeed, by “divine design,” “joy cometh in the morning.”[^8] “I came into the world to do the will of \[the\] Father,”[^9] Jesus taught. Dear brothers and sisters, so have we.
 
@@ -83,15 +85,15 @@ The Lord’s hand is guiding you. By “divine design,” He is in the small det
 
 [^4]: [[Alma 8.19|Alma 8:19–20]][[Alma 8.20|]].
 
-[^5]: Neal A. Maxwell, “[Brim with Joy](https://speeches.byu.edu/talks/neal-a-maxwell_brim-joy)” (Brigham Young University devotional, Jan. 23, 1996), 2, speeches.byu.edu.
+[^5]: Neal A. Maxwell, “[Brim with Joy](https://speeches.byu.edu/talks/neal-a-maxwell_brim-joy)” (Brigham Young University devotional, Jan. 23, 1996), 2, speeches.byu.edu.
 
-[^6]: [[1 Nephi 4.6|1 Nephi 4:6]].
+[^6]: [[1 Nephi 4.6|1 Nephi 4:6]].
 
-[^7]: Joseph B. Wirthlin, “[Lessons Learned in the Journey of Life](https://churchofjesuschrist.org/study/liahona/2001/05/lessons-learned-in-the-journey-of-life?lang=eng),” *Ensign,* Dec. 2000, 9; *Liahona,* May 2001, 38; taken from a talk given by Elder Wirthlin at a Church Educational System fireside at Brigham Young University, Nov. 7, 1999.
+[^7]: Joseph B. Wirthlin, “[Lessons Learned in the Journey of Life](https://www.churchofjesuschrist.org/study/liahona/2001/05/lessons-learned-in-the-journey-of-life?lang=eng),” *Ensign,* Dec. 2000, 9; *Liahona,* May 2001, 38; taken from a talk given by Elder Wirthlin at a Church Educational System fireside at Brigham Young University, Nov. 7, 1999.
 
 [^8]: [[Psalms 30.5|Psalm 30:5]].
 
-[^9]: [[3 Nephi 27.13|3 Nephi 27:13]].
+[^9]: [[3 Nephi 27.13|3 Nephi 27:13]].
 
 [^10]: See [[Luke 12.7|Luke 12:7]].
 
@@ -101,13 +103,13 @@ The Lord’s hand is guiding you. By “divine design,” He is in the small det
 
 [^13]: [[D&C 64.29|Doctrine and Covenants 64:29]].
 
-[^14]: Letter from Aida Chilan, Apr. 20, 2017.
+[^14]: Letter from Aida Chilan, Apr. 20, 2017.
 
-[^15]: Letter from Aida Chilan, May 30, 2017.
+[^15]: Letter from Aida Chilan, May 30, 2017.
 
 [^16]: [[D&C 84.88|Doctrine and Covenants 84:88]].
 
-[^17]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 349–57.
+[^17]: See *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-30?lang=eng)* (2007), 349–57.
 
 [^18]: [[Helaman 4.24|Helaman 4:24–25]][[Helaman 4.25|]].
 
@@ -117,8 +119,3 @@ The Lord’s hand is guiding you. By “divine design,” He is in the small det
 
 [^21]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
-
-
-
-
-#Divine_Nature #Spirituality

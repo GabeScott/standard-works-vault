@@ -1,5 +1,7 @@
 # Christ, Our Passover
 
+Gordon B. Hinckley
+
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -12,7 +14,7 @@ Passover is linked with the Christian observance of Easter which we celebrate th
 
 In delivering the children of Israel out of Egypt, Jehovah himself spoke to Moses out of the burning bush at Sinai saying:
 
-“I have surely seen the affliction of my people which are in Egypt, and have heard their cry by reason of their taskmasters; for I know their sorrows. …
+“I have surely seen the affliction of my people which are in Egypt, and have heard their cry by reason of their taskmasters; for I know their sorrows. …
 
 “Come now therefore, and I will send thee unto Pharaoh, that thou mayest bring forth my people the children of Israel out of Egypt.” ([[Exodus 3.7|Ex. 3:7, 10]][[Exodus 3.10|]].)
 
@@ -24,9 +26,9 @@ As a protection against this last and most terrible punishment inflicted upon th
 
 “And they shall take of the blood, and strike it on the two side posts and on the upper door post of the houses, wherein they shall eat it.
 
-“And they shall eat the flesh in that night, roast with fire, and unleavened bread; and with bitter herbs they shall eat it. …
+“And they shall eat the flesh in that night, roast with fire, and unleavened bread; and with bitter herbs they shall eat it. …
 
-“And thus shall ye eat it; with your loins girded, your shoes on your feet, and your staff in your hand; and ye shall eat it in haste: it is the Lord’s passover. …
+“And thus shall ye eat it; with your loins girded, your shoes on your feet, and your staff in your hand; and ye shall eat it in haste: it is the Lord’s passover. …
 
 “And it shall come to pass, when your children shall say unto you, What mean ye by this service?
 
@@ -54,7 +56,7 @@ Finally, preparations for the Passover meal were complete, in keeping with nearl
 
 He took one of the flat, round loaves of unleavened bread, said the blessing over it, and broke it into pieces that he distributed to the Apostles, saying: “This is my body which is given for you: this do in remembrance of me.” ([[Luke 22.19|Luke 22:19]].)
 
-As the cup was being poured, he took it and, giving thanks, invited them to drink of it, saying, “This cup is the new testament in my blood, which is shed for you.” ([[Luke 22.20|Luke 22:20]].) Paul said of it: “For as often as ye eat this bread, and drink this cup, ye do shew the Lord’s death till he come.” ([[1 Corinthians 11.26|1 Cor. 11:26]].)
+As the cup was being poured, he took it and, giving thanks, invited them to drink of it, saying, “This cup is the new testament in my blood, which is shed for you.” ([[Luke 22.20|Luke 22:20]].) Paul said of it: “For as often as ye eat this bread, and drink this cup, ye do shew the Lord’s death till he come.” ([[1 Corinthians 11.26|1 Cor. 11:26]].)
 
 The bread and wine, rather than the animals and herbs, would become emblems of the great Lamb’s body and blood, emblems to be eaten and drunk reverently and in remembrance of him forever.
 
@@ -69,8 +71,3 @@ At this Easter season, I bear testimony of the Firstborn of God, who made that s
 
 
 
-
-
-
-
-#Jesus_Christ #Sacrifice

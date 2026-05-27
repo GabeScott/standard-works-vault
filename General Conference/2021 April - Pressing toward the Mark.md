@@ -1,5 +1,7 @@
 # Pressing toward the Mark
 
+Russell M. Nelson
+
 By Elder Edward Dube - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
@@ -14,11 +16,11 @@ To press toward the mark is to faithfully continue on the “strait and narrow p
 
 While we look at Paul’s service, we are inspired and uplifted by our own “Pauls” in our day, who also serve, teach, and testify with love and gratitude amidst the challenges they face in their lives and in the lives of their loved ones. An experience I had nine years ago helped me to realize the importance of pressing toward the mark.
 
-In 2012, as I walked for the first time into the general conference leadership meeting, I could not help feeling overwhelmed and inadequate. In my mind there was a voice persistently repeating, “You do not belong here! A serious mistake had been made!” Just as I was walking trying to find a place to sit, Elder Jeffrey R. Holland spotted me. He came to me and said, “Edward, it is good to see you here,” and he tenderly patted my face. I felt like a baby! His love and embrace warmed me up and helped me to feel the spirit of belonging, the spirit of brotherhood. On the following day, I observed Elder Holland doing the same thing he had done to me on the previous day, warmly patting then-Elder Dallin H. Oaks’s face, who is his senior!
+In 2012, as I walked for the first time into the general conference leadership meeting, I could not help feeling overwhelmed and inadequate. In my mind there was a voice persistently repeating, “You do not belong here! A serious mistake had been made!” Just as I was walking trying to find a place to sit, Elder Jeffrey R. Holland spotted me. He came to me and said, “Edward, it is good to see you here,” and he tenderly patted my face. I felt like a baby! His love and embrace warmed me up and helped me to feel the spirit of belonging, the spirit of brotherhood. On the following day, I observed Elder Holland doing the same thing he had done to me on the previous day, warmly patting then-Elder Dallin H. Oaks’s face, who is his senior!
 
 At that moment I felt the Lord’s love through these men we sustain as prophets, seers, and revelators. Elder Holland, through his kind, natural actions, helped me to overcome my self-centeredness and my feelings of inadequacy. He helped me to focus on the sacred and joyful work to which I had been called—to bring souls to Christ. He, like Paul of old, pointed me to press toward the mark.
 
-Interestingly, Paul is exhorting us to press forward while calling us to forget that which is behind—our past fears, our past focus, our past failures, and our past sadness. He is inviting us, just like our dear prophet, President Russell M. Nelson, to “a newer, holier approach.”[^5] The Savior’s promise is real: “For whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it.”[^6]
+Interestingly, Paul is exhorting us to press forward while calling us to forget that which is behind—our past fears, our past focus, our past failures, and our past sadness. He is inviting us, just like our dear prophet, President Russell M. Nelson, to “a newer, holier approach.”[^5] The Savior’s promise is real: “For whosoever will save his life shall lose it: and whosoever will lose his life for my sake shall find it.”[^6]
 
 In my first general conference address, I shared an experience of my mother teaching me to work in our field. “Never look back,” she said. “Look ahead at what we still have to do.”[^7]
 
@@ -43,27 +45,25 @@ It is not so much about what we are going through in life but what we are becomi
 
 [^1]: [[Philippians 3.14|Philippians 3:14]].
 
-[^2]: [[2 Nephi 31.18|2 Nephi 31:18]].
+[^2]: [[2 Nephi 31.18|2 Nephi 31:18]].
 
-[^3]: [[Romans 8.18|Romans 8:18]]; see also [[2 Corinthians 1.3|2 Corinthians 1:3–7]][[2 Corinthians 1.4|]][[2 Corinthians 1.5|]][[2 Corinthians 1.6|]][[2 Corinthians 1.7|]].
+[^3]: [[Romans 8.18|Romans 8:18]]; see also [[2 Corinthians 1.3|2 Corinthians 1:3–7]][[2 Corinthians 1.4|]][[2 Corinthians 1.5|]][[2 Corinthians 1.6|]][[2 Corinthians 1.7|]].
 
 [^4]: [[Philippians 3.8|Philippians 3:8]].
 
-[^5]: Russell M. Nelson, “[[2018 April - Ministering as the Savior Does.md|Ministering]],” *Ensign* or *Liahona*, May 2018, 100.
+[^5]: Russell M. Nelson, “[[2018 April - Ministering.md|Ministering]],” *Ensign* or *Liahona*, May 2018, 100.
 
 [^6]: [[Matthew 16.25|Matthew 16:25]].
 
 [^7]: See Edward Dube, “[[2013 October - Look Ahead and Believe.md|Look Ahead and Believe]],” *Ensign* or *Liahona*, Nov. 2013, 15.
 
-[^8]: [[3 Nephi 27.13|3 Nephi 27:13]].
+[^8]: [[3 Nephi 27.13|3 Nephi 27:13]].
 
-[^9]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
+[^9]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
 [^10]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
 [^11]: [[Philippians 3.14|Philippians 3:14]].
 
+[^12]: [[Hebrews 12.1|Hebrews 12:1–2]][[Hebrews 12.2|]].
 
-
-
-#Adversity #Endurance #Faith #Jesus_Christ

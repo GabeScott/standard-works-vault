@@ -1,13 +1,12 @@
 # Jesus Christ, Appearances, Postmortal
 
-
 *See also* [[God, Manifestations of.md|God, Manifestations of]]; [[Jesus Christ, Appearances, Antemortal.md|Jesus Christ, Appearances, Antemortal]]
 
 Jesus *met* them, [[Matthew 28.9|Matthew 28:9]].
 
 Jesus *came* and spake, [[Matthew 28.18|Matthew 28:18]].
 
-when Jesus was risen ... he *appeared* first to Mary, [[Mark 16.9|Mark 16:9]].
+when Jesus was risen … he *appeared* first to Mary, [[Mark 16.9|Mark 16:9]].
 
 Jesus himself drew *near*, and went with them, [[Luke 24.15|Luke 24:15]].
 
@@ -17,7 +16,7 @@ Jesus himself *stood* in the midst, [[Luke 24.36|Luke 24:36]] ([[John 20.19|John
 
 spirit hath not *flesh* and bones, as ye see me have, [[Luke 24.39|Luke 24:39]].
 
-she turned ... and *saw* Jesus standing, [[John 20.14|John 20:14]].
+she turned … and *saw* Jesus standing, [[John 20.14|John 20:14]].
 
 glad, when they *saw* the Lord, [[John 20.20|John 20:20]].
 
@@ -29,11 +28,11 @@ third time that Jesus *shewed* himself, [[John 21.14|John 21:14]].
 
 he *shewed* himself alive after his passion, [[Acts 1.3|Acts 1:3]].
 
-*saw* ... Jesus standing on the right hand of God, [[Acts 7.55|Acts 7:55]].
+*saw* … Jesus standing on the right hand of God, [[Acts 7.55|Acts 7:55]].
 
 I am *Jesus* whom thou persecutest, [[Acts 9.5|Acts 9:5]].
 
-Ananias ... to him said the Lord in a *vision*, [[Acts 9.10|Acts 9:10]].
+Ananias … to him said the Lord in a *vision*, [[Acts 9.10|Acts 9:10]].
 
 he had *seen* the Lord in the way, [[Acts 9.27|Acts 9:27]].
 
@@ -45,7 +44,7 @@ spake the Lord to Paul in the night by a *vision*, [[Acts 18.9|Acts 18:9]].
 
 *saw* him saying unto me, Make haste, [[Acts 22.18|Acts 22:18]].
 
-night following the Lord *stood* by ... Paul, [[Acts 23.11|Acts 23:11]].
+night following the Lord *stood* by … Paul, [[Acts 23.11|Acts 23:11]].
 
 I have *appeared* unto thee, [[Acts 26.16|Acts 26:16]].
 
@@ -79,7 +78,7 @@ you shall *see* me and know that I am, [[D&C 67.10|D&C 67:10]].
 
 we *saw* him, even on the right hand of God, [[D&C 76.23|D&C 76:23]].
 
-every soul who forsaketh his sins ... shall *see* my face, [[D&C 93.1|D&C 93:1]].
+every soul who forsaketh his sins … shall *see* my face, [[D&C 93.1|D&C 93:1]].
 
 We *saw* the Lord standing upon the breastwork, [[D&C 110.2|D&C 110:2]].
 
@@ -87,8 +86,6 @@ I will *appear* unto my servants, [[D&C 110.8|D&C 110:8]].
 
 When the Savior shall *appear* we shall see him, [[D&C 130.1|D&C 130:1]].
 
-Son of God *appeared*, declaring liberty, [[D&C 138.18|D&C 138:18]] ([[1 Peter 3.18|1 Pet. 3:18-19]][[1 Peter 3.19|]]).
+Son of God *appeared*, declaring liberty, [[D&C 138.18|D&C 138:18]].
 
 I saw two *Personages*, whose brightness and glory defy all description, [[Joseph Smith History 1.17|Joseph Smith History 1:17]].
-
-*See also* [[Revelation 1.17|Revelation 1:17]]; [[Revelation 3.20|Revelation 3:20]]; [[Revelation 19.10|Revelation 19:10]]; [[3 Nephi 11.12|3 Nephi 11:12]]; [[3 Nephi 12.8|3 Nephi 12:8]]; [[3 Nephi 17.4|3 Nephi 17:4]].

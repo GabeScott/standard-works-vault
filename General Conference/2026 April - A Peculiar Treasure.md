@@ -1,5 +1,7 @@
 # A Peculiar Treasure
 
+Dallin H. Oaks
+
 By Elder Alan R. Walker - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -51,5 +53,3 @@ I testify that as we obey the Savior’s voice and keep our covenants—even by 
 
 [^9]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Liahona*, May 2009, 21; emphasis added.
 
-
-#Blessings #Covenants #Obedience

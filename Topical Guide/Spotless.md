@@ -1,6 +1,5 @@
 # Spotless
 
-
 that I shall meet many souls *spotless*, [[2 Nephi 33.7|2 Nephi 33:7]].
 
 garments are cleansed and are *spotless*, [[Alma 5.24|Alma 5:24]].

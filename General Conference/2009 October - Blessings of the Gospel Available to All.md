@@ -1,5 +1,7 @@
 # Blessings of the Gospel Available to All
 
+Thomas S. Monson
+
 By Elder Joseph W. Sitati - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -8,7 +10,7 @@ By Elder Joseph W. Sitati - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/10/blessings-of-the-gospel-available-to-all?lang=eng)
 
-A few weeks ago Elder Melvin R. Perkins, who is an Area Seventy serving in Alaska, and I stood at the pulpit in front of the congregation of the Vancouver British Columbia Stake in Canada. In a moving voice he invited the Saints to consider the image before them: a descendant of Mormon handcart pioneers and a pioneer convert of the Church from a faraway African nation serving the Lord side by side.
+A few weeks ago Elder Melvin R. Perkins, who is an Area Seventy serving in Alaska, and I stood at the pulpit in front of the congregation of the Vancouver British Columbia Stake in Canada. In a moving voice he invited the Saints to consider the image before them: a descendant of Mormon handcart pioneers and a pioneer convert of the Church from a faraway African nation serving the Lord side by side.
 
 From humble beginnings in Fayette, New York, nearly 180 years ago, The Church of Jesus Christ of Latter-day Saints has become a global faith. I stand here as a witness of this marvelous work. I pray that the Spirit of the Lord will be with you and with me as I share some thoughts this afternoon.
 
@@ -56,7 +58,7 @@ A new celestial culture is developing in homes, nurtured by the ready hearkening
 
 As an illustration from personal experience, three of our children were recently married in the temple without the encumbrance of dowry, a traditional practice that drives many young men and women to live together without any legal commitment to each other. The opportunity for a temple marriage in the three temples now established in Accra, Ghana; Aba, Nigeria; and Johannesburg, South Africa, is helping to instill a fresh hope in the sanctity of marriage.
 
-I testify of the Savior Jesus Christ, by whom we have the gospel and promise of exaltation. I testify of our living prophet, President Thomas S. Monson, through whom we have the assurance of the Savior’s direction for continuing to extend salvation to all. In the name of Jesus Christ, amen.
+I testify of the Savior Jesus Christ, by whom we have the gospel and promise of exaltation. I testify of our living prophet, President Thomas S. Monson, through whom we have the assurance of the Savior’s direction for continuing to extend salvation to all. In the name of Jesus Christ, amen.
 
 
 
@@ -73,7 +75,7 @@ I testify of the Savior Jesus Christ, by whom we have the gospel and promise of 
 
 [^6]: See [[Genesis 11.1|Genesis 11:1–8]][[Genesis 11.2|]][[Genesis 11.3|]][[Genesis 11.4|]][[Genesis 11.5|]][[Genesis 11.6|]][[Genesis 11.7|]][[Genesis 11.8|]].
 
-[^7]: See [[Ether 2.8|Ether 2:8–12]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]][[Ether 2.12|]]; see also [[Ether 1.33|Ether 1:33–43]][[Ether 1.34|]][[Ether 1.35|]][[Ether 1.36|]][[Ether 1.37|]][[Ether 1.38|]][[Ether 1.39|]][[Ether 1.40|]][[Ether 1.41|]][[Ether 1.42|]][[Ether 1.43|]]; [[Ether 4.1|4–6]][[Ether 4.2|]][[Ether 4.3|]][[Ether 4.4|]][[Ether 4.5|]][[Ether 4.6|]][[Ether 4.7|]][[Ether 4.8|]][[Ether 4.9|]][[Ether 4.10|]][[Ether 4.11|]][[Ether 4.12|]][[Ether 4.13|]][[Ether 4.14|]][[Ether 4.15|]][[Ether 4.16|]][[Ether 4.17|]][[Ether 4.18|]][[Ether 4.19|]].
+[^7]: See [[Ether 2.8|Ether 2:8–12]][[Ether 2.9|]][[Ether 2.10|]][[Ether 2.11|]][[Ether 2.12|]]; see also [[Ether 1.33|Ether 1:33–43]][[Ether 1.34|]][[Ether 1.35|]][[Ether 1.36|]][[Ether 1.37|]][[Ether 1.38|]][[Ether 1.39|]][[Ether 1.40|]][[Ether 1.41|]][[Ether 1.42|]][[Ether 1.43|]]; [[Ether 4.1|4–6]].
 
 [^8]: See [[Genesis 12.1|Genesis 12–17]][[Genesis 12.2|]][[Genesis 12.3|]][[Genesis 12.4|]][[Genesis 12.5|]][[Genesis 12.6|]][[Genesis 12.7|]][[Genesis 12.8|]][[Genesis 12.9|]][[Genesis 12.10|]][[Genesis 12.11|]][[Genesis 12.12|]][[Genesis 12.13|]][[Genesis 12.14|]][[Genesis 12.15|]][[Genesis 12.16|]][[Genesis 12.17|]][[Genesis 12.18|]][[Genesis 12.19|]][[Genesis 12.20|]]; [[Genesis 22.1|22]][[Genesis 22.2|]][[Genesis 22.3|]][[Genesis 22.4|]][[Genesis 22.5|]][[Genesis 22.6|]][[Genesis 22.7|]][[Genesis 22.8|]][[Genesis 22.9|]][[Genesis 22.10|]][[Genesis 22.11|]][[Genesis 22.12|]][[Genesis 22.13|]][[Genesis 22.14|]][[Genesis 22.15|]][[Genesis 22.16|]][[Genesis 22.17|]][[Genesis 22.18|]][[Genesis 22.19|]][[Genesis 22.20|]][[Genesis 22.21|]][[Genesis 22.22|]][[Genesis 22.23|]][[Genesis 22.24|]]; see also [[Abraham 1.1|Abraham 1–2]][[Abraham 1.2|]][[Abraham 1.3|]][[Abraham 1.4|]][[Abraham 1.5|]][[Abraham 1.6|]][[Abraham 1.7|]][[Abraham 1.8|]][[Abraham 1.9|]][[Abraham 1.10|]][[Abraham 1.11|]][[Abraham 1.12|]][[Abraham 1.13|]][[Abraham 1.14|]][[Abraham 1.15|]][[Abraham 1.16|]][[Abraham 1.17|]][[Abraham 1.18|]][[Abraham 1.19|]][[Abraham 1.20|]][[Abraham 1.21|]][[Abraham 1.22|]][[Abraham 1.23|]][[Abraham 1.24|]][[Abraham 1.25|]][[Abraham 1.26|]][[Abraham 1.27|]][[Abraham 1.28|]][[Abraham 1.29|]][[Abraham 1.30|]][[Abraham 1.31|]].
 
@@ -87,14 +89,9 @@ I testify of the Savior Jesus Christ, by whom we have the gospel and promise of 
 
 [^13]: See [[Acts 10.1|Acts 10]][[Acts 10.2|]][[Acts 10.3|]][[Acts 10.4|]][[Acts 10.5|]][[Acts 10.6|]][[Acts 10.7|]][[Acts 10.8|]][[Acts 10.9|]][[Acts 10.10|]][[Acts 10.11|]][[Acts 10.12|]][[Acts 10.13|]][[Acts 10.14|]][[Acts 10.15|]][[Acts 10.16|]][[Acts 10.17|]][[Acts 10.18|]][[Acts 10.19|]][[Acts 10.20|]][[Acts 10.21|]][[Acts 10.22|]][[Acts 10.23|]][[Acts 10.24|]][[Acts 10.25|]][[Acts 10.26|]][[Acts 10.27|]][[Acts 10.28|]][[Acts 10.29|]][[Acts 10.30|]][[Acts 10.31|]][[Acts 10.32|]][[Acts 10.33|]][[Acts 10.34|]][[Acts 10.35|]][[Acts 10.36|]][[Acts 10.37|]][[Acts 10.38|]][[Acts 10.39|]][[Acts 10.40|]][[Acts 10.41|]][[Acts 10.42|]][[Acts 10.43|]][[Acts 10.44|]][[Acts 10.45|]][[Acts 10.46|]][[Acts 10.47|]][[Acts 10.48|]].
 
-[^14]: See Bible Dictionary, “Peter,” 749.
+[^14]: See Bible Dictionary, “[[BD Peter|Peter]],” 749.
 
 [^15]: See [[D&C 58.1|D&C 58:1–12]][[D&C 58.2|]][[D&C 58.3|]][[D&C 58.4|]][[D&C 58.5|]][[D&C 58.6|]][[D&C 58.7|]][[D&C 58.8|]][[D&C 58.9|]][[D&C 58.10|]][[D&C 58.11|]][[D&C 58.12|]].
 
 [^16]: See [[Jacob 5.57|Jacob 5:57–68]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]].
 
-
-
-
-
-#Covenants #Missionary_Work #Restoration

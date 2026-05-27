@@ -1,5 +1,7 @@
 # Spiritual Capacity
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -75,7 +77,7 @@ While we follow prophetic teachings, we can develop our spiritual capacities by 
 
 [^5]: [[D&C 4.6|D&C 4:6]].
 
-[^6]: Among the many scriptural commandments, see [[3 Nephi 27.27|3 Ne. 27:27]]; [[Mormon 7.10|Morm. 7:10]].
+[^6]: Among the many scriptural commandments, see [[3 Nephi 27.27|3 Ne. 27:27]]; [[Mormon 7.10|Morm. 7:10]].
 
 [^7]: [[John 13.15|John 13:15]]. If we love Him, we will keep His commandments (see [[Exodus 20.6|Ex. 20:6]]; [[Deuteronomy 5.10|Deut. 5:10]]; [[John 14.15|John 14:15]]; [[D&C 124.87|D&C 124:87]]).
 
@@ -85,13 +87,13 @@ While we follow prophetic teachings, we can develop our spiritual capacities by 
 
 [^10]: [[Moroni 7.48|Moro. 7:48]].
 
-[^11]: See Richard G. Scott, in Conference Report, Apr. 1996, 34; or *Ensign,* May 1996, 25–26.
+[^11]: See Richard G. Scott, in Conference Report, Apr. 1996, [[1996 April - Finding Joy in Life.md|34]]; or *Ensign,* May 1996, 25–26.
 
-[^12]: [[1 Peter 2.9|1 Pet. 2:9]].
+[^12]: [[1 Peter 2.9|1 Pet. 2:9]].
 
 [^13]: [[Moses 6.5|Moses 6:5]]; see also JST, Gen. 6:5 (The Holy Scriptures: Inspired Version).
 
-[^14]: In Conference Report, Apr. 1995, 93; or *Ensign,* May 1995, 70.
+[^14]: In Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|93]]; or *Ensign,* May 1995, 70.
 
 [^15]: See [[D&C 88.78|D&C 88:78]].
 
@@ -115,8 +117,3 @@ While we follow prophetic teachings, we can develop our spiritual capacities by 
 
 [^25]: [[D&C 68.4|D&C 68:4]].
 
-
-
-
-
-#Agency #Attitude #Commandments #General_Conference #Gordon_B._Hinckley #Jesus_Christ #Prophets #Spirituality

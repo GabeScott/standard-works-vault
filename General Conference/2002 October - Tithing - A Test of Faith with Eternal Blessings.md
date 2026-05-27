@@ -1,5 +1,7 @@
 # Tithing: A Test of Faith with Eternal Blessings
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -12,7 +14,7 @@ Tithing is a test of faith with eternal blessings.[^1] In the Old Testament, Abr
 
 Tithing has been established in these latter days as an essential law for members of the Lord’s restored Church. It is one of the basic ways we witness our faith in Him and our obedience to His laws and commandments. Tithing is one of the commandments that qualifies us, by our faith, to enter the temple—the house of the Lord.
 
-Just over three months after the martyrdom of the Prophet Joseph Smith, at the time the Saints were building the Nauvoo Temple, Brigham Young wrote on behalf of the Quorum of the Twelve Apostles: “Enter steadily and regularly upon a strict observance of the law of tithing, … then come up to the House of the Lord, and be taught in his ways, and walk in his paths.”[^4]
+Just over three months after the martyrdom of the Prophet Joseph Smith, at the time the Saints were building the Nauvoo Temple, Brigham Young wrote on behalf of the Quorum of the Twelve Apostles: “Enter steadily and regularly upon a strict observance of the law of tithing, … then come up to the House of the Lord, and be taught in his ways, and walk in his paths.”[^4]
 
 The strict observance of the law of tithing not only qualifies us to receive the higher, saving ordinances of the temple, it allows us to receive them on behalf of our ancestors. When asked whether members of the Church could be baptized for the dead if they had not paid their tithing, President John Taylor, then of the Quorum of the Twelve, answered: “A man who has not paid his tithing is unfit to be baptized for his dead. … If a man has not faith enough to attend to these little things, he has not faith enough to save himself and his friends.”[^5]
 
@@ -26,7 +28,7 @@ Tithing has a special purpose as a preparatory law. Early in this dispensation, 
 
 “And this shall be the beginning of the tithing of my people.
 
-“… Those who have thus been tithed shall pay one-tenth of all their interest annually; and this shall be a standing law unto them forever.”[^9]
+“… Those who have thus been tithed shall pay one-tenth of all their interest annually; and this shall be a standing law unto them forever.”[^9]
 
 The law of tithing prepares us to live the higher law of consecration—to dedicate and give all our time, talents, and resources to the work of the Lord. Until the day when we are required to live this higher law, we are commanded to live the law of the tithe, which is to freely[^10] give one-tenth of our income annually.
 
@@ -54,9 +56,9 @@ It is remarkable to witness this council heed the Lord’s voice. Each member is
 
 When a friend of President George Albert Smith asked him what he thought of his friend’s personal plan to take what would have been tithing and donate his tenth in charitable donations of his own choice, President Smith’s counsel was:
 
-“I think you are a very generous man with someone else’s property. …
+“I think you are a very generous man with someone else’s property. …
 
-“… You have told me what you have done with the Lord’s money but you have not told me that you have given anyone a penny of your own. He is the best partner you have in the world. He gives you everything you have, even the air you breathe. He has said you should take one-tenth of what comes to you and give it to the Church as directed by the Lord. You haven’t done that; you have taken your best partner’s money, and have given it away.”[^17]
+“… You have told me what you have done with the Lord’s money but you have not told me that you have given anyone a penny of your own. He is the best partner you have in the world. He gives you everything you have, even the air you breathe. He has said you should take one-tenth of what comes to you and give it to the Church as directed by the Lord. You haven’t done that; you have taken your best partner’s money, and have given it away.”[^17]
 
 The tithing of the members of the Church belongs to the Lord. He decides, through a council of His servants, how it should be used.
 
@@ -95,7 +97,7 @@ I testify that the Lord Jesus Christ sacrificed His life to bring this salvation
 
 [^7]: See Joseph Fielding Smith, *Church History and Modern Revelation* (Melchizedek Priesthood course of study, first series, 1946), 196.
 
-[^8]: See the historical introduction to [D&C 119](https://churchofjesuschrist.org/study/scriptures/dc-testament/dc/119?lang=eng&id=study_intro1#study_intro1).
+[^8]: See the historical introduction to [D&C 119](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/119?lang=eng&id=study_intro1#study_intro1).
 
 [^9]: [[D&C 119.3|D&C 119:3–4]][[D&C 119.4|]].
 
@@ -123,8 +125,3 @@ I testify that the Lord Jesus Christ sacrificed His life to bring this salvation
 
 [^21]: “A Poor Wayfaring Man of Grief,” *Hymns,* no. 29.
 
-
-
-
-
-#Blessings #Faith #Obedience #Tithing

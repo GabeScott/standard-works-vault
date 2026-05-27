@@ -1,5 +1,7 @@
 # Fat-Free Feasting
 
+Thomas S. Monson
+
 By Bonnie D. Parkin - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -10,7 +12,7 @@ Is there a sweeter sight than mothers and daughters seated by each other? As I l
 
 Sisters, I want to tell you a secret. I love to eat. Don’t you? When food has the perfect herbs, when it’s cooked just right, when it’s served like a work of sculpture, I’m in heaven. I can gain weight just reading a menu.
 
-And did you know that the Lord doesn’t expect us to diet? Trust me! Turn to 2 Nephi 9:51 \[[[2 Nephi 9.51|2 Ne. 9:51]]\]. Now look at the very last line. It says, “Let your soul delight in fatness.” But feast on what? Chocolate?
+And did you know that the Lord doesn’t expect us to diet? Trust me! Turn to 2 Nephi 9:51 \[[[2 Nephi 9.51|2 Ne. 9:51]]\]. Now look at the very last line. It says, “Let your soul delight in fatness.” But feast on what? Chocolate?
 
 Look closely: Feast on his *word.* When was the last time you feasted on the word? Did you know that feasting could be so guilt-free?
 
@@ -35,8 +37,3 @@ I know that he lives, and that he loves us, and that his hand is outstretched st
 
 
 
-
-
-
-
-#Scripture_Study #Scriptures #Women #Young_Women

@@ -1,5 +1,7 @@
 # The Virtue of Kindness
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -38,7 +40,7 @@ The Prophet Joseph Smith exemplified kindness in his life to everyone, old and y
 
 There is no substitute for kindness in the home. This lesson I learned from my father. He always listened to my mother’s advice. As a result, he was a better, wiser, and kinder man.
 
-I have tried to follow my father’s example and listen to my wife’s point of view. I value her opinion. For example, when my wife begins a sentence with the words “I should think you would … ,” I instantly pay attention and begin searching my mind for something I may have done wrong. Ofttimes before my wife has finished her sentence, I have already planned out in my mind a magnificent apology.
+I have tried to follow my father’s example and listen to my wife’s point of view. I value her opinion. For example, when my wife begins a sentence with the words “I should think you would … ,” I instantly pay attention and begin searching my mind for something I may have done wrong. Ofttimes before my wife has finished her sentence, I have already planned out in my mind a magnificent apology.
 
 In truth, my wife is a model of kindness, gentleness, and compassion. And her insight, counsel, and support have been invaluable to me. Because of her, I too am a wiser and kinder person.
 
@@ -109,8 +111,3 @@ May we be models of kindness. May we ever live up to the words of the Savior: �
 
 [^7]: [[John 13.35|John 13:35]].
 
-
-
-
-
-#Atonement #Jesus_Christ #Kindness

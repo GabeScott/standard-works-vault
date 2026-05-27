@@ -1,6 +1,8 @@
 # The Key to Spiritual Protection
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -52,7 +54,7 @@ The scriptures hold the keys to spiritual protection. They contain the doctrine 
 
 With years of preparation, there has been an enormous effort to produce the scriptures in every language, with footnotes and cross-references. We seek to make them available to all who wish to learn. They teach us where to go and what to do. They offer hope and knowledge.
 
-Years ago, Elder S. Dilworth Young of the Seventy taught me a lesson about reading the scriptures. A stake was struggling with tensions and difficulties among the members, and counsel needed to be given.
+Years ago, Elder S. Dilworth Young of the Seventy taught me a lesson about reading the scriptures. A stake was struggling with tensions and difficulties among the members, and counsel needed to be given.
 
 I asked President Young, “What should I say?”
 
@@ -76,7 +78,7 @@ Children taught an understanding of the scriptures early in life will come to kn
 
 The sons of Mosiah fought against the Church for a time but later repented and underwent a dramatic change. In Alma we read, “These sons of Mosiah … had waxed strong in the knowledge of the truth; for they were men of a sound understanding and they had searched the scriptures diligently, that they might know the word of God.”[^7]
 
-President Joseph F. Smith was five years old when his father, Hyrum, was killed in Carthage Jail. Later, Joseph crossed the plains with his widowed mother.
+President Joseph F. Smith was five years old when his father, Hyrum, was killed in Carthage Jail. Later, Joseph crossed the plains with his widowed mother.
 
 At age 15 he was called on a mission to Hawaii. He felt lost and alone and said: “I was very much oppressed. … I felt as if I was so debased in my condition of poverty, lack of intelligence and knowledge, just a boy, that I hardly dared look \[anyone\] in the face.”
 
@@ -115,21 +117,21 @@ I bear certain witness of the scriptures as a key to our spiritual protection. I
 
 
 
-[^1]: [[2 Timothy 3.1|2 Timothy 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].
+[^1]: [[2 Timothy 3.1|2 Timothy 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].
 
-[^2]: [[2 Timothy 3.13|2 Timothy 3:13]].
+[^2]: [[2 Timothy 3.13|2 Timothy 3:13]].
 
 [^3]: [[Ether 8.24|Ether 8:24, 26]][[Ether 8.26|]].
 
-[^4]: [[2 Timothy 3.14|2 Timothy 3:14–15]][[2 Timothy 3.15|]].
+[^4]: [[2 Timothy 3.14|2 Timothy 3:14–15]][[2 Timothy 3.15|]].
 
-[^5]: [[2 Timothy 3.16|2 Timothy 3:16]].
+[^5]: [[2 Timothy 3.16|2 Timothy 3:16]].
 
 [^6]: [[Mark 5.36|Mark 5:36]].
 
 [^7]: [[Alma 17.2|Alma 17:2]].
 
-[^8]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 542.
+[^8]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 542.
 
 [^9]: [[Ether 8.24|Ether 8:24]].
 
@@ -139,8 +141,3 @@ I bear certain witness of the scriptures as a key to our spiritual protection. I
 
 [^12]: [[D&C 76.42|Doctrine and Covenants 76:42]].
 
-
-
-
-
-#Last_Days #Peace #Repentance #Scripture_Study

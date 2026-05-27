@@ -1,6 +1,5 @@
 # Dip
 
-
 hyssop, and *dip* it in the blood, [[Exodus 12.22|Exodus 12:22]].
 
 priest shall *dip* his finger in the blood, [[Leviticus 4.6|Leviticus 4:6]].

@@ -1,5 +1,7 @@
 # Look to the Savior
 
+Ezra Taft Benson
+
 By Elder John Sonnenberg - *Released member of the Second Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -33,8 +35,3 @@ I bear witness that the Church has been restored, that Joseph Smith is a prophet
 
 
 
-
-
-
-
-#Faith #Family #Missionary_Work #Prophecy #Testimony

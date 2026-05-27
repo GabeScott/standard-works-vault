@@ -1,7 +1,6 @@
 # Bind, Bound
 
-
-his life is *bound* up in the lad's life, [[Genesis 44.30|Genesis 44:30]].
+his life is *bound* up in the lad’s life, [[Genesis 44.30|Genesis 44:30]].
 
 thou shalt *bind* them for a sign, [[Deuteronomy 6.8|Deuteronomy 6:8]].
 
@@ -9,7 +8,7 @@ they *bound* him with two new cords, [[Judges 15.13|Judges 15:13]].
 
 He healeth the broken in heart, and *bindeth* up their wounds, [[Psalms 147.3|Psalms 147:3]].
 
-mercy and truth ... *bind* them about thy neck, [[Proverbs 3.3|Proverbs 3:3]].
+mercy and truth … *bind* them about thy neck, [[Proverbs 3.3|Proverbs 3:3]].
 
 *Bind* them continually upon thine heart, [[Proverbs 6.21|Proverbs 6:21]].
 
@@ -33,11 +32,11 @@ when they had *bound* him, they led him away, [[Matthew 27.2|Matthew 27:2]] ([[M
 
 no man could *bind* him, no, not with chains, [[Mark 5.3|Mark 5:3]].
 
-whom Satan hath *bound* ... eighteen years, [[Luke 13.16|Luke 13:16]].
+whom Satan hath *bound* … eighteen years, [[Luke 13.16|Luke 13:16]].
 
-took Paul's girdle, and *bound* his own hands, [[Acts 21.11|Acts 21:11]].
+took Paul’s girdle, and *bound* his own hands, [[Acts 21.11|Acts 21:11]].
 
-I persecuted ... *binding* and delivering into prisons, [[Acts 22.4|Acts 22:4]].
+I persecuted … *binding* and delivering into prisons, [[Acts 22.4|Acts 22:4]].
 
 Satan, and *bound* him a thousand years, [[Revelation 20.2|Revelation 20:2]].
 

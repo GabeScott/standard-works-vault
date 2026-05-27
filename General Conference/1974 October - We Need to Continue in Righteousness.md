@@ -1,12 +1,14 @@
 # We Need to Continue in Righteousness
 
-By President Rex D. Pinegar - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1974 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1974/10/we-need-to-continue-in-righteousness?lang=eng)
 
-My beloved brothers and sisters, I’m sure we all echoed with the choir “Thanks Be to God” for the opportunity we have to be gathered today under the direction of a prophet, Spencer W. Kimball.
+My beloved brothers and sisters, I’m sure we all echoed with the choir “Thanks Be to God” for the opportunity we have to be gathered today under the direction of a prophet, Spencer W. Kimball.
 
 My family and I have recently returned from Virginia, where it has been my great privilege to preside over a mission of the Church for the past three years. Observing the diligence and faith of the missionaries has brought to me a greater realization of the blessings that accompany those who continue to serve the Lord in righteousness. I’m grateful to the Lord for the calling I now have which permits me to continue to serve in missionary service.
 
@@ -34,7 +36,7 @@ To continue means to press forward.
 
 “And now, my beloved brethren, after ye have gotten into this straight and narrow path, I would ask if all is done? Behold, I say unto you, Nay; for ye have not come thus far save it were by the word of Christ with unshaken faith in him, relying wholly upon the merits of him who is mighty to save.
 
-“Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.19|2 Ne. 31:19–20]][[2 Nephi 31.20|]].)
+“Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.19|2 Ne. 31:19–20]][[2 Nephi 31.20|]].)
 
 To continue in righteousness takes personal courage and strength of commitment. We must recognize that there is an opposing force to that which is right. Sometimes hardships come our way or fatigue dims our vision in decision making. It may be a selfish motive or a carnal desire that needs to be overcome before we can continue. In every situation, however, the answer which leads to happiness is to press forward. President Kimball has assured us that when we have done all we can do in a situation, the Lord “will find a way to open doors.”
 
@@ -59,8 +61,3 @@ May the Lord bless each of us with the strength, courage, and faith to continue 
 
 
 
-
-
-
-
-#Commitment #Endurance

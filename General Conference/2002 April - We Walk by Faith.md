@@ -1,5 +1,7 @@
 # We Walk by Faith
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2002 General Conference*
@@ -48,13 +50,13 @@ Let me give you a story of a woman in São Paulo, Brazil. She worked while going
 
 “I remember a time when I … faced serious financial difficulties. It was a Thursday when I received my salary. When I figured the monthly budget, I noticed that there wouldn’t be enough to pay \[both\] my tithing and my university. I would have to choose between them. The bimonthly tests would start the following week, and if I didn’t take them I could lose the school year. I felt great agony. … My heart ached. I had a painful decision before me, and I didn’t know what to decide. I pondered between the two choices: to pay tithing or to risk the possibility of not obtaining the necessary credits to be approved in school.
 
-“This feeling consumed my soul and remained with me up to Saturday. It was then that I remembered that when I was baptized I had agreed to live the law of tithing. I had taken upon myself an obligation, not with the missionaries, but with my Heavenly Father. At that moment, the anguish started to disappear, giving place to a pleasant sensation of tranquility and determination. …
+“This feeling consumed my soul and remained with me up to Saturday. It was then that I remembered that when I was baptized I had agreed to live the law of tithing. I had taken upon myself an obligation, not with the missionaries, but with my Heavenly Father. At that moment, the anguish started to disappear, giving place to a pleasant sensation of tranquility and determination. …
 
 “That night when I prayed, I asked the Lord to forgive me for my indecision. On Sunday, before the beginning of sacrament meeting, I contacted the bishop, and with great pleasure I paid my tithing and offerings. That was a special day. I felt happy and peaceful within myself and with Heavenly Father.
 
 “The next day I was in my office; I tried to find a way to be able to take the tests that would begin on Wednesday. The more I thought, the further I felt from a solution. At that time I worked in an attorney’s office, and my employer was the most strict and austere person I had ever met.
 
-“The working period was ending when my employer approached and gave the last orders of the day. When he had done so, with his briefcase in his hand he bid farewell. … Suddenly he halted, and looking at me he asked, ‘How is your college?’ I was surprised, and I couldn’t believe what I was hearing. The only thing I could answer with a trembling voice was, ‘Everything is all right!’ He looked thoughtfully at me and bid farewell again. …
+“The working period was ending when my employer approached and gave the last orders of the day. When he had done so, with his briefcase in his hand he bid farewell. … Suddenly he halted, and looking at me he asked, ‘How is your college?’ I was surprised, and I couldn’t believe what I was hearing. The only thing I could answer with a trembling voice was, ‘Everything is all right!’ He looked thoughtfully at me and bid farewell again. …
 
 “Suddenly the secretary entered the room, saying that I was a very fortunate person! When I asked her why, she simply answered: ‘The employer has just said that from today on the company is going to pay fully for your college and your books. Before you leave, stop at my desk and inform me of the costs so that tomorrow I can give you the check.’
 
@@ -68,9 +70,9 @@ Great is the promise of the Lord to the faithful everywhere. He has said:
 
 “Great shall be their reward and eternal shall be their glory.
 
-“And to them will I reveal all mysteries, yea, all the hidden mysteries of my kingdom from days of old, and for ages to come. …
+“And to them will I reveal all mysteries, yea, all the hidden mysteries of my kingdom from days of old, and for ages to come. …
 
-“Yea, even the wonders of eternity shall they know. …
+“Yea, even the wonders of eternity shall they know. …
 
 “And their wisdom shall be great, and their understanding reach to heaven; and before them the wisdom of the wise shall perish, and the understanding of the prudent shall come to naught.
 
@@ -87,8 +89,3 @@ May God, our Eternal Father, continue to smile upon this, His Kingdom, and cause
 
 
 
-
-
-
-
-#Faith #Prayer #Tithing

@@ -1,5 +1,7 @@
 # Preparation Brings Blessings
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2010 General Conference*
@@ -54,7 +56,7 @@ Music can help you draw closer to your Heavenly Father. It can be used to educat
 
 Because sexual intimacy is so sacred, the Lord requires self-control and purity before marriage as well as full fidelity after marriage. In dating, treat your date with respect and expect your date to show that same respect for you. Tears inevitably follow transgression.
 
-President David O. McKay, ninth President of the Church, advised, “I implore you to think clean thoughts.” He then made this significant declaration of truth: “Every action is preceded by a thought. If we want to control our actions, we must control our thinking.” Brethren, fill your minds with good thoughts, and your actions will be proper. May each of you be able to echo in truth the line from Tennyson spoken by Sir Galahad: “My strength is as the strength of ten, because my heart is pure.”[^7]
+President David O. McKay, ninth President of the Church, advised, “I implore you to think clean thoughts.” He then made this significant declaration of truth: “Every action is preceded by a thought. If we want to control our actions, we must control our thinking.” Brethren, fill your minds with good thoughts, and your actions will be proper. May each of you be able to echo in truth the line from Tennyson spoken by Sir Galahad: “My strength is as the strength of ten, because my heart is pure.”[^7]
 
 Not long ago the author of a paper on teenage sexuality summed up his research by saying that society sends teens a mixed message: advertisements and the mass media convey “very heavy messages that sexual activity is acceptable and expected,” inducements that sometimes drown out the warnings of experts and the pleas of parents. The Lord cuts through all the media messages with clear and precise language when He declares to us, “Be ye clean.”[^8]
 
@@ -107,18 +109,13 @@ Brethren, it is my prayer that we may so live that we too may touch heaven and b
 
 [^5]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-[^6]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]].
+[^6]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]].
 
 [^7]: Alfred, Lord Tennyson, in *Familiar Quotations,* 647.
 
 [^8]: [[D&C 38.42|Doctrine and Covenants 38:42]].
 
-[^9]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^9]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 [^10]: [[Isaiah 1.18|Isaiah 1:18]].
 
-
-
-
-
-#Church_Callings #Honesty #Preparation #Service #Standards

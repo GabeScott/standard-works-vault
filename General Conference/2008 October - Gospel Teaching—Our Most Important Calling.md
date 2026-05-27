@@ -1,5 +1,7 @@
 # Gospel Teaching—Our Most Important Calling
 
+Thomas S. Monson
+
 By William D. Oswald - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2008 General Conference*
@@ -18,7 +20,7 @@ During the rope-jumping lesson, another granddaughter, only three years old, was
 
 All three granddaughters had observed that there was an art to jumping the rope. It was a simple thing that all of them could do after learning a few basic principles and being shown how. So it is with gospel teaching. When we learn a few fundamental principles about teaching and are shown how to teach, all of us can do it.
 
-President Boyd K. Packer often reminds us that “all of us—leaders, teachers, missionaries, and parents—have a lifelong challenge from the Lord to both teach and learn the doctrines of the gospel as they have been revealed to us.”[^1] As simply stated by Elder L. Tom Perry, “Every position in the Church requires an effective teacher.”[^2]
+President Boyd K. Packer often reminds us that “all of us—leaders, teachers, missionaries, and parents—have a lifelong challenge from the Lord to both teach and learn the doctrines of the gospel as they have been revealed to us.”[^1] As simply stated by Elder L. Tom Perry, “Every position in the Church requires an effective teacher.”[^2]
 
 Since every member is a teacher and “teaching is the center of all that we do,”[^3] we all have a sacred responsibility to learn some basic principles of teaching. There are many principles of teaching and learning, and it is not enough for us just to read about them. First, we need to *understand* these basic principles, and second, we need to be *shown* how they are used by successful teachers. This can be done by carefully watching able teachers in our wards and branches and by reviewing the worldwide leadership training meeting on teaching and learning found on the Church Web site or in Church magazines.[^4]
 
@@ -26,7 +28,7 @@ The basic principles that apply to learning and teaching the gospel are found in
 
 When we look for a model of the ideal teacher who can show us how to teach the gospel, we are inescapably drawn to Jesus of Nazareth. His disciples called Him “Rabboni; which is to say, Master” or “Teacher.”[^6] He was and is the Master Teacher.
 
-Jesus differed from other teachers of His day in that He taught “as one having authority.”[^7] This authority to teach and minister came from His Heavenly Father, for “God anointed Jesus … with the Holy Ghost and with power … ; for God was with him.”[^8]
+Jesus differed from other teachers of His day in that He taught “as one having authority.”[^7] This authority to teach and minister came from His Heavenly Father, for “God anointed Jesus … with the Holy Ghost and with power … ; for God was with him.”[^8]
 
 Following this pattern, Jesus was taught by His Heavenly Father, as recorded by John. Jesus said, “I do nothing of myself; but as my Father hath taught me.”[^9] “The Son can do nothing of himself, but what he seeth the Father do. … For the Father loveth the Son, and sheweth him all things that himself doeth.”[^10]
 
@@ -46,7 +48,7 @@ What are some of the principles of teaching and learning we might identify by ob
 
 Joseph Smith said that when the angel Moroni first appeared to him, Joseph “was afraid; but the fear soon left” him. What was it that Moroni did to help dispel this fear? Joseph said, “He called me by name.”[^20] Teachers who love their students and call them by name are following a heavenly pattern.[^21]
 
-In a recent meeting with President Thomas S. Monson, I noticed that he greeted each of us by name. He spoke to us about his boyhood Sunday School teacher Lucy Gertsch, noting that she was a teacher who knew the names of each student in her class. President Monson has said of her: “She unfailingly called on those who missed a Sunday or who just didn’t come. We knew she cared about us. None of us has ever forgotten her or the lessons she taught.”[^22]
+In a recent meeting with President Thomas S. Monson, I noticed that he greeted each of us by name. He spoke to us about his boyhood Sunday School teacher Lucy Gertsch, noting that she was a teacher who knew the names of each student in her class. President Monson has said of her: “She unfailingly called on those who missed a Sunday or who just didn’t come. We knew she cared about us. None of us has ever forgotten her or the lessons she taught.”[^22]
 
 ## Principle 2: Teach from the Scriptures
 
@@ -63,11 +65,11 @@ I testify that teaching the gospel is a sacred and holy calling. When you love y
 
 
 
-[^1]: Boyd K. Packer and L. Tom Perry, “Principles of Teaching and Learning,” *Worldwide Leadership Training Meeting,* Feb. 2007; in *Liahona,* June 2007, 50; *Ensign,* June 2007, 82.
+[^1]: Boyd K. Packer and L. Tom Perry, “Principles of Teaching and Learning,” *Worldwide Leadership Training Meeting,* Feb. 2007; in *Liahona,* June 2007, 50; *Ensign,* June 2007, 82.
 
-[^2]: L. Tom Perry, *Liahona,* June 2007, 52; *Ensign,* June 2007, 84; see also [[1 Corinthians 12.28|1 Corinthians 12:28]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]].
+[^2]: L. Tom Perry, *Liahona,* June 2007, 52; *Ensign,* June 2007, 84; see also [[1 Corinthians 12.28|1 Corinthians 12:28]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]].
 
-[^3]: Boyd K. Packer, *Liahona,* June 2007, 54; *Ensign,* June 2007, 86.
+[^3]: Boyd K. Packer, *Liahona,* June 2007, 54; *Ensign,* June 2007, 86.
 
 [^4]: See *Worldwide Leadership Training Meeting,* Feb. 2007; in *Liahona,* June 2007, 49–80; *Ensign,* June 2007, 81–112; proceedings of this meeting are also available at [www.lds.org](https://www.churchofjesuschrist.org).
 
@@ -83,7 +85,7 @@ I testify that teaching the gospel is a sacred and holy calling. When you love y
 
 [^10]: [[John 5.19|John 5:19–20]][[John 5.20|]].
 
-[^11]: See [[2 Nephi 33.1|2 Nephi 33:1–13]][[2 Nephi 33.2|]][[2 Nephi 33.3|]][[2 Nephi 33.4|]][[2 Nephi 33.5|]][[2 Nephi 33.6|]][[2 Nephi 33.7|]][[2 Nephi 33.8|]][[2 Nephi 33.9|]][[2 Nephi 33.10|]][[2 Nephi 33.11|]][[2 Nephi 33.12|]][[2 Nephi 33.13|]].
+[^11]: See [[2 Nephi 33.1|2 Nephi 33:1–13]][[2 Nephi 33.2|]][[2 Nephi 33.3|]][[2 Nephi 33.4|]][[2 Nephi 33.5|]][[2 Nephi 33.6|]][[2 Nephi 33.7|]][[2 Nephi 33.8|]][[2 Nephi 33.9|]][[2 Nephi 33.10|]][[2 Nephi 33.11|]][[2 Nephi 33.12|]][[2 Nephi 33.13|]].
 
 [^12]: See [[Mosiah 27.32|Mosiah 27:32–37]][[Mosiah 27.33|]][[Mosiah 27.34|]][[Mosiah 27.35|]][[Mosiah 27.36|]][[Mosiah 27.37|]].
 
@@ -99,13 +101,13 @@ I testify that teaching the gospel is a sacred and holy calling. When you love y
 
 [^18]: Orson Pratt, *Deseret News,* July 21, 1880, 386.
 
-[^19]: [[2 Nephi 25.17|2 Nephi 25:17]]; [[2 Nephi 27.26|27:26]]; see also [[Isaiah 29.14|Isaiah 29:14]]; [[3 Nephi 21.9|3 Nephi 21:9–10]][[3 Nephi 21.10|]].
+[^19]: [[2 Nephi 25.17|2 Nephi 25:17]]; [[2 Nephi 27.26|27:26]]; see also [[Isaiah 29.14|Isaiah 29:14]]; [[3 Nephi 21.9|3 Nephi 21:9–10]][[3 Nephi 21.10|]].
 
-[^20]: [[Joseph Smith History 1.32|Joseph Smith—History 1:32–33]][[Joseph Smith History 1.33|]]; see also [[Joseph Smith History 1.49|v. 49]].
+[^20]: [[Joseph Smith History 1.32|Joseph Smith—History 1:32–33]][[Joseph Smith History 1.33|]]; see also [[Joseph Smith History 1.49|v. 49]].
 
-[^21]: See [[Matthew 3.17|Matthew 3:17]]; [[3 Nephi 11.7|3 Nephi 11:7]]; [[Moroni 2.1|Moroni 2:1–2]][[Moroni 2.2|]]; [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
+[^21]: See [[Matthew 3.17|Matthew 3:17]]; [[3 Nephi 11.7|3 Nephi 11:7]]; [[Moroni 2.1|Moroni 2:1–2]][[Moroni 2.2|]]; [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-[^22]: Thomas S. Monson, “Examples of Great Teachers,” *Liahona,* June 2007, 77; *Ensign,* June 2007, 109.
+[^22]: Thomas S. Monson, “Examples of Great Teachers,” *Liahona,* June 2007, 77; *Ensign,* June 2007, 109.
 
 [^23]: [[Joseph Smith History 1.36|Joseph Smith—History 1:36, 41]][[Joseph Smith History 1.41|]].
 
@@ -113,14 +115,9 @@ I testify that teaching the gospel is a sacred and holy calling. When you love y
 
 [^25]: [[Joseph Smith History 1.47|Joseph Smith—History 1:47]].
 
-[^26]: [[3 Nephi 17.3|3 Nephi 17:3]]; see also [[D&C 138.1|D&C 138:1, 6, 11, 29]][[D&C 138.6|]][[D&C 138.11|]][[D&C 138.29|]].
+[^26]: [[3 Nephi 17.3|3 Nephi 17:3]]; see also [[D&C 138.1|D&C 138:1, 6, 11, 29]][[D&C 138.6|]][[D&C 138.11|]][[D&C 138.29|]].
 
-[^27]: [[2 Nephi 4.16|2 Nephi 4:16]]; see also [[Moroni 10.3|Moroni 10:3]].
+[^27]: [[2 Nephi 4.16|2 Nephi 4:16]]; see also [[Moroni 10.3|Moroni 10:3]].
 
 [^28]: [[John 3.2|John 3:2]].
 
-
-
-
-
-#Love #Scriptures #Spirituality #Teaching

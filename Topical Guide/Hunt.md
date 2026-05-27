@@ -1,6 +1,5 @@
 # Hunt
 
-
 Esau went to the field to *hunt*, [[Genesis 27.5|Genesis 27:5]].
 
 thou *huntest* my soul to take it, [[1 Samuel 24.11|1 Samuel 24:11]].

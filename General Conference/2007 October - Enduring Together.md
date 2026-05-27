@@ -1,5 +1,7 @@
 # Enduring Together
 
+Gordon B. Hinckley
+
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2007 General Conference*
@@ -14,7 +16,7 @@ He continues: “This kind of cheek-to-jowl living can be intrusive. … It also
 
 The author goes on to say: “At work on Tuesday, I caught the noon news broadcast on television. A van had been obliterated in a traffic crash. A young mother and two small children were being rushed to emergency rooms by helicopter and ambulance. … Hours later I learned that the van belonged to the young couple living across the street from me in Herriman, Eric and Jeana Quigley.
 
-“Not only do I see the Quigleys in church, … we ate dinner with them at a neighborhood party the night before the crash. Our grandkids played with daughters Bianca and Miranda. …
+“Not only do I see the Quigleys in church, … we ate dinner with them at a neighborhood party the night before the crash. Our grandkids played with daughters Bianca and Miranda. …
 
 “Fourteen-month-old Miranda suffered serious head injuries and died three days later at Primary Children’s Hospital.
 
@@ -63,5 +65,3 @@ May we be an instrument in lightening the burden of others, I pray in the name o
 
 
 
-
-#Adversity #Endurance #Love #Service

@@ -1,6 +1,5 @@
 # Six, Sixth
 
-
 Noah was *six* hundred years old when the flood, [[Genesis 7.6|Genesis 7:6]].
 
 *Six* days shalt thou labour, [[Exodus 20.9|Exodus 20:9]] ([[Mosiah 13.17|Mosiah 13:17]]).
@@ -13,4 +12,4 @@ when he had opened the *sixth* seal, [[Revelation 6.12|Revelation 6:12]].
 
 as God made the world in *six* days, [[D&C 77.12|D&C 77:12]].
 
-the seventh president ... is to preside over the *six*, [[D&C 107.94|D&C 107:94]].
+the seventh president … is to preside over the *six*, [[D&C 107.94|D&C 107:94]].

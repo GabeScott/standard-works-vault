@@ -1,6 +1,8 @@
 # Stand Independent above All Other Creatures
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -68,7 +70,7 @@ He rained manna from heaven upon all Israel, six days each week for forty years,
 
 During forty years in the wilderness the clothes worn by all Israel waxed not old and their shoes wore not out, but when they entered their promised land, then the Lord required them to provide their own wearing apparel. (See [[Deuteronomy 29.5|Deut. 29:5]].)
 
-When there was a famine in the land, at Elijah’s word, a certain barrel of meal did not waste, and a certain cruse of oil did not fail, until the Lord sent again rain on the earth. And it is worthy of note, as Jesus said, that though there were many widows in Israel, unto one only was Elijah sent. (See [[1 Kings 17.10|1 Kgs. 17:10–16]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].)
+When there was a famine in the land, at Elijah’s word, a certain barrel of meal did not waste, and a certain cruse of oil did not fail, until the Lord sent again rain on the earth. And it is worthy of note, as Jesus said, that though there were many widows in Israel, unto one only was Elijah sent. (See [[1 Kings 17.10|1 Kgs. 17:10–16]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].)
 
 We do not say that all of the Saints will be spared and saved from the coming day of desolation. But we do say there is no promise of safety and no promise of security except for those who love the Lord and who are seeking to do all that he commands.
 
@@ -76,7 +78,7 @@ It may be, for instance, that nothing except the power of faith and the authorit
 
 And so we raise the warning voice and say: Take heed; prepare; watch and be ready. There is no security in any course except the course of obedience and conformity and righteousness.
 
-For thus saith the Lord: “The Lord’s scourge shall pass over by night and by day, and the report thereof shall vex all people; yea, it shall not be stayed until the Lord come; …
+For thus saith the Lord: “The Lord’s scourge shall pass over by night and by day, and the report thereof shall vex all people; yea, it shall not be stayed until the Lord come; …
 
 “Nevertheless, Zion shall escape if she observe to do all things whatsoever I have commanded her,” saith the Lord.
 
@@ -93,8 +95,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Self-Reliance

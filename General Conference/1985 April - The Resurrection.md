@@ -1,5 +1,7 @@
 # The Resurrection
 
+Gordon B. Hinckley
+
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -26,7 +28,7 @@ As Mary stood without the sepulchre weeping, she was addressed by an apparent st
 
 *One,* only *one,* person could speak her name that way. With that single word all doubt, confusion, and uncertainty was swept away. Mary, in that instant, came to the grand, sublime realization that he for whom she mourned, even Jesus that was crucified, had risen from the dead, just as the angels early that very morning had testified, “He is risen.” (See [[Luke 24.6|Luke 24:6]].)
 
-Mary was not to be the only witness of the miracle of the Resurrection. Although the Savior was the “firstfruits” of them that slept ([[1 Corinthians 15.23|1 Cor. 15:23]]), the scriptures testify that “many bodies of the saints which slept arose, and came out of the graves after his resurrection, and went into the holy city, and appeared unto many.” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]].)
+Mary was not to be the only witness of the miracle of the Resurrection. Although the Savior was the “firstfruits” of them that slept ([[1 Corinthians 15.23|1 Cor. 15:23]]), the scriptures testify that “many bodies of the saints which slept arose, and came out of the graves after his resurrection, and went into the holy city, and appeared unto many.” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]].)
 
 Jesus appeared to two followers in Emmaus whose “eyes were holden that they should not know him” ([[Luke 24.16|Luke 24:16]]), and they entreated him: “Abide with us: for it is toward evening, and the day is far spent. And he went in to tarry with them.” ([[Luke 24.29|Luke 24:29]].) As Jesus ate with them, their eyes were opened, and they knew him.
 
@@ -40,15 +42,15 @@ Thomas was absent, and when the others told him of Jesus’ resurrection, his re
 
 And so for forty days the Savior ministered to his Apostles and other disciples and taught them.
 
-During these forty glorious days, Christ was also “seen of above five hundred brethren at once; of whom the greater part remain unto this present. … After that, he was seen of James; then of all the apostles.” Paul adds, “And last of all he was seen of me.” ([[1 Corinthians 15.6|1 Cor. 15:6–8]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]].)
+During these forty glorious days, Christ was also “seen of above five hundred brethren at once; of whom the greater part remain unto this present. … After that, he was seen of James; then of all the apostles.” Paul adds, “And last of all he was seen of me.” ([[1 Corinthians 15.6|1 Cor. 15:6–8]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]].)
 
-Latter-day Saints have additional witnesses of the reality of the resurrection of Jesus Christ and of the certainty of life after death. One of these witnesses is the Book of Mormon, a record containing the ministry of the resurrected Christ upon the American continent after his death and resurrection in Jerusalem. The appearance was preceded by a voice as if it came out of heaven: “And it was not a harsh voice, neither was it a loud voice; nevertheless, and notwithstanding it being a small voice it did pierce them that did hear to the center … ; yea, it did pierce them to the very soul, and did cause their hearts to burn.” ([[3 Nephi 11.3|3 Ne. 11:3]].)
+Latter-day Saints have additional witnesses of the reality of the resurrection of Jesus Christ and of the certainty of life after death. One of these witnesses is the Book of Mormon, a record containing the ministry of the resurrected Christ upon the American continent after his death and resurrection in Jerusalem. The appearance was preceded by a voice as if it came out of heaven: “And it was not a harsh voice, neither was it a loud voice; nevertheless, and notwithstanding it being a small voice it did pierce them that did hear to the center … ; yea, it did pierce them to the very soul, and did cause their hearts to burn.” ([[3 Nephi 11.3|3 Ne. 11:3]].)
 
-The voice announced, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name. …
+The voice announced, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name. …
 
-“And behold, they saw a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them; and the eyes of the whole multitude were turned upon him.” ([[3 Nephi 11.7|3 Ne. 11:7–8]][[3 Nephi 11.8|]].)
+“And behold, they saw a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them; and the eyes of the whole multitude were turned upon him.” ([[3 Nephi 11.7|3 Ne. 11:7–8]][[3 Nephi 11.8|]].)
 
-He stretched forth his hand and said, “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.” ([[3 Nephi 11.10|3 Ne. 11:10]].) And he invited the multitude: “Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world.” ([[3 Nephi 11.14|3 Ne. 11:14]].)
+He stretched forth his hand and said, “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.” ([[3 Nephi 11.10|3 Ne. 11:10]].) And he invited the multitude: “Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world.” ([[3 Nephi 11.14|3 Ne. 11:14]].)
 
 The testimony of modern witnesses is also recorded in the Doctrine and Covenants. The Prophet Joseph Smith and Sidney Rigdon testified:
 
@@ -70,13 +72,13 @@ What, then, is the resurrection? A very good description comes from the Book of 
 
 “All shall be raised from this temporal death.
 
-“The spirit and the body shall be reunited again in its perfect form; both limb and joint shall be restored to its proper frame … ; and we shall be brought to stand before God, knowing even as we know now, and have a bright recollection of all our guilt.
+“The spirit and the body shall be reunited again in its perfect form; both limb and joint shall be restored to its proper frame … ; and we shall be brought to stand before God, knowing even as we know now, and have a bright recollection of all our guilt.
 
-“Now, this restoration shall come to all, both old and young, both bond and free, both male and female, both the wicked and the righteous; and even there shall not so much as a hair of their heads be lost; but every thing shall be restored to its perfect frame, as it is now. …
+“Now, this restoration shall come to all, both old and young, both bond and free, both male and female, both the wicked and the righteous; and even there shall not so much as a hair of their heads be lost; but every thing shall be restored to its perfect frame, as it is now. …
 
 “And also concerning the resurrection of the mortal body. I say unto you that this mortal body is raised to an immortal body, that is from death, even from the first death unto life, that they can die no more; their spirits uniting with their bodies, never to be divided; thus the whole becoming spiritual and immortal.” ([[Alma 11.42|Alma 11:42–45]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]].)
 
-The members of The Church of Jesus Christ of Latter-day Saints believe in universal salvation as well as individual salvation. We believe that through the Resurrection and Atonement there will be a resurrection of both the just and the unjust: “For as in Adam all \[men\] die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
+The members of The Church of Jesus Christ of Latter-day Saints believe in universal salvation as well as individual salvation. We believe that through the Resurrection and Atonement there will be a resurrection of both the just and the unjust: “For as in Adam all \[men\] die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
 
 How do we accept Jesus of Nazareth?
 
@@ -100,7 +102,7 @@ We can ask, with Job, the age-old question, “If a man die, shall he live again
 
 “And though after my skin worms destroy this body, yet in my flesh shall I see God.” ([[Job 19.25|Job 19:25–26]][[Job 19.26|]].)
 
-We testify with Isaiah that “his name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].) Of the Resurrection we can declare with Paul: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
+We testify with Isaiah that “his name shall be called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].) Of the Resurrection we can declare with Paul: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
 
 With the abundance of testimony, both ancient and modern, sealed by the witness of the Holy Spirit of God, we stand firm and unequivocating in our knowledge that Jesus of Nazareth is the resurrected Savior. His arms are stretched forth to all men, including my native friend in Africa, who, by accepting Him in His appointed way, may become not just believers but true disciples and with Paul hope to “obtain a better resurrection.” ([[Hebrews 11.35|Heb. 11:35]].)
 
@@ -109,8 +111,3 @@ To all we say, “May Christ lift thee up, and may … the hope of his glory and
 
 
 
-
-
-
-
-#Discipleship #Jesus_Christ #Resurrection

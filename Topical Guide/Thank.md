@@ -1,6 +1,5 @@
 # Thank
 
-
 *See also* [[Bless [verb].md|Bless [verb]]]; [[Praise.md|Praise]]; [[Thankful.md|Thankful]]; [[Thanks.md|Thanks]]; [[Thanksgiving.md|Thanksgiving]]
 
 David delivered first this psalm to *thank* the Lord, [[1 Chronicles 16.7|1 Chronicles 16:7]].
@@ -11,11 +10,11 @@ bring sacrifices and *thank* offerings into the house of the Lord, [[2 Chronicle
 
 I *thank* thee, and praise thee, [[Daniel 2.23|Daniel 2:23]].
 
-I *thank* thee ... because thou hast hid these things from the wise, [[Matthew 11.25|Matthew 11:25]] ([[Luke 10.21|Luke 10:21]]).
+I *thank* thee … because thou hast hid these things from the wise, [[Matthew 11.25|Matthew 11:25]] ([[Luke 10.21|Luke 10:21]]).
 
 love them which love you, what *thank* have ye, [[Luke 6.32|Luke 6:32]].
 
-*thank* that servant because he did the things ... commanded him, [[Luke 17.9|Luke 17:9]].
+*thank* that servant because he did the things … commanded him, [[Luke 17.9|Luke 17:9]].
 
 I *thank* thee, that I am not as other men, [[Luke 18.11|Luke 18:11]].
 
@@ -23,9 +22,9 @@ Father, I *thank* thee that thou hast heard me, [[John 11.41|John 11:41]].
 
 Paul saw, he *thanked* God, [[Acts 28.15|Acts 28:15]].
 
-I *thank* my God ... for you all, [[Romans 1.8|Romans 1:8]].
+I *thank* my God … for you all, [[Romans 1.8|Romans 1:8]].
 
-God be *thanked*, that ... ye have obeyed, [[Romans 6.17|Romans 6:17]].
+God be *thanked*, that … ye have obeyed, [[Romans 6.17|Romans 6:17]].
 
 I *thank* my God always on your behalf, [[1 Corinthians 1.4|1 Corinthians 1:4]].
 

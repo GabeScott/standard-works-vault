@@ -1,5 +1,7 @@
 # All Things Work Together for Good
 
+Thomas S. Monson
+
 By Elder James B. Martino - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -28,7 +30,7 @@ Third, when we face our challenges, we must seek greater help from God. Even the
 
 Fourth, learn to serve and think of others even in our times of trial. Christ was the epitome of service. His life was filled with examples of helping and serving others, and His greatest gift of all was what He did for us. As He said, “For behold, I, God, have suffered these things for all, that they might not suffer if they would repent.”[^7] We must repent and then follow His example of service. When we serve others, we forget our own problems, and by working to relieve the pain or discomfort of others, we strengthen ourselves.
 
-In our last general conference, our beloved prophet, President Thomas S. Monson, stated: “I believe the Savior is telling us that unless we lose ourselves in service to others, there is little purpose to our own lives. Those who live only for themselves eventually shrivel up and figuratively lose their lives, while those who lose themselves in service to others grow and flourish—and in effect save their lives.”[^8]
+In our last general conference, our beloved prophet, President Thomas S. Monson, stated: “I believe the Savior is telling us that unless we lose ourselves in service to others, there is little purpose to our own lives. Those who live only for themselves eventually shrivel up and figuratively lose their lives, while those who lose themselves in service to others grow and flourish—and in effect save their lives.”[^8]
 
 Fifth, forgive others and do not seek to pass the blame of our situation to them. Sometimes we like to say, “If they had not done this, then I would not have reacted the way I did.” There is a tendency for the natural man to pass blame to someone else so as not to be accountable for his or her own actions. The Savior looked at those who had nailed Him to the cross and pled with His Father in Heaven to “forgive them; for they know not what they do.”[^9] Can we not be more forgiving?
 
@@ -37,13 +39,13 @@ As we pass through the trials of life, let us keep an eternal perspective, let u
 
 
 
-[^1]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^1]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^2]: [[Romans 8.28|Romans 8:28]].
 
 [^3]: [[Luke 22.42|Luke 22:42]].
 
-[^4]: [[1 Nephi 19.9|1 Nephi 19:9]].
+[^4]: [[1 Nephi 19.9|1 Nephi 19:9]].
 
 [^5]: [[Luke 22.44|Luke 22:44]].
 
@@ -51,13 +53,11 @@ As we pass through the trials of life, let us keep an eternal perspective, let u
 
 [^7]: [[D&C 19.16|Doctrine and Covenants 19:16]].
 
-[^8]: Thomas S. Monson, in Conference Report, Oct. 2009, 83; or *Ensign,* Nov. 2009, 85.
+[^8]: Thomas S. Monson, in Conference Report, Oct. 2009, [[2009 October - What Have I Done for Someone Today.md|83]]; or *Ensign,* Nov. 2009, 85.
 
 [^9]: [[Luke 23.34|Luke 23:34]].
 
 [^10]: [[Romans 8.28|Romans 8:28]].
 
+[^11]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
-
-
-#Adversity #Jesus_Christ #Perspective

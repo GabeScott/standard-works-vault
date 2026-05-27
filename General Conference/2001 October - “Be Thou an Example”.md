@@ -1,5 +1,7 @@
 # “Be Thou an Example”
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -101,9 +103,9 @@ Dear sisters, you indeed are “examples of the believers.” May our Heavenly F
 
 
 
-[^1]: [[1 Timothy 4.1|1 Tim. 4:1–2]][[1 Timothy 4.2|]].
+[^1]: [[1 Timothy 4.1|1 Tim. 4:1–2]][[1 Timothy 4.2|]].
 
-[^2]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^2]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^3]: [[D&C 88.118|D&C 88:118]].
 
@@ -119,8 +121,3 @@ Dear sisters, you indeed are “examples of the believers.” May our Heavenly F
 
 [^9]: [[Matthew 25.21|Matt. 25:21]].
 
-
-
-
-
-#Death #Education #Example #Faith #Home #Love #Motherhood #Truth

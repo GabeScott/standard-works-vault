@@ -1,5 +1,7 @@
 # “Becometh As a Child”
 
+James E. Faust
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -12,17 +14,17 @@ First, brothers and sisters, some brief samples illustrating the challenge of ma
 
 All about us we see the bitter and abundant harvest from permissiveness. A perceptive person has acknowledged: “The struggle to live ethically without God has left us not with the just and moral order we imagined but with disorder and confusion.
 
-“Something has gone radically wrong with secularism. The problem has more than its share of irony, for secularism, in the end, has converted itself into a kind of religion. …
+“Something has gone radically wrong with secularism. The problem has more than its share of irony, for secularism, in the end, has converted itself into a kind of religion. …
 
-“… Now the transition is complete: the state has become the church” (Peter Marin, “Secularism’s Blind Faith,” *Harper’s Magazine,* Sept. 1995, 20).
+“… Now the transition is complete: the state has become the church” (Peter Marin, “Secularism’s Blind Faith,” *Harper’s Magazine,* Sept. 1995, 20).
 
 The more what is politically correct seeks to replace what God has declared correct, the more ineffective approaches to human problems there will be, all reminding us of C. S. Lewis’s metaphor about those who run around with fire extinguishers in times of flood. For instance, there are increasing numbers of victims of violence and crime, yet special attention is paid to the rights of criminals. Accompanying an ever increasing addiction to pornography are loud alarms against censorship. Rising illegitimacy destroys families and threatens the funding capacities of governments; nevertheless, chastity and fidelity are mocked. These and other consequences produce a harsh cacophony. When Nero fiddled as Rome burned, at least he made a little music! I have no hesitancy, brothers and sisters, in stating that unless checked, permissiveness, by the end of its journey, will cause humanity to stare in mute disbelief at its awful consequences.
 
 Ironically, as some people become harder, they use softer words to describe dark deeds. This too is part of being sedated by secularism! Needless abortion, for instance, is a “reproductive health procedure,” which is an even more “spongy expression” than “termination of pregnancy” (George McKenna, “On Abortion: A Lincolnian Position,” *Atlantic Monthly,* Sept. 1995, 52, 54). *Illegitimacy* gives way to the wholly sanitized words *nonmarital birth* or *alternative parenting* (see Ben J. Wattenberg, *Values Matter Most* \[1995\], 173).
 
-Church members will live in this wheat-and-tares situation until the Millennium. Some real tares even masquerade as wheat, including the few eager individuals who lecture the rest of us about Church doctrines in which they no longer believe. They criticize the use of Church resources to which they no longer contribute. They condescendingly seek to counsel the Brethren whom they no longer sustain. Confrontive, except of themselves, of course, they leave the Church, but they cannot leave the Church alone (see Conference Report, Oct. 1980, 17; or *Ensign,* Nov. 1980, 14). Like the throng on the ramparts of the “great and spacious building,” they are intensely and busily preoccupied, pointing fingers of scorn at the steadfast iron-rodders (see [[1 Nephi 8.26|1 Ne. 8:26–28, 33]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.33|]]). Considering their ceaseless preoccupation, one wonders, Is there no diversionary activity available to them, especially in such a large building—like a bowling alley? Perhaps in their mockings and beneath the stir are repressed doubts of their doubts. In any case, given the perils of popularity, Brigham Young advised that this “people must be kept where the finger of scorn can be pointed at them” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[1941\], 434).
+Church members will live in this wheat-and-tares situation until the Millennium. Some real tares even masquerade as wheat, including the few eager individuals who lecture the rest of us about Church doctrines in which they no longer believe. They criticize the use of Church resources to which they no longer contribute. They condescendingly seek to counsel the Brethren whom they no longer sustain. Confrontive, except of themselves, of course, they leave the Church, but they cannot leave the Church alone (see Conference Report, Oct. 1980, 17; or *Ensign,* Nov. 1980, 14). Like the throng on the ramparts of the “great and spacious building,” they are intensely and busily preoccupied, pointing fingers of scorn at the steadfast iron-rodders (see [[1 Nephi 8.26|1 Ne. 8:26–28, 33]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.33|]]). Considering their ceaseless preoccupation, one wonders, Is there no diversionary activity available to them, especially in such a large building—like a bowling alley? Perhaps in their mockings and beneath the stir are repressed doubts of their doubts. In any case, given the perils of popularity, Brigham Young advised that this “people must be kept where the finger of scorn can be pointed at them” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[1941\], 434).
 
-Therefore, brothers and sisters, quiet goodness must persevere, even when, as prophesied, a few actually rage in their anger against that which is good (see [[2 Nephi 28.20|2 Ne. 28:20]]). Likewise, the arrogance of critics must be met by the meekness and articulateness of believers. If sometimes ringed by resentment, we must still reach out, especially for those whose hands hang down (see [[D&C 81.5|D&C 81:5]]). If our shortcomings as a people are occasionally highlighted, then let us strive to do better.
+Therefore, brothers and sisters, quiet goodness must persevere, even when, as prophesied, a few actually rage in their anger against that which is good (see [[2 Nephi 28.20|2 Ne. 28:20]]). Likewise, the arrogance of critics must be met by the meekness and articulateness of believers. If sometimes ringed by resentment, we must still reach out, especially for those whose hands hang down (see [[D&C 81.5|D&C 81:5]]). If our shortcomings as a people are occasionally highlighted, then let us strive to do better.
 
 Besides, the exhilarations of discipleship exceed its burdens. Hence, while journeying through our Sinai, we are nourished in the Bountiful-like oases of the Restoration. Of these oases some of our first impressions may prove to be more childish than definitive. When we brush against such lush and verdant vegetation, its fragrance is inevitably upon us. Our pockets are stuffed with varied and lush fruits, and we are filled with glee. There is no way to describe it all. In our appreciation, little wonder some of us mistake a particular tree for the whole of an oasis, or a particularly refreshing pool for the entirety of the Restoration’s gushing and living waters. Hence, in our early exclamations there may even be some unintended exaggerations. We have seen, and partaken of, far too much; hence we “cannot \[speak\] the smallest part which \[we\] feel” ([[Alma 26.16|Alma 26:16]]).
 
@@ -32,9 +34,9 @@ Some 12 years ago, there was a tennis match with two LDS physicians and a nonmem
 
 Inspired children often show the way through the wilderness. One reason they are able to do so is implicit in the searching question asked by King Benjamin: “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” ([[Mosiah 5.13|Mosiah 5:13]]).
 
-Children often have the “thoughts and \[the\] intents of \[their\] heart\[s\]” focused on the Master. Though not full of years, such children are full of faith! Too young for formal Church callings, they have been “called to serve” as exemplifiers, doing especially well when blessed with “goodly parents” ([[1 Nephi 1.1|1 Ne. 1:1]]).
+Children often have the “thoughts and \[the\] intents of \[their\] heart\[s\]” focused on the Master. Though not full of years, such children are full of faith! Too young for formal Church callings, they have been “called to serve” as exemplifiers, doing especially well when blessed with “goodly parents” ([[1 Nephi 1.1|1 Ne. 1:1]]).
 
-Just as the scriptures assure, “little children do have words given unto them many times” ([[Alma 32.23|Alma 32:23]]). For example, the resurrected Jesus revealed things to the Nephite children, who then taught adults and their parents “even greater” things than Jesus had taught ([[3 Nephi 26.14|3 Ne. 26:14]]).
+Just as the scriptures assure, “little children do have words given unto them many times” ([[Alma 32.23|Alma 32:23]]). For example, the resurrected Jesus revealed things to the Nephite children, who then taught adults and their parents “even greater” things than Jesus had taught ([[3 Nephi 26.14|3 Ne. 26:14]]).
 
 It has been a privilege to seal several adopted children to Nan and Dan Barker, now of Arizona. Some time ago Nate, then just over three, said: “Mommy, there is another little girl who is supposed to come to our family. She has dark hair and dark eyes and lives a long way from here.”
 
@@ -42,7 +44,7 @@ The wise mother asked, “How do you know this?”
 
 “Jesus told me, upstairs.”
 
-The mother noted, “We don’t have an upstairs,” but quickly sensed the significance of what had been communicated. After much travail and many prayers, the Barker family were in a sealing room in the Salt Lake Temple in the fall of 1995, where a little girl with dark hair and dark eyes, from Kazakhstan, was sealed to them for time and eternity. Inspired children still tell parents “great and marvelous things” ([[3 Nephi 26.14|3 Ne. 26:14]]).
+The mother noted, “We don’t have an upstairs,” but quickly sensed the significance of what had been communicated. After much travail and many prayers, the Barker family were in a sealing room in the Salt Lake Temple in the fall of 1995, where a little girl with dark hair and dark eyes, from Kazakhstan, was sealed to them for time and eternity. Inspired children still tell parents “great and marvelous things” ([[3 Nephi 26.14|3 Ne. 26:14]]).
 
 Benjamin Ballam is the special spina bifida child of Michael and Laurie Ballam. He has been such a blessing to them and many others. Also spiritually precocious, Benjamin is a constant source of love and reassurance. Having had 17 surgeries, resilient Benjamin knows all about hospitals and doctors. Once, when an overwhelmed attendant became vocally upset—not at Benjamin, but over stressful circumstances—little three-year-old Benjamin exemplified the words of another Benjamin about our need to be childlike and “full of love” ([[Mosiah 3.19|Mosiah 3:19]]). Little Benjamin reached out, tenderly patted the irritated attendant, and said, “I love you anyway.” A similar episode occurred recently in an Israeli hospital, where little Benjamin, going through a necessary but very painful procedure, used the same loving words to reassure a physician. No wonder, brothers and sisters, in certain moments we feel children are our spiritual superiors.
 
@@ -63,8 +65,3 @@ I gladly testify to the truth of this work, and I witness to the wonder of it al
 
 
 
-
-
-
-
-#Children #Commitment #Criticism #Example #Faith #Jesus_Christ #Love #Restoration

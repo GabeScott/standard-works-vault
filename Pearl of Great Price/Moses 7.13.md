@@ -7,6 +7,6 @@
 
 [^a]: [[Faith|TG Faith]].  
 [^b]: [[Moses 6.32|Moses 6:32]].  
-[^c]: [[Matthew 17.20|Matt. 17:20]]; [[Luke 17.6|Luke 17:6 (5–6)]].  
+[^c]: [[Matthew 17.20|Matt. 17:20]]; [[Luke 17.5|Luke 17:6 (5–6)]][[Luke 17.6|]].  
 [^d]: [[Moses 6.34|Moses 6:34]].  
 [^e]: [[Priesthood, Power of|TG Priesthood, Power of]].  

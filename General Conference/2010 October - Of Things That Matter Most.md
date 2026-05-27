@@ -1,5 +1,7 @@
 # Of Things That Matter Most
 
+Thomas S. Monson
+
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2010 General Conference*
@@ -32,7 +34,7 @@ It is said that any virtue when taken to an extreme can become a vice. Oversched
 
 The wise understand and apply the lessons of tree rings and air turbulence. They resist the temptation to get caught up in the frantic rush of everyday life. They follow the advice “There is more to life than increasing its speed.”[^1] In short, they focus on the things that matter most.
 
-Elder Dallin H. Oaks, in a recent general conference, taught, “We have to forego some good things in order to choose others that are better or best because they develop faith in the Lord Jesus Christ and strengthen our families.”[^2]
+Elder Dallin H. Oaks, in a recent general conference, taught, “We have to forego some good things in order to choose others that are better or best because they develop faith in the Lord Jesus Christ and strengthen our families.”[^2]
 
 The search for the best things inevitably leads to the foundational principles of the gospel of Jesus Christ—the simple and beautiful truths revealed to us by a caring, eternal, and all-knowing Father in Heaven. These core doctrines and principles, though simple enough for a child to understand, provide the answers to the most complex questions of life.
 
@@ -89,30 +91,25 @@ Let us simplify our lives a little. Let us make the changes necessary to refocus
 
 [^1]: Mahatma Gandhi, in Larry Chang, comp., *Wisdom for the Soul* (2006), 356.
 
-[^2]: Dallin H. Oaks, in Conference Report, Oct. 2007, 113; or *Ensign,* Nov. 2007, 107.
+[^2]: Dallin H. Oaks, in Conference Report, Oct. 2007, [[2007 October - Good, Better, Best.md|113]]; or *Ensign,* Nov. 2007, 107.
 
 [^3]: Leonardo da Vinci, in John Cook, comp., *The Book of Positive Quotations,* 2nd ed. (1993), 262.
 
-[^4]: Vince Lombardi, in Donald T. Phillips, *Run to Win: Vince Lombardi on Coaching and Leadership* (2001), 92.
+[^4]: Vince Lombardi, in Donald T. Phillips, *Run to Win: Vince Lombardi on Coaching and Leadership* (2001), 92.
 
 [^5]: [[Luke 18.22|Luke 18:22]].
 
-[^6]: See [[1 Kings 19.12|1 Kings 19:12]].
+[^6]: See [[1 Kings 19.12|1 Kings 19:12]].
 
 [^7]: [[Mosiah 4.27|Mosiah 4:27]].
 
-[^8]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^8]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^9]: [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Ether 12.11|Ether 12:11]].
+[^9]: [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Ether 12.11|Ether 12:11]].
 
 [^10]: [[John 14.6|John 14:6]].
 
 [^11]: [[Psalms 46.10|Psalm 46:10]].
 
-[^12]: David O. McKay quoting J. E. McCulloch, *Home: The Savior of Civilization* (1924), 42; in Conference Report, Apr. 1935, 116.
+[^12]: David O. McKay quoting J. E. McCulloch, *Home: The Savior of Civilization* (1924), 42; in Conference Report, Apr. 1935, 116.
 
-
-
-
-
-#Family #Stress

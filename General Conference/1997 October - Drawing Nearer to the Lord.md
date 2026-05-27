@@ -1,5 +1,7 @@
 # Drawing Nearer to the Lord
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1997 General Conference*
@@ -37,8 +39,3 @@ May the blessings of the Lord attend us I humbly pray in the name of Jesus Chris
 
 
 
-
-
-
-
-#Example #Jesus_Christ #Joy #Pioneers

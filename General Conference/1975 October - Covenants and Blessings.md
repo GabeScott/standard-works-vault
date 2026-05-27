@@ -1,6 +1,8 @@
 # Covenants and Blessings
 
-By Elder William H. Bennett - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -16,7 +18,7 @@ In the midst of idolatry, Abraham continued to worship the true God and proved t
 
 The question might be asked, why were certain ones chosen to bear the priesthood and represent God in the earth as his special ministers? The prophet Alma gave this very convincing answer as recorded in the Book of Mormon:
 
-And this is the manner after which they were ordained—being called and prepared from the foundation of the world according to the foreknowledge of God, on account of their exceeding faith and good works; in the first place being left to choose good or evil; therefore they having chosen good, and exercising exceeding great faith, are called with a holy calling. …
+And this is the manner after which they were ordained—being called and prepared from the foundation of the world according to the foreknowledge of God, on account of their exceeding faith and good works; in the first place being left to choose good or evil; therefore they having chosen good, and exercising exceeding great faith, are called with a holy calling. …
 
 “And thus they have been called to this holy calling on account of their faith.” ([[Alma 13.3|Alma 13:3–4]][[Alma 13.4|]].)
 
@@ -24,7 +26,7 @@ Abraham, therefore, because of his premortal faithfulness, was permitted to be b
 
 “My name is Jehovah, and I know the end from the beginning; therefore my hand shall be over thee.
 
-“And I will make of thee a great nation, and I will bless thee above measure, and make thy name great among all nations, and thou shalt be a blessing unto thy seed after thee, that in their hands they shall bear this ministry and Priesthood unto all nations. …
+“And I will make of thee a great nation, and I will bless thee above measure, and make thy name great among all nations, and thou shalt be a blessing unto thy seed after thee, that in their hands they shall bear this ministry and Priesthood unto all nations. …
 
 “And I will bless them that bless thee, and curse them that curse thee; and in thee … and in thy seed … shall all the families of the earth be blessed, even with the blessings of the Gospel, which are the blessings of salvation, even of life eternal.”
 
@@ -40,7 +42,7 @@ The priesthood is worth more to us than any other possession. We who are priesth
 
 In section 86 of the Doctrine and Covenants, the Lord states the following: “Therefore, thus saith the Lord unto you, with whom the priesthood hath continued through the lineage of your fathers—
 
-“For ye are lawful heirs according to the flesh. …
+“For ye are lawful heirs according to the flesh. …
 
 “Therefore your life and the priesthood have remained, and must needs remain through you and your lineage until the restoration of all things spoken by the mouths of all the holy prophets since the world began.
 
@@ -54,7 +56,7 @@ The Book of Mormon contains the fulness of the gospel, and the law and doctrine 
 
 The law of the Sabbath was given to God’s people throughout their generations for a perpetual covenant as set forth in Exodus (see [[Exodus 31.16|Ex. 31:16]]) and which carried promises of both spiritual and temporal blessings (see [[D&C 59.9|D&C 59:9–20]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]][[D&C 59.13|]][[D&C 59.14|]][[D&C 59.15|]][[D&C 59.16|]][[D&C 59.17|]][[D&C 59.18|]][[D&C 59.19|]][[D&C 59.20|]]).
 
-By the ordinance of the sacrament, members renew their covenants with the Lord and receive again the assurance that by their faith and worthiness they will have the Holy Spirit to be with them to bless and guide them to eternal life. (See [[D&C 20.77|D&C 20:77, 79]][[D&C 20.79|]]; [[3 Nephi 18.7|3 Ne. 18:7, 11]][[3 Nephi 18.11|]]; [[Moroni 4.3|Moro. 4:3]]; [[Moroni 5.2|5:2]].)
+By the ordinance of the sacrament, members renew their covenants with the Lord and receive again the assurance that by their faith and worthiness they will have the Holy Spirit to be with them to bless and guide them to eternal life. (See [[D&C 20.77|D&C 20:77, 79]][[D&C 20.79|]]; [[3 Nephi 18.7|3 Ne. 18:7, 11]][[3 Nephi 18.11|]]; [[Moroni 4.3|Moro. 4:3]]; [[Moroni 5.2|5:2]].)
 
 Even the Word of Wisdom was given for a principle with a promise. (See [[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]].)
 
@@ -79,8 +81,3 @@ I leave you my testimony, my brothers and sisters, that this Church is led by a 
 
 
 
-
-
-
-
-#Blessings #Covenants

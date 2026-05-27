@@ -1,6 +1,8 @@
 # Seek Learning: You Have a Work to Do
 
-By Mary N. Cook - *First Counselor in the Young Women General Presidency*
+Thomas S. Monson
+
+By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -14,9 +16,9 @@ God gave you moral agency and the opportunity to learn while on earth, and He ha
 
 “Education … will open the doors of opportunity.”[^2] As you follow the Lord’s admonition to “seek learning, even by study and also by faith,”[^3] you gain not only knowledge from your study but added light as you learn by faith.
 
-Seek learning by studying diligently. Rarely will you be able to spend as much time dedicated to learning as you can now. President Gordon B. Hinckley wisely counseled the youth of the Church: “The pattern of study you establish during your formal schooling will in large measure affect your lifelong thirst for knowledge.”[^4] “You must get all of the education that you possibly can. … Sacrifice anything that is needed to be sacrificed to qualify yourselves to do the work of \[this\] world. … Train your minds and hands to become an influence for good as you go forward with your lives.”[^5]
+Seek learning by studying diligently. Rarely will you be able to spend as much time dedicated to learning as you can now. President Gordon B. Hinckley wisely counseled the youth of the Church: “The pattern of study you establish during your formal schooling will in large measure affect your lifelong thirst for knowledge.”[^4] “You must get all of the education that you possibly can. … Sacrifice anything that is needed to be sacrificed to qualify yourselves to do the work of \[this\] world. … Train your minds and hands to become an influence for good as you go forward with your lives.”[^5]
 
-In speaking specifically to women, President Thomas S. Monson said: “Often the future is unknown; therefore, it behooves us to prepare for uncertainties. … I urge you to pursue your education and learn marketable skills so that, should such a situation arise, you are prepared to provide.”[^6]
+In speaking specifically to women, President Thomas S. Monson said: “Often the future is unknown; therefore, it behooves us to prepare for uncertainties. … I urge you to pursue your education and learn marketable skills so that, should such a situation arise, you are prepared to provide.”[^6]
 
 Young women, follow the advice of these wise and inspired prophets. Be a good student. Arise and shine forth in your schools with hard work, honesty, and integrity. If you are struggling or discouraged with your performance in school, seek help from your parents, teachers, and helpful Church members. Never give up!
 
@@ -67,21 +69,21 @@ I testify that our Father in Heaven does know and love you. He has placed great 
 
 
 
-[^1]: Gordon B. Hinckley, “Reaching Down to Lift Another,” *Liahona,* Jan. 2002, 67; *Ensign,* Nov. 2001, 54.
+[^1]: Gordon B. Hinckley, “Reaching Down to Lift Another,” *Liahona,* Jan. 2002, 67; *Ensign,* Nov. 2001, 54.
 
 [^2]: *For the Strength of Youth* (booklet, 2011), 9.
 
 [^3]: [[D&C 88.118|Doctrine and Covenants 88:118]].
 
-[^4]: Gordon B. Hinckley, *Way to Be! Nine Ways to Be Happy and Make Something of Your Life* (2002), 28.
+[^4]: Gordon B. Hinckley, *Way to Be! Nine Ways to Be Happy and Make Something of Your Life* (2002), 28.
 
-[^5]: Gordon B. Hinckley, “Seek Learning,” *New Era,* Sept. 2007, 2, 4.
+[^5]: Gordon B. Hinckley, “Seek Learning,” *New Era,* Sept. 2007, 2, 4.
 
-[^6]: Thomas S. Monson, “If Ye Are Prepared Ye Shall Not Fear,” *Liahona* and *Ensign,* Nov. 2004, 116.
+[^6]: Thomas S. Monson, “If Ye Are Prepared Ye Shall Not Fear,” *Liahona* and *Ensign,* Nov. 2004, 116.
 
 [^7]: *For the Strength of Youth,* 9.
 
-[^8]: Cheryl Hanewicz and Susan R. Madsen, “The Influence of a Mother on a Daughter’s College Decision,” *Utah Women and Education Project Research Snapshots,* no. 3 (Jan. 2011): 1.
+[^8]: Cheryl Hanewicz and Susan R. Madsen, “The Influence of a Mother on a Daughter’s College Decision,” *Utah Women and Education Project Research Snapshots,* no. 3 (Jan. 2011): 1.
 
 [^9]: Marjorie Cortez, “Mom’s Education Key to Halt Poverty Cycle,” *Deseret News,* Sept. 23, 2011, A1.
 
@@ -93,12 +95,7 @@ I testify that our Father in Heaven does know and love you. He has placed great 
 
 [^13]: [[Matthew 25.8|Matthew 25:8–10]][[Matthew 25.9|]][[Matthew 25.10|]].
 
-[^14]: Henry B. Eyring, “Education for Real Life,” *Ensign,* Oct. 2002, 18.
+[^14]: Henry B. Eyring, “Education for Real Life,” *Ensign,* Oct. 2002, 18.
 
-[^15]: M. Russell Ballard, “Preparing for the Future,” *Ensign,* Sept. 2011, 27.
+[^15]: M. Russell Ballard, “Preparing for the Future,” *Ensign,* Sept. 2011, 27.
 
-
-
-
-
-#Education #Holy_Ghost #Motherhood

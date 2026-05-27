@@ -1,6 +1,8 @@
 # Catch the Wave
 
-By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/04/catch-the-wave?lang=eng)
 
-Dear brothers and sisters, I add my voice to that of President Thomas S. Monson and others in praising those who have responded to a prophet’s call for more worthy missionaries. Now an unprecedented wave of enthusiasm for missionary work is sweeping the entire earth. Since President Monson’s historic announcement last October, thousands of elders, sisters, and couples have been called, and many more are preparing.[^1] Now we get questions like “What are you going to do with all these missionaries?” The answer is simple. They will do what missionaries have always done. They will preach the gospel! They will bless the children of Almighty God!
+Dear brothers and sisters, I add my voice to that of President Thomas S. Monson and others in praising those who have responded to a prophet’s call for more worthy missionaries. Now an unprecedented wave of enthusiasm for missionary work is sweeping the entire earth. Since President Monson’s historic announcement last October, thousands of elders, sisters, and couples have been called, and many more are preparing.[^1] Now we get questions like “What are you going to do with all these missionaries?” The answer is simple. They will do what missionaries have always done. They will preach the gospel! They will bless the children of Almighty God!
 
 More of you young men and women will catch this wave as you strive to be worthy of mission calls. You see this as a wave of truth and righteousness. You see your opportunity to be on the crest of that wave.
 
@@ -65,15 +67,15 @@ I thank God and His Son, Jesus Christ, for the Restoration and its power to prop
 
 
 
-[^1]: See Thomas S. Monson, “Welcome to Conference,” *Ensign* or *Liahona,* Nov. 2012, 4–5.
+[^1]: See Thomas S. Monson, “Welcome to Conference,” *Ensign* or *Liahona,* Nov. 2012, 4–5.
 
-[^2]: See [[1 Peter 3.15|1 Peter 3:15]].
+[^2]: See [[1 Peter 3.15|1 Peter 3:15]].
 
-[^3]: See Thomas S. Monson, “It’s Conference Once Again,” *Ensign* or *Liahona,* May 2011, 6.
+[^3]: See Thomas S. Monson, “It’s Conference Once Again,” *Ensign* or *Liahona,* May 2011, 6.
 
 [^4]: See *Handbook 2: Administering the Church* (2010), 5.1.
 
-[^5]: We are grateful for Saints who are sincerely striving for consecration. They are trying to be more holy. They seek “first to build up the kingdom of God, and to establish his righteousness” ([[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]] \[in [[Matthew 6.note33a|Matthew 6:33, footnote a]]\]).
+[^5]: We are grateful for Saints who are sincerely striving for consecration. They are trying to be more holy. They seek “first to build up the kingdom of God, and to establish his righteousness” ([[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]] \[in [Matthew 6:33, footnote a](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a)\]).
 
 [^6]: See “Families Can Be Together Forever,” *Hymns,* no. 300; additional clarification is found in [[D&C 132.7|Doctrine and Covenants 132:7, 19]][[D&C 132.19|]].
 
@@ -85,17 +87,17 @@ I thank God and His Son, Jesus Christ, for the Restoration and its power to prop
 
 [^10]: See [[Moses 1.39|Moses 1:39]].
 
-[^11]: See [[Matthew 17.11|Matthew 17:11]]; [[Acts 3.20|Acts 3:20–21]][[Acts 3.21|]]; [[Ephesians 1.10|Ephesians 1:10]]; [[2 Nephi 30.8|2 Nephi 30:8]]; [[D&C 132.40|Doctrine and Covenants 132:40, 45]][[D&C 132.45|]].
+[^11]: See [[Matthew 17.11|Matthew 17:11]]; [[Acts 3.20|Acts 3:20–21]][[Acts 3.21|]]; [[Ephesians 1.10|Ephesians 1:10]]; [[2 Nephi 30.8|2 Nephi 30:8]]; [[D&C 132.40|Doctrine and Covenants 132:40, 45]][[D&C 132.45|]].
 
-[^12]: See [[3 Nephi 27.13|3 Nephi 27:13–14, 21]][[3 Nephi 27.14|]][[3 Nephi 27.21|]]; [[D&C 39.6|Doctrine and Covenants 39:6]]; [[Articles of Faith 1.4|Articles of Faith 1:4]].
+[^12]: See [[3 Nephi 27.13|3 Nephi 27:13–14, 21]][[3 Nephi 27.14|]][[3 Nephi 27.21|]]; [[D&C 39.6|Doctrine and Covenants 39:6]]; [[Articles of Faith 1.4|Articles of Faith 1:4]].
 
-[^13]: See Karl R. Anderson, *The Savior in Kirtland* (2012), 228–43.
+[^13]: See Karl R. Anderson, *The Savior in Kirtland* (2012), 228–43.
 
 [^14]: See [[D&C 27.5|Doctrine and Covenants 27:5]]; see also [[Joseph Smith History 1.33|Joseph Smith—History 1:33–34]][[Joseph Smith History 1.34|]].
 
-[^15]: See [[D&C verse=1#p1.html/verse=1|Doctrine and Covenants 13:1]].
+[^15]: See [Doctrine and Covenants 13:1](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/13?lang=eng&id=html/verse=1#p1).
 
-[^16]: See [[D&C 20.2|Doctrine and Covenants 20:2–3]][[D&C 20.3|]]; [[D&C 27.12|27:12]]; [[D&C 128.20|128:20]]; see also Larry C. Porter, “Dating the Restoration of the Melchizedek Priesthood,” *Ensign,* June 1979, 4–10.
+[^16]: See [[D&C 20.2|Doctrine and Covenants 20:2–3]][[D&C 20.3|]]; [[D&C 27.12|27:12]]; [[D&C 128.20|128:20]]; see also Larry C. Porter, “Dating the Restoration of the Melchizedek Priesthood,” *Ensign,* June 1979, 4–10.
 
 [^17]: See [[D&C 110.11|Doctrine and Covenants 110:11]].
 
@@ -103,11 +105,11 @@ I thank God and His Son, Jesus Christ, for the Restoration and its power to prop
 
 [^19]: See [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-[^20]: See [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]], especially [[Alma 42.8|verse 8]].
+[^20]: See [[Alma 42.1|Alma 42]], especially [[Alma 42.8|verse 8]].
 
 [^21]: See, for example, [[Alma 12.28|Alma 12:28–30]][[Alma 12.29|]][[Alma 12.30|]].
 
-[^22]: See, for example, [[1 Corinthians 15.22|1 Corinthians 15:22]]; [[Alma 34.9|Alma 34:9]].
+[^22]: See, for example, [[1 Corinthians 15.22|1 Corinthians 15:22]]; [[Alma 34.9|Alma 34:9]].
 
 [^23]: See [[Isaiah 2.2|Isaiah 2:2]].
 
@@ -119,7 +121,7 @@ I thank God and His Son, Jesus Christ, for the Restoration and its power to prop
 
 [^27]: See [[Ezekiel 37.16|Ezekiel 37:16, 19]][[Ezekiel 37.19|]]; [[D&C 27.5|Doctrine and Covenants 27:5]].
 
-[^28]: See [[1 Corinthians 15.29|1 Corinthians 15:29]]; [[D&C 128.1|Doctrine and Covenants 128]][[D&C 128.2|]][[D&C 128.3|]][[D&C 128.4|]][[D&C 128.5|]][[D&C 128.6|]][[D&C 128.7|]][[D&C 128.8|]][[D&C 128.9|]][[D&C 128.10|]][[D&C 128.11|]][[D&C 128.12|]][[D&C 128.13|]][[D&C 128.14|]][[D&C 128.15|]][[D&C 128.16|]][[D&C 128.17|]][[D&C 128.18|]][[D&C 128.19|]][[D&C 128.20|]][[D&C 128.21|]][[D&C 128.22|]][[D&C 128.23|]][[D&C 128.24|]][[D&C 128.25|]].
+[^28]: See [[1 Corinthians 15.29|1 Corinthians 15:29]]; [[D&C 128.1|Doctrine and Covenants 128]][[D&C 128.2|]][[D&C 128.3|]][[D&C 128.4|]][[D&C 128.5|]][[D&C 128.6|]][[D&C 128.7|]][[D&C 128.8|]][[D&C 128.9|]][[D&C 128.10|]][[D&C 128.11|]][[D&C 128.12|]][[D&C 128.13|]][[D&C 128.14|]][[D&C 128.15|]][[D&C 128.16|]][[D&C 128.17|]][[D&C 128.18|]][[D&C 128.19|]][[D&C 128.20|]][[D&C 128.21|]][[D&C 128.22|]][[D&C 128.23|]][[D&C 128.24|]][[D&C 128.25|]].
 
 [^29]: See [[D&C 137.7|Doctrine and Covenants 137:7]]; [[D&C 138.31|138:31–34]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]].
 
@@ -131,10 +133,5 @@ I thank God and His Son, Jesus Christ, for the Restoration and its power to prop
 
 [^33]: See [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].
 
-[^34]: [[Revelation 14.6|Revelation 14:6]]; see also [[1 Nephi 19.17|1 Nephi 19:17]]; [[D&C 133.37|Doctrine and Covenants 133:37]].
+[^34]: [[Revelation 14.6|Revelation 14:6]]; see also [[1 Nephi 19.17|1 Nephi 19:17]]; [[D&C 133.37|Doctrine and Covenants 133:37]].
 
-
-
-
-
-#Book_Of_Mormon #Missionary_Work #Restoration

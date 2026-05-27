@@ -1,6 +1,5 @@
 # Handle
 
-
 it is I myself: *handle* me, and see, [[Luke 24.39|Luke 24:39]].
 
 nor *handling* the word of God deceitfully, [[2 Corinthians 4.2|2 Corinthians 4:2]].

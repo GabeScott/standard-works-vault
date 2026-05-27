@@ -1,5 +1,7 @@
 # “This Do in Remembrance of Me”
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -12,17 +14,17 @@ The setting was Jerusalem. The season was that of the Passover, a celebration ri
 
 Now, after all those years and all those prophecies and all those symbolic offerings, the type and shadow was to become reality. On this night when Jesus’ mortal ministry was concluding, the declaration made by John the Baptist when that ministry had begun now meant more than ever—“Behold the Lamb of God” ([[John 1.29|John 1:29]]).
 
-As a final and specially prepared Passover supper was ending, Jesus took bread, blessed and broke it, and gave it to His Apostles, saying, “Take, eat” ([[Matthew 26.26|Matt. 26:26]]). “This is my body which is given for you: this do in remembrance of me” ([[Luke 22.19|Luke 22:19]]). In a similar manner He took the cup of wine, traditionally diluted with water, said a blessing of thanks for it, and passed it to those gathered about Him, saying: “This cup is the new testament in my blood,” “which is shed … for the remission of sins.” “This do in remembrance of me.” “For as often as ye eat this bread, and drink this cup, ye do shew the Lord’s death till he come” ([[Luke 22.20|Luke 22:20]]; [[Matthew 26.28|Matt. 26:28]]; [[Luke 22.19|Luke 22:19]]; [[1 Corinthians 11.26|1 Cor. 11:26]]).
+As a final and specially prepared Passover supper was ending, Jesus took bread, blessed and broke it, and gave it to His Apostles, saying, “Take, eat” ([[Matthew 26.26|Matt. 26:26]]). “This is my body which is given for you: this do in remembrance of me” ([[Luke 22.19|Luke 22:19]]). In a similar manner He took the cup of wine, traditionally diluted with water, said a blessing of thanks for it, and passed it to those gathered about Him, saying: “This cup is the new testament in my blood,” “which is shed … for the remission of sins.” “This do in remembrance of me.” “For as often as ye eat this bread, and drink this cup, ye do shew the Lord’s death till he come” ([[Luke 22.20|Luke 22:20]]; [[Matthew 26.28|Matt. 26:28]]; [[Luke 22.19|Luke 22:19]]; [[1 Corinthians 11.26|1 Cor. 11:26]]).
 
 Since that upper room experience on the eve of Gethsemane and Golgotha, children of the promise have been under covenant to remember Christ’s sacrifice in this newer, higher, more holy and personal way.
 
 With a crust of bread, always broken, blessed, and offered first, we remember His bruised body and broken heart, His physical suffering on the cross where He cried, “I thirst,” and finally, “My God, my God, why hast thou forsaken me?” ([[John 19.28|John 19:28]]; [[Matthew 27.46|Matt. 27:46]]).
 
-The Savior’s physical suffering guarantees that through His mercy and grace (see [[2 Nephi 2.8|2 Ne. 2:8]]) every member of the human family shall be freed from the bonds of death and be resurrected triumphantly from the grave. Of course the time of that resurrection and the degree of exaltation it leads to are based upon our faithfulness.
+The Savior’s physical suffering guarantees that through His mercy and grace (see [[2 Nephi 2.8|2 Ne. 2:8]]) every member of the human family shall be freed from the bonds of death and be resurrected triumphantly from the grave. Of course the time of that resurrection and the degree of exaltation it leads to are based upon our faithfulness.
 
 With a small cup of water we remember the shedding of Christ’s blood and the depth of His spiritual suffering, anguish which began in the Garden of Gethsemane. There He said, “My soul is exceeding sorrowful, even unto death” ([[Matthew 26.38|Matt. 26:38]]). He was in agony and “prayed more earnestly: and his sweat was as it were great drops of blood falling down to the ground” ([[Luke 22.44|Luke 22:44]]).
 
-The Savior’s spiritual suffering and the shedding of His innocent blood, so lovingly and freely given, paid the debt for what the scriptures call the “original guilt” of Adam’s transgression ([[Moses 6.54|Moses 6:54]]). Furthermore, Christ suffered for the sins and sorrows and pains of all the rest of the human family, providing remission for all of our sins as well, upon conditions of obedience to the principles and ordinances of the gospel He taught (see [[2 Nephi 9.21|2 Ne. 9:21–23]][[2 Nephi 9.22|]][[2 Nephi 9.23|]]). As the Apostle Paul wrote, we were “bought with a price” ([[1 Corinthians 6.20|1 Cor. 6:20]]). What an expensive price and what a merciful purchase!
+The Savior’s spiritual suffering and the shedding of His innocent blood, so lovingly and freely given, paid the debt for what the scriptures call the “original guilt” of Adam’s transgression ([[Moses 6.54|Moses 6:54]]). Furthermore, Christ suffered for the sins and sorrows and pains of all the rest of the human family, providing remission for all of our sins as well, upon conditions of obedience to the principles and ordinances of the gospel He taught (see [[2 Nephi 9.21|2 Ne. 9:21–23]][[2 Nephi 9.22|]][[2 Nephi 9.23|]]). As the Apostle Paul wrote, we were “bought with a price” ([[1 Corinthians 6.20|1 Cor. 6:20]]). What an expensive price and what a merciful purchase!
 
 That is why every ordinance of the gospel focuses in one way or another on the atonement of the Lord Jesus Christ, and surely that is why this particular ordinance with all its symbolism and imagery comes to us more readily and more repeatedly than any other in our life. It comes in what has been called “the *most sacred,* the *most holy,* of all the meetings of the Church” (Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. \[Salt Lake City: Bookcraft, 1954–56\], 2:340).
 
@@ -44,7 +46,7 @@ In that sacred setting we ask you young men of the Aaronic Priesthood to prepare
 
 May I suggest that wherever possible a white shirt be worn by the deacons, teachers, and priests who handle the sacrament. For sacred ordinances in the Church we often use ceremonial clothing, and a white shirt could be seen as a gentle reminder of the white clothing you wore in the baptismal font and an anticipation of the white shirt you will soon wear into the temple and on your missions.
 
-That simple suggestion is not intended to be pharisaic or formalistic. We do not want deacons or priests in uniforms or unduly concerned about anything but the purity of their lives. But how our young people dress can teach a holy principle to us all, and it certainly can convey sanctity. As President David O. McKay taught, a white shirt contributes to the sacredness of the holy sacrament (see Conference Report, Oct. 1956, p. 89).
+That simple suggestion is not intended to be pharisaic or formalistic. We do not want deacons or priests in uniforms or unduly concerned about anything but the purity of their lives. But how our young people dress can teach a holy principle to us all, and it certainly can convey sanctity. As President David O. McKay taught, a white shirt contributes to the sacredness of the holy sacrament (see Conference Report, Oct. 1956, p. 89).
 
 In the simple and beautiful language of the sacramental prayers those young priests offer, the principal word we hear seems to be *remember.* In the first and slightly longer prayer offered over the bread, mention is made of a willingness to take upon us the name of the Son of God and to keep the commandments He has given us.
 
@@ -58,7 +60,7 @@ We could remember the simple grandeur of His mortal birth to just a young woman,
 
 We could remember His magnificent but virtually unknown foster father, a humble carpenter by trade who taught us, among other things, that quiet, plain, unpretentious people have moved this majestic work forward from the very beginning, and still do so today. If you are serving almost anonymously, please know that so, too, did one of the best men who has ever lived on this earth.
 
-We could remember Christ’s miracles and His teachings, His healings and His help. We could remember that He gave sight to the blind and hearing to the deaf and motion to the lame and the maimed and the withered. Then, on those days when we feel our progress has halted or our joys and views have grown dim, we can press forward steadfastly in Christ, with unshaken faith in Him and a perfect brightness of hope (see [[2 Nephi 31.19|2 Ne. 31:19–20]][[2 Nephi 31.20|]]).
+We could remember Christ’s miracles and His teachings, His healings and His help. We could remember that He gave sight to the blind and hearing to the deaf and motion to the lame and the maimed and the withered. Then, on those days when we feel our progress has halted or our joys and views have grown dim, we can press forward steadfastly in Christ, with unshaken faith in Him and a perfect brightness of hope (see [[2 Nephi 31.19|2 Ne. 31:19–20]][[2 Nephi 31.20|]]).
 
 We could remember that even with such a solemn mission given to Him, the Savior found delight in living; He enjoyed people and told His disciples to be of good cheer. He said we should be as thrilled with the gospel as one who had found a great treasure, a veritable pearl of great price, right on our own doorstep. We could remember that Jesus found special joy and happiness in children and said all of us should be more like them—guileless and pure, quick to laugh and to love and to forgive, slow to remember any offense.
 
@@ -66,7 +68,7 @@ We could remember that Christ called His disciples friends and that friends are 
 
 We could—and should—remember the wonderful things that have come to us in our lives and that “all things which are good cometh of Christ” ([[Moroni 7.24|Moro. 7:24]]). Those of us who are so blessed could remember the courage of those around us who face more difficulty than we but who remain cheerful, who do the best they can, and trust that the Bright and Morning Star will rise again for them—as surely He will do (see [[Revelation 22.16|Rev. 22:16]]).
 
-On some days we will have cause to remember the unkind treatment He received, the rejection He experienced, and the injustice—oh, the injustice—He endured. When we, too, then face some of that in life, we can remember that Christ was also troubled on every side, but not distressed; perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed (see [[2 Corinthians 4.8|2 Cor. 4:8–9]][[2 Corinthians 4.9|]]).
+On some days we will have cause to remember the unkind treatment He received, the rejection He experienced, and the injustice—oh, the injustice—He endured. When we, too, then face some of that in life, we can remember that Christ was also troubled on every side, but not distressed; perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed (see [[2 Corinthians 4.8|2 Cor. 4:8–9]][[2 Corinthians 4.9|]]).
 
 When those difficult times come to us, we can remember that Jesus had to descend below all things before He could ascend above them, and that He suffered pains and afflictions and temptations of every kind that He might be filled with mercy and know how to succor His people in their infirmities (see [[D&C 88.6|D&C 88:6]]; [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]).
 
@@ -74,7 +76,7 @@ To those who stagger or stumble, He is there to steady and strengthen us. In the
 
 In fact, in a resurrected, otherwise perfected body, our Lord of this sacrament table has chosen to retain for the benefit of His disciples the wounds in His hands and His feet and His side—signs, if you will, that painful things happen even to the pure and perfect; signs, if you will, that pain in this world is *not* evidence that God doesn’t love you. It is the *wounded* Christ who is the captain of our soul—He who yet bears the scars of sacrifice, the lesions of love and humility and forgiveness.
 
-Those wounds are what He invites young and old, then and now, to step forward and see and feel (see [[3 Nephi 11.15|3 Ne. 11:15]]; [[3 Nephi 18.25|18:25]]). Then we remember with Isaiah that it was for each of us that our Master was “despised and rejected … ; a man of sorrows, and acquainted with grief” ([[Isaiah 53.3|Isa. 53:3]]). All this we could remember when we are invited by a kneeling young priest to remember Christ always.
+Those wounds are what He invites young and old, then and now, to step forward and see and feel (see [[3 Nephi 11.15|3 Ne. 11:15]]; [[3 Nephi 18.25|18:25]]). Then we remember with Isaiah that it was for each of us that our Master was “despised and rejected … ; a man of sorrows, and acquainted with grief” ([[Isaiah 53.3|Isa. 53:3]]). All this we could remember when we are invited by a kneeling young priest to remember Christ always.
 
 We no longer include a supper with this ordinance, but it is a feast nevertheless. We can be fortified by it for whatever life requires of us, and in so doing we will be more compassionate to others along the way.
 
@@ -91,8 +93,3 @@ One request Christ made of His disciples on that night of deep anguish and grief
 
 
 
-
-
-
-
-#Atonement #Church_Meetings #Covenants #Jesus_Christ #Music #Passover #Prayer #Priesthood #Sacrament

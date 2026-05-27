@@ -1,12 +1,14 @@
 # The Spark of Faith
 
+Ezra Taft Benson
+
 By Bishop Henry B. Eyring - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1986 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1986/10/the-spark-of-faith?lang=eng)
 
-At the close of the last general conference, President Benson said this: “I bless you with increased *understanding* of the Book of Mormon. I promise you that from this moment forward, if we will daily sup from its pages and abide by its precepts, God will pour out upon each child of Zion and the Church a blessing hitherto unknown” (in Conference Report, Apr. 1986, p. 100; or *Ensign,* May 1986, p. 78).
+At the close of the last general conference, President Benson said this: “I bless you with increased *understanding* of the Book of Mormon. I promise you that from this moment forward, if we will daily sup from its pages and abide by its precepts, God will pour out upon each child of Zion and the Church a blessing hitherto unknown” (in Conference Report, Apr. 1986, [[1986 April - A Sacred Responsibility.md|p. 100]]; or *Ensign,* May 1986, p. 78).
 
 I bear my testimony that I have been blessed as He promised, and I have seen new blessings come to people I love. I am grateful that God honors the promises he makes through his prophet.
 
@@ -14,7 +16,7 @@ Even as I feel that gratitude, I think of those whose hearts ache over promises 
 
 Fifty years ago, in October conference, President J. Reuben Clark, Jr., of the First Presidency, gave this answer, which I carry copied on a card:
 
-“It is my hope and my belief that the Lord never permits the light of faith wholly to be extinguished in any human heart, however faint the light may glow. The Lord has provided that there shall still be there a spark which, with teaching, with the spirit of righteousness, with love, with tenderness, with example, with living the Gospel, shall brighten and glow again, however darkened the mind may have been. And if we shall fail so to reach those among us of our own whose faith has dwindled low, we shall fail in one of the main things which the Lord expects at our hands” (in Conference Report, Oct. 1936, p. 114).
+“It is my hope and my belief that the Lord never permits the light of faith wholly to be extinguished in any human heart, however faint the light may glow. The Lord has provided that there shall still be there a spark which, with teaching, with the spirit of righteousness, with love, with tenderness, with example, with living the Gospel, shall brighten and glow again, however darkened the mind may have been. And if we shall fail so to reach those among us of our own whose faith has dwindled low, we shall fail in one of the main things which the Lord expects at our hands” (in Conference Report, Oct. 1936, p. 114).
 
 That lovely metaphor—of a spark, a spark of faith—gives me confidence. President Clark pictured the spark nearly hidden, almost smothered by the ashes of transgression. It may be so small that the person can’t feel its warmth. The heart may be hardened. Even the Holy Spirit may have been forced to withdraw. But the spark still lives, and glows, and may be fanned to flame.
 
@@ -63,8 +65,3 @@ I bear my testimony that God lives, Jesus is the Christ, and in this dispensatio
 
 
 
-
-
-
-
-#Atonement #Faith #Jesus_Christ #Repentance

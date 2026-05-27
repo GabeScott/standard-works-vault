@@ -1,6 +1,8 @@
 # Am I Good Enough? Will I Make It?
 
-By Elder J. Devn Cornish - *Of the Seventy*
+Jean B. Bingham
+
+By Elder J. Devn Cornish - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -24,15 +26,15 @@ Please, my beloved brothers and sisters, we must stop comparing ourselves to oth
 
 Let me be direct and clear. The answers to the questions “Am I good enough?” and “Will I make it?” are “Yes! You are going to be good enough” and “Yes, you are going to make it as long as you keep repenting and do not rationalize or rebel.” The God of heaven is not a heartless referee looking for any excuse to throw us out of the game. He is our perfectly loving Father, who yearns more than anything else to have all of His children come back home and live with Him as families forever. He truly gave His Only Begotten Son that we might not perish but have everlasting life![^1] Please believe, and please take hope and comfort from, this eternal truth. Our Heavenly Father intends for us to make it! That is His work and His glory.[^2]
 
-I love the way President Gordon B. Hinckley used to teach this principle. I heard him say on several occasions, “Brothers and sisters, all the Lord expects of us is to try, but you have to *really* try!”[^3]
+I love the way President Gordon B. Hinckley used to teach this principle. I heard him say on several occasions, “Brothers and sisters, all the Lord expects of us is to try, but you have to *really* try!”[^3]
 
 “Really trying” means doing the best we can, recognizing where we need to improve, and then trying again. By repeatedly doing this, we come closer and closer to the Lord, we feel His Spirit more and more,[^4] and we receive more of His grace, or help.[^5]
 
-I sometimes think we don’t recognize how very much the Lord wants to help us. I love the words of Elder David A. Bednar, who said:
+I sometimes think we don’t recognize how very much the Lord wants to help us. I love the words of Elder David A. Bednar, who said:
 
-“Most of us clearly understand that the Atonement is for sinners. I am not so sure, however, that we know and understand that the Atonement is also for saints. …
+“Most of us clearly understand that the Atonement is for sinners. I am not so sure, however, that we know and understand that the Atonement is also for saints. …
 
-“… The Atonement provides help for us to overcome and avoid bad and to do and become good. …
+“… The Atonement provides help for us to overcome and avoid bad and to do and become good. …
 
 “‘*… It is … through the grace of the Lord that individuals … receive strength and assistance to do good works that they otherwise would not be able to \[do\]. … This grace is an enabling power …*’ \[Bible Dictionary, “Grace”; emphasis added\] … or heavenly help each of us desperately needs to qualify for the celestial kingdom.”[^6]
 
@@ -46,7 +48,7 @@ And the Lord Himself said of the sinner:
 
 “Yea, and as often as my people repent will I forgive them their trespasses against me.”[^8]
 
-If we will sincerely repent, God really will forgive us, even when we have committed the same sin over and over again. As Elder Jeffrey R. Holland said: “However many chances you think you have missed, however many mistakes you feel you have made … , I testify that you have *not* traveled beyond the reach of divine love. It is not possible for you to sink lower than the infinite light of Christ’s Atonement shines.”[^9]
+If we will sincerely repent, God really will forgive us, even when we have committed the same sin over and over again. As Elder Jeffrey R. Holland said: “However many chances you think you have missed, however many mistakes you feel you have made … , I testify that you have *not* traveled beyond the reach of divine love. It is not possible for you to sink lower than the infinite light of Christ’s Atonement shines.”[^9]
 
 This does not mean in any way that sin is OK. Sin always has consequences. Sin always harms and hurts both the sinner and those affected by his or her sins. And true repentance is never easy.[^10] Moreover, please understand that even though God takes away the guilt and stain of our sins when we sincerely repent, He may not immediately take away all of the consequences of our sins. Sometimes they remain with us for the rest of our lives. And the worst kind of sin is premeditated sin, where one says, “I can sin now and repent later.” I believe that this is a solemn mockery of the sacrifice and sufferings of Jesus Christ.
 
@@ -71,19 +73,19 @@ I witness to you that if you will really try and will not rationalize or rebel�
 
 [^2]: See [[Moses 1.39|Moses 1:39]].
 
-[^3]: This exact phrasing from President Hinckley does not appear in print, but the following is recorded: “Just do the best you can, but be sure it is your very best” (“A Challenging Time—a Wonderful Time,” *Teaching Seminary: Preservice Readings* \[Church Educational System manual, 2004\], 18). He also said: “Please don’t nag yourself with thoughts of failure. Do not set goals far beyond your capacity to achieve. Simply do what you can do, in the best way you know, and the Lord will accept of your effort” (“[Rise to the Stature of the Divine within You](https://churchofjesuschrist.org/study/ensign/1989/11/rise-to-the-stature-of-the-divine-within-you?lang=eng),” *Ensign,* Nov. 1989, 96).
+[^3]: This exact phrasing from President Hinckley does not appear in print, but the following is recorded: “Just do the best you can, but be sure it is your very best” (“A Challenging Time—a Wonderful Time,” *Teaching Seminary: Preservice Readings* \[Church Educational System manual, 2004\], 18). He also said: “Please don’t nag yourself with thoughts of failure. Do not set goals far beyond your capacity to achieve. Simply do what you can do, in the best way you know, and the Lord will accept of your effort” (“[Rise to the Stature of the Divine within You](https://www.churchofjesuschrist.org/study/ensign/1989/11/rise-to-the-stature-of-the-divine-within-you?lang=eng),” *Ensign,* Nov. 1989, 96).
 
 [^4]: See [[D&C 50.24|Doctrine and Covenants 50:24]].
 
 [^5]: See [[Ether 12.27|Ether 12:27]].
 
-[^6]: David A. Bednar, “[The Atonement and the Journey of Mortality](https://churchofjesuschrist.org/study/liahona/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng),” *Ensign,* Apr. 2012, 42; *Liahona,* Apr. 2012, 14.
+[^6]: David A. Bednar, “[The Atonement and the Journey of Mortality](https://www.churchofjesuschrist.org/study/liahona/2012/04/the-atonement-and-the-journey-of-mortality?lang=eng),” *Ensign,* Apr. 2012, 42; *Liahona,* Apr. 2012, 14.
 
 [^7]: [[Moroni 6.8|Moroni 6:8]].
 
 [^8]: [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]].
 
-[^9]: Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona,* May 2012, 33.
+[^9]: Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona,* May 2012, 33.
 
 [^10]: See [[D&C 19.15|Doctrine and Covenants 19:15–19]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]].
 
@@ -93,10 +95,5 @@ I witness to you that if you will really try and will not rationalize or rebel�
 
 [^13]: See [[Moses 4.3|Moses 4:3]].
 
-[^14]: See [[2 Nephi 2.6|2 Nephi 2:6–8]][[2 Nephi 2.7|]][[2 Nephi 2.8|]].
+[^14]: See [[2 Nephi 2.6|2 Nephi 2:6–8]][[2 Nephi 2.7|]][[2 Nephi 2.8|]].
 
-
-
-
-
-#Atonement #Jesus_Christ #Repentance

@@ -1,5 +1,7 @@
 # The Weak and the Simple of the Church
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -22,7 +24,7 @@ There is another principle unique to the Lord’s Church. All positions to teach
 
 “The weak things of the world shall come forth and break down the mighty and strong ones, …
 
-“… That every man might speak in the name of God the Lord, even the Savior of the world;
+“… That every man might speak in the name of God the Lord, even the Savior of the world;
 
 “That faith also might increase in the earth;
 
@@ -76,7 +78,7 @@ That puzzled me greatly, for I had supposed that someone called to such an offic
 
 It puzzled me for a long time until finally I could see that I already had what was required: an abiding testimony in my heart of the Restoration of the fulness of the gospel through the Prophet Joseph Smith, that we have a Heavenly Father, and that Jesus Christ is our Redeemer. I may not have known all about it, but I did have a testimony, and I was willing to learn.
 
-I was perhaps no different from those spoken of in the Book of Mormon: “And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost, even as the Lamanites, because of their faith in me at the time of their conversion, were baptized with fire and with the Holy Ghost, *and they knew it not*” ([[3 Nephi 9.20|3 Nephi 9:20]]; emphasis added).
+I was perhaps no different from those spoken of in the Book of Mormon: “And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost, even as the Lamanites, because of their faith in me at the time of their conversion, were baptized with fire and with the Holy Ghost, *and they knew it not*” ([[3 Nephi 9.20|3 Nephi 9:20]]; emphasis added).
 
 Over the years I have come to see how powerfully important that simple testimony is. I have come to understand that our Heavenly Father is the Father of our spirits (see [[Numbers 16.22|Numbers 16:22]]; [[Hebrews 12.9|Hebrews 12:9]]; [[D&C 93.29|D&C 93:29]]). He is a father with all the tender love of a father. Jesus said, “For the Father himself loveth you, because ye have loved me, and have believed that I came out from God” ([[John 16.27|John 16:27]]).
 
@@ -107,8 +109,3 @@ I bear witness that the gospel is true and that the worth of souls is great in t
 
 
 
-
-
-
-
-#Individual_Worth #Leadership #Service

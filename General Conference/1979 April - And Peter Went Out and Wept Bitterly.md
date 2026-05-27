@@ -1,12 +1,14 @@
 # And Peter Went Out and Wept Bitterly
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/04/and-peter-went-out-and-wept-bitterly?lang=eng)
 
-As we approach the end of this morning of inspiration, I should like to take you, for a moment, back to that most dreadful night in and about Jerusalem when the Last Supper was concluded. Jesus and his disciples left the city and went over to the Mount of Olives. Knowing that his terrible ordeal was at hand, he spoke with those he loved. And he said to them: “All ye shall be offended \[that is, shall fall away\] because of me this night. …
+As we approach the end of this morning of inspiration, I should like to take you, for a moment, back to that most dreadful night in and about Jerusalem when the Last Supper was concluded. Jesus and his disciples left the city and went over to the Mount of Olives. Knowing that his terrible ordeal was at hand, he spoke with those he loved. And he said to them: “All ye shall be offended \[that is, shall fall away\] because of me this night. …
 
 “Peter answered and said unto him, Though all men shall be offended because of thee, yet will I never be offended.
 
@@ -77,8 +79,3 @@ May the Lord touch you by the power of his Spirit to increase your desire. May h
 
 
 
-
-
-
-
-#Loyalty

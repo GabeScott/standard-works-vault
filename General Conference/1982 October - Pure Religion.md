@@ -1,6 +1,8 @@
 # Pure Religion
 
-By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -50,7 +52,7 @@ As we reflect upon actions that do not fit the definition of pure religion, perh
 
 The words are simple, but a basic formula is revealed—namely, help those who are in need, build your life around the gospel of Jesus Christ, and avoid yielding to worldly temptations.
 
-As with most simple formulas, all of us must analyze our own lives and use wisdom and free agency as we apply the basic principles. Jesus said, “Verily, verily, I say unto you, this is my gospel; and ye know the things that ye must do in my church; for the works which ye have seen me do that shall ye also do; for that which ye have seen me do even that shall ye do.” ([[3 Nephi 27.21|3 Ne. 27:21]].) The doing is always more difficult than the knowing.
+As with most simple formulas, all of us must analyze our own lives and use wisdom and free agency as we apply the basic principles. Jesus said, “Verily, verily, I say unto you, this is my gospel; and ye know the things that ye must do in my church; for the works which ye have seen me do that shall ye also do; for that which ye have seen me do even that shall ye do.” ([[3 Nephi 27.21|3 Ne. 27:21]].) The doing is always more difficult than the knowing.
 
 We were visiting some friends this past summer. A very young son with a new tricycle was disturbed because his parents were giving us their attention and all of us were ignoring him. He rode his trike as fast as his little legs could pedal, calling, “Look at me!” The inevitable happened as he looked at us instead of where he was going. He rode directly into a lawn chair. To try to stem the tears and take his mind off the hurt, his mother said, “That naughty chair hurt you. Let’s spank the chair.”
 
@@ -95,8 +97,3 @@ May God help us to learn and live the principles of pure religion. The business 
 
 
 
-
-
-
-
-#Criticism #Religion

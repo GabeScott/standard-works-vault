@@ -1,5 +1,7 @@
 # Some Basic Teachings from the History of Joseph Smith
 
+Gordon B. Hinckley
+
 By Elder Carlos H. Amado - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -30,13 +32,13 @@ During his short ministry, Joseph Smith also received many other important revel
 
 The young Joseph said:
 
-“At length I came to the conclusion that I must either remain in darkness and confusion, or else I must do as James directs, that is, ask of God. …
+“At length I came to the conclusion that I must either remain in darkness and confusion, or else I must do as James directs, that is, ask of God. …
 
-“… It was the first time in my life that I had made such an attempt, for amidst all my anxieties I had never as yet made the attempt to pray vocally.
+“… It was the first time in my life that I had made such an attempt, for amidst all my anxieties I had never as yet made the attempt to pray vocally.
 
-“… I kneeled down and began to offer up the desires of my heart to God. …
+“… I kneeled down and began to offer up the desires of my heart to God. …
 
-“… I had found the testimony of James to be true—that a man who lacked wisdom might ask of God, and obtain, and not be upbraided” ([[Joseph Smith History 1.13|JS—H 1:13–15, 26]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.26|]]).
+“… I had found the testimony of James to be true—that a man who lacked wisdom might ask of God, and obtain, and not be upbraided” ([[Joseph Smith History 1.13|JS—H 1:13–15, 26]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.26|]]).
 
 Our Heavenly Father, as a perfect father, knows all your spiritual and material needs and wants to bless you, which is why He has given you the commandment to seek Him and ask Him.
 
@@ -46,9 +48,9 @@ Joseph came to know the truth because he prayed. In our time, millions of member
 
 Joseph Smith meditated often; he thought, analyzed, and compared; he tried to find answers to what he read in the scriptures. He said:
 
-“During this time of great excitement my mind was called up to serious reflection and great uneasiness. …
+“During this time of great excitement my mind was called up to serious reflection and great uneasiness. …
 
-“… I often said to myself: … Who of all these parties are right; or, are they all wrong together? If any one of them be right, which is it, and how shall I know it? …
+“… I often said to myself: … Who of all these parties are right; or, are they all wrong together? If any one of them be right, which is it, and how shall I know it? …
 
 “Never did any passage of scripture come with more power to the heart of man than this did at this time to mine. It seemed to enter with great force into every feeling of my heart. I reflected on it again and again” ([[Joseph Smith History 1.8|JS—H 1:8, 10, 12]][[Joseph Smith History 1.10|]][[Joseph Smith History 1.12|]]).
 
@@ -60,9 +62,9 @@ How can you come to a knowledge of these things? Please meditate about it seriou
 
 In his desire to know the truth, Joseph Smith went to various denominations in his community. About his experience with God the Father and His Son, Jesus Christ, Joseph Smith described clearly the instructions he received about other churches:
 
-“I asked the Personages who stood above me in the light, which of all the sects was right (for at this time it had never entered into my heart that all were wrong)—and which I should join. …
+“I asked the Personages who stood above me in the light, which of all the sects was right (for at this time it had never entered into my heart that all were wrong)—and which I should join. …
 
-“… It was not my duty to join with any of them, but to continue as I was until further directed” ([[Joseph Smith History 1.18|JS—H 1:18, 26]][[Joseph Smith History 1.26|]]).
+“… It was not my duty to join with any of them, but to continue as I was until further directed” ([[Joseph Smith History 1.18|JS—H 1:18, 26]][[Joseph Smith History 1.26|]]).
 
 All of us need to come to know the kingdom of God on earth and to receive a testimony of its truth. We go to church to feel the Spirit, learn His doctrine, renew our covenants, and receive the ordinances of salvation and exaltation to return to the presence of God with our families. You are cordially invited to come to church and see for yourself all these things.
 
@@ -90,7 +92,7 @@ When someone has learned these basic principles and ceases to practice them, he 
 
 It is wonderful that in a time of great religious confusion, while not yet 15 years old, in the midst of opposition and even persecution, Joseph Smith patiently and diligently demonstrated obedience and showed us the simple but effective way to draw closer to God.
 
-This process requires that we learn, precept upon precept, a little here and a little there, until we develop faith and clear understanding of our divine potential (see [[2 Nephi 28.30|2 Ne. 28:30]]).
+This process requires that we learn, precept upon precept, a little here and a little there, until we develop faith and clear understanding of our divine potential (see [[2 Nephi 28.30|2 Ne. 28:30]]).
 
 It is our responsibility to strengthen, day by day, the impressions that we feel through the Spirit, by applying these five principles.
 
@@ -99,8 +101,3 @@ It is my prayer that we may do this, constantly, in the name of Jesus Christ, am
 
 
 
-
-
-
-
-#Church_Attendance #Joseph_Smith #Prayer #Scriptures #Spirituality #Truth

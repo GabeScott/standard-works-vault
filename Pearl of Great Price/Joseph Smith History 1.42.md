@@ -5,5 +5,5 @@
 [Joseph Smith History 1:42](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.42?lang=eng#p42)
 
 
-[^a]: JS—H 1:59.
-[^b]: TG [[Mind, Minded]].
+[^a]: [[Joseph Smith History 1.59|JS—H 1:59]].  
+[^b]: [[Mind, Minded|TG Mind]].  

@@ -1,6 +1,8 @@
 # The Making of a Missionary
 
-By Elder M. Russell Ballard, Jr. - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder M. Russell Ballard, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -26,7 +28,7 @@ My missionaries responded with comments like these: “I could have really read 
 
 May I suggest to all of the youth of the Church that I believe you can come into the mission field loaded with knowledge about the eternal truths of the gospel—knowing for yourself that Jesus is the Christ, and that His church has been restored to the earth through a living prophet, and that the Book of Mormon is the word of God.
 
-I like these words of Nephi: “Wherefore, I said unto you, feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].) Young people, why not make the best investment of your life by spending more of your time now to study and learn for yourself the ways of the Lord? If you will do this now you will arrive in the mission field with the Spirit of the Lord as your companion, and you will be filled with the desire to enthusiastically and intelligently teach the gospel to the people.
+I like these words of Nephi: “Wherefore, I said unto you, feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].) Young people, why not make the best investment of your life by spending more of your time now to study and learn for yourself the ways of the Lord? If you will do this now you will arrive in the mission field with the Spirit of the Lord as your companion, and you will be filled with the desire to enthusiastically and intelligently teach the gospel to the people.
 
 May the Lord bless every one of you who will be a missionary with a clear view of your own self-worth, and the vision of your own important role that you play in this great work. May the roots of your testimony be driven down deep through your pre-mission preparation so when the winds of adversity blow upon you, you will be able to weather the storm and be able to make your very best contribution to the growth of this great Church.
 
@@ -69,8 +71,3 @@ I testify to you that we are the only true church of Jesus Christ on the earth t
 
 
 
-
-
-
-
-#Preparation

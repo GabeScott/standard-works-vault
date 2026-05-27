@@ -1,5 +1,7 @@
 # The Stone Cut Out of the Mountain
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2007 General Conference*
@@ -16,7 +18,7 @@ I take you back 184 years to the year 1823. The month was September—the night 
 
 The boy Joseph Smith had prayed that night before going to sleep. He asked the Lord for forgiveness of his light-mindedness. A miraculous thing then happened. He says:
 
-“While I was thus in the act of calling upon God, I discovered a light appearing in my room, which continued to increase until the room was lighter than at noonday, when immediately a personage appeared at my bedside. …
+“While I was thus in the act of calling upon God, I discovered a light appearing in my room, which continued to increase until the room was lighter than at noonday, when immediately a personage appeared at my bedside. …
 
 “He called me by name, and said unto me that he was a messenger sent from the presence of God … and that his name was Moroni; that God had a work for me to do; and that my name should be had for good and evil among all nations, kindreds, and tongues, or that it should be both good and evil spoken of among all people” ([[Joseph Smith History 1.30|Joseph Smith—History 1:30, 33]][[Joseph Smith History 1.33|]]).
 
@@ -58,7 +60,7 @@ As all of you well know, there followed through the years a veritable “cloud o
 
 First came Moroni with the plates from which was translated the Book of Mormon. What a singular and remarkable thing this was. Joseph’s story of the gold plates was fantastic. It was hard to believe and easy to challenge. Could he have written it of his own capacity? It is here, my brothers and sisters, for everyone to see, to handle, to read. Every attempt to explain its origin, other than that which he gave, has fallen of its own weight. He was largely unschooled, and yet in a very brief time he brought forth the translation which in published form comes to more than 500 pages.
 
-Paul declares that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Corinthians 13:1]]).
+Paul declares that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Corinthians 13:1]]).
 
 The Bible had stood for centuries. It is a precious and wonderful book. Now there was a second witness declaring the divinity of Christ. The Book of Mormon is the only book ever published, of which I know, that carries in it a promise that one who reads it prayerfully and asks concerning it in prayer will have revealed to him by the power of the Holy Ghost a knowledge that it is true (see [[Moroni 10.4|Moroni 10:4]]).
 
@@ -83,8 +85,3 @@ I leave with you my testimony of the truth of these things, and I invoke the ble
 
 
 
-
-
-
-
-#Church_Growth #Restoration #Testimony

@@ -1,5 +1,7 @@
 # The Banner of the Lord
 
+Gordon B. Hinckley
+
 By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1984 General Conference*
@@ -57,8 +59,3 @@ It is my firm prayer that each of you bishops and quorum advisers of these young
 
 
 
-
-
-
-
-#Priesthood #Service

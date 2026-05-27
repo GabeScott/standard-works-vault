@@ -1,4 +1,3 @@
 # Jesus Christ, Deliverer
 
-
-*See* [[Jesus Christ, Savior.md|Jesus Christ, Savior]]
+*See also* [[Jesus Christ, Savior.md|Jesus Christ, Savior]]

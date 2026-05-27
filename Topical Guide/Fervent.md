@@ -1,6 +1,5 @@
 # Fervent
 
-
 *fervent* in the spirit, he spake and taught, [[Acts 18.25|Acts 18:25]].
 
 *fervent* in spirit; serving the Lord, [[Romans 12.11|Romans 12:11]].

@@ -1,6 +1,8 @@
 # The Elders Quorum
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -8,7 +10,7 @@ By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/04/the-elders-quorum?lang=eng)
 
-Not long after the Church was organized in this last dispensation, the Lord stated in a revelation, “And by the prayer of your faith ye shall receive my law, that ye may know how to govern my church and have all things right before me.”[^1] This principle has been followed in the Church—and that promise has been honored by the Lord—ever since. Patterns for priesthood organization and service have been revealed from time to time, beginning with the Prophet Joseph Smith when priesthood offices and quorums were established in our day. Significant refinements were revealed and implemented during the tenures of Presidents Brigham Young, John Taylor, and Spencer W. Kimball, among others, with respect to the Quorum of the Twelve, the Seventy, high priests, and other offices and quorums in both the Melchizedek and Aaronic Priesthoods.[^2] Now, in a historic statement just moments ago, President Russell M. Nelson announced a further crucial adjustment.
+Not long after the Church was organized in this last dispensation, the Lord stated in a revelation, “And by the prayer of your faith ye shall receive my law, that ye may know how to govern my church and have all things right before me.”[^1] This principle has been followed in the Church—and that promise has been honored by the Lord—ever since. Patterns for priesthood organization and service have been revealed from time to time, beginning with the Prophet Joseph Smith when priesthood offices and quorums were established in our day. Significant refinements were revealed and implemented during the tenures of Presidents Brigham Young, John Taylor, and Spencer W. Kimball, among others, with respect to the Quorum of the Twelve, the Seventy, high priests, and other offices and quorums in both the Melchizedek and Aaronic Priesthoods.[^2] Now, in a historic statement just moments ago, President Russell M. Nelson announced a further crucial adjustment.
 
 If I may repeat some of his statement: “Tonight we announce a significant restructuring of our Melchizedek Priesthood quorums to accomplish the work of the Lord more effectively. *In each ward, the high priests and the elders will now be combined into one elders quorum* … \[and\] the composition of \[the stake high priests\] quorum will be based on *current* priesthood callings.”
 
@@ -18,7 +20,7 @@ President Nelson added:
 
 “These adjustments are inspired of the Lord. As we implement them, we will be even more effective than we have ever been previously.”[^3]
 
-At the First Presidency’s direction, Elder Ronald A. Rasband and I will add some detail that we trust will respond to questions you may have.
+At the First Presidency’s direction, Elder Ronald A. Rasband and I will add some detail that we trust will respond to questions you may have.
 
 ## Elders and High Priests Quorums
 
@@ -32,7 +34,7 @@ How is the presidency of the elders quorum to be organized? The stake presidency
 
 Does this adjustment in quorum structure change the priesthood office held by quorum members? No, this action does not rescind any priesthood office to which any quorum member may have been ordained in the past. As you know, a man may be ordained to different priesthood offices over his lifetime, and he does not lose or forfeit any prior ordination when he receives a new one. While in some instances a priesthood bearer may serve in more than one office at a time, as when a high priest also serves as a patriarch or as a bishop, he typically does not function in all his priesthood offices at the same time. Bishops and Seventies, for instance, do not actively serve in those offices once they are released or made emeritus. Thus, whatever other priesthood office or offices a man may hold, while he is a member of the elders quorum, he serves as an elder.
 
-Years ago, President Boyd K. Packer observed that “the priesthood is greater than any of its offices. … The priesthood is not divisible. An elder holds as much priesthood as an Apostle. (See [[D&C 20.38|D&C 20:38]].) When a man \[has the priesthood conferred upon him\], he receives all of it. However, there are offices within the priesthood—divisions of authority and responsibility. … Sometimes one office is spoken of as being ‘higher than’ or ‘lower than’ another office. Rather than ‘higher’ or ‘lower,’ offices in the Melchizedek Priesthood represent different areas of service.”[^4] Brethren, I devoutly hope that we will no longer speak in terms of being “advanced” to another office in the Melchizedek Priesthood.
+Years ago, President Boyd K. Packer observed that “the priesthood is greater than any of its offices. … The priesthood is not divisible. An elder holds as much priesthood as an Apostle. (See [[D&C 20.38|D&C 20:38]].) When a man \[has the priesthood conferred upon him\], he receives all of it. However, there are offices within the priesthood—divisions of authority and responsibility. … Sometimes one office is spoken of as being ‘higher than’ or ‘lower than’ another office. Rather than ‘higher’ or ‘lower,’ offices in the Melchizedek Priesthood represent different areas of service.”[^4] Brethren, I devoutly hope that we will no longer speak in terms of being “advanced” to another office in the Melchizedek Priesthood.
 
 Elders will continue to be ordained high priests when they are called to a stake presidency, high council, or bishopric—or at other times as determined by the stake president through prayerful consideration and inspiration. When their terms of service in a stake presidency, high council, or bishopric are completed, high priests will rejoin the elders quorum in their ward.
 
@@ -44,7 +46,7 @@ Who directs the work of the elders quorum president? The stake president preside
 
 What are the purposes of the adjustments to Melchizedek Priesthood quorums? Having one Melchizedek Priesthood quorum in a ward unifies priesthood holders to accomplish all aspects of the work of salvation, including the temple and family history work previously coordinated by the high priests groups. It allows quorum members of all ages and backgrounds to benefit from the perspective and experience of one another and of those in different stages of life. It also provides additional opportunities for experienced priesthood holders to mentor others, including prospective elders, new members, young adults, and those returning to Church activity. I cannot adequately express how excited I am to contemplate the increasingly vital role that elders quorums will play in the future. The wisdom, experience, capacity, and strength that will be found in these quorums portend a new day and a new standard of priesthood service across the Church.
 
-Twenty years ago in general conference, I related a story first told by Elder Vaughn J. Featherstone of the Seventy that I believe bears repeating here.
+Twenty years ago in general conference, I related a story first told by Elder Vaughn J. Featherstone of the Seventy that I believe bears repeating here.
 
 In 1918 Brother George Goates was a farmer who raised sugar beets in Lehi, Utah. Winter came early that year and froze much of his beet crop in the ground. For George and his young son Francis, the harvest was slow and difficult. Meanwhile, an influenza epidemic was raging. The dreaded disease claimed the lives of George’s son Charles and three of Charles’s small children—two little girls and a boy. In the course of only six days, a grieving George Goates made three separate trips to Ogden, Utah, to bring the bodies home for burial. At the end of this terrible interlude, George and Francis hitched up their wagon and headed back to the beet field.
 
@@ -71,18 +73,13 @@ The First Presidency, the Quorum of the Twelve Apostles, and the Presidency of t
 
 [^1]: [[D&C 41.3|Doctrine and Covenants 41:3]].
 
-[^2]: See, for example, William G. Hartley, “The Priesthood Reorganization of 1877: Brigham Young’s Last Achievement,” in *My Fellow Servants: Essays on the History of the Priesthood* (2010), 227–64; “To the Seventies,” in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints* (1965), 352–54; Hartley, “The Seventies in the 1880s: Revelations and Reorganizing,” in *My Fellow Servants,* 265–300; Edward L. Kimball, *Lengthen Your Stride: The Presidency of Spencer W. Kimball* (2005), 254–58; Susan Easton Black, “Early Quorums of the Seventies,” in David J. Whittaker and Arnold K. Garr, eds., *A Firm Foundation: Church Organization and Administration* (2011), 139–60; Richard O. Cowan, “The Seventies’ Role in the Worldwide Church Administration,” in *A Firm Foundation,* 573–93.
+[^2]: See, for example, William G. Hartley, “The Priesthood Reorganization of 1877: Brigham Young’s Last Achievement,” in *My Fellow Servants: Essays on the History of the Priesthood* (2010), 227–64; “To the Seventies,” in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints* (1965), 352–54; Hartley, “The Seventies in the 1880s: Revelations and Reorganizing,” in *My Fellow Servants,* 265–300; Edward L. Kimball, *Lengthen Your Stride: The Presidency of Spencer W. Kimball* (2005), 254–58; Susan Easton Black, “Early Quorums of the Seventies,” in David J. Whittaker and Arnold K. Garr, eds., *A Firm Foundation: Church Organization and Administration* (2011), 139–60; Richard O. Cowan, “The Seventies’ Role in the Worldwide Church Administration,” in *A Firm Foundation,* 573–93.
 
-[^3]: Russell M. Nelson, “[[2018 April - Introductory Remarks.md|Introductory Remarks]],” *Ensign* or *Liahona,* May 2018, 54.
+[^3]: Russell M. Nelson, “[[2018 April - Introductory Remarks.md|Introductory Remarks]],” *Ensign* or *Liahona,* May 2018, 54.
 
-[^4]: Boyd K. Packer, “[What Every Elder Should Know—and Every Sister as Well: A Primer on Principles of Priesthood Government](https://churchofjesuschrist.org/study/liahona/1994/11/what-every-elder-should-know-and-every-sister-as-well?lang=eng),” *Ensign,* Feb. 1993, 8, 9; *Tambuli,* Nov. 1994, 17, 19.
+[^4]: Boyd K. Packer, “[What Every Elder Should Know—and Every Sister as Well: A Primer on Principles of Priesthood Government](https://www.churchofjesuschrist.org/study/liahona/1994/11/what-every-elder-should-know-and-every-sister-as-well?lang=eng),” *Ensign,* Feb. 1993, 8, 9; *Tambuli,* Nov. 1994, 17, 19.
 
 [^5]: See *Handbook 2: Administering the Church* (2010), 7.3.1.
 
-[^6]: D. Todd Christofferson, “[[1998 October - The Priesthood Quorum.md|The Priesthood Quorum]],” *Ensign,* Nov. 1998, 40–41; *Liahona,* Jan. 1999, 47; see also Vaughn J. Featherstone, “[[1973 April - “Now Abideth Faith, Hope, and Charity”.md|Now Abideth Faith, Hope, and Charity]],” *Ensign,* July 1973, 36–37.
+[^6]: D. Todd Christofferson, “[[1998 October - The Priesthood Quorum.md|The Priesthood Quorum]],” *Ensign,* Nov. 1998, 40–41; *Liahona,* Jan. 1999, 47; see also Vaughn J. Featherstone, “[[1973 April - “Now Abideth Faith, Hope, and Charity”.md|Now Abideth Faith, Hope, and Charity]],” *Ensign,* July 1973, 36–37.
 
-
-
-
-
-#Melchizedek_Priesthood #Ministering #Priesthood_Quorums #Service

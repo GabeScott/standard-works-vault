@@ -1,6 +1,8 @@
 # The Symbol of Christ
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -32,7 +34,7 @@ This was the cross, the instrument of his torture, the terrible device designed 
 
 We cannot forget that. We must never forget it, for here our Savior, our Redeemer, the Son of God, gave himself a vicarious sacrifice for each of us. But the gloom of that dark evening before the Jewish Sabbath, when his lifeless body was taken down and hurriedly laid in a borrowed tomb, drained away the hope of even his most ardent and knowing disciples. They were bereft, not understanding what he had told them earlier. Dead was the Messiah in whom they believed. Gone was their Master in whom they had placed all of their longing, their faith, their hope. He who had spoken of everlasting life, he who had raised Lazarus from the grave, now had died as surely as all men before him had died. Now had come the end to his sorrowful, brief life. That life had been as Isaiah had long before foretold: He was “despised and rejected of men; a man of sorrows, and acquainted with grief.”
 
-“… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him.” ([[Isaiah 53.3|Isa. 53:3, 5]][[Isaiah 53.5|]].) Now he was gone.
+“… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him.” ([[Isaiah 53.3|Isa. 53:3, 5]][[Isaiah 53.5|]].) Now he was gone.
 
 We can only speculate on the feelings of those who loved him as they pondered his death during the long hours of the Jewish Sabbath, the Saturday of our calendar.
 
@@ -40,7 +42,7 @@ Then dawned the first day of the week, the Sabbath of the Lord as we have come t
 
 “He is not here. … he is risen, as he said.” ([[Matthew 28.6|Matt. 28:6]].)
 
-Here was the greatest miracle of human history. Earlier he had told them, “I am the resurrection and the life.” ([[John 11.25|John 11:25]].) But they had not understood. Now they knew. He had died in misery and pain and loneliness. Now, on the third day, he arose in power and beauty and life, the first fruits of all who slept, the assurance for men of all ages that “as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
+Here was the greatest miracle of human history. Earlier he had told them, “I am the resurrection and the life.” ([[John 11.25|John 11:25]].) But they had not understood. Now they knew. He had died in misery and pain and loneliness. Now, on the third day, he arose in power and beauty and life, the first fruits of all who slept, the assurance for men of all ages that “as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
 
 On Calvary he was the dying Jesus. From the tomb he emerged the living Christ. The cross had been the bitter fruit of Judas’ betrayal, the summary of Peter’s denial. The empty tomb now became the testimony of His divinity, the assurance of eternal life, the answer to Job’s unanswered question: “If a man die, shall he live again?” ([[Job 14.14|Job 14:14]].)
 
@@ -56,17 +58,17 @@ Well did Mary cry, “Rabboni!” ([[John 20.16|John 20:16]]) when first she saw
 
 The fearful Peter was transformed. Even the doubtful Thomas declared in soberness and reverence and realism, “My Lord and my God!” ([[John 20.28|John 20:28]].) “Be not faithless, but believing” ([[John 20.27|John 20:27]]) were the unforgettable words of the Lord on that marvelous occasion.
 
-There followed appearances to many, including, as Paul records, “above five hundred brethren at once.” ([[1 Corinthians 15.6|1 Cor. 15:6]].)
+There followed appearances to many, including, as Paul records, “above five hundred brethren at once.” ([[1 Corinthians 15.6|1 Cor. 15:6]].)
 
 And in this Western Hemisphere were other sheep of whom he had spoken earlier. And the people there “heard a voice as if it came out of heaven … and it said unto them: Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.
 
-“… And behold, they saw a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them. …
+“… And behold, they saw a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them. …
 
 “And it came to pass that he stretched forth his hand and spake unto the people, saying:
 
-“Behold, I am Jesus Christ, whom the prophets testified \[should\] come into the world. …
+“Behold, I am Jesus Christ, whom the prophets testified \[should\] come into the world. …
 
-“Arise and come forth unto me.” ([[3 Nephi 11.3|3 Ne. 11:3, 6, 8–10, 14]][[3 Nephi 11.6|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.14|]].)
+“Arise and come forth unto me.” ([[3 Nephi 11.3|3 Ne. 11:3, 6, 8–10, 14]][[3 Nephi 11.6|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.14|]].)
 
 Then follows in this beautiful account many words of the ministry of the resurrected Lord among the people of ancient America.
 
@@ -117,8 +119,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Atonement #Jesus_Christ #Resurrection #Spirituality

@@ -1,6 +1,8 @@
 # Spiritual Guides for Teachers of Righteousness
 
-By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -10,13 +12,13 @@ Last summer on a lonely stretch of desert highway, we saw ahead what appeared to
 
 How many things there are in this life that appear to be one way and all of a sudden are the reverse. (See [[Alma 62.41|Alma 62:41]].) Satan operates that way. He is the master of illusion. He creates illusions in an attempt to detour, dilute, and divert the power and the attention of the Latter-day Saints from the pure truth of God.
 
-He is particularly effective at creating spiritual illusions that cause a counterfeiting of spirituality, a spiritual instability, a self-deception—spiritual illnesses sowed in the heart little by little to harden the hearts of men and to lead them into sin and away from God. (See [[1 Nephi 12.17|1 Ne. 12:17]]; [[3 Nephi 6.15|3 Ne. 6:15]].)
+He is particularly effective at creating spiritual illusions that cause a counterfeiting of spirituality, a spiritual instability, a self-deception—spiritual illnesses sowed in the heart little by little to harden the hearts of men and to lead them into sin and away from God. (See [[1 Nephi 12.17|1 Ne. 12:17]]; [[3 Nephi 6.15|3 Ne. 6:15]].)
 
-May I share a few of Satan’s cunning illusions which undermine spirituality. Satan, with an illusion, leads a man to puff himself up with pride to say, “I am my own man. I know the Lord lives, but he expects me to handle this particular matter on my own and not bother him with any details.” Not being familiar with the scriptures, the man may not know that Satan teaches the world there is no God. But to the Saints he simply says, “There is a God, but he is only *generally* involved in your life. He would not *specifically* help you today.” Or he teaches the world not to pray, but to the Saints he simply says, “Don’t pray now. You don’t feel like praying right now.” (See [[2 Nephi 32.8|2 Ne. 32:8–9]][[2 Nephi 32.9|]].) The net effect is the same.
+May I share a few of Satan’s cunning illusions which undermine spirituality. Satan, with an illusion, leads a man to puff himself up with pride to say, “I am my own man. I know the Lord lives, but he expects me to handle this particular matter on my own and not bother him with any details.” Not being familiar with the scriptures, the man may not know that Satan teaches the world there is no God. But to the Saints he simply says, “There is a God, but he is only *generally* involved in your life. He would not *specifically* help you today.” Or he teaches the world not to pray, but to the Saints he simply says, “Don’t pray now. You don’t feel like praying right now.” (See [[2 Nephi 32.8|2 Ne. 32:8–9]][[2 Nephi 32.9|]].) The net effect is the same.
 
-Satan, in another illusion of vain imagination, teaches a man that the man is spiritual and humble. He begins to believe it and then acts in the eyes of the people as if he were. He begins to drift but full well believes, because of the illusions being created, that he is still on the strait and narrow. He develops a holier-than-thou attitude, but in his heart he is hardened, “past feeling” ([[1 Nephi 17.45|1 Ne. 17:45]]), and prideful. The master of illusion teaches men to honor the Lord with their lips, while their hearts are far from the Lord. (See [[Joseph Smith History 1.19|JS—H 1:19]].)
+Satan, in another illusion of vain imagination, teaches a man that the man is spiritual and humble. He begins to believe it and then acts in the eyes of the people as if he were. He begins to drift but full well believes, because of the illusions being created, that he is still on the strait and narrow. He develops a holier-than-thou attitude, but in his heart he is hardened, “past feeling” ([[1 Nephi 17.45|1 Ne. 17:45]]), and prideful. The master of illusion teaches men to honor the Lord with their lips, while their hearts are far from the Lord. (See [[Joseph Smith History 1.19|JS—H 1:19]].)
 
-With others he disguises truth and equates spirituality with knowledge, with little or no emphasis on application of truths in personal lives. The man goes along his own way imagining himself to be learned, leaning on his own understanding (see [[Proverbs 3.5|Prov. 3:5]]; [[2 Nephi 9.28|2 Ne. 9:28]]), seeking the honor and esteem of men, and feeling it is sufficient to teach and not to do. The knowledge then, in and of itself, becomes an illusion and a stumbling block to maintaining the Spirit of the Lord.
+With others he disguises truth and equates spirituality with knowledge, with little or no emphasis on application of truths in personal lives. The man goes along his own way imagining himself to be learned, leaning on his own understanding (see [[Proverbs 3.5|Prov. 3:5]]; [[2 Nephi 9.28|2 Ne. 9:28]]), seeking the honor and esteem of men, and feeling it is sufficient to teach and not to do. The knowledge then, in and of itself, becomes an illusion and a stumbling block to maintaining the Spirit of the Lord.
 
 Still others the Lord blesses with great material blessings. But then Satan cunningly creates illusions and reverses the use of these blessings. He leads one to set his heart on the things of this world. (See [[D&C 121.35|D&C 121:35]].) The man begins not to esteem his brethren as himself, but creates divisions, inequalities, or status distinctions among the people. Yes, Satan has been a liar from the beginning; he is “the author of all sin. … He doth carry on his works of darkness … as he can get hold upon the hearts of the children of men.” ([[Helaman 6.30|Hel. 6:30]].)
 
@@ -36,11 +38,11 @@ I would like to suggest eight standards against which a person can measure his o
 
 6. The teacher will treat all those being taught as like unto himself, not esteeming himself above his brethren. (See [[Jacob 2.17|Jacob 2:17]].) He will seek excellence before the Lord, but not to excel over his companions in the work. (See [[D&C 58.40|D&C 58:40–41]][[D&C 58.41|]].) He knows that “none is acceptable before God, save the meek and lowly in heart.” ([[Moroni 7.44|Moro. 7:44]].)
 
-7. The teacher of righteousness will be anxious to glorify the Lord. He will refuse to assume any glory unto himself. He will not practice priestcrafts—that is, preaching and holding himself up as a light to the world for gain or for the honor of men. (See [[2 Nephi 26.29|2 Ne. 26:29]]; [[Mosiah 18.26|Mosiah 18:26]].) He will be a preacher of righteousness speaking forcefully against sin, having an eye single to God, not to personal gain, honor, or popularity among men. He knows worldly aspirations leave the door open wide to apostasy.
+7. The teacher of righteousness will be anxious to glorify the Lord. He will refuse to assume any glory unto himself. He will not practice priestcrafts—that is, preaching and holding himself up as a light to the world for gain or for the honor of men. (See [[2 Nephi 26.29|2 Ne. 26:29]]; [[Mosiah 18.26|Mosiah 18:26]].) He will be a preacher of righteousness speaking forcefully against sin, having an eye single to God, not to personal gain, honor, or popularity among men. He knows worldly aspirations leave the door open wide to apostasy.
 
 8. The teacher himself will be in the process of continual personal repentance. (See [[Moroni 8.26|Moro. 8:26]].) He will be an example of meekness, charity, pure motives, dependence on the Lord. He will not just be teaching the doctrine, but also applying it. (See [[D&C 41.5|D&C 41:5]]; [[D&C 52.15|52:15–16]][[D&C 52.16|]].) All in all, it will be evident whom he represents.
 
-In summary, then, how does one keep himself from falling, as some have, into teaching and living semi-truths? Is it not by maintaining his own spirituality? What is true spirituality? Is it knowledge, intellect, academic learning? Perhaps more than anything else it is an ongoing, purifying condition of the heart. It is an eye single to God. It is a broken heart and a contrite spirit. (See [[3 Nephi 9.20|3 Ne. 9:20]]; [[D&C 136.32|D&C 136:32–33]][[D&C 136.33|]].) It is a “full purpose of heart.”
+In summary, then, how does one keep himself from falling, as some have, into teaching and living semi-truths? Is it not by maintaining his own spirituality? What is true spirituality? Is it knowledge, intellect, academic learning? Perhaps more than anything else it is an ongoing, purifying condition of the heart. It is an eye single to God. It is a broken heart and a contrite spirit. (See [[3 Nephi 9.20|3 Ne. 9:20]]; [[D&C 136.32|D&C 136:32–33]][[D&C 136.33|]].) It is a “full purpose of heart.”
 
 As I have had opportunity over the years to be among the Brethren, the one distinguishing characteristic that seems to be found in all of them, as well as in other spiritual leaders, is their intense desire to take upon them the name of the Lord with “full purpose of heart,” a desire to serve the Lord above all else, at any cost. (See [[D&C 18.27|D&C 18:27–28, 38]][[D&C 18.28|]][[D&C 18.38|]].)
 
@@ -61,8 +63,3 @@ May the Lord bless all of us not to be fooled by illusions created by the devil.
 
 
 
-
-
-
-
-#Honesty #Teaching

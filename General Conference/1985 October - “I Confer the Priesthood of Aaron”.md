@@ -1,5 +1,7 @@
 # “I Confer the Priesthood of Aaron”
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -91,8 +93,3 @@ We love you and ask the Lord’s blessings to continually be with you. I bear wi
 
 
 
-
-
-
-
-#Obedience

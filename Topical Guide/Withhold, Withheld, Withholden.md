@@ -1,9 +1,8 @@
 # Withhold, Withheld, Withholden
 
-
 *See also* [[Hinder.md|Hinder]]; [[Restrain.md|Restrain]]
 
-thou hast not *withheld* thy son ... from me, [[Genesis 22.12|Genesis 22:12]].
+thou hast not *withheld* thy son … from me, [[Genesis 22.12|Genesis 22:12]].
 
 no thought can be *withholden* from thee, [[Job 42.2|Job 42:2]].
 
@@ -33,7 +32,7 @@ has he *withheld* the power of the Holy Ghost, [[Moroni 7.36|Moroni 7:36]].
 
 they are *withheld* from thee and from the world, [[D&C 25.4|D&C 25:4]].
 
-They sought evil ... and I, the Lord, *withheld* my Spirit, [[D&C 64.16|D&C 64:16]].
+They sought evil … and I, the Lord, *withheld* my Spirit, [[D&C 64.16|D&C 64:16]].
 
 manifestations of the Spirit shall be *withheld*, [[D&C 70.14|D&C 70:14]].
 

@@ -1,5 +1,7 @@
 # Home Teaching—a Divine Service
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1997 General Conference*
@@ -123,11 +125,11 @@ In the name of Jesus Christ, amen.
 
 [^2]: [[D&C 20.42|D&C 20:42, 47, 53–54]][[D&C 20.47|]][[D&C 20.53|]][[D&C 20.54|]].
 
-[^3]: David O. McKay, “A Divine Service,” *Priesthood Home Teaching Handbook* (1963), as quoted in Ezra Taft Benson, in Conference Report, Apr. 1987, 60–61; or *Ensign,* May 1987, 49.
+[^3]: David O. McKay, “A Divine Service,” *Priesthood Home Teaching Handbook* (1963), as quoted in Ezra Taft Benson, in Conference Report, Apr. 1987, [[1987 April - To the Home Teachers of the Church.md|60–61]]; or *Ensign,* May 1987, 49.
 
 [^4]: [[Mosiah 23.17|Mosiah 23:17–18]][[Mosiah 23.18|]].
 
-[^5]: Ezra Taft Benson, in Conference Report, Apr. 1987, 61; or *Ensign,* May 1987, 50.
+[^5]: Ezra Taft Benson, in Conference Report, Apr. 1987, [[1987 April - To the Home Teachers of the Church.md|61]]; or *Ensign,* May 1987, 50.
 
 [^6]: [[D&C 93.45|D&C 93:45]].
 
@@ -139,8 +141,3 @@ In the name of Jesus Christ, amen.
 
 [^10]: [[Acts 10.38|Acts 10:38]].
 
-
-
-
-
-#Home_Teaching #Jesus_Christ #Teaching

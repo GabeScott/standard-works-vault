@@ -1,5 +1,7 @@
 # Confidence in the Lord
 
+Gordon B. Hinckley
+
 By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1985 General Conference*
@@ -18,7 +20,7 @@ As late as last Wednesday night, I was rehearsing for a ward play. (By the way, 
 
 Since my release I’ve been traveling extensively, and therefore have been without a calling for two months. At that play practice Wednesday, I sent a signal to the new bishop, Russ Herscher, that I was ready to reenter the “job market.” I hope you won’t feel that I’m an aspiring person, but I told the Primary president, Susan Mabey, I wanted to teach Primary—ideally my seven-year-old daughter’s class. I know sanctification comes not with any particular calling, but with genuine acts of service, often for which there is no specific calling.
 
-Now, despite the humility with which I approach this call, I have full confidence in my ability to perform. This, however, is not self-confidence, but confidence in the fact that the Lord makes every man and woman equal to the assignment that he or she is given. Therefore, I state clearly but humbly, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
+Now, despite the humility with which I approach this call, I have full confidence in my ability to perform. This, however, is not self-confidence, but confidence in the fact that the Lord makes every man and woman equal to the assignment that he or she is given. Therefore, I state clearly but humbly, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
 
 Brothers and sisters, I have never been a bishop. Since Friday afternoon I have felt puzzled, almost bewildered and overwhelmed, at how a man could be called to be a member of the Presiding Bishopric without having had the experience of being a bishop. I agonized for twenty-four hours until yesterday afternoon, when President Hinckley laid his hands upon my head and ordained me a bishop. I heard the voice of the Lord say in my heart, “No, Glenn, you have never been a bishop, but now you are a bishop, and always will be.”
 
@@ -26,7 +28,7 @@ Several years ago, I made a covenant with the Lord. I promised to give him anyth
 
 How I love not to be noticed! I don’t want to sit with the General Authorities in the “fishbowl” at the BYU football games in my dark blue suit! I want to sit in the stands with my father, wearing an obnoxious T-shirt which reads: “BYU #1. Enough said!” I have license and credentials to be obnoxious! I was born and raised in Provo, Utah. I attended school at Provo High School. I received my bachelor’s and master’s degrees from BYU. I’m a member of the Church, and I even work for the Church. My credentials are impeccable. I want to go berserk in the upper tier of the San Diego Stadium as I have the last four years at the Holiday Bowl—with the exception of Ohio State \[which soundly beat BYU’s team in the bowl game\], when I went into deep depression. I still have one faint hope—perhaps the Brethren will let me sit with Elder Perry at the ball games. Nevertheless, I give up my prized anonymity, just as I will give up my life if it is required of me.
 
-I love the Lord Jesus Christ. I love the transformation his atonement has wrought in me. Earlier speakers have spoken of him with such eloquence. How I wish I had command of the language which would enable me to express my feelings on this Easter afternoon. May I add my simple testimony to those who have spoken articulately. I once was in darkness, and now see light. I once lost all of my confidence, and now know all things are possible in the Lord. I once felt shame and now am “filled with his love, even unto the consuming of my flesh.” ([[2 Nephi 4.21|2 Ne. 4:21]].) “I am encircled about eternally in the arms of his love.” ([[2 Nephi 1.15|2 Ne. 1:15]].)
+I love the Lord Jesus Christ. I love the transformation his atonement has wrought in me. Earlier speakers have spoken of him with such eloquence. How I wish I had command of the language which would enable me to express my feelings on this Easter afternoon. May I add my simple testimony to those who have spoken articulately. I once was in darkness, and now see light. I once lost all of my confidence, and now know all things are possible in the Lord. I once felt shame and now am “filled with his love, even unto the consuming of my flesh.” ([[2 Nephi 4.21|2 Ne. 4:21]].) “I am encircled about eternally in the arms of his love.” ([[2 Nephi 1.15|2 Ne. 1:15]].)
 
 I express my deepest loyalty to Bishop Hales and his First Counselor, Bishop Eyring. I will not betray their trust. I express my love and loyalty to the First Presidency, the Council of the Twelve Apostles, the First Quorum of the Seventy, and those I love most—the rank-and-file members of the Church. I express my love to my wife; without her love and understanding, I literally would not be standing at this pulpit today. I love my children, who must also give up their anonymity, as well as some time with their father. How I wish I could embrace my oldest son, who is serving a mission in the Cook Islands!
 
@@ -37,8 +39,3 @@ Finally, I share the prayer of my heart with you at this time. May I display in 
 
 
 
-
-
-
-
-#Sacrifice #Service

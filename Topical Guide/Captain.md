@@ -1,7 +1,6 @@
 # Captain
 
-
-Potiphar ... *captain* of the guard, [[Genesis 37.36|Genesis 37:36]].
+Potiphar … *captain* of the guard, [[Genesis 37.36|Genesis 37:36]].
 
 Let us make a *captain*, and let us return into Egypt, [[Numbers 14.4|Numbers 14:4]].
 
@@ -19,4 +18,4 @@ centurion delivered the prisoners to the *captain*, [[Acts 28.16|Acts 28:16]].
 
 to make the *captain* of their salvation perfect, [[Hebrews 2.10|Hebrews 2:10]].
 
-appoint presidents, and *captains* of hundreds, [[D&C 136.15|D&C 136:15]] ([[D&C 136.3|D&C 136:3]], [[D&C 136.7|D&C 136:7]]).
+appoint presidents, and *captains* of hundreds, [[D&C 136.15|D&C 136:15]] ([[D&C 136.3|D&C 136:3]]; [[D&C 136.7|D&C 136:7]]).

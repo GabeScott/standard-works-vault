@@ -1,6 +1,8 @@
 # The Family Is of God
 
-By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
+Cheryl A. Esplin
+
+By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -22,7 +24,7 @@ The second line of the song expands on the first. **“He sent each one of us to
 
 In the premortal life, we learned that we would need a period of mortality. We “accepted \[Heavenly Father’s\] plan by which His children could obtain a physical body and gain earthly experience to progress toward perfection and ultimately realize \[our\] divine destiny as heirs of eternal life.”[^4]
 
-Elder Richard G. Scott explained that “we were taught in the premortal world that our purpose in coming here is to be tested, tried, and stretched.”[^5] That stretching comes in as many forms as there are individuals experiencing it. I’ve never had to live through divorce, the pain and insecurity that comes from abandonment, or the responsibility associated with being a single mother. I haven’t experienced the death of a child, infertility, or same-gender attraction. I haven’t had to endure abuse, chronic illness, or addiction. These have not been my stretching opportunities.
+Elder Richard G. Scott explained that “we were taught in the premortal world that our purpose in coming here is to be tested, tried, and stretched.”[^5] That stretching comes in as many forms as there are individuals experiencing it. I’ve never had to live through divorce, the pain and insecurity that comes from abandonment, or the responsibility associated with being a single mother. I haven’t experienced the death of a child, infertility, or same-gender attraction. I haven’t had to endure abuse, chronic illness, or addiction. These have not been my stretching opportunities.
 
 So right now some of you are thinking, “Well then, Sister Stephens, you just don’t understand!” And I answer that you may be right. I don’t completely understand your challenges. But through *my* personal tests and trials—the ones that have brought me to *my* knees—I have become well acquainted with the One who does understand, He who was “acquainted with grief,”[^6] who experienced all and understands all. And in addition, I have experienced all of the mortal tests that I just mentioned through the lens of a daughter, mother, grandmother, sister, aunt, and friend.
 
@@ -44,17 +46,17 @@ The third line of the song further explains the purpose of our mortality: **“G
 
 As we use our time in mortality to study and apply the Savior’s teachings, we become more like Him. We come to understand that He is the way—the only way—we can overcome mortal challenges, be healed, and return back to our heavenly home.
 
-The final line of the song returns to where it began: **“This is how He shares His love, for the family is of God.”** The Father’s plan for His children is a plan of love. It is a plan to unite His children—His family—with Him. Elder Russell M. Nelson taught, “Heavenly Father has but two desires for His children … : immortality and eternal life, ‘which means life with Him back home.’”[^14] Those desires can be realized only as we also share the love that Heavenly Father has for His family by reaching out and sharing His plan with others.
+The final line of the song returns to where it began: **“This is how He shares His love, for the family is of God.”** The Father’s plan for His children is a plan of love. It is a plan to unite His children—His family—with Him. Elder Russell M. Nelson taught, “Heavenly Father has but two desires for His children … : immortality and eternal life, ‘which means life with Him back home.’”[^14] Those desires can be realized only as we also share the love that Heavenly Father has for His family by reaching out and sharing His plan with others.
 
 Twenty years ago, the First Presidency and Quorum of the Twelve Apostles reached out to the entire world when issuing a proclamation on the family. Since then, attacks on the family have increased.
 
-If we are to be successful in our sacred responsibilities as daughters of God, we must understand the eternal significance of and our individual responsibility to teach truths about our Heavenly Father’s plan for His family. President Howard W. Hunter explained:
+If we are to be successful in our sacred responsibilities as daughters of God, we must understand the eternal significance of and our individual responsibility to teach truths about our Heavenly Father’s plan for His family. President Howard W. Hunter explained:
 
-“There is a great need to rally the women of the Church to stand with and for the Brethren in stemming the tide of evil that surrounds us and in moving forward the work of our Savior. …
+“There is a great need to rally the women of the Church to stand with and for the Brethren in stemming the tide of evil that surrounds us and in moving forward the work of our Savior. …
 
 “… So we entreat you to minister with your powerful influence for good in strengthening our families, our church, and our communities.”[^15]
 
-Sisters, we belong. We are loved. We are needed. We have a divine purpose, work, place, and role in the Church and kingdom of God and in His eternal family. Do you know deep in your heart that your Heavenly Father loves you and desires you and those you love to be with Him? Just as “Heavenly Father and His Son Jesus Christ are perfect … , Their hopes for us are perfect.”[^16] Their plan for us is perfect, and Their promises are sure. Of these truths I gratefully testify in the name of Jesus Christ, amen.
+Sisters, we belong. We are loved. We are needed. We have a divine purpose, work, place, and role in the Church and kingdom of God and in His eternal family. Do you know deep in your heart that your Heavenly Father loves you and desires you and those you love to be with Him? Just as “Heavenly Father and His Son Jesus Christ are perfect … , Their hopes for us are perfect.”[^16] Their plan for us is perfect, and Their promises are sure. Of these truths I gratefully testify in the name of Jesus Christ, amen.
 
 
 
@@ -67,7 +69,7 @@ Sisters, we belong. We are loved. We are needed. We have a divine purpose, work,
 
 [^4]: “The Family: A Proclamation to the World.”
 
-[^5]: Richard G. Scott, “Make the Exercise of Faith Your First Priority,” *Ensign* or *Liahona,* Nov. 2014, 92.
+[^5]: Richard G. Scott, “Make the Exercise of Faith Your First Priority,” *Ensign* or *Liahona,* Nov. 2014, 92.
 
 [^6]: [[Isaiah 53.3|Isaiah 53:3]].
 
@@ -79,17 +81,15 @@ Sisters, we belong. We are loved. We are needed. We have a divine purpose, work,
 
 [^10]: [[D&C 38.27|Doctrine and Covenants 38:27]].
 
-[^11]: See Patricia T. Holland, [“‘One Thing Needful’: Becoming Women of Greater Faith in Christ,”](https://churchofjesuschrist.org/study/ensign/1987/10/one-thing-needful-becoming-women-of-greater-faith-in-christ?lang=eng) *Ensign,* Oct. 1987, 26–33.
+[^11]: See Patricia T. Holland, “[‘One Thing Needful’: Becoming Women of Greater Faith in Christ](https://www.churchofjesuschrist.org/study/ensign/1987/10/one-thing-needful-becoming-women-of-greater-faith-in-christ?lang=eng),” *Ensign,* Oct. 1987, 26–33.
 
 [^12]: “The Family: A Proclamation to the World.”
 
 [^13]: [[John 17.21|John 17:21]].
 
-[^14]: R. Scott Lloyd, “God Wants His Children to Return to Him, Elder Nelson Teaches,” Church News section of LDS.org, Jan. 28, 2014; [lds.org/church/news/god-wants-his-children-to-return-to-him-elder-nelson-teaches](https://www.lds.org/church/news/god-wants-his-children-to-return-to-him-elder-nelson-teaches).
+[^14]: R. Scott Lloyd, “God Wants His Children to Return to Him, Elder Nelson Teaches,” Church News section of LDS.org, Jan. 28, 2014; [lds.org/church/news/god-wants-his-children-to-return-to-him-elder-nelson-teaches](https://www.lds.org/church/news/god-wants-his-children-to-return-to-him-elder-nelson-teaches).
 
-[^15]: Howard W. Hunter, in *Daughters in My Kingdom,* 157; see also [“To the Women of the Church,”](https://churchofjesuschrist.org/study/ensign/1992/11/to-the-women-of-the-church?lang=eng) *Ensign,* Nov. 1992, 96.
+[^15]: Howard W. Hunter, in *Daughters in My Kingdom,* 157; see also “[To the Women of the Church](https://www.churchofjesuschrist.org/study/ensign/1992/11/to-the-women-of-the-church?lang=eng),” *Ensign,* Nov. 1992, 96.
 
+[^16]: M. Russell Ballard, “Let Us Think Straight” (Brigham Young University devotional, Aug. 20, 2013), 3; [speeches.byu.edu](https://speeches.byu.edu/talks/m-russell-ballard/let-us-think-straight-2).
 
-
-
-#Adversity #Covenants #Family #Plan_Of_Salvation #Unity

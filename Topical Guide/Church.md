@@ -1,6 +1,5 @@
 # Church
 
-
 *See also* [[Assembly for Worship.md|Assembly for Worship]]; [[Congregation.md|Congregation]]; [[Jesus Christ, Head of the Church.md|Jesus Christ, Head of the Church]]; [[Kingdom of God, on Earth.md|Kingdom of God, on Earth]]; [[Meetings.md|Meetings]]; [[Sanctuary.md|Sanctuary]]; [[Tabernacle.md|Tabernacle]]; [[Temple.md|Temple]]
 
 upon this rock I will build my *church*, [[Matthew 16.18|Matthew 16:18]].
@@ -33,7 +32,7 @@ The *churches* of Christ salute you, [[Romans 16.16|Romans 16:16]].
 
 so ordain I in all *churches*, [[1 Corinthians 7.17|1 Corinthians 7:17]].
 
-Give none offence ... nor to the *church* of God, [[1 Corinthians 10.32|1 Corinthians 10:32]].
+Give none offence … nor to the *church* of God, [[1 Corinthians 10.32|1 Corinthians 10:32]].
 
 despise ye the *church*, [[1 Corinthians 11.22|1 Corinthians 11:22]].
 
@@ -91,21 +90,21 @@ this is my *church*, [[Mosiah 26.22|Mosiah 26:22]] ([[Mosiah 27.13|Mosiah 27:13]
 
 did not belong to the *church* of God began to persecute, [[Alma 1.19|Alma 1:19]].
 
-establish the *church* more fully, [[Alma 4.4|Alma 4:4]] ([[Alma 4.3|4:3-6]][[Alma 4.4|]][[Alma 4.5|]][[Alma 4.6|]]).
+establish the *church* more fully, [[Alma 4.4|Alma 4:4]].
 
-wolves ... devour his *flock*, [[Alma 5.59|Alma 5:59]].
+wolves … devour his *flock*, [[Alma 5.59|Alma 5:59]].
 
 believers of Christ, who belonged to the *church*, [[Alma 46.14|Alma 46:14]].
 
 both the Nephites and the Lamanites, did belong to the *church*, [[Helaman 11.21|Helaman 11:21]].
 
-people of my *church* ... who shall believe and be baptized, [[3 Nephi 18.5|3 Nephi 18:5]].
+people of my *church* … who shall believe and be baptized, [[3 Nephi 18.5|3 Nephi 18:5]].
 
 pray in my *church*, [[3 Nephi 18.16|3 Nephi 18:16]].
 
-if they will repent ... I will establish my *church*, [[3 Nephi 21.22|3 Nephi 21:22]].
+if they will repent … I will establish my *church*, [[3 Nephi 21.22|3 Nephi 21:22]].
 
-baptized ... were called the *church*, [[3 Nephi 26.21|3 Nephi 26:21]].
+baptized … were called the *church*, [[3 Nephi 26.21|3 Nephi 26:21]].
 
 call the *church* in my name, [[3 Nephi 27.7|3 Nephi 27:7]].
 
@@ -131,11 +130,11 @@ whosoever repenteth and cometh unto me, the same is my *church*, [[D&C 10.67|D&C
 
 have my word, my rock, my *church*, [[D&C 11.16|D&C 11:16]].
 
-build up my *church*, upon ... my gospel, [[D&C 18.5|D&C 18:5]].
+build up my *church*, upon … my gospel, [[D&C 18.5|D&C 18:5]].
 
 Contend against no *church*, save it be the *church* of the devil, [[D&C 18.20|D&C 18:20]].
 
-The rise of the *Church* of Christ ... regularly organized, [[D&C 20.1|D&C 20:1]].
+The rise of the *Church* of Christ … regularly organized, [[D&C 20.1|D&C 20:1]].
 
 *church* was organized, [[D&C 21.3|D&C 21:3]].
 
@@ -145,11 +144,11 @@ the great and abominable *church*, [[D&C 29.21|D&C 29:21]].
 
 build up my *church* among the Lamanites, [[D&C 30.6|D&C 30:6]].
 
-called ... to build up my *church*, [[D&C 39.13|D&C 39:13]].
+called … to build up my *church*, [[D&C 39.13|D&C 39:13]].
 
-my law ... how to govern my *church*, [[D&C 41.3|D&C 41:3]].
+my law … how to govern my *church*, [[D&C 41.3|D&C 41:3]].
 
-repenteth not ... ye shall bring before the *church*, [[D&C 64.12|D&C 64:12]].
+repenteth not … ye shall bring before the *church*, [[D&C 64.12|D&C 64:12]].
 
 bishops to be set apart unto the *church*, [[D&C 68.14|D&C 68:14]].
 
@@ -169,8 +168,6 @@ to reveal unto my *church* things which have been kept hid, [[D&C 124.41|D&C 124
 
 a prophet, and a seer, and a revelator unto my *church*, [[D&C 124.94|D&C 124:94]].
 
-chosen ... to be rulers in the *Church*, [[D&C 138.55|D&C 138:55]].
+chosen … to be rulers in the *Church*, [[D&C 138.55|D&C 138:55]].
 
 same organization that existed in the Primitive *Church*, [[Articles of Faith 1.6|Articles of Faith 1:6]].
-
-*See also* [[Exodus 16.22|Exodus 16:22]]; [[Exodus 40.2|Exodus 40:2]]; [[Leviticus 4.15|Leviticus 4:15]]; [[Leviticus 8.3|Leviticus 8:3]]; [[Numbers 3.7|Numbers 3:7]]; [[Numbers 4.34|Numbers 4:34]]; [[Joshua 8.35|Joshua 8:35]]; [[Joshua 22.16|Joshua 22:16]]; [[Judges 21.5|Judges 21:5]]; [[2 Chronicles 29.28|2 Chronicles 29:28]]; [[Psalms 89.5|Psalms 89:5]]; [[Psalms 107.32|Psalms 107:32]]; [[Isaiah 40.11|Isaiah 40:11]]; [[Isaiah 63.11|Isaiah 63:11]]; [[Jeremiah 13.17|Jeremiah 13:17]]; [[Lamentations 1.10|Lamentations 1:10]]; [[Matthew 18.20|Matthew 18:20]]; [[1 Corinthians 1.10|1 Corinthians 1:10]]; [[1 Corinthians 11.18|1 Corinthians 11:18]]; [[Hebrews 3.6|Hebrews 3:6]]; [[Mosiah 25.21|Mosiah 25:21]]; [[D&C 6.34|D&C 6:34]]; [[D&C 35.27|D&C 35:27]]; [[D&C 46.3|D&C 46:3]]; [[D&C 88.72|D&C 88:72]]; [[D&C 112.25|D&C 112:25]].

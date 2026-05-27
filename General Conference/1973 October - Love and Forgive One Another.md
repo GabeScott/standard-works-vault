@@ -1,6 +1,8 @@
 # Love and Forgive One Another
 
-By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
+Harold B. Lee
+
+By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -38,7 +40,7 @@ Let us ask another question. Can a man live the first and great commandment if h
 
 John the apostle said:
 
-“If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen? And this commandment have we from him, That he who loveth God love his brother also.” ([[1 John 4.20|1 Jn. 4:20–21]][[1 John 4.21|]].)
+“If a man say, I love God, and hateth his brother, he is a liar: for he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen? And this commandment have we from him, That he who loveth God love his brother also.” ([[1 John 4.20|1 Jn. 4:20–21]][[1 John 4.21|]].)
 
 In [[3 Nephi 11.29|third Nephi 11:29–30]][[3 Nephi 11.30|]] we find this statement:
 
@@ -74,7 +76,7 @@ In [[Matthew 5.16|Matthew 5:16]] the Lord gives us a very important message:
 
 “Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.”
 
-To fail to keep the commandments of the Lord not only brings condemnation, but actually deprives us of many blessings here on this earth—to say nothing of those eternal blessings for which we are all striving. In [[1 Corinthians 2.9|1 Corinthians 2:9]] we read this statement:
+To fail to keep the commandments of the Lord not only brings condemnation, but actually deprives us of many blessings here on this earth—to say nothing of those eternal blessings for which we are all striving. In [[1 Corinthians 2.9|1 Corinthians 2:9]] we read this statement:
 
 “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.”
 
@@ -82,7 +84,7 @@ Think of that great promise. And finally, the wonderful promise given to all men
 
 “And, if you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of the gifts of God.” ([[D&C 14.7|D&C 14:7]].)
 
-Our late President Heber J. Grant told us how to endure to the end when he said:
+Our late President Heber J. Grant told us how to endure to the end when he said:
 
 “Let us do the will of our Father in heaven today—we will then be prepared for the duties of tomorrow and for the eternities to come.”
 
@@ -90,13 +92,8 @@ Christ repeatedly emphasized the fact that the gospel is one of *work and servic
 
 This means if we are to gain salvation, exaltation, and eternal life we must live in accordance with the principles of the gospel. We must love and forgive all men and keep the commandments of God.
 
-I leave my testimony with you today that I know the true gospel of Jesus Christ has been restored in this dispensation, that Joseph Smith was an instrument in the hands of the Lord in bringing this about. He was and is a prophet of God. I testify that we are led today by a prophet, President Harold B. Lee. May we all give him and his associates our love and support, and pray continually that they may be blessed with health, strength, and inspiration to carry their tremendous responsibilities. May we have courage and determination to keep the commandments and live in accordance with the principles of the gospel, I pray in the name of Jesus Christ. Amen.
+I leave my testimony with you today that I know the true gospel of Jesus Christ has been restored in this dispensation, that Joseph Smith was an instrument in the hands of the Lord in bringing this about. He was and is a prophet of God. I testify that we are led today by a prophet, President Harold B. Lee. May we all give him and his associates our love and support, and pray continually that they may be blessed with health, strength, and inspiration to carry their tremendous responsibilities. May we have courage and determination to keep the commandments and live in accordance with the principles of the gospel, I pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Love #Obedience

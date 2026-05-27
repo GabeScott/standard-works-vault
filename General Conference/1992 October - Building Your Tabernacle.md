@@ -1,5 +1,7 @@
 # Building Your Tabernacle
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -25,7 +27,7 @@ We recently hosted in this hall a convention of many officers of a part of the U
 They came on a beautiful Sunday morning. I was asked to speak to them briefly, and I told them of this Tabernacle and its construction. The choir, accompanied by the 23rd Army Band, then presented a brief concert. As they concluded the concert, the Choir sang with mounting crescendo the “Battle Hymn of the Republic”:
 
 >Mine eyes have seen the glory of the coming of the Lord;
->He is trampling out the vintage where the grapes of wrath are stored. …
+>He is trampling out the vintage where the grapes of wrath are stored. …
 >His truth is marching on.
 >
 
@@ -61,7 +63,7 @@ This is the same challenge spoken by prophets and leaders who walk the pages of 
 
 “I go the way of all the earth: be thou strong therefore, and shew thyself a man;
 
-“And keep the charge of the Lord thy God, to walk in his ways, to keep his statutes, and his commandments, and his judgments, and his testimonies, as it is written in the law of Moses, that thou mayest prosper in all that thou doest, and whithersoever thou turnest thyself” ([[1 Kings 2.1|1 Kgs. 2:1–3]][[1 Kings 2.2|]][[1 Kings 2.3|]]).
+“And keep the charge of the Lord thy God, to walk in his ways, to keep his statutes, and his commandments, and his judgments, and his testimonies, as it is written in the law of Moses, that thou mayest prosper in all that thou doest, and whithersoever thou turnest thyself” ([[1 Kings 2.1|1 Kgs. 2:1–3]][[1 Kings 2.2|]][[1 Kings 2.3|]]).
 
 That is sound counsel for every man and boy who holds the priesthood of God.
 
@@ -71,7 +73,7 @@ Let me read to you from a letter I received from a man ashamed to sign his name.
 
 “I am a 35-year-old male and am a convert to the Church of more than ten years. For most of my adult life I have been addicted to pornography. I am ashamed to admit this. My addiction is as real as that of an alcoholic or a drug addict.
 
-“I was first introduced to this material as a child. I was molested by an older male cousin, and pornography was used to attract my interest. I am convinced that this exposure at an early age to sex and pornography is at the root of my addiction today. I think it is ironic that those who support the business of pornography say that it is a matter of freedom of expression. I have no freedom. I have lost my free agency because I have been unable to overcome this. It is a trap for me, and I can’t seem to get out of it. Please, please, please, plead with the brethren of the Church to not only avoid but eliminate the sources of pornographic material in their lives. …
+“I was first introduced to this material as a child. I was molested by an older male cousin, and pornography was used to attract my interest. I am convinced that this exposure at an early age to sex and pornography is at the root of my addiction today. I think it is ironic that those who support the business of pornography say that it is a matter of freedom of expression. I have no freedom. I have lost my free agency because I have been unable to overcome this. It is a trap for me, and I can’t seem to get out of it. Please, please, please, plead with the brethren of the Church to not only avoid but eliminate the sources of pornographic material in their lives. …
 
 “Finally, President Hinckley, please pray for me and others in the Church who may be like me to have the courage and strength to overcome this terrible affliction.”
 
@@ -79,11 +81,11 @@ Brethren, there is neither happiness nor peace to be gained from surrendering to
 
 *Be strong—in standing for the right.* We live in an age of compromise and acquiescence. In situations with which we are daily confronted, we know what is right, but under pressure from our peers and the beguiling voices of those who would persuade us, we capitulate. We compromise. We acquiesce. We give in, and we are ashamed of ourselves. As men of the priesthood, we must cultivate the strength to follow our convictions.
 
-The entire world is celebrating this month the five hundredth anniversary of the discovery of America by Christopher Columbus. Admiral Samuel Eliot Morison, his biographer, says, “This night of October 11–12 \[1492\] was one big with destiny for the human race, the most momentous ever experienced aboard any ship in any sea” (*Admiral of the Ocean Sea: A Life of Christopher Columbus* \[Boston: Little, Brown and Co., 1942\], p. 223).
+The entire world is celebrating this month the five hundredth anniversary of the discovery of America by Christopher Columbus. Admiral Samuel Eliot Morison, his biographer, says, “This night of October 11–12 \[1492\] was one big with destiny for the human race, the most momentous ever experienced aboard any ship in any sea” (*Admiral of the Ocean Sea: A Life of Christopher Columbus* \[Boston: Little, Brown and Co., 1942\], p. 223).
 
 In my private commemoration of this event, I have read and reread one important and prophetic verse from the Book of Mormon and also a very long biography of Christopher Columbus.
 
-That verse from Nephi’s vision states, “And I looked and beheld a man among the Gentiles, who was separated from the seed of my brethren by the many waters; and I beheld the Spirit of God, that it came down and wrought upon the man; and he went forth upon the many waters, even unto the seed of my brethren, who were in the promised land” ([[1 Nephi 13.12|1 Ne. 13:12]]).
+That verse from Nephi’s vision states, “And I looked and beheld a man among the Gentiles, who was separated from the seed of my brethren by the many waters; and I beheld the Spirit of God, that it came down and wrought upon the man; and he went forth upon the many waters, even unto the seed of my brethren, who were in the promised land” ([[1 Nephi 13.12|1 Ne. 13:12]]).
 
 We interpret that to refer to Columbus. It is interesting to note that the Spirit of God wrought upon him. After reading that long biography, a Pulitzer winner of forty years ago, titled *Admiral of the Ocean Sea,* I have no doubt that Christopher Columbus was a man of faith, as well as a man of indomitable determination.
 
@@ -97,9 +99,9 @@ I recognize that in this anniversary year a host of critics have spoken out agai
 
 “Wherefore, be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees” ([[D&C 81.4|D&C 81:4–5]][[D&C 81.5|]]).
 
-*Be strong,* my brethren, *with the strength of simple honesty.* How easy it is to “lie a little, take the advantage of one because of his words, dig a pit for thy neighbor” ([[2 Nephi 28.8|2 Ne. 28:8]]).
+*Be strong,* my brethren, *with the strength of simple honesty.* How easy it is to “lie a little, take the advantage of one because of his words, dig a pit for thy neighbor” ([[2 Nephi 28.8|2 Ne. 28:8]]).
 
-Nephi so describes the people of his day, as he also describes so many of our day. How easy it is for us to say, “We believe in being honest, true, chaste, benevolent” ([[Articles of Faith 1.13|A of F 1:13]]). But how difficult for so many to resist the temptation to lie a little, cheat a little, steal a little, bear false witness in speaking in gossipy words about others. Rise above it, brethren. Be strong in the simple virtue of honesty.
+Nephi so describes the people of his day, as he also describes so many of our day. How easy it is for us to say, “We believe in being honest, true, chaste, benevolent” ([[Articles of Faith 1.13|A of F 1:13]]). But how difficult for so many to resist the temptation to lie a little, cheat a little, steal a little, bear false witness in speaking in gossipy words about others. Rise above it, brethren. Be strong in the simple virtue of honesty.
 
 *Be strong—in the faith by which you walk and in the Church of which each of us is a member.* This is the work of God Almighty. It is the most precious of all causes. It needs your strength.
 
@@ -107,7 +109,7 @@ I give you these mighty and wonderful words of Paul written to the Ephesian Sain
 
 “Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
 
-“For we wrestle not against flesh and blood, but against … the rulers of the darkness of this world, against spiritual wickedness in high places. …
+“For we wrestle not against flesh and blood, but against … the rulers of the darkness of this world, against spiritual wickedness in high places. …
 
 “Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
 
@@ -122,8 +124,3 @@ Brethren, *be strong in your testimony of Jesus Christ,* the Son of God. He is t
 
 
 
-
-
-
-
-#Faith #Priesthood

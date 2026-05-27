@@ -1,6 +1,8 @@
 # Admonitions for the Priesthood of God
 
-By President Harold B. Lee - *President of the Church*
+N. Eldon Tanner
+
+By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -26,7 +28,7 @@ Now, with that understanding of priesthood power, let me speak of a few other ma
 
 There are two scriptures I would have you think of as applicable today as they were in the period following the advent of the Savior in the meridian of time in the post-apostolic period. In the Acts of the Apostles, the apostle Paul gave these charges to the elders of Israel. He said:
 
-“Take heed therefore unto yourselves, and to all the flock, over which the Holy Ghost hath made you overseers, to feed the church of God. …
+“Take heed therefore unto yourselves, and to all the flock, over which the Holy Ghost hath made you overseers, to feed the church of God. …
 
 “For I know this, that after my departing shall grievous wolves enter in among you, not sparing the flock.
 
@@ -126,7 +128,7 @@ As the Lord has admonished priesthood bearers from the beginning: “Wherefore, 
 
 “For all flesh is corrupted before me; and the powers of darkness prevail upon the earth, among the children of men, in the presence of all the hosts of heaven—
 
-“Which causeth silence to reign, and all eternity is pained. …” ([[D&C 38.9|D&C 38:9–12]][[D&C 38.10|]][[D&C 38.11|]][[D&C 38.12|]].)
+“Which causeth silence to reign, and all eternity is pained. …” ([[D&C 38.9|D&C 38:9–12]][[D&C 38.10|]][[D&C 38.11|]][[D&C 38.12|]].)
 
 Now brethren, I have spoken plainly to you in this priesthood session. Let what has been said by all the brethren tonight, and in this conference, not fall on deaf ears. Let these admonitions be received as the Lord directed they should be received, in an early revelation, to which President Tanner has already made reference, “as if from mine own mouth, in all patience and faith.” ([[D&C 21.5|D&C 21:5]].)
 
@@ -134,7 +136,7 @@ Only by so doing can we be truly one as a body of priesthood, by following the l
 
 There are one or two things I should like to say about myself and this present responsibility. Never had I thought of myself as one day becoming the President of the Church. As a boy in my rural community, I used to hear the brethren talk about a “pillar” in the Church. I wondered what in the world it meant. It must be something great to be a pillar in the Church. Well, now, maybe I am beginning to realize something about what that means, but I know this: those who try to guess ahead of time as to who is going to be the next President of the Church are just gambling as they might be on a horse race, because only the Lord has the time table.
 
-I remember one time Elder Charles A. Callis in a Council of the Twelve meeting. There was a rather spirited discussion on some questions. One of the Brethren said, “You had better listen to Brother George Albert Smith, the President of the Twelve, because he may be the next President of the Church.”
+I remember one time Elder Charles A. Callis in a Council of the Twelve meeting. There was a rather spirited discussion on some questions. One of the Brethren said, “You had better listen to Brother George Albert Smith, the President of the Twelve, because he may be the next President of the Church.”
 
 Brother Callis smiled and said, “Oh, I wouldn’t be too sure. Three times in my life I have chosen the next President of the Church, and all three of them died before they came to the presidency.” The Lord only knows, and for us to speculate or to presume is not pleasing in the sight of the Lord.
 
@@ -160,7 +162,7 @@ And so, when you think of one President taking the place of another, he doesn’
 
 Now, just one final thought. I sat in a class in Sunday School in my own ward one day, and the teacher was the son of a patriarch. He said he used to take down the blessings of his father, and he noticed that his father gave what he called “iffy” blessings. He would give a blessing, but it was predicated on “if you will not do this” or “if you will cease doing that.” And he said, “I watched these men to whom my father gave the ‘iffy’ blessings, and I saw that many of them did not heed the warning that my father as a patriarch had given, and the blessings were never received because they did not comply.”
 
-You know, this started me thinking. I went back into the Doctrine and Covenants and began to read the “iffy” revelations that have been given to the various brethren in the Church. If you want to have an exercise in something that will startle you, read some of the warnings that were given through the Prophet Joseph Smith to Thomas B. Marsh, Martin Harris, some of the Whitmer brothers, William E. McLellin—warnings which, had they heeded, some would not have fallen by the wayside. But because they did not heed, and they didn’t clear up their lives, they fell by the wayside, and some had to be dropped from membership in the Church.
+You know, this started me thinking. I went back into the Doctrine and Covenants and began to read the “iffy” revelations that have been given to the various brethren in the Church. If you want to have an exercise in something that will startle you, read some of the warnings that were given through the Prophet Joseph Smith to Thomas B. Marsh, Martin Harris, some of the Whitmer brothers, William E. McLellin—warnings which, had they heeded, some would not have fallen by the wayside. But because they did not heed, and they didn’t clear up their lives, they fell by the wayside, and some had to be dropped from membership in the Church.
 
 Now, there is one thing that I think we should all be mindful of. I was with a group of missionaries in the temple one day. A question was asked by one of the sisters about the Word of Wisdom, concerning the promise made that if one would keep the Word of Wisdom he should run and not be weary and should walk and not faint. And she said, “How could that promise be realized if a person were crippled? How could he receive the blessing that he could run and not be weary, and walk and not faint, if he were crippled?”
 
@@ -170,7 +172,7 @@ The trouble with us today, there are too many of us who put question marks inste
 
 If you would teach our people to put periods and not question marks after what the Lord has declared, we would say, “It is enough for me to know that is what the Lord said.”
 
-Elder Gordon B. Hinckley told a story after going into Vietnam that to me was a great lesson. There was a young man, as I remember it, who was in the military service in Vietnam and who joined the Church and was now about to go back to his home country in Southeast Asia.
+Elder Gordon B. Hinckley told a story after going into Vietnam that to me was a great lesson. There was a young man, as I remember it, who was in the military service in Vietnam and who joined the Church and was now about to go back to his home country in Southeast Asia.
 
 Brother Hinckley said to him, “What is it going to do to you when you get back home now that you have joined the Church?”
 
@@ -191,8 +193,3 @@ I bear you my solemn witness that it is true, that the Lord is in his heavens; h
 
 
 
-
-
-
-
-#Church_Leaders #Commandments #Faith #Morality #Obedience #Welfare

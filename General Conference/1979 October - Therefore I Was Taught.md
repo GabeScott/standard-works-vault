@@ -1,6 +1,8 @@
 # Therefore I Was Taught
 
-By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -40,11 +42,11 @@ Prepare now! Take steps now to strengthen your family. Spend time together. Esta
 
 As prophetic events unfold, one thing is certain: we will need to be more self-reliant. We will all need to teach more within the walls of our own homes. In the Book of Mormon we find some models:
 
-“I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father” ([[1 Nephi 1.1|1 Ne. 1:1]]). No doubt Nephi was taught the things of the Spirit—his writings reveal that. He probably was taught practical matters as well, for he was a very resourceful man. Today that son is fortunate whose father teaches him somewhat in *all* his learning.
+“I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father” ([[1 Nephi 1.1|1 Ne. 1:1]]). No doubt Nephi was taught the things of the Spirit—his writings reveal that. He probably was taught practical matters as well, for he was a very resourceful man. Today that son is fortunate whose father teaches him somewhat in *all* his learning.
 
 Enos, son of Jacob, was another who esteemed his father:
 
-“I, Enos, knowing my father that he was a just man—for he taught me … in the nurture and admonition of the Lord—and blessed be the name of my God for it. …
+“I, Enos, knowing my father that he was a just man—for he taught me … in the nurture and admonition of the Lord—and blessed be the name of my God for it. …
 
 “Behold, I went to hunt beasts in the forests; and the words which I had often heard my father speak concerning eternal life, and the joy of the saints, sunk deep into my heart.
 
@@ -57,8 +59,3 @@ Some few of us may receive public acclaim for our deeds. Most of us will live ou
 
 
 
-
-
-
-
-#Family #Teaching

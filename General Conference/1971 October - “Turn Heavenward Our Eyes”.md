@@ -1,6 +1,8 @@
 # “Turn Heavenward Our Eyes”
 
-By Bishop John H. Vandenberg - *Presiding Bishop*
+Joseph Fielding Smith
+
+By Bishop John H. Vandenberg - *Presiding Bishop*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -73,19 +75,19 @@ And then Satan appeared and tempted Moses and commanded in a loud voice: “I am
 
 “And now Satan began to tremble, and the earth shook; and Moses … called upon God, saying: In the name of the Only Begotten, depart hence, Satan.
 
-“And … Satan cried with a loud voice … and he departed hence, even from the presence of Moses. …
+“And … Satan cried with a loud voice … and he departed hence, even from the presence of Moses. …
 
 “And … when Satan had departed … Moses lifted up his eyes unto heaven, being filled with the Holy Ghost, which beareth record of the Father and the Son;
 
-“And calling upon the name of God, he beheld his glory again, for it was upon him. …”
+“And calling upon the name of God, he beheld his glory again, for it was upon him. …”
 
 And Moses beheld the earth and the inhabitants thereof. And he beheld many lands. And “Moses called upon God, saying: Tell me, I pray thee, why these things are so, and by what thou madest them?
 
-“And behold, the glory of the Lord was upon Moses, so that Moses stood in the presence of God, and talked with him face to face. And the Lord God said unto Moses: For mine own purpose have I made these things. …
+“And behold, the glory of the Lord was upon Moses, so that Moses stood in the presence of God, and talked with him face to face. And the Lord God said unto Moses: For mine own purpose have I made these things. …
 
-“And by the word of my power have I created them. …
+“And by the word of my power have I created them. …
 
-“And worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten. …
+“And worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten. …
 
 “But only an account of this earth, and the inhabitants thereof, give I unto you. For behold, there are many worlds that have passed away by the word of my power. And there are many that now stand, and innumerable are they unto man; but all things are numbered unto me, for they are mine and I know them.
 
@@ -101,9 +103,9 @@ Think of the impact of that statement. All the creations of God were made for th
 
 Moses became aware of the magnitude of the creation and its purpose firsthand, by talking face to face with God and beholding his works. There are few who have had that experience. But others have beheld God’s majesty through his works. Abraham Lincoln stated his conviction when he said that he could not conceive how anyone could look up into the heavens and say there is no God. I had an unforgettable witness to God’s handiwork as I lay on my back in the mountains of Bear Lake County, Idaho. No doubt many could concur in such an experience, for it has been said, “We must, despite ourselves, turn heavenward our eyes.”
 
-As the Lord talked to Moses, he told him of the creation of the earth and how he formed man and instructed him to teach his children to know good from evil and to teach them “that all men, everywhere, must repent, or they can in nowise inherit the kingdom of God, for no unclean thing can dwell there. …
+As the Lord talked to Moses, he told him of the creation of the earth and how he formed man and instructed him to teach his children to know good from evil and to teach them “that all men, everywhere, must repent, or they can in nowise inherit the kingdom of God, for no unclean thing can dwell there. …
 
-“… I give unto you a commandment to teach these things freely unto your children, saying:
+“… I give unto you a commandment to teach these things freely unto your children, saying:
 
 “That by reason of transgression cometh the fall, which fall bringeth death, and inasmuch as ye were born into the world by water, and blood, and the spirit, which I have made, and so became of dust a living soul, even so ye must be born again into the kingdom of heaven, of water, and of the Spirit, and be cleansed by blood, even the blood of mine Only Begotten; that ye might be sanctified from all sin, and enjoy the words of eternal life in this world, and eternal life in the world to come, even immortal glory;
 
@@ -136,7 +138,7 @@ What a responsibility for a mother and father, to answer this appeal from their 
 
 Do you think of yourself as a happy person? A young man once made a list of all the things he thought would bring happiness in life. He included such things as wealth, fame, honor, success, and love. It was quite a long list, and he thought he had covered everything; but when he showed it proudly to an elderly friend, he was told, “You have left out the most important thing of all—peace of mind.” The young man said he could not, at that time, understand how right his friend was.
 
-Peace of mind, a clear conscience, was declared by President David O. McKay as the first condition of happiness. He said: “It is glorious when you can lie down at night with a clear conscience that you have done your best not to offend anyone and have injured no one. … These and countless other virtues and conditions are all wrapped up in the Gospel of Jesus Christ.” (*Man May Know for Himself* \[Deseret Book Co., 1967\], p. 458.)
+Peace of mind, a clear conscience, was declared by President David O. McKay as the first condition of happiness. He said: “It is glorious when you can lie down at night with a clear conscience that you have done your best not to offend anyone and have injured no one. … These and countless other virtues and conditions are all wrapped up in the Gospel of Jesus Christ.” (*Man May Know for Himself* \[Deseret Book Co., 1967\], p. 458.)
 
 Some other conditions that make for happiness are the ability to follow that which you know to be true, to control your appetites and passions, to be able to make your own decisions, to feel no envy of another, to be able to commune with God in prayer, and to be free from bonds, and to be master of yourself.
 
@@ -149,8 +151,3 @@ May we guide our lives and those of our children in this direction, I pray humbl
 
 
 
-
-
-
-
-#Creation #Faith #Joy #Plan_Of_Salvation

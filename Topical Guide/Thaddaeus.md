@@ -1,4 +1,3 @@
 # Thaddaeus
 
-
-*See* [BD Thaddaeus](https://www.churchofjesuschrist.org/study/scriptures/bd/thaddaeus?lang=eng)
+*See also* [[BD Thaddaeus.md|BD Thaddaeus]]

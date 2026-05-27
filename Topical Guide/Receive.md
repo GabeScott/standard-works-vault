@@ -1,9 +1,8 @@
 # Receive
 
-
 *See also* [[Accept.md|Accept]]
 
-God will redeem my soul ... for he shall *receive* me, [[Psalms 49.15|Psalms 49:15]].
+God will redeem my soul … for he shall *receive* me, [[Psalms 49.15|Psalms 49:15]].
 
 wise in heart will *receive* commandments, [[Proverbs 10.8|Proverbs 10:8]].
 
@@ -13,13 +12,13 @@ whosoever shall not *receive* you, [[Matthew 10.14|Matthew 10:14]] ([[Mark 6.11|
 
 He that *receiveth* you *receiveth* me, and he that *receiveth* me *receiveth* him that sent me, [[Matthew 10.40|Matthew 10:40]].
 
-*receiveth* a prophet ... shall *receive* a prophet's reward, [[Matthew 10.41|Matthew 10:41]].
+*receiveth* a prophet … shall *receive* a prophet’s reward, [[Matthew 10.41|Matthew 10:41]].
 
 if ye will *receive* it, this is Elias, [[Matthew 11.14|Matthew 11:14]].
 
 heareth the word, and anon with joy *receiveth* it, [[Matthew 13.20|Matthew 13:20]] ([[Mark 4.16|Mark 4:16]]; [[Luke 8.13|Luke 8:13]]).
 
-whoso shall *receive* one such little child ... *receiveth* me, [[Matthew 18.5|Matthew 18:5]] ([[Mark 9.37|Mark 9:37]]; [[Luke 9.48|Luke 9:48]]).
+whoso shall *receive* one such little child … *receiveth* me, [[Matthew 18.5|Matthew 18:5]] ([[Mark 9.37|Mark 9:37]]; [[Luke 9.48|Luke 9:48]]).
 
 He that is able to *receive* it, let him *receive* it, [[Matthew 19.12|Matthew 19:12]].
 
@@ -57,7 +56,7 @@ as many as *received* him, to them gave he power, [[John 1.12|John 1:12]].
 
 man can *receive* nothing, except it be given him from heaven, [[John 3.27|John 3:27]].
 
-come in my Father's name, and ye *receive* me not, [[John 5.43|John 5:43]].
+come in my Father’s name, and ye *receive* me not, [[John 5.43|John 5:43]].
 
 they that believe on him should *receive*, [[John 7.39|John 7:39]].
 
@@ -79,9 +78,9 @@ they that gladly *received* his word were baptized, [[Acts 2.41|Acts 2:41]].
 
 heaven must *receive* until the times of restitution, [[Acts 3.21|Acts 3:21]].
 
-Stephen ... saying, Lord Jesus, *receive* my spirit, [[Acts 7.59|Acts 7:59]].
+Stephen … saying, Lord Jesus, *receive* my spirit, [[Acts 7.59|Acts 7:59]].
 
-prayed ... that they might *receive* the Holy Ghost, [[Acts 8.15|Acts 8:15]].
+prayed … that they might *receive* the Holy Ghost, [[Acts 8.15|Acts 8:15]].
 
 Have ye *received* the Holy Ghost, [[Acts 19.2|Acts 19:2]].
 
@@ -93,7 +92,7 @@ they will not *receive* thy testimony, [[Acts 22.18|Acts 22:18]].
 
 they which *receive* abundance of grace, [[Romans 5.17|Romans 5:17]].
 
-they that resist shall *receive* ... damnation, [[Romans 13.2|Romans 13:2]].
+they that resist shall *receive* … damnation, [[Romans 13.2|Romans 13:2]].
 
 Him that is weak in the faith *receive* ye, [[Romans 14.1|Romans 14:1]].
 
@@ -101,9 +100,9 @@ Him that is weak in the faith *receive* ye, [[Romans 14.1|Romans 14:1]].
 
 natural man *receiveth* not the things of the Spirit, [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
-*receive* his own reward according to ... labour, [[1 Corinthians 3.8|1 Corinthians 3:8]].
+*receive* his own reward according to … labour, [[1 Corinthians 3.8|1 Corinthians 3:8]].
 
-not *receive* ? now if thou didst *receive* it, why dost thou glory, [[1 Corinthians 4.7|1 Corinthians 4:7]].
+not *receive*? now if thou didst *receive* it, why dost thou glory, [[1 Corinthians 4.7|1 Corinthians 4:7]].
 
 *receive* not the grace of God in vain, [[2 Corinthians 6.1|2 Corinthians 6:1]].
 
@@ -125,7 +124,7 @@ ye shall *receive* the reward of the inheritance, [[Colossians 3.24|Colossians 3
 
 ye *received* it not as the word of men, [[1 Thessalonians 2.13|1 Thessalonians 2:13]].
 
-God ... *received* up into glory, [[1 Timothy 3.16|1 Timothy 3:16]].
+God … *received* up into glory, [[1 Timothy 3.16|1 Timothy 3:16]].
 
 having obtained a good report through faith, *received* not the promise, [[Hebrews 11.39|Hebrews 11:39]].
 
@@ -143,11 +142,11 @@ whatsoever we ask, we *receive* of him, [[1 John 3.22|1 John 3:22]].
 
 and bring not this doctrine, *receive* him not, [[2 John 1.10|2 John 1:10]].
 
-Remember ... how thou hast *received* and heard, [[Revelation 3.3|Revelation 3:3]].
+Remember … how thou hast *received* and heard, [[Revelation 3.3|Revelation 3:3]].
 
 *received* no kingdom as yet; but *receive* power as kings, [[Revelation 17.12|Revelation 17:12]].
 
-doing all things ... expedient for man to *receive*, [[1 Nephi 17.30|1 Nephi 17:30]].
+doing all things … expedient for man to *receive*, [[1 Nephi 17.30|1 Nephi 17:30]].
 
 he that is built upon the rock *receiveth* it, [[2 Nephi 28.28|2 Nephi 28:28]].
 
@@ -161,7 +160,7 @@ after ye have *received* so many witnesses, [[Alma 34.30|Alma 34:30]].
 
 my own *received* me not, [[3 Nephi 9.16|3 Nephi 9:16]] ([[D&C 6.21|D&C 6:21]]).
 
-whoso repenteth ... as a little child, him will I *receive*, [[3 Nephi 9.22|3 Nephi 9:22]].
+whoso repenteth … as a little child, him will I *receive*, [[3 Nephi 9.22|3 Nephi 9:22]].
 
 ye *receive* no witness until after the trial of your faith, [[Ether 12.6|Ether 12:6]].
 
@@ -181,17 +180,17 @@ He that *receiveth* my law and doeth it, [[D&C 41.5|D&C 41:5]].
 
 if ye *receive* not the Spirit ye shall not teach, [[D&C 42.14|D&C 42:14]].
 
-every man ... *receive* according to his wants, [[D&C 42.33|D&C 42:33]].
+every man … *receive* according to his wants, [[D&C 42.33|D&C 42:33]].
 
 *receive* it not; for they perceive not the light, [[D&C 45.29|D&C 45:29]].
 
 he that asketh in Spirit shall *receive* in Spirit, [[D&C 46.28|D&C 46:28]].
 
-he that *receiveth* light ... *receiveth* more, [[D&C 50.24|D&C 50:24]].
+he that *receiveth* light … *receiveth* more, [[D&C 50.24|D&C 50:24]].
 
 ye *receive* the Spirit through prayer, [[D&C 63.64|D&C 63:64]].
 
-*received* not the gospel ... neither the prophets, [[D&C 76.101|D&C 76:101]].
+*received* not the gospel … neither the prophets, [[D&C 76.101|D&C 76:101]].
 
 if you will *receive* it, this is Elias, [[D&C 77.9|D&C 77:9]].
 
@@ -203,7 +202,7 @@ he that *receiveth* me *receiveth* my Father, [[D&C 84.37|D&C 84:37]].
 
 all those who *receive* the priesthood, *receive* this oath and covenant, [[D&C 84.40|D&C 84:40]].
 
-baptized ... shall *receive* the Holy Ghost, [[D&C 84.64|D&C 84:64]].
+baptized … shall *receive* the Holy Ghost, [[D&C 84.64|D&C 84:64]].
 
 whoso *receiveth* you, there I will be also, [[D&C 84.88|D&C 84:88]].
 
@@ -217,10 +216,10 @@ because they *receive* me not, neither do they abide, [[D&C 132.25|D&C 132:25]].
 
 Abraham *received* all things, [[D&C 132.29|D&C 132:29]].
 
-All who ... would have *received* it, [[D&C 137.7|D&C 137:7]].
+All who … would have *received* it, [[D&C 137.7|D&C 137:7]].
 
 *receive* them into our bosom, [[Moses 7.63|Moses 7:63]].
 
 Zion was not, for God *received* it up, [[Moses 7.69|Moses 7:69]].
 
-earth will ... *receive* its paradisiacal glory, [[Articles of Faith 1.10|Articles of Faith 1:10]].
+earth will … *receive* its paradisiacal glory, [[Articles of Faith 1.10|Articles of Faith 1:10]].

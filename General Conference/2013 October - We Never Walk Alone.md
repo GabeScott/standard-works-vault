@@ -1,6 +1,8 @@
 # We Never Walk Alone
 
-By President Thomas S. Monson - *President of the Church*
+Thomas S. Monson
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -24,7 +26,7 @@ There will be times when you will walk a path strewn with thorns and marked by s
 
 When you find yourself in such circumstances, I plead with you to remember prayer. I love the words of President Ezra Taft Benson concerning prayer. Said he:
 
-“All through my life the counsel to depend on prayer has been prized above almost any other advice I have … received. It has become an integral part of me—an anchor, a constant source of strength, and the basis of my knowledge of things divine. …
+“All through my life the counsel to depend on prayer has been prized above almost any other advice I have … received. It has become an integral part of me—an anchor, a constant source of strength, and the basis of my knowledge of things divine. …
 
 “… Though reverses come, in prayer we can find reassurance, for God will speak peace to the soul. That peace, that spirit of serenity, is life’s greatest blessing.”[^2]
 
@@ -62,7 +64,7 @@ Allied with prayer in helping us cope in our often difficult world is scripture 
 
 As we read and ponder the scriptures, we will experience the sweet whisperings of the Spirit to our souls. We can find answers to our questions. We learn of the blessings which come through keeping God’s commandments. We gain a sure testimony of our Heavenly Father and our Savior, Jesus Christ, and of Their love for us. When scripture study is combined with our prayers, we can of a certainty know that the gospel of Jesus Christ is true.
 
-Said President Gordon B. Hinckley, “May the Lord bless each of us to feast upon his holy \[words\] and to draw from \[them\] that strength, that peace, \[and\] that knowledge ‘which passeth all understanding’ ([[Philippians 4.7|Philip. 4:7]]).”[^10]
+Said President Gordon B. Hinckley, “May the Lord bless each of us to feast upon his holy \[words\] and to draw from \[them\] that strength, that peace, \[and\] that knowledge ‘which passeth all understanding’ ([[Philippians 4.7|Philip. 4:7]]).”[^10]
 
 As we remember prayer and take time to turn to the scriptures, our lives will be infinitely more blessed and our burdens will be made lighter.
 
@@ -107,15 +109,13 @@ I leave with you my blessing. I leave with you my gratitude for all the good you
 
 [^5]: [[Luke 22.42|Luke 22:42]].
 
-[^6]: Eliza M. Hickok, “Prayer,” in James Gilchrist Lawson, ed., *The Best Loved Religious Poems* (1933), 160.
+[^6]: Eliza M. Hickok, “Prayer,” in James Gilchrist Lawson, ed., *The Best Loved Religious Poems* (1933), 160.
 
-[^7]: [[Luke 21.36|Luke 21:36]]; see also [[2 Nephi 32.9|2 Nephi 32:9]]; [[3 Nephi 18.15|3 Nephi 18:15]]; [[D&C 10.5|Doctrine and Covenants 10:5]]; [[D&C 19.38|19:38]]; [[D&C 20.33|20:33]]; [[D&C 31.12|31:12]]; [[D&C 61.39|61:39]]; [[D&C 88.126|88:126]]; [[D&C 93.49|93:49]].
+[^7]: [[Luke 21.36|Luke 21:36]]; see also [[2 Nephi 32.9|2 Nephi 32:9]]; [[3 Nephi 18.15|3 Nephi 18:15]]; [[D&C 10.5|Doctrine and Covenants 10:5]]; [[D&C 19.38|19:38]]; [[D&C 20.33|20:33]]; [[D&C 31.12|31:12]]; [[D&C 61.39|61:39]]; [[D&C 88.126|88:126]]; [[D&C 93.49|93:49]].
 
-[^8]: See [[3 Nephi 20.1|3 Nephi 20:1]].
+[^8]: See [[3 Nephi 20.1|3 Nephi 20:1]].
 
 [^9]: “Did You Think to Pray?” *Hymns,* no. 140.
 
+[^10]: Gordon B. Hinckley, “Feasting upon the Scriptures,” *Ensign,* Dec. 1985, 45; or *Tambuli,* June 1986, 4.
 
-
-
-#Adversity #Love #Prayer #Scripture_Study

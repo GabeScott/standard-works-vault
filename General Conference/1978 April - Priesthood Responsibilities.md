@@ -1,6 +1,8 @@
 # Priesthood Responsibilities
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -22,7 +24,7 @@ We fathers should never forget the Lord’s decree that “inasmuch as parents h
 
 Referring to these instructions, the *Doctrine and Covenants Commentary* has this to say:
 
-“Many people in the world consider that they have done their full duty to their children, when they have given them shelter, food, clothing, and education. … But Latter-day Saints have a still more important duty, as parents. They must teach their children. … It is not enough to send them to Primaries, Sunday-schools, and day-schools. The parents themselves have a personal duty to perform as teachers of their children. They must see to it that the little ones are … taught to pray and walk uprightly before the Lord.” (Hyrum M. Smith and Janne M. Sjodahl, *Doctrine and Covenants Commentary,* rev. ed., Salt Lake City: Deseret Book Co., 1972, p. 414.)
+“Many people in the world consider that they have done their full duty to their children, when they have given them shelter, food, clothing, and education. … But Latter-day Saints have a still more important duty, as parents. They must teach their children. … It is not enough to send them to Primaries, Sunday-schools, and day-schools. The parents themselves have a personal duty to perform as teachers of their children. They must see to it that the little ones are … taught to pray and walk uprightly before the Lord.” (Hyrum M. Smith and Janne M. Sjodahl, *Doctrine and Covenants Commentary,* rev. ed., Salt Lake City: Deseret Book Co., 1972, p. 414.)
 
 If we fathers would frequently read [[D&C 93.40|verses 40 to 50 of the ninety-third section of the Doctrine and Covenants]][[D&C 93.41|]][[D&C 93.42|]][[D&C 93.43|]][[D&C 93.44|]][[D&C 93.45|]][[D&C 93.46|]][[D&C 93.47|]][[D&C 93.48|]][[D&C 93.49|]][[D&C 93.50|]], we would be greatly helped to keep alert to our divinely imposed responsibilities to teach and train our children.
 
@@ -36,9 +38,9 @@ Concerning Aaronic Priesthood responsibilities, the Lord, at the time he organiz
 
 “The priest’s duty is to preach, teach, expound, exhort, and baptize, and administer the sacrament,
 
-“And visit the house of each member, and exhort them to pray vocally and in secret and attend to all family duties. …
+“And visit the house of each member, and exhort them to pray vocally and in secret and attend to all family duties. …
 
-“The teacher’s duty,” he said, “is to watch over the church always, and be with and strengthen them; …
+“The teacher’s duty,” he said, “is to watch over the church always, and be with and strengthen them; …
 
 “And see that the church meet together often, and also see that all the members do their duty.” ([[D&C 20.46|D&C 20:46–47, 53, 55]][[D&C 20.47|]][[D&C 20.53|]][[D&C 20.55|]].)
 
@@ -78,19 +80,19 @@ He evidenced superb courage of another kind when, in defiance of the king’s ed
 
 The great virtue of faith was demonstrated by Nephi when as a youth he said:
 
-“I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
+“I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
 
 This was his response to the commandment the Lord gave through his father, Lehi, that he and his brethren return to Jerusalem to obtain the records from Laban.
 
 When his brother Laman failed to persuade Laban to part with the records and he and Lemuel were about to return to their father in the wilderness without them, Nephi said:
 
-“As the Lord liveth, and as we live, we will not go down unto our father in the wilderness until we have accomplished the thing which the Lord hath commanded us.” ([[1 Nephi 3.15|1 Ne. 3:15]].)
+“As the Lord liveth, and as we live, we will not go down unto our father in the wilderness until we have accomplished the thing which the Lord hath commanded us.” ([[1 Nephi 3.15|1 Ne. 3:15]].)
 
 He then persuaded them to get the gold and silver and other riches they had left in the land of their inheritance and offer them to Laban in exchange for the records. This they did, to no avail.
 
 Nephi then said to his complaining brothers, as they urged that they return to their father in the wilderness without the records:
 
-“Let us go up again unto Jerusalem, and let us be faithful in keeping the commandments of the Lord; for behold he is mightier than all the earth, then why not mightier than Laban and his fifty, yea, or even than his tens of thousands?” ([[1 Nephi 4.1|1 Ne. 4:1]].)
+“Let us go up again unto Jerusalem, and let us be faithful in keeping the commandments of the Lord; for behold he is mightier than all the earth, then why not mightier than Laban and his fifty, yea, or even than his tens of thousands?” ([[1 Nephi 4.1|1 Ne. 4:1]].)
 
 Nephi then, led by the Spirit of the Lord, went in alone and came out with the records.
 
@@ -98,9 +100,9 @@ Great was the faith of Nephi.
 
 In case some of you Aaronic Priesthood bearers feel that you are too young to assume the responsibility of your calling, consider these quotations from the writings of Mormon:
 
-“About the time that Ammaron hid up the records unto the Lord, he came unto me, (I being about ten years of age, … ) and … said unto me: …
+“About the time that Ammaron hid up the records unto the Lord, he came unto me, (I being about ten years of age, … ) and … said unto me: …
 
-“When ye are about twenty and four years old I would that ye should remember the things that ye have observed concerning this people; and … go to the … hill which shall be called Shim; and there have I deposited … the sacred engravings concerning this people. …
+“When ye are about twenty and four years old I would that ye should remember the things that ye have observed concerning this people; and … go to the … hill which shall be called Shim; and there have I deposited … the sacred engravings concerning this people. …
 
 “Take the plates of Nephi … and … engrave on \[them\] all the things that ye have observed concerning this people.” ([[Mormon 1.2|Morm. 1:2–4]][[Mormon 1.3|]][[Mormon 1.4|]].)
 
@@ -108,7 +110,7 @@ These instructions Mormon received when he was but ten years old.
 
 Five years later he wrote:
 
-“And I, being fifteen years of age … , there began to be a war again between the Nephites and the Lamanites. And notwithstanding I being young, was large in stature; therefore the people of Nephi appointed me … the leader of their armies.
+“And I, being fifteen years of age … , there began to be a war again between the Nephites and the Lamanites. And notwithstanding I being young, was large in stature; therefore the people of Nephi appointed me … the leader of their armies.
 
 “Therefore it came to pass that in my sixteenth year I did go forth at the head of an army of the Nephites, against the Lamanites.” ([[Mormon 1.15|Morm. 1:15]]; [[Mormon 2.1|2:1–2]][[Mormon 2.2|]].)
 
@@ -122,7 +124,7 @@ So acting, he received his first vision.
 
 Courage and reliability he demonstrated in his reaction to the abuse which followed his telling about that vision.
 
-“I soon found,” he wrote, “… that my telling the story had excited a great deal of prejudice against me among professors of religion, and was the cause of great persecution, which continued to increase; and though I was an obscure boy, only between fourteen and fifteen years of age, and my circumstances in life such as to make a boy of no consequence in the world, yet men of high standing would take notice sufficient to excite the public mind against me, and create a bitter persecution; and this was common among all the sects—all united to persecute me. …
+“I soon found,” he wrote, “… that my telling the story had excited a great deal of prejudice against me among professors of religion, and was the cause of great persecution, which continued to increase; and though I was an obscure boy, only between fourteen and fifteen years of age, and my circumstances in life such as to make a boy of no consequence in the world, yet men of high standing would take notice sufficient to excite the public mind against me, and create a bitter persecution; and this was common among all the sects—all united to persecute me. …
 
 “It was nevertheless a fact that I had beheld a vision. I have thought since, that I felt much like Paul, when he made his defense before King Agrippa, and related the account of the vision he had when he saw a light, and heard a voice; but still there were but few who believed him; some said he was dishonest, others said he was mad; and he was ridiculed and reviled. But all this did not destroy the reality of his vision. He had seen a vision, he knew he had, and all the persecution under heaven could not make it otherwise; and though they should persecute him unto death, yet he knew, and would know to his latest breath, that he had both seen a light and heard a voice speaking unto him, and all the world could not make him think or believe otherwise.
 
@@ -133,8 +135,3 @@ These great virtues, you young Aaronic Priesthood brothers, are worth following 
 
 
 
-
-
-
-
-#Character #Parenthood #Priesthood

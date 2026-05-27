@@ -1,6 +1,5 @@
 # Horse
 
-
 Joseph gave them bread in exchange for *horses*, [[Genesis 47.17|Genesis 47:17]].
 
 *horse* and his rider hath he thrown into the sea, [[Exodus 15.1|Exodus 15:1]].
@@ -33,7 +32,7 @@ man riding upon a red *horse*, [[Zechariah 1.8|Zechariah 1:8]].
 
 In the first chariot were red *horses*, [[Zechariah 6.2|Zechariah 6:2]].
 
-we put bits in the *horses'* mouths, [[James 3.3|James 3:3]].
+we put bits in the *horses’* mouths, [[James 3.3|James 3:3]].
 
 I saw, and behold a white *horse*, [[Revelation 6.2|Revelation 6:2]] ([[Revelation 19.11|Revelation 19:11]]).
 

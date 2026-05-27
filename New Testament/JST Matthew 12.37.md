@@ -4,6 +4,3 @@
 
 [JST Matthew 12:37](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/12?lang=eng)
 
-
-
-

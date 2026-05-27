@@ -1,5 +1,7 @@
 # More Holiness Give Me
 
+Gordon B. Hinckley
+
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the October session of the 2004 General Conference*
@@ -14,7 +16,7 @@ At a recent stake conference, a young lady came up to me at the conclusion. As w
 
 At the conclusion of every general conference, I experience a longing for more—more of the serenity of the occasion, more of the companionship of the Spirit, more of the nurturing that has brightened and blessed my soul.
 
-The current conventional wisdom is that more is better and less is usually undesirable. For some, the pursuit to acquire more of this world’s goods and services has become a passion. For others, more of this world’s wealth is necessary just to sustain life or raise living standards to a minimum level. The unbridled desire for more often has tragic consequences. For example, President Boyd K. Packer reminded us: “We could be like a father determined to provide everything for his family. He devotes every energy to that end and succeeds; only then does he discover that what they needed most—to be together as a family—has been neglected. And he reaps sorrow in place of contentment” (in Conference Report, Oct. 1998, 28; or *Ensign,* Nov. 1998, 22).
+The current conventional wisdom is that more is better and less is usually undesirable. For some, the pursuit to acquire more of this world’s goods and services has become a passion. For others, more of this world’s wealth is necessary just to sustain life or raise living standards to a minimum level. The unbridled desire for more often has tragic consequences. For example, President Boyd K. Packer reminded us: “We could be like a father determined to provide everything for his family. He devotes every energy to that end and succeeds; only then does he discover that what they needed most—to be together as a family—has been neglected. And he reaps sorrow in place of contentment” (in Conference Report, Oct. 1998, [[1998 October - Parents in Zion.md|28]]; or *Ensign,* Nov. 1998, 22).
 
 Parents who have been successful in acquiring more often have a difficult time saying no to the demands of overindulged children. Their children run the risk of not learning important values like hard work, delayed gratification, honesty, and compassion. Affluent parents can and do raise well-adjusted, loving, and value-centered children, but the struggle to set limits, make do with less, and avoid the pitfalls of “more, more, more” has never been more difficult. It is hard to say no to more when you can afford to say yes.
 
@@ -30,7 +32,7 @@ We have all heard children, after they have opened many Christmas or birthday gi
 
 The meaning of *more* and *less* is not always crystal clear. There are times when less is in reality more and times when more can be less. For instance, less pursuit of materialism may enable more family togetherness. More indulgence of children may result in less understanding of life’s important values.
 
-Some aspects of life can be significantly enhanced by the notion that more is better. The sacred hymn “More Holiness Give Me” (*Hymns,* no. 131) brings to our remembrance the virtues worthy of more of our attention. Jesus Himself described what it requires to be “more, Savior, like thee.” He said, “I would that ye should be perfect even as I, or your Father who is in heaven is perfect” ([[3 Nephi 12.48|3 Nephi 12:48]]).
+Some aspects of life can be significantly enhanced by the notion that more is better. The sacred hymn “More Holiness Give Me” (*Hymns,* no. 131) brings to our remembrance the virtues worthy of more of our attention. Jesus Himself described what it requires to be “more, Savior, like thee.” He said, “I would that ye should be perfect even as I, or your Father who is in heaven is perfect” ([[3 Nephi 12.48|3 Nephi 12:48]]).
 
 Meekness is vital to becoming more Christlike. Without it one cannot develop other important virtues. Mormon indicated, “None is acceptable before God, save the meek and lowly in heart” ([[Moroni 7.44|Moroni 7:44]]). Acquiring meekness is a process. We are asked to “take up \[the\] cross daily” ([[Luke 9.23|Luke 9:23]]). Our lifting should not be an occasional exercise. More meekness does not translate to weakness, but “it is the presentation of self in a posture of *kindness* and *gentleness.* It reflects certitude, strength, serenity; it reflects a healthy self-esteem and a genuine self-control” (Neal A. Maxwell, “Meekly Drenched in Destiny,” in *Brigham Young University 1982–83 Fireside and Devotional Speeches* \[1983\], 2). More meekness will allow us to be tutored by the Spirit.
 
@@ -59,8 +61,3 @@ In discussing our various longings for more, I’m not suggesting we adopt Scroo
 
 
 
-
-
-
-
-#Charity #Gratitude #Humility #Parenthood #Service #Worldliness

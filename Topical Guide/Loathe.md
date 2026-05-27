@@ -1,7 +1,6 @@
 # Loathe
 
-
-*See also* [[Abhor.md|Abhor]]; [[Despise.md|Despise]]; [[Hate.md|Hate]]; [[Loathsome.md|Loathsome]]; [[Scorn, Scornful.md|Scorn]]
+*See also* [[Abhor.md|Abhor]]; [[Despise.md|Despise]]; [[Hate.md|Hate]]; [[Loathsome.md|Loathsome]]; [[Scorn.md|Scorn]]
 
 our soul *loatheth* this light bread, [[Numbers 21.5|Numbers 21:5]].
 

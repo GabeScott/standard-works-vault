@@ -1,5 +1,7 @@
 # “They’re Not Really Happy”
 
+Ezra Taft Benson
+
 By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1987 General Conference*
@@ -20,7 +22,7 @@ Lehi’s vision of the tree of life is appropriate for our day. In that vision, 
 
 “And I … beheld … a great and spacious building; …
 
-“And it was filled with people, both old and young, … and their manner of dress was exceedingly fine; and they were in the attitude of mocking and pointing their fingers towards those who … were partaking of the fruit” ([[1 Nephi 8.26|1 Ne. 8:26–27]][[1 Nephi 8.27|]]).
+“And it was filled with people, both old and young, … and their manner of dress was exceedingly fine; and they were in the attitude of mocking and pointing their fingers towards those who … were partaking of the fruit” ([[1 Nephi 8.26|1 Ne. 8:26–27]][[1 Nephi 8.27|]]).
 
 Even though you have a testimony and want to do what is right, it is difficult not to be drawn to the great and spacious building. From all appearances, the people in the building seem to be having a great time. The music and laughter are deafening. You would say to me what my children have said, “They’re not really happy, huh, Dad?” as you watch them party.
 
@@ -53,8 +55,3 @@ At your earthly home, you will find your father’s arms have always been open f
 
 
 
-
-
-
-
-#Agency #Standards #Temptation #Worldliness #Youth

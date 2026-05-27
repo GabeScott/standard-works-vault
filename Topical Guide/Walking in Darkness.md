@@ -1,6 +1,5 @@
 # Walking in Darkness
 
-
 *See also* [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Walk.md|Walk]]; [[Walking with God.md|Walking with God]]
 
 neither shall ye *walk* in their ordinances, [[Leviticus 18.3|Leviticus 18:3]].
@@ -19,7 +18,7 @@ they *walk on in darkness*, [[Psalms 82.5|Psalms 82:5]].
 
 *walk* not thou in the way with them, [[Proverbs 1.15|Proverbs 1:15]].
 
-leave ... uprightness, to *walk* in the ways of *darkness*, [[Proverbs 2.13|Proverbs 2:13]].
+leave … uprightness, to *walk* in the ways of *darkness*, [[Proverbs 2.13|Proverbs 2:13]].
 
 fool *walketh in darkness*, [[Ecclesiastes 2.14|Ecclesiastes 2:14]].
 
@@ -37,7 +36,7 @@ burn incense unto Baal, and *walk* after other gods, [[Jeremiah 7.9|Jeremiah 7:9
 
 *walk* after our own devices, [[Jeremiah 18.12|Jeremiah 18:12]].
 
-ye ... have not *walked* in my statutes, [[Ezekiel 5.7|Ezekiel 5:7]] ([[Ezekiel 11.12|Ezekiel 11:12]]).
+ye … have not *walked* in my statutes, [[Ezekiel 5.7|Ezekiel 5:7]] ([[Ezekiel 11.12|Ezekiel 11:12]]).
 
 those that *walk* in pride he is able to abase, [[Daniel 4.37|Daniel 4:37]].
 
@@ -57,7 +56,7 @@ ye *walked* according to the course of this world, [[Ephesians 2.2|Ephesians 2:2
 
 called you out of *darkness* into his marvellous light, [[1 Peter 2.9|1 Peter 2:9]].
 
-past ... when we *walked* in lasciviousness, [[1 Peter 4.3|1 Peter 4:3]].
+past … when we *walked* in lasciviousness, [[1 Peter 4.3|1 Peter 4:3]].
 
 them that *walk* after the flesh, [[2 Peter 2.10|2 Peter 2:10]].
 
@@ -65,9 +64,9 @@ in him is no *darkness* at all, [[1 John 1.5|1 John 1:5]].
 
 say that we have fellowship with him, and *walk in darkness*, [[1 John 1.6|1 John 1:6]].
 
-hateth his brother ... *walketh in darkness*, [[1 John 2.11|1 John 2:11]].
+hateth his brother … *walketh in darkness*, [[1 John 2.11|1 John 2:11]].
 
-mockers ... who should *walk* after their own ungodly lusts, [[Jude 1.18|Jude 1:18]].
+mockers … who should *walk* after their own ungodly lusts, [[Jude 1.18|Jude 1:18]].
 
 *hearken* not unto the counsel of God, [[2 Nephi 9.28|2 Nephi 9:28]].
 
@@ -77,9 +76,9 @@ he did not *walk* in the ways of his father, [[Mosiah 11.1|Mosiah 11:1]].
 
 did *walk* after the desires of his own heart, [[Mosiah 11.2|Mosiah 11:2]].
 
-would not give heed ... to *walk* uprightly before God, [[Alma 45.24|Alma 45:24]].
+would not give heed … to *walk* uprightly before God, [[Alma 45.24|Alma 45:24]].
 
-slow to *walk* in wisdom's paths, [[Helaman 12.5|Helaman 12:5]].
+slow to *walk* in wisdom’s paths, [[Helaman 12.5|Helaman 12:5]].
 
 *walk* after the pride of your eyes, [[Helaman 13.27|Helaman 13:27]].
 
@@ -89,4 +88,4 @@ every man *walketh* in his own way, [[D&C 1.16|D&C 1:16]].
 
 they are *walking in darkness* at noon-day, [[D&C 95.6|D&C 95:6]].
 
-keep not my commandments ... *walk in darkness*, [[D&C 95.12|D&C 95:12]].
+keep not my commandments … *walk in darkness*, [[D&C 95.12|D&C 95:12]].

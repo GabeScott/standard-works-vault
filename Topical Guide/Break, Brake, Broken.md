@@ -1,23 +1,22 @@
 # Break, Brake, Broken
 
-
 *See also* [[Contrite Heart.md|Contrite Heart]]
 
 fountains of the great deep *broken* up, [[Genesis 7.11|Genesis 7:11]].
 
-the uncircumcised ... hath *broken* my covenant, [[Genesis 17.14|Genesis 17:14]].
+the uncircumcised … hath *broken* my covenant, [[Genesis 17.14|Genesis 17:14]].
 
 thou shalt *break* his yoke from off thy neck, [[Genesis 27.40|Genesis 27:40]].
 
 neither shall ye *break* a bone, [[Exodus 12.46|Exodus 12:46]] ([[Numbers 9.12|Numbers 9:12]]).
 
-Moses ... cast the tables ... and *brake* them, [[Exodus 32.19|Exodus 32:19]] ([[Deuteronomy 9.17|Deuteronomy 9:17]]).
+Moses … cast the tables … and *brake* them, [[Exodus 32.19|Exodus 32:19]] ([[Deuteronomy 9.17|Deuteronomy 9:17]]).
 
-ye shall ... *break* their images, [[Exodus 34.13|Exodus 34:13]] ([[Deuteronomy 7.5|Deuteronomy 7:5]]; [[2 Kings 23.14|2 Kings 23:14]]).
+ye shall … *break* their images, [[Exodus 34.13|Exodus 34:13]] ([[Deuteronomy 7.5|Deuteronomy 7:5]]; [[2 Kings 23.14|2 Kings 23:14]]).
 
-he shall ... *break* their bones, [[Numbers 24.8|Numbers 24:8]].
+he shall … *break* their bones, [[Numbers 24.8|Numbers 24:8]].
 
-If a man vow ... he shall not *break* his word, [[Numbers 30.2|Numbers 30:2]].
+If a man vow … he shall not *break* his word, [[Numbers 30.2|Numbers 30:2]].
 
 blew the trumpets, and *brake* the pitchers, [[Judges 7.19|Judges 7:19]].
 
@@ -47,9 +46,9 @@ a *broken* spirit drieth the bones, [[Proverbs 17.22|Proverbs 17:22]].
 
 Lord hath *broken* the staff of the wicked, [[Isaiah 14.5|Isaiah 14:5]].
 
-they have ... *broken* the everlasting covenant, [[Isaiah 24.5|Isaiah 24:5]] ([[Isaiah 33.8|Isaiah 33:8]]; [[D&C 1.15|D&C 1:15]]).
+they have … *broken* the everlasting covenant, [[Isaiah 24.5|Isaiah 24:5]] ([[Isaiah 33.8|Isaiah 33:8]]; [[D&C 1.15|D&C 1:15]]).
 
-he shall *break* it as the breaking of the potters' vessel, [[Isaiah 30.14|Isaiah 30:14]].
+he shall *break* it as the breaking of the potters’ vessel, [[Isaiah 30.14|Isaiah 30:14]].
 
 A bruised reed shall he not *break*, [[Isaiah 42.3|Isaiah 42:3]] ([[Matthew 12.20|Matthew 12:20]]).
 
@@ -57,7 +56,7 @@ A bruised reed shall he not *break*, [[Isaiah 42.3|Isaiah 42:3]] ([[Matthew 12.2
 
 the house of Judah have *broken* my covenant, [[Jeremiah 11.10|Jeremiah 11:10]] ([[Jeremiah 31.32|Jeremiah 31:32]]).
 
-I *break* this people ... as one *breaketh* a potter's vessel, [[Jeremiah 19.11|Jeremiah 19:11]].
+I *break* this people … as one *breaketh* a potter’s vessel, [[Jeremiah 19.11|Jeremiah 19:11]].
 
 Mine heart within me is *broken*, [[Jeremiah 23.9|Jeremiah 23:9]].
 
@@ -67,7 +66,7 @@ that which I have built will I *break* down, [[Jeremiah 45.4|Jeremiah 45:4]].
 
 oath he despised, and whose covenant he *brake*, [[Ezekiel 17.16|Ezekiel 17:16]].
 
-kingdom ... shall *break* in pieces, [[Daniel 2.44|Daniel 2:44]].
+kingdom … shall *break* in pieces, [[Daniel 2.44|Daniel 2:44]].
 
 his kingdom shall be *broken*, [[Daniel 11.4|Daniel 11:4]].
 
@@ -115,7 +114,7 @@ branch which was to be *broken* off, [[2 Nephi 3.5|2 Nephi 3:5]].
 
 Christ, who has *broken* the bands of death, [[Mosiah 15.23|Mosiah 15:23]].
 
-rocks ... shall be *broken*, [[Helaman 14.21|Helaman 14:21]].
+rocks … shall be *broken*, [[Helaman 14.21|Helaman 14:21]].
 
 offer for a sacrifice unto me a *broken* heart and a contrite spirit, [[3 Nephi 9.20|3 Nephi 9:20]] ([[D&C 59.8|D&C 59:8]]).
 
@@ -131,4 +130,4 @@ men, whose hearts are not *broken*, [[D&C 56.17|D&C 56:17]].
 
 Let no man *break* the laws of the land, [[D&C 58.21|D&C 58:21]].
 
-the voice ... shall *break* down the mountains, [[D&C 133.22|D&C 133:22]].
+the voice … shall *break* down the mountains, [[D&C 133.22|D&C 133:22]].

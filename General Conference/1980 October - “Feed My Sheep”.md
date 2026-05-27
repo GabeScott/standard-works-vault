@@ -1,6 +1,8 @@
 # “Feed My Sheep”
 
-By Elder Rex C. Reeve, Sr. - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Rex C. Reeve, Sr. - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -48,7 +50,7 @@ Now, silent witnesses are not of much value. The Lord has said: “It becometh e
 
 He has also said to us as members of his church: “But with some I am not well pleased, for they will not open their mouths, but they hide the talent which I have given unto them, because of the fear of man. Wo unto such, for mine anger is kindled against them” ([[D&C 60.2|D&C 60:2]]).
 
-“Open your mouths and they shall be filled, …
+“Open your mouths and they shall be filled, …
 
 “Yea, open your mouths and spare not, and you shall be laden with sheaves upon your backs, for lo, I am with you.
 
@@ -70,7 +72,7 @@ On several occasions men came to the Prophet Joseph Smith and asked him to inqui
 
 Do we keep a missionary ledger where we might record that which will be of “most worth” to us?
 
-You might be interested in this idea; it might help you, too. We have a family missionary ledger. It is just an ordinary ledger on which we have placed a picture of the risen Christ saying to his prophet, President Spencer W. Kimball, “Feed my sheep.” We have placed President Kimball’s picture there and our picture below it with his words saying, “Lengthen your stride! Do it now!” Then I have written my comment, “If it is to be, it is up to me!”—which means I have to do something about it *now.*
+You might be interested in this idea; it might help you, too. We have a family missionary ledger. It is just an ordinary ledger on which we have placed a picture of the risen Christ saying to his prophet, President Spencer W. Kimball, “Feed my sheep.” We have placed President Kimball’s picture there and our picture below it with his words saying, “Lengthen your stride! Do it now!” Then I have written my comment, “If it is to be, it is up to me!”—which means I have to do something about it *now.*
 
 In this ledger we are listing the names of the wonderful people we meet in our regular course of life who haven’t yet become members of the Church. Under each name we record the date we met them and what we did with them.
 
@@ -94,15 +96,10 @@ My, what a marvelous promise!
 
 To you brethren who are stake presidents and bishops: If you really want to sanctify your people—if you want to strengthen your wards and stakes—lead and involve them in missionary work. Every young man should be prepared to fill a mission. They get fifty years’ worth of spiritual training on a mission. It’s the greatest thing that can come to a young man. And every family should be a friendshipping family. I say to you fathers, if you really want to strengthen and bless your family, if you want to strengthen them—help your family to be a friendshipping family.
 
-I witness to you that Jesus is the Christ, the Son of God, our Savior and Redeemer, and he speaks to us through his prophet, President Spencer W. Kimball.
+I witness to you that Jesus is the Christ, the Son of God, our Savior and Redeemer, and he speaks to us through his prophet, President Spencer W. Kimball.
 
 I pray God to bless us that we might have the missionary spirit come into our hearts, that we might reach out and give to those who do not have the great blessings that we have. Remember now that Christ has no hands but our hands and no voice but our voice to do his work today. And I witness to you, it pays the greatest dividends, and I say this to you in the name of Jesus Christ, the Lord, amen.
 
 
 
 
-
-
-
-
-#Missionary_Work

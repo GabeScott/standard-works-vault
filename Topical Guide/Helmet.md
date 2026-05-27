@@ -1,6 +1,5 @@
 # Helmet
 
-
 *helmet* of brass upon his head, [[1 Samuel 17.5|1 Samuel 17:5]].
 
 *helmet* of salvation upon his head, [[Isaiah 59.17|Isaiah 59:17]].

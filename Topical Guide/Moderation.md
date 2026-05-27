@@ -1,4 +1,3 @@
 # Moderation
 
-
-*See* [[Self-Mastery.md|Self-Mastery]]; [[Temperance, Temperate.md|Temperance]]; [[Word of Wisdom.md|Word of Wisdom]]
+*See also* [[Self-Mastery.md|Self-Mastery]]; [[Temperance.md|Temperance]]; [[Word of Wisdom.md|Word of Wisdom]]

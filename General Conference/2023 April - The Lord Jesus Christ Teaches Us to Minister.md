@@ -1,6 +1,8 @@
 # The Lord Jesus Christ Teaches Us to Minister
 
-By Elder Juan A. Uceda - *Of the Seventy*
+Gary E. Stevenson
+
+By Elder Juan A. Uceda - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -10,7 +12,7 @@ By Elder Juan A. Uceda - *Of the Seventy*
 
 The Lord Jesus Christ said:
 
-“I am the good shepherd: the good shepherd giveth his life for the sheep. …
+“I am the good shepherd: the good shepherd giveth his life for the sheep. …
 
 “As the Father knoweth me, even so know I the Father: and I lay down my life for the sheep.”[^1]
 
@@ -24,7 +26,7 @@ In the Book of Mormon, He is called “the good shepherd”[^6] and the “great
 
 In the Doctrine and Covenants, He declares, “Wherefore, I am in your midst, and I am the good shepherd.”[^8]
 
-In our day, President Russell M. Nelson has declared: “The Good Shepherd lovingly cares for all sheep of His fold, and we are His true undershepherds. Our privilege is to bear His love and to add our own love to friends and neighbors—feeding, tending, and nurturing them—as the Savior would have us do.”[^9]
+In our day, President Russell M. Nelson has declared: “The Good Shepherd lovingly cares for all sheep of His fold, and we are His true undershepherds. Our privilege is to bear His love and to add our own love to friends and neighbors—feeding, tending, and nurturing them—as the Savior would have us do.”[^9]
 
 More recently, President Nelson has said: “A hallmark of the Lord’s true and living Church will always be an organized, directed effort to minister to individual children of God and their families. Because it is His Church, we as His servants will minister to the one, just as He did. We will minister in His name, with His power and authority, and with His loving-kindness.”[^10]
 
@@ -59,9 +61,9 @@ The following Sunday he was back. He had a long conversation with his bishop and
 
 [^2]: [[Hebrews 13.20|Hebrews 13:20]].
 
-[^3]: [[1 Peter 5.4|1 Peter 5:4]].
+[^3]: [[1 Peter 5.4|1 Peter 5:4]].
 
-[^4]: [[1 Peter 2.25|1 Peter 2:25]].
+[^4]: [[1 Peter 2.25|1 Peter 2:25]].
 
 [^5]: [[Isaiah 40.11|Isaiah 40:11]].
 
@@ -71,9 +73,9 @@ The following Sunday he was back. He had a long conversation with his bishop and
 
 [^8]: [[D&C 50.44|Doctrine and Covenants 50:44]].
 
-[^9]: Russell M. Nelson, “[Shepherds, Lambs, and Home Teachers](https://churchofjesuschrist.org/study/ensign/1994/08/shepherds-lambs-and-home-teachers?lang=eng&id=p110#p110),” *Ensign*, Aug. 1994, 19.
+[^9]: Russell M. Nelson, “[Shepherds, Lambs, and Home Teachers](https://www.churchofjesuschrist.org/study/ensign/1994/08/shepherds-lambs-and-home-teachers?lang=eng&id=p110#p110),” *Ensign*, Aug. 1994, 19.
 
-[^10]: Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona*, May 2018, 69.
+[^10]: Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona*, May 2018, 69.
 
 [^11]: [[Luke 15.2|Luke 15:2]].
 
@@ -85,7 +87,5 @@ The following Sunday he was back. He had a long conversation with his bishop and
 
 [^15]: [[Luke 15.8|Luke 15:8]].
 
+[^16]: [[Luke 15.20|Luke 15:20]].
 
-
-
-#Activation #Jesus_Christ #Love #Ministering

@@ -1,5 +1,7 @@
 # Give Thanks in All Things
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -12,7 +14,7 @@ In one of the times of spiritual and temporal adversity recorded in the Book of 
 
 ## I.
 
-The children of God have always been commanded to give thanks. There are examples throughout the Old and New Testaments. The Apostle Paul wrote, “In every thing give thanks: for this is the will of God in Christ Jesus concerning you” ([[1 Thessalonians 5.18|1 Thessalonians 5:18]]). The prophet Alma taught, “When thou risest in the morning let thy heart be full of thanks unto God” ([[Alma 37.37|Alma 37:37]]). And in modern revelation the Lord declared that “he who receiveth all things with thankfulness shall be made glorious; and the things of this earth shall be added unto him, even an hundred fold” ([[D&C 78.19|D&C 78:19]]).
+The children of God have always been commanded to give thanks. There are examples throughout the Old and New Testaments. The Apostle Paul wrote, “In every thing give thanks: for this is the will of God in Christ Jesus concerning you” ([[1 Thessalonians 5.18|1 Thessalonians 5:18]]). The prophet Alma taught, “When thou risest in the morning let thy heart be full of thanks unto God” ([[Alma 37.37|Alma 37:37]]). And in modern revelation the Lord declared that “he who receiveth all things with thankfulness shall be made glorious; and the things of this earth shall be added unto him, even an hundred fold” ([[D&C 78.19|D&C 78:19]]).
 
 ## II.
 
@@ -48,7 +50,11 @@ Like the pioneers, we should thank God for our adversities and pray for guidance
 
 I love the musical and motion picture *Fiddler on the Roof.* There a wonderful Jewish father sings “If I Were a Rich Man.” His memorable prayer concludes with this pleading question:
 
-Lord, who made the lion and the lamb,You decreed I should be what I am;Would it spoil some vast eternal plan,If I were a wealthy man?\[Lyrics by Sheldon Harnick (1964)\]
+>Lord, who made the lion and the lamb,
+>You decreed I should be what I am;
+>Would it spoil some vast eternal plan,
+>If I were a wealthy man?
+>
 
 Yes, Tevye, it might. Let us give thanks for what we are and for the circumstances God has given us for our personal journey through mortality.
 
@@ -56,7 +62,7 @@ In ancient times the prophet Lehi taught this truth to his son Jacob:
 
 “In thy childhood thou hast suffered afflictions and much sorrow, because of the rudeness of thy brethren.
 
-“Nevertheless, Jacob, my first-born in the wilderness, thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.1|2 Nephi 2:1–2]][[2 Nephi 2.2|]]).
+“Nevertheless, Jacob, my first-born in the wilderness, thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.1|2 Nephi 2:1–2]][[2 Nephi 2.2|]]).
 
 My mother loved that scripture and lived its principle. The greatest affliction of her life was the death of her husband, our father, after only 11 years of marriage. This changed her life and imposed great hardships as she proceeded to earn a living and raise her three little children alone. Nevertheless, I often heard her say that the Lord consecrated that affliction for her gain because her husband’s death compelled her to develop her talents and serve and become something that she could never have become without that seeming tragedy. Our mother was a spiritual giant, strong and fully worthy of the loving tribute her three children inscribed on her headstone: “Her Faith Strengthened All.”
 
@@ -79,8 +85,3 @@ I pray that we will be blessed to understand the truth and purpose of the doctri
 
 
 
-
-
-
-
-#Adversity #Gratitude #Jesus_Christ #Plan_Of_Salvation #Teaching

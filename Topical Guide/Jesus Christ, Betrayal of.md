@@ -1,6 +1,5 @@
 # Jesus Christ, Betrayal of
 
-
 assembly of the *wicked* have inclosed me, [[Psalms 22.16|Psalms 22:16]].
 
 hath lifted up his *heel* against me, [[Psalms 41.9|Psalms 41:9]].
@@ -23,7 +22,7 @@ I have *betrayed* the innocent blood, [[Matthew 27.4|Matthew 27:4]].
 
 he knew that for envy they had *delivered* him, [[Matthew 27.18|Matthew 27:18]].
 
-scribes and chief priests ... sought how they might *destroy* him, [[Mark 11.18|Mark 11:18]].
+scribes and chief priests … sought how they might *destroy* him, [[Mark 11.18|Mark 11:18]].
 
 he that *betrayed* him had given them a token, [[Mark 14.44|Mark 14:44]].
 
@@ -31,6 +30,4 @@ Judas, *betrayest* thou the Son of man with a kiss, [[Luke 22.48|Luke 22:48]].
 
 one of you shall *betray* me, [[John 13.21|John 13:21]].
 
-yieldeth himself ... into the hands of *wicked* men, [[1 Nephi 19.10|1 Nephi 19:10]].
-
-*See also* [[1 Nephi 11.32|1 Nephi 11:32]]; [[2 Nephi 6.9|2 Nephi 6:9]]; [[D&C 45.53|D&C 45:53]].
+yieldeth himself … into the hands of *wicked* men, [[1 Nephi 19.10|1 Nephi 19:10]].

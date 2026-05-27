@@ -1,5 +1,7 @@
 # Testimony
 
+Dieter F. Uchtdorf
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2008 General Conference*
@@ -26,9 +28,9 @@ Various questions arise as we hear others bear testimony or as we consider beari
 
 What do we mean when we testify and say that we *know* the gospel is true? Contrast that kind of knowledge with “I know it is cold outside” or “I know I love my wife.” These are three different kinds of knowledge, each learned in a different way. Knowledge of outside temperature can be verified by scientific proof. Knowledge that we love our spouse is personal and subjective. While not capable of scientific proof, it is still important. The idea that all important knowledge is based on scientific evidence is simply untrue.
 
-While there are some “evidences” for gospel truths (for example, see [[Psalms 19.1|Psalm 19:1]]; [[Helaman 8.24|Helaman 8:24]]), scientific methods will not yield spiritual knowledge. This is what Jesus taught in response to Simon Peter’s testimony that He was the Christ: “Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven” ([[Matthew 16.17|Matthew 16:17]]). The Apostle Paul explained this. In a letter to the Corinthian Saints, he said, “The things of God knoweth no man, but \[by\] the Spirit of God” ([[1 Corinthians 2.11|1 Corinthians 2:11]]; see also [[John 14.17|John 14:17]]).
+While there are some “evidences” for gospel truths (for example, see [[Psalms 19.1|Psalm 19:1]]; [[Helaman 8.24|Helaman 8:24]]), scientific methods will not yield spiritual knowledge. This is what Jesus taught in response to Simon Peter’s testimony that He was the Christ: “Blessed art thou, Simon Bar-jona: for flesh and blood hath not revealed it unto thee, but my Father which is in heaven” ([[Matthew 16.17|Matthew 16:17]]). The Apostle Paul explained this. In a letter to the Corinthian Saints, he said, “The things of God knoweth no man, but \[by\] the Spirit of God” ([[1 Corinthians 2.11|1 Corinthians 2:11]]; see also [[John 14.17|John 14:17]]).
 
-In contrast, we know the things of man by the ways of man, but “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Corinthians 2:14]]).
+In contrast, we know the things of man by the ways of man, but “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Corinthians 2:14]]).
 
 The Book of Mormon teaches that God will manifest the truth of spiritual things unto us by the power of the Holy Ghost (see [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]]). In modern revelation God promises us that we will receive “knowledge” by His telling us in our mind and in our heart “by the Holy Ghost” ([[D&C 8.1|D&C 8:1–2]][[D&C 8.2|]]).
 
@@ -82,17 +84,12 @@ We all act upon or give obedience to knowledge. Whether in science or religion, 
 
 In all of our testifying we must avoid arrogance and pride. We should remember the Book of Mormon rebuke to a people who had such pride in the greater things God had given them that they afflicted their neighbors (see [[Jacob 2.20|Jacob 2:20]]). Jacob said this was “abominable unto him who created all flesh” because “the one being is as precious in his sight as the other” ([[Jacob 2.21|Jacob 2:21]]). Later, Alma cautioned that “ye shall not esteem one flesh above another, or one man shall not think himself above another” ([[Mosiah 23.7|Mosiah 23:7]]).
 
-I close with my testimony. I know that we have a Heavenly Father, whose plan brings us to earth and provides the conditions and destiny of our eternal journey. I know that we have a Savior, Jesus Christ, whose teachings define the plan and whose Atonement gives the assurance of immortality and the opportunity for eternal life. I know that the Father and the Son appeared to the Prophet Joseph Smith to restore the fulness of the gospel in these latter days. And I know that we are led today by a prophet, President Thomas S. Monson, who holds the keys to authorize priesthood holders to perform the ordinances prescribed for our progress toward eternal life. In the name of Jesus Christ, amen.
+I close with my testimony. I know that we have a Heavenly Father, whose plan brings us to earth and provides the conditions and destiny of our eternal journey. I know that we have a Savior, Jesus Christ, whose teachings define the plan and whose Atonement gives the assurance of immortality and the opportunity for eternal life. I know that the Father and the Son appeared to the Prophet Joseph Smith to restore the fulness of the gospel in these latter days. And I know that we are led today by a prophet, President Thomas S. Monson, who holds the keys to authorize priesthood holders to perform the ordinances prescribed for our progress toward eternal life. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 138.
+[^1]: See *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 138.
 
 [^2]: For example, see Jeanne Newman, “With the Sound of a Trump,” *Tambuli,* Aug.–Sept. 1985, 21–23; *New Era,* Aug. 1985, 9–11.
 
-
-
-
-
-#Holy_Ghost #Testimony

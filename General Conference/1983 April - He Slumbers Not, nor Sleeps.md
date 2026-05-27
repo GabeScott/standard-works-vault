@@ -1,6 +1,8 @@
 # He Slumbers Not, nor Sleeps
 
-By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
+Ezra Taft Benson
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -12,9 +14,9 @@ As we unite in this great world conference of The Church of Jesus Christ of Latt
 
 President Kimball is unable to be with us in person. However, he presides and is in his hotel apartment across the street where he joins with us as the proceedings are carried to him by closed-circuit television. He is not in the hospital, as rumor would have it, nor has he been for many months. He is not in a coma, as some have said. He dresses each day. But he is weak, and his body is tired. He recently commemorated his eighty-eighth birthday and is feeling the effects of his advanced age and the cumulative effects of the surgical procedures he has undergone in the past. What a magnificent example he has been for all of us. He has given impetus to this work in a remarkable way. The whole Church has quickened its pace and lengthened its stride in response to his clarion call. He has been a prophet to us, a prophet whose vision and revelation have reached out to the people of the entire earth, regardless of nation, or color, or station in life, freely offering the matchless blessings of the gospel of Jesus Christ to all who will accept. He sends his love and blessing to all of you. I was with him yesterday, and he did so. We love him and we pray for him. Our hearts incline toward him with affection, and our pleadings in his behalf ascend to our Father in Heaven.
 
-President Romney is likewise experiencing difficulties. He too is feeling the effects of age and the natural wearing process of scores of years of vigorous and unrelenting activity in furthering the work of the Lord. He has asked that he be excused from speaking. We shall hear a message from him which he prepared earlier and which will be read by his son, Bishop George J. Romney.
+President Romney is likewise experiencing difficulties. He too is feeling the effects of age and the natural wearing process of scores of years of vigorous and unrelenting activity in furthering the work of the Lord. He has asked that he be excused from speaking. We shall hear a message from him which he prepared earlier and which will be read by his son, Bishop George J. Romney.
 
-We greatly miss President N. Eldon Tanner, who served as a Counselor to four Presidents of the Church. He passed away last November 27. During months previous to this, notwithstanding illness, he continued to give from his great store of experience, wisdom, and inspiration.
+We greatly miss President N. Eldon Tanner, who served as a Counselor to four Presidents of the Church. He passed away last November 27. During months previous to this, notwithstanding illness, he continued to give from his great store of experience, wisdom, and inspiration.
 
 We likewise shall miss in this conference the stirring testimony of Elder LeGrand Richards of the Council of the Twelve. For forty-five years he stood at the pulpit in this Tabernacle bearing witness to the truth of this “marvellous work and a wonder” ([[Isaiah 29.14|Isa. 29:14]]). Millions were touched by the eloquence and sincerity of his testimony.
 
@@ -36,7 +38,7 @@ I take occasion now to say to all that the Church is moving forward with great s
 
 We thank the Lord, whose cause this is, for the marvelous growth now being experienced. The strengthening faith of the people is evident in increased sacrament meeting attendance, in temple attendance, and in the payment of tithes and offerings, which becomes an expression of their love for the Lord and of his generous blessings even in these times of economic distress.
 
-Speaking in this Tabernacle an even hundred years ago, at the April 1883 general conference, President Joseph F. Smith said, “Now, so long as the Latter-day Saints are content to obey the commandments of God, to appreciate the privileges and blessings which they enjoy in the Church, and will use their time, their talents, their substance, in honor to the name of God, to build up Zion, and to establish truth and righteousness in the earth, so long our heavenly Father is bound by His oath and covenant to protect them from every opposing foe, and to help them to overcome every obstacle that can possibly be arrayed against them or thrown in their pathway.” (*Journal of Discourses,* 24:176.) Those words are as pertinent today as they were when spoken a century ago.
+Speaking in this Tabernacle an even hundred years ago, at the April 1883 general conference, President Joseph F. Smith said, “Now, so long as the Latter-day Saints are content to obey the commandments of God, to appreciate the privileges and blessings which they enjoy in the Church, and will use their time, their talents, their substance, in honor to the name of God, to build up Zion, and to establish truth and righteousness in the earth, so long our heavenly Father is bound by His oath and covenant to protect them from every opposing foe, and to help them to overcome every obstacle that can possibly be arrayed against them or thrown in their pathway.” (*Journal of Discourses,* 24:176.) Those words are as pertinent today as they were when spoken a century ago.
 
 The Almighty is blessing his church and his people. He is watching over them. He neither slumbers nor sleeps as he guides, directs, and moves in his own “mysterious way His wonders to perform.” (*Hymns,* no. 48.)
 
@@ -64,7 +66,7 @@ We need not fear the future if we hold fast to revealed principles. On one occas
 
 I like those words, “pursue a steady course.” I hope that we shall never forget them. The Church has grown consistently stronger because those who have gone before us have pursued a steady course. There are those who would fracture our strength by leading us in the pursuit of objectives which are not pertinent to the central mission of the Church. We are constantly invited, yes, even strongly urged, to get out and march with others for this cause or that cause. There are some causes with which we properly should be involved, which are directly related to the Church, its mission, and the well-being of its people. The determination of these must be left to those who have been called to leadership. Such causes will be few, since we must husband our strength and resources for the far greater obligation to pursue a steady course in building the kingdom of God in the earth.
 
-Our great, basic message to the world is that Jesus is the Christ, the Son of the Living God; that he gave his life as a sacrifice for all mankind; that he rose from the grave that first Easter morning, “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]); that “as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]); that he lives, our resurrected Lord and Master.
+Our great, basic message to the world is that Jesus is the Christ, the Son of the Living God; that he gave his life as a sacrifice for all mankind; that he rose from the grave that first Easter morning, “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]); that “as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]); that he lives, our resurrected Lord and Master.
 
 As has been said before from this pulpit, he has given us a three-fold mission: first, the teaching of the restored gospel to every nation, kindred, tongue, and people; second, the building of the Saints in their faith and encouraging them in all of their activities to walk in obedience to the commandments of the Lord; and third, the great work of salvation for the dead. This vast mission contemplates all generations of mankind—those who have gone before, all who live upon the earth, and those who will yet be born. It is larger than any race or nation or generation. It encompasses all mankind. It is a cause without parallel. The fruits of its labors are everlasting in their consequences. In the pursuit of that mission we must follow a steady and uncompromising course and never be enticed therefrom.
 
@@ -97,8 +99,3 @@ I bear witness to you this morning that he, watching over Israel, slumbers not n
 
 
 
-
-
-
-
-#Jesus_Christ #Mission_Of_The_Church

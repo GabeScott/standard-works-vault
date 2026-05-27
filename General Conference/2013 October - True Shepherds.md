@@ -1,6 +1,8 @@
 # True Shepherds
 
-By President Thomas S. Monson - *President of the Church*
+Thomas S. Monson
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -10,7 +12,7 @@ By President Thomas S. Monson - *President of the Church*
 
 Tonight in the Conference Center in Salt Lake City and in locations far and near are assembled those who bear the priesthood of God. Truly you are “a royal priesthood”—even “a chosen generation,” as the Apostle Peter declared.[^1] I am honored to have the privilege to address you.
 
-When I was growing up, each summer our family would drive to Provo Canyon, about 45 miles (72 km) south and a little east of Salt Lake City, where we would stay in the family cabin for several weeks. We boys were always anxious to get on the fishing stream or into the swimming hole, and we would try to push the car a little faster. In those days, the automobile my father drove was a 1928 Oldsmobile. If he went over 35 miles (56 km) an hour, my mother would say, “Keep it down! Keep it down!” I would say, “Put the accelerator down, Dad! Put it down!”
+When I was growing up, each summer our family would drive to Provo Canyon, about 45 miles (72 km) south and a little east of Salt Lake City, where we would stay in the family cabin for several weeks. We boys were always anxious to get on the fishing stream or into the swimming hole, and we would try to push the car a little faster. In those days, the automobile my father drove was a 1928 Oldsmobile. If he went over 35 miles (56 km) an hour, my mother would say, “Keep it down! Keep it down!” I would say, “Put the accelerator down, Dad! Put it down!”
 
 Dad would drive about 35 miles an hour all the way up to Provo Canyon or until we would come around a bend in the road and our journey would be halted by a herd of sheep. We would watch as hundreds of sheep filed past us, seemingly without a shepherd, a few dogs yapping at their heels as they moved along. Way back in the rear we could see the sheepherder on his horse—not a bridle on it but a halter. He was occasionally slouched down in the saddle dozing, since the horse knew which way to go and the yapping dogs did the work.
 
@@ -24,7 +26,7 @@ The bishop of each ward in the Church oversees the assigning of priesthood holde
 
 The home teaching program is a response to modern revelation commissioning those ordained to the priesthood “to teach, expound, exhort, baptize, … and visit the house of each member, and exhort them to pray vocally and in secret and attend to all family duties, … to watch over the church always, and be with and strengthen them; and see that there is no iniquity in the church, neither hardness with each other, neither lying, backbiting, nor evil speaking.”[^3]
 
-President David O. McKay admonished: “Home teaching is one of our most urgent and most rewarding opportunities to nurture and inspire, to counsel and direct our Father’s children. … \[It\] is a divine service, a divine call. It is our duty as Home Teachers to carry the … spirit into every home and heart. To love the work and do our best will bring unbounded peace, joy and satisfaction to \[a noble,\] dedicated \[teacher\] of God’s children.”[^4]
+President David O. McKay admonished: “Home teaching is one of our most urgent and most rewarding opportunities to nurture and inspire, to counsel and direct our Father’s children. … \[It\] is a divine service, a divine call. It is our duty as Home Teachers to carry the … spirit into every home and heart. To love the work and do our best will bring unbounded peace, joy and satisfaction to \[a noble,\] dedicated \[teacher\] of God’s children.”[^4]
 
 From the Book of Mormon we read that Alma “consecrated all their priests and all their teachers; and none were consecrated except they were just men.
 
@@ -32,21 +34,21 @@ From the Book of Mormon we read that Alma “consecrated all their priests and a
 
 In performing our home teaching responsibilities, we are wise if we learn and understand the challenges of the members of each family, that we might be effective in teaching and in providing needed assistance.
 
-A home teaching visit is also more likely to be successful if an appointment is made in advance. To illustrate this point, let me share with you an experience I had some years ago. At that time the Missionary Executive Committee was comprised of Spencer W. Kimball, Gordon B. Hinckley, and Thomas S. Monson. One evening Brother and Sister Hinckley hosted a dinner in their home for the committee members and our wives. We had just finished a lovely meal when there was a knock at the door. President Hinckley opened the door and found one of his home teachers standing there. The home teacher said, “I know I didn’t make an appointment to come, and I don’t have with me my companion, but I felt I should come tonight. I didn’t know you would be entertaining company.”
+A home teaching visit is also more likely to be successful if an appointment is made in advance. To illustrate this point, let me share with you an experience I had some years ago. At that time the Missionary Executive Committee was comprised of Spencer W. Kimball, Gordon B. Hinckley, and Thomas S. Monson. One evening Brother and Sister Hinckley hosted a dinner in their home for the committee members and our wives. We had just finished a lovely meal when there was a knock at the door. President Hinckley opened the door and found one of his home teachers standing there. The home teacher said, “I know I didn’t make an appointment to come, and I don’t have with me my companion, but I felt I should come tonight. I didn’t know you would be entertaining company.”
 
 President Hinckley graciously invited the home teacher to come in and sit down and to instruct three Apostles and our wives concerning our duty as members. With a bit of trepidation, the home teacher did his best. President Hinckley thanked him for coming, after which he made a hurried exit.
 
-I mention one more example of the incorrect way to accomplish home teaching. President Marion G. Romney, who was a counselor in the First Presidency some years ago, used to tell about his home teacher who once went to the Romney home on a cold winter night. He kept his hat in his hand and shifted nervously when invited to sit down and give his message. As he remained standing, he said, “Well, I’ll tell you, Brother Romney, it’s cold outside, and I left my car engine running so it wouldn’t stop. I just came by so I could tell the bishop I had made my visits.”[^6]
+I mention one more example of the incorrect way to accomplish home teaching. President Marion G. Romney, who was a counselor in the First Presidency some years ago, used to tell about his home teacher who once went to the Romney home on a cold winter night. He kept his hat in his hand and shifted nervously when invited to sit down and give his message. As he remained standing, he said, “Well, I’ll tell you, Brother Romney, it’s cold outside, and I left my car engine running so it wouldn’t stop. I just came by so I could tell the bishop I had made my visits.”[^6]
 
 President Ezra Taft Benson, after relating President Romney’s experience in a meeting of priesthood holders, then said, “We can do better than that, brethren—much better!”[^7] I agree.
 
 Home teaching is more than a mechanical visit once per month. Ours is the responsibility to teach, to inspire, to motivate, and where we visit those who are not active, to bring to activity and to eventual exaltation the sons and daughters of God.
 
-To assist in our efforts, I share this wise counsel which surely applies to home teachers. It comes from Abraham Lincoln, who said, “If you would win a man to your cause, first convince him that you are his sincere friend.”[^8] President Ezra Taft Benson urged: “Above all, be a genuine friend to the individuals and families you teach. … A friend makes more than a dutiful visit each month. A friend is more concerned about helping people than getting credit. A friend cares. A friend \[shows love\]. A friend listens, and a friend reaches out.”[^9]
+To assist in our efforts, I share this wise counsel which surely applies to home teachers. It comes from Abraham Lincoln, who said, “If you would win a man to your cause, first convince him that you are his sincere friend.”[^8] President Ezra Taft Benson urged: “Above all, be a genuine friend to the individuals and families you teach. … A friend makes more than a dutiful visit each month. A friend is more concerned about helping people than getting credit. A friend cares. A friend \[shows love\]. A friend listens, and a friend reaches out.”[^9]
 
 Home teaching answers many prayers and permits us to see the transformations which can take place in people’s lives.
 
-An example of this would be Dick Hammer, who came to Utah with the Civilian Conservation Corps during the Depression. He met and married a Latter-day Saint young woman. He opened Dick’s Café in St. George, Utah, which became a popular meeting spot.
+An example of this would be Dick Hammer, who came to Utah with the Civilian Conservation Corps during the Depression. He met and married a Latter-day Saint young woman. He opened Dick’s Café in St. George, Utah, which became a popular meeting spot.
 
 Assigned as home teacher to the Hammer family was Willard Milne, a friend of mine. Since I knew Dick Hammer as well, having printed the menus for his café, I would ask my friend Brother Milne when I visited St. George, “How is our friend Dick Hammer coming?”
 
@@ -56,7 +58,7 @@ When Willard Milne and his companion visited the Hammer home each month, they al
 
 The years passed by, and then one day Willard phoned me with good news. “Brother Monson,” he began, “Dick Hammer is converted and is going to be baptized. He is in his 90th year, and we have been friends all our adult lives. His decision warms my heart. I’ve been his home teacher for many years.” There was a catch in Willard’s voice as he conveyed his welcome message.
 
-Brother Hammer was indeed baptized and a year later entered that beautiful St. George Temple and there received his endowment and sealing blessings.
+Brother Hammer was indeed baptized and a year later entered that beautiful St. George Temple and there received his endowment and sealing blessings.
 
 I asked Willard, “Did you ever become discouraged as his home teacher for such a long time?”
 
@@ -77,17 +79,17 @@ I speak of the Master Teacher, even Jesus Christ, the Son of God, the Savior and
 
 
 
-[^1]: [[1 Peter 2.9|1 Peter 2:9]].
+[^1]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^2]: [[John 10.14|John 10:14]].
 
 [^3]: [[D&C 20.42|Doctrine and Covenants 20:42, 47, 53–54]][[D&C 20.47|]][[D&C 20.53|]][[D&C 20.54|]].
 
-[^4]: David O. McKay, in *Priesthood Home Teaching Handbook,* rev. ed. (1967), ii, iii.
+[^4]: David O. McKay, in *Priesthood Home Teaching Handbook,* rev. ed. (1967), ii, iii.
 
 [^5]: [[Mosiah 23.17|Mosiah 23:17–18]][[Mosiah 23.18|]].
 
-[^6]: Quoted in Marion G. Romney, address given at a priesthood home teaching seminar, Aug. 9, 1963.
+[^6]: Quoted in Marion G. Romney, address given at a priesthood home teaching seminar, Aug. 9, 1963.
 
 [^7]: Ezra Taft Benson, “To the Home Teachers of the Church,” *Ensign,* May 1987, 50.
 
@@ -101,8 +103,3 @@ I speak of the Master Teacher, even Jesus Christ, the Son of God, the Savior and
 
 [^12]: [[Acts 10.38|Acts 10:38]].
 
-
-
-
-
-#Home_Teaching

@@ -1,6 +1,8 @@
 # Miracles, Angels, and Priesthood Power
 
-By Elder Shayne M. Bowen - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Shayne M. Bowen - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -14,7 +16,7 @@ When our Savior, Jesus Christ, was on the earth, He gave priesthood keys to His 
 
 I testify that the ancient keys of the priesthood have been restored. Peter, James, and John and other ancient prophets appeared as resurrected beings, bestowing upon the Prophet Joseph Smith what the Lord described as “the keys of my kingdom, and a dispensation of the gospel.”[^2]
 
-Those same keys have been passed from prophet to prophet until today. The 15 men we sustain as prophets, seers, and revelators use them to lead the Savior’s Church. As in ancient times, there is one senior Apostle who holds and is authorized to exercise all priesthood keys. He is President Russell M. Nelson, prophet and President of the restored Church of Christ in our day: The Church of Jesus Christ of Latter-day Saints.
+Those same keys have been passed from prophet to prophet until today. The 15 men we sustain as prophets, seers, and revelators use them to lead the Savior’s Church. As in ancient times, there is one senior Apostle who holds and is authorized to exercise all priesthood keys. He is President Russell M. Nelson, prophet and President of the restored Church of Christ in our day: The Church of Jesus Christ of Latter-day Saints.
 
 Through the Savior’s Church, we receive the blessings of the priesthood—including the power of God to help us in our lives. Under authorized priesthood keys, we make sacred promises to God and receive sacred ordinances that prepare us to live in His presence. Beginning with baptism and confirmation and then in the temple, we move forward on a path of covenants that leads us back to Him.
 
@@ -30,9 +32,9 @@ Those inspired words about my future filled my soul with peace. I knew that they
 
 About a year later, Heavenly Father did bless me with a wife who is full of beauty and virtue and love. Lynette and I were sealed in the temple. We were blessed with three precious sons and four precious daughters. I became a father, all according to God’s promises in the patriarchal blessing I received as a 17-year-old boy.
 
-“Wherefore, my beloved brethren \[and sisters\], have miracles ceased because Christ hath ascended into heaven? …
+“Wherefore, my beloved brethren \[and sisters\], have miracles ceased because Christ hath ascended into heaven? …
 
-“… Nay; neither have angels ceased to minister unto the children of men.”[^5]
+“… Nay; neither have angels ceased to minister unto the children of men.”[^5]
 
 I testify that miracles and ministrations are continually occurring in our lives, often as a direct result of priesthood power. Some priesthood blessings are fulfilled immediately, in ways we can see and understand. Others are unfolding gradually and will not be fully realized in this life. But God keeps all of His promises, always, as illustrated in this account from our family history:
 
@@ -42,7 +44,7 @@ Years later, Grandfather was piling hay when he felt prompted to return to the h
 
 I quote again from Grandfather’s journal: “I didn’t stop but went hurrying into the house and out on the front porch where she lay on a cot. I looked at her and could see there was no sign of life left in her. I remembered my patriarchal blessing and the promise that if I were faithful, through my faith the sick would be healed; and the dead would be raised. I placed my hands on her head, and I told the Lord that if the promise that He had made to me by the patriarch was true, to make it manifest at this time and raise my mother back to life. I promised Him if He would do this, I should never hesitate to do all in my power for the building up of His kingdom. As I prayed, she opened her eyes and said, ‘Grant, raise me up. I have been in the spirit world, but you have called me back. Let this always be a testimony to you and to the rest of my family.’”
 
-President Russell M. Nelson has taught us to seek and expect miracles.[^6] I testify that because the priesthood has been restored, the power and authority of God are upon the earth. Through callings and councils, men and women, young and old, can participate in priesthood work. It is a work of miracles, attended by angels. It is the work of heaven, and it blesses all God’s children.
+President Russell M. Nelson has taught us to seek and expect miracles.[^6] I testify that because the priesthood has been restored, the power and authority of God are upon the earth. Through callings and councils, men and women, young and old, can participate in priesthood work. It is a work of miracles, attended by angels. It is the work of heaven, and it blesses all God’s children.
 
 In 1989, our family of seven was returning from a ward outing. It was late. Lynette was expecting our sixth child. She felt a strong prompting to fasten her seat belt, which she had forgotten to do. Shortly thereafter we came around a bend in the road; a car crossed the line into our lane. Going about 70 miles (112 km) an hour, I swerved to avoid hitting the oncoming car. Our van rolled, skidded down the highway, and slid off the road, finally coming to a stop, landing with the passenger side in the dirt.
 
@@ -81,16 +83,11 @@ I witness that miracles have not ceased, angels are among us, and the heavens ar
 
 [^5]: [[Moroni 7.27|Moroni 7:27, 29]][[Moroni 7.29|]].
 
-[^6]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 99–100.
+[^6]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 99–100.
 
-[^7]: See Shayne M. Bowen, “[[2012 October - “Because I Live, Ye Shall Live Also”.md|Because I Live, Ye Shall Live Also]],” *Ensign* or *Liahona*, Nov. 2012, 16.
+[^7]: See Shayne M. Bowen, “[[2012 October - “Because I Live, Ye Shall Live Also”.md|Because I Live, Ye Shall Live Also]],” *Ensign* or *Liahona*, Nov. 2012, 16.
 
 [^8]: [[D&C 84.88|Doctrine and Covenants 84:88]].
 
 [^9]: [[D&C 107.3|Doctrine and Covenants 107:3]].
 
-
-
-
-
-#Angels #Miracles #Priesthood_Blessings #Priesthood_Keys #Priesthood_Power

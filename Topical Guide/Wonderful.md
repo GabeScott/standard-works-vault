@@ -1,6 +1,5 @@
 # Wonderful
 
-
 *See also* [[Marvelous.md|Marvelous]]
 
 his name shall be called *Wonderful*, [[Isaiah 9.6|Isaiah 9:6]] ([[2 Nephi 19.6|2 Nephi 19:6]]).

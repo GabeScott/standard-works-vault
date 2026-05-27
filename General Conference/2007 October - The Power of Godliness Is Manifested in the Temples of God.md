@@ -1,5 +1,7 @@
 # The Power of Godliness Is Manifested in the Temples of God
 
+Gordon B. Hinckley
+
 By Elder Octaviano Tenorio - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -57,8 +59,3 @@ I love temple work. I know that God lives, that Jesus Christ is my Savior, and t
 
 
 
-
-
-
-
-#Family #Holy_Ghost #Temples

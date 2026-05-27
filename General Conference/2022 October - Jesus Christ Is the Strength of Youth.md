@@ -1,6 +1,8 @@
 # Jesus Christ Is the Strength of Youth
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Dallin H. Oaks
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -74,7 +76,7 @@ They who wait upon the Lord will be renewed by His strength.[^12]
 
 ## *For the Strength of Youth*
 
-To help you find the Way and to help you make Christ’s doctrine the guiding influence in your life, The Church of Jesus Christ of Latter-day Saints has prepared a new resource, a revised version of *For the Strength of Youth*.
+To help you find the Way and to help you make Christ’s doctrine the guiding influence in your life, The Church of Jesus Christ of Latter-day Saints has prepared a new resource, a revised version of *[For the Strength of Youth](https://www.churchofjesuschrist.org/study/manual/for-the-strength-of-youth/000-title-page?lang=eng)*.
 
 For over 50 years, *For the Strength of Youth* has been a guide for generations of Latter-day Saint youth. I always keep a copy in my pocket, and I share it with people who are curious about our standards. It has been updated and refreshed to better cope with the challenges and temptations of our day. The new version of *For the Strength of Youth* is available online in 50 different languages and will also be available in print. It will be a significant help for making choices in your life. Please embrace it as your own and share it with your friends.
 
@@ -102,7 +104,7 @@ Is it wrong to have rules? Of course not. We all need them every day. But it is 
 
 *For the Strength of Youth* is bold in declaring the doctrine of Jesus Christ. It is bold in inviting you to make choices based on Christ’s doctrine. And it is bold in describing the blessings Jesus Christ promises those who follow His Way.[^21]
 
-President Russell M. Nelson taught: “When your greatest desire is to let God prevail \[in your life\], … many decisions become easier. … Many issues become nonissues! You know how best to groom yourself. You know what to watch and read, where to spend your time, and with whom to associate. You know what you want to accomplish. You know the kind of person you … want to become.”[^22]
+President Russell M. Nelson taught: “When your greatest desire is to let God prevail \[in your life\], … many decisions become easier. … Many issues become nonissues! You know how best to groom yourself. You know what to watch and read, where to spend your time, and with whom to associate. You know what you want to accomplish. You know the kind of person you … want to become.”[^22]
 
 ## A Higher Standard
 
@@ -139,11 +141,11 @@ Of this I bear my solemn witness as an Apostle of the Lord Jesus Christ and leav
 
 [^6]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-[^7]: You might say the Father’s plan was designed to allow you to express your desires through your choices so that you can receive the full results of what you desire. As Elder Dale G. Renlund taught, “Our Heavenly Father’s goal in parenting is not to have His children *do* what is right; it is to have His children *choose* to do what is right and ultimately become like Him” (“[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona*, Nov. 2018, 104).
+[^7]: You might say the Father’s plan was designed to allow you to express your desires through your choices so that you can receive the full results of what you desire. As Elder Dale G. Renlund taught, “Our Heavenly Father’s goal in parenting is not to have His children *do* what is right; it is to have His children *choose* to do what is right and ultimately become like Him” (“[[2018 October - Choose You This Day.md|Choose You This Day]],” *Ensign* or *Liahona*, Nov. 2018, 104).
 
-[^8]: See [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]].
+[^8]: See [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]].
 
-[^9]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
+[^9]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
 
 [^10]: See [[Isaiah 5.20|Isaiah 5:20]].
 
@@ -153,13 +155,13 @@ Of this I bear my solemn witness as an Apostle of the Lord Jesus Christ and leav
 
 [^13]: As Latter-day Saints, we are often known for what we do and don’t do—our behaviors. This can be good, but it’s even better to be known for what we *know* (the truths that drive our behaviors) and for *who* we know (the Savior—and how our love for Him inspires our behaviors).
 
-[^14]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^14]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
-[^15]: See Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 88–92.
+[^15]: See Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 88–92.
 
 [^16]: The principle-based approach of the new *For the Strength of Youth* guide is consistent with other recent initiatives introduced by the Savior’s Church, including *Preach My Gospel*, ministering, the home-centered *Come, Follow Me* curriculum, the Children and Youth program, *Teaching in the Savior’s Way*, and the new *General Handbook*. Clearly, the Lord is building our spiritual capacity. He is demonstrating increased trust in His covenant people in the latter days.
 
-[^17]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 284.
+[^17]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-24?lang=eng&id=p8#p8)* (2007), 284.
 
 [^18]: [[Mosiah 4.29|Mosiah 4:29]]. In a way, this is what the Pharisees of Jesus’s day tried to do. In their zeal to stop people from breaking the law, they compiled hundreds of rules based on their understanding of sacred writings. What the Pharisees got wrong was that they thought their rules would save them. Then, when the Savior appeared, they did not recognize Him.
 
@@ -167,16 +169,11 @@ Of this I bear my solemn witness as an Apostle of the Lord Jesus Christ and leav
 
 [^20]: Another reason a principle-based approach is needed today is the increasing cultural diversity of the Lord’s Church. Principles are eternal and universal. Specific rules or applications of those principles work well in some places but not in others. What unites us is Jesus Christ and the eternal truths He taught, even if specific applications vary over time and across cultures. So the problem with listing every possible do and don’t isn’t just that it’s impractical and unsustainable. The problem is that it diverts our focus from the true Source of our strength, our Savior, Jesus Christ.
 
-[^21]: Many years ago, President Boyd K. Packer spoke these powerful words: “True doctrine, understood, changes attitudes and behavior. The study of the doctrines of the gospel will improve behavior quicker than a study of behavior will improve behavior” (“[[2004 April - Do Not Fear.md|Do Not Fear]],” *Ensign* or *Liahona*, May 2004, 79).
+[^21]: Many years ago, President Boyd K. Packer spoke these powerful words: “True doctrine, understood, changes attitudes and behavior. The study of the doctrines of the gospel will improve behavior quicker than a study of behavior will improve behavior” (“[[2004 April - Do Not Fear.md|Do Not Fear]],” *Ensign* or *Liahona*, May 2004, 79).
 
-[^22]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94. President Nelson exemplified this approach when he taught us about honoring the Sabbath day: “In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘What *sign* do I want to give to God?’ That question made my choices about the Sabbath day crystal clear” (“[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 130).
+[^22]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94. President Nelson exemplified this approach when he taught us about honoring the Sabbath day: “In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘What *sign* do I want to give to God?’ That question made my choices about the Sabbath day crystal clear” (“[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 130).
 
-[^23]: Elder David A. Bednar taught that “principles of righteousness … help us to look beyond our personal preferences and self-centered desires by providing the precious perspective of eternal truth as we navigate the different circumstances, challenges, decisions, and experiences of mortality” (“[[2021 April - “The Principles of My Gospel”.md|The Principles of My Gospel]],” *Liahona*, May 2021, 123–24).
+[^23]: Elder David A. Bednar taught that “principles of righteousness … help us to look beyond our personal preferences and self-centered desires by providing the precious perspective of eternal truth as we navigate the different circumstances, challenges, decisions, and experiences of mortality” (“[[2021 April - “The Principles of My Gospel”.md|The Principles of My Gospel]],” *Liahona*, May 2021, 123–24).
 
 [^24]: [[Luke 18.22|Luke 18:22]].
 
-
-
-
-
-#Choices #Jesus_Christ #Standards #Truth #Youth

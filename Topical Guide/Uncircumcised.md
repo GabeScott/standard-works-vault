@@ -1,4 +1,3 @@
 # Uncircumcised
 
-
-*See* [[Circumcision.md|Circumcision]]
+*See also* [[Circumcision.md|Circumcision]]

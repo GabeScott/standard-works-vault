@@ -1,5 +1,7 @@
 # Opposition in All Things
 
+Dallin H. Oaks
+
 By Elder Mathias Held - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -62,34 +64,34 @@ Let us constantly make a very conscious effort to see both sides of *every* coin
 
 We can rest assured that our difficulties, sorrows, afflictions, and pains do not define us; rather, it is *how* we go about them that will help us grow and draw closer to God. It is our attitudes and choices that define us much better than our challenges.
 
-When in health, cherish and be grateful for it every moment. When in sickness, seek to patiently learn from it and know that this can change again according to God’s will. When in sorrow, trust that happiness is around the corner; we often just cannot see it yet. Consciously shift your focus and elevate your thoughts to the positive aspects of challenges, because they are undoubtedly always there too! Never forget to be grateful. Choose to believe. Choose to have faith in Jesus Christ. Choose to always trust God. Choose to “think celestial,” as President Russell M. Nelson recently taught us![^15]
+When in health, cherish and be grateful for it every moment. When in sickness, seek to patiently learn from it and know that this can change again according to God’s will. When in sorrow, trust that happiness is around the corner; we often just cannot see it yet. Consciously shift your focus and elevate your thoughts to the positive aspects of challenges, because they are undoubtedly always there too! Never forget to be grateful. Choose to believe. Choose to have faith in Jesus Christ. Choose to always trust God. Choose to “think celestial,” as President Russell M. Nelson recently taught us![^15]
 
 Let us always be mindful of our Heavenly Father’s wonderful plan for us. He loves us and sent His Beloved Son to help in our trials and to open for us the door to return to Him. Jesus Christ lives and stands there at every moment, waiting for us to choose to call upon Him to provide succor, strength, and salvation. Of these things I testify in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[2 Nephi 2.16|2 Nephi 2:16]].
+[^1]: [[2 Nephi 2.16|2 Nephi 2:16]].
 
-[^2]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^2]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
-[^3]: [[2 Nephi 2.5|2 Nephi 2:5]].
+[^3]: [[2 Nephi 2.5|2 Nephi 2:5]].
 
 [^4]: [[Moroni 7.16|Moroni 7:16]].
 
-[^5]: [[2 Nephi 2.5|2 Nephi 2:5]].
+[^5]: [[2 Nephi 2.5|2 Nephi 2:5]].
 
 [^6]: [[Alma 7.11|Alma 7:11, 12]][[Alma 7.12|]].
 
 [^7]: [[Helaman 5.12|Helaman 5:12]].
 
-[^8]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^8]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
-[^9]: [[2 Nephi 2.11|2 Nephi 2:11]]; emphasis added.
+[^9]: [[2 Nephi 2.11|2 Nephi 2:11]]; emphasis added.
 
-[^10]: Charles Dickens, *A Tale of Two Cities* (1859), 1.
+[^10]: Charles Dickens, *A Tale of Two Cities* (1859), 1.
 
-[^11]: [[2 Nephi 2.2|2 Nephi 2:2]].
+[^11]: [[2 Nephi 2.2|2 Nephi 2:2]].
 
 [^12]: [[D&C 122.7|Doctrine and Covenants 122:7]].
 
@@ -97,7 +99,5 @@ Let us always be mindful of our Heavenly Father’s wonderful plan for us. He lo
 
 [^14]: [[D&C 6.36|Doctrine and Covenants 6:36]].
 
+[^15]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–20.
 
-
-
-#Adversity #Agency #Joy #Opposition #Plan_Of_Salvation

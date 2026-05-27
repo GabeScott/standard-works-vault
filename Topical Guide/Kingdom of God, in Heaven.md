@@ -1,11 +1,10 @@
 # Kingdom of God, in Heaven
 
-
 *See also* [[Celestial Glory.md|Celestial Glory]]; [[Heaven.md|Heaven]]; [[Kingdom of God, on Earth.md|Kingdom of God, on Earth]]
 
 Lord is *King* for ever and ever, [[Psalms 10.16|Psalms 10:16]].
 
-Lord's *throne* is in heaven, [[Psalms 11.4|Psalms 11:4]].
+Lord’s *throne* is in heaven, [[Psalms 11.4|Psalms 11:4]].
 
 Who is this *King* of glory? The Lord strong and mighty, [[Psalms 24.8|Psalms 24:8]].
 
@@ -35,13 +34,13 @@ see the Son of man coming in his *kingdom*, [[Matthew 16.28|Matthew 16:28]].
 
 inherit the *kingdom* prepared for you, [[Matthew 25.34|Matthew 25:34]].
 
-when I drink it new with you in my Father's *kingdom*, [[Matthew 26.29|Matthew 26:29]] ([[Mark 14.25|Mark 14:25]]; [[Luke 22.18|Luke 22:18]]).
+when I drink it new with you in my Father’s *kingdom*, [[Matthew 26.29|Matthew 26:29]] ([[Mark 14.25|Mark 14:25]]; [[Luke 22.18|Luke 22:18]]).
 
 *kingdom of God* is at hand, [[Mark 1.15|Mark 1:15]].
 
 be ye poor: for yours is the *kingdom of God*, [[Luke 6.20|Luke 6:20]].
 
-ye shall see ... all the prophets, in the *kingdom of God*, [[Luke 13.28|Luke 13:28]].
+ye shall see … all the prophets, in the *kingdom of God*, [[Luke 13.28|Luke 13:28]].
 
 I appoint unto you a *kingdom*, [[Luke 22.29|Luke 22:29]].
 
@@ -57,7 +56,7 @@ heirs of the *kingdom* which he hath promised to them that love him, [[James 2.5
 
 saved in the everlasting *kingdom* of the Lamb, [[1 Nephi 13.37|1 Nephi 13:37]].
 
-pray ... that many of us, if not all, may be saved in his *kingdom*, [[2 Nephi 33.12|2 Nephi 33:12]].
+pray … that many of us, if not all, may be saved in his *kingdom*, [[2 Nephi 33.12|2 Nephi 33:12]].
 
 how you ought to thank your heavenly *King*, [[Mosiah 2.19|Mosiah 2:19]].
 
@@ -85,9 +84,9 @@ same is greater in the *kingdom* of heaven, [[D&C 58.2|D&C 58:2]].
 
 *kingdom of God* go forth, that the *kingdom* of heaven may come, [[D&C 65.6|D&C 65:6]].
 
-God ... reigns upon his *throne* forever and ever, [[D&C 76.92|D&C 76:92]].
+God … reigns upon his *throne* forever and ever, [[D&C 76.92|D&C 76:92]].
 
-receiveth my Father receiveth my Father's *kingdom*, [[D&C 84.38|D&C 84:38]].
+receiveth my Father receiveth my Father’s *kingdom*, [[D&C 84.38|D&C 84:38]].
 
 receiveth you as a little child, receiveth my *kingdom*, [[D&C 99.3|D&C 99:3]].
 

@@ -1,5 +1,7 @@
 # David, a Future Missionary
 
+Gordon B. Hinckley
+
 By Elder Darwin B. Christenson - *Of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -36,9 +38,9 @@ David learns he will never make even one small foray into the polluted waters of
 
 Before David leaves home to begin his missionary service, it will be a blessing for him to be taught individually by his own father, even as Alma so beautifully taught his son Helaman: “Yea, and cry unto God for all thy support; yea, let all thy doings be unto the Lord. … Counsel with the Lord in all thy doings” ([[Alma 37.36|Alma 37:36–37]][[Alma 37.37|]]).
 
-Immediately in the Book of Mormon, we learn lessons of parenthood. Father Lehi provided the foundation background, giving his son Nephi reason to make the famous statement, “I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father” ([[1 Nephi 1.1|1 Ne. 1:1]]).
+Immediately in the Book of Mormon, we learn lessons of parenthood. Father Lehi provided the foundation background, giving his son Nephi reason to make the famous statement, “I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father” ([[1 Nephi 1.1|1 Ne. 1:1]]).
 
-To Laman and Lemuel, Father Lehi provided a beautiful analogy in powerful teaching: “O that thou mightest be like unto this river, continually running into the fountain of all righteousness! … O that thou mightest be like unto this valley, firm and steadfast, and immovable in keeping the commandments of the Lord!” ([[1 Nephi 2.9|1 Ne. 2:9–10]][[1 Nephi 2.10|]]).
+To Laman and Lemuel, Father Lehi provided a beautiful analogy in powerful teaching: “O that thou mightest be like unto this river, continually running into the fountain of all righteousness! … O that thou mightest be like unto this valley, firm and steadfast, and immovable in keeping the commandments of the Lord!” ([[1 Nephi 2.9|1 Ne. 2:9–10]][[1 Nephi 2.10|]]).
 
 Enos, reaching adulthood, and while out hunting in the forest, returned to a remembrance and gave heed to the lifelong teachings of his father, Jacob. Enos at last decided to act upon those teachings, as he cried unto God “all the day long” and still through the night. At last the voice came: “Enos, thy sins are forgiven thee, and thou shalt be blessed” ([[Enos 1.4|Enos 1:4–5]][[Enos 1.5|]]). Then Enos changed his life’s focus and went about teaching.
 
@@ -53,8 +55,3 @@ I say these things in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Book_Of_Mormon #Children #Fasting #Fatherhood #Home #Jesus_Christ #Media #Motherhood #Prayer #Sin #Testimony #Word_Of_Wisdom

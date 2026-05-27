@@ -1,5 +1,7 @@
 # Small and Simple Things
 
+Thomas S. Monson
+
 By Elder Arnulfo Valenzuela - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
@@ -28,7 +30,7 @@ During a visiting teaching visit, Martha, a member of our ward, told my wife and
 
 Martha began to attend church with her young daughter. For years they attended regularly, with Martha never losing hope that her husband might eventually choose to join them. At last the day came when the Lord touched his heart, and he began to attend with them, as did their other daughter soon thereafter. This family began to feel the true joy that comes from having gospel blessings in their home. Martha has since served faithfully as our ward Relief Society president, and her husband has served well in several callings within the stake. All this began with the singing of a hymn, a small and simple thing that touched Martha’s heart.
 
-Naaman was a captain of the host of the king of Syria, an honorable man, a mighty man in valor, but he was also a leper (see [[2 Kings 5.1|2 Kings 5:1]]). After being unsuccessful in receiving a cure from the king of Israel for his leprosy, Naaman went to the house of Elisha, the prophet. Elisha sent a messenger out to him, saying:
+Naaman was a captain of the host of the king of Syria, an honorable man, a mighty man in valor, but he was also a leper (see [[2 Kings 5.1|2 Kings 5:1]]). After being unsuccessful in receiving a cure from the king of Israel for his leprosy, Naaman went to the house of Elisha, the prophet. Elisha sent a messenger out to him, saying:
 
 “Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.
 
@@ -36,9 +38,9 @@ Naaman was a captain of the host of the king of Syria, an honorable man, a might
 
 “And his servants came near, and spake unto him, and said, My father, if the prophet had bid thee do some great thing, wouldest thou not have done it? how much rather then, when he saith to thee, Wash, and be clean?
 
-“Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean” ([[2 Kings 5.10|2 Kings 5:10–11, 13–14]][[2 Kings 5.11|]][[2 Kings 5.13|]][[2 Kings 5.14|]]).
+“Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean” ([[2 Kings 5.10|2 Kings 5:10–11, 13–14]][[2 Kings 5.11|]][[2 Kings 5.13|]][[2 Kings 5.14|]]).
 
-Our prophet, President Thomas S. Monson, has invited us all to go forth and rescue our brothers and sisters. He said: “The world is in need of your help. There are feet to steady, hands to grasp, minds to encourage, hearts to inspire, and souls to save. The blessings of eternity await you” (“To the Rescue,” *Ensign,* May 2001, 48; or *Liahona,* July 2001, 57).
+Our prophet, President Thomas S. Monson, has invited us all to go forth and rescue our brothers and sisters. He said: “The world is in need of your help. There are feet to steady, hands to grasp, minds to encourage, hearts to inspire, and souls to save. The blessings of eternity await you” (“To the Rescue,” *Ensign,* May 2001, 48; or *Liahona,* July 2001, 57).
 
 I testify that many of those who need our help are there waiting for us. They are ready for their valiant brothers and sisters to reach out to them and rescue them through small and simple means. I have personally spent many hours visiting less-active members of the Church whose hearts have already been softened by the Lord, who are now ready to receive our testimonies and our sincere expressions of love. When we reach out and invite them, they will return to the Church without hesitation.
 
@@ -53,5 +55,3 @@ I bear witness of the love of the Lord toward all His children. I know He lives 
 
 
 
-
-#Activation #Missionary_Work

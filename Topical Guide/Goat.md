@@ -1,9 +1,8 @@
 # Goat
 
-
 *See also* [[Kid.md|Kid]]; [[Scapegoat.md|Scapegoat]]; [[Sheep.md|Sheep]]
 
-fetch me ... two good kids of the *goats*, [[Genesis 27.9|Genesis 27:9]].
+fetch me … two good kids of the *goats*, [[Genesis 27.9|Genesis 27:9]].
 
 a kid of the *goats* for a sin offering, [[Leviticus 9.3|Leviticus 9:3]].
 

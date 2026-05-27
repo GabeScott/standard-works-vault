@@ -1,6 +1,8 @@
 # Unity
 
-By President Marion G. Romney - *First Counselor in the First Presidency*
+Ezra Taft Benson
+
+By President Marion G. Romney - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -18,7 +20,7 @@ Always the aim has been unity, oneness, and equality among the members of the Ch
 
 “And from that time forth there were wars and bloodshed among them; but the Lord came and dwelt with his people, and they dwelt in righteousness.
 
-“The fear of the Lord was upon all nations, so great was the glory of the Lord, which was upon his people. And the Lord blessed the land. …
+“The fear of the Lord was upon all nations, so great was the glory of the Lord, which was upon his people. And the Lord blessed the land. …
 
 “And the Lord called his people Zion.” Why? *“Because they were of one heart and one mind, and dwelt in righteousness; and there was no poor among them.”* ([[Moses 7.15|Moses 7:15–18]][[Moses 7.16|]][[Moses 7.17|]][[Moses 7.18|]]; italics added.)
 
@@ -28,7 +30,7 @@ During his mortal ministry Jesus taught his disciples the same doctrine. After h
 
 After the resurrected Savior’s ministry among the Nephites, they “were all converted unto the Lord, upon all the face of the land, both Nephites and Lamanites, and there were no contentions and disputations among them, and every man did deal justly one with another.
 
-“*And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift.”* ([[4 Nephi 1.2|4 Ne. 1:2–3]][[4 Nephi 1.3|]]; italics added.)
+“*And they had all things common among them; therefore there were not rich and poor, bond and free, but they were all made free, and partakers of the heavenly gift.”* ([[4 Nephi 1.2|4 Ne. 1:2–3]][[4 Nephi 1.3|]]; italics added.)
 
 Today *we* are the Church of Christ, and the Lord expects us to come to this same unity. He has said to *us:* “Be one; and if ye are not one ye are not mine.” ([[D&C 38.27|D&C 38:27]].)
 
@@ -38,9 +40,9 @@ It is good to remember the great lesson the Savior taught the Nephites on this s
 
 “There shall be no disputations among you, as there have hitherto been; neither shall there be disputations among you concerning the points of my doctrine, as there have hitherto been.
 
-“For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.” ([[3 Nephi 11.28|3 Ne. 11:28–29]][[3 Nephi 11.29|]].)
+“For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.” ([[3 Nephi 11.28|3 Ne. 11:28–29]][[3 Nephi 11.29|]].)
 
-There is but one way that we can be united, and that way is to seek the Lord and his righteousness. (See [[3 Nephi 13.33|3 Ne. 13:33]].) Unity comes by following the light from above. It does not come out of the confusions below. While men depend upon their own wisdom and walk in their own way, without the guidance of the Lord they cannot live in unity. Neither can they come to unity by following uninspired men.
+There is but one way that we can be united, and that way is to seek the Lord and his righteousness. (See [[3 Nephi 13.33|3 Ne. 13:33]].) Unity comes by following the light from above. It does not come out of the confusions below. While men depend upon their own wisdom and walk in their own way, without the guidance of the Lord they cannot live in unity. Neither can they come to unity by following uninspired men.
 
 The way to unity is for us to learn the will of the Lord and then to do it. Until this basic principle is understood and observed, there will be no unity and peace on the earth. The power of the Church for good in the world depends upon the extent to which we, the members thereof, observe this principle.
 
@@ -67,8 +69,3 @@ It is my conviction that, since we are engaged in the Lord’s work, we can acco
 
 
 
-
-
-
-
-#Brotherhood #Obedience #Unity

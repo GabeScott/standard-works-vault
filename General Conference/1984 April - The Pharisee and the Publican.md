@@ -1,5 +1,7 @@
 # The Pharisee and the Publican
 
+Gordon B. Hinckley
+
 By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -52,7 +54,7 @@ Humility is an attribute of godliness possessed by true Saints. It is easy to un
 
 “Be clothed with humility: for God resisteth the proud, and giveth grace to the humble.
 
-“Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time.” ([[1 Peter 5.5|1 Pet. 5:5–6]][[1 Peter 5.6|]].)
+“Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time.” ([[1 Peter 5.5|1 Pet. 5:5–6]][[1 Peter 5.6|]].)
 
 From the beginning of time there have been those with pride and others who have followed divine admonition to be humble. History bears record that those who have exalted themselves have been abased, but the humble have been exalted. On every busy street there are Pharisees and publicans. It may be that one of them bears our name.
 
@@ -61,8 +63,3 @@ May the Lord bless us as we strive to understand and follow his teachings is my 
 
 
 
-
-
-
-
-#Humility

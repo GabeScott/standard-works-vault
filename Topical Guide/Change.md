@@ -1,13 +1,12 @@
 # Change
 
-
-*See also* [[Alter.md|Alter]]; [[Conversion, Convert.md|Conversion]]; [[God, Eternal Nature of.md|God, Eternal Nature of]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Sanctification, Sanctify.md|Sanctification]]
+*See also* [[Alter.md|Alter]]; [[Conversion.md|Conversion]]; [[God, Eternal Nature of.md|God, Eternal Nature of]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Sanctification.md|Sanctification]]
 
 that sweareth to his own hurt, and *changeth* not, [[Psalms 15.4|Psalms 15:4]].
 
 they have no *changes*, therefore they fear not God, [[Psalms 55.19|Psalms 55:19]].
 
-they have ... *changed* the ordinance, [[Isaiah 24.5|Isaiah 24:5]].
+they have … *changed* the ordinance, [[Isaiah 24.5|Isaiah 24:5]].
 
 my people have *changed* their glory, [[Jeremiah 2.11|Jeremiah 2:11]].
 
@@ -19,7 +18,7 @@ neither were their coats *changed*, [[Daniel 3.27|Daniel 3:27]].
 
 I am the Lord, I *change* not, [[Malachi 3.6|Malachi 3:6]].
 
-that this Jesus ... shall *change* the customs which Moses delivered, [[Acts 6.14|Acts 6:14]].
+that this Jesus … shall *change* the customs which Moses delivered, [[Acts 6.14|Acts 6:14]].
 
 Who *changed* the truth of God into a lie, [[Romans 1.25|Romans 1:25]].
 
@@ -27,7 +26,7 @@ their women did *change* the natural use, [[Romans 1.26|Romans 1:26]].
 
 We shall not all sleep, but we shall all be *changed*, [[1 Corinthians 15.51|1 Corinthians 15:51]].
 
-beholding ... the glory of the Lord, are *changed* into the same image from glory to glory, [[2 Corinthians 3.18|2 Corinthians 3:18]].
+beholding … the glory of the Lord, are *changed* into the same image from glory to glory, [[2 Corinthians 3.18|2 Corinthians 3:18]].
 
 Who shall *change* our vile body, [[Philippians 3.21|Philippians 3:21]].
 
@@ -35,7 +34,7 @@ the priesthood being *changed*, there is made of necessity a *change* also of th
 
 your hearts are *changed* through faith, [[Mosiah 5.7|Mosiah 5:7]].
 
-mighty *change* wrought in his heart, [[Alma 5.12|Alma 5:12]] ([[Alma 5.14|Alma 5:14]], [[Alma 5.26|Alma 5:26]]).
+mighty *change* wrought in his heart, [[Alma 5.12|Alma 5:12]] ([[Alma 5.14|Alma 5:14]]; [[Alma 5.26|Alma 5:26]]).
 
 their hearts had been *changed*, [[Alma 19.33|Alma 19:33]].
 

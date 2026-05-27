@@ -1,5 +1,7 @@
 # “Lord, Increase Our Faith”
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1987 General Conference*
@@ -90,7 +92,7 @@ Lord, increase our faith in one another, and in ourselves, and in our capacity t
 
 This, my brothers and sisters, is my prayer.
 
-There is a simple and moving story in the book of 1 Kings. Permit me to read you a few lines:
+There is a simple and moving story in the book of 1 Kings. Permit me to read you a few lines:
 
 “And Elijah the Tishbite, who was of the inhabitants of Gilead, said unto Ahab, As the Lord God of Israel liveth, before whom I stand, there shall not be dew nor rain these years, but according to my word.
 
@@ -100,7 +102,7 @@ There is a simple and moving story in the book of 1 Kings. Permit me to read yo
 
 “And it shall be, that thou shalt drink of the brook; and I have commanded the ravens to feed thee there.
 
-“So he \[Elijah\] *went and did* according unto the word of the Lord” ([[1 Kings 17.1|1 Kgs. 17:1–5]][[1 Kings 17.2|]][[1 Kings 17.3|]][[1 Kings 17.4|]][[1 Kings 17.5|]]; italics added).
+“So he \[Elijah\] *went and did* according unto the word of the Lord” ([[1 Kings 17.1|1 Kgs. 17:1–5]][[1 Kings 17.2|]][[1 Kings 17.3|]][[1 Kings 17.4|]][[1 Kings 17.5|]]; italics added).
 
 There was no argument. There was no discussion. There was no rationalizing on the part of Elijah. He simply *“went and did.”*
 
@@ -109,8 +111,3 @@ Father, increase our faith. Of all our needs, I think the greatest is an increas
 
 
 
-
-
-
-
-#Church_Growth #Faith #Missionary_Work #Testimony

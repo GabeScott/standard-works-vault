@@ -1,5 +1,7 @@
 # Of Missions, Temples, and Stewardship
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1995 General Conference*
@@ -18,7 +20,7 @@ Prior to this I had been interviewed by a representative of the BBC Radio Worldw
 
 In case some of you do not know the meaning of *callow,* it means immature, inexperienced, lacking sophistication.
 
-I replied to the reporter with a smile, “Callow youth? It is with these missionaries today as it was with Timothy in the days of Paul. It was Paul who wrote to his young companion, saying, ‘Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity’ ([[1 Timothy 4.12|1 Tim. 4:12]]).
+I replied to the reporter with a smile, “Callow youth? It is with these missionaries today as it was with Timothy in the days of Paul. It was Paul who wrote to his young companion, saying, ‘Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity’ ([[1 Timothy 4.12|1 Tim. 4:12]]).
 
 “The remarkable thing is that people do receive them and listen to them. They are wholesome. They are bright, they are alert, they are upstanding. They are clean looking, and people quickly develop confidence in them.”
 
@@ -28,7 +30,7 @@ It is not an easy thing for a sensitive young man or woman to do this. But they 
 
 “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.
 
-“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Tim. 1:7–8]][[2 Timothy 1.8|]]).
+“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Tim. 1:7–8]][[2 Timothy 1.8|]]).
 
 They recognize that fear comes not from God but from the adversary of truth. And so they develop a capacity to engage people in conversation concerning their work and their message. They and their associates will bring into the Church during this year of 1995 almost 300,000 converts. That is the equivalent of a hundred new stakes of Zion and more than five hundred new wards in one year.
 
@@ -86,7 +88,7 @@ In our few business enterprises, some debt is used as a tool of management. But 
 
 The Church has been living within its means, and it will continue to do so. I am profoundly grateful for the law of tithing. To me it is a constantly recurring miracle. It is made possible by the faith of the people. It is the Lord’s plan for financing the work of His kingdom.
 
-It is so simple and straightforward. It consists of thirty-five words set forth in [[D&C 119.4|section 119 of the Doctrine and Covenants [verse 4]]]. What a contrast with the cumbersome, complex, and difficult tax codes with which we live as citizens.
+It is so simple and straightforward. It consists of thirty-five words set forth in [[D&C 119.4|section 119 of the Doctrine and Covenants (verse 4)]]. What a contrast with the cumbersome, complex, and difficult tax codes with which we live as citizens.
 
 There is no compulsion to pay tithing, other than the commandment of the Lord, and that, of course, becomes the best of all reasons. This is the only large society of which I am aware that does not drop from its rolls those who fail to pay what might be considered their dues.
 
@@ -115,8 +117,3 @@ It is true. It is our Father’s work. It is the church of our Redeemer. The pri
 
 
 
-
-
-
-
-#Church_Growth #Financial_Management #Jesus_Christ #Missionary_Work #Prayer #Temple_Work #Temples #Tithing #Worship

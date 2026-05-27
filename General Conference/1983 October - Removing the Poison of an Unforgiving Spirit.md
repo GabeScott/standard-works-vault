@@ -1,6 +1,8 @@
 # Removing the Poison of an Unforgiving Spirit
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+Gordon B. Hinckley
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -28,7 +30,7 @@ Henry Home said, “No man ever did a designed injury to another, but at the sam
 
 During World War II there were terrible examples of man’s inhumanity to man. After the war was over and the concentration camps were opened, there was much hatred among the weak and emaciated survivors. In one camp, observers noticed a native of Poland who seemed so robust and peaceful they thought he must have only recently been imprisoned. They were surprised to learn that he had been there over six years! Then, they reasoned, he must not have suffered the terrible atrocities to his family members that most of the prisoners had. But in questioning him, they learned how soldiers had come to his city, lined up against a wall his wife, two daughters, and three small sons, then opened fire with a machine gun. Though he begged to die with them, he had been kept alive because of his knowledge and ability in language translation.
 
-This Polish father said: “I had to decide right then … whether to let myself hate the soldiers who had done this. It was an easy decision, really. I was a lawyer. In my practice I had seen … what hate could do to people’s minds and bodies. Hate had just killed the six people who mattered most to me in the world. I decided then that I would spend the rest of my life—whether it was a few days or many years—loving every person I came in contact with.” (George G. Ritchie with Elizabeth Sherrill, *Return from Tomorrow,* Waco, Texas: Chosen Books, 1978, p. 116.)
+This Polish father said: “I had to decide right then … whether to let myself hate the soldiers who had done this. It was an easy decision, really. I was a lawyer. In my practice I had seen … what hate could do to people’s minds and bodies. Hate had just killed the six people who mattered most to me in the world. I decided then that I would spend the rest of my life—whether it was a few days or many years—loving every person I came in contact with.” (George G. Ritchie with Elizabeth Sherrill, *Return from Tomorrow,* Waco, Texas: Chosen Books, 1978, p. 116.)
 
 The Lord has said: “For if ye forgive men their trespasses, your heavenly Father will also forgive you:
 
@@ -44,9 +46,9 @@ From Moroni we read:
 
 Forgiveness of others for wrongs—imaginary or real—often does more for the forgiver than for the forgiven. That person who has not forgiven a wrong or an injury has not yet tasted of one of the sublime enjoyments of life. The human soul seldom reaches such heights of strength or nobility as when it removes all resentments and forgives error or malice. No one can be classed as a true follower of the Savior who is not in the process of removing from his heart and mind every feeling of ill will, bitterness, hatred, envy, or jealousy toward another.
 
-The greatest example of one who willingly forgave walked the shores of Galilee two thousand years ago. If any person had been mistreated, it was he. President Spencer W. Kimball wrote of the Savior:
+The greatest example of one who willingly forgave walked the shores of Galilee two thousand years ago. If any person had been mistreated, it was he. President Spencer W. Kimball wrote of the Savior:
 
-“All his life he had been the victim of ugliness. As a newborn infant he had been spirited away to save his life at the instruction of an angel in a dream. … At the end of a hectic life he had stood in quiet, restrained divine dignity. …
+“All his life he had been the victim of ugliness. As a newborn infant he had been spirited away to save his life at the instruction of an angel in a dream. … At the end of a hectic life he had stood in quiet, restrained divine dignity. …
 
 “They pushed him around and jostled him and buffeted him. Not an angry word escaped his lips. … They slapped him in his face and on his body. … Yet he stood resolute, unintimidated. Literally did he follow his own admonition when he turned his other cheek so that it too could be slapped and smitten.
 
@@ -56,15 +58,10 @@ The greatest example of one who willingly forgave walked the shores of Galilee t
 
 Now, brothers and sisters, let us go to our homes and dismiss from our beings—and purge from our souls—the venom of any feeling of ill will or bitterness toward anyone. Let us strike from our hearts the unwillingness to forgive and forget; and, instead, approach men in the spirit of the Master, even those who “despitefully use you.” ([[Matthew 5.44|Matt. 5:44]].) Let us pray—rather, let us plead for the spirit of forgiveness. Let us look for the good in each other—not the flaws.
 
-The Master knew men’s lives would be changed more quickly and more surely by love than by criticism. In [[1 John 4.19|1 John 4:19]] we read: “We love him, because he first loved us.”
+The Master knew men’s lives would be changed more quickly and more surely by love than by criticism. In [[1 John 4.19|1 John 4:19]] we read: “We love him, because he first loved us.”
 
 I testify to the importance of this principle of salvation, the principle of forgiving and forgetting, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Forgiveness

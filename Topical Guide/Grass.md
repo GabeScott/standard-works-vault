@@ -1,6 +1,5 @@
 # Grass
 
-
 *See also* [[Herb.md|Herb]]; [[Plant.md|Plant]]
 
 God said, Let the earth bring forth *grass*, [[Genesis 1.11|Genesis 1:11]] ([[Moses 2.11|Moses 2:11]]; [[Abraham 4.11|Abraham 4:11]]).

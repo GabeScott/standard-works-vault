@@ -1,5 +1,7 @@
 # Follow the Prophet
 
+Ezra Taft Benson
+
 By Bishop Glenn L. Pace - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1989 General Conference*
@@ -36,9 +38,9 @@ The last category of criticism I will address comes from within the Church itsel
 
 One activity which often leads a member to be critical is engaging in inappropriate intellectualism. While it would seem the search for and discovery of truth should be the goal of all Latter-day Saints, it appears some get more satisfaction from trying to discover new uncertainties. I have friends who have literally spent their lives, thus far, trying to nail down every single intellectual loose end rather than accepting the witness of the Spirit and getting on with it. In so doing, they are depriving themselves of a gold mine of beautiful truths which cannot be tapped by the mind alone.
 
-Elder Faust describes this type of intellectual as “a person who continues to chase after a bus even after he has caught it.” We invite everyone to get on the bus before it’s out of sight and you are left forever trying to figure out the infinite with a finite mind. In the words of Elijah, “How long halt ye between two opinions? if the Lord be God, follow him.” ([[1 Kings 18.21|1 Kgs. 18:21]].)
+Elder Faust describes this type of intellectual as “a person who continues to chase after a bus even after he has caught it.” We invite everyone to get on the bus before it’s out of sight and you are left forever trying to figure out the infinite with a finite mind. In the words of Elijah, “How long halt ye between two opinions? if the Lord be God, follow him.” ([[1 Kings 18.21|1 Kgs. 18:21]].)
 
-Inappropriate intellectualism sometimes leads one to testify that he knows the *gospel* is true but believes the *Brethren* are just a little out of touch. Out of touch with what? Don’t confuse a decision to abstain from participating in a trend with a lack of awareness about its existence. These Brethren “prove all things” and “hold fast that which is good.” ([[1 Thessalonians 5.21|1 Thes. 5:21]].) To accomplish this, they are in constant touch with Him who created this earth and knows the world from beginning to end.
+Inappropriate intellectualism sometimes leads one to testify that he knows the *gospel* is true but believes the *Brethren* are just a little out of touch. Out of touch with what? Don’t confuse a decision to abstain from participating in a trend with a lack of awareness about its existence. These Brethren “prove all things” and “hold fast that which is good.” ([[1 Thessalonians 5.21|1 Thes. 5:21]].) To accomplish this, they are in constant touch with Him who created this earth and knows the world from beginning to end.
 
 There are some of our members who practice selective obedience. A prophet is not one who displays a smorgasbord of truth from which we are free to pick and choose. However, some members become critical and suggest the prophet should change the menu. A prophet doesn’t take a poll to see which way the wind of public opinion is blowing. He reveals the will of the Lord to us. The world is full of deteriorating churches that have succumbed to public opinion and have become more dedicated to tickling the ears of their members than obeying the laws of God.
 
@@ -59,8 +61,3 @@ In the Lord’s wisdom, he has not left any of us dependent on another’s testi
 
 
 
-
-
-
-
-#Criticism #Obedience

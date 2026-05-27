@@ -1,4 +1,3 @@
 # Immanuel
 
-
-*See* [BD Immanuel](https://www.churchofjesuschrist.org/study/scriptures/bd/immanuel?lang=eng)
+*See also* [[BD Immanuel.md|BD Immanuel]]

@@ -1,6 +1,8 @@
 # Making Your Marriage Successful
 
-By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -8,7 +10,7 @@ By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
 
 My remarks today are directed primarily to young married couples and to those who are planning to be married, but perhaps they will apply to all of us who are married or who someday will be married. I would like to talk about the art of making your marriage successful.
 
-Our Heavenly Father loves all of us and wants us to be happy. The scriptures record, “Men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].) President Kimball has told us that the price of happiness is to keep the commandments. (See *Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 126.) Nowhere else are happiness and success more important than in your marriage.
+Our Heavenly Father loves all of us and wants us to be happy. The scriptures record, “Men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].) President Kimball has told us that the price of happiness is to keep the commandments. (See *Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 126.) Nowhere else are happiness and success more important than in your marriage.
 
 *The foundation for a happy and successful marriage* is a marriage solemnized in the temple. To you who were married for time only, let me urge you to thoroughly investigate the blessings available to you by going to the temple and having your family sealed to you for time and all eternity. Participating in these sacred ordinances should be your most important objective for achieving a successful marriage.
 
@@ -18,7 +20,7 @@ In His wisdom He gives us many problems, for He knows that by meeting them and f
 
 We should, therefore, look at problems in marriage as opportunities for growth and development. As we meet the challenges successfully, we will enjoy peace, love, and tranquility in our marriage and in our home.
 
-*One of the first things a couple must do* is establish and maintain good relations with each other. If you want to be sweethearts, you must work at it. I admonish every one of you to do everything possible to make your companion happy. Be kind and considerate of each other. When problems arise, talk things over calmly and resolve differences promptly. On one occasion Elder Gordon B. Hinckley said that quiet speech in the home is the language of peace. (See *Conference Report,* Apr. 1971, p. 82.) President McKay used to say that we should never yell at each other in the home. And then, facetiously, he would add that maybe on one occasion it would be all right and that would be if the house were on fire. (See *Stepping Stones to an Abundant Life,* Salt Lake City: Deseret Book, 1971, p. 294.)
+*One of the first things a couple must do* is establish and maintain good relations with each other. If you want to be sweethearts, you must work at it. I admonish every one of you to do everything possible to make your companion happy. Be kind and considerate of each other. When problems arise, talk things over calmly and resolve differences promptly. On one occasion Elder Gordon B. Hinckley said that quiet speech in the home is the language of peace. (See *Conference Report,* Apr. 1971, p. 82.) President McKay used to say that we should never yell at each other in the home. And then, facetiously, he would add that maybe on one occasion it would be all right and that would be if the house were on fire. (See *Stepping Stones to an Abundant Life,* Salt Lake City: Deseret Book, 1971, p. 294.)
 
 Sometimes it is difficult for us to understand why our mates don’t see things the same and arrive at the same conclusions as we do. People are different in their thinking and their understanding, and opinions often vary. Differences must be reconciled promptly if husbands and wives are to be happy and work as a team together.
 
@@ -38,9 +40,9 @@ Money management is very important. I’d like to give you four guides that I th
 
 1. *First, always pay your tithing.* Keep yourself eligible for the great blessings the Lord has promised to those who obey this commandment. He made this statement in the scriptures:“Bring ye all the tithes into the storehouse that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.” ([[Malachi 3.10|Mal. 3:10]].) I testify to you that this is true.
 
-2. *Next, pay yourself something off the top.* Save something out of every dollar you earn. I suggest your goal be no less than ten percent of your income after you have paid the Lord His share.Brigham Young once said: “If you wish to get rich, save what you get. A fool can earn money; but it takes a wise man to save and dispose of it to his own advantage.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 292.)
+2. *Next, pay yourself something off the top.* Save something out of every dollar you earn. I suggest your goal be no less than ten percent of your income after you have paid the Lord His share.Brigham Young once said: “If you wish to get rich, save what you get. A fool can earn money; but it takes a wise man to save and dispose of it to his own advantage.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 292.)
 
-3. *Next, avoid using credit cards and charge accounts* for installment purchases. We are all being urged to “buy now pay later.” This makes it sound easy and even glamorous to surround ourselves with luxuries before they are earned. My advice to all is to *save* now and *buy* later. This will not only save a high interest charge, but it will also keep couples out of financial bondage.Our late President J. Reuben Clark, Jr., advised us: “Let us avoid debt as we would avoid a plague; where we are now in debt let us get out of debt; if not today, then tomorrow. Let us straitly and strictly live within our incomes, and save a little.” (*Conference Report,* Apr. 1937, p. 26.)
+3. *Next, avoid using credit cards and charge accounts* for installment purchases. We are all being urged to “buy now pay later.” This makes it sound easy and even glamorous to surround ourselves with luxuries before they are earned. My advice to all is to *save* now and *buy* later. This will not only save a high interest charge, but it will also keep couples out of financial bondage.Our late President J. Reuben Clark, Jr., advised us: “Let us avoid debt as we would avoid a plague; where we are now in debt let us get out of debt; if not today, then tomorrow. Let us straitly and strictly live within our incomes, and save a little.” (*Conference Report,* Apr. 1937, p. 26.)
 
 4. *Budget your income and outgo and do not live beyond your means.* To consistently spend more than you earn makes it impossible to keep solvent and difficult to control your “wants.”
 
@@ -68,11 +70,11 @@ Guard your reputation for honesty and dependability very carefully. It can be on
 
 Notice it didn’t say the Sunday School teacher or the Primary teacher. The sin is on the heads of the *parents.*
 
-Home responsibilities and rearing children must be uppermost in the minds and actions of parents if a successful marriage is to be achieved. This famous statement made by our late President David O. McKay should always be remembered: “No other success can compensate for failure in the home.” (*Conference Report,* Apr. 1964, p. 5.)
+Home responsibilities and rearing children must be uppermost in the minds and actions of parents if a successful marriage is to be achieved. This famous statement made by our late President David O. McKay should always be remembered: “No other success can compensate for failure in the home.” (*Conference Report,* Apr. 1964, p. 5.)
 
 *Let love radiate in your home* and in all walks of life, not only to each other, but also to your children, your relatives, your friends, and your associates.
 
-The Lord commanded us to love one another when he said, “Thou shalt love thy neighbour as thyself.” ([[Matthew 22.39|Matt. 22:39]].) Quarreling, bickering, and faultfinding should be avoided at all costs. In [[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]] the Lord made this significant statement:
+The Lord commanded us to love one another when he said, “Thou shalt love thy neighbour as thyself.” ([[Matthew 22.39|Matt. 22:39]].) Quarreling, bickering, and faultfinding should be avoided at all costs. In [[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]] the Lord made this significant statement:
 
 “He that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
@@ -95,8 +97,3 @@ May our Heavenly Father bless you abundantly in your efforts to make your marria
 
 
 
-
-
-
-
-#Marriage

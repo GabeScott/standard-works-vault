@@ -1,5 +1,7 @@
 # Peace, Hope, and Direction
 
+Gordon B. Hinckley
+
 By Patricia P. Pinegar - *Recently Released Primary General President*
 
 *Given in the October session of the 1999 General Conference*
@@ -18,7 +20,7 @@ While we were serving a mission in England, our 17-year-old son, Cory, was kille
 
 One day, shortly after returning to England, I was walking down the street and an acquaintance who had heard of the death of our son said to me: “Well, what do you think of your God now? You are serving a full-time mission for Him, and He has taken your son.” I was both shocked and hurt. I felt so sorry for this person who did not understand Heavenly Father’s plan.
 
-The difficult experience of my son’s death helped me identify and rejoice in the blessings of peace, hope, and direction—blessings that all who truly accept and live the gospel of Jesus Christ may enjoy. I can bear witness to the words of Elder Richard G. Scott: “Please learn that as you wrestle with a challenge and feel sadness because of it, you can simultaneously have peace and rejoicing” (in Conference Report, Oct. 1995, 20; or *Ensign,* Nov. 1995, 17).
+The difficult experience of my son’s death helped me identify and rejoice in the blessings of peace, hope, and direction—blessings that all who truly accept and live the gospel of Jesus Christ may enjoy. I can bear witness to the words of Elder Richard G. Scott: “Please learn that as you wrestle with a challenge and feel sadness because of it, you can simultaneously have peace and rejoicing” (in Conference Report, Oct. 1995, [[1995 October - Trust in the Lord.md|20]]; or *Ensign,* Nov. 1995, 17).
 
 What are some specific things we can do to have these blessings of peace, hope, and direction in our lives? May I share with you three things that have helped me.
 
@@ -46,13 +48,13 @@ When her second child, James, was 18 months old, he and his older brother were p
 
 Brothers and sisters, I am personally grateful for the promptings we received as a Primary presidency. During the general conference when we were sustained, President Gordon B. Hinckley described some of the terrible atrocities that have been inflicted on children throughout the world. We read in newspapers and periodicals of the evil influences that are invading our homes.
 
-As a new and very concerned Primary presidency, we prayed and searched the scriptures and were led to a verse in Isaiah that describes conditions during the Millennium: “They shall not hurt nor destroy in all my holy mountain: for the earth shall be full of the knowledge of the Lord” ([[Isaiah 11.9|Isa. 11:9]]). That was exactly what we wanted to have happen. We didn’t want any child to be hurt or destroyed, but we didn’t want to wait for the Millennium. We wanted that to happen right now. If our Primaries were full of the knowledge of the Lord, if our homes were full of the knowledge of the Lord, there would be peace and righteousness and the children would not be hurt in any way. We prayed to know how we could help that happen and were led to [[2 Nephi 25.26|2 Nephi 25:26]]. Our homes and our Primaries will be full of the knowledge of the Lord when “we talk of Christ, we rejoice in Christ, we preach of Christ.”
+As a new and very concerned Primary presidency, we prayed and searched the scriptures and were led to a verse in Isaiah that describes conditions during the Millennium: “They shall not hurt nor destroy in all my holy mountain: for the earth shall be full of the knowledge of the Lord” ([[Isaiah 11.9|Isa. 11:9]]). That was exactly what we wanted to have happen. We didn’t want any child to be hurt or destroyed, but we didn’t want to wait for the Millennium. We wanted that to happen right now. If our Primaries were full of the knowledge of the Lord, if our homes were full of the knowledge of the Lord, there would be peace and righteousness and the children would not be hurt in any way. We prayed to know how we could help that happen and were led to [[2 Nephi 25.26|2 Nephi 25:26]]. Our homes and our Primaries will be full of the knowledge of the Lord when “we talk of Christ, we rejoice in Christ, we preach of Christ.”
 
 We are so grateful for the peace and hope these scriptures gave us and for the direction we received through the Holy Ghost to encourage Primary leaders to have Christ-centered Primaries.
 
 Brothers and sisters, let us rejoice in the blessings of peace, hope, and direction, blessings that so many of our Father’s children do not enjoy. When we experience these great blessings in our own lives, let us help others experience them also, especially the children. To paraphrase the words of the Savior, “And when thou art converted, strengthen \[your children\]” ([[Luke 22.32|Luke 22:32]]).
 
-The scriptural theme for Primary is “All thy children shall be taught of the Lord; and great shall be the peace of thy children” ([[3 Nephi 22.13|3 Ne. 22:13]]). The world is not a safe place. It is not a place where children will feel peace, hope, and direction unless they are taught to love and follow the Savior. Please help them know that these great blessings can be theirs, and show them what they need to do to receive these blessings.
+The scriptural theme for Primary is “All thy children shall be taught of the Lord; and great shall be the peace of thy children” ([[3 Nephi 22.13|3 Ne. 22:13]]). The world is not a safe place. It is not a place where children will feel peace, hope, and direction unless they are taught to love and follow the Savior. Please help them know that these great blessings can be theirs, and show them what they need to do to receive these blessings.
 
 I am so very grateful for the opportunity I have had to serve in Primary. I love my counselors, Sister Anne Wirthlin and Sister Susan Warner. We have been one in our desire to serve and bless the children of the Church. We believe that Christ-centered Primaries can help parents as they teach their children the gospel of Jesus Christ, which is the only knowledge that will give our children peace, hope, and direction. I am grateful to our faithful, dedicated board members and capable office staff and thank our priesthood leaders, who have taught and inspired us. I am grateful for the new Primary presidency sustained at this conference. I offer them my love and support. My most sincere thanks and love go to my precious family and especially to my sweetheart for his unfailing love and support.
 
@@ -72,8 +74,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Children #Commandments #Death #Holy_Ghost #Home #Hope #Jesus_Christ #Obedience #Peace #Primary #Trust

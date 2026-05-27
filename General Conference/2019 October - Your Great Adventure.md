@@ -1,6 +1,8 @@
 # Your Great Adventure
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Jeffrey R. Holland
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -177,7 +179,7 @@ Of this I testify in the name of our Redeemer and Savior, Jesus Christ, amen.
 
 
 
-[^1]: J. R. R. Tolkien, *The Hobbit or There and Back Again* (Boston: Houghton Mifflin, 2001), 3.
+[^1]: J. R. R. Tolkien, *The Hobbit or There and Back Again* (Boston: Houghton Mifflin, 2001), 3.
 
 [^2]: Subtitle of *The Hobbit.*
 
@@ -185,11 +187,11 @@ Of this I testify in the name of our Redeemer and Savior, Jesus Christ, amen.
 
 [^4]: See [[Job 38.4|Job 38:4–7]][[Job 38.5|]][[Job 38.6|]][[Job 38.7|]] (the sons of God shouted for joy); [[Isaiah 14.12|Isaiah 14:12–13]][[Isaiah 14.13|]] (“exalt my throne above the stars of God”); [[Revelation 12.7|Revelation 12:7–11]][[Revelation 12.8|]][[Revelation 12.9|]][[Revelation 12.10|]][[Revelation 12.11|]] (there was a war in heaven).
 
-[^5]: “The Prophet Joseph Smith described *agency* as ‘that free independence of mind which heaven has so graciously bestowed upon the human family as one of its choicest gifts’ \[*Teachings of the Prophet Joseph Smith,* comp. Joseph Fielding Smith (1977), 49\]. This ‘free independence of mind,’ or agency, is the power that allows individuals to be ‘agents unto themselves’ ([[D&C 58.28|D&C 58:28]]). It encompasses both the exercise of the will to choose between good and evil or differing levels of good or evil and also the opportunity to experience the consequences of that choice. Heavenly Father loves His children so much that He wants us to reach our full potential—to become as He is. To progress, a person must possess the innate capacity to make his or her desired choice. Agency is so fundamental to His plan for His children that ‘even God could not make men like himself without making them free’ \[David O. McKay, “Whither Shall We Go? Or Life’s Supreme Decision,” *Deseret News,* June 8, 1935, 1\]” (Byron R. Merrill, “Agency and Freedom in the Divine Plan,” in Roy A. Prete, ed., *Window of Faith: Latter-day Saint Perspectives on World History* \[2005\], 162).
+[^5]: “The Prophet Joseph Smith described *agency* as ‘that free independence of mind which heaven has so graciously bestowed upon the human family as one of its choicest gifts’ \[*Teachings of the Prophet Joseph Smith,* comp. Joseph Fielding Smith (1977), 49\]. This ‘free independence of mind,’ or agency, is the power that allows individuals to be ‘agents unto themselves’ ([[D&C 58.28|D&C 58:28]]). It encompasses both the exercise of the will to choose between good and evil or differing levels of good or evil and also the opportunity to experience the consequences of that choice. Heavenly Father loves His children so much that He wants us to reach our full potential—to become as He is. To progress, a person must possess the innate capacity to make his or her desired choice. Agency is so fundamental to His plan for His children that ‘even God could not make men like himself without making them free’ \[David O. McKay, “Whither Shall We Go? Or Life’s Supreme Decision,” *Deseret News,* June 8, 1935, 1\]” (Byron R. Merrill, “Agency and Freedom in the Divine Plan,” in Roy A. Prete, ed., *Window of Faith: Latter-day Saint Perspectives on World History* \[2005\], 162).
 
-[^6]: In her novel *Harry Potter and the Chamber of Secrets,* author J. K. Rowling has Hogwarts headmaster Dumbledore say something quite similar to young Harry Potter. It is wonderful advice to us as well. I have used it in messages before and think it is worth repeating.
+[^6]: In her novel *Harry Potter and the Chamber of Secrets,* author J. K. Rowling has Hogwarts headmaster Dumbledore say something quite similar to young Harry Potter. It is wonderful advice to us as well. I have used it in messages before and think it is worth repeating.
 
-[^7]: “Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, *we shall be like him;* for we shall see him as he is” ([[1 John 3.2|1 John 3:2]]; emphasis added).
+[^7]: “Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, *we shall be like him;* for we shall see him as he is” ([[1 John 3.2|1 John 3:2]]; emphasis added).
 
 [^8]: See [[Matthew 28.16|Matthew 28:16–20]][[Matthew 28.17|]][[Matthew 28.18|]][[Matthew 28.19|]][[Matthew 28.20|]].
 
@@ -199,8 +201,3 @@ Of this I testify in the name of our Redeemer and Savior, Jesus Christ, amen.
 
 [^11]: See LeGrand Richards, *A Marvelous Work and a Wonder, *rev. ed. (1966).
 
-
-
-
-
-#Agency #Plan_Of_Salvation

@@ -1,11 +1,10 @@
 # Diminish
 
-
 *See also* [[Abate.md|Abate]]; [[Decrease.md|Decrease]]
 
-tale of the bricks ... ye shall not *diminish* ought thereof, [[Exodus 5.8|Exodus 5:8]].
+tale of the bricks … ye shall not *diminish* ought thereof, [[Exodus 5.8|Exodus 5:8]].
 
-not add unto the word ... neither shall ye *diminish*, [[Deuteronomy 4.2|Deuteronomy 4:2]].
+not add unto the word … neither shall ye *diminish*, [[Deuteronomy 4.2|Deuteronomy 4:2]].
 
 thou shalt not add thereto, nor *diminish*, [[Deuteronomy 12.32|Deuteronomy 12:32]].
 

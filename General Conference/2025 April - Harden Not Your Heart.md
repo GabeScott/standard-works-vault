@@ -1,6 +1,8 @@
 # Harden Not Your Heart
 
-By Elder Christopher H. Kim - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Christopher H. Kim - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -12,7 +14,7 @@ The Restoration of the gospel of Jesus Christ began when God the Father and His 
 
 When I was a young boy, as I read the Book of Mormon, I often wondered why Laman and Lemuel did not believe the truths that were given to them, even when an angel of the Lord appeared and spoke to them directly. Why couldn’t Laman and Lemuel be more humble and obedient to the teachings of their father, Lehi, and their younger brother Nephi?
 
-I found one of the answers to this question in 1 Nephi, which states that Nephi was “grieved because of the hardness of their hearts.”[^2] Nephi asked his older brothers, “How is it that ye are so hard in your hearts, and so blind in your minds?”[^3]
+I found one of the answers to this question in 1 Nephi, which states that Nephi was “grieved because of the hardness of their hearts.”[^2] Nephi asked his older brothers, “How is it that ye are so hard in your hearts, and so blind in your minds?”[^3]
 
 What does it mean to have a hardness of heart?
 
@@ -26,11 +28,11 @@ What can we do to not harden our hearts?
 
 First, we can practice daily repentance.
 
-Our Savior taught, “Whoso repenteth and cometh unto me as a little child, him will I receive.”[^10] Our beloved prophet, President Russell M. Nelson, taught:
+Our Savior taught, “Whoso repenteth and cometh unto me as a little child, him will I receive.”[^10] Our beloved prophet, President Russell M. Nelson, taught:
 
 “Repenting is the *key* to progress. Pure faith keeps us moving forward on the covenant path.
 
-“Please do not fear or delay repenting. Satan delights in your misery. … Start today to experience the joy of putting off the natural man. The Savior loves us always but *especially* when we repent.”[^11]
+“Please do not fear or delay repenting. Satan delights in your misery. … Start today to experience the joy of putting off the natural man. The Savior loves us always but *especially* when we repent.”[^11]
 
 As we experience the joy of softening our hearts and coming to the Lord, we become “as a child, submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon him, even as a child doth submit to his father.”[^12]
 
@@ -54,7 +56,7 @@ Nephi was a great example of allowing his heart to be softened by trusting in th
 
 If we sincerely repent, humble ourselves, and trust and rely on the Lord, our hearts will be softened. He will then pour out His Spirit and show us the mysteries of heaven. We will believe all the words that He has taught, and our understanding will deepen.
 
-Our Savior, Jesus Christ, was the ultimate example of meekness. In [[2 Nephi 31.7|2 Nephi 31:7]], we read, “But notwithstanding he being holy, he showeth unto the children of men that, according to the flesh he humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments.” Even though He was holy and perfect, He humbled Himself before the Father and was obedient to Him by being baptized.
+Our Savior, Jesus Christ, was the ultimate example of meekness. In [[2 Nephi 31.7|2 Nephi 31:7]], we read, “But notwithstanding he being holy, he showeth unto the children of men that, according to the flesh he humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments.” Even though He was holy and perfect, He humbled Himself before the Father and was obedient to Him by being baptized.
 
 At the end of His mortal life, Jesus Christ submitted His own will to His Father by partaking of the bitter cup. This suffering caused Him “to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit.” The Savior asked that He “might not drink the bitter cup, and shrink.” “Nevertheless,” He said, “glory be to the Father, and \[He\] partook and finished \[His\] preparations unto the children of men.”[^16]
 
@@ -65,13 +67,13 @@ Let us follow the example of our Savior, Jesus Christ, who followed the will of 
 
 
 
-[^1]: [Introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng&id=p1#p1).
+[^1]: [Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng&id=p1#p1).
 
-[^2]: [[1 Nephi 2.18|1 Nephi 2:18]].
+[^2]: [[1 Nephi 2.18|1 Nephi 2:18]].
 
-[^3]: [[1 Nephi 7.8|1 Nephi 7:8]].
+[^3]: [[1 Nephi 7.8|1 Nephi 7:8]].
 
-[^4]: [[1 Nephi 17.45|1 Nephi 17:45]].
+[^4]: [[1 Nephi 17.45|1 Nephi 17:45]].
 
 [^5]: [[Alma 13.4|Alma 13:4]].
 
@@ -81,15 +83,15 @@ Let us follow the example of our Savior, Jesus Christ, who followed the will of 
 
 [^8]: [[Helaman 13.8|Helaman 13:8]].
 
-[^9]: [[1 Nephi 2.16|1 Nephi 2:16]].
+[^9]: [[1 Nephi 2.16|1 Nephi 2:16]].
 
-[^10]: [[3 Nephi 9.22|3 Nephi 9:22]].
+[^10]: [[3 Nephi 9.22|3 Nephi 9:22]].
 
-[^11]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98.
+[^11]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98.
 
 [^12]: [[Mosiah 3.19|Mosiah 3:19]].
 
-[^13]: [[2 Nephi 4.34|2 Nephi 4:34]].
+[^13]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
 [^14]: [[D&C 11.12|Doctrine and Covenants 11:12]].
 
@@ -99,8 +101,3 @@ Let us follow the example of our Savior, Jesus Christ, who followed the will of 
 
 [^17]: [[D&C 10.65|Doctrine and Covenants 10:65]].
 
-
-
-
-
-#Book_Of_Mormon #Holy_Ghost #Humility #Jesus_Christ #Repentance #Trust

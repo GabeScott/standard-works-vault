@@ -1,6 +1,5 @@
 # Last Days
 
-
 *See also* [[Abomination of Desolation.md|Abomination of Desolation]]; [[Day of the Lord.md|Day of the Lord]]; [[Jesus Christ, Second Coming.md|Jesus Christ, Second Coming]]; [[Millennium, Preparing a People for.md|Millennium, Preparing a People for]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[World, End of.md|World, End of]]
 
 tell you that which shall befall you in the *last days*, [[Genesis 49.1|Genesis 49:1]].
@@ -9,7 +8,7 @@ even in the *latter days*, if thou turn to the Lord, [[Deuteronomy 4.30|Deuteron
 
 he shall stand at the *latter day* upon the earth, [[Job 19.25|Job 19:25]].
 
-in the *last days*, that the mountain of the Lord's house shall be established, [[Isaiah 2.2|Isaiah 2:2]].
+in the *last days*, that the mountain of the Lord’s house shall be established, [[Isaiah 2.2|Isaiah 2:2]].
 
 land of *Judah* shall be a terror unto Egypt, [[Isaiah 19.17|Isaiah 19:17]].
 
@@ -51,7 +50,7 @@ rise again in the resurrection at the *last day*, [[John 11.24|John 11:24]].
 
 same shall judge him in the *last day*, [[John 12.48|John 12:48]].
 
-in the *last days* ... I will pour out ... my Spirit, [[Acts 2.17|Acts 2:17]].
+in the *last days* … I will pour out … my Spirit, [[Acts 2.17|Acts 2:17]].
 
 in the *dispensation* of the fulness of times he might gather together, [[Ephesians 1.10|Ephesians 1:10]].
 
@@ -75,7 +74,7 @@ they that believe not in him shall be *destroyed*, [[2 Nephi 6.15|2 Nephi 6:15]]
 
 *day* cometh that they shall believe in me, [[2 Nephi 10.7|2 Nephi 10:7]] ([[2 Nephi 25.16|2 Nephi 25:16]]).
 
-they are of worth ... in the *last days*, [[2 Nephi 25.8|2 Nephi 25:8]].
+they are of worth … in the *last days*, [[2 Nephi 25.8|2 Nephi 25:8]].
 
 I prophesy unto you concerning the *last days*, [[2 Nephi 26.14|2 Nephi 26:14]].
 
@@ -99,17 +98,17 @@ desolating *scourge* shall go forth, [[D&C 5.19|D&C 5:19]].
 
 I will *gather* them as a hen gathereth her chickens, [[D&C 10.65|D&C 10:65]].
 
-before this great *day* ... the sun shall be darkened, [[D&C 29.14|D&C 29:14]].
+before this great *day* … the sun shall be darkened, [[D&C 29.14|D&C 29:14]].
 
 a great *hailstorm* sent forth, [[D&C 29.16|D&C 29:16]].
 
-great and abominable *church* ... shall be cast down, [[D&C 29.21|D&C 29:21]].
+great and abominable *church* … shall be cast down, [[D&C 29.21|D&C 29:21]].
 
 *sun* shall be darkened, and the moon be turned into blood, [[D&C 34.9|D&C 34:9]].
 
 shall learn the parable of the *fig tree*, [[D&C 35.16|D&C 35:16]].
 
-angels are waiting ... to *gather* the tares, [[D&C 38.12|D&C 38:12]].
+angels are waiting … to *gather* the tares, [[D&C 38.12|D&C 38:12]].
 
 heavens shall *shake* and the earth shall tremble, [[D&C 43.18|D&C 43:18]].
 
@@ -117,9 +116,9 @@ ye have asked of me concerning the *signs* of my coming, [[D&C 45.16|D&C 45:16]]
 
 *Lamanites* shall blossom as the rose, [[D&C 49.24|D&C 49:24]].
 
-in the *last days*, by ... John, I cursed the waters, [[D&C 61.14|D&C 61:14]].
+in the *last days*, by … John, I cursed the waters, [[D&C 61.14|D&C 61:14]].
 
-gospel roll forth ... until it has *filled* the whole earth, [[D&C 65.2|D&C 65:2]].
+gospel roll forth … until it has *filled* the whole earth, [[D&C 65.2|D&C 65:2]].
 
 two *prophets* that are to be raised up to the Jewish nation, [[D&C 77.15|D&C 77:15]] ([[Revelation 11.3|Revelation 11:3]]).
 
@@ -131,7 +130,7 @@ in the *last days*, even now while the Lord is beginning to bring forth the word
 
 *desolation* of abomination which awaits the wicked, [[D&C 88.85|D&C 88:85]].
 
-men's *hearts* shall fail them, [[D&C 88.91|D&C 88:91]].
+men’s *hearts* shall fail them, [[D&C 88.91|D&C 88:91]].
 
 *Zion* shall escape if she observe to do all things, [[D&C 97.25|D&C 97:25]].
 
@@ -149,8 +148,6 @@ gospel shall be *preached* unto every nation, [[D&C 133.37|D&C 133:37]].
 
 even so will I come in the *last days*, [[Moses 7.60|Moses 7:60]].
 
-Lord said unto *Enoch*: Then shalt ... thy city meet them there, [[Moses 7.63|Moses 7:63]].
+Lord said unto *Enoch*: Then shalt … thy city meet them there, [[Moses 7.63|Moses 7:63]].
 
 *fulness* of the Gentiles was soon to come, [[Joseph Smith History 1.41|Joseph Smith History 1:41]].
-
-*See also* [[Revelation 15.6|Revelation 15:6]].

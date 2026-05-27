@@ -1,5 +1,7 @@
 # “Ye Have Done It unto Me”
 
+Thomas S. Monson
+
 By Elder Richard P. Lindsay - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -57,8 +59,3 @@ I pray that day by day we will strive more diligently to be about our Father’s
 
 
 
-
-
-
-
-#Kindness #Love #Service

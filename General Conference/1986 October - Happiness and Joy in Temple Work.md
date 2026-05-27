@@ -1,5 +1,7 @@
 # Happiness and Joy in Temple Work
 
+Ezra Taft Benson
+
 By Elder Franklin D. Richards - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -32,7 +34,7 @@ The temple endowment embodies sacred covenants upon which blessings are predicat
 
 The endowment, of course, is an ordinance for the individual, whereas sealing ordinances pertain to a family relationship.
 
-**Second, for the dead:** The ministry of Christ was not confined to the few who lived on the earth in the meridian of time, and it is not confined only to those living now. The Apostle Peter made it clear that those who do not have the opportunity to hear the gospel on this earth will have such an opportunity in the spirit world (see [[1 Peter 3.18|1 Pet. 3:18–20]][[1 Peter 3.19|]][[1 Peter 3.20|]]; [[1 Peter 4.6|4:6]]). And the apostle Paul in writing to the Corinthians asked, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]]).
+**Second, for the dead:** The ministry of Christ was not confined to the few who lived on the earth in the meridian of time, and it is not confined only to those living now. The Apostle Peter made it clear that those who do not have the opportunity to hear the gospel on this earth will have such an opportunity in the spirit world (see [[1 Peter 3.18|1 Pet. 3:18–20]][[1 Peter 3.19|]][[1 Peter 3.20|]]; [[1 Peter 4.6|4:6]]). And the apostle Paul in writing to the Corinthians asked, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]]).
 
 Temple worship provides an opportunity to do ordinance work for our kindred dead and for others, an opportunity for us to serve the dead. This service is the source of eternal satisfaction. However, it is well to remember that vicarious service for the dead by the living does not affect the right of the dead to accept or reject such vicarious service.
 
@@ -67,8 +69,3 @@ May we leave this conference strengthened and motivated with a greater desire to
 
 
 
-
-
-
-
-#Plan_Of_Salvation #Temples

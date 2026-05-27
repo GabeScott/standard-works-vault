@@ -1,6 +1,8 @@
 # Eternal Families
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Cheryl A. Esplin
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -58,7 +60,7 @@ There are things an elder, as he returns from his mission, must do to be true to
 
 In considering marriage, he will see that he is choosing the parents of his children and the heritage they will have. He will make the choice with earnest searching and prayerful consideration. He will ensure that the person he marries shares his ideals for family and his convictions of the Lord’s purpose for marriage and that she is a person to whom he would be willing to trust his children’s happiness.
 
-President N. Eldon Tanner gave wise counsel: “The parents that you should honor more than any others are the parents of your children-to-be. Those children are entitled to the best parents that it is possible for you to give them—clean parents.”[^3] Purity will be your protection and the protection of your children. You owe them that blessing.
+President N. Eldon Tanner gave wise counsel: “The parents that you should honor more than any others are the parents of your children-to-be. Those children are entitled to the best parents that it is possible for you to give them—clean parents.”[^3] Purity will be your protection and the protection of your children. You owe them that blessing.
 
 Now, there are some husbands and fathers listening tonight. What can you do? My hope is that your desire has increased to make the changes necessary for you and your family to live in the celestial kingdom someday. As a priesthood father, with your wife at your side, you can touch the hearts of each family member to encourage them to look forward to that day. You will attend your sacrament meetings with your family, you will hold family meetings in which the Holy Ghost is invited, you will pray with your wife and family, and you will prepare yourself to take your family to the temple. You will move with them along the path to an eternal family home.
 
@@ -95,16 +97,11 @@ Among those “many things” is the promise of an endless posterity. My prayer 
 
 [^1]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 137.
 
-[^2]: Bruce R. McConkie, in Conference Report, Apr. 1970, 26.
+[^2]: Bruce R. McConkie, in Conference Report, Apr. 1970, 26.
 
-[^3]: N. Eldon Tanner, *Church News,* Apr. 19, 1969, 2.
+[^3]: N. Eldon Tanner, *Church News,* Apr. 19, 1969, 2.
 
-[^4]: Bruce R. McConkie, in Conference Report, Apr. 1970, 27.
+[^4]: Bruce R. McConkie, in Conference Report, Apr. 1970, 27.
 
-[^5]: Harold B. Lee, *Decisions for Successful Living* (1973), 248–49.
+[^5]: Harold B. Lee, *Decisions for Successful Living* (1973), 248–49.
 
-
-
-
-
-#Children #Family #Family_History #Fatherhood #Marriage #Missionary_Work #Plan_Of_Salvation #Priesthood

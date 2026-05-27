@@ -4,6 +4,3 @@
 
 [JST Colossians 2:22](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-col/2?lang=eng)
 
-
-
-

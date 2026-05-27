@@ -1,5 +1,7 @@
 # The Word of Wisdom
 
+Gordon B. Hinckley
+
 By Elder Eduardo Ayala - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -45,8 +47,3 @@ I earnestly desire that we will accept the wisdom of this word of warning, in th
 
 
 
-
-
-
-
-#Faith #Obedience #Word_Of_Wisdom

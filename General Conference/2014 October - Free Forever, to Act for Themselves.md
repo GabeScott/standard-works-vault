@@ -1,6 +1,8 @@
 # Free Forever, to Act for Themselves
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -8,7 +10,7 @@ By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/free-forever-to-act-for-themselves?lang=eng)
 
-William Shakespeare’s play *The Life of King Henry V* includes a nighttime scene in the camp of English soldiers at Agincourt just before their battle with the French army. In the dim light and partially disguised, King Henry wanders unrecognized among his soldiers. He talks with them, trying to gauge the morale of his badly outnumbered troops, and because they do not realize who he is, they are candid in their comments. In one exchange they philosophize about who bears responsibility for what happens to men in battle—the king or each individual soldier.
+William Shakespeare’s play *The Life of King Henry V* includes a nighttime scene in the camp of English soldiers at Agincourt just before their battle with the French army. In the dim light and partially disguised, King Henry wanders unrecognized among his soldiers. He talks with them, trying to gauge the morale of his badly outnumbered troops, and because they do not realize who he is, they are candid in their comments. In one exchange they philosophize about who bears responsibility for what happens to men in battle—the king or each individual soldier.
 
 At one point King Henry declares, “Methinks I could not die any where so contented as in the king’s company; his cause being just.”
 
@@ -67,7 +69,7 @@ I bear witness that God the Father lives, that His Son, Jesus Christ, is our Red
 
 
 
-[^1]: William Shakespeare, *The Life of King Henry V,* act 4, scene 1, lines 127–29, 131–37, 183–85.
+[^1]: William Shakespeare, *The Life of King Henry V,* act 4, scene 1, lines 127–29, 131–37, 183–85.
 
 [^2]: [[D&C 101.78|Doctrine and Covenants 101:78]].
 
@@ -77,11 +79,11 @@ I bear witness that God the Father lives, that His Son, Jesus Christ, is our Red
 
 [^5]: [[Moses 6.55|Moses 6:55]].
 
-[^6]: See [[Articles of Faith 1.2|Articles of Faith 1:2]]; see also [[2 Nephi 2.25|2 Nephi 2:25]]; [[Moses 6.53|Moses 6:53–56]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]].
+[^6]: See [[Articles of Faith 1.2|Articles of Faith 1:2]]; see also [[2 Nephi 2.25|2 Nephi 2:25]]; [[Moses 6.53|Moses 6:53–56]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]].
 
-[^7]: [[2 Nephi 2.26|2 Nephi 2:26]]; see also [[D&C 93.38|Doctrine and Covenants 93:38]].
+[^7]: [[2 Nephi 2.26|2 Nephi 2:26]]; see also [[D&C 93.38|Doctrine and Covenants 93:38]].
 
-[^8]: See [[3 Nephi 12.48|3 Nephi 12:48]]; [[3 Nephi 27.27|27:27]]; see also [[Romans 8.16|Romans 8:16–17]][[Romans 8.17|]]; [[D&C 84.37|Doctrine and Covenants 84:37–38]][[D&C 84.38|]].
+[^8]: See [[3 Nephi 12.48|3 Nephi 12:48]]; [[3 Nephi 27.27|27:27]]; see also [[Romans 8.16|Romans 8:16–17]][[Romans 8.17|]]; [[D&C 84.37|Doctrine and Covenants 84:37–38]][[D&C 84.38|]].
 
 [^9]: See [[Revelation 12.7|Revelation 12:7–9]][[Revelation 12.8|]][[Revelation 12.9|]]; [[D&C 29.36|Doctrine and Covenants 29:36–38]][[D&C 29.37|]][[D&C 29.38|]]; [[Moses 4.3|Moses 4:3–4]][[Moses 4.4|]].
 
@@ -103,7 +105,7 @@ I bear witness that God the Father lives, that His Son, Jesus Christ, is our Red
 
 [^18]: [[Alma 42.13|Alma 42:13]]; emphasis added.
 
-[^19]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^19]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
 [^20]: [[Alma 34.16|Alma 34:16]].
 
@@ -111,11 +113,9 @@ I bear witness that God the Father lives, that His Son, Jesus Christ, is our Red
 
 [^22]: In Smith, *Souls in Transition,* 156.
 
-[^23]: [[2 Nephi 2.13|2 Nephi 2:13]].
+[^23]: [[2 Nephi 2.13|2 Nephi 2:13]].
 
-[^24]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^24]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
+[^25]: [[Moroni 10.31|Moroni 10:31]].
 
-
-
-#Accountability #Agency #Jesus_Christ #Justice #Mercy #Plan_Of_Salvation #Repentance #Responsibility #Truth

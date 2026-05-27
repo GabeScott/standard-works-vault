@@ -1,11 +1,10 @@
 # Man
 
-
-*See also* [[Adam.md|Adam]]; [[Creation, Create.md|Creation]]; [[Fall of Man.md|Fall of Man]]; [[God, Creator.md|God, Creator]]; [[Jesus Christ, Son of Man.md|Jesus Christ, Son of Man]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father.md|Man, a Spirit Child of Heavenly Father]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Mankind.md|Mankind]]; [[Man of God.md|Man of God]]; [[Men.md|Men]]; [[Probation, Probationary.md|Probation]]
+*See also* [[Adam.md|Adam]]; [[Creation.md|Creation]]; [[Fall of Man.md|Fall of Man]]; [[God, Creator.md|God, Creator]]; [[Jesus Christ, Son of Man.md|Jesus Christ, Son of Man]]; [[Man, Antemortal Existence of.md|Man, Antemortal Existence of]]; [[Man, a Spirit Child of Heavenly Father.md|Man, a Spirit Child of Heavenly Father]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Mankind.md|Mankind]]; [[Man of God.md|Man of God]]; [[Men.md|Men]]; [[Probation.md|Probation]]
 
 shall a *man* leave his father and his mother, [[Genesis 2.24|Genesis 2:24]] ([[Matthew 19.5|Matthew 19:5]]; [[Mark 10.7|Mark 10:7]]; [[Ephesians 5.31|Ephesians 5:31]]; [[Moses 3.24|Moses 3:24]]; [[Abraham 5.18|Abraham 5:18]]).
 
-not again curse the ground any more for *man's* sake, [[Genesis 8.21|Genesis 8:21]].
+not again curse the ground any more for *man’s* sake, [[Genesis 8.21|Genesis 8:21]].
 
 God is not a *man*, that he should lie, [[Numbers 23.19|Numbers 23:19]].
 
@@ -75,7 +74,7 @@ head of the woman is the *man*, [[1 Corinthians 11.3|1 Corinthians 11:3]].
 
 *man* is not of the woman; but the woman of the *man*, [[1 Corinthians 11.8|1 Corinthians 11:8]].
 
-neither is the *man* without the woman ... in the Lord, [[1 Corinthians 11.11|1 Corinthians 11:11]].
+neither is the *man* without the woman … in the Lord, [[1 Corinthians 11.11|1 Corinthians 11:11]].
 
 became a *man*, I put away childish things, [[1 Corinthians 13.11|1 Corinthians 13:11]].
 
@@ -87,7 +86,7 @@ none render evil for evil unto any *man*, [[1 Thessalonians 5.15|1 Thessalonians
 
 *man* of sin be revealed, [[2 Thessalonians 2.3|2 Thessalonians 2:3]].
 
-one mediator ... the *man* Christ Jesus, [[1 Timothy 2.5|1 Timothy 2:5]].
+one mediator … the *man* Christ Jesus, [[1 Timothy 2.5|1 Timothy 2:5]].
 
 Lay hands suddenly on no *man*, [[1 Timothy 5.22|1 Timothy 5:22]].
 
@@ -105,13 +104,13 @@ shall not any *man* among you have save it be one wife, [[Jacob 2.27|Jacob 2:27]
 
 impossible that *man* should find out all his ways, [[Jacob 4.8|Jacob 4:8]].
 
-by the power of his word *man* came upon ... earth, [[Jacob 4.9|Jacob 4:9]].
+by the power of his word *man* came upon … earth, [[Jacob 4.9|Jacob 4:9]].
 
 natural *man* is an enemy to God, [[Mosiah 3.19|Mosiah 3:19]].
 
 a space granted unto *man* in which he might repent, [[Alma 12.24|Alma 12:24]] ([[Alma 42.4|Alma 42:4]]).
 
-church be called ... in the name of a *man* then it be the church of a *man*, [[3 Nephi 27.8|3 Nephi 27:8]].
+church be called … in the name of a *man* then it be the church of a *man*, [[3 Nephi 27.8|3 Nephi 27:8]].
 
 as a *man* telleth another in mine own language, [[Ether 12.39|Ether 12:39]].
 
@@ -131,21 +130,21 @@ not given that one *man* should possess that which is above another, [[D&C 49.20
 
 when a *man* reasoneth he is understood of *man*, [[D&C 50.12|D&C 50:12]].
 
-all things ... are made for the benefit and the use of *man*, [[D&C 59.18|D&C 59:18]].
+all things … are made for the benefit and the use of *man*, [[D&C 59.18|D&C 59:18]].
 
-in nothing doth *man* offend God ... save those who confess not his hand, [[D&C 59.21|D&C 59:21]].
+in nothing doth *man* offend God … save those who confess not his hand, [[D&C 59.21|D&C 59:21]].
 
 without faith no *man* pleaseth God, [[D&C 63.11|D&C 63:11]].
 
 fear shall come upon every *man*, [[D&C 63.33|D&C 63:33]].
 
-no *man* has seen God ... except quickened, [[D&C 67.11|D&C 67:11]].
+no *man* has seen God … except quickened, [[D&C 67.11|D&C 67:11]].
 
 Neither can any natural *man* abide the presence of God, [[D&C 67.12|D&C 67:12]].
 
 this is what the Lord requires of every *man*, [[D&C 70.9|D&C 70:9]].
 
-every *man* ... to provide for his own family, [[D&C 75.28|D&C 75:28]].
+every *man* … to provide for his own family, [[D&C 75.28|D&C 75:28]].
 
 let no *man* glory in *man*, [[D&C 76.61|D&C 76:61]].
 
@@ -155,19 +154,19 @@ without this no *man* can see the face of God, [[D&C 84.22|D&C 84:22]].
 
 let every *man* stand in his own office, [[D&C 84.109|D&C 84:109]].
 
-tobacco ... is not good for *man*, [[D&C 89.8|D&C 89:8]].
+tobacco … is not good for *man*, [[D&C 89.8|D&C 89:8]].
 
-God hath ordained for the ... use of *man*, [[D&C 89.10|D&C 89:10]].
+God hath ordained for the … use of *man*, [[D&C 89.10|D&C 89:10]].
 
 *man* is spirit, [[D&C 93.33|D&C 93:33]].
 
 As well might *man* stretch forth his puny arm, [[D&C 121.33|D&C 121:33]].
 
-exercise ... compulsion upon the souls of the children of *men*, [[D&C 121.37|D&C 121:37]].
+exercise … compulsion upon the souls of the children of *men*, [[D&C 121.37|D&C 121:37]].
 
 If he be the spirit of a just *man* made perfect he will come in his glory, [[D&C 129.6|D&C 129:6]].
 
-Savior shall appear ... see that he is a *man*, [[D&C 130.1|D&C 130:1]].
+Savior shall appear … see that he is a *man*, [[D&C 130.1|D&C 130:1]].
 
 if a *man* marry him a wife in the world, [[D&C 132.15|D&C 132:15]].
 

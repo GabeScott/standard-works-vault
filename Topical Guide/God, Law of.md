@@ -1,9 +1,8 @@
 # God, Law of
 
-
 *See also* [[Commandments of God.md|Commandments of God]]; [[Law.md|Law]]; [[Law of Moses.md|Law of Moses]]
 
-judge all the people ... as know the *laws of* thy *God*, [[Ezra 7.25|Ezra 7:25]].
+judge all the people … as know the *laws of* thy *God*, [[Ezra 7.25|Ezra 7:25]].
 
 delight is in the *law* of the Lord, [[Psalms 1.2|Psalms 1:2]].
 
@@ -33,7 +32,7 @@ by the prayer of your faith ye shall receive my *law*, [[D&C 41.3|D&C 41:3]].
 
 hearken and hear and obey the *law* which I shall give, [[D&C 42.2|D&C 42:2]].
 
-scriptures for a *law* ... to govern my church, [[D&C 42.59|D&C 42:59]].
+scriptures for a *law* … to govern my church, [[D&C 42.59|D&C 42:59]].
 
 *law* by which all things are governed, [[D&C 88.13|D&C 88:13]].
 
@@ -43,9 +42,9 @@ unto every kingdom is given a *law*, [[D&C 88.38|D&C 88:38]].
 
 he hath given a *law* unto all things, [[D&C 88.42|D&C 88:42]].
 
-obtain a knowledge of ... *laws of God* and man, [[D&C 93.53|D&C 93:53]].
+obtain a knowledge of … *laws of God* and man, [[D&C 93.53|D&C 93:53]].
 
-none shall be exempted from ... the *laws of God*, [[D&C 107.84|D&C 107:84]].
+none shall be exempted from … the *laws of God*, [[D&C 107.84|D&C 107:84]].
 
 blessing from God, it is by obedience to that *law*, [[D&C 130.21|D&C 130:21]].
 

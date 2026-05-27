@@ -1,13 +1,12 @@
 # Marriage, Motherhood
 
-
-*See also* [[Birth Control.md|Birth Control]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Woman, Women.md|Woman]]
+*See also* [[Birth Control.md|Birth Control]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Woman.md|Woman]]
 
 *multiply*, and replenish the earth, [[Genesis 1.28|Genesis 1:28]] ([[Moses 2.28|Moses 2:28]]; [[Abraham 4.28|Abraham 4:28]]).
 
-Unto the *woman* he said ... bring forth children, [[Genesis 3.16|Genesis 3:16]].
+Unto the *woman* he said … bring forth children, [[Genesis 3.16|Genesis 3:16]].
 
-Eve ... the *mother* of all living, [[Genesis 3.20|Genesis 3:20]] ([[Moses 4.26|Moses 4:26]]).
+Eve … the *mother* of all living, [[Genesis 3.20|Genesis 3:20]] ([[Moses 4.26|Moses 4:26]]).
 
 she shall be a *mother* of nations, [[Genesis 17.16|Genesis 17:16]].
 
@@ -15,7 +14,7 @@ Honour thy father and thy *mother*, [[Exodus 20.12|Exodus 20:12]] ([[1 Nephi 17.
 
 I arose a *mother* in Israel, [[Judges 5.7|Judges 5:7]].
 
-she bare a *son* ... Samuel, [[1 Samuel 1.20|1 Samuel 1:20]].
+she bare a *son* … Samuel, [[1 Samuel 1.20|1 Samuel 1:20]].
 
 For this *child* I prayed; and the Lord hath given me, [[1 Samuel 1.27|1 Samuel 1:27]].
 
@@ -49,6 +48,4 @@ they would have had no *children*, [[2 Nephi 2.23|2 Nephi 2:23]].
 
 they had been taught by their *mothers*, [[Alma 56.47|Alma 56:47]].
 
-words ... their *mothers* had taught them, [[Alma 57.21|Alma 57:21]].
-
-*See also* [[2 Chronicles 22.3|2 Chronicles 22:3]]; [[Proverbs 31.1|Proverbs 31:1]]; [[D&C 68.25|D&C 68:25]]; [[Moses 5.11|Moses 5:11]].
+words … their *mothers* had taught them, [[Alma 57.21|Alma 57:21]].

@@ -1,5 +1,7 @@
 # “Endure It Well”
 
+Thomas S. Monson
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -8,9 +10,9 @@ By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 May I add my personal welcome to those brethren and sisters newly sustained today. What has happened today would not have occurred had you not married so well spiritually so many years ago.
 
-On one of those rare occasions when His very voice was heard, the Father testified, “Yea, the words of my Beloved are true and faithful. He that endureth to the end, the same shall be saved” ([[2 Nephi 31.15|2 Ne. 31:15]]). Of all that the Father might have said, He stressed endurance. Why?
+On one of those rare occasions when His very voice was heard, the Father testified, “Yea, the words of my Beloved are true and faithful. He that endureth to the end, the same shall be saved” ([[2 Nephi 31.15|2 Ne. 31:15]]). Of all that the Father might have said, He stressed endurance. Why?
 
-First, because God has repeatedly said He would structure mortality to be a proving and testing experience (see [[Abraham 3.25|Abr. 3:25]]; [[Mosiah 23.21|Mosiah 23:21]]). Brothers and sisters, he has certainly kept His promise. He has carried out His divine intent, hasn’t He? Thus, even our fiery trials, said Peter, should not be thought of as “some strange thing” ([[1 Peter 4.12|1 Pet. 4:12]]). Hence, enduring is vital, and those who so last will be first spiritually!
+First, because God has repeatedly said He would structure mortality to be a proving and testing experience (see [[Abraham 3.25|Abr. 3:25]]; [[Mosiah 23.21|Mosiah 23:21]]). Brothers and sisters, he has certainly kept His promise. He has carried out His divine intent, hasn’t He? Thus, even our fiery trials, said Peter, should not be thought of as “some strange thing” ([[1 Peter 4.12|1 Pet. 4:12]]). Hence, enduring is vital, and those who so last will be first spiritually!
 
 By taking Jesus’ yoke upon us and enduring, we learn most deeply of Him and especially how to be like Him (see [[Matthew 11.29|Matt. 11:29]]). Even though our experiences are micro compared to His, the process is the same.
 
@@ -38,15 +40,15 @@ Enduring temptation is one of the greatest challenges. Jesus endured temptation 
 
 The customized challenges are often the toughest and the most ironical. For instance, King Mosiah was venerated of his people, yet, ironically, his sons became damaging enemies of the Church for a season. Nevertheless, his discerning people still esteemed Mosiah.
 
-Will we have that same perceptive tolerance for those being wrenched by a cruel irony? When, for the moment, we ourselves are not being stretched on a particular cross, we ought to be at the foot of someone else’s—full of empathy and proffering spiritual refreshment. On the straight, narrow path, which leads to our little Calvarys, one does not hear a serious traveler exclaiming, “Look, no hands!” (see [[1 Corinthians 10.13|1 Cor. 10:13]]).
+Will we have that same perceptive tolerance for those being wrenched by a cruel irony? When, for the moment, we ourselves are not being stretched on a particular cross, we ought to be at the foot of someone else’s—full of empathy and proffering spiritual refreshment. On the straight, narrow path, which leads to our little Calvarys, one does not hear a serious traveler exclaiming, “Look, no hands!” (see [[1 Corinthians 10.13|1 Cor. 10:13]]).
 
-With enduring comes a willingness, therefore, to “press forward” even when we are bone weary and would much rather pull off to the side of the road (see [[2 Nephi 31.20|2 Ne. 31:20]]). Hence, one prophet was especially commended by the Lord for his unwearyingness (see [[Helaman 10.4|Hel. 10:4]]; see also [[Helaman 15.6|Hel. 15:6]]).
+With enduring comes a willingness, therefore, to “press forward” even when we are bone weary and would much rather pull off to the side of the road (see [[2 Nephi 31.20|2 Ne. 31:20]]). Hence, one prophet was especially commended by the Lord for his unwearyingness (see [[Helaman 10.4|Hel. 10:4]]; see also [[Helaman 15.6|Hel. 15:6]]).
 
 Paul wrote of how, even after faithful disciples had “done the will of God,” they “\[had\] need of patience” ([[Hebrews 10.36|Heb. 10:36]]). How many times have good individuals done the right thing initially only to break under subsequent stress? Sustaining correct conduct for a difficult moment under extraordinary stress is very commendable, but so is coping with sustained stress subtly present in seeming routineness. Either way, however, we are to “run with patience the race that is set before us” ([[Hebrews 12.1|Heb. 12:1]]), and it is a marathon, not a dash.
 
 When you and I are unduly impatient, we are suggesting that we like our timetable better than God’s. And thus, while the scriptural phrase “in process of time” means “eventually,” it also denotes an entire spiritual process:
 
-“The Lord showed unto Enoch all the inhabitants of the earth; and he beheld, and lo, Zion, in process of time, was taken up into heaven” ([[Moses 7.21|Moses 7:21]]; see also [[D&C 38.13|D&C 38:13]]; [[Genesis 4.3|Gen. 4:3]]; [[Genesis 38.12|38:12]]; [[Exodus 2.23|Ex. 2:23]]; [[Judges 11.4|Judg. 11:4]]; [[2 Chronicles 21.19|2 Chr. 21:19]]).
+“The Lord showed unto Enoch all the inhabitants of the earth; and he beheld, and lo, Zion, in process of time, was taken up into heaven” ([[Moses 7.21|Moses 7:21]]; see also [[D&C 38.13|D&C 38:13]]; [[Genesis 4.3|Gen. 4:3]]; [[Genesis 38.12|38:12]]; [[Exodus 2.23|Ex. 2:23]]; [[Judges 11.4|Judg. 11:4]]; [[2 Chronicles 21.19|2 Chr. 21:19]]).
 
 By itself, of course, the passage of time does not bring an automatic advance. Yet, like the prodigal son, we often need the “process of time” in order to come to our spiritual senses ([[Luke 15.17|Luke 15:17]]). The touching reunion of Jacob and Esau in the desert, so many years after their sibling rivalry, is a classic example. Generosity can replace animosity. Reflection can bring perception. But reflection and introspection require time. So many spiritual outcomes require saving truths to be mixed with time, forming the elixir of experience, that sovereign remedy for so many things.
 
@@ -90,15 +92,10 @@ After describing the agonies of the Atonement, Jesus urged us to “walk in the 
 
 You and I see in those who “endure it well” a quiet, peaceful majesty, an unspoken, inner awareness that, like Paul, they have “kept the faith.” And they know it, though they do not speak of it.
 
-Now, as this lovely Primary chorus will sing, our task is “trying to be like Jesus” and remembering the “lessons he taught” (“I’m Trying to Be like Jesus,” *Children’s Songbook* \[1989\], p. 78).
+Now, as this lovely Primary chorus will sing, our task is “trying to be like Jesus” and remembering the “lessons he taught” (“I’m Trying to Be like Jesus,” *Children’s Songbook* \[1989\], p. 78).
 
 For the eloquence and for the exquisiteness and the elegance of Christ’s everlasting example of enduring, I express again my public gratitude, my undying gratitude to the Father for the gift of His Son, and I so express it in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Adversity #Endurance #Faith

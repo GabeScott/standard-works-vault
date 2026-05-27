@@ -1,6 +1,5 @@
 # Dross
 
-
 all the wicked of the earth like *dross*, [[Psalms 119.119|Psalms 119:119]].
 
 Take away the *dross* from the silver, [[Proverbs 25.4|Proverbs 25:4]].

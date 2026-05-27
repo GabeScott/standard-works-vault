@@ -1,5 +1,7 @@
 # About His Business
 
+Dallin H. Oaks
+
 By Elder Patrick Kearon - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -69,7 +71,7 @@ When 12-year-old Jesus was found by His parents teaching in the temple, He told 
 
 [^7]: President Jeffrey R. Holland taught: “Be kind regarding human frailty—your own as well as that of those who serve with you in a Church led by volunteer, mortal men and women. Except in the case of His only perfect Begotten Son, imperfect people are all God has ever had to work with. That must be terribly frustrating to Him, but He deals with it. So should we. And when you see imperfection, remember that the limitation is *not* in the divinity of the work. As one gifted writer has suggested, when the infinite fulness is poured forth, it is not the oil’s fault if there is some loss because finite vessels can’t quite contain it all. Those finite vessels include you and me, so be patient and kind and forgiving“ (“[[2013 April - “Lord, I Believe”.md|Lord, I Believe]],” *Liahona*, May 2013, 94).
 
-[^8]: “Heavenly Father gave Jesus Christ a sacred mission to fulfill (see [[Luke 4.18|Luke 4:18–19]][[Luke 4.19|]]; [[John 6.38|John 6:38]]; [[3 Nephi 27.14|3 Nephi 27:14–16]][[3 Nephi 27.15|]][[3 Nephi 27.16|]]). During His ministry, the Savior trusted His disciples with important responsibilities (see [[Luke 10.1|Luke 10:1–9]][[Luke 10.2|]][[Luke 10.3|]][[Luke 10.4|]][[Luke 10.5|]][[Luke 10.6|]][[Luke 10.7|]][[Luke 10.8|]][[Luke 10.9|]]). Likewise, the Lord calls men and women to serve in the Church today through inspired invitations from His servants. These opportunities to serve are known as callings.
+[^8]: “Heavenly Father gave Jesus Christ a sacred mission to fulfill (see [[Luke 4.18|Luke 4:18–19]][[Luke 4.19|]]; [[John 6.38|John 6:38]]; [[3 Nephi 27.14|3 Nephi 27:14–16]][[3 Nephi 27.15|]][[3 Nephi 27.16|]]). During His ministry, the Savior trusted His disciples with important responsibilities (see [[Luke 10.1|Luke 10:1–9]][[Luke 10.2|]][[Luke 10.3|]][[Luke 10.4|]][[Luke 10.5|]][[Luke 10.6|]][[Luke 10.7|]][[Luke 10.8|]][[Luke 10.9|]]). Likewise, the Lord calls men and women to serve in the Church today through inspired invitations from His servants. These opportunities to serve are known as callings.
 
 [^9]: See *General Handbook*, [30.0](https://www.churchofjesuschrist.org/study/manual/general-handbook/30-callings-in-the-church?lang=eng&id=p61#p61).
 
@@ -99,5 +101,3 @@ When 12-year-old Jesus was found by His parents teaching in the temple, He told 
 
 [^22]: [[Luke 2.49|Luke 2:49]].
 
-
-#Callings #Service #Sustaining

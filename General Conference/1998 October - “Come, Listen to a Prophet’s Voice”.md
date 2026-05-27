@@ -1,5 +1,7 @@
 # “Come, Listen to a Prophet’s Voice”
 
+Gordon B. Hinckley
+
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1998 General Conference*
@@ -71,8 +73,3 @@ President Hinckley has said: “The best lies ahead. … If you will stay on the
 
 [^7]: “Messages of Inspiration from President Hinckley,” *Church News,* 2 Sept. 1995, 2.
 
-
-
-
-
-#Children #Dispensations #Family #Holy_Ghost #Jesus_Christ #Marriage #Prophets #Relief_Society

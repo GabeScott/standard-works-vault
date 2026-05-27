@@ -1,7 +1,6 @@
 # Cup
 
-
-put my *cup*, the silver *cup*, in the sack's mouth, [[Genesis 44.2|Genesis 44:2]].
+put my *cup*, the silver *cup*, in the sack’s mouth, [[Genesis 44.2|Genesis 44:2]].
 
 my *cup* runneth over, [[Psalms 23.5|Psalms 23:5]].
 
@@ -11,7 +10,7 @@ at the hand of the Lord the *cup* of his fury, [[Isaiah 51.17|Isaiah 51:17]].
 
 Take the wine *cup* of this fury at my hand, [[Jeremiah 25.15|Jeremiah 25:15]].
 
-*cup* of the Lord's right hand, [[Habakkuk 2.16|Habakkuk 2:16]].
+*cup* of the Lord’s right hand, [[Habakkuk 2.16|Habakkuk 2:16]].
 
 I will make Jerusalem a *cup* of trembling, [[Zechariah 12.2|Zechariah 12:2]].
 
@@ -33,7 +32,7 @@ This *cup* is the new testament, [[Luke 22.20|Luke 22:20]] ([[1 Corinthians 11.2
 
 *cup* of the wine of the fierceness, [[Revelation 16.19|Revelation 16:19]].
 
-Jerusalem, which hast drunk ... the *cup* of his fury, [[2 Nephi 8.17|2 Nephi 8:17]].
+Jerusalem, which hast drunk … the *cup* of his fury, [[2 Nephi 8.17|2 Nephi 8:17]].
 
 drunk out of the *cup* of the wrath of God, [[Mosiah 3.26|Mosiah 3:26]].
 

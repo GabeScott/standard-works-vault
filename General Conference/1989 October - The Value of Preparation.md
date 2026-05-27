@@ -1,5 +1,7 @@
 # The Value of Preparation
 
+Ezra Taft Benson
+
 By Elder Ben B. Banks - *Of the Second Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -30,7 +32,7 @@ The next day I hated to see the dawn come, knowing what it would be like to sit 
 
 That evening as we arrived at our destination, I came to an easy, yet profound recognition of how poorly prepared I was for what should have been a great experience with my sons, but was not because I did not take the time to properly prepare. I resolved that night that I would never again be that unprepared. I went home and bought bicycles for myself and my two youngest sons, and started training and preparing so that by the time the next summer came, my sons and I could ride our bikes to Lake Powell, a distance of three hundred miles, which we did. The next year we cycled to St. George, and every year thereafter, we rode our bikes to Lake Powell until our mission call to Scotland two years ago.
 
-If it is important to prepare for a bike ride, my young friends, why is it then so much more important for you in this life to prepare to serve as missionaries? Why? Because of the eternal significance of a mission in your life and in the lives of others. We learn of the responsibility we have to preach the gospel when Jesus said: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.” ([[Matthew 28.19|Matt. 28:19]].) Paul to the Corinthians counseled, “For though I preach the gospel, I have nothing to glory of: for necessity is laid upon me; yea, woe is unto me, if I preach not the gospel!” ([[1 Corinthians 9.16|1 Cor. 9:16]].)
+If it is important to prepare for a bike ride, my young friends, why is it then so much more important for you in this life to prepare to serve as missionaries? Why? Because of the eternal significance of a mission in your life and in the lives of others. We learn of the responsibility we have to preach the gospel when Jesus said: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.” ([[Matthew 28.19|Matt. 28:19]].) Paul to the Corinthians counseled, “For though I preach the gospel, I have nothing to glory of: for necessity is laid upon me; yea, woe is unto me, if I preach not the gospel!” ([[1 Corinthians 9.16|1 Cor. 9:16]].)
 
 I plead with you, my young friends, to never be “ashamed of the gospel of Christ.” ([[Romans 1.16|Rom. 1:16]].) Prepare yourselves and make yourselves worthy to receive a mission call. Live clean, pure lives. Study the scriptures—not just read, but study the scriptures—especially the Book of Mormon, as President Benson has counseled us to do. Be strong enough to live the Word of Wisdom and follow the counsel of your parents and priesthood leaders.
 
@@ -50,7 +52,7 @@ I think of a Tony Ridden and a Tracy McFall from Scotland who were baptized a co
 
 Just how important is a Sister Ciardo, a Tony Ridden, a Tracy McFall, and many others just like them? The Lord gives us the answer to that question: “Remember the worth of souls is great in the sight of God;
 
-“For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of all men, that all men might repent and come unto him. …
+“For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of all men, that all men might repent and come unto him. …
 
 “Wherefore, you are called to cry repentance unto this people.
 
@@ -60,15 +62,10 @@ O youth of noble birthright, I bear witness to you this night that if you will c
 
 “Ye are blessed, for the testimony which ye have borne is recorded in heaven for the angels to look upon; and they rejoice over you, and your sins are forgiven you.” ([[D&C 62.3|D&C 62:3]].)
 
-“Ye are a chosen generation, a royal priesthood.” ([[1 Peter 2.9|1 Pet. 2:9]].)
+“Ye are a chosen generation, a royal priesthood.” ([[1 Peter 2.9|1 Pet. 2:9]].)
 
 Stay on the Lord’s side and you will find eternal joy and fulfillment. I bear my witness to you that Jesus is the Christ, the Son of God. This is His church. President Ezra Taft Benson is our living prophet, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Missionary_Work #Obedience #Preparation

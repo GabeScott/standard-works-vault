@@ -1,6 +1,8 @@
 # “Her Children Arise Up, and Call Her Blessed”
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -14,7 +16,7 @@ Each mother will have to determine how she can bless her children. Because of th
 
 To the woman with children at home, that choice becomes not only important but critical. She will need unerring sources for direction—the scriptures, the teachings of Church leaders, and personal affirmation to her prayers of supplication—for the “changing winds,” of which we are warned in Ephesians ([[Ephesians 4.14|4:14]]), are perhaps nowhere more apparent than in the challenges and decisions women are facing now.
 
-We could be easily “tossed to and fro” ([[Ephesians 4.14|Eph. 4:14]]) if it were not for the “more sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place.” ([[2 Peter 1.19|2 Pet. 1:19]].)
+We could be easily “tossed to and fro” ([[Ephesians 4.14|Eph. 4:14]]) if it were not for the “more sure word of prophecy; whereunto ye do well that ye take heed, as unto a light that shineth in a dark place.” ([[2 Peter 1.19|2 Pet. 1:19]].)
 
 In that light of truth each woman can walk with confidence, knowing what is right for her. There is no *one* way that will fit all circumstances. Some women must come to one solution and some to another.
 
@@ -38,7 +40,7 @@ Even though a working mother cannot be the full-time model she might be if she w
 
 A mother must consider the essential purposes of life. Leo Rosten, writer, scientist, professor, has made a statement that gives us purposes to ponder:
 
-“Where was it ever promised us that life on this earth can ever be easy, free from conflict and uncertainty, devoid of anguish and wonder and pain? …
+“Where was it ever promised us that life on this earth can ever be easy, free from conflict and uncertainty, devoid of anguish and wonder and pain? …
 
 “The purpose of life is to *matter,* to be productive, to have it make some difference that you lived at all. Happiness, in the ancient, noble sense, means self-fulfillment—and is given to those who use to the fullest whatever talents God … bestowed upon them.”
 
@@ -92,7 +94,7 @@ We can plan our lives and, to the degree that it is possible, determine the end 
 
 We can strive to be a model of righteousness. Children learn what life is by observing and doing.
 
-When a mother provides an example of joy, the children’s world is one of happiness. When she makes wise choices, she helps them to learn discernment, and she brings to her home the refining quality that is such an important element in worthwhile progress. Learning from the Lord a Christlike love, she can manifest this kind of selfless care that will bless her home and at the same time show her children how to love. As we are told in the scriptures, “by laboring with all the might of \[our\] body and the faculty of \[our\] whole soul,” we can have peace in our lives, and we can “teach \[our\] children to pray, and to walk uprightly before the Lord.” ([[Words of Mormon 1.18|W of M 1:18]]; [[D&C 68.28|D&C 68:28]].)
+When a mother provides an example of joy, the children’s world is one of happiness. When she makes wise choices, she helps them to learn discernment, and she brings to her home the refining quality that is such an important element in worthwhile progress. Learning from the Lord a Christlike love, she can manifest this kind of selfless care that will bless her home and at the same time show her children how to love. As we are told in the scriptures, “by laboring with all the might of \[our\] body and the faculty of \[our\] whole soul,” we can have peace in our lives, and we can “teach \[our\] children to pray, and to walk uprightly before the Lord.” ([[Words of Mormon 1.18|W of M 1:18]]; [[D&C 68.28|D&C 68:28]].)
 
 Mothers have the special opportunity of bringing children into the world; they can also play a significant role in bringing to pass their success and happiness here as they prepare them for life eternal.
 
@@ -107,8 +109,3 @@ In the end it is you wonderful, wonderful mothers—you who have put your famili
 
 
 
-
-
-
-
-#Employment #Motherhood

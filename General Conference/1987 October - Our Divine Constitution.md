@@ -1,5 +1,7 @@
 # Our Divine Constitution
 
+Ezra Taft Benson
+
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1987 General Conference*
@@ -16,33 +18,33 @@ The Constitution of the United States has served as a model for many nations and
 
 “I established the Constitution of this land,” said the Lord, “by the hands of wise men whom I raised up unto this very purpose” ([[D&C 101.80|D&C 101:80]]).
 
-For centuries the Lord kept America hidden in the hollow of His hand until the time was right to unveil her for her destiny in the last days. “It is wisdom that this land should be kept as yet from the knowledge of other nations,” said Lehi, “for behold, many nations would overrun the land, that there would be no place for an inheritance” ([[2 Nephi 1.8|2 Ne. 1:8]]).
+For centuries the Lord kept America hidden in the hollow of His hand until the time was right to unveil her for her destiny in the last days. “It is wisdom that this land should be kept as yet from the knowledge of other nations,” said Lehi, “for behold, many nations would overrun the land, that there would be no place for an inheritance” ([[2 Nephi 1.8|2 Ne. 1:8]]).
 
-In the Lord’s due time His Spirit “wrought upon” Columbus, the pilgrims, the Puritans, and others to come to America (see [[1 Nephi 13.12|1 Ne. 13:12–13]][[1 Nephi 13.13|]]). They testified of God’s intervention in their behalf. The Book of Mormon records that they humbled “themselves before the Lord; and the power of the Lord was with them” ([[1 Nephi 13.16|1 Ne. 13:16]]).
+In the Lord’s due time His Spirit “wrought upon” Columbus, the pilgrims, the Puritans, and others to come to America (see [[1 Nephi 13.12|1 Ne. 13:12–13]][[1 Nephi 13.13|]]). They testified of God’s intervention in their behalf. The Book of Mormon records that they humbled “themselves before the Lord; and the power of the Lord was with them” ([[1 Nephi 13.16|1 Ne. 13:16]]).
 
-Our Father in Heaven planned the coming forth of the Founding Fathers and their form of government as the necessary great prologue leading to the restoration of the gospel. Recall what our Savior Jesus Christ said nearly two thousand years ago when He visited this promised land: “For it is wisdom in the Father that they should be established in this land, and be set up as a free people by the power of the Father, that these things might come forth” ([[3 Nephi 21.4|3 Ne. 21:4]]). America, the land of liberty, was to be the Lord’s latter-day base of operations for His restored church.
+Our Father in Heaven planned the coming forth of the Founding Fathers and their form of government as the necessary great prologue leading to the restoration of the gospel. Recall what our Savior Jesus Christ said nearly two thousand years ago when He visited this promised land: “For it is wisdom in the Father that they should be established in this land, and be set up as a free people by the power of the Father, that these things might come forth” ([[3 Nephi 21.4|3 Ne. 21:4]]). America, the land of liberty, was to be the Lord’s latter-day base of operations for His restored church.
 
 The Declaration of Independence affirmed the Founding Fathers’ belief and trust in God in these words: “We hold these Truths to be self-evident, that all Men are created equal, that they are endowed by their Creator with certain unalienable Rights, that among these are Life, Liberty, and the Pursuit of Happiness.”
 
 The Doctrine and Covenants states, “We believe that no government can exist in peace, except such laws are framed and held inviolate as will secure to each individual the free exercise of conscience, the right and control of property, and the protection of life” ([[D&C 134.2|D&C 134:2]]). Life, liberty, property—mankind’s three great rights.
 
-At the conclusion of the Declaration of Independence, they wrote, “And for the support of this Declaration, with a firm Reliance on the protection of divine Providence, we mutually pledge to each other our Lives, our Fortunes, and our sacred Honor.” This Declaration was a promise that would demand terrible sacrifice on the part of its signers. Five of the signers were captured as traitors and tortured before they died. Twelve had their homes ransacked and burned. Two lost their sons in the Revolutionary War; another had two sons captured. Nine died from wounds or from the hardships of the war. The Lord said He “redeemed the land by the shedding of blood” ([[D&C 101.80|D&C 101:80]]). Nephi recorded that the Founders “were delivered by the power of God out of the hands of all other nations” ([[1 Nephi 13.19|1 Ne. 13:19]]).
+At the conclusion of the Declaration of Independence, they wrote, “And for the support of this Declaration, with a firm Reliance on the protection of divine Providence, we mutually pledge to each other our Lives, our Fortunes, and our sacred Honor.” This Declaration was a promise that would demand terrible sacrifice on the part of its signers. Five of the signers were captured as traitors and tortured before they died. Twelve had their homes ransacked and burned. Two lost their sons in the Revolutionary War; another had two sons captured. Nine died from wounds or from the hardships of the war. The Lord said He “redeemed the land by the shedding of blood” ([[D&C 101.80|D&C 101:80]]). Nephi recorded that the Founders “were delivered by the power of God out of the hands of all other nations” ([[1 Nephi 13.19|1 Ne. 13:19]]).
 
-The years immediately preceding the Constitutional Convention were filled with disappointments and threats to the newly won peace. Washington was offered a kingship, which he adamantly refused. Nephi had prophesied hundreds of years before that “this land shall be a land of liberty unto the Gentiles, and there shall be *no kings* upon the land” ([[2 Nephi 10.11|2 Ne. 10:11]]; italics added).
+The years immediately preceding the Constitutional Convention were filled with disappointments and threats to the newly won peace. Washington was offered a kingship, which he adamantly refused. Nephi had prophesied hundreds of years before that “this land shall be a land of liberty unto the Gentiles, and there shall be *no kings* upon the land” ([[2 Nephi 10.11|2 Ne. 10:11]]; italics added).
 
 Between the critical years of 1783 and 1787, an outsider viewing the affairs of the United States would have thought that the thirteen states, different in so many ways, could never effectively unite. The world powers were confident that this nation would not last.
 
 Eventually, twelve of the states met in Philadelphia to address the problem. Madison said at the beginning of the Convention that the delegates “were now digesting a plan which in its operation would decide forever the fate of Republican Government” (in *Records of the Federal Convention of 1787,* ed. Max Farrand, New Haven: Yale University Press, 1911, 1:423).
 
-“The Lord knoweth all things from the beginning,” said Nephi; “wherefore, he prepareth a way to accomplish all his works among the children of men” ([[1 Nephi 9.6|1 Ne. 9:6]]).
+“The Lord knoweth all things from the beginning,” said Nephi; “wherefore, he prepareth a way to accomplish all his works among the children of men” ([[1 Nephi 9.6|1 Ne. 9:6]]).
 
-Four months later, the Convention delegates had completed their work. As Gladstone said, it was “the most wonderful work ever struck off at a given time by the brain and purpose of man” (William Gladstone, “Kin beyond Sea,” *North American Review,* Sept.–Oct. 1878, p. 185), and the Prophet Joseph Smith called it “a glorious standard, … a heavenly banner” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 147).
+Four months later, the Convention delegates had completed their work. As Gladstone said, it was “the most wonderful work ever struck off at a given time by the brain and purpose of man” (William Gladstone, “Kin beyond Sea,” *North American Review,* Sept.–Oct. 1878, p. 185), and the Prophet Joseph Smith called it “a glorious standard, … a heavenly banner” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 147).
 
-The delegates were the recipients of heavenly inspiration. James Madison, often referred to as the father of the Constitution, wrote: “It is impossible for the man of pious reflection not to perceive in it a finger of that Almighty hand which has been so frequently and signally extended to our relief in the critical stages of the revolution” (*The Federalist,* no. 37, ed. Henry Cabot Lodge, New York: G. P. Putnam’s Sons, 1983, p. 222).
+The delegates were the recipients of heavenly inspiration. James Madison, often referred to as the father of the Constitution, wrote: “It is impossible for the man of pious reflection not to perceive in it a finger of that Almighty hand which has been so frequently and signally extended to our relief in the critical stages of the revolution” (*The Federalist,* no. 37, ed. Henry Cabot Lodge, New York: G. P. Putnam’s Sons, 1983, p. 222).
 
-Alexander Hamilton, famous as the originator of *The Federalist* papers and author of fifty-one of the essays, said: “For my own part, I sincerely esteem it a system, which without the finger of God, never could have been suggested and agreed upon by such a diversity of interest” (in *Essays on the Constitution of the United States,* ed. Paul L. Ford, Brooklyn: Historical Printing, 1892, pp. 251–52).
+Alexander Hamilton, famous as the originator of *The Federalist* papers and author of fifty-one of the essays, said: “For my own part, I sincerely esteem it a system, which without the finger of God, never could have been suggested and agreed upon by such a diversity of interest” (in *Essays on the Constitution of the United States,* ed. Paul L. Ford, Brooklyn: Historical Printing, 1892, pp. 251–52).
 
-Charles Pinckney, a very active participant and author of the Pinckney Plan during the Convention, said: “When the great work was done and published, I was struck with amazement. Nothing less than the superintending Hand of Providence, that so miraculously carried us through the war, … could have brought it about so complete, upon the whole” (in *Essays on the Constitution,* p. 412).
+Charles Pinckney, a very active participant and author of the Pinckney Plan during the Convention, said: “When the great work was done and published, I was struck with amazement. Nothing less than the superintending Hand of Providence, that so miraculously carried us through the war, … could have brought it about so complete, upon the whole” (in *Essays on the Constitution,* p. 412).
 
 Within ten months, the Constitution was ratified by nine states and was therefore in force for them. Prophecy had been fulfilled.
 
@@ -56,9 +58,9 @@ Shortly after President Spencer W. Kimball became President of the Church, he as
 
 Think of it: the Founding Fathers of this nation, those great men, appeared within those sacred walls and had their vicarious work done for them.
 
-President Wilford Woodruff spoke of it in these words: “Before I left St. George, the spirits of the dead gathered around me, wanting to know why we did not redeem them. Said they, ‘You have had the use of the Endowment House for a number of years, and yet nothing has ever been done for us. We laid the foundation of the government you now enjoy, and we never apostatized from it, but we remained true to it and were faithful to God’” (*The Discourses of Wilford Woodruff,* sel. G. Homer Durham, Salt Lake City: Bookcraft, 1946, p. 160).
+President Wilford Woodruff spoke of it in these words: “Before I left St. George, the spirits of the dead gathered around me, wanting to know why we did not redeem them. Said they, ‘You have had the use of the Endowment House for a number of years, and yet nothing has ever been done for us. We laid the foundation of the government you now enjoy, and we never apostatized from it, but we remained true to it and were faithful to God’” (*The Discourses of Wilford Woodruff,* sel. G. Homer Durham, Salt Lake City: Bookcraft, 1946, p. 160).
 
-After he became President of the Church, President Wilford Woodruff declared that “those men who laid the foundation of this American government … were the best spirits the God of heaven could find on the face of the earth. They were choice spirits … \[and\] were inspired of the Lord” (in Conference Report, Apr. 1898, p. 89).
+After he became President of the Church, President Wilford Woodruff declared that “those men who laid the foundation of this American government … were the best spirits the God of heaven could find on the face of the earth. They were choice spirits … \[and\] were inspired of the Lord” (in Conference Report, Apr. 1898, p. 89).
 
 Unfortunately, we as a nation have apostatized in various degrees from different Constitutional principles as proclaimed by the inspired founders. We are fast approaching that moment prophesied by Joseph Smith when he said: “Even this nation will be on the very verge of crumbling to pieces and tumbling to the ground, and when the Constitution is upon the brink of ruin, this people will be the staff upon which the nation shall lean, and they shall bear the Constitution away from the very verge of destruction” (19 July 1840, as recorded by Martha Jane Knowlton Coray; ms. in Church Historian’s Office, Salt Lake City).
 
@@ -74,7 +76,7 @@ How then can we best befriend the Constitution in this critical hour and secure 
 
 John Adams said, “Our Constitution was made only for a moral and religious people. It is wholly inadequate to the government of any other.” (*The Works of John Adams,* ed. C. F. Adams, Boston: Little, Brown and Co., 1851, 4:31). If the Constitution is to have continuance, this American nation, and especially the Latter-day Saints, must be virtuous.
 
-The Book of Mormon warns us relative to our living in this free land: “Wherefore, this land is consecrated unto him whom he shall bring. And if it so be that they shall serve him according to the commandments which he hath given, it shall be a land of liberty unto them; wherefore, they shall never be brought down into captivity; if so, it shall be because of iniquity; for if iniquity shall abound cursed shall be the land for their sakes, but unto the righteous it shall be blessed forever” ([[2 Nephi 1.7|2 Ne. 1:7]]).
+The Book of Mormon warns us relative to our living in this free land: “Wherefore, this land is consecrated unto him whom he shall bring. And if it so be that they shall serve him according to the commandments which he hath given, it shall be a land of liberty unto them; wherefore, they shall never be brought down into captivity; if so, it shall be because of iniquity; for if iniquity shall abound cursed shall be the land for their sakes, but unto the righteous it shall be blessed forever” ([[2 Nephi 1.7|2 Ne. 1:7]]).
 
 “And now,” warned Moroni, “we can behold the decrees of God concerning this land, that it is a land of promise; and whatsoever nation shall possess it shall serve God, or they shall be swept off when the fulness of his wrath shall come upon them. And the fulness of his wrath cometh upon them when they are ripened in iniquity” ([[Ether 2.9|Ether 2:9]]).
 
@@ -111,8 +113,3 @@ May we be equally as valiant and as free, I pray in the name of Jesus Christ, am
 
 
 
-
-
-
-
-#U.S._Constitution

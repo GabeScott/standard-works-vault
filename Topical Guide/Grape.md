@@ -1,9 +1,8 @@
 # Grape
 
-
 clusters thereof brought forth ripe *grapes*, [[Genesis 40.10|Genesis 40:10]].
 
-cut ... a branch with one cluster of *grapes*, [[Numbers 13.23|Numbers 13:23]].
+cut … a branch with one cluster of *grapes*, [[Numbers 13.23|Numbers 13:23]].
 
 thou didst drink the pure blood of the *grape*, [[Deuteronomy 32.14|Deuteronomy 32:14]].
 

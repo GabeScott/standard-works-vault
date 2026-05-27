@@ -1,6 +1,5 @@
 # Grudge
 
-
 Thou shalt not avenge, nor bear any *grudge*, [[Leviticus 19.18|Leviticus 19:18]].
 
 *Grudge* not one against another, [[James 5.9|James 5:9]].

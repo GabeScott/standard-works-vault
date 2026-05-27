@@ -1,11 +1,10 @@
 # Hard, Harder
 
-
-*See also* [[Hardheartedness, Harden, Hardness.md|Hardheartedness]]
+*See also* [[Hardheartedness.md|Hardheartedness]]
 
 Is any thing too *hard* for the Lord, [[Genesis 18.14|Genesis 18:14]] ([[Jeremiah 32.27|Jeremiah 32:27]]).
 
-Rachel ... had *hard* labour, [[Genesis 35.16|Genesis 35:16]].
+Rachel … had *hard* labour, [[Genesis 35.16|Genesis 35:16]].
 
 made their lives bitter with *hard* bondage, [[Exodus 1.14|Exodus 1:14]].
 

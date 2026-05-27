@@ -1,6 +1,8 @@
 # This Is Our Time!
 
-By Elder S. Gifford Nielsen - *Of the Seventy*
+Russell M. Nelson
+
+By Elder S. Gifford Nielsen - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -16,7 +18,7 @@ A football game might not be nearly as important as the challenges you will face
 
 Maybe we don’t always feel up to the challenge. But our Heavenly Father sees us as fearless builders of His kingdom. That is why He sent us here during this most decisive time in the world’s history. This is our time!
 
-Listen to what President Russell M. Nelson said shortly after becoming President of the Church: “Our Savior and Redeemer, Jesus Christ, will perform some of His mightiest works between now and when He comes again. We will see miraculous indications that God the Father and His Son, Jesus Christ, preside over this Church in majesty and glory” (“[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96).
+Listen to what President Russell M. Nelson said shortly after becoming President of the Church: “Our Savior and Redeemer, Jesus Christ, will perform some of His mightiest works between now and when He comes again. We will see miraculous indications that God the Father and His Son, Jesus Christ, preside over this Church in majesty and glory” (“[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96).
 
 Mightiest works? Miraculous indications? What will that look like? What role will we play, and how will we understand what to do? I don’t know all the answers, but I do know that the Lord needs us to be ready! Worthily exercising priesthood power has never been more crucial.
 
@@ -46,9 +48,9 @@ You might not ever be asked by the First Presidency to represent them in a life-
 
 Peter, the Savior’s chief Apostle, was in a ship on the sea when he saw Jesus walking on the water. He wanted to join Him, and the Savior said, “Come.” Courageously and miraculously, Peter left the safety of the boat and began walking toward the Savior. But when Peter focused on the boisterous wind, his faith faltered. “He was afraid; and beginning to sink, he cried, saying, Lord, save me. And immediately Jesus stretched forth his hand, and caught him.” (See [[Matthew 14.22|Matthew 14:22–33]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]][[Matthew 14.32|]][[Matthew 14.33|]].)
 
-When winds blow in our lives, where is our focus? Remember, there is always one reliable source of strength and courage. The arms of Jesus extend to us, just as they extended to Peter. As we reach for Him, He will lovingly rescue us. We are His. He said, “Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine” ([[Isaiah 43.1|Isaiah 43:1]]). He will prevail in your life if you let Him. The choice is yours. (See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.)
+When winds blow in our lives, where is our focus? Remember, there is always one reliable source of strength and courage. The arms of Jesus extend to us, just as they extended to Peter. As we reach for Him, He will lovingly rescue us. We are His. He said, “Fear not: for I have redeemed thee, I have called thee by thy name; thou art mine” ([[Isaiah 43.1|Isaiah 43:1]]). He will prevail in your life if you let Him. The choice is yours. (See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.)
 
-At the end of his life, Joshua pleaded with his people, “Choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord” ([[Joshua 24.15|Joshua 24:15]]). Because of the choices he made to serve the Lord, Joshua became a great leader in his time. My dear friends, this is our time! And the choices we make will determine our destiny (see Thomas S. Monson, “” \[Brigham Young University fireside, Nov. 6, 2005\], speeches.byu.edu).
+At the end of his life, Joshua pleaded with his people, “Choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord” ([[Joshua 24.15|Joshua 24:15]]). Because of the choices he made to serve the Lord, Joshua became a great leader in his time. My dear friends, this is our time! And the choices we make will determine our destiny (see Thomas S. Monson, “[Decisions Determine Destiny](https://speeches.byu.edu/talks/thomas-s-monson/decisions-determine-destiny)” \[Brigham Young University fireside, Nov. 6, 2005\], speeches.byu.edu).
 
 While I was serving as a bishop, we had a motto in our ward: Good choices equal happiness—eternally. The youth would pass me in the hall saying, “Bishop, I’m making good choices!” That’s a bishop’s dream!
 
@@ -70,19 +72,14 @@ His leader said to him, “The Lord knows you, loves you, and is pleased \[with\
 
 When this brother heard that counsel, he saw life with new eyes. He later said, “I have spent my whole life trying to find peace and acceptance. I have looked for those things in many wrong places. Only in the love of Heavenly Father and the Savior can I find comfort. I know They want me to love myself; it really is the only way I can feel Their love for me.”
 
-Our Heavenly Father wants us to love ourselves—not to become prideful or self-centered, but to see ourselves as He sees us: we are His cherished children. When this truth sinks deep into our hearts, our love for God grows. When we view ourselves with sincere respect, our hearts are open to treat others that way too. The more we recognize our divine worth, the better we understand this divine truth: that God has sent us right here, right now, at this momentous time in history, so that we can do the greatest possible good with the talents and gifts we have. This is our time! (See Russell M. Nelson, “” \[worldwide devotional for young adults, Jan. 10, 2016\], broadcasts.ChurchofJesusChrist.org.)
+Our Heavenly Father wants us to love ourselves—not to become prideful or self-centered, but to see ourselves as He sees us: we are His cherished children. When this truth sinks deep into our hearts, our love for God grows. When we view ourselves with sincere respect, our hearts are open to treat others that way too. The more we recognize our divine worth, the better we understand this divine truth: that God has sent us right here, right now, at this momentous time in history, so that we can do the greatest possible good with the talents and gifts we have. This is our time! (See Russell M. Nelson, “[Becoming True Millennials](https://www.churchofjesuschrist.org/study/broadcasts/article/worldwide-devotionals/2016/01/becoming-true-millennials?lang=eng)” \[worldwide devotional for young adults, Jan. 10, 2016\], broadcasts.ChurchofJesusChrist.org.)
 
-Joseph Smith taught that every prophet in every age “looked forward with joyful anticipation to the day in which we live; … they have sung and written and prophesied of this our day; … we are the favored people that God has \[chosen\] to bring about the Latter-day glory” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 186).
+Joseph Smith taught that every prophet in every age “looked forward with joyful anticipation to the day in which we live; … they have sung and written and prophesied of this our day; … we are the favored people that God has \[chosen\] to bring about the Latter-day glory” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-15?lang=eng&id=p8#p8)* \[2007\], 186).
 
-As you face your daily challenges, remember this reassurance offered by Elder Jeffrey R. Holland: “So much rests on our shoulders, but it will be a glorious and successful experience. … The victory in this final contest has already been declared. The victory is already in the record books … , the scriptures!” (“” \[address to Church Educational System religious educators, Feb. 6, 2015\], broadcasts.ChurchofJesusChrist.org).
+As you face your daily challenges, remember this reassurance offered by Elder Jeffrey R. Holland: “So much rests on our shoulders, but it will be a glorious and successful experience. … The victory in this final contest has already been declared. The victory is already in the record books … , the scriptures!” (“[Be Not Afraid, Only Believe](https://www.churchofjesuschrist.org/study/broadcasts/article/evening-with-a-general-authority/2015/02/helping-with-the-real-issues?lang=eng&id=p15#p15)” \[address to Church Educational System religious educators, Feb. 6, 2015\], broadcasts.ChurchofJesusChrist.org).
 
 On this beautiful Easter weekend, may I extend an invitation that we all pray to recognize and embrace our individual roles as we prepare for the glorious day when the Savior comes again. The Lord loves us more than we can comprehend, and He will answer our prayers! Whether we are on a football field, in a hospital room, or in any other place, we can be an important part of these remarkable events—because this is our time! In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Choices #Individual_Worth #Love #Priesthood_Blessings #Service

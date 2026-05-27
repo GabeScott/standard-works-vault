@@ -1,5 +1,7 @@
 # Pursuing Excellence
 
+Gordon B. Hinckley
+
 By Peter Vidmar - *UCLA Ward, Los Angeles California Stake*
 
 *Given in the April session of the 1985 General Conference*
@@ -81,8 +83,3 @@ I know I have a long way to go, but I pray that I may always improve and someday
 
 
 
-
-
-
-
-#Excellence

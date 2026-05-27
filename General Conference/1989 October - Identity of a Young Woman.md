@@ -1,5 +1,7 @@
 # Identity of a Young Woman
 
+Ezra Taft Benson
+
 By Elaine L. Jack - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -38,7 +40,7 @@ When you have that witness, then you know that you are part of God’s family, t
 
 Our prophet, President Ezra Taft Benson, has counseled:
 
-“I would encourage you young sisters, as you approach your teenage years, to receive a patriarchal blessing. Study it carefully and regard it as personal scripture to you—for that indeed is what it is.” (*Ensign,* Nov. 1986, p. 82.)
+“I would encourage you young sisters, as you approach your teenage years, to receive a patriarchal blessing. Study it carefully and regard it as personal scripture to you—for that indeed is what it is.” (*Ensign,* Nov. 1986, p. 82.)
 
 Have you had a patriarchal blessing? Are you preparing to get one soon? Think of this—what does a patriarchal blessing say? Have you ever heard of one which says, “I am sorry—you’re a loser. Do the best you can on earth, and we’ll see you in about seventy years. “Of course not! And you never will, because of the divine qualities each of God’s children has inherited. A patriarchal blessing is like a road map, a guide, directing you in your walk through life. It identifies your talents and the good things that can be yours.
 
@@ -66,11 +68,11 @@ And another relates:
 
 “I know I occupy a bright spot in the Lord’s plan. As a young woman, I am blessed with the opportunity to become a mother someday.”
 
-Unfortunately, Satan will try to convince you otherwise. He would have you believe, “You’re no good; why try?” If you have those thoughts, don’t believe them. According to Elder Neal A. Maxwell, “Satan delights to have us put ourselves down. Self-contempt is of Satan. There is no such thing in Heaven.” The scriptures tell us that Satan would have you “be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]) and that he “desireth to have you” ([[3 Nephi 18.18|3 Ne. 18:18]]). He would also try to convince you that there is no repentance, no way back, and that no one cares.
+Unfortunately, Satan will try to convince you otherwise. He would have you believe, “You’re no good; why try?” If you have those thoughts, don’t believe them. According to Elder Neal A. Maxwell, “Satan delights to have us put ourselves down. Self-contempt is of Satan. There is no such thing in Heaven.” The scriptures tell us that Satan would have you “be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]) and that he “desireth to have you” ([[3 Nephi 18.18|3 Ne. 18:18]]). He would also try to convince you that there is no repentance, no way back, and that no one cares.
 
 One young person who had left the activities of the Church and came back was asked, “What really made the difference in coming back?” She replied, “I had a friend, and I knew she really cared. I wanted help. I needed help. I knew I could get help from Heavenly Father.” In this life, we do make mistakes, but through the process of repentance and the blessings of the Atonement, they can be resolved.
 
-Repentance means turning the heart and the will to God. It denotes a change of mind, a fresh view about God, about oneself, and about the world. (See LDS edition of the King James Bible, Bible Dictionary, p. 760.) It is a cleansing process. It *is* the way back. There is someone who does care and will help. You can choose to wallow in despair or to make the changes that will bring lasting happiness.
+Repentance means turning the heart and the will to God. It denotes a change of mind, a fresh view about God, about oneself, and about the world. (See LDS edition of the King James Bible, Bible Dictionary, [[BD Repentance|p. 760]].) It is a cleansing process. It *is* the way back. There is someone who does care and will help. You can choose to wallow in despair or to make the changes that will bring lasting happiness.
 
 Your confidence becomes stronger as you practice making right choices. When you are with your friends, share your thoughts and feelings with them about doing good and being good.
 
@@ -87,8 +89,3 @@ This I believe, in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Faith #Self-Esteem #Youth

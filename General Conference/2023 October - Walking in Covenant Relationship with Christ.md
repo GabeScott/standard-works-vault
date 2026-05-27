@@ -1,5 +1,7 @@
 # Walking in Covenant Relationship with Christ
 
+David A. Bednar
+
 By President Emily Belle Freeman - *Young Women General President*
 
 *Given in the October session of the 2023 General Conference*
@@ -34,7 +36,7 @@ Think of the young man in a spot of trouble who met the Lord in a wilderness pla
 
 Jacob had a choice to make. He could choose to live his life simply acquainted with the God of his father, or he could choose to live life in committed covenant relationship with Him. Years later, Jacob testified of a life lived within the Lord’s covenant promises: “God … answered me in the day of my distress, and *was with me* in the way which I went.”[^8] Just as He did for Jacob, the Lord will answer each of us in our day of distress if we choose to tether our life with His. He has promised to walk *with us* in the way.
 
-We call this walking the covenant path—a path that begins with the covenant of baptism and leads to deeper covenants we make in the temple. Perhaps you hear those words and think of checkboxes. Maybe all you see is a path of requirements. A closer look reveals something more compelling. A covenant is not only about a contract, although that is important. It’s about a relationship. President Russell M. Nelson taught, “The covenant path is all about our relationship with God.”[^9]
+We call this walking the covenant path—a path that begins with the covenant of baptism and leads to deeper covenants we make in the temple. Perhaps you hear those words and think of checkboxes. Maybe all you see is a path of requirements. A closer look reveals something more compelling. A covenant is not only about a contract, although that is important. It’s about a relationship. President Russell M. Nelson taught, “The covenant path is all about our relationship with God.”[^9]
 
 Consider a marriage covenant. The wedding date is important, but equally important is the relationship forged through the life lived together afterward. The same is true with a covenant relationship with God. Conditions have been set, and there will be expectations along the way. And yet He invites each of us to come as we are able, with full purpose of heart, and to “press forward”[^10] with Him at our side, trusting that His promised blessings will come. Scripture reminds us that often those blessings come in His own time and in His own way: 38 years,[^11] 12 years,[^12] immediately.[^13] As your trail will demand, so His succor will be.[^14]
 
@@ -73,7 +75,7 @@ Thankfully, we walk this path together, calling out encouragement along the way.
 
 [^2]: See [[Moses 6.23|Moses 6:23–34]][[Moses 6.24|]][[Moses 6.25|]][[Moses 6.26|]][[Moses 6.27|]][[Moses 6.28|]][[Moses 6.29|]][[Moses 6.30|]][[Moses 6.31|]][[Moses 6.32|]][[Moses 6.33|]][[Moses 6.34|]].
 
-[^3]: See “Jesus of Nazareth, Savior and King,” *Hymns*, no. 181.
+[^3]: See “Jesus of Nazareth, Savior and King,” *Hymns*, no. 181.
 
 [^4]: See [[Ether 12.27|Ether 12:27]].
 
@@ -85,9 +87,9 @@ Thankfully, we walk this path together, calling out encouragement along the way.
 
 [^8]: [[Genesis 35.3|Genesis 35:3]]; emphasis added. Jacob’s parents directed him to leave home to distance himself from Esau, who had threatened to kill him, and to have the opportunity to meet someone whom he could marry in the covenant (see [[Genesis 27.41|Genesis 27:41–45]][[Genesis 27.42|]][[Genesis 27.43|]][[Genesis 27.44|]][[Genesis 27.45|]]; [[Genesis 28.1|28:1–2, 5]][[Genesis 28.2|]][[Genesis 28.5|]]).
 
-[^9]: Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p57#p57),” *Liahona*, Oct. 2022, 11.
+[^9]: Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p57#p57),” *Liahona*, Oct. 2022, 11.
 
-[^10]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^10]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^11]: See [[John 5.5|John 5:5]], the story of the pool of Bethesda.
 
@@ -95,9 +97,9 @@ Thankfully, we walk this path together, calling out encouragement along the way.
 
 [^13]: See [[Matthew 14.31|Matthew 14:31]], the story of Peter walking on water.
 
-[^14]: See “How Firm a Foundation,” *Hymns*, no. 85.
+[^14]: See “How Firm a Foundation,” *Hymns*, no. 85.
 
-[^15]: See [[1 Nephi 11.16|1 Nephi 11:16–33]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]].
+[^15]: See [[1 Nephi 11.16|1 Nephi 11:16–33]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]].
 
 [^16]: See [[Philippians 1.6|Philippians 1:6]]; [[Philippians 2.13|2:13]]; [[Words of Mormon 1.7|Words of Mormon 1:7]].
 
@@ -105,7 +107,7 @@ Thankfully, we walk this path together, calling out encouragement along the way.
 
 [^18]: A path is often defined by key characteristics such as guideposts or mile markers. It is a way to make sure you are on the right trail or making progress in the right direction. A relationship also can be defined by key characteristics. Some of these include expectation (see [[Jeremiah 29.11|Jeremiah 29:11]]; [[D&C 132.7|Doctrine and Covenants 132:7]]); submissiveness (see [[Mosiah 3.19|Mosiah 3:19]]; [[Alma 7.23|Alma 7:23]]; [[Alma 13.28|13:28]]); humility; obedience; patience; yielding; trust (see [[Proverbs 3.5|Proverbs 3:5]]); and love (see [[Romans 8.31|Romans 8:31–39]][[Romans 8.32|]][[Romans 8.33|]][[Romans 8.34|]][[Romans 8.35|]][[Romans 8.36|]][[Romans 8.37|]][[Romans 8.38|]][[Romans 8.39|]]).
 
-[^19]: “[Young Women Theme](https://churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng),” Gospel Library, emphasis added; see also Bonnie H. Cordon, “[[2019 October - Beloved Daughters.md|Beloved Daughters]],” *Ensign* or *Liahona*, Nov. 2019, 67.
+[^19]: “[Young Women Theme](https://www.churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng),” Gospel Library, emphasis added; see also Bonnie H. Cordon, “[[2019 October - Beloved Daughters.md|Beloved Daughters]],” *Ensign* or *Liahona*, Nov. 2019, 67.
 
 [^20]: See [[John 4.1|John 4:1–29]][[John 4.2|]][[John 4.3|]][[John 4.4|]][[John 4.5|]][[John 4.6|]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]][[John 4.27|]][[John 4.28|]][[John 4.29|]], the story of the woman at the well.
 
@@ -117,13 +119,13 @@ Thankfully, we walk this path together, calling out encouragement along the way.
 
 [^24]: See [[D&C 25.3|Doctrine and Covenants 25:3]], the story of Emma Smith.
 
-[^25]: See [[1 Corinthians 15.9|1 Corinthians 15:9–10]][[1 Corinthians 15.10|]].
+[^25]: See [[1 Corinthians 15.9|1 Corinthians 15:9–10]][[1 Corinthians 15.10|]].
 
-[^26]: See [[2 Chronicles 20.1|2 Chronicles 20:1–17]][[2 Chronicles 20.2|]][[2 Chronicles 20.3|]][[2 Chronicles 20.4|]][[2 Chronicles 20.5|]][[2 Chronicles 20.6|]][[2 Chronicles 20.7|]][[2 Chronicles 20.8|]][[2 Chronicles 20.9|]][[2 Chronicles 20.10|]][[2 Chronicles 20.11|]][[2 Chronicles 20.12|]][[2 Chronicles 20.13|]][[2 Chronicles 20.14|]][[2 Chronicles 20.15|]][[2 Chronicles 20.16|]][[2 Chronicles 20.17|]], especially [[2 Chronicles 20.14|verse 14]].
+[^26]: See [[2 Chronicles 20.1|2 Chronicles 20:1–17]][[2 Chronicles 20.2|]][[2 Chronicles 20.3|]][[2 Chronicles 20.4|]][[2 Chronicles 20.5|]][[2 Chronicles 20.6|]][[2 Chronicles 20.7|]][[2 Chronicles 20.8|]][[2 Chronicles 20.9|]][[2 Chronicles 20.10|]][[2 Chronicles 20.11|]][[2 Chronicles 20.12|]][[2 Chronicles 20.13|]][[2 Chronicles 20.14|]][[2 Chronicles 20.15|]][[2 Chronicles 20.16|]][[2 Chronicles 20.17|]], especially [[2 Chronicles 20.14|verse 14]].
 
 [^27]: See [[D&C 109.1|Doctrine and Covenants 109:1–46]][[D&C 109.2|]][[D&C 109.3|]][[D&C 109.4|]][[D&C 109.5|]][[D&C 109.6|]][[D&C 109.7|]][[D&C 109.8|]][[D&C 109.9|]][[D&C 109.10|]][[D&C 109.11|]][[D&C 109.12|]][[D&C 109.13|]][[D&C 109.14|]][[D&C 109.15|]][[D&C 109.16|]][[D&C 109.17|]][[D&C 109.18|]][[D&C 109.19|]][[D&C 109.20|]][[D&C 109.21|]][[D&C 109.22|]][[D&C 109.23|]][[D&C 109.24|]][[D&C 109.25|]][[D&C 109.26|]][[D&C 109.27|]][[D&C 109.28|]][[D&C 109.29|]][[D&C 109.30|]][[D&C 109.31|]][[D&C 109.32|]][[D&C 109.33|]][[D&C 109.34|]][[D&C 109.35|]][[D&C 109.36|]][[D&C 109.37|]][[D&C 109.38|]][[D&C 109.39|]][[D&C 109.40|]][[D&C 109.41|]][[D&C 109.42|]][[D&C 109.43|]][[D&C 109.44|]][[D&C 109.45|]][[D&C 109.46|]].
 
-[^28]: See [[1 Samuel 16.11|1 Samuel 16:11–13]][[1 Samuel 16.12|]][[1 Samuel 16.13|]].
+[^28]: See [[1 Samuel 16.11|1 Samuel 16:11–13]][[1 Samuel 16.12|]][[1 Samuel 16.13|]].
 
 [^29]: See [[Esther 4.16|Esther 4:16]], the story of Esther.
 
@@ -141,7 +143,5 @@ Thankfully, we walk this path together, calling out encouragement along the way.
 
 [^36]: “You will remember that I have invited the youth of The Church of Jesus Christ of Latter-day Saints to enlist in the Lord’s youth battalion to participate in the greatest cause on earth today—the gathering of Israel. I issued this invitation to our youth because they are unusually gifted in reaching out to others and sharing what they believe in a convincing fashion” (Russell M. Nelson, “Witnesses, Aaronic Priesthood Quorums, and Young Women,” *Ensign* or *Liahona*, Nov. 2019, 39).
 
+[^37]: “The kingdom of God … is like a besieged city surrounded on all sides by death. Each man has his place on the wall to defend and no one can stand where another stands, but ‘nothing prevents us from calling encouragement to one another’” (Martin Luther, in Lewis William Spitz, *The Renaissance and Reformation Movements* \[1987\], 335). 
 
-
-
-#Adversity #Covenants #Jesus_Christ

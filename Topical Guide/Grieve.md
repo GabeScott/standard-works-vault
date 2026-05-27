@@ -1,7 +1,6 @@
 # Grieve
 
-
-*See also* [[Grief.md|Grief]]; [[Lament.md|Lament]]; [[Mourning, Mourn.md|Mourning]]; [[Sorrow.md|Sorrow]]
+*See also* [[Grief.md|Grief]]; [[Lament.md|Lament]]; [[Mourning.md|Mourning]]; [[Sorrow.md|Sorrow]]
 
 made man on the earth, and it *grieved* him, [[Genesis 6.6|Genesis 6:6]].
 

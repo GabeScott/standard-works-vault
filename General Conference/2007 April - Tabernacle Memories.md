@@ -1,5 +1,7 @@
 # Tabernacle Memories
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -47,8 +49,3 @@ As this building is rededicated today, may we pledge to rededicate our lives to 
 
 
 
-
-
-
-
-#Faith #General_Conference #Ordinances #Temple_Square

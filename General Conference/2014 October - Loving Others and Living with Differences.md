@@ -1,6 +1,8 @@
 # Loving Others and Living with Differences
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -10,11 +12,11 @@ By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 ## I.
 
-In the concluding days of His mortal ministry, Jesus gave His disciples what He called “a new commandment” ([[John 13.34|John 13:34]]). Repeated three times, that commandment was simple but difficult: “Love one another, as I have loved you” ([[John 15.12|John 15:12]]; see also [[John 15.17|verse 17]]). The teaching to love one another had been a central teaching of the Savior’s ministry. The second great commandment was “love thy neighbour as thyself” ([[Matthew 22.39|Matthew 22:39]]). Jesus even taught, “Love your enemies” ([[Matthew 5.44|Matthew 5:44]]). But the commandment to *love others as He had loved His flock* was to His disciples—and is to us—a challenge that was unique. “Actually,” President Thomas S. Monson taught us last April, “love is the very essence of the gospel, and Jesus Christ is our Exemplar. His life was a legacy of love.”[^1]
+In the concluding days of His mortal ministry, Jesus gave His disciples what He called “a new commandment” ([[John 13.34|John 13:34]]). Repeated three times, that commandment was simple but difficult: “Love one another, as I have loved you” ([[John 15.12|John 15:12]]; see also [[John 15.17|verse 17]]). The teaching to love one another had been a central teaching of the Savior’s ministry. The second great commandment was “love thy neighbour as thyself” ([[Matthew 22.39|Matthew 22:39]]). Jesus even taught, “Love your enemies” ([[Matthew 5.44|Matthew 5:44]]). But the commandment to *love others as He had loved His flock* was to His disciples—and is to us—a challenge that was unique. “Actually,” President Thomas S. Monson taught us last April, “love is the very essence of the gospel, and Jesus Christ is our Exemplar. His life was a legacy of love.”[^1]
 
 Why is it so difficult to have Christlike love for one another? It is difficult because we must live among those who do not share our beliefs and values and covenant obligations. In His great Intercessory Prayer, offered just before His Crucifixion, Jesus prayed for His followers: “I have given them thy word; and the world hath hated them, because they are not of the world, even as I am not of the world” ([[John 17.14|John 17:14]]). Then, to the Father He pleaded, “I pray not that thou shouldest take them out of the world, but that thou shouldest keep them from the evil” ([[John 17.15|verse 15]]).
 
-We are to live *in* the world but not be *of* the world. We must live in the world because, as Jesus taught in a parable, His kingdom is “like leaven,” whose function is to raise the whole mass by its influence (see [[Luke 13.21|Luke 13:21]]; [[Matthew 13.33|Matthew 13:33]]; see also [[1 Corinthians 5.6|1 Corinthians 5:6–8]][[1 Corinthians 5.7|]][[1 Corinthians 5.8|]]). His followers cannot do that if they associate only with those who share their beliefs and practices. But the Savior also taught that if we love Him, we will keep His commandments (see [[John 14.15|John 14:15]]).
+We are to live *in* the world but not be *of* the world. We must live in the world because, as Jesus taught in a parable, His kingdom is “like leaven,” whose function is to raise the whole mass by its influence (see [[Luke 13.21|Luke 13:21]]; [[Matthew 13.33|Matthew 13:33]]; see also [[1 Corinthians 5.6|1 Corinthians 5:6–8]][[1 Corinthians 5.7|]][[1 Corinthians 5.8|]]). His followers cannot do that if they associate only with those who share their beliefs and practices. But the Savior also taught that if we love Him, we will keep His commandments (see [[John 14.15|John 14:15]]).
 
 ## II.
 
@@ -24,7 +26,7 @@ The gospel has many teachings about keeping the commandments while living among 
 
 “For verily, verily I say unto you, *he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.*
 
-“Behold, this is … my doctrine, that such things should be done away” ([[3 Nephi 11.28|3 Nephi 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]; emphasis added).
+“Behold, this is … my doctrine, that such things should be done away” ([[3 Nephi 11.28|3 Nephi 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]; emphasis added).
 
 The Savior did not limit His warning against contention to those who were not keeping the commandment about baptism. He forbade contention by anyone. Even those who keep the commandments must not stir up the hearts of men to contend with anger. The “father of contention” is the devil; the Savior is the Prince of Peace.
 
@@ -70,19 +72,14 @@ Six years later she wrote me another letter: “My husband was \[just\] called a
 
 ## VI.
 
-In so many relationships and circumstances in life, we must live with differences. Where vital, our side of these differences should not be denied or abandoned, but as followers of Christ we should live peacefully with others who do not share our values or accept the teachings upon which they are based. The Father’s plan of salvation, which we know by prophetic revelation, places us in a mortal circumstance where we are to keep His commandments. That includes loving our neighbors of different cultures and beliefs as He has loved us. As a Book of Mormon prophet taught, we must press forward, having “a love of God and of all men” ([[2 Nephi 31.20|2 Nephi 31:20]]).
+In so many relationships and circumstances in life, we must live with differences. Where vital, our side of these differences should not be denied or abandoned, but as followers of Christ we should live peacefully with others who do not share our values or accept the teachings upon which they are based. The Father’s plan of salvation, which we know by prophetic revelation, places us in a mortal circumstance where we are to keep His commandments. That includes loving our neighbors of different cultures and beliefs as He has loved us. As a Book of Mormon prophet taught, we must press forward, having “a love of God and of all men” ([[2 Nephi 31.20|2 Nephi 31:20]]).
 
 As difficult as it is to live in the turmoil surrounding us, our Savior’s command to love one another as He loves us is probably our greatest challenge. I pray that we may understand this and seek to live it in all of our relationships and activities, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Thomas S. Monson, “Love—the Essence of the Gospel,” *Ensign* or *Liahona,* May 2014, 91.
+[^1]: Thomas S. Monson, “Love—the Essence of the Gospel,” *Ensign* or *Liahona,* May 2014, 91.
 
-[^2]: Letters to Dallin H. Oaks, Jan. 23, 2006, and Oct. 30, 2012.
+[^2]: Letters to Dallin H. Oaks, Jan. 23, 2006, and Oct. 30, 2012.
 
-
-
-
-
-#Contention #Jesus_Christ #Kindness #Love #Religious_Freedom #Respect #Truth

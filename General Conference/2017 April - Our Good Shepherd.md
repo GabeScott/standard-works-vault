@@ -1,6 +1,8 @@
 # Our Good Shepherd
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+Bonnie H. Cordon
+
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -75,9 +77,9 @@ As His disciples, let us fully mirror His love and love one another so openly an
 
 [^2]: The novel *Les Misérables,* by Victor Hugo (1802–85), tells the story of Jean Valjean, who committed a minor crime by stealing a loaf of bread to feed his sister’s family. Sentenced to a term of 5 years’ imprisonment, Valjean spent 19 years doing hard labor because of four failed escape attempts. He emerged from prison a hardened and bitter man.
 
-[^3]: See Hugo, *Les Misérables,* book 1, chapter 10.
+[^3]: See Hugo, *Les Misérables,* book 1, chapter 10.
 
-[^4]: The narrator asks, *Toutefois, la gale de la brebis doit-elle faire reculer le pasteur?* (Hugo, *Les Misérables* \[1985\], book 1, chapter 10, page 67). *Gale,* in veterinary pathology, refers to any of a variety of skin diseases caused by parasitic mites and characterized by loss of hair and scabby eruptions (“mange” in English). This phrase has been translated in various ways into English.
+[^4]: The narrator asks, *Toutefois, la gale de la brebis doit-elle faire reculer le pasteur?* (Hugo, *Les Misérables* \[1985\], book 1, chapter 10, page 67). *Gale,* in veterinary pathology, refers to any of a variety of skin diseases caused by parasitic mites and characterized by loss of hair and scabby eruptions (“mange” in English). This phrase has been translated in various ways into English.
 
 [^5]: The narrator’s humorous editorial comment about the conventionist is *Mais quelle brebis!* It has occasionally been translated as “But what a black sheep.”
 
@@ -99,19 +101,19 @@ As His disciples, let us fully mirror His love and love one another so openly an
 
 [^14]: See [[John 8.3|John 8:3–11]][[John 8.4|]][[John 8.5|]][[John 8.6|]][[John 8.7|]][[John 8.8|]][[John 8.9|]][[John 8.10|]][[John 8.11|]].
 
-[^15]: Joseph Smith Translation, John 8:11 (in [[John 8.11|John 8:11]], footnote *c*).
+[^15]: Joseph Smith Translation, John 8:11 (in [[John 8.11|John 8:11]], footnote *c*).
 
-[^16]: See D. Todd Christofferson, “[[2016 October - “Abide in My Love”.md|Abide in My Love]],” *Ensign* or *Liahona,* Nov. 2016, 48.
+[^16]: See D. Todd Christofferson, “[[2016 October - “Abide in My Love”.md|Abide in My Love]],” *Ensign* or *Liahona,* Nov. 2016, 48.
 
 [^17]: [[Alma 11.34|Alma 11:34, 37]][[Alma 11.37|]].
 
 [^18]: See [[Helaman 5.10|Helaman 5:10–11]][[Helaman 5.11|]].
 
-[^19]: See [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
+[^19]: See [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
 
 [^20]: In modern times the Savior clarified: “That which breaketh a law, and abideth not by law, but seeketh to become a law unto itself, and willeth to abide in sin, and altogether abideth in sin, cannot be sanctified by law, neither by mercy, justice, nor judgment. Therefore, they must remain filthy still” ([[D&C 88.35|Doctrine and Covenants 88:35]]).
 
-[^21]: See [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]].
+[^21]: See [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]].
 
 [^22]: See [[D&C 14.7|Doctrine and Covenants 14:7]]; [[D&C 132.19|132:19–20, 24, 55]][[D&C 132.20|]][[D&C 132.24|]][[D&C 132.55|]].
 
@@ -131,11 +133,9 @@ As His disciples, let us fully mirror His love and love one another so openly an
 
 [^30]: [[Moroni 8.26|Moroni 8:26]].
 
-[^31]: [[1 Peter 1.22|1 Peter 1:22]].
+[^31]: [[1 Peter 1.22|1 Peter 1:22]].
 
 [^32]: See [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
+[^33]: See [[John 10.11|John 10:11–15]][[John 10.12|]][[John 10.13|]][[John 10.14|]][[John 10.15|]].
 
-
-
-#Adversity #Forgiveness #Healing #Humility #Jesus_Christ #Love #Sin #Tolerance

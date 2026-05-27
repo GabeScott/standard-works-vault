@@ -1,6 +1,8 @@
 # “The Oath and Covenant Which Belongeth to the Priesthood”
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -84,7 +86,7 @@ John the Beloved says that this was the way Jesus himself attained a fulness. He
 
 Jesus further points out that the commandments we are required to keep are given in the scriptures, and adds: “If thou lovest me thou shalt serve me and keep all my commandments” ([[D&C 42.29|D&C 42:29]]). And “unto him that keepeth my commandments I will give the mysteries of my kingdom, and the same shall be in him a well of living water, springing up unto everlasting life” ([[D&C 63.23|D&C 63:23]]).
 
-Many of the commandments concerning our personal conduct are to be found in section 42 of the Doctrine and Covenants, which the Prophet Joseph specifies “as embracing the law of the Church” ([D&C 42, headnote](https://churchofjesuschrist.org/study/scriptures/dc-testament/dc/42?lang=eng&id=study_intro1#study_intro1)). Every priesthood bearer should be familiar with this revelation and with the instructions given in [[D&C 59.1|section 59]][[D&C 59.2|]][[D&C 59.3|]][[D&C 59.4|]][[D&C 59.5|]][[D&C 59.6|]][[D&C 59.7|]][[D&C 59.8|]][[D&C 59.9|]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]][[D&C 59.13|]][[D&C 59.14|]][[D&C 59.15|]][[D&C 59.16|]][[D&C 59.17|]][[D&C 59.18|]][[D&C 59.19|]][[D&C 59.20|]][[D&C 59.21|]][[D&C 59.22|]][[D&C 59.23|]][[D&C 59.24|]] and [[D&C 88.117|section 88, particularly verses 117 to 126]][[D&C 88.118|]][[D&C 88.119|]][[D&C 88.120|]][[D&C 88.121|]][[D&C 88.122|]][[D&C 88.123|]][[D&C 88.124|]][[D&C 88.125|]][[D&C 88.126|]]. Indeed, a priesthood bearer with serious intentions of so magnifying his calling as to merit the blessing of the “covenant which belongeth to the priesthood” should be conversant with all the instructions given to guide us in our personal conduct—both those recorded in the scriptures and those being received currently by the living prophets. One can scarcely hope to be fortified “against the wiles of the devil” by putting “on the whole armour of God” (see [[Ephesians 6.11|Eph. 6:11]]) unless he knows what that armor is.
+Many of the commandments concerning our personal conduct are to be found in section 42 of the Doctrine and Covenants, which the Prophet Joseph specifies “as embracing the law of the Church” ([D&C 42, headnote](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/42?lang=eng&id=study_intro1#study_intro1)). Every priesthood bearer should be familiar with this revelation and with the instructions given in [[D&C 59.1|section 59]][[D&C 59.2|]][[D&C 59.3|]][[D&C 59.4|]][[D&C 59.5|]][[D&C 59.6|]][[D&C 59.7|]][[D&C 59.8|]][[D&C 59.9|]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]][[D&C 59.13|]][[D&C 59.14|]][[D&C 59.15|]][[D&C 59.16|]][[D&C 59.17|]][[D&C 59.18|]][[D&C 59.19|]][[D&C 59.20|]][[D&C 59.21|]][[D&C 59.22|]][[D&C 59.23|]][[D&C 59.24|]] and [[D&C 88.117|section 88, particularly verses 117 to 126]][[D&C 88.118|]][[D&C 88.119|]][[D&C 88.120|]][[D&C 88.121|]][[D&C 88.122|]][[D&C 88.123|]][[D&C 88.124|]][[D&C 88.125|]][[D&C 88.126|]]. Indeed, a priesthood bearer with serious intentions of so magnifying his calling as to merit the blessing of the “covenant which belongeth to the priesthood” should be conversant with all the instructions given to guide us in our personal conduct—both those recorded in the scriptures and those being received currently by the living prophets. One can scarcely hope to be fortified “against the wiles of the devil” by putting “on the whole armour of God” (see [[Ephesians 6.11|Eph. 6:11]]) unless he knows what that armor is.
 
 But the commandments do not pertain alone to one’s personal conduct. They put on every bearer of the priesthood the stimulating responsibility to render service—service in carrying the restored gospel, with all the blessings of the priesthood, to the peoples of the earth; and service in comforting, strengthening, and perfecting the lives of one another and all the Saints of God.
 
@@ -95,8 +97,3 @@ Such men are magnifying their callings, and they shall obtain the rewards promis
 
 
 
-
-
-
-
-#Covenants #Priesthood #Service

@@ -1,5 +1,7 @@
 # The Mission of Relief Society
 
+Thomas S. Monson
+
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -23,8 +25,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Charity #Relief_Society #Women

@@ -1,4 +1,3 @@
 # Argument
 
-
-*See* [[Contention.md|Contention]]; [[Disputations, Dispute.md|Disputations]]
+*See also* [[Contention.md|Contention]]; [[Disputations.md|Disputations]]

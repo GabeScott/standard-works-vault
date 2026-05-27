@@ -1,6 +1,8 @@
 # Priesthood—Its Power and Vitality
 
-By President A. Theodore Tuttle - *Of the First Council of the Seventy*
+Wilford G. Edling
+
+By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -10,7 +12,7 @@ A major recurring theme of this conference, including the seminar of the Regiona
 
 On March 28, 1835, in Kirtland, Ohio, in a meeting with the Council of the Twelve, the Prophet Joseph received a singularly important revelation on priesthood:
 
-“There are, in the church, two priesthoods, namely, the Melchizedek and Aaronic. …
+“There are, in the church, two priesthoods, namely, the Melchizedek and Aaronic. …
 
 “Why the first is called the Melchizedek Priesthood is because Melchizedek was such a great high priest.
 
@@ -18,7 +20,7 @@ On March 28, 1835, in Kirtland, Ohio, in a meeting with the Council of the Twelv
 
 “All other authorities or offices in the church are appendages to this priesthood.” ([[D&C 107.1|D&C 107:1–3, 5]][[D&C 107.2|]][[D&C 107.3|]][[D&C 107.5|]].)
 
-It is vital that we understand this foregoing thought. President Joseph F. Smith said:
+It is vital that we understand this foregoing thought. President Joseph F. Smith said:
 
 “There is no office growing out of this Priesthood that is or can be greater than the Priesthood itself. It is from the Priesthood that the office derives its authority and power. No office gives authority to the Priesthood. No office adds to the power of the Priesthood. But, all offices in the Church derive their power, their virtue, their authority, from the Priesthood. If our brethren would get this principle thoroughly established in their minds, there would be less misunderstanding in relation to the functions of government in the Church than there is.” (*Gospel Doctrine* \[Deseret Book Co., 1939\], p. 148.)
 
@@ -28,15 +30,15 @@ There are three presiding quorums in the Church chosen from the body of the prie
 
 “Of the Melchizedek Priesthood, three Presiding High Priests, chosen by the body, appointed and ordained to that office, and upheld by the confidence, faith, and prayer of the church, form a quorum of the Presidency of the Church.
 
-“The twelve traveling councilors are called to be the Twelve Apostles, or special witnesses of the name of Christ in all the world— …
+“The twelve traveling councilors are called to be the Twelve Apostles, or special witnesses of the name of Christ in all the world— …
 
 “And they form a quorum, equal in authority and power to the three presidents previously mentioned.
 
-“The Seventy are to act in the name of the Lord, under the direction of the Twelve … in building up the church and regulating all the affairs of the same in all nations. …” ([[D&C 107.21|D&C 107:21–24, 34]][[D&C 107.22|]][[D&C 107.23|]][[D&C 107.24|]][[D&C 107.34|]].)
+“The Seventy are to act in the name of the Lord, under the direction of the Twelve … in building up the church and regulating all the affairs of the same in all nations. …” ([[D&C 107.21|D&C 107:21–24, 34]][[D&C 107.22|]][[D&C 107.23|]][[D&C 107.24|]][[D&C 107.34|]].)
 
 What is the priesthood? President John Taylor said:
 
-“… it is the government of God, whether on earth or in the heavens, for it is by that power, agency, or principle that all things are governed on earth or in the heavens, and by that power that all things are upheld and sustained. It governs all things—it directs all things—it sustains all things—and has to do with all things that God and truth are associated with. It is the power of God delegated to intelligences in the heavens and to men on the earth. …” (*The Gospel Kingdom* \[Bookcraft, 1943\], p. 129.)
+“… it is the government of God, whether on earth or in the heavens, for it is by that power, agency, or principle that all things are governed on earth or in the heavens, and by that power that all things are upheld and sustained. It governs all things—it directs all things—it sustains all things—and has to do with all things that God and truth are associated with. It is the power of God delegated to intelligences in the heavens and to men on the earth. …” (*The Gospel Kingdom* \[Bookcraft, 1943\], p. 129.)
 
 In order to gain exaltation a man must obtain, then magnify, the holy priesthood.
 
@@ -66,11 +68,11 @@ The seventy are to stand in their own office and labor in their own calling, whi
 
 Elders standing in their office and calling have a place in welfare work. However, they share a major responsibility for the perfecting of the Saints through priesthood home teaching. The president of the elders quorum has the unique calling to administer the gospel to more people in the ward than anyone else except the bishop. Priesthood home teachers are to—
 
-“… visit the house of each member, and exhort them to pray vocally and in secret and attend to all family duties.
+“… visit the house of each member, and exhort them to pray vocally and in secret and attend to all family duties.
 
-“… watch over the church always, and be with and strengthen them;
+“… watch over the church always, and be with and strengthen them;
 
-“… see that there is no iniquity in the church, neither hardness with each other, neither lying, backbiting, nor evil speaking;
+“… see that there is no iniquity in the church, neither hardness with each other, neither lying, backbiting, nor evil speaking;
 
 “And see that the church meet together often, and also see that all the members do their duty.” ([[D&C 20.47|D&C 20:47, 53–55]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]].)
 
@@ -86,7 +88,7 @@ In this church there is a call to youth and there is plenty to do, if you will b
 
 Why do we call upon you to live in purity? So that you will be fit servants to make your contribution to the kingdom of God.
 
-Sixty-six years ago President Joseph F. Smith said:
+Sixty-six years ago President Joseph F. Smith said:
 
 “We expect to see the day, if we live long enough (and if some of us don’t live long enough to see it, there are others who will), when every council of the Priesthood in the Church of Jesus Christ of Latter-day Saints will understand its duty; will assume its own responsibility, will magnify its calling, and fill its place in the Church, to the uttermost, according to the intelligence and ability possessed by it. When that day shall come, there will not be so much necessity for work which is now being done by the auxiliary organizations, because it will be done by the regular quorums of the Priesthood. The Lord designed and comprehended it from the beginning, and He made provision in the Church whereby every need may be met and satisfied through the regular organizations of the Priesthood.” (*Conference Report,* April 1906, p. 3.)
 
@@ -100,7 +102,7 @@ After listening to conference for three days, the message of this conference is 
 
 Oh, my brethren, I plead with you to rise up. Shake off the shackles of indolence and sloth and go forward.
 
-In the encouraging words of the Prophet Joseph: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory! …” ([[D&C 128.22|D&C 128:22]].)
+In the encouraging words of the Prophet Joseph: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory! …” ([[D&C 128.22|D&C 128:22]].)
 
 I want to testify that Jesus is the Christ. I testify that he is the great High Priest forever. I testify that God the Father and his Son Jesus Christ did appear to the Prophet Joseph Smith and instituted anew in this day the church of Jesus Christ, empowering him with God’s power.
 
@@ -109,8 +111,3 @@ I testify that these men hold the keys of the holy priesthood, that there is pow
 
 
 
-
-
-
-
-#Priesthood

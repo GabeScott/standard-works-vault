@@ -1,5 +1,7 @@
 # Woman—Of Infinite Worth
 
+Ezra Taft Benson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -14,7 +16,7 @@ At a recent news conference in an Eastern European country, I was asked about th
 
 A worthy woman personifies the truly noble and worthwhile attributes of life. A faithful woman can become a devoted daughter of God—more concerned with being righteous than with being selfish, more anxious to exercise compassion than to exercise dominion, more committed to integrity than to notoriety. And she knows of her own infinite worth.
 
-Each faithful young woman in the Church proclaims that *individual worth* is one of her most cherished values. She declares, “I am of infinite worth with my own divine mission which I will strive to fulfill.” (*Personal Progress,* Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1989, p. 7.) Each daughter of God is of infinite worth because of her divine mission.
+Each faithful young woman in the Church proclaims that *individual worth* is one of her most cherished values. She declares, “I am of infinite worth with my own divine mission which I will strive to fulfill.” (*Personal Progress,* Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1989, p. 7.) Each daughter of God is of infinite worth because of her divine mission.
 
 Important lessons about her divine mission may be learned from women of the scriptures. Mother Eve was a great example. She labored beside her husband as a partner. They both knew the plan of salvation. They both heeded commandments of obedience to God. Likewise, she prayed for divine guidance. She bore children. She taught the gospel to them. (See [[Moses 5.1|Moses 5:1–12]][[Moses 5.2|]][[Moses 5.3|]][[Moses 5.4|]][[Moses 5.5|]][[Moses 5.6|]][[Moses 5.7|]][[Moses 5.8|]][[Moses 5.9|]][[Moses 5.10|]][[Moses 5.11|]][[Moses 5.12|]]; [[D&C 138.39|D&C 138:39]].)
 
@@ -22,7 +24,7 @@ Sarah, in becoming the mother of Isaac in her advanced years, verified that noth
 
 Mary, mother of our Redeemer, was the perfect example of complete submission to the will of God. (See [[Luke 1.38|Luke 1:38]].) She kept confidences. (See [[Luke 2.19|Luke 2:19]].) In faith, she endured grief. (See [[John 20.11|John 20:11]].)
 
-The stories of these and other scriptural heroines show that women are essential in God’s plan for His children. Likewise, men have important but different assignments. We learn from the scriptures that men are to hold priesthood responsibilities and, as husbands and fathers, provide for (see [[Romans 12.17|Rom. 12:17]]; [[1 Timothy 5.8|1 Tim. 5:8]]; [[D&C 75.28|D&C 75:28]]; [[D&C 83.2|83:2, 4]][[D&C 83.4|]]) and protect their families (see [[D&C 134.6|D&C 134:6, 11]][[D&C 134.11|]]). From the beginning, the priesthood has been conferred only upon men, coming through the “lineage of the fathers.” (See [[D&C 84.6|D&C 84:6–16]][[D&C 84.7|]][[D&C 84.8|]][[D&C 84.9|]][[D&C 84.10|]][[D&C 84.11|]][[D&C 84.12|]][[D&C 84.13|]][[D&C 84.14|]][[D&C 84.15|]][[D&C 84.16|]]; [[D&C 86.8|86:8]]; [[D&C 107.40|107:40–41]][[D&C 107.41|]]; [[Abraham 1.3|Abr. 1:3–4]][[Abraham 1.4|]].)
+The stories of these and other scriptural heroines show that women are essential in God’s plan for His children. Likewise, men have important but different assignments. We learn from the scriptures that men are to hold priesthood responsibilities and, as husbands and fathers, provide for (see [[Romans 12.17|Rom. 12:17]]; [[1 Timothy 5.8|1 Tim. 5:8]]; [[D&C 75.28|D&C 75:28]]; [[D&C 83.2|83:2, 4]][[D&C 83.4|]]) and protect their families (see [[D&C 134.6|D&C 134:6, 11]][[D&C 134.11|]]). From the beginning, the priesthood has been conferred only upon men, coming through the “lineage of the fathers.” (See [[D&C 84.6|D&C 84:6–16]][[D&C 84.7|]][[D&C 84.8|]][[D&C 84.9|]][[D&C 84.10|]][[D&C 84.11|]][[D&C 84.12|]][[D&C 84.13|]][[D&C 84.14|]][[D&C 84.15|]][[D&C 84.16|]]; [[D&C 86.8|86:8]]; [[D&C 107.40|107:40–41]][[D&C 107.41|]]; [[Abraham 1.3|Abr. 1:3–4]][[Abraham 1.4|]].)
 
 Blessings of the priesthood are shared by men and women. All may qualify for baptism and the gift of the Holy Ghost. All may take upon themselves the name of the Lord and partake of the sacrament. All may pray and receive answers to their prayers. Gifts of the Spirit and testimonies of the truth are bestowed regardless of gender. Men and women receive the highest ordinance in the house of the Lord together and equally, or not at all (see [[D&C 131.1|D&C 131:1–3]][[D&C 131.2|]][[D&C 131.3|]]).
 
@@ -48,7 +50,7 @@ A woman is a master communicator. And she communicates best in humble prayer. Ho
 
 Certainly, a woman is a teacher. Someone said, “When you teach a boy, you teach an individual, but when you teach a girl, you teach a whole generation.”
 
-J. Edgar Hoover said that “the cure of crime is not the electric chair but the high chair” (in Emerson Roy West, comp., *Vital Quotations,* Salt Lake City: Bookcraft, 1968, p. 78.)
+J. Edgar Hoover said that “the cure of crime is not the electric chair but the high chair” (in Emerson Roy West, comp., *Vital Quotations,* Salt Lake City: Bookcraft, 1968, p. 78.)
 
 I honor women who are not mothers. They know that motherhood is but one of the realms of womankind. The virtue and intelligence of women are uniquely applicable to other realms as well, such as compassionate service and teaching.
 
@@ -99,8 +101,3 @@ God bless us to honor each woman in her divine mission as a woman of infinite wo
 
 
 
-
-
-
-
-#Example #Women

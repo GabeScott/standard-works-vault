@@ -1,5 +1,7 @@
 # In Response to the Call
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -17,8 +19,3 @@ Now, my brothers and sisters, I would ask for an interest in your faith and pray
 
 
 
-
-
-
-
-#Church_Callings

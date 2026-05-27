@@ -1,5 +1,7 @@
 # Gratitude
 
+Gordon B. Hinckley
+
 By Elder Gordon T. Watts - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -43,18 +45,13 @@ Elder James E. Talmage said, “Gratitude is twin sister to humility; pride is a
 
 [^1]: [[Luke 17.12|Luke 17:12–17]][[Luke 17.13|]][[Luke 17.14|]][[Luke 17.15|]][[Luke 17.16|]][[Luke 17.17|]].
 
-[^2]: In Conference Report, Apr. 1998, 4–5; or *Ensign,* May 1998, 6.
+[^2]: In Conference Report, Apr. 1998, [[1998 April - We Bear Witness of Him.md|4–5]]; or *Ensign,* May 1998, 6.
 
 [^3]: [[D&C 59.21|D&C 59:21]].
 
 [^4]: “With the Voice of Thanksgiving,” *Sunday Night Talks,* 2nd ed. (1931), 483.
 
-[^5]: In Conference Report, Apr. 1990, 110; or *Ensign,* May 1990, 86.
+[^5]: In Conference Report, Apr. 1990, [[1990 April - Gratitude As a Saving Principle.md|110]]; or *Ensign,* May 1990, 86.
 
 [^6]: [[D&C 78.19|D&C 78:19]].
 
-
-
-
-
-#Gratitude #Joy #Service

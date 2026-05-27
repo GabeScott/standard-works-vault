@@ -1,5 +1,7 @@
 # I Pray He’ll Use Us
 
+Russell M. Nelson
+
 By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2021 General Conference*
@@ -10,7 +12,7 @@ By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 This cookie made of phyllo dough and pistachio nuts is a thank-you. It was made by the Kadado family who, for decades, owned three bakeries in Damascus, Syria. When war came, a blockade stopped food and supplies from reaching their part of the city. The Kadados began to starve. At the height of this desperate situation, Latter-day Saint Charities and some very courageous staff at Rahma Worldwide began serving a daily hot meal, along with milk for the little children. After a difficult time, the family began their life—as well as their bakery—once again in a new country.
 
-Recently, a box of cookies arrived at the Church offices with the following message: “For more than two months, we managed to get food from the Rahma–Latter-day Saint \[Charities\] kitchen. Without it we would \[have\] starve\[d\] to death. Please accept this … sample from my shop as a small token of thanks. I ask God the Almighty to bless you … in everything you do.”[^1]
+Recently, a box of cookies arrived at the Church offices with the following message: “For more than two months, we managed to get food from the Rahma–Latter-day Saint \[Charities\] kitchen. Without it we would \[have\] starve\[d\] to death. Please accept this … sample from my shop as a small token of thanks. I ask God the Almighty to bless you … in everything you do.”[^1]
 
 A cookie of gratitude and remembrance. It is meant for you. To all who prayed after watching a story on the news, to all who volunteered when it was not convenient or who kindly donated money to the humanitarian fund trusting it would do some good, thank you.
 
@@ -40,7 +42,7 @@ These are all ways, organized through the priesthood, where small efforts collec
 
 Prophets have charge for the whole earth, not just for members of the Church. I can report from my own experience how personally and devotedly the First Presidency takes that charge. As needs grow, the First Presidency has charged us to increase our humanitarian outreach in a significant way. They are interested in the largest trends and the smallest details.
 
-Recently, we brought to them one of the protective medical gowns that Beehive Clothing sewed for hospitals to use during the pandemic. As a medical doctor, President Russell M. Nelson was highly interested. He didn’t want to just see it. He wanted to try it on—check the cuffs and the length and the way it tied in the back. He told us later, with emotion in his voice, “When you meet with people on your assignments, thank them for their fasting, their offerings, and their ministering in the name of the Lord.”
+Recently, we brought to them one of the protective medical gowns that Beehive Clothing sewed for hospitals to use during the pandemic. As a medical doctor, President Russell M. Nelson was highly interested. He didn’t want to just see it. He wanted to try it on—check the cuffs and the length and the way it tied in the back. He told us later, with emotion in his voice, “When you meet with people on your assignments, thank them for their fasting, their offerings, and their ministering in the name of the Lord.”
 
 ## Humanitarian Report
 
@@ -72,11 +74,11 @@ She saw an elderly neighbor struggling and began taking care of her. She helped 
 
 Only a few weeks before the earthquake, another group of young adults was giving similar service across the Atlantic. The floods that swept through western Europe in July were the most severe in decades.
 
-When the waters finally receded, one shopkeeper in the riverside district of Ahrweiler, Germany, surveyed the damage and was utterly overwhelmed. This humble man, a devout Catholic, whispered a prayer that God might send someone to help him. The very next morning, President Dan Hammon of the Germany Frankfurt Mission arrived on the street with a small band of missionaries wearing yellow Helping Hands vests. The water had reached up to 10 feet (3 m) on the shopkeeper’s walls, leaving behind a deep layer of mud. The volunteers shoveled out the mud, removed the carpet and drywall, and piled everything in the street for removal. The overjoyed shopkeeper worked alongside them for hours, amazed that the Lord had sent a group of His servants to answer his prayer—and within 24 hours![^6]
+When the waters finally receded, one shopkeeper in the riverside district of Ahrweiler, Germany, surveyed the damage and was utterly overwhelmed. This humble man, a devout Catholic, whispered a prayer that God might send someone to help him. The very next morning, President Dan Hammon of the Germany Frankfurt Mission arrived on the street with a small band of missionaries wearing yellow Helping Hands vests. The water had reached up to 10 feet (3 m) on the shopkeeper’s walls, leaving behind a deep layer of mud. The volunteers shoveled out the mud, removed the carpet and drywall, and piled everything in the street for removal. The overjoyed shopkeeper worked alongside them for hours, amazed that the Lord had sent a group of His servants to answer his prayer—and within 24 hours![^6]
 
 ## “Well, I Pray That He’ll Use Us”
 
-Speaking of the Church’s humanitarian efforts, Elder Jeffrey R. Holland once remarked: “Prayers are answered … most of the time … by God using other people. Well, I pray that He’ll use us. I pray that we’ll be the answer to people’s prayers.”[^7]
+Speaking of the Church’s humanitarian efforts, Elder Jeffrey R. Holland once remarked: “Prayers are answered … most of the time … by God using other people. Well, I pray that He’ll use us. I pray that we’ll be the answer to people’s prayers.”[^7]
 
 Brothers and sisters, through your ministry, donations, time, and love, you have been the answer to so many prayers. And yet there is so much more to do. As baptized members of the Church, we are under covenant to care for those in need. Our individual efforts don’t necessarily require money or faraway locations;[^8] they do require the guidance of the Holy Spirit and a willing heart to say to the Lord, “Here am I; send me.”[^9]
 
@@ -86,7 +88,7 @@ Brothers and sisters, through your ministry, donations, time, and love, you have
 
 “The Spirit of the Lord is upon me, because he hath anointed me to preach the gospel to the poor; he hath sent me to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised,
 
-“To preach the acceptable year of the Lord. …
+“To preach the acceptable year of the Lord. …
 
 “… This day is this scripture fulfilled in your ears.”[^10]
 
@@ -101,17 +103,17 @@ Let me conclude by repeating the question Jesus asked His Apostle Simon Peter: �
 
 [^2]: See [[D&C 104.11|Doctrine and Covenants 104:11–18]][[D&C 104.12|]][[D&C 104.13|]][[D&C 104.14|]][[D&C 104.15|]][[D&C 104.16|]][[D&C 104.17|]][[D&C 104.18|]].
 
-[^3]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2.2](https://churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title_number3#title_number3), ChurchofJesusChrist.org.
+[^3]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title_number3#title_number3), ChurchofJesusChrist.org.
 
 [^4]: [[Alma 1.30|Alma 1:30]].
 
-[^5]: Bethani Halls, quoted in “Aiding Afghan Evacuees,” Europe Area Welfare and Self-Reliance Newsletter, Aug. 2021.
+[^5]: Bethani Halls, quoted in “Aiding Afghan Evacuees,” Europe Area Welfare and Self-Reliance Newsletter, Aug. 2021.
 
 [^6]: From Dan Hammon (Germany Frankfurt Mission president), email to Ty Johnson, 2021.
 
-[^7]: Jeffrey R. Holland, “Neonatal Resuscitation with Elder Holland” (video), The Church of Jesus Christ of Latter-day Saints, Nov. 10, 2011, youtube.com.
+[^7]: Jeffrey R. Holland, “Neonatal Resuscitation with Elder Holland” (video), The Church of Jesus Christ of Latter-day Saints, Nov. 10, 2011, youtube.com.
 
-[^8]: See Sharon Eubank, “[16 Things You Can Do to Be a Humanitarian](https://www.churchofjesuschrist.org/inspiration/16-things-you-can-do-to-be-a-humanitarian),” Oct. 3, 2021, ChurchofJesusChrist.org.
+[^8]: See Sharon Eubank, “[16 Things You Can Do to Be a Humanitarian](https://www.churchofjesuschrist.org/inspiration/16-things-you-can-do-to-be-a-humanitarian),” Oct. 3, 2021, ChurchofJesusChrist.org.
 
 [^9]: [[Isaiah 6.8|Isaiah 6:8]]; see also [[Abraham 3.27|Abraham 3:27]].
 
@@ -119,7 +121,5 @@ Let me conclude by repeating the question Jesus asked His Apostle Simon Peter: �
 
 [^11]: See [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].
 
+[^12]: [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]].
 
-
-
-#Adversity #Humanitarian_Aid #Love #Service

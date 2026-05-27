@@ -1,5 +1,7 @@
 # Sweet Moments
 
+Gordon B. Hinckley
+
 By Bonnie D. Parkin - *Relief Society General President*
 
 *Given in the October session of the 2005 General Conference*
@@ -71,8 +73,3 @@ I testify we are engaged in the work of God. Thank you for your devotion to your
 
 [^6]: Relief Society Minutes, Apr. 28, 1842, 38.
 
-
-
-
-
-#Motherhood #Relief_Society #Service

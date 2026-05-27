@@ -1,7 +1,6 @@
 # Glory
 
-
-*See also* [[Celestial Glory.md|Celestial Glory]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Renewal of.md|Earth, Renewal of]]; [[Eternal Life.md|Eternal Life]]; [[Exaltation.md|Exaltation]]; [[Glorify.md|Glorify]]; [[Glorious.md|Glorious]]; [[God, Glory of.md|God, Glory of]]; [[Heaven.md|Heaven]]; [[Honor.md|Honor]]; [[Majesty.md|Majesty]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Praise.md|Praise]]; [[Reward.md|Reward]]; [[Telestial Glory.md|Telestial Glory]]; [[Terrestrial Glory.md|Terrestrial Glory]]; [[Transfiguration, Transfigured.md|Transfiguration]]
+*See also* [[Celestial Glory.md|Celestial Glory]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Renewal of.md|Earth, Renewal of]]; [[Eternal Life.md|Eternal Life]]; [[Exaltation.md|Exaltation]]; [[Glorify.md|Glorify]]; [[Glorious.md|Glorious]]; [[God, Glory of.md|God, Glory of]]; [[Heaven.md|Heaven]]; [[Honor.md|Honor]]; [[Majesty.md|Majesty]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Praise.md|Praise]]; [[Reward.md|Reward]]; [[Telestial Glory.md|Telestial Glory]]; [[Terrestrial Glory.md|Terrestrial Glory]]; [[Transfiguration.md|Transfiguration]]
 
 *glory* is departed from Israel, [[1 Samuel 4.21|1 Samuel 4:21]].
 
@@ -41,11 +40,11 @@ let no man *glory* in men, [[1 Corinthians 3.21|1 Corinthians 3:21]].
 
 long hair, it is a *glory* to her, [[1 Corinthians 11.15|1 Corinthians 11:15]].
 
-one star differeth from another star in *glory*, [[1 Corinthians 15.41|1 Corinthians 15:41]] ([[D&C 76.81|D&C 76:81]], [[D&C 76.98|D&C 76:98]]).
+one star differeth from another star in *glory*, [[1 Corinthians 15.41|1 Corinthians 15:41]] ([[D&C 76.81|D&C 76:81]]; [[D&C 76.98|D&C 76:98]]).
 
 not steadfastly behold the face of Moses for the *glory* of his countenance, [[2 Corinthians 3.7|2 Corinthians 3:7]].
 
-affliction ... worketh for us a far more exceeding and eternal weight of *glory*, [[2 Corinthians 4.17|2 Corinthians 4:17]] ([[D&C 63.66|D&C 63:66]]).
+affliction … worketh for us a far more exceeding and eternal weight of *glory*, [[2 Corinthians 4.17|2 Corinthians 4:17]] ([[D&C 63.66|D&C 63:66]]).
 
 whose *glory* is in their shame, [[Philippians 3.19|Philippians 3:19]].
 
@@ -83,7 +82,7 @@ we will *glory* in the Lord, [[Alma 26.16|Alma 26:16]].
 
 this is my *glory*, that perhaps I may be an instrument, [[Alma 29.9|Alma 29:9]].
 
-raise me up ... to dwell with him in *glory*, [[Alma 36.28|Alma 36:28]].
+raise me up … to dwell with him in *glory*, [[Alma 36.28|Alma 36:28]].
 
 did cry out with one voice, and gave *glory* to Jesus, [[3 Nephi 20.9|3 Nephi 20:9]].
 
@@ -93,13 +92,13 @@ that we may get *glory* of the world, [[D&C 10.19|D&C 10:19]].
 
 soul delight in thy husband, and the *glory*, [[D&C 25.14|D&C 25:14]].
 
-mine apostles ... shall stand ... in *glory*, [[D&C 29.12|D&C 29:12]].
+mine apostles … shall stand … in *glory*, [[D&C 29.12|D&C 29:12]].
 
 *glory* which shall follow after much tribulation, [[D&C 58.3|D&C 58:3]].
 
 be made partakers of the *glories*, [[D&C 66.2|D&C 66:2]] ([[D&C 133.57|D&C 133:57]]).
 
-faithful ... crowned with honor, and *glory*, [[D&C 75.5|D&C 75:5]].
+faithful … crowned with honor, and *glory*, [[D&C 75.5|D&C 75:5]].
 
 eternal shall be their *glory*, [[D&C 76.6|D&C 76:6]].
 
@@ -129,13 +128,13 @@ crown him with blessings and great *glory*, [[D&C 124.17|D&C 124:17]].
 
 Herein is *glory* and honor, and immortality, [[D&C 128.12|D&C 128:12]].
 
-same sociality ... will be coupled with eternal *glory*, [[D&C 130.2|D&C 130:2]].
+same sociality … will be coupled with eternal *glory*, [[D&C 130.2|D&C 130:2]].
 
 In the celestial *glory* there are three heavens, [[D&C 131.1|D&C 131:1]].
 
-shall pass ... to their exaltation and *glory* in all, [[D&C 132.19|D&C 132:19]].
+shall pass … to their exaltation and *glory* in all, [[D&C 132.19|D&C 132:19]].
 
-I was with Abraham ... unto his exaltation and *glory*, [[D&C 132.57|D&C 132:57]].
+I was with Abraham … unto his exaltation and *glory*, [[D&C 132.57|D&C 132:57]].
 
 fall down and be crowned with *glory*, [[D&C 133.32|D&C 133:32]].
 
@@ -154,5 +153,3 @@ clothed upon with *glory*, [[Moses 7.3|Moses 7:3]].
 keep their second estate shall have *glory* added upon, [[Abraham 3.26|Abraham 3:26]].
 
 earth will be renewed and receive its paradisiacal *glory*, [[Articles of Faith 1.10|Articles of Faith 1:10]].
-
-*See also* [[Moses 5.33|Moses 5:33]].

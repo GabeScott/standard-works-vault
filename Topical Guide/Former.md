@@ -1,6 +1,5 @@
 # Former
 
-
 *former* days were better than these, [[Ecclesiastes 7.10|Ecclesiastes 7:10]].
 
 *former* things are come to pass, [[Isaiah 42.9|Isaiah 42:9]].

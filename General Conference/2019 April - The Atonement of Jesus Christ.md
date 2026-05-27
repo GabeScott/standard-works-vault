@@ -1,6 +1,8 @@
 # The Atonement of Jesus Christ
 
-By Tad R. Callister - *Recently Released Sunday School General President*
+Ulisses Soares
+
+By Tad R. Callister - *Recently Released Sunday School General President*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -36,7 +38,7 @@ This is possible, however, only because the Savior overcame the four obstacles t
 
 On occasion, I have met with good Saints who have had trouble forgiving themselves, who have innocently but incorrectly placed limits on the Savior’s redemptive powers. Unwittingly, they have converted an infinite Atonement to a finite one that somehow falls short of their particular sin or weakness. But it is an infinite Atonement because it encompasses and circumscribes every sin and weakness, as well as every abuse or pain caused by others.
 
-Truman G. Madsen made this comforting observation:
+Truman G. Madsen made this comforting observation:
 
 “If there are some of you who have been tricked into the conviction that you have gone too far, … that you have had the poison of sin which makes it impossible ever again to be what you could have been—then hear me.
 
@@ -44,7 +46,7 @@ Truman G. Madsen made this comforting observation:
 
 One reason it is so essential to understand the Savior’s Atonement and its infinite implications is that with increased understanding comes an increased desire to forgive ourselves and others.
 
-Even though we may believe in Christ’s cleansing powers, the question often arises: “How do I know if I have been forgiven of my sins?” If we feel the Spirit, then that is our witness that we have been forgiven, or that the cleansing process is taking place. President Henry B. Eyring taught, “If you have felt the influence of the Holy Ghost … , you may take it as evidence that the Atonement is working in your life.”[^5]
+Even though we may believe in Christ’s cleansing powers, the question often arises: “How do I know if I have been forgiven of my sins?” If we feel the Spirit, then that is our witness that we have been forgiven, or that the cleansing process is taking place. President Henry B. Eyring taught, “If you have felt the influence of the Holy Ghost … , you may take it as evidence that the Atonement is working in your life.”[^5]
 
 Some have asked, “But if I am forgiven, why do I still feel guilt?” Perhaps in God’s mercy the memory of that guilt is a warning, a spiritual “stop sign” of sorts that, at least for a time, cries out when additional temptations confront us: “Don’t go down that road. You know the pain it can bring.” In this sense, it serves as a protection, not a punishment.
 
@@ -74,7 +76,7 @@ First, the saving ordinances. The scriptures tell us, “In the ordinances there
 
 A second channel for these enabling powers is the gifts of the Spirit. Because of Christ’s Atonement, we are eligible to receive the gift of the Holy Ghost and its accompanying spiritual gifts. These gifts are attributes of godliness; therefore, each time we acquire a gift of the Spirit, we become more like God. No doubt that is why the scriptures enjoin us on multiple occasions to seek these gifts.[^17]
 
-President George Q. Cannon taught: “No man ought to say, ‘Oh, I cannot help this; it is my nature.’ He is not justified in it, for the reason that God has promised to … give gifts that will eradicate \[our weaknesses\]. … If any of us are imperfect, it is our duty to pray for the gift that will make us perfect.”[^18]
+President George Q. Cannon taught: “No man ought to say, ‘Oh, I cannot help this; it is my nature.’ He is not justified in it, for the reason that God has promised to … give gifts that will eradicate \[our weaknesses\]. … If any of us are imperfect, it is our duty to pray for the gift that will make us perfect.”[^18]
 
 In summary, the Savior’s Atonement gives us life for death, “beauty for ashes,”[^19] healing for hurt, and perfection for weakness. It is heaven’s antidote to the obstacles and struggles of this world.
 
@@ -87,13 +89,13 @@ I bear my witness that the Savior’s Atonement is not only infinite in scope bu
 
 [^1]: See [[D&C 88.6|Doctrine and Covenants 88:6]].
 
-[^2]: [[1 Corinthians 15.20|1 Corinthians 15:20–22]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].
+[^2]: [[1 Corinthians 15.20|1 Corinthians 15:20–22]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].
 
 [^3]: [[Isaiah 1.18|Isaiah 1:18]].
 
-[^4]: Truman G. Madsen, *Christ and the Inner Life* (1978), 14.
+[^4]: Truman G. Madsen, *Christ and the Inner Life* (1978), 14.
 
-[^5]: Henry B. Eyring, “[Gifts of the Spirit for Hard Times](https://churchofjesuschrist.org/study/ensign/2007/06/gifts-of-the-spirit-for-hard-times?lang=eng),” *Ensign,* June 2007, 23.
+[^5]: Henry B. Eyring, “[Gifts of the Spirit for Hard Times](https://www.churchofjesuschrist.org/study/ensign/2007/06/gifts-of-the-spirit-for-hard-times?lang=eng),” *Ensign,* June 2007, 23.
 
 [^6]: [[Alma 36.19|Alma 36:19]]; see also [[Alma 36.20|Alma 36:20–21]][[Alma 36.21|]].
 
@@ -109,7 +111,7 @@ I bear my witness that the Savior’s Atonement is not only infinite in scope bu
 
 [^12]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-[^13]: See Bible Dictionary, “[Grace](https://churchofjesuschrist.org/study/scriptures/bd/grace?lang=eng)”; see also Guide to the Scriptures, “[Grace](https://churchofjesuschrist.org/study/scriptures/gs/grace?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^13]: See Bible Dictionary, “[[BD Grace|Grace]]”; see also Guide to the Scriptures, “[Grace](https://www.churchofjesuschrist.org/study/scriptures/gs/grace?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^14]: [[Moroni 10.32|Moroni 10:32]].
 
@@ -117,16 +119,11 @@ I bear my witness that the Savior’s Atonement is not only infinite in scope bu
 
 [^16]: [[D&C 132.19|Doctrine and Covenants 132:19]].
 
-[^17]: See [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Moroni 10.30|Moroni 10:30]]; [[D&C 46.8|Doctrine and Covenants 46:8]].
+[^17]: See [[1 Corinthians 12.31|1 Corinthians 12:31]]; [[Moroni 10.30|Moroni 10:30]]; [[D&C 46.8|Doctrine and Covenants 46:8]].
 
-[^18]: George Q. Cannon, “[Seeking Spiritual Gifts](https://churchofjesuschrist.org/study/liahona/2016/04/seeking-spiritual-gifts?lang=eng),” *Ensign* or *Liahona,* Apr. 2016, 80.
+[^18]: George Q. Cannon, “[Seeking Spiritual Gifts](https://www.churchofjesuschrist.org/study/liahona/2016/04/seeking-spiritual-gifts?lang=eng),” *Ensign* or *Liahona,* Apr. 2016, 80.
 
 [^19]: [[Isaiah 61.3|Isaiah 61:3]].
 
 [^20]: [[John 16.33|John 16:33]].
 
-
-
-
-
-#Atonement #Jesus_Christ

@@ -1,4 +1,3 @@
 # Slain
 
-
-*See* [[Slay, Slew, Slain.md|Slay]]
+*See also* [[Slay.md|Slay]]

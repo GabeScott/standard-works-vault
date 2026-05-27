@@ -1,6 +1,5 @@
 # Calf
 
-
 they have made them a molten *calf*, [[Exodus 32.8|Exodus 32:8]] ([[Deuteronomy 9.6|Deuteronomy 9:6]]; [[Psalms 106.19|Psalms 106:19]]; [[Acts 7.41|Acts 7:41]]).
 
 into the fire, and there came out this *calf*, [[Exodus 32.24|Exodus 32:24]].

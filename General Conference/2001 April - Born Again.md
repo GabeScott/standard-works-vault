@@ -1,5 +1,7 @@
 # Born Again
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -77,7 +79,7 @@ I humbly pray that the Spirit of the Lord will put His seal upon the importance 
 
 
 
-[^1]: Bible Dictionary, “[Baptism](https://churchofjesuschrist.org/study/scriptures/bd/baptism?lang=eng),” 618; see also [[Matthew 3.16|Matt. 3:16]]; [[Acts 8.37|Acts 8:37–39]][[Acts 8.38|]][[Acts 8.39|]]; [[Romans 6.1|Rom. 6:1–6]][[Romans 6.2|]][[Romans 6.3|]][[Romans 6.4|]][[Romans 6.5|]][[Romans 6.6|]]; [[Colossians 2.12|Col. 2:12]]; [[D&C 20.72|D&C 20:72–74]][[D&C 20.73|]][[D&C 20.74|]]; [[D&C 128.12|128:12–13]][[D&C 128.13|]].
+[^1]: Bible Dictionary, “[[BD Baptism|Baptism]],” 618; see also [[Matthew 3.16|Matt. 3:16]]; [[Acts 8.37|Acts 8:37–39]][[Acts 8.38|]][[Acts 8.39|]]; [[Romans 6.1|Rom. 6:1–6]][[Romans 6.2|]][[Romans 6.3|]][[Romans 6.4|]][[Romans 6.5|]][[Romans 6.6|]]; [[Colossians 2.12|Col. 2:12]]; [[D&C 20.72|D&C 20:72–74]][[D&C 20.73|]][[D&C 20.74|]]; [[D&C 128.12|128:12–13]][[D&C 128.13|]].
 
 [^2]: [[Matthew 3.16|Matt. 3:16]].
 
@@ -91,7 +93,7 @@ I humbly pray that the Spirit of the Lord will put His seal upon the importance 
 
 [^7]: “Born Again at 94,” *Tambuli,* June 1994, 24.
 
-[^8]: [[2 Nephi 31.17|2 Ne. 31:17]].
+[^8]: [[2 Nephi 31.17|2 Ne. 31:17]].
 
 [^9]: See Albert Peters, “One Trembling Step at a Time,” *Ensign,* June 1994, 56–58.
 
@@ -103,15 +105,15 @@ I humbly pray that the Spirit of the Lord will put His seal upon the importance 
 
 [^13]: [[D&C 20.37|D&C 20:37]].
 
-[^14]: Bible Dictionary, “Baptism,” 618.
+[^14]: Bible Dictionary, “[[BD Baptism|Baptism]],” 618.
 
 [^15]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 314.
 
-[^16]: [[2 Nephi 31.17|2 Ne. 31:17]]; see also [[D&C 19.31|D&C 19:31]].
+[^16]: [[2 Nephi 31.17|2 Ne. 31:17]]; see also [[D&C 19.31|D&C 19:31]].
 
 [^17]: [[Acts 19.2|Acts 19:2–6]][[Acts 19.3|]][[Acts 19.4|]][[Acts 19.5|]][[Acts 19.6|]].
 
-[^18]: See [[2 Nephi 31.18|2 Ne. 31:18]].
+[^18]: See [[2 Nephi 31.18|2 Ne. 31:18]].
 
 [^19]: See [[D&C 93.2|D&C 93:2]].
 
@@ -119,9 +121,9 @@ I humbly pray that the Spirit of the Lord will put His seal upon the importance 
 
 [^21]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. \[1965–75\], 5:4.
 
-[^22]: Bible Dictionary, “Holy Ghost,” 704.
+[^22]: Bible Dictionary, “[[BD Holy Ghost|Holy Ghost]],” 704.
 
-[^23]: [[1 Corinthians 15.29|1 Cor. 15:29]].
+[^23]: [[1 Corinthians 15.29|1 Cor. 15:29]].
 
 [^24]: [[Malachi 4.6|Mal. 4:6]]; see also [[D&C 138.47|D&C 138:47]]; [[Joseph Smith History 1.39|JS—H 1:39]].
 
@@ -129,9 +131,7 @@ I humbly pray that the Spirit of the Lord will put His seal upon the importance 
 
 [^26]: [[Romans 6.4|Rom. 6:4]].
 
-[^27]: [[2 Peter 1.9|2 Pet. 1:9]].
+[^27]: [[2 Peter 1.9|2 Pet. 1:9]].
 
+[^28]: See [[Mosiah 4.3|Mosiah 4:3]].
 
-
-
-#Accountability #Atonement #Conversion #Family_History #Forgiveness #Holy_Ghost #Ordinances #Plan_Of_Salvation #Repentance #Temple_Work

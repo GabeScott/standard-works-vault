@@ -1,9 +1,8 @@
 # Promise
 
+*See also* [[Covenants.md|Covenants]]; [[Holy Spirit.md|Holy Spirit]]; [[Oath.md|Oath]]; [[Pledge.md|Pledge]]; [[Swearing.md|Swearing]]; [[Vow.md|Vow]]
 
-*See also* [[Covenants.md|Covenants]]; [[Holy Spirit.md|Holy Spirit]]; [[Oath.md|Oath]]; [[Pledge.md|Pledge]]; [[Swearing, Swear, Sware, Sworn.md|Swearing]]; [[Vow.md|Vow]]
-
-God ... fighteth for you, as he hath *promised*, [[Joshua 23.10|Joshua 23:10]].
+God … fighteth for you, as he hath *promised*, [[Joshua 23.10|Joshua 23:10]].
 
 not failed one word of all his good *promise*, [[1 Kings 8.56|1 Kings 8:56]].
 
@@ -49,7 +48,7 @@ obtained *promises*, stopped the mouths of lions, [[Hebrews 11.33|Hebrews 11:33]
 
 kingdom which he hath *promised* to them that love him, [[James 2.5|James 2:5]].
 
-given unto us ... precious *promises*, [[2 Peter 1.4|2 Peter 1:4]].
+given unto us … precious *promises*, [[2 Peter 1.4|2 Peter 1:4]].
 
 they *promise* them liberty, [[2 Peter 2.19|2 Peter 2:19]].
 
@@ -63,7 +62,7 @@ he obtained a *promise* of the Lord, [[2 Nephi 3.5|2 Nephi 3:5]].
 
 I will fulfil my *promises*, [[2 Nephi 10.17|2 Nephi 10:17]] ([[Alma 37.17|Alma 37:17]]).
 
-given in marriage, and were blessed according to ... the *promises*, [[4 Nephi 1.11|4 Nephi 1:11]].
+given in marriage, and were blessed according to … the *promises*, [[4 Nephi 1.11|4 Nephi 1:11]].
 
 until all his *promises* shall be fulfilled, [[Mormon 8.22|Mormon 8:22]].
 
@@ -83,7 +82,7 @@ that I may fulfil this *promise*, this great and last *promise*, [[D&C 88.75|D&C
 
 Given for a principle with *promise*, [[D&C 89.3|D&C 89:3]].
 
-give unto you this *promise* ... Holy Ghost shall be shed forth, [[D&C 100.8|D&C 100:8]].
+give unto you this *promise* … Holy Ghost shall be shed forth, [[D&C 100.8|D&C 100:8]].
 
 chosen seed, to whom the *promises* were made, [[D&C 107.40|D&C 107:40]].
 

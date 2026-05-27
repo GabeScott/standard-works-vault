@@ -1,5 +1,7 @@
 # “Youth of the Noble Birthright”
 
+Gordon B. Hinckley
+
 By Ardeth Greene Kapp - *Young Women General President*
 
 *Given in the April session of the 1984 General Conference*
@@ -31,8 +33,3 @@ To this solemn and sacred trust, I commit all of my energies and my efforts. I r
 
 
 
-
-
-
-
-#Youth

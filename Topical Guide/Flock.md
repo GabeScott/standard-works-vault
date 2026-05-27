@@ -1,13 +1,12 @@
 # Flock
 
-
 *See also* [[Church.md|Church]]; [[Congregation.md|Congregation]]; [[People.md|People]]; [[Sheep.md|Sheep]]
 
-Abel ... brought of the firstlings of his *flock*, [[Genesis 4.4|Genesis 4:4]] ([[Moses 5.20|Moses 5:20]]).
+Abel … brought of the firstlings of his *flock*, [[Genesis 4.4|Genesis 4:4]] ([[Moses 5.20|Moses 5:20]]).
 
-Jacob ... put his own *flocks* by themselves, [[Genesis 30.40|Genesis 30:40]].
+Jacob … put his own *flocks* by themselves, [[Genesis 30.40|Genesis 30:40]].
 
-brethren went to feed their father's *flock*, [[Genesis 37.12|Genesis 37:12]].
+brethren went to feed their father’s *flock*, [[Genesis 37.12|Genesis 37:12]].
 
 Moses kept the *flock* of Jethro, [[Exodus 3.1|Exodus 3:1]].
 
@@ -23,7 +22,7 @@ He shall feed his *flock* like a shepherd, [[Isaiah 40.11|Isaiah 40:11]].
 
 all their *flocks* shall be scattered, [[Jeremiah 10.21|Jeremiah 10:21]].
 
-Lord's *flock* is carried away captive, [[Jeremiah 13.17|Jeremiah 13:17]].
+Lord’s *flock* is carried away captive, [[Jeremiah 13.17|Jeremiah 13:17]].
 
 keep him, as a shepherd doth his *flock*, [[Jeremiah 31.10|Jeremiah 31:10]].
 
@@ -33,20 +32,20 @@ keeping watch over their *flock* by night, [[Luke 2.8|Luke 2:8]].
 
 Fear not, little *flock*, [[Luke 12.32|Luke 12:32]] ([[D&C 6.34|D&C 6:34]]; [[D&C 35.27|D&C 35:27]]).
 
-Take heed ... to all the *flock*, [[Acts 20.28|Acts 20:28]].
+Take heed … to all the *flock*, [[Acts 20.28|Acts 20:28]].
 
-grievous wolves ... not sparing the *flock*, [[Acts 20.29|Acts 20:29]].
+grievous wolves … not sparing the *flock*, [[Acts 20.29|Acts 20:29]].
 
 Feed the *flock* of God which is among you, [[1 Peter 5.2|1 Peter 5:2]].
 
 as a wild *flock* which fleeth, [[Mosiah 8.21|Mosiah 8:21]].
 
-if a wolf enter his *flock* ... drive him out, [[Alma 5.59|Alma 5:59]].
+if a wolf enter his *flock* … drive him out, [[Alma 5.59|Alma 5:59]].
 
 I will take care of your *flocks*, [[D&C 88.72|D&C 88:72]].
 
 *flocks* of my brother falleth into my hands, [[Moses 5.33|Moses 5:33]].
 
-Satan tempted me because of my brother's *flocks*, [[Moses 5.38|Moses 5:38]].
+Satan tempted me because of my brother’s *flocks*, [[Moses 5.38|Moses 5:38]].
 
-my father tarried in Haran ... as there were many *flocks*, [[Abraham 2.5|Abraham 2:5]].
+my father tarried in Haran … as there were many *flocks*, [[Abraham 2.5|Abraham 2:5]].

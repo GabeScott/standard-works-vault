@@ -1,6 +1,8 @@
 # The Right to Choose
 
-By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -75,8 +77,3 @@ May we be inspired to make wise decisions that will meet with the approval of th
 
 
 
-
-
-
-
-#Agency

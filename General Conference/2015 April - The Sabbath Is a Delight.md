@@ -1,6 +1,8 @@
 # The Sabbath Is a Delight
 
-By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -30,9 +32,9 @@ Though the doctrine pertaining to the Sabbath day is of ancient origin, it has b
 
 “That thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day;
 
-“For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High. …
+“For verily this is a day appointed unto you to rest from your labors, and to pay thy devotions unto the Most High. …
 
-“And on this day … let thy food be prepared with singleness of heart that thy fasting may be perfect, … that thy joy may be full. …
+“And on this day … let thy food be prepared with singleness of heart that thy fasting may be perfect, … that thy joy may be full. …
 
 “And inasmuch as ye do these things with thanksgiving, with cheerful hearts and countenances, … the fulness of the earth is yours.”[^13]
 
@@ -50,13 +52,13 @@ Years ago the First Presidency stressed the importance of quality family time. T
 
 “We counsel parents and children to give highest priority to family prayer, family home evening, gospel study and instruction, and wholesome family activities. However worthy and appropriate other demands or activities may be, they must not be permitted to displace the divinely-appointed duties that only parents and families can adequately perform.”[^17]
 
-When I ponder this counsel, I almost wish I were a young father once again. Now parents have such wonderful resources available to help them make family time more meaningful, on the Sabbath and other days as well. They have , , the Bible videos, the Mormon Channel, the Media Library, the *Friend,* the *New Era,* the *Ensign,* the *Liahona,* and more—much more. These resources are so very helpful to parents in discharging their sacred duty to teach their children. No other work transcends that of righteous, intentional parenting!
+When I ponder this counsel, I almost wish I were a young father once again. Now parents have such wonderful resources available to help them make family time more meaningful, on the Sabbath and other days as well. They have [LDS.org](https://www.churchofjesuschrist.org), [Mormon.org](https://www.churchofjesuschrist.org/comeuntochrist), the Bible videos, the Mormon Channel, the Media Library, the *Friend,* the *New Era,* the *Ensign,* the *Liahona,* and more—much more. These resources are so very helpful to parents in discharging their sacred duty to teach their children. No other work transcends that of righteous, intentional parenting!
 
 As you teach the gospel, you will learn more. This is the Lord’s way of helping you to comprehend His gospel. He said:
 
 “I give unto you a commandment that you shall teach one another the doctrine of the kingdom.
 
-“Teach ye diligently … , that you may be instructed more perfectly … in doctrine, in the law of the gospel, in all things that pertain unto the kingdom of God.”[^18]
+“Teach ye diligently … , that you may be instructed more perfectly … in doctrine, in the law of the gospel, in all things that pertain unto the kingdom of God.”[^18]
 
 Such study of the gospel makes the Sabbath a delight. This promise pertains regardless of family size, composition, or location.
 
@@ -99,7 +101,7 @@ With love in my heart, I leave this with you as my prayer, testimony, and blessi
 
 [^6]: See [[Exodus 31.13|Exodus 31:13, 16]][[Exodus 31.16|]].
 
-[^7]: See [[D&C 59.12|Doctrine and Covenants 59:12]]. Prior to His Crucifixion, the Lord introduced the sacrament among His disciples at the Feast of the Passover (see [[Matthew 26.26|Matthew 26:26–28]][[Matthew 26.27|]][[Matthew 26.28|]]; [[Mark 14.22|Mark 14:22–24]][[Mark 14.23|]][[Mark 14.24|]]). The resurrected Lord instituted the sacrament in remembrance of His Atonement among the people of ancient America (see [[3 Nephi 18.1|3 Nephi 18:1–12]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]]; [[Moroni 4.1|Moroni 4:1–3]][[Moroni 4.2|]][[Moroni 4.3|]]; [[Moroni 5.2|5:2]]) and restored it in modern times (see [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]). Partaking of the sacrament renews our covenant made at baptism to keep His commandments (see [[D&C 20.68|Doctrine and Covenants 20:68]]).
+[^7]: See [[D&C 59.12|Doctrine and Covenants 59:12]]. Prior to His Crucifixion, the Lord introduced the sacrament among His disciples at the Feast of the Passover (see [[Matthew 26.26|Matthew 26:26–28]][[Matthew 26.27|]][[Matthew 26.28|]]; [[Mark 14.22|Mark 14:22–24]][[Mark 14.23|]][[Mark 14.24|]]). The resurrected Lord instituted the sacrament in remembrance of His Atonement among the people of ancient America (see [[3 Nephi 18.1|3 Nephi 18:1–12]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]]; [[Moroni 4.1|Moroni 4:1–3]][[Moroni 4.2|]][[Moroni 4.3|]]; [[Moroni 5.2|5:2]]) and restored it in modern times (see [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]). Partaking of the sacrament renews our covenant made at baptism to keep His commandments (see [[D&C 20.68|Doctrine and Covenants 20:68]]).
 
 [^8]: See [[D&C 20.37|Doctrine and Covenants 20:37, 77]][[D&C 20.77|]].
 
@@ -119,7 +121,7 @@ With love in my heart, I leave this with you as my prayer, testimony, and blessi
 
 [^16]: [[D&C 68.25|Doctrine and Covenants 68:25]]; emphasis added; see also [[Moses 6.58|Moses 6:58–62]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
 
-[^17]: First Presidency letter, Feb. 11, 1999; quoted in *Handbook 2: Administering the Church* (2010), 1.4.1.
+[^17]: First Presidency letter, Feb. 11, 1999; quoted in *Handbook 2: Administering the Church* (2010), 1.4.1.
 
 [^18]: [[D&C 88.77|Doctrine and Covenants 88:77–78]][[D&C 88.78|]].
 
@@ -131,12 +133,7 @@ With love in my heart, I leave this with you as my prayer, testimony, and blessi
 
 [^22]: See [[Mosiah 2.21|Mosiah 2:21]].
 
-[^23]: See [[1 Timothy 4.12|1 Timothy 4:12]].
+[^23]: See [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^24]: [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-
-
-
-
-#Family_History #Parenthood #Sabbath #Teaching

@@ -1,5 +1,7 @@
 # Conversion and Commitment
 
+James E. Faust
+
 By Elder W. Mack Lawrence - *Of the Seventy*
 
 *Given in the April session of the 1996 General Conference*
@@ -12,13 +14,13 @@ In this respect, I am reminded of a declaration made at the conclusion of confer
 
 Please note that it is insufficient to just *hear* the word of God in gatherings such as this conference. In order to have God’s word impact our lives—to receive the promised blessings—we must *follow* it. Indeed, the Lord has proclaimed, “For you shall *live* by every word that proceedeth forth from the mouth of God” ([[D&C 84.44|D&C 84:44]]; emphasis added).
 
-We have heard God’s words at this conference, and now our responsibility is to live by them. At the conclusion of our last general conference, President Gordon B. Hinckley said, “I will be a better man if I will put into my life the things of which I have been reminded in this conference, and I would like to suggest that each of you will be a better man or woman if you will put into your lives something of what you have heard in this great conference” (in Conference Report, Oct. 1995, 120; or *Ensign,* Nov. 1995, 89).
+We have heard God’s words at this conference, and now our responsibility is to live by them. At the conclusion of our last general conference, President Gordon B. Hinckley said, “I will be a better man if I will put into my life the things of which I have been reminded in this conference, and I would like to suggest that each of you will be a better man or woman if you will put into your lives something of what you have heard in this great conference” (in Conference Report, Oct. 1995, [[1995 October - The Fabric of Faith and Testimony.md|120]]; or *Ensign,* Nov. 1995, 89).
 
 By following this counsel, we strengthen our conversion to Christ and His gospel and, in this sense, become more committed to keeping covenants and commandments and in doing our duty in the Church. This, in my opinion, is the solution to one of the major challenges that I have observed during the years in which I have served in my present and other leadership callings.
 
 Whenever I have asked stake presidents about their biggest challenge or concern, they repeatedly say, “To have the Saints committed and converted so they will be faithful in keeping their covenants and fulfilling their callings.” I have given that challenge a lot of prayerful consideration. Certainly Latter-day Saints do not lack opportunities to hear the word of God, but unfortunately they are often dilatory in the follow-through and the application in living the word.
 
-What is it that gives us a testimony and a desire to serve the Lord “with all \[our\] heart, might, mind and strength” ([[D&C 4.2|D&C 4:2]]) and to “be diligent in keeping the commandments of the Lord”? ([[1 Nephi 4.34|1 Ne. 4:34]]).
+What is it that gives us a testimony and a desire to serve the Lord “with all \[our\] heart, might, mind and strength” ([[D&C 4.2|D&C 4:2]]) and to “be diligent in keeping the commandments of the Lord”? ([[1 Nephi 4.34|1 Ne. 4:34]]).
 
 As I have pondered this and prayed about it, I have concluded that the problem lies in a lack of conversion and commitment: *conversion* to Christ, His gospel, and His Church; and, subsequently, *commitment* to the covenants and individual callings one may have received to serve and strengthen others. In this regard, it is of interest to consider Christ’s words to Peter: “When thou art converted, strengthen thy brethren” ([[Luke 22.32|Luke 22:32]]). Thus, commitment seems to be an outgrowth or fruit of conversion.
 
@@ -57,8 +59,3 @@ I believe in Jesus Christ with all my soul. May we understand and follow His tea
 
 
 
-
-
-
-
-#Commitment #Conversion #Covenants #Discipleship #General_Conference

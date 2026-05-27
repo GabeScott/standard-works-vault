@@ -1,5 +1,7 @@
 # A Tabernacle in the Wilderness
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2007 General Conference*
@@ -51,8 +53,3 @@ Accordingly, we dedicate, rededicate, and consecrate this sacred structure, and 
 
 
 
-
-
-
-
-#Church_History #Temple_Square

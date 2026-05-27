@@ -1,6 +1,5 @@
 # Entangle
 
-
 counsel how they might *entangle* him in his talk, [[Matthew 22.15|Matthew 22:15]].
 
 be not *entangled* again with the yoke of bondage, [[Galatians 5.1|Galatians 5:1]].

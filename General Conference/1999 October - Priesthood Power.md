@@ -1,5 +1,7 @@
 # Priesthood Power
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -113,7 +115,7 @@ May each of us ever be on the Lord’s errand and thereby be entitled to the Lor
 
 
 
-[^1]: In Conference Report, Apr. 1980, 75; or *Ensign,* May 1980, 52.
+[^1]: In Conference Report, Apr. 1980, [[1980 April - Proclamation.md|75]]; or *Ensign,* May 1980, 52.
 
 [^2]: *Deseret Weekly,* 2 Nov. 1889, 598.
 
@@ -133,8 +135,3 @@ May each of us ever be on the Lord’s errand and thereby be entitled to the Lor
 
 [^10]: [[John 14.18|John 14:18]].
 
-
-
-
-
-#Church_Callings #Grace #Holy_Ghost #Priesthood #Service #Sin

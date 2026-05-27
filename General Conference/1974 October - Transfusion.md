@@ -1,6 +1,8 @@
 # Transfusion
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -82,8 +84,3 @@ And may God help us so to do and so to become, I sincerely pray in the name of J
 
 
 
-
-
-
-
-#Friendship #Leadership #Spirituality

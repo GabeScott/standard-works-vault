@@ -1,5 +1,7 @@
 # The Joy of Honest Labor
 
+Ezra Taft Benson
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -22,7 +24,7 @@ There was so much in this project that was of value to me in my young life. Firs
 
 From the very beginning, the Lord commanded Adam to till the earth and have dominion over the beasts of the field, to eat his bread by the sweat of his brow. I have always been interested in how often the scriptures have admonished us to cease to be idle and to be productive in all of our labors. King Benjamin in his final address noted his example before the people by saying:
 
-“I say unto you that as I have been suffered to spend my days in your service, even up to this time, and have not sought gold nor silver nor any manner of riches of you; …
+“I say unto you that as I have been suffered to spend my days in your service, even up to this time, and have not sought gold nor silver nor any manner of riches of you; …
 
 “And even I, myself, have labored with mine own hands that I might serve you, and that ye should not be laden with taxes, and that there should nothing come upon you which was grievous to be borne—and of all these things which I have spoken, ye yourselves are witnesses this day” ([[Mosiah 2.12|Mosiah 2:12, 14]][[Mosiah 2.14|]]).
 
@@ -34,11 +36,11 @@ Second, as a lad doing the job my father had assigned to me, I was taught not to
 
 I have always enjoyed reading some of the counsel Brigham Young used to give to the Saints. His counsel was so practical. Listen to what he said about waste:
 
-“Pick up everything. …
+“Pick up everything. …
 
-“Never consider that you have bread enough around you to suffer your children to waste a crust or a crumb of it. … Remember it, do not waste anything, but take care of everything. …
+“Never consider that you have bread enough around you to suffer your children to waste a crust or a crumb of it. … Remember it, do not waste anything, but take care of everything. …
 
-“If you wish to get rich, save what you get. A fool can earn money; but it takes a wise man to save and dispose of it to his own advantage” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 292).
+“If you wish to get rich, save what you get. A fool can earn money; but it takes a wise man to save and dispose of it to his own advantage” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 292).
 
 I wonder what kind of signals we are sending to our children when we purchase homes that are status symbols. We waste space and resources when we buy a larger home than is needed, a larger home than is practical for us to afford. We encumber ourselves with mortgages so large that they require the income of both husband and wife to make payments. Then we build consumer debt to the point of absorbing completely all of our disposable income, leaving no margin of safety for the rainy days that come into everyone’s life. Do not such signals from heads of households only feed the philosophy of “I want it now” in the lives of our children?
 
@@ -66,7 +68,7 @@ Is this not the same lesson that Paul was preaching when he declared:
 
 “Neither did we eat any man’s bread for nought; but wrought with labour and travail night and day, that we might not be chargeable to any of you:
 
-“Not because we have not power, but to make ourselves an ensample unto you to follow us” ([[2 Thessalonians 3.8|2 Thes. 3:8–9]][[2 Thessalonians 3.9|]]).
+“Not because we have not power, but to make ourselves an ensample unto you to follow us” ([[2 Thessalonians 3.8|2 Thes. 3:8–9]][[2 Thessalonians 3.9|]]).
 
 An event occurred in my life about a month ago which impressed upon me the blessings that accrue to one over the years from good, early childhood training. I was delivered a note as I arrived at the airport that one of my very best friends had passed away and her funeral was in just an hour and a half in a community fifty miles from the airport. I made a quick change from air to surface transportation and started the drive to the funeral.
 
@@ -83,8 +85,3 @@ Should not *all* children receive such a blessing early in their lives? This is 
 
 
 
-
-
-
-
-#Children #Parenthood #Teaching #Work

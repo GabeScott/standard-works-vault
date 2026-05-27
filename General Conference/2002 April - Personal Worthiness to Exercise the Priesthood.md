@@ -1,5 +1,7 @@
 # Personal Worthiness to Exercise the Priesthood
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2002 General Conference*
@@ -50,9 +52,9 @@ You who are missionaries must not, you cannot under any circumstances compromise
 
 By way of warning, and forewarning, the First Presidency and the Quorum of the Twelve Apostles have set forth the following statement directed to you:
 
-“As missionaries, you are expected to maintain the highest standards of conduct, including strict observance of the law of chastity. …
+“As missionaries, you are expected to maintain the highest standards of conduct, including strict observance of the law of chastity. …
 
-“… You should never be alone with anyone else, male or female, adult or child \[other than your assigned companion\].
+“… You should never be alone with anyone else, male or female, adult or child \[other than your assigned companion\].
 
 “Even false accusations against an innocent missionary can take many months to investigate and may result in disruption or termination of missionary service. Protect yourselves from such accusations by never being separated from your companion, even in the homes you visit” (First Presidency statement on missionary conduct, 22 Mar. 2002).
 
@@ -62,7 +64,7 @@ When you return home, never forget that you are still an elder of The Church of 
 
 You will become involved in the search for an eternal companion. You will wish to marry in the house of the Lord. For you, there should be no alternative. Be careful, lest you destroy your eligibility to be so married. Have a wonderful time. But keep your courtship within the bounds of rigid self-discipline. The Lord has given a mandate and a promise. He has said, “Let virtue garnish thy thoughts unceasingly.” Then there follows the promise that “thy confidence \[shall\] wax strong in the presence of God; and … the Holy Ghost shall be thy constant companion” ([[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]]).
 
-The wife you choose will be your equal. Paul declared, “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]).
+The wife you choose will be your equal. Paul declared, “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]).
 
 In the marriage companionship there is neither inferiority nor superiority. The woman does not walk ahead of the man; neither does the man walk ahead of the woman. They walk side by side as a son and daughter of God on an eternal journey.
 
@@ -117,5 +119,3 @@ There is nothing else to compare with it in all this world. Safeguard it, cheris
 
 
 
-
-#Abuse #Kindness #Priesthood #Worthiness

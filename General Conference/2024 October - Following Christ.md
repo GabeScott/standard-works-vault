@@ -1,6 +1,8 @@
 # Following Christ
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Henry B. Eyring
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -26,7 +28,7 @@ The commandments of God provide the guiding and steadying force in our lives. Ou
 
 That essential string represents the covenants that connect us to God, our Heavenly Father, and His Son, Jesus Christ. As we honor those covenants by keeping Their commandments and following Their plan of redemption, Their promised blessings enable us to soar to celestial heights.
 
-The Book of Mormon frequently declares that Christ is “the light of the world.”[^4] During His appearance to the Nephites, the risen Lord explained that teaching by telling them: “I have set an example for you.”[^5] “I am the light which ye shall hold up—that which ye have seen me do.”[^6] He is our role model. We learn what He has said and done by studying the scriptures and following prophetic teachings, as President Russell M. Nelson has urged us to do.[^7] In the ordinance of the sacrament, we covenant each Sabbath day that we will “always remember him and keep his commandments.”[^8]
+The Book of Mormon frequently declares that Christ is “the light of the world.”[^4] During His appearance to the Nephites, the risen Lord explained that teaching by telling them: “I have set an example for you.”[^5] “I am the light which ye shall hold up—that which ye have seen me do.”[^6] He is our role model. We learn what He has said and done by studying the scriptures and following prophetic teachings, as President Russell M. Nelson has urged us to do.[^7] In the ordinance of the sacrament, we covenant each Sabbath day that we will “always remember him and keep his commandments.”[^8]
 
 ## II.
 
@@ -34,7 +36,7 @@ In the Book of Mormon, the Lord gave us the fundamentals in what He called “th
 
 The Lord’s commandments are of two types: permanent, like the doctrine of Christ, and temporary. Temporary commandments are those necessary for the needs of the Lord’s Church or the faithful in temporary circumstances, but to be set aside when the need has passed. An example of temporary commandments are the Lord’s directions to the early leadership of the Church to move the Saints from New York to Ohio, to Missouri, and to Illinois and finally to lead the pioneer exodus to the Intermountain West. Though only temporary, when still in force these commandments were given to be obeyed.
 
-Some permanent commandments have taken considerable time to be generally observed. For example, President Lorenzo Snow’s famous sermon on the law of tithing emphasized a commandment given earlier but not yet generally observed by Church members.[^11] It needed reemphasis in the circumstances then faced by the Church and its members. Recent examples of reemphases have also been needed because of current circumstances faced by Latter-day Saints or the Church. These include the proclamation on the family, issued by President Gordon B. Hinckley a generation ago,[^12] and President Russell M. Nelson’s recent call for the Church to be known by its revealed name, The Church of Jesus Christ of Latter-day Saints.[^13]
+Some permanent commandments have taken considerable time to be generally observed. For example, President Lorenzo Snow’s famous sermon on the law of tithing emphasized a commandment given earlier but not yet generally observed by Church members.[^11] It needed reemphasis in the circumstances then faced by the Church and its members. Recent examples of reemphases have also been needed because of current circumstances faced by Latter-day Saints or the Church. These include the proclamation on the family, issued by President Gordon B. Hinckley a generation ago,[^12] and President Russell M. Nelson’s recent call for the Church to be known by its revealed name, The Church of Jesus Christ of Latter-day Saints.[^13]
 
 ## III.
 
@@ -54,13 +56,13 @@ In His remaining ministry among the Nephites, Jesus taught other commandments cl
 
 “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you.”[^15]
 
-This is one of Christ’s best-known commandments—most revolutionary and most difficult to follow. Yet it is a most fundamental part of His invitation for all to follow Him. As President David O. McKay taught, “There is no better way to manifest love for God than to show an unselfish love for one’s fellowmen.”[^16]
+This is one of Christ’s best-known commandments—most revolutionary and most difficult to follow. Yet it is a most fundamental part of His invitation for all to follow Him. As President David O. McKay taught, “There is no better way to manifest love for God than to show an unselfish love for one’s fellowmen.”[^16]
 
 Here is another fundamental teaching by Him who is our role model: “Blessed are the peacemakers: for they shall be called the children of God.”[^17]
 
 Peacemakers! How it would change personal relationships if followers of Christ would forgo harsh and hurtful words in all their communications.
 
-In general conference last year, President Russell M. Nelson gave us these challenges:
+In general conference last year, President Russell M. Nelson gave us these challenges:
 
 “One of the easiest ways to identify a *true follower* of Jesus Christ is how compassionately that person treats other people. …
 
@@ -85,46 +87,41 @@ As followers of Christ, we teach and testify of Jesus Christ, our Perfect Role M
 
 [^1]: [[Luke 18.22|Luke 18:22]].
 
-[^2]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^2]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^3]: [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-[^4]: [[Alma 38.9|Alma 38:9]]; see also [[Mosiah 16.9|Mosiah 16:9]]; [[3 Nephi 9.18|3 Nephi 9:18]].
+[^4]: [[Alma 38.9|Alma 38:9]]; see also [[Mosiah 16.9|Mosiah 16:9]]; [[3 Nephi 9.18|3 Nephi 9:18]].
 
-[^5]: [[3 Nephi 18.16|3 Nephi 18:16]].
+[^5]: [[3 Nephi 18.16|3 Nephi 18:16]].
 
-[^6]: [[3 Nephi 18.24|3 Nephi 18:24]]; see also [[3 Nephi 27.21|3 Nephi 27:21]].
+[^6]: [[3 Nephi 18.24|3 Nephi 18:24]]; see also [[3 Nephi 27.21|3 Nephi 27:21]].
 
-[^7]: See Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 39–40.
+[^7]: See Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 39–40.
 
 [^8]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^9]: See [[3 Nephi 11.32|3 Nephi 11:32–33, 38]][[3 Nephi 11.33|]][[3 Nephi 11.38|]]; see also [[2 Nephi 31.13|2 Nephi 31:13–21]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 27.13|3 Nephi 27:13–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
+[^9]: See [[3 Nephi 11.32|3 Nephi 11:32–33, 38]][[3 Nephi 11.33|]][[3 Nephi 11.38|]]; see also [[2 Nephi 31.13|2 Nephi 31:13–21]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 27.13|3 Nephi 27:13–22]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]][[3 Nephi 27.22|]].
 
 [^10]: See [[Mosiah 3.19|Mosiah 3:19]].
 
-[^11]: See *Saints: The Story of the Church of Jesus Christ in the Latter Days*, vol. 3, *Boldly, Nobly, and Independent, 1893–1955* (2022), 73–77.
+[^11]: See *[Saints: The Story of the Church of Jesus Christ in the Latter Days](https://www.churchofjesuschrist.org/study/history/saints-v3/part-1/05-an-essential-preparation?lang=eng&id=p43-p60#p43)*, vol. 3, *Boldly, Nobly, and Independent, 1893–1955* (2022), 73–77.
 
-[^12]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
+[^12]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
-[^13]: See Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87–89.
+[^13]: See Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87–89.
 
-[^14]: [[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]].
+[^14]: [[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]].
 
-[^15]: [[Matthew 5.44|Matthew 5:44]]; see also [[3 Nephi 12.44|3 Nephi 12:44]].
+[^15]: [[Matthew 5.44|Matthew 5:44]]; see also [[3 Nephi 12.44|3 Nephi 12:44]].
 
-[^16]: *Teachings of Presidents of the Church: David O. McKay* (2003), 181.
+[^16]: *[Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-19?lang=eng&id=p10#p10)* (2003), 181.
 
-[^17]: [[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]].
+[^17]: [[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]].
 
-[^18]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98, 99, 100.
+[^18]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98, 99, 100.
 
 [^19]: [[Matthew 7.12|Matthew 7:12]].
 
-[^20]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
+[^20]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
-
-
-
-
-#Commandments #Contention #Covenants #Discipleship #Jesus_Christ #Peacemaking

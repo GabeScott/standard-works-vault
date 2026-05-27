@@ -4,6 +4,3 @@
 
 [JST Romans 7:19](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-rom/7?lang=eng)
 
-
-
-

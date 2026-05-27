@@ -1,6 +1,5 @@
 # Repair
 
-
 Joash was minded to *repair* the house, [[2 Chronicles 24.4|2 Chronicles 24:4]].
 
 set up the house of our God, and to *repair* the desolations thereof, [[Ezra 9.9|Ezra 9:9]].

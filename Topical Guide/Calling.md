@@ -1,7 +1,6 @@
 # Calling
 
-
-*See also* [[Authority.md|Authority]]; [[Call.md|Call]]; [[Called of God.md|Called of God]]; [[Election, Elect.md|Election]]; [[Foreordination.md|Foreordination]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]
+*See also* [[Authority.md|Authority]]; [[Call.md|Call]]; [[Called of God.md|Called of God]]; [[Election.md|Election]]; [[Foreordination.md|Foreordination]]; [[Mission of Latter-day Saints.md|Mission of Latter-day Saints]]
 
 gifts and *calling* of God are without repentance, [[Romans 11.29|Romans 11:29]].
 
@@ -21,8 +20,8 @@ holy brethren, partakers of the heavenly *calling*, [[Hebrews 3.1|Hebrews 3:1]].
 
 to make your *calling* and election sure, [[2 Peter 1.10|2 Peter 1:10]].
 
-whoso is faithful ... magnifying their *calling*, [[D&C 84.33|D&C 84:33]].
+whoso is faithful … magnifying their *calling*, [[D&C 84.33|D&C 84:33]].
 
-let every man ... labor in his own *calling*, [[D&C 84.109|D&C 84:109]].
+let every man … labor in his own *calling*, [[D&C 84.109|D&C 84:109]].
 
 has been a day of *calling*, [[D&C 105.35|D&C 105:35]].

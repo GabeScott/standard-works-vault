@@ -1,11 +1,10 @@
 # Men
 
-
 *See also* [[Man.md|Man]]
 
-lift up his eyes ... three *men* stood by him, [[Genesis 18.2|Genesis 18:2]].
+lift up his eyes … three *men* stood by him, [[Genesis 18.2|Genesis 18:2]].
 
-them that lapped ... were three hundred *men*, [[Judges 7.6|Judges 7:6]].
+them that lapped … were three hundred *men*, [[Judges 7.6|Judges 7:6]].
 
 quit yourselves like *men*, [[1 Samuel 4.9|1 Samuel 4:9]] ([[1 Corinthians 16.13|1 Corinthians 16:13]]).
 
@@ -29,7 +28,7 @@ that which is highly esteemed among *men* is abomination, [[Luke 16.15|Luke 16:1
 
 *men* loved darkness rather than light, [[John 3.19|John 3:19]].
 
-loved the praise of *men* more than ... of God, [[John 12.43|John 12:43]].
+loved the praise of *men* more than … of God, [[John 12.43|John 12:43]].
 
 We ought to obey God rather than *men*, [[Acts 5.29|Acts 5:29]].
 
@@ -71,7 +70,7 @@ Adam fell that *men* might be, [[2 Nephi 2.25|2 Nephi 2:25]].
 
 that he may draw all *men* unto him, [[2 Nephi 26.24|2 Nephi 26:24]] ([[3 Nephi 27.14|3 Nephi 27:14]]).
 
-gone astray ... by the precepts of *men*, [[2 Nephi 28.14|2 Nephi 28:14]].
+gone astray … by the precepts of *men*, [[2 Nephi 28.14|2 Nephi 28:14]].
 
 persuade all *men* not to rebel against God, [[Jacob 1.8|Jacob 1:8]].
 
@@ -81,13 +80,13 @@ it shall be made known unto just and holy *men*, [[Alma 13.26|Alma 13:26]].
 
 he granteth unto *men* according to their desire, [[Alma 29.4|Alma 29:4]].
 
-he imparteth his word ... not only *men* but women also, [[Alma 32.23|Alma 32:23]].
+he imparteth his word … not only *men* but women also, [[Alma 32.23|Alma 32:23]].
 
 this life is the time for *men* to prepare to meet God, [[Alma 34.32|Alma 34:32]].
 
 whether there is more than one time appointed for *men* to rise, [[Alma 40.8|Alma 40:8]].
 
-if all *men* had been ... like unto Moroni, [[Alma 48.17|Alma 48:17]].
+if all *men* had been … like unto Moroni, [[Alma 48.17|Alma 48:17]].
 
 what manner of *men* ought ye to be, [[3 Nephi 27.27|3 Nephi 27:27]].
 
@@ -113,17 +112,17 @@ just *men* made perfect through Jesus, [[D&C 76.69|D&C 76:69]] ([[D&C 129.3|D&C 
 
 These are they who are honorable *men*, [[D&C 76.75|D&C 76:75]].
 
-third trump ... then come the spirits of *men* who are to be judged, [[D&C 88.100|D&C 88:100]].
+third trump … then come the spirits of *men* who are to be judged, [[D&C 88.100|D&C 88:100]].
 
 reveal the secret acts of *men*, [[D&C 88.108|D&C 88:108]].
 
-evils ... exist in the hearts of conspiring *men*, [[D&C 89.4|D&C 89:4]].
+evils … exist in the hearts of conspiring *men*, [[D&C 89.4|D&C 89:4]].
 
 in him was the life of *men* and the light of *men*, [[D&C 93.9|D&C 93:9]].
 
 honest *men* and wise *men* should be sought for diligently, [[D&C 98.10|D&C 98:10]].
 
-hearts ... aspire to the honors of *men*, [[D&C 121.35|D&C 121:35]].
+hearts … aspire to the honors of *men*, [[D&C 121.35|D&C 121:35]].
 
 blinded by the subtle craftiness of *men*, [[D&C 123.12|D&C 123:12]].
 

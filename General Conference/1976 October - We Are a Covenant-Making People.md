@@ -1,5 +1,7 @@
 # We Are a Covenant-Making People
 
+Spencer W. Kimball
+
 By Elder Joseph Anderson - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -38,7 +40,7 @@ However, Israel of old failed to keep the covenants, and as a result the Lord wa
 
 The Church of Jesus Christ of Latter-day Saints in this day is a covenant-making people.
 
-The gospel is the everlasting covenant. In the very first section of the Doctrine and Covenants, the Lord, speaking through the Prophet Joseph Smith, said: “I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant, Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments; …
+The gospel is the everlasting covenant. In the very first section of the Doctrine and Covenants, the Lord, speaking through the Prophet Joseph Smith, said: “I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant, Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments; …
 
 “That mine everlasting covenant might be established;
 
@@ -82,7 +84,7 @@ Are we living up to this commandment? And if not, are we entitled to the blessin
 
 When we receive the priesthood we receive it with a covenant and promise. The Lord has told us, as recorded in the Doctrine and Covenants:
 
-“For whoso is faithful unto the obtaining these two priesthoods \[Melchizedek and Aaronic\] of which I have spoken, and the magnifying their calling, are sanctified by the Spirit unto the renewing of their bodies. …
+“For whoso is faithful unto the obtaining these two priesthoods \[Melchizedek and Aaronic\] of which I have spoken, and the magnifying their calling, are sanctified by the Spirit unto the renewing of their bodies. …
 
 “And also all they who receive this priesthood receive me, saith the Lord;
 
@@ -102,17 +104,12 @@ The Lord has made known to us by a revelation through the Prophet Joseph Smith t
 
 “And when we obtain any blessing from God, it is by obedience to that law upon which it is predicated.” ([[D&C 130.20|D&C 130:20–21]][[D&C 130.21|]].)
 
-It must be understood that the covenant of marriage must be made and entered into and sealed by the Holy Spirit of Promise through the medium of him whom the Lord has appointed and authorized to hold this power on the earth in these last days. The covenant pertaining to the eternity of the family unit is one of utmost importance. If we are to return into the presence of our Eternal Father and His Beloved Son and obtain eternal life, we must honor the covenant pertaining thereto. An ancient Book of Mormon prophet has said, “Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].) In order to have true joy, the joy that our Father desires us to have, we must honor the covenants and the commandments involved in the gospel—the new and everlasting covenant.
+It must be understood that the covenant of marriage must be made and entered into and sealed by the Holy Spirit of Promise through the medium of him whom the Lord has appointed and authorized to hold this power on the earth in these last days. The covenant pertaining to the eternity of the family unit is one of utmost importance. If we are to return into the presence of our Eternal Father and His Beloved Son and obtain eternal life, we must honor the covenant pertaining thereto. An ancient Book of Mormon prophet has said, “Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].) In order to have true joy, the joy that our Father desires us to have, we must honor the covenants and the commandments involved in the gospel—the new and everlasting covenant.
 
 The Prophet Joseph Smith, the first prophet of this dispensation, said, “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God.” (*Teachings of the Prophet Joseph Smith,* p. 255.)
 
-God lives, Jesus is the Christ, Spencer W. Kimball is His living prophet. The everlasting gospel of our Lord and Master, which is the new and everlasting covenant, has been restored to earth. It is the plan of life and salvation. To these things I testify in the name of Jesus Christ. Amen.
+God lives, Jesus is the Christ, Spencer W. Kimball is His living prophet. The everlasting gospel of our Lord and Master, which is the new and everlasting covenant, has been restored to earth. It is the plan of life and salvation. To these things I testify in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Covenants #Priesthood

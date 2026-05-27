@@ -1,12 +1,14 @@
 # The Value of Work
 
-By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/04/the-value-of-work?lang=eng)
 
-Few writers in our generation have produced the number and quality of best-selling books that James A. Michener has. I am amazed at the range of his interests and his commitment to excellence. His success is not accidental. It does not come solely from the endowment of a natural talent. His success comes from developing the habit of hard work.
+Few writers in our generation have produced the number and quality of best-selling books that James A. Michener has. I am amazed at the range of his interests and his commitment to excellence. His success is not accidental. It does not come solely from the endowment of a natural talent. His success comes from developing the habit of hard work.
 
 He was raised in poverty by a widowed mother. From age eleven, James worked six days a week every summer and delivered papers during the winter. At age fourteen he apprenticed as a plumber and worked fourteen hours a day in the summer and four hours a day in the winter. In looking back he says, “Instead of turning me against work, this ingrained in me the attitude that sensible people work hard to attain sensible goals—a philosophy I still adhere to.” (“An Authentic Work Ethic: I. The Path to Achievement,” *Reader’s Digest,* Jan. 1977, p. 149.)
 
@@ -14,21 +16,21 @@ Work is a blessing from God. It is a fundamental principle of salvation, both sp
 
 We are cocreators with God. He gave us the capacity to do the work he left undone, to harness the energy, mine the ore, transform the treasures of the earth for our good. But most important, the Lord knew that from the crucible of work emerges the hard core of character.
 
-Work has become a Mormon trademark. We are known throughout the world as a highly motivated, industrious people. Eric Hoffer once cautioned, “Put a Mormon in a hopper and out comes a tycoon.” (Quoted by C. Brooklyn Derr in *Ensign,* Feb. 1978, p. 3.)
+Work has become a Mormon trademark. We are known throughout the world as a highly motivated, industrious people. Eric Hoffer once cautioned, “Put a Mormon in a hopper and out comes a tycoon.” (Quoted by C. Brooklyn Derr in *Ensign,* Feb. 1978, p. 3.)
 
 This intense commitment to the work ethic is our tradition. Mormon industry has left its mark upon every piece of land we have occupied. Missouri, Nauvoo, the Salt Lake Basin, and all the valleys of the mountains where the Saints have settled are famous monuments to Mormon toil.
 
-Of this period, President J. Reuben Clark observed: “We moved under our own power, without subsidy, without loan, wished on our way only by the maledictions of those who drove us out from our own homes and then appropriated, without paying for it, the property they forced us to leave behind. …
+Of this period, President J. Reuben Clark observed: “We moved under our own power, without subsidy, without loan, wished on our way only by the maledictions of those who drove us out from our own homes and then appropriated, without paying for it, the property they forced us to leave behind. …
 
-“So we struggled on against want and misery; toil and hardship were with us daily. …
+“So we struggled on against want and misery; toil and hardship were with us daily. …
 
 “But the Church survived; the people prospered. *Character endured intact.* We took care of our own poor. In times of scarcity neighbors helped one another.
 
 “Time and again, we passed through the fiery furnace; we came out of it each time, refined, with the dross burned away, re-inspirited, sanctified.” (*Church Welfare Plan,* pamphlet, 1939, pp. 8–9; italics added.)
 
-In this commitment, our prophets have led by example. It is said that President Wilford Woodruff loved work. “To him it was a blessing, a privilege. … His toil in the canyons, his sweat in the harvest field, … were all important parts in divine economy. …
+In this commitment, our prophets have led by example. It is said that President Wilford Woodruff loved work. “To him it was a blessing, a privilege. … His toil in the canyons, his sweat in the harvest field, … were all important parts in divine economy. …
 
-“To sweat, was a divine command as much so as to pray.” (Matthias F. Cowley, *Wilford Woodruff: History of His Life and Labors,* Salt Lake City: Deseret News, 1909, pp. 644–45.)
+“To sweat, was a divine command as much so as to pray.” (Matthias F. Cowley, *Wilford Woodruff: History of His Life and Labors,* Salt Lake City: Deseret News, 1909, pp. 644–45.)
 
 In our day, I know of no better example of obedience to the divine law of work than President Kimball. Personifying his “Do it!” philosophy, President Kimball has committed himself not only to the pursuit of happiness, but to the happiness of pursuit. On one occasion, when Dr. Wilkinson showed concern for President Kimball’s health and the increasing demands he was making on his body, President Kimball responded in a kindly way, “Your job, Brother Wilkinson, is to keep me going at the pace I am going to go.”
 
@@ -72,7 +74,7 @@ Brigham Young declared, “It is never any benefit to give out … to man or wom
 
 “To give to the idler is as wicked as anything else. Never give anything to the idler.
 
-“Set the poor to work.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1954, pp. 274–75.)
+“Set the poor to work.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1954, pp. 274–75.)
 
 President Clark added, “Brethren, … do your best to see that those … who consume, shall be among those who produce. It is a principle … that destroys character \[and\] initiative, to get into the frame of mind where our sustenance comes as a gift.” (Transcript of talk given in welfare meeting, Apr. 1960, p. 3.)
 
@@ -86,11 +88,11 @@ In the broader sense, work is the means to achieve happiness, prosperity, and sa
 >Duty was joy!
 >
 
-Work was instituted from the beginning as the means by which the children of God were to fulfill their earthly stewardship. Work is our divine heritage. Elder Stephen L Richards taught: “Work with faith is a cardinal point of our theological doctrine and our future state—our heaven, is envisioned in terms of eternal progression through constant labor.” (In Conference Report, Oct. 1939, pp. 65, 68.)
+Work was instituted from the beginning as the means by which the children of God were to fulfill their earthly stewardship. Work is our divine heritage. Elder Stephen L Richards taught: “Work with faith is a cardinal point of our theological doctrine and our future state—our heaven, is envisioned in terms of eternal progression through constant labor.” (In Conference Report, Oct. 1939, pp. 65, 68.)
 
 The voice of the Lord to this generation is:
 
-“Behold, I say unto you that it is my will that you should go forth and not tarry, neither be idle but labor with your might. …
+“Behold, I say unto you that it is my will that you should go forth and not tarry, neither be idle but labor with your might. …
 
 “And thus, if ye are faithful ye shall be laden with many sheaves, and crowned with honor, and glory, and immortality, and eternal life.” ([[D&C 75.3|D&C 75:3, 5]][[D&C 75.5|]].)
 
@@ -99,8 +101,3 @@ To this I testify, in the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Self-Control #Work

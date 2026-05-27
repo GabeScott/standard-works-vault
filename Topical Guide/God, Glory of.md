@@ -1,7 +1,6 @@
 # God, Glory of
 
-
-*See also* [[Glory.md|Glory]]; [BD Glory of the Lord](https://www.churchofjesuschrist.org/study/scriptures/bd/glory-of-the-lord?lang=eng)
+*See also* [[Glory.md|Glory]]; [[BD Glory of the Lord.md|BD Glory of the Lord]]
 
 *glory* of the Lord appeared in the cloud, [[Exodus 16.10|Exodus 16:10]].
 
@@ -37,7 +36,7 @@ thine is the kingdom, and the power, and the *glory*, [[Matthew 6.13|Matthew 6:1
 
 Son of man shall come in the *glory* of his Father, [[Matthew 16.27|Matthew 16:27]] ([[Mark 8.38|Mark 8:38]]; [[Luke 9.26|Luke 9:26]]).
 
-Son of man coming ... with power and great *glory*, [[Matthew 24.30|Matthew 24:30]] ([[Mark 13.26|Mark 13:26]]; [[Luke 21.27|Luke 21:27]]; [[D&C 45.44|D&C 45:44]]; [[Joseph Smith Matthew 1.36|Joseph Smith Matthew 1:36]]).
+Son of man coming … with power and great *glory*, [[Matthew 24.30|Matthew 24:30]] ([[Mark 13.26|Mark 13:26]]; [[Luke 21.27|Luke 21:27]]; [[D&C 45.44|D&C 45:44]]; [[Joseph Smith Matthew 1.36|Joseph Smith Matthew 1:36]]).
 
 *glory* of the Lord shone round about them, [[Luke 2.9|Luke 2:9]].
 
@@ -45,7 +44,7 @@ Son of man coming ... with power and great *glory*, [[Matthew 24.30|Matthew 24:3
 
 when they were awake, they saw his *glory*, [[Luke 9.32|Luke 9:32]].
 
-Ought not Christ ... to enter into his *glory*, [[Luke 24.26|Luke 24:26]].
+Ought not Christ … to enter into his *glory*, [[Luke 24.26|Luke 24:26]].
 
 we beheld his *glory*, the *glory* as of the only begotten, [[John 1.14|John 1:14]].
 
@@ -85,11 +84,11 @@ Jesus Christ is Lord, to the *glory of God*, [[Philippians 2.11|Philippians 2:11
 
 unto God and our Father be *glory* for ever, [[Philippians 4.20|Philippians 4:20]].
 
-Strengthened ... according to his *glorious* power, [[Colossians 1.11|Colossians 1:11]].
+Strengthened … according to his *glorious* power, [[Colossians 1.11|Colossians 1:11]].
 
 to the obtaining of the *glory* of our Lord, [[2 Thessalonians 2.14|2 Thessalonians 2:14]].
 
-Looking for ... the *glorious* appearing of the great God, [[Titus 2.13|Titus 2:13]].
+Looking for … the *glorious* appearing of the great God, [[Titus 2.13|Titus 2:13]].
 
 Who being the brightness of his *glory*, [[Hebrews 1.3|Hebrews 1:3]].
 
@@ -109,7 +108,7 @@ Thou art worthy, O Lord, to receive *glory*, [[Revelation 4.11|Revelation 4:11]]
 
 *glory of God* did lighten it, [[Revelation 21.23|Revelation 21:23]].
 
-Holy One of Israel must reign in ... great *glory*, [[1 Nephi 22.24|1 Nephi 22:24]].
+Holy One of Israel must reign in … great *glory*, [[1 Nephi 22.24|1 Nephi 22:24]].
 
 I have beheld his *glory*, [[2 Nephi 1.15|2 Nephi 1:15]].
 
@@ -135,9 +134,9 @@ you shall dwell with me in *glory*, [[D&C 6.30|D&C 6:30]].
 
 tarry until I come in my *glory*, [[D&C 7.3|D&C 7:3]].
 
-heavens to shake for ... his name's *glory*, [[D&C 21.6|D&C 21:6]].
+heavens to shake for … his name’s *glory*, [[D&C 21.6|D&C 21:6]].
 
-apostles ... shall stand ... in *glory*, [[D&C 29.12|D&C 29:12]].
+apostles … shall stand … in *glory*, [[D&C 29.12|D&C 29:12]].
 
 when I shall come in my *glory*, [[D&C 45.16|D&C 45:16]].
 
@@ -159,7 +158,7 @@ celestial, whose *glory* is that of the sun, [[D&C 76.70|D&C 76:70]].
 
 expedient that all things be done unto my *glory*, [[D&C 78.8|D&C 78:8]].
 
-promote the *glory* of ... your Lord, [[D&C 81.4|D&C 81:4]].
+promote the *glory* of … your Lord, [[D&C 81.4|D&C 81:4]].
 
 cloud shall be even the *glory* of the Lord, [[D&C 84.5|D&C 84:5]].
 
@@ -175,13 +174,13 @@ I beheld his *glory*, as the *glory* of the Only Begotten, [[D&C 93.11|D&C 93:11
 
 *glory of God* is intelligence, [[D&C 93.36|D&C 93:36]].
 
-build a house unto me ... my *glory* shall rest upon it, [[D&C 97.15|D&C 97:15]].
+build a house unto me … my *glory* shall rest upon it, [[D&C 97.15|D&C 97:15]].
 
-work together ... to my name's *glory*, [[D&C 98.3|D&C 98:3]].
+work together … to my name’s *glory*, [[D&C 98.3|D&C 98:3]].
 
-let thy house be filled ... with thy *glory*, [[D&C 109.37|D&C 109:37]].
+let thy house be filled … with thy *glory*, [[D&C 109.37|D&C 109:37]].
 
-new and everlasting covenant, it was instituted for ... my *glory*, [[D&C 132.6|D&C 132:6]].
+new and everlasting covenant, it was instituted for … my *glory*, [[D&C 132.6|D&C 132:6]].
 
 work of my Father continued, that he may be *glorified*, [[D&C 132.63|D&C 132:63]].
 
@@ -195,7 +194,7 @@ presence of God withdrew from Moses, that his *glory* was not upon Moses, [[Mose
 
 one God only will I worship, which is the God of *glory*, [[Moses 1.20|Moses 1:20]].
 
-my *glory* —to bring to pass the immortality and eternal life, [[Moses 1.39|Moses 1:39]].
+my *glory*—to bring to pass the immortality and eternal life, [[Moses 1.39|Moses 1:39]].
 
 thy will be done, and the *glory* be thine forever, [[Moses 4.2|Moses 4:2]].
 

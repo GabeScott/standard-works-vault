@@ -1,7 +1,6 @@
 # Subjection
 
-
-*See also* [[Obedience, Obedient, Obey.md|Obedience]]; [[Subject.md|Subject]]
+*See also* [[Obedience.md|Obedience]]; [[Subject.md|Subject]]
 
 they were brought into *subjection*, [[Psalms 106.42|Psalms 106:42]].
 
@@ -23,4 +22,4 @@ wives, be in *subjection* to your own husbands, [[1 Peter 3.1|1 Peter 3:1]].
 
 when we shall no longer be in *subjection* to our enemies, [[Mosiah 7.18|Mosiah 7:18]].
 
-snare of the adversary, which he has laid to ... bring you into *subjection*, [[Alma 12.6|Alma 12:6]].
+snare of the adversary, which he has laid to … bring you into *subjection*, [[Alma 12.6|Alma 12:6]].

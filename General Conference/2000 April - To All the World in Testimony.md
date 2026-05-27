@@ -1,5 +1,7 @@
 # To All the World in Testimony
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2000 General Conference*
@@ -26,7 +28,7 @@ The building of this structure has been a bold undertaking. We worried about it.
 
 At the general conference of April 1996, I said: “I regret that many who wish to meet with us in the Tabernacle this morning are unable to get in. There are very many out on the grounds. This unique and remarkable hall, built by our pioneer forebears and dedicated to the worship of the Lord, comfortably seats about 6,000. Some of you seated on those hard benches for two hours may question the word *comfortably.*
 
-“My heart reaches out to those who wish to get in and could not be accommodated. About a year ago I suggested to the Brethren that perhaps the time has come when we should study the feasibility of constructing another dedicated house of worship on a much larger scale that would accommodate three or four times the number who can be seated in this building” (in Conference Report, Apr. 1996, 88–89; or *Ensign,* May 1996, 65).
+“My heart reaches out to those who wish to get in and could not be accommodated. About a year ago I suggested to the Brethren that perhaps the time has come when we should study the feasibility of constructing another dedicated house of worship on a much larger scale that would accommodate three or four times the number who can be seated in this building” (in Conference Report, Apr. 1996, [[1996 April - This Glorious Easter Morn.md|88–89]]; or *Ensign,* May 1996, 65).
 
 The vision of a new hall was clearly in mind. Various architectural schemes were studied. One was finally selected. It included a massive structure to seat 21,000 with a theater accommodating another thousand. There would be no interior pillars to obstruct the view of the speaker. There would be trees and running water on the roof.
 
@@ -63,8 +65,3 @@ And so to all who have made this sacred edifice possible, and to all of you who 
 
 
 
-
-
-
-
-#General_Conference #Spirituality #Temple_Square

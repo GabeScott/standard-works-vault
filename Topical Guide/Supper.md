@@ -1,6 +1,5 @@
 # Supper
 
-
 *See also* [[Sacrament.md|Sacrament]]
 
 certain man made a great *supper*, [[Luke 14.16|Luke 14:16]].
@@ -9,9 +8,9 @@ cup after *supper*, saying, This cup is the new testament, [[Luke 22.20|Luke 22:
 
 they made him a *supper*, [[John 12.2|John 12:2]].
 
-*supper* being ended ... Judas ... to betray him, [[John 13.2|John 13:2]].
+*supper* being ended … Judas … to betray him, [[John 13.2|John 13:2]].
 
-this is not to eat the Lord's *supper*, [[1 Corinthians 11.20|1 Corinthians 11:20]].
+this is not to eat the Lord’s *supper*, [[1 Corinthians 11.20|1 Corinthians 11:20]].
 
 Blessed are they which are called unto the marriage *supper*, [[Revelation 19.9|Revelation 19:9]].
 

@@ -1,6 +1,8 @@
 # Seek Him with All Your Heart
 
-By Bishop L. Todd Budge - *Second Counselor in the Presiding Bishopric*
+Henry B. Eyring
+
+By Bishop L. Todd Budge - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -8,7 +10,7 @@ By Bishop L. Todd Budge - *Second Counselor in the Presiding Bishopric*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/10/45budge?lang=eng)
 
-Several years ago, my wife and I served as mission leaders in Tokyo, Japan. During a visit to our mission by then-Elder Russell M. Nelson, one of the missionaries asked him how best to respond when a person tells them that they are too busy to listen to them. With little hesitation, Elder Nelson said, “I would ask if they were too busy to eat lunch that day and then teach them that they have both a body and a spirit, and just as their body will die if not nourished, so will their spirit if not nourished by the good word of God.”
+Several years ago, my wife and I served as mission leaders in Tokyo, Japan. During a visit to our mission by then-Elder Russell M. Nelson, one of the missionaries asked him how best to respond when a person tells them that they are too busy to listen to them. With little hesitation, Elder Nelson said, “I would ask if they were too busy to eat lunch that day and then teach them that they have both a body and a spirit, and just as their body will die if not nourished, so will their spirit if not nourished by the good word of God.”
 
 It is interesting to note that the Japanese word for “busy,” *isogashii*, is made up of a character with two symbols (忙). The one on the left means “heart” or “spirit,” and the one on the right means “death”—suggesting perhaps, as President Nelson taught, that being too busy to nourish our spirits can lead us to die spiritually.[^1]
 
@@ -22,9 +24,9 @@ In other words, even though our salvation depends on *returning* to Him often an
 
 Perhaps this is why President Nelson has repeatedly pled with us to make time for the Lord in our lives—“each and every day.”[^4] He reminds us that “quiet time is sacred time—time that will facilitate personal revelation and instill peace.”[^5] But to hear the still voice of the Lord, he counseled, “you too must be still.”[^6]
 
-Being still, however, requires more than just making time for the Lord—it requires letting go of our doubtful and fearful thoughts and focusing our hearts and minds on Him. Elder David A. Bednar taught, “The Lord’s admonition to ‘be still’ entails much more than simply not talking or not moving.” To be still, he suggested, “may be a way of reminding us to focus upon the Savior unfailingly.”[^7]
+Being still, however, requires more than just making time for the Lord—it requires letting go of our doubtful and fearful thoughts and focusing our hearts and minds on Him. Elder David A. Bednar taught, “The Lord’s admonition to ‘be still’ entails much more than simply not talking or not moving.” To be still, he suggested, “may be a way of reminding us to focus upon the Savior unfailingly.”[^7]
 
-Being still is an act of faith and requires effort.[^8] *Lectures on Faith* states, “When a man works by faith he works by mental exertion.”[^9] President Nelson declared: “Our focus must be riveted on the Savior and His gospel. It is mentally rigorous to strive to look unto Him in *every* thought. But when we do, our doubts and fears flee.”[^10] Speaking of this need to focus our minds, President David O. McKay said: “I think we pay too little attention to the value of meditation, a principle of devotion. … Meditation is one of the … most sacred doors through which we pass into the presence of the Lord.”[^11]
+Being still is an act of faith and requires effort.[^8] *Lectures on Faith* states, “When a man works by faith he works by mental exertion.”[^9] President Nelson declared: “Our focus must be riveted on the Savior and His gospel. It is mentally rigorous to strive to look unto Him in *every* thought. But when we do, our doubts and fears flee.”[^10] Speaking of this need to focus our minds, President David O. McKay said: “I think we pay too little attention to the value of meditation, a principle of devotion. … Meditation is one of the … most sacred doors through which we pass into the presence of the Lord.”[^11]
 
 There is a word in Japanese, *mui*, that, for me, captures this more faith-filled, contemplative sense of what it means to be still. It is comprised of two characters (無為). The one on the left means “nothing” or “nothingness,” and the one on the right means “to do.” Together they mean “non-doing.” Taken literally, the word could be misinterpreted to mean “to do nothing” in the same way “to be still” can be misinterpreted as “not talking or moving.” However, like the phrase “to be still,” it has a higher meaning; for me it is a reminder to slow down and to live with greater spiritual awareness.
 
@@ -77,66 +79,61 @@ I testify that this promise is true. In the name of Jesus Christ, amen.
 
 [^2]: [[Isaiah 30.15|Isaiah 30:15–16]][[Isaiah 30.16|]]; emphasis added.
 
-[^3]: [[2 Nephi 10.24|2 Nephi 10:24]] invites us to re-con-cile our will to God’s will. “Re” means “again,” “con” means “with,” and “cile” is a chair or throne. To reconcile our will to God’s can mean to literally sit again with God.
+[^3]: [[2 Nephi 10.24|2 Nephi 10:24]] invites us to re-con-cile our will to God’s will. “Re” means “again,” “con” means “with,” and “cile” is a chair or throne. To reconcile our will to God’s can mean to literally sit again with God.
 
-[^4]: Russell M. Nelson, “[[2021 October - Make Time for the Lord.md|Make Time for the Lord]],” *Liahona*, Nov. 2021, 120.
+[^4]: Russell M. Nelson, “[[2021 October - Make Time for the Lord.md|Make Time for the Lord]],” *Liahona*, Nov. 2021, 120.
 
-[^5]: Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 80.
+[^5]: Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 80.
 
-[^6]: Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” 80.
+[^6]: Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” 80.
 
-[^7]: David A. Bednar, “[[2024 April - “Be Still, and Know That I Am God”.md|Be Still, and Know That I Am God]],” *Liahona*, May 2024, 28.
+[^7]: David A. Bednar, “[[2024 April - “Be Still, and Know That I Am God”.md|Be Still, and Know That I Am God]],” *Liahona*, May 2024, 28.
 
 [^8]: See [[Hebrews 11.6|Hebrews 11:6]].
 
 [^9]: *Lectures on Faith* (1985), 72.
 
-[^10]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 41.
+[^10]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 41.
 
-[^11]: David O. McKay, “Consciousness of God: Supreme Goal of Life,” *Improvement Era*, June 1967, 80.
+[^11]: David O. McKay, “Consciousness of God: Supreme Goal of Life,” *Improvement Era*, June 1967, 80.
 
 [^12]: See [[D&C 4.2|Doctrine and Covenants 4:2]].
 
 [^13]: See [[Mosiah 7.33|Mosiah 7:33]]; [[Ether 2.14|Ether 2:14]].
 
-[^14]: “A healthy, functioning heart is central to the health and well-being of each of us. However, what I have learned as a servant and witness of Jesus Christ is that a healthy physical heart is only half of our challenge. I take seriously the injunction to love God with *all* our hearts, because loving Him is what keeps us vibrant” (Russell M. Nelson, *The Heart of the Matter: What 100 Years of Living Have Taught Me* \[2023\], 8; emphasis added).
+[^14]: “A healthy, functioning heart is central to the health and well-being of each of us. However, what I have learned as a servant and witness of Jesus Christ is that a healthy physical heart is only half of our challenge. I take seriously the injunction to love God with *all* our hearts, because loving Him is what keeps us vibrant” (Russell M. Nelson, *The Heart of the Matter: What 100 Years of Living Have Taught Me* \[2023\], 8; emphasis added).
 
 [^15]: See [[Psalms 14.2|Psalm 14:2]]; [[Revelation 3.20|Revelation 3:20]].
 
-[^16]: [[3 Nephi 10.5|3 Nephi 10:5]]; emphasis added.
+[^16]: [[3 Nephi 10.5|3 Nephi 10:5]]; emphasis added.
 
-[^17]: Elder Dale G. Renlund taught: “Changing our behavior and *returning* to the ‘right road’ are part of repentance, but only part. Real repentance also includes a *turning of our heart and will to God* and a renunciation of sin” (“[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 121; emphasis added).
+[^17]: Elder Dale G. Renlund taught: “Changing our behavior and *returning* to the ‘right road’ are part of repentance, but only part. Real repentance also includes a *turning of our heart and will to God* and a renunciation of sin” (“[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 121; emphasis added).
 
-[^18]: [[3 Nephi 10.6|3 Nephi 10:6]]; emphasis added.
+[^18]: [[3 Nephi 10.6|3 Nephi 10:6]]; emphasis added.
 
-[^19]: Elder Neal A. Maxwell taught, “Increased consecration is not so much a demand for more hours of Church work as it is for more awareness of whose work this really is!” (“[[1992 October - “Settle This in Your Hearts”.md|Settle This in Your Hearts]],” *Ensign*, Nov. 1992, 67).
+[^19]: Elder Neal A. Maxwell taught, “Increased consecration is not so much a demand for more hours of Church work as it is for more awareness of whose work this really is!” (“[[1992 October - “Settle This in Your Hearts”.md|Settle This in Your Hearts]],” *Ensign*, Nov. 1992, 67).
 
-[^20]: Commenting on how his prayers have evolved over time, Desmond Tutu stated: “I think \[I am\] trying to grow, in just being there. Like when you sit in front of a fire in winter—you are just there in front of the fire. You don’t have to be smart or anything. The fire warms you” (“Desmond Tutu, Insisting We Are ‘Made for Goodness’” \[NPR interview by Renee Montagne, Mar. 11, 2010\], npr.org).
+[^20]: Commenting on how his prayers have evolved over time, Desmond Tutu stated: “I think \[I am\] trying to grow, in just being there. Like when you sit in front of a fire in winter—you are just there in front of the fire. You don’t have to be smart or anything. The fire warms you” (“Desmond Tutu, Insisting We Are ‘Made for Goodness’” \[NPR interview by Renee Montagne, Mar. 11, 2010\], npr.org).
 
-[^21]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–19.
+[^21]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 117–19.
 
-[^22]: See Russell M. Nelson, “[[2000 October - Living by Scriptural Guidance.md|Living by Scriptural Guidance]],” *Ensign*, Nov. 2000, 16–18; or *Liahona*, Jan. 2001, 19–22; see also Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127–28.
+[^22]: See Russell M. Nelson, “[[2000 October - Living by Scriptural Guidance.md|Living by Scriptural Guidance]],” *Ensign*, Nov. 2000, 16–18; or *Liahona*, Jan. 2001, 19–22; see also Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127–28.
 
-[^23]: See [[3 Nephi 17.3|3 Nephi 17:3]]. President David O. McKay declared:
+[^23]: See [[3 Nephi 17.3|3 Nephi 17:3]]. President David O. McKay declared:
 
 [^24]: See [[D&C 59.10|Doctrine and Covenants 59:10]].
 
-[^25]: “When you bring your temple recommend, a contrite heart, and a seeking mind to the Lord’s house of learning, *He* will teach you” (Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 95).
+[^25]: “When you bring your temple recommend, a contrite heart, and a seeking mind to the Lord’s house of learning, *He* will teach you” (Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 95).
 
-[^26]: “He will lead and guide *you* in your personal life if you will *make time for Him* in your life—each and every day” (Russell M. Nelson, “[[2021 October - Make Time for the Lord.md|Make Time for the Lord,]]” 121).
+[^26]: “He will lead and guide *you* in your personal life if you will *make time for Him* in your life—each and every day” (Russell M. Nelson, “[[2021 October - Make Time for the Lord.md|Make Time for the Lord,]]” 121).
 
 [^27]: See [[Luke 10.40|Luke 10:40–42]][[Luke 10.41|]][[Luke 10.42|]].
 
-[^28]: [[3 Nephi 19.19|3 Nephi 19:19]]; see also Joseph Smith Translation, Matthew 4:1 (in [[Matthew 4.1|Matthew 4:1]], footnote *a*); [[Matthew 5.1|Matthew 5:1]]; [[Matthew 14.13|14:13, 23]][[Matthew 14.23|]]; [[Mark 1.35|Mark 1:35]]; [[Mark 6.46|6:46]]; [[Luke 5.16|Luke 5:16]]; [[Luke 6.12|6:12]].
+[^28]: [[3 Nephi 19.19|3 Nephi 19:19]]; see also Joseph Smith Translation, Matthew 4:1 (in [[Matthew 4.1|Matthew 4:1]], footnote *a*); [[Matthew 5.1|Matthew 5:1]]; [[Matthew 14.13|14:13, 23]][[Matthew 14.23|]]; [[Mark 1.35|Mark 1:35]]; [[Mark 6.46|6:46]]; [[Luke 5.16|Luke 5:16]]; [[Luke 6.12|6:12]].
 
-[^29]: See [[3 Nephi 21.29|3 Nephi 21:29]].
+[^29]: See [[3 Nephi 21.29|3 Nephi 21:29]].
 
 [^30]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
 [^31]: [[Jeremiah 29.13|Jeremiah 29:13]]; see also [[Lamentations 3.25|Lamentations 3:25]].
 
-
-
-
-
-#Listening #Prayer #Worship

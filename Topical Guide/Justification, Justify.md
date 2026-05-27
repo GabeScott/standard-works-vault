@@ -1,6 +1,5 @@
 # Justification, Justify
 
-
 *See also* [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]
 
 I will not *justify* the wicked, [[Exodus 23.7|Exodus 23:7]].
@@ -15,7 +14,7 @@ mightest be *justified* when thou speakest, [[Psalms 51.4|Psalms 51:4]] ([[Roman
 
 in thy sight shall no man living be *justified*, [[Psalms 143.2|Psalms 143:2]].
 
-He that *justifieth* the wicked ... abomination, [[Proverbs 17.15|Proverbs 17:15]].
+He that *justifieth* the wicked … abomination, [[Proverbs 17.15|Proverbs 17:15]].
 
 Which *justify* the wicked for reward, [[Isaiah 5.23|Isaiah 5:23]] ([[2 Nephi 15.23|2 Nephi 15:23]]).
 
@@ -31,13 +30,13 @@ the publicans, *justified* God, [[Luke 7.29|Luke 7:29]].
 
 he, willing to *justify* himself, said unto Jesus, [[Luke 10.29|Luke 10:29]].
 
-Ye ... *justify* yourselves before men, [[Luke 16.15|Luke 16:15]].
+Ye … *justify* yourselves before men, [[Luke 16.15|Luke 16:15]].
 
-by him all that believe are *justified* from all things ... could not be *justified* by the law, [[Acts 13.39|Acts 13:39]].
+by him all that believe are *justified* from all things … could not be *justified* by the law, [[Acts 13.39|Acts 13:39]].
 
 doers of the law shall be *justified*, [[Romans 2.13|Romans 2:13]].
 
-by ... the law there shall no flesh be *justified*, [[Romans 3.20|Romans 3:20]] ([[2 Nephi 2.5|2 Nephi 2:5]]).
+by … the law there shall no flesh be *justified*, [[Romans 3.20|Romans 3:20]] ([[2 Nephi 2.5|2 Nephi 2:5]]).
 
 man is *justified* by faith without the deeds, [[Romans 3.28|Romans 3:28]].
 
@@ -65,13 +64,13 @@ being *justified* by his grace, we should be made heirs, [[Titus 3.7|Titus 3:7]]
 
 Was not Abraham our father *justified* by works, [[James 2.21|James 2:21]].
 
-by works a man is *justified*, and not by faith only, [[James 2.24|James 2:24]] ([[James 2.14|2:14-26]][[James 2.15|]][[James 2.16|]][[James 2.17|]][[James 2.18|]][[James 2.19|]][[James 2.20|]][[James 2.21|]][[James 2.22|]][[James 2.23|]][[James 2.24|]][[James 2.25|]][[James 2.26|]]).
+by works a man is *justified*, and not by faith only, [[James 2.24|James 2:24]].
 
 do ye suppose that God *justifieth* you in this thing, [[Jacob 2.14|Jacob 2:14]].
 
 if ye say this in your hearts ye remain *guiltless*, [[Mosiah 4.25|Mosiah 4:25]].
 
-retaining a remission of your sins ... walk *guiltless*, [[Mosiah 4.26|Mosiah 4:26]].
+retaining a remission of your sins … walk *guiltless*, [[Mosiah 4.26|Mosiah 4:26]].
 
 thus retaining a *remission* of their sins, [[Alma 4.14|Alma 4:14]].
 
@@ -81,12 +80,10 @@ him will I hold *guiltless* before my Father, [[3 Nephi 27.16|3 Nephi 27:16]].
 
 he that is found *guiltless* before him, [[Mormon 7.7|Mormon 7:7]].
 
-we know that *justification* ... is just and true, [[D&C 20.30|D&C 20:30]].
+we know that *justification* … is just and true, [[D&C 20.30|D&C 20:30]].
 
 abide not in those conditions are not *justified*, [[D&C 88.39|D&C 88:39]].
 
-this is an ensample ... for *justification* before me, [[D&C 98.38|D&C 98:38]].
+this is an ensample … for *justification* before me, [[D&C 98.38|D&C 98:38]].
 
 by the Spirit ye are *justified*, [[Moses 6.60|Moses 6:60]].
-
-*See also* [[Romans 3.30|Romans 3:30]]; [[1 Corinthians 6.11|1 Corinthians 6:11]]; [[Galatians 3.8|Galatians 3:8]], [[Galatians 3.11|Galatians 3:11]].

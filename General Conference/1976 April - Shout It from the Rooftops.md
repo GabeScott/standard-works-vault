@@ -1,5 +1,7 @@
 # Shout It from the Rooftops
 
+Spencer W. Kimball
+
 By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
@@ -32,15 +34,10 @@ As with the Liahona I have found in my life, you can read concerning ways of the
 
 You who are Americans assembled here have an expression which I have learned, and it says, “Life is not all peaches and cream.” Although in the season we have plenty of peaches in Holland and cream enough all year long, we are happy with the sure knowledge that the Lord has placed us on this earth as part of his great plan of salvation. That is, brethren, what brings happiness to us.
 
-In closing I bear you my testimony that these brethren with whom I am privileged to share the stand today are men of God, that President Spencer W. Kimball is indeed a prophet of the living God to guide us in these the latter days. I testify that these brethren who are members of the Council of the Twelve are indeed called to be special witnesses of the name of Christ in all the world, like the members of the First Council of the Seventy have been called to preach the gospel in all the world. I love and admire them for the example they set, for their friendship, and for the way they teach us by the Spirit all the things we need to do to return to our Heavenly Father.
+In closing I bear you my testimony that these brethren with whom I am privileged to share the stand today are men of God, that President Spencer W. Kimball is indeed a prophet of the living God to guide us in these the latter days. I testify that these brethren who are members of the Council of the Twelve are indeed called to be special witnesses of the name of Christ in all the world, like the members of the First Council of the Seventy have been called to preach the gospel in all the world. I love and admire them for the example they set, for their friendship, and for the way they teach us by the Spirit all the things we need to do to return to our Heavenly Father.
 
 This conference will touch our hearts and change our lives, and I bear witness to you that your life will not be the same when you return to your respective wards and branches. We will return edified, wiser, more sensitive to the needs of others, and better equipped with the knowledge we need in our homes and therefore will be happier and closer to our Heavenly Father. May peace and happiness be with you this day and always, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Missionary_Work #Preparation

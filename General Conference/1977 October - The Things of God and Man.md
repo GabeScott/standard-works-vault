@@ -1,14 +1,16 @@
 # The Things of God and Man
 
+Spencer W. Kimball
+
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1977/10/the-things-of-god-and-man?lang=eng)
 
-I am very happy to greet you, my brothers and sisters, and for the few moments that I stand before you today, I have selected as a text for my talk the words of the apostle Paul as recorded in the second chapter of First Corinthians, where Paul said that the things of God are understood by the Spirit of God, and the things of man are understood by the spirit of man. (See [[1 Corinthians 2.11|1 Cor. 2:11]].)
+I am very happy to greet you, my brothers and sisters, and for the few moments that I stand before you today, I have selected as a text for my talk the words of the apostle Paul as recorded in the second chapter of First Corinthians, where Paul said that the things of God are understood by the Spirit of God, and the things of man are understood by the spirit of man. (See [[1 Corinthians 2.11|1 Cor. 2:11]].)
 
-“But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him.” ([[1 Corinthians 2.14|1 Cor. 2:14]].) I take it that that is the reason we have nearly a thousand churches here in this great land of ours, because men with their own wisdom have not been able to understand the things of God as they are given by our Father’s holy prophets because, as Paul said, they are foolishness unto them.
+“But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him.” ([[1 Corinthians 2.14|1 Cor. 2:14]].) I take it that that is the reason we have nearly a thousand churches here in this great land of ours, because men with their own wisdom have not been able to understand the things of God as they are given by our Father’s holy prophets because, as Paul said, they are foolishness unto them.
 
 I think of the words of the prophet Isaiah when he said:
 
@@ -44,7 +46,7 @@ In the Book of Mormon we read the words of the prophet Mormon to his son Moroni,
 
 “And he that saith that little children need baptism denieth the mercies of Christ, and setteth at naught the atonement of him and the power of redemption.” ([[Moroni 8.9|Moro. 8:9, 20]][[Moroni 8.20|]].)
 
-I think the thought in sprinkling little children (infant baptisms) was to wash away the sin of Adam and Eve, but the apostle Paul tells us, “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].) If that were not true, how would he have atoned for the sins of Adam unless he wiped away the original sin committed by Adam and Eve? And so they have changed the laws and the ordinances.
+I think the thought in sprinkling little children (infant baptisms) was to wash away the sin of Adam and Eve, but the apostle Paul tells us, “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].) If that were not true, how would he have atoned for the sins of Adam unless he wiped away the original sin committed by Adam and Eve? And so they have changed the laws and the ordinances.
 
 Now they believe today (man’s interpretation) that we no more need prophets and apostles, that all those things have been done away, and prophecies, too. But Amos said, “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].)
 
@@ -86,13 +88,8 @@ You remember when John saw the final winding-up scenes, when we should have a ne
 
 Now there are many other differences, but there isn’t time to discuss them. But I would like to mention just one more. You remember how the whole world believed that the thief upon the cross went to heaven with the Savior because He said: “To day shalt thou be with me in paradise.” ([[Luke 23.43|Luke 23:43]].) Now the men of this world, understanding things according to man’s wisdom, thought he went to heaven. But according to divine truth, he went only to paradise where the Savior arranged for the gospel to be preached to him to prepare him so that he would be worthy to stand with the sanctified and the redeemed of his people.
 
-Now there are many other differences, as we know, and as we study, so that we understand what Paul meant when he said that the things of God are understood by the Spirit of God, and the things of man are understood by the spirit of man, and “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him.” ([[1 Corinthians 2.11|1 Cor. 2:11–14]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]].) May the Lord help us all to understand his truths and to follow the leadership of our living prophet, I humbly pray in the name of the Lord Jesus Christ. Amen.
+Now there are many other differences, as we know, and as we study, so that we understand what Paul meant when he said that the things of God are understood by the Spirit of God, and the things of man are understood by the spirit of man, and “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him.” ([[1 Corinthians 2.11|1 Cor. 2:11–14]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]].) May the Lord help us all to understand his truths and to follow the leadership of our living prophet, I humbly pray in the name of the Lord Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Prophecy #Spirituality

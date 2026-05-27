@@ -1,5 +1,7 @@
 # The Transforming Power of Faith and Character
 
+Thomas S. Monson
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -16,7 +18,7 @@ Faith in the future is demonstrated by a couple sealed in the temple. They under
 
 Faith and character are intimately related. Faith in the power of obedience to the commandments of God will forge strength of character available to you in times of urgent need. Such character is not developed in moments of great challenge or temptation. That is when it is intended to be used. Your exercise of faith in true principles builds character; fortified character expands your capacity to exercise more faith. As a result, your capacity and confidence to conquer the trials of life are enhanced. The more your character is fortified, the more enabled you are to benefit from exercising the power of faith. You will discover how faith and character interact to strengthen one another. Character is woven patiently from threads of applied principle, doctrine, and obedience.
 
-President Hugh B. Brown said: “Wherever in life great spiritual values await man’s appropriation, only faith can appropriate them. Man cannot live without faith, because in life’s adventure the central problem is character-building—which is not a product of logic, but of faith in ideals and sacrificial devotion to them” (in Conference Report, Oct. 1969, 105). We exercise faith by doing. The *Lectures on Faith* state that “faith \[is\] the principle of action and of power” (*Lectures on Faith* \[1985\], 72).
+President Hugh B. Brown said: “Wherever in life great spiritual values await man’s appropriation, only faith can appropriate them. Man cannot live without faith, because in life’s adventure the central problem is character-building—which is not a product of logic, but of faith in ideals and sacrificial devotion to them” (in Conference Report, Oct. 1969, 105). We exercise faith by doing. The *Lectures on Faith* state that “faith \[is\] the principle of action and of power” (*Lectures on Faith* \[1985\], 72).
 
 We *become* what we want to *be* by consistently *being* what we want to *become* each day. Righteous character is a precious manifestation of what you are becoming. Righteous character is more valuable than any material object you own, any knowledge you have gained through study, or any goals you have attained, no matter how well lauded by mankind. In the next life your righteous character will be evaluated to assess how well you used the privilege of mortality.
 
@@ -89,8 +91,3 @@ If you have determined to live righteously, don’t become discouraged. Life may
 
 
 
-
-
-
-
-#Character #Dedication #Faith #Holy_Ghost #Mortality #Obedience

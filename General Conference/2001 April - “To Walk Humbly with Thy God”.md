@@ -1,5 +1,7 @@
 # “To Walk Humbly with Thy God”
 
+Gordon B. Hinckley
+
 By Elder Marlin K. Jensen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -54,7 +56,7 @@ I have seen a constant humility in my wonderful wife. Like Nephi turning to Lehi
 
 I am often deeply moved by evidences of humility in the scriptures. Consider John the Baptist declaring of the Savior, “He must increase, but I must decrease.”[^11] Think of Moroni pleading with us not to condemn him because of his imperfections, but to thank God that He made Moroni’s imperfections manifest so that we can learn to be wiser than Moroni was.[^12] Nor should we forget the exclamation of Moses, who, after experiencing the greatness of God and His creations, acknowledged that “for this cause I know that man is nothing, which thing I never had supposed.”[^13] Is not Moses’ recognition of our complete dependence on God the beginning of true humility?
 
-I resonate to the English author John Ruskin’s memorable statement that “the first test of a truly great man is his humility.” He continued: “I do not mean, by humility, doubt of his own power. … \[But really\] great men … have a curious … feeling that … greatness is not *in* them, but *through* them. … And they see something Divine … in every other man … , and are endlessly, foolishly, incredibly merciful.”[^14]
+I resonate to the English author John Ruskin’s memorable statement that “the first test of a truly great man is his humility.” He continued: “I do not mean, by humility, doubt of his own power. … \[But really\] great men … have a curious … feeling that … greatness is not *in* them, but *through* them. … And they see something Divine … in every other man … , and are endlessly, foolishly, incredibly merciful.”[^14]
 
 The Old Testament prophet Micah, like our living prophet, President Hinckley, was concerned about nurturing the development of humility. To his people he said, “He hath shewed thee, O man, what is good; and what doth the Lord require of thee, but to do justly, and to love mercy, and to walk humbly with thy God?”[^15]
 
@@ -63,7 +65,7 @@ God bless us all to walk humbly with Him and with all men. I testify that Presid
 
 
 
-[^1]: See Neal A. Maxwell, in Conference Report, Oct. 2000, 48; or *Ensign,* Nov. 2000, 37; Dallin H. Oaks, in Conference Report, Oct. 2000, 40–43; or *Ensign,* Nov. 2000, 32–33; Russell M. Nelson, in Conference Report, Oct. 2000, 19; or *Ensign,* Nov. 2000, 17.
+[^1]: See Neal A. Maxwell, in Conference Report, Oct. 2000, [[2000 October - The Tugs and Pulls of the World.md|48]]; or *Ensign,* Nov. 2000, 37; Dallin H. Oaks, in Conference Report, Oct. 2000, [[2000 October - The Challenge to Become.md|40–43]]; or *Ensign,* Nov. 2000, 32–33; Russell M. Nelson, in Conference Report, Oct. 2000, [[2000 October - Living by Scriptural Guidance.md|19]]; or *Ensign,* Nov. 2000, 17.
 
 [^2]: “A Prophet’s Counsel and Prayer for Youth,” *Ensign,* Jan. 2001, 4, 10.
 
@@ -77,11 +79,11 @@ God bless us all to walk humbly with Him and with all men. I testify that Presid
 
 [^7]: Quoted in Truman G. Madsen, “Hugh B. Brown—Youthful Veteran,” *New Era,* Apr. 1976, 16.
 
-[^8]: In Conference Report, Apr. 1989, 6; or *Ensign,* May 1989, 6.
+[^8]: In Conference Report, Apr. 1989, [[1989 April - Beware of Pride.md|6]]; or *Ensign,* May 1989, 6.
 
 [^9]: *Mere Christianity,* rev. ed. (1960), 95.
 
-[^10]: [[2 Nephi 33.11|2 Ne. 33:11]].
+[^10]: [[2 Nephi 33.11|2 Ne. 33:11]].
 
 [^11]: [[John 3.30|John 3:30]].
 
@@ -95,8 +97,3 @@ God bless us all to walk humbly with Him and with all men. I testify that Presid
 
 [^16]: See [[Mosiah 27.31|Mosiah 27:31]]; [[D&C 88.104|D&C 88:104]].
 
-
-
-
-
-#Atonement #Courage #Humility #Jesus_Christ #Love #Pride #Repentance #Spirituality #Tolerance

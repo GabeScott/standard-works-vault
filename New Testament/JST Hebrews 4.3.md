@@ -4,6 +4,3 @@
 
 [JST Hebrews 4:3](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-heb/4?lang=eng)
 
-
-
-

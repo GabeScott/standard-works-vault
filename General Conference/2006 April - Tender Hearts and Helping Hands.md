@@ -1,5 +1,7 @@
 # Tender Hearts and Helping Hands
 
+Robert D. Hales
+
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2006 General Conference*
@@ -83,12 +85,7 @@ It is impossible for me to find the words to adequately express the sacred feeli
 
 [^4]: [[Galatians 6.2|Galatians 6:2]].
 
-[^5]: In Conference Report, Oct. 2001, 4–5; or *Ensign,* Nov. 2001, 6.
+[^5]: In Conference Report, Oct. 2001, [[2001 October - Living in the Fulness of Times.md|4–5]]; or *Ensign,* Nov. 2001, 6.
 
 [^6]: [[Luke 6.38|Luke 6:38]].
 
-
-
-
-
-#Charity #Service

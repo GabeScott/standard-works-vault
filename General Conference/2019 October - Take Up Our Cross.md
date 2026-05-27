@@ -1,5 +1,7 @@
 # Take Up Our Cross
 
+Jeffrey R. Holland
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
@@ -65,7 +67,7 @@ I testify to you that following our Master’s footsteps and waiting on Him who 
 
 
 
-[^1]: See [[Matthew 11.29|Matthew 11:29–30]][[Matthew 11.30|]]; [[James 2.24|James 2:24]]; [[2 Nephi 25.23|2 Nephi 25:23]].
+[^1]: See [[Matthew 11.29|Matthew 11:29–30]][[Matthew 11.30|]]; [[James 2.24|James 2:24]]; [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^2]: See [[Matthew 16.21|Matthew 16:21]].
 
@@ -81,7 +83,7 @@ I testify to you that following our Master’s footsteps and waiting on Him who 
 
 [^8]: See [[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]].
 
-[^9]: See [[JST Matthew 16.25|Joseph Smith Translation, Matthew 16:25–29]][[JST Matthew 16.26|]][[JST Matthew 16.27|]][[JST Matthew 16.28|]][[JST Matthew 16.29|]] (in the Bible appendix); see also Guide to the Scriptures, “[Lust](https://churchofjesuschrist.org/study/scriptures/gs/lust?lang=eng)”; “[Natural Man](https://churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng)”; “[Sensual, Sensuality](https://churchofjesuschrist.org/study/scriptures/gs/sensual-sensuality?lang=eng)”; “[Wicked, Wickedness](https://churchofjesuschrist.org/study/scriptures/gs/wicked-wickedness?lang=eng)”; [scriptures.ChurchofJesusChrist.org](https://scriptures.churchofjesuschrist.org).
+[^9]: See [[JST Matthew 16.25|Joseph Smith Translation, Matthew 16:25–29]][[JST Matthew 16.26|]][[JST Matthew 16.27|]][[JST Matthew 16.28|]][[JST Matthew 16.29|]] (in the Bible appendix); see also Guide to the Scriptures, “[Lust](https://www.churchofjesuschrist.org/study/scriptures/gs/lust?lang=eng)”; “[Natural Man](https://www.churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng)”; “[Sensual, Sensuality](https://www.churchofjesuschrist.org/study/scriptures/gs/sensual-sensuality?lang=eng)”; “[Wicked, Wickedness](https://www.churchofjesuschrist.org/study/scriptures/gs/wicked-wickedness?lang=eng)”; [scriptures.ChurchofJesusChrist.org](https://scriptures.churchofjesuschrist.org).
 
 [^10]: See [[Alma 1.25|Alma 1:25]].
 
@@ -89,33 +91,33 @@ I testify to you that following our Master’s footsteps and waiting on Him who 
 
 [^12]: See [[Alma 60.23|Alma 60:23]].
 
-[^13]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^13]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
-[^14]: See Bruce C. Hafen, *The Broken Heart: Applying the Atonement to Life’s Experiences* (1989), 155–56.
+[^14]: See Bruce C. Hafen, *The Broken Heart: Applying the Atonement to Life’s Experiences* (1989), 155–56.
 
 [^15]: See [[D&C 46.19|Doctrine and Covenants 46:19, 21]][[D&C 46.21|]].
 
-[^16]: See Neal A. Maxwell, “[Repentance](https://churchofjesuschrist.org/study/ensign/1991/11/repentance?lang=eng&id=p33#p33),” *Ensign,* Nov. 1991, 32.
+[^16]: See Neal A. Maxwell, “[Repentance](https://www.churchofjesuschrist.org/study/ensign/1991/11/repentance?lang=eng&id=p33#p33),” *Ensign,* Nov. 1991, 32.
 
 [^17]: See [[Ezekiel 18.31|Ezekiel 18:31]]; [[Ezekiel 36.26|36:26]].
 
 [^18]: See [[Ether 12.27|Ether 12:27]].
 
-[^19]: See [[1 Nephi 7.21|1 Nephi 7:21]].
+[^19]: See [[1 Nephi 7.21|1 Nephi 7:21]].
 
 [^20]: [[D&C 121.29|Doctrine and Covenants 121:29]].
 
-[^21]: See [[3 Nephi 27.6|3 Nephi 27:6]].
+[^21]: See [[3 Nephi 27.6|3 Nephi 27:6]].
 
 [^22]: See [[Mosiah 2.41|Mosiah 2:41]].
 
-[^23]: See [[3 Nephi 1.4|3 Nephi 1:4–7]][[3 Nephi 1.5|]][[3 Nephi 1.6|]][[3 Nephi 1.7|]].
+[^23]: See [[3 Nephi 1.4|3 Nephi 1:4–7]][[3 Nephi 1.5|]][[3 Nephi 1.6|]][[3 Nephi 1.7|]].
 
 [^24]: See [[D&C 101.16|Doctrine and Covenants 101:16]].
 
-[^25]: See [[2 Nephi 31.20|2 Nephi 31:20]].
+[^25]: See [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^26]: See [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]]; [[3 Nephi 27.27|27:27]].
+[^26]: See [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]]; [[3 Nephi 27.27|27:27]].
 
 [^27]: [[Psalms 27.14|Psalm 27:14]].
 
@@ -123,8 +125,3 @@ I testify to you that following our Master’s footsteps and waiting on Him who 
 
 [^29]: See [[Matthew 11.30|Matthew 11:30]]; [[Mosiah 24.14|Mosiah 24:14]].
 
-
-
-
-
-#Discipleship #Endurance #Grace #Hope #Spirituality

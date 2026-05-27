@@ -1,6 +1,8 @@
 # The Lord Offers Everyone a Way Back from Sin
 
-By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -36,7 +38,7 @@ The message I am sharing with you today is that the gospel protects us and that 
 
 “It isn’t easy to admit past sins even to ourselves. I found that it was as hard for me to admit the exact nature of my sins to myself as it was to admit them to the bishop. I didn’t want to think about them.
 
-“After my confession the bishop commended me on taking the first step toward returning to my Heavenly Father and outlined additional steps to prepare me for the day when I would realize that I had truly been forgiven. He emphasized that he, himself, could not forgive me. That was the Lord’s decision. He helped me to understand that I *could* be forgiven, that my Heavenly Father loves me, that I could gain an awareness of my future goals and not constantly condemn myself all of my life, thus halting my eternal progression. He asked me to read the *Miracle of Forgiveness* by President Spencer W. Kimball. It helped a great deal in making me aware of the process of forgiveness. We had several appointments, the bishop and I, so that he could help me to see my course toward reestablishing myself in good standing in the Church.
+“After my confession the bishop commended me on taking the first step toward returning to my Heavenly Father and outlined additional steps to prepare me for the day when I would realize that I had truly been forgiven. He emphasized that he, himself, could not forgive me. That was the Lord’s decision. He helped me to understand that I *could* be forgiven, that my Heavenly Father loves me, that I could gain an awareness of my future goals and not constantly condemn myself all of my life, thus halting my eternal progression. He asked me to read the *Miracle of Forgiveness* by President Spencer W. Kimball. It helped a great deal in making me aware of the process of forgiveness. We had several appointments, the bishop and I, so that he could help me to see my course toward reestablishing myself in good standing in the Church.
 
 “Following my interview with the bishop, I found myself alternating between depression in which I wondered if I would ever be forgiven and becoming lax in doing the things I should be doing. I have learned that ‘to change’ isn’t easy. It takes time. One must learn to ‘try’ and ‘try again.’
 
@@ -60,9 +62,26 @@ The steps of repentance have been clearly defined in the scriptures:
 
 4. Make restitution for the wrongs we have committed by—
 
+Repenting in prayer to the Lord.
+
+
+Confessing to our bishop, an ordained common judge in Israel and the presiding high priest in our ward.
+
+
+Apologizing to those we have offended.
+
+
+
 5. The depth of our repentance must be as deep as the sin we have committed. There is no easy way. It hurts, but it also cleanses.
 
 6. Time is the next element of repentance and restitution:
+
+Time to prove to ourselves, to our Lord, to our fellowmen that we have committed ourselves to a new way of life.
+
+
+Time to study the scriptures and dedicate our lives to the commandments we learn we must live to be happy and have joy.
+
+
 
 7. Complete forgiveness of ourselves and forgiveness without any feelings of retribution toward those who have offended us.
 
@@ -79,8 +98,3 @@ May our Heavenly Father bless us to dedicate our lives today. There is no better
 
 
 
-
-
-
-
-#Repentance

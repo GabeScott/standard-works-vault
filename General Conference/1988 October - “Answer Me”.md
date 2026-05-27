@@ -1,5 +1,7 @@
 # “Answer Me”
 
+Ezra Taft Benson
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -20,7 +22,7 @@ We offend God not only by our ingratitude, brothers and sisters, but also by not
 
 Besides, we are all beggars anyway (see [[Mosiah 4.19|Mosiah 4:19]]), beggars rescued by the Creator of the universe who lived humbly as a person “of no reputation.” ([[Philippians 2.7|Philip. 2:7]].) In contrast, we are sometimes so anxious about our personal images, when it is His image we should have in our countenances. (See [[Alma 5.14|Alma 5:14]].)
 
-**“Is it lawful to do good on the sabbath?”** Jesus counter-challenged. ([[Mark 3.4|Mark 3:4]]; italics added.) Can we not keep the spirit of the law without leaving other things undone? Without such spiritual balance, staying on the straight and narrow path will be a great trial for us. (See [[2 Corinthians 3.6|2 Cor. 3:6]].)
+**“Is it lawful to do good on the sabbath?”** Jesus counter-challenged. ([[Mark 3.4|Mark 3:4]]; italics added.) Can we not keep the spirit of the law without leaving other things undone? Without such spiritual balance, staying on the straight and narrow path will be a great trial for us. (See [[2 Corinthians 3.6|2 Cor. 3:6]].)
 
 Even seeking after things which are praiseworthy or lovely is accelerated by believing all the Articles of Faith which precede article thirteen. Similarly, the followers of the Ten Commandments are not divided into two vast platoons—one specializing in the “thou shalts” and the other in the “thou shalt nots.”
 
@@ -36,7 +38,7 @@ We are poor bookkeepers, indeed!
 
 **Why does this generation seek a sign?** queried Jesus with a deep sigh. (See [[Mark 8.11|Mark 8:11]].) The more wicked and adulterous the people of a particular period, the more they demand signs as a condition of belief. Sensual individuals crave and live by sensations. Disciples, instead, walk and “overcome by faith” ([[D&C 76.53|D&C 76:53]]), accepting gratefully the evidence of things not seen which are true (see [[Hebrews 11.1|Heb. 11:1]]; [[Alma 32.21|Alma 32:21]]) and using quietly God’s spiritual gifts.
 
-**What desirest thou of me?** the resurrected Jesus inquired one by one of the Nephite Twelve. (See [[3 Nephi 28.1|3 Ne. 28:1]].) He knows our individual bearing capacities. He will lead us along, not herd us. (See [[D&C 78.18|D&C 78:18]]; [[D&C 50.40|50:40]].) Foremost, the gospel can even educate our desires; then these desires can work affirmatively in us and for us.
+**What desirest thou of me?** the resurrected Jesus inquired one by one of the Nephite Twelve. (See [[3 Nephi 28.1|3 Ne. 28:1]].) He knows our individual bearing capacities. He will lead us along, not herd us. (See [[D&C 78.18|D&C 78:18]]; [[D&C 50.40|50:40]].) Foremost, the gospel can even educate our desires; then these desires can work affirmatively in us and for us.
 
 Are we really ready, however, for the responsibility and the high adventure of being tutored by Him who genuinely wishes to honor our individual desires, if we do not desire amiss?
 
@@ -44,37 +46,37 @@ As for what God gives differentially to others, we need not be concerned. Peter,
 
 **“What think ye of Christ?”** ([[Matthew 22.42|Matt. 22:42]].) However the world ignores or responds to it, this is the reverberating and the great question! (See [[Alma 34.5|Alma 34:5–6]][[Alma 34.6|]].) Can we answer with both our lives and our tongues, “Thou art the Christ, the Son of the living God”? ([[Matthew 16.16|Matt. 16:16]].) Until we can, whatever else we say and do will, in the end, make little difference.
 
-**“Will ye also go away?”** ([[John 6.67|John 6:67]]), the Master asked His disciples after many of his fair-weather followers went back, and “walked no more with him.” ([[John 6.66|V. 66]].) The very process of daily living makes and breaks followers. Life’s stern seasons and storms overturn those not grounded and rooted. (See [[Ephesians 3.17|Eph. 3:17]]; [[Colossians 1.23|Col. 1:23]]; [[1 Peter 5.10|1 Pet. 5:10]].) However, those who “believe and are sure” ([[John 6.69|John 6:69]]) about Jesus’ divinity do not panic, for instance, at the arrival of a new volley of fiery darts; they merely hold aloft the quenching shield of faith.
+**“Will ye also go away?”** ([[John 6.67|John 6:67]]), the Master asked His disciples after many of his fair-weather followers went back, and “walked no more with him.” ([[John 6.66|V. 66]].) The very process of daily living makes and breaks followers. Life’s stern seasons and storms overturn those not grounded and rooted. (See [[Ephesians 3.17|Eph. 3:17]]; [[Colossians 1.23|Col. 1:23]]; [[1 Peter 5.10|1 Pet. 5:10]].) However, those who “believe and are sure” ([[John 6.69|John 6:69]]) about Jesus’ divinity do not panic, for instance, at the arrival of a new volley of fiery darts; they merely hold aloft the quenching shield of faith.
 
 Such are but a few of Jesus’ searching questions.
 
 May I add several much lesser questions of my own? Some are addressed to all, and some to members as we follow the counsel of an ancient prophet to “consider \[our\] ways.” ([[Haggai 1.7|Hag. 1:7]].)
 
-Why is our life-style sometimes blurred and out of focus when we have been told clearly what “manner of men” and women we ought to be? ([[3 Nephi 27.27|3 Ne. 27:27]]; see also [[2 Peter 3.11|2 Pet. 3:11]].) Of course, as individuals, we are free to choose! But wrong choices will make us less free. Furthermore, erosive error gradually makes one less and less of an individual. God and His prophets would spare us that shrinkage.
+Why is our life-style sometimes blurred and out of focus when we have been told clearly what “manner of men” and women we ought to be? ([[3 Nephi 27.27|3 Ne. 27:27]]; see also [[2 Peter 3.11|2 Pet. 3:11]].) Of course, as individuals, we are free to choose! But wrong choices will make us less free. Furthermore, erosive error gradually makes one less and less of an individual. God and His prophets would spare us that shrinkage.
 
 Why are a few members, who somewhat resemble the ancient Athenians, so eager to hear some new doubt or criticism? (See [[Acts 17.21|Acts 17:21]].) Just as some weak members slip across a state line to gamble, a few go out of their way to have their doubts titillated. Instead of nourishing their faith, they are gambling “offshore” with their fragile faith. To the question “Will ye also go away?” these few would reply, “Oh, no, we merely want a weekend pass in order to go to a casino for critics or a clubhouse for cloakholders.” Such easily diverted members are not disciples but fair-weather followers.
 
-Instead, true disciples are rightly described as steadfast and immovable, pressing forward with “a perfect brightness of hope.” ([[2 Nephi 31.20|2 Ne. 31:20]]; see also [[D&C 49.23|D&C 49:23]].)
+Instead, true disciples are rightly described as steadfast and immovable, pressing forward with “a perfect brightness of hope.” ([[2 Nephi 31.20|2 Ne. 31:20]]; see also [[D&C 49.23|D&C 49:23]].)
 
 Why do we resist and resent life’s developmental and obedience tests? By declaring, “I will walk in my own way and do that which is right in my own eyes,” we reject the curriculum of the mortal school in which we are irrevocably enrolled. (See [[Judges 21.25|Judg. 21:25]]; [[D&C 1.16|D&C 1:16]].) There is only one exit gate leading unto eternal life. Unhappily, only a few find it—but not because God is exclusionary, but because they exclude God from their lives. Even God cannot bring to pass a reconciliation involving only one party.
 
-Why do some think adultery and similar sins are permissible as long as anything else they do is commendable? The Lord’s focus is not on the one thing we do which is good, but, instead, on the one or more things we still lack in order to have eternal life. (See [[Mark 10.21|Mark 10:21]]; [[2 Peter 1.9|2 Pet. 1:9]].) To compose a symphony, to win a battle, or to save a company—each can be a commendable and worthy entry in the book of life, but these do not compensate for breaking the seventh commandment. In the arithmetic of heaven, several commendables do not cancel out one inexcusable! The clear command from Jesus is to deny ourselves immorality and “to take up \[the\] cross daily,” not to indulge ourselves and to take up the cross occasionally! ([[Luke 9.23|Luke 9:23]]; see also [[3 Nephi 12.30|3 Ne. 12:30]].) The Old Testament advises, “He that ruleth” himself is better “than he that taketh a city.” ([[Proverbs 16.32|Prov. 16:32]].)
+Why do some think adultery and similar sins are permissible as long as anything else they do is commendable? The Lord’s focus is not on the one thing we do which is good, but, instead, on the one or more things we still lack in order to have eternal life. (See [[Mark 10.21|Mark 10:21]]; [[2 Peter 1.9|2 Pet. 1:9]].) To compose a symphony, to win a battle, or to save a company—each can be a commendable and worthy entry in the book of life, but these do not compensate for breaking the seventh commandment. In the arithmetic of heaven, several commendables do not cancel out one inexcusable! The clear command from Jesus is to deny ourselves immorality and “to take up \[the\] cross daily,” not to indulge ourselves and to take up the cross occasionally! ([[Luke 9.23|Luke 9:23]]; see also [[3 Nephi 12.30|3 Ne. 12:30]].) The Old Testament advises, “He that ruleth” himself is better “than he that taketh a city.” ([[Proverbs 16.32|Prov. 16:32]].)
 
 Why do some of our youth risk engaging in ritual prodigalism, intending to spend a season rebelling and acting out in Babylon and succumbing to that devilishly democratic “everybody does it”? Crowds cannot make right what God has declared to be wrong. Though planning to return later, many such stragglers find that alcohol, drugs, and pornography will not let go easily. Babylon does not give exit permits gladly. It is an ironic implementation of that ancient boast, “One soul shall not be lost.” ([[Moses 4.1|Moses 4:1]].)
 
-The philosophy of ritual prodigalism is “eat, drink, and be merry, … \[and\] God will beat us with a few stripes.” This is a cynical and shallow view of God, of self, and of life. God never can justify us “in committing a little sin.” ([[2 Nephi 28.8|2 Ne. 28:8]].) He is the God of the universe, not some night-court judge with whom we can haggle and plea bargain!
+The philosophy of ritual prodigalism is “eat, drink, and be merry, … \[and\] God will beat us with a few stripes.” This is a cynical and shallow view of God, of self, and of life. God never can justify us “in committing a little sin.” ([[2 Nephi 28.8|2 Ne. 28:8]].) He is the God of the universe, not some night-court judge with whom we can haggle and plea bargain!
 
 Of course God is forgiving! But He knows the intents of our hearts. He also knows what good we might have done while AWOL. In any case, what others do is no excuse for the disciple from whom much is required. (See [[Alma 39.4|Alma 39:4]].) Besides, on the straight and narrow path, there are simply no corners to be cut. (See [[D&C 82.3|D&C 82:3]].)
 
 Why do some crush and break the tender hearts of spouses and children through insensitivity and even infidelity? Unable to sustain lasting relationships, shouting, in effect, “I am my own, I am in charge!” they retreat like cowards from their real responsibilities. (See [[Jacob 2.35|Jacob 2:35]].) In such pathetic men or women, so strong is the competition between self-pity and self-indulgence that these urges both come in second! Furthermore, just as gender was of no saving significance in the self-destructive dash of the Gadarene swine to the sea, neither is it today.
 
-God’s work is one of finding, helping, reconciling—not of leaving, betraying, and deserting. Betrayed Uriah, deserted in the fray, represents many. (See [[2 Samuel 11.15|2 Sam. 11:15]].)
+God’s work is one of finding, helping, reconciling—not of leaving, betraying, and deserting. Betrayed Uriah, deserted in the fray, represents many. (See [[2 Samuel 11.15|2 Sam. 11:15]].)
 
 In closing, these next observations underscore both the majesty and the humility of Him who said simply, “Answer me.”
 
-Though crucified briefly between two thieves, Jesus now sits eternally on the right hand of God! (See [[Luke 22.69|Luke 22:69]]; [[1 Peter 3.22|1 Pet. 3:22]].) He is the Lord of the constructed universe, yet He was known merely as “the carpenter’s son.” ([[Matthew 13.55|Matt. 13:55]].)
+Though crucified briefly between two thieves, Jesus now sits eternally on the right hand of God! (See [[Luke 22.69|Luke 22:69]]; [[1 Peter 3.22|1 Pet. 3:22]].) He is the Lord of the constructed universe, yet He was known merely as “the carpenter’s son.” ([[Matthew 13.55|Matt. 13:55]].)
 
-He fashioned worlds without number, providing us with astrophysical awe when we view even “the least of these.” ([[D&C 88.47|D&C 88:47]].) Yet, to aid just one blind man—with clay formed from spittle, “He from thick films \[purged\] the visual ray, / And on the sightless eyeball \[poured\] the day.” (Alexander Pope, in Frederic W. Farrar, *The Life of Christ,* New York: E. P. Dutton and Co., 1893, p. 394; see [[John 9.6|John 9:6]].)
+He fashioned worlds without number, providing us with astrophysical awe when we view even “the least of these.” ([[D&C 88.47|D&C 88:47]].) Yet, to aid just one blind man—with clay formed from spittle, “He from thick films \[purged\] the visual ray, / And on the sightless eyeball \[poured\] the day.” (Alexander Pope, in Frederic W. Farrar, *The Life of Christ,* New York: E. P. Dutton and Co., 1893, p. 394; see [[John 9.6|John 9:6]].)
 
 Jesus was weary but never bored. He was ever tutoring, but never condescending. His doctrines are like glistening diamonds with many dimensions, displaying their verity and beauty, facet by facet, depending on the faith and preparation of the beholder.
 
@@ -82,7 +84,7 @@ Jesus had access to immense power but never used it improperly. He refused to pu
 
 Jesus was often misunderstood and rejected. But He felt most forsaken and alone on Calvary—just as the final act of the Atonement was enveloping mankind in His eternal love. Ironically, during the moments when in agony He was benefiting billions upon billions of mortals, He was attended by only a faithful few.
 
-His infinite atonement affected every age, every dispensation, and every person. (See [[2 Nephi 9.7|2 Ne. 9:7]]; [[2 Nephi 25.16|25:16]].) Hence the appropriate symbolism of His bleeding at each and every pore—not just some—in order that “as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
+His infinite atonement affected every age, every dispensation, and every person. (See [[2 Nephi 9.7|2 Ne. 9:7]]; [[2 Nephi 25.16|25:16]].) Hence the appropriate symbolism of His bleeding at each and every pore—not just some—in order that “as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
 
 There will be no end to the ripples of the Resurrection resulting from the infinite Atonement. There will be no end either to the posterity of those who receive eternal life—eventually more posterity than the stars in the heavens. (See [[Genesis 26.3|Gen. 26:3–4]][[Genesis 26.4|]].) How infinite indeed!
 
@@ -91,8 +93,3 @@ These observations describe only in small part Him who said, “Answer me,” re
 
 
 
-
-
-
-
-#Atonement #Discipleship #Jesus_Christ

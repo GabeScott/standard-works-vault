@@ -4,6 +4,3 @@
 
 [JST Luke 14:35](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/14?lang=eng)
 
-
-
-

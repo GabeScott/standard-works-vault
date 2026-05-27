@@ -1,5 +1,7 @@
 # Funerals—A Time for Reverence
 
+Ezra Taft Benson
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -30,9 +32,9 @@ It is easier for me to understand that word *fall* in the scriptures if I think 
 
 The fall of man was a move from the presence of God to mortal life on earth. That move down to a lower place came as a consequence of a broken law.
 
-*Fall* may also describe a change in *condition.* For instance, one can fall in reputation or from prominence. The word *fall* well describes what transpired when Adam and Eve were driven from the garden. A transformation took place in their bodies. The bodies of flesh and bone became temporal bodies. *Temporal* means temporary. The scriptures say, “the life of all flesh is the blood thereof.” ([[Leviticus 17.14|Lev. 17:14]]; see also [[Deuteronomy 12.23|Deut. 12:23]]; Joseph Fielding Smith, comp., *Teachings of the Prophet Joseph Smith,* Salt Lake City: Deseret Book Co., 1976, pp. 199–200, 367.)
+*Fall* may also describe a change in *condition.* For instance, one can fall in reputation or from prominence. The word *fall* well describes what transpired when Adam and Eve were driven from the garden. A transformation took place in their bodies. The bodies of flesh and bone became temporal bodies. *Temporal* means temporary. The scriptures say, “the life of all flesh is the blood thereof.” ([[Leviticus 17.14|Lev. 17:14]]; see also [[Deuteronomy 12.23|Deut. 12:23]]; Joseph Fielding Smith, comp., *Teachings of the Prophet Joseph Smith,* Salt Lake City: Deseret Book Co., 1976, pp. 199–200, 367.)
 
-President Kimball explained: “Blood, the life-giving element in our bodies, replaced the finer substance which coursed through their bodies before. They and we became mortal, subject to illness, pains, and even the physical dissolution called death.” (“Absolute Truth,” *Ensign,* Sept. 1978, p. 5.)
+President Kimball explained: “Blood, the life-giving element in our bodies, replaced the finer substance which coursed through their bodies before. They and we became mortal, subject to illness, pains, and even the physical dissolution called death.” (“Absolute Truth,” *Ensign,* Sept. 1978, p. 5.)
 
 After the transformation of the Fall, bodies of flesh and bone and *blood* (unlike our spirit bodies) could not endure. Somehow the ingredient of blood carried with it a limit to life. It was as though a clock were set and a time given. Thereafter, all living things moved inexorably toward mortal death.
 
@@ -68,9 +70,9 @@ Funerals held under the direction of the priesthood are Church meetings. They ha
 
 “It is requested that henceforth all funerals conducted under the auspices of the officials of the Church follow the general format of the sacrament meeting with respect to music, speaking, and prayers. Music should be used at the beginning of the service prior to the opening prayer and possibly after the invocation also, as in our Sunday meetings. The closing portion of the funeral likewise should follow our customary pattern of having a final musical number immediately before the concluding prayer. Where feasible, a choir could very well be used on the musical program.
 
-“With respect to speaking, it should be kept in mind that funeral services provide an excellent opportunity for teaching the basic doctrines … in a positive manner. …
+“With respect to speaking, it should be kept in mind that funeral services provide an excellent opportunity for teaching the basic doctrines … in a positive manner. …
 
-“Following these suggestions will help to keep our services in line with our established pattern and will avoid practices now so commonly followed elsewhere.” (*Priesthood Bulletin,* Apr. 1972, p. 3.)
+“Following these suggestions will help to keep our services in line with our established pattern and will avoid practices now so commonly followed elsewhere.” (*Priesthood Bulletin,* Apr. 1972, p. 3.)
 
 Bishops always show tender regard for the family of the deceased, and insofar as their requests accord with established policy, they may willingly be met. On occasion a family member has suggested, sometimes even insisted, that some innovation be added to the funeral service as a special accommodation to the family. Within reason, of course, a bishop may honor such a request. However, there are limits to what may be done without disturbing the spirituality and causing it to be less than it might be. We should remember, too, that others attending the funeral may suppose that innovation is an accepted procedure and introduce it at other funerals. Then, unless we are careful, an innovation which was allowed as an accommodation to one family in one funeral may come to be regarded as expected in every funeral.
 
@@ -90,7 +92,7 @@ Sometimes family members tell things that would be appropriate at a family reuni
 
 One statement from the instructions refers to events other than the funeral service itself. I quote:
 
-“The bishop should urge members to maintain a spirit of reverence, dignity, and solemnity at gatherings *connected with funerals.*” (*General Handbook of Instructions,* Oct. 1985, pp. 2-6; italics added.)
+“The bishop should urge members to maintain a spirit of reverence, dignity, and solemnity at gatherings *connected with funerals.*” (*General Handbook of Instructions,* Oct. 1985, pp. 2-6; italics added.)
 
 That should be kept in mind if a viewing is to be held. Viewings are not mandatory.
 
@@ -131,8 +133,3 @@ No consolation in parting compares with that “peace … which passeth all unde
 
 
 
-
-
-
-
-#Church_Meetings #Death

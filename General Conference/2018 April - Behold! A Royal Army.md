@@ -1,6 +1,8 @@
 # Behold! A Royal Army
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/04/behold-a-royal-army?lang=eng)
 
-My beloved brethren of the priesthood, it is with great humility that I stand before you on this historic occasion, under assignment by our dear prophet and President, Russell M. Nelson. How I love and sustain this wonderful man of God and our new First Presidency. I add my witness to that of Elder D. Todd Christofferson and my other Brethren of the Quorum of the Twelve Apostles that the changes announced this evening are the will of the Lord.
+My beloved brethren of the priesthood, it is with great humility that I stand before you on this historic occasion, under assignment by our dear prophet and President, Russell M. Nelson. How I love and sustain this wonderful man of God and our new First Presidency. I add my witness to that of Elder D. Todd Christofferson and my other Brethren of the Quorum of the Twelve Apostles that the changes announced this evening are the will of the Lord.
 
 As stated by President Nelson, this is a matter that has been prayerfully discussed and considered by the senior Brethren of the Church for a long time. The desire was to seek the Lord’s will and strengthen the quorums of the Melchizedek Priesthood. Inspiration was received, and this evening our prophet made known the will of the Lord. “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets”![^1] How blessed we are to have a living prophet today!
 
@@ -52,7 +54,7 @@ One, wards and stakes will no longer hold priesthood executive committee meeting
 
 Two, the annual meeting of all ordained high priests in the stake will no longer be held. However, the stake presidency will continue to hold an annual meeting of the stake high priests quorum as has been announced today.
 
-Can a ward have more than one elders quorum? The answer is yes. In the spirit of [[D&C 107.89|Doctrine and Covenants section 107, verse 89]], when a ward has an unusually large number of active Melchizedek Priesthood bearers, leaders may organize more than one elders quorum. In such cases, each quorum should have a reasonable balance in terms of age, experience, and priesthood office and strength.
+Can a ward have more than one elders quorum? The answer is yes. In the spirit of [[D&C 107.89|Doctrine and Covenants section 107, verse 89]], when a ward has an unusually large number of active Melchizedek Priesthood bearers, leaders may organize more than one elders quorum. In such cases, each quorum should have a reasonable balance in terms of age, experience, and priesthood office and strength.
 
 I testify that as we move forward with this inspired quorum restructuring in our wards and stakes, we will see a multitude of blessings. Let me cite just a few examples.
 
@@ -100,7 +102,7 @@ Brethren, thank you for all that you are doing to be a part of this magnificent 
 >Thru Jesus Christ, our Lord![^7]
 >
 
-Today we all stand as witnesses of the Lord revealing His will through His prophet, President Russell M. Nelson. I testify that he is God’s prophet here on earth. I bear my witness of the Lord Jesus Christ, who is our great Redeemer and Savior. This is His work, and this is His will, to which I bear solemn testimony in the name of Jesus Christ, amen.
+Today we all stand as witnesses of the Lord revealing His will through His prophet, President Russell M. Nelson. I testify that he is God’s prophet here on earth. I bear my witness of the Lord Jesus Christ, who is our great Redeemer and Savior. This is His work, and this is His will, to which I bear solemn testimony in the name of Jesus Christ, amen.
 
 
 
@@ -111,16 +113,11 @@ Today we all stand as witnesses of the Lord revealing His will through His proph
 
 [^3]: “Behold! A Royal Army,” *Hymns,* no. 251.
 
-[^4]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints* (1965), 2:354.
+[^4]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints* (1965), 2:354.
 
-[^5]: See [[Alma 13.1|Alma 13]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]][[Alma 13.10|]][[Alma 13.11|]][[Alma 13.12|]][[Alma 13.13|]][[Alma 13.14|]][[Alma 13.15|]][[Alma 13.16|]][[Alma 13.17|]][[Alma 13.18|]][[Alma 13.19|]][[Alma 13.20|]][[Alma 13.21|]][[Alma 13.22|]][[Alma 13.23|]][[Alma 13.24|]][[Alma 13.25|]][[Alma 13.26|]][[Alma 13.27|]][[Alma 13.28|]][[Alma 13.29|]][[Alma 13.30|]][[Alma 13.31|]].
+[^5]: See [[Alma 13.1|Alma 13]].
 
 [^6]: [[D&C 88.72|Doctrine and Covenants 88:72–73]][[D&C 88.73|]].
 
 [^7]: “Behold! A Royal Army,” *Hymns,* no. 251.
 
-
-
-
-
-#Church_Organization #Ministering #Priesthood_Quorums #Unity

@@ -1,6 +1,8 @@
 # Perfect Love Casteth Out Fear
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Bonnie H. Cordon
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -10,7 +12,7 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 My beloved brothers and sisters, dear friends, what a privilege and joy it is to meet as a worldwide Church united in our faith and love for God and His children.
 
-I am especially grateful for the presence of our beloved prophet, Thomas S. Monson. President, we will always take to heart your words of direction, counsel, and wisdom. We love you, President Monson, and we always pray for you.
+I am especially grateful for the presence of our beloved prophet, Thomas S. Monson. President, we will always take to heart your words of direction, counsel, and wisdom. We love you, President Monson, and we always pray for you.
 
 Years ago, when I was serving as stake president in Frankfurt, Germany, a dear but unhappy sister approached me at the end of one of our stake meetings.
 
@@ -159,9 +161,9 @@ I testify, with the Apostle John, “There is no fear in \[Christ’s\] love.”
 
 [^9]: The premortal Council in Heaven is an excellent case study that demonstrates the character of God. There our Heavenly Father presented His plan for our eternal progression. Key elements of that plan included agency, obedience, and salvation through the Atonement of Christ. Lucifer, however, proposed a different approach. He guaranteed that all would obey—none would be lost. The only way to accomplish this would be through tyranny and force. But our loving Heavenly Father would not permit such a plan. He valued the agency of His children. He knew that we must make mistakes along the way if we are to truly learn. And that is why He provided a Savior, whose eternal sacrifice could cleanse us of sin and permit our entry back into the kingdom of God.
 
-[^10]: [[2 Timothy 1.7|2 Timothy 1:7]].
+[^10]: [[2 Timothy 1.7|2 Timothy 1:7]].
 
-[^11]: See, for example, [[Joshua 1.9|Joshua 1:9]]; [[Isaiah 41.13|Isaiah 41:13]]; [[Luke 12.32|Luke 12:32]]; [[John 16.33|John 16:33]]; [[1 Peter 3.14|1 Peter 3:14]]; [[D&C 6.36|Doctrine and Covenants 6:36]]; [[D&C 50.41|50:41]]; [[D&C 61.36|61:36]]; [[D&C 78.18|78:18]].
+[^11]: See, for example, [[Joshua 1.9|Joshua 1:9]]; [[Isaiah 41.13|Isaiah 41:13]]; [[Luke 12.32|Luke 12:32]]; [[John 16.33|John 16:33]]; [[1 Peter 3.14|1 Peter 3:14]]; [[D&C 6.36|Doctrine and Covenants 6:36]]; [[D&C 50.41|50:41]]; [[D&C 61.36|61:36]]; [[D&C 78.18|78:18]].
 
 [^12]: [[Luke 12.32|Luke 12:32]].
 
@@ -177,17 +179,15 @@ I testify, with the Apostle John, “There is no fear in \[Christ’s\] love.”
 
 [^18]: [[John 16.33|John 16:33]].
 
-[^19]: [[D&C 90.24|Doctrine and Covenants 90:24]]; see also [[2 Corinthians 2.14|2 Corinthians 2:14]]; [[D&C 105.14|Doctrine and Covenants 105:14]].
+[^19]: [[D&C 90.24|Doctrine and Covenants 90:24]]; see also [[2 Corinthians 2.14|2 Corinthians 2:14]]; [[D&C 105.14|Doctrine and Covenants 105:14]].
 
-[^20]: [[1 John 4.18|1 John 4:18]].
+[^20]: [[1 John 4.18|1 John 4:18]].
 
-[^21]: Let us remember that the Savior came not “into the world to condemn the world; but that the world through him might be saved” ([[John 3.17|John 3:17]]). In fact, “he doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him” ([[2 Nephi 26.24|2 Nephi 26:24]]).
+[^21]: Let us remember that the Savior came not “into the world to condemn the world; but that the world through him might be saved” ([[John 3.17|John 3:17]]). In fact, “he doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him” ([[2 Nephi 26.24|2 Nephi 26:24]]).
 
-[^22]: [[1 John 4.18|1 John 4:18]]; see also [[1 John 4.16|1 John 4:16]].
+[^22]: [[1 John 4.18|1 John 4:18]]; see also [[1 John 4.16|1 John 4:16]].
 
 [^23]: [[Mark 5.36|Mark 5:36]].
 
+[^24]: [[John 15.10|John 15:10]].
 
-
-
-#Adversity #Fear #Jesus_Christ #Love #Second_Coming

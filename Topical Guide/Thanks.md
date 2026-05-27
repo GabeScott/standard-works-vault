@@ -1,27 +1,26 @@
 # Thanks
 
-
 *See also* [[Praise.md|Praise]]; [[Thanksgiving.md|Thanksgiving]]
 
 I will give *thanks* unto thee, O Lord, [[2 Samuel 22.50|2 Samuel 22:50]] ([[Psalms 18.49|Psalms 18:49]]).
 
 Give *thanks* unto the Lord, [[1 Chronicles 16.8|1 Chronicles 16:8]] ([[1 Chronicles 16.34|1 Chronicles 16:34]]; [[Psalms 105.1|Psalms 105:1]]; [[Psalms 106.1|Psalms 106:1]]; [[Psalms 136.1|Psalms 136:1]]; [[1 Nephi 2.7|1 Nephi 2:7]]; [[1 Nephi 5.9|1 Nephi 5:9]]).
 
-sang together ... in praising and giving *thanks* unto the Lord, [[Ezra 3.11|Ezra 3:11]].
+sang together … in praising and giving *thanks* unto the Lord, [[Ezra 3.11|Ezra 3:11]].
 
 It is a good thing to give *thanks* unto the Lord, [[Psalms 92.1|Psalms 92:1]].
 
 give *thanks* unto the God of gods, [[Psalms 136.2|Psalms 136:2]].
 
-kneeled ... and gave *thanks* before his God, [[Daniel 6.10|Daniel 6:10]].
+kneeled … and gave *thanks* before his God, [[Daniel 6.10|Daniel 6:10]].
 
-he took the seven loaves ... and gave *thanks*, [[Matthew 15.36|Matthew 15:36]] ([[Mark 8.6|Mark 8:6]]).
+he took the seven loaves … and gave *thanks*, [[Matthew 15.36|Matthew 15:36]] ([[Mark 8.6|Mark 8:6]]).
 
 he took the cup, and gave *thanks*, [[Matthew 26.27|Matthew 26:27]] ([[Mark 14.23|Mark 14:23]]; [[Luke 22.17|Luke 22:17]]).
 
-she ... gave *thanks* likewise unto the Lord, [[Luke 2.38|Luke 2:38]].
+she … gave *thanks* likewise unto the Lord, [[Luke 2.38|Luke 2:38]].
 
-fell down ... at his feet, giving him *thanks*, [[Luke 17.16|Luke 17:16]].
+fell down … at his feet, giving him *thanks*, [[Luke 17.16|Luke 17:16]].
 
 he took bread, and gave *thanks*, [[Acts 27.35|Acts 27:35]].
 

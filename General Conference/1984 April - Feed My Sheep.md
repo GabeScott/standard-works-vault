@@ -1,5 +1,7 @@
 # Feed My Sheep
 
+Gordon B. Hinckley
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve*
 
 *Given in the April session of the 1984 General Conference*
@@ -46,7 +48,7 @@ Could there be more pure enjoyment than seeing how much we could get those hungr
 
 Is that what you would do? Surely it is what you *should* do. But forgive me if I have a little doubt; let me explain.
 
-We, as members of the Church, have the *fullness* of the gospel. Every conceivable manner of spiritual nourishment is ours. Every part of the spiritual menu is included. It provides an unending supply of spiritual strength. Like the widow’s cruse of oil, it is replenished as we use it and shall never fail. (See [[1 Kings 17.8|1 Kgs. 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].)
+We, as members of the Church, have the *fullness* of the gospel. Every conceivable manner of spiritual nourishment is ours. Every part of the spiritual menu is included. It provides an unending supply of spiritual strength. Like the widow’s cruse of oil, it is replenished as we use it and shall never fail. (See [[1 Kings 17.8|1 Kgs. 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].)
 
 And yet, there are people across the world and about us—our neighbors, our friends, some in our own families—who, spiritually speaking, are undernourished. Some of them are starving to death!
 
@@ -70,7 +72,7 @@ Be patient if some will not eat when first invited. Remember, all who are spirit
 
 Undernourished children must be carefully fed; so it is with the spiritually underfed. Some are so weakened by mischief and sin that to begin with they reject the rich food we offer. They must be fed carefully and gently.
 
-Some are so near spiritual death that they must be spoonfed on the broth of fellowship, or nourished carefully on activities and programs. As the scriptures say, they must have milk before meat. (See [[1 Corinthians 3.2|1 Cor. 3:2]]; [[D&C 19.22|D&C 19:22]].) But we must take care lest the only nourishment they receive thereafter is that broth.
+Some are so near spiritual death that they must be spoonfed on the broth of fellowship, or nourished carefully on activities and programs. As the scriptures say, they must have milk before meat. (See [[1 Corinthians 3.2|1 Cor. 3:2]]; [[D&C 19.22|D&C 19:22]].) But we must take care lest the only nourishment they receive thereafter is that broth.
 
 But feed them we must. We are commanded to preach the gospel to every nation, kindred, tongue, and people. That message, my young friends, appears more than eighty times in the scriptures.
 
@@ -101,8 +103,3 @@ We have the fullness of the everlasting gospel. We have the obligation to share 
 
 
 
-
-
-
-
-#Missionary_Work

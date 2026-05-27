@@ -1,4 +1,3 @@
 # Job
 
-
-*See* [BD Job, book of](https://www.churchofjesuschrist.org/study/scriptures/bd/job-book-of?lang=eng)
+*See also* [[BD Job, book of.md|BD Job, book of]]

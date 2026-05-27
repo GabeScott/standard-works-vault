@@ -1,6 +1,8 @@
 # Deceive Me Not
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+Jeffrey R. Holland
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/10/45stevenson?lang=eng)
 
-Today, I offer words of counsel for everyone, but *especially* for you of the rising generation—Primary children, young men, and young women. You are deeply loved by the Lord’s prophet for our day, President Russell M. Nelson—so much so that he spoke to many of you last year in a special worldwide youth devotional broadcast titled “Hope of Israel.”[^1] We often hear President Nelson calling you exactly that—the “hope of Israel,” the rising generation and the future of the restored Church of Jesus Christ.
+Today, I offer words of counsel for everyone, but *especially* for you of the rising generation—Primary children, young men, and young women. You are deeply loved by the Lord’s prophet for our day, President Russell M. Nelson—so much so that he spoke to many of you last year in a special worldwide youth devotional broadcast titled “Hope of Israel.”[^1] We often hear President Nelson calling you exactly that—the “hope of Israel,” the rising generation and the future of the restored Church of Jesus Christ.
 
 My young friends, I would like to begin by sharing two family stories.
 
@@ -70,7 +72,7 @@ Finally, he “departed … from the presence of Moses.”[^10]
 
 After the Lord appeared and blessed Moses for his obedience, the Lord said:
 
-“Blessed art thou, Moses, for … thou shalt be made stronger than many waters. …
+“Blessed art thou, Moses, for … thou shalt be made stronger than many waters. …
 
 “And lo, I am with thee, even unto the end of thy days.”[^11]
 
@@ -80,7 +82,7 @@ Moses’s resistance of the adversary is a vivid and enlightening example for ea
 
 How might you find this heavenly help, even as Moses did, and not be deceived or give in to temptation? A clear channel for divine assistance was reaffirmed in this dispensation by the Lord Himself when He declared: “Wherefore, I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments.”[^12] Using simpler words, we might say that the Lord, who knows “the end from the beginning,”[^13] knows the unique difficulties of our day. Therefore, He has provided a way for us to resist challenges and temptations, many of which come as a direct result of the deceitful influences of the adversary and his attacks.
 
-The way is simple. Through His servants, God speaks to us, His children, and gives us commandments. We could restate the verse I just quoted to say, “I the Lord … called upon my servant \[President Russell M. Nelson\], and spake unto him from heaven, and gave him commandments.” Isn’t that a glorious truth?
+The way is simple. Through His servants, God speaks to us, His children, and gives us commandments. We could restate the verse I just quoted to say, “I the Lord … called upon my servant \[President Russell M. Nelson\], and spake unto him from heaven, and gave him commandments.” Isn’t that a glorious truth?
 
 I bear solemn witness that the Lord did in all reality speak to Joseph Smith from heaven, beginning with the grand First Vision. He also speaks to President Nelson in our time. I testify that God communed with prophets in past ages and gave them commandments designed to lead His children to happiness in this life and glory in the next.
 
@@ -103,7 +105,7 @@ I bear my witness of the *Holy One of Israel*—even the name of Jesus Christ. I
 
 
 
-[^1]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
+[^1]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
 
 [^2]: [[D&C 76.29|Doctrine and Covenants 76:29]].
 
@@ -133,10 +135,5 @@ I bear my witness of the *Holy One of Israel*—even the name of Jesus Christ. I
 
 [^15]: [[Jacob 4.13|Jacob 4:13]].
 
-[^16]: “True to the Faith,” *Hymns,* no. 254.
+[^16]: “True to the Faith,” *Hymns,* no. 254.
 
-
-
-
-
-#Commandments #Satan #Spirituality

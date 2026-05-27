@@ -1,5 +1,7 @@
 # Faith of Our Fathers
 
+James E. Faust
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -46,7 +48,7 @@ Once across the river, they camped temporarily at Sugar Creek before starting th
 
 When President Brigham Young joined the departing pioneers at their campsite in Iowa on February 15, 1846, the Lord revealed to him to begin organizing a modern “Camp of Israel.” On the first of March the advance company began its push westward across Iowa. Hardships caused by cold, snow, rain, mud, sickness, hunger, and death challenged the faith of these hardy pioneers. But they were determined to follow their leaders and to do, no matter the cost, what they believed fervently to be the will of God. Their faith was challenged, and for some it faltered in especially difficult times. But it did not fail them. Many were sustained by the assurances they had received in temple ordinances performed in the Nauvoo Temple.
 
-One of the more difficult hardships endured by many of the sisters was delivering their babies under harsh, extreme conditions along the trail. Eliza R. Snow wrote that as the pioneers “journeyed onward, mothers gave birth to offspring under almost every variety of circumstances imaginable, except those to which they had been accustomed; some in tents, others in wagons—in rainstorms and in snowstorms.” Sister Snow went on to record in her journal that she “heard of one birth which occurred under the rude shelter of a hut, the sides of which were formed of blankets fastened to poles stuck in the ground, with a bark roof through which the rain was dripping. Kind sisters stood holding dishes to catch the water … , thus protecting the \[little one\] and its mother from a showerbath \[on its entrance to\] the stage of human life.”[^18]
+One of the more difficult hardships endured by many of the sisters was delivering their babies under harsh, extreme conditions along the trail. Eliza R. Snow wrote that as the pioneers “journeyed onward, mothers gave birth to offspring under almost every variety of circumstances imaginable, except those to which they had been accustomed; some in tents, others in wagons—in rainstorms and in snowstorms.” Sister Snow went on to record in her journal that she “heard of one birth which occurred under the rude shelter of a hut, the sides of which were formed of blankets fastened to poles stuck in the ground, with a bark roof through which the rain was dripping. Kind sisters stood holding dishes to catch the water … , thus protecting the \[little one\] and its mother from a showerbath \[on its entrance to\] the stage of human life.”[^18]
 
 What a sacrifice these good sisters made! Some mothers lost their own lives in childbirth. Many babies did not survive. My wife’s grandmother, Elizabeth Riter, was born at Winter Quarters in the back of a covered wagon during a rainstorm. Fortunately, both the mother and the newborn infant survived. With great love for the woman who gave life to her, Elizabeth often lovingly recounted how an umbrella was held over her mother throughout the ordeal to shield her from the water leaking through the wagon’s cover.
 
@@ -62,7 +64,7 @@ No matter who we are—no matter our talents, abilities, financial resources, ed
 
 President Thomas S. Monson taught the importance of being willing to serve in this great cause when he asked: “Are we sufficiently in tune with the Spirit that when the Lord calls, we can hear, as did Samuel, and declare, ‘Here am I’? Do we have the fortitude and the faith, whatever our callings, to serve with unflinching courage and unshakable resolve? When we do, the Lord can work His mighty miracles through us.”[^23]
 
-President James E. Faust has reassured us that whatever our abilities, faithful service not only is acceptable to the Lord, but also qualifies us for great blessings bestowed by Him, blessings that enrich and expand our lives. President Faust explained that “this church does not necessarily attract great people but more often makes ordinary people great. …
+President James E. Faust has reassured us that whatever our abilities, faithful service not only is acceptable to the Lord, but also qualifies us for great blessings bestowed by Him, blessings that enrich and expand our lives. President Faust explained that “this church does not necessarily attract great people but more often makes ordinary people great. …
 
 “A major reason this church has grown from its humble beginnings to its current strength is the faithfulness and devotion of millions of humble and devoted \[members\] who have only five loaves and two small fishes to offer in the service of the Master. They have largely surrendered their own interests and in so doing have found ‘the peace of God, which passeth all understanding.’”[^24]
 
@@ -75,13 +77,13 @@ Let us dedicate ourselves to doing the Lord’s work to the best of our abilitie
 
 [^1]: [[Moroni 6.5|Moro. 6:5]].
 
-[^2]: [[2 Nephi 32.3|2 Ne. 32:3]].
+[^2]: [[2 Nephi 32.3|2 Ne. 32:3]].
 
 [^3]: *Lectures on Faith* (1985), 1.
 
 [^4]: [[Hebrews 11.1|Heb. 11:1]].
 
-[^5]: [[2 Nephi 32.3|2 Ne. 32:3]].
+[^5]: [[2 Nephi 32.3|2 Ne. 32:3]].
 
 [^6]: [[Matthew 11.15|Matt. 11:15]].
 
@@ -89,7 +91,7 @@ Let us dedicate ourselves to doing the Lord’s work to the best of our abilitie
 
 [^8]: [[Isaiah 42.11|Isa. 42:11]].
 
-[^9]: [[2 Peter 1.note19a|JST, 2 Pet. 1:19]]; cf. King James Version, [[2 Peter 1.19|2 Pet. 1:19]].
+[^9]: [JST, 2 Pet. 1:19](https://www.churchofjesuschrist.org/study/scriptures/nt/2-pet/1?lang=eng&id=note19a#note19a); cf. King James Version, [[2 Peter 1.19|2 Pet. 1:19]].
 
 [^10]: [[D&C 65.2|D&C 65:2]].
 
@@ -99,7 +101,7 @@ Let us dedicate ourselves to doing the Lord’s work to the best of our abilitie
 
 [^13]: [[Alma 32.21|Alma 32:21]].
 
-[^14]: [[1 Nephi 4.6|1 Ne. 4:6]].
+[^14]: [[1 Nephi 4.6|1 Ne. 4:6]].
 
 [^15]: Quoted in *Church News,* 10 Feb. 1996, 3.
 
@@ -117,11 +119,11 @@ Let us dedicate ourselves to doing the Lord’s work to the best of our abilitie
 
 [^22]: [[Hebrews 4.15|Heb. 4:15–16]][[Hebrews 4.16|]].
 
-[^23]: In Conference Report, Oct. 1992; 66–67; or *Ensign,* Nov. 1992, 48; see [[1 Samuel 3.4|1 Sam. 3:4]].
+[^23]: In Conference Report, Oct. 1992, [[1992 October - The Priesthood in Action.md|66–67]]; or *Ensign,* Nov. 1992, 48; see [[1 Samuel 3.4|1 Sam. 3:4]].
 
-[^24]: In Conference Report, Apr. 1994, 4–5; or *Ensign,* May 1994, 5–6.
+[^24]: In Conference Report, Apr. 1994, [[1994 April - Five Loaves and Two Fishes.md|4–5]]; or *Ensign,* May 1994, 5–6.
 
-[^25]: [[Articles of Faith 1.13|A of F 1:13]].
+[^25]: [[Articles of Faith 1.13|A of F 1:13]].
 
 [^26]: [[D&C 64.33|D&C 64:33]].
 
@@ -129,8 +131,3 @@ Let us dedicate ourselves to doing the Lord’s work to the best of our abilitie
 
 [^28]: [[Jacob 1.7|Jacob 1:7]].
 
-
-
-
-
-#Atonement #Church_Callings #Commandments #Exodus #Faith #Gratitude #Jesus_Christ #Joseph_Smith #Obedience #Pioneers #Plan_Of_Salvation #Prophets #Service

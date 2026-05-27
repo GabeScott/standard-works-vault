@@ -1,9 +1,8 @@
 # Trial
 
+*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Faith.md|Faith]]; [[Jesus Christ, Trials of.md|Jesus Christ, Trials of]]; [[Opposition.md|Opposition]]; [[Probation.md|Probation]]; [[Test.md|Test]]; [[Tribulation.md|Tribulation]]
 
-*See also* [[Adversity.md|Adversity]]; [[Affliction.md|Affliction]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[Faith.md|Faith]]; [[Jesus Christ, Trials of.md|Jesus Christ, Trials of]]; [[Opposition.md|Opposition]]; [[Probation, Probationary.md|Probation]]; [[Test, Try, Prove.md|Test]]; [[Tribulation.md|Tribulation]]
-
-great *trial* of affliction ... abounded unto the riches, [[2 Corinthians 8.2|2 Corinthians 8:2]].
+great *trial* of affliction … abounded unto the riches, [[2 Corinthians 8.2|2 Corinthians 8:2]].
 
 others had *trial* of cruel mockings, [[Hebrews 11.36|Hebrews 11:36]].
 
@@ -11,7 +10,7 @@ others had *trial* of cruel mockings, [[Hebrews 11.36|Hebrews 11:36]].
 
 think it not strange concerning the fiery *trial*, [[1 Peter 4.12|1 Peter 4:12]].
 
-unfolding ... the *trials* and troubles of a righteous king, [[Mosiah 29.33|Mosiah 29:33]].
+unfolding … the *trials* and troubles of a righteous king, [[Mosiah 29.33|Mosiah 29:33]].
 
 the cause of much *trial* with the church, [[Alma 1.23|Alma 1:23]].
 

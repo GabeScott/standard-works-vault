@@ -1,6 +1,8 @@
 # Establishing a Christ-Centered Home
 
-By Elder Richard J. Maynes - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Richard J. Maynes - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -12,7 +14,7 @@ Early on in my service as a young missionary in Uruguay and Paraguay, I realized
 
 The principle of eternal families is an essential element in Heavenly Father’s great plan for His children. Fundamental to that plan is the understanding that we have a *heavenly* family as well as an *earthly* family. The Apostle Paul teaches us that Heavenly Father is the Father of our spirits:
 
-“That they should seek the Lord … and find him, …
+“That they should seek the Lord … and find him, …
 
 “For in him we live, and move, and have our being; … For we are also his offspring.”[^1]
 
@@ -45,7 +47,7 @@ We learned that our children might not remember everything about the family home
 
 Learning, teaching, and practicing the principles of the gospel of Jesus Christ in our homes helps create a culture where the Spirit can dwell. Through establishing these celestial traditions in our homes, we will be able to overcome the false traditions of the world and learn to put the needs and concerns of others first.
 
-The responsibility for establishing a Christ-centered home lies with both parents and children. Parents are responsible to teach their children in love and righteousness. Parents will be held accountable before the Lord in how they perform their sacred responsibilities. Parents teach their children *with* words and *through* example. This poem by C. C. Miller titled “The Echo” illustrates the importance and impact parents have as they influence their children:
+The responsibility for establishing a Christ-centered home lies with both parents and children. Parents are responsible to teach their children in love and righteousness. Parents will be held accountable before the Lord in how they perform their sacred responsibilities. Parents teach their children *with* words and *through* example. This poem by C. C. Miller titled “The Echo” illustrates the importance and impact parents have as they influence their children:
 
 >’Twas a sheep not a lamb
 >That strayed away in the parable Jesus told,
@@ -89,18 +91,13 @@ Brothers and sisters, as members of The Church of Jesus Christ of Latter-day Sai
 
 [^2]: “I Am a Child of God,” *Hymns,* no. 301.
 
-[^3]: [[D&C 130.2|Doctrine and Covenants 130:2]]; see also Robert D. Hales, in Conference Report, Oct. 1996, 86; or *Ensign,* Nov. 1996, 64.
+[^3]: [[D&C 130.2|Doctrine and Covenants 130:2]]; see also Robert D. Hales, in Conference Report, Oct. 1996, [[1996 October - The Eternal Family.md|86]]; or *Ensign,* Nov. 1996, 64.
 
 [^4]: [[Alma 42.8|Alma 42:8]].
 
 [^5]: “The Family: A Proclamation to the World,” *Liahona* and *Ensign,* Nov. 2010, 129.
 
-[^6]: C. C. Miller, “The Echo,” in *Best-Loved Poems of the LDS People,* ed. Jack M. Lyon and others (1996), 312–13.
+[^6]: C. C. Miller, “The Echo,” in *Best-Loved Poems of the LDS People,* ed. Jack M. Lyon and others (1996), 312–13.
 
 [^7]: [[D&C 68.25|Doctrine and Covenants 68:25]]; emphasis added.
 
-
-
-
-
-#Children #Family #Home #Marriage #Parenthood

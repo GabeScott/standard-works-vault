@@ -1,5 +1,7 @@
 # The Spirit of the Gathering
 
+Gordon B. Hinckley
+
 By Elder William Grant Bangerter - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -24,7 +26,7 @@ Elder Widtsoe’s mother responded to the words of a humble shoemaker who had pl
 
 She responded, “What can you, a shoemaker, give me better than soles for my son’s shoes?”
 
-He answered, “If you will but listen, I can teach you the Lord’s true plan of salvation for His children. I can teach you how to find happiness in this life and to prepare for eternal joy in the life to come. I can tell you whence you came, why you are upon the earth, and where you will go after death. I can teach you as you have never known it before, the love of God for his children on earth.” (*In the Gospel Net,* pp. 54–55.)
+He answered, “If you will but listen, I can teach you the Lord’s true plan of salvation for His children. I can teach you how to find happiness in this life and to prepare for eternal joy in the life to come. I can tell you whence you came, why you are upon the earth, and where you will go after death. I can teach you as you have never known it before, the love of God for his children on earth.” (*In the Gospel Net,* pp. 54–55.)
 
 The deep and powerful influence which has reached out across time and space, often into far and hidden corners of the earth, has the effect to snatch people from their normal life patterns and bring them to Zion.
 
@@ -76,11 +78,11 @@ Sister Bangerter and I recently stood at the feet of the Statue of Liberty in Ne
 
 Then President McGregor coupled this feeling to the words of Lehi:
 
-“Wherefore, this land is consecrated unto him whom he shall bring. And if it so be that they shall serve him according to the commandments which he hath given, it shall be a land of liberty unto them; wherefore, they shall never be brought down into captivity; … but unto the righteous it shall be blessed forever.” ([[2 Nephi 1.7|2 Ne. 1:7]].)
+“Wherefore, this land is consecrated unto him whom he shall bring. And if it so be that they shall serve him according to the commandments which he hath given, it shall be a land of liberty unto them; wherefore, they shall never be brought down into captivity; … but unto the righteous it shall be blessed forever.” ([[2 Nephi 1.7|2 Ne. 1:7]].)
 
 The yearning of ancient Israel was to Jerusalem. During their captivity, the soul of the people was expressed in the 137th Psalm:
 
-“By the rivers of Babylon, there we sat down, yea, we wept, when we remembered Zion. …
+“By the rivers of Babylon, there we sat down, yea, we wept, when we remembered Zion. …
 
 “For they that carried us away captive required of us a song; and they that wasted us required of us mirth, saying, Sing us one of the songs of Zion.
 
@@ -100,11 +102,11 @@ Brother Camargo said he found it necessary to read the book again. In the proces
 
 President J. Reuben Clark, Jr., captured the spirit of this drawing power in his memorable address in 1947 “to them of the last wagon”—our pioneers who endured the hardships of their great journey:
 
-“They had,” he said, “their testimony burning always like an eternal fire on a holy altar, that the restored gospel was true. …
+“They had,” he said, “their testimony burning always like an eternal fire on a holy altar, that the restored gospel was true. …
 
 “When in the evening the last wagon creaked slowly into its place in the circle corral, and the Brethren came to inquire how the day had gone with the mother, then joy leaped in their hearts, for had not the Brethren remembered them? New hope was born, weariness fled, fresh will to do was enkindled; gratitude to God was poured out for their knowledge of the truth, for their testimony that God lived, that Jesus was the Christ, that Joseph was a prophet, … and that for the righteous a crown of glory awaited that should be theirs during the eternities of the life to come.”
 
-He states that at the conclusion of their journey, “\[they\] all sank to their knees in the joy of their souls, thanking God that at last they were in Zion. ‘Zion, Zion, lovely Zion, beautiful Zion, Zion, City of our God.’” (in Conference Report, Oct. 1947, pp. 157–58.)
+He states that at the conclusion of their journey, “\[they\] all sank to their knees in the joy of their souls, thanking God that at last they were in Zion. ‘Zion, Zion, lovely Zion, beautiful Zion, Zion, City of our God.’” (in Conference Report, Oct. 1947, pp. 157–58.)
 
 What a thrill of joy must have moved Andrew as he said to Peter, “We have found the Messias.” ([[John 1.41|John 1:41]].) Along with countless thousands, it has “come to pass that the righteous shall be gathered out from among all nations, and shall come to Zion, singing with songs of everlasting joy.” ([[D&C 45.71|D&C 45:71]].)
 
@@ -113,8 +115,3 @@ May we lift our souls this beautiful Easter morning with the assurance that thro
 
 
 
-
-
-
-
-#Missionary_Work

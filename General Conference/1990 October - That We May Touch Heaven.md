@@ -1,5 +1,7 @@
 # That We May Touch Heaven
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -20,17 +22,17 @@ May I share with you, as I shared with the sisters in the women’s meeting held
 
 “Our beloved young men and women,
 
-“We want you to know that we love you. We have great confidence in you. …
+“We want you to know that we love you. We have great confidence in you. …
 
-“We desire everything in this world for you that is right and good. … You are choice spirits who have been held in reserve to come forth in this day when the temptations, responsibilities, and opportunities are the very greatest. You are at a critical time in your lives. …
+“We desire everything in this world for you that is right and good. … You are choice spirits who have been held in reserve to come forth in this day when the temptations, responsibilities, and opportunities are the very greatest. You are at a critical time in your lives. …
 
-“We counsel you to \[be\] morally clean. …
+“We counsel you to \[be\] morally clean. …
 
-“You cannot do wrong and feel right. It is impossible! Years of happiness can be lost in the foolish gratification of a momentary desire for pleasure. …
+“You cannot do wrong and feel right. It is impossible! Years of happiness can be lost in the foolish gratification of a momentary desire for pleasure. …
 
 “You can avoid the burden of guilt and sin and all of the attending heartaches … as you keep the standards outlined in the scriptures and emphasized in this pamphlet.
 
-“We pray that you—the young and rising generation—will keep your bodies and minds clean, free from the contaminations of the world, that you will be fit and pure vessels to bear triumphantly the responsibilities of the kingdom of God in preparation for the second coming of our Savior” (*For the Strength of Youth* \[pamphlet, 1990\], pp. 3–5).
+“We pray that you—the young and rising generation—will keep your bodies and minds clean, free from the contaminations of the world, that you will be fit and pure vessels to bear triumphantly the responsibilities of the kingdom of God in preparation for the second coming of our Savior” (*For the Strength of Youth* \[pamphlet, 1990\], pp. 3–5).
 
 May I review with you, the young men of the Church, these special standards referred to in the introduction just read? There are twelve items, followed by a conclusion. I shall treat briefly each standard.
 
@@ -52,7 +54,7 @@ Everyone needs good friends. Your circle of friends will greatly influence your 
 
 ## 4. Honesty
 
-The oft-repeated adage is ever true: “Honesty’s the best policy” (Miguel de Cervantes, in *Familiar Quotations,* 14th ed., comp. John Bartlett \[Boston: Little, Brown and Co., 1968\], p. 197). A Latter-day Saint young man lives as he teaches and as he believes. He is honest with others. He is honest with himself. He is honest with God. He is honest by habit and as a matter of course. When a difficult decision must be made, he never asks himself, What will others think? but rather, What will I think of myself?
+The oft-repeated adage is ever true: “Honesty’s the best policy” (Miguel de Cervantes, in *Familiar Quotations,* 14th ed., comp. John Bartlett \[Boston: Little, Brown and Co., 1968\], p. 197). A Latter-day Saint young man lives as he teaches and as he believes. He is honest with others. He is honest with himself. He is honest with God. He is honest by habit and as a matter of course. When a difficult decision must be made, he never asks himself, What will others think? but rather, What will I think of myself?
 
 For some, there will come the temptation to dishonor a personal standard of honesty. In a business law class at the university I attended, I remember that one particular classmate never prepared for the class discussions. I thought to myself, How is he going to pass the final examination?
 
@@ -66,7 +68,7 @@ How you speak and the words you use tell much about the image you choose to port
 
 ## 6. Media: Movies, Television, Radio, Videocassettes, Books and Magazines
 
-Our Heavenly Father has counseled us to seek after “anything virtuous, lovely, or of good report or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]). Whatever you read, listen to, or watch makes an impression on you.
+Our Heavenly Father has counseled us to seek after “anything virtuous, lovely, or of good report or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]). Whatever you read, listen to, or watch makes an impression on you.
 
 Pornography is especially dangerous and addictive. Curious exploration of pornography can become a controlling habit, leading to coarser material and to sexual transgression.
 
@@ -78,11 +80,11 @@ Recently there appeared in the newspaper an observation by comedian Steve Allen.
 
 “The ‘flow is carrying all of us right into the sewer,’ he wrote. ‘The very sort of language parents forbid their children to use is now being encouraged not only by anything-goes cable entrepreneurs but the once high-minded networks,’ said Allen. ‘Shows that depict children and others using vulgar language only point up the collapse of the American family,’ he said.”
 
-Perhaps Mr. Allen was referring to a review in a recent issue of *Newsweek* magazine entitled “A Season on the Brink.” “Desperate to outrun \[competition\], the Big Three \[networks\] launch lineups that are rocking, ribald, real … and risky,” reads the subheadline. A summary statement declares, “The networks … are suddenly turning the airwaves blue” (Harry F. Waters, 3 Sept. 1990, pp. 70–71).
+Perhaps Mr. Allen was referring to a review in a recent issue of *Newsweek* magazine entitled “A Season on the Brink.” “Desperate to outrun \[competition\], the Big Three \[networks\] launch lineups that are rocking, ribald, real … and risky,” reads the subheadline. A summary statement declares, “The networks … are suddenly turning the airwaves blue” (Harry F. Waters, 3 Sept. 1990, pp. 70–71).
 
 ## 7. Mental and Physical Health
 
-The Apostle Paul declared, “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? … The temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]). Nutritious meals, regular exercise, and appropriate sleep are necessary for a strong body, just as consistent scripture study and prayer strengthen the mind and spirit.
+The Apostle Paul declared, “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? … The temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]). Nutritious meals, regular exercise, and appropriate sleep are necessary for a strong body, just as consistent scripture study and prayer strengthen the mind and spirit.
 
 Hard drugs, wrongful use of prescription drugs, alcohol, coffee, tea, and tobacco products destroy your physical, mental, and spiritual well-being. Any form of alcohol, including beer, is harmful to your spirit and your body. Tobacco can enslave you, weaken your lungs, and shorten your life.
 
@@ -94,15 +96,15 @@ Music can help you draw closer to your Heavenly Father. It can be used to educat
 
 Because sexual intimacy is so sacred, the Lord requires self-control and purity before marriage, as well as full fidelity after marriage. In dating, treat your date with respect, and expect your date to show that same respect for you. Tears inevitably follow transgression. Men, take care not to make women weep, for God counts their tears.
 
-President David O. McKay advised, “I implore you to think clean thoughts.” He then made this significant declaration of truth: “Every action is preceded by a thought. If we want to control our actions, we must control our thinking.” Brethren, fill your minds with good thoughts, and your actions will be proper. May each one of you be able to echo in truth the line from Tennyson spoken by Sir Galahad: “My strength is as the strength of ten, because my heart is pure” (in *Familiar Quotations,* p. 647).
+President David O. McKay advised, “I implore you to think clean thoughts.” He then made this significant declaration of truth: “Every action is preceded by a thought. If we want to control our actions, we must control our thinking.” Brethren, fill your minds with good thoughts, and your actions will be proper. May each one of you be able to echo in truth the line from Tennyson spoken by Sir Galahad: “My strength is as the strength of ten, because my heart is pure” (in *Familiar Quotations,* p. 647).
 
 From ancient times comes an example which emphasizes this truth. Darius, through the proper rites, had been recognized as legitimate king of Egypt. His rival, Alexander, had been declared legitimate son of Ammon; he, too, was Pharaoh. Alexander found the defeated Darius on the point of death and laid his hands upon his head to heal him, commanding him to arise and resume his kingly power, concluding, “I swear unto thee, Darius, by all the gods, that I do these things truly and without fakery,” to which Darius replied with a gentle rebuke, “Alexander, my boy … do you think you can touch heaven with those hands of yours?”
 
 Brethren, are we prepared to touch heaven as we fill our priesthood callings?
 
-Recently, the author of a paper on teenage sexuality summed up his research by saying that he doesn’t see any major reduction ahead in the sexual activity of teenagers, in part because society sends teens a mixed message: advertisements and the mass media convey “very heavy messages that sexual activity is acceptable and expected,” inducements that sometimes drown out the warnings of experts and the pleas of parents. The Lord cuts through all the media messages with clear and precise language when He declares to us, “Be … clean” ([[3 Nephi 20.41|3 Ne. 20:41]]).
+Recently, the author of a paper on teenage sexuality summed up his research by saying that he doesn’t see any major reduction ahead in the sexual activity of teenagers, in part because society sends teens a mixed message: advertisements and the mass media convey “very heavy messages that sexual activity is acceptable and expected,” inducements that sometimes drown out the warnings of experts and the pleas of parents. The Lord cuts through all the media messages with clear and precise language when He declares to us, “Be … clean” ([[3 Nephi 20.41|3 Ne. 20:41]]).
 
-Whenever temptation comes, remember the wise counsel of the Apostle Paul, who declared, “There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it” ([[1 Corinthians 10.13|1 Cor. 10:13]]).
+Whenever temptation comes, remember the wise counsel of the Apostle Paul, who declared, “There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it” ([[1 Corinthians 10.13|1 Cor. 10:13]]).
 
 ## 10. Sunday Behavior
 
@@ -161,8 +163,3 @@ Brethren, it is my prayer that we may so live that we, too, may touch heaven and
 
 
 
-
-
-
-
-#Morality #Repentance #Sabbath #Temptation #Word_Of_Wisdom #Youth

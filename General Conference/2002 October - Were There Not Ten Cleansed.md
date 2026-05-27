@@ -1,5 +1,7 @@
 # Were There Not Ten Cleansed?
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -35,8 +37,3 @@ God lives. He is our Father. I testify to you that Jesus is the Christ, the Son 
 
 
 
-
-
-
-
-#Blessings #Gratitude #Jesus_Christ #Testimony

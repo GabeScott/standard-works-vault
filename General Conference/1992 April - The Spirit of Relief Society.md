@@ -1,5 +1,7 @@
 # The Spirit of Relief Society
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -22,7 +24,7 @@ To paraphrase a thought:
 
 Years ago I saw a photograph of a Sunday School class in the Sixth Ward of the Pioneer Stake in Salt Lake City. The photograph was taken in 1905. A sweet girl, her hair in pigtails, was shown on the front row. Her name was Belle Smith. Later, as Belle Smith Spafford, general president of the Relief Society, she wrote: “Never have women had greater influence than in today’s world. Never have the doors of opportunity opened wider for them. This is an inviting, exciting, challenging and demanding period of time for women. It is a time rich in rewards if we keep our balance, learn the true values of life, and wisely determine priorities.”[^1]
 
-The Apostle Paul gave us this caution: “The letter \[of the law\] killeth, but the spirit giveth life.” ([[2 Corinthians 3.6|2 Cor. 3:6]].) The spirit of Relief Society is being made manifest today, in our time. We see stirrings of strength, we hear the rustling of a resurrection, we observe the dawning of a new day.
+The Apostle Paul gave us this caution: “The letter \[of the law\] killeth, but the spirit giveth life.” ([[2 Corinthians 3.6|2 Cor. 3:6]].) The spirit of Relief Society is being made manifest today, in our time. We see stirrings of strength, we hear the rustling of a resurrection, we observe the dawning of a new day.
 
 In the *Church News,* Sister Irene Maximova, Relief Society president in the St. Petersburg (Russia) Ward, reported some changes she sees in the lives of women after they join the Church: “They have more compassion for other people. I see increased consideration and respect. They are more occupied with scriptures and spiritual matters. … As Church members in Russia, we must always remember the Lord’s commandments to love God and to love our neighbors. … For 70 years our society lost those good qualities.”[^2]
 
@@ -105,20 +107,15 @@ In the name of the Prince of Peace, Jesus Christ the Lord, amen.
 
 
 
-[^1]: *A Woman’s Reach* (Salt Lake City: Deseret Book Co., 1974), p. 21.
+[^1]: *A Woman’s Reach* (Salt Lake City: Deseret Book Co., 1974), p. 21.
 
-[^2]: *Church News,* 15 Feb. 1992, p. 7.
+[^2]: *Church News,* 15 Feb. 1992, p. 7.
 
-[^3]: *The Complete Poetical Works of James Russell Lowell* (Boston: Houghton, Mifflin Co., 1925), p. 110.
+[^3]: *The Complete Poetical Works of James Russell Lowell* (Boston: Houghton, Mifflin Co., 1925), p. 110.
 
-[^4]: *Rousseau and the Sentimentalists,* quoted in John Bartlett, *Familiar Quotations,* 14th ed. (Boston: Little, Brown and Co., 1968), p. 695.
+[^4]: *Rousseau and the Sentimentalists,* quoted in John Bartlett, *Familiar Quotations,* 14th ed. (Boston: Little, Brown and Co., 1968), p. 695.
 
 [^5]: *Deseret Sunday School Songs* (Salt Lake City: Deseret Sunday School Union, 1909), no. 197.
 
-[^6]: “Gifts,” in *The Complete Writings of Ralph Waldo Emerson* (New York: Wm. H. Wise and Co., 1929), p. 286.
+[^6]: “Gifts,” in *The Complete Writings of Ralph Waldo Emerson* (New York: Wm. H. Wise and Co., 1929), p. 286.
 
-
-
-
-
-#Home #Relief_Society #Service #Talents

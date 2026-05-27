@@ -1,23 +1,22 @@
 # Commitment
 
+*See also* [[Dedication.md|Dedication]]; [[Diligence.md|Diligence]]
 
-*See also* [[Dedication, Dedicate.md|Dedication]]; [[Diligence, Diligent, Diligently.md|Diligence]]
-
-Caleb ... hath *followed* me fully, [[Numbers 14.24|Numbers 14:24]].
+Caleb … hath *followed* me fully, [[Numbers 14.24|Numbers 14:24]].
 
 love the Lord thy God with all thine *heart*, and with all thy soul, and with all thy might, [[Deuteronomy 6.5|Deuteronomy 6:5]] ([[Mark 12.30|Mark 12:30]]; [[Moroni 10.32|Moroni 10:32]]).
 
 serve the Lord thy God with all thy *heart*, [[Deuteronomy 10.12|Deuteronomy 10:12]] ([[D&C 4.2|D&C 4:2]]).
 
-keep and do them with all thine *heart*, [[Deuteronomy 26.16|Deuteronomy 26:16]] ([[Joshua 22.1|Josh. 22:1-7]][[Joshua 22.2|]][[Joshua 22.3|]][[Joshua 22.4|]][[Joshua 22.5|]][[Joshua 22.6|]][[Joshua 22.7|]]).
+keep and do them with all thine *heart*, [[Deuteronomy 26.16|Deuteronomy 26:16]].
 
-*choose* you this day whom ye will serve, [[Joshua 24.15|Joshua 24:15]] ([[Joshua 24.14|24:14-25]][[Joshua 24.15|]][[Joshua 24.16|]][[Joshua 24.17|]][[Joshua 24.18|]][[Joshua 24.19|]][[Joshua 24.20|]][[Joshua 24.21|]][[Joshua 24.22|]][[Joshua 24.23|]][[Joshua 24.24|]][[Joshua 24.25|]]).
+*choose* you this day whom ye will serve, [[Joshua 24.15|Joshua 24:15]].
 
 she was *steadfastly* minded to go with her, [[Ruth 1.18|Ruth 1:18]].
 
 serve him in truth with all your *heart*, [[1 Samuel 12.24|1 Samuel 12:24]].
 
-*covenant* ... to walk after the Lord, [[2 Kings 23.3|2 Kings 23:3]].
+*covenant* … to walk after the Lord, [[2 Kings 23.3|2 Kings 23:3]].
 
 *Commit* thy way unto the Lord, [[Psalms 37.5|Psalms 37:5]].
 
@@ -43,9 +42,9 @@ cometh to me, and heareth my sayings, and *doeth* them, [[Luke 6.47|Luke 6:47]].
 
 No man, having put his hand to the *plough*, and looking back, is fit, [[Luke 9.62|Luke 9:62]].
 
-Blessed is that servant, whom his lord ... shall find so *doing*, [[Luke 12.43|Luke 12:43]].
+Blessed is that servant, whom his lord … shall find so *doing*, [[Luke 12.43|Luke 12:43]].
 
-build a tower ... first ... counteth the cost, whether he have sufficient to *finish*, [[Luke 14.28|Luke 14:28]].
+build a tower … first … counteth the cost, whether he have sufficient to *finish*, [[Luke 14.28|Luke 14:28]].
 
 Father, into thy hands I *commend* my spirit, [[Luke 23.46|Luke 23:46]].
 
@@ -55,7 +54,7 @@ I will lay down my *life* for thy sake, [[John 13.37|John 13:37]].
 
 If ye love me, keep my *commandments*, [[John 14.15|John 14:15]].
 
-continued *steadfastly* in the apostles' doctrine, [[Acts 2.42|Acts 2:42]].
+continued *steadfastly* in the apostles’ doctrine, [[Acts 2.42|Acts 2:42]].
 
 I am *ready* to preach the gospel to you, [[Romans 1.15|Romans 1:15]].
 
@@ -105,7 +104,7 @@ keep my commandments, yea, with all your *might*, [[D&C 11.20|D&C 11:20]].
 
 having a *determination* to serve him to the end, [[D&C 20.37|D&C 20:37]].
 
-*witness* ... they are willing to take upon them the name of thy Son, [[D&C 20.77|D&C 20:77]].
+*witness* … they are willing to take upon them the name of thy Son, [[D&C 20.77|D&C 20:77]].
 
 *embrace* it with singleness of heart, [[D&C 36.7|D&C 36:7]].
 
@@ -113,12 +112,10 @@ having a *determination* to serve him to the end, [[D&C 20.37|D&C 20:37]].
 
 thy *vows* shall be offered up in righteousness, [[D&C 59.11|D&C 59:11]].
 
-prepare ... by *doing* the things which I have commanded, [[D&C 78.7|D&C 78:7]].
+prepare … by *doing* the things which I have commanded, [[D&C 78.7|D&C 78:7]].
 
-things shall work together for your good, if ye ... remember the *covenant*, [[D&C 90.24|D&C 90:24]].
+things shall work together for your good, if ye … remember the *covenant*, [[D&C 90.24|D&C 90:24]].
 
 are willing to observe their covenants by *sacrifice*, [[D&C 97.8|D&C 97:8]].
 
-*desiring* ... to be a greater follower of righteousness, [[Abraham 1.2|Abraham 1:2]].
-
-*See also* [[Deuteronomy 7.17|Deuteronomy 7:17]]; [[Matthew 5.10|Matthew 5:10]]; [[Luke 4.8|Luke 4:8]]; [[3 Nephi 29.8|3 Nephi 29:8]]; [[D&C 88.68|D&C 88:68]].
+*desiring* … to be a greater follower of righteousness, [[Abraham 1.2|Abraham 1:2]].

@@ -1,5 +1,7 @@
 # Finding Joy by Serving Others
 
+Gordon B. Hinckley
+
 By JoAnn Randall
 
 *Given in the October session of the 1981 General Conference*
@@ -10,7 +12,7 @@ My dear brothers and sisters: We are happy as a couple to be able to speak to yo
 
 It was with awe that our children first heard the story about a family who gave away their entire Christmas—tree, food, and gifts. It all began when their neighbor’s home burned early on the morning of Christmas Eve. When the children heard of their friends’ situation, a family meeting was called and they all agreed, without exception, that they would share their Christmas.
 
-The day’s activities soon centered around switching name tags on gifts and boxing up Christmas goodies, turkey and all. And at the last minute, they even took the tree! When they gathered back home after delivering their project in secret, they had feelings of excitement and love. (See Leon R. Hartshorn, *Memorable Christmas Stories,* p. 41.)
+The day’s activities soon centered around switching name tags on gifts and boxing up Christmas goodies, turkey and all. And at the last minute, they even took the tree! When they gathered back home after delivering their project in secret, they had feelings of excitement and love. (See Leon R. Hartshorn, *Memorable Christmas Stories,* p. 41.)
 
 Questions came from our children: “Wasn’t it hard for the first family to give?” “Wasn’t it difficult for the other family to receive?”
 
@@ -65,8 +67,3 @@ There are so many ways that our families can bring joy to others through service
 
 
 
-
-
-
-
-#Charity #Family

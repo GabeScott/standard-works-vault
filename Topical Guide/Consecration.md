@@ -1,9 +1,8 @@
 # Consecration
 
+*See also* [[Anointing.md|Anointing]]; [[Consecrate.md|Consecrate]]; [[Dedication.md|Dedication]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Setting Apart.md|Setting Apart]]; [[Zion.md|Zion]]
 
-*See also* [[Anointing, Anoint.md|Anointing]]; [[Consecrate.md|Consecrate]]; [[Dedication, Dedicate.md|Dedication]]; [[Priesthood, Authority.md|Priesthood, Authority]]; [[Setting Apart.md|Setting Apart]]; [[Zion, Sion.md|Zion]]
-
-had all things *common*, [[Acts 2.44|Acts 2:44]] ([[Acts 4.32|4:32-37]][[Acts 4.33|]][[Acts 4.34|]][[Acts 4.35|]][[Acts 4.36|]][[Acts 4.37|]]; [[3 Nephi 26.19|3 Nephi 26:19]]; [[4 Nephi 1.3|4 Nephi 1:3]]).
+had all things *common*, [[Acts 2.44|Acts 2:44]] ([[3 Nephi 26.19|3 Nephi 26:19]]; [[4 Nephi 1.3|4 Nephi 1:3]]).
 
 that there may be *equality*, [[2 Corinthians 8.14|2 Corinthians 8:14]].
 
@@ -11,14 +10,12 @@ that there may be *equality*, [[2 Corinthians 8.14|2 Corinthians 8:14]].
 
 remember the poor, and *consecrate* of thy properties, [[D&C 42.30|D&C 42:30]].
 
-not given that one man should *possess* ... above another, [[D&C 49.20|D&C 49:20]].
+not given that one man should *possess* … above another, [[D&C 49.20|D&C 49:20]].
 
 every man *equal* according to his family, [[D&C 51.3|D&C 51:3]].
 
 That you may be *equal* in the bonds of heavenly things, [[D&C 78.5|D&C 78:5]].
 
-Zion cannot be built up ... by the *principles* of the law, [[D&C 105.5|D&C 105:5]].
+Zion cannot be built up … by the *principles* of the law, [[D&C 105.5|D&C 105:5]].
 
 there was no *poor* among them, [[Moses 7.18|Moses 7:18]].
-
-*See also* [[Acts 5.2|Acts 5:2]]; [[4 Nephi 1.25|4 Nephi 1:25]].

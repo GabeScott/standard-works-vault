@@ -1,6 +1,5 @@
 # Kings, Earthly
 
-
 *See also* [[Citizenship.md|Citizenship]]; [[Governments.md|Governments]]; [[Jesus Christ, King.md|Jesus Christ, King]]; [[Jesus Christ, Millennial Reign.md|Jesus Christ, Millennial Reign]]; [[Kingdom.md|Kingdom]]; [[Tyranny.md|Tyranny]]
 
 Melchizedek *king* of Salem, [[Genesis 14.18|Genesis 14:18]] ([[Hebrews 7.1|Hebrews 7:1]]).
@@ -15,7 +14,7 @@ set him *king* over thee, whom the Lord thy God shall choose, [[Deuteronomy 17.1
 
 five *kings* fled, and hid themselves in a cave, [[Joshua 10.16|Joshua 10:16]].
 
-trees went ... to anoint a *king* over them, [[Judges 9.8|Judges 9:8]].
+trees went … to anoint a *king* over them, [[Judges 9.8|Judges 9:8]].
 
 there was no *king* in Israel, [[Judges 17.6|Judges 17:6]] ([[Judges 18.1|Judges 18:1]]; [[Judges 19.1|Judges 19:1]]; [[Judges 21.25|Judges 21:25]]).
 
@@ -27,15 +26,15 @@ Nay, but set a *king* over us, [[1 Samuel 10.19|1 Samuel 10:19]].
 
 God save the *king*, [[1 Samuel 10.24|1 Samuel 10:24]].
 
-*king* shall reign over us: when ... God was your *king*, [[1 Samuel 12.12|1 Samuel 12:12]].
+*king* shall reign over us: when … God was your *king*, [[1 Samuel 12.12|1 Samuel 12:12]].
 
-wickedness is great ... in asking you a *king*, [[1 Samuel 12.17|1 Samuel 12:17]].
+wickedness is great … in asking you a *king*, [[1 Samuel 12.17|1 Samuel 12:17]].
 
 they anointed David *king* over Israel, [[2 Samuel 5.3|2 Samuel 5:3]].
 
 If thou wilt be a *servant* unto this people, [[1 Kings 12.7|1 Kings 12:7]].
 
-build unto the Lord ... as *king* Cyrus ... hath commanded, [[Ezra 4.3|Ezra 4:3]].
+build unto the Lord … as *king* Cyrus … hath commanded, [[Ezra 4.3|Ezra 4:3]].
 
 *kings* of the earth set themselves, [[Psalms 2.2|Psalms 2:2]] ([[Acts 4.26|Acts 4:26]]).
 
@@ -57,7 +56,7 @@ a *king* shall reign in righteousness, [[Isaiah 32.1|Isaiah 32:1]].
 
 David their *king*, whom I will raise up, [[Jeremiah 30.9|Jeremiah 30:9]].
 
-Her *princes* ... are like wolves ravening the prey, [[Ezekiel 22.27|Ezekiel 22:27]].
+Her *princes* … are like wolves ravening the prey, [[Ezekiel 22.27|Ezekiel 22:27]].
 
 my *princes* shall no more oppress my people, [[Ezekiel 45.8|Ezekiel 45:8]].
 
@@ -77,7 +76,7 @@ seek the Lord their God, and David their *king*, [[Hosea 3.5|Hosea 3:5]].
 
 brought before governors and *kings*, [[Matthew 10.18|Matthew 10:18]] ([[Mark 13.9|Mark 13:9]]; [[Luke 21.12|Luke 21:12]]).
 
-they that wear soft clothing are in *kings'* houses, [[Matthew 11.8|Matthew 11:8]].
+they that wear soft clothing are in *kings’* houses, [[Matthew 11.8|Matthew 11:8]].
 
 of whom do the *kings* of the earth take custom, [[Matthew 17.25|Matthew 17:25]].
 
@@ -117,7 +116,7 @@ who was made a *king* by the voice of the people, [[Mosiah 7.9|Mosiah 7:9]].
 
 not expedient that we should have a *king*, [[Mosiah 23.7|Mosiah 23:7]] ([[Mosiah 29.16|Mosiah 29:16]]).
 
-if ... you could have just men to be your *kings*, [[Mosiah 29.13|Mosiah 29:13]].
+if … you could have just men to be your *kings*, [[Mosiah 29.13|Mosiah 29:13]].
 
 ye cannot dethrone an iniquitous *king*, [[Mosiah 29.21|Mosiah 29:21]].
 
@@ -125,13 +124,13 @@ an unrighteous *king* doth pervert the ways, [[Mosiah 29.23|Mosiah 29:23]].
 
 by having an unrighteous *king* to rule over them, [[Mosiah 29.35|Mosiah 29:35]].
 
-dethroned from the judgment-seat were called *king-* men, [[Alma 51.5|Alma 51:5]].
+dethroned from the judgment-seat were called *king-*men, [[Alma 51.5|Alma 51:5]].
 
-no more be at liberty but ... subject unto *kings*, [[3 Nephi 6.30|3 Nephi 6:30]].
+no more be at liberty but … subject unto *kings*, [[3 Nephi 6.30|3 Nephi 6:30]].
 
 constrain no man to be their *king*, [[Ether 6.25|Ether 6:25]].
 
-gospel might be proclaimed ... before *kings* and rulers, [[D&C 1.23|D&C 1:23]].
+gospel might be proclaimed … before *kings* and rulers, [[D&C 1.23|D&C 1:23]].
 
 in time ye shall have no *king* nor ruler, [[D&C 38.21|D&C 38:21]].
 

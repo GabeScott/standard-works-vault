@@ -1,6 +1,8 @@
 # “However Faint the Light May Glow”
 
-By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -82,23 +84,18 @@ Death, divorce, transgression, loneliness, and despair drive us to Gethsemane’
 
 All who are active have someone close who may be inactive, indifferent, or clothed in transgression’s soiled robes. They need the sweet, abiding love of a compassionate parent or loving brother or sister. Jesus will bless every member of the Church who will go out and bring someone back.
 
-President J. Reuben Clark, Jr., said:
+President J. Reuben Clark, Jr., said:
 
 “Every human being is born with the light of faith kindled in his heart as on an altar, and that light burns and the Lord sees that it burns, during the period before we are accountable. When accountability comes then each of us determines how we shall feed and care for that light. If we shall live righteously that light will glow until it suffuses the whole body, giving to it health and strength and spiritual light as well as bodily health. If we shall live unrighteously that light will dwindle and finally almost flicker out. Yet it is my hope and my belief that the Lord never permits the light of faith wholly to be extinguished in any human heart, however faint the light may glow. The Lord has provided that there shall still be there a spark which, with teaching, with the spirit of righteousness, with love, with tenderness, with example, with living the Gospel, shall brighten and glow again, however darkened the mind may have been. And if we shall fail so to reach those among us of our own whose faith has dwindled low, we shall fail in one of the main things which the Lord expects at our hands.” (In Conference Report, Oct. 1936, p. 114.)
 
-We are the keepers of the light. We invite all who are here to reach out and bless others who are not here. Listen to the voice of a prophet. President Spencer W. Kimball said: “We extend to every listener a cordial invitation to come to the watered garden, to the shade of pleasant trees, to unchangeable truth.
+We are the keepers of the light. We invite all who are here to reach out and bless others who are not here. Listen to the voice of a prophet. President Spencer W. Kimball said: “We extend to every listener a cordial invitation to come to the watered garden, to the shade of pleasant trees, to unchangeable truth.
 
 “Come with us to sureness, security, consistency. Here the cooling waters flow. The spring does not go dry.
 
-“Come listen to a prophet’s voice and hear the word of God.” (In Conference Report, Apr. 1971, p. 11.)
+“Come listen to a prophet’s voice and hear the word of God.” (In Conference Report, Apr. 1971, [[1971 April - Voices of the Past, of the Present, of the Future.md|p. 11]].)
 
 And we invite all those who are not here to come home. We gaze steadily down the road, anxious for your return. We will run with open arms, and hearts filled with compassion. There are shoes for your feet, a robe, a ring for your hand, and a fatted calf. Come home and we will rejoice together, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Forgiveness #Repentance

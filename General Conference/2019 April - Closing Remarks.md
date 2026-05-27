@@ -1,6 +1,8 @@
 # Closing Remarks
 
-By President Russell M. Nelson
+Ulisses Soares
+
+By President Russell M. Nelson
 
 *Given in the April session of the 2019 General Conference*
 
@@ -22,7 +24,7 @@ We now have 162 dedicated temples. The earliest ones stand as monuments to the f
 
 Ours is a sacred responsibility to care for them. Therefore, these pioneer temples will soon undergo a period of renewal and refreshing and, for some, a major restoration. Efforts will be made to preserve the unique historicity of each temple wherever possible, preserving the inspiring beauty and unique craftsmanship of generations long-since passed.
 
-Details for the St. George Utah Temple have already been released. Plans for the renovation of the Salt Lake Temple, Temple Square, and the adjoining plaza near the Church Office Building will be announced on Friday, April 19, 2019.
+Details for the St. George Utah Temple have already been released. Plans for the renovation of the Salt Lake Temple, Temple Square, and the adjoining plaza near the Church Office Building will be announced on Friday, April 19, 2019.
 
 The Manti and Logan Utah Temples will also be renovated in coming years. When those plans are prepared, they too will be announced.
 
@@ -45,10 +47,5 @@ I so bless you and bear my testimony that God lives! Jesus is the Christ! This i
 
 
 
-[^1]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng&id=p24#p24) (2007), 142.
+[^1]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng&id=p24#p24) (2007), 142.
 
-
-
-
-
-#Discipleship #General_Conference #Temples

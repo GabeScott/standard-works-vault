@@ -1,5 +1,7 @@
 # Respect and Reverence
 
+Thomas S. Monson
+
 By Margaret S. Lifferth - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2009 General Conference*
@@ -20,7 +22,7 @@ Ask yourself these questions: Am I an example of respect in my home by the way I
 
 As parents and leaders exemplify and teach respect for others, we confirm in the hearts of our children that each of us is truly a child of God and all are brothers and sisters through eternity. We will focus on the things we have in common—on the qualities of heart that bind the family of God together—rather than on our differences.
 
-Respect for others and reverence for God are close cousins. They are rooted in humility and love. President David O. McKay said that “reverence is profound respect mingled with love,”[^4] and Elder L. Tom Perry taught that “reverence flows from our admiration and respect for Deity.”[^5] Primary children learn this concept as they sing this verse from a Primary song:
+Respect for others and reverence for God are close cousins. They are rooted in humility and love. President David O. McKay said that “reverence is profound respect mingled with love,”[^4] and Elder L. Tom Perry taught that “reverence flows from our admiration and respect for Deity.”[^5] Primary children learn this concept as they sing this verse from a Primary song:
 
 >Rev’rence is more than just quietly sitting:
 >It’s thinking of Father above,
@@ -32,7 +34,7 @@ However, reverent behavior is not a natural tendency for most children. It is a 
 
 This process of teaching and self-discipline continues line upon line and precept upon precept. Thus a child learns to be reverent during prayers and the sacrament. He sits by his parents during the meeting. Then he grows in lessons of self-discipline as later he learns to fast, to obey the Word of Wisdom, to make good Internet choices, and to keep the law of chastity. We each grow in ability as well as understanding. We bless our children and youth as we exemplify, teach, and encourage them through this process, because self-mastery is not only the root of self-respect; it is essential in inviting the Spirit to teach, confirm, and testify.
 
-I remember a talk that President Boyd K. Packer gave in conference almost 20 years ago entitled “Reverence Invites Revelation.”[^7] That phrase has remained in my heart all these years. It reminds me that we *must* create in our hearts, our homes, and our meetings places of reverence that will invite the Spirit to comfort, guide, teach, and testify. Because when the Spirit testifies to each of us that God is our Father and Jesus Christ is our Savior, it is *that* revelation that will invite true reverence born of love and profound respect.
+I remember a talk that President Boyd K. Packer gave in conference almost 20 years ago entitled “Reverence Invites Revelation.”[^7] That phrase has remained in my heart all these years. It reminds me that we *must* create in our hearts, our homes, and our meetings places of reverence that will invite the Spirit to comfort, guide, teach, and testify. Because when the Spirit testifies to each of us that God is our Father and Jesus Christ is our Savior, it is *that* revelation that will invite true reverence born of love and profound respect.
 
 So, as parents and leaders, what can we do? We can exemplify reverence as we pray humbly, use the proper language of prayer, and speak the names of Deity appropriately. We can handle the scriptures with respect and teach doctrine from them with conviction.
 
@@ -67,20 +69,15 @@ I believe the promises of a prophet. I know that I have a loving Heavenly Father
 
 [^3]: [[John 6.48|John 6:48]].
 
-[^4]: David O. McKay, in Conference Report, Apr. 1967, 86.
+[^4]: David O. McKay, in Conference Report, Apr. 1967, 86.
 
-[^5]: L. Tom Perry, in Conference Report, Oct. 1990, 90; or *Ensign,* Nov. 1990, 70.
+[^5]: L. Tom Perry, in Conference Report, Oct. 1990, [[1990 October - “Serve God Acceptably with Reverence and Godly Fear”.md|90]]; or *Ensign,* Nov. 1990, 70.
 
 [^6]: “Reverence Is Love,” *Children’s Songbook,* 31.
 
-[^7]: See Boyd K. Packer, in Conference Report, Oct. 1991, 26–30; or *Ensign,* Nov. 1991, 21–23.
+[^7]: See Boyd K. Packer, in Conference Report, Oct. 1991, [[1991 October - Reverence Invites Revelation.md|26–30]]; or *Ensign,* Nov. 1991, 21–23.
 
 [^8]: See *Teaching, No Greater Call* (1999), 79–87.
 
-[^9]: Boyd K. Packer, in Conference Report, Oct. 1991, 29–30; or *Ensign,* Nov. 1991, 23.
+[^9]: Boyd K. Packer, in Conference Report, Oct. 1991, [[1991 October - Reverence Invites Revelation.md|29–30]]; or *Ensign,* Nov. 1991, 23.
 
-
-
-
-
-#Example #Respect #Reverence #Teaching

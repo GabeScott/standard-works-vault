@@ -1,14 +1,16 @@
 # Preparing the Way
 
-By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1980/04/preparing-the-way?lang=eng)
 
-We welcome to their new responsibilities and opportunities President Dwan J. Young and her counselors, Virginia B. Cannon and Michaelene P. Grassli. Certainly President Naomi Shumway and her counselors, Colleen B. Lemmon and Dorthea Lou C. Murdock, have established an enviable record of service on which to build.
+We welcome to their new responsibilities and opportunities President Dwan J. Young and her counselors, Virginia B. Cannon and Michaelene P. Grassli. Certainly President Naomi Shumway and her counselors, Colleen B. Lemmon and Dorthea Lou C. Murdock, have established an enviable record of service on which to build.
 
-Today I desire also to pay tribute to another Primary leader—a noble woman and personal friend. I speak of LaVern W. Parmley, former president of the Primary Association of The Church of Jesus Christ of Latter-day Saints and former member of the National Advisory Council, Boy Scouts of America. Sister Parmley, as she was affectionately addressed by those who knew her, completed her mission here on earth on Sunday, 27 January 1980. Her funeral services followed a few days later, where in word and song eulogies were expressed and comfort extended to those in attendance.
+Today I desire also to pay tribute to another Primary leader—a noble woman and personal friend. I speak of LaVern W. Parmley, former president of the Primary Association of The Church of Jesus Christ of Latter-day Saints and former member of the National Advisory Council, Boy Scouts of America. Sister Parmley, as she was affectionately addressed by those who knew her, completed her mission here on earth on Sunday, 27 January 1980. Her funeral services followed a few days later, where in word and song eulogies were expressed and comfort extended to those in attendance.
 
 LaVern Parmley and Naomi Shumway, together with their counselors, gave freely of their time and talents over a span of many years, teaching little children to walk in the light of the gospel of Christ. They taught each child to sing with personal conviction:
 
@@ -23,9 +25,9 @@ Part of their great love was teaching boys. Their inspired objective was to prep
 
 Under their direction, all eleven-year-old boys were asked to commit to memory the Articles of Faith of The Church of Jesus Christ of Latter-day Saints. You remember them. May I mention just two:
 
-“We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]).
+“We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]).
 
-“We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men; indeed, we may say that we follow the admonition of Paul—We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things. If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
+“We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men; indeed, we may say that we follow the admonition of Paul—We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things. If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things” ([[Articles of Faith 1.13|A of F 1:13]]).
 
 Can you think of a more firm foundation, a more basic philosophy to guide a boy, than the Articles of Faith? What a gift these noble women imparted when they expected each boy to know and indeed live by such a standard. They personally accepted the divine injunction, “Feed my sheep; feed my lambs” (see [[John 21.15|John 21:15–16]][[John 21.16|]]).
 
@@ -43,7 +45,7 @@ As with the master, Jesus Christ, so with the servant, John—precious little is
 
 His dress was that of the old prophets—a garment woven of camel’s hair. His food was such as the desert afforded—locusts and wild honey. His message was brief. He preached faith, repentance, baptism by immersion, and the bestowal of the Holy Ghost by an authority greater than that possessed by himself.
 
-“I am not the Christ” ([[John 1.20|John 1:20]]), he told his band of faithful disciples. “But I am sent before him.” “I indeed baptize you with water … but one mightier than I cometh … : he shall baptize you with the Holy Ghost, and with fire (see [[Matthew 3.11|Matt. 3:11]]).
+“I am not the Christ” ([[John 1.20|John 1:20]]), he told his band of faithful disciples. “But I am sent before him.” “I indeed baptize you with water … but one mightier than I cometh … : he shall baptize you with the Holy Ghost, and with fire (see [[Matthew 3.11|Matt. 3:11]]).
 
 Then there transpired the climactic scene of John’s mission—the baptism of Christ. Jesus came down from Galilee expressly “to be baptized” by John. Humbled of heart and contrite in spirit, John pleaded, “I have need to be baptized of thee, and comest thou to me?” The Master’s reply: “It becometh us to fulfil all righteousness.” (See [[Matthew 3.13|Matt. 3:13–15]][[Matthew 3.14|]][[Matthew 3.15|]].)
 
@@ -57,9 +59,9 @@ Of John, the Savior later testified, “Among them that are born of women there 
 
 John’s public ministry moved toward its close. He had, at the beginning of it, condemned the hypocrisy and worldliness of the Pharisees and Sadducees; and he now had occasion to denounce the lust of a king. The result is well known. A king’s weakness and a woman’s fury combined to bring about the death of John.
 
-The tomb in which his body was placed could not contain that body. Nor could the act of murder still that voice. To the world we declare that at Harmony, Pennsylvania, on 15 May 1829, an angel, “who announced himself as John, the same that is called John the Baptist in the New Testament” ([D&C 13, section heading](https://churchofjesuschrist.org/study/scriptures/dc-testament/dc/13?lang=eng&id=study_intro1#study_intro1)), came as a resurrected personage to Joseph Smith and Oliver Cowdery. “The angelic visitant averred that he was acting under the direction of Peter, James, and John, the ancient Apostles, who held the keys of the higher Priesthood, which was called the Priesthood of Melchizedek” ([D&C 13, section heading](https://churchofjesuschrist.org/study/scriptures/dc-testament/dc/13?lang=eng&id=study_intro1#study_intro1)). The Aaronic Priesthood was restored to the earth.
+The tomb in which his body was placed could not contain that body. Nor could the act of murder still that voice. To the world we declare that at Harmony, Pennsylvania, on 15 May 1829, an angel, “who announced himself as John, the same that is called John the Baptist in the New Testament” ([D&C 13, section heading](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/13?lang=eng&id=study_intro1#study_intro1)), came as a resurrected personage to Joseph Smith and Oliver Cowdery. “The angelic visitant averred that he was acting under the direction of Peter, James, and John, the ancient Apostles, who held the keys of the higher Priesthood, which was called the Priesthood of Melchizedek” ([D&C 13, section heading](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/13?lang=eng&id=study_intro1#study_intro1)). The Aaronic Priesthood was restored to the earth.
 
-Thanks to that memorable event, I was given the privilege to bear the Aaronic Priesthood, as have millions of young men in these latter days. Its true significance was taught me by my former stake president, the late Paul C. Child.
+Thanks to that memorable event, I was given the privilege to bear the Aaronic Priesthood, as have millions of young men in these latter days. Its true significance was taught me by my former stake president, the late Paul C. Child.
 
 When I was approaching my eighteenth birthday and preparing to enter military service in World War II, I was recommended to receive the Melchizedek Priesthood. Mine was the task of telephoning President Child for an appointment and interview. He was one who loved and understood the holy scriptures. It was his intent that all others should similarly love and understand them. Knowing from others of his rather detailed and searching interviews, our telephone conversation went something like this:
 
@@ -81,7 +83,7 @@ Again came my response: “No.”
 
 Then he instructed, “Brother Monson, repeat from memory the thirteenth section of the Doctrine and Covenants.”
 
-I began, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels …” ([[D&C 13.1|D&C 13:1]]).
+I began, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels …” ([[D&C 13.1|D&C 13:1]]).
 
 “Stop,” President Child directed. Then in a calm, kindly tone he counseled: “Brother Monson, never forget that as a holder of the Aaronic Priesthood you are entitled to the ministering of angels.” It was almost as though an angel were in the room that day. I have never forgotten the interview. I yet feel the spirit of that solemn occasion. I revere the priesthood of Almighty God. I have witnessed its power. I have seen its strength. I have marveled at the miracles it has wrought.
 
@@ -102,8 +104,3 @@ May we be motivated by his message. May we be inspired by his mission. May we be
 
 
 
-
-
-
-
-#Priesthood

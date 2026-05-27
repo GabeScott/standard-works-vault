@@ -1,5 +1,7 @@
 # A Time for Preparation
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -26,7 +28,7 @@ A learning experience? Of course! An individual or a team must be prepared. Succ
 
 The Aaronic Priesthood years are critical years of preparation. The Lord knew young men would need these valuable teen years to prepare for life—precious years with meaningful, never-to-be-forgotten spiritual experiences. You will face some crucial decisions, but hopefully you will take advantage of the seasoned experience and counsel of your loving parents and concerned priesthood leaders.
 
-In 2 Timothy in the New Testament, the Apostle Paul is jailed in a dark, dreary dungeon awaiting execution for his belief in Jesus Christ and teaching His gospel. Pouring out his troubled soul and firm conviction, he pleads in a letter written to his dear young friend Timothy to be faithful to the truths that have been taught to him and to remember “the gift of God, which is in thee by the putting on of my hands” ([[2 Timothy 1.6|2 Tim. 1:6]]). Paul had personally blessed and ordained Timothy and now urged him to be strong and not ashamed of his testimony of our Lord, come what may.
+In 2 Timothy in the New Testament, the Apostle Paul is jailed in a dark, dreary dungeon awaiting execution for his belief in Jesus Christ and teaching His gospel. Pouring out his troubled soul and firm conviction, he pleads in a letter written to his dear young friend Timothy to be faithful to the truths that have been taught to him and to remember “the gift of God, which is in thee by the putting on of my hands” ([[2 Timothy 1.6|2 Tim. 1:6]]). Paul had personally blessed and ordained Timothy and now urged him to be strong and not ashamed of his testimony of our Lord, come what may.
 
 The Apostle Paul was fearless and never wavered in his testimony of Jesus. His faith and determination lifted him from being a tentmaker to become a teacher, a missionary, leader, and organizer of Christian branches. He most certainly wasn’t a “sissy” nor weak. People of great faith know what is right and do it. They have uncompromised determination and commitment and are capable of enduring pressure or hardship. Paul knew what was right, and you know what is right. When you take courage like Paul and do what you know is right, nothing will stop your progress but yourself.
 
@@ -36,9 +38,9 @@ Oh, how this world needs committed, determined, and courageous young people—yo
 
 The Lord asked, “Unto what were ye ordained?” and then answered, “To preach my gospel by the Spirit, even … to teach the truth” ([[D&C 50.13|D&C 50:13–14]][[D&C 50.14|]]).
 
-President Spencer W. Kimball stated that “you are the sons of God. You are the elect of God, and you have within your \[grasp\] the possibility to become a god and pass by the angels … to your exaltation”—possibilities which seem beyond ordinary imagination, yet the promises are divine (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 496).
+President Spencer W. Kimball stated that “you are the sons of God. You are the elect of God, and you have within your \[grasp\] the possibility to become a god and pass by the angels … to your exaltation”—possibilities which seem beyond ordinary imagination, yet the promises are divine (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 496).
 
-As the foundation of the Salt Lake Temple was being laid, with footings sixteen feet wide, President Brigham Young discovered the workmen were using a soft stone. The work was halted, the soft stone taken out and replaced with giant blocks of granite. He declared, “We are building this temple to stand through the millennium” (quoted in LeGrand Richards, Conference Report, Oct. 1971, p. 83; or *Ensign,* Dec. 1971, p. 81).
+As the foundation of the Salt Lake Temple was being laid, with footings sixteen feet wide, President Brigham Young discovered the workmen were using a soft stone. The work was halted, the soft stone taken out and replaced with giant blocks of granite. He declared, “We are building this temple to stand through the millennium” (quoted in LeGrand Richards, Conference Report, Oct. 1971, p. 83; or *Ensign,* Dec. 1971, p. 81).
 
 “Wherefore, be not weary in well-doing,” the Lord admonishes, “for ye are laying the foundation of a great work” ([[D&C 64.33|D&C 64:33]]).
 
@@ -48,7 +50,7 @@ You are a member of a quorum of the priesthood with officers of your peers—wit
 
 God our Heavenly Father and His Son Jesus Christ determined—just imagine!—that Joseph Smith was old enough at fourteen to begin his instruction that would bring about the mighty work of the restoration of the gospel of Jesus Christ. Joseph saw the living God! He saw the living Christ! He was trusted with a heavenly task, and he completed it. You, too, are old enough to be trusted with ever-increasing tasks.
 
-You young Aaronic Priesthood men are old enough to know right from wrong, to know about Satan and his evil influence. *Satan* is a Hebrew name for the devil. It means adversary—one who wages open war with the truth and those who obey truthful principles. Satan chose the evil course from the beginning. His greatest aim, as taught by Moses and Enoch, is to get men to worship him (see [[Moses 1.12|Moses 1:12]]; [[Moses 6.49|6:49]]). He has had great success. As the professed god of this world, Satan has the adoration and worship of those who live after the manner of the world. All forms of wickedness and evil and rebellion against God’s holy purposes are of the devil. However, we are tested and challenged and must work out our salvation in the presence of evil. Lehi taught, “It must needs be, that there is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]). We have our agency to choose right from wrong, good from evil. But just because evil exists does *not* mean that we must partake of it. You cannot *do* wrong and *feel* right.
+You young Aaronic Priesthood men are old enough to know right from wrong, to know about Satan and his evil influence. *Satan* is a Hebrew name for the devil. It means adversary—one who wages open war with the truth and those who obey truthful principles. Satan chose the evil course from the beginning. His greatest aim, as taught by Moses and Enoch, is to get men to worship him (see [[Moses 1.12|Moses 1:12]]; [[Moses 6.49|6:49]]). He has had great success. As the professed god of this world, Satan has the adoration and worship of those who live after the manner of the world. All forms of wickedness and evil and rebellion against God’s holy purposes are of the devil. However, we are tested and challenged and must work out our salvation in the presence of evil. Lehi taught, “It must needs be, that there is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]). We have our agency to choose right from wrong, good from evil. But just because evil exists does *not* mean that we must partake of it. You cannot *do* wrong and *feel* right.
 
 Members of our Church know that tobacco and beer and alcohol, in all of their forms, have been condemned by the medical and scientific world as well as by God for the use of man. Civil laws of control are generally weak and difficult to enforce. With our inspired understanding, our most effective control over these poisonous products comes from ourselves.
 
@@ -80,21 +82,16 @@ The world needs someone to look up to—like you. A national leader remarked, �
 
 Your preparation should include your personal conversion to the gospel truths of this work—knowing who the Savior is and who you are and why He loved you enough to make the atoning sacrifice for you.
 
-Sounds difficult? I promise you that you can know, but only if you desire, with humble prayer and careful study of the scriptures. The Lord taught, “Search the scriptures … which testify of me,” and “ponder upon the things which I have said” ([[John 5.39|John 5:39]]; [[3 Nephi 17.3|3 Ne. 17:3]]).
+Sounds difficult? I promise you that you can know, but only if you desire, with humble prayer and careful study of the scriptures. The Lord taught, “Search the scriptures … which testify of me,” and “ponder upon the things which I have said” ([[John 5.39|John 5:39]]; [[3 Nephi 17.3|3 Ne. 17:3]]).
 
 Your continuing preparation is to be worthy to receive the Melchizedek Priesthood, keeping yourself clean and honorable and praying for strength and courage to withstand the evil temptations that surely come to every young man. If a mistake is made, discuss it with your bishop immediately. Do not let mistakes get an upper hold on you. Change bad behavior to good—*and do it now.* This is called repentance.
 
 I hope you have already made a commitment to yourself and to your Heavenly Father that you will serve a full-time mission. The Lord needs your service, and you need the unmeasured blessings.
 
-The Prophet Joseph Smith, in answer to a query about this remarkable organization, said, “I teach them correct principles, and they govern themselves” (quoted by John Taylor, in *Millennial Star,* 15 Nov. 1851, p. 339). I promise you, young priesthood holders, that if you will follow that counsel to govern yourselves by correct principles—principles you learn at home, through the scriptures, modern-day prophets, and the Holy Ghost—your decisions will be made with confidence and ease. And though fierce winds may be whipping the trees, your roots will be deeply entrenched in the ground.
+The Prophet Joseph Smith, in answer to a query about this remarkable organization, said, “I teach them correct principles, and they govern themselves” (quoted by John Taylor, in *Millennial Star,* 15 Nov. 1851, p. 339). I promise you, young priesthood holders, that if you will follow that counsel to govern yourselves by correct principles—principles you learn at home, through the scriptures, modern-day prophets, and the Holy Ghost—your decisions will be made with confidence and ease. And though fierce winds may be whipping the trees, your roots will be deeply entrenched in the ground.
 
 I am a living witness of our Eternal Heavenly Father’s love and mercy. He lives as does His Son, our Savior. This is His holy work, I testify in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Adversity #Honesty #Morality #Preparation #Priesthood #Temptation

@@ -1,6 +1,8 @@
 # Tested, Proved, and Polished
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -88,11 +90,11 @@ I learned another lesson from my mother. As a girl she had diphtheria and nearly
 
 All her life, she felt the effects of the trials of illness. In her last 10 years of life, she required multiple operations. But through it all, she proved faithful to the Lord, even when bedridden. The only picture on her bedroom wall was of the Savior. Her last words to me on her deathbed were these: “Hal, you sound as if you are getting a cold. You ought to take care of yourself.”
 
-At her funeral the last speaker was Elder Spencer W. Kimball. After saying something of her trials and her faithfulness, he said essentially this: “Some of you may wonder why Mildred had to suffer so much and so long. I will tell you why. It was because the Lord wanted to polish her a little more.”
+At her funeral the last speaker was Elder Spencer W. Kimball. After saying something of her trials and her faithfulness, he said essentially this: “Some of you may wonder why Mildred had to suffer so much and so long. I will tell you why. It was because the Lord wanted to polish her a little more.”
 
 I express my gratitude for the many faithful members of the Church of Jesus Christ who bear burdens with steady faith and who help others to bear theirs as the Lord seeks to polish them a little more. I also express love and admiration for caregivers and leaders across the world who serve others while they and their families endure such polishing.
 
-I testify that we are children of a Heavenly Father, who loves us. I feel President Russell M. Nelson’s love for us all. He is the Lord’s prophet in the world today. I so testify in the sacred name of the Lord Jesus Christ, amen.
+I testify that we are children of a Heavenly Father, who loves us. I feel President Russell M. Nelson’s love for us all. He is the Lord’s prophet in the world today. I so testify in the sacred name of the Lord Jesus Christ, amen.
 
 
 
@@ -113,7 +115,5 @@ I testify that we are children of a Heavenly Father, who loves us. I feel Presid
 
 [^8]: [[Luke 23.34|Luke 23:34]].
 
+[^9]: [[John 19.26|John 19:26–27]][[John 19.27|]].
 
-
-
-#Adversity #Atonement #Faith #Jesus_Christ #Plan_Of_Salvation

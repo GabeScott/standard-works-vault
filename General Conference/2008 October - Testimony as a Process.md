@@ -1,5 +1,7 @@
 # Testimony as a Process
 
+Thomas S. Monson
+
 By Elder Carlos A. Godoy - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -18,11 +20,11 @@ Fortunately that was a fast Sunday, and during sacrament meeting, I took the opp
 
 Sometimes we think that to have a testimony of the Church, we need some great, powerful experience, or a single event which would erase any doubts that we have received an answer or a confirmation.
 
-President Boyd K. Packer taught: “The voice of the Spirit is described in the scripture as being neither ‘loud’ nor ‘harsh.’ It is ‘not a voice of thunder, neither \[a\] voice of a great tumultuous noise.’ But rather, ‘a still voice of perfect mildness, as if it had been a whisper,’ and it can ‘pierce even to the very soul’ and ‘cause \[the heart\] to burn.’ ([[3 Nephi 11.3|3 Nephi 11:3]]; [[Helaman 5.30|Helaman 5:30]]; [[D&C 85.6|D&C 85:6–7]][[D&C 85.7|]].) Remember, Elijah found the voice of the Lord was not in the wind, nor in the earthquake, nor in the fire, but was a ‘still small voice.’ ([[1 Kings 19.12|1 Kings 19:12]].)”
+President Boyd K. Packer taught: “The voice of the Spirit is described in the scripture as being neither ‘loud’ nor ‘harsh.’ It is ‘not a voice of thunder, neither \[a\] voice of a great tumultuous noise.’ But rather, ‘a still voice of perfect mildness, as if it had been a whisper,’ and it can ‘pierce even to the very soul’ and ‘cause \[the heart\] to burn.’ ([[3 Nephi 11.3|3 Nephi 11:3]]; [[Helaman 5.30|Helaman 5:30]]; [[D&C 85.6|D&C 85:6–7]][[D&C 85.7|]].) Remember, Elijah found the voice of the Lord was not in the wind, nor in the earthquake, nor in the fire, but was a ‘still small voice.’ ([[1 Kings 19.12|1 Kings 19:12]].)”
 
-President Packer continues: “The Spirit does not get our attention by shouting or shaking us with a heavy hand. Rather it whispers. It caresses so gently that if we are preoccupied we may not feel it at all. …
+President Packer continues: “The Spirit does not get our attention by shouting or shaking us with a heavy hand. Rather it whispers. It caresses so gently that if we are preoccupied we may not feel it at all. …
 
-“Occasionally it will press just firmly enough for us to pay heed. But most of the time, if we do not heed the gentle feeling, the Spirit will withdraw and wait until we come seeking and listening and say in our manner and expression, like Samuel of ancient times, ‘Speak \[Lord\], for thy servant heareth.’ (\[[[1 Samuel 3.10|1 Samuel 3:10]]\].)” (“The Candle of the Lord,” *Tambuli,* July 1983, 30–31; *Ensign,* Jan. 1983, 53).
+“Occasionally it will press just firmly enough for us to pay heed. But most of the time, if we do not heed the gentle feeling, the Spirit will withdraw and wait until we come seeking and listening and say in our manner and expression, like Samuel of ancient times, ‘Speak \[Lord\], for thy servant heareth.’ (\[[[1 Samuel 3.10|1 Samuel 3:10]]\].)” (“The Candle of the Lord,” *Tambuli,* July 1983, 30–31; *Ensign,* Jan. 1983, 53).
 
 Great events are not a guarantee that our testimony will be strong. Laman and Lemuel are good examples of this. They were visited by angels, and even then, almost in the very next minute, they were questioning the will of the Lord. Some great leaders of these latter days can also teach us about this principle. They were taught from on high during the early days of the Restoration and still were not strong enough to endure to the end. These experiences show us that to receive the witness of the “still small voice” sometimes can have a stronger impact on our testimonies than the visit of an angel.
 
@@ -40,15 +42,10 @@ Today, after many years as a member of The Church of Jesus Christ of Latter-day 
 
 I would like to finish expressing this testimony, not only for that sister who taught the Sunday School class but also for all of you. I know that our Heavenly Father lives. I know He loves us. We are His children. He listens to our prayers. I know that Jesus Christ is our Savior. He died, was resurrected, and atoned for our sins. His Atonement has blessed me every day of my life.
 
-I testify that the Church of Jesus Christ was restored in these latter days by the Prophet Joseph Smith. He was a prophet of God. I know that we are led today by a living prophet, President Thomas S. Monson. I know he is a prophet for our days, just as Moses, Abraham, and Isaiah were in their days.
+I testify that the Church of Jesus Christ was restored in these latter days by the Prophet Joseph Smith. He was a prophet of God. I know that we are led today by a living prophet, President Thomas S. Monson. I know he is a prophet for our days, just as Moses, Abraham, and Isaiah were in their days.
 
 The Book of Mormon is the word of God, as well as the Bible, and it is another testimony of the Savior. I know that the power of the priesthood was restored and has been blessing many Saints throughout the world. And I testify of this in the sacred name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Holy_Ghost #Testimony

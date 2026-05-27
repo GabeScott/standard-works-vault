@@ -1,6 +1,6 @@
-# “She Is Not Afraid of the Snow for Her Household …”
+# “She Is Not Afraid of the Snow for Her Household …”
 
-By Barbara B. Smith - *Relief Society General President*
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -60,13 +60,8 @@ We urge Relief Society leaders to work out ways in which women can help in Churc
 
 As each sister participates in welfare, we feel added blessings can come into her life as conceptualized by the Relief Society Nauvoo monument to women, and she will be blessed spiritually. She will give a good pattern for her children to follow. She and her family will be blessed physically and socially. Furthermore, the Relief Society sisters of today will discover, as the founding sisters of Nauvoo realized, that there is a special blessing in working with the priesthood brethren of the Church. In so doing, they will be reliving and strengthening the companion pattern that began with Adam and Eve.
 
-It is my prayer that the preparations of the women of the Church in the area of home production and storage will enable us to be generous with our substance if needed and bring a greater security to individuals and families, so that we might be as the virtuous woman of old who was “not afraid of the snow \[of adversity\] for her household. …” ([[Proverbs 31.21|Prov. 31:21]].) In the name of Jesus Christ. Amen.
+It is my prayer that the preparations of the women of the Church in the area of home production and storage will enable us to be generous with our substance if needed and bring a greater security to individuals and families, so that we might be as the virtuous woman of old who was “not afraid of the snow \[of adversity\] for her household. …” ([[Proverbs 31.21|Prov. 31:21]].) In the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Preparation #Self-Reliance

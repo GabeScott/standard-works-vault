@@ -1,5 +1,7 @@
 # Agency and Accountability
 
+Gordon B. Hinckley
+
 By Elaine Cannon - *Young Women General President*
 
 *Given in the October session of the 1983 General Conference*
@@ -44,7 +46,7 @@ By strict obedience Jesus won. He did not succumb to Satan’s temptings. And if
 
 But I worry, Sisters. I sometimes wonder if we know God’s will for us, if we know what is hurtful or sinful and why, if we have the faintest notion, on the other hand, of the glories he has in store for our reward, here as well as hereafter, if we are obedient. I wonder if mothers have *really* taught daughters about truth, agency, and accountability. Are daughters sharing with mothers their own learnings? Individuals and families are strengthened as we help each other grow in the gospel of Jesus Christ.
 
-The 1984 scriptural theme approved by the General Authorities for young women to recite in class each week is “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, *save he shall prepare a way* for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]]; italics added.) We *can* do what we’re supposed to do.
+The 1984 scriptural theme approved by the General Authorities for young women to recite in class each week is “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, *save he shall prepare a way* for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]]; italics added.) We *can* do what we’re supposed to do.
 
 We are not alone. We can feel the sustaining power of the Savior. He will help us as we strive to make right choices all along the path.
 
@@ -57,8 +59,3 @@ Let’s do it! In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Agency

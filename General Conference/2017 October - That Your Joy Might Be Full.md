@@ -1,6 +1,8 @@
 # That Your Joy Might Be Full
 
-By Jean B. Bingham - *Relief Society General President*
+Sharon Eubank
+
+By Jean B. Bingham - *Relief Society General President*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -12,13 +14,13 @@ Brothers and sisters, it is a joy to be with you. And that’s what I would like
 
 A recent news headline reads, “Disasters rock the nation \[and\] world.”[^1] From hurricanes and floods to heat waves and droughts, from wildfires and earthquakes to wars and devastating diseases, it seems “the whole earth \[is\] in commotion.”[^2]
 
-Millions of people have been displaced, and countless lives have been disrupted by these challenges. Contention in families and communities as well as inner struggles with fear, doubt, and unfulfilled expectations also leave us in turmoil. It can be difficult to feel the joy that Lehi taught is the purpose of life.[^3] We have all asked at times: “Where can I turn for peace? Where is my solace … ?”[^4] We wonder, how do I find joy despite the difficulties of mortal life?
+Millions of people have been displaced, and countless lives have been disrupted by these challenges. Contention in families and communities as well as inner struggles with fear, doubt, and unfulfilled expectations also leave us in turmoil. It can be difficult to feel the joy that Lehi taught is the purpose of life.[^3] We have all asked at times: “Where can I turn for peace? Where is my solace … ?”[^4] We wonder, how do I find joy despite the difficulties of mortal life?
 
-The answer may seem too simple, but it has proven true from the days of Adam. Lasting joy is found in focusing on our Savior, Jesus Christ, and living the gospel as demonstrated and taught by Him. The more we *learn about, have faith in,* and *emulate* Jesus Christ, the more we come to understand that He is the source of all healing, peace, and eternal progress. He invites each of us to come unto Him,[^5] an invitation that President Henry B. Eyring has characterized as “the most important invitation anyone could accept.”[^6]
+The answer may seem too simple, but it has proven true from the days of Adam. Lasting joy is found in focusing on our Savior, Jesus Christ, and living the gospel as demonstrated and taught by Him. The more we *learn about, have faith in,* and *emulate* Jesus Christ, the more we come to understand that He is the source of all healing, peace, and eternal progress. He invites each of us to come unto Him,[^5] an invitation that President Henry B. Eyring has characterized as “the most important invitation anyone could accept.”[^6]
 
 ## Learn of Jesus Christ
 
-How do we come unto Him? Last April, President Russell M. Nelson and Elder M. Russell Ballard encouraged us to study “The Living Christ”[^7] as part of learning about the Savior. Many have accepted the challenge and been blessed. Not long ago a dear friend gave each of her adult children copies of the document with gospel pictures to illustrate each phrase. She encouraged her children to help her grandchildren understand and memorize it. Sometime later my friend shared a video of her six-year-old granddaughter, Laynie, reciting her memorized version with enthusiasm and poise. I realized that if a six-year-old could do it, so can I!
+How do we come unto Him? Last April, President Russell M. Nelson and Elder M. Russell Ballard encouraged us to study “The Living Christ”[^7] as part of learning about the Savior. Many have accepted the challenge and been blessed. Not long ago a dear friend gave each of her adult children copies of the document with gospel pictures to illustrate each phrase. She encouraged her children to help her grandchildren understand and memorize it. Sometime later my friend shared a video of her six-year-old granddaughter, Laynie, reciting her memorized version with enthusiasm and poise. I realized that if a six-year-old could do it, so can I!
 
 As I have studied the life and teachings of Jesus Christ with more focus and committed “The Living Christ” to memory, my gratitude and love for our Savior have increased. Each sentence of that inspired document contains a sermon and has enhanced my understanding of His divine roles and earthly mission. What I have learned and felt through this period of study and reflection confirms that Jesus truly “is the light, the life, and the hope of the world.”[^8] Ancient scripture and latter-day prophets’ words written or spoken in praise of Him bear witness that “His way is the path that leads to happiness in this life and eternal life in the world to come.”[^9]
 
@@ -36,7 +38,7 @@ Jesus Christ is also the source of *peace.* He invites us to “lean on \[His\] 
 
 Snježana Podvinski, one of a small number of Saints in Karlovac, Croatia, leaned on the Savior when her husband and both of her parents died within a six-month period last year. Grief-stricken, but having a testimony that families are forever, she used all of her savings to travel to the temple, where she was sealed to her husband and parents. She shared that those days in the temple were a highlight in her life. Because of her firm testimony of Jesus Christ and His Atonement, she has felt peace and experienced healing that have also been a strength to those around her.
 
-Faith in Jesus Christ brings even more gifts than healing and peace. As President Henry B. Eyring shared: “I have been thankful for the many ways the Lord has visited me with the Comforter when I needed peace. Yet our Father in Heaven is concerned not just about our comfort but even more about our upward progress.”[^18]
+Faith in Jesus Christ brings even more gifts than healing and peace. As President Henry B. Eyring shared: “I have been thankful for the many ways the Lord has visited me with the Comforter when I needed peace. Yet our Father in Heaven is concerned not just about our comfort but even more about our upward progress.”[^18]
 
 Because of Jesus Christ’s Atonement, which includes the gifts of redemption and resurrection, we are able to repent, change, and *progress eternally.* Because of the power He gives us as we are obedient, we are able to become more than we ever could on our own. We may not understand completely how, but each of us who has felt faith in Christ increase has also received a greater understanding of our divine identity and purpose, leading us to make choices that are consistent with that knowledge.
 
@@ -61,19 +63,19 @@ Come unto Him. I testify that as you center your life on Jesus Christ, you will 
 
 [^2]: [[D&C 45.26|Doctrine and Covenants 45:26]].
 
-[^3]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+[^3]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^4]: “Where Can I Turn for Peace?” *Hymns,* no. 129.
 
-[^5]: See [[3 Nephi 9.14|3 Nephi 9:14, 22]][[3 Nephi 9.22|]].
+[^5]: See [[3 Nephi 9.14|3 Nephi 9:14, 22]][[3 Nephi 9.22|]].
 
-[^6]: Henry B. Eyring, “[Come unto Christ](https://churchofjesuschrist.org/study/liahona/2008/03/come-unto-christ?lang=eng),” *Ensign* or *Liahona,* Mar. 2008, 49.
+[^6]: Henry B. Eyring, “[Come unto Christ](https://www.churchofjesuschrist.org/study/liahona/2008/03/come-unto-christ?lang=eng),” *Ensign* or *Liahona,* Mar. 2008, 49.
 
-[^7]: See “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2–3.
+[^7]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2–3.
 
-[^8]: “[The Living Christ](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 3.
+[^8]: “[The Living Christ](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 3.
 
-[^9]: “[The Living Christ](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 3.
+[^9]: “[The Living Christ](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 3.
 
 [^10]: See [[Mosiah 3.7|Mosiah 3:7]].
 
@@ -91,7 +93,7 @@ Come unto Him. I testify that as you center your life on Jesus Christ, you will 
 
 [^17]: [[Alma 58.11|Alma 58:11]].
 
-[^18]: Henry B. Eyring, “[[2017 April - “My Peace I Leave with You”.md|My Peace I Leave with You]],” *Ensign* or *Liahona,* May 2017, 17.
+[^18]: Henry B. Eyring, “[[2017 April - “My Peace I Leave with You”.md|My Peace I Leave with You]],” *Ensign* or *Liahona,* May 2017, 17.
 
 [^19]: “Know This, That Every Soul Is Free,” *Hymns,* no. 240.
 
@@ -101,7 +103,5 @@ Come unto Him. I testify that as you center your life on Jesus Christ, you will 
 
 [^22]: “Where Can I Turn for Peace?” no. 129.
 
+[^23]: “[The Living Christ](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 3.
 
-
-
-#Adversity #Faith #Healing #Jesus_Christ #Joy #Peace #Testimony

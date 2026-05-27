@@ -1,5 +1,7 @@
 # Joseph, the Man and the Prophet
 
+James E. Faust
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -61,8 +63,3 @@ In the name of Jesus Christ, amen.
 
 [^1]: In addition to the sources cited in the text, see Richard L. Bushman, *Joseph Smith and the Beginnings of Mormonism* (1984); Truman G. Madsen, *Joseph Smith the Prophet* (1989); “Joseph Smith,” in Daniel H. Ludlow, ed., *Encyclopedia of Mormonism,* 5 vols. (1992), 3:1331–39; David Herbert Donald, *Lincoln* (1995), 54; Richard Kigel, *The Frontier Years of Abe Lincoln* (1986), 175–76.
 
-
-
-
-
-#Joseph_Smith

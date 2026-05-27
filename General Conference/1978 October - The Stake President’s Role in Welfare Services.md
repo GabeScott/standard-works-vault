@@ -1,6 +1,8 @@
 # The Stake President’s Role in Welfare Services
 
-By Elder David B. Haight - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -18,7 +20,7 @@ To illustrate the seriousness of the problem, in the Salt Lake Pioneer Stake dur
 
 I lived through those hard years and saw firsthand what it was like. I had studied economics and business in college with the desire of becoming a banker. I completed my schooling shortly after the beginning of the depression and came to Salt Lake City, only to find that bankers were, as they then said, “ten cents a dozen.” I found a job in a department store and was paid fifteen dollars per week and was fortunate to have a job. I learned the rewards of hard work.
 
-I recall the day when all the banks closed and remember vividly walking up Main Street of this city and seeing crowds of people blocking the sidewalk and street in front of Zion’s Bank. Anthony W. Ivins, counselor to President Grant, was standing on the steps of the bank. He said to the people, “There’s money here in the bank if you want it. There is no need to cause a run on the bank. There’s money here for your deposits.” And the people started to drift away because Brother Ivins was a symbol of integrity and confidence.
+I recall the day when all the banks closed and remember vividly walking up Main Street of this city and seeing crowds of people blocking the sidewalk and street in front of Zion’s Bank. Anthony W. Ivins, counselor to President Grant, was standing on the steps of the bank. He said to the people, “There’s money here in the bank if you want it. There is no need to cause a run on the bank. There’s money here for your deposits.” And the people started to drift away because Brother Ivins was a symbol of integrity and confidence.
 
 Later, in California, I was to watch the growth of the Church welfare program. I witnessed how the Church welfare plan successfully helped people to help themselves.
 
@@ -67,8 +69,3 @@ Stake presidents, you have the mantle of responsibility for teaching welfare ser
 
 
 
-
-
-
-
-#Family #Preparation

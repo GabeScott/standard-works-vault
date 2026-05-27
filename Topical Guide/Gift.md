@@ -1,7 +1,6 @@
 # Gift
 
-
-*See also* [[Bribe, Bribery.md|Bribe]]; [[Contribution.md|Contribution]]; [[Generosity.md|Generosity]]; [[Give, Gave, Given.md|Give]]; [[God, Gifts of.md|God, Gifts of]]; [[Grace.md|Grace]]; [[Holy Ghost, Gift of.md|Holy Ghost, Gift of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Offering [noun].md|Offering]]; [[Present [noun].md|Present [noun]]]; [[Talents.md|Talents]]
+*See also* [[Bribe.md|Bribe]]; [[Contribution.md|Contribution]]; [[Generosity.md|Generosity]]; [[Give.md|Give]]; [[God, Gifts of.md|God, Gifts of]]; [[Grace.md|Grace]]; [[Holy Ghost, Gift of.md|Holy Ghost, Gift of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Holy Ghost, Mission of.md|Holy Ghost, Mission of]]; [[Offering.md|Offering]]; [[Present [noun].md|Present [noun]]]; [[Talents.md|Talents]]
 
 take no *gift*: for the *gift* blindeth, [[Exodus 23.8|Exodus 23:8]] ([[Deuteronomy 16.19|Deuteronomy 16:19]]).
 
@@ -67,13 +66,13 @@ every man hath received the *gift*, [[1 Peter 4.10|1 Peter 4:10]].
 
 *gift* of speaking with tongues, and the *gift* of preaching, and the *gift* of the Holy Ghost, [[Alma 9.21|Alma 9:21]].
 
-say the Lord no longer worketh ... by *gifts*, [[3 Nephi 29.6|3 Nephi 29:6]].
+say the Lord no longer worketh … by *gifts*, [[3 Nephi 29.6|3 Nephi 29:6]].
 
 no *gifts* from the Lord, [[Mormon 1.14|Mormon 1:14]].
 
 lay hold upon every good *gift*, and touch not the evil *gift*, [[Moroni 10.30|Moroni 10:30]].
 
-thy *gift* ... is sacred and cometh from above, [[D&C 6.10|D&C 6:10]].
+thy *gift* … is sacred and cometh from above, [[D&C 6.10|D&C 6:10]].
 
 this is thy *gift*; apply unto it, [[D&C 8.4|D&C 8:4]].
 

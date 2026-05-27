@@ -1,12 +1,14 @@
 # Why Do Latter-day Saints Build Temples?
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+N. Eldon Tanner
+
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/10/why-do-latter-day-saints-build-temples?lang=eng)
 
-It was a pleasure for me to sustain Brother Harold B. Lee as the President of The Church of Jesus Christ of Latter-day Saints, and to sustain all of the other General Authorities this morning.
+It was a pleasure for me to sustain Brother Harold B. Lee as the President of The Church of Jesus Christ of Latter-day Saints, and to sustain all of the other General Authorities this morning.
 
 I wish to express appreciation for that sustaining vote in my behalf and pledge to all my leaders here my full support. I am willing to do all that is required of me to help build up the kingdom of the Lord upon the earth.
 
@@ -38,11 +40,11 @@ Peter tells us in his First Epistle that between the time of Christ’s crucifix
 
 “By which also he went and preached unto the spirits in prison;
 
-“Which sometime were disobedient, when once the longsuffering of God waited in the days of Noah, while the ark was a preparing, wherein few, that is, eight souls were saved by water.” ([[1 Peter 3.19|1 Pet. 3:19–20]][[1 Peter 3.20|]].)
+“Which sometime were disobedient, when once the longsuffering of God waited in the days of Noah, while the ark was a preparing, wherein few, that is, eight souls were saved by water.” ([[1 Peter 3.19|1 Pet. 3:19–20]][[1 Peter 3.20|]].)
 
 This opened the way for all who did not have the opportunity to accept his gospel in this life to accept it after death. This does not provide the ordinance of baptism, which is a must for entrance into the kingdom of God.
 
-Paul, preaching to the Corinthians, trying to convert them to the reality of a resurrection, asked them, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
+Paul, preaching to the Corinthians, trying to convert them to the reality of a resurrection, asked them, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 Obviously, they were then practicing a vicarious ordinance of baptism for their kindred dead.
 
@@ -91,8 +93,3 @@ I pray the Lord to bless us to do this work, in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Family_History #Temple_Work

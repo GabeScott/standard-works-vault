@@ -1,11 +1,10 @@
 # Riches
 
-
 *See also* [[Mammon.md|Mammon]]; [[Money.md|Money]]; [[Possession.md|Possession]]; [[Wealth.md|Wealth]]
 
 neither hast asked *riches* for thyself, [[1 Kings 3.11|1 Kings 3:11]] ([[2 Chronicles 1.11|2 Chronicles 1:11]]).
 
-Solomon exceeded all ... for *riches*, [[1 Kings 10.23|1 Kings 10:23]] ([[2 Chronicles 9.22|2 Chronicles 9:22]]).
+Solomon exceeded all … for *riches*, [[1 Kings 10.23|1 Kings 10:23]] ([[2 Chronicles 9.22|2 Chronicles 9:22]]).
 
 *riches* and honour come of thee, [[1 Chronicles 29.12|1 Chronicles 29:12]].
 
@@ -29,7 +28,7 @@ crown of the wise is their *riches*, [[Proverbs 14.24|Proverbs 14:24]].
 
 good name is rather to be chosen than great *riches*, [[Proverbs 22.1|Proverbs 22:1]].
 
-He that oppresseth the poor to increase his *riches* ... shall surely come to want, [[Proverbs 22.16|Proverbs 22:16]].
+He that oppresseth the poor to increase his *riches* … shall surely come to want, [[Proverbs 22.16|Proverbs 22:16]].
 
 *riches* are not for ever, [[Proverbs 27.24|Proverbs 27:24]].
 
@@ -37,13 +36,13 @@ give me neither poverty nor *riches*, [[Proverbs 30.8|Proverbs 30:8]].
 
 to whom God hath given *riches* and wealth, [[Ecclesiastes 5.19|Ecclesiastes 5:19]].
 
-give thee ... hidden *riches*, [[Isaiah 45.3|Isaiah 45:3]].
+give thee … hidden *riches*, [[Isaiah 45.3|Isaiah 45:3]].
 
 ye shall eat the *riches* of the Gentiles, [[Isaiah 61.6|Isaiah 61:6]].
 
 let not the rich man glory in his *riches*, [[Jeremiah 9.23|Jeremiah 9:23]].
 
-so he that getteth *riches*, and not by right ... shall be a fool, [[Jeremiah 17.11|Jeremiah 17:11]].
+so he that getteth *riches*, and not by right … shall be a fool, [[Jeremiah 17.11|Jeremiah 17:11]].
 
 *riches* that he hath gotten are perished, [[Jeremiah 48.36|Jeremiah 48:36]].
 
@@ -71,7 +70,7 @@ forgiveness of sins, according to the *riches* of his grace, [[Ephesians 1.7|Eph
 
 shew the exceeding *riches* of his grace, [[Ephesians 2.7|Ephesians 2:7]].
 
-preach ... the unsearchable *riches* of Christ, [[Ephesians 3.8|Ephesians 3:8]].
+preach … the unsearchable *riches* of Christ, [[Ephesians 3.8|Ephesians 3:8]].
 
 grant you, according to the *riches* of his glory, [[Ephesians 3.16|Ephesians 3:16]] ([[Philippians 4.19|Philippians 4:19]]).
 
@@ -85,7 +84,7 @@ reproach of Christ greater *riches* than the treasures in Egypt, [[Hebrews 11.26
 
 Your *riches* are corrupted, [[James 5.2|James 5:2]].
 
-Worthy is the Lamb ... to receive power, and *riches*, [[Revelation 5.12|Revelation 5:12]].
+Worthy is the Lamb … to receive power, and *riches*, [[Revelation 5.12|Revelation 5:12]].
 
 in one hour so great *riches* is come to nought, [[Revelation 18.17|Revelation 18:17]].
 
@@ -103,7 +102,7 @@ not set your hearts upon *riches*, [[Alma 7.6|Alma 7:6]].
 
 Seek not after *riches*, [[Alma 39.14|Alma 39:14]].
 
-lifted up ... because of their exceedingly great *riches*, [[Alma 45.24|Alma 45:24]] ([[Helaman 3.36|Helaman 3:36]]; [[Helaman 4.12|Helaman 4:12]]).
+lifted up … because of their exceedingly great *riches*, [[Alma 45.24|Alma 45:24]] ([[Helaman 3.36|Helaman 3:36]]; [[Helaman 4.12|Helaman 4:12]]).
 
 Lord had blessed them so long with the *riches*, [[Helaman 6.17|Helaman 6:17]].
 
@@ -111,7 +110,7 @@ ye do always remember your *riches*, [[Helaman 13.22|Helaman 13:22]].
 
 distinguished by ranks, according to their *riches*, [[3 Nephi 6.12|3 Nephi 6:12]].
 
-tempting them to seek for ... *riches*, [[3 Nephi 6.15|3 Nephi 6:15]].
+tempting them to seek for … *riches*, [[3 Nephi 6.15|3 Nephi 6:15]].
 
 Seek not for *riches* but for wisdom, [[D&C 6.7|D&C 6:7]] ([[D&C 11.7|D&C 11:7]]).
 
@@ -119,7 +118,7 @@ Seek not for *riches* but for wisdom, [[D&C 6.7|D&C 6:7]] ([[D&C 11.7|D&C 11:7]]
 
 consecrate of the *riches* of those who embrace my gospel, [[D&C 42.39|D&C 42:39]].
 
-How oft have I called upon you by ... the *riches* of eternal life, [[D&C 43.25|D&C 43:25]].
+How oft have I called upon you by … the *riches* of eternal life, [[D&C 43.25|D&C 43:25]].
 
 gather up your *riches* that ye may purchase an inheritance, [[D&C 45.65|D&C 45:65]].
 

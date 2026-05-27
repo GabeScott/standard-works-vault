@@ -1,5 +1,7 @@
 # The Father and the Family
 
+James E. Faust
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -22,7 +24,7 @@ World leaders and court judges agree that the family must endure if we are to su
 
 None of this is new. Jacob, the Book of Mormon prophet, told the people of Nephi:
 
-“I … am weighed down with much more desire and anxiety for the welfare of your souls than I have hitherto been. …
+“I … am weighed down with much more desire and anxiety for the welfare of your souls than I have hitherto been. …
 
 “… It grieveth me that I must use so much boldness of speech concerning you, before your wives and your children, many of whose feelings are exceedingly tender and chaste and delicate before God.”[^2]
 
@@ -42,7 +44,7 @@ So sweeping were those changes that the entire curriculum of the Church was over
 
 And years were spent preparing new editions of the Bible, the Book of Mormon, the Doctrine and Covenants, and the Pearl of Great Price. Except for correcting printing errors and adding three revelations to the Doctrine and Covenants, the scriptural text remains unchanged.
 
-Cross-references and other helps were added to make the scriptures more accessible. In the Topical Guide, for instance, under the heading of “Jesus Christ” there are eighteen pages—small print, single-spaced—the most comprehensive compilation of scriptural references on the Lord that has ever been compiled in the history of the world.
+Cross-references and other helps were added to make the scriptures more accessible. In the Topical Guide, for instance, under the heading of “[[Jesus Christ|Jesus Christ]]” there are eighteen pages—small print, single-spaced—the most comprehensive compilation of scriptural references on the Lord that has ever been compiled in the history of the world.
 
 The new editions of the scriptures are complete in English and Spanish, and work is now under way in dozens of languages.
 
@@ -115,13 +117,13 @@ Across the world, those who now come by the tens of thousands will inevitably co
 
 [^2]: [[Jacob 2.3|Jacob 2:3, 7]][[Jacob 2.7|]]; see [[Jacob 2.1|Jacob 2:1–13]][[Jacob 2.2|]][[Jacob 2.3|]][[Jacob 2.4|]][[Jacob 2.5|]][[Jacob 2.6|]][[Jacob 2.7|]][[Jacob 2.8|]][[Jacob 2.9|]][[Jacob 2.10|]][[Jacob 2.11|]][[Jacob 2.12|]][[Jacob 2.13|]].
 
-[^3]: [[D&C 101.54|D&C 101:54]]; see [[D&C 101.45|D&C 101:45, 53–54]][[D&C 101.53|]][[D&C 101.54|]]; [[2 Kings 9.17|2 Kgs. 9:17]].
+[^3]: [[D&C 101.54|D&C 101:54]]; see [[D&C 101.45|D&C 101:45, 53–54]][[D&C 101.53|]][[D&C 101.54|]]; [[2 Kings 9.17|2 Kgs. 9:17]].
 
 [^4]: [[Moses 6.36|Moses 6:36]]; see also [[Mosiah 8.15|Mosiah 8:15–17]][[Mosiah 8.16|]][[Mosiah 8.17|]].
 
-[^5]: In Conference Report, Oct. 1961, p. 79; or *Improvement Era,* Jan. 1962, p. 36.
+[^5]: In Conference Report, Oct. 1961, p. 79; or *Improvement Era,* Jan. 1962, p. 36.
 
-[^6]: See “Message from the First Presidency,” *Family Home Evening Resource Book* (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1983), p. iv.
+[^6]: See “Message from the First Presidency,” *Family Home Evening Resource Book* (Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1983), p. iv.
 
 [^7]: [[Jacob 2.9|Jacob 2:9–10]][[Jacob 2.10|]].
 
@@ -137,7 +139,5 @@ Across the world, those who now come by the tens of thousands will inevitably co
 
 [^13]: See [[D&C 121.41|D&C 121:41–43]][[D&C 121.42|]][[D&C 121.43|]].
 
+[^14]: [[Psalms 127.3|Ps. 127:3]].
 
-
-
-#Abortion #Abuse #Agency #Curriculum #Divorce #Family #Family_Home_Evening #Freedom #Home #Joy #Marriage #Morality #Parenthood #Satan #Scriptures #Teaching

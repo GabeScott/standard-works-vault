@@ -1,5 +1,7 @@
 # Equality through Diversity
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -8,7 +10,7 @@ By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 I am honored to speak to you sisters of the Relief Society. Each one of you is a part of the largest and oldest women’s organization in the world and the only one organized by a prophet of God. I bring you greetings from the First Presidency and the Council of the Twelve Apostles. We and your local priesthood leaders value you sisters and hold you in high esteem. We recognize and appreciate all you do to help build the kingdom of God. We marvel at your faith and your dedicated service to your families, the Church, and your communities. We pray for you, and we extend our love to each one of you.
 
-My brethren and I serve as priesthood advisers to the Relief Society general presidency and board. The task of Relief Society is more challenging than ever because of the diversity of languages, cultures and environments, and the ever-changing circumstances throughout the world. Careful planning has to be both broad and narrow: broad enough to meet the varying needs of more than three million women living in more than 130 different countries and locations, and yet narrow enough to meet the needs of each sister. Relief Society and the gospel should embrace *every* woman. Every one of you is welcome and needed whether you are eighteen or eighty, married or single, speak English or Portuguese, live on an island or in the mountains, have children or simply love children but have none of your own, have an advanced degree or little formal education, have a husband who is not active or are married to a stake president, have a testimony or are struggling to receive one. You belong here! You and your talents, strengths, and contributions are needed urgently in the Church. As Eliza R. Snow, the second general president of the Relief Society, said, “There is no sister so isolated and her sphere so narrow but what she can do a great deal towards establishing the kingdom of God upon the earth” (*Woman’s Exponent,* 15 Sept. 1893, p. 62).
+My brethren and I serve as priesthood advisers to the Relief Society general presidency and board. The task of Relief Society is more challenging than ever because of the diversity of languages, cultures and environments, and the ever-changing circumstances throughout the world. Careful planning has to be both broad and narrow: broad enough to meet the varying needs of more than three million women living in more than 130 different countries and locations, and yet narrow enough to meet the needs of each sister. Relief Society and the gospel should embrace *every* woman. Every one of you is welcome and needed whether you are eighteen or eighty, married or single, speak English or Portuguese, live on an island or in the mountains, have children or simply love children but have none of your own, have an advanced degree or little formal education, have a husband who is not active or are married to a stake president, have a testimony or are struggling to receive one. You belong here! You and your talents, strengths, and contributions are needed urgently in the Church. As Eliza R. Snow, the second general president of the Relief Society, said, “There is no sister so isolated and her sphere so narrow but what she can do a great deal towards establishing the kingdom of God upon the earth” (*Woman’s Exponent,* 15 Sept. 1893, p. 62).
 
 I pray for the Spirit of the Lord this evening as I teach a fundamental principle of the gospel that, if understood, will fortify and bless you sisters in your quest for eternal life.
 
@@ -49,8 +51,3 @@ May God bless you, my dear sisters, in your personal lives, in your homes and fa
 
 
 
-
-
-
-
-#Faith #Family #Relief_Society #Women

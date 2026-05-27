@@ -1,5 +1,7 @@
 # “A Small Stone”
 
+Gordon B. Hinckley
+
 By Elaine L. Jack - *Recently Released Relief Society General President*
 
 *Given in the April session of the 1997 General Conference*
@@ -32,7 +34,7 @@ One of my prized memories of these past few years was the sesquicentennial in 19
 
 Emma Smith, the first president of this organization, said to the sisters, “We are going to do something extraordinary” (Minutes of the Female Relief Society, 17 Mar. 1842, 7, Historical Department Archives, The Church of Jesus Christ of Latter-day Saints). Our celebration was indeed “something extraordinary.” What began in 1842 with 20 women in Nauvoo, Illinois, now involves nearly four million women on every continent and in almost every country in the world. But what is significant is that it began with one woman, Margaret Cook, who offered to sew shirts for the men working on the Nauvoo Temple. She needed cloth and could not afford to buy it. Sarah Kimball offered the cloth, and within weeks the Relief Society was organized by the Prophet Joseph Smith under the inspiration of the Lord. It began with a small offering—at the front gate—and it has grown to a major force for good around the world, one stone at a time.
 
-One of the things I recognize is that if we are obedient, faithful, and earnest, the Lord helps us prepare our offerings. We learn this from Nephi, who was told, “Thou shalt construct a ship, after the manner which I shall show thee, that I may carry thy people across these waters” ([[1 Nephi 17.8|1 Ne. 17:8]]). Nephi was not from a seaside community; he had never built a boat. But his response was so full of faith and accountability: “Lord, whither shall I go that I may find ore to molten, that I may make tools to construct the ship after the manner which thou hast shown unto me?” ([[1 Nephi 17.9|1 Ne. 17:9]]). Without hesitation or question, Nephi began to prepare an offering to the Lord in the shape of a ship.
+One of the things I recognize is that if we are obedient, faithful, and earnest, the Lord helps us prepare our offerings. We learn this from Nephi, who was told, “Thou shalt construct a ship, after the manner which I shall show thee, that I may carry thy people across these waters” ([[1 Nephi 17.8|1 Ne. 17:8]]). Nephi was not from a seaside community; he had never built a boat. But his response was so full of faith and accountability: “Lord, whither shall I go that I may find ore to molten, that I may make tools to construct the ship after the manner which thou hast shown unto me?” ([[1 Nephi 17.9|1 Ne. 17:9]]). Without hesitation or question, Nephi began to prepare an offering to the Lord in the shape of a ship.
 
 When I was called to serve in this assignment, I, like Nephi, went to the Lord for help. My tools came in the form of two strong and capable counselors, Chieko Okazaki and Aileen Clyde. As a presidency we have been fortunate to have a board of 12 noble women, whose contribution has reflected dedication and skill, and an office staff, whose service has been generously and patiently given. Together, we have done “this work with holiness of heart” ([[Mosiah 18.12|Mosiah 18:12]]). And we have been blessed with the prayers and goodness of Relief Society women in all parts of the world, good women who take seriously the Lord’s charge, “Be not weary in well-doing” ([[D&C 64.33|D&C 64:33]]).
 
@@ -42,7 +44,7 @@ I know I speak for the women of this Church when I say to President Hinckley, Pr
 
 I also pay tribute to my husband, Joe, who has blessed me with his steadiness, his sense of humor and good judgment, and his righteous hands. My four sons have followed his lead as loyal supporters. I took it as the ultimate compliment when one of them said, “We’ve been training Mom to be a Relief Society president for a long time, and she finally got it right!”
 
-Our offerings embrace both the work we do and the heart with which we do it. The Lord calls this “a broken heart and a contrite spirit” ([[3 Nephi 9.20|3 Ne. 9:20]]). This union constitutes the soul. Amaleki spoke of offering “your whole souls” to Jesus Christ ([[Omni 1.26|Omni 1:26]]). Brothers and sisters, the time is past when we can merely believe in this gospel; we must be passionate in our belief and in our commitment to Jesus Christ and His plan. We must know, unequivocally, that He is with us, that He will guide and direct us. In His name we shape our offering. For the past few years I have represented all the women of this Church, a far-reaching responsibility. I believe that the Lord will measure my efforts by my heart and my spirit, as He does yours.
+Our offerings embrace both the work we do and the heart with which we do it. The Lord calls this “a broken heart and a contrite spirit” ([[3 Nephi 9.20|3 Ne. 9:20]]). This union constitutes the soul. Amaleki spoke of offering “your whole souls” to Jesus Christ ([[Omni 1.26|Omni 1:26]]). Brothers and sisters, the time is past when we can merely believe in this gospel; we must be passionate in our belief and in our commitment to Jesus Christ and His plan. We must know, unequivocally, that He is with us, that He will guide and direct us. In His name we shape our offering. For the past few years I have represented all the women of this Church, a far-reaching responsibility. I believe that the Lord will measure my efforts by my heart and my spirit, as He does yours.
 
 Today, Relief Society represents the hope expressed by President Emmeline B. Wells, who served in the early years of this century. Her guidance had helped Relief Society hold fast to its cherished traditions while going forward with faith in God and hope in the future. Fifty years later President Belle Spafford said, “Relief Society is only on the threshold of its divine mission” (in *History of Relief Society, 1842–1966* \[1966\], 140). Today, we are ready to step over that threshold into a new dimension of spirituality and light. I look forward with a perfect brightness of hope to the offerings of Relief Society sisters in the new century that is before us. Our joy in the gospel of Jesus Christ and our place in His plan will draw people to us and change lives. We will lift and inspire a world so desperately in need of goodness. This new presidency will build an even greater sense of purpose and contribution. I commit my full support to President Smoot and her counselors as they add new stones to the building of the kingdom of God. Surely the strength of today will serve as a foundation upon which the women of tomorrow will build.
 
@@ -53,8 +55,3 @@ My heart is full of gratitude and great joy. Rejoice with me in bearing testimon
 
 
 
-
-
-
-
-#Church_Callings #Consecration #Jesus_Christ #Priesthood #Relief_Society #Sacrifice #Temples #Visiting_Teaching

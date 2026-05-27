@@ -1,15 +1,14 @@
 # Give, Gave, Given
 
-
-*See also* [[Almsgiving.md|Almsgiving]]; [[Bestow.md|Bestow]]; [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Offer [verb].md|Offer]]; [[Present [verb].md|Present [verb]]]; [[Self-Sacrifice.md|Self-Sacrifice]]
+*See also* [[Almsgiving.md|Almsgiving]]; [[Bestow.md|Bestow]]; [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Offer.md|Offer]]; [[Present [verb].md|Present [verb]]]; [[Self-Sacrifice.md|Self-Sacrifice]]
 
 she *gave* me of the tree, and I did eat, [[Genesis 3.12|Genesis 3:12]] ([[Moses 4.18|Moses 4:18]]).
 
 Unto thy seed will I *give* this land, [[Genesis 12.7|Genesis 12:7]] ([[Genesis 24.7|Genesis 24:7]]).
 
-I will *give* ... the land wherein thou art a stranger, [[Genesis 17.8|Genesis 17:8]].
+I will *give* … the land wherein thou art a stranger, [[Genesis 17.8|Genesis 17:8]].
 
-I will ... *give* thee a son also of her, [[Genesis 17.16|Genesis 17:16]].
+I will … *give* thee a son also of her, [[Genesis 17.16|Genesis 17:16]].
 
 Abraham *gave* all that he had unto Isaac, [[Genesis 25.5|Genesis 25:5]].
 
@@ -31,17 +30,17 @@ Unto thee will I *give* the land, [[1 Chronicles 16.18|1 Chronicles 16:18]] ([[P
 
 *give* thanks unto the Lord, [[1 Chronicles 16.34|1 Chronicles 16:34]] ([[Psalms 106.1|Psalms 106:1]]; [[Psalms 107.1|Psalms 107:1]]; [[Psalms 118.1|Psalms 118:1]]; [[Psalms 136.1|Psalms 136:1]]).
 
-They *gave* ... unto the treasure, [[Ezra 2.69|Ezra 2:69]] ([[Nehemiah 7.71|Nehemiah 7:71]]).
+They *gave* … unto the treasure, [[Ezra 2.69|Ezra 2:69]] ([[Nehemiah 7.71|Nehemiah 7:71]]).
 
 Thou *gavest* also thy good spirit to instruct, [[Nehemiah 9.20|Nehemiah 9:20]].
 
 Lord *gave*, and the Lord hath taken away, [[Job 1.21|Job 1:21]].
 
-*given* him his heart's desire, [[Psalms 21.2|Psalms 21:2]].
+*given* him his heart’s desire, [[Psalms 21.2|Psalms 21:2]].
 
 *Give* them according to their deeds, [[Psalms 28.4|Psalms 28:4]].
 
-I *gave* them up unto their own hearts' lust, [[Psalms 81.12|Psalms 81:12]].
+I *gave* them up unto their own hearts’ lust, [[Psalms 81.12|Psalms 81:12]].
 
 shall *give* his angels charge, [[Psalms 91.11|Psalms 91:11]] ([[Matthew 4.6|Matthew 4:6]]; [[Luke 4.10|Luke 4:10]]).
 
@@ -69,7 +68,7 @@ I will *give* them one heart, and one way, [[Jeremiah 32.39|Jeremiah 32:39]].
 
 will *give* them an heart of flesh, [[Ezekiel 11.19|Ezekiel 11:19]] ([[Ezekiel 36.26|Ezekiel 36:26]]).
 
-kingdom ... shall be *given* to the people, [[Daniel 7.27|Daniel 7:27]].
+kingdom … shall be *given* to the people, [[Daniel 7.27|Daniel 7:27]].
 
 All these things will I *give* thee, [[Matthew 4.9|Matthew 4:9]] ([[Luke 4.6|Luke 4:6]]).
 
@@ -81,7 +80,7 @@ All these things will I *give* thee, [[Matthew 4.9|Matthew 4:9]] ([[Luke 4.6|Luk
 
 Ask, and it shall be *given* you, [[Matthew 7.7|Matthew 7:7]] ([[Luke 11.9|Luke 11:9]]; [[3 Nephi 14.7|3 Nephi 14:7]]).
 
-Father ... *give* good things to them that ask, [[Matthew 7.11|Matthew 7:11]] ([[3 Nephi 14.11|3 Nephi 14:11]]).
+Father … *give* good things to them that ask, [[Matthew 7.11|Matthew 7:11]] ([[3 Nephi 14.11|3 Nephi 14:11]]).
 
 he *gave* them power, [[Matthew 10.1|Matthew 10:1]] ([[Mark 6.7|Mark 6:7]]; [[Luke 9.1|Luke 9:1]]).
 
@@ -97,7 +96,7 @@ brake them, and *gave* to his disciples, [[Matthew 15.36|Matthew 15:36]] ([[Mark
 
 a man *give* in exchange for his soul, [[Matthew 16.26|Matthew 16:26]] ([[Mark 8.37|Mark 8:37]]).
 
-sell ... and *give* to the poor, [[Matthew 19.21|Matthew 19:21]] ([[Mark 10.21|Mark 10:21]]).
+sell … and *give* to the poor, [[Matthew 19.21|Matthew 19:21]] ([[Mark 10.21|Mark 10:21]]).
 
 whatsoever is right I will *give* you, [[Matthew 20.4|Matthew 20:4]].
 
@@ -109,7 +108,7 @@ unto one he *gave* five talents, [[Matthew 25.15|Matthew 25:15]].
 
 every one that hath shall be *given*, [[Matthew 25.29|Matthew 25:29]] ([[Luke 19.26|Luke 19:26]]).
 
-an hungred, and ye *gave* me meat: ... thirsty, and ye *gave* me drink, [[Matthew 25.35|Matthew 25:35]].
+an hungred, and ye *gave* me meat: … thirsty, and ye *gave* me drink, [[Matthew 25.35|Matthew 25:35]].
 
 sold for much, and *given* to the poor, [[Matthew 26.9|Matthew 26:9]] ([[Mark 14.5|Mark 14:5]]).
 
@@ -127,7 +126,7 @@ for whosoever hath, to him shall be *given*, [[Luke 8.18|Luke 8:18]].
 
 *give* the Holy Spirit to them that ask him, [[Luke 11.13|Luke 11:13]].
 
-much is *given* ... much required, [[Luke 12.48|Luke 12:48]] ([[D&C 82.3|D&C 82:3]]).
+much is *given* … much required, [[Luke 12.48|Luke 12:48]] ([[D&C 82.3|D&C 82:3]]).
 
 my body which is *given* for you, [[Luke 22.19|Luke 22:19]].
 
@@ -215,7 +214,7 @@ ask of God, that *giveth* to all men liberally, [[James 1.5|James 1:5]] ([[Josep
 
 ye *give* them not those things which are needful, [[James 2.16|James 2:16]].
 
-he *giveth* more grace ... *giveth* grace unto the humble, [[James 4.6|James 4:6]].
+he *giveth* more grace … *giveth* grace unto the humble, [[James 4.6|James 4:6]].
 
 be ready always to *give* an answer, [[1 Peter 3.15|1 Peter 3:15]].
 
@@ -233,7 +232,7 @@ God *giveth* them light, [[Revelation 22.5|Revelation 22:5]].
 
 all things are *given* them which are expedient, [[2 Nephi 2.27|2 Nephi 2:27]].
 
-I will *give* ... line upon line, [[2 Nephi 28.30|2 Nephi 28:30]].
+I will *give* … line upon line, [[2 Nephi 28.30|2 Nephi 28:30]].
 
 say in your hearts that: I *give* not because I have not, [[Mosiah 4.24|Mosiah 4:24]].
 
@@ -249,13 +248,13 @@ numbered among those whom the Father hath *given* me, [[3 Nephi 15.24|3 Nephi 15
 
 I *give* unto men weakness, [[Ether 12.27|Ether 12:27]].
 
-*giveth* a gift ... grudgingly ... counted evil, [[Moroni 7.8|Moroni 7:8]] ([[2 Corinthians 9.7|2 Corinthians 9:7]]).
+*giveth* a gift … grudgingly … counted evil, [[Moroni 7.8|Moroni 7:8]] ([[2 Corinthians 9.7|2 Corinthians 9:7]]).
 
 unto you three I will *give* this power and the keys, [[D&C 7.7|D&C 7:7]].
 
 *gave* him power from on high, [[D&C 20.8|D&C 20:8]].
 
-*gave* unto Adam ... not die as to the temporal death, until, [[D&C 29.42|D&C 29:42]].
+*gave* unto Adam … not die as to the temporal death, until, [[D&C 29.42|D&C 29:42]].
 
 so loved the world that he *gave* his own life, [[D&C 34.3|D&C 34:3]].
 
@@ -263,9 +262,9 @@ so loved the world that he *gave* his own life, [[D&C 34.3|D&C 34:3]].
 
 rich men, that will not *give*, [[D&C 56.16|D&C 56:16]].
 
-what ye shall say ... shall be *given* you, [[D&C 84.85|D&C 84:85]] ([[D&C 100.6|D&C 100:6]]).
+what ye shall say … shall be *given* you, [[D&C 84.85|D&C 84:85]] ([[D&C 100.6|D&C 100:6]]).
 
-light ... which *giveth* life to all things, [[D&C 88.13|D&C 88:13]].
+light … which *giveth* life to all things, [[D&C 88.13|D&C 88:13]].
 
 The Father because he *gave* me of his fulness, [[D&C 93.4|D&C 93:4]].
 

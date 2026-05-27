@@ -1,8 +1,8 @@
 # They Are Their Own Judges
 
-([[Alma 41.7|Alma 41:7]])
+Dallin H. Oaks
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -52,11 +52,11 @@ The adversary’s selfish scheme was to strip away from God’s children the cap
 
 ## Doing and Becoming
 
-President Dallin H. Oaks has emphasized that the gospel of Jesus Christ invites us both to *know* something and to *become* something through the righteous exercise of moral agency. He said:
+President Dallin H. Oaks has emphasized that the gospel of Jesus Christ invites us both to *know* something and to *become* something through the righteous exercise of moral agency. He said:
 
 “Many Bible and modern scriptures speak of a final judgment at which all persons will be rewarded according to their deeds or works or the desires of their hearts. But other scriptures enlarge upon this by referring to our being judged by the *condition* we have achieved.
 
-“The prophet Nephi describes the Final Judgment in terms of what we *have become*: ‘And if their works have been filthiness they must needs *be* filthy; and if they *be* filthy it must needs be that they cannot dwell in the kingdom of God’ \[[[1 Nephi 15.33|1 Nephi 15:33]]; emphasis added\]. Moroni declares, ‘He that *is* filthy shall be filthy still; and he that *is* righteous shall be righteous still’ \[[[Mormon 9.14|Mormon 9:14]]; emphasis added\].”
+“The prophet Nephi describes the Final Judgment in terms of what we *have become*: ‘And if their works have been filthiness they must needs *be* filthy; and if they *be* filthy it must needs be that they cannot dwell in the kingdom of God’ \[[[1 Nephi 15.33|1 Nephi 15:33]]; emphasis added\]. Moroni declares, ‘He that *is* filthy shall be filthy still; and he that *is* righteous shall be righteous still’ \[[[Mormon 9.14|Mormon 9:14]]; emphasis added\].”
 
 President Oaks continued: “From such teachings we conclude that the Final Judgment is not just an evaluation of a sum total of good and evil acts—what we have *done*. It is an acknowledgment of the final effect of our acts and thoughts—what we have *become*.”[^29]
 
@@ -107,7 +107,7 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^3]: See also [[Jacob 6.13|Jacob 6:13]].
 
-[^4]: [[2 Nephi 9.46|2 Nephi 9:46]].
+[^4]: [[2 Nephi 9.46|2 Nephi 9:46]].
 
 [^5]: [[Alma 5.15|Alma 5:15]].
 
@@ -117,13 +117,13 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^8]: [[Alma 41.4|Alma 41:4]].
 
-[^9]: See [[2 Nephi 2.13|2 Nephi 2:13]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Mosiah 16.11|16:11]]; [[Alma 40.12|Alma 40:12]].
+[^9]: See [[2 Nephi 2.13|2 Nephi 2:13]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Mosiah 16.11|16:11]]; [[Alma 40.12|Alma 40:12]].
 
-[^10]: See [[2 Nephi 9.6|2 Nephi 9:6]]; [[Alma 34.16|Alma 34:16]]; [[Alma 42.15|42:15]].
+[^10]: See [[2 Nephi 9.6|2 Nephi 9:6]]; [[Alma 34.16|Alma 34:16]]; [[Alma 42.15|42:15]].
 
 [^11]: [[D&C 101.78|Doctrine and Covenants 101:78]].
 
-[^12]: [[2 Nephi 2.5|2 Nephi 2:5]].
+[^12]: [[2 Nephi 2.5|2 Nephi 2:5]].
 
 [^13]: [[D&C 101.78|Doctrine and Covenants 101:78]].
 
@@ -131,17 +131,17 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^15]: See [[D&C 93.31|Doctrine and Covenants 93:31]]; [[Moses 4.3|Moses 4:3]]; [[Moses 7.32|7:32]].
 
-[^16]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[2 Nephi 10.23|10:23]]; [[Helaman 14.30|Helaman 14:30]]; [[D&C 37.4|Doctrine and Covenants 37:4]].
+[^16]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[2 Nephi 10.23|10:23]]; [[Helaman 14.30|Helaman 14:30]]; [[D&C 37.4|Doctrine and Covenants 37:4]].
 
 [^17]: See *Merriam-Webster.com Thesaurus*, “moral.”
 
 [^18]: See Historical Thesaurus, Oxford English Dictionary, results for the search term “agency,” oed.com.
 
-[^19]: See [[Articles of Faith 1.13|Articles of Faith 1:13]]; Guide to the Scriptures, “[Agency](https://churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” Gospel Library.
+[^19]: See [[Articles of Faith 1.13|Articles of Faith 1:13]]; Guide to the Scriptures, “[Agency](https://www.churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” Gospel Library.
 
-[^20]: [[2 Nephi 2.14|2 Nephi 2:14]]; see also [[2 Nephi 2.13|verse 13]].
+[^20]: [[2 Nephi 2.14|2 Nephi 2:14]]; see also [[2 Nephi 2.13|verse 13]].
 
-[^21]: David O. McKay, in Conference Report, Apr. 1950, 33; see also David O. McKay, “Free Agency: A Divine Gift,” *Improvement Era*, May 1950, 366.
+[^21]: David O. McKay, in Conference Report, Apr. 1950, 33; see also David O. McKay, “Free Agency: A Divine Gift,” *Improvement Era*, May 1950, 366.
 
 [^22]: [[Abraham 3.25|Abraham 3:25]]; emphasis added.
 
@@ -157,9 +157,9 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^28]: [[Moses 4.3|Moses 4:3]]; emphasis added.
 
-[^29]: Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32; *Liahona*, Jan. 2001, 40; emphasis in original.
+[^29]: Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32; *Liahona*, Jan. 2001, 40; emphasis in original.
 
-[^30]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^30]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^31]: See [[Jacob 4.11|Jacob 4:11]].
 
@@ -173,11 +173,11 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^36]: [[Mosiah 4.10|Mosiah 4:10]].
 
-[^37]: [[2 Nephi 31.13|2 Nephi 31:13]].
+[^37]: [[2 Nephi 31.13|2 Nephi 31:13]].
 
-[^38]: See [[2 Nephi 31.15|2 Nephi 31:15–16]][[2 Nephi 31.16|]].
+[^38]: See [[2 Nephi 31.15|2 Nephi 31:15–16]][[2 Nephi 31.16|]].
 
-[^39]: Portions of this section came from a previous conference talk by David A. Bednar: “[[2015 April - Therefore They Hushed Their Fears.md|Therefore They Hushed Their Fears]],” *Ensign* or *Liahona*, May 2015, 46–49.
+[^39]: Portions of this section came from a previous conference talk by David A. Bednar: “[[2015 April - Therefore They Hushed Their Fears.md|Therefore They Hushed Their Fears]],” *Ensign* or *Liahona*, May 2015, 46–49.
 
 [^40]: [[Hebrews 12.28|Hebrews 12:28]].
 
@@ -201,7 +201,7 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^50]: [[Alma 41.6|Alma 41:6]].
 
-[^51]: [[2 Nephi 9.14|2 Nephi 9:14]].
+[^51]: [[2 Nephi 9.14|2 Nephi 9:14]].
 
 [^52]: [[Alma 11.43|Alma 11:43]].
 
@@ -217,8 +217,3 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^58]: [[Alma 41.13|Alma 41:13–14]][[Alma 41.14|]].
 
-
-
-
-
-#Agency #Atonement #Fear #Judging #Plan_Of_Salvation

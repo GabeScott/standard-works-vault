@@ -1,5 +1,7 @@
 # The Savior Is Counting on You
 
+Gordon B. Hinckley
+
 By Elder Joe J. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1996 General Conference*
@@ -36,7 +38,7 @@ A 14-year-old sister was all dressed up to go to a Young Women activity at a tim
 
 Last month in the area of Salt Lake City, a fellow Aaronic Priesthood bearer, Zachary Snarr, was brutally and senselessly murdered. Among the many wonderful things said about him by family and friends was that he rarely missed a day without telling his mother how much he loved her. His cheerful and loving nature around their home leaves them with priceless memories. Your mothers need you to be a champion of them. Never should a bearer of the Aaronic Priesthood be guilty of saying anything discourteous or disrespectful to his mother.
 
-The scriptures teach us that whenever we are abusive, thoughtless, or unkind to others, “the devil laugheth, and his angels rejoice” ([[3 Nephi 9.2|3 Ne. 9:2]]); also, that “the heavens withdraw themselves; the Spirit of the Lord is grieved; and when it is withdrawn, Amen \[or the end\] to the priesthood or the authority of that man” ([[D&C 121.37|D&C 121:37]]).
+The scriptures teach us that whenever we are abusive, thoughtless, or unkind to others, “the devil laugheth, and his angels rejoice” ([[3 Nephi 9.2|3 Ne. 9:2]]); also, that “the heavens withdraw themselves; the Spirit of the Lord is grieved; and when it is withdrawn, Amen \[or the end\] to the priesthood or the authority of that man” ([[D&C 121.37|D&C 121:37]]).
 
 Maybe you have thought that doing these little kindnesses doesn’t make much difference, but as Alma said, “By small and simple things are great things brought to pass” ([[Alma 37.6|Alma 37:6]]). We also read: “Be not weary in well-doing, for ye are laying the foundation of a great work. \[*You* are a great work in progress.\] And out of small things proceedeth that which is great” ([[D&C 64.33|D&C 64:33]]).
 
@@ -48,7 +50,7 @@ Fathers, you may want to reconsider having unrestricted cable or unsupervised te
 
 It is very unreasonable to suppose that exposure to profanity, nudity, sex, and violence has no negative effects on us. We can’t roll around in the mud without getting dirty.
 
-It is a concern that some of our young Latter-day Saints, as well as their parents, regularly watch R-rated and other inappropriate movies and videos—one more reason why the “devil laugheth, and his angels rejoice” ([[3 Nephi 9.2|3 Ne. 9:2]]).
+It is a concern that some of our young Latter-day Saints, as well as their parents, regularly watch R-rated and other inappropriate movies and videos—one more reason why the “devil laugheth, and his angels rejoice” ([[3 Nephi 9.2|3 Ne. 9:2]]).
 
 Just a few months ago the Lord’s prophet, President Gordon B. Hinckley, shared with the youth, and with all of us, this clear and unmistakable counsel:
 
@@ -85,8 +87,3 @@ I pray that the world will be a better place because you have lived in it. That 
 
 
 
-
-
-
-
-#Evil #Jesus_Christ #Love #Media #Missionary_Work #Priesthood #Satan #Temples #Temptation #Youth

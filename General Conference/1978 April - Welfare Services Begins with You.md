@@ -1,6 +1,8 @@
 # Welfare Services Begins with You
 
-By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder A. Theodore Tuttle - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -26,17 +28,17 @@ You sisters will be pleased to hear again his counsel: “If there is any Bishop
 
 (May I state parenthetically that the displays in the Relief Society building of ideas for home storage, suggestions for meeting emergencies, etc., should be visited by all who attend the conference.)
 
-President Harold B. Lee said, “Priesthood plus womanhood together bring exaltation! Priesthood plus womanhood is necessary in welfare. Without this teamwork, never in the world would we accomplish what we are doing in the welfare program.” (Harold B. Lee, address delivered at Welfare Agricultural meeting, 2 Oct. 1971.)
+President Harold B. Lee said, “Priesthood plus womanhood together bring exaltation! Priesthood plus womanhood is necessary in welfare. Without this teamwork, never in the world would we accomplish what we are doing in the welfare program.” (Harold B. Lee, address delivered at Welfare Agricultural meeting, 2 Oct. 1971.)
 
-President Lee also taught: “Keep in mind that the Church welfare program must begin with you personally and individually. It must begin with every member of the Church. … You have to act for yourself and be a participant before the welfare program is active in your household. Moving out from there, then, to quorums, to united teamwork … tremendous results can come.” (Harold B. Lee, address delivered at Welfare Agricultural meeting, 5 Apr. 1969.)
+President Lee also taught: “Keep in mind that the Church welfare program must begin with you personally and individually. It must begin with every member of the Church. … You have to act for yourself and be a participant before the welfare program is active in your household. Moving out from there, then, to quorums, to united teamwork … tremendous results can come.” (Harold B. Lee, address delivered at Welfare Agricultural meeting, 5 Apr. 1969.)
 
-“May the Lord help us to understand these fundamentals, and guide us to that destiny which … is … to attain, a full consecration, wherein we consecrate our lives, all that we have and are … for the upbuilding of the kingdom. Then only can we develop the faith necessary to an exaltation in the celestial kingdom.” (Harold B. Lee, address delivered at Welfare Agricultural meeting, 5 Oct. 1968.)
+“May the Lord help us to understand these fundamentals, and guide us to that destiny which … is … to attain, a full consecration, wherein we consecrate our lives, all that we have and are … for the upbuilding of the kingdom. Then only can we develop the faith necessary to an exaltation in the celestial kingdom.” (Harold B. Lee, address delivered at Welfare Agricultural meeting, 5 Oct. 1968.)
 
 President Romney has said, “Both history and prophecy—and, I may add, common sense—bear witness to the fact that no civilization can long endure which follows the course charted by bemused manipulators and now being implemented as government welfare programs all around the world.
 
 “Babylon shall be destroyed, and great shall be the fall thereof. (See [[D&C 1.16|D&C 1:16]].)
 
-“But do not be discouraged. Zion will not go down with her, because Zion shall be built on the principles of love of God and fellowman, work, and earnest labor, as God has directed. …
+“But do not be discouraged. Zion will not go down with her, because Zion shall be built on the principles of love of God and fellowman, work, and earnest labor, as God has directed. …
 
 “As we prepare for the building of Zion, we must not and we shall not abandon the basic principles upon which our Church Welfare Services are founded: *Love*—love of God and neighbor—and *work,* or labor.” (In *Conference Report,* Apr. 1976, p. 169.)
 
@@ -61,8 +63,3 @@ This work is divine. It will yet save and exalt us. That exaltation will come by
 
 
 
-
-
-
-
-#Welfare

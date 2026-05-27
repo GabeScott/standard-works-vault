@@ -1,6 +1,8 @@
 # Put Your Trust in the Lord
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -8,21 +10,21 @@ By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/10/put-your-trust-in-the-lord?lang=eng)
 
-Sister Ballard and I recently returned from an assignment to five countries in Europe. There we had the privilege of meeting with many of our missionaries, perhaps some of your sons and your daughters. Since President Thomas S. Monson’s announcement of the lowering of the age for our young men and our young women to serve, I have had the privilege of meeting with over 3,000 of them. The Light of Christ radiates in their faces, and they are eager to move the work forward—to find and teach, to baptize, to activate, and to strengthen and to build the kingdom of God. Meeting with them, one quickly comes to know, however, that they cannot do this work alone. Today I want to speak to all members of the Church, because there is an urgency for each one of us to be engaged in sharing the gospel.
+Sister Ballard and I recently returned from an assignment to five countries in Europe. There we had the privilege of meeting with many of our missionaries, perhaps some of your sons and your daughters. Since President Thomas S. Monson’s announcement of the lowering of the age for our young men and our young women to serve, I have had the privilege of meeting with over 3,000 of them. The Light of Christ radiates in their faces, and they are eager to move the work forward—to find and teach, to baptize, to activate, and to strengthen and to build the kingdom of God. Meeting with them, one quickly comes to know, however, that they cannot do this work alone. Today I want to speak to all members of the Church, because there is an urgency for each one of us to be engaged in sharing the gospel.
 
 As has been quoted many times, the Prophet Joseph Smith declared that “after all that has been said, the greatest and most important duty is to preach the Gospel” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 330).
 
-In 1974 President Spencer W. Kimball said this: “Perhaps the greatest reason for missionary work is to give the world its chance to hear and accept the gospel. The scriptures are replete with commands and promises and calls and rewards for teaching the gospel. I use the word *command* deliberately for it seems to be an insistent directive from which we, singly and collectively, cannot escape” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, 4).
+In 1974 President Spencer W. Kimball said this: “Perhaps the greatest reason for missionary work is to give the world its chance to hear and accept the gospel. The scriptures are replete with commands and promises and calls and rewards for teaching the gospel. I use the word *command* deliberately for it seems to be an insistent directive from which we, singly and collectively, cannot escape” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, 4).
 
 In July of that same year, Sister Ballard and I left with our children to preside over the Canada Toronto Mission. The words of President Kimball were ringing in my ears, especially when he said: “My brethren, I wonder if we are doing all we can. Are we complacent in our approach to teaching all the world? We have been proselyting now 144 years. Are we prepared to lengthen our stride? To enlarge our vision?” (*Ensign,* Oct. 1974, 5).
 
 He also asked us to quicken our pace, working together to build up the Church and kingdom of God.
 
-This past June President Thomas S. Monson echoed exactly the same message to members of the Church. The President said: “Now is the time for members and missionaries to come together … \[and\] labor in the Lord’s vineyard to bring souls unto Him. He has prepared the means for us to share the gospel in a multitude of ways, and He will assist us in our labors if we will act in faith to fulfill His work” (“Faith in the Work of Salvation” \[address given at a special broadcast, June 23, 2013\]; ).
+This past June President Thomas S. Monson echoed exactly the same message to members of the Church. The President said: “Now is the time for members and missionaries to come together … \[and\] labor in the Lord’s vineyard to bring souls unto Him. He has prepared the means for us to share the gospel in a multitude of ways, and He will assist us in our labors if we will act in faith to fulfill His work” (“Faith in the Work of Salvation” \[address given at a special broadcast, June 23, 2013\]; [lds.org/broadcasts](https://www.churchofjesuschrist.org/media/broadcasts)).
 
 It is good, brothers and sisters, to reflect on the teachings of the prophets from the time of Joseph Smith to today. They have encouraged and called upon the leadership and the members of the Church to be anxiously engaged in bringing the message of the Restoration of the gospel to all of our Heavenly Father’s children in all of the world.
 
-My message this afternoon is that the Lord *is* hastening His work. In our day this can be done only when every member of the Church reaches out with love to share the truths of the restored gospel of Jesus Christ. We need to work together in partnership with our 80,000 missionaries now serving. Information about this great work, especially the assignments for the stake and ward council leaders, is clearly outlined on the  website entitled “Hastening the Work of Salvation.”
+My message this afternoon is that the Lord *is* hastening His work. In our day this can be done only when every member of the Church reaches out with love to share the truths of the restored gospel of Jesus Christ. We need to work together in partnership with our 80,000 missionaries now serving. Information about this great work, especially the assignments for the stake and ward council leaders, is clearly outlined on the [LDS.org](https://www.churchofjesuschrist.org/study/video/worldwide-leadership-training/2013/june-2013?lang=eng) website entitled “Hastening the Work of Salvation.”
 
 We know from our research that most active members of the Church want the blessings of the gospel to be part of the lives of others whom they love, even those whom they have never met. But we also know that many members hesitate to do missionary work and share the gospel for two basic reasons.
 
@@ -70,7 +72,7 @@ Six weeks ago I received a letter from a very successful member missionary famil
 
 “We have had grandchildren bring friends to church, have enjoyed sacrament meetings with some of our less-active friends, and have had some of our new contacts commit to take the missionary discussions. One of our less-active sisters has not only returned to church but has brought new investigators with her.
 
-“No one has turned down the invitation to take the missionary discussions. What an exciting time to be a member of this Church” (personal letter, Aug. 15, 2013).
+“No one has turned down the invitation to take the missionary discussions. What an exciting time to be a member of this Church” (personal letter, Aug. 15, 2013).
 
 Heed the promptings of the Spirit. Supplicate the Lord in mighty prayer. Become engaged in doing what you can in sharing the great message of the Restoration of the gospel of Jesus Christ.
 
@@ -87,8 +89,3 @@ From my own experience I can testify to you that the Lord will hear your prayers
 
 
 
-
-
-
-
-#Faith #Love #Miracles #Missionary_Work

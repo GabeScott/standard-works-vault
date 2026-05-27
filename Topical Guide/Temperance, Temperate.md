@@ -1,6 +1,5 @@
 # Temperance, Temperate
 
-
 *See also* [[Self-Mastery.md|Self-Mastery]]; [[Wine.md|Wine]]; [[Word of Wisdom.md|Word of Wisdom]]
 
 *glutton* shall come to poverty, [[Proverbs 23.21|Proverbs 23:21]].
@@ -19,7 +18,7 @@ be not drunk with wine, wherein is *excess*, [[Ephesians 5.18|Ephesians 5:18]].
 
 Let your *moderation* be known unto all, [[Philippians 4.5|Philippians 4:5]].
 
-good men ... just, holy, *temperate*, [[Titus 1.8|Titus 1:8]].
+good men … just, holy, *temperate*, [[Titus 1.8|Titus 1:8]].
 
 men be sober, grave, *temperate*, [[Titus 2.2|Titus 2:2]].
 
@@ -37,7 +36,7 @@ be sober; be *temperate*, [[D&C 6.19|D&C 6:19]].
 
 be used, with judgment, not to *excess*, [[D&C 59.20|D&C 59:20]].
 
-cast away your ... *excess* of laughter, [[D&C 88.69|D&C 88:69]].
+cast away your … *excess* of laughter, [[D&C 88.69|D&C 88:69]].
 
 all these to be used with *prudence*, [[D&C 89.11|D&C 89:11]].
 

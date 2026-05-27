@@ -1,6 +1,8 @@
 # “Lord, I Believe”
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -36,9 +38,9 @@ So be kind regarding human frailty—your own as well as that of those who serve
 
 Last observation: When doubt or difficulty come, do not be afraid to ask for help. If we want it as humbly and honestly as this father did, we can get it. The scriptures phrase such earnest desire as being of “real intent,” pursued “with full purpose of heart, acting no hypocrisy and no deception before God.”[^11] I testify that in response to *that* kind of importuning, God will send help from both sides of the veil to strengthen our belief.
 
-I said I was speaking to the young. I still am. A 14-year-old boy recently said to me a little hesitantly, “Brother Holland, I can’t say yet that I know the Church is true, but I believe it is.” I hugged that boy until his eyes bulged out. I told him with all the fervor of my soul that *belief* is a precious word, an even more precious act, and he need never apologize for “only believing.” I told him that Christ Himself said, “Be not afraid, only believe,”[^12] a phrase which, by the way, carried young Gordon B. Hinckley into the mission field.[^13] I told this boy that belief was always the first step toward conviction and that the definitive articles of our collective faith forcefully reiterate the phrase “We believe.”[^14] And I told him how very proud I was of him for the honesty of his quest.
+I said I was speaking to the young. I still am. A 14-year-old boy recently said to me a little hesitantly, “Brother Holland, I can’t say yet that I know the Church is true, but I believe it is.” I hugged that boy until his eyes bulged out. I told him with all the fervor of my soul that *belief* is a precious word, an even more precious act, and he need never apologize for “only believing.” I told him that Christ Himself said, “Be not afraid, only believe,”[^12] a phrase which, by the way, carried young Gordon B. Hinckley into the mission field.[^13] I told this boy that belief was always the first step toward conviction and that the definitive articles of our collective faith forcefully reiterate the phrase “We believe.”[^14] And I told him how very proud I was of him for the honesty of his quest.
 
-Now, with the advantage that nearly 60 years give me since I was a newly believing 14-year-old, I declare some things I now know. I know that God is at all times and in all ways and in all circumstances our loving, forgiving Father in Heaven. I know Jesus was His only perfect child, whose life was given lovingly by the will of both the Father and the Son for the redemption of all the rest of us who are not perfect. I know He rose from that death to live again, and because He did, you and I will also. I know that Joseph Smith, who acknowledged that he wasn’t perfect,[^15] was nevertheless the chosen instrument in God’s hand to restore the everlasting gospel to the earth. I also know that in doing so—particularly through translating the Book of Mormon—he has taught me more of God’s love, of Christ’s divinity, and of priesthood power than any other prophet of whom I have ever read, known, or heard in a lifetime of seeking. I know that President Thomas S. Monson, who moves devotedly and buoyantly toward the 50th anniversary of his ordination as an Apostle, is the rightful successor to that prophetic mantle today. We have seen that mantle upon him again in this conference. I know that 14 other men whom you sustain as prophets, seers, and revelators sustain him with their hands, their hearts, and their own apostolic keys.
+Now, with the advantage that nearly 60 years give me since I was a newly believing 14-year-old, I declare some things I now know. I know that God is at all times and in all ways and in all circumstances our loving, forgiving Father in Heaven. I know Jesus was His only perfect child, whose life was given lovingly by the will of both the Father and the Son for the redemption of all the rest of us who are not perfect. I know He rose from that death to live again, and because He did, you and I will also. I know that Joseph Smith, who acknowledged that he wasn’t perfect,[^15] was nevertheless the chosen instrument in God’s hand to restore the everlasting gospel to the earth. I also know that in doing so—particularly through translating the Book of Mormon—he has taught me more of God’s love, of Christ’s divinity, and of priesthood power than any other prophet of whom I have ever read, known, or heard in a lifetime of seeking. I know that President Thomas S. Monson, who moves devotedly and buoyantly toward the 50th anniversary of his ordination as an Apostle, is the rightful successor to that prophetic mantle today. We have seen that mantle upon him again in this conference. I know that 14 other men whom you sustain as prophets, seers, and revelators sustain him with their hands, their hearts, and their own apostolic keys.
 
 These things I declare to you with the conviction Peter called the “more sure word of prophecy.”[^16] What was once a tiny seed of belief for me has grown into the tree of life, so if your faith is a little tested in this or any season, I invite you to lean on mine. I know this work is God’s very truth, and I know that only at our peril would we allow doubt or devils to sway us from its path. Hope on. Journey on. Honestly acknowledge your questions and your concerns, but first and forever fan the flame of your faith, because all things are possible to them that believe. In the name of Jesus Christ, amen.
 
@@ -65,20 +67,15 @@ These things I declare to you with the conviction Peter called the “more sure 
 
 [^10]: Adapted from Alfred Edersheim, *The Life and Times of Jesus the Messiah,* 2 vols. (1883), 2:108.
 
-[^11]: [[2 Nephi 31.13|2 Nephi 31:13]].
+[^11]: [[2 Nephi 31.13|2 Nephi 31:13]].
 
 [^12]: [[Mark 5.36|Mark 5:36]].
 
-[^13]: See Gordon B. Hinckley, in Conference Report, Oct. 1969, 114.
+[^13]: See Gordon B. Hinckley, in Conference Report, Oct. 1969, 114.
 
 [^14]: See [[Articles of Faith 1.1|Articles of Faith 1:1–13]][[Articles of Faith 1.2|]][[Articles of Faith 1.3|]][[Articles of Faith 1.4|]][[Articles of Faith 1.5|]][[Articles of Faith 1.6|]][[Articles of Faith 1.7|]][[Articles of Faith 1.8|]][[Articles of Faith 1.9|]][[Articles of Faith 1.10|]][[Articles of Faith 1.11|]][[Articles of Faith 1.12|]][[Articles of Faith 1.13|]].
 
 [^15]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 522.
 
-[^16]: [[2 Peter 1.19|2 Peter 1:19]].
+[^16]: [[2 Peter 1.19|2 Peter 1:19]].
 
-
-
-
-
-#Faith #Testimony

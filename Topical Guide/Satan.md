@@ -1,7 +1,6 @@
 # Satan
 
-
-*See also* [[Adversary.md|Adversary]]; [[Council in Heaven.md|Council in Heaven]]; [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Devil.md|Devil]]; [[Evil.md|Evil]]; [[Fall of Man.md|Fall of Man]]; [[False Christs.md|False Christs]]; [[False Priesthoods.md|False Priesthoods]]; [[False Prophets.md|False Prophets]]; [[Lucifer.md|Lucifer]]; [BD Beelzebub](https://www.churchofjesuschrist.org/study/scriptures/bd/beelzebub?lang=eng)
+*See also* [[Adversary.md|Adversary]]; [[Council in Heaven.md|Council in Heaven]]; [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Devil.md|Devil]]; [[Evil.md|Evil]]; [[Fall of Man.md|Fall of Man]]; [[False Christs.md|False Christs]]; [[False Priesthoods.md|False Priesthoods]]; [[False Prophets.md|False Prophets]]; [[Lucifer.md|Lucifer]]; [[BD Beelzebub.md|BD Beelzebub]]
 
 *Satan* stood up against Israel, [[1 Chronicles 21.1|1 Chronicles 21:1]].
 
@@ -19,7 +18,7 @@ forty days, tempted of *Satan*, [[Mark 1.13|Mark 1:13]].
 
 I beheld *Satan* as lightning fall from heaven, [[Luke 10.18|Luke 10:18]].
 
-this woman ... whom *Satan* hath bound, [[Luke 13.16|Luke 13:16]].
+this woman … whom *Satan* hath bound, [[Luke 13.16|Luke 13:16]].
 
 Then entered *Satan* into Judas, [[Luke 22.3|Luke 22:3]].
 
@@ -27,7 +26,7 @@ Then entered *Satan* into Judas, [[Luke 22.3|Luke 22:3]].
 
 after the sop *Satan* entered into him, [[John 13.27|John 13:27]].
 
-to turn them ... from the power of *Satan* unto God, [[Acts 26.18|Acts 26:18]].
+to turn them … from the power of *Satan* unto God, [[Acts 26.18|Acts 26:18]].
 
 God of peace shall bruise *Satan* under your feet, [[Romans 16.20|Romans 16:20]].
 
@@ -47,13 +46,13 @@ whom I have delivered unto *Satan*, [[1 Timothy 1.20|1 Timothy 1:20]].
 
 some are already turned aside after *Satan*, [[1 Timothy 5.15|1 Timothy 5:15]].
 
-they ... are the synagogue of *Satan*, [[Revelation 2.9|Revelation 2:9]] ([[Revelation 3.9|Revelation 3:9]]).
+they … are the synagogue of *Satan*, [[Revelation 2.9|Revelation 2:9]] ([[Revelation 3.9|Revelation 3:9]]).
 
-I know ... even where *Satan's* seat is, [[Revelation 2.13|Revelation 2:13]].
+I know … even where *Satan’s* seat is, [[Revelation 2.13|Revelation 2:13]].
 
-many as have not ... known the depths of *Satan*, [[Revelation 2.24|Revelation 2:24]].
+many as have not … known the depths of *Satan*, [[Revelation 2.24|Revelation 2:24]].
 
-cast out, that old serpent, called ... *Satan*, [[Revelation 12.9|Revelation 12:9]].
+cast out, that old serpent, called … *Satan*, [[Revelation 12.9|Revelation 12:9]].
 
 *Satan*, and bound him a thousand years, [[Revelation 20.2|Revelation 20:2]] ([[D&C 43.31|D&C 43:31]]; [[D&C 45.55|D&C 45:55]]; [[D&C 88.110|D&C 88:110]]).
 
@@ -61,23 +60,23 @@ thousand years are expired, *Satan* shall be loosed, [[Revelation 20.7|Revelatio
 
 because of the righteousness of his people, *Satan* has no power, [[1 Nephi 22.26|1 Nephi 22:26]].
 
-*Satan* shall have power over the hearts of ... men no more, [[2 Nephi 30.18|2 Nephi 30:18]].
+*Satan* shall have power over the hearts of … men no more, [[2 Nephi 30.18|2 Nephi 30:18]].
 
-chained down ... according to the power and captivity of *Satan*, [[Alma 12.17|Alma 12:17]].
+chained down … according to the power and captivity of *Satan*, [[Alma 12.17|Alma 12:17]].
 
-*Satan* did stir up the hearts of ... Nephites, [[Helaman 6.21|Helaman 6:21]] ([[D&C 10.20|D&C 10:20]]).
+*Satan* did stir up the hearts of … Nephites, [[Helaman 6.21|Helaman 6:21]] ([[D&C 10.20|D&C 10:20]]).
 
 *Satan* did lead away the hearts of the people, [[3 Nephi 6.16|3 Nephi 6:16]].
 
-change ... that *Satan* could have no power over them, [[3 Nephi 28.39|3 Nephi 28:39]].
+change … that *Satan* could have no power over them, [[3 Nephi 28.39|3 Nephi 28:39]].
 
 *Satan* had full power over the hearts of the people, [[Ether 15.19|Ether 15:19]] ([[1 Nephi 13.29|1 Nephi 13:29]]).
 
-Pray always ... that you may conquer *Satan*, [[D&C 10.5|D&C 10:5]].
+Pray always … that you may conquer *Satan*, [[D&C 10.5|D&C 10:5]].
 
 *Satan* hath put it into their hearts to alter the words, [[D&C 10.10|D&C 10:10]].
 
-*Satan* ... stirreth them up to iniquity, [[D&C 10.20|D&C 10:20]].
+*Satan* … stirreth them up to iniquity, [[D&C 10.20|D&C 10:20]].
 
 *Satan* thinketh to overpower your testimony, [[D&C 10.33|D&C 10:33]].
 
@@ -109,7 +108,7 @@ cannot escape the buffetings of *Satan*, [[D&C 104.9|D&C 104:9]].
 
 became *Satan*, yea, even the devil, the father of all lies, [[Moses 4.4|Moses 4:4]].
 
-*Satan* ... knew not the mind of God, [[Moses 4.6|Moses 4:6]].
+*Satan* … knew not the mind of God, [[Moses 4.6|Moses 4:6]].
 
 *Satan* came among them, saying: I am also a son of God, [[Moses 5.13|Moses 5:13]].
 

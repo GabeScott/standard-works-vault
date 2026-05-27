@@ -1,6 +1,8 @@
 # The Priesthood of Aaron
 
-By President Gordon B. Hinckley - *Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -60,9 +62,9 @@ Now, as I speak to you young men I wish to repeat in conclusion some other words
 
 The occasion was a Sunday afternoon, on February 28, 1897. The place was this Tabernacle. It was in commemoration of President Woodruff’s ninetieth birthday. This great building was filled to capacity with all seats occupied and the aisles packed in every part of the building, such as we are not permitted to do now. It is estimated there were more than ten thousand young people present—a vast congregation of young men your age and young women of the same age. President Woodruff, who was then weak in body and whose voice was not strong, stood at the pulpit where I stand and said, particularly to the young men present, these words:
 
-“I have passed through the periods of boyhood, early manhood and old age. I cannot expect to tarry a great while longer with you, but I want to give you a few words of counsel. You occupy a position in the Church and Kingdom of God and have received the power of the holy priesthood. The God of heaven has appointed you and called you forth in this day and generation. I want you to look at this. Young men listen to the counsel of your brethren. Live near to God; pray while young; learn to pray; learn to cultivate the Holy Spirit of God; link it to you and it will become a spirit of revelation unto you, inasmuch as you nourish it. …”
+“I have passed through the periods of boyhood, early manhood and old age. I cannot expect to tarry a great while longer with you, but I want to give you a few words of counsel. You occupy a position in the Church and Kingdom of God and have received the power of the holy priesthood. The God of heaven has appointed you and called you forth in this day and generation. I want you to look at this. Young men listen to the counsel of your brethren. Live near to God; pray while young; learn to pray; learn to cultivate the Holy Spirit of God; link it to you and it will become a spirit of revelation unto you, inasmuch as you nourish it. …”
 
-He went on to say: “God in heaven has willed to spare me to see this day. He has given me power to reject every testimony and reject every example that leads to evil. I say to you … do not use tobacco, liquor, or any of these things that destroy the body and mind, but honor Him and you will have a mission upon your heads that the world knows not of. May God bless you. Amen.” (*Wilford Woodruff: Fourth President of The Church of Jesus Christ of Latter-day Saints,* prepared for publication by Matthias F. Cowley, Salt Lake City: Deseret News, 1909, pp. 602–3.)
+He went on to say: “God in heaven has willed to spare me to see this day. He has given me power to reject every testimony and reject every example that leads to evil. I say to you … do not use tobacco, liquor, or any of these things that destroy the body and mind, but honor Him and you will have a mission upon your heads that the world knows not of. May God bless you. Amen.” (*Wilford Woodruff: Fourth President of The Church of Jesus Christ of Latter-day Saints,* prepared for publication by Matthias F. Cowley, Salt Lake City: Deseret News, 1909, pp. 602–3.)
 
 I echo that great counsel of President Wilford Woodruff as I testify to you young men this night that God our Eternal Father lives and that Jesus Christ is his Beloved Son, that the priesthood of which we have spoken is verily here upon the earth, and that we are partakers of its blessings, powers, and responsibilities.
 
@@ -78,7 +80,7 @@ It is in our sacrament meetings that we should be testifying of the Lord and tea
 
 I think the Lord had in mind our sacrament meetings when, in a revelation given to Joseph Smith August 7, 1831, he said to us and to all of the people of his Church:
 
-“And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day; …
+“And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day; …
 
 “Remember that on this, the Lord’s day, thou shall offer thine oblations and thy sacraments unto the Most High, confessing thy sins unto thy brethren, and before the Lord.” ([[D&C 59.9|D&C 59:9, 12]][[D&C 59.12|]].)
 
@@ -93,8 +95,3 @@ It is not easy to keep oneself unspotted from the world. Each of us needs all th
 
 
 
-
-
-
-
-#Church_Meetings #Priesthood

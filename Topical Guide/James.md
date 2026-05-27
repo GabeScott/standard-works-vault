@@ -1,4 +1,3 @@
 # James
 
-
-*See* [BD James](https://www.churchofjesuschrist.org/study/scriptures/bd/james?lang=eng); [James, Epistle of](https://www.churchofjesuschrist.org/study/scriptures/bd/james-epistle-of?lang=eng)
+*See also* [[BD James.md|BD James]]; [[BD James, Epistle of.md|BD James, Epistle of]]

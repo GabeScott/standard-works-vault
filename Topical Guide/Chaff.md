@@ -1,6 +1,5 @@
 # Chaff
 
-
 like the *chaff* which the wind driveth away, [[Psalms 1.4|Psalms 1:4]].
 
 the flame consumeth the *chaff*, [[Isaiah 5.24|Isaiah 5:24]] ([[2 Nephi 15.24|2 Nephi 15:24]]).

@@ -1,6 +1,5 @@
 # Stop
 
-
 windows of heaven were *stopped*, [[Genesis 8.2|Genesis 8:2]].
 
 to *stop* the waters of the fountains, [[2 Chronicles 32.3|2 Chronicles 32:3]].
@@ -25,4 +24,4 @@ God sent his holy angel to *stop* us by the way, [[Alma 36.6|Alma 36:6]].
 
 stretch forth his puny arm to *stop* the Missouri river, [[D&C 121.33|D&C 121:33]].
 
-enemies ... not have power to *stop* my work, [[D&C 136.17|D&C 136:17]].
+enemies … not have power to *stop* my work, [[D&C 136.17|D&C 136:17]].

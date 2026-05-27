@@ -1,5 +1,7 @@
 # If These Old Walls Could Talk
 
+Thomas S. Monson
+
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2007 General Conference*
@@ -50,7 +52,7 @@ These old walls remember the profound silence that came over the Tabernacle in 1
 
 In 1995 President Gordon B. Hinckley said to the women of the Church, “With so much of sophistry that is passed off as truth, with so much of deception concerning standards and values, with so much of allurement and enticement to take on the slow stain of the world, we have felt to warn and forewarn.” He then proceeded to read:
 
-“We, the First Presidency and the Council of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints, solemnly proclaim that marriage between a man and a woman is ordained of God and that the family is central to the Creator’s plan for the eternal destiny of His children. …
+“We, the First Presidency and the Council of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints, solemnly proclaim that marriage between a man and a woman is ordained of God and that the family is central to the Creator’s plan for the eternal destiny of His children. …
 
 “Husband and wife have a solemn responsibility to love and care for each other and for their children. ‘Children are an heritage of the Lord’ ([[Psalms 127.3|Psalms 127:3]]). Parents have a sacred duty to rear their children in love and righteousness, to provide for their physical and spiritual needs, to teach them to love and serve one another, to observe the commandments of God and to be law-abiding citizens wherever they live. Husbands and wives—mothers and fathers—will be held accountable before God for the discharge of these obligations.”[^7]
 
@@ -69,12 +71,7 @@ I’m grateful for this extraordinary building. It stands as a sacred monument t
 
 [^5]: In Conference Report, Oct. 1964, 83–84.
 
-[^6]: In Conference Report, Apr. 1985, 12; or *Ensign,* May 1985, 11.
+[^6]: In Conference Report, Apr. 1985, [[1985 April - The Purifying Power of Gethsemane.md|12]]; or *Ensign,* May 1985, 11.
 
 [^7]: “Stand Strong against the Wiles of the World,” *Ensign,* Nov. 1995, 100–101.
 
-
-
-
-
-#Church_History #Prophets #Temple_Square #Testimony

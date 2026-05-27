@@ -1,5 +1,7 @@
 # The Blessings of General Conference
 
+Gordon B. Hinckley
+
 By Elder Paul V. Johnson - *Of the Seventy*
 
 *Given in the October session of the 2005 General Conference*
@@ -63,8 +65,3 @@ I know that our Heavenly Father loves us and has a perfect plan for His children
 
 [^6]: [[John 6.68|John 6:68]].
 
-
-
-
-
-#General_Conference #Media #Obedience #Prophets #Spirituality

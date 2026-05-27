@@ -1,6 +1,8 @@
 # Knowing, Loving, and Growing
 
-By Elder Hans T. Boom - *Of the Seventy*
+Jeffrey R. Holland
+
+By Elder Hans T. Boom - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -65,9 +67,9 @@ I testify to you that I know who I am, and I do know who you are. We are all chi
 
 
 
-[^1]: See D. Todd Christofferson, “[[2016 October - “Abide in My Love”.md|Abide in My Love]],” *Ensign* or *Liahona,* Nov. 2016, 48.
+[^1]: See D. Todd Christofferson, “[[2016 October - “Abide in My Love”.md|Abide in My Love]],” *Ensign* or *Liahona,* Nov. 2016, 48.
 
-[^2]: See Russell M. Nelson, “[Divine Love](https://churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng),” *Ensign,* Feb. 2003, 20–25; *Liahona,* Feb. 2003, 12–17.
+[^2]: See Russell M. Nelson, “[Divine Love](https://www.churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng),” *Ensign,* Feb. 2003, 20–25; *Liahona,* Feb. 2003, 12–17.
 
 [^3]: [[Joseph Smith History 1.10|Joseph Smith—History 1:10]].
 
@@ -81,12 +83,7 @@ I testify to you that I know who I am, and I do know who you are. We are all chi
 
 [^8]: [[Moroni 7.47|Moroni 7:47]].
 
-[^9]: Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona,* May 2019, 17.
+[^9]: Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona,* May 2019, 17.
 
 [^10]: [[Joseph Smith History 1.25|Joseph Smith—History 1:25]].
 
-
-
-
-
-#Discipleship #Individual_Worth #Joseph_Smith #Love #Ministering #Missionary_Work

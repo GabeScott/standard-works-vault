@@ -1,5 +1,7 @@
 # Today—A Day of Eternity
 
+Gordon B. Hinckley
+
 By Elder George I. Cannon - *Released Member of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -16,13 +18,13 @@ The boy replied, “I’ve never lived this day before.”
 
 The writer of the article comments: “This boy was wiser than his years. The only life we can live is today. Yesterday is behind us. However golden the hours, they cannot be lived again, but only remembered. Tomorrow is before us, and however sweet its expectations, the clock must take its patient course before we can test our hope against reality. We can live no more than one day at a time” (Roy Pearson, *Words to Live By*).
 
-Elder Richard L. Evans shared this meaningful thought in “The Spoken Word”: “It sometimes seems that we live as if we wonder when life is going to begin. It isn’t always clear just what we are waiting for, but some of us sometimes persist in waiting so long that life slips by—finding us still waiting for something that has been going on all the time. … This is the life in which the work of this life is to be done. Today is as much a part of eternity as any day a thousand years ago or as will be any day a thousand years hence. This is it, whether we are thrilled or disappointed, busy or bored! This is life, and it is passing” (“The Spoken Word,” *Improvement Era,* Jan. 1967, p. 65).
+Elder Richard L. Evans shared this meaningful thought in “The Spoken Word”: “It sometimes seems that we live as if we wonder when life is going to begin. It isn’t always clear just what we are waiting for, but some of us sometimes persist in waiting so long that life slips by—finding us still waiting for something that has been going on all the time. … This is the life in which the work of this life is to be done. Today is as much a part of eternity as any day a thousand years ago or as will be any day a thousand years hence. This is it, whether we are thrilled or disappointed, busy or bored! This is life, and it is passing” (“The Spoken Word,” *Improvement Era,* Jan. 1967, p. 65).
 
 Today *is* a day of eternity. I hope each day we are thankful for life, for knowing that we are sons and daughters of God and that the fulness of the gospel of Jesus Christ is upon the earth. I hope we will have a desire and a determination to make each day a good day.
 
 How can we do this? Here are some suggestions. I encourage you to add others.
 
-Each day let us nourish our faith in the Lord Jesus Christ. Let us follow the inspired message from the Lord’s living prophet, Ezra Taft Benson, to read daily from the Book of Mormon and make a study of this book a lifetime pursuit (see Conference Report, Apr. 1988, p. 57; or *Ensign,* May 1988, p. 51). We can go to our Father in Heaven in individual prayer. We can kneel each day as a family. How very important it is that we do this. As we attend our meetings on the Sabbath and partake of the sacrament worthily, we can have our Father’s Spirit with us every day.
+Each day let us nourish our faith in the Lord Jesus Christ. Let us follow the inspired message from the Lord’s living prophet, Ezra Taft Benson, to read daily from the Book of Mormon and make a study of this book a lifetime pursuit (see Conference Report, Apr. 1988, p. 57; or *Ensign,* May 1988, p. 51). We can go to our Father in Heaven in individual prayer. We can kneel each day as a family. How very important it is that we do this. As we attend our meetings on the Sabbath and partake of the sacrament worthily, we can have our Father’s Spirit with us every day.
 
 Let us live daily the great saving principle of repentance. We will become more humble and teachable.
 
@@ -60,7 +62,7 @@ Here is another suggestion: Don’t worry about those things which you cannot ch
 >If there be none, never mind it”
 >
 
-I have one more suggestion. I share this counsel from President Ezra Taft Benson: “If we want to keep the Spirit, we must work. There is no greater exhilaration or satisfaction than to know, after a hard day of work, that we have done our best. … Ours is a gospel of work—purposeful, unselfish and rendered in the spirit of the true love of Christ” (*Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], pp. 483–84).
+I have one more suggestion. I share this counsel from President Ezra Taft Benson: “If we want to keep the Spirit, we must work. There is no greater exhilaration or satisfaction than to know, after a hard day of work, that we have done our best. … Ours is a gospel of work—purposeful, unselfish and rendered in the spirit of the true love of Christ” (*Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], pp. 483–84).
 
 Each day we live is a day of eternity.
 
@@ -99,8 +101,3 @@ Above all, I express my gratitude and love to my Savior, Jesus Christ. He is the
 
 
 
-
-
-
-
-#Faith #Honesty #Joy #Repentance #Self-Esteem

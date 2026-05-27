@@ -1,5 +1,7 @@
 # Why Every Member a Missionary?
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -14,15 +16,15 @@ The Savior emphasized the vital importance of sharing the gospel when He said to
 
 Lehi taught his son Jacob:
 
-“Redemption cometh in and through the Holy Messiah. …
+“Redemption cometh in and through the Holy Messiah. …
 
-“… He offereth himself a sacrifice for sin … unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered.
+“… He offereth himself a sacrifice for sin … unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered.
 
 “*Wherefore, how great the importance to make these things known unto the inhabitants of the earth,* that they may know that there is no flesh that can dwell in the presence of God, save it be through the merits, and mercy, and grace of the Holy Messiah.”[^4]
 
 Joseph Smith understood the charge of God to share truth with the world. During the most difficult times of his life, he sent forth his loyal supporters to proclaim the gospel when they were urgently needed to support him. In the midst of the trial and deprivation of Liberty Jail he said:
 
-“For there are many yet on the earth … who are blinded by the subtle craftiness of men, … who are only kept from the truth because they know not where to find it. …
+“For there are many yet on the earth … who are blinded by the subtle craftiness of men, … who are only kept from the truth because they know not where to find it. …
 
 “Therefore, … let us cheerfully do all things that lie in our power; and then may we stand still, with the utmost assurance, to see the salvation of God, and for his arm to be revealed.”[^5]
 
@@ -77,16 +79,11 @@ Why every member a missionary? Because that is what the Lord has asked us to do.
 
 [^3]: [[JST Matthew 6.38|JST, Matt. 6:38]]; emphasis added; see also [[D&C 84.106|D&C 84:106]]; [[D&C 108.7|108:7]].
 
-[^4]: [[2 Nephi 2.6|2 Ne. 2:6–8]][[2 Nephi 2.7|]][[2 Nephi 2.8|]]; emphasis added; see also [[Alma 29.2|Alma 29:2]].
+[^4]: [[2 Nephi 2.6|2 Ne. 2:6–8]][[2 Nephi 2.7|]][[2 Nephi 2.8|]]; emphasis added; see also [[Alma 29.2|Alma 29:2]].
 
 [^5]: [[D&C 123.12|D&C 123:12, 17]][[D&C 123.17|]].
 
-[^6]: In Conference Report, Apr. 1997, 66; or *Ensign,* May 1997, 47.
+[^6]: In Conference Report, Apr. 1997, [[1997 April - Converts and Young Men.md|66]]; or *Ensign,* May 1997, 47.
 
 [^7]: “The Things of Eternity—Stand We in Jeopardy?” *Ensign,* Jan. 1977, 3.
 
-
-
-
-
-#Fellowshipping #Jesus_Christ #Joy #Media #Missionary_Work

@@ -1,5 +1,7 @@
 # The Quality of Eternal Life
 
+Ezra Taft Benson
+
 By Elder Wm. Grant Bangerter - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -30,7 +32,7 @@ Now, in view of the almost universal concern over the quality of *mortal* life, 
 
 Who does know? Well, God knows. He is the Eternal Father. And Christ knows. He controls the plan which can bring the quality of happiness. And his prophets know. And so do those who listen to the prophets and understand the scriptures. Even in the Church the doctrine of eternal life is not always well understood or appreciated. If it were, many members would do more about it. After all, the quality of that eternal existence is in our own hands. Lehi said in the Book of Mormon:
 
-“Wherefore, how great the importance to make these things known unto the inhabitants of the earth, that they may know that there is no flesh that can dwell in the presence of God, save it be through the merits, and mercy, and grace of the Holy Messiah.” ([[2 Nephi 2.8|2 Ne. 2:8]].)
+“Wherefore, how great the importance to make these things known unto the inhabitants of the earth, that they may know that there is no flesh that can dwell in the presence of God, save it be through the merits, and mercy, and grace of the Holy Messiah.” ([[2 Nephi 2.8|2 Ne. 2:8]].)
 
 For the Savior said, “I am the way, the truth, and the life: *no man* cometh unto the Father, but by me.” ([[John 14.6|John 14:6]].)
 
@@ -54,17 +56,17 @@ Lars responded, “Vell, den, I vill not go.”
 
 Elder Christiansen’s report was that he had gone anyway. And we will go as well.
 
-Joseph Smith tells us that “happiness is the object and design of our existence; and will be the end thereof, if we pursue the path which leads to it.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 255.)
+Joseph Smith tells us that “happiness is the object and design of our existence; and will be the end thereof, if we pursue the path which leads to it.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 255.)
 
 There are several fundamentals which those who seek to enjoy quality in their eternal existence would want to consider.
 
-We begin by knowing of Jesus Christ and determining to follow him. Peter said: “Repent, and be baptized every one of you in the name of Jesus Christ for the remission of sins, and ye shall receive the gift of the Holy Ghost. …
+We begin by knowing of Jesus Christ and determining to follow him. Peter said: “Repent, and be baptized every one of you in the name of Jesus Christ for the remission of sins, and ye shall receive the gift of the Holy Ghost. …
 
 “And with many other words did he testify and exhort, saying, Save yourselves from this untoward generation.
 
 “Then they that gladly received his word were baptized: … three thousand souls.” ([[Acts 2.38|Acts 2:38, 40–41]][[Acts 2.40|]][[Acts 2.41|]].)
 
-Then, we “press forward with a steadfastness in Christ … and endure to the end, \[and\] thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.20|2 Ne. 31:20]].) We are to take upon us His name and always remember Him and keep His commandments. (See [[Moroni 4.1|Moro. 4]][[Moroni 4.2|]][[Moroni 4.3|]]; [[Moroni 5.1|5]][[Moroni 5.2|]]; [[D&C 20.77|D&C 20:77–79]][[D&C 20.78|]][[D&C 20.79|]].) That seems to be keeping our repentance up to date.
+Then, we “press forward with a steadfastness in Christ … and endure to the end, \[and\] thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.20|2 Ne. 31:20]].) We are to take upon us His name and always remember Him and keep His commandments. (See [[Moroni 4.1|Moro. 4]]; [[Moroni 5.1|5]]; [[D&C 20.77|D&C 20:77–79]][[D&C 20.78|]][[D&C 20.79|]].) That seems to be keeping our repentance up to date.
 
 Now comes the call to serve. We serve God and our fellowmen. The parable of the Good Samaritan came in answer to the lawyer’s question: “What shall I do to obtain eternal life? … Thou shalt love the Lord thy God … and thy neighbour as thyself.” ([[Luke 10.25|Luke 10:25, 27]][[Luke 10.27|]].)
 
@@ -80,7 +82,7 @@ In the portrayal of the Judgment Day in the twenty-fifth chapter of Matthew, we 
 
 - sick
 
-- or in prison. (See [[Matthew 25.35|vs. 35–36]][[Matthew 25.36|]].)
+- or in prison. (See [[Matthew 25.35|vs. 35–36]][[Matthew 25.36|]].)
 
 Evidently those who do not undertake this service will not qualify. As the Lord says: “Inasmuch as ye did it not to one of the least of these, ye did it not to me.
 
@@ -109,8 +111,3 @@ I have known of Jesus Christ since before I can remember. I was taught to pray t
 
 
 
-
-
-
-
-#Plan_Of_Salvation

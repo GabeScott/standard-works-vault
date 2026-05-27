@@ -1,5 +1,7 @@
 # “Repent … That I May Heal You”
 
+Thomas S. Monson
+
 By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -10,7 +12,7 @@ By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 My brothers and sisters, it has been six months since my call to the Quorum of the Twelve Apostles. To now serve with men who have long been my examples and teachers remains a very humbling experience. I deeply appreciate your prayers and sustaining vote. For me, this has been a time of fervent prayer, of earnestly seeking the acceptance of the Lord. I have felt His love in sacred and unforgettable ways. I testify that He lives and that this is His holy work.
 
-We love President Thomas S. Monson, the Lord’s prophet. I will forever remember his kindness as he extended my call last April. At the conclusion of our interview, he opened his arms to embrace me. President Monson is a tall man. As he wrapped his long arms around me and pulled me close, I felt like a little boy being held in the protective arms of a loving father.
+We love President Thomas S. Monson, the Lord’s prophet. I will forever remember his kindness as he extended my call last April. At the conclusion of our interview, he opened his arms to embrace me. President Monson is a tall man. As he wrapped his long arms around me and pulled me close, I felt like a little boy being held in the protective arms of a loving father.
 
 In the months since that experience, I have thought of the Lord’s invitation to come unto Him and to spiritually be wrapped in His arms. He said, “Behold, \[my arms\] of mercy \[are\] extended towards you, and whosoever will come, him will I receive; and blessed are those who come unto me.”[^1]
 
@@ -54,7 +56,7 @@ As we improve, we see life more clearly and feel the Holy Ghost working more str
 
 Sometimes we wonder why we remember our sins long after we have forsaken them. Why does the sadness for our mistakes at times continue following our repentance?
 
-You will remember a tender story told by President James E. Faust. “As a small boy on the farm … , I remember my grandmother … cooking our delicious meals on a hot woodstove. When the wood box next to the stove became empty, Grandmother would silently pick up the box, go out to refill it from the pile of cedar wood outside, and bring the heavily laden box back into the house.”
+You will remember a tender story told by President James E. Faust. “As a small boy on the farm … , I remember my grandmother … cooking our delicious meals on a hot woodstove. When the wood box next to the stove became empty, Grandmother would silently pick up the box, go out to refill it from the pile of cedar wood outside, and bring the heavily laden box back into the house.”
 
 President Faust’s voice then filled with emotion as he continued: “I was so insensitive … I sat there and let my beloved grandmother refill the kitchen wood box. I feel ashamed of myself and have regretted my \[sin of\] omission for all of my life. I hope someday to ask for her forgiveness.”[^25]
 
@@ -83,19 +85,19 @@ He loves us. We are members of His Church. He invites each of us to repent, turn
 
 
 
-[^1]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^1]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
 [^2]: See [[Mormon 6.17|Mormon 6:17]].
 
 [^3]: See [[Alma 19.36|Alma 19:36]].
 
-[^4]: See [[2 Kings 17.36|2 Kings 17:36]]; [[Psalms 136.12|Psalm 136:12]].
+[^4]: See [[2 Kings 17.36|2 Kings 17:36]]; [[Psalms 136.12|Psalm 136:12]].
 
-[^5]: See [[2 Nephi 1.15|2 Nephi 1:15]].
+[^5]: See [[2 Nephi 1.15|2 Nephi 1:15]].
 
 [^6]: See [[D&C 123.6|D&C 123:6]].
 
-[^7]: See [[3 Nephi 20.35|3 Nephi 20:35]].
+[^7]: See [[3 Nephi 20.35|3 Nephi 20:35]].
 
 [^8]: See [[Alma 5.33|Alma 5:33]].
 
@@ -103,17 +105,17 @@ He loves us. We are members of His Church. He invites each of us to repent, turn
 
 [^10]: See [[D&C 6.20|D&C 6:20]].
 
-[^11]: [[2 Nephi 28.32|2 Nephi 28:32]].
+[^11]: [[2 Nephi 28.32|2 Nephi 28:32]].
 
-[^12]: [[2 Nephi 8.12|2 Nephi 8:12]].
+[^12]: [[2 Nephi 8.12|2 Nephi 8:12]].
 
 [^13]: [[Alma 5.33|Alma 5:33]].
 
 [^14]: See [[Helaman 7.17|Helaman 7:17]].
 
-[^15]: See Boyd K. Packer, in Conference Report, Oct. 1995, 22; or *Ensign,* Nov. 1995, 19.
+[^15]: See Boyd K. Packer, in Conference Report, Oct. 1995, [[1995 October - The Brilliant Morning of Forgiveness.md|22]]; or *Ensign,* Nov. 1995, 19.
 
-[^16]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^16]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
 [^17]: [[Alma 5.12|Alma 5:12]].
 
@@ -127,26 +129,21 @@ He loves us. We are members of His Church. He invites each of us to repent, turn
 
 [^22]: [[Isaiah 49.16|Isaiah 49:16]].
 
-[^23]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^23]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
 [^24]: See [[D&C 58.43|D&C 58:43]].
 
-[^25]: James E. Faust, in Conference Report, Oct. 1997, 78; or *Ensign,* Nov. 1997, 59.
+[^25]: James E. Faust, in Conference Report, Oct. 1997, [[1997 October - The Weightier Matters of the Law - Judgment, Mercy, and Faith.md|78]]; or *Ensign,* Nov. 1997, 59.
 
 [^26]: See [[D&C 58.42|D&C 58:42–43]][[D&C 58.43|]]; see also [[Alma 36.17|Alma 36:17–19]][[Alma 36.18|]][[Alma 36.19|]].
 
-[^27]: See Dieter F. Uchtdorf, in Conference Report, Apr. 2007, 101–2; or *Ensign,* May 2007, 101.
+[^27]: See Dieter F. Uchtdorf, in Conference Report, Apr. 2007, [[2007 April - Point of Safe Return.md|101–2]]; or *Ensign,* May 2007, 101.
 
 [^28]: [[Alma 24.10|Alma 24:10]].
 
-[^29]: [[Mosiah 4.3|Mosiah 4:3]]. The scriptures link our happiness in this life and the next with peace of conscience. Note Alma’s teaching that the opposite of joy is remorse of conscience (see [[Alma 29.5|Alma 29:5]]). Other prophets tie the torment of the wicked following this life to the guilt they feel (see [[2 Nephi 9.14|2 Nephi 9:14, 46]][[2 Nephi 9.46|]]; [[Mosiah 2.38|Mosiah 2:38]]; [[Mosiah 3.24|3:24–25]][[Mosiah 3.25|]]; [[Mormon 9.5|Mormon 9:5]]). Joseph Smith said: “A man is his own tormentor and his own condemner. Hence the saying, They shall go into the lake that burns with fire and brimstone. The torment of disappointment in the mind of man is as exquisite as a lake burning with fire and brimstone” (in *History of the Church,* 6:314).
+[^29]: [[Mosiah 4.3|Mosiah 4:3]]. The scriptures link our happiness in this life and the next with peace of conscience. Note Alma’s teaching that the opposite of joy is remorse of conscience (see [[Alma 29.5|Alma 29:5]]). Other prophets tie the torment of the wicked following this life to the guilt they feel (see [[2 Nephi 9.14|2 Nephi 9:14, 46]][[2 Nephi 9.46|]]; [[Mosiah 2.38|Mosiah 2:38]]; [[Mosiah 3.24|3:24–25]][[Mosiah 3.25|]]; [[Mormon 9.5|Mormon 9:5]]). Joseph Smith said: “A man is his own tormentor and his own condemner. Hence the saying, They shall go into the lake that burns with fire and brimstone. The torment of disappointment in the mind of man is as exquisite as a lake burning with fire and brimstone” (in *History of the Church,* 6:314).
 
 [^30]: See [[D&C 46.27|D&C 46:27]].
 
 [^31]: [[Alma 34.33|Alma 34:33]].
 
-
-
-
-
-#Atonement #Forgiveness #Repentance

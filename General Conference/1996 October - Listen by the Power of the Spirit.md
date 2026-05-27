@@ -1,5 +1,7 @@
 # Listen by the Power of the Spirit
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1996 General Conference*
@@ -10,7 +12,7 @@ We have gathered here in the historic Tabernacle on Temple Square in Salt Lake C
 
 Following a previous conference we received a letter from England. May I read it? The writer says:
 
-“This last weekend, just a short while after our 40th wedding anniversary, we had the great pleasure to gather our children and grandchildren together to watch the general conference broadcast in our own home. …
+“This last weekend, just a short while after our 40th wedding anniversary, we had the great pleasure to gather our children and grandchildren together to watch the general conference broadcast in our own home. …
 
 “We had the wonderful blessing of being able to stand and raise our arms to the square as a family and sustain a living prophet, his counselors, together with the Quorum of the Twelve, and in our own home too!
 
@@ -41,8 +43,3 @@ For this I pray in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Church_Leaders #Listening #Pioneers #Preparation #Unity

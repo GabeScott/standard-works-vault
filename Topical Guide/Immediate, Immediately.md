@@ -1,7 +1,6 @@
 # Immediate, Immediately
 
-
-*Immediately* ... shall the sun be darkened, [[Matthew 24.29|Matthew 24:29]] ([[Joseph Smith Matthew 1.33|Joseph Smith Matthew 1:33]]).
+*Immediately* … shall the sun be darkened, [[Matthew 24.29|Matthew 24:29]] ([[Joseph Smith Matthew 1.33|Joseph Smith Matthew 1:33]]).
 
 kingdom of God should *immediately* appear, [[Luke 19.11|Luke 19:11]].
 

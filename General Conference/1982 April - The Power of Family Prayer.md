@@ -1,6 +1,8 @@
 # The Power of Family Prayer
 
-By Elder John H. Groberg - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -14,13 +16,13 @@ All of us, single or married, are eternally part of some family—someway, somew
 
 We learn that friends and neighbors come and go but family is forever, and as we learn this, we find that we are eternally our brother’s keeper and we begin to realize how much help we need. How we should thank God for the opportunity of family prayer!
 
-Listen to the admonition of the Savior in Third Nephi: “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.21|3 Ne. 18:21]].)
+Listen to the admonition of the Savior in Third Nephi: “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.21|3 Ne. 18:21]].)
 
 Can you detect that if we do not pray in our families always they may not be blessed—or at least not so fully? If we truly love our families we will constantly pray for them and with them. I know of no single activity that has more potential for unifying our families and bringing more love and divine direction into our homes than consistent, fervent family prayer.
 
 Think of the power for good as you gather your family together and thank God for all of his blessings. Think of the eternal significance of daily thanking him for each member of your family and asking him to guide and bless and protect each one. Think of the strength that will come to your family as, daily, one member or another pours out his or her soul in love to God for other family members.
 
-Of course, our prayers must be more than words, for as President Marion G. Romney has so clearly stated, “The efficacy of our prayers depends on how we care for one another.” (*Ensign,* Nov. 1980, p. 93.) Family prayer is fully effective, then, only as we rise from our knees and, with increased love and understanding, take better care of each other.
+Of course, our prayers must be more than words, for as President Marion G. Romney has so clearly stated, “The efficacy of our prayers depends on how we care for one another.” (*Ensign,* Nov. 1980, p. 93.) Family prayer is fully effective, then, only as we rise from our knees and, with increased love and understanding, take better care of each other.
 
 We all want more love and unity in our families. We all need more help with some who may be wayward or in special need. We all desire more assurance of divine guidance and direction.
 
@@ -107,8 +109,3 @@ May we all gather our families around us and consistently and fervently pray for
 
 
 
-
-
-
-
-#Family #Prayer

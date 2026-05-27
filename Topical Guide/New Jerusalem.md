@@ -1,4 +1,3 @@
 # New Jerusalem
 
-
-*See* [[Jerusalem, New.md|Jerusalem, New]]
+*See also* [[Jerusalem, New.md|Jerusalem, New]]

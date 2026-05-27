@@ -1,5 +1,7 @@
 # Our Mission of Saving
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -12,19 +14,19 @@ We did not have this great Tabernacle at that time. Our people then met in the O
 
 Brigham Young had known nothing of this. There was, of course, at that time no rapid means of communication—no radio, no telegraph, no fast mail. He was then fifty-five years of age. The next morning, the Sabbath, he stood before the people in the Tabernacle and said:
 
-“I will now give this people the subject and the text for the Elders who may speak. … It is this. On the 5th day of October, 1856, many of our brethren and sisters are on the plains with handcarts, and probably many are now seven hundred miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’ …
+“I will now give this people the subject and the text for the Elders who may speak. … It is this. On the 5th day of October, 1856, many of our brethren and sisters are on the plains with handcarts, and probably many are now seven hundred miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’ …
 
-“That is my religion; that is the dictation of the Holy Ghost that I possess. It is to save the people. …
+“That is my religion; that is the dictation of the Holy Ghost that I possess. It is to save the people. …
 
-“I shall call upon the Bishops this day. I shall not wait until tomorrow, nor until the next day, for 60 good mule teams and 12 or 15 wagons. I do not want to send oxen. I want good horses and mules. They are in this Territory, and we must have them. Also 12 tons of flour and 40 good teamsters, besides those that drive the teams. …
+“I shall call upon the Bishops this day. I shall not wait until tomorrow, nor until the next day, for 60 good mule teams and 12 or 15 wagons. I do not want to send oxen. I want good horses and mules. They are in this Territory, and we must have them. Also 12 tons of flour and 40 good teamsters, besides those that drive the teams. …
 
-“I will tell you all that your faith, religion, and profession of religion, will never save one soul of you in the Celestial Kingdom of our God, unless you carry out just such principles as I am now teaching you. *Go and bring in those people now on the plains*” (quoted in LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion* \[Glendale, Calif.: Arthur H. Clark Co., 1960\], pp. 120–21).
+“I will tell you all that your faith, religion, and profession of religion, will never save one soul of you in the Celestial Kingdom of our God, unless you carry out just such principles as I am now teaching you. *Go and bring in those people now on the plains*” (quoted in LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion* \[Glendale, Calif.: Arthur H. Clark Co., 1960\], pp. 120–21).
 
 The next morning anvils were ringing in the blacksmith shops as horses were shod and wagons were repaired and loaded.
 
-The following morning, Tuesday, October 7th, “sixteen good four-mule teams and twenty-seven hardy young men headed eastward with the first installment of provisions. The gathering of more to follow, was pushed vigorously” (Hafen, *Handcarts to Zion,* p. 124).
+The following morning, Tuesday, October 7th, “sixteen good four-mule teams and twenty-seven hardy young men headed eastward with the first installment of provisions. The gathering of more to follow, was pushed vigorously” (Hafen, *Handcarts to Zion,* p. 124).
 
-“By the end of October, two hundred and fifty teams were on the road to give relief” (Hafen, *Handcarts to Zion,* p. 125).
+“By the end of October, two hundred and fifty teams were on the road to give relief” (Hafen, *Handcarts to Zion,* p. 125).
 
 There have been many eloquent sermons preached from the pulpits on Temple Square, but none more eloquent than those spoken in that October conference of 135 years ago.
 
@@ -52,11 +54,11 @@ There was now food to eat and some warmer clothing. But the suffering was not ov
 
 The carts were abandoned, and the survivors were crowded into the wagons of the rescuers. The long rough journey of three hundred, four hundred, even five hundred miles between them and this valley was especially slow and tedious because of the storms. On November 30, 104 wagons, loaded with suffering human cargo, came into the Salt Lake Valley. Word of their expected arrival had preceded them. It was Sunday, and again the Saints were gathered in the Tabernacle. Brigham Young stood before the congregation and said:
 
-“As soon as this meeting is dismissed I want the brethren and sisters to repair to their homes. …
+“As soon as this meeting is dismissed I want the brethren and sisters to repair to their homes. …
 
-“The afternoon meeting will be omitted, for I wish the sisters to … prepare to give those who have just arrived a mouthful of something to eat, and to wash them and nurse them. …
+“The afternoon meeting will be omitted, for I wish the sisters to … prepare to give those who have just arrived a mouthful of something to eat, and to wash them and nurse them. …
 
-“Some you will find with their feet frozen to their ankles; some are frozen to their knees and some have their hands frosted … we want you to receive them as your own children, and to have the same feeling for them” (quoted in Hafen, *Handcarts to Zion,* p. 139).
+“Some you will find with their feet frozen to their ankles; some are frozen to their knees and some have their hands frosted … we want you to receive them as your own children, and to have the same feeling for them” (quoted in Hafen, *Handcarts to Zion,* p. 139).
 
 The two orphan girls, Maggie and Ellen, were among those with frozen limbs. Ellen’s were the most serious. The doctor in the valley, doing the best he could, amputated her legs just below the knees. The surgical tools were crude. There was no anesthesia. The stumps never healed. She grew to womanhood, married William Unthank, and bore and reared an honorable family of six children. Moving about on those stumps, she served her family, her neighbors, and the Church with faith and good cheer and without complaint, though she was never without pain. Her posterity are numerous, and among them are educated and capable men and women who love the Lord whom she loved and who love the cause for which she suffered.
 
@@ -70,7 +72,7 @@ That speaker was Francis Webster, who was twenty-six years of age when with his 
 
 Now, my brothers and sisters, I have spent a long time telling that story, perhaps too long. This is October of 1991, and that episode of 135 years ago is behind us. But I have told it because it is true and because the spirit of that saga is as contemporary as is this morning.
 
-I wish to remind everyone within my hearing that the comforts we have, the peace we have, and, most important, the faith and knowledge of the things of God that we have were bought with a terrible price by those who have gone before us. Sacrifice has always been a part of the gospel of Jesus Christ. The crowning element of our faith is our conviction of our living God, the Father of us all, and of His Beloved Son, the Redeemer of the world. It is because of our Redeemer’s life and sacrifice that we are here. It is because of His sacrificial atonement that we and all of the sons and daughters of God will partake of the salvation of the Lord. “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]). It is because of the sacrificial redemption wrought by the Savior of the world that the great plan of the eternal gospel is made available to us, under which those who die in the Lord shall not taste of death but shall have the opportunity of going on to a celestial and eternal glory.
+I wish to remind everyone within my hearing that the comforts we have, the peace we have, and, most important, the faith and knowledge of the things of God that we have were bought with a terrible price by those who have gone before us. Sacrifice has always been a part of the gospel of Jesus Christ. The crowning element of our faith is our conviction of our living God, the Father of us all, and of His Beloved Son, the Redeemer of the world. It is because of our Redeemer’s life and sacrifice that we are here. It is because of His sacrificial atonement that we and all of the sons and daughters of God will partake of the salvation of the Lord. “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]). It is because of the sacrificial redemption wrought by the Savior of the world that the great plan of the eternal gospel is made available to us, under which those who die in the Lord shall not taste of death but shall have the opportunity of going on to a celestial and eternal glory.
 
 In our own helplessness, He becomes our rescuer, saving us from damnation and bringing us to eternal life.
 
@@ -101,8 +103,3 @@ Let us never forget that we have a marvelous heritage received from great and co
 
 
 
-
-
-
-
-#Love #Pioneers

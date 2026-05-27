@@ -1,5 +1,7 @@
 # A Witness and a Warning
 
+Spencer W. Kimball
+
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -12,7 +14,7 @@ America is a place of many great events. Here is where Adam dwelt, where the Gar
 
 This consecrated land has been placed under the everlasting decree of God. That decree is recorded in the sacred Book of Mormon, a new witness for Christ, in these words:
 
-“For behold, this is a land which is choice above all other lands; wherefore he that doth possess it shall serve God or shall be swept off; for it is the everlasting decree of God. …
+“For behold, this is a land which is choice above all other lands; wherefore he that doth possess it shall serve God or shall be swept off; for it is the everlasting decree of God. …
 
 “Behold, this is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ” ([[Ether 2.10|Ether 2:10, 12]][[Ether 2.12|]]).
 
@@ -22,7 +24,7 @@ The Constitution of the United States was ratified in 1789. The priesthood of Go
 
 In the decade prior to the restoration of the gospel, many countries of South America fought wars of independence to free themselves from European rule. Russia, Austria, and Prussia, however, urged France to aid Spain and Portugal to restore their monarchies in South America. This effort was repulsed by a proclamation from the United States government known as the Monroe Doctrine. The heart of the Monroe Doctrine consists of these words: “The American continents … are henceforth not to be considered as subjects for future colonization by any European powers.”
 
-The Lord had promised, “I will fortify this land against all other nations” ([[2 Nephi 10.12|2 Ne. 10:12]]). President Joseph Fielding Smith said that “the greatest and most powerful fortification in America is the ‘Monroe Doctrine.’ … It was the inspiration of the Almighty which rested upon John Quincy Adams, Thomas Jefferson and other statesmen, and which finally found authoritative expression in the message of James Monroe to Congress in the year 1823” (*The Progress Of Man,* Salt Lake City: Deseret Book Co., pp. 466–67).
+The Lord had promised, “I will fortify this land against all other nations” ([[2 Nephi 10.12|2 Ne. 10:12]]). President Joseph Fielding Smith said that “the greatest and most powerful fortification in America is the ‘Monroe Doctrine.’ … It was the inspiration of the Almighty which rested upon John Quincy Adams, Thomas Jefferson and other statesmen, and which finally found authoritative expression in the message of James Monroe to Congress in the year 1823” (*The Progress Of Man,* Salt Lake City: Deseret Book Co., pp. 466–67).
 
 Thus, in that four-decade period the United States had grown to sufficient strength that she was able to provide a cradle of liberty for the restored Church of Jesus Christ.
 
@@ -48,13 +50,13 @@ Since that day, I have seen the Soviet Union, under its godless leaders, spread 
 
 On 3 July 1936, the First Presidency published this warning to Church members:
 
-“Communism is not a political party nor a political plan under the Constitution; it is a system of government that is the opposite of our Constitutional government. …
+“Communism is not a political party nor a political plan under the Constitution; it is a system of government that is the opposite of our Constitutional government. …
 
 “Since Communism, established, would destroy our American Constitutional government, to support Communism is treasonable to our free institutions, and *no patriotic American citizen may become either a Communist or supporter of Communism. …*
 
-“We call upon all Church members completely to eschew \[shun\] Communism. The safety of our divinely inspired Constitutional government and the welfare of our Church imperatively demand that *Communism shall have no place in America*” (signed: Heber J. Grant, J. Reuben Clark, Jr., David O. McKay, The First Presidency, in *Deseret News,* 3 July 1936; italics added).
+“We call upon all Church members completely to eschew \[shun\] Communism. The safety of our divinely inspired Constitutional government and the welfare of our Church imperatively demand that *Communism shall have no place in America*” (signed: Heber J. Grant, J. Reuben Clark, Jr., David O. McKay, The First Presidency, in *Deseret News,* 3 July 1936; italics added).
 
-More recently, President Marion G. Romney, in the First Presidency Message in the September 1979 *Ensign,* wrote: “Communism is Satan’s counterfeit for the gospel plan, and … it is an avowed enemy of the God of the land. Communism is the greatest anti-Christ power in the world today and therefore the greatest menace not only to our peace but to our preservation as a free people. By the extent to which we tolerate it, accommodate ourselves to it, permit ourselves to be encircled by its tentacles and drawn to it, to that extent we forfeit the protection of the God of this land” (p. 5).
+More recently, President Marion G. Romney, in the First Presidency Message in the September 1979 *Ensign,* wrote: “Communism is Satan’s counterfeit for the gospel plan, and … it is an avowed enemy of the God of the land. Communism is the greatest anti-Christ power in the world today and therefore the greatest menace not only to our peace but to our preservation as a free people. By the extent to which we tolerate it, accommodate ourselves to it, permit ourselves to be encircled by its tentacles and drawn to it, to that extent we forfeit the protection of the God of this land” (p. 5).
 
 The truth is, we have to a great extent accommodated ourselves to Communism—and we have permitted ourselves to become encircled by its tentacles. Though we give lip service to the Monroe Doctrine, this has not prevented Cuba from becoming a Soviet military base, ninety miles off our coastline, nor has it prevented the takeover of Nicaragua in Central America, the surrender of the Panama Canal, or the infiltration by enemy agents within our American borders.
 
@@ -64,7 +66,7 @@ No nation which has kept the commandments of God has ever perished, but I say to
 
 There are some things we can and must do at once if we are to stave off a holocaust of destruction.
 
-*First:* We must return to worship the God of this land, who is Jesus Christ. He has promised that the righteous will be preserved by His power (see [[1 Nephi 22.17|1 Ne. 22:17]]). But we must keep the commandments of God. We must pay our tithes and offerings, keep the Sabbath day a holy day, stay morally clean, be honest in all our dealings, and have our family and personal prayers. We must live the gospel.
+*First:* We must return to worship the God of this land, who is Jesus Christ. He has promised that the righteous will be preserved by His power (see [[1 Nephi 22.17|1 Ne. 22:17]]). But we must keep the commandments of God. We must pay our tithes and offerings, keep the Sabbath day a holy day, stay morally clean, be honest in all our dealings, and have our family and personal prayers. We must live the gospel.
 
 *Second:* We must awaken to “a sense of \[our\] awful situation, because of this secret combination which \[is\] among \[us\]” ([[Ether 8.24|Ether 8:24]]). We must not tolerate accommodation with or appeasement toward the false system of Communism. We must demand of our elected officials that we not only resist Communism, but that we will take every measure to prevent its intrusion into this hemisphere. It is vital that we invoke the Monroe Doctrine.
 
@@ -87,8 +89,3 @@ May God bless us that, with His help, we will not fail to bring to pass His purp
 
 
 
-
-
-
-
-#Freedom #Testimony

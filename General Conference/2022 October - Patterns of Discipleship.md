@@ -1,6 +1,8 @@
 # Patterns of Discipleship
 
-By Elder Joseph W. Sitati - *Emeritus Member of the Seventy*
+Dallin H. Oaks
+
+By Elder Joseph W. Sitati - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -91,15 +93,15 @@ With the Lord’s living prophets and apostles, we too can join a virtuous circl
 
 [^6]: [[Mosiah 3.19|Mosiah 3:19]].
 
-[^7]: See [[2 Nephi 31.6|2 Nephi 31:6–7]][[2 Nephi 31.7|]].
+[^7]: See [[2 Nephi 31.6|2 Nephi 31:6–7]][[2 Nephi 31.7|]].
 
 [^8]: [[D&C 20.37|Doctrine and Covenants 20:37]].
 
-[^9]: See [[2 Nephi 33.1|2 Nephi 33:1]].
+[^9]: See [[2 Nephi 33.1|2 Nephi 33:1]].
 
-[^10]: [[2 Timothy 3.2|2 Timothy 3:2–3]][[2 Timothy 3.3|]].
+[^10]: [[2 Timothy 3.2|2 Timothy 3:2–3]][[2 Timothy 3.3|]].
 
-[^11]: [[1 Nephi 8.11|1 Nephi 8:11]].
+[^11]: [[1 Nephi 8.11|1 Nephi 8:11]].
 
 [^12]: See [[Matthew 28.18|Matthew 28:18]]; [[D&C 84.38|Doctrine and Covenants 84:38]].
 
@@ -107,8 +109,3 @@ With the Lord’s living prophets and apostles, we too can join a virtuous circl
 
 [^14]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
-
-
-
-
-#Discipleship #Humility #Jesus_Christ #Love #Service

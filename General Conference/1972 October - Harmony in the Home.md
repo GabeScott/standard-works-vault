@@ -1,6 +1,8 @@
 # Harmony in the Home
 
-By Bishop H. Burke Peterson - *Of the Presiding Bishopric*
+N. Eldon Tanner
+
+By Bishop H. Burke Peterson - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -20,11 +22,11 @@ One of Satan’s most effective tools is at work among us today—it is a destro
 
 Now, some will say, “This is our way of life—everybody’s doing it.” Lest we think these acts are not serious and are just our way of life, to be accepted and lived with, let us hear the word of the Lord as expressed by an ancient prophet.
 
-We read in 3 Nephi: “… And there shall be no disputations among you, as there have hitherto been; neither shall there be disputations among you concerning the points of my doctrine, as there have hitherto been.
+We read in 3 Nephi: “… And there shall be no disputations among you, as there have hitherto been; neither shall there be disputations among you concerning the points of my doctrine, as there have hitherto been.
 
 “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
-“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.” ([[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].)
+“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.” ([[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]].)
 
 Over 2,000 years ago the great King Benjamin gave warning and wise counsel to the people of his day—and to us also. We read in Mosiah:
 
@@ -67,8 +69,3 @@ Fathers and mothers and children, wherever you are, I want you to know that I kn
 
 
 
-
-
-
-
-#Family #Parenthood

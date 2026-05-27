@@ -1,9 +1,8 @@
 # Foot
 
-
 *See also* [[Feet.md|Feet]]
 
-Eye for eye ... *foot* for *foot*, [[Exodus 21.24|Exodus 21:24]] ([[Deuteronomy 19.21|Deuteronomy 19:21]]).
+Eye for eye … *foot* for *foot*, [[Exodus 21.24|Exodus 21:24]] ([[Deuteronomy 19.21|Deuteronomy 19:21]]).
 
 neither did thy *foot* swell, [[Deuteronomy 8.4|Deuteronomy 8:4]].
 
@@ -15,7 +14,7 @@ remove thy *foot* from evil, [[Proverbs 4.27|Proverbs 4:27]].
 
 turn away thy *foot* from the sabbath, [[Isaiah 58.13|Isaiah 58:13]].
 
-salt ... trodden under *foot* of men, [[Matthew 5.13|Matthew 5:13]].
+salt … trodden under *foot* of men, [[Matthew 5.13|Matthew 5:13]].
 
 *foot* offend thee, cut them off, [[Matthew 18.8|Matthew 18:8]] ([[Mark 9.45|Mark 9:45]]).
 

@@ -1,5 +1,7 @@
 # I Love Loud Boys
 
+Thomas S. Monson
+
 By Elder Yoon Hwan Choi - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -44,7 +46,7 @@ I am so pleased and happy to see your constant loving leadership for our young b
 
 Dear young men, let us obey the leaders of the Church and be like Adam, who didn’t always have to know the reason why but was just happy to be obedient. And please faithfully attend your Church meetings. If you do this, you will learn how to prepare for your future, and you will be successful. To young boys who were born in the Church and also to those who have joined the Church, *you* are the army of the Lord. You will become wonderful missionaries and righteous fathers to your families. Heavenly Father will bless you to have a happy family. You have a bright future in the gospel, and like the sons of Helaman, you will bring eternal joy to all of us.
 
-I love you, and I know that our Heavenly Father loves all of us, so He sent His Only Begotten Son, Jesus Christ, as our Redeemer. President Thomas S. Monson is our living prophet, who leads us in the right way. In the name of Jesus Christ, amen.
+I love you, and I know that our Heavenly Father loves all of us, so He sent His Only Begotten Son, Jesus Christ, as our Redeemer. President Thomas S. Monson is our living prophet, who leads us in the right way. In the name of Jesus Christ, amen.
 
 
 
@@ -55,14 +57,9 @@ I love you, and I know that our Heavenly Father loves all of us, so He sent His 
 
 [^3]: [[Moses 5.6|Moses 5:6]].
 
-[^4]: Ezra Taft Benson, in Conference Report, Apr. 1986, 56; or *Ensign,* May 1986, 44; emphasis added.
+[^4]: Ezra Taft Benson, in Conference Report, Apr. 1986, [[1986 April - To the “Youth of the Noble Birthright”.md|56]]; or *Ensign,* May 1986, 44; emphasis added.
 
-[^5]: [[1 Nephi 1.1|1 Nephi 1:1]].
+[^5]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
-[^6]: [[3 John 1.4|3 John 1:4]].
+[^6]: [[3 John 1.4|3 John 1:4]].
 
-
-
-
-
-#Example #Leadership #Love #Priesthood #Youth

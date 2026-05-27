@@ -1,5 +1,7 @@
 # Faith of Our Father
 
+Dieter F. Uchtdorf
+
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -18,7 +20,7 @@ I can assure you that no one was more surprised by my call than my children and 
 
 In The Church of Jesus Christ of Latter-day Saints, we do not seek, nor do we decline, callings that come from God through inspired priesthood channels. I pray that God will grant me strength and an understanding heart to magnify this sacred calling according to His will and purpose.
 
-We all miss President Gordon B. Hinckley. His impact on this great work will continue to bless us.
+We all miss President Gordon B. Hinckley. His impact on this great work will continue to bless us.
 
 I feel so privileged to work closely with President Monson. I have known him for many years. He is a man of amazing gifts and talents. He is the prophet of God. His faith and loving heart extend to every nation, tongue, and people.
 
@@ -26,11 +28,11 @@ I am grateful to serve with President Eyring, whom I love and respect as a great
 
 When the Quorum of the Twelve met in the upper room of the Salt Lake Temple to sustain President Monson as the 16th President of the Church, I marveled at the extraordinary abilities, wisdom, and spirituality of those who surrounded me. It made me recognize more clearly my own inadequacies. I love these fine men of great faith. I am grateful for the opportunity to raise my hand to sustain and pledge my support to them. I do love and sustain Elder Christofferson, the newest member of the Twelve.
 
-When the Lord called Frederick G. Williams to be a counselor to the Prophet Joseph Smith, He commanded him to “be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees.”[^1] I believe this counsel applies to all who accept callings to serve in the kingdom of God—and certainly to me in this season of my life.
+When the Lord called Frederick G. Williams to be a counselor to the Prophet Joseph Smith, He commanded him to “be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees.”[^1] I believe this counsel applies to all who accept callings to serve in the kingdom of God—and certainly to me in this season of my life.
 
 ## A Prophet of God and Our President
 
-I would like to say a few words about President Thomas S. Monson. Some years ago, President Monson came to a regional conference in Hamburg, Germany, and it was my honor to accompany him. President Monson has a remarkable memory, and we talked about many of the Saints in Germany—I was amazed that he remembered so many so well.
+I would like to say a few words about President Thomas S. Monson. Some years ago, President Monson came to a regional conference in Hamburg, Germany, and it was my honor to accompany him. President Monson has a remarkable memory, and we talked about many of the Saints in Germany—I was amazed that he remembered so many so well.
 
 President Monson asked me about Brother Michael Panitsch, a former stake president and then a patriarch, who had been one of the stalwart pioneers of the Church in Germany. I told him that Brother Panitsch was seriously ill, that he was bedridden and unable to attend our meetings.
 
@@ -116,7 +118,7 @@ We invite everyone on this beautiful planet to taste of His doctrine and see if 
 
 That is our message to the world.
 
-I bear solemn witness of the reality of God the Father; His Son, Jesus Christ; the Holy Ghost; and living prophets who hold the keys, which have come in unbroken succession from Joseph Smith to Thomas S. Monson today. In the name of Jesus Christ, amen.
+I bear solemn witness of the reality of God the Father; His Son, Jesus Christ; the Holy Ghost; and living prophets who hold the keys, which have come in unbroken succession from Joseph Smith to Thomas S. Monson today. In the name of Jesus Christ, amen.
 
 
 
@@ -137,8 +139,3 @@ I bear solemn witness of the reality of God the Father; His Son, Jesus Christ; t
 
 [^8]: See [[Matthew 9.22|Matthew 9:22]].
 
-
-
-
-
-#Church_History #Faith #Family_History #God_The_Father

@@ -1,6 +1,8 @@
 # Be One with the Prophet
 
-By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -15,8 +17,3 @@ I want to stand firm and fearless, not weakening—for weakness implies pressure
 
 
 
-
-
-
-
-#Testimony

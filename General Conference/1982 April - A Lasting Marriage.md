@@ -1,6 +1,8 @@
 # A Lasting Marriage
 
-By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -8,15 +10,15 @@ By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 My thoughts today are centered in the concern we all share over a growing crisis in today’s world, a sort of spreading cancer which continues to eat away at the family unit, which has been ordained of God.
 
-Divorce, with all of its diabolic side effects, threatens the very foundations of society. President Joseph F. Smith observed: “Marriage is the preserver of the human race. Without it, the purposes of God would be frustrated; virtue would be destroyed to give place to vice and corruption, and the earth would be void and empty.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Company, 1939, p. 272.) Each prophet of this dispensation has said essentially the same thing in his own way.
+Divorce, with all of its diabolic side effects, threatens the very foundations of society. President Joseph F. Smith observed: “Marriage is the preserver of the human race. Without it, the purposes of God would be frustrated; virtue would be destroyed to give place to vice and corruption, and the earth would be void and empty.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Company, 1939, p. 272.) Each prophet of this dispensation has said essentially the same thing in his own way.
 
 According to data from the National Center for Health Statistics, nearly two million divorces are being granted this year in the United States. This is the highest number ever recorded and three times the number reported just twenty years ago. Most nations of the world seem to be following a similar trend. Today, more than one out of every three marriages is terminating in divorce. Families within the Church, unfortunately, are following this world pattern to an alarming degree, and it should not be so.
 
-*U.S. News & World Report* recently quoted Herbert A. Glieberman, a recognized authority on divorce and domestic relations, as follows: “The biggest rise in the divorce rate has been among couples married 10 years or longer. It’s not uncommon today for couples 25 and 30 years into their marriage to seek and obtain a divorce.” He then identifies the main cause:
+*U.S. News & World Report* recently quoted Herbert A. Glieberman, a recognized authority on divorce and domestic relations, as follows: “The biggest rise in the divorce rate has been among couples married 10 years or longer. It’s not uncommon today for couples 25 and 30 years into their marriage to seek and obtain a divorce.” He then identifies the main cause:
 
 “No. 1,” he states, “is the \[couples’\] inability to talk honestly with each other, bare their souls and treat each other as their best friend. … They \[talk\] about mostly superficial things in order to impress one another.”
 
-And then he continues, “I find that too many people talk right through each other rather than to each other.” He concludes: “The lack of communication brings on drinking, infidelity or physical or mental abuse. …
+And then he continues, “I find that too many people talk right through each other rather than to each other.” He concludes: “The lack of communication brings on drinking, infidelity or physical or mental abuse. …
 
 “For many, there is a lack of tolerance, an inability to bear discomfort or to recognize that they’re not perfect and neither is their mate.” (“Why So Many Marriages Fail,” *U.S. News & World Report,* 20 July 1981, pp. 53–54.)
 
@@ -40,7 +42,7 @@ The Lord warns us that “no power or influence can or ought to be maintained by
 
 “By kindness, and pure knowledge, which shall greatly enlarge the soul without hypocrisy, and without guile.” ([[D&C 121.41|D&C 121:41–42]][[D&C 121.42|]].)
 
-I like the advice given by President Joseph F. Smith. He said this to fathers: “It is only when men depart from the right spirit, when they digress from their duty, that they will neglect or dishonor any soul that is committed to their care. They are bound to honor their wives and children.” (*Gospel Doctrine,* p. 285.)
+I like the advice given by President Joseph F. Smith. He said this to fathers: “It is only when men depart from the right spirit, when they digress from their duty, that they will neglect or dishonor any soul that is committed to their care. They are bound to honor their wives and children.” (*Gospel Doctrine,* p. 285.)
 
 There is yet another major cause for divorce that should not go unattended: the mismanagement of family financial resources. To pay tithes and offerings while ignoring the balance of Heavenly Father’s advice concerning sound judgment in family finances will probably cause the windows of heaven to stick a little bit. The promised blessings will not likely be forthcoming as expected.
 
@@ -48,7 +50,7 @@ Every prophet in this dispensation has taught in clear, unmistakable terms that 
 
 During these days of a strained economy it is imperative that the family live within these divine injunctions. Each husband and wife needs to reason together about the family budget on a regular basis. If downward adjustments need to be made in the family spending habits, it is far better to do what needs to be done now rather than build up to an impossible financial crisis later on—a crisis that too often leads to the divorce courts.
 
-Few things are as destructive in a marriage as the statement, “Sweetheart, I just signed up today for a $200 course at the local health spa.” A well-planned health course may be just the thing, but not as a surprise addition to an already strained budget. This could have been and should have been a prime topic for pillow talk beforehand. As Elder Neal A. Maxwell told us so well recently, “If your companion is going to participate in a crash landing, then she should also help file the flight plan.”
+Few things are as destructive in a marriage as the statement, “Sweetheart, I just signed up today for a $200 course at the local health spa.” A well-planned health course may be just the thing, but not as a surprise addition to an already strained budget. This could have been and should have been a prime topic for pillow talk beforehand. As Elder Neal A. Maxwell told us so well recently, “If your companion is going to participate in a crash landing, then she should also help file the flight plan.”
 
 Now, quickly, just to mention three items as foundation stones to a secure marriage:
 
@@ -60,7 +62,7 @@ Third: *loyalty.* Loyalty to a companion through thick and thin will develop a b
 
 The law of chastity is one of the Ten Commandments. This demands loyalty in marriage. Brothers and sisters, protect this sacred principle as though your life depended upon it, because gospel truth confirms that your eternal life most certainly does depend upon fidelity in your marriage.
 
-The scriptures confirm the eternal truth that “marriage is ordained of God.” ([[D&C 49.15|D&C 49:15]].) And then this: “Neither is the man without the woman, neither the woman without the man, in the Lord.” ([[1 Corinthians 11.11|1 Cor. 11:11]].)
+The scriptures confirm the eternal truth that “marriage is ordained of God.” ([[D&C 49.15|D&C 49:15]].) And then this: “Neither is the man without the woman, neither the woman without the man, in the Lord.” ([[1 Corinthians 11.11|1 Cor. 11:11]].)
 
 And according to a prophet in this dispensation, “God not only commends but he commands marriage. While man was yet immortal, before sin had entered the world, our heavenly Father himself performed the first marriage. He united our first parents in the bonds of holy matrimony, and commanded them to be fruitful and multiply and replenish the earth. This command he has never changed, abrogated or annulled; but it has continued in force throughout all the generations of mankind.” (Smith, *Gospel Doctrine,* p. 274.)
 
@@ -84,15 +86,10 @@ And don’t you agree that perhaps the most important questions that will need t
 
 3. “Did you seek out, listen to, and abide by priesthood counsel?”
 
-May He bless us to regard every marriage as an act ordained of God; for, as President Joseph F. Smith said, it is the hope of the human race.
+May He bless us to regard every marriage as an act ordained of God; for, as President Joseph F. Smith said, it is the hope of the human race.
 
 And these thoughts I leave with you in the name of the Lord Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Divorce #Marriage

@@ -5,7 +5,7 @@
 [Joseph Smith History 1:46](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.46?lang=eng#p46)
 
 
-[^a]: Dan. 8:27.
-[^b]: TG [[Temptation]].
-[^c]: TG [[Sacrilege]].
-[^d]: [[Luke 11.34|Luke 11:34 (34-36)]]; [[D&C 121.37|D&C 121:37.]]
+[^a]: [[Daniel 8.27|Dan. 8:27]].  
+[^b]: [[Temptation|TG Temptation]].  
+[^c]: [[Sacrilege|TG Sacrilege]].  
+[^d]: [[Luke 11.34|Luke 11:34 (34–36)]][[Luke 11.35|]][[Luke 11.36|]]; [[D&C 121.37|D&C 121:37]].  

@@ -1,5 +1,7 @@
 # Christ—Author and Finisher of Our Faith
 
+Dallin H. Oaks
+
 By Elder Eduardo F. Ortega - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -51,7 +53,7 @@ I testify of the healing, refining, and perfecting power of Jesus Christ. I know
 
 [^2]: [[Matthew 16.17|Matthew 16:17]].
 
-[^3]: See [[2 Nephi 31.5|2 Nephi 31:5, 17]][[2 Nephi 31.17|]].
+[^3]: See [[2 Nephi 31.5|2 Nephi 31:5, 17]][[2 Nephi 31.17|]].
 
 [^4]: [[Alma 32.27|Alma 32:27]].
 
@@ -59,23 +61,21 @@ I testify of the healing, refining, and perfecting power of Jesus Christ. I know
 
 [^6]: See [[Moroni 10.32|Moroni 10:32]].
 
-[^7]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^7]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^8]: See Ronald A. Rasband, “[[2025 April - Right Before Our Eyes.md|Right Before Our Eyes]],” *Liahona*, May 2025, 13–17.
 
-[^9]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^9]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
 [^10]: See [[Mosiah 5.2|Mosiah 5:2]].
 
-[^11]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^11]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^12]: [[Moroni 6.4|Moroni 6:4]].
 
-[^13]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^13]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^14]: Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), 4, speeches.byu.edu.
 
 [^15]: See [[Moroni 6.4|Moroni 6:4]].
 
-
-#Conversion #Discipleship #Jesus_Christ #Testimony

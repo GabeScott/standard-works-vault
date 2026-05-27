@@ -1,5 +1,7 @@
 # Be Ready
 
+Thomas S. Monson
+
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -76,7 +78,7 @@ As we meet our obligations as fathers and leaders, we will help the next generat
 
 It is my prayer that we will be determined to do better every day to prepare the rising generation. Each time I see a bottle of consecrated oil, I will remember this night and the feeling I have now of wanting to do more to help young men prepare for their days of service and opportunity. I pray for a blessing of preparation for them. I am confident that, with the Lord’s help and ours, they will be ready.
 
-I bear you my witness that God the Father lives and that Jesus Christ lives and leads this Church. He is the perfect exemplar of the priesthood. President Thomas S. Monson holds and exercises all the keys of the priesthood on the earth. That is true. I so testify in the name of Jesus Christ, amen.
+I bear you my witness that God the Father lives and that Jesus Christ lives and leads this Church. He is the perfect exemplar of the priesthood. President Thomas S. Monson holds and exercises all the keys of the priesthood on the earth. That is true. I so testify in the name of Jesus Christ, amen.
 
 
 
@@ -89,8 +91,3 @@ I bear you my witness that God the Father lives and that Jesus Christ lives and 
 
 [^4]: [[D&C 121.46|D&C 121:46]].
 
-
-
-
-
-#Faith #Preparation #Priesthood

@@ -1,6 +1,8 @@
 # Prepare to Meet God
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -8,13 +10,13 @@ By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/04/prepare-to-meet-god?lang=eng)
 
-Eliza R. Snow, speaking of the Kirtland Temple dedication (which she attended), said: “The ceremonies of that dedication may be rehearsed, but no mortal language can describe the heavenly manifestations of that memorable day. Angels appeared to some, while a sense of divine presence was realized by all present, and each heart was filled with joy inexpressible and full of glory.”[^1]
+Eliza R. Snow, speaking of the Kirtland Temple dedication (which she attended), said: “The ceremonies of that dedication may be rehearsed, but no mortal language can describe the heavenly manifestations of that memorable day. Angels appeared to some, while a sense of divine presence was realized by all present, and each heart was filled with joy inexpressible and full of glory.”[^1]
 
 The divine manifestations that occurred in the Kirtland Temple were foundational to the purpose of the restored Church of Jesus Christ to bring to pass the salvation and exaltation of our Heavenly Father’s children.[^2] As we prepare to meet God, we can know what our divinely appointed responsibilities are by reviewing the sacred keys restored in the Kirtland Temple.
 
 In the dedicatory prayer, the Prophet Joseph Smith humbly petitioned the Lord “to accept of this house … which thou didst command us to build.”[^3]
 
-One week later, on Easter Sunday, the Lord appeared in a magnificent vision and accepted His temple. This occurred on April 3, 1836, almost exactly 182 years ago from this Easter Sunday. It was also the Passover season—one of those rare times when Easter and Passover overlap. After the vision closed, three ancient prophets, Moses, Elias, and Elijah, appeared and committed keys which were essential to accomplish the Lord’s purpose for His restored Church in this dispensation. That purpose has been simply, but eloquently, defined as gathering Israel, sealing them as families, and preparing the world for the Lord’s Second Coming.[^4]
+One week later, on Easter Sunday, the Lord appeared in a magnificent vision and accepted His temple. This occurred on April 3, 1836, almost exactly 182 years ago from this Easter Sunday. It was also the Passover season—one of those rare times when Easter and Passover overlap. After the vision closed, three ancient prophets, Moses, Elias, and Elijah, appeared and committed keys which were essential to accomplish the Lord’s purpose for His restored Church in this dispensation. That purpose has been simply, but eloquently, defined as gathering Israel, sealing them as families, and preparing the world for the Lord’s Second Coming.[^4]
 
 For both Elijah and Moses to appear was a “striking parallel … \[with\] Jewish tradition, according to which Moses and Elijah would arrive together at the ‘end of time.’”[^5] In our doctrine, this appearance accomplished the foundational restoration of certain keys “given … for the last days and for the last time, in the which is the dispensation of the fulness of times.”[^6]
 
@@ -24,7 +26,7 @@ These keys provide the “power from on high”[^7] for divinely appointed respo
 
 **First,** Moses appeared and committed the keys of the gathering of Israel from the four parts of the earth, which is missionary work.[^9]
 
-**Second,** Elias appeared and committed the keys of the dispensation of the gospel of Abraham, which includes the restoration of the Abrahamic covenant.[^10] President Russell M. Nelson has taught that the purpose of the covenant keys is to prepare members for the kingdom of God. He said, “We know who we are and \[we know\] what God expects of us.”[^11]
+**Second,** Elias appeared and committed the keys of the dispensation of the gospel of Abraham, which includes the restoration of the Abrahamic covenant.[^10] President Russell M. Nelson has taught that the purpose of the covenant keys is to prepare members for the kingdom of God. He said, “We know who we are and \[we know\] what God expects of us.”[^11]
 
 **Third,** Elijah appeared and committed the keys of the sealing power in this dispensation, which is family history work and temple ordinances enabling salvation for the living and the dead.[^12]
 
@@ -76,74 +78,74 @@ We are grateful that many more members are preparing to go to the temple. There 
 
 In conclusion, please be assured that senior Church leaders who preside over the divinely appointed purposes of the Church receive divine assistance. This guidance comes from the Spirit and sometimes directly from the Savior. Both kinds of spiritual guidance are given. I am grateful to have received such assistance. But guidance is given in the Lord’s time, line upon line and precept upon precept,[^36] when “an omniscient Lord deliberately chooses to school us.”[^37] Guidance for the Church as a whole comes only to His prophet.
 
-We have all had the privilege of sustaining President Russell M. Nelson as our prophet and President of The Church of Jesus Christ of Latter-day Saints in this conference. The Twelve, as a group and individually, had a significant spiritual experience when we laid our hands on President Nelson’s head and President Dallin H. Oaks, acting as voice, ordained him and set him apart as President of the Church. I testify that he was foreordained and has been prepared his entire life to be the Lord’s prophet for our day. In the name of Jesus Christ, amen.
+We have all had the privilege of sustaining President Russell M. Nelson as our prophet and President of The Church of Jesus Christ of Latter-day Saints in this conference. The Twelve, as a group and individually, had a significant spiritual experience when we laid our hands on President Nelson’s head and President Dallin H. Oaks, acting as voice, ordained him and set him apart as President of the Church. I testify that he was foreordained and has been prepared his entire life to be the Lord’s prophet for our day. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Eliza R. Snow, in Janiece Johnson and Jennifer Reeder, *The Witness of Women: Firsthand Experiences and Testimonies from the Restoration* (2016), 124; see also Eliza R. Snow, in Edward Tullidge, *The Women of Mormondom* (1877), 65.
+[^1]: Eliza R. Snow, in Janiece Johnson and Jennifer Reeder, *The Witness of Women: Firsthand Experiences and Testimonies from the Restoration* (2016), 124; see also Eliza R. Snow, in Edward Tullidge, *The Women of Mormondom* (1877), 65.
 
-[^2]: See *Handbook 2: Administering the Church* (2010), 2.2.
+[^2]: See *Handbook 2: Administering the Church* (2010), 2.2.
 
 [^3]: [[D&C 109.4|Doctrine and Covenants 109:4]].
 
-[^4]: See Russell M. Nelson, “Epistles of the Lord” (address given at the seminar for new mission presidents, June 25, 2015), 1–2.
+[^4]: See Russell M. Nelson, “Epistles of the Lord” (address given at the seminar for new mission presidents, June 25, 2015), 1–2.
 
-[^5]: Stephen D. Ricks, “The Appearance of Elijah and Moses in the Kirtland Temple and the Jewish Passover,” *BYU Studies,* vol. 23, no. 4 (Fall 1983), 485.
+[^5]: Stephen D. Ricks, “The Appearance of Elijah and Moses in the Kirtland Temple and the Jewish Passover,” *BYU Studies,* vol. 23, no. 4 (Fall 1983), 485.
 
 [^6]: [[D&C 112.30|Doctrine and Covenants 112:30]].
 
 [^7]: [[D&C 38.38|Doctrine and Covenants 38:38]]; see also [[D&C 43.16|Doctrine and Covenants 43:16]]; [[D&C 84.20|84:20–21]][[D&C 84.21|]].
 
-[^8]: See *Handbook 2,* 2.2. The fourth responsibility, care for the poor and needy, did not need restored keys but does rely on the divinely inspired Church organization.
+[^8]: See *Handbook 2,* 2.2. The fourth responsibility, care for the poor and needy, did not need restored keys but does rely on the divinely inspired Church organization.
 
 [^9]: The Missionary Executive Council oversees this divinely appointed responsibility. See [[D&C 110.11|Doctrine and Covenants 110:11]].
 
 [^10]: The Priesthood and Family Executive Council oversees this divinely appointed responsibility. See [[D&C 110.12|Doctrine and Covenants 110:12]].
 
-[^11]: Russell M. Nelson, “[[2011 October - Covenants.md|Covenants]],” *Ensign* or *Liahona,* Nov. 2011, 88.
+[^11]: Russell M. Nelson, “[[2011 October - Covenants.md|Covenants]],” *Ensign* or *Liahona,* Nov. 2011, 88.
 
 [^12]: The Temple and Family History Executive Council oversees this divinely appointed responsibility. See [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-[^13]: [[1 Nephi 14.14|1 Nephi 14:14]]; see also [[1 Nephi 14.5|1 Nephi 14:5, 7, 12]][[1 Nephi 14.7|]][[1 Nephi 14.12|]].
+[^13]: [[1 Nephi 14.14|1 Nephi 14:14]]; see also [[1 Nephi 14.5|1 Nephi 14:5, 7, 12]][[1 Nephi 14.7|]][[1 Nephi 14.12|]].
 
-[^14]: See [[Mosiah 18.9|Mosiah 18:9]]; [[Alma 6.1|Alma 6:1]]; [[Alma 32.37|32:37]]; see also Jeffrey R. Holland, “[[2016 October - Emissaries to the Church.md|Emissaries to the Church]],” *Ensign* or *Liahona,* Nov. 2016, 61–62, 67.
+[^14]: See [[Mosiah 18.9|Mosiah 18:9]]; [[Alma 6.1|Alma 6:1]]; [[Alma 32.37|32:37]]; see also Jeffrey R. Holland, “[[2016 October - Emissaries to the Church.md|Emissaries to the Church]],” *Ensign* or *Liahona,* Nov. 2016, 61–62, 67.
 
 [^15]: [[D&C 2.3|Doctrine and Covenants 2:3]].
 
-[^16]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie (1955), 2:148–49.
+[^16]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie (1955), 2:148–49.
 
 [^17]: See [[Alma 34.32|Alma 34:32]].
 
-[^18]: A recurring theme in the Book of Mormon is that if the people keep the commandments, they will prosper in the land, but if they do not keep the commandments, they will be cut off from the presence of the Lord. See, among others, [[2 Nephi 1.9|2 Nephi 1:9]]; [[2 Nephi 4.4|4:4]]; [[Alma 9.13|Alma 9:13]].
+[^18]: A recurring theme in the Book of Mormon is that if the people keep the commandments, they will prosper in the land, but if they do not keep the commandments, they will be cut off from the presence of the Lord. See, among others, [[2 Nephi 1.9|2 Nephi 1:9]]; [[2 Nephi 4.4|4:4]]; [[Alma 9.13|Alma 9:13]].
 
-[^19]: This has occurred in the \#MeToo movement.
+[^19]: This has occurred in the #MeToo movement.
 
-[^20]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
+[^20]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
-[^21]: See Ross Douthat, “Let’s Ban Porn,” *New York Times,* Feb. 11, 2018, SR11.
+[^21]: See Ross Douthat, “Let’s Ban Porn,” *New York Times,* Feb. 11, 2018, SR11.
 
 [^22]: [[Alma 41.10|Alma 41:10]].
 
 [^23]: [[D&C 38.27|Doctrine and Covenants 38:27]].
 
-[^24]: See [[3 Nephi 11.29|3 Nephi 11:29]].
+[^24]: See [[3 Nephi 11.29|3 Nephi 11:29]].
 
-[^25]: See David Brooks, “The Retreat to Tribalism,” *New York Times,* Jan. 2, 2018, A15.
+[^25]: See David Brooks, “The Retreat to Tribalism,” *New York Times,* Jan. 2, 2018, A15.
 
 [^26]: See [[John 17.21|John 17:21–22]][[John 17.22|]].
 
-[^27]: See [[2 Nephi 26.33|2 Nephi 26:33]]: “All are alike unto God,” including “black and white, bond and free, male and female.”
+[^27]: See [[2 Nephi 26.33|2 Nephi 26:33]]: “All are alike unto God,” including “black and white, bond and free, male and female.”
 
 [^28]: See [[D&C 20.37|Doctrine and Covenants 20:37]].
 
-[^29]: See [Preach My Gospel: A Guide to Missionary Service](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng) (2004), chapter 6.
+[^29]: See [Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng) (2004), chapter 6.
 
 [^30]: See [[Matthew 22.36|Matthew 22:36–39]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]].
 
 [^31]: See [[Luke 10.29|Luke 10:29–37]][[Luke 10.30|]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]].
 
-[^32]: See [[4 Nephi 1.17|4 Nephi 1:17]].
+[^32]: See [[4 Nephi 1.17|4 Nephi 1:17]].
 
 [^33]: See [[D&C 59.23|Doctrine and Covenants 59:23]].
 
@@ -151,12 +153,7 @@ We have all had the privilege of sustaining President Russell M. Nelson as our 
 
 [^35]: The temple recommend interview questions are a good evaluation of how we are doing in living the gospel.
 
-[^36]: See [[2 Nephi 28.30|2 Nephi 28:30]]; [[D&C 98.12|Doctrine and Covenants 98:12]]; [[D&C 128.21|128:21]].
+[^36]: See [[2 Nephi 28.30|2 Nephi 28:30]]; [[D&C 98.12|Doctrine and Covenants 98:12]]; [[D&C 128.21|128:21]].
 
-[^37]: Neal A. Maxwell, *All These Things Shall Give Thee Experience* (2007), 31.
+[^37]: Neal A. Maxwell, *All These Things Shall Give Thee Experience* (2007), 31.
 
-
-
-
-
-#Family_History #Missionary_Work #Preparation #Responsibility #Righteousness #Sealings #Temple_Work #Unity

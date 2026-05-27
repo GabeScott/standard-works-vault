@@ -1,6 +1,8 @@
 # Families Are Forever
 
-By Elder David B. Haight - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -10,7 +12,7 @@ The changes in the Church organizational structure presented by President Tanner
 
 He has committed to mankind the promise that all who believe and are baptized in His holy name and endure in faith to the end will be saved. (See [[D&C 20.25|D&C 20:25]].) As of today the Church is even more effectively prepared to reach and encourage all men to hearken unto His voice, for His everlasting covenant is established and is a standard for His people. They are to be messengers and prepare the way before Him. (See [[D&C 45.2|D&C 45:2, 9]][[D&C 45.9|]].) Inhabitants of the earth are to receive the gospel that the kingdom of God might go forth. The Lord has said, “Thou \[meaning us\] shalt declare glad tidings, … publish it upon the mountains, … upon every high place, … among every people that thou shalt be permitted to see.
 
-“… thou shalt declare repentance … and remission of sins by baptism.” ([[D&C 19.29|D&C 19:29, 31]][[D&C 19.31|]].)
+“… thou shalt declare repentance … and remission of sins by baptism.” ([[D&C 19.29|D&C 19:29, 31]][[D&C 19.31|]].)
 
 Baptism is the gate through which all must enter to accomplish the Lord’s desire to bring to pass the immortality and eternal life of man.
 
@@ -34,9 +36,9 @@ Your missionary sons and daughters are trained to teach the gospel, to teach in 
 
 More of these exciting young servants of the Lord are in your wards and branches than ever before. Missionaries are going out better trained, better prepared, with higher hopes and aspirations. Every family that has accepted the gospel is obligated to share it with its neighbor. We can interest people in the gospel by just being natural and sincerely showing our love for them. Emily Dickinson wrote: “We never know how high we are/Till we are called to rise/And then if we are true to plan/Our statures touch the skies.” (*Familiar Quotations,* comp. John Bartlett, Boston: Little, Brown and Company, 1968, p. 737.)
 
-You who are reluctant to prepare the way for a teaching opportunity for the missionaries in your neighborhood are denying yourselves rich blessings and are not obeying President Kimball’s counsel. He said, “I know this message \[every member a missionary\] is not new, and we have talked about it before; but I believe the time has come when we must shoulder arms. I think we must change our sights and raise our goals.” (Spencer W. Kimball, “When the World Will Be Converted,” Regional Representatives Seminar, April 4, 1974.)
+You who are reluctant to prepare the way for a teaching opportunity for the missionaries in your neighborhood are denying yourselves rich blessings and are not obeying President Kimball’s counsel. He said, “I know this message \[every member a missionary\] is not new, and we have talked about it before; but I believe the time has come when we must shoulder arms. I think we must change our sights and raise our goals.” (Spencer W. Kimball, “When the World Will Be Converted,” Regional Representatives Seminar, April 4, 1974.)
 
-The prophet Nephi said: “For the day should come that they must be judged of their works, yea, even the works which were done by the temporal body in their days.” ([[1 Nephi 15.32|1 Ne. 15:32]].)
+The prophet Nephi said: “For the day should come that they must be judged of their works, yea, even the works which were done by the temporal body in their days.” ([[1 Nephi 15.32|1 Ne. 15:32]].)
 
 On an airplane flight a few weeks ago, a friend of mine engaged a lady in conversation. He told her about his trip to Anderson, South Carolina, to visit a fourth cousin because he was seeking information concerning some of his ancestors. He asked this lady sitting next to him, “Would you like to know why I am interested in my ancestors who died long ago?”
 
@@ -50,7 +52,7 @@ He continued, “Peter, the apostle, said Christ preached to the spirits in pris
 
 “No, I don’t. I have never thought of that,” she said.
 
-He proceeded to explain baptism for the dead and the resurrection. He quoted Paul: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
+He proceeded to explain baptism for the dead and the resurrection. He quoted Paul: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 “Do you remember the phrase ‘until death do you part’ being used when you were married? Your marriage contract ends when either of you dies.”
 
@@ -66,7 +68,7 @@ Now to you I would say, do you remember the essentials of a “forever family”
 
 “For this is a day of warning, and not a day of many words. For I, the Lord, am not to be mocked in the last days.” ([[D&C 63.58|D&C 63:58]].)
 
-“And thou shalt declare glad tidings, yea, publish it upon the mountains. …
+“And thou shalt declare glad tidings, yea, publish it upon the mountains. …
 
 “And thou shalt do it with all humility, trusting in me.” ([[D&C 19.29|D&C 19:29–30]][[D&C 19.30|]].)
 
@@ -80,7 +82,7 @@ And what about the first neighbor he invited? They are now members of the Church
 
 And why did his neighbor decide to investigate the Church? The neighbor said: “If any other neighbor had come to my door to invite me to investigate religion, I would have declined; but we were so impressed with your family, your cleanliness, and your actions. You are always friendly and smiling. Your yard looks so neat and clean, and you are up working in your yard before anyone else is out of bed in the morning. We wanted to learn more about you and your church.”
 
-The Lord declared: “For all men must repent and be baptized. …
+The Lord declared: “For all men must repent and be baptized. …
 
 “And by your hands I will work among the children of men, unto the convincing of many of their sins, that they may come unto repentance, and … may come unto the kingdom of my Father.” ([[D&C 18.42|D&C 18:42, 44]][[D&C 18.44|]].)
 
@@ -91,8 +93,3 @@ The lives you touch may forget what you said, but they will never forget how you
 
 
 
-
-
-
-
-#Missionary_Work

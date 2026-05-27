@@ -1,5 +1,7 @@
 # Come to Relief Society
 
+Gordon B. Hinckley
+
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1998 General Conference*
@@ -75,8 +77,3 @@ I testify to you that Relief Society is an organization of divine origin. We inv
 
 [^12]: *Ensign,* May 1998, 74.
 
-
-
-
-
-#Covenants #Divine_Nature #Family #Jesus_Christ #Love #Motherhood #Relief_Society #Service #Temples #Testimony #Women

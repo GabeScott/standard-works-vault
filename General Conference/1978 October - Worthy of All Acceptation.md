@@ -1,24 +1,26 @@
 # Worthy of All Acceptation
 
+Spencer W. Kimball
+
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/10/worthy-of-all-acceptation?lang=eng)
 
-In the April general conference of this year, President Spencer W. Kimball said: “I feel the same sense of urgency about temple work for the dead as I do about the missionary work for the living, since they are basically one and the same. …
+In the April general conference of this year, President Spencer W. Kimball said: “I feel the same sense of urgency about temple work for the dead as I do about the missionary work for the living, since they are basically one and the same. …
 
-“The First Presidency and the Council of the Twelve,” he continued, “recently gave careful consideration as to how we can lengthen our stride in this tremendously important responsibility. …
+“The First Presidency and the Council of the Twelve,” he continued, “recently gave careful consideration as to how we can lengthen our stride in this tremendously important responsibility. …
 
 “We want to emphasize again and place squarely upon the shoulders of … individuals and their families the obligation to complete the four-generation program. Families may extend their pedigree beyond the four generations if desired.
 
-“… We are introducing a Churchwide program of extracting names from genealogical records. Church members may now render second-mile service through participating in this regard in extracting these names in this program supervised by the priesthood leaders at the local level.” (“The True Way of Life and Salvation,” *Ensign,* May 1978, p. 4.)
+“… We are introducing a Churchwide program of extracting names from genealogical records. Church members may now render second-mile service through participating in this regard in extracting these names in this program supervised by the priesthood leaders at the local level.” (“The True Way of Life and Salvation,” *Ensign,* May 1978, p. 4.)
 
 This announcement will make sweeping changes in the mechanics of genealogical research and name submission for temple ordinance work. To determine the effect on us individually and collectively as family organizations, let us consider what has and what has not changed.
 
 First, I mention some things which have not changed:
 
-1. The Lord’s mandate given in section 128 of the Doctrine and Covenants has not changed: “Brethren, shall we not go on in so great a cause? …“Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple … a book containing the records of our dead, which shall be worthy of all acceptation.” ([[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]].)
+1. The Lord’s mandate given in section 128 of the Doctrine and Covenants has not changed: “Brethren, shall we not go on in so great a cause? …“Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple … a book containing the records of our dead, which shall be worthy of all acceptation.” ([[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]].)
 
 2. Our responsibility to keep a journal and to write our own personal histories and those of our ancestors, particularly those who belong to the first four generations of our pedigree, has not changed.
 
@@ -62,15 +64,10 @@ Now, if you have not already done so, may I encourage you to organize your immed
 
 “Shall we not,” as the Prophet Joseph Smith declared, “go on in so great a cause? Go forward and not backward. Courage, … and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. Let the earth break forth into singing. Let the dead speak forth anthems of eternal praise to the King Immanuel, who hath ordained, before the world was, that which would enable us to redeem them out of their prison; for the prisoners shall go free.
 
-“… Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in His holy temple … a book containing the records of our dead, *which shall be worthy of all acceptation.*” ([[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]]; italics added.)
+“… Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in His holy temple … a book containing the records of our dead, *which shall be worthy of all acceptation.*” ([[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]]; italics added.)
 
 In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Family #Family_History #Temple_Work

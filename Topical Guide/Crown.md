@@ -1,13 +1,12 @@
 # Crown
 
-
 *See also* [[Exaltation.md|Exaltation]]; [[Glory.md|Glory]]; [[Reward.md|Reward]]
 
 I took the *crown* that was upon his head, [[2 Samuel 1.10|2 Samuel 1:10]].
 
-he took their king's *crown* ... set on David's head, [[2 Samuel 12.30|2 Samuel 12:30]].
+he took their king’s *crown* … set on David’s head, [[2 Samuel 12.30|2 Samuel 12:30]].
 
-king's son, and put the *crown* upon him, [[2 Kings 11.12|2 Kings 11:12]] ([[2 Chronicles 23.11|2 Chronicles 23:11]]).
+king’s son, and put the *crown* upon him, [[2 Kings 11.12|2 Kings 11:12]] ([[2 Chronicles 23.11|2 Chronicles 23:11]]).
 
 hast *crowned* him with glory and honour, [[Psalms 8.5|Psalms 8:5]] ([[Hebrews 2.9|Hebrews 2:9]]).
 
@@ -23,7 +22,7 @@ prudent are *crowned* with knowledge, [[Proverbs 14.18|Proverbs 14:18]].
 
 hoary head is a *crown* of glory, [[Proverbs 16.31|Proverbs 16:31]].
 
-Children's children are the *crown* of old men, [[Proverbs 17.6|Proverbs 17:6]].
+Children’s children are the *crown* of old men, [[Proverbs 17.6|Proverbs 17:6]].
 
 *crown* of glory in the hand of the Lord, [[Isaiah 62.3|Isaiah 62:3]].
 
@@ -57,7 +56,7 @@ dead which died in me, to receive a *crown* of righteousness, [[D&C 29.13|D&C 29
 
 *crown* the faithful with joy, [[D&C 52.43|D&C 52:43]].
 
-after much tribulation ... *crowned* with much glory, [[D&C 58.4|D&C 58:4]].
+after much tribulation … *crowned* with much glory, [[D&C 58.4|D&C 58:4]].
 
 receive a *crown* in the mansions of my Father, [[D&C 59.2|D&C 59:2]].
 

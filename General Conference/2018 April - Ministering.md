@@ -1,6 +1,8 @@
 # Ministering
 
-By President Russell M. Nelson - *President of the Church*
+Henry B. Eyring
+
+By President Russell M. Nelson - *President of the Church*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -18,7 +20,7 @@ We have made the decision to retire home teaching and visiting teaching as we ha
 
 Effective ministering efforts are enabled by the innate gifts of the sisters and by the incomparable power of the priesthood. We all need such protection from the cunning wiles of the adversary.
 
-Elder Jeffrey R. Holland of the Quorum of the Twelve Apostles and Sister Jean B. Bingham, General President of the Relief Society, will explain how assigned brethren of the priesthood and assigned sisters of the Relief Society and Young Women will now function in serving and watching over members of the Church throughout the world.
+Elder Jeffrey R. Holland of the Quorum of the Twelve Apostles and Sister Jean B. Bingham, General President of the Relief Society, will explain how assigned brethren of the priesthood and assigned sisters of the Relief Society and Young Women will now function in serving and watching over members of the Church throughout the world.
 
 The First Presidency and the Twelve are united in endorsing their messages. Gratefully and prayerfully we open this new chapter in the history of the Church. In the name of Jesus Christ, amen.
 

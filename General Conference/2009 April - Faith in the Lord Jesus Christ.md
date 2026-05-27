@@ -1,5 +1,7 @@
 # Faith in the Lord Jesus Christ
 
+Thomas S. Monson
+
 By Elder Kevin W. Pearson - *Of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -10,13 +12,13 @@ By Elder Kevin W. Pearson - *Of the Seventy*
 
 I humbly invite the companionship of the Holy Ghost as we discuss a vital principle of the gospel: faith in the Lord Jesus Christ. I acknowledge with deep appreciation and love great examples of true faith and faithfulness in my own life. To goodly parents, family, priesthood leaders, beloved missionaries, wonderful children, and a precious eternal companion, I express my deepest love and gratitude. I acknowledge my own need and desire for greater faith as a disciple and witness of Christ. There has never been a greater need for faith in my own life than now.
 
-As parents, we have been commanded to teach our children “to understand the doctrine of … faith in Christ the Son of the living God” ([[D&C 68.25|D&C 68:25]]). This requires more than merely recognizing faith as a gospel principle. “To have faith is to have confidence in something or someone” (Bible Dictionary, “Faith,” 669). True faith must be centered in Jesus Christ. “Faith is a principle of action and of power” (Bible Dictionary, 670). It requires us to do, not merely to believe. Faith is a spiritual gift from God that comes through the Holy Ghost. It requires a correct understanding and knowledge of Jesus Christ, His divine attributes and perfect character, His teachings, Atonement, Resurrection, and priesthood power. Obedience to these principles develops complete trust in Him and His ordained servants and assurance of His promised blessings.
+As parents, we have been commanded to teach our children “to understand the doctrine of … faith in Christ the Son of the living God” ([[D&C 68.25|D&C 68:25]]). This requires more than merely recognizing faith as a gospel principle. “To have faith is to have confidence in something or someone” (Bible Dictionary, “[[BD Faith|Faith]],” 669). True faith must be centered in Jesus Christ. “Faith is a principle of action and of power” (Bible Dictionary, [[BD Faith|670]]). It requires us to do, not merely to believe. Faith is a spiritual gift from God that comes through the Holy Ghost. It requires a correct understanding and knowledge of Jesus Christ, His divine attributes and perfect character, His teachings, Atonement, Resurrection, and priesthood power. Obedience to these principles develops complete trust in Him and His ordained servants and assurance of His promised blessings.
 
 There is no other thing in which we can have absolute assurance. There is no other foundation in life that can bring the same peace, joy, and hope. In uncertain and difficult times, faith is truly a spiritual gift worthy of our utmost efforts. We can give our children education, lessons, athletics, the arts, and material possessions, but if we do not give them faith in Christ, we have given little.
 
-“Faith is kindled by hearing the testimony of those who have faith” (Bible Dictionary, 669; see also [[Romans 10.14|Romans 10:14–17]][[Romans 10.15|]][[Romans 10.16|]][[Romans 10.17|]]). Do your children know that you know? Do they see and feel your conviction? “Strong faith is developed by obedience to the gospel of Jesus Christ” (Bible Dictionary, 669).
+“Faith is kindled by hearing the testimony of those who have faith” (Bible Dictionary, [[BD Faith|669]]; see also [[Romans 10.14|Romans 10:14–17]][[Romans 10.15|]][[Romans 10.16|]][[Romans 10.17|]]). Do your children know that you know? Do they see and feel your conviction? “Strong faith is developed by obedience to the gospel of Jesus Christ” (Bible Dictionary, [[BD Faith|669]]).
 
-Elder Bruce R. McConkie taught: “*Faith is a gift of God bestowed as a reward for personal righteousness.* It is always given when righteousness is present, and the greater the measure of obedience to God’s laws the greater will be the endowment of faith” (*Mormon Doctrine,* 2nd ed. \[1966\], 264; italics in original). If we desire more faith, we must be more obedient. When we teach our children by example or precept to be casual or situational in obeying God’s commandments, we prevent them from receiving this vital spiritual gift. Faith requires an attitude of exact obedience, even in the small, simple things.
+Elder Bruce R. McConkie taught: “*Faith is a gift of God bestowed as a reward for personal righteousness.* It is always given when righteousness is present, and the greater the measure of obedience to God’s laws the greater will be the endowment of faith” (*Mormon Doctrine,* 2nd ed. \[1966\], 264; italics in original). If we desire more faith, we must be more obedient. When we teach our children by example or precept to be casual or situational in obeying God’s commandments, we prevent them from receiving this vital spiritual gift. Faith requires an attitude of exact obedience, even in the small, simple things.
 
 Desire is a particle of faith that develops within us as we experience divine truth. It is like spiritual photosynthesis. The influence of the Holy Ghost, acting on the Light of Christ within every human being, produces the spiritual equivalent of a chemical reaction—a stirring, a change of heart, or a desire to know. Hope develops as particles of faith become molecules and as simple efforts to live true principles occur.
 
@@ -24,7 +26,7 @@ As patterns of obedience develop, the specific blessings associated with obedien
 
 There is a quality of faith which develops as we focus all of our heart, might, mind, and strength. It is seen and felt in the eyes of a great missionary, a valiant and virtuous young woman, and righteous mothers, fathers, and grandparents. It can be seen in the lives of individuals young and old, in every land and culture, speaking every language, in every circumstance and station in life. It is the “eye of faith” spoken of by the prophet Alma (see [[Alma 5.15|Alma 5:15–26]][[Alma 5.16|]][[Alma 5.17|]][[Alma 5.18|]][[Alma 5.19|]][[Alma 5.20|]][[Alma 5.21|]][[Alma 5.22|]][[Alma 5.23|]][[Alma 5.24|]][[Alma 5.25|]][[Alma 5.26|]])—the ability to focus and be steadfast, continually holding fast to true principles, nothing wavering, even when the mist of darkness confronting us is exceedingly great. This quality of faith is exceedingly powerful.
 
-However, “it must needs be, that there is an opposition in all things. … The Lord God gave unto man that he should act for himself. Wherefore, man could not act for himself save it should be that he was enticed by the one or the other” ([[2 Nephi 2.11|2 Nephi 2:11, 16]][[2 Nephi 2.16|]]). And so it is with faith. It can be enticing to choose doubt and disbelief over faith.
+However, “it must needs be, that there is an opposition in all things. … The Lord God gave unto man that he should act for himself. Wherefore, man could not act for himself save it should be that he was enticed by the one or the other” ([[2 Nephi 2.11|2 Nephi 2:11, 16]][[2 Nephi 2.16|]]). And so it is with faith. It can be enticing to choose doubt and disbelief over faith.
 
 As Jesus returned from the transcendent spiritual experience on the Mount of Transfiguration, He was approached by a desperate father whose son needed help. The father pleaded, “If thou canst do any thing, have compassion on us, and help us.”
 
@@ -57,8 +59,3 @@ I humbly declare that God, our Heavenly Father, lives and loves each of us, His 
 
 
 
-
-
-
-
-#Faith #Jesus_Christ #Obedience

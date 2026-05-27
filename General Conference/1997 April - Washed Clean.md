@@ -1,5 +1,7 @@
 # Washed Clean
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -140,15 +142,15 @@ In the name of Jesus Christ, amen.
 
 
 
-[^1]: [[Articles of Faith 1.3|A of F 1:3]].
+[^1]: [[Articles of Faith 1.3|A of F 1:3]].
 
 [^2]: [[Mormon 9.4|Morm. 9:4]].
 
-[^3]: See [[1 Nephi 10.21|1 Ne. 10:21]]; [[1 Nephi 15.34|15:34]]; [[Alma 7.21|Alma 7:21]]; [[Alma 11.37|11:37]]; [[Alma 40.26|40:26]]; [[3 Nephi 27.19|3 Ne. 27:19]]; [[D&C 94.9|D&C 94:9]]; [[Moses 6.57|Moses 6:57]].
+[^3]: See [[1 Nephi 10.21|1 Ne. 10:21]]; [[1 Nephi 15.34|15:34]]; [[Alma 7.21|Alma 7:21]]; [[Alma 11.37|11:37]]; [[Alma 40.26|40:26]]; [[3 Nephi 27.19|3 Ne. 27:19]]; [[D&C 94.9|D&C 94:9]]; [[Moses 6.57|Moses 6:57]].
 
-[^4]: [[1 John 1.8|1 Jn. 1:8–9]][[1 John 1.9|]].
+[^4]: [[1 John 1.8|1 Jn. 1:8–9]][[1 John 1.9|]].
 
-[^5]: [[2 Peter 2.7|2 Pet. 2:7]].
+[^5]: [[2 Peter 2.7|2 Pet. 2:7]].
 
 [^6]: [[Alma 41.10|Alma 41:10–11]][[Alma 41.11|]].
 
@@ -156,14 +158,9 @@ In the name of Jesus Christ, amen.
 
 [^8]: [[D&C 58.42|D&C 58:42]]; see also [[Hebrews 8.12|Heb. 8:12]]; [[Hebrews 10.17|10:17]].
 
-[^9]: [[Articles of Faith 1.3|A of F 1:3]].
+[^9]: [[Articles of Faith 1.3|A of F 1:3]].
 
 [^10]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 541–42.
 
 [^11]: Boyd K. Packer, “Washed Clean.”
 
-
-
-
-
-#Atonement #Church_Doctrine #Covenants #Faith #Jesus_Christ #Joy #Plan_Of_Salvation #Repentance #Sacrament #Scriptures #Sin

@@ -1,4 +1,3 @@
 # Goliath
 
-
-*See* [BD Goliath](https://www.churchofjesuschrist.org/study/scriptures/bd/goliath?lang=eng)
+*See also* [[BD Goliath.md|BD Goliath]]

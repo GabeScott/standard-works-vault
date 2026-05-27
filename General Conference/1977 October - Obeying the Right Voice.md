@@ -1,6 +1,8 @@
 # Obeying the Right Voice
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -26,7 +28,7 @@ Consider with me some things a man needs for happiness. Since all of you are mem
 
 Now, in addition to knowing that he is a child of God, that he holds the priesthood—the power to act in God’s name—a man needs companionship. What a tremendous source of strength it is to belong to a great brotherhood of priesthood holders where all are engaged in works of righteousness to help build the kingdom of God. But in order to enjoy full fellowship, a man must observe the rules. There are certain requirements to be met and certain rules to obey:
 
-“We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men; indeed, we may say that we follow the admonition of Paul—We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things. If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.” ([[Articles of Faith 1.13|A of F 1:13]].)
+“We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men; indeed, we may say that we follow the admonition of Paul—We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things. If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.” ([[Articles of Faith 1.13|A of F 1:13]].)
 
 Another thing a man needs is the love and companionship of family and friends. This too must be *earned* by compliance with or *obedience* to certain rules of behavior. You young men should be kind and considerate of the girls you choose for friends, girls who love the Lord and are preparing themselves to be mothers of the spirit children of God. You must be worthy of them by good, clean living and by obeying the commandments.
 
@@ -82,7 +84,7 @@ Years later Charlie became a prosperous businessman and president of a large cor
 
 As priesthood holders we must be just as diligent in keeping our covenants and magnifying our callings. We have pledged to keep the commandments, and God is constantly *calling* us for one reason or another. When his voice calls, let us drop the bat, or the golf club, or the fishing pole, or whatever else, and hurry to do his bidding. He will reward us with success and happiness as we seek first to build his kingdom.
 
-Listen to a real example of this. Elder Richard G. Scott of the First Quorum of the Seventy graduated from George Washington University in 1950 with a degree in mechanical engineering and then left immediately on a thirty-one month mission to Uruguay. He recalls: “Professors and friends tried to dissuade me from accepting a mission call, counseling that it would severely hamper my budding engineering career. But shortly after my mission, I was selected for the infant Naval Nuclear Program. (The field was top secret and initial training was given by the pioneer scientists at Oakridge, Tennessee.) At a meeting I was sent to direct, I found that one of the professors who had counseled me against going on a mission was in a significantly lesser program position than I. It was a powerful testimony to me of how the Lord blessed me as I put my priorities straight.” (*Ensign,* May 1977, pp. 102–3.)
+Listen to a real example of this. Elder Richard G. Scott of the First Quorum of the Seventy graduated from George Washington University in 1950 with a degree in mechanical engineering and then left immediately on a thirty-one month mission to Uruguay. He recalls: “Professors and friends tried to dissuade me from accepting a mission call, counseling that it would severely hamper my budding engineering career. But shortly after my mission, I was selected for the infant Naval Nuclear Program. (The field was top secret and initial training was given by the pioneer scientists at Oakridge, Tennessee.) At a meeting I was sent to direct, I found that one of the professors who had counseled me against going on a mission was in a significantly lesser program position than I. It was a powerful testimony to me of how the Lord blessed me as I put my priorities straight.” (*Ensign,* May 1977, pp. 102–3.)
 
 I know it is difficult sometimes to accept such philosophy when we see prominent and seemingly successful people “reach the top,” so to speak, when we know they are not thoroughly honest or dependable and have sometimes used devious means to gain their ends. However, I would remind us all that they are—or will be—eventually brought to justice, with their names often splashed mercilessly before a critical public; and I feel sure there comes a time when they will feel that the humiliation for them and their often innocent family was not worth their disobedience to law and order and sound moral behavior.
 
@@ -102,7 +104,7 @@ We must prepare now, and as we read in Matthew, “Watch therefore: for ye know 
 
 I cannot overemphasize the importance of each and every one of us living so as to be prepared and worthy to meet the Savior and assist him in his glorious and triumphant work. I cannot help but feel that the words of the Lord spoken to the Prophet Joseph Smith in a revelation given to him on June 22, 1834, apply to us today:
 
-“But behold, they have not learned to be *obedient* to the things which I required at their hands. …
+“But behold, they have not learned to be *obedient* to the things which I required at their hands. …
 
 “And my people must needs be chastened until they learn obedience, if it must needs be, by the things which they suffer.” ([[D&C 105.3|D&C 105:3, 6]][[D&C 105.6|]]; italics added.)
 
@@ -114,13 +116,8 @@ We do not suggest blind obedience, but obedience by *faith in those things which
 
 May that be sufficient reason for us to keep the commandments. May we increase in faith until we can say, with Adam, “We keep the commandments because the Lord has given them.”
 
-Let us always remember, and never forget, that we hold the priesthood of God. We are his spirit children; we have the true and everlasting gospel and a prophet of God—even President Spencer W. Kimball—to guide us in these latter days. *Listen to him and hearken to his words and follow him.* I promise you that as we do this we will be blessed. In the name of Jesus Christ, amen.
+Let us always remember, and never forget, that we hold the priesthood of God. We are his spirit children; we have the true and everlasting gospel and a prophet of God—even President Spencer W. Kimball—to guide us in these latter days. *Listen to him and hearken to his words and follow him.* I promise you that as we do this we will be blessed. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Character #Obedience

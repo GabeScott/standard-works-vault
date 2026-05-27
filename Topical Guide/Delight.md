@@ -1,6 +1,5 @@
 # Delight
 
-
 *See also* [[Joy.md|Joy]]; [[Pleasure.md|Pleasure]]
 
 If the Lord *delight* in us, [[Numbers 14.8|Numbers 14:8]].

@@ -1,6 +1,8 @@
 # The Doctrine of the Priesthood
 
-By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -86,7 +88,7 @@ Thus we make the covenant with Deity; and God swears the oath to us all, to show
 
 This matter of swearing with an oath in ancient days was far more significant than many of us have realized.
 
-For instance: Nephi and his brethren were seeking to obtain the brass plates from Laban. Their lives were in peril. Yet Nephi swore this oath: “As the Lord liveth, and as we live, we will not go down unto our father in the wilderness until we have accomplished the thing which the Lord hath commanded us.” ([[1 Nephi 3.15|1 Ne. 3:15]].)
+For instance: Nephi and his brethren were seeking to obtain the brass plates from Laban. Their lives were in peril. Yet Nephi swore this oath: “As the Lord liveth, and as we live, we will not go down unto our father in the wilderness until we have accomplished the thing which the Lord hath commanded us.” ([[1 Nephi 3.15|1 Ne. 3:15]].)
 
 Thus Nephi made God his partner. If he failed to get the plates, it meant God had failed. And because God does not fail, it was incumbent upon Nephi to get the plates or lay down his life in the attempt.
 
@@ -127,8 +129,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Priesthood

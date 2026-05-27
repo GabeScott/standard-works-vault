@@ -1,5 +1,7 @@
 # Prophets Are Inspired
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -31,8 +33,3 @@ I thank the Lord every day for the health and determination I have to make the b
 
 
 
-
-
-
-
-#Gordon_B._Hinckley #Prophets

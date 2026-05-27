@@ -1,4 +1,3 @@
 # Adam-ondi-Ahman
 
-
-*See* [[Eden.md|Eden]]
+*See also* [[Eden.md|Eden]]

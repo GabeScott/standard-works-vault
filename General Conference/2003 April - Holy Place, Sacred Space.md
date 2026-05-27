@@ -1,5 +1,7 @@
 # Holy Place, Sacred Space
 
+Gordon B. Hinckley
+
 By Elder Dennis B. Neuenschwander - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2003 General Conference*
@@ -41,8 +43,3 @@ I express my testimony of the Lord and Savior Jesus Christ, the very Prince of P
 
 
 
-
-
-
-
-#Home #Sacrifice #Temples

@@ -1,5 +1,7 @@
 # Stay the Course—Keep the Faith
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1995 General Conference*
@@ -42,7 +44,7 @@ But the people were more willing to believe the ten doubters than to believe Cal
 
 Then it was that the Lord declared that the children of Israel should wander in the wilderness forty years until the generation of those who had walked with doubt and fear should pass away. The scripture records that “those men that did bring up the evil report upon the land, died by the plague before the Lord.
 
-“But Joshua … and Caleb … , which were of the men that went to search the land, lived still” ([[Numbers 14.37|Num. 14:37–38]][[Numbers 14.38|]]). They were the only ones of that group who survived through those four decades of wandering and who had the privilege of entering the promised land concerning which they had reported in a positive manner.
+“But Joshua … and Caleb … , which were of the men that went to search the land, lived still” ([[Numbers 14.37|Num. 14:37–38]][[Numbers 14.38|]]). They were the only ones of that group who survived through those four decades of wandering and who had the privilege of entering the promised land concerning which they had reported in a positive manner.
 
 We see some around us who are indifferent concerning the future of this work, who are apathetic, who speak of limitations, who express fears, who spend their time digging out and writing about what they regard to be weaknesses which really are of no consequence. With doubt concerning its past, they have no vision concerning its future.
 
@@ -62,7 +64,7 @@ So it was in the latter part of the last century. It seemed the whole world stoo
 
 Today we walk in the sunlight of goodwill. There is a tendency on the part of some to become indifferent. There are those who drift off, seeking the enticements of the world, forsaking the cause of the Lord. I see others who think it is all right to lower their standards, perhaps in small ways. In this very process they lose the cutting edge of enthusiasm for this work. For instance, they think the violation of the Sabbath is a thing of unimportance. They neglect their meetings. They become critical. They engage in backbiting. Before long they have drifted from the Church.
 
-The Prophet Joseph once declared, “Where doubt is, there faith has no power” (*Lectures on Faith* \[Salt Lake City: Deseret Book Co., 1985\], p. 46).
+The Prophet Joseph once declared, “Where doubt is, there faith has no power” (*Lectures on Faith* \[Salt Lake City: Deseret Book Co., 1985\], p. 46).
 
 I invite any who may have so drifted to come back to the strong and solid moorings of the Church. This is the work of the Almighty. Whether we as individuals go forward will depend on us. But the Church will never fail to move forward. I remember an old song rendered in stirring tones by a male chorus: “Start me with ten who are stouthearted men, and I’ll soon give you ten thousand more” (Oscar Hammerstein II, “Stouthearted Men”).
 
@@ -92,8 +94,3 @@ I invite every one of you, wherever you may be as members of this church, to sta
 
 
 
-
-
-
-
-#Adversity #Attitude #Church_Growth #Commitment #Faith #Jesus_Christ #Joseph_Smith #Missionary_Work #Service #Standards

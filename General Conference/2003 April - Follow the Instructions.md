@@ -1,5 +1,7 @@
 # Follow the Instructions
 
+Gordon B. Hinckley
+
 By Elder D. Rex Gerratt - *Of the Seventy*
 
 *Given in the April session of the 2003 General Conference*
@@ -44,13 +46,13 @@ To all, wherever you are—to you who need hope, to you who need comfort, to you
 
 Then talk to the Lord, asking for comfort, direction, and understanding. As you open your mind and heart to feel the Spirit, the Lord in His own time and in His own way will give you the instructions which will bless your life.
 
-The scriptures also contain instructions of ancient and modern prophets. “All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness” ([[2 Timothy 3.16|2 Timothy 3:16]]).
+The scriptures also contain instructions of ancient and modern prophets. “All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness” ([[2 Timothy 3.16|2 Timothy 3:16]]).
 
 In this dispensation the Lord has given us the comforting counsel to “be not afraid of your enemies, for I have decreed in my heart … that I will prove you in all things, whether you will abide in my covenant, even unto death, that you may be found worthy” ([[D&C 98.14|D&C 98:14]]).
 
 Following instructions requires hard work, commitment, and enduring to the end.
 
-“Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]).
+“Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]).
 
 “And again I say unto you, if ye observe to do whatsoever I command you, I, the Lord, will turn away all wrath and indignation from you, and the gates of hell shall not prevail against you” ([[D&C 98.22|D&C 98:22]]).
 
@@ -60,9 +62,9 @@ As in times past, we receive instructions from the Lord’s living prophet. I te
 
 In the October 2001 general conference he said:
 
-“Now, today, we are faced with particular problems, serious and consuming and difficult and of great concern to us. Surely we have need for the Lord. …
+“Now, today, we are faced with particular problems, serious and consuming and difficult and of great concern to us. Surely we have need for the Lord. …
 
-“Our safety lies in the virtue of our lives. Our strength lies in our righteousness. God has made it clear that if we will not forsake Him, He will not forsake us” (in Conference Report, Oct. 2001, 112; or *Ensign,* Nov. 2001, 90).
+“Our safety lies in the virtue of our lives. Our strength lies in our righteousness. God has made it clear that if we will not forsake Him, He will not forsake us” (in Conference Report, Oct. 2001, [[2001 October - “Till We Meet Again”.md|112]]; or *Ensign,* Nov. 2001, 90).
 
 After receiving instructions, we need to be obedient and hearken to the counsel we receive. We need to listen to and follow our appointed leaders.
 
@@ -81,8 +83,3 @@ May we do this, I pray, in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Agency #Obedience #Prayer #Prophets #Scripture_Study

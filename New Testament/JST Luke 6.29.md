@@ -4,6 +4,3 @@
 
 [JST Luke 6:29](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/6?lang=eng)
 
-
-
-

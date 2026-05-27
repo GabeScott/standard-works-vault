@@ -1,6 +1,5 @@
 # Leopard
 
-
 *leopard* shall lie down with the kid, [[Isaiah 11.6|Isaiah 11:6]] ([[2 Nephi 21.6|2 Nephi 21:6]]; [[2 Nephi 30.12|2 Nephi 30:12]]).
 
 Ethiopian change his skin, or the *leopard* his spots, [[Jeremiah 13.23|Jeremiah 13:23]].

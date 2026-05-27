@@ -1,5 +1,7 @@
 # A Royal Priesthood
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -10,7 +12,7 @@ By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 Brethren, as I gaze from one end to the other of this majestic building, I can only say, you are an inspiring sight to behold. It is amazing to realize that in thousands of chapels throughout the world, others of you—holders of the priesthood of God—are receiving this broadcast by way of satellite transmission. Nationalities vary and languages are many, but a common thread binds us together. We have been entrusted to bear the priesthood and to act in the name of God. We are the recipients of a sacred trust. Much is expected of us.
 
-We who hold the priesthood of God and honor it are among those who have been reserved for this special period in history. The Apostle Peter described us in the second chapter of 1 Peter, the [[1 Peter 2.9|ninth]] verse: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.”
+We who hold the priesthood of God and honor it are among those who have been reserved for this special period in history. The Apostle Peter described us in the second chapter of 1 Peter, the [[1 Peter 2.9|ninth]] verse: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.”
 
 How might you and I qualify ourselves to be worthy of that designation, “a royal priesthood”? What are the characteristics of a true son of the living God? Tonight I would like us to consider just some of those very characteristics.
 
@@ -94,8 +96,3 @@ In conclusion, may we have *vision.* May we put forth *effort.* May we exemplify
 
 [^9]: “Prayer Is the Soul’s Sincere Desire,” *Hymns,* no. 145.
 
-
-
-
-
-#Faith #Prayer #Priesthood #Service

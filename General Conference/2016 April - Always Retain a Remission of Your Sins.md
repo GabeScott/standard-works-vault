@@ -1,6 +1,8 @@
 # Always Retain a Remission of Your Sins
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -93,17 +95,17 @@ Although none of us can achieve perfection in this life, we can become increasin
 
 [^2]: [[Mosiah 4.12|Mosiah 4:12]]; emphasis added.
 
-[^3]: See D. Todd Christofferson, “[[2015 April - Why Marriage, Why Family.md|Why Marriage, Why Family]],” *Ensign* or *Liahona,* May 2015, 50–53.
+[^3]: See D. Todd Christofferson, “[[2015 April - Why Marriage, Why Family.md|Why Marriage, Why Family]],” *Ensign* or *Liahona,* May 2015, 50–53.
 
 [^4]: See [[Alma 5.7|Alma 5:7]].
 
 [^5]: [[John 3.3|John 3:3]]; [[Mosiah 27.25|Mosiah 27:25]].
 
-[^6]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^6]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
-[^7]: [[2 Nephi 2.8|2 Nephi 2:8]].
+[^7]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
-[^8]: [[3 Nephi 27.20|3 Nephi 27:20]].
+[^8]: [[3 Nephi 27.20|3 Nephi 27:20]].
 
 [^9]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 95.
 
@@ -111,21 +113,21 @@ Although none of us can achieve perfection in this life, we can become increasin
 
 [^11]: See [[John 14.26|John 14:26]]; [[D&C 50.14|Doctrine and Covenants 50:14]].
 
-[^12]: See [[2 Nephi 32.5|2 Nephi 32:5]].
+[^12]: See [[2 Nephi 32.5|2 Nephi 32:5]].
 
-[^13]: See [[3 Nephi 27.19|3 Nephi 27:19–21]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
+[^13]: See [[3 Nephi 27.19|3 Nephi 27:19–21]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
 
-[^14]: See Guide to the Scriptures, “[Ordinances](https://churchofjesuschrist.org/study/scriptures/gs/ordinances?lang=eng),” scriptures.lds.org.
+[^14]: See Guide to the Scriptures, “[Ordinances](https://www.churchofjesuschrist.org/study/scriptures/gs/ordinances?lang=eng),” scriptures.lds.org.
 
 [^15]: [[D&C 84.19|Doctrine and Covenants 84:19–21]][[D&C 84.20|]][[D&C 84.21|]].
 
-[^16]: Bible Dictionary, “[Baptism](https://churchofjesuschrist.org/study/scriptures/bd/baptism?lang=eng).”
+[^16]: Bible Dictionary, “[[BD Baptism|Baptism]].”
 
 [^17]: *Teachings: Joseph Smith,* 91.
 
 [^18]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^19]: Bible Dictionary, “[Baptism](https://churchofjesuschrist.org/study/scriptures/bd/baptism?lang=eng).”
+[^19]: Bible Dictionary, “[[BD Baptism|Baptism]].”
 
 [^20]: [[John 3.5|John 3:5]].
 
@@ -135,19 +137,19 @@ Although none of us can achieve perfection in this life, we can become increasin
 
 [^23]: *Teachings: Joseph Smith,* 90.
 
-[^24]: [[2 Nephi 31.17|2 Nephi 31:17]]; emphasis added.
+[^24]: [[2 Nephi 31.17|2 Nephi 31:17]]; emphasis added.
 
-[^25]: [[3 Nephi 27.20|3 Nephi 27:20]]; emphasis added.
+[^25]: [[3 Nephi 27.20|3 Nephi 27:20]]; emphasis added.
 
-[^26]: [[1 Nephi 10.21|1 Nephi 10:21]].
+[^26]: [[1 Nephi 10.21|1 Nephi 10:21]].
 
 [^27]: See [[D&C 59.9|Doctrine and Covenants 59:9–12]][[D&C 59.10|]][[D&C 59.11|]][[D&C 59.12|]].
 
-[^28]: [[D&C 20.77|Doctrine and Covenants 20:77]]; see also [[D&C 20.79|verse 79]].
+[^28]: [[D&C 20.77|Doctrine and Covenants 20:77]]; see also [[D&C 20.79|verse 79]].
 
-[^29]: [[3 Nephi 27.20|3 Nephi 27:20]].
+[^29]: [[3 Nephi 27.20|3 Nephi 27:20]].
 
-[^30]: See *Teachings of Gordon B. Hinckley* (1997), 561; *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 220; N. Eldon Tanner, in Conference Report, Oct. 1966, 98.
+[^30]: See *Teachings of Gordon B. Hinckley* (1997), 561; *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 220; N. Eldon Tanner, in Conference Report, Oct. 1966, 98.
 
 [^31]: [[John 14.26|John 14:26]].
 
@@ -155,8 +157,3 @@ Although none of us can achieve perfection in this life, we can become increasin
 
 [^33]: [[Mormon 9.6|Mormon 9:6]].
 
-
-
-
-
-#Atonement #Baptism #Confirmation #Holy_Ghost #Jesus_Christ #Ordinances #Sacrament

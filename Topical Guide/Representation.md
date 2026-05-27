@@ -1,6 +1,5 @@
 # Representation
 
-
 which waters are a *representation* of the love of God, [[1 Nephi 11.25|1 Nephi 11:25]].
 
 It was a *representation* of the tree of life, [[1 Nephi 15.22|1 Nephi 15:22]].

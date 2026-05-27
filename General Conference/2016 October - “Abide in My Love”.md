@@ -1,6 +1,8 @@
 # “Abide in My Love”
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Jean B. Bingham
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -8,7 +10,7 @@ By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/abide-in-my-love?lang=eng)
 
-The Bible tells us that “God is love.”[^1] He is the perfect embodiment of love, and we rely heavily on the constancy and universal reach of that love. As President Thomas S. Monson has expressed: “God’s love is there for you whether or not you feel you deserve love. It is simply always there.”[^2]
+The Bible tells us that “God is love.”[^1] He is the perfect embodiment of love, and we rely heavily on the constancy and universal reach of that love. As President Thomas S. Monson has expressed: “God’s love is there for you whether or not you feel you deserve love. It is simply always there.”[^2]
 
 There are many ways to describe and speak of divine love. One of the terms we hear often today is that God’s love is “unconditional.” While in one sense that is true, the descriptor *unconditional* appears nowhere in scripture. Rather, His love is described in scripture as “great and wonderful love,”[^3] “perfect love,”[^4] “redeeming love,”[^5] and “everlasting love.”[^6] These are better terms because the word *unconditional* can convey mistaken impressions about divine love, such as, God tolerates and excuses anything we do because His love is unconditional, or God makes no demands upon us because His love is unconditional, or *all* are saved in the heavenly kingdom of God because His love is unconditional. God’s love is infinite and it will endure forever, but what it means for each of us depends on how we respond to His love.
 
@@ -34,13 +36,13 @@ Some will argue that God blesses everyone without distinction—citing, for exam
 
 “That ye may be the children of your Father which is in heaven.”[^16]
 
-Nevertheless, God’s greater blessings are conditioned on obedience. President Russell M. Nelson explained: “The resplendent bouquet of God’s love—including eternal life—includes blessings for which we must qualify, not entitlements to be expected unworthily. Sinners cannot bend His will to theirs and require Him to bless them in sin \[see [[Alma 11.37|Alma 11:37]]\]. If they desire to enjoy every bloom in His beautiful bouquet, they must repent.”[^17]
+Nevertheless, God’s greater blessings are conditioned on obedience. President Russell M. Nelson explained: “The resplendent bouquet of God’s love—including eternal life—includes blessings for which we must qualify, not entitlements to be expected unworthily. Sinners cannot bend His will to theirs and require Him to bless them in sin \[see [[Alma 11.37|Alma 11:37]]\]. If they desire to enjoy every bloom in His beautiful bouquet, they must repent.”[^17]
 
-Beyond rendering the penitent person guiltless and spotless with the promise of being “lifted up at the last day,”[^18] there is a second vital aspect of abiding in the love of God. Abiding in His love will enable us to realize our full potential, to become even as He is.[^19] As President Dieter F. Uchtdorf stated: “The grace of God does not merely restore us to our previous innocent state. … His aim is much higher: He wants His sons and daughters to become like Him.”[^20]
+Beyond rendering the penitent person guiltless and spotless with the promise of being “lifted up at the last day,”[^18] there is a second vital aspect of abiding in the love of God. Abiding in His love will enable us to realize our full potential, to become even as He is.[^19] As President Dieter F. Uchtdorf stated: “The grace of God does not merely restore us to our previous innocent state. … His aim is much higher: He wants His sons and daughters to become like Him.”[^20]
 
 To abide in God’s love in this sense means to submit fully to His will. It means to accept His correction when needed, “for whom the Lord loveth he chasteneth.”[^21] It means to love and serve one another as Jesus has loved and served us.[^22] It means to learn “to abide the law of a celestial kingdom” so that we can “abide a celestial glory.”[^23] For Him to be able to make of us what we can become, our Heavenly Father pleads with us to yield “to the enticings of the Holy Spirit, and \[put\] off the natural man and \[become\] a saint through the atonement of Christ the Lord, and \[become\] as a child, submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon him, even as a child doth submit to his father.”[^24]
 
-Elder Dallin H. Oaks observed: “The Final Judgment is not just an evaluation of a sum total of good and evil acts—what we have *done.* It is an acknowledgment of the final effect of our acts and thoughts—what we have *become.*”[^25]
+Elder Dallin H. Oaks observed: “The Final Judgment is not just an evaluation of a sum total of good and evil acts—what we have *done.* It is an acknowledgment of the final effect of our acts and thoughts—what we have *become.*”[^25]
 
 The story of Helen Keller is something of a parable suggesting how divine love can transform a willing soul. Helen was born in the state of Alabama in the United States in 1880. When just 19 months old, she suffered an undiagnosed illness that left her both deaf and blind. She was extremely intelligent and became frustrated as she tried to understand and make sense of her surroundings. When Helen felt the moving lips of family members and realized that they used their mouths to speak, “she flew into a rage \[because\] she was unable to join in the conversation.”[^26] By the time Helen was six, her need to communicate and her frustration grew so intense that her “outbursts occurred daily, sometimes hourly.”[^27]
 
@@ -60,7 +62,7 @@ Let us consider the cost of God’s precious love. Jesus revealed that to atone 
 
 It is poignantly symbolic that “blood \[came\] from every pore”[^38] as Jesus suffered in Gethsemane, the place of the olive press. To produce olive oil in the Savior’s time, olives were first crushed by rolling a large stone over them. The resulting “mash” was placed in soft, loosely woven baskets, which were piled one upon another. Their weight expressed the first and finest oil. Then added stress was applied by placing a large beam or log on top of the stacked baskets, producing more oil. Finally, to draw out the very last drops, the beam was weighted with stones on one end to create the maximum, crushing pressure.[^39] And yes, the oil is bloodred as it first flows out.
 
-I think of Matthew’s account of the Savior as He entered Gethsemane that fateful night—that He “began to be sorrowful and very heavy. …
+I think of Matthew’s account of the Savior as He entered Gethsemane that fateful night—that He “began to be sorrowful and very heavy. …
 
 “And he went a little further, and fell on his face, and prayed, saying, O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.”[^40]
 
@@ -73,13 +75,13 @@ Will you not love Him who first loved you?[^44] Then keep His commandments.[^45]
 
 
 
-[^1]: [[1 John 4.8|1 John 4:8]]. Glorious and reassuring as the love of Jesus Christ is, it is not His only attribute. His “character, perfections, and attributes” (*Lectures on Faith* \[1985\], 38) also include justice, truth, and invariableness; He is the same God yesterday, today, and forever (see *Lectures on Faith,* 41). Without these and the other traits and qualities that He possesses to absolute perfection, He would not be God.
+[^1]: [[1 John 4.8|1 John 4:8]]. Glorious and reassuring as the love of Jesus Christ is, it is not His only attribute. His “character, perfections, and attributes” (*Lectures on Faith* \[1985\], 38) also include justice, truth, and invariableness; He is the same God yesterday, today, and forever (see *Lectures on Faith,* 41). Without these and the other traits and qualities that He possesses to absolute perfection, He would not be God.
 
-[^2]: Thomas S. Monson, “[[2013 October - We Never Walk Alone.md|We Never Walk Alone]],” *Ensign* or *Liahona,* Nov. 2013, 124.
+[^2]: Thomas S. Monson, “[[2013 October - We Never Walk Alone.md|We Never Walk Alone]],” *Ensign* or *Liahona,* Nov. 2013, 124.
 
 [^3]: [[D&C 138.3|Doctrine and Covenants 138:3]].
 
-[^4]: [[1 John 4.18|1 John 4:18]]; [[Moroni 8.16|Moroni 8:16]].
+[^4]: [[1 John 4.18|1 John 4:18]]; [[Moroni 8.16|Moroni 8:16]].
 
 [^5]: [[Alma 5.26|Alma 5:26]].
 
@@ -89,7 +91,7 @@ Will you not love Him who first loved you?[^44] Then keep His commandments.[^45]
 
 [^8]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^9]: See [[2 Nephi 31.11|2 Nephi 31:11–21]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]; see also [[D&C 20.29|Doctrine and Covenants 20:29–34]][[D&C 20.30|]][[D&C 20.31|]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]].
+[^9]: See [[2 Nephi 31.11|2 Nephi 31:11–21]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]; see also [[D&C 20.29|Doctrine and Covenants 20:29–34]][[D&C 20.30|]][[D&C 20.31|]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]].
 
 [^10]: See [[Alma 11.32|Alma 11:32–37]][[Alma 11.33|]][[Alma 11.34|]][[Alma 11.35|]][[Alma 11.36|]][[Alma 11.37|]]; see also [[Alma 42.13|Alma 42:13, 15, 22–27]][[Alma 42.15|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]].
 
@@ -101,17 +103,17 @@ Will you not love Him who first loved you?[^44] Then keep His commandments.[^45]
 
 [^14]: [[Alma 34.15|Alma 34:15–16]][[Alma 34.16|]].
 
-[^15]: [[Matthew 5.45|Matthew 5:45]]; see also [[3 Nephi 12.45|3 Nephi 12:45]].
+[^15]: [[Matthew 5.45|Matthew 5:45]]; see also [[3 Nephi 12.45|3 Nephi 12:45]].
 
-[^16]: [[Matthew 5.44|Matthew 5:44–45]][[Matthew 5.45|]]; see also [[3 Nephi 12.44|3 Nephi 12:44–45]][[3 Nephi 12.45|]].
+[^16]: [[Matthew 5.44|Matthew 5:44–45]][[Matthew 5.45|]]; see also [[3 Nephi 12.44|3 Nephi 12:44–45]][[3 Nephi 12.45|]].
 
-[^17]: Russell M. Nelson, “[Divine Love](https://churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng),” *Ensign,* Feb. 2003, 24; *Liahona,* Feb. 2003, 16. And again, “not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven” ([[Matthew 7.21|Matthew 7:21]]; see also [[3 Nephi 14.21|3 Nephi 14:21]]).
+[^17]: Russell M. Nelson, “[Divine Love](https://www.churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng),” *Ensign,* Feb. 2003, 24; *Liahona,* Feb. 2003, 16. And again, “not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven” ([[Matthew 7.21|Matthew 7:21]]; see also [[3 Nephi 14.21|3 Nephi 14:21]]).
 
-[^18]: [[3 Nephi 27.22|3 Nephi 27:22]].
+[^18]: [[3 Nephi 27.22|3 Nephi 27:22]].
 
-[^19]: See [[3 Nephi 27.27|3 Nephi 27:27]]; see also [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]].
+[^19]: See [[3 Nephi 27.27|3 Nephi 27:27]]; see also [[Matthew 5.48|Matthew 5:48]]; [[3 Nephi 12.48|3 Nephi 12:48]].
 
-[^20]: Dieter F. Uchtdorf, “[[2015 April - The Gift of Grace.md|The Gift of Grace]],” *Ensign* or *Liahona,* May 2015, 108.
+[^20]: Dieter F. Uchtdorf, “[[2015 April - The Gift of Grace.md|The Gift of Grace]],” *Ensign* or *Liahona,* May 2015, 108.
 
 [^21]: [[Hebrews 12.6|Hebrews 12:6]]; see also [[Hebrews 12.5|Hebrews 12:5, 7–11]][[Hebrews 12.7|]][[Hebrews 12.8|]][[Hebrews 12.9|]][[Hebrews 12.10|]][[Hebrews 12.11|]]; [[John 15.1|John 15:1–8]][[John 15.2|]][[John 15.3|]][[John 15.4|]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.8|]].
 
@@ -121,7 +123,7 @@ Will you not love Him who first loved you?[^44] Then keep His commandments.[^45]
 
 [^24]: [[Mosiah 3.19|Mosiah 3:19]].
 
-[^25]: Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign,* Nov. 2000, 32; *Liahona,* Jan. 2001, 40; emphasis in original.
+[^25]: Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign,* Nov. 2000, 32; *Liahona,* Jan. 2001, 40; emphasis in original.
 
 [^26]: “Helen Keller,” perkins.org/history/people/helen-keller.
 
@@ -139,9 +141,9 @@ Will you not love Him who first loved you?[^44] Then keep His commandments.[^45]
 
 [^33]: See William Gibson, *The Miracle Worker* (motion picture, 1962).
 
-[^34]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
+[^34]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
 
-[^35]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^35]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 [^36]: [[D&C 19.18|Doctrine and Covenants 19:18]].
 
@@ -155,11 +157,11 @@ Will you not love Him who first loved you?[^44] Then keep His commandments.[^45]
 
 [^41]: See [[D&C 19.19|Doctrine and Covenants 19:19]].
 
-[^42]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^42]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
-[^43]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^43]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
-[^44]: See [[1 John 4.19|1 John 4:19]].
+[^44]: See [[1 John 4.19|1 John 4:19]].
 
 [^45]: See [[John 14.15|John 14:15]].
 
@@ -169,8 +171,3 @@ Will you not love Him who first loved you?[^44] Then keep His commandments.[^45]
 
 [^48]: See [[John 15.10|John 15:10]].
 
-
-
-
-
-#Atonement #Divine_Nature #Jesus_Christ #Love #Obedience #Repentance

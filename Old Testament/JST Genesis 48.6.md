@@ -4,6 +4,3 @@
 
 [JST Genesis 48:6](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gen/48?lang=eng)
 
-
-
-

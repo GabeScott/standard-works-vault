@@ -1,5 +1,7 @@
 # Blessing Our Families through Our Covenants
 
+Gordon B. Hinckley
+
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -34,7 +36,7 @@ The theme of this conference is “Here am I; send me.” The words are a promis
 
 “It is not uncommon for responsible parents to lose one of their children, for a time, to influences over which they have no control. They agonize over rebellious sons or daughters. They are puzzled over why they are so helpless when they have tried so hard to do what they should.
 
-“It is my conviction that those wicked influences one day will be overruled. …
+“It is my conviction that those wicked influences one day will be overruled. …
 
 “We cannot overemphasize the value of temple marriage, the binding ties of the sealing ordinance, and the standards of worthiness required of them. When parents keep the covenants they have made at the altar of the temple, their children will be forever bound to them.”[^4]
 
@@ -57,8 +59,3 @@ May our Heavenly Father bless us to keep our covenants that our families may be 
 
 [^5]: [[Psalms 55.22|Psalm 55:22]].
 
-
-
-
-
-#Blessings #Covenants #Family #Morality

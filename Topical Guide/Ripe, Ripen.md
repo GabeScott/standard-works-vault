@@ -1,6 +1,5 @@
 # Ripe, Ripen
 
-
 clusters thereof brought forth *ripe* grapes, [[Genesis 40.10|Genesis 40:10]].
 
 like the figs that are first *ripe*, [[Jeremiah 24.2|Jeremiah 24:2]].
@@ -15,7 +14,7 @@ field was *ripe*, [[Alma 26.5|Alma 26:5]].
 
 destruction, except they repent before they are fully *ripe*, [[Alma 37.31|Alma 37:31]].
 
-destruction ... when they are fully *ripe*, [[Alma 45.16|Alma 45:16]].
+destruction … when they are fully *ripe*, [[Alma 45.16|Alma 45:16]].
 
 then shall ye be *ripe* for destruction, [[Helaman 13.14|Helaman 13:14]].
 

@@ -1,6 +1,5 @@
 # Avenger
 
-
 cities for refuge from the *avenger*, [[Numbers 35.12|Numbers 35:12]] ([[Joshua 20.3|Joshua 20:3]]).
 
 Lest the *avenger* of the blood pursue the slayer, [[Deuteronomy 19.6|Deuteronomy 19:6]].

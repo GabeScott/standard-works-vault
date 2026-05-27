@@ -1,11 +1,10 @@
 # Youth
 
-
-imagination of man's heart is evil from his *youth*, [[Genesis 8.21|Genesis 8:21]].
+imagination of man’s heart is evil from his *youth*, [[Genesis 8.21|Genesis 8:21]].
 
 thou art but a *youth*, and he a man of war, [[1 Samuel 17.33|1 Samuel 17:33]].
 
-I ... fear the Lord from my *youth*, [[1 Kings 18.12|1 Kings 18:12]].
+I … fear the Lord from my *youth*, [[1 Kings 18.12|1 Kings 18:12]].
 
 They die in *youth*, [[Job 36.14|Job 36:14]].
 
@@ -39,4 +38,4 @@ thou hast beheld in thy *youth* his glory, [[2 Nephi 2.4|2 Nephi 2:4]].
 
 learn wisdom in thy *youth*, [[Alma 37.35|Alma 37:35]].
 
-I frequently ... displayed the weakness of *youth*, [[Joseph Smith History 1.28|Joseph Smith History 1:28]].
+I frequently … displayed the weakness of *youth*, [[Joseph Smith History 1.28|Joseph Smith History 1:28]].

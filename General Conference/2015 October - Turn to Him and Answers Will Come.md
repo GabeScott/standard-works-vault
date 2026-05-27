@@ -1,6 +1,8 @@
 # Turn to Him and Answers Will Come
 
-By Elder James B. Martino - *Of the Seventy*
+Rosemary M. Wixom
+
+By Elder James B. Martino - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -12,7 +14,7 @@ When I was a young man, my parents joined The Church of Jesus Christ of Latter-d
 
 After this surprising announcement, my brothers and I began to listen to the missionaries as well, and they each received the message of the Restoration with gladness. Although I was curious, my heart was not into changing my life. I did, however, accept the challenge to pray about whether the Book of Mormon was the word of God, but I did not receive an answer.
 
-You might ask why Heavenly Father did not answer that prayer; I certainly wondered. I have learned since that the promise made by Moroni is accurate. God does answer our prayers about the truthfulness of the gospel, but He answers them when we have “a sincere heart” and “real intent.”[^1] He does not answer just to respond to our curiosity.
+You might ask why Heavenly Father did not answer that prayer; I certainly wondered. I have learned since that the promise made by Moroni is accurate. God does answer our prayers about the truthfulness of the gospel, but He answers them when we have “a sincere heart” and “real intent.”[^1] He does not answer just to respond to our curiosity.
 
 Perhaps there is something in your life that you have a question about. Perhaps there is a problem you do not know quite how to answer. Today I would like to share some thoughts that may help you obtain the answers or help you are seeking. The process begins with being converted to the gospel of Jesus Christ.
 
@@ -48,7 +50,7 @@ Their missionary success is unforgettable. Thousands were converted to the ways 
 
 Why did the trials of these sons of Mosiah strengthen their faith and commitment rather than cause them to murmur or doubt? The key is that “they had waxed strong in the knowledge of the truth; for they were men of a sound understanding and they had searched the scriptures diligently, that they might know the word of God.”[^14] We will all face trials and have questions, but remember that we must be “continually holding fast to the rod of iron.”[^15] “The words of Christ will tell \[us\] all things what \[we\] should do.”[^16] We must make scripture study a daily part of our lives, as this will open doors of revelation.
 
-## Prayer, Combined with Fasting, Invites Revelation
+## Prayer, Combined with Fasting, Invites Revelation
 
 For the sons of Mosiah, “this is not all; they had given themselves to much prayer, and fasting; therefore they had the spirit of prophecy, and the spirit of revelation.”[^17] Prayer and fasting will allow us to be susceptible to spiritual promptings. Communicating with Heavenly Father while purposefully abstaining from food and drink allows us to “loose the bands of wickedness \[and\] to undo the heavy burdens.”[^18] Prayer, combined with fasting, will provide so that when we “call, … the Lord shall answer; … \[and when we\] cry, … he shall say, Here I am.”[^19]
 
@@ -56,7 +58,7 @@ For the sons of Mosiah, “this is not all; they had given themselves to much pr
 
 These personal religious habits—obedience, scripture study, prayer, and fasting—strengthened the sons of Mosiah. The lack of these same personal religious habits was a major reason that Laman and Lemuel were left vulnerable to the temptation to murmur and doubt.
 
-If you have been tempted to murmur, if you have had doubt that leads to unbelief, if trials seem more than you can bear, turn to Him. If you are one who has turned away or rationalized your behavior, turn to Him. Can you remember when He did “speak peace to your mind … ? What greater witness can you have than from God?”[^20] Ask yourself, “Am I as close to living like Christ now as I was before?” Please, turn to Him.
+If you have been tempted to murmur, if you have had doubt that leads to unbelief, if trials seem more than you can bear, turn to Him. If you are one who has turned away or rationalized your behavior, turn to Him. Can you remember when He did “speak peace to your mind … ? What greater witness can you have than from God?”[^20] Ask yourself, “Am I as close to living like Christ now as I was before?” Please, turn to Him.
 
 May I return to my personal story. Eventually I began to be sincere. I remember when the missionary who was teaching me asked if I was ready to be baptized. I replied that I still had some questions. This wise missionary told me that he could answer them but that I would have to answer his question first. He asked me if the Book of Mormon was true and if Joseph Smith was a prophet. I told him that I did not know, but I wanted to know.
 
@@ -73,25 +75,25 @@ I hope as you have listened this morning that the Spirit has impressed on your m
 
 [^1]: [[Moroni 10.4|Moroni 10:4]].
 
-[^2]: [[1 Nephi 1.1|1 Nephi 1:1]].
+[^2]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
-[^3]: See [[1 Nephi 2.11|1 Nephi 2:11–12]][[1 Nephi 2.12|]].
+[^3]: See [[1 Nephi 2.11|1 Nephi 2:11–12]][[1 Nephi 2.12|]].
 
-[^4]: See [[1 Nephi 4.3|1 Nephi 4:3–4]][[1 Nephi 4.4|]].
+[^4]: See [[1 Nephi 4.3|1 Nephi 4:3–4]][[1 Nephi 4.4|]].
 
-[^5]: See [[1 Nephi 3.5|1 Nephi 3:5]].
+[^5]: See [[1 Nephi 3.5|1 Nephi 3:5]].
 
-[^6]: See [[1 Nephi 3.14|1 Nephi 3:14]].
+[^6]: See [[1 Nephi 3.14|1 Nephi 3:14]].
 
-[^7]: See [[1 Nephi 7.20|1 Nephi 7:20–21]][[1 Nephi 7.21|]].
+[^7]: See [[1 Nephi 7.20|1 Nephi 7:20–21]][[1 Nephi 7.21|]].
 
-[^8]: [[1 Nephi 15.7|1 Nephi 15:7]].
+[^8]: [[1 Nephi 15.7|1 Nephi 15:7]].
 
-[^9]: [[1 Nephi 15.8|1 Nephi 15:8]].
+[^9]: [[1 Nephi 15.8|1 Nephi 15:8]].
 
-[^10]: [[1 Nephi 15.9|1 Nephi 15:9]].
+[^10]: [[1 Nephi 15.9|1 Nephi 15:9]].
 
-[^11]: [[1 Nephi 15.10|1 Nephi 15:10–11]][[1 Nephi 15.11|]].
+[^11]: [[1 Nephi 15.10|1 Nephi 15:10–11]][[1 Nephi 15.11|]].
 
 [^12]: [[Alma 5.26|Alma 5:26]].
 
@@ -99,9 +101,9 @@ I hope as you have listened this morning that the Spirit has impressed on your m
 
 [^14]: [[Alma 17.2|Alma 17:2]].
 
-[^15]: [[1 Nephi 8.30|1 Nephi 8:30]].
+[^15]: [[1 Nephi 8.30|1 Nephi 8:30]].
 
-[^16]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^16]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^17]: [[Alma 17.3|Alma 17:3]].
 
@@ -111,7 +113,5 @@ I hope as you have listened this morning that the Spirit has impressed on your m
 
 [^20]: [[D&C 6.23|Doctrine and Covenants 6:23]].
 
+[^21]: See [[Alma 32.27|Alma 32:27–28]][[Alma 32.28|]].
 
-
-
-#Adversity #Conversion #Faith #Fasting #Obedience #Prayer #Revelation #Scriptures

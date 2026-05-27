@@ -1,5 +1,7 @@
 # The Power of a Good Life
 
+James E. Faust
+
 By Elder Marlin K. Jensen - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -26,11 +28,11 @@ Of one particularly tedious night, Elder Parley P. Pratt wrote:
 
 Elder Pratt continues:
 
-“I have seen the ministers of justice, clothed in magisterial robes, and criminals arraigned before them, while life was suspended on a breath, in the Courts of England; I have witnessed a Congress in solemn session to give laws to nations; I have tried to conceive of kings, of royal courts, of thrones and crowns; and of emperors assembled to decide the fate of kingdoms; but dignity and majesty have I seen but *once,* as it stood in chains, at midnight, in a dungeon in an obscure village of Missouri” (*Autobiography of Parley P. Pratt* \[Salt Lake City: Deseret Book Co., 1975\], pp. 210–11).
+“I have seen the ministers of justice, clothed in magisterial robes, and criminals arraigned before them, while life was suspended on a breath, in the Courts of England; I have witnessed a Congress in solemn session to give laws to nations; I have tried to conceive of kings, of royal courts, of thrones and crowns; and of emperors assembled to decide the fate of kingdoms; but dignity and majesty have I seen but *once,* as it stood in chains, at midnight, in a dungeon in an obscure village of Missouri” (*Autobiography of Parley P. Pratt* \[Salt Lake City: Deseret Book Co., 1975\], pp. 210–11).
 
 Does not this image of the Prophet Joseph courageously rebuking the forces of evil move us to do likewise?
 
-The second example is from the life of Willard Bean, a remarkable man who became known as the “fighting parson.” In the spring of 1915, Willard and his new bride, Rebecca, were called by President Joseph F. Smith to serve a mission for “five years or longer” in Palmyra, New York (Vicki Bean Topliff, *Willard Bean: “The Fighting Parson”* \[Huntington Beach, Calif., 1989\], p. 87; for the account of their life in Palmyra, see pp. 86–131). Their task was to occupy the recently acquired Joseph Smith home and farm and to reestablish the Church in the hostile environment which still existed at the time in Palmyra.
+The second example is from the life of Willard Bean, a remarkable man who became known as the “fighting parson.” In the spring of 1915, Willard and his new bride, Rebecca, were called by President Joseph F. Smith to serve a mission for “five years or longer” in Palmyra, New York (Vicki Bean Topliff, *Willard Bean: “The Fighting Parson”* \[Huntington Beach, Calif.: n.p., 1989\], p. 87; for the account of their life in Palmyra, see pp. 86–131). Their task was to occupy the recently acquired Joseph Smith home and farm and to reestablish the Church in the hostile environment which still existed at the time in Palmyra.
 
 The Beans were rebuffed on every front as they settled into the Smith home. The townspeople would not speak to them or wait on them in their stores. Passersby would pause in front of the home and shout obscenities. Their children were assigned to sit in the back corners of the schoolroom and were shunned by the other children in class.
 
@@ -38,7 +40,7 @@ Willard, who was an accomplished athlete and had been a prize-winning boxer, dec
 
 When the night of the exhibition arrived, the toughest men in Palmyra sat in the first few rows. One by one they entered the ring, only to be carried out again in a matter of seconds! This continued until the seventh challenger was similarly disposed.
 
-Brother Bean’s fighting abilities were more spontaneously employed on another occasion as he walked along the unfriendly streets of Palmyra. A man watering his front lawn one afternoon suddenly turned the hose on Willard and taunted, “I understand you people believe in baptism by immersion.” The spry, athletic Willard reportedly vaulted over the fence separating them and replied, “Yes, and we also believe in the laying on of hands” (*Willard Bean: “The Fighting Parson,”* p. 14).
+Brother Bean’s fighting abilities were more spontaneously employed on another occasion as he walked along the unfriendly streets of Palmyra. A man watering his front lawn one afternoon suddenly turned the hose on Willard and taunted, “I understand you people believe in baptism by immersion.” The spry, athletic Willard reportedly vaulted over the fence separating them and replied, “Yes, and we also believe in the laying on of hands” (*Willard Bean: “The Fighting Parson,”* p. 14).
 
 Although Brother Bean’s methods were a little unorthodox and definitely not compatible with the current approved missionary program of the Church, they were nonetheless effective. The people of Palmyra began begrudgingly to yield and to accept the Beans as the good people they were. In time, they were invited to participate in local churches and to join the civic organizations of the day. They established a branch of the Church and helped acquire the Hill Cumorah and the Martin Harris and Peter Whitmer farms. The “five years or longer” mission to which the prophet had called them stretched to nearly twenty-five years before it concluded. During that time, the attitude of the people of Palmyra had changed from hostility toward the Beans to toleration, then admiration, and finally to love. The power of good lives is truly great.
 
@@ -63,8 +65,3 @@ I thank God for the blessing of good people in all of our lives and pray that we
 
 
 
-
-
-
-
-#Courage #Example #Joseph_Smith

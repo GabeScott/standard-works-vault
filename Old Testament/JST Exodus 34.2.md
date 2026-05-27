@@ -4,6 +4,3 @@
 
 [JST Exodus 34:2](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-ex/34?lang=eng)
 
-
-
-

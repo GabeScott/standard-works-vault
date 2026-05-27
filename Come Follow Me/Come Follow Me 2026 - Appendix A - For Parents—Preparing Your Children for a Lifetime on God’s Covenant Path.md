@@ -6,13 +6,13 @@ Because He loves you, trusts you, and knows your potential, Heavenly Father has 
 
 There are many ways to prepare your children for this journey on the covenant path, and Heavenly Father will help you discover the best way to help them. As you seek inspiration, keep in mind that not all learning happens during scheduled lessons. In fact, part of what makes learning at home so powerful is the opportunity to learn by example and through small, simple teaching moments—the kind that occur naturally in the flow of daily living. Just as following the covenant path is a consistent, lifelong process, so is learning about the covenant path. (See “[Home and Family](https://churchofjesuschrist.org/study/manual/teaching-in-the-saviors-way-2022/12-part-3/13-suggestions-for-a-variety-of-teaching?lang=eng&id=p2-p4#p2),” *Teaching in the Savior’s Way* \[2022\], 30–31.)
 
-Below are some ideas that may lead to further inspiration. You can find additional ideas for teaching Primary-age children in “[Appendix B: For Primary—Preparing Children for a Lifetime on God’s Covenant Path](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/54-appendix-b?lang=eng).”
+Below are some ideas that may lead to further inspiration. You can find additional ideas for teaching Primary-age children in “[Appendix B: For Primary—Preparing Children for a Lifetime on God’s Covenant Path](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/54-appendix-b?lang=eng).”
 
 ## Baptism and Confirmation
 
-Nephi taught that “the gate by which \[we\] should enter” the covenant path “is repentance and baptism by water” ([[2 Nephi 31.17|2 Nephi 31:17]]). Your efforts to help your children prepare for baptism and confirmation can set their feet firmly on that path. These efforts begin with teaching about faith in Jesus Christ and repentance. They also include teaching about how we renew our baptismal covenant by partaking of the sacrament each week.
+Nephi taught that “the gate by which \[we\] should enter” the covenant path “is repentance and baptism by water” ([[2 Nephi 31.17|2 Nephi 31:17]]). Your efforts to help your children prepare for baptism and confirmation can set their feet firmly on that path. These efforts begin with teaching about faith in Jesus Christ and repentance. They also include teaching about how we renew our baptismal covenant by partaking of the sacrament each week.
 
-Here are some resources that can help you: [[2 Nephi 31.1|2 Nephi 31]]; [special issue of the Friend magazine](https://churchofjesuschrist.org/study/friend/2023/08-se?lang=eng) about baptism; Topics and Questions, “[Baptism](https://churchofjesuschrist.org/study/manual/gospel-topics/baptism?lang=eng),” Gospel Library.
+Here are some resources that can help you: [[2 Nephi 31.1|2 Nephi 31]]; [special issue of the Friend magazine](https://churchofjesuschrist.org/study/friend/2023/08-se?lang=eng) about baptism; Topics and Questions, “[Baptism](https://churchofjesuschrist.org/study/manual/gospel-topics/baptism?lang=eng),” Gospel Library.
 
 - Whenever you have an experience that strengthens your faith in Heavenly Father and Jesus Christ, share it with your child. Help them understand that faith is something that can grow stronger and stronger throughout life. What are some things your child can do to develop stronger faith in Christ before they are baptized?
 
@@ -22,7 +22,7 @@ Here are some resources that can help you: [[2 Nephi 31.1|2 Nephi 31]]; [speci
 
 - When there is a baptism in your family or your ward, take your child to see it. Talk together about what you and your child saw and felt. If possible, talk to the person being baptized and ask questions like these: “How did you make this decision? How did you prepare?”
 
-- Whenever you notice your child doing something they promised to do, give sincere praise. Point out that keeping commitments helps us prepare to keep the covenants we make when we are baptized. What do we promise God when we are baptized? What does He promise us? (See [[Mosiah 18.8|Mosiah 18:8–10, 13]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.13|]].)
+- Whenever you notice your child doing something they promised to do, give sincere praise. Point out that keeping commitments helps us prepare to keep the covenants we make when we are baptized. What do we promise God when we are baptized? What does He promise us? (See [[Mosiah 18.8|Mosiah 18:8–10, 13]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.13|]].)
 
 - Talk about how being confirmed and becoming a member of The Church of Jesus Christ of Latter-day Saints has blessed you. For example, how have you come closer to Heavenly Father and Jesus Christ as you have served others and as others have served you? Help your child think of ways to serve and strengthen others as a member of the Church. Also help them experience and recognize the joy that comes from service.
 
@@ -42,7 +42,7 @@ When men and women serve in Church callings, they do so with priesthood authorit
 
 We receive ordinances by the authority of the priesthood. “Worthy male Church members receive priesthood authority through priesthood conferral and ordination to priesthood offices” (*General Handbook*, [3.4](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p27-p66#p27)). Those who hold priesthood offices can be authorized by someone who holds priesthood keys to perform priesthood ordinances.
 
-To learn more about the priesthood, see Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 76–79; Russell M. Nelson, “[[2016 April - The Price of Priesthood Power.md|The Price of Priesthood Power]],” *Ensign* or *Liahona*, May 2016, 66–69; “[Priesthood Principles](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng),” [chapter 3](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng) in *General Handbook*.
+To learn more about the priesthood, see Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 76–79; Russell M. Nelson, “[[2016 April - The Price of Priesthood Power.md|The Price of Priesthood Power]],” *Ensign* or *Liahona*, May 2016, 66–69; “[Priesthood Principles](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng),” [chapter 3](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng) in *General Handbook*.
 
 - Make priesthood ordinances a consistent part of your family life. For example, help your child prepare spiritually for the sacrament each week. Encourage your child to seek priesthood blessings when they are sick or need comfort or direction. Make it a habit to point out ways the Lord is blessing your family through His power.
 
@@ -57,7 +57,7 @@ To learn more about the priesthood, see Russell M. Nelson, “[[2019 October - S
 
 ## Being Baptized and Confirmed for Ancestors
 
-Temples are a part of Heavenly Father’s plan for His children. In the house of the Lord, we make sacred covenants with Heavenly Father as we participate in sacred ordinances, all of which point to Jesus Christ. Heavenly Father has provided a way for all His children to make covenants and participate in ordinances, including people who did not receive them in this life. At the beginning of the year your child turns 12, they are old enough to be baptized and confirmed in the temple for deceased ancestors (see also [[1 Corinthians 15.29|1 Corinthians 15:29]]).
+Temples are a part of Heavenly Father’s plan for His children. In the house of the Lord, we make sacred covenants with Heavenly Father as we participate in sacred ordinances, all of which point to Jesus Christ. Heavenly Father has provided a way for all His children to make covenants and participate in ordinances, including people who did not receive them in this life. At the beginning of the year your child turns 12, they are old enough to be baptized and confirmed in the temple for deceased ancestors (see also [[1 Corinthians 15.29|1 Corinthians 15:29]]).
 
 - Go to the house of the Lord as often as your circumstances allow. Talk to your child about why you are going and how the temple helps you feel closer to Heavenly Father and Jesus Christ.
 
@@ -91,7 +91,7 @@ God wants to endow, or bless, all His children with “power from on high” ([[
 
 - As you and your child participate in or witness other ordinances (such as the sacrament or a blessing of healing), take a moment to discuss the symbolism involved in the ordinance. What do the symbols represent? How do they testify of Jesus Christ? This can help your child prepare to ponder the symbolic meaning of temple ordinances, which also testify of Jesus Christ.
 
-- Help your child notice how they are keeping the baptismal covenant described in [[Mosiah 18.10|Mosiah 18:10, 13]][[Mosiah 18.13|]] (see also [[Mosiah 18.8|verses 8–9]][[Mosiah 18.9|]], which describe the fruits of that covenant). Also help your child notice how the Lord is blessing them. Build your child’s confidence in their ability to keep covenants.
+- Help your child notice how they are keeping the baptismal covenant described in [[Mosiah 18.10|Mosiah 18:10, 13]][[Mosiah 18.13|]] (see also [[Mosiah 18.8|verses 8–9]][[Mosiah 18.9|]], which describe the fruits of that covenant). Also help your child notice how the Lord is blessing them. Build your child’s confidence in their ability to keep covenants.
 
 - Talk openly and frequently about how your temple covenants guide your choices and help you grow closer to Jesus Christ. You could use *General Handbook*, [27.2](https://churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title_number11-p69#title_number11), to review the covenants we make in the temple. If you have received the endowment, tell your children about how the temple garment helps you remember your covenants with Jesus Christ (see “Sacred Temple Clothing” \[video\], Gospel Library; Anette J. Dennis, “[[2024 April - Put Ye On the Lord Jesus Christ.md|Put Ye On the Lord Jesus Christ]],” *Liahona*, May 2024, 10–13).> 4:12
 

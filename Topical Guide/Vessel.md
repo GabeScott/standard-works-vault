@@ -1,6 +1,5 @@
 # Vessel
 
-
 he made the *vessels* which were upon the table, [[Exodus 37.16|Exodus 37:16]].
 
 brass of all these *vessels* was without weight, [[2 Kings 25.16|2 Kings 25:16]].
@@ -13,7 +12,7 @@ be ye clean, that bear the *vessels* of the Lord, [[Isaiah 52.11|Isaiah 52:11]] 
 
 *vessel* that he made of clay was marred, [[Jeremiah 18.4|Jeremiah 18:4]].
 
-will I break this people ... as one breaketh a potter's *vessel*, [[Jeremiah 19.11|Jeremiah 19:11]].
+will I break this people … as one breaketh a potter’s *vessel*, [[Jeremiah 19.11|Jeremiah 19:11]].
 
 with part of the *vessels* of the house of God, [[Daniel 1.2|Daniel 1:2]].
 

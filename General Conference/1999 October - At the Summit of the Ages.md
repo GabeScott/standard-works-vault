@@ -1,5 +1,7 @@
 # At the Summit of the Ages
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1999 General Conference*
@@ -18,7 +20,7 @@ In the centuries before He came to earth there was prophecy of His coming. Isaia
 
 King Benjamin, more than a century before the Savior’s birth, said this to his people:
 
-“For behold, the time cometh, and is not far distant, that with power, the Lord Omnipotent who reigneth, who was, and is from all eternity to all eternity, shall come down from heaven among the children of men, and shall dwell in a tabernacle of clay, and shall go forth amongst men, working mighty miracles, such as healing the sick, raising the dead, causing the lame to walk, the blind to receive their sight, and the deaf to hear, and curing all manner of diseases. …
+“For behold, the time cometh, and is not far distant, that with power, the Lord Omnipotent who reigneth, who was, and is from all eternity to all eternity, shall come down from heaven among the children of men, and shall dwell in a tabernacle of clay, and shall go forth amongst men, working mighty miracles, such as healing the sick, raising the dead, causing the lame to walk, the blind to receive their sight, and the deaf to hear, and curing all manner of diseases. …
 
 “And he shall be called Jesus Christ, the Son of God, the Father of heaven and earth, the Creator of all things from the beginning; and his mother shall be called Mary” ([[Mosiah 3.5|Mosiah 3:5, 8]][[Mosiah 3.8|]]).
 
@@ -32,7 +34,7 @@ The magnificent expression of His love came in His death, when He gave His life 
 
 No other act in all of human history compares with it. Nothing that has ever happened can match it. Totally unselfish and with unbounded love for all mankind, it became an unparalleled act of mercy for the whole human race.
 
-Then with the Resurrection that first Easter morn came the triumphal declaration of immortality. Well was Paul able to declare, “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]). He not only granted the blessing of the Resurrection to all, but opened the way to eternal life to those who observe His teachings and commandments.
+Then with the Resurrection that first Easter morn came the triumphal declaration of immortality. Well was Paul able to declare, “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]). He not only granted the blessing of the Resurrection to all, but opened the way to eternal life to those who observe His teachings and commandments.
 
 He was and is the great central figure of human history, the zenith of the times and seasons of all men.
 
@@ -64,7 +66,7 @@ Isaiah and Micah had spoken long before when with prophetic vision they saw our 
 
 “And many people shall go and say, Come ye, and let us go up to the mountain of the Lord, to the house of the God of Jacob; and he will teach us of his ways, and we will walk in his paths: for out of Zion shall go forth the law, and the word of the Lord from Jerusalem” ([[Isaiah 2.2|Isa. 2:2–3]][[Isaiah 2.3|]]; see also [[Micah 4.2|Micah 4:2]]).
 
-Paul had written of the whole procession of time, the parade of the centuries, saying, “Let no man deceive you by any means: for that day shall not come, except there come a falling away first” ([[2 Thessalonians 2.3|2 Thes. 2:3]]).
+Paul had written of the whole procession of time, the parade of the centuries, saying, “Let no man deceive you by any means: for that day shall not come, except there come a falling away first” ([[2 Thessalonians 2.3|2 Thes. 2:3]]).
 
 He had further said of this day, “That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth; even in him” ([[Ephesians 1.10|Eph. 1:10]]).
 
@@ -90,7 +92,7 @@ My brethren and sisters, do you realize what we have? Do you recognize our place
 
 >The morning breaks, the shadows flee;
 >Lo, Zion’s standard is unfurled!
->The dawning of a brighter day …
+>The dawning of a brighter day …
 >Majestic rises on the world.
 >
 
@@ -123,8 +125,3 @@ May God bless us with a sense of our place in history and, having been given tha
 
 [^1]: *The Decameron of Giovanni Boccaccio,* trans. Richard Aldington (1930), 7.
 
-
-
-
-
-#Apostasy #Atonement #Church_History #Dispensations #Jesus_Christ #Love #Priesthood #Prophecy #Restoration #Resurrection

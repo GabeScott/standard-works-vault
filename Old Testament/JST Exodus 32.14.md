@@ -4,6 +4,3 @@
 
 [JST Exodus 32:14](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-ex/32?lang=eng)
 
-
-
-

@@ -1,5 +1,7 @@
 # A Message to the Rising Generation
 
+Spencer W. Kimball
+
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
@@ -28,21 +30,21 @@ Consider this letter from one lovely young woman:
 
 “I wish I could reveal to you the anguish and regret that fill my heart today, the loss of self-respect and the realization that life’s most priceless gift has slipped away from me. I reached out too eagerly for the excitements and thrills of life, and they have turned to ashes in my hands.”
 
-This young woman, unfortunately, discovered that the heaviest burden one may have to bear in this life is “the burden of sin.” (Harold B. Lee, “Stand Ye in Holy Places,” *Ensign,* July 1973, p. 122.)
+This young woman, unfortunately, discovered that the heaviest burden one may have to bear in this life is “the burden of sin.” (Harold B. Lee, “Stand Ye in Holy Places,” *Ensign,* July 1973, p. 122.)
 
 You can avoid that burden and all of the attending heartaches if you will but heed the standards laid down for you through the teaching of the Lord’s servants. One of the standards on which your happiness is based, now and in your future, is moral purity.
 
 The world would tell you that this standard is old-fashioned and out of date. The world would have you accept a so-called *new morality,* which is nothing more than immorality. Our living prophet has reaffirmed that the eternal standard of chastity has not changed. Here are his words:
 
-“The world may have its norm; the Church has a different one. … The world may countenance premarital sex experiences, but the Lord and His church condemn in no uncertain terms any and every sex relationship outside of marriage, and even indecent and uncontrolled ones within marriage. And so, though many self-styled authorities justify these practices as a normal release, the Church condemns them. … Such unholy practices were condemned by ancient prophets and are today condemned by the Church.” (Spencer W. Kimball, *Faith Precedes the Miracle,* Deseret Book Co., 1972, p. 175.)
+“The world may have its norm; the Church has a different one. … The world may countenance premarital sex experiences, but the Lord and His church condemn in no uncertain terms any and every sex relationship outside of marriage, and even indecent and uncontrolled ones within marriage. And so, though many self-styled authorities justify these practices as a normal release, the Church condemns them. … Such unholy practices were condemned by ancient prophets and are today condemned by the Church.” (Spencer W. Kimball, *Faith Precedes the Miracle,* Deseret Book Co., 1972, p. 175.)
 
 This standard means keeping yourselves clean in body and mind. The Church has no double standard of morality. The moral code of heaven for both men and women is complete chastity before marriage and full fidelity after marriage.
 
 For you young men and women not yet married, this uniform standard for men and women has been clearly defined by President Kimball:
 
-“Among the most common sexual sins our young people commit are necking and petting. Not only do these improper relations often lead to fornication, pregnancy, and abortions—all ugly sins—but in and of themselves they are pernicious evils, and it is often difficult for youth to distinguish where one ends and another begins. They awaken lust and stir evil thoughts and sex desires. They are but parts of the whole family of related sins and indiscretions.” (Spencer W. Kimball, *The Miracle of Forgiveness,* Bookcraft, 1969, p. 65.)
+“Among the most common sexual sins our young people commit are necking and petting. Not only do these improper relations often lead to fornication, pregnancy, and abortions—all ugly sins—but in and of themselves they are pernicious evils, and it is often difficult for youth to distinguish where one ends and another begins. They awaken lust and stir evil thoughts and sex desires. They are but parts of the whole family of related sins and indiscretions.” (Spencer W. Kimball, *The Miracle of Forgiveness,* Bookcraft, 1969, p. 65.)
 
-In the church and kingdom of God, chastity will never be out of date, regardless of what the world may do or say. So we say to you, young men and women—maintain your self-respect. Do not engage in intimacies that bring heartache and sorrow. You cannot build happy lives on immorality. “The first condition of happiness,” said President David O. McKay, “is a clear conscience.” (*Gospel Ideals,* Salt Lake City: The Improvement Era, 1953, p. 498.)
+In the church and kingdom of God, chastity will never be out of date, regardless of what the world may do or say. So we say to you, young men and women—maintain your self-respect. Do not engage in intimacies that bring heartache and sorrow. You cannot build happy lives on immorality. “The first condition of happiness,” said President David O. McKay, “is a clear conscience.” (*Gospel Ideals,* Salt Lake City: The Improvement Era, 1953, p. 498.)
 
 Second, I counsel you to stay close to your parents. There are some things which come only with mature adulthood, and one of these is wisdom. Young people, you need the wisdom of age, just as some of us older ones need your enthusiasm for life.
 
@@ -76,9 +78,9 @@ A few days later he came back. He said, “Brother Benson, that’s the sweetest
 
 Draw close to Dad and Mom. When family prayer and home evening are suggested, don’t pull away. Join in and make it real. Do your part to develop real family unity and family solidarity. In such homes there is no generation gap. This is another tool of the adversary—to drive children and parents apart. Yes, keep close to Dad and Mom.
 
-Third, I counsel you, in the words of Jesus Christ, to “watch and pray always lest ye enter into temptation; for Satan desireth to have you, that he may sift you as wheat.” ([[3 Nephi 18.18|3 Ne. 18:18]].)
+Third, I counsel you, in the words of Jesus Christ, to “watch and pray always lest ye enter into temptation; for Satan desireth to have you, that he may sift you as wheat.” ([[3 Nephi 18.18|3 Ne. 18:18]].)
 
-If you will earnestly seek guidance from your Heavenly Father, morning and evening, you will be given the strength to shun any temptation. President Heber J. Grant gave this timeless promise to the youth of the Church:
+If you will earnestly seek guidance from your Heavenly Father, morning and evening, you will be given the strength to shun any temptation. President Heber J. Grant gave this timeless promise to the youth of the Church:
 
 “I have little or no fear for the boy or the girl, the young man or the young woman, who *honestly and conscientiously supplicate God twice a day for the guidance of His Spirit.* I am sure that when temptation comes they will have the strength to overcome it by the inspiration that shall be given to them. Supplicating the Lord for the guidance of His Spirit places around us a safeguard, and if we earnestly and honestly seek the guidance of the Spirit of the Lord, I can assure you that we will receive it.” (*Gospel Standards,* Salt Lake City: The Improvement Era, 1969, p. 26; italics added.)
 
@@ -112,8 +114,3 @@ I pray that you—the young and rising generation—will keep your bodies and mi
 
 
 
-
-
-
-
-#Character #Morality #Parents #Prayer #Standards #Youth

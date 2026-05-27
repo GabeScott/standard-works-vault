@@ -1,5 +1,7 @@
 # In Search of Treasure
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -153,8 +155,3 @@ In the name of Jesus Christ, amen.
 
 [^8]: [[Matthew 6.19|Matthew 6:19–21]][[Matthew 6.20|]][[Matthew 6.21|]].
 
-
-
-
-
-#Joy #Love #Preparation #Priorities #Sacrifice

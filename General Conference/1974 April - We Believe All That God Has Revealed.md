@@ -1,6 +1,8 @@
 # We Believe All That God Has Revealed
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -54,7 +56,7 @@ Now, I add with emphasis that such changes have been basically minor refinements
 
 Why are they not spoken of over the pulpit? Simply because by comparison they are so insignificant, and unimportant as literally to be not worth talking about. After all, they have absolutely nothing to do with whether the books are true.
 
-After compiling some of the revelations, the ancient prophet Moroni said, “… if there be faults they be the faults of a man. But behold, we know no fault; nevertheless God knoweth all things; therefore, he that condemneth, let him be aware lest he shall be in danger of hell fire.” ([[Mormon 8.17|Morm. 8:17]].) “And whoso receiveth this record, and shall not condemn it because of the imperfections which are in it, the same shall know of greater things than these. …” ([[Mormon 8.12|Morm. 8:12]].)
+After compiling some of the revelations, the ancient prophet Moroni said, “… if there be faults they be the faults of a man. But behold, we know no fault; nevertheless God knoweth all things; therefore, he that condemneth, let him be aware lest he shall be in danger of hell fire.” ([[Mormon 8.17|Morm. 8:17]].) “And whoso receiveth this record, and shall not condemn it because of the imperfections which are in it, the same shall know of greater things than these. …” ([[Mormon 8.12|Morm. 8:12]].)
 
 A man might take a stone and, in order to verify precisely what it is, subject it to a test to identify slate or sandstone. After conducting these tests, he may conclude his research with the statement: “I did not discover that it was a diamond.”
 
@@ -62,7 +64,7 @@ His conclusion, though accurate, has nothing to do with whether or not it is a d
 
 After, and only after, he subjects the stone to the correct formula can he know for sure. Until then, his conclusion, “I did not discover it to be a diamond,” is relatively useless information.
 
-There has, over the years, been an endless procession of those who would examine these revelations by every formula save the right one. Each becomes evidence, as Paul said, “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned.” ([[1 Corinthians 2.14|1 Cor. 2:14]].)
+There has, over the years, been an endless procession of those who would examine these revelations by every formula save the right one. Each becomes evidence, as Paul said, “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned.” ([[1 Corinthians 2.14|1 Cor. 2:14]].)
 
 These scriptural diamonds, as we have described them, will stand the test. As surely as a man may determine whether a purported diamond is genuine by subjecting it to well-known tests for diamonds, the scriptures may be subjected to well-known tests for scriptures.
 
@@ -78,27 +80,27 @@ Many an academic giant is at once a spiritual pygmy and, if so, he is usually a 
 
 Beware of the testimony of one who is intemperate, or irreverent, or immoral, who tears down and has nothing to put in its place.
 
-The prophet Nephi said, “… wherefore, the guilty taketh the truth to be hard, for it cutteth them to the very center.” ([[1 Nephi 16.2|1 Ne. 16:2]].)
+The prophet Nephi said, “… wherefore, the guilty taketh the truth to be hard, for it cutteth them to the very center.” ([[1 Nephi 16.2|1 Ne. 16:2]].)
 
 This ancient prophet said that he was not “mighty in writing, like unto speaking; for when a man speaketh by the power of the Holy Ghost the power of the Holy Ghost carrieth it unto the hearts of the children of men.
 
-“But behold, there are many that harden their hearts against the Holy Spirit, that it hath no place in them; wherefore, they cast many things away which are written and esteem them as things of naught.” ([[2 Nephi 33.1|2 Ne. 33:1–2]][[2 Nephi 33.2|]].)
+“But behold, there are many that harden their hearts against the Holy Spirit, that it hath no place in them; wherefore, they cast many things away which are written and esteem them as things of naught.” ([[2 Nephi 33.1|2 Ne. 33:1–2]][[2 Nephi 33.2|]].)
 
 He further said that the words that he had written were to persuade men to do good and “speaketh of Jesus, and persuadeth them to believe in him, and to endure to the end, which is life eternal.
 
-“And it speaketh harshly against sin, according to the plainness of the truth; wherefore, no man will be angry at the words which I have written save he shall be of the spirit of the devil.” ([[2 Nephi 33.4|2 Ne. 33:4–5]][[2 Nephi 33.5|]].)
+“And it speaketh harshly against sin, according to the plainness of the truth; wherefore, no man will be angry at the words which I have written save he shall be of the spirit of the devil.” ([[2 Nephi 33.4|2 Ne. 33:4–5]][[2 Nephi 33.5|]].)
 
-There is a warning in the New Testament worthy of our attention. Peter and the other apostles were imprisoned by the Sanhedrin. They were released by an angel, but came a second time before that council. They bore testimony that, “… We are his witnesses of these things; and so is also the Holy Ghost, whom God hath given to them that obey him.” ([[Acts 5.32|Acts 5:32]].)
+There is a warning in the New Testament worthy of our attention. Peter and the other apostles were imprisoned by the Sanhedrin. They were released by an angel, but came a second time before that council. They bore testimony that, “… We are his witnesses of these things; and so is also the Holy Ghost, whom God hath given to them that obey him.” ([[Acts 5.32|Acts 5:32]].)
 
 Some of the Sanhedrin sought to kill the apostles, but Gamaliel, a doctor of law, wisely said, “Ye men of Israel, take heed to yourselves what ye intend to do as touching these men.” ([[Acts 5.34|Acts 5:34–35]][[Acts 5.35|]].) He then cited two examples of preachers who “also perished; and all, even as many as obeyed \[them\], were dispersed.
 
-“… Refrain from these men, and let them alone,” Gamaliel cautioned, “… for if this counsel or this work be of men, it will come to nought:
+“… Refrain from these men, and let them alone,” Gamaliel cautioned, “… for if this counsel or this work be of men, it will come to nought:
 
 “But if it be of God, ye cannot overthrow it; lest haply ye be found even to fight against God.” ([[Acts 5.37|Acts 5:37–39]][[Acts 5.38|]][[Acts 5.39|]].)
 
 Revelation continues in the Church: the prophet receiving it for the Church; the president for his stake, his mission, or his quorum; the bishop for his ward; the father for his family; the individual for himself.
 
-Many revelations have been received and are found in evidence in the onrolling work of the Lord. Perhaps one day other revelations which have been received and have been recorded will be published, and we stand in expectation that “… He will yet reveal many great and important things pertaining to the Kingdom of God.” ([[Articles of Faith 1.9|A of F 1:9]].)
+Many revelations have been received and are found in evidence in the onrolling work of the Lord. Perhaps one day other revelations which have been received and have been recorded will be published, and we stand in expectation that “… He will yet reveal many great and important things pertaining to the Kingdom of God.” ([[Articles of Faith 1.9|A of F 1:9]].)
 
 I conclude with a verse in the Doctrine and Covenants which has within it a formula and a promise:
 
@@ -113,8 +115,3 @@ I bear witness that the revelations are true. I have tested them. There sit befo
 
 
 
-
-
-
-
-#Scriptures

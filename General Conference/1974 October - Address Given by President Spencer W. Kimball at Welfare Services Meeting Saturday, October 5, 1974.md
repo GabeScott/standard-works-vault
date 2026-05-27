@@ -1,6 +1,8 @@
 # Address Given by President Spencer W. Kimball at Welfare Services Meeting Saturday, October 5, 1974
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -33,8 +35,3 @@ God bless you, brethren, in this great and holy cause, in the name of Jesus Chri
 
 
 
-
-
-
-
-#Welfare

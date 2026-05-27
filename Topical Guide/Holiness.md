@@ -1,7 +1,6 @@
 # Holiness
 
-
-*See also* [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Holy, Holier, Holiest.md|Holy]]; [[Peculiar People.md|Peculiar People]]; [[Purity, Pure.md|Purity]]; [[Righteousness.md|Righteousness]]; [[Sacred.md|Sacred]]; [[Sanctification, Sanctify.md|Sanctification]]
+*See also* [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[Holy.md|Holy]]; [[Peculiar People.md|Peculiar People]]; [[Purity.md|Purity]]; [[Righteousness.md|Righteousness]]; [[Sacred.md|Sacred]]; [[Sanctification.md|Sanctification]]
 
 who is like thee, glorious in *holiness*, [[Exodus 15.11|Exodus 15:11]].
 
@@ -15,7 +14,7 @@ in the mountain of his *holiness*, [[Psalms 48.1|Psalms 48:1]].
 
 *holiness* becometh thine house, [[Psalms 93.5|Psalms 93:5]].
 
-an highway ... called The way of *holiness*, [[Isaiah 35.8|Isaiah 35:8]].
+an highway … called The way of *holiness*, [[Isaiah 35.8|Isaiah 35:8]].
 
 from the habitation of thy *holiness*, [[Isaiah 63.15|Isaiah 63:15]].
 
@@ -27,7 +26,7 @@ In *holiness* and righteousness before him, [[Luke 1.75|Luke 1:75]].
 
 as though by our own power or *holiness* we had made this man to walk, [[Acts 3.12|Acts 3:12]].
 
-yield your members servants ... unto *holiness*, [[Romans 6.19|Romans 6:19]].
+yield your members servants … unto *holiness*, [[Romans 6.19|Romans 6:19]].
 
 perfecting *holiness* in the fear of God, [[2 Corinthians 7.1|2 Corinthians 7:1]].
 
@@ -45,13 +44,13 @@ judged of him according to the truth and *holiness*, [[2 Nephi 2.10|2 Nephi 2:10
 
 how great the *holiness* of our God, [[2 Nephi 9.20|2 Nephi 9:20]].
 
-shall be brought to see ... the *holiness* of Jesus Christ, [[Mormon 9.5|Mormon 9:5]].
+shall be brought to see … the *holiness* of Jesus Christ, [[Mormon 9.5|Mormon 9:5]].
 
 walking in *holiness* before the Lord, [[D&C 20.69|D&C 20:69]].
 
-give heed ... walking in all *holiness*, [[D&C 21.4|D&C 21:4]].
+give heed … walking in all *holiness*, [[D&C 21.4|D&C 21:4]].
 
-that which the Spirit testifies ... do in all *holiness*, [[D&C 46.7|D&C 46:7]].
+that which the Spirit testifies … do in all *holiness*, [[D&C 46.7|D&C 46:7]].
 
 thy house, a place of thy *holiness*, [[D&C 109.13|D&C 109:13]].
 

@@ -1,6 +1,8 @@
 # Prepared in a Manner That Never Had Been Known
 
-By Linda K. Burton - *Relief Society General President*
+Thomas S. Monson
+
+By Linda K. Burton - *Relief Society General President*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -18,7 +20,7 @@ As we consider the principle of being prepared, imagine with me the following sc
 
 Our cute teenage granddaughter recently left a note for me on my pillow that in part said: “One thing that strikes me as I enter the temple is the peaceful, loving spirit that dwells there. … People can go to the temple to receive inspiration.”[^1] She is right. We can receive inspiration and revelation in the temple—and also power to cope with the adversities of life. What she is learning about the temple as she consistently participates in taking her own family names to do temple baptisms and confirmations will prepare her to receive additional temple ordinances, covenants, and blessings, both for herself and those on the other side of the veil.
 
-Elder Russell M. Nelson taught, “As temples are prepared for the people, the people need to prepare themselves for the temple.”[^2]
+Elder Russell M. Nelson taught, “As temples are prepared for the people, the people need to prepare themselves for the temple.”[^2]
 
 As I am again reading about Captain Moroni in the Book of Mormon, I am reminded that one of Moroni’s greatest accomplishments was his careful preparation of the Nephites to withstand the frightening Lamanite army. He prepared his people so well that we read, “Behold, to \[the Lamanites’\] uttermost astonishment, \[the Nephites\] *were prepared for them, in a manner which never had been known.*”[^3]
 
@@ -32,7 +34,7 @@ In [[Matthew 25.1|Matthew 25]][[Matthew 25.2|]][[Matthew 25.3|]][[Matthew 25.4|]
 
 “Then shall the kingdom of heaven be likened unto ten virgins, which took their lamps, and went forth to meet the bridegroom.
 
-“And five of them were wise, and five were foolish. …
+“And five of them were wise, and five were foolish. …
 
 “\[They that were\] wise took oil in their vessels with their lamps.
 
@@ -54,11 +56,11 @@ In [[Matthew 25.1|Matthew 25]][[Matthew 25.2|]][[Matthew 25.3|]][[Matthew 25.4|]
 
 I don’t think there is anyone, especially among those with tender hearts, who doesn’t feel sad for the foolish young women. And some of us just want to say to the others, “Can’t you just share so everyone can be happy?” But think about it. This is a story the Savior told, and He is the one who calls five of them “wise” and five of them “foolish.”
 
-As we consider this parable as a pattern for temple preparation, consider the words of a latter-day prophet who taught that “the oil of spiritual preparedness cannot be shared.”[^6] President Spencer W. Kimball helped clarify why the five “wise” young women could not share the oil in their lamps with those who were “foolish” when he said: “Attendance at sacrament meetings adds oil to our lamps, drop by drop over the years. Fasting, family prayer, home teaching, control of bodily appetites, preaching the gospel, studying the scriptures—each act of dedication and obedience is a drop added to our store. Deeds of kindness, payment of offerings and tithes, chaste thoughts and actions … —these, too, contribute importantly to the oil with which we can at midnight refuel our exhausted lamps.”[^7]
+As we consider this parable as a pattern for temple preparation, consider the words of a latter-day prophet who taught that “the oil of spiritual preparedness cannot be shared.”[^6] President Spencer W. Kimball helped clarify why the five “wise” young women could not share the oil in their lamps with those who were “foolish” when he said: “Attendance at sacrament meetings adds oil to our lamps, drop by drop over the years. Fasting, family prayer, home teaching, control of bodily appetites, preaching the gospel, studying the scriptures—each act of dedication and obedience is a drop added to our store. Deeds of kindness, payment of offerings and tithes, chaste thoughts and actions … —these, too, contribute importantly to the oil with which we can at midnight refuel our exhausted lamps.”[^7]
 
 Can you see the pattern of preparedness—drop by drop—that can help us as we think how we might be more diligent in our preparation to receive sacred ordinances for ourselves and others? What other small and simple things might we do to add precious spiritual drops of oil to our lamps of preparation?
 
-We learn from Elder Richard G. Scott that “personal worthiness is an essential requirement to enjoy the blessings of the temple. … Worthy character is best forged from a life of consistent, correct choices centered in the teachings of the Master.”[^8] I love the word *consistent.* To be consistent is to be steady, constant, and dependable. What a great description of the principle of worthiness!
+We learn from Elder Richard G. Scott that “personal worthiness is an essential requirement to enjoy the blessings of the temple. … Worthy character is best forged from a life of consistent, correct choices centered in the teachings of the Master.”[^8] I love the word *consistent.* To be consistent is to be steady, constant, and dependable. What a great description of the principle of worthiness!
 
 We are reminded in the Bible Dictionary: “Only the home can compare with the temple in sacredness.”[^9] Do our homes or apartments fit that description? A darling young woman in our ward came to our home recently. Knowing her brother had just returned from his mission, I asked her what it was like to have him back home. She said it was great, but he would occasionally ask if the music could be turned down. She said, “And it wasn’t even *bad* music!” It may be worthwhile for us to check ourselves now and then to make sure our homes are places we are prepared to feel the Spirit. As we prepare our homes to be places where the Spirit is welcome, we will be prepared to feel more “at home” when we enter the house of the Lord.
 
@@ -75,36 +77,31 @@ It is my prayer that for us, going to the temple will be much more than a onetim
 
 
 
-[^1]: Personal note from Aydia Kaylie Melo to Linda K. Burton, Aug. 31, 2014.
+[^1]: Personal note from Aydia Kaylie Melo to Linda K. Burton, Aug. 31, 2014.
 
-[^2]: Russell M. Nelson, “Prepare for the Blessings of the Temple,” *Ensign* or *Liahona,* Oct. 2010, 41.
+[^2]: Russell M. Nelson, “Prepare for the Blessings of the Temple,” *Ensign* or *Liahona,* Oct. 2010, 41.
 
 [^3]: [[Alma 49.8|Alma 49:8]]; emphasis added; see also [[Alma 49.6|verses 6–7]][[Alma 49.7|]].
 
 [^4]: [[D&C 52.14|Doctrine and Covenants 52:14]].
 
-[^5]: [[Matthew 25.1|Matthew 25:1–2, 4–11]][[Matthew 25.2|]][[Matthew 25.4|]][[Matthew 25.5|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]][[Matthew 25.11|]]; Joseph Smith Translation, Matthew 25:12 (in [[Matthew 25.note12a|Matthew 25:12, footnote a]]).
+[^5]: [[Matthew 25.1|Matthew 25:1–2, 4–11]][[Matthew 25.2|]][[Matthew 25.4|]][[Matthew 25.5|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]][[Matthew 25.11|]]; Joseph Smith Translation, Matthew 25:12 (in [Matthew 25:12, footnote a](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/25?lang=eng&id=note12a#note12a)).
 
-[^6]: Marvin J. Ashton, “A Time of Urgency,” *Ensign,* May 1974, 36.
+[^6]: Marvin J. Ashton, “A Time of Urgency,” *Ensign,* May 1974, 36.
 
-[^7]: Spencer W. Kimball, *Faith Precedes the Miracle* (1972), 256.
+[^7]: Spencer W. Kimball, *Faith Precedes the Miracle* (1972), 256.
 
-[^8]: Richard G. Scott, “Receive the Temple Blessings,” *Ensign,* May 1999, 25; *Liahona,* July 1999, 29.
+[^8]: Richard G. Scott, “Receive the Temple Blessings,” *Ensign,* May 1999, 25; *Liahona,* July 1999, 29.
 
-[^9]: Bible Dictionary, “Temple.”
+[^9]: Bible Dictionary, “[[BD Temple|Temple]].”
 
 [^10]: [[D&C 104.2|Doctrine and Covenants 104:2]].
 
-[^11]: Bonnie L. Oscarson, “Greater Expectations” (Seminaries and Institutes of Religion satellite broadcast, Aug. 5, 2014); [lds.org/broadcasts](https://www.churchofjesuschrist.org/broadcasts/archive/satellite-training-broadcast/2014/08); see also [[Luke 12.48|Luke 12:48]]; [[D&C 82.3|Doctrine and Covenants 82:3]].
+[^11]: Bonnie L. Oscarson, “Greater Expectations” (Seminaries and Institutes of Religion satellite broadcast, Aug. 5, 2014); [lds.org/broadcasts](https://www.churchofjesuschrist.org/broadcasts/archive/satellite-training-broadcast/2014/08); see also [[Luke 12.48|Luke 12:48]]; [[D&C 82.3|Doctrine and Covenants 82:3]].
 
-[^12]: Russell M. Nelson, “Personal Preparation for Temple Blessings,” *Ensign,* May 2001, 33; *Liahona,* July 2001, 38.
+[^12]: Russell M. Nelson, “Personal Preparation for Temple Blessings,” *Ensign,* May 2001, 33; *Liahona,* July 2001, 38.
 
 [^13]: [[D&C 33.17|Doctrine and Covenants 33:17]].
 
 [^14]: [[D&C 109.13|Doctrine and Covenants 109:13, 15]][[D&C 109.15|]].
 
-
-
-
-
-#Education #Home #Obedience #Preparation #Temples

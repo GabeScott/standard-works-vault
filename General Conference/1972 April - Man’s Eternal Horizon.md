@@ -1,5 +1,7 @@
 # Man’s Eternal Horizon
 
+Wilford G. Edling
+
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -75,8 +77,3 @@ May we grow in faith through the love and blessing of our Lord and Savior. May w
 
 
 
-
-
-
-
-#Faith #Plan_Of_Salvation #Prayer

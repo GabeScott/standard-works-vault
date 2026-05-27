@@ -1,5 +1,7 @@
 # Rejoice in This Great Era of Temple Building
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
@@ -38,7 +40,7 @@ Their languages have been many, but they have spoken as with one voice in testim
 
 I have been to Mexico a number of times extending over a period of many years. Once our people there seemed so poor, their education so meager. They appeared to be seriously handicapped in many ways.
 
-Now, recently, when the Mexico City Temple was dedicated, they came by the thousands. They were clean, their faces bright and smiling, their clothes neat and attractive. They bore every mark of education and refinement. There was something of greatness apparent in them. Most of them have the blood of Lehi in their veins. The shackles of darkness have fallen from their eyes, as promised by the prophets of the Book of Mormon. They have become “a pure and a delightsome people.” ([[2 Nephi 30.6|2 Ne. 30:6]].) What a wonderfully uplifting experience it was to be with them and to witness the miraculous power of God in their lives.
+Now, recently, when the Mexico City Temple was dedicated, they came by the thousands. They were clean, their faces bright and smiling, their clothes neat and attractive. They bore every mark of education and refinement. There was something of greatness apparent in them. Most of them have the blood of Lehi in their veins. The shackles of darkness have fallen from their eyes, as promised by the prophets of the Book of Mormon. They have become “a pure and a delightsome people.” ([[2 Nephi 30.6|2 Ne. 30:6]].) What a wonderfully uplifting experience it was to be with them and to witness the miraculous power of God in their lives.
 
 I could not hold back the tears when we were in the Philippines. It was my privilege to participate in the opening of missionary work in that land in 1961. At that time we did not have a building of any kind, and we had only one native member of the Church of whom we were aware. In 1984, only twenty-three years later, it was our privilege to dedicate a beautiful temple of the Lord in a choice area of the great metropolis of Manila. I looked into the faces of those thousands of enlightened and faithful Latter-day Saints on whom the Lord is pouring out His blessings in a marvelous and wonderful way. In less than a quarter of a century, from the one native member we found in 1961, the Church has grown to well over a hundred thousand. These are my friends, the people I love, among whom I have worked and to whom I have taught the gospel. The opening of the temple represented the fulness of gospel opportunity for them, the longed-for fruition of their dreams.
 
@@ -64,7 +66,7 @@ It is inconceivable to me that anyone could believe that the God who is the Fath
 
 No, there must be universal opportunity if there is to be universal justice.
 
-Paul’s question to the Corinthian Saints offers scriptural confirmation of the practice of proxy baptism in behalf of the deceased: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
+Paul’s question to the Corinthian Saints offers scriptural confirmation of the practice of proxy baptism in behalf of the deceased: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 The word of Jesus to Nicodemus did not allow for exemption. In each of the temples of The Church of Jesus Christ of Latter-day Saints is a font wherein living proxies may be baptized in behalf of the dead. I do not like to speak of them as “the dead.” I believe that under the great plan of our Eternal Father and through the atonement of Christ, they are living. Though they have died as to their mortal bodies, they have retained their identity as individuals. They are personalities as much so as are we, and as entitled to the blessings that pertain to eternal life. Am I more worthy of these transcendent blessings than are my forebears through whom has come my inheritance?
 
@@ -99,8 +101,3 @@ There are those few who mock our temple work. They may mock the language, but th
 
 
 
-
-
-
-
-#Temples

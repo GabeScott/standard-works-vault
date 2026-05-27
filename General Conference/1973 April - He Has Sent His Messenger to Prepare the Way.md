@@ -1,5 +1,7 @@
 # He Has Sent His Messenger to Prepare the Way
 
+Harold B. Lee
+
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -50,13 +52,13 @@ Then let us consider some other prophecies. For example, the Lord said through I
 
 There are so many marvelous things that have happened in the restoration of the gospel. Take the Book of Mormon, for example. Why, that is a miracle that no man can account for, if he will read it and study it. The greatest criticism of that book has come from those who have never read it. Yet it is full of marvelous truths that no man could have written with the knowledge that was available at the time that book was published.
 
-The Book of Mormon tells us that when Lehi was in the desert, he told his son Joseph that the Lord had promised Joseph who was sold into Egypt that he would raise up a prophet in the latter days from his loins like unto Moses; that his name would be Joseph, his father’s name would be Joseph, and that he should bring forth his word. (See [[2 Nephi 3.6|2 Ne. 3:6, 9, 15]][[2 Nephi 3.9|]][[2 Nephi 3.15|]].) That obviously was the Prophet Joseph Smith. He brought us the Book of Mormon. He brought us the Doctrine and Covenants. He brought us the Pearl of Great Price and many other writings.
+The Book of Mormon tells us that when Lehi was in the desert, he told his son Joseph that the Lord had promised Joseph who was sold into Egypt that he would raise up a prophet in the latter days from his loins like unto Moses; that his name would be Joseph, his father’s name would be Joseph, and that he should bring forth his word. (See [[2 Nephi 3.6|2 Ne. 3:6, 9, 15]][[2 Nephi 3.9|]][[2 Nephi 3.15|]].) That obviously was the Prophet Joseph Smith. He brought us the Book of Mormon. He brought us the Doctrine and Covenants. He brought us the Pearl of Great Price and many other writings.
 
-Then the Lord said: “… unto him will I give power to bring forth my word … and not to the bringing forth my word only, … but to the convincing them of my word, which shall have already gone forth among them.” ([[2 Nephi 3.11|2 Ne. 3:11]].) In other words, he would bring them to a true understanding of the Bible.
+Then the Lord said: “… unto him will I give power to bring forth my word … and not to the bringing forth my word only, … but to the convincing them of my word, which shall have already gone forth among them.” ([[2 Nephi 3.11|2 Ne. 3:11]].) In other words, he would bring them to a true understanding of the Bible.
 
-Then he said, “\[He\] shall bring my people unto salvation.” ([[2 Nephi 3.15|2 Ne. 3:15]].) Why? Because he had the holy priesthood restored so that he could administer the saving ordinances of the gospel. And then the Lord adds, “And I will make him great in mine eyes.” ([[2 Nephi 3.8|2 Ne. 3:8]].) Whatever the world may think of the prophet of this dispensation, the Lord knew he would be great, for he had him in waiting for three thousand years when he promised Joseph that out of his loins he would raise up a prophet in our day.
+Then he said, “\[He\] shall bring my people unto salvation.” ([[2 Nephi 3.15|2 Ne. 3:15]].) Why? Because he had the holy priesthood restored so that he could administer the saving ordinances of the gospel. And then the Lord adds, “And I will make him great in mine eyes.” ([[2 Nephi 3.8|2 Ne. 3:8]].) Whatever the world may think of the prophet of this dispensation, the Lord knew he would be great, for he had him in waiting for three thousand years when he promised Joseph that out of his loins he would raise up a prophet in our day.
 
-I would like to mention an experience to indicate what I think he meant when he said, “… unto him will I give power to bring forth my word … and not to the bringing forth my word only, … but to the convincing them of my word, which shall have already gone forth among them.”
+I would like to mention an experience to indicate what I think he meant when he said, “… unto him will I give power to bring forth my word … and not to the bringing forth my word only, … but to the convincing them of my word, which shall have already gone forth among them.”
 
 While I was on my first mission in Holland, I was invited to speak to a Bible class of businessmen in The Hague. They met every week, holding a Bible class. We met in the home of a prominent furniture dealer; the only woman there was the daughter of the man of the house.
 
@@ -106,23 +108,18 @@ I said that in Canon Frederick William Farrar’s work *Life of Christ* (Cassell
 
 I said, “Do any of you men know why that is in the Bible? Do any of you know any church in the world that does know why it is in the Bible? Well, we know all about it.” And then I explained the promise to Joseph of a new land in the utmost bounds of the everlasting hills, and in describing that land, Moses uses the word *precious* five times in just a few verses. (See [[Deuteronomy 33.13|Deut. 33:13–16]][[Deuteronomy 33.14|]][[Deuteronomy 33.15|]][[Deuteronomy 33.16|]].)
 
-I said, “Do any of you know where that land of Joseph is?” Then I explained that it was the land of America, and that Jesus visited his people here in America, and he told them that they were the other sheep of whom he spoke to his disciples. (See [[2 Nephi 15.21|2 Ne. 15:21]].) He said that not at any time did the Father command him to tell his disciples who the other sheep were, only that he had other sheep. (See [[3 Nephi 15.15|3 Ne. 15:15–17]][[3 Nephi 15.16|]][[3 Nephi 15.17|]].)
+I said, “Do any of you know where that land of Joseph is?” Then I explained that it was the land of America, and that Jesus visited his people here in America, and he told them that they were the other sheep of whom he spoke to his disciples. (See [[2 Nephi 15.21|2 Ne. 15:21]].) He said that not at any time did the Father command him to tell his disciples who the other sheep were, only that he had other sheep. (See [[3 Nephi 15.15|3 Ne. 15:15–17]][[3 Nephi 15.16|]][[3 Nephi 15.17|]].)
 
-The other passage they couldn’t understand was the one where Paul said, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].) I said, “Do any of you know why that is in the Bible? Do any of you know any church in the world that does know why it is in the Bible?” Then I explained this doctrine to them.
+The other passage they couldn’t understand was the one where Paul said, “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].) I said, “Do any of you know why that is in the Bible? Do any of you know any church in the world that does know why it is in the Bible?” Then I explained this doctrine to them.
 
 I quoted to them the words of Peter following the day of Pentecost, when he said to those who had put to death the Christ, “And he shall send Jesus Christ, which before was preached unto you: Whom the heaven must receive until the times of restitution of all things, which God hath spoken by the mouth of all his holy prophets since the world began.” ([[Acts 3.20|Acts 3:20–21]][[Acts 3.21|]].)
 
 That is not a reformation; that is a restitution. I said, “That is what I have been telling you here for two hours and a half, and you can’t look for the coming of the Savior as was promised by Peter and the prophets until there has been a restitution, and not a reformation.”
 
-When I concluded, the man in charge said, “Mr. Richards, this has been one of the most interesting experiences of my entire life.” That is what Isaiah meant when he said, “… the wisdom of their wise men shall perish, and the understanding of their prudent men shall be hid.” ([[Isaiah 29.14|Isa. 29:14]].)
+When I concluded, the man in charge said, “Mr. Richards, this has been one of the most interesting experiences of my entire life.” That is what Isaiah meant when he said, “… the wisdom of their wise men shall perish, and the understanding of their prudent men shall be hid.” ([[Isaiah 29.14|Isa. 29:14]].)
 
 I bear you my witness that there isn’t a man or a woman in this world who really loves the Lord with all their heart who wouldn’t join this church if they would just take time to find out what it is, for I know that it is God’s eternal truth. He has sent his messenger to prepare the way for his coming. I pray God to bless us and help us all to be missionaries. I leave you my blessing in the name of the Lord Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Missionary_Work #Restoration

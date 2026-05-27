@@ -1,5 +1,7 @@
 # You Never Know Who You May Save
 
+Spencer W. Kimball
+
 By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
@@ -51,8 +53,3 @@ My beloved brothers and sisters, I pray that the Lord may inspire us to be valia
 
 
 
-
-
-
-
-#Missionary_Work #Service

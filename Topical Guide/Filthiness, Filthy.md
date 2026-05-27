@@ -1,7 +1,6 @@
 # Filthiness, Filthy
 
-
-*See also* [[Corrupt.md|Corrupt]]; [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Pollution, Pollute.md|Pollution]]; [[Uncleanness, Unclean.md|Uncleanness]]; [[Whore, Whoredom.md|Whore]]
+*See also* [[Corrupt.md|Corrupt]]; [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Pollution.md|Pollution]]; [[Uncleanness.md|Uncleanness]]; [[Whore.md|Whore]]
 
 carry forth the *filthiness* out of the holy place, [[2 Chronicles 29.5|2 Chronicles 29:5]].
 
@@ -41,7 +40,7 @@ not greedy of *filthy* lucre, [[1 Timothy 3.3|1 Timothy 3:3]] ([[Titus 1.7|Titus
 
 Wherefore lay apart all *filthiness*, [[James 1.21|James 1:21]].
 
-Feed the flock ... willingly; not for *filthy* lucre, [[1 Peter 5.2|1 Peter 5:2]].
+Feed the flock … willingly; not for *filthy* lucre, [[1 Peter 5.2|1 Peter 5:2]].
 
 vexed with the *filthy* conversation, [[2 Peter 2.7|2 Peter 2:7]].
 
@@ -61,13 +60,13 @@ Lamanites, which are not *filthy* like unto you, [[Jacob 3.3|Jacob 3:3]].
 
 blood-thirsty people, full of idolatry and *filthiness*, [[Enos 1.20|Enos 1:20]].
 
-people shall sow *filthiness* ... reap the chaff, [[Mosiah 7.30|Mosiah 7:30]].
+people shall sow *filthiness* … reap the chaff, [[Mosiah 7.30|Mosiah 7:30]].
 
 garments stained with blood and all manner of *filthiness*, [[Alma 5.22|Alma 5:22]].
 
-neither can *filthiness* ... be received into the kingdom, [[Alma 7.21|Alma 7:21]].
+neither can *filthiness* … be received into the kingdom, [[Alma 7.21|Alma 7:21]].
 
-not permitted to enter ... being esteemed as *filthiness*, [[Alma 32.3|Alma 32:3]].
+not permitted to enter … being esteemed as *filthiness*, [[Alma 32.3|Alma 32:3]].
 
 under a consciousness of your *filthiness* before him, [[Mormon 9.4|Mormon 9:4]].
 

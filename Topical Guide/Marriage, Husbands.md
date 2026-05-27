@@ -1,11 +1,10 @@
 # Marriage, Husbands
 
-
 *See also* [[Family.md|Family]]; [[Family, Love within.md|Family, Love within]]; [[Family, Patriarchal.md|Family, Patriarchal]]; [[Marriage, Continuing Courtship in.md|Marriage, Continuing Courtship in]]; [[Marriage, Marry.md|Marriage, Marry]]; [[Marriage, Wives.md|Marriage, Wives]]
 
 shall a *man* leave his father and his mother, [[Genesis 2.24|Genesis 2:24]] ([[Mark 10.7|Mark 10:7]]; [[Moses 3.24|Moses 3:24]]; [[Abraham 5.18|Abraham 5:18]]).
 
-took of the fruit ... and gave also unto her *husband*, [[Genesis 3.6|Genesis 3:6]].
+took of the fruit … and gave also unto her *husband*, [[Genesis 3.6|Genesis 3:6]].
 
 thy desire shall be to thy *husband*, [[Genesis 3.16|Genesis 3:16]] ([[Moses 4.22|Moses 4:22]]).
 
@@ -13,11 +12,11 @@ Isaac entreated the Lord for his *wife*, [[Genesis 25.21|Genesis 25:21]].
 
 a bloody *husband* art thou, [[Exodus 4.25|Exodus 4:25]].
 
-thou shalt not covet thy neighbour's *wife*, [[Exodus 20.17|Exodus 20:17]] ([[D&C 19.25|D&C 19:25]]).
+thou shalt not covet thy neighbour’s *wife*, [[Exodus 20.17|Exodus 20:17]] ([[D&C 19.25|D&C 19:25]]).
 
-man hath taken a new wife ... shall cheer up his *wife*, [[Deuteronomy 24.5|Deuteronomy 24:5]].
+man hath taken a new wife … shall cheer up his *wife*, [[Deuteronomy 24.5|Deuteronomy 24:5]].
 
-*husband's* brother ... perform the duty of an *husband's* brother, [[Deuteronomy 25.5|Deuteronomy 25:5]].
+*husband’s* brother … perform the duty of an *husband’s* brother, [[Deuteronomy 25.5|Deuteronomy 25:5]].
 
 rejoice with the *wife* of thy youth, [[Proverbs 5.18|Proverbs 5:18]].
 
@@ -35,9 +34,9 @@ let none deal treacherously against the *wife* of his youth, [[Malachi 2.15|Mala
 
 Jacob begat Joseph the *husband* of Mary, [[Matthew 1.16|Matthew 1:16]].
 
-Jesus saith ... call thy *husband*, [[John 4.16|John 4:16]].
+Jesus saith … call thy *husband*, [[John 4.16|John 4:16]].
 
-bound by the law to her *husband* ... but if the *husband* be dead, [[Romans 7.2|Romans 7:2]].
+bound by the law to her *husband* … but if the *husband* be dead, [[Romans 7.2|Romans 7:2]].
 
 let every woman have her own *husband*, [[1 Corinthians 7.2|1 Corinthians 7:2]].
 
@@ -51,7 +50,7 @@ how she may please her *husband*, [[1 Corinthians 7.34|1 Corinthians 7:34]].
 
 *head* of the woman is the man, [[1 Corinthians 11.3|1 Corinthians 11:3]].
 
-neither is the *man* without the woman ... in the Lord, [[1 Corinthians 11.11|1 Corinthians 11:11]].
+neither is the *man* without the woman … in the Lord, [[1 Corinthians 11.11|1 Corinthians 11:11]].
 
 Wives, submit yourselves unto your own *husbands*, [[Ephesians 5.22|Ephesians 5:22]] ([[Colossians 3.18|Colossians 3:18]]).
 
@@ -61,9 +60,9 @@ Wives, submit yourselves unto your own *husbands*, [[Ephesians 5.22|Ephesians 5:
 
 wife see that she reverence her *husband*, [[Ephesians 5.33|Ephesians 5:33]].
 
-bishop ... the *husband* of one wife, [[1 Timothy 3.2|1 Timothy 3:2]] ([[Titus 1.6|Titus 1:6]]).
+bishop … the *husband* of one wife, [[1 Timothy 3.2|1 Timothy 3:2]] ([[Titus 1.6|Titus 1:6]]).
 
-teach the young women ... to love their *husbands*, [[Titus 2.4|Titus 2:4]].
+teach the young women … to love their *husbands*, [[Titus 2.4|Titus 2:4]].
 
 obedient to their own *husbands*, [[Titus 2.5|Titus 2:5]].
 
@@ -75,7 +74,7 @@ prepared as a bride adorned for her *husband*, [[Revelation 21.2|Revelation 21:2
 
 shall not any *man* among you have save it be one wife, [[Jacob 2.27|Jacob 2:27]].
 
-mourning ... because of the wickedness ... of their *husbands*, [[Jacob 2.31|Jacob 2:31]].
+mourning … because of the wickedness … of their *husbands*, [[Jacob 2.31|Jacob 2:31]].
 
 broken the hearts of your tender *wives*, [[Jacob 2.35|Jacob 2:35]].
 

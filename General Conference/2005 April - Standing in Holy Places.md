@@ -1,5 +1,7 @@
 # Standing in Holy Places
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -53,7 +55,7 @@ As President Brigham Young taught, “Every moment of \[our lives\] must be holi
 
 [^2]: [[D&C 101.22|D&C 101:22]].
 
-[^3]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^3]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^4]: *Deseret News,* Apr. 2, 1862, 313.
 
@@ -65,7 +67,7 @@ As President Brigham Young taught, “Every moment of \[our lives\] must be holi
 
 [^8]: [[Zechariah 14.20|Zechariah 14:20–21]][[Zechariah 14.21|]].
 
-[^9]: [[2 Corinthians 3.6|2 Corinthians 3:6]].
+[^9]: [[2 Corinthians 3.6|2 Corinthians 3:6]].
 
 [^10]: *Ensign,* Nov. 1995, 53.
 
@@ -73,8 +75,3 @@ As President Brigham Young taught, “Every moment of \[our lives\] must be holi
 
 [^12]: [[Helaman 10.5|Helaman 10:5]].
 
-
-
-
-
-#Home #Obedience #Peace #Temple_Work

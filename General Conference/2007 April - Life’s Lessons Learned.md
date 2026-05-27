@@ -1,5 +1,7 @@
 # Life’s Lessons Learned
 
+Thomas S. Monson
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -121,10 +123,5 @@ My dear brethren, may we set righteous goals and work to achieve them, do what i
 
 [^3]: [[Matthew 7.24|Matthew 7:24, 26]][[Matthew 7.26|]].
 
-[^4]: In Conference Report, Apr. 1995, 95; or *Ensign,* May 1995, 71.
+[^4]: In Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|95]]; or *Ensign,* May 1995, 71.
 
-
-
-
-
-#Courage #Dedication #Goals #Honesty #Obedience #Service

@@ -1,6 +1,8 @@
 # A Haven of Love
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Spencer W. Kimball
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -63,8 +65,3 @@ May the Lord bless these wonderful, special people, and may we be blessed as the
 
 
 
-
-
-
-
-#Welfare

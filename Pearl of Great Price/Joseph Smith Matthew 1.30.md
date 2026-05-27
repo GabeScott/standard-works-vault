@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:30](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.30?lang=eng#p30)
 
 
-[^a]: [[Isaiah 9.19|Isa. 9:19]]; [[Mosiah 9.2|Mosiah 9:2.]]
+[^a]: [[Isaiah 9.19|Isa. 9:19]]; [[Mosiah 9.2|Mosiah 9:2]].  

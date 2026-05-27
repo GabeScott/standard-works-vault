@@ -1,5 +1,7 @@
 # Peace, Be Still
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -59,9 +61,9 @@ In decision making, ask not, “What will others think?” but rather, “What w
 
 Enticements to embrace the demon of **debt** are thrust upon us many times each day. I quote the counsel from President Gordon B. Hinckley:
 
-“I am troubled by the huge consumer installment debt which hangs over the people of the nation, including our own people. …
+“I am troubled by the huge consumer installment debt which hangs over the people of the nation, including our own people. …
 
-“We are beguiled by seductive advertising. Television carries the enticing invitation to borrow up to 125 percent of the value of one’s home. But no mention is made of interest. …
+“We are beguiled by seductive advertising. Television carries the enticing invitation to borrow up to 125 percent of the value of one’s home. But no mention is made of interest. …
 
 “I recognize that it may be necessary to borrow to get a home, of course. But let us buy a home that we can afford and thus ease the payments which will constantly hang over our heads without mercy or respite for as long as 30 years.”[^5]
 
@@ -79,7 +81,7 @@ In the interpretation of Lehi’s dream, we find a rather apt description of the
 
 A modern-day Apostle, Hugh B. Brown, has declared, “Any immodesty inducing impure thoughts is a desecration of the body—that temple in which the Holy Spirit may dwell.”[^8]
 
-I commend to you tonight a jewel from the *Improvement Era.* It was published in 1917 but is equally applicable here and now: “The current and common custom of indecency in dress, the flood of immoral fiction in printed literature, in the drama, and notably in \[motion\] picture\[s\] … , the toleration of immodesty in every-day conversation and demeanor, are doing deadly work in the fostering of soul-destroying vice.”[^9]
+I commend to you tonight a jewel from the *Improvement Era.* It was published in 1917 but is equally applicable here and now: “The current and common custom of indecency in dress, the flood of immoral fiction in printed literature, in the drama, and notably in \[motion\] picture\[s\] … , the toleration of immodesty in every-day conversation and demeanor, are doing deadly work in the fostering of soul-destroying vice.”[^9]
 
 Alexander Pope, in his inspired *Essay on Man,* declared:
 
@@ -163,11 +165,11 @@ His words in holy writ are sufficient: “Be still, and know that I am God.”[^
 
 [^4]: [[Luke 12.15|Luke 12:15]].
 
-[^5]: In Conference Report, Oct. 1998, 70–71; *Ensign,* Nov. 1998, 53; *Liahona,* Jan. 1999, 65.
+[^5]: In Conference Report, Oct. 1998, [[1998 October - To the Boys and to the Men.md|70–71]]; or *Ensign,* Nov. 1998, 53.
 
-[^6]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]].
+[^6]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]].
 
-[^7]: [[1 Nephi 12.17|1 Nephi 12:17]].
+[^7]: [[1 Nephi 12.17|1 Nephi 12:17]].
 
 [^8]: *The Abundant Life* (1965), 65.
 
@@ -175,7 +177,7 @@ His words in holy writ are sufficient: “Be still, and know that I am God.”[^
 
 [^10]: In John Bartlett, comp., *Familiar Quotations,* 14th ed. (1968), 409.
 
-[^11]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^11]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 [^12]: [[D&C 133.5|D&C 133:5]].
 
@@ -185,8 +187,3 @@ His words in holy writ are sufficient: “Be still, and know that I am God.”[^
 
 [^15]: [[Psalms 46.10|Psalm 46:10]].
 
-
-
-
-
-#Conscience #Financial_Management #Greed #Honesty #Morality #Patience #Peace #Word_Of_Wisdom

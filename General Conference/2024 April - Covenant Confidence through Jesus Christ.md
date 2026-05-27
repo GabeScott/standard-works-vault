@@ -1,5 +1,7 @@
 # Covenant Confidence through Jesus Christ
 
+Dallin H. Oaks
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
@@ -10,7 +12,7 @@ By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 My beloved brothers and sisters, I pray that we may be spiritually renewed by the inspired messages from our leaders this weekend and rejoice in what I love to call “covenant confidence through Jesus Christ.” This confidence is the quiet yet certain assurance of receiving the blessings that God promises for those who keep their covenants and is so needed amid the challenging circumstances of our day.
 
-The construction of new houses of the Lord across the world, under the inspired leadership of President Russell M. Nelson, has caused great rejoicing among Church members and serves as an important symbol of the expansion of the Lord’s kingdom.
+The construction of new houses of the Lord across the world, under the inspired leadership of President Russell M. Nelson, has caused great rejoicing among Church members and serves as an important symbol of the expansion of the Lord’s kingdom.
 
 Reflecting on my awe-inspiring experience at the dedication of the Feather River California Temple last October, I wondered if sometimes we get lost in the excitement of having new temples in our cities and communities and neglect the holier purpose of the sacred covenants made in the temple.
 
@@ -36,7 +38,7 @@ A bishop I know refers to the oldest class in Primary not as a “Primary” cla
 
 Preparation isn’t just for those going to the temple for the first time. We all should be perpetually preparing to go to the house of the Lord. One stake I know has adopted the motto “Home centered, Church supported, and temple bound.” *Bound*[^10] is an interesting word in that it means focused on a direction, but it also means fastened to or secured by, resolved and determined, sure. So being temple bound secures us to the Savior, giving us proper direction and stability while ensuring we have covenant confidence through Jesus Christ. Therefore, all of us should intentionally enhance such binding by having our next appointment scheduled with the Lord in His holy house, whether the temple is near or far away.[^11]
 
-Our dear prophet, President Russell M. Nelson, reminds us about these vital principles by saying: “The temple lies at the center of strengthening our faith and spiritual fortitude because the Savior and His doctrine are the very heart of the temple. Everything taught in the temple, through instruction and through the Spirit, increases our understanding of Jesus Christ. His essential ordinances bind us to Him through sacred priesthood covenants. Then, as we keep our covenants, He endows us with *His* healing, strengthening power. And oh, how we will need His power in the days ahead.”[^12]
+Our dear prophet, President Russell M. Nelson, reminds us about these vital principles by saying: “The temple lies at the center of strengthening our faith and spiritual fortitude because the Savior and His doctrine are the very heart of the temple. Everything taught in the temple, through instruction and through the Spirit, increases our understanding of Jesus Christ. His essential ordinances bind us to Him through sacred priesthood covenants. Then, as we keep our covenants, He endows us with *His* healing, strengthening power. And oh, how we will need His power in the days ahead.”[^12]
 
 The Savior desires that we become prepared to understand, with great clarity, exactly how to act as we make covenants with our Heavenly Father in His name. He wants us to be prepared to experience our privileges, promises, and responsibilities; to be prepared to have the spiritual insights and awakenings that we need in this life. I know that when the Lord sees even a spark of desire or a flicker of righteous effort in our willingness to center our lives on Him and on the ordinances and covenants we make in His house, He will bless us, in His perfect way, with the miracles and tender mercies we need.
 
@@ -55,23 +57,21 @@ The ongoing and accelerating building of temples will continue to excite, inspir
 
 [^3]: [[Hebrews 10.35|Hebrews 10:35]].
 
-[^4]: [[1 Nephi 3.15|1 Nephi 3:15]].
+[^4]: [[1 Nephi 3.15|1 Nephi 3:15]].
 
-[^5]: See [[1 Nephi 4.6|1 Nephi 4:6–38]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]][[1 Nephi 4.18|]][[1 Nephi 4.19|]][[1 Nephi 4.20|]][[1 Nephi 4.21|]][[1 Nephi 4.22|]][[1 Nephi 4.23|]][[1 Nephi 4.24|]][[1 Nephi 4.25|]][[1 Nephi 4.26|]][[1 Nephi 4.27|]][[1 Nephi 4.28|]][[1 Nephi 4.29|]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.36|]][[1 Nephi 4.37|]][[1 Nephi 4.38|]].
+[^5]: See [[1 Nephi 4.6|1 Nephi 4:6–38]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]][[1 Nephi 4.18|]][[1 Nephi 4.19|]][[1 Nephi 4.20|]][[1 Nephi 4.21|]][[1 Nephi 4.22|]][[1 Nephi 4.23|]][[1 Nephi 4.24|]][[1 Nephi 4.25|]][[1 Nephi 4.26|]][[1 Nephi 4.27|]][[1 Nephi 4.28|]][[1 Nephi 4.29|]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.36|]][[1 Nephi 4.37|]][[1 Nephi 4.38|]].
 
-[^6]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^6]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
 [^7]: [[D&C 45.32|Doctrine and Covenants 45:32]].
 
-[^8]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2019, 121–22.
+[^8]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2019, 121–22.
 
 [^9]: [[D&C 121.45|Doctrine and Covenants 121:45]].
 
 [^10]: See *Merriam-Webster.com Dictionary*, “bound.”
 
-[^11]: See Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 114.
+[^11]: See Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 114.
 
+[^12]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94.
 
-
-
-#Adversity #Confidence #Covenants #Jesus_Christ #Temples

@@ -1,6 +1,8 @@
 # “In Mine Own Way”
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -22,7 +24,7 @@ The first concerns a hippie couple who were walking down the street. They both h
 
 I clipped the following from the *Reader’s Digest* some time ago.
 
-“In our friendly neighbor city of St. Augustine great flocks of sea gulls are starving amid plenty. Fishing is still good, but the gulls don’t know how to fish. For generations they have depended on the shrimp fleet to toss them scraps from the nets. Now the fleet has moved. …
+“In our friendly neighbor city of St. Augustine great flocks of sea gulls are starving amid plenty. Fishing is still good, but the gulls don’t know how to fish. For generations they have depended on the shrimp fleet to toss them scraps from the nets. Now the fleet has moved. …
 
 “The shrimpers had created a Welfare State for the … sea gulls. The big birds never bothered to learn how to fish for themselves and they never taught their children to fish. Instead they led their little ones to the shrimp nets.
 
@@ -48,7 +50,7 @@ Now a contrasting clipping entitled, “It’s a Good Thing There Wasn’t Anybo
 
 Now to the Lord’s plan.
 
-“I, the Lord, stretched out the heavens, and built the earth,” He said, “… and all things therein are mine.
+“I, the Lord, stretched out the heavens, and built the earth,” He said, “… and all things therein are mine.
 
 “And it is my purpose to provide for my saints, for all things are mine.
 
@@ -78,7 +80,7 @@ Let us work for what we need. Let us be self-reliant and independent. Salvation 
 
 Paul’s statement, “By grace are ye saved through faith; and that not of yourselves: it is the gift of God: Not of works, lest any man should boast” ([[Ephesians 2.8|Eph. 2:8–9]][[Ephesians 2.9|]]), has been misunderstood. Some have interpreted it to mean that works are not necessary. This is an erroneous conclusion.
 
-The truth is that we are saved by grace only after all we ourselves can do. (See [[2 Nephi 25.23|2 Ne. 25:23]].) There will be no government dole which can get us through the pearly gates. Nor will anybody go into the celestial kingdom who wants to go there on the works of someone else. Every man must go through on his own merits. We might just as well learn this here and now.
+The truth is that we are saved by grace only after all we ourselves can do. (See [[2 Nephi 25.23|2 Ne. 25:23]].) There will be no government dole which can get us through the pearly gates. Nor will anybody go into the celestial kingdom who wants to go there on the works of someone else. Every man must go through on his own merits. We might just as well learn this here and now.
 
 The first principle of action in the Lord’s plan for our temporal salvation is, therefore, to take care of ourselves. This principle is so important that the Lord said to Adam, as he was about to leave the Garden of Eden, “Because thou hast hearkened unto the voice of thy wife, and hast eaten of the fruit of the tree of which I commanded thee, saying—Thou shalt not eat of it, cursed shall be the ground for thy sake; in sorrow shalt thou eat of it all the days of thy life.” ([[Moses 4.23|Moses 4:23]].)
 
@@ -92,7 +94,7 @@ The poor can be exalted when and only when they are enabled to obtain independen
 
 In addition to maintaining our independence and self-respect by means of our own industry, and seeing to it that those to whom we extend Church welfare assistance do likewise to the full extent of their ability, we must never forget to honor our fathers and mothers. Since our obligation to so honor them is often observed in the breach and since the rewards for honoring them are so great and the penalty for failing to do so is so severe, I shall explain our obligation as I did in the October 1974 Welfare Services meeting, in the words of President Clark:
 
-“This principle,” said he, “runs back to Mount Sinai.” It was there as you will remember that Moses received the “ten commandments, and one of them was ‘Honour thy father and thy mother: that thy days may be long upon the land which the Lord thy God giveth thee.’ ([[Exodus 20.12|Ex. 20:12]].) … I call your attention \[first\] to the command and then to the promise: ‘Honour thy father and thy mother’—the command. The promise: ‘That thy days may be long upon the land which the Lord thy God giveth thee.’ …
+“This principle,” said he, “runs back to Mount Sinai.” It was there as you will remember that Moses received the “ten commandments, and one of them was ‘Honour thy father and thy mother: that thy days may be long upon the land which the Lord thy God giveth thee.’ ([[Exodus 20.12|Ex. 20:12]].) … I call your attention \[first\] to the command and then to the promise: ‘Honour thy father and thy mother’—the command. The promise: ‘That thy days may be long upon the land which the Lord thy God giveth thee.’ …
 
 “Israel departed from this command, and in the time of the Savior the Jews had gotten so far away from it that the Lord took occasion to explain it to them and told them what it meant. You remember that on one occasion the Jews—\[that is\] the Scribes and Pharisees—came up from Jerusalem, trying to trick the Savior as usual, so they asked him why his disciples ate with unwashen hands, contrary to the teachings of the traditions of the fathers. The Savior did with them what he so frequently did with those who tried to entrap him, he answered their question by asking another, and the question which he asked of them was:
 
@@ -139,8 +141,3 @@ That the Lord will give us the wisdom and the courage to understand and live by 
 
 
 
-
-
-
-
-#Self-Reliance #Service #Welfare

@@ -1,6 +1,5 @@
 # Lend, Lent
 
-
 *lent* unto them such things as they required, [[Exodus 12.36|Exodus 12:36]].
 
 *lend* money to any of my people that is poor, [[Exodus 22.25|Exodus 22:25]].
@@ -23,8 +22,8 @@ if ye *lend* to them of whom ye hope to receive, [[Luke 6.34|Luke 6:34]].
 
 say unto him, Friend, *lend* me three loaves, [[Luke 11.5|Luke 11:5]].
 
-blessed are those who ... *lend* an ear unto my counsel, [[2 Nephi 28.30|2 Nephi 28:30]].
+blessed are those who … *lend* an ear unto my counsel, [[2 Nephi 28.30|2 Nephi 28:30]].
 
-serve him who has created you from the beginning ... by *lending* you breath, [[Mosiah 2.21|Mosiah 2:21]].
+serve him who has created you from the beginning … by *lending* you breath, [[Mosiah 2.21|Mosiah 2:21]].
 
-every man ... would not borrow neither would he *lend*, [[Ether 14.2|Ether 14:2]].
+every man … would not borrow neither would he *lend*, [[Ether 14.2|Ether 14:2]].

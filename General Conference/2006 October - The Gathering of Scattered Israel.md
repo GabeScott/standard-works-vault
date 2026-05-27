@@ -1,5 +1,7 @@
 # The Gathering of Scattered Israel
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -85,17 +87,17 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^1]: See [[Genesis 12.1|Genesis 12:1–2]][[Genesis 12.2|]]; [[D&C 132.29|D&C 132:29–32]][[D&C 132.30|]][[D&C 132.31|]][[D&C 132.32|]]; [[Abraham 2.6|Abraham 2:6–11]][[Abraham 2.7|]][[Abraham 2.8|]][[Abraham 2.9|]][[Abraham 2.10|]][[Abraham 2.11|]].
 
-[^2]: See [[Genesis 26.1|Genesis 26:1–4, 24, 28]][[Genesis 26.2|]][[Genesis 26.3|]][[Genesis 26.4|]][[Genesis 26.24|]][[Genesis 26.28|]]; [[Genesis 35.9|35:9–13]][[Genesis 35.10|]][[Genesis 35.11|]][[Genesis 35.12|]][[Genesis 35.13|]]; [[Genesis 48.3|48:3–4]][[Genesis 48.4|]]; [[John 8.33|John 8:33, 39]][[John 8.39|]]; [[Acts 3.25|Acts 3:25]]; [[1 Nephi 17.40|1 Nephi 17:40]]; [[2 Nephi 29.14|2 Nephi 29:14]]; [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]]; [[Ether 13.7|Ether 13:7–8]][[Ether 13.8|]]; [[D&C 52.2|D&C 52:2]].
+[^2]: See [[Genesis 26.1|Genesis 26:1–4, 24, 28]][[Genesis 26.2|]][[Genesis 26.3|]][[Genesis 26.4|]][[Genesis 26.24|]][[Genesis 26.28|]]; [[Genesis 35.9|35:9–13]][[Genesis 35.10|]][[Genesis 35.11|]][[Genesis 35.12|]][[Genesis 35.13|]]; [[Genesis 48.3|48:3–4]][[Genesis 48.4|]]; [[John 8.33|John 8:33, 39]][[John 8.39|]]; [[Acts 3.25|Acts 3:25]]; [[1 Nephi 17.40|1 Nephi 17:40]]; [[2 Nephi 29.14|2 Nephi 29:14]]; [[Jacob 5.1|Jacob 5]]; [[Ether 13.7|Ether 13:7–8]][[Ether 13.8|]]; [[D&C 52.2|D&C 52:2]].
 
-[^3]: See, for example, [[1 Nephi 15.12|1 Nephi 15:12–18]][[1 Nephi 15.13|]][[1 Nephi 15.14|]][[1 Nephi 15.15|]][[1 Nephi 15.16|]][[1 Nephi 15.17|]][[1 Nephi 15.18|]].
+[^3]: See, for example, [[1 Nephi 15.12|1 Nephi 15:12–18]][[1 Nephi 15.13|]][[1 Nephi 15.14|]][[1 Nephi 15.15|]][[1 Nephi 15.16|]][[1 Nephi 15.17|]][[1 Nephi 15.18|]].
 
-[^4]: See [[1 Nephi 14.14|1 Nephi 14:14]]; [[1 Nephi 15.14|15:14]]; [[2 Nephi 30.2|2 Nephi 30:2]]; [[Mosiah 24.13|Mosiah 24:13]]; [[3 Nephi 29.3|3 Nephi 29:3]]; [[Mormon 8.15|Mormon 8:15]]; [[D&C 133.26|D&C 133:26–34]][[D&C 133.27|]][[D&C 133.28|]][[D&C 133.29|]][[D&C 133.30|]][[D&C 133.31|]][[D&C 133.32|]][[D&C 133.33|]][[D&C 133.34|]].
+[^4]: See [[1 Nephi 14.14|1 Nephi 14:14]]; [[1 Nephi 15.14|15:14]]; [[2 Nephi 30.2|2 Nephi 30:2]]; [[Mosiah 24.13|Mosiah 24:13]]; [[3 Nephi 29.3|3 Nephi 29:3]]; [[Mormon 8.15|Mormon 8:15]]; [[D&C 133.26|D&C 133:26–34]][[D&C 133.27|]][[D&C 133.28|]][[D&C 133.29|]][[D&C 133.30|]][[D&C 133.31|]][[D&C 133.32|]][[D&C 133.33|]][[D&C 133.34|]].
 
 [^5]: The tribe of Levi provided priests among the people and was not to be numbered as a tribe or to receive tribal inheritance. Two sons of Joseph, Manasseh and Ephraim, were given land inheritances. They were numbered among the tribes, in the stead of their father, Joseph. The number of twelve tribes was thus maintained.
 
 [^6]: [[Leviticus 26.33|Leviticus 26:33]]; see also [[Jeremiah 9.16|Jeremiah 9:16]].
 
-[^7]: See [[Genesis 22.16|Genesis 22:16–18]][[Genesis 22.17|]][[Genesis 22.18|]]; [[3 Nephi 20.1|3 Nephi 20–22]][[3 Nephi 20.2|]][[3 Nephi 20.3|]][[3 Nephi 20.4|]][[3 Nephi 20.5|]][[3 Nephi 20.6|]][[3 Nephi 20.7|]][[3 Nephi 20.8|]][[3 Nephi 20.9|]][[3 Nephi 20.10|]][[3 Nephi 20.11|]][[3 Nephi 20.12|]][[3 Nephi 20.13|]][[3 Nephi 20.14|]][[3 Nephi 20.15|]][[3 Nephi 20.16|]][[3 Nephi 20.17|]][[3 Nephi 20.18|]][[3 Nephi 20.19|]][[3 Nephi 20.20|]][[3 Nephi 20.21|]][[3 Nephi 20.22|]][[3 Nephi 20.23|]][[3 Nephi 20.24|]][[3 Nephi 20.25|]][[3 Nephi 20.26|]][[3 Nephi 20.27|]][[3 Nephi 20.28|]][[3 Nephi 20.29|]][[3 Nephi 20.30|]][[3 Nephi 20.31|]][[3 Nephi 20.32|]][[3 Nephi 20.33|]][[3 Nephi 20.34|]][[3 Nephi 20.35|]][[3 Nephi 20.36|]][[3 Nephi 20.37|]][[3 Nephi 20.38|]][[3 Nephi 20.39|]][[3 Nephi 20.40|]][[3 Nephi 20.41|]][[3 Nephi 20.42|]][[3 Nephi 20.43|]][[3 Nephi 20.44|]][[3 Nephi 20.45|]][[3 Nephi 20.46|]]; [[Abraham 2.10|Abraham 2:10–11]][[Abraham 2.11|]].
+[^7]: See [[Genesis 22.16|Genesis 22:16–18]][[Genesis 22.17|]][[Genesis 22.18|]]; [[3 Nephi 20.1|3 Nephi 20–22]]; [[Abraham 2.10|Abraham 2:10–11]][[Abraham 2.11|]].
 
 [^8]: [[Isaiah 18.2|Isaiah 18:2, 7]][[Isaiah 18.7|]].
 
@@ -105,21 +107,21 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^11]: See [[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]]; [[Mark 16.15|Mark 16:15]].
 
-[^12]: [[2 Thessalonians 2.3|2 Thessalonians 2:3]]. “Falling away” is translated from the Greek *apostasia,* meaning “apostasy.”
+[^12]: [[2 Thessalonians 2.3|2 Thessalonians 2:3]]. “Falling away” is translated from the Greek *apostasia,* meaning “apostasy.”
 
 [^13]: See [[D&C 128.18|D&C 128:18]]; [[D&C 132.45|132:45]].
 
 [^14]: See [[Isaiah 27.6|Isaiah 27:6]].
 
-[^15]: See [[1 Nephi 15.18|1 Nephi 15:18]]; see also [Book of Mormon title page](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng), paragraph 2.
+[^15]: See [[1 Nephi 15.18|1 Nephi 15:18]]; see also [Book of Mormon title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng), paragraph 2.
 
 [^16]: See [[D&C 133.17|D&C 133:17]].
 
-[^17]: [[3 Nephi 21.1|3 Nephi 21:1]].
+[^17]: [[3 Nephi 21.1|3 Nephi 21:1]].
 
-[^18]: See [[Genesis 12.2|Genesis 12:2–3]][[Genesis 12.3|]]; [[Genesis 26.3|26:3–4]][[Genesis 26.4|]]; [[Genesis 35.11|35:11–12]][[Genesis 35.12|]]; and chapter headings for [[3 Nephi 21.1|3 Nephi 21]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]][[3 Nephi 21.8|]][[3 Nephi 21.9|]][[3 Nephi 21.10|]][[3 Nephi 21.11|]][[3 Nephi 21.12|]][[3 Nephi 21.13|]][[3 Nephi 21.14|]][[3 Nephi 21.15|]][[3 Nephi 21.16|]][[3 Nephi 21.17|]][[3 Nephi 21.18|]][[3 Nephi 21.19|]][[3 Nephi 21.20|]][[3 Nephi 21.21|]][[3 Nephi 21.22|]][[3 Nephi 21.23|]][[3 Nephi 21.24|]][[3 Nephi 21.25|]][[3 Nephi 21.26|]][[3 Nephi 21.27|]][[3 Nephi 21.28|]][[3 Nephi 21.29|]]; [[3 Nephi 29.1|29]][[3 Nephi 29.2|]][[3 Nephi 29.3|]][[3 Nephi 29.4|]][[3 Nephi 29.5|]][[3 Nephi 29.6|]][[3 Nephi 29.7|]][[3 Nephi 29.8|]][[3 Nephi 29.9|]].
+[^18]: See [[Genesis 12.2|Genesis 12:2–3]][[Genesis 12.3|]]; [[Genesis 26.3|26:3–4]][[Genesis 26.4|]]; [[Genesis 35.11|35:11–12]][[Genesis 35.12|]]; and chapter headings for [[3 Nephi 21.1|3 Nephi 21]]; [[3 Nephi 29.1|29]].
 
-[^19]: Doctrines relating to the scattering and gathering of the house of Israel are among the earliest lessons taught in the Book of Mormon: “After the house of Israel should be scattered they should be gathered together again; … the natural branches of the olive-tree, or the remnants of the house of Israel, should be grafted in, or come to the knowledge of the true Messiah, their Lord and their Redeemer” ([[1 Nephi 10.14|1 Nephi 10:14]]).
+[^19]: Doctrines relating to the scattering and gathering of the house of Israel are among the earliest lessons taught in the Book of Mormon: “After the house of Israel should be scattered they should be gathered together again; … the natural branches of the olive-tree, or the remnants of the house of Israel, should be grafted in, or come to the knowledge of the true Messiah, their Lord and their Redeemer” ([[1 Nephi 10.14|1 Nephi 10:14]]).
 
 [^20]: See Bruce R. McConkie, *A New Witness for the Articles of Faith* (1985), 554.
 
@@ -137,7 +139,7 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^27]: [[D&C 27.6|D&C 27:6]].
 
-[^28]: It is appropriate that Moses, who first led God’s children to the land of their inheritance, would be the one to commit the keys of the gathering of Israel to the restored Church. Moses had come to Peter, James, and John on the Mount of Transfiguration and there had bestowed upon them the same priesthood keys in their day. At the conference of the Church in April 1840, the Prophet Joseph Smith appointed Orson Hyde to go to Jerusalem and there dedicate the land for the return of the Jews and scattered Israel (see [[2 Nephi 9.2|2 Nephi 9:2]]; [[2 Nephi 10.7|10:7–9]][[2 Nephi 10.8|]][[2 Nephi 10.9|]]; [[2 Nephi 25.16|25:16–17, 20]][[2 Nephi 25.17|]][[2 Nephi 25.20|]]; [[3 Nephi 21.22|3 Nephi 21:22–28]][[3 Nephi 21.23|]][[3 Nephi 21.24|]][[3 Nephi 21.25|]][[3 Nephi 21.26|]][[3 Nephi 21.27|]][[3 Nephi 21.28|]]; [[D&C 29.7|D&C 29:7–8]][[D&C 29.8|]]). On Sunday, October 24, 1841, Elder Hyde knelt on the Mount of Olives and dedicated that land for the gathering of the Jews and of Israel to their ancient inheritance.
+[^28]: It is appropriate that Moses, who first led God’s children to the land of their inheritance, would be the one to commit the keys of the gathering of Israel to the restored Church. Moses had come to Peter, James, and John on the Mount of Transfiguration and there had bestowed upon them the same priesthood keys in their day. At the conference of the Church in April 1840, the Prophet Joseph Smith appointed Orson Hyde to go to Jerusalem and there dedicate the land for the return of the Jews and scattered Israel (see [[2 Nephi 9.2|2 Nephi 9:2]]; [[2 Nephi 10.7|10:7–9]][[2 Nephi 10.8|]][[2 Nephi 10.9|]]; [[2 Nephi 25.16|25:16–17, 20]][[2 Nephi 25.17|]][[2 Nephi 25.20|]]; [[3 Nephi 21.22|3 Nephi 21:22–28]][[3 Nephi 21.23|]][[3 Nephi 21.24|]][[3 Nephi 21.25|]][[3 Nephi 21.26|]][[3 Nephi 21.27|]][[3 Nephi 21.28|]]; [[D&C 29.7|D&C 29:7–8]][[D&C 29.8|]]). On Sunday, October 24, 1841, Elder Hyde knelt on the Mount of Olives and dedicated that land for the gathering of the Jews and of Israel to their ancient inheritance.
 
 [^29]: [[D&C 110.11|D&C 110:11–12]][[D&C 110.12|]].
 
@@ -153,24 +155,19 @@ This work of Almighty God is true. He lives. Jesus is the Christ. This is His Ch
 
 [^35]: See [[D&C 137.6|D&C 137:6–8]][[D&C 137.7|]][[D&C 137.8|]].
 
-[^36]: See [[1 Corinthians 15.29|1 Corinthians 15:29]]; [[1 Peter 4.6|1 Peter 4:6]].
+[^36]: See [[1 Corinthians 15.29|1 Corinthians 15:29]]; [[1 Peter 4.6|1 Peter 4:6]].
 
 [^37]: [[Matthew 10.6|Matthew 10:6]]; [[Matthew 15.24|15:24]].
 
 [^38]: See [[Jeremiah 16.16|Jeremiah 16:16]].
 
-[^39]: [[3 Nephi 20.13|3 Nephi 20:13]].
+[^39]: [[3 Nephi 20.13|3 Nephi 20:13]].
 
 [^40]: See [[D&C 6.6|D&C 6:6]]; [[D&C 11.6|11:6]]; [[D&C 12.6|12:6]]; [[D&C 14.6|14:6]].
 
-[^41]: [[2 Nephi 9.2|2 Nephi 9:2]].
+[^41]: [[2 Nephi 9.2|2 Nephi 9:2]].
 
 [^42]: Bruce R. McConkie, in Conference Report, Mexico City Mexico Area Conference 1972, 45.
 
 [^43]: [[D&C 97.21|D&C 97:21]].
 
-
-
-
-
-#Apostasy #Covenants #House_Of_Israel #Restoration

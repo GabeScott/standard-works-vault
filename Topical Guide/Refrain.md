@@ -1,6 +1,5 @@
 # Refrain
 
-
 Joseph could not *refrain* himself, [[Genesis 45.1|Genesis 45:1]].
 
 I have *refrained* my feet from every evil way, [[Psalms 119.101|Psalms 119:101]].
@@ -17,6 +16,6 @@ let him *refrain* his tongue from evil, [[1 Peter 3.10|1 Peter 3:10]].
 
 *refrain* from idleness, [[Alma 38.12|Alma 38:12]].
 
-in the fear of God ... *refrain* from your iniquities, [[Alma 39.12|Alma 39:12]].
+in the fear of God … *refrain* from your iniquities, [[Alma 39.12|Alma 39:12]].
 
 *refrain* from sin, lest sore judgments fall, [[D&C 82.2|D&C 82:2]].

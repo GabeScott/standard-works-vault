@@ -1,6 +1,8 @@
 # More Joy and Rejoicing
 
-By Elder Marion D. Hanks - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By Elder Marion D. Hanks - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -12,7 +14,7 @@ I come again to the work of the Seventy with greater capacity to appreciate the 
 
 In his great sermon this morning, Elder Hunter referred us to the Savior’s quotations in His response to Lucifer, from scriptures which in His day were already ancient.
 
-“Ye have heard that it was said by them of old time, Thou shalt not kill” ([[Matthew 5.21|Matt. 5:21]]), He said. “But I say unto you …” ([[Matthew 5.22|Matt. 5:22]]), and then He broadened the issue; He spoke of matters which those who listened recognized as applying to them. Probably they had not been guilty of killing, but had they been angry with a brother without cause? “It was said by them of old time, Thou shalt not commit adultery” ([[Matthew 5.27|Matt. 5:27]]). But had His hearers offended God by entertaining this sin in their own hearts?
+“Ye have heard that it was said by them of old time, Thou shalt not kill” ([[Matthew 5.21|Matt. 5:21]]), He said. “But I say unto you …” ([[Matthew 5.22|Matt. 5:22]]), and then He broadened the issue; He spoke of matters which those who listened recognized as applying to them. Probably they had not been guilty of killing, but had they been angry with a brother without cause? “It was said by them of old time, Thou shalt not commit adultery” ([[Matthew 5.27|Matt. 5:27]]). But had His hearers offended God by entertaining this sin in their own hearts?
 
 “Ye have heard that it hath been said, An eye for an eye, and a tooth for tooth:
 
@@ -30,7 +32,7 @@ I have pondered that question in my mind and heart.
 
 Paul wrote of such an one: “Ye ought … to forgive him, and comfort him, lest perhaps \[he\] should be swallowed up with overmuch sorrow.
 
-“Wherefore I beseech you that ye would confirm your love toward him.” ([[2 Corinthians 2.7|2 Cor. 2:7–8]][[2 Corinthians 2.8|]].)
+“Wherefore I beseech you that ye would confirm your love toward him.” ([[2 Corinthians 2.7|2 Cor. 2:7–8]][[2 Corinthians 2.8|]].)
 
 The Lord expects more of the disciple than ordinary response to need, to opportunity, to commandment. He expects more humility, more hearkening, more repenting, more mercy and forgiving and faith, more service and sacrifice.
 
@@ -58,7 +60,7 @@ There are many true disciples who “do more” than some others of us. I think 
 
 Pierre de Chardin wrote, “The day will come when after harnessing the ether, the winds, the tides, gravitation, we shall harness for God the energies of love, and on that day for the second time in the history of the world man will have discovered fire.” (In *Toward the Future.*)
 
-In Alfred Noyes’ *Watchers of the Skies,* there is a conversation between a friend of the learned astronomer Tycho Brahe and a king who has just learned that the earth moves, is a “sky-tossed ball,” and in apprehension speaks: “If earth so lightly move, what of my realm? Oh, what shall now stand sure?” “Naught,” was the answer, “in all this world but love. All else is dreamstuff and shall not endure.” (Alfred Noyes, *The Torch-Bearers Watchers of the Sky,* New York: Frederick A. Stokes Company, 1922, p. 75.)
+In Alfred Noyes’ *Watchers of the Skies,* there is a conversation between a friend of the learned astronomer Tycho Brahe and a king who has just learned that the earth moves, is a “sky-tossed ball,” and in apprehension speaks: “If earth so lightly move, what of my realm? Oh, what shall now stand sure?” “Naught,” was the answer, “in all this world but love. All else is dreamstuff and shall not endure.” (Alfred Noyes, *The Torch-Bearers Watchers of the Sky,* New York: Frederick A. Stokes Company, 1922, p. 75.)
 
 All the law is comprehended in this, that we love God and each other.
 
@@ -73,8 +75,3 @@ God grant that we may make it so. In the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Compassion #Love

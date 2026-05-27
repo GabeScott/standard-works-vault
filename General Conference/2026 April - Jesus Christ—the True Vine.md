@@ -1,5 +1,7 @@
 # Jesus Christ—the True Vine
 
+Dallin H. Oaks
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -39,17 +41,17 @@ In this sacred Easter season, I solemnly testify that Jesus Christ is the True V
 
 [^2]: [[John 15.1|John 15:1, 5]][[John 15.5|]]; see also [[Exodus 3.14|Exodus 3:14]]; [[John 6.35|John 6:35, 51]][[John 6.51|]]; [[John 8.12|8:12, 58]][[John 8.58|]]; [[John 10.14|10:14]]; [[Alma 26.12|Alma 26:12–13]][[Alma 26.13|]]. At least in one instance, Jesus may have also identified Himself as the Lord God of the Old Testament (see [[Exodus 3.14|Exodus 3:14]]; [[John 18.5|John 18:5]]).
 
-[^3]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]; [[2 Nephi 25.23|2 Nephi 25:23]]; [[Ether 12.27|Ether 12:27]].
+[^3]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]; [[2 Nephi 25.23|2 Nephi 25:23]]; [[Ether 12.27|Ether 12:27]].
 
-[^4]: [[1 John 2.6|1 John 2:6]]; see also [[2 Nephi 31.12|2 Nephi 31:12–13]][[2 Nephi 31.13|]]; [[D&C 19.23|Doctrine and Covenants 19:23]]; [[Moses 6.34|Moses 6:34]].
+[^4]: [[1 John 2.6|1 John 2:6]]; see also [[2 Nephi 31.12|2 Nephi 31:12–13]][[2 Nephi 31.13|]]; [[D&C 19.23|Doctrine and Covenants 19:23]]; [[Moses 6.34|Moses 6:34]].
 
-[^5]: [[2 Corinthians 5.17|2 Corinthians 5:17]]; see also [[Romans 8.2|Romans 8:2]]; [[Romans 9.1|9:1]]; [[1 Corinthians 4.10|1 Corinthians 4:10]]; [[1 Corinthians 15.18|15:18–19]][[1 Corinthians 15.19|]]; [[2 Corinthians 2.14|2 Corinthians 2:14]]; [[2 Corinthians 5.20|5:20]]; [[Galatians 3.26|Galatians 3:26–28]][[Galatians 3.27|]][[Galatians 3.28|]]; [[Ephesians 1.12|Ephesians 1:12]]; [[Ephesians 2.10|2:10]]; [[Philippians 2.1|Philippians 2:1]]; [[Philippians 3.3|3:3]]; [[2 Timothy 1.13|2 Timothy 1:13]].
+[^5]: [[2 Corinthians 5.17|2 Corinthians 5:17]]; see also [[Romans 8.2|Romans 8:2]]; [[Romans 9.1|9:1]]; [[1 Corinthians 4.10|1 Corinthians 4:10]]; [[1 Corinthians 15.18|15:18–19]][[1 Corinthians 15.19|]]; [[2 Corinthians 2.14|2 Corinthians 2:14]]; [[2 Corinthians 5.20|5:20]]; [[Galatians 3.26|Galatians 3:26–28]][[Galatians 3.27|]][[Galatians 3.28|]]; [[Ephesians 1.12|Ephesians 1:12]]; [[Ephesians 2.10|2:10]]; [[Philippians 2.1|Philippians 2:1]]; [[Philippians 3.3|3:3]]; [[2 Timothy 1.13|2 Timothy 1:13]].
 
 [^6]: [[John 15.4|John 15:4]].
 
 [^7]: See [[John 15.5|John 15:5]].
 
-[^8]: See [[2 Nephi 28.21|2 Nephi 28:21]].
+[^8]: See [[2 Nephi 28.21|2 Nephi 28:21]].
 
 [^9]: [[Colossians 2.8|Colossians 2:8]].
 
@@ -63,13 +65,11 @@ In this sacred Easter season, I solemnly testify that Jesus Christ is the True V
 
 [^14]: See [[D&C 84.45|Doctrine and Covenants 84:45]]; see also Guide to the Scriptures, “[Light, Light of Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/light-light-of-christ?lang=eng),” “[Truth](https://www.churchofjesuschrist.org/study/scriptures/gs/truth?lang=eng),” Gospel Library; Topical Guide, “[[Jesus Christ, Light of the World|Jesus Christ, Light of the World]].”
 
-[^15]: See [[Isaiah 55.1|Isaiah 55:1, 3, 6, 12]][[Isaiah 55.3|]][[Isaiah 55.6|]][[Isaiah 55.12|]]; [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]; [[Galatians 5.22|Galatians 5:22–23]][[Galatians 5.23|]]; [[3 Nephi 27.20|3 Nephi 27:20]].
+[^15]: See [[Isaiah 55.1|Isaiah 55:1, 3, 6, 12]][[Isaiah 55.3|]][[Isaiah 55.6|]][[Isaiah 55.12|]]; [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]; [[Galatians 5.22|Galatians 5:22–23]][[Galatians 5.23|]]; [[3 Nephi 27.20|3 Nephi 27:20]].
 
 [^16]: [[Luke 24.28|Luke 24:28–29]][[Luke 24.29|]].
 
 [^17]: [[John 15.5|John 15:5]].
 
-[^18]: See [[1 John 2.5|1 John 2:5]].
+[^18]: See [[1 John 2.5|1 John 2:5]].
 
-
-#Discipleship #Jesus_Christ #Truth

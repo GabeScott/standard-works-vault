@@ -1,5 +1,7 @@
 # The Kingdom’s Perfecting Pathway
 
+Gordon B. Hinckley
+
 By Elder Dale E. Miller - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -14,9 +16,9 @@ We declare to the world that the Lord’s kingdom is by no means a closed commun
 
 Listen to the Lord’s voice on the matter: “Behold, I speak unto all who have good desires, and have thrust in their sickle to reap.
 
-“Behold, I am Jesus Christ, the Son of God. I am the life and the light of the world. …
+“Behold, I am Jesus Christ, the Son of God. I am the life and the light of the world. …
 
-“… Verily, verily, I say unto you, that as many as receive me, to them will I give power to become the sons of God, even to them that believe on my name” ([[D&C 11.27|D&C 11:27–28, 30]][[D&C 11.28|]][[D&C 11.30|]]).
+“… Verily, verily, I say unto you, that as many as receive me, to them will I give power to become the sons of God, even to them that believe on my name” ([[D&C 11.27|D&C 11:27–28, 30]][[D&C 11.28|]][[D&C 11.30|]]).
 
 Brothers and sisters, thrusting in our sickles to help build the Lord’s kingdom should be the prime focus of our lives. It seems reasonable to suggest that we each agreed to that in our premortal life. The key decisions pertaining to education, career, marriage, and the very use of our time, talent, and means should prayerfully hinge on how best we serve the Master, building His kingdom and becoming perfected in Him.
 
@@ -38,11 +40,11 @@ As we move towards perfection, it is easy to feel that we fall short. We can tak
 
 As a guide, President Kimball pointed to three fundamentals in bringing Zion into our hearts and presence:
 
-“First, we must eliminate the individual tendency to selfishness that snares the soul, shrinks the heart, and darkens the mind. …
+“First, we must eliminate the individual tendency to selfishness that snares the soul, shrinks the heart, and darkens the mind. …
 
-“Second, we must cooperate completely and work in harmony one with the other. There must be unanimity in our decisions and unity in our actions. …
+“Second, we must cooperate completely and work in harmony one with the other. There must be unanimity in our decisions and unity in our actions. …
 
-“Third, we must lay on the altar and sacrifice whatever is required by the Lord. We begin by offering a ‘broken heart and a contrite spirit.’ We follow this by giving our best effort in our assigned fields of labor and callings. We learn our duty and execute it fully. Finally we consecrate our time, talents, and means as called upon by our file leaders and as prompted by the whisperings of the Spirit” (in Conference Report, Apr. 1978, 123–24; or *Ensign,* May 1978, 81).
+“Third, we must lay on the altar and sacrifice whatever is required by the Lord. We begin by offering a ‘broken heart and a contrite spirit.’ We follow this by giving our best effort in our assigned fields of labor and callings. We learn our duty and execute it fully. Finally we consecrate our time, talents, and means as called upon by our file leaders and as prompted by the whisperings of the Spirit” (in Conference Report, Apr. 1978, [[1978 April - Becoming the Pure in Heart.md|123–24]]; or *Ensign,* May 1978, 81).
 
 The home serves as the great laboratory for practicing and teaching selflessness. And I can think of no better prescription than to continually keep before our eyes the counsel given in the document “The Family: A Proclamation to the World” by the First Presidency and Council of the Twelve Apostles. Just two sentences of this profound counsel create a perfecting pathway within our homes.
 
@@ -57,8 +59,3 @@ Gratefully and joyfully, I am a witness that this is the great kingdom of God on
 
 
 
-
-
-
-
-#Church_Organization #Consecration #Family #Home #Jesus_Christ #Obedience #Parenthood #Plan_Of_Salvation #Pride #Priorities #Sin #Unity #Zion

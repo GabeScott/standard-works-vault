@@ -1,12 +1,14 @@
 # Hearken unto the Voice of God
 
-By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1974/04/hearken-unto-the-voice-of-god?lang=eng)
 
-The Lord said, “… Hearken, O ye nations of the earth, and hear the words of that God who made you.” ([[D&C 43.23|D&C 43:23]].) Godliness in man goes undeveloped without the words of God and his program.
+The Lord said, “… Hearken, O ye nations of the earth, and hear the words of that God who made you.” ([[D&C 43.23|D&C 43:23]].) Godliness in man goes undeveloped without the words of God and his program.
 
 The Lord has commanded and warned man to obey and hearken unto his voice or to be subject to the power and dominion of the devil. The Lord said: “Wherefore, because that Satan rebelled against me, and sought to destroy the agency of man, which I, the Lord God, had given him, and also, that I should give unto him mine own power; by the power of mine Only Begotten, I caused that he should be cast down;
 
@@ -14,23 +16,23 @@ The Lord has commanded and warned man to obey and hearken unto his voice or to b
 
 That is a warning to all mankind. It is very important to know that Satan has power to deceive men and to blind men and to lead men captive at his will, even as many as will not hearken unto the voice of the Lord. Sin and evil come from Satan, and godliness and eternal life in the kingdom of God are from the Lord.
 
-The apostle John said, “He that committeth sin is of the devil; for the devil sinneth from the beginning. …” ([[1 John 3.8|1 Jn. 3:8]].)
+The apostle John said, “He that committeth sin is of the devil; for the devil sinneth from the beginning. …” ([[1 John 3.8|1 Jn. 3:8]].)
 
-Satan with his evil, deceitful, destructive plans was able to turn one-third of the spirits in heaven away from the voice of God and to influence them to follow his satanic voice. The Lord said of Satan: “… a third part of the hosts of heaven turned he away from me because of their agency;
+Satan with his evil, deceitful, destructive plans was able to turn one-third of the spirits in heaven away from the voice of God and to influence them to follow his satanic voice. The Lord said of Satan: “… a third part of the hosts of heaven turned he away from me because of their agency;
 
 “And they were thrust down, and thus came the devil and his angels.” ([[D&C 29.36|D&C 29:36–37]][[D&C 29.37|]].)
 
 They were cast out of the kingdom of God because they had free agency to choose for themselves, and they chose to ignore and disrespect the voice of God and listened and followed the voice of the devil.
 
-Satan and his angels and their God-destroying plan are on earth today, and the Lord said of Satan, “… he goeth up and down, to and fro in the earth, seeking to destroy the souls of men.” ([[D&C 10.27|D&C 10:27]].)
+Satan and his angels and their God-destroying plan are on earth today, and the Lord said of Satan, “… he goeth up and down, to and fro in the earth, seeking to destroy the souls of men.” ([[D&C 10.27|D&C 10:27]].)
 
 The devil tempted Adam and Eve. We are well acquainted with that story. They listened to his deceitful voice, and they were cast out of the Garden of Eden. Because of failure to hearken unto the voice of God, they were subject to the influence of the devil and were cast out.
 
-When the Lord restored his church, he warned man about the power of Satan. This came in the latter days. He said: “… the hour is not yet, but is nigh at hand, when peace shall be taken from the earth, and the devil shall have power over his own dominion.
+When the Lord restored his church, he warned man about the power of Satan. This came in the latter days. He said: “… the hour is not yet, but is nigh at hand, when peace shall be taken from the earth, and the devil shall have power over his own dominion.
 
 “And also the Lord shall have power over his saints, and shall reign in their midst, and shall come down in judgment upon … the world.” ([[D&C 1.35|D&C 1:35–36]][[D&C 1.36|]].)
 
-President Harold B. Lee said, “Today you are witnessing the fulfillment \[of a prophecy concerning Satan’s dominion\]. Today is the day when the devil has power over his own dominion.” (Harold B. Lee, *Decisions for Successful Living,* Deseret Book Co., 1973, p. 221.) That is a prophetic statement from a prophet of God. He also said, “\[Satan\] is the master of deceit, adulteration and counterfeit. There is hardly a human appetite that he has not prostituted to his own evil designs; virtue he betrays into vice; and things invented and designed as benefactors to mankind he diverts to his own ends. No palace of art or temple of music was ever more glamorously decorated,” the prophet continued, “than the hell-holes of Satan that are labeled saloons, bars, road houses and gambling clubs. With blazing neon signs and lighted ‘white ways’ the cheap and the tawdry are dressed in tinseled garb, and with sensuous music from the nether regions issuing forth from such places, the passersby are enticed to partake.” (*Decisions for Successful Living,* p. 155.)
+President Harold B. Lee said, “Today you are witnessing the fulfillment \[of a prophecy concerning Satan’s dominion\]. Today is the day when the devil has power over his own dominion.” (Harold B. Lee, *Decisions for Successful Living,* Deseret Book Co., 1973, p. 221.) That is a prophetic statement from a prophet of God. He also said, “\[Satan\] is the master of deceit, adulteration and counterfeit. There is hardly a human appetite that he has not prostituted to his own evil designs; virtue he betrays into vice; and things invented and designed as benefactors to mankind he diverts to his own ends. No palace of art or temple of music was ever more glamorously decorated,” the prophet continued, “than the hell-holes of Satan that are labeled saloons, bars, road houses and gambling clubs. With blazing neon signs and lighted ‘white ways’ the cheap and the tawdry are dressed in tinseled garb, and with sensuous music from the nether regions issuing forth from such places, the passersby are enticed to partake.” (*Decisions for Successful Living,* p. 155.)
 
 Yes, it is true; the devil continues to deceive and to blind men. It is true; the devil continues to use the children of God to degenerate and destroy their own godliness. He entices them to sell their divine birthright for a pot of porridge. He deceives and lures men to improperly use their passions and appetites to degenerate and weaken their godlike minds. Their minds, then, become subject to the uncontrolled, improper use of the passions and appetites.
 
@@ -68,11 +70,11 @@ We can also overcome the buffetings and temptations of Satan with the word of Go
 
 The devil deceitfully and dishonestly continues to offer man the world and the power of the world if man will but fall down and worship him. The devil wants us to love the world more than we love God. He wants us to be so foolish that we will love the creations of this earth more than the Creator.
 
-The apostle John said, “Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him.” ([[1 John 2.15|1 Jn. 2:15]].)
+The apostle John said, “Love not the world, neither the things that are in the world. If any man love the world, the love of the Father is not in him.” ([[1 John 2.15|1 Jn. 2:15]].)
 
 Jesus said, “For what is a man profited, if he shall gain the whole world, and lose his own soul? or what shall a man give in exchange for his soul?” ([[Matthew 16.26|Matt. 16:26]].) The devil would like man to accept the ways of the world in place of eternal life in the kingdom of God.
 
-Jesus commanded that we protect ourselves from the power and dominion of the devil. He said, “Wherefore, lift up your hearts and rejoice, and gird up your loins, and take upon you my whole armor. …” ([[D&C 27.15|D&C 27:15]].) This has been quoted in this conference several times. But Jesus gave these words in these latter days, repeating words of the scriptures.
+Jesus commanded that we protect ourselves from the power and dominion of the devil. He said, “Wherefore, lift up your hearts and rejoice, and gird up your loins, and take upon you my whole armor. …” ([[D&C 27.15|D&C 27:15]].) This has been quoted in this conference several times. But Jesus gave these words in these latter days, repeating words of the scriptures.
 
 Take on the whole armor of God. The full armor of God is the full gospel of Jesus Christ. If we put on the full armor we will be able, in these troubled times, to “run and not be weary, and \[to\] walk and not faint.” And the destroying angel will pass us by and not be able to destroy our godliness. (See [[D&C 89.20|D&C 89:20–21]][[D&C 89.21|]].)
 
@@ -80,7 +82,7 @@ Jesus counseled, “Pray always, that you may come off conqueror; yea, that you 
 
 In our individual prayers we should sincerely ask our Father in heaven to help us meet and conquer the temptations of this life, and ask him to deliver us from evil. We have been commanded to ask.
 
-Proper sincere prayer to a living Father in heaven, through a living Savior and Mediator, is essential for protection from the power and evil influence of the devil. It is very important for the Saints to know that during today’s perilous times when peace has been taken from the earth, and Satan has power over his own dominion and over all that will not hearken unto the voice of God, that the Lord gave these comforting words, “… The Lord shall have power over his saints, and shall reign in their midst, and shall come down in judgment upon … the world.” ([[D&C 1.36|D&C 1:36]].)
+Proper sincere prayer to a living Father in heaven, through a living Savior and Mediator, is essential for protection from the power and evil influence of the devil. It is very important for the Saints to know that during today’s perilous times when peace has been taken from the earth, and Satan has power over his own dominion and over all that will not hearken unto the voice of God, that the Lord gave these comforting words, “… The Lord shall have power over his saints, and shall reign in their midst, and shall come down in judgment upon … the world.” ([[D&C 1.36|D&C 1:36]].)
 
 Today the Lord has power over his Saints and is reigning in their midst and will soon come down in judgment upon the world. Through and by Jesus Christ man has the power and the opportunity if he keeps God’s commandments to become saintly and godlike.
 
@@ -93,8 +95,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Obedience #Satan #Spirituality

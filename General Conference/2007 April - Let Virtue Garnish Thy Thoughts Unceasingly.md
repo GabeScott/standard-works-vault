@@ -1,5 +1,7 @@
 # Let Virtue Garnish Thy Thoughts Unceasingly
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2007 General Conference*
@@ -36,7 +38,7 @@ You may plan on marriage, and hope for it, but you are not certain that it will 
 
 The next item is the payment of tithing. Glorious is the promise of the Lord concerning those who pay their tithes. He says in modern revelation that they “shall not be burned” (see [[D&C 64.23|D&C 64:23]]).
 
-His great promise is found in the words of Malachi. Said He: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
+His great promise is found in the words of Malachi. Said He: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
 
 “Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it” ([[Malachi 3.8|Malachi 3:8, 10]][[Malachi 3.10|]]).
 
@@ -67,8 +69,3 @@ May the Lord bless you, my dear young sisters; may His blessings attend you at a
 
 
 
-
-
-
-
-#Faith #Prayer #Scriptures #Tithing

@@ -1,6 +1,5 @@
 # Last
 
-
 *See also* [[End.md|End]]; [[Last Days.md|Last Days]]
 
 Lord, the first, and with the *last*, [[Isaiah 41.4|Isaiah 41:4]].
@@ -27,9 +26,9 @@ Alpha and Omega, the first and the *last*, [[Revelation 1.11|Revelation 1:11]].
 
 endure unto the end they shall be lifted up at the *last* day, [[1 Nephi 13.37|1 Nephi 13:37]] ([[1 Nephi 16.2|1 Nephi 16:2]]; [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 37.37|Alma 37:37]]; [[Alma 38.5|Alma 38:5]]; [[3 Nephi 15.1|3 Nephi 15:1]]; [[3 Nephi 27.22|3 Nephi 27:22]]; [[Mormon 2.19|Mormon 2:19]]).
 
-Eternal Father ... the first and the *last*, [[Alma 11.39|Alma 11:39]].
+Eternal Father … the first and the *last*, [[Alma 11.39|Alma 11:39]].
 
-destruction of your souls ... unto the *last* death, [[Alma 12.36|Alma 12:36]].
+destruction of your souls … unto the *last* death, [[Alma 12.36|Alma 12:36]].
 
 expedient that there should be a great and *last* sacrifice, [[Alma 34.10|Alma 34:10]].
 

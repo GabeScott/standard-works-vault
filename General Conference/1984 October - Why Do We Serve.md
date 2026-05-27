@@ -1,5 +1,7 @@
 # Why Do We Serve?
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -8,7 +10,7 @@ By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 My dear brothers and sisters, because it was not appropriate for me to commence my Church service until I had concluded my judicial duties in state government, I did not speak at the April conference where I was sustained. Consequently, this semiannual conference is my first opportunity to speak to the general membership of the Church, to express acceptance of my calling to the Council of the Twelve.
 
-I am thrilled with this calling. Having been “called of God, by prophecy, and by the laying on of hands by those who are in authority” ([[Articles of Faith 1.5|A of F 1:5]]), I have gladly forsaken my professional activities to spend the rest of my days in the service of the Lord. I will devote my whole heart, might, mind, and strength to the great trusts placed in me, especially to the responsibilities of a special witness of the name of Jesus Christ in all the world.
+I am thrilled with this calling. Having been “called of God, by prophecy, and by the laying on of hands by those who are in authority” ([[Articles of Faith 1.5|A of F 1:5]]), I have gladly forsaken my professional activities to spend the rest of my days in the service of the Lord. I will devote my whole heart, might, mind, and strength to the great trusts placed in me, especially to the responsibilities of a special witness of the name of Jesus Christ in all the world.
 
 Many men and women were called to Church service last April. Eight men were called as General Authorities. Six women were called to the presidencies of the Relief Society and Young Women. Over two hundred men were called to serve as bishops, and over seventeen hundred men and women were called as full-time missionaries. In that same month, tens of thousands of others were called as officers and teachers and other workers in the many Church organizations throughout the world. Those called in April joined millions of others already serving in similar capacities in the restored Church.
 
@@ -20,7 +22,7 @@ In latter-day revelation the Lord has commanded that we “succor the weak, lift
 
 Whether our service is to our fellowmen or to God, it is the same. (See [[Mosiah 2.17|Mosiah 2:17]].) If we love him, we should keep his commandments and feed his sheep. (See [[John 21.16|John 21:16–17]][[John 21.17|]].)
 
-When we think of service, we usually think of the acts of our hands. But the scriptures teach that the Lord looks to our thoughts as well as to our acts. One of God’s earliest commandments to Israel was that they should love him and “serve him with all your heart and with all your soul.” ([[Deuteronomy 11.13|Deut. 11:13]].) When the prophet Samuel was sent to Bethlehem to choose and anoint one of the sons of Jesse as a new king for Israel, the Lord told him to reject the first son, though he was a man of fine appearance. The Lord explained, “Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
+When we think of service, we usually think of the acts of our hands. But the scriptures teach that the Lord looks to our thoughts as well as to our acts. One of God’s earliest commandments to Israel was that they should love him and “serve him with all your heart and with all your soul.” ([[Deuteronomy 11.13|Deut. 11:13]].) When the prophet Samuel was sent to Bethlehem to choose and anoint one of the sons of Jesse as a new king for Israel, the Lord told him to reject the first son, though he was a man of fine appearance. The Lord explained, “Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
 
 We are familiar with the proverb which states that as a man “thinketh in his heart, so is he.” ([[Proverbs 23.7|Prov. 23:7]].) We also read in Proverbs: “All the ways of a man are clean in his own eyes; but the Lord weigheth the spirits.” ([[Proverbs 16.2|Prov. 16:2]].)
 
@@ -40,15 +42,15 @@ What are some of the reasons for service? By way of illustration, and without pr
 
 Some may serve for hope of earthly reward. Such a man or woman might serve in Church positions or in private acts of mercy in an effort to achieve prominence or cultivate contacts that would increase income or aid in acquiring wealth. Others might serve in order to obtain worldly honors, prominence, or power.
 
-The scriptures have a word for gospel service “for the sake of riches and honor”; it is “priestcraft.” ([[Alma 1.16|Alma 1:16]].) Nephi said, “Priestcrafts are that men preach and set themselves up for a light unto the world, that they may get gain and praise of the world; but they seek not the welfare of Zion.” ([[2 Nephi 26.29|2 Ne. 26:29]].) In these latter days, we are commanded to “seek to bring forth and establish the cause of Zion.” ([[D&C 6.6|D&C 6:6]].) Unfortunately, not all who accomplish works under that heading are really intending to build up Zion or strengthen the faith of the people of God. Other motives can be at work.
+The scriptures have a word for gospel service “for the sake of riches and honor”; it is “priestcraft.” ([[Alma 1.16|Alma 1:16]].) Nephi said, “Priestcrafts are that men preach and set themselves up for a light unto the world, that they may get gain and praise of the world; but they seek not the welfare of Zion.” ([[2 Nephi 26.29|2 Ne. 26:29]].) In these latter days, we are commanded to “seek to bring forth and establish the cause of Zion.” ([[D&C 6.6|D&C 6:6]].) Unfortunately, not all who accomplish works under that heading are really intending to build up Zion or strengthen the faith of the people of God. Other motives can be at work.
 
 Service that is ostensibly unselfish but is really for the sake of riches or honor surely comes within the Savior’s condemnation of those who “outwardly appear righteous unto men, but within … are full of hypocrisy and iniquity.” ([[Matthew 23.28|Matt. 23:28]].) Such service earns no gospel reward.
 
-“I would that ye should do alms unto the poor,” the Savior declared, “but take heed that ye do not your alms before men to be seen of them; otherwise ye have no reward of your Father who is in heaven.” ([[3 Nephi 13.1|3 Ne. 13:1]]; see also [[Matthew 6.1|Matt. 6:1–2]][[Matthew 6.2|]].) The Savior continued:
+“I would that ye should do alms unto the poor,” the Savior declared, “but take heed that ye do not your alms before men to be seen of them; otherwise ye have no reward of your Father who is in heaven.” ([[3 Nephi 13.1|3 Ne. 13:1]]; see also [[Matthew 6.1|Matt. 6:1–2]][[Matthew 6.2|]].) The Savior continued:
 
-“Therefore, when ye shall do your alms do not sound a trumpet before you, as will hypocrites do in the synagogues and in the streets, that they may have glory of men. Verily I say unto you, they have their reward.” ([[3 Nephi 13.2|3 Ne. 13:2]]; see also [[Matthew 6.2|Matt. 6:2]].)
+“Therefore, when ye shall do your alms do not sound a trumpet before you, as will hypocrites do in the synagogues and in the streets, that they may have glory of men. Verily I say unto you, they have their reward.” ([[3 Nephi 13.2|3 Ne. 13:2]]; see also [[Matthew 6.2|Matt. 6:2]].)
 
-In contrast, those who serve quietly, even “in secret,” qualify for the Savior’s promise that “thy Father, who seeth in secret, shall reward thee openly.” ([[3 Nephi 13.18|3 Ne. 13:18]]; see also [[Matthew 6.4|Matt. 6:4]].)
+In contrast, those who serve quietly, even “in secret,” qualify for the Savior’s promise that “thy Father, who seeth in secret, shall reward thee openly.” ([[3 Nephi 13.18|3 Ne. 13:18]]; see also [[Matthew 6.4|Matt. 6:4]].)
 
 Another reason for service—probably more worthy than the first, but still in the category of service in search of earthly reward—is that motivated by a personal desire to obtain good companionship. We surely have good associations in our Church service, but is that why we serve?
 
@@ -68,7 +70,7 @@ Service of the character I have just described is worthy of praise and will sure
 
 “But this I say, He which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully.
 
-“Every man according as he purposeth in his heart, so let him give; not grudgingly, or of necessity: for God loveth a cheerful giver.” ([[2 Corinthians 9.6|2 Cor. 9:6–7]][[2 Corinthians 9.7|]].)
+“Every man according as he purposeth in his heart, so let him give; not grudgingly, or of necessity: for God loveth a cheerful giver.” ([[2 Corinthians 9.6|2 Cor. 9:6–7]][[2 Corinthians 9.7|]].)
 
 “It is obeying God willingly that is accepted,” an anonymous writer has said. “The Lord hates that which is forced—it is rather a tax than an offering.”
 
@@ -76,13 +78,13 @@ Although those who serve out of fear of punishment or out of a sense of duty und
 
 One such higher reason for service is the hope of an eternal reward. This hope—the expectation of enjoying the fruits of our labors—is one of the most powerful sources of motivation. As a reason for service, it necessarily involves faith in God and in the fulfillment of his prophecies. The scriptures are rich in promises of eternal rewards. For example, in a revelation given through the Prophet Joseph Smith in June 1829, the Lord said: “If you keep my commandments and endure to the end you shall have eternal life, which gift is the greatest of all the gifts of God.” ([[D&C 14.7|D&C 14:7]].)
 
-The last motive I will discuss is, in my opinion, the highest reason of all. In its relationship to service, it is what the scriptures call “a more excellent way.” ([[1 Corinthians 12.31|1 Cor. 12:31]].)
+The last motive I will discuss is, in my opinion, the highest reason of all. In its relationship to service, it is what the scriptures call “a more excellent way.” ([[1 Corinthians 12.31|1 Cor. 12:31]].)
 
 “Charity is the pure love of Christ.” ([[Moroni 7.47|Moro. 7:47]].) The Book of Mormon teaches us that this virtue is “the greatest of all.” ([[Moroni 7.46|Moro. 7:46]].) The Apostle Paul affirmed and illustrated that truth in his great teaching about the reasons for service:
 
-“Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal. …
+“Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal. …
 
-“And though I bestow all my goods to feed the poor, … and have not charity, it profiteth me nothing.” ([[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]].)
+“And though I bestow all my goods to feed the poor, … and have not charity, it profiteth me nothing.” ([[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]].)
 
 We know from these inspired words that even the most extreme acts of service—such as giving all of our goods to feed the poor—profit us nothing unless our service is motivated by the pure love of Christ.
 
@@ -119,8 +121,3 @@ Most of all, I know that God lives, and I know that his Only Begotten Son, Jesus
 
 
 
-
-
-
-
-#Duty #Love #Plan_Of_Salvation #Service

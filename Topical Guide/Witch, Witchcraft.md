@@ -1,6 +1,5 @@
 # Witch, Witchcraft
 
-
 *See also* [[Enchantment.md|Enchantment]]; [[Sorcery.md|Sorcery]]; [[Superstitions.md|Superstitions]]
 
 Thou shalt not suffer a *witch* to live, [[Exodus 22.18|Exodus 22:18]].

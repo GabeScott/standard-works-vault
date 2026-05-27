@@ -1,7 +1,6 @@
 # Christian
 
-
-*See also* [BD Christians](https://www.churchofjesuschrist.org/study/scriptures/bd/christians?lang=eng)
+*See also* [[BD Christians.md|BD Christians]]
 
 disciples were called *Christians* first in Antioch, [[Acts 11.26|Acts 11:26]].
 

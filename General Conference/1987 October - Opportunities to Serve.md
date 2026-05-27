@@ -1,5 +1,7 @@
 # Opportunities to Serve
 
+Ezra Taft Benson
+
 By Elder Franklin D. Richards - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -47,8 +49,3 @@ May the Lord bless him. And may the choice blessings of our Father in Heaven go 
 
 
 
-
-
-
-
-#Church_Growth #Missionary_Work #Service

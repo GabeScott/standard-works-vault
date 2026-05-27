@@ -1,7 +1,6 @@
 # Genealogy and Temple Work
 
-
-*See also* [[Baptism for the Dead.md|Baptism for the Dead]]; [[Book of Remembrance.md|Book of Remembrance]]; [[Endowment, Endow.md|Endowment]]; [[Family, Eternal.md|Family, Eternal]]; [[Marriage, Celestial.md|Marriage, Celestial]]; [[Salvation for the Dead.md|Salvation for the Dead]]
+*See also* [[Baptism for the Dead.md|Baptism for the Dead]]; [[Book of Remembrance.md|Book of Remembrance]]; [[Endowment.md|Endowment]]; [[Family, Eternal.md|Family, Eternal]]; [[Marriage, Celestial.md|Marriage, Celestial]]; [[Salvation for the Dead.md|Salvation for the Dead]]
 
 all Israel were reckoned by *genealogies*, [[1 Chronicles 9.1|1 Chronicles 9:1]] ([[Ezra 2.62|Ezra 2:62]]; [[Nehemiah 7.64|Nehemiah 7:64]]).
 
@@ -9,9 +8,9 @@ Let us go into the *house* of the Lord, [[Psalms 122.1|Psalms 122:1]].
 
 to bring out the *prisoners* from the prison, [[Isaiah 42.7|Isaiah 42:7]].
 
-in mine *house* ... I will give them an everlasting name, [[Isaiah 56.5|Isaiah 56:5]].
+in mine *house* … I will give them an everlasting name, [[Isaiah 56.5|Isaiah 56:5]].
 
-shew them the form of the *house* ... and all the ordinances thereof, [[Ezekiel 43.11|Ezekiel 43:11]].
+shew them the form of the *house* … and all the ordinances thereof, [[Ezekiel 43.11|Ezekiel 43:11]].
 
 *saviours* shall come up on mount Zion, [[Obadiah 1.21|Obadiah 1:21]].
 
@@ -35,7 +34,7 @@ they without us should not be made *perfect*, [[Hebrews 11.40|Hebrews 11:40]].
 
 gospel *preached* also to them that are dead, [[1 Peter 4.6|1 Peter 4:6]].
 
-plates ... which contained the *genealogy* of my father, [[1 Nephi 3.12|1 Nephi 3:12]] ([[1 Nephi 5.14|1 Nephi 5:14]]; [[Alma 37.3|Alma 37:3]]).
+plates … which contained the *genealogy* of my father, [[1 Nephi 3.12|1 Nephi 3:12]] ([[1 Nephi 5.14|1 Nephi 5:14]]; [[Alma 37.3|Alma 37:3]]).
 
 Zarahemla gave a *genealogy* of his fathers, [[Omni 1.18|Omni 1:18]].
 
@@ -57,7 +56,7 @@ unless there is a welding *link* of some kind, [[D&C 128.18|D&C 128:18]].
 
 book containing the *records* of our dead, [[D&C 128.24|D&C 128:24]].
 
-he that receiveth a fulness thereof must ... abide the *law*, [[D&C 132.6|D&C 132:6]].
+he that receiveth a fulness thereof must … abide the *law*, [[D&C 132.6|D&C 132:6]].
 
 whatsoever you *seal* on earth shall be sealed in heaven, [[D&C 132.46|D&C 132:46]].
 
@@ -68,5 +67,3 @@ great work to be done in the *temples* of the Lord, [[D&C 138.48|D&C 138:48]].
 *genealogy* was kept of the children of God, [[Moses 6.8|Moses 6:8]].
 
 spirits as were in *prison* came forth, [[Moses 7.57|Moses 7:57]].
-
-*See also* [[Exodus 22.16|Exodus 22:16]]; [[Job 8.8|Job 8:8]]; [[1 Timothy 1.4|1 Timothy 1:4]]; [[Moses 6.46|Moses 6:46]].

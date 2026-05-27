@@ -1,5 +1,7 @@
 # Confide in God Unwaveringly
 
+Bonnie H. Cordon
+
 By Elder Ulisses Soares - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
@@ -8,11 +10,11 @@ By Elder Ulisses Soares - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/confide-in-god-unwaveringly?lang=eng)
 
-Dear brothers and sisters, I want to begin my message today by testifying that I know that President Thomas S. Monson is the prophet of God in our day. His counselors in the First Presidency and the Twelve Apostles are also, in fact, prophets, seers, and revelators. They represent the Lord Jesus Christ and have the right to declare His mind and will as it is revealed to them. I testify that there is safety in following their counsel. The Lord is inspiring them to emphasize strengthening our faith in Heavenly Father and in His Son, Jesus Christ, and in His Atonement so that we will not waver as we face the challenges of our day.
+Dear brothers and sisters, I want to begin my message today by testifying that I know that President Thomas S. Monson is the prophet of God in our day. His counselors in the First Presidency and the Twelve Apostles are also, in fact, prophets, seers, and revelators. They represent the Lord Jesus Christ and have the right to declare His mind and will as it is revealed to them. I testify that there is safety in following their counsel. The Lord is inspiring them to emphasize strengthening our faith in Heavenly Father and in His Son, Jesus Christ, and in His Atonement so that we will not waver as we face the challenges of our day.
 
 In the Book of Mormon, we read about a man named Ammon who was sent from the land of Zarahemla to the land of Lehi-Nephi to inquire concerning his brethren. There he found King Limhi and his people, who were in bondage to the Lamanites. King Limhi was encouraged by the things Ammon shared with him about his people in Zarahemla. His heart was filled with such great hope and joy that he gathered his people to the temple and said:
 
-“Therefore, lift up your heads, and rejoice, and put your trust in God. …
+“Therefore, lift up your heads, and rejoice, and put your trust in God. …
 
 “… If ye will turn to the Lord with full purpose of heart, … and serve him with all diligence of mind, … he will, according to his own will and pleasure, deliver you out of bondage.”[^1]
 
@@ -32,9 +34,9 @@ King Limhi likewise urged, “Turn to the Lord with full purpose of heart, … s
 
 Listen to the Savior’s own words as He entreats us:
 
-“Let not your heart be troubled: ye believe in God, believe also in me. …
+“Let not your heart be troubled: ye believe in God, believe also in me. …
 
-“If ye love me, keep my commandments. …
+“If ye love me, keep my commandments. …
 
 “He that hath my commandments, and keepeth them, he it is that loveth me: and he that loveth me shall be loved of my Father, and I will love him, and will manifest myself to him.”[^9]
 
@@ -75,7 +77,7 @@ I say these things in the sacred name of Jesus Christ, amen.
 
 [^3]: See [[Abraham 3.25|Abraham 3:25]].
 
-[^4]: See [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]]; [[2 Nephi 31.20|2 Nephi 31:20]].
+[^4]: See [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]]; [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^5]: [[John 16.33|John 16:33]].
 
@@ -87,15 +89,13 @@ I say these things in the sacred name of Jesus Christ, amen.
 
 [^9]: [[John 14.1|John 14:1, 15, 21]][[John 14.15|]][[John 14.21|]].
 
-[^10]: See [[2 Nephi 27.23|2 Nephi 27:23]]; [[Alma 37.40|Alma 37:40]]; [[Ether 12.29|Ether 12:29]].
+[^10]: See [[2 Nephi 27.23|2 Nephi 27:23]]; [[Alma 37.40|Alma 37:40]]; [[Ether 12.29|Ether 12:29]].
 
 [^11]: See [[D&C 58.3|Doctrine and Covenants 58:3]].
 
-[^12]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^12]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^13]: [[Moroni 7.12|Moroni 7:12]].
 
+[^14]: “Not Now but in the Coming Years,” translated from “Agora Não, mas Logo Mais,” *Hymns* (Portuguese), no. 156.
 
-
-
-#Adversity #Faith #Jesus_Christ #Trust

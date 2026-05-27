@@ -1,6 +1,8 @@
 # Trust Again
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -52,7 +54,7 @@ As a brother with pornography concerns waits outside his stake president’s off
 
 While our individual circumstances are personal, gospel principles and the Holy Ghost can help us know if, how, and when to trust in others again. When trust is broken or betrayed, disappointment and disillusionment are real; so is the need for discernment to know when faith and courage are merited to trust again in human relations.
 
-Yet, with respect to God and personal revelation, President Russell M. Nelson assures, “You do not have to wonder whom you can safely trust.”[^6] We can always trust God. The Lord knows us better and loves us more than we know or love ourselves. His infinite love and perfect knowledge of past, present, and future make His covenants and promises constant and sure.
+Yet, with respect to God and personal revelation, President Russell M. Nelson assures, “You do not have to wonder whom you can safely trust.”[^6] We can always trust God. The Lord knows us better and loves us more than we know or love ourselves. His infinite love and perfect knowledge of past, present, and future make His covenants and promises constant and sure.
 
 Trust what the scriptures call “in process of time.”[^7] With God’s blessing, process of time, and continuing faith and obedience, we can find resolution and peace.
 
@@ -74,7 +76,7 @@ The Apostle Paul asks, “Who shall separate us from the love of Christ?” He a
 
 By divine love and divine law, we are responsible for our choices and their consequences. But our Savior’s atoning love is “infinite and eternal.”[^20] When we are ready to come home, even when we are “yet a great way off,”[^21] God is ready with great compassion to welcome us, joyfully offering the best He has.[^22]
 
-President J. Reuben Clark said, “I believe that our Heavenly Father wants to save every one of his children, … that in his justice and mercy he will give us the maximum reward for our acts, give us all that he can give, and in the reverse, I believe that he will impose upon us the minimum penalty which it is possible for him to impose.”[^23]
+President J. Reuben Clark said, “I believe that our Heavenly Father wants to save every one of his children, … that in his justice and mercy he will give us the maximum reward for our acts, give us all that he can give, and in the reverse, I believe that he will impose upon us the minimum penalty which it is possible for him to impose.”[^23]
 
 On the cross, even our Savior’s merciful plea to His Father was not an unconditional “Father, forgive them” but rather “Father, forgive them; for they know not what they do.”[^24] Our agency and freedom have meaning because we are accountable before God and ourselves for who we are, for what we know and do. Thankfully, we can trust God’s perfect justice and perfect mercy to judge perfectly our intents and actions.
 
@@ -103,15 +105,15 @@ Our life journeys are individual, but we can come again to God our Father and Hi
 
 [^5]: See [[D&C 93.24|Doctrine and Covenants 93:24]]; see also [[Jacob 4.13|Jacob 4:13]].
 
-[^6]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 95.
+[^6]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 95.
 
 [^7]: “Zion, in process of time, was taken up into heaven” ([[Moses 7.21|Moses 7:21]]).
 
 [^8]: [[Psalms 30.5|Psalm 30:5]].
 
-[^9]: “[How Gentle God’s Commands](https://churchofjesuschrist.org/study/manual/hymns/how-gentle-gods-commands?lang=eng),” *Hymns*, no. 125; see also [[Psalms 55.22|Psalm 55:22]]: “Cast thy burden upon the Lord, and he shall sustain thee,” which is quoted in “[Cast Thy Burden upon the Lord](https://churchofjesuschrist.org/study/manual/hymns/cast-thy-burden-upon-the-lord?lang=eng),” *Hymns*, no. 110.
+[^9]: “[How Gentle God’s Commands](https://www.churchofjesuschrist.org/study/manual/hymns/how-gentle-gods-commands?lang=eng),” *Hymns*, no. 125; see also [[Psalms 55.22|Psalm 55:22]]: “Cast thy burden upon the Lord, and he shall sustain thee,” which is quoted in “[Cast Thy Burden upon the Lord](https://www.churchofjesuschrist.org/study/manual/hymns/cast-thy-burden-upon-the-lord?lang=eng),” *Hymns*, no. 110.
 
-[^10]: “[Come, Ye Disconsolate](https://churchofjesuschrist.org/study/manual/hymns/come-ye-disconsolate?lang=eng),” *Hymns*, no. 115.
+[^10]: “[Come, Ye Disconsolate](https://www.churchofjesuschrist.org/study/manual/hymns/come-ye-disconsolate?lang=eng),” *Hymns*, no. 115.
 
 [^11]: See [[Alma 5.13|Alma 5:13]].
 
@@ -123,7 +125,7 @@ Our life journeys are individual, but we can come again to God our Father and Hi
 
 [^15]: [[Matthew 10.16|Matthew 10:16]]; see also [[Alma 18.22|Alma 18:22]].
 
-[^16]: See [[3 Nephi 9.20|3 Nephi 9:20]].
+[^16]: See [[3 Nephi 9.20|3 Nephi 9:20]].
 
 [^17]: [[John 3.17|John 3:17]].
 
@@ -137,7 +139,7 @@ Our life journeys are individual, but we can come again to God our Father and Hi
 
 [^22]: The finest robe, ring, shoes, even the fatted calf, as it were (see [[Luke 15.22|Luke 15:22–23]][[Luke 15.23|]]).
 
-[^23]: J. Reuben Clark Jr., in Conference Report, Oct. 1953, 84.
+[^23]: J. Reuben Clark Jr., in Conference Report, Oct. 1953, 84.
 
 [^24]: [[Luke 23.34|Luke 23:34]]; see also [[Matthew 6.12|Matthew 6:12]]—“Forgive us our debts, as we forgive our debtors”—which also relates our ability to be forgiven to our willingness to forgive.
 
@@ -149,10 +151,5 @@ Our life journeys are individual, but we can come again to God our Father and Hi
 
 [^28]: [[Mark 5.36|Mark 5:36]]; see also [[Luke 8.50|Luke 8:50]].
 
-[^29]: See “[Joseph Smith’s First Prayer](https://churchofjesuschrist.org/study/manual/hymns/joseph-smiths-first-prayer?lang=eng),” *Hymns*, no. 26.
+[^29]: See “[Joseph Smith’s First Prayer](https://www.churchofjesuschrist.org/study/manual/hymns/joseph-smiths-first-prayer?lang=eng),” *Hymns*, no. 26.
 
-
-
-
-
-#Faith #Jesus_Christ #Love #Trust

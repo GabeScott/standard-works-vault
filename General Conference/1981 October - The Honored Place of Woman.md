@@ -1,5 +1,7 @@
 # The Honored Place of Woman
 
+Gordon B. Hinckley
+
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -14,7 +16,7 @@ Last April I was privileged to speak to the priesthood brethren on a father’s 
 
 Sound principles and eternal truths need to be frequently repeated so that we do not forget their application nor become dissuaded by other arguments.
 
-The world is increasing in wickedness. Temptations are greater than they have ever been in the memory of any of us. In the face of these conditions—and they will get worse—President Spencer W. Kimball said in an address to Regional Representatives:
+The world is increasing in wickedness. Temptations are greater than they have ever been in the memory of any of us. In the face of these conditions—and they will get worse—President Spencer W. Kimball said in an address to Regional Representatives:
 
 “Relief Society leaders and teachers should ask, how can we help the wife and mother understand the dignity and worth of her role in the divine process of motherhood? How can we help her make her home a place of love and learning, a place of refuge and refinement?” (*Ensign,* May 1978, p. 101.)
 
@@ -70,7 +72,7 @@ A recent national magazine gave these alarming figures: “More than 14 million 
 
 The seeds of divorce are often sown and the problems of children begin when mother works outside the home. You mothers should carefully count the cost before you decide to share breadwinning responsibilities with your husbands. It is a truism that children need more of mother than of money.
 
-President Joseph F. Smith said that “parents in Zion will be held responsible for the acts of their children, not only until they become eight years old but, perhaps, throughout all the lives of their children, provided they have neglected their duty to their children while they were under their care and guidance, and the parents were responsible for them.” (In Conference Report, Apr. 1910, p. 6.)
+President Joseph F. Smith said that “parents in Zion will be held responsible for the acts of their children, not only until they become eight years old but, perhaps, throughout all the lives of their children, provided they have neglected their duty to their children while they were under their care and guidance, and the parents were responsible for them.” (In Conference Report, Apr. 1910, p. 6.)
 
 One of the most stirring success stories in scripture is told in the Book of Mormon of Lamanite women who taught their sons the gospel in the home. These two thousand young men were taught faith in God at their mothers’ knees. Later, they exhibited great faith and courage when they went to war.
 
@@ -159,8 +161,3 @@ May God bless and crown each of you with joy and happiness in this life and thro
 
 
 
-
-
-
-
-#Family #Women

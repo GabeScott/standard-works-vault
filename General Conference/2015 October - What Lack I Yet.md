@@ -1,6 +1,8 @@
 # What Lack I Yet?
 
-By Elder Larry R. Lawrence - *Of the Seventy*
+Rosemary M. Wixom
+
+By Elder Larry R. Lawrence - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -26,7 +28,7 @@ Jesus answered immediately, giving counsel that was intended specifically for th
 
 The young man was stunned; he had never considered such a sacrifice. He was humble enough to ask the Lord but not faithful enough to follow the divine counsel he was given. We must be willing to act when we receive an answer.
 
-President Harold B. Lee taught, “Every one of us, if we would reach perfection, must \[at\] one time ask ourselves this question, ‘What lack I yet?’”[^5]
+President Harold B. Lee taught, “Every one of us, if we would reach perfection, must \[at\] one time ask ourselves this question, ‘What lack I yet?’”[^5]
 
 I knew a faithful mother who humbled herself and asked, “What is keeping me from progressing?” In her case, the response from the Spirit came immediately: “Stop complaining.” This answer surprised her; she had never thought of herself as a complainer. However, the message from the Holy Ghost was very clear. In the days that followed, she became conscious of her habit of complaining. Grateful for the prompting to improve, she determined to count her blessings instead of her challenges. Within days, she felt the warm approval of the Spirit.
 
@@ -58,7 +60,7 @@ Like you, I have received many messages from the Spirit over the years showing m
 
 - And be patient when driving; don’t exceed the speed limit. (I’m still working on that last one.)
 
-The atoning sacrifice of the Savior is what makes perfection or sanctification possible. We could never do it on our own, but God’s grace is sufficient to help us. As Elder David A. Bednar once observed: “Most of us clearly understand that the Atonement is for sinners. I am not so sure, however, that we know and understand that the Atonement is also for saints—for good men and women who are obedient, worthy, and conscientious and who are striving to become better.”[^8]
+The atoning sacrifice of the Savior is what makes perfection or sanctification possible. We could never do it on our own, but God’s grace is sufficient to help us. As Elder David A. Bednar once observed: “Most of us clearly understand that the Atonement is for sinners. I am not so sure, however, that we know and understand that the Atonement is also for saints—for good men and women who are obedient, worthy, and conscientious and who are striving to become better.”[^8]
 
 I would like to suggest that each of you participate in a spiritual exercise sometime soon, perhaps even tonight while saying your prayers. Humbly ask the Lord the following question: “What is keeping me from progressing?” In other words: “What lack I yet?” Then wait quietly for a response. If you are sincere, the answer will soon become clear. It will be revelation intended just for you.
 
@@ -70,7 +72,7 @@ Be persistent, brothers and sisters, but never be discouraged. We will have to g
 
 If spiritual growth is not a priority in our lives, if we are not on a course of steady improvement, we will miss out on the important experiences that God wants to give us.
 
-Years ago I read these words of President Spencer W. Kimball, which had a lasting impact on me. He said: “I have learned that where there is a prayerful heart, a hungering after righteousness, a forsaking of sins, and obedience to the commandments of God, the Lord pours out more and more light until there is finally power to pierce the heavenly veil. … A person of such righteousness has the priceless promise that one day he shall see the Lord’s face and know that he is.”[^10]
+Years ago I read these words of President Spencer W. Kimball, which had a lasting impact on me. He said: “I have learned that where there is a prayerful heart, a hungering after righteousness, a forsaking of sins, and obedience to the commandments of God, the Lord pours out more and more light until there is finally power to pierce the heavenly veil. … A person of such righteousness has the priceless promise that one day he shall see the Lord’s face and know that he is.”[^10]
 
 It is my prayer that this ultimate experience can be ours someday as we allow the Holy Ghost to lead us home. In the name of Jesus Christ, amen.
 
@@ -79,26 +81,21 @@ It is my prayer that this ultimate experience can be ours someday as we allow th
 
 [^1]: [[Matthew 5.48|Matthew 5:48]].
 
-[^2]: Neal A. Maxwell, “Testifying of the Great and Glorious Atonement,” *Ensign,* Oct. 2001, 12; *Liahona,* Apr. 2002, 9.
+[^2]: Neal A. Maxwell, “Testifying of the Great and Glorious Atonement,” *Ensign,* Oct. 2001, 12; *Liahona,* Apr. 2002, 9.
 
 [^3]: [[Matthew 19.20|Matthew 19:20]].
 
 [^4]: [[Matthew 19.21|Matthew 19:21]].
 
-[^5]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 197.
+[^5]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 197.
 
-[^6]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^6]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-[^7]: See [[1 Corinthians 11.28|1 Corinthians 11:28]].
+[^7]: See [[1 Corinthians 11.28|1 Corinthians 11:28]].
 
-[^8]: David A. Bednar, “The Atonement and the Journey of Mortality,” *Ensign,* Apr. 2012, 42; *Liahona,* Apr. 2012, 14.
+[^8]: David A. Bednar, “The Atonement and the Journey of Mortality,” *Ensign,* Apr. 2012, 42; *Liahona,* Apr. 2012, 14.
 
-[^9]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 2:18.
+[^9]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 2:18.
 
-[^10]: Spencer W. Kimball, “Give the Lord Your Loyalty,” *Ensign,* Mar. 1980, 4; *Tambuli,* Feb. 1981, 47.
+[^10]: Spencer W. Kimball, “Give the Lord Your Loyalty,” *Ensign,* Mar. 1980, 4; *Tambuli,* Feb. 1981, 47.
 
-
-
-
-
-#Atonement #Discipleship #Holy_Ghost

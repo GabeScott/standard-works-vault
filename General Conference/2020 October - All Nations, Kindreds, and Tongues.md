@@ -1,6 +1,8 @@
 # All Nations, Kindreds, and Tongues
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -34,7 +36,7 @@ Completed in 1998, the Smith home is reconstructed on its original foundation. T
 
 You remember what the Prophet Joseph recounted:
 
-“\[Moroni\] said … God had a work for me to do; and that my name should be had for good and evil among all nations, kindreds, and tongues. …
+“\[Moroni\] said … God had a work for me to do; and that my name should be had for good and evil among all nations, kindreds, and tongues. …
 
 “\[Moroni\] said there was a book deposited, … that the fulness of the everlasting Gospel was contained in it.”[^12]
 
@@ -54,7 +56,7 @@ In 1823, who would have imagined that in the year 2020 there would be three coun
 
 Or 23 countries each with more than 100,000 members of the Church—three in North America, fourteen in Central and South America, one in Europe, four in Asia, and one in Africa?[^16]
 
-President Russell M. Nelson calls the Book of Mormon “a miraculous miracle.”[^17] Its witnesses testify, “Be it known unto all nations, kindreds, tongues, and people.”[^18] Today, general conference is available in 100 languages. President Nelson has testified of Jesus Christ and His restored gospel in 138 nations and counting.
+President Russell M. Nelson calls the Book of Mormon “a miraculous miracle.”[^17] Its witnesses testify, “Be it known unto all nations, kindreds, tongues, and people.”[^18] Today, general conference is available in 100 languages. President Nelson has testified of Jesus Christ and His restored gospel in 138 nations and counting.
 
 Beginning with 5,000 printed copies of the 1830 first edition of the Book of Mormon, some 192 million copies of all or part of the Book of Mormon have been published in 112 languages. Book of Mormon translations are also widely available digitally. Current Book of Mormon translations include most of the 23 world languages spoken by 50 million people or more, collectively the native tongues of some 4.1 billion people.[^19]
 
@@ -109,17 +111,17 @@ May we joyfully accept God’s invitation to receive and help fulfill His promis
 
 
 
-[^1]: “All your losses will be made up to you in the resurrection, provided you continue faithful” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 51).
+[^1]: “All your losses will be made up to you in the resurrection, provided you continue faithful” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p22#p22)* \[2007\], 51).
 
 [^2]: See [[Mosiah 2.41|Mosiah 2:41]].
 
-[^3]: “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org; see also, for example, [[Alma 26.37|Alma 26:37]].
+[^3]: “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org; see also, for example, [[Alma 26.37|Alma 26:37]].
 
-[^4]: See [[Revelation 14.6|Revelation 14:6]]; [[1 Nephi 19.17|1 Nephi 19:17]]; [[1 Nephi 22.28|22:28]]; [[2 Nephi 30.8|2 Nephi 30:8]]; [[Mosiah 3.20|Mosiah 3:20]]; [[Mosiah 15.28|15:28]]; [[Alma 37.4|Alma 37:4–6]][[Alma 37.5|]][[Alma 37.6|]]; [[3 Nephi 28.29|3 Nephi 28:29]]; [[D&C 42.58|Doctrine and Covenants 42:58]]; [[D&C 133.37|133:37]].
+[^4]: See [[Revelation 14.6|Revelation 14:6]]; [[1 Nephi 19.17|1 Nephi 19:17]]; [[1 Nephi 22.28|22:28]]; [[2 Nephi 30.8|2 Nephi 30:8]]; [[Mosiah 3.20|Mosiah 3:20]]; [[Mosiah 15.28|15:28]]; [[Alma 37.4|Alma 37:4–6]][[Alma 37.5|]][[Alma 37.6|]]; [[3 Nephi 28.29|3 Nephi 28:29]]; [[D&C 42.58|Doctrine and Covenants 42:58]]; [[D&C 133.37|133:37]].
 
 [^5]: See [[John 3.16|John 3:16–17]][[John 3.17|]]; [[John 15.12|15:12]]; [[Romans 8.35|Romans 8:35, 38–39]][[Romans 8.38|]][[Romans 8.39|]].
 
-[^6]: See [[1 Nephi 22.3|1 Nephi 22:3, 9]][[1 Nephi 22.9|]]; [[D&C 45.24|Doctrine and Covenants 45:24–25, 69, 71]][[D&C 45.25|]][[D&C 45.69|]][[D&C 45.71|]]; [[D&C 64.42|64:42]].
+[^6]: See [[1 Nephi 22.3|1 Nephi 22:3, 9]][[1 Nephi 22.9|]]; [[D&C 45.24|Doctrine and Covenants 45:24–25, 69, 71]][[D&C 45.25|]][[D&C 45.69|]][[D&C 45.71|]]; [[D&C 64.42|64:42]].
 
 [^7]: See [[Ephesians 2.19|Ephesians 2:19]].
 
@@ -137,33 +139,33 @@ May we joyfully accept God’s invitation to receive and help fulfill His promis
 
 [^14]: See [[Alma 37.6|Alma 37:6]]; [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-[^15]: Church statistics as of September 3, 2020; “nations and territories” include entities such as Guam, Puerto Rico, and American Samoa.
+[^15]: Church statistics as of September 3, 2020; “nations and territories” include entities such as Guam, Puerto Rico, and American Samoa.
 
 [^16]: The 23 countries are the United States, Mexico, Brazil, the Philippines, Peru, Chile, Argentina, Guatemala, Ecuador, Bolivia, Colombia, Canada, the United Kingdom, Honduras, Nigeria, Venezuela, Australia, Dominican Republic, Japan, El Salvador, New Zealand, Uruguay, and Nicaragua. Australia and New Zealand are included in the four countries in Asia with over 100,000 members. Paraguay has over 96,000 Church members and may be next to join the 100,000-member group.
 
-[^17]: Russell M. Nelson, “The Book of Mormon: A Miraculous Miracle” (address given at the seminar for new mission presidents, June 23, 2016).
+[^17]: Russell M. Nelson, “The Book of Mormon: A Miraculous Miracle” (address given at the seminar for new mission presidents, June 23, 2016).
 
-[^18]: “[The Testimony of Three Witnesses](https://churchofjesuschrist.org/study/scriptures/bofm/three?lang=eng)” and “[The Testimony of Eight Witnesses](https://churchofjesuschrist.org/study/scriptures/bofm/eight?lang=eng),” Book of Mormon.
+[^18]: “[The Testimony of Three Witnesses](https://www.churchofjesuschrist.org/study/scriptures/bofm/three?lang=eng)” and “[The Testimony of Eight Witnesses](https://www.churchofjesuschrist.org/study/scriptures/bofm/eight?lang=eng),” Book of Mormon.
 
 [^19]: Additional translations continue the promise that every man and woman will “hear the fulness of the gospel in his \[or her\] own tongue, and … language” ([[D&C 90.11|Doctrine and Covenants 90:11]]).
 
 [^20]: See [[D&C 122.1|Doctrine and Covenants 122:1]].
 
-[^21]: The titles of the four volumes of *Saints* come from the inspired testimony declaration of the Prophet Joseph in the Wentworth letter—*The Standard of Truth;* *No Unhallowed Hand;* *Boldly, Nobly and Independent;* and *Sounded in Every Ear.*
+[^21]: The titles of the four volumes of *Saints* come from the inspired testimony declaration of the Prophet Joseph in the Wentworth letter—*[The Standard of Truth](https://www.churchofjesuschrist.org/study/history/saints-v1/title-page?lang=eng);* *[No Unhallowed Hand](https://www.churchofjesuschrist.org/study/history/saints-v2/title-page?lang=eng);* *Boldly, Nobly and Independent;* and *Sounded in Every Ear.*
 
-[^22]: See [Saints: The Story of the Church of Jesus Christ in the Latter Days, vol. 1, The Standard of Truth, 1815–1846](https://churchofjesuschrist.org/study/history/saints-v1/07-fellow-servants?lang=eng&id=p22#p22) (2018), 70–71.
+[^22]: See [Saints: The Story of the Church of Jesus Christ in the Latter Days, vol. 1, The Standard of Truth, 1815–1846](https://www.churchofjesuschrist.org/study/history/saints-v1/07-fellow-servants?lang=eng&id=p22#p22) (2018), 70–71.
 
-[^23]: See First Presidency letter, Aug. 14, 2020.
+[^23]: See First Presidency letter, Aug. 14, 2020.
 
-[^24]: See Gerrit W. Gong, “[Seven Ways Religious Inputs and Values Contribute to Practical, Principle-Based Policy Approaches](https://newsroom.churchofjesuschrist.org/article/elder-gong-g20-interfaith-forum-japan-2019-transcript)” (address given at the G20 Interfaith Forum, June 8, 2019), newsroom.ChurchofJesusChrist.org.
+[^24]: See Gerrit W. Gong, “[Seven Ways Religious Inputs and Values Contribute to Practical, Principle-Based Policy Approaches](https://newsroom.churchofjesuschrist.org/article/elder-gong-g20-interfaith-forum-japan-2019-transcript)” (address given at the G20 Interfaith Forum, June 8, 2019), newsroom.ChurchofJesusChrist.org.
 
-[^25]: See Jason Swensen, “LDS Church Celebrates 30 Years in Haiti by Planting Thousands of Trees,” *Deseret News,* May 1, 2013, deseretnews.com.
+[^25]: See Jason Swensen, “LDS Church Celebrates 30 Years in Haiti by Planting Thousands of Trees,” *Deseret News,* May 1, 2013, deseretnews.com.
 
-[^26]: See Pew Research Center, “The Global Religious Landscape,” Dec. 18, 2012, pewforum.org. This “comprehensive demographic study of more than 230 countries and territories … estimates that there are 5.8 billion religiously affiliated adults and children around the globe, representing 84% of the 2010 world population of 6.9 billion.”
+[^26]: See Pew Research Center, “The Global Religious Landscape,” Dec. 18, 2012, pewforum.org. This “comprehensive demographic study of more than 230 countries and territories … estimates that there are 5.8 billion religiously affiliated adults and children around the globe, representing 84% of the 2010 world population of 6.9 billion.”
 
 [^27]: Religious virtues and values anchor and enrich civil society; inspire community, civil engagement, social cohesion, service, and volunteerism; and foster justice, reconciliation, and forgiveness, including helping us to know when and how to hold on and to let go, to know when and what to remember and to forget.
 
-[^28]: In addition to their contributions to Latter-day Saint Charities (see [latterdaysaintcharities.org](https://www.latterdaysaintcharities.org)), which serves as the humanitarian arm of the Church, members of The Church of Jesus Christ of Latter-day Saints join their neighbors and communities in giving of time and means through service in JustServe or Helping Hands projects (see [justserve.org](https://www.justserve.org) and [ChurchofJesusChrist.org/topics/humanitarian-service/helping-hands](https://www.churchofjesuschrist.org/topics/humanitarian-service/helping-hands)) and through the donation of fast offerings (see “[Fasting and Fast Offerings](https://churchofjesuschrist.org/study/manual/gospel-topics/fasting-and-fast-offerings?lang=eng),” Gospel Topics, topics.ChurchofJesusChrist.org). Each of these efforts takes the significant generosity of Church members and friends to bless thousands across the world.
+[^28]: In addition to their contributions to Latter-day Saint Charities (see [latterdaysaintcharities.org](https://www.latterdaysaintcharities.org)), which serves as the humanitarian arm of the Church, members of The Church of Jesus Christ of Latter-day Saints join their neighbors and communities in giving of time and means through service in JustServe or Helping Hands projects (see [justserve.org](https://www.justserve.org) and [ChurchofJesusChrist.org/topics/humanitarian-service/helping-hands](https://www.churchofjesuschrist.org/topics/humanitarian-service/helping-hands)) and through the donation of fast offerings (see “[Fasting and Fast Offerings](https://www.churchofjesuschrist.org/study/manual/gospel-topics/fasting-and-fast-offerings?lang=eng),” Gospel Topics, topics.ChurchofJesusChrist.org). Each of these efforts takes the significant generosity of Church members and friends to bless thousands across the world.
 
 [^29]: [[D&C 98.8|Doctrine and Covenants 98:8]].
 
@@ -173,12 +175,7 @@ May we joyfully accept God’s invitation to receive and help fulfill His promis
 
 [^32]: [[Moroni 8.12|Moroni 8:12]]; see also [[D&C 137.10|Doctrine and Covenants 137:10]].
 
-[^33]: See [[1 Corinthians 15.29|1 Corinthians 15:29]].
+[^33]: See [[1 Corinthians 15.29|1 Corinthians 15:29]].
 
-[^34]: “While of These Emblems We Partake,” *Hymns,* no. 173, verse 3.
+[^34]: “While of These Emblems We Partake,” *Hymns,* no. 173, verse 3.
 
-
-
-
-
-#Book_Of_Mormon #Humanitarian_Aid #Restoration

@@ -1,5 +1,7 @@
 # Slow to Anger
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2007 General Conference*
@@ -88,8 +90,3 @@ May the Lord bless you and inspire you to walk without anger, without bitterness
 
 
 
-
-
-
-
-#Anger #Divorce #Marriage

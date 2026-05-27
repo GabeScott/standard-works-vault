@@ -1,6 +1,5 @@
 # Difference
 
-
 Lord doth put a *difference* between the Egyptians and Israel, [[Exodus 11.7|Exodus 11:7]].
 
 ye may put *difference* between holy and unholy, [[Leviticus 10.10|Leviticus 10:10]].

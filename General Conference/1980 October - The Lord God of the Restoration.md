@@ -1,6 +1,8 @@
 # The Lord God of the Restoration
 
-By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -36,7 +38,7 @@ There are those who apply the names of Deity to some spirit essence that is imma
 
 And there are even those who champion the almost unbelievable theory that God is an eternal student enrolled in the University of the Universe, where he is busily engaged in learning new truths and amassing new and strange knowledge that he never knew before.
 
-How belittling it is—it borders on blasphemy—to demean the Lord God Omnipotent by saying he is an idol, or an image, or an animal, or a spirit essence, or that he is ever learning but never able to come to a knowledge of all truth (see [[2 Timothy 3.7|2 Tim. 3:7]]).
+How belittling it is—it borders on blasphemy—to demean the Lord God Omnipotent by saying he is an idol, or an image, or an animal, or a spirit essence, or that he is ever learning but never able to come to a knowledge of all truth (see [[2 Timothy 3.7|2 Tim. 3:7]]).
 
 It is the first principle of revealed religion to know the nature and kind of being that God is. As for us, “we know \[and testify\] that there is a God in heaven, who is infinite and eternal, from everlasting to everlasting the same unchangeable God, the framer of heaven and earth, and all things which are in them” ([[D&C 20.17|D&C 20:17]]).
 
@@ -58,7 +60,7 @@ We know and testify that Christ “was crucified, died, and rose again the third
 
 We know and testify that salvation is in Christ; that it comes because of his goodness and grace; and that he is our advocate with the Father.
 
-We bear record that he is the only mediator between man and God; that through his atoning sacrifice fallen man may be reconciled with God; and that he “hath abolished death, and hath brought life and immortality to light through the gospel” ([[2 Timothy 1.10|2 Tim. 1:10]]).
+We bear record that he is the only mediator between man and God; that through his atoning sacrifice fallen man may be reconciled with God; and that he “hath abolished death, and hath brought life and immortality to light through the gospel” ([[2 Timothy 1.10|2 Tim. 1:10]]).
 
 We worship the Father, in the name of the Son, by the power of the Holy Ghost, and we invite all men everywhere to come and join with us.
 
@@ -98,15 +100,10 @@ We say: Come worship the Lord in the beauty of holiness. Come worship the Lord, 
 
 Turn ye to the Lord our God. Repent of all your sins. Forsake false doctrines; flee from false gods; seek the truth.
 
-Do not be deceived by the doctrines of men or of devils. Cleave unto the truth and be believing as was the case with those of old for whom the heavens were rent and who made their callings and election sure in the days of their mortal probation (see [[2 Peter 1.10|2 Pet. 1:10]]).
+Do not be deceived by the doctrines of men or of devils. Cleave unto the truth and be believing as was the case with those of old for whom the heavens were rent and who made their callings and election sure in the days of their mortal probation (see [[2 Peter 1.10|2 Pet. 1:10]]).
 
 Oh, God our Father, wilt thou look upon thy children everywhere in love and mercy, grant them repentance, and lead them in thy holy way so they may gain peace in this life and eternal life in the world to come. In the name of the Lord Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Idol_Worship #Restoration

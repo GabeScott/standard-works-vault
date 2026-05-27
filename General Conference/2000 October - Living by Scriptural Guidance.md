@@ -1,5 +1,7 @@
 # Living by Scriptural Guidance
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -68,7 +70,7 @@ Guidance can come when grappling with a serious challenge in life. Years ago, in
 
 “All kingdoms have a law given;
 
-“And there are many kingdoms; for there is no space in the which there is no kingdom; and there is no kingdom in which there is no space. …
+“And there are many kingdoms; for there is no space in the which there is no kingdom; and there is no kingdom in which there is no space. …
 
 “And unto every kingdom is given a law; and unto every law there are certain bounds also and conditions.”[^27] We learned laws that pertained to the “kingdom” of our concern and mastered control that had previously been relegated by ignorance to chance alone.
 
@@ -105,19 +107,19 @@ We all *need* guidance through life. We *obtain* it best from the standard works
 
 [^11]: [[Ezekiel 14.6|Ezek. 14:6]].
 
-[^12]: [[2 Nephi 31.18|2 Ne. 31:18]]; see also [[Matthew 7.14|Matt. 7:14]]; [[Jacob 6.11|Jacob 6:11]]; [[3 Nephi 14.14|3 Ne. 14:14]]; [[3 Nephi 27.33|27:33]]; [[D&C 132.22|D&C 132:22]].
+[^12]: [[2 Nephi 31.18|2 Ne. 31:18]]; see also [[Matthew 7.14|Matt. 7:14]]; [[Jacob 6.11|Jacob 6:11]]; [[3 Nephi 14.14|3 Ne. 14:14]]; [[3 Nephi 27.33|27:33]]; [[D&C 132.22|D&C 132:22]].
 
 [^13]: [[Matthew 4.4|Matt. 4:4]].
 
-[^14]: [[1 Nephi 19.23|1 Ne. 19:23]].
+[^14]: [[1 Nephi 19.23|1 Ne. 19:23]].
 
-[^15]: [[2 Nephi 31.20|2 Ne. 31:20]].
+[^15]: [[2 Nephi 31.20|2 Ne. 31:20]].
 
-[^16]: Scriptures give encouragement to live in accord with the will of our Maker, who said, “If thou turn away … from doing thy pleasure on my holy day; and call the sabbath a delight, the holy of the Lord, … and shalt honour him, not doing thine own ways, nor finding thine own pleasure, … then shalt thou delight thyself in the Lord” ([[Isaiah 58.13|Isa. 58:13–14]][[Isaiah 58.14|]]). Self-esteem is also earned by obedience to God’s commandments regarding chastity (see [[Exodus 20.14|Ex. 20:14]]; [[Leviticus 18.22|Lev. 18:22]]; [[Matthew 5.28|Matt. 5:28]]; [[1 Corinthians 6.9|1 Cor. 6:9]]; [[3 Nephi 12.28|3 Ne. 12:28]]; [[D&C 42.24|D&C 42:24]]; [[D&C 59.6|59:6]]).
+[^16]: Scriptures give encouragement to live in accord with the will of our Maker, who said, “If thou turn away … from doing thy pleasure on my holy day; and call the sabbath a delight, the holy of the Lord, … and shalt honour him, not doing thine own ways, nor finding thine own pleasure, … then shalt thou delight thyself in the Lord” ([[Isaiah 58.13|Isa. 58:13–14]][[Isaiah 58.14|]]). Self-esteem is also earned by obedience to God’s commandments regarding chastity (see [[Exodus 20.14|Ex. 20:14]]; [[Leviticus 18.22|Lev. 18:22]]; [[Matthew 5.28|Matt. 5:28]]; [[1 Corinthians 6.9|1 Cor. 6:9]]; [[3 Nephi 12.28|3 Ne. 12:28]]; [[D&C 42.24|D&C 42:24]]; [[D&C 59.6|59:6]]).
 
-[^17]: [[2 Corinthians 3.3|2 Cor. 3:3]].
+[^17]: [[2 Corinthians 3.3|2 Cor. 3:3]].
 
-[^18]: See [[1 Corinthians 2.11|1 Cor. 2:11–14]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]].
+[^18]: See [[1 Corinthians 2.11|1 Cor. 2:11–14]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]][[1 Corinthians 2.14|]].
 
 [^19]: [[Proverbs 3.6|Prov. 3:6]].
 
@@ -127,9 +129,9 @@ We all *need* guidance through life. We *obtain* it best from the standard works
 
 [^22]: [[Jacob 1.7|Jacob 1:7]]; [[Omni 1.26|Omni 1:26]]; [[Moroni 10.30|Moro. 10:30, 32]][[Moroni 10.32|]].
 
-[^23]: [[D&C 121.45|D&C 121:45]]; see also [[D&C 121.46|v. 46]].
+[^23]: [[D&C 121.45|D&C 121:45]]; see also [[D&C 121.46|v. 46]].
 
-[^24]: As any good thing can be misused, a word of warning may be appropriate. The scriptures don’t have the answers to every question. Many important truths have yet to be revealed. Preoccupation with the so-called “mysteries” should be avoided. Beware also of private interpretation. Look to the living prophets and official policies for interpretation. Don’t judge others whose circumstances are not yours to judge. We are reassured, however, that they who “diligently \[seek\] shall find; and the mysteries of God shall be unfolded unto them, by the power of the Holy Ghost” ([[1 Nephi 10.19|1 Ne. 10:19]]). Keep in mind, too, that many revelations have been given in response to prophetic inquiry.
+[^24]: As any good thing can be misused, a word of warning may be appropriate. The scriptures don’t have the answers to every question. Many important truths have yet to be revealed. Preoccupation with the so-called “mysteries” should be avoided. Beware also of private interpretation. Look to the living prophets and official policies for interpretation. Don’t judge others whose circumstances are not yours to judge. We are reassured, however, that they who “diligently \[seek\] shall find; and the mysteries of God shall be unfolded unto them, by the power of the Holy Ghost” ([[1 Nephi 10.19|1 Ne. 10:19]]). Keep in mind, too, that many revelations have been given in response to prophetic inquiry.
 
 [^25]: See [[Exodus 20.11|Ex. 20:11]]; [[Exodus 31.17|31:17]]; [[Mosiah 13.19|Mosiah 13:19]]; [[D&C 77.12|D&C 77:12]]; [[Abraham 4.31|Abr. 4:31]].
 
@@ -139,8 +141,3 @@ We all *need* guidance through life. We *obtain* it best from the standard works
 
 [^28]: Personal and family scripture study can employ books, recordings, or other material. Those who will establish a time for scripture study and endure in that endeavor will maintain a positive spirit throughout their days.
 
-
-
-
-
-#Endurance #Gratitude #Holy_Ghost #Honesty #Jesus_Christ #Obedience #Peace #Plan_Of_Salvation #Prayer #Repentance #Scripture_Study #Scriptures #Spirituality #Truth

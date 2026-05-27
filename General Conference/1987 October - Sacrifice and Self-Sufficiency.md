@@ -1,5 +1,7 @@
 # Sacrifice and Self-Sufficiency
 
+Ezra Taft Benson
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -90,9 +92,9 @@ Brothers and sisters, how can every member enjoy the thrill and the blessing tha
 
 Let me remind you of President Spencer W. Kimball’s statement on fast offerings:
 
-“Sometimes,” he said, “we have been a bit penurious and figured that we had for breakfast one egg and that cost so many cents and then we give that to the Lord. I think that when we are affluent, as many of us are, that we ought to be very, very generous. …
+“Sometimes,” he said, “we have been a bit penurious and figured that we had for breakfast one egg and that cost so many cents and then we give that to the Lord. I think that when we are affluent, as many of us are, that we ought to be very, very generous. …
 
-“I think we should … give, instead of the amount we saved by our two meals of fasting, perhaps much, much more—ten times more where we are in a position to do it” (in Conference Report, Apr. 1974, p. 184).
+“I think we should … give, instead of the amount we saved by our two meals of fasting, perhaps much, much more—ten times more where we are in a position to do it” (in Conference Report, Apr. 1974, [[1974 April - Address Given by President Spencer W. Kimball at the Welfare Services Meeting Saturday, April 6, 1974.md|p. 184]]).
 
 Every member can give a generous fast offering.
 
@@ -114,8 +116,3 @@ I testify that we have been taught the truth during this conference, that God li
 
 
 
-
-
-
-
-#Missionary_Work #Obedience #Sacrifice #Self-Reliance

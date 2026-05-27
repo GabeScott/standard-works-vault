@@ -1,5 +1,7 @@
 # The Plan of Salvation
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -26,7 +28,7 @@ Yet many people in the world today continue to struggle to find answers to life�
 
 “The time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-“And they shall turn away their ears from the truth, and shall be turned unto fables” ([[2 Timothy 4.3|2 Timothy 4:3–4]][[2 Timothy 4.4|]]).
+“And they shall turn away their ears from the truth, and shall be turned unto fables” ([[2 Timothy 4.3|2 Timothy 4:3–4]][[2 Timothy 4.4|]]).
 
 We need not be confused. The answers to the puzzling questions regarding the purpose of life have again been given to mankind for our guidance.
 
@@ -40,7 +42,7 @@ There are two purposes for life in mortality. The first is that we might gain ex
 
 “What I think all of us need to do is to determine where we stand in every field of mortal endeavor. Then, based on the general overall concepts that are clear and plain, we make a determination on how we will live in this field or in that field in order to pass the probationary estate in order to succeed in the test of mortality. If we make the right choices, we’ll go on to eternal reward, and if we do not, then we’ll get some lower and lesser place in the kingdoms that are prepared.
 
-“… Everyone in the Church who is on the straight and narrow path, who is striving and struggling and desiring to do what is right, though \[he\] is far from perfect in this life; if he passes out of this life while he’s on the straight and narrow, he’s going to go on to eternal reward in his Father’s kingdom” (*The Probationary Test of Mortality,* devotional address, Salt Lake Institute of Religion, Jan. 10, 1982, 8–9).
+“… Everyone in the Church who is on the straight and narrow path, who is striving and struggling and desiring to do what is right, though \[he\] is far from perfect in this life; if he passes out of this life while he’s on the straight and narrow, he’s going to go on to eternal reward in his Father’s kingdom” (*The Probationary Test of Mortality,* devotional address, Salt Lake Institute of Religion, Jan. 10, 1982, 8–9).
 
 All of this is made possible by Jesus Christ. He is the centerpiece of the eternal plan of the Father, the Savior who was provided as a ransom for mankind. God sent His Beloved Son to overcome the Fall of Adam and Eve. He came to earth as our Savior and Redeemer. He overcame the obstacle of physical death for us by giving up His own life. When He died on the cross, His spirit became separated from His body. On the third day His spirit and His body were reunited eternally, never to be separated again.
 
@@ -52,7 +54,7 @@ Gradually, inspired men started to bring forth a reformation. President Gordon B
 
 “Somehow, in that long season of darkness a candle was lighted. The age of Renaissance brought with it a flowering of learning, art, and science. There came a movement of bold and courageous men and women who looked heavenward in acknowledgment of God and His divine Son. We speak of it as the Reformation.
 
-“And then, after many generations had walked the earth—so many of them in conflict, hatred, darkness, and evil—there arrived the great, new day of the Restoration. This glorious gospel was ushered in with the appearance of the Father and the Son to the boy Joseph. The dawn of the dispensation of the fulness of times rose upon the world. All of the good, the beautiful, the divine of all previous dispensations was restored in this most remarkable season” (in Conference Report, Apr. 2004, 83–84; or *Ensign,* May 2004, 82–83).
+“And then, after many generations had walked the earth—so many of them in conflict, hatred, darkness, and evil—there arrived the great, new day of the Restoration. This glorious gospel was ushered in with the appearance of the Father and the Son to the boy Joseph. The dawn of the dispensation of the fulness of times rose upon the world. All of the good, the beautiful, the divine of all previous dispensations was restored in this most remarkable season” (in Conference Report, Apr. 2004, [[2004 April - The Dawning of a Brighter Day.md|83–84]]; or *Ensign,* May 2004, 82–83).
 
 Following the glorious event of the First Vision, the sacred record of the Book of Mormon was delivered to the Prophet Joseph Smith. This brought a new witness of our Lord and Savior and His mission to the peoples of the earth.
 
@@ -71,8 +73,3 @@ Let us be no more tossed to and fro by every worldly wind and doctrine of man (s
 
 
 
-
-
-
-
-#Jesus_Christ #Missionary_Work #Plan_Of_Salvation

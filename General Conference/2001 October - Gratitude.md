@@ -1,5 +1,7 @@
 # Gratitude
 
+Gordon B. Hinckley
+
 By Elder Steven E. Snow - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -36,7 +38,7 @@ In his letter to the Philippians, Paul wrote, “Not that I speak in respect of 
 
 Alma instructed his son Helaman, giving him counsel that all fathers should teach their children: “Counsel with the Lord in all thy doings, and he will direct thee for good; yea, when thou liest down at night lie down unto the Lord, that he may watch over you in your sleep; and when thou risest in the morning let thy heart be full of thanks unto God; and if ye do these things, ye shall be lifted up at the last day” ([[Alma 37.37|Alma 37:37]]).
 
-Alma says, “Let thy heart be full of thanks unto God.” The Lord desires that we give thanks. In Thessalonians we read, “In every thing give thanks: for this is the will of God in Christ Jesus concerning you” ([[1 Thessalonians 5.18|1 Thes. 5:18]]).
+Alma says, “Let thy heart be full of thanks unto God.” The Lord desires that we give thanks. In Thessalonians we read, “In every thing give thanks: for this is the will of God in Christ Jesus concerning you” ([[1 Thessalonians 5.18|1 Thes. 5:18]]).
 
 As holders of the priesthood we should constantly strive to increase our gratitude. Gratitude may be increased by constantly reflecting on our blessings and giving thanks for them in our daily prayers.
 
@@ -57,8 +59,3 @@ Brethren, I pray that we might keep our hearts full of thanks and appreciation f
 
 
 
-
-
-
-
-#Blessings #Friendship #Gratitude #Joy #Love #Prayer

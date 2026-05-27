@@ -1,12 +1,14 @@
 # To Cleanse Our Souls
 
-By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/to-cleanse-our-souls?lang=eng)
 
-In a small hall in the city of Liverpool, England, during the winter of 1925–26, a group of missionaries destined to various parts of Great Britain and the European continent were gathered to receive counsel and instruction from Elder James E. Talmage the European Mission president. Part of the counsel given included this cautionary advice: “Since you have come from modest-size western communities in America you will, no doubt, observe some customs and methods which differ from those you are used to, which may cause you to want to criticize them. Be careful that you do not. Remember, you are the foreigner in a foreign land. You are their guests. You will soon find that such customs and methods are good. They are the results of proven experiences. It is better to observe with a learning eye.”
+In a small hall in the city of Liverpool, England, during the winter of 1925–26, a group of missionaries destined to various parts of Great Britain and the European continent were gathered to receive counsel and instruction from Elder James E. Talmage the European Mission president. Part of the counsel given included this cautionary advice: “Since you have come from modest-size western communities in America you will, no doubt, observe some customs and methods which differ from those you are used to, which may cause you to want to criticize them. Be careful that you do not. Remember, you are the foreigner in a foreign land. You are their guests. You will soon find that such customs and methods are good. They are the results of proven experiences. It is better to observe with a learning eye.”
 
 Having been one of those missionaries, assigned to the Netherlands, during my time spent there I found that the counsel given was wise. From my arrival till my departure, I learned much from my observations. I visited many of its cities, observed their clean surroundings, the picturesque buildings, the many well-maintained waterways and canals. Above all, I experienced an association with a happy people. I observed many people proceeding to the large and beautiful churches on the Sabbath day. The people were cheerful and prosperous, living under a parliamentary system of government. I learned of their history. We, as missionaries, were permitted to freely move about in our proselyting efforts. Here was a nation which had fought eighty long years, with much sacrifice, to gain religious freedom. Here was a nation which had close ties with America, for had they not given refuge to the Pilgrims who came to avoid religious persecution in England and after a few years moved on to the shores of America? There is no doubt that many people from the Netherlands emigrated to America, and with their love of liberty and their faith in God contributed much to some of the American colonies which were established so that their citizens could worship God according to their consciences.
 
@@ -18,7 +20,7 @@ The thought has occurred to me that the Father of our Country, George Washington
 
 Surely the happiness and felicity of the people of the Netherlands was commensurate to their application of the powers of religion and virtue. Associated with this nature of the people, I observed their sensitivity to cleanliness. As we proselyted from door to door, we became aware of the areas where the people lived. They took extreme care to keep their dwellings and their surroundings in excellent condition. Never did they allow debris to accumulate in their streets. Never did they allow their refuse receptacles to remain standing in the streets; their laws prohibited it. That was fifty years ago. I was pleased to learn that this sensitivity still prevails, according to a recent newspaper article which reads in part:
 
-“The first thing any American notices in Holland is what’s missing. …
+“The first thing any American notices in Holland is what’s missing. …
 
 “As usual, of course, the dirt is missing, and the tin cans and the pages of old newspapers blowing in the gutters. The drunks are missing also, and the wine bottles in alleyways, the half-starved dogs, the odors that ought to emanate from so much slow-running water.
 
@@ -38,7 +40,7 @@ The purpose of scripture or the doctrines of religion is to keep people from dwi
 
 But a more specific presentation of the doctrine was set forth in the beginning, when God spoke to Adam. This is the scripture:
 
-“Wherefore teach it unto your children, that all men, everywhere, must repent, or they can in nowise inherit the kingdom of God, for no unclean thing can dwell there, or dwell in his presence. …
+“Wherefore teach it unto your children, that all men, everywhere, must repent, or they can in nowise inherit the kingdom of God, for no unclean thing can dwell there, or dwell in his presence. …
 
 “Therefore I give unto you a commandment, to teach these things freely unto your children, saying:
 
@@ -56,15 +58,10 @@ The principles of the progressive steps to be taken were alluded to in Paul’s 
 
 Using the doctrine heretofore recited from the scripture of God’s presentation to Adam, it behooves all to carefully study the doctrine as admonished by the ancient prophet, Moroni. He presents a formula which can be recommended for all scripture study:
 
-“Behold, I would exhort you that when ye shall read these things, … that ye would remember how merciful the Lord hath been unto the children of men, from the creation of Adam even down unto the time that ye shall receive these things, and ponder it in your hearts. …
+“Behold, I would exhort you that when ye shall read these things, … that ye would remember how merciful the Lord hath been unto the children of men, from the creation of Adam even down unto the time that ye shall receive these things, and ponder it in your hearts. …
 
 “I would exhort you that ye would ask God, the Eternal Father, in the name of Christ, if these things are not true; and if ye shall ask with a sincere heart, with real intent, having faith in Christ, he will manifest the truth of it unto you, by the power of the Holy Ghost.” ([[Moroni 10.3|Moro. 10:3–4]][[Moroni 10.4|]].) I so witness and testify, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Morality #Repentance

@@ -1,5 +1,7 @@
 # Who Honors God, God Honors
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -14,7 +16,7 @@ A dear personal friend and associate in the work of the Lord, Elder Bruce R. McC
 >Blest with the royal priesthood, appointed by his word
 >To preach among the nations the news of gospel grace,
 >
->And publish on the mountains salvation, truth, and peace: …
+>And publish on the mountains salvation, truth, and peace: …
 >The Comforter will teach you, his richest blessings send.
 >Your Savior will be with you forever to the end.[^1]
 >
@@ -116,14 +118,9 @@ May we ever remember the truth, “Who honors God, God honors.” In the name of
 
 [^3]: “Choose the Right,” *Hymns,* 1985, no. 239.
 
-[^4]: [[1 Samuel 16.11|1 Sam. 16:11–12]][[1 Samuel 16.12|]].
+[^4]: [[1 Samuel 16.11|1 Sam. 16:11–12]][[1 Samuel 16.12|]].
 
-[^5]: [[1 Samuel 16.7|1 Sam. 16:7]].
+[^5]: [[1 Samuel 16.7|1 Sam. 16:7]].
 
-[^6]: [[3 Nephi 5.13|3 Ne. 5:13]].
+[^6]: [[3 Nephi 5.13|3 Ne. 5:13]].
 
-
-
-
-
-#Character #God_The_Father #Jesus_Christ #Missionary_Work #Priesthood #Youth

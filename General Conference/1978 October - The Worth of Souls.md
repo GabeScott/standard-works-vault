@@ -1,6 +1,8 @@
 # The Worth of Souls
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -40,7 +42,7 @@ This high value which the Lord puts upon the souls of men as made known in these
 
 After Enoch had visioned some of God’s creations, he declared that “were it possible that man could number the particles of the earth, yea, millions of earths like this, it would not be a beginning to the number of thy creations” ([[Moses 7.30|Moses 7:30]]).
 
-Following a similar showing to Moses, the Lord said: “Worlds without number have I created …
+Following a similar showing to Moses, the Lord said: “Worlds without number have I created …
 
 “And as one earth shall pass away, and the heavens thereof even so shall another come; and there is no end to my works, neither to my words.
 
@@ -50,7 +52,7 @@ These scriptures bring to mind and give meaning to the Psalmist’s searching in
 
 “When I consider thy heavens,” he said, “the work of thy fingers, the moon and the stars, which thou hast ordained;
 
-“What is man, that thou art mindful of him? …
+“What is man, that thou art mindful of him? …
 
 “For thou hast … crowned him with glory and honour.
 
@@ -66,7 +68,7 @@ Man is a dual being—a living soul—composed of a body of spirit and a physica
 
 The clearest teaching on record as to the nature of the spirit of man was given 2200 years b.c., when Jesus, in his spirit body, appeared to the brother of Jared and said:
 
-“Behold, I am Jesus Christ. …
+“Behold, I am Jesus Christ. …
 
 “Seest thou that ye are created after mine own image? Yea, even all men were created in the beginning after mine own image.
 
@@ -90,7 +92,7 @@ But this is not all. He accomplished more for men.
 
 By his atonement Jesus brought men within the reach of eternal life. However, he did not guarantee eternal life to all men as he did guarantee immortality.
 
-There will be many gradations among immortal souls. As “one star differeth from another star in glory so also is the resurrection of the dead” ([[1 Corinthians 15.41|1 Cor. 15:41–42]][[1 Corinthians 15.42|]]). That’s Paul’s doctrine.
+There will be many gradations among immortal souls. As “one star differeth from another star in glory so also is the resurrection of the dead” ([[1 Corinthians 15.41|1 Cor. 15:41–42]][[1 Corinthians 15.42|]]). That’s Paul’s doctrine.
 
 *Immortality* connotes life without end.
 
@@ -100,15 +102,15 @@ There will be many gradations among immortal souls. As “one star differeth fro
 
 It is in the attainment of eternal life, which man must earn in mortality, that he reaches his full potentiality. Man, being a child of God—who himself is a glorified, resurrected, immortal soul, enjoying eternal life—has, in harmony with the universal law of nature, the potentiality to reach, in full maturity, the high status of his Heavenly Father.
 
-John was alluding to this truth when he wrote, “We \[are\] the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him” ([[1 John 3.2|1 Jn. 3:2]]).
+John was alluding to this truth when he wrote, “We \[are\] the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him” ([[1 John 3.2|1 Jn. 3:2]]).
 
 To obtain this high estate Jesus enjoined men when he said, “Be ye therefore perfect, even as your Father … in heaven is perfect” ([[Matthew 5.48|Matt. 5:48]]).
 
-Eternal life is to be obtained only through obedience to the laws and ordinances of the gospel. “Enter ye in at the strait gate,” said Jesus, “for strait is the gate, and narrow is the way that leads to life, and few there be that find it” ([[3 Nephi 27.33|3 Ne. 27:33]]).
+Eternal life is to be obtained only through obedience to the laws and ordinances of the gospel. “Enter ye in at the strait gate,” said Jesus, “for strait is the gate, and narrow is the way that leads to life, and few there be that find it” ([[3 Nephi 27.33|3 Ne. 27:33]]).
 
 Although in this and other scripture Jesus warned and taught that the gate to eternal life is strait and the way narrow, he nevertheless made it clear that both the gate and the way are open for every man who will qualify himself to enter. Here are his words:
 
-“Verily, thus saith the Lord: It shall come to pass that every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall see my face and know that I am. …
+“Verily, thus saith the Lord: It shall come to pass that every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments, shall see my face and know that I am. …
 
 “I give unto you these sayings that you may understand and know how to worship, and know what you worship, that you may come unto the Father in my name, and in due time receive of his fulness.
 
@@ -141,8 +143,3 @@ I give you my personal witness to the truth of these things. If you can understa
 
 
 
-
-
-
-
-#Plan_Of_Salvation

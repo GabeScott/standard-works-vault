@@ -1,5 +1,7 @@
 # A Call to the Priesthood: “Feed My Sheep”
 
+Ezra Taft Benson
+
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
@@ -193,5 +195,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-#Activation #Leadership

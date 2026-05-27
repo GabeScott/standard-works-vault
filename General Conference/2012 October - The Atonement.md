@@ -1,6 +1,8 @@
 # The Atonement
 
-By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By President Boyd K. Packer - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -14,7 +16,7 @@ In 1971, I was assigned to stake conferences in Western Samoa, including the org
 
 The day we were to return from Savai‘i, it was raining. Knowing the plane could not land on the wet field, we drove to the west end of the island, where there was a runway of sorts atop a coral break. We waited until dark, but no plane arrived. Finally, we learned by radio that there was a storm, and the plane could not take off. We radioed back that we would come by boat. Someone was to meet us at Mulifanua.
 
-As we pulled out of port on Savai‘i, the captain of the 40-foot (12 m) boat asked the mission president if he had a flashlight. Fortunately, he did and made a present of it to the captain. We made the 13-mile (21 km) crossing to Upolu island on very rough seas. None of us realized that a ferocious tropical storm had hit the island, and we were heading straight into it.
+As we pulled out of port on Savai‘i, the captain of the 40-foot (12 m) boat asked the mission president if he had a flashlight. Fortunately, he did and made a present of it to the captain. We made the 13-mile (21 km) crossing to Upolu island on very rough seas. None of us realized that a ferocious tropical storm had hit the island, and we were heading straight into it.
 
 We arrived in the harbor at Mulifanua. There was one narrow passage we were to go through along the reef. A light on the hill above the beach and a second lower light marked the narrow passage. When a boat was maneuvered so that the two lights were one above the other, the boat would be lined up properly to pass through the dangerous rocks that lined the passage.
 
@@ -22,7 +24,7 @@ But that night there was only one light. Two elders were waiting on the landing 
 
 The captain maneuvered the boat as best he could toward the one upper light on shore while a crewman held the borrowed flashlight over the bow, searching for rocks ahead. We could hear the breakers crashing over the reef. When we were close enough to see them with the flashlight, the captain frantically shouted reverse and backed away to try again to locate the passage.
 
-After many attempts, he knew it would be impossible to find the passage. All we could do was try to reach the harbor at Apia 40 miles (64 km) away. We were helpless against the ferocious power of the elements. I do not remember ever being where it was so dark.
+After many attempts, he knew it would be impossible to find the passage. All we could do was try to reach the harbor at Apia 40 miles (64 km) away. We were helpless against the ferocious power of the elements. I do not remember ever being where it was so dark.
 
 We made no progress for the first hour, even though the engine was at full throttle. The boat would struggle up a mountainous wave and then pause in exhaustion at the top of the crest with the propellers out of the water. The vibration of the propellers would shake the boat almost to pieces before it slid down the other side.
 
@@ -72,7 +74,7 @@ Jesus Christ “is the light and the life of the world.”[^6] As we fix our gaz
 
 The third article of faith states, “We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel.”[^7]
 
-President Joseph F. Smith taught: “Men cannot forgive their own sins; they cannot cleanse themselves from the consequences of their sins. Men can stop sinning and can do right in the future, and so far \[as\] their acts are acceptable before the Lord \[become\] worthy of consideration. But who shall repair the wrongs they have done to themselves and to others, which it seems impossible for them to repair themselves? By the atonement of Jesus Christ the sins of the repentant shall be washed away; though they be crimson they shall be made white as wool \[see [[Isaiah 1.18|Isaiah 1:18]]\]. This is the promise given to you.”[^8]
+President Joseph F. Smith taught: “Men cannot forgive their own sins; they cannot cleanse themselves from the consequences of their sins. Men can stop sinning and can do right in the future, and so far \[as\] their acts are acceptable before the Lord \[become\] worthy of consideration. But who shall repair the wrongs they have done to themselves and to others, which it seems impossible for them to repair themselves? By the atonement of Jesus Christ the sins of the repentant shall be washed away; though they be crimson they shall be made white as wool \[see [[Isaiah 1.18|Isaiah 1:18]]\]. This is the promise given to you.”[^8]
 
 We do not know exactly how the Lord accomplished the Atonement. But we do know that the cruel torture of crucifixion was only part of the horrific pain which began in Gethsemane—that sacred site of suffering—and was completed on Golgotha.
 
@@ -138,13 +140,13 @@ In the name of Jesus Christ, amen.
 
 
 
-[^1]: “Brightly Beams Our Father’s Mercy,” *Hymns,* no. 335.
+[^1]: “Brightly Beams Our Father’s Mercy,” *Hymns,* no. 335.
 
 [^2]: [[Mosiah 3.19|Mosiah 3:19]].
 
 [^3]: [[Moses 6.57|Moses 6:57]].
 
-[^4]: [[2 Nephi 2.7|2 Nephi 2:7]].
+[^4]: [[2 Nephi 2.7|2 Nephi 2:7]].
 
 [^5]: [[Alma 34.9|Alma 34:9]].
 
@@ -152,7 +154,7 @@ In the name of Jesus Christ, amen.
 
 [^7]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
-[^8]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 99–100.
+[^8]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 99–100.
 
 [^9]: [[Luke 22.41|Luke 22:41–44]][[Luke 22.42|]][[Luke 22.43|]][[Luke 22.44|]].
 
@@ -162,10 +164,5 @@ In the name of Jesus Christ, amen.
 
 [^12]: See [[Revelation 1.5|Revelation 1:5]].
 
-[^13]: “Does the Journey Seem Long?” *Hymns,* no. 127.
+[^13]: “Does the Journey Seem Long?” *Hymns,* no. 127.
 
-
-
-
-
-#Atonement #Jesus_Christ #Repentance

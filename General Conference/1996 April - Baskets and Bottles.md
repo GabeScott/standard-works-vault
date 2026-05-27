@@ -1,12 +1,14 @@
 # Baskets and Bottles
 
+James E. Faust
+
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1996 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1996/04/baskets-and-bottles?lang=eng)
 
-My dear brothers and sisters, aloha! In February, I rejoiced with you when the number of members outside the United States edged ever so slightly past the number of members inside the United States. That slight shift is an important symbol of the international nature of the Church. I thought of Paul’s statement to the Galatians: “There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus” ([[Galatians 3.28|Gal. 3:28]]). This week I celebrate the 54th anniversary of my baptism. People like me who are converts know the promise of Paul: “For by one Spirit are we all baptized into one body” ([[1 Corinthians 12.13|1 Cor. 12:13]]).
+My dear brothers and sisters, aloha! In February, I rejoiced with you when the number of members outside the United States edged ever so slightly past the number of members inside the United States. That slight shift is an important symbol of the international nature of the Church. I thought of Paul’s statement to the Galatians: “There is neither Jew nor Greek, there is neither bond nor free, there is neither male nor female: for ye are all one in Christ Jesus” ([[Galatians 3.28|Gal. 3:28]]). This week I celebrate the 54th anniversary of my baptism. People like me who are converts know the promise of Paul: “For by one Spirit are we all baptized into one body” ([[1 Corinthians 12.13|1 Cor. 12:13]]).
 
 Brothers and sisters, today I want to talk about the beautiful oneness that we share in the gospel. I just returned from the Philippines, Australia, New Zealand, Tonga, and Fiji three weeks ago, where Sister Susan Warner and I participated in leadership training. Earlier assignments have taken me to Mexico, Honduras, Guatemala, Samoa, Korea, and Japan.
 
@@ -16,7 +18,7 @@ The most important lesson was that we are truly all one in Christ Jesus. We are 
 
 Are we perfect in any of these things? No. We all have much to learn. Are we exactly the same in any of these things? No. We are all at different points on our journey back to our Father in Heaven. Did the Jews and Greeks whom Paul addressed in his epistle to the Galatians stop being Jews and Greeks when they were baptized? Did the men stop being men and the women stop being women? No. But they had all “been baptized into Christ” and had “put on Christ” ([[Galatians 3.27|Gal. 3:27]]).
 
-Nephi explains the same principle in these terms: The Savior “inviteth … all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; … and all are alike unto God” ([[2 Nephi 26.33|2 Ne. 26:33]]).
+Nephi explains the same principle in these terms: The Savior “inviteth … all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; … and all are alike unto God” ([[2 Nephi 26.33|2 Ne. 26:33]]).
 
 God has given us many gifts, much diversity, and many differences, but the essential thing is what we know about each other—that we are all his children. Our challenge as members of the Church is for all of us to learn from each other, that we may all love each other and grow together.
 
@@ -47,8 +49,3 @@ Brothers and sisters, whether your fruits are peaches or papaya, and whether you
 
 
 
-
-
-
-
-#Church_Growth #Education #Holy_Ghost #Love #Unity #Women

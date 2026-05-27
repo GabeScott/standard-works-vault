@@ -1,5 +1,7 @@
 # Repentance
 
+Gordon B. Hinckley
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -8,7 +10,7 @@ By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 With you, I rejoice in the testimony and talent of these new Brethren.
 
-For some months, I’ve tried to emphasize repentance, one of the most vital and merciful doctrines of the kingdom. It is too little understood, too little applied by us all, as if it were merely a word on a bumper sticker. Since we have been told clearly by Jesus what manner of men and women we ought to become—even as He is (see [[3 Nephi 27.27|3 Ne. 27:27]])—how can we do so except each of us employs repentance as the regular means of personal progression? Personal repentance is part of taking up the cross daily (see [[Luke 9.23|Luke 9:23]]). Without it, clearly there could be no “perfecting of the Saints” ([[Ephesians 4.12|Eph. 4:12]]).
+For some months, I’ve tried to emphasize repentance, one of the most vital and merciful doctrines of the kingdom. It is too little understood, too little applied by us all, as if it were merely a word on a bumper sticker. Since we have been told clearly by Jesus what manner of men and women we ought to become—even as He is (see [[3 Nephi 27.27|3 Ne. 27:27]])—how can we do so except each of us employs repentance as the regular means of personal progression? Personal repentance is part of taking up the cross daily (see [[Luke 9.23|Luke 9:23]]). Without it, clearly there could be no “perfecting of the Saints” ([[Ephesians 4.12|Eph. 4:12]]).
 
 Besides, there is more individuality in those who are more holy.
 
@@ -16,13 +18,13 @@ Sin, on the other hand, brings sameness; it shrinks us to addictive appetites an
 
 Repentance is a rescuing, not a dour doctrine. It is available to the gross sinner as well as to the already-good individual striving for incremental improvement.
 
-Repentance requires both turning away from evil and turning to God (see [[Deuteronomy 4.30|Deut. 4:30]]; see also Bible Dictionary, “[Repentance](https://churchofjesuschrist.org/study/scriptures/bd/repentance?lang=eng)”). When “a mighty change” is required, full repentance involves a *180-degree turn,* and without looking back! ([[Alma 5.12|Alma 5:12–13]][[Alma 5.13|]]). Initially, this turning reflects progress from telestial to terrestrial behavior, and later on to celestial behavior. As the sins of the telestial world are left behind, the focus falls ever more steadily upon the sins of omission, which often keep us from full consecration.
+Repentance requires both turning away from evil and turning to God (see [[Deuteronomy 4.30|Deut. 4:30]]; see also Bible Dictionary, “[[BD Repentance|Repentance]]”). When “a mighty change” is required, full repentance involves a *180-degree turn,* and without looking back! ([[Alma 5.12|Alma 5:12–13]][[Alma 5.13|]]). Initially, this turning reflects progress from telestial to terrestrial behavior, and later on to celestial behavior. As the sins of the telestial world are left behind, the focus falls ever more steadily upon the sins of omission, which often keep us from full consecration.
 
 Real repentance involves not a mechanical checklist but a checkreining of the natural self. Often overlapping and mutually reinforcing, each portion of the process of repentance is essential. This process rests on inner resolve but is much aided by external support.
 
 There can be no repentance without *recognition* of wrong. Whether by provocation, introspection, or wrenching remembrance, denial must be dissolved. As with the prodigal son who finally “came to himself” ([[Luke 15.17|Luke 15:17]]), the first rays of recognition help us begin to see “things as they really are” ([[Jacob 4.13|Jacob 4:13]]), including distinguishing between the motes and beams. Recognition is a sacred moment, often accompanied by the hot blush of shame.
 
-After recognition, real *remorse* floods the soul. This is a “godly sorrow,” not merely the “sorrow of the world” nor the “sorrowing of the damned” when we can no longer “take happiness in sin” (see [[2 Corinthians 7.10|2 Cor. 7:10]]; [[Mormon 2.13|Morm. 2:13]]). False remorse instead is like fondling our failings. In ritual regret, we mourn our mistakes but without mending them.
+After recognition, real *remorse* floods the soul. This is a “godly sorrow,” not merely the “sorrow of the world” nor the “sorrowing of the damned” when we can no longer “take happiness in sin” (see [[2 Corinthians 7.10|2 Cor. 7:10]]; [[Mormon 2.13|Morm. 2:13]]). False remorse instead is like fondling our failings. In ritual regret, we mourn our mistakes but without mending them.
 
 There can be no real repentance without personal suffering and the passage of sufficient time for the needed cleansing and turning. This is much more than merely waiting until feelings of remorse subside. Misery, like adversity, can have its special uses. No wonder chastening is often needed until the turning is really under way! (see [[D&C 1.27|D&C 1:27]]; [[Helaman 12.3|Hel. 12:3]]).
 
@@ -48,11 +50,11 @@ Sometimes, however, restitution is not possible in real terms, such as when one 
 
 In this rigorous process, so much clearly depends upon meekness. Pride keeps repentance from even starting or continuing. Some fail because they are more concerned with the preservation of their public image than with having Christ’s image in their countenances! (see [[Alma 5.14|Alma 5:14]]). Pride prefers cheap repentance, paid for with shallow sorrow. Unsurprisingly, seekers after cheap repentance also search for superficial forgiveness instead of real reconciliation. Thus, real repentance goes far beyond simply saying, “I’m sorry.”
 
-In the anguishing process of repentance, we may sometimes feel God has deserted us. The reality is that our behavior has isolated us from Him. Thus, while we are turning away from evil but have not yet turned fully to God, we are especially vulnerable. Yet we must not give up but, instead, reach out to God’s awaiting arm of mercy, which is outstretched “all the day long” ([[Jacob 5.47|Jacob 5:47]]; [[Jacob 6.4|6:4]]; [[2 Nephi 28.32|2 Ne. 28:32]]; [[Mormon 5.11|Morm. 5:11]]). Unlike us, God has no restrictive office hours.
+In the anguishing process of repentance, we may sometimes feel God has deserted us. The reality is that our behavior has isolated us from Him. Thus, while we are turning away from evil but have not yet turned fully to God, we are especially vulnerable. Yet we must not give up but, instead, reach out to God’s awaiting arm of mercy, which is outstretched “all the day long” ([[Jacob 5.47|Jacob 5:47]]; [[Jacob 6.4|6:4]]; [[2 Nephi 28.32|2 Ne. 28:32]]; [[Mormon 5.11|Morm. 5:11]]). Unlike us, God has no restrictive office hours.
 
 No part of walking by faith is more difficult than walking the road of repentance. However, with “faith unto repentance,” we can push roadblocks out of the way, moving forward to beg God for mercy (see [[Alma 34.16|Alma 34:16]]). True contrition brings full capitulation. One simply surrenders, caring only about what God thinks, not what “they” think, while meekly offering, “O God, … make thyself known unto me, and I will give away all my sins to know thee” ([[Alma 22.18|Alma 22:18]]). Giving away all our sins is the only way we can come to know God.
 
-In contrast, those who hold back some of their sins will be held back. So will those who refuse to work humbly and honestly with the Lord’s appointed. Partial disclosure to appointed leaders brings full accountability. The Prophet Joseph said, “We ought to … keep nothing back” (*The Words of Joseph Smith,* ed. Andrew F. Ehat and Lyndon W. Cook \[Provo, Utah: Religious Studies Center, Brigham Young University, 1980\], p. 7).
+In contrast, those who hold back some of their sins will be held back. So will those who refuse to work humbly and honestly with the Lord’s appointed. Partial disclosure to appointed leaders brings full accountability. The Prophet Joseph said, “We ought to … keep nothing back” (*The Words of Joseph Smith,* ed. Andrew F. Ehat and Lyndon W. Cook \[Provo, Utah: Religious Studies Center, Brigham Young University, 1980\], p. 7).
 
 Reflective of our total progression, repentance is not solely for renouncing transgression. For instance, Moses was a righteous and remarkable man. Nevertheless, he needed to change his leadership style for his welfare as well as the people’s (see [[Exodus 18.17|Ex. 18:17–19]][[Exodus 18.18|]][[Exodus 18.19|]]). Moses succeeded because he was the most meek man upon the face of the earth (see [[Numbers 12.3|Num. 12:3]]). Blessed are the meek, for they are neither easily offended by counsel nor aggravated by admonition. If we were more meek, brothers and sisters, repentance would be much more regular and less stared at.
 
@@ -76,7 +78,7 @@ As we do repent, however, special assurances await: “Though your sins be as sc
 
 “I, the Lord, remember \[their sins\] no more”! ([[D&C 58.42|D&C 58:42]]).
 
-Along with all the foregoing reasons for our individual repentance, Church members have a special rendezvous to keep, brothers and sisters. Nephi saw it. One future day, he said, Jesus’ covenant people, “scattered upon all the face of the earth,” will be “armed with righteousness and with the power of God in great glory” ([[1 Nephi 14.14|1 Ne. 14:14]]). This will happen, but only after more members become more saintly and more consecrated in conduct.
+Along with all the foregoing reasons for our individual repentance, Church members have a special rendezvous to keep, brothers and sisters. Nephi saw it. One future day, he said, Jesus’ covenant people, “scattered upon all the face of the earth,” will be “armed with righteousness and with the power of God in great glory” ([[1 Nephi 14.14|1 Ne. 14:14]]). This will happen, but only after more members become more saintly and more consecrated in conduct.
 
 There are some tutoring lines in one of our favorite hymns:
 
@@ -99,8 +101,3 @@ May God help each of us to so live now in order to merit that marvelous moment t
 
 
 
-
-
-
-
-#Faith #Repentance

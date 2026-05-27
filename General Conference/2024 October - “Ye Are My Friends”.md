@@ -1,6 +1,8 @@
 # “Ye Are My Friends”
 
-By Elder David L. Buckner - *Of the Seventy*
+Henry B. Eyring
+
+By Elder David L. Buckner - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -38,7 +40,7 @@ Brothers and sisters, we must stop looking for reasons to divide and instead see
 
 ## We Belong to Him
 
-One of the promised blessings of “becoming one” is a powerful sense of belonging. Elder Quentin L. Cook taught that “the essence of truly belonging is to be one with Christ.”[^19]
+One of the promised blessings of “becoming one” is a powerful sense of belonging. Elder Quentin L. Cook taught that “the essence of truly belonging is to be one with Christ.”[^19]
 
 On a recent visit with my family to the West African country of Ghana, I was enamored with a local custom. Upon arriving at a church or home, we were greeted with the words “you are welcome.” When food was served, our host would announce, “You are invited.” These simple greetings were extended with purpose and intentionality. *You are welcome. You are invited.*
 
@@ -46,9 +48,9 @@ We place similar sacred declarations on our meetinghouse doors. But the sign Vis
 
 We must live our life so that the world does not see us but sees Him through us. This does not take place only on Sundays. It takes place at the grocery store, the gas pump, the school meeting, the neighborhood gathering—all places where baptized and unbaptized members of our family work and live.
 
-I worship on Sunday as a reminder that we need each other and together we need Him. Our unique gifts and talents that differentiate us in a secular world unite us in a sacred space.[^20] The Savior has called upon us to help one another, lift one another, and edify each other. This is what He did when He healed the woman with an issue of blood,[^21] cleansed the leper who pled for His mercy,[^22] counseled the young prince who asked what more he could do,[^23] loved Nicodemus, who knew but faltered in his faith,[^24] and sat with the woman at the well, who did not fit the custom of the day but to whom He declared His messianic mission.[^25] This to me is church—a place of gathering and recovery, repair and refocus. As President Russell M. Nelson has taught: “The gospel net is the largest net in the world. God has invited *all* to come unto Him. … There is room for everyone.”[^26]
+I worship on Sunday as a reminder that we need each other and together we need Him. Our unique gifts and talents that differentiate us in a secular world unite us in a sacred space.[^20] The Savior has called upon us to help one another, lift one another, and edify each other. This is what He did when He healed the woman with an issue of blood,[^21] cleansed the leper who pled for His mercy,[^22] counseled the young prince who asked what more he could do,[^23] loved Nicodemus, who knew but faltered in his faith,[^24] and sat with the woman at the well, who did not fit the custom of the day but to whom He declared His messianic mission.[^25] This to me is church—a place of gathering and recovery, repair and refocus. As President Russell M. Nelson has taught: “The gospel net is the largest net in the world. God has invited *all* to come unto Him. … There is room for everyone.”[^26]
 
-Some may have had experiences that make you feel you do not belong. The Savior’s message to you and me is the same: “Come unto me, all ye that labour and are heavy laden, and I will give you rest.”[^27] The gospel of Jesus Christ is the perfect place for us. Coming to church offers the hope of better days, the promise that you are not alone, and a family who needs us as much as we need them. Elder D. Todd Christofferson affirms that “being one with the Father, Son, and Holy Spirit is without doubt the ultimate in belonging.”[^28] To any who have stepped away and are seeking a chance to return, I offer an eternal truth and invitation: You belong. Come back. It is time.
+Some may have had experiences that make you feel you do not belong. The Savior’s message to you and me is the same: “Come unto me, all ye that labour and are heavy laden, and I will give you rest.”[^27] The gospel of Jesus Christ is the perfect place for us. Coming to church offers the hope of better days, the promise that you are not alone, and a family who needs us as much as we need them. Elder D. Todd Christofferson affirms that “being one with the Father, Son, and Holy Spirit is without doubt the ultimate in belonging.”[^28] To any who have stepped away and are seeking a chance to return, I offer an eternal truth and invitation: You belong. Come back. It is time.
 
 In a contentious and divided world, I testify that the Savior Jesus Christ is the great unifier. May I invite each of us to be worthy of the Savior’s invitation to “be one”[^29] and to boldly declare, as He did, “Ye are my friends.”[^30] In the sacred name of Jesus Christ, amen.
 
@@ -69,9 +71,9 @@ In a contentious and divided world, I testify that the Savior Jesus Christ is th
 
 [^7]: [[D&C 84.63|Doctrine and Covenants 84:63]]; see also [[John 15.14|John 15:14]].
 
-[^8]: See Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 6.
+[^8]: See Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 6.
 
-[^9]: [[3 Nephi 19.23|3 Nephi 19:23]]; see also [[John 17.22|John 17:22]].
+[^9]: [[3 Nephi 19.23|3 Nephi 19:23]]; see also [[John 17.22|John 17:22]].
 
 [^10]: [[Luke 18.22|Luke 18:22]].
 
@@ -87,13 +89,13 @@ In a contentious and divided world, I testify that the Savior Jesus Christ is th
 
 [^16]: [[D&C 38.27|Doctrine and Covenants 38:27]].
 
-[^17]: [[D&C 38.27|Doctrine and Covenants 38:27]]; see also [[4 Nephi 1.15|4 Nephi 1:15–17]][[4 Nephi 1.16|]][[4 Nephi 1.17|]].
+[^17]: [[D&C 38.27|Doctrine and Covenants 38:27]]; see also [[4 Nephi 1.15|4 Nephi 1:15–17]][[4 Nephi 1.16|]][[4 Nephi 1.17|]].
 
-[^18]: See [[1 Corinthians 12.12|1 Corinthians 12:12–31]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]][[1 Corinthians 12.28|]][[1 Corinthians 12.29|]][[1 Corinthians 12.30|]][[1 Corinthians 12.31|]]; [[Ephesians 4.3|Ephesians 4:3–16]][[Ephesians 4.4|]][[Ephesians 4.5|]][[Ephesians 4.6|]][[Ephesians 4.7|]][[Ephesians 4.8|]][[Ephesians 4.9|]][[Ephesians 4.10|]][[Ephesians 4.11|]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]][[Ephesians 4.15|]][[Ephesians 4.16|]].
+[^18]: See [[1 Corinthians 12.12|1 Corinthians 12:12–31]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]][[1 Corinthians 12.28|]][[1 Corinthians 12.29|]][[1 Corinthians 12.30|]][[1 Corinthians 12.31|]]; [[Ephesians 4.3|Ephesians 4:3–16]][[Ephesians 4.4|]][[Ephesians 4.5|]][[Ephesians 4.6|]][[Ephesians 4.7|]][[Ephesians 4.8|]][[Ephesians 4.9|]][[Ephesians 4.10|]][[Ephesians 4.11|]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]][[Ephesians 4.15|]][[Ephesians 4.16|]].
 
-[^19]: Quentin L. Cook, “[[2024 April - Be One with Christ.md|Be One with Christ]],” *Liahona*, May 2024, 51.
+[^19]: Quentin L. Cook, “[[2024 April - Be One with Christ.md|Be One with Christ]],” *Liahona*, May 2024, 51.
 
-[^20]: See [[1 Corinthians 12.12|1 Corinthians 12:12–31]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]][[1 Corinthians 12.28|]][[1 Corinthians 12.29|]][[1 Corinthians 12.30|]][[1 Corinthians 12.31|]]; [[Ephesians 4.3|Ephesians 4:3–16]][[Ephesians 4.4|]][[Ephesians 4.5|]][[Ephesians 4.6|]][[Ephesians 4.7|]][[Ephesians 4.8|]][[Ephesians 4.9|]][[Ephesians 4.10|]][[Ephesians 4.11|]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]][[Ephesians 4.15|]][[Ephesians 4.16|]].
+[^20]: See [[1 Corinthians 12.12|1 Corinthians 12:12–31]][[1 Corinthians 12.13|]][[1 Corinthians 12.14|]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]][[1 Corinthians 12.27|]][[1 Corinthians 12.28|]][[1 Corinthians 12.29|]][[1 Corinthians 12.30|]][[1 Corinthians 12.31|]]; [[Ephesians 4.3|Ephesians 4:3–16]][[Ephesians 4.4|]][[Ephesians 4.5|]][[Ephesians 4.6|]][[Ephesians 4.7|]][[Ephesians 4.8|]][[Ephesians 4.9|]][[Ephesians 4.10|]][[Ephesians 4.11|]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]][[Ephesians 4.15|]][[Ephesians 4.16|]].
 
 [^21]: See [[Matthew 9.20|Matthew 9:20–22]][[Matthew 9.21|]][[Matthew 9.22|]]; [[Mark 5.25|Mark 5:25–34]][[Mark 5.26|]][[Mark 5.27|]][[Mark 5.28|]][[Mark 5.29|]][[Mark 5.30|]][[Mark 5.31|]][[Mark 5.32|]][[Mark 5.33|]][[Mark 5.34|]]; [[Luke 8.43|Luke 8:43–48]][[Luke 8.44|]][[Luke 8.45|]][[Luke 8.46|]][[Luke 8.47|]][[Luke 8.48|]].
 
@@ -105,18 +107,13 @@ In a contentious and divided world, I testify that the Savior Jesus Christ is th
 
 [^25]: See [[John 4.1|John 4:1–42]][[John 4.2|]][[John 4.3|]][[John 4.4|]][[John 4.5|]][[John 4.6|]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]][[John 4.27|]][[John 4.28|]][[John 4.29|]][[John 4.30|]][[John 4.31|]][[John 4.32|]][[John 4.33|]][[John 4.34|]][[John 4.35|]][[John 4.36|]][[John 4.37|]][[John 4.38|]][[John 4.39|]][[John 4.40|]][[John 4.41|]][[John 4.42|]].
 
-[^26]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 101.
+[^26]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 101.
 
 [^27]: [[Matthew 11.28|Matthew 11:28]].
 
-[^28]: D. Todd Christofferson, “[[2022 October - The Doctrine of Belonging.md|The Doctrine of Belonging]],” *Liahona*, Nov. 2022, 56.
+[^28]: D. Todd Christofferson, “[[2022 October - The Doctrine of Belonging.md|The Doctrine of Belonging]],” *Liahona*, Nov. 2022, 56.
 
 [^29]: [[D&C 38.27|Doctrine and Covenants 38:27]]; see also [[D&C 29.13|Doctrine and Covenants 29:13]]; [[D&C 35.2|35:2]]; [[D&C 51.9|51:9]].
 
 [^30]: [[John 15.14|John 15:14]]; [[D&C 84.63|Doctrine and Covenants 84:63]].
 
-
-
-
-
-#Belonging #Friendship #Jesus_Christ #Unity

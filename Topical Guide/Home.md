@@ -1,6 +1,5 @@
 # Home
 
-
 *See also* [[Abode.md|Abode]]; [[Children.md|Children]]; [[Education.md|Education]]; [[Family.md|Family]]; [[Family, Children, Duties of.md|Family, Children, Duties of]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Family, Love within.md|Family, Love within]]; [[House.md|House]]; [[Marriage, Fatherhood.md|Marriage, Fatherhood]]; [[Marriage, Husbands.md|Marriage, Husbands]]; [[Marriage, Motherhood.md|Marriage, Motherhood]]; [[Marriage, Wives.md|Marriage, Wives]]
 
 he shall be free at *home* one year, [[Deuteronomy 24.5|Deuteronomy 24:5]].
@@ -27,6 +26,6 @@ be discreet, chaste, keepers at *home*, [[Titus 2.5|Titus 2:5]].
 
 gathered *home* to the lands of their inheritance, [[2 Nephi 9.2|2 Nephi 9:2]] ([[2 Nephi 29.14|2 Nephi 29:14]]).
 
-spirits of all ... are taken *home* to that God, [[Alma 40.11|Alma 40:11]].
+spirits of all … are taken *home* to that God, [[Alma 40.11|Alma 40:11]].
 
-are more ... concerned at *home*, [[D&C 93.50|D&C 93:50]].
+are more … concerned at *home*, [[D&C 93.50|D&C 93:50]].

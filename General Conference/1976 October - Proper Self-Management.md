@@ -1,6 +1,8 @@
 # Proper Self-Management
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -12,7 +14,7 @@ Proper self-management is a great virtue, which can lead to personal pride. Pers
 
 “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
+“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
 
 Appropriate personal pride prohibits shabby performance. Proper self-image is a basic ingredient of pride in one’s self. It is necessary if individual discipline is to be purposeful and effective. May I suggest a few thoughts for our consideration in the basic areas of self-management?
 
@@ -61,8 +63,3 @@ I leave you these thoughts and my testimony in the name of Him, the perfect exam
 
 
 
-
-
-
-
-#Self-Esteem

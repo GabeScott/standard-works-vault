@@ -1,4 +1,3 @@
 # Solomon
 
-
-*See* [BD Solomon](https://www.churchofjesuschrist.org/study/scriptures/bd/solomon?lang=eng); [Solomon's Porch](https://www.churchofjesuschrist.org/study/scriptures/bd/solomons-porch?lang=eng)
+*See also* [[BD Solomon.md|BD Solomon]]; [[BD Solomon’s Porch.md|BD Solomon’s Porch]]

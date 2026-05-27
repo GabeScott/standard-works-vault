@@ -1,5 +1,7 @@
 # Forgiveness
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2005 General Conference*
@@ -148,8 +150,3 @@ May God help us to be a little kinder, showing forth greater forbearance, to be 
 
 
 
-
-
-
-
-#Atonement #Forgiveness #Jesus_Christ #Love #Repentance

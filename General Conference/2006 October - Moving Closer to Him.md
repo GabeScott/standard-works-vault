@@ -1,5 +1,7 @@
 # Moving Closer to Him
 
+Gordon B. Hinckley
+
 By Elder Craig A. Cardon - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -90,7 +92,7 @@ In the name of Jesus Christ, amen.
 
 [^15]: See [[Abraham 2.11|Abraham 2:11]].
 
-[^16]: “The prophets have stated clearly that no blessing will be withheld from any of God’s sons or daughters if they love Him, have faith in Him, keep His commandments, and endure faithfully to the end” (M. Russell Ballard, *Counseling with Our Councils: Learning to Minister Together in the Church and in the Family* \[1997\], 55). “All who qualify for \[temple sealing and eternal family\] blessings will, in the Lord’s due time, have them here or in the next life” (Richard G. Scott, in Conference Report, Oct. 1998, 88; or *Ensign,* Nov. 1998, 69).
+[^16]: “The prophets have stated clearly that no blessing will be withheld from any of God’s sons or daughters if they love Him, have faith in Him, keep His commandments, and endure faithfully to the end” (M. Russell Ballard, *Counseling with Our Councils: Learning to Minister Together in the Church and in the Family* \[1997\], 55). “All who qualify for \[temple sealing and eternal family\] blessings will, in the Lord’s due time, have them here or in the next life” (Richard G. Scott, in Conference Report, Oct. 1998, [[1998 October - The Power of Righteousness.md|88]]; or *Ensign,* Nov. 1998, 69).
 
 [^17]: [[JST Hebrews 7.3|Joseph Smith Translation, Hebrews 7:3]]; see also [[Moses 1.6|Moses 1:6]].
 
@@ -116,8 +118,3 @@ In the name of Jesus Christ, amen.
 
 [^28]: “As the Dew from Heaven Distilling,” *Hymns,* no. 149.
 
-
-
-
-
-#Obedience #Ordinances #Priesthood

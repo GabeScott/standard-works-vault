@@ -1,11 +1,10 @@
 # Torment
 
-
-*See also* [[Damnation, Damned.md|Damnation]]; [[Despair.md|Despair]]; [[Hell.md|Hell]]; [[Sorrow.md|Sorrow]]
+*See also* [[Damnation.md|Damnation]]; [[Despair.md|Despair]]; [[Hell.md|Hell]]; [[Sorrow.md|Sorrow]]
 
 thou come hither to *torment* us, [[Matthew 8.29|Matthew 8:29]] ([[Mark 5.7|Mark 5:7]]; [[Luke 8.28|Luke 8:28]]).
 
-in hell ... being in *torments*, [[Luke 16.23|Luke 16:23]] ([[D&C 104.18|D&C 104:18]]).
+in hell … being in *torments*, [[Luke 16.23|Luke 16:23]] ([[D&C 104.18|D&C 104:18]]).
 
 being destitute, afflicted, *tormented*, [[Hebrews 11.37|Hebrews 11:37]].
 
@@ -15,7 +14,7 @@ perfect love casteth out fear: because fear hath *torment*, [[1 John 4.18|1 John
 
 *tormented* with fire and brimstone, [[Revelation 14.10|Revelation 14:10]] ([[2 Nephi 9.16|2 Nephi 9:16]]; [[Jacob 6.10|Jacob 6:10]]).
 
-devil ... shall be *tormented* day and night, [[Revelation 20.10|Revelation 20:10]].
+devil … shall be *tormented* day and night, [[Revelation 20.10|Revelation 20:10]].
 
 Doth this thing mean the *torment* of the body, [[1 Nephi 15.31|1 Nephi 15:31]].
 

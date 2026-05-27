@@ -1,6 +1,8 @@
 # “Remember This: Kindness Begins with Me”
 
-By Mary N. Cook - *First Counselor in the Young Women General Presidency*
+Thomas S. Monson
+
+By Mary N. Cook - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -32,7 +34,7 @@ The lawyer then asked, “Who is my neighbour?” That was a very interesting qu
 
 Jesus answered the lawyer’s question by telling the parable of the good Samaritan. According to the parable:
 
-“A certain man went down from Jerusalem to Jericho, and fell among thieves, which stripped him of his raiment, and wounded him, and departed, leaving him half dead. …
+“A certain man went down from Jerusalem to Jericho, and fell among thieves, which stripped him of his raiment, and wounded him, and departed, leaving him half dead. …
 
 “But a certain Samaritan, as he journeyed, came where he was: and when he saw him, he had compassion on him,
 
@@ -44,7 +46,7 @@ Unlike the Jewish priest and Levite who passed by the wounded man, one of their 
 
 A counselor in a bishopric recently shared an experience that teaches how important each neighbor is. While looking out over the congregation, he saw a child with a large box of crayons filled with a variety of different hues. As he looked at the many members of his ward, he was reminded that, like the crayons, they were very similar but each person was also very unique.
 
-He remarked: “The shade they brought to the ward and the world was all their own. … They had their individual strengths and weaknesses, personal longings, private dreams. But together, they blended into a color wheel of spiritual unity. …
+He remarked: “The shade they brought to the ward and the world was all their own. … They had their individual strengths and weaknesses, personal longings, private dreams. But together, they blended into a color wheel of spiritual unity. …
 
 “Unity is a spiritual quality. It’s the sweet feelings of peace and purpose that come from belonging to a family. … It’s wanting the best for others as much as you want it for yourself. … It’s knowing that no one is out to harm you. \[It means you will never be lonely.\]”[^6]
 
@@ -52,7 +54,7 @@ We build that unity and share our unique colors through benevolence: individual 
 
 Have you ever felt lonely? Do you notice those who are lonely, living in a black-and-white world? Young women, I’ve watched as you bring your unique color into the lives of others with your smiles, your kind words, or a note of encouragement.
 
-President Thomas S. Monson taught us how to interact with our peers and everyone we meet when he told the young women of the Church, “My precious young sisters, I plead with you to have the courage to refrain from judging and criticizing those around you, as well as the courage to make certain everyone is included and feels loved and valued.”[^7]
+President Thomas S. Monson taught us how to interact with our peers and everyone we meet when he told the young women of the Church, “My precious young sisters, I plead with you to have the courage to refrain from judging and criticizing those around you, as well as the courage to make certain everyone is included and feels loved and valued.”[^7]
 
 We can follow the example of the good Samaritan and “change the world” of just one person by being benevolent.[^8] I would like to invite each of you to do at least one Samaritan-like act this coming week. It may require that you reach beyond your usual friends or overcome your shyness. You may courageously choose to serve someone who doesn’t treat you well. I promise that if you will extend yourself beyond what is easy to do, you will feel so good inside that kindness will start to become a part of your everyday life. You’ll see that benevolence can bring joy and unity to your home, your class, your ward, and your school. “Remember this: kindness begins with me.”
 
@@ -62,13 +64,13 @@ Sometimes being benevolent is most difficult in our own families. Strong familie
 
 Jesus loved the children, took them in His arms, and blessed them.[^10] Like the Savior, you can bless all children with your kindness, not just those in your home.
 
-You may not know the impact your life and example may have on a little child. I recently received a note from a friend who manages a day-care center in a local high school. Attending that high school are several young men and young women who are members of the Church. She shared with me this experience: “As I walk through the halls with the little children, it is nice to see how many lockers have pictures of Jesus or of temples taped to the inside of the doors. One of the children saw a picture of Jesus on the inside of a \[young woman’s\] opened locker door and said, ‘Look, Jesus is at our school!’ The student was moved to tears as she bent down and gave the child a hug. I thanked the young woman for the good example she was to those around her. It is uplifting to know that there are so many youth that are trying to stand for truth and righteousness and do their part in inviting the Spirit into their lives, even though it is difficult at times with all the noise and harshness in the world around them. We have some wonderful youth in the Church.”
+You may not know the impact your life and example may have on a little child. I recently received a note from a friend who manages a day-care center in a local high school. Attending that high school are several young men and young women who are members of the Church. She shared with me this experience: “As I walk through the halls with the little children, it is nice to see how many lockers have pictures of Jesus or of temples taped to the inside of the doors. One of the children saw a picture of Jesus on the inside of a \[young woman’s\] opened locker door and said, ‘Look, Jesus is at our school!’ The student was moved to tears as she bent down and gave the child a hug. I thanked the young woman for the good example she was to those around her. It is uplifting to know that there are so many youth that are trying to stand for truth and righteousness and do their part in inviting the Spirit into their lives, even though it is difficult at times with all the noise and harshness in the world around them. We have some wonderful youth in the Church.”
 
 I couldn’t agree more! Young women, *you* are changing the world by centering your life on Jesus Christ, and you are “becoming what He wants you to be.”[^11]
 
 Thank you for your benevolent lives; for including those who may be different; for your kindness to your peers, the elderly, your family, and little children; for being neighbors to those who are lonely and those who have challenges and heartache. Through your benevolence, you are “pointing others to \[the Savior’s\] light.”[^12] Thank you for remembering “kindness begins with me.”
 
-I know that President Thomas S. Monson is a prophet of God whose life has been a model of benevolence from which we can learn. Follow our prophet. Learn from his example and listen to his words. I believe in the gospel of Jesus Christ, and I know that through Joseph Smith the priesthood has been restored to the earth.
+I know that President Thomas S. Monson is a prophet of God whose life has been a model of benevolence from which we can learn. Follow our prophet. Learn from his example and listen to his words. I believe in the gospel of Jesus Christ, and I know that through Joseph Smith the priesthood has been restored to the earth.
 
 I know that our Savior lives and loves each of us. He has given His life for all. I pray that we will center our lives on Jesus Christ and “follow in His ways” by loving and serving one another.[^13] By so doing, I know that we can make the world a better place, because “we believe in being … benevolent.”[^14] I so testify in the name of Jesus Christ, amen.
 
@@ -85,9 +87,9 @@ I know that our Savior lives and loves each of us. He has given His life for all
 
 [^5]: [[Luke 10.25|Luke 10:25, 27, 29, 30, 33–35]][[Luke 10.27|]][[Luke 10.29|]][[Luke 10.30|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]].
 
-[^6]: Jerry Earl Johnston, “The Unity in a Ward’s Uniqueness,” *Mormon Times,* Feb. 9, 2011, M1, M12.
+[^6]: Jerry Earl Johnston, “The Unity in a Ward’s Uniqueness,” *Mormon Times,* Feb. 9, 2011, M1, M12.
 
-[^7]: Thomas S. Monson, “May You Have Courage,” *Liahona* and *Ensign,* May 2009, 125.
+[^7]: Thomas S. Monson, “May You Have Courage,” *Liahona* and *Ensign,* May 2009, 125.
 
 [^8]: “Guardians of Virtue.”
 
@@ -103,8 +105,3 @@ I know that our Savior lives and loves each of us. He has given His life for all
 
 [^14]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-
-
-
-
-#Kindness #Service

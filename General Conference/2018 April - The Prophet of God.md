@@ -1,6 +1,8 @@
 # The Prophet of God
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -10,7 +12,7 @@ By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 I add my welcome to Elder Gerrit Gong and Elder Ulisses Soares to the unparalleled brotherhood of the Quorum of the Twelve.
 
-In sustaining President Russell M. Nelson as the Lord’s prophet and as President of The Church of Jesus Christ of Latter-day Saints, we were part of a divinely decreed solemn assembly—solemn because the events of this past hour have been anticipated in the heavens since before the world was. The Lord Jesus Christ, who directs His work, has today through President Eyring presented His prophet, His anointed leader, to us, His covenant people, allowing us publicly to manifest our willingness to sustain him and follow his counsel.
+In sustaining President Russell M. Nelson as the Lord’s prophet and as President of The Church of Jesus Christ of Latter-day Saints, we were part of a divinely decreed solemn assembly—solemn because the events of this past hour have been anticipated in the heavens since before the world was. The Lord Jesus Christ, who directs His work, has today through President Eyring presented His prophet, His anointed leader, to us, His covenant people, allowing us publicly to manifest our willingness to sustain him and follow his counsel.
 
 To those millions of members who are not here with us in the Conference Center, I want you to know that the Spirit of the Lord in this building during the sustaining of President Nelson was exactly as you would have anticipated it—full of spiritual power. But our heaven-directed assembly is not in this Conference Center alone but across the world—in chapels in Asia, Africa, and North America; in homes in Central and South America and Europe; on covered patios in the Pacific and the islands of the sea. This assembly is in whatever part of the world you might be, even if your connection is no more than the audio of your smartphone. Our raised hands were not counted by our bishops, but they were surely noted in heaven, as our covenant is with God, and our action is recorded in the book of life.
 
@@ -28,7 +30,7 @@ But Jesus also taught an important truth about the servants He sends to us. “H
 
 The most important role of the Lord’s prophet is to teach us of the Savior and lead us to Him.
 
-There are many logical reasons to follow President Russell M. Nelson. Even those not of our faith would call him brilliant. He was a medical doctor at age 22, an esteemed cardiac surgeon, and a renowned pioneer in the development of open-heart surgery.
+There are many logical reasons to follow President Russell M. Nelson. Even those not of our faith would call him brilliant. He was a medical doctor at age 22, an esteemed cardiac surgeon, and a renowned pioneer in the development of open-heart surgery.
 
 Most would acknowledge his wisdom and judgment: nine decades of learning about life and death, living unselfishly, loving and teaching God’s children in every corner of the globe, and maturing with the experiences of having 10 children, 57 grandchildren, and 118 great-grandchildren (this last number changes frequently; a great-grandson was born only this past Wednesday).
 
@@ -72,7 +74,7 @@ Don’t be surprised if at times your personal views are not initially in harmon
 
 Some will try to overly dissect the prophet’s words, struggling to determine what is his prophetic voice and what is his personal opinion.
 
-In 1982, two years before being called as a General Authority, Brother Russell M. Nelson said: “I never ask myself, ‘When does the prophet speak as a prophet and when does he not?’ My interest has been, ‘How can I be more like him?’” And he added, “My \[philosophy is to\] stop putting question marks behind the prophet’s statements and put exclamation points instead.”[^16] This is how a humble and spiritual man chose to order his life. Now, 36 years later, he is the Lord’s prophet.
+In 1982, two years before being called as a General Authority, Brother Russell M. Nelson said: “I never ask myself, ‘When does the prophet speak as a prophet and when does he not?’ My interest has been, ‘How can I be more like him?’” And he added, “My \[philosophy is to\] stop putting question marks behind the prophet’s statements and put exclamation points instead.”[^16] This is how a humble and spiritual man chose to order his life. Now, 36 years later, he is the Lord’s prophet.
 
 ## Increasing Your Faith in the Savior
 
@@ -98,18 +100,18 @@ We were humble enough to follow him.
 
 We loved him.
 
-I give you my solemn witness that Jesus is the Christ, our Savior and Redeemer, and that President Russell M. Nelson is His anointed prophet upon the earth. In the name of Jesus Christ, amen.
+I give you my solemn witness that Jesus is the Christ, our Savior and Redeemer, and that President Russell M. Nelson is His anointed prophet upon the earth. In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[Jeremiah 1.5|Jeremiah 1:5]].
 
-[^2]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^2]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^3]: [[Matthew 10.40|Matthew 10:40]].
 
-[^4]: Personal memory; also see Spencer J. Condie, *Russell M. Nelson: Father, Surgeon, Apostle* (2003), 235.
+[^4]: Personal memory; also see Spencer J. Condie, *Russell M. Nelson: Father, Surgeon, Apostle* (2003), 235.
 
 [^5]: [[Ezekiel 33.7|Ezekiel 33:7]].
 
@@ -127,22 +129,17 @@ I give you my solemn witness that Jesus is the Christ, our Savior and Redeemer, 
 
 [^12]: [[Ephesians 4.14|Ephesians 4:14]].
 
-[^13]: President Dallin H. Oaks once said:
+[^13]: President Dallin H. Oaks once said:
 
 [^14]: [[Exodus 20.14|Exodus 20:14]].
 
 [^15]: [[Mosiah 15.7|Mosiah 15:7]].
 
-[^16]: Russell M. Nelson, in Lane Johnson, “[Russell M. Nelson: A Study in Obedience](https://churchofjesuschrist.org/study/liahona/1983/01/russell-m-nelson-a-study-in-obedience?lang=eng),” *Ensign,* Aug. 1982, 24; *Tambuli,* Jan. 1983, 26.
+[^16]: Russell M. Nelson, in Lane Johnson, “[Russell M. Nelson: A Study in Obedience](https://www.churchofjesuschrist.org/study/liahona/1983/01/russell-m-nelson-a-study-in-obedience?lang=eng),” *Ensign,* Aug. 1982, 24; *Tambuli,* Jan. 1983, 26.
 
-[^17]: President Henry B. Eyring said: “Another fallacy is to believe that the choice to accept or not accept the counsel of prophets is no more than deciding whether to accept good advice and gain its benefits or to stay where we are. But the choice not to take prophetic counsel changes the very ground upon which we stand. It becomes more dangerous. The failure to take prophetic counsel lessens our power to take inspired counsel in the future. The best time to have decided to help Noah build the ark was the first time he asked. Each time he asked after that, each failure to respond would have lessened sensitivity to the Spirit. And so each time his request would have seemed more foolish, until the rain came. And then it was too late” (“[[1997 April - Finding Safety in Counsel.md|Finding Safety in Counsel]],” *Ensign,* May 1997, 25).
+[^17]: President Henry B. Eyring said: “Another fallacy is to believe that the choice to accept or not accept the counsel of prophets is no more than deciding whether to accept good advice and gain its benefits or to stay where we are. But the choice not to take prophetic counsel changes the very ground upon which we stand. It becomes more dangerous. The failure to take prophetic counsel lessens our power to take inspired counsel in the future. The best time to have decided to help Noah build the ark was the first time he asked. Each time he asked after that, each failure to respond would have lessened sensitivity to the Spirit. And so each time his request would have seemed more foolish, until the rain came. And then it was too late” (“[[1997 April - Finding Safety in Counsel.md|Finding Safety in Counsel]],” *Ensign,* May 1997, 25).
 
-[^18]: [[3 Nephi 20.24|3 Nephi 20:24]].
+[^18]: [[3 Nephi 20.24|3 Nephi 20:24]].
 
 [^19]: [[Matthew 16.16|Matthew 16:16]]; see also [[John 6.69|John 6:69]].
 
-
-
-
-
-#Faith #Jesus_Christ #Prophets

@@ -1,5 +1,7 @@
 # “Born of Goodly Parents”
 
+Gordon B. Hinckley
+
 By Elder Dallas N. Archibald - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -16,7 +18,7 @@ Recently, I had the opportunity to sit at the back of a chapel during a sharing 
 
 These pleading words sank deep into my heart that day and stirred my soul. What a great burden of responsibility the Lord has placed upon us as parents: to take these children and lead them in the ways of holiness, to guide them through the perils of mortality, and to walk beside them on the straight and narrow path which leads to eternity. Yes, the responsibility is ours to teach them all they must do so that someday, as the mortal is changed to immortal, they will be prepared to return to the presence of the Father and dwell with him and their Elder Brother, Jesus Christ.
 
-The Book of Mormon clearly shows the value of righteousness and dedication in parents. The first statement of Nephi is a tribute to his parents: “I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father” ([[1 Nephi 1.1|1 Ne. 1:1]]). Enos wrote, “And the words which I had often heard my father speak concerning eternal life, and the joy of the saints, sunk deep into my heart” ([[Enos 1.3|Enos 1:3]]). Mormon recorded of Nephi and Lehi, the two sons of Helaman: “For they remembered the words which their father Helaman spake unto them. And these are the words which he spake” ([[Helaman 5.5|Hel. 5:5]]). Here we have a tribute to a goodly parent and also the words which he spoke to his children. He reminded them of the names he had given them so that they would always seek to do good works and desire the precious gift of eternal life (see [[Helaman 5.6|Hel. 5:6–7]][[Helaman 5.7|]]). Then he told them, “O remember, remember, my sons, the words which king Benjamin spake unto his people; yea, remember that there is no other way nor means whereby man can be saved, only through the atoning blood of Jesus Christ” ([[Helaman 5.9|Hel. 5:9]]).
+The Book of Mormon clearly shows the value of righteousness and dedication in parents. The first statement of Nephi is a tribute to his parents: “I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father” ([[1 Nephi 1.1|1 Ne. 1:1]]). Enos wrote, “And the words which I had often heard my father speak concerning eternal life, and the joy of the saints, sunk deep into my heart” ([[Enos 1.3|Enos 1:3]]). Mormon recorded of Nephi and Lehi, the two sons of Helaman: “For they remembered the words which their father Helaman spake unto them. And these are the words which he spake” ([[Helaman 5.5|Hel. 5:5]]). Here we have a tribute to a goodly parent and also the words which he spoke to his children. He reminded them of the names he had given them so that they would always seek to do good works and desire the precious gift of eternal life (see [[Helaman 5.6|Hel. 5:6–7]][[Helaman 5.7|]]). Then he told them, “O remember, remember, my sons, the words which king Benjamin spake unto his people; yea, remember that there is no other way nor means whereby man can be saved, only through the atoning blood of Jesus Christ” ([[Helaman 5.9|Hel. 5:9]]).
 
 The reference to the words of King Benjamin shows that Helaman, as a parent, knew the scriptures and taught his children to follow the words of the prophets. He continued, saying, “And now, my sons, remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation” ([[Helaman 5.12|Hel. 5:12]]).
 
@@ -51,8 +53,3 @@ In the holy name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Parenthood #Self-Esteem #Teaching

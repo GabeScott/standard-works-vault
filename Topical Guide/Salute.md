@@ -1,6 +1,5 @@
 # Salute
 
-
 if thou meet any man, *salute* him not, [[2 Kings 4.29|2 Kings 4:29]].
 
 if ye *salute* your brethren only, [[Matthew 5.47|Matthew 5:47]].
@@ -15,7 +14,7 @@ Carry neither purse, nor scrip, nor shoes: and *salute* no man, [[Luke 10.4|Luke
 
 *Salute* all them that have the rule over you, [[Hebrews 13.24|Hebrews 13:24]].
 
-teacher arise, and ... *salute* his brother or brethren, [[D&C 88.132|D&C 88:132]].
+teacher arise, and … *salute* his brother or brethren, [[D&C 88.132|D&C 88:132]].
 
 I *salute* you in the name of the Lord, [[D&C 88.133|D&C 88:133]].
 

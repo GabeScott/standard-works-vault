@@ -1,8 +1,8 @@
 # Watchful unto Prayer Continually
 
-([[Alma 34.39|Alma 34:39]]; [[Moroni 6.4|Moroni 6:4]]; [[Luke 21.36|Luke 21:36]])
+Jeffrey R. Holland
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -12,7 +12,7 @@ By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 I earnestly pray for the assistance of the Holy Ghost for you and for me as we rejoice and worship together.
 
-In April of 1976, Elder Boyd K. Packer spoke specifically to the youth of the Church in general conference. In his classic message entitled “Spiritual Crocodiles,” he described how during an assignment in Africa he observed well-camouflaged crocodiles waiting to prey on unsuspecting victims. He then likened the crocodiles to Satan, who preys on unwary youth by camouflaging the deadly nature of sin.
+In April of 1976, Elder Boyd K. Packer spoke specifically to the youth of the Church in general conference. In his classic message entitled “Spiritual Crocodiles,” he described how during an assignment in Africa he observed well-camouflaged crocodiles waiting to prey on unsuspecting victims. He then likened the crocodiles to Satan, who preys on unwary youth by camouflaging the deadly nature of sin.
 
 I was 23 years old when Elder Packer gave that talk, and Susan and I were anticipating the birth of our first child in just a few days. We were impressed with the content of his message about avoiding sin and the masterful way he used the ordinary behavior of animals to teach an important spiritual lesson.
 
@@ -70,7 +70,7 @@ The Father’s plan of happiness is designed to provide direction for His childr
 
 Satan does not have a body, and his eternal progress has been halted. Just as water flowing in a riverbed is stopped by a dam, so the adversary’s eternal progress is thwarted because he does not have a physical body. Because of his rebellion, Lucifer has denied himself all of the mortal blessings and experiences made possible through a tabernacle of flesh and bones. One of the potent scriptural meanings of the word *damned* is illustrated in his inability to continue progressing and becoming like our Heavenly Father.
 
-Because a physical body is so central to the Father’s plan of happiness and our spiritual development, Lucifer seeks to frustrate our progression by tempting us to use our bodies improperly. President Russell M. Nelson has taught that spiritual safety ultimately lies in “‘never taking the first enticing step toward going where you should not go and doing what you should not do.’ … As human beings we all have \[physical\] appetites necessary for our survival. ‘These appetites are absolutely essential for the perpetuation of life. So, what does the adversary do? … He attacks us through our appetites. He tempts us to eat things we should not eat, to drink things we should not drink, and to love as we should not love!’”[^10]
+Because a physical body is so central to the Father’s plan of happiness and our spiritual development, Lucifer seeks to frustrate our progression by tempting us to use our bodies improperly. President Russell M. Nelson has taught that spiritual safety ultimately lies in “‘never taking the first enticing step toward going where you should not go and doing what you should not do.’ … As human beings we all have \[physical\] appetites necessary for our survival. ‘These appetites are absolutely essential for the perpetuation of life. So, what does the adversary do? … He attacks us through our appetites. He tempts us to eat things we should not eat, to drink things we should not drink, and to love as we should not love!’”[^10]
 
 One of the ultimate ironies of eternity is that the adversary, who is miserable precisely because he has no physical body, invites and entices us to share in his misery through the improper use of our bodies. The very tool he does not have and cannot use is thus the primary target of his attempts to lure us to physical and spiritual destruction.
 
@@ -99,9 +99,9 @@ I testify that pressing forward on the covenant path provides spiritual safety a
 
 [^2]: [[D&C 45.57|Doctrine and Covenants 45:57]]; emphasis added.
 
-[^3]: [[2 Nephi 28.21|2 Nephi 28:21]]; emphasis added.
+[^3]: [[2 Nephi 28.21|2 Nephi 28:21]]; emphasis added.
 
-[^4]: See [[Ezekiel 33.7|Ezekiel 33:7]]; [[D&C 101.44|Doctrine and Covenants 101:44–58]][[D&C 101.45|]][[D&C 101.46|]][[D&C 101.47|]][[D&C 101.48|]][[D&C 101.49|]][[D&C 101.50|]][[D&C 101.51|]][[D&C 101.52|]][[D&C 101.53|]][[D&C 101.54|]][[D&C 101.55|]][[D&C 101.56|]][[D&C 101.57|]][[D&C 101.58|]]; Guide to the Scriptures, “[Watch, Watchmen](https://churchofjesuschrist.org/study/scriptures/gs/watch-watchmen?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^4]: See [[Ezekiel 33.7|Ezekiel 33:7]]; [[D&C 101.44|Doctrine and Covenants 101:44–58]][[D&C 101.45|]][[D&C 101.46|]][[D&C 101.47|]][[D&C 101.48|]][[D&C 101.49|]][[D&C 101.50|]][[D&C 101.51|]][[D&C 101.52|]][[D&C 101.53|]][[D&C 101.54|]][[D&C 101.55|]][[D&C 101.56|]][[D&C 101.57|]][[D&C 101.58|]]; Guide to the Scriptures, “[Watch, Watchmen](https://www.churchofjesuschrist.org/study/scriptures/gs/watch-watchmen?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^5]: [[Alma 34.39|Alma 34:39]].
 
@@ -109,11 +109,11 @@ I testify that pressing forward on the covenant path provides spiritual safety a
 
 [^7]: [[D&C 50.46|Doctrine and Covenants 50:46]].
 
-[^8]: Guide to the Scriptures, “[Devil](https://churchofjesuschrist.org/study/scriptures/gs/devil?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^8]: Guide to the Scriptures, “[Devil](https://www.churchofjesuschrist.org/study/scriptures/gs/devil?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
-[^9]: See [[2 Nephi 2.27|2 Nephi 2:27]].
+[^9]: See [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^10]: Russell M. Nelson, in [“Advice from the Prophet of the Church to Millennials Living in a Hectic World,”](http://newsroom.churchofjesuschrist.org/article/president-nelson-las-vegas-millennials) Newsroom, Feb. 18, 2018, newsroom.ChurchofJesusChrist.org.
+[^10]: Russell M. Nelson, in [“Advice from the Prophet of the Church to Millennials Living in a Hectic World,”](https://newsroom.churchofjesuschrist.org/article/president-nelson-las-vegas-millennials) Newsroom, Feb. 18, 2018, newsroom.ChurchofJesusChrist.org.
 
 [^11]: See [[Alma 2.7|Alma 2:7–13]][[Alma 2.8|]][[Alma 2.9|]][[Alma 2.10|]][[Alma 2.11|]][[Alma 2.12|]][[Alma 2.13|]].
 
@@ -123,8 +123,3 @@ I testify that pressing forward on the covenant path provides spiritual safety a
 
 [^14]: [[D&C 27.15|Doctrine and Covenants 27:15]].
 
-
-
-
-
-#Spirituality #Temptation

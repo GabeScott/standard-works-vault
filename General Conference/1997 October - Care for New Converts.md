@@ -1,5 +1,7 @@
 # Care for New Converts
 
+Gordon B. Hinckley
+
 By Elder Carl B. Pratt - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -35,8 +37,3 @@ I testify that this is the Church of our Lord Jesus Christ, that He lives, that 
 
 
 
-
-
-
-
-#Conversion #Fellowshipping #Love #Sacrifice

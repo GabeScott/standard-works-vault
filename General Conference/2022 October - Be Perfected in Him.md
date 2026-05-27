@@ -1,6 +1,8 @@
 # Be Perfected in Him
 
-By Elder Paul V. Johnson - *Of the Presidency of the Seventy*
+Dallin H. Oaks
+
+By Elder Paul V. Johnson - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -34,7 +36,7 @@ Can you imagine how overwhelming it would have been for our young grandson Aaron
 
 As Moroni concluded his record, he taught, “Yea, come unto Christ, and be perfected in him, … and if ye shall deny yourselves of all ungodliness, and love God with all your might, mind and strength, then is his grace sufficient for you, that by his grace ye may be perfect in Christ.”[^19] What a comforting and powerful truth! His grace is sufficient for me. His grace is sufficient for you. His grace is sufficient for all who “labour and are heavy laden.”[^20]
 
-With medical treatments like Aaron’s, there is always some uncertainty of the outcome. In fact, Aaron needed a second transplant when the first one had complications. Thankfully, with a spiritual change of heart, we don’t have to wonder if it will happen. When we live according to His will, “relying wholly upon the merits of him who is mighty to save,”[^21] there is a 100 percent guarantee of being cleansed by the Savior’s blood and eventually being perfected in Him. He is “a God of truth, and \[cannot\] lie.”[^22]
+With medical treatments like Aaron’s, there is always some uncertainty of the outcome. In fact, Aaron needed a second transplant when the first one had complications. Thankfully, with a spiritual change of heart, we don’t have to wonder if it will happen. When we live according to His will, “relying wholly upon the merits of him who is mighty to save,”[^21] there is a 100 percent guarantee of being cleansed by the Savior’s blood and eventually being perfected in Him. He is “a God of truth, and \[cannot\] lie.”[^22]
 
 There is no question that this process of change takes time and will not be completed until after this life, but the promise is sure. When the fulfillment of God’s promises seems far off, we still embrace those promises, knowing they will be fulfilled.[^23]
 
@@ -47,11 +49,11 @@ Our Heavenly Father and our Savior, Jesus Christ, love us and have graciously of
 
 [^1]: See [[Alma 23.6|Alma 23:6]].
 
-[^2]: [[2 Nephi 31.21|2 Nephi 31:21]].
+[^2]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
-[^3]: See [[1 Peter 1.18|1 Peter 1:18–19]][[1 Peter 1.19|]]; [[Revelation 1.5|Revelation 1:5]]; [[Moses 6.59|Moses 6:59–60]][[Moses 6.60|]].
+[^3]: See [[1 Peter 1.18|1 Peter 1:18–19]][[1 Peter 1.19|]]; [[Revelation 1.5|Revelation 1:5]]; [[Moses 6.59|Moses 6:59–60]][[Moses 6.60|]].
 
-[^4]: See [[3 Nephi 18.1|3 Nephi 18:1–12]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]]; [[3 Nephi 27.20|27:20]]; [[D&C 132.19|Doctrine and Covenants 132:19]].
+[^4]: See [[3 Nephi 18.1|3 Nephi 18:1–12]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]]; [[3 Nephi 27.20|27:20]]; [[D&C 132.19|Doctrine and Covenants 132:19]].
 
 [^5]: See [[Alma 5.7|Alma 5:7]].
 
@@ -71,13 +73,13 @@ Our Heavenly Father and our Savior, Jesus Christ, love us and have graciously of
 
 [^13]: [[D&C 93.33|Doctrine and Covenants 93:33]].
 
-[^14]: See [[2 Nephi 2.18|2 Nephi 2:18]].
+[^14]: See [[2 Nephi 2.18|2 Nephi 2:18]].
 
-[^15]: See [[2 Nephi 2.27|2 Nephi 2:27]].
+[^15]: See [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^16]: See [[2 Nephi 26.22|2 Nephi 26:22]]; [[2 Nephi 28.22|28:22]]; [[Mosiah 16.5|Mosiah 16:5]]; [[Alma 34.39|Alma 34:39]]; [[3 Nephi 7.5|3 Nephi 7:5]]; [[D&C 29.40|Doctrine and Covenants 29:40]].
+[^16]: See [[2 Nephi 26.22|2 Nephi 26:22]]; [[2 Nephi 28.22|28:22]]; [[Mosiah 16.5|Mosiah 16:5]]; [[Alma 34.39|Alma 34:39]]; [[3 Nephi 7.5|3 Nephi 7:5]]; [[D&C 29.40|Doctrine and Covenants 29:40]].
 
-[^17]: [[3 Nephi 12.48|3 Nephi 12:48]].
+[^17]: [[3 Nephi 12.48|3 Nephi 12:48]].
 
 [^18]: [[D&C 76.69|Doctrine and Covenants 76:69]].
 
@@ -85,7 +87,7 @@ Our Heavenly Father and our Savior, Jesus Christ, love us and have graciously of
 
 [^20]: [[Matthew 11.28|Matthew 11:28]].
 
-[^21]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^21]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
 [^22]: [[Ether 3.12|Ether 3:12]].
 
@@ -93,8 +95,3 @@ Our Heavenly Father and our Savior, Jesus Christ, love us and have graciously of
 
 [^24]: See [[Moses 1.39|Moses 1:39]].
 
-
-
-
-
-#Atonement #Faith #Grace #Healing #Jesus_Christ

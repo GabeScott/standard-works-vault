@@ -1,5 +1,7 @@
 # Stay on the Path
 
+Thomas S. Monson
+
 By Rosemary M. Wixom - *Primary General President*
 
 *Given in the October session of the 2010 General Conference*
@@ -18,7 +20,7 @@ Parents, grandparents, neighbors, friends, Primary leaders—each of us can reac
 
 No child needs to walk the path alone, so long as we speak freely to our children of the plan of salvation. Understanding the plan will help them hold to the truths that they are children of God and He has a plan for them, that they lived with Him in the premortal existence, that they shouted for joy to come to this earth, and that through the Savior’s help, we all can return to our Heavenly Father’s presence. If they understand the plan and who they are, they will not fear.
 
-In [[Alma 24.1|Alma 24]][[Alma 24.2|]][[Alma 24.3|]][[Alma 24.4|]][[Alma 24.5|]][[Alma 24.6|]][[Alma 24.7|]][[Alma 24.8|]][[Alma 24.9|]][[Alma 24.10|]][[Alma 24.11|]][[Alma 24.12|]][[Alma 24.13|]][[Alma 24.14|]][[Alma 24.15|]][[Alma 24.16|]][[Alma 24.17|]][[Alma 24.18|]][[Alma 24.19|]][[Alma 24.20|]][[Alma 24.21|]][[Alma 24.22|]][[Alma 24.23|]][[Alma 24.24|]][[Alma 24.25|]][[Alma 24.26|]][[Alma 24.27|]][[Alma 24.28|]][[Alma 24.29|]][[Alma 24.30|]] we read, “He loveth our souls \[and\] he loveth our children; therefore, … the plan of salvation might be made known unto us as well as unto future generations.”[^2]
+In [[Alma 24.1|Alma 24]] we read, “He loveth our souls \[and\] he loveth our children; therefore, … the plan of salvation might be made known unto us as well as unto future generations.”[^2]
 
 We begin to make the plan known to our children when we hold tight to the iron rod ourselves.
 
@@ -51,12 +53,7 @@ Jacob said, “O how great the plan of our God!”[^3] The Savior has “marked 
 
 [^2]: [[Alma 24.14|Alma 24:14]].
 
-[^3]: [[2 Nephi 9.13|2 Nephi 9:13]].
+[^3]: [[2 Nephi 9.13|2 Nephi 9:13]].
 
-[^4]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
+[^4]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-
-
-
-
-#Children #Example #Plan_Of_Salvation #Prayer #Scripture_Study

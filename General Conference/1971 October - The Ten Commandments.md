@@ -1,6 +1,8 @@
 # The Ten Commandments
 
-By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 My dear brothers and sisters: There is great responsibility that goes with being a Latter-day Saint. There is no knowledge as important as knowledge revealed to man from God. I like to reflect on the following passage of scripture:
 
-“And God said, Let us make man in our image, after our likeness. …
+“And God said, Let us make man in our image, after our likeness. …
 
 “So God created man in his own image, in the image of God created he him; male and female created he them.” ([[Genesis 1.26|Gen. 1:26–27]][[Genesis 1.27|]].)
 
@@ -20,7 +22,7 @@ This afternoon I am going to read and briefly comment on the Ten Commandments of
 
 God has warned and commanded his children not to love and worship idols or false gods made by the minds and hands of men. He said:
 
-“I am the Lord thy God. …
+“I am the Lord thy God. …
 
 “Thou shalt have no other gods before me.
 
@@ -34,17 +36,17 @@ Fathers, if we fail to love the living God and if we show greater love and inter
 
 The apostle Paul warned the saints at Rome of the perils and evils that come to man when he loves and worships false gods and worldly creations more than he loves God. He said:
 
-“… when they knew God, they glorified him not as God, neither were thankful; but became vain in their imaginations, and their foolish heart was darkened.
+“… when they knew God, they glorified him not as God, neither were thankful; but became vain in their imaginations, and their foolish heart was darkened.
 
 “Professing themselves to be wise, they became fools.
 
 “Wherefore God also gave them up to uncleanness through the lusts of their own hearts, to dishonour their own bodies between themselves:
 
-“Who changed the truth of God into a lie, and *worshipped and served the creature* more than the Creator. …” ([[Romans 1.21|Rom. 1:21–22, 24–25]][[Romans 1.22|]][[Romans 1.24|]][[Romans 1.25|]]. Italics added.)
+“Who changed the truth of God into a lie, and *worshipped and served the creature* more than the Creator. …” ([[Romans 1.21|Rom. 1:21–22, 24–25]][[Romans 1.22|]][[Romans 1.24|]][[Romans 1.25|]]. Italics added.)
 
 Paul continues on to tell what happens in the lives of men who worship false man-made doctrines and love the creature more than the Creator. He said:
 
-“… as they did not like to retain God in their knowledge, God gave them over to a reprobate mind, to do those things which are not convenient;
+“… as they did not like to retain God in their knowledge, God gave them over to a reprobate mind, to do those things which are not convenient;
 
 “Being filled with all unrighteousness, fornication, wickedness, covetousness, maliciousness; full of envy, murder, debate, deceit, malignity; whisperers,
 
@@ -62,11 +64,11 @@ To know God and Jesus Christ is divine knowledge.
 
 The Lord also commanded: “Thou shalt not take the name of the Lord thy God in vain; for the Lord will not hold him guiltless that taketh his name in vain.” ([[Exodus 20.7|Ex. 20:7]].)
 
-Jesus Christ taught that we should hallow the name of our Heavenly Father; he said, “… Our Father which art in heaven, Hallowed be thy name.” ([[Matthew 6.9|Matt. 6:9]].)
+Jesus Christ taught that we should hallow the name of our Heavenly Father; he said, “… Our Father which art in heaven, Hallowed be thy name.” ([[Matthew 6.9|Matt. 6:9]].)
 
-President David O. McKay once said, “Reverence for God’s name should be dominant in every home. Profanity should never be expressed in a home in this Church. … If there were more reverence in human hearts, there would be less room for sin and sorrow and increased capacity for joy and gladness. …” (*Man May Know for Himself* \[Deseret Book Co., 1967\], p. 29.)
+President David O. McKay once said, “Reverence for God’s name should be dominant in every home. Profanity should never be expressed in a home in this Church. … If there were more reverence in human hearts, there would be less room for sin and sorrow and increased capacity for joy and gladness. …” (*Man May Know for Himself* \[Deseret Book Co., 1967\], p. 29.)
 
-Ruskin wrote, “Reverence is the noblest state in which a man can live in the world. Reverence is one of the signs of strength; irreverence one of the surest indications of weakness. No man will rise high who jeers at sacred things. …”
+Ruskin wrote, “Reverence is the noblest state in which a man can live in the world. Reverence is one of the signs of strength; irreverence one of the surest indications of weakness. No man will rise high who jeers at sacred things. …”
 
 Nobleness and dignity are the fruits of reverence.
 
@@ -90,13 +92,13 @@ God said, “Thou shalt not kill.” ([[Exodus 20.13|Ex. 20:13]].) We should hav
 
 God commanded his children, “Thou shalt not commit adultery.” ([[Exodus 20.14|Ex. 20:14]].) God will judge man on the basis of this divine law. Adultery is sex relations with anyone of the opposite sex other than your legally and lawfully wedded husband or wife.
 
-The Lord said: “… he that committeth adultery, and repenteth not, shall be cast out.
+The Lord said: “… he that committeth adultery, and repenteth not, shall be cast out.
 
 “But he that has committed adultery and repents with all his heart, and forsaketh it, and doeth it no more, thou shalt forgive;
 
 “But if he doeth it again, he shall not be forgiven, but shall be cast out.” ([[D&C 42.24|D&C 42:24–26]][[D&C 42.25|]][[D&C 42.26|]].) I may add that “cast out” may carry the penalty of excommunication from The Church of Jesus Christ of Latter-day Saints.
 
-The apostle Paul said, “… be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind … shall inherit the kingdom of God.” ([[1 Corinthians 6.9|1 Cor. 6:9–10]][[1 Corinthians 6.10|]].)
+The apostle Paul said, “… be not deceived: neither fornicators, nor idolaters, nor adulterers, nor effeminate, nor abusers of themselves with mankind … shall inherit the kingdom of God.” ([[1 Corinthians 6.9|1 Cor. 6:9–10]][[1 Corinthians 6.10|]].)
 
 Fornication and homosexual acts are inspired by the devil and are grievous sins in the sight of God. Fornication and adultery will destroy man’s Godlike potential and bring man nearer the lower animal status.
 
@@ -119,8 +121,3 @@ I bear witness that God lives, that Jesus Christ is our Savior, mediator, and ou
 
 
 
-
-
-
-
-#Commandments #Obedience

@@ -1,11 +1,10 @@
 # Health
 
-
-*See also* [[Heal, Healing.md|Heal]]; [[Sickness, Sick.md|Sickness]]; [[Word of Wisdom.md|Word of Wisdom]]
+*See also* [[Heal.md|Heal]]; [[Sickness.md|Sickness]]; [[Word of Wisdom.md|Word of Wisdom]]
 
 *health* to thy navel, and marrow to thy bones, [[Proverbs 3.8|Proverbs 3:8]] ([[D&C 89.18|D&C 89:18]]).
 
-they that wait upon the Lord ... renew their *strength*, [[Isaiah 40.31|Isaiah 40:31]].
+they that wait upon the Lord … renew their *strength*, [[Isaiah 40.31|Isaiah 40:31]].
 
 thine *health* shall spring forth speedily, [[Isaiah 58.8|Isaiah 58:8]].
 

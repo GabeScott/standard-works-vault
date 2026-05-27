@@ -1,6 +1,8 @@
 # Fourth Floor, Last Door
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Jean B. Bingham
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -8,7 +10,7 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/fourth-floor-last-door?lang=eng)
 
-My dear sisters, dear friends, how blessed we are to assemble again in this worldwide conference under the direction and leadership of our dear prophet and President, Thomas S. Monson. President, we love you and we sustain you! We know you love the sisters of the Church.
+My dear sisters, dear friends, how blessed we are to assemble again in this worldwide conference under the direction and leadership of our dear prophet and President, Thomas S. Monson. President, we love you and we sustain you! We know you love the sisters of the Church.
 
 I love attending this wonderful session of general conference devoted to the sisters of the Church.
 
@@ -142,32 +144,32 @@ He has not abandoned you.
 
 He will not forsake you.
 
-It is my testimony and apostolic blessing to each one of you that you will feel in your heart and mind this sublime truth for yourselves. Live in faith, dear friends, dear sisters, and “the Lord \[our\] God \[will\] increase you a thousand times and bless you as he has promised!”[^14]
+It is my testimony and apostolic blessing to each one of you that you will feel in your heart and mind this sublime truth for yourselves. Live in faith, dear friends, dear sisters, and “the Lord \[our\] God \[will\] increase you a thousand times and bless you as he has promised!”[^14]
 
 I leave you my faith, my conviction, and my certain and unshakable witness that this is the work of God. In the sacred name of our beloved Savior, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See Dieter F. Uchtdorf, “[[2004 October - The Opportunity to Testify.md|The Opportunity to Testify]],” *Ensign* or *Liahona,* Nov. 2004, 74; *Sister Eternal* (2005).
+[^1]: See Dieter F. Uchtdorf, “[[2004 October - The Opportunity to Testify.md|The Opportunity to Testify]],” *Ensign* or *Liahona,* Nov. 2004, 74; *Sister Eternal* (2005).
 
 [^2]: Hebrews 11:1, New International Version (1984).
 
-[^3]: 1 Corinthians 2:14, New International Version (2011).
+[^3]: 1 Corinthians 2:14, New International Version (2011).
 
 [^4]: Antoine de Saint-Exupéry, *The Little Prince,* trans. Richard Howard (2000), 63.
 
 [^5]: See [[Hebrews 11.3|Hebrews 11:3, 5, 29, 35]][[Hebrews 11.5|]][[Hebrews 11.29|]][[Hebrews 11.35|]]; [[Ether 12.30|Ether 12:30]]; [[Moses 7.13|Moses 7:13]].
 
-[^6]: See [[2 Corinthians 12.7|2 Corinthians 12:7–10]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]][[2 Corinthians 12.10|]].
+[^6]: See [[2 Corinthians 12.7|2 Corinthians 12:7–10]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]][[2 Corinthians 12.10|]].
 
 [^7]: See [[Isaiah 55.8|Isaiah 55:8–9]][[Isaiah 55.9|]].
 
-[^8]: See [[2 Nephi 26.24|2 Nephi 26:24]].
+[^8]: See [[2 Nephi 26.24|2 Nephi 26:24]].
 
 [^9]: See [[Romans 8.28|Romans 8:28]].
 
-[^10]: See [[2 Corinthians 5.7|2 Corinthians 5:7]].
+[^10]: See [[2 Corinthians 5.7|2 Corinthians 5:7]].
 
 [^11]: [[Matthew 7.7|Matthew 7:7]].
 
@@ -177,8 +179,3 @@ I leave you my faith, my conviction, and my certain and unshakable witness that 
 
 [^14]: Deuteronomy 1:11, New International Version (2011).
 
-
-
-
-
-#Agency #Endurance #Faith #Trust

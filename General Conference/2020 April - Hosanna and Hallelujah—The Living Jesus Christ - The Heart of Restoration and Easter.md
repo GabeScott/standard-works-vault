@@ -1,6 +1,8 @@
 # Hosanna and Hallelujah—The Living Jesus Christ: The Heart of Restoration and Easter
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -16,11 +18,11 @@ In this mortal period, we are all a little like Ivy and her violin. We begin at 
 
 Anniversaries, including this bicentennial, highlight patterns of restoration.[^3] In celebrating the ongoing Restoration of the gospel of Jesus Christ, we also prepare for Easter. In both, we rejoice in the return of Jesus Christ. He lives—not only then, but now; not just for some, but for all. He came and comes to heal the brokenhearted, deliver the captives, recover sight to the blind, and set at liberty those who are bruised.[^4] That’s each of us. His redeeming promises apply, no matter our past, our present, or concerns for our future.
 
-Tomorrow is Palm Sunday. Traditionally, palms are a sacred symbol to express joy in our Lord, as in *Christ’s Triumphal Entry into Jerusalem,* where “much people … took branches of palm trees, and went forth to meet him.”[^5] (You may be interested to know the original of this Harry Anderson painting hangs in President Russell M. Nelson’s office, just behind his desk.) In the book of Revelation, those who praise God and the Lamb do so “clothed with white robes, and palms in their hands.”[^6] Along with “robes of righteousness” and “crowns of glory,” palms are included in the Kirtland Temple dedicatory prayer.[^7]
+Tomorrow is Palm Sunday. Traditionally, palms are a sacred symbol to express joy in our Lord, as in *Christ’s Triumphal Entry into Jerusalem,* where “much people … took branches of palm trees, and went forth to meet him.”[^5] (You may be interested to know the original of this Harry Anderson painting hangs in President Russell M. Nelson’s office, just behind his desk.) In the book of Revelation, those who praise God and the Lamb do so “clothed with white robes, and palms in their hands.”[^6] Along with “robes of righteousness” and “crowns of glory,” palms are included in the Kirtland Temple dedicatory prayer.[^7]
 
 Of course, the significance of Palm Sunday goes beyond crowds greeting Jesus with palms. On Palm Sunday, Jesus entered Jerusalem in ways the faithful recognized as fulfillment of prophecy. As Zechariah[^8] and the Psalmist prophetically foretold, our Lord entered Jerusalem riding a colt as multitudes knowingly cried, “Hosanna in the highest.”[^9] Hosanna means “save now.”[^10] Then, as now, we rejoice, “Blessed be he that cometh in the name of the Lord.”[^11]
 
-A week following Palm Sunday is Easter Sunday. President Russell M. Nelson teaches that Jesus Christ “came to pay a debt He didn’t owe because we owed a debt we couldn’t pay.”[^12] Indeed, through the Atonement of Christ, all God’s children “may be saved, by obedience to the laws and ordinances of the Gospel.”[^13] At Easter, we sing hallelujah. Hallelujah means “praise ye the Lord Jehovah.”[^14] The “Hallelujah Chorus” in Handel’s *Messiah* is a beloved Easter declaration that He is “King of Kings, and Lord of Lords.”[^15]
+A week following Palm Sunday is Easter Sunday. President Russell M. Nelson teaches that Jesus Christ “came to pay a debt He didn’t owe because we owed a debt we couldn’t pay.”[^12] Indeed, through the Atonement of Christ, all God’s children “may be saved, by obedience to the laws and ordinances of the Gospel.”[^13] At Easter, we sing hallelujah. Hallelujah means “praise ye the Lord Jehovah.”[^14] The “Hallelujah Chorus” in Handel’s *Messiah* is a beloved Easter declaration that He is “King of Kings, and Lord of Lords.”[^15]
 
 The sacred events between Palm Sunday and Easter Sunday are the story of hosanna and hallelujah. Hosanna is our plea for God to save. Hallelujah expresses our praise to the Lord for the hope of salvation and exaltation. In hosanna and hallelujah we recognize the living Jesus Christ as the heart of Easter and latter-day restoration.
 
@@ -65,9 +67,9 @@ Dear brothers and sisters everywhere, as we meet and learn together, your faith 
 
 [^1]: [[John 16.33|John 16:33]].
 
-[^2]: See [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]].
+[^2]: See [[Jacob 5.1|Jacob 5]].
 
-[^3]: As scripturally prophesied, human history manifests periods or cycles of spiritual decline we call apostasy or falling away, and periods of renewed light we call spiritual restoration; see, for example, [[2 Thessalonians 2.3|2 Thessalonians 2:3]].
+[^3]: As scripturally prophesied, human history manifests periods or cycles of spiritual decline we call apostasy or falling away, and periods of renewed light we call spiritual restoration; see, for example, [[2 Thessalonians 2.3|2 Thessalonians 2:3]].
 
 [^4]: See [[Luke 4.18|Luke 4:18]].
 
@@ -81,19 +83,19 @@ Dear brothers and sisters everywhere, as we meet and learn together, your faith 
 
 [^9]: [[Matthew 21.9|Matthew 21:9]].
 
-[^10]: See Bible Dictionary, “[Hosanna](https://churchofjesuschrist.org/study/scriptures/bd/hosanna?lang=eng).” From Old Testament times, the waving of palm branches accompanied the chanting of “Save now, I beseech thee, O Lord.” [[Psalms 118.25|Psalm 118:25]] is the full expression of the traditional chiastic Messianic plea: “Save now, I beseech thee, O Lord: O Lord, I beseech thee, send now prosperity.”
+[^10]: See Bible Dictionary, “[[BD Hosanna|Hosanna]].” From Old Testament times, the waving of palm branches accompanied the chanting of “Save now, I beseech thee, O Lord.” [[Psalms 118.25|Psalm 118:25]] is the full expression of the traditional chiastic Messianic plea: “Save now, I beseech thee, O Lord: O Lord, I beseech thee, send now prosperity.”
 
-[^11]: [[Psalms 118.26|Psalm 118:26]]; see also [[3 Nephi 11.17|3 Nephi 11:17]].
+[^11]: [[Psalms 118.26|Psalm 118:26]]; see also [[3 Nephi 11.17|3 Nephi 11:17]].
 
-[^12]: Russell M. Nelson, in *Handel’s Messiah: Debtor’s Prison* (video), ChurchofJesusChrist.org/media-library.
+[^12]: Russell M. Nelson, in *[Handel’s Messiah: Debtor’s Prison](https://www.churchofjesuschrist.org/media-library/video/2017-04-0001-handels-messiah-debtors-prison?lang=eng)* (video), ChurchofJesusChrist.org/media-library.
 
 [^13]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
-[^14]: See Bible Dictionary, “[Hallelujah](https://churchofjesuschrist.org/study/scriptures/bd/hallelujah?lang=eng).”
+[^14]: See Bible Dictionary, “[[BD Hallelujah|Hallelujah]].”
 
 [^15]: George Frideric Handel, *Messiah,* ed. T. Tertius Noble (1912), viii; see also [[Revelation 17.14|Revelation 17:14]].
 
-[^16]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 419.
+[^16]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-36?lang=eng)* (2007), 419.
 
 [^17]: [[Articles of Faith 1.1|Articles of Faith 1:1]].
 
@@ -101,7 +103,7 @@ Dear brothers and sisters everywhere, as we meet and learn together, your faith 
 
 [^19]: [[D&C 110.4|Doctrine and Covenants 110:4]].
 
-[^20]: See [[Revelation 1.8|Revelation 1:8]]; [[3 Nephi 9.18|3 Nephi 9:18]]; [[D&C 19.1|Doctrine and Covenants 19:1]]; [[D&C 38.1|38:1]]; [[D&C 45.7|45:7]].
+[^20]: See [[Revelation 1.8|Revelation 1:8]]; [[3 Nephi 9.18|3 Nephi 9:18]]; [[D&C 19.1|Doctrine and Covenants 19:1]]; [[D&C 38.1|38:1]]; [[D&C 45.7|45:7]].
 
 [^21]: See [[Hebrews 12.2|Hebrews 12:2]]; [[Moroni 6.4|Moroni 6:4]].
 
@@ -109,7 +111,7 @@ Dear brothers and sisters everywhere, as we meet and learn together, your faith 
 
 [^23]: [[Malachi 4.5|Malachi 4:5]].
 
-[^24]: See Stephen D. Ricks, “The Appearance of Elijah and Moses in the Kirtland Temple and the Jewish Passover,” *BYU Studies,* vol. 23, no. 4 (1986), 483–86, byustudies.byu.edu.
+[^24]: See Stephen D. Ricks, “The Appearance of Elijah and Moses in the Kirtland Temple and the Jewish Passover,” *BYU Studies,* vol. 23, no. 4 (1986), 483–86, byustudies.byu.edu.
 
 [^25]: See [[D&C 86.10|Doctrine and Covenants 86:10]]; see also [[Acts 3.19|Acts 3:19–21]][[Acts 3.20|]][[Acts 3.21|]].
 
@@ -129,7 +131,7 @@ Dear brothers and sisters everywhere, as we meet and learn together, your faith 
 
 [^33]: [[Alma 41.13|Alma 41:13]].
 
-[^34]: The words *restore, restored, restoration,* or other variants appear 22 times in [[Alma 40.22|Alma 40:22–24]][[Alma 40.23|]][[Alma 40.24|]] and in [[Alma 41.1|Alma 41]][[Alma 41.2|]][[Alma 41.3|]][[Alma 41.4|]][[Alma 41.5|]][[Alma 41.6|]][[Alma 41.7|]][[Alma 41.8|]][[Alma 41.9|]][[Alma 41.10|]][[Alma 41.11|]][[Alma 41.12|]][[Alma 41.13|]][[Alma 41.14|]][[Alma 41.15|]], emphasizing both physical and spiritual restoration.
+[^34]: The words *restore, restored, restoration,* or other variants appear 22 times in [[Alma 40.22|Alma 40:22–24]][[Alma 40.23|]][[Alma 40.24|]] and in [[Alma 41.1|Alma 41]], emphasizing both physical and spiritual restoration.
 
 [^35]: [[Alma 41.14|Alma 41:14]].
 
@@ -141,13 +143,13 @@ Dear brothers and sisters everywhere, as we meet and learn together, your faith 
 
 [^39]: [[Alma 42.15|Alma 42:15]].
 
-[^40]: [[2 Nephi 1.15|2 Nephi 1:15]].
+[^40]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
-[^41]: [[Isaiah 49.16|Isaiah 49:16]]; [[1 Nephi 21.16|1 Nephi 21:16]].
+[^41]: [[Isaiah 49.16|Isaiah 49:16]]; [[1 Nephi 21.16|1 Nephi 21:16]].
 
 [^42]: [[D&C 45.52|Doctrine and Covenants 45:52]].
 
-[^43]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^43]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 [^44]: “Abide with Me!” *Hymns,* no. 166.
 
@@ -157,8 +159,3 @@ Dear brothers and sisters everywhere, as we meet and learn together, your faith 
 
 [^47]: [[D&C 45.71|Doctrine and Covenants 45:71]].
 
-
-
-
-
-#Jesus_Christ #Restoration #Resurrection

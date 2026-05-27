@@ -1,6 +1,5 @@
 # Renew
 
-
 *See also* [[Earth, Renewal of.md|Earth, Renewal of]]
 
 *renew* a right spirit within me, [[Psalms 51.10|Psalms 51:10]].
@@ -17,7 +16,7 @@ be *renewed* in the spirit of your mind, [[Ephesians 4.23|Ephesians 4:23]].
 
 new man, which is *renewed* in knowledge, [[Colossians 3.10|Colossians 3:10]].
 
-saved us, by the ... *renewing* of the Holy Ghost, [[Titus 3.5|Titus 3:5]].
+saved us, by the … *renewing* of the Holy Ghost, [[Titus 3.5|Titus 3:5]].
 
 fall away, to *renew* them again unto repentance, [[Hebrews 6.6|Hebrews 6:6]].
 

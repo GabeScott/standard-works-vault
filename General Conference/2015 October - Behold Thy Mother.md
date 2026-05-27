@@ -1,6 +1,8 @@
 # Behold Thy Mother
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Rosemary M. Wixom
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/10/behold-thy-mother?lang=eng)
 
-May I join with all of you in welcoming Elder Ronald A. Rasband, Elder Gary E. Stevenson, and Elder Dale G. Renlund and their wives to the sweetest association they could possibly imagine.
+May I join with all of you in welcoming Elder Ronald A. Rasband, Elder Gary E. Stevenson, and Elder Dale G. Renlund and their wives to the sweetest association they could possibly imagine.
 
 Prophesying of the Savior’s Atonement, Isaiah wrote, “He hath borne our griefs, and carried our sorrows.”[^1] A majestic latter-day vision emphasized that “\[Jesus\] came into the world … to bear the sins of the world.”[^2] Both ancient and modern scripture testify that “he redeemed them, and bore them, and carried them all the days of old.”[^3] A favorite hymn pleads with us to “hear your great Deliv’rer’s voice!”[^4]
 
@@ -38,7 +40,7 @@ But with the grace of God, her own tenacity, and the help of scores of Church le
 
 He started back to church. He chose to partake of the sacrament willingly and worthily. He again obtained a temple recommend and accepted a call to serve as an early-morning seminary teacher, where he was wonderfully successful. And now, after *five years,* he has, at his own request and with the Church’s considerable assistance, reentered the mission field to complete his service to the Lord. I have wept over the courage, integrity, and determination of this young man and his family to work things out and to help him keep his faith. He knows he owes much to many, but he knows he owes the most to two messianic figures in his life, two who bore him and carried him, labored with him and delivered him—his Savior, the Lord Jesus Christ, and his determined, redemptive, absolutely saintly mother.
 
-Lastly, this from the rededication of the Mexico City Mexico Temple just three weeks ago. It was there with President Henry B. Eyring that we saw our beloved friend Lisa Tuttle Pieper stand in that moving dedicatory service. But she stood with some difficulty because with one arm she was holding up her beloved but severely challenged daughter, Dora, while with the other she was trying to manipulate Dora’s dysfunctional right hand so this limited but eternally precious daughter of God could wave a white handkerchief and, with groans intelligible only to herself and the angels of heaven, cry out, “Hosanna, hosanna, hosanna to God and the Lamb.”[^12]
+Lastly, this from the rededication of the Mexico City Mexico Temple just three weeks ago. It was there with President Henry B. Eyring that we saw our beloved friend Lisa Tuttle Pieper stand in that moving dedicatory service. But she stood with some difficulty because with one arm she was holding up her beloved but severely challenged daughter, Dora, while with the other she was trying to manipulate Dora’s dysfunctional right hand so this limited but eternally precious daughter of God could wave a white handkerchief and, with groans intelligible only to herself and the angels of heaven, cry out, “Hosanna, hosanna, hosanna to God and the Lamb.”[^12]
 
 To all of our mothers everywhere, past, present, or future, I say, “Thank you. Thank you for giving birth, for shaping souls, for forming character, and for demonstrating the pure love of Christ.” To Mother Eve, to Sarah, Rebekah, and Rachel, to Mary of Nazareth, and to a Mother in Heaven, I say, “Thank you for your crucial role in fulfilling the purposes of eternity.” To all mothers in every circumstance, including those who struggle—and all will—I say, “Be peaceful. Believe in God and yourself. You are doing better than you think you are. In fact, you are saviors on Mount Zion,[^13] and like the Master you follow, your love ‘never faileth.’[^14]” I can pay no higher tribute to anyone. In the name of Jesus Christ, amen.
 
@@ -53,17 +55,17 @@ To all of our mothers everywhere, past, present, or future, I say, “Thank you.
 
 [^4]: “Israel, Israel, God Is Calling,” *Hymns,* no. 7.
 
-[^5]: [[3 Nephi 27.14|3 Nephi 27:14]].
+[^5]: [[3 Nephi 27.14|3 Nephi 27:14]].
 
 [^6]: [[John 19.27|John 19:27]].
 
 [^7]: See [[Isaiah 49.15|Isaiah 49:15]].
 
-[^8]: [[Moroni 7.45|Moroni 7:45]]; see also [[1 Corinthians 13.4|1 Corinthians 13:4–7]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]].
+[^8]: [[Moroni 7.45|Moroni 7:45]]; see also [[1 Corinthians 13.4|1 Corinthians 13:4–7]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]].
 
-[^9]: [[Moroni 7.46|Moroni 7:46]]; see also [[1 Corinthians 13.8|1 Corinthians 13:8]].
+[^9]: [[Moroni 7.46|Moroni 7:46]]; see also [[1 Corinthians 13.8|1 Corinthians 13:8]].
 
-[^10]: [[3 Nephi 22.10|3 Nephi 22:10]]; see also [[Isaiah 54.10|Isaiah 54:10]].
+[^10]: [[3 Nephi 22.10|3 Nephi 22:10]]; see also [[Isaiah 54.10|Isaiah 54:10]].
 
 [^11]: [[John 17.4|John 17:4]].
 
@@ -71,10 +73,5 @@ To all of our mothers everywhere, past, present, or future, I say, “Thank you.
 
 [^13]: See [[Obadiah 1.21|Obadiah 1:21]].
 
-[^14]: [[Moroni 7.46|Moroni 7:46]]; see also [[1 Corinthians 13.8|1 Corinthians 13:8]].
+[^14]: [[Moroni 7.46|Moroni 7:46]]; see also [[1 Corinthians 13.8|1 Corinthians 13:8]].
 
-
-
-
-
-#Family #Jesus_Christ #Love #Motherhood

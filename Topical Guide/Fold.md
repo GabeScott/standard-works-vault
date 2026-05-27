@@ -1,9 +1,8 @@
 # Fold
 
-
 bring them again to their *folds*, [[Jeremiah 23.3|Jeremiah 23:3]].
 
-other sheep I have, which are not of this *fold*, [[John 10.16|John 10:16]] ([[3 Nephi 15.17|3 Nephi 15:17]], [[3 Nephi 15.21|3 Nephi 15:21]]).
+other sheep I have, which are not of this *fold*, [[John 10.16|John 10:16]] ([[3 Nephi 15.17|3 Nephi 15:17]]; [[3 Nephi 15.21|3 Nephi 15:21]]).
 
 will they not come unto the true *fold* of God, [[1 Nephi 15.15|1 Nephi 15:15]].
 

@@ -1,6 +1,5 @@
 # Forget, Forgat, Forgot, Forgotten
 
-
 Yet did not the chief butler remember Joseph, but *forgat* him, [[Genesis 40.23|Genesis 40:23]].
 
 lest thou *forget* the things which thine eyes have seen, [[Deuteronomy 4.9|Deuteronomy 4:9]].
@@ -43,7 +42,7 @@ Have ye *forgotten* the wickedness of your fathers, [[Jeremiah 44.9|Jeremiah 44:
 
 Because thou hast *forgotten* me, [[Ezekiel 23.35|Ezekiel 23:35]].
 
-hast *forgotten* the law ... I will also *forget* thy children, [[Hosea 4.6|Hosea 4:6]].
+hast *forgotten* the law … I will also *forget* thy children, [[Hosea 4.6|Hosea 4:6]].
 
 For Israel hath *forgotten* his Maker, [[Hosea 8.14|Hosea 8:14]].
 
@@ -51,7 +50,7 @@ Surely I will never *forget* any of their works, [[Amos 8.7|Amos 8:7]].
 
 they had *forgotten* to take bread, [[Matthew 16.5|Matthew 16:5]] ([[Mark 8.14|Mark 8:14]]).
 
-sparrows ... not one of them is *forgotten* before God, [[Luke 12.6|Luke 12:6]].
+sparrows … not one of them is *forgotten* before God, [[Luke 12.6|Luke 12:6]].
 
 ye have *forgotten* the exhortation which speaketh, [[Hebrews 12.5|Hebrews 12:5]].
 
@@ -65,8 +64,8 @@ how quick the children of men do *forget* the Lord, [[Alma 46.8|Alma 46:8]].
 
 how could you have *forgotten* your God, [[Helaman 7.20|Helaman 7:20]].
 
-when he doth prosper his people ... they ... *forget* the Lord, [[Helaman 12.2|Helaman 12:2]].
+when he doth prosper his people … they … *forget* the Lord, [[Helaman 12.2|Helaman 12:2]].
 
 stupor of thought that shall cause you to *forget*, [[D&C 9.9|D&C 9:9]].
 
-curse ... all the nations that *forget* God, [[D&C 133.2|D&C 133:2]].
+curse … all the nations that *forget* God, [[D&C 133.2|D&C 133:2]].

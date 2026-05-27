@@ -1,5 +1,7 @@
 # An Outpouring of Blessings
 
+Robert D. Hales
+
 By Julie B. Beck - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -67,7 +69,7 @@ I am grateful that through the infinite fairness and love of God, all men and wo
 
 [^2]: See [[D&C 88.36|D&C 88:36–45]][[D&C 88.37|]][[D&C 88.38|]][[D&C 88.39|]][[D&C 88.40|]][[D&C 88.41|]][[D&C 88.42|]][[D&C 88.43|]][[D&C 88.44|]][[D&C 88.45|]]; [[Abraham 3.1|Abraham 3]][[Abraham 3.2|]][[Abraham 3.3|]][[Abraham 3.4|]][[Abraham 3.5|]][[Abraham 3.6|]][[Abraham 3.7|]][[Abraham 3.8|]][[Abraham 3.9|]][[Abraham 3.10|]][[Abraham 3.11|]][[Abraham 3.12|]][[Abraham 3.13|]][[Abraham 3.14|]][[Abraham 3.15|]][[Abraham 3.16|]][[Abraham 3.17|]][[Abraham 3.18|]][[Abraham 3.19|]][[Abraham 3.20|]][[Abraham 3.21|]][[Abraham 3.22|]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]][[Abraham 3.28|]].
 
-[^3]: Dallin H. Oaks, in Conference Report, Oct. 2005, 26; or *Ensign,* Nov. 2005, 26.
+[^3]: Dallin H. Oaks, in Conference Report, Oct. 2005, [[2005 October - Priesthood Authority in the Family and the Church.md|26]]; or *Ensign,* Nov. 2005, 26.
 
 [^4]: See *Family Guidebook* (2001), 19.
 
@@ -99,8 +101,3 @@ I am grateful that through the infinite fairness and love of God, all men and wo
 
 [^18]: [[Alma 9.27|Alma 9:27]].
 
-
-
-
-
-#Blessings #Priesthood #Spirituality

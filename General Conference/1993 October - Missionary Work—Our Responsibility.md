@@ -1,5 +1,7 @@
 # Missionary Work—Our Responsibility
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -10,9 +12,9 @@ I have prayed that the blessings of heaven will direct my expressions this morni
 
 A few weeks ago, joy and nostalgia dominated our conversation as Sister Haight and I drove to the airport to see our eleventh grandchild leave for his mission. During our brief visit—with warm greetings and emotional embraces—we recalled some of the historical accounts of how the message of the restoration of the gospel had influenced our family, of how our missionary grandson’s great-great-grandfather, Joseph Toronto, heard and believed the message of the gospel from missionaries in Boston in 1843, 150 years ago.
 
-Joseph Toronto assisted with the building of the Nauvoo Temple. Brigham Young had made a strong appeal on Sunday, July 6, 1845, for the Saints to “remember \[and pray for\] the temple” and to “pay your tithing.” The Saints were anxious that the temple be finished sufficiently that ordinance work might begin before the exodus westward. More workers and tithing were desperately needed. Joseph Toronto, the new convert, visited Brigham Young after the meeting and declared that “he wanted to give himself and all he had to the kingdom of God.” He handed Brigham Young $2,600 in gold coins (see “Italian Pioneer,” *Church News,* 20 June 1981, p. 16). Brigham Young blessed the Italian convert, proclaiming that “he should stand at the head of his race and that neither he nor his family should ever want for bread” (*Joseph Toronto: Italian Pioneer and Patriarch,* comp. Toronto Family Organization \[1983\], p. 10). Later, in 1849, he was called to accompany the new Apostle Lorenzo Snow to his native Italy to open that land for the preaching of the gospel (see *Church News,* 20 June 1981, p. 16).
+Joseph Toronto assisted with the building of the Nauvoo Temple. Brigham Young had made a strong appeal on Sunday, July 6, 1845, for the Saints to “remember \[and pray for\] the temple” and to “pay your tithing.” The Saints were anxious that the temple be finished sufficiently that ordinance work might begin before the exodus westward. More workers and tithing were desperately needed. Joseph Toronto, the new convert, visited Brigham Young after the meeting and declared that “he wanted to give himself and all he had to the kingdom of God.” He handed Brigham Young $2,600 in gold coins (see “Italian Pioneer,” *Church News,* 20 June 1981, p. 16). Brigham Young blessed the Italian convert, proclaiming that “he should stand at the head of his race and that neither he nor his family should ever want for bread” (*Joseph Toronto: Italian Pioneer and Patriarch,* comp. Toronto Family Organization \[1983\], p. 10). Later, in 1849, he was called to accompany the new Apostle Lorenzo Snow to his native Italy to open that land for the preaching of the gospel (see *Church News,* 20 June 1981, p. 16).
 
-We also spoke of Hector C. Haight, another ancestor, called from his home in Farmington, Utah, to preside over the Scandinavian Mission in 1856 with little or no ability to speak Danish, Swedish, or Norwegian. But trusting in the Lord and with the assistance of the Scandinavian Saints, he accomplished his assignment. He reported in 1858 that “2,610 souls had been baptized … and \[that\] 990 members had emigrated to Zion” (Andrew Jenson, *History of the Scandinavian Mission* \[Salt Lake City: Deseret News Press, 1927\], p. 128).
+We also spoke of Hector C. Haight, another ancestor, called from his home in Farmington, Utah, to preside over the Scandinavian Mission in 1856 with little or no ability to speak Danish, Swedish, or Norwegian. But trusting in the Lord and with the assistance of the Scandinavian Saints, he accomplished his assignment. He reported in 1858 that “2,610 souls had been baptized … and \[that\] 990 members had emigrated to Zion” (Andrew Jenson, *History of the Scandinavian Mission* \[Salt Lake City: Deseret News Press, 1927\], p. 128).
 
 These ancestors, along with many others, gave inspiration and set the precedent of love for the gospel and its divine truth and for missionary service, which our children and grandchildren inherit but must personally acquire for themselves.
 
@@ -22,7 +24,7 @@ While watching family expressions of love and joy and tears at the airport, I th
 
 The *Church News* recently told of Aaron Thatcher, a young man with a love for baseball. Aaron had had many baseball scouts observe his unique talents, but he told them repeatedly that he would not sign a professional contract until after he had fulfilled his obligations to the Lord by serving a two-year mission.
 
-“How could a young man turn down such an offer?” people ask. But he did! His desire to serve the Lord was greater than his desire for instant fame. Aaron explained, “I’m going on this mission not because … my Dad went. I’m going because I have a testimony of the gospel and the prophets have told us that every worthy and healthy young man should serve a full-time mission. I want to with all of my heart” (in Quig Nielsen, “Baseball ‘On Hold’ While He Serves Mission,” *Church News,* 4 Sept. 1993, p. 5).
+“How could a young man turn down such an offer?” people ask. But he did! His desire to serve the Lord was greater than his desire for instant fame. Aaron explained, “I’m going on this mission not because … my Dad went. I’m going because I have a testimony of the gospel and the prophets have told us that every worthy and healthy young man should serve a full-time mission. I want to with all of my heart” (in Quig Nielsen, “Baseball ‘On Hold’ While He Serves Mission,” *Church News,* 4 Sept. 1993, p. 5).
 
 Brothers and sisters, the Lord is opening the way and making it possible to expand His work throughout the world, and what a blessing it is for all of us—each in his own way—to take part. During the past five years, the number of missionaries serving out in the world has grown from 36,000 to some 49,700 as of right now. The number of missions has grown from 220 to 294. Nearly one and a half million new converts have joined the Church during that same period of time. And our missionaries or representatives are now teaching in over forty additional countries where we were *not* serving five years ago.
 
@@ -44,9 +46,9 @@ President Spencer W. Kimball ushered in a new era of missionary work when he pro
 
 “When I ask for more missionaries, I am not asking for more testimony-barren or unworthy missionaries. I am asking that we … train our missionaries better in every branch and every ward … that \[our\] young people will understand that it is a great privilege to go on a mission and that they must be physically well, mentally well, spiritually well, and that ‘the Lord cannot look upon sin with the least degree of allowance.’
 
-“\[We are\] asking for missionaries who have been carefully … trained through the family and the organizations of the Church, and who come … with a great desire” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, p. 7).
+“\[We are\] asking for missionaries who have been carefully … trained through the family and the organizations of the Church, and who come … with a great desire” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, p. 7).
 
-“\[But\] we must prepare our \[young\] missionaries better, not only with language but with scripture and above all with a testimony and a burning fire that puts power to their words” (address delivered at Regional Representatives’ seminar, 5 Apr. 1976, p. 14).
+“\[But\] we must prepare our \[young\] missionaries better, not only with language but with scripture and above all with a testimony and a burning fire that puts power to their words” (address delivered at Regional Representatives’ seminar, 5 Apr. 1976, p. 14).
 
 The First Presidency recently reemphasized this important challenge. To serve the Lord as a full-time missionary is a privilege; the primary purpose of full-time missionary service is the building up of the kingdom of God. And the Lord needs His best. Young men and young women who respond to the call must be prepared for the most rigorous challenge of their young lives—prepared spiritually, intellectually, emotionally, and physically.
 
@@ -62,7 +64,7 @@ I received a letter recently from a young friend in California who served a miss
 
 My friend had just learned that this good man has now, thirteen years later, been called to serve in the stake presidency in his stake.
 
-Over fifteen years ago President Kimball urged that “every family, every night and every morning, … pray to the Lord to open the doors of other nations so that their people, too, may have the gospel of Jesus Christ” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 586). The last few years, we have seen the fruition of the prophet’s vision. Doors have been opened; walls of nations have collapsed. We must be prepared to march in, legally and appropriately, as the Lord opens those doors.
+Over fifteen years ago President Kimball urged that “every family, every night and every morning, … pray to the Lord to open the doors of other nations so that their people, too, may have the gospel of Jesus Christ” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 586). The last few years, we have seen the fruition of the prophet’s vision. Doors have been opened; walls of nations have collapsed. We must be prepared to march in, legally and appropriately, as the Lord opens those doors.
 
 We are grateful for the thousands who have answered the call to serve, and we are grateful for the valiant missionaries who are going out each week to join in the great harvest that the Lord is hastening. We recognize and appreciate the sacrifice and service of your sons and daughters and the marvelous work being accomplished by them. We appreciate the mature, seasoned couples who leave the comforts of their homes and their beloved children and grandchildren. Your efforts and sacrifices will be a blessing to you, of course.
 
@@ -75,8 +77,3 @@ When that glorious day comes, may each of us have some part in it, I humbly pray
 
 
 
-
-
-
-
-#Missionary_Work #Preparation #Testimony

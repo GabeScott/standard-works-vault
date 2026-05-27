@@ -1,4 +1,3 @@
 # Showbread
 
-
-*See* [[Bread, Shewbread.md|Bread, Shewbread]]
+*See also* [[Bread, Shewbread.md|Bread, Shewbread]]

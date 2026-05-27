@@ -1,5 +1,7 @@
 # The Only True and Valid Basis
 
+Gordon B. Hinckley
+
 By Elder Dieter F. Uchtdorf - *Of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -39,8 +41,3 @@ Jesus Christ, the Son of God, made the miracle of forgiveness and redemption pos
 
 
 
-
-
-
-
-#Church_Growth #Conversion #Holy_Ghost #Obedience #Spirituality

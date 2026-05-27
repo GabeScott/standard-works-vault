@@ -1,5 +1,7 @@
 # Do Not Fear
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -28,7 +30,7 @@ We must not ignore Moroni’s words when he saw our day and said, “Ye \[must\]
 
 We cannot take lightly this warning from the Book of Mormon:
 
-“The Lord in his great infinite goodness doth bless and prosper those who put their trust in him … , doing all things for the welfare and happiness of his people; yea, then is the time that they do harden their hearts, and do forget the Lord their God, and do trample under their feet the Holy One—yea, and this because of their ease, and their exceedingly great prosperity.
+“The Lord in his great infinite goodness doth bless and prosper those who put their trust in him … , doing all things for the welfare and happiness of his people; yea, then is the time that they do harden their hearts, and do forget the Lord their God, and do trample under their feet the Holy One—yea, and this because of their ease, and their exceedingly great prosperity.
 
 “And thus we see that except the Lord doth chasten his people with many afflictions, yea, except he doth visit them with *death* and with *terror,* and with *famine* and with all manner of *pestilence,* they will not remember him” ([[Helaman 12.1|Helaman 12:1–3]][[Helaman 12.2|]][[Helaman 12.3|]]; emphasis added).
 
@@ -72,7 +74,7 @@ When children are baptized and confirmed (see [[D&C 20.41|D&C 20:41, 43]][[D&C 2
 
 The Book of Mormon gives us the key:
 
-“Angels speak by the power of the Holy Ghost; wherefore, they speak the words of Christ. … Feast upon the words of Christ; for behold, the words of Christ will tell you \[and your children as well\] all things what ye should do” ([[2 Nephi 32.3|2 Nephi 32:3]]).
+“Angels speak by the power of the Holy Ghost; wherefore, they speak the words of Christ. … Feast upon the words of Christ; for behold, the words of Christ will tell you \[and your children as well\] all things what ye should do” ([[2 Nephi 32.3|2 Nephi 32:3]]).
 
 If you will accept it in your mind and cradle it in your feelings, a knowledge of the restored gospel and a testimony of Jesus Christ can spiritually immunize your children.
 
@@ -106,19 +108,19 @@ Do not be afraid to bring children into the world. We are under covenant to prov
 
 Put your homes in order. If Mother is working outside of the home, see if there are ways to change that, even a little. It may be very difficult to change at the present time. But analyze carefully and be prayerful (see [[D&C 9.8|D&C 9:8–9]][[D&C 9.9|]]). Then expect to have inspiration, which is revelation (see [[D&C 8.2|D&C 8:2–3]][[D&C 8.3|]]). Expect intervention from power from beyond the veil to help you move, in due time, to what is best for your family.
 
-Alma called the plan of salvation “the great plan of happiness” ([[Alma 42.8|Alma 42:8]]; see also [[2 Nephi 11.5|2 Nephi 11:5]]; [[Alma 12.25|Alma 12:25]]; [[Alma 17.16|17:16]]; [[Alma 34.9|34:9]]; [[Alma 41.2|41:2]]; [[Alma 42.5|42:5, 11–13, 15, 31]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.15|]][[Alma 42.31|]]; [[Moses 6.62|Moses 6:62]]).
+Alma called the plan of salvation “the great plan of happiness” ([[Alma 42.8|Alma 42:8]]; see also [[2 Nephi 11.5|2 Nephi 11:5]]; [[Alma 12.25|Alma 12:25]]; [[Alma 17.16|17:16]]; [[Alma 34.9|34:9]]; [[Alma 41.2|41:2]]; [[Alma 42.5|42:5, 11–13, 15, 31]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.15|]][[Alma 42.31|]]; [[Moses 6.62|Moses 6:62]]).
 
 Each of us came into mortality to receive a mortal body and to be tested (see [[Abraham 3.24|Abraham 3:24–26]][[Abraham 3.25|]][[Abraham 3.26|]]).
 
-Life will not be free from challenges, some of them bitter and hard to bear. We may wish to be spared all the trials of life, but that would be contrary to the great plan of happiness, “for it must needs be, that there is an opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]). This testing is the source of our strength.
+Life will not be free from challenges, some of them bitter and hard to bear. We may wish to be spared all the trials of life, but that would be contrary to the great plan of happiness, “for it must needs be, that there is an opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]). This testing is the source of our strength.
 
 As an innocent child, my sister Adele’s life was cruelly interrupted by disease and suffering. She and all the others so taken continue the work of the Lord beyond the veil. She will not be denied anything essential for her eternal progression.
 
 We also lost an infant granddaughter. She was named Emma, after my mother. We receive comfort from the scriptures.
 
-“Little children need no repentance, neither baptism. …
+“Little children need no repentance, neither baptism. …
 
-“… Little children are alive in Christ” ([[Moroni 8.11|Moroni 8:11–12]][[Moroni 8.12|]]).
+“… Little children are alive in Christ” ([[Moroni 8.11|Moroni 8:11–12]][[Moroni 8.12|]]).
 
 Remember the Atonement of Christ. Do not despair or count as forever lost those who have fallen to the temptations of Satan. They will, after the debt is paid to “the uttermost farthing” ([[Matthew 5.26|Matthew 5:26]]) and after the healing which attends complete repentance takes place, receive a salvation.
 
@@ -128,7 +130,7 @@ The Church of Jesus Christ of Latter-day Saints will go forward “until it has 
 
 We are not blind to the conditions in the world.
 
-The Apostle Paul prophesied of “perilous times” in the last days ([[2 Timothy 3.1|2 Timothy 3:1]]), and he warned, “We wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places” ([[Ephesians 6.12|Ephesians 6:12]]).
+The Apostle Paul prophesied of “perilous times” in the last days ([[2 Timothy 3.1|2 Timothy 3:1]]), and he warned, “We wrestle not against flesh and blood, but against principalities, against powers, against the rulers of the darkness of this world, against spiritual wickedness in high places” ([[Ephesians 6.12|Ephesians 6:12]]).
 
 Isaiah promised, “In righteousness shalt thou be established: thou shalt be far from oppression; for thou shalt not fear: and from terror; for it shall not come near thee” ([[Isaiah 54.14|Isaiah 54:14]]).
 
@@ -137,8 +139,3 @@ The Lord Himself encouraged, “Wherefore, be of good cheer, and do not fear, fo
 
 
 
-
-
-
-
-#Children #Faith #Family #Holy_Ghost

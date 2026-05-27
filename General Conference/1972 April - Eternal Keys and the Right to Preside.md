@@ -1,5 +1,7 @@
 # Eternal Keys and the Right to Preside
 
+Wilford G. Edling
+
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1972 General Conference*
@@ -8,7 +10,7 @@ By President Joseph Fielding Smith - *President of the Church*
 
 My dear brethren of the priesthood: I greet you in love and in fellowship and in thanksgiving for the many blessings which the Lord has showered upon us.
 
-May I say that it is a source of particular satisfaction to me that the Lord, through me, has called some of our brethren to new positions of service among the General Authorities. As you know, he called Bishop John H. Vandenberg and Bishop Robert L. Simpson to serve as Assistants to the Twelve. Each of them has been assigned important responsibilities in connection with his new calling. And as you also know, the Lord has called Victor L. Brown to be the Presiding Bishop of his church, with H. Burke Peterson to serve as the first counselor and Vaughn J. Featherstone as the second counselor in the Presiding Bishopric.
+May I say that it is a source of particular satisfaction to me that the Lord, through me, has called some of our brethren to new positions of service among the General Authorities. As you know, he called Bishop John H. Vandenberg and Bishop Robert L. Simpson to serve as Assistants to the Twelve. Each of them has been assigned important responsibilities in connection with his new calling. And as you also know, the Lord has called Victor L. Brown to be the Presiding Bishop of his church, with H. Burke Peterson to serve as the first counselor and Vaughn J. Featherstone as the second counselor in the Presiding Bishopric.
 
 All five of these brethren are able and faithful, and their special talents are now needed in the building up of the kingdom in the fields of their assignments. They may all rest assured that the Lord will bless and prosper them in their new callings of trust and of responsibility and of service.
 
@@ -43,8 +45,3 @@ I testify that if we shall look to the First Presidency and follow their counsel
 
 
 
-
-
-
-
-#First_Presidency #Priesthood

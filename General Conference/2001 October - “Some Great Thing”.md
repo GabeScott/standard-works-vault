@@ -1,5 +1,7 @@
 # “Some Great Thing”
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -52,7 +54,7 @@ A story shared by our beloved associate Elder Henry B. Eyring illustrates this p
 
 “Dad just roared. He thought that was the funniest thing. He thought it was a great joke on himself. He had worked through the day in the wrong weeds. They had been sprayed and would have died anyway.
 
-“… I \[asked\] him, ‘Dad, how could you make a joke out of that?’ …
+“… I \[asked\] him, ‘Dad, how could you make a joke out of that?’ …
 
 “He said something to me that I will never forget. … He said, ‘Hal, I wasn’t there for the weeds.’”[^15]
 
@@ -65,13 +67,13 @@ In the parable of talents, the one who had increased his talents was told, “We
 
 
 
-[^1]: [[2 Kings 5.10|2 Kgs. 5:10]].
+[^1]: [[2 Kings 5.10|2 Kgs. 5:10]].
 
-[^2]: [[2 Kings 5.12|2 Kgs. 5:12]].
+[^2]: [[2 Kings 5.12|2 Kgs. 5:12]].
 
-[^3]: [[2 Kings 5.13|2 Kgs. 5:13]].
+[^3]: [[2 Kings 5.13|2 Kgs. 5:13]].
 
-[^4]: [[2 Kings 5.14|2 Kgs. 5:14]].
+[^4]: [[2 Kings 5.14|2 Kgs. 5:14]].
 
 [^5]: Reuben Miller, journal, 1848–1849, Family and Church History Department Archives, 21 Oct. 1848; punctuation and spelling modernized.
 
@@ -97,12 +99,7 @@ In the parable of talents, the one who had increased his talents was told, “We
 
 [^16]: Richard Folkers, “Philo Farnsworth: ‘Dr. X’s’ Instant Images,” *U.S. News and World Report,* 17 Aug. 1998, 44.
 
-[^17]: [[1 Nephi 16.29|1 Ne. 16:29]].
+[^17]: [[1 Nephi 16.29|1 Ne. 16:29]].
 
 [^18]: [[Matthew 25.23|Matt. 25:23]].
 
-
-
-
-
-#Church_History #Endurance #Faith #Jesus_Christ #Kindness #Love #Obedience #Sacrifice #Work

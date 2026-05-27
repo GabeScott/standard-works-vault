@@ -1,5 +1,7 @@
 # Our Great Mission
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -12,7 +14,7 @@ The music has been wonderful. The prayers have been inspired. The talks have bee
 
 We regret that President Benson has been unable to speak to us. He is now in his ninety-third year. His presence yesterday and again today has helped us. We have enjoyed his smile and the wave of his hand. As we bring this meeting to a close, I leave with you a statement from him—his personal witness of the Son of God, whose servant he is. These are his words:
 
-“Nearly two thousand years ago a perfect Man walked the earth—Jesus the Christ. He was the Son of a Heavenly Father and an earthly mother. He is the God of this world, under the Father. In his life, all the virtues were lived and kept in perfect balance; he taught men truth—that they might be free; his example and precepts provide the great standard—the only sure way—for all mankind. Among us he became the first and only one who had the power to reunite his body with his spirit after death. By his power all men who have died shall be resurrected. Before him one day we all must stand to be judged by his laws. He lives today, and in the not too distant future shall return, in triumph, to subdue his enemies, to reward men according to their deeds, and to assume his \[rightful\] role to rule and reign in righteousness over the entire earth” (*An Enemy Hath Done This,* comp. Jerreld L. Newquist \[Salt Lake City: Parliament Publishers, 1969\], pp. 52–53).
+“Nearly two thousand years ago a perfect Man walked the earth—Jesus the Christ. He was the Son of a Heavenly Father and an earthly mother. He is the God of this world, under the Father. In his life, all the virtues were lived and kept in perfect balance; he taught men truth—that they might be free; his example and precepts provide the great standard—the only sure way—for all mankind. Among us he became the first and only one who had the power to reunite his body with his spirit after death. By his power all men who have died shall be resurrected. Before him one day we all must stand to be judged by his laws. He lives today, and in the not too distant future shall return, in triumph, to subdue his enemies, to reward men according to their deeds, and to assume his \[rightful\] role to rule and reign in righteousness over the entire earth” (*An Enemy Hath Done This,* comp. Jerreld L. Newquist \[Salt Lake City: Parliament Publishers, 1969\], pp. 52–53).
 
 Such is the testimony of our prophet and our leader. When all is said and done, I remind you that this is our great mission—to bear witness to the world, both with example and precept, of the living reality of the Son of God, the resurrected Lord, who is our Redeemer and our Savior.
 
@@ -25,8 +27,3 @@ In behalf of President Benson and all of my Brethren, I invoke upon you, whereve
 
 
 
-
-
-
-
-#Jesus_Christ #Testimony

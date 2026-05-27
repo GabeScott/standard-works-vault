@@ -1,6 +1,5 @@
 # Expectation
 
-
 *See also* [[Hope.md|Hope]]
 
 *expectation* of the poor shall not perish, [[Psalms 9.18|Psalms 9:18]].

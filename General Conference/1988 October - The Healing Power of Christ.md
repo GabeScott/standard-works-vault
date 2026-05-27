@@ -1,5 +1,7 @@
 # The Healing Power of Christ
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1988 General Conference*
@@ -38,7 +40,7 @@ Malachi’s prophecy was fulfilled. Jesus came to earth, the Son of God, with po
 
 “So Jesus came again into Cana of Galilee. … And there was a certain nobleman, whose son was sick at Capernaum.
 
-“When he heard that Jesus was come out of Judea into Galilee, he went unto him, and besought him that he would come down, and heal his son: for he was at the point of death. …
+“When he heard that Jesus was come out of Judea into Galilee, he went unto him, and besought him that he would come down, and heal his son: for he was at the point of death. …
 
 “Jesus saith unto him, Go thy way; thy son liveth. And the man believed the word that Jesus had spoken unto him, and he went his way.
 
@@ -50,7 +52,7 @@ Christ healed by the power of God which was within Him. That power He gave to Hi
 
 That same power has been restored in this generation. It came through the laying on of hands by Peter, James, and John, who received it from the Lord Himself. It was bestowed upon Joseph Smith, the prophet of this dispensation. Its presence is among us. Many of you are acquainted with the history of the Church and are familiar with the account related by Wilford Woodruff concerning the events of July 22, 1839. It is worthy of repetition. Nauvoo at that time was an unhealthy and swampy place. There was much of sickness. Joseph was among those who were afflicted. But being filled with the Spirit, he rose from his bed and went out among the sick, healing them and raising them. He then crossed the river to the settlement in Montrose, Iowa. I read now from the account of Elder Woodruff:
 
-“The first house he visited was that occupied by Elder Brigham Young, the president of the quorum of the twelve, who lay sick. Joseph healed him, then he arose and accompanied the Prophet on his visit to others who were in the same condition. They visited Elder W. Woodruff, also Elders Orson Pratt and John Taylor, all of whom were living in Montrose. They also accompanied him. The next place they visited was the home of Elijah Fordham, who was supposed to be about breathing his last. When the company entered the room the Prophet of God walked up to the dying man, and took hold of his right hand and spoke to him; but Brother Fordham was unable to speak, his eyes were set in his head like glass, and he seemed entirely unconscious of all around him. Joseph held his hand and looked into his eyes in silence for a length of time. A change in the countenance of Brother Fordham was soon perceptible to all present. His sight returned, and upon Joseph asking him if he knew him, he, in a low whisper, answered, ‘Yes.’ Joseph asked him if he had faith to be healed. He answered, ‘I fear it is too late; if you had come sooner I think I would have been healed.’ The Prophet said, ‘Do you believe in Jesus Christ?’ He answered in a feeble voice, ‘I do.’ Joseph then stood erect, still holding his hand in silence several moments; then he spoke in a very loud voice, saying: ‘Brother Fordham, I command you in the name of Jesus Christ to arise from this bed and be made whole.’ His voice was like the voice of God, and not of man. It seemed as though the house shook to its very foundations. Brother Fordham arose from his bed and was immediately made whole. His feet were bound in poultices, which he kicked off, then putting on his clothes, he ate a bowl of bread and milk, and followed the Prophet into the street.” (In Joseph Fielding Smith, *Essentials in Church History,* rev. ed. Salt Lake City: Deseret Book Co., 1979, pp. 223–24.)
+“The first house he visited was that occupied by Elder Brigham Young, the president of the quorum of the twelve, who lay sick. Joseph healed him, then he arose and accompanied the Prophet on his visit to others who were in the same condition. They visited Elder W. Woodruff, also Elders Orson Pratt and John Taylor, all of whom were living in Montrose. They also accompanied him. The next place they visited was the home of Elijah Fordham, who was supposed to be about breathing his last. When the company entered the room the Prophet of God walked up to the dying man, and took hold of his right hand and spoke to him; but Brother Fordham was unable to speak, his eyes were set in his head like glass, and he seemed entirely unconscious of all around him. Joseph held his hand and looked into his eyes in silence for a length of time. A change in the countenance of Brother Fordham was soon perceptible to all present. His sight returned, and upon Joseph asking him if he knew him, he, in a low whisper, answered, ‘Yes.’ Joseph asked him if he had faith to be healed. He answered, ‘I fear it is too late; if you had come sooner I think I would have been healed.’ The Prophet said, ‘Do you believe in Jesus Christ?’ He answered in a feeble voice, ‘I do.’ Joseph then stood erect, still holding his hand in silence several moments; then he spoke in a very loud voice, saying: ‘Brother Fordham, I command you in the name of Jesus Christ to arise from this bed and be made whole.’ His voice was like the voice of God, and not of man. It seemed as though the house shook to its very foundations. Brother Fordham arose from his bed and was immediately made whole. His feet were bound in poultices, which he kicked off, then putting on his clothes, he ate a bowl of bread and milk, and followed the Prophet into the street.” (In Joseph Fielding Smith, *Essentials in Church History,* rev. ed. Salt Lake City: Deseret Book Co., 1979, pp. 223–24.)
 
 Declared James of old: “Is any sick among you? let him call for the elders of the church; and let them pray over him, anointing him with oil in the name of the Lord:
 
@@ -64,13 +66,13 @@ Yet they are the first to admit the limitations of their knowledge and the imper
 
 And there is much of sickness among us other than that of the body.
 
-There is the sickness of sin. One of our national magazines carried an extensive review of a sacrilegious film being shown in theaters across the world. Letters poured in to the editor. I quote from one of these. Said the writer, “I am a former alcoholic and adulterer set free by the power of the living Jesus Christ.” (*Time,* 5 Sept. 1988, p. 7.)
+There is the sickness of sin. One of our national magazines carried an extensive review of a sacrilegious film being shown in theaters across the world. Letters poured in to the editor. I quote from one of these. Said the writer, “I am a former alcoholic and adulterer set free by the power of the living Jesus Christ.” (*Time,* 5 Sept. 1988, p. 7.)
 
 Legion are those who have testified of the healing power of Christ to lift them from the desolation of sin to higher and nobler living.
 
 There is much of another category of sickness among us. I speak of conflicts, quarrels, arguments which are a debilitating disease particularly afflicting families. If there be such problems in the homes of any within the sound of my voice, I encourage you to invite the healing power of Christ. To those to whom He spoke on the Mount, Jesus said: “Ye have heard that it hath been said, An eye for an eye, and a tooth for a tooth:
 
-“But I say unto you, That ye resist not evil: but whosoever shall smite thee on thy right cheek, turn to him the other also. …
+“But I say unto you, That ye resist not evil: but whosoever shall smite thee on thy right cheek, turn to him the other also. …
 
 “And whosoever shall compel thee to go a mile, go with him twain.” ([[Matthew 5.38|Matt. 5:38–39, 41]][[Matthew 5.39|]][[Matthew 5.41|]].)
 
@@ -101,8 +103,3 @@ As members of the Church of Jesus Christ, ours is a ministry of healing, with a 
 
 
 
-
-
-
-
-#Healing #Jesus_Christ #Sin

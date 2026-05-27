@@ -1,5 +1,7 @@
 # The Miracle of Faith
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2001 General Conference*
@@ -83,8 +85,3 @@ O Father, help us to be faithful unto Thee and unto our glorious Redeemer, to se
 
 
 
-
-
-
-
-#Church_History #Conversion #Faith #Family #Loyalty #Missionary_Work #Restoration #Sacrifice #Temples #Testimony #Tithing

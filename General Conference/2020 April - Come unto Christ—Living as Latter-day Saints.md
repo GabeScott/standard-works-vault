@@ -1,6 +1,8 @@
 # Come unto Christ—Living as Latter-day Saints
 
-By Elder John A. McCune - *Of the Seventy*
+Russell M. Nelson
+
+By Elder John A. McCune - *Of the Seventy*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -32,7 +34,7 @@ There will be times when we will not be able to see any way that a current situa
 
 Our leaders deeply desire all to feel the peace and comfort that come through trusting in and focusing on the Savior Jesus Christ.
 
-Our living prophet, President Russell M. Nelson, has been communicating the Lord’s vision for the world and for members of Christ’s Church: “Our message to the world is simple and sincere: we invite all of God’s children on both sides of the veil to *come unto their Savior,* receive the blessings of the holy temple, have enduring joy, and qualify for eternal life.”[^10]
+Our living prophet, President Russell M. Nelson, has been communicating the Lord’s vision for the world and for members of Christ’s Church: “Our message to the world is simple and sincere: we invite all of God’s children on both sides of the veil to *come unto their Savior,* receive the blessings of the holy temple, have enduring joy, and qualify for eternal life.”[^10]
 
 This invitation to “come unto Christ” has *specific* implications for Latter-day Saints.[^11] As members of the Savior’s Church, we have made covenants with Him and have become His spiritually begotten sons and daughters.[^12] We have also been given the opportunity to labor with the Lord in inviting others to come unto Him.
 
@@ -61,43 +63,41 @@ I bear witness that as we come unto Christ and live as Latter-day Saints, we wil
 
 
 
-[^1]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^1]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^2]: [Title page of the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng); see also [introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
+[^2]: [Title page of the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng); see also [introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
 
-[^3]: See [[2 Nephi 4.19|2 Nephi 4:19]].
+[^3]: See [[2 Nephi 4.19|2 Nephi 4:19]].
 
-[^4]: [[2 Nephi 4.17|2 Nephi 4:17]].
+[^4]: [[2 Nephi 4.17|2 Nephi 4:17]].
 
-[^5]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^5]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
 [^6]: [[Matthew 11.28|Matthew 11:28]].
 
-[^7]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82.
+[^7]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 82.
 
-[^8]: [[2 Nephi 4.17|2 Nephi 4:17]].
+[^8]: [[2 Nephi 4.17|2 Nephi 4:17]].
 
 [^9]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-[^10]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118–19; emphasis added.
+[^10]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118–19; emphasis added.
 
 [^11]: See [[D&C 20.59|Doctrine and Covenants 20:59]].
 
 [^12]: See [[Mosiah 5.7|Mosiah 5:7]].
 
-[^13]: [[John 13.35|John 13:35]]; see also “Love One Another,” *Hymns,* no. 308.
+[^13]: [[John 13.35|John 13:35]]; see also “Love One Another,” *Hymns,* no. 308.
 
-[^14]: [[1 Nephi 8.13|1 Nephi 8:13]].
+[^14]: [[1 Nephi 8.13|1 Nephi 8:13]].
 
-[^15]: [[1 Nephi 8.14|1 Nephi 8:14]].
+[^15]: [[1 Nephi 8.14|1 Nephi 8:14]].
 
-[^16]: [[1 Nephi 8.15|1 Nephi 8:15]].
+[^16]: [[1 Nephi 8.15|1 Nephi 8:15]].
 
 [^17]: [[D&C 10.67|Doctrine and Covenants 10:67]]; emphasis added.
 
-[^18]: See [[2 Nephi 4.19|2 Nephi 4:19]].
+[^18]: See [[2 Nephi 4.19|2 Nephi 4:19]].
 
+[^19]: See [[Psalms 27.1|Psalm 27:1]].
 
-
-
-#Adversity #Church_Organization #Faith #Jesus_Christ

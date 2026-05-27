@@ -1,6 +1,8 @@
 # The Purpose of Life: To Be Proved
 
-By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -52,7 +54,7 @@ One of the darkest periods in the history of the Church was the winter of 1838�
 
 But emerging from this dark period were the men who led the Church through trying experiences as well as amazing growth and development. But this was not all. It was during these dark days that the Lord gave to the Prophet Joseph Smith, while in Liberty Jail, a great revelation. Liberty Jail for a time became a center of instruction.
 
-Elder Brigham H. Roberts, in the *Comprehensive History of the Church,* has this to say: “The eyes of the saints were turned to it (Liberty Jail) as the place whence would come encouragement, counsel—the word of the Lord. It was more temple than prison, so long as the Prophet was there. It was a place of meditation and prayer. A temple, first of all, is a place of prayer; and prayer is communion with God. It is the ‘infinite in man seeking the infinite in God.’ Where they find each other, there is holy sanctuary—a temple. Joseph Smith sought God in this rude prison, and found him. Out of the midst of his tribulations he called upon God in passionate earnestness.” (Vol. 1, p. 526.)
+Elder Brigham H. Roberts, in the *Comprehensive History of the Church,* has this to say: “The eyes of the saints were turned to it (Liberty Jail) as the place whence would come encouragement, counsel—the word of the Lord. It was more temple than prison, so long as the Prophet was there. It was a place of meditation and prayer. A temple, first of all, is a place of prayer; and prayer is communion with God. It is the ‘infinite in man seeking the infinite in God.’ Where they find each other, there is holy sanctuary—a temple. Joseph Smith sought God in this rude prison, and found him. Out of the midst of his tribulations he called upon God in passionate earnestness.” (Vol. 1, p. 526.)
 
 The answer came as God replied, “My son, peace be unto thy soul; thine adversity and thine afflictions shall be but a small moment;
 
@@ -85,8 +87,3 @@ Let us never forget the great lessons to be learned from Zion’s Camp and Liber
 
 
 
-
-
-
-
-#Adversity #Church_History

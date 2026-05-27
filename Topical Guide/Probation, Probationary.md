@@ -1,21 +1,20 @@
 # Probation, Probationary
 
-
 *See also* [[Earth, Purpose of.md|Earth, Purpose of]]; [[Mortality.md|Mortality]]; [[Opposition.md|Opposition]]; [[Temptation.md|Temptation]]
 
 man is become as one of us, to *know* good and evil, [[Genesis 3.22|Genesis 3:22]] ([[Moses 4.28|Moses 4:28]]).
 
 visit him every morning, and *try* him every moment, [[Job 7.18|Job 7:18]].
 
-If they *obey* ... shall spend their *days* in prosperity, [[Job 36.11|Job 36:11]].
+If they *obey* … shall spend their *days* in prosperity, [[Job 36.11|Job 36:11]].
 
-in a great *trial* of affliction the abundance of their joy ... abounded, [[2 Corinthians 8.2|2 Corinthians 8:2]].
+in a great *trial* of affliction the abundance of their joy … abounded, [[2 Corinthians 8.2|2 Corinthians 8:2]].
 
 for a season, if need be, ye are in *heaviness*, [[1 Peter 1.6|1 Peter 1:6]].
 
 sought to do wickedly in the days of your *probation*, [[1 Nephi 10.21|1 Nephi 10:21]].
 
-works which were done ... in their days of *probation*, [[1 Nephi 15.32|1 Nephi 15:32]].
+works which were done … in their days of *probation*, [[1 Nephi 15.32|1 Nephi 15:32]].
 
 their state became a state of *probation*, [[2 Nephi 2.21|2 Nephi 2:21]].
 
@@ -40,5 +39,3 @@ brought thus far for a *trial* of their faith, [[D&C 105.19|D&C 105:19]].
 if thou *endure* it well, God shall exalt thee, [[D&C 121.8|D&C 121:8]].
 
 we will *prove* them herewith, [[Abraham 3.25|Abraham 3:25]].
-
-*See also* [[Job 1.12|Job 1:12]]; [[Job 2.6|Job 2:6]].

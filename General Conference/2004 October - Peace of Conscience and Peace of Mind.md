@@ -1,5 +1,7 @@
 # Peace of Conscience and Peace of Mind
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -52,7 +54,7 @@ From this scripture you can see that suffering does not bring forgiveness. That 
 
 “Behold, I have come … to bring redemption unto the world, to save the world from sin.
 
-“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive … ; therefore repent, and come unto me … and be saved.”[^11]
+“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive … ; therefore repent, and come unto me … and be saved.”[^11]
 
 Apply what the Book of Mormon teaches you. Ponder the verses that speak of the Savior. Seek prayerfully to know Him. Ask your Father in Heaven to strengthen your faith in His Son and give you the power to obey His commandments. When ready, seek the aid of a caring bishop to help you complete the process of repentance. Then you can have peace of conscience and the assurance that the Lord has forgiven you.
 
@@ -62,7 +64,7 @@ Now if you are one who cannot forgive yourself for serious past transgressions�
 
 “He who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.
 
-“By this ye may know if a man repenteth of his sins … , he will confess them and forsake them.”[^12]
+“By this ye may know if a man repenteth of his sins … , he will confess them and forsake them.”[^12]
 
 To continue to suffer when there has been proper repentance is not prompted by the Savior but the master of deceit, whose goal is to bind and enslave you. Satan will press you to continue to relive the details of past mistakes, knowing that such thoughts make forgiveness seem unattainable. In this way Satan attempts to tie strings to the mind and body so that he can manipulate you like a puppet.
 
@@ -75,7 +77,7 @@ When memory of prior mistakes encroached upon Ammon’s mind, he turned his thou
 
 [^1]: See [[Mosiah 4.2|Mosiah 4:2–3]][[Mosiah 4.3|]].
 
-[^2]: See Topical Guide, “Light of Christ,” 290.
+[^2]: See Topical Guide, “[[Light of Christ|Light of Christ]],” 290.
 
 [^3]: See [[Moroni 7.16|Moroni 7:16]].
 
@@ -85,7 +87,7 @@ When memory of prior mistakes encroached upon Ammon’s mind, he turned his thou
 
 [^6]: [[Mark 11.25|Mark 11:25–26]][[Mark 11.26|]].
 
-[^7]: See [[2 Nephi 9.22|2 Nephi 9:22–24]][[2 Nephi 9.23|]][[2 Nephi 9.24|]]; [[Alma 11.40|Alma 11:40]].
+[^7]: See [[2 Nephi 9.22|2 Nephi 9:22–24]][[2 Nephi 9.23|]][[2 Nephi 9.24|]]; [[Alma 11.40|Alma 11:40]].
 
 [^8]: Unpardonable: see [[Hebrews 6.4|Hebrews 6:4–8]][[Hebrews 6.5|]][[Hebrews 6.6|]][[Hebrews 6.7|]][[Hebrews 6.8|]]; [[Alma 39.6|Alma 39:6]]; [[D&C 76.31|D&C 76:31–38]][[D&C 76.32|]][[D&C 76.33|]][[D&C 76.34|]][[D&C 76.35|]][[D&C 76.36|]][[D&C 76.37|]][[D&C 76.38|]]; [[D&C 132.27|132:27]]. Unforgivable: see [[D&C 42.18|D&C 42:18]].
 
@@ -93,14 +95,9 @@ When memory of prior mistakes encroached upon Ammon’s mind, he turned his thou
 
 [^10]: [[Alma 38.8|Alma 38:8–9]][[Alma 38.9|]].
 
-[^11]: [[3 Nephi 9.21|3 Nephi 9:21–22]][[3 Nephi 9.22|]].
+[^11]: [[3 Nephi 9.21|3 Nephi 9:21–22]][[3 Nephi 9.22|]].
 
 [^12]: [[D&C 58.42|D&C 58:42–43]][[D&C 58.43|]].
 
 [^13]: See [[Alma 26.17|Alma 26:17–20]][[Alma 26.18|]][[Alma 26.19|]][[Alma 26.20|]].
 
-
-
-
-
-#Conscience #Forgiveness #Jesus_Christ #Peace #Repentance #Temptation

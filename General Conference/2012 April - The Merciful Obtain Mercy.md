@@ -1,6 +1,8 @@
 # The Merciful Obtain Mercy
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -108,7 +110,7 @@ Let us, as disciples of Jesus Christ, return good for evil.[^15] Let us not seek
 
 “For it is written, Vengeance is mine; I will repay, saith the Lord.
 
-“Therefore if thine enemy hunger, feed him; if he thirst, give him drink. …
+“Therefore if thine enemy hunger, feed him; if he thirst, give him drink. …
 
 “Be not overcome of evil, but overcome evil with good.”[^16]
 
@@ -153,7 +155,7 @@ Of this I testify in the name of the One who loved so well and so completely tha
 
 [^8]: [[Mosiah 5.2|Mosiah 5:2]].
 
-[^9]: [[1 John 5.3|1 John 5:3–4]][[1 John 5.4|]].
+[^9]: [[1 John 5.3|1 John 5:3–4]][[1 John 5.4|]].
 
 [^10]: [[Matthew 5.44|Matthew 5:44]]; see also [[Matthew 5.45|verses 45–47]][[Matthew 5.46|]][[Matthew 5.47|]].
 
@@ -175,8 +177,3 @@ Of this I testify in the name of the One who loved so well and so completely tha
 
 [^19]: See [[Romans 3.23|Romans 3:23]].
 
-
-
-
-
-#Forgiveness #Judging #Love #Mercy

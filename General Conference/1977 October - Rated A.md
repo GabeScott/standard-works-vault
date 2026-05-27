@@ -1,6 +1,8 @@
 # Rated A
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -38,13 +40,13 @@ The scriptures help us understand the strategy and tactics of the enemy. Nephi i
 
 “For behold, at that day shall he rage in the hearts of the children of men, and stir them up to anger against that which is good.
 
-“And others will he pacify, and lull them away into carnal security. …
+“And others will he pacify, and lull them away into carnal security. …
 
-“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
+“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
 
 The great prophet Mormon, viewing his own fallen people, wrote his son Moroni a very telling indictment when he said that because of wickedness his people were “past feeling.” (See [[Moroni 9.20|Moro. 9:20]].) How tragic to reach the point where the Spirit must withdraw, and we become unable to sense or feel right from wrong.
 
-If we continue to lose skirmishes in the battle with Satan, the ultimate chains with which he grasps us will be as awful as the scriptures indicate. How awful this state is might be indicated by the words a dictionary uses to describe the word *obscenity.* Obscenity, it indicates, defiles, nauseates, offends, perverts, impairs, corrupts, distorts, infects, misleads, poisons, warps, weakens, and spoils. When I think of these words and then remember that the Prophet Joseph Smith admonished us to seek for things that are “virtuous, lovely, or of good report, or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]), I shudder at the blindness of so many.
+If we continue to lose skirmishes in the battle with Satan, the ultimate chains with which he grasps us will be as awful as the scriptures indicate. How awful this state is might be indicated by the words a dictionary uses to describe the word *obscenity.* Obscenity, it indicates, defiles, nauseates, offends, perverts, impairs, corrupts, distorts, infects, misleads, poisons, warps, weakens, and spoils. When I think of these words and then remember that the Prophet Joseph Smith admonished us to seek for things that are “virtuous, lovely, or of good report, or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]), I shudder at the blindness of so many.
 
 In olden times the call to battle was the sure sound of a trumpet. The call to battle that I sound is a call to find so much that is wholesome or “Rated A” that there is no time or inclination for the carnal. It is a call to strive for a rating that can be remembered with joy forever.
 
@@ -73,8 +75,3 @@ For this I humbly pray in the worthy name of Jesus Christ, our Savior and Redeem
 
 
 
-
-
-
-
-#Character #Evil

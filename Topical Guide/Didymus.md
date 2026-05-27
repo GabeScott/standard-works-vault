@@ -1,4 +1,3 @@
 # Didymus
 
-
-*See* [BD Didymus](https://www.churchofjesuschrist.org/study/scriptures/bd/didymus?lang=eng)
+*See also* [[BD Didymus.md|BD Didymus]]

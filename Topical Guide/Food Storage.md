@@ -1,4 +1,3 @@
 # Food Storage
 
-
-*See* [[Famine.md|Famine]]
+*See also* [[Famine.md|Famine]]

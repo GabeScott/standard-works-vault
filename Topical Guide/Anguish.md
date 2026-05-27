@@ -1,7 +1,6 @@
 # Anguish
 
-
-*See also* [[Affliction.md|Affliction]]; [[Distress.md|Distress]]; [[Grief.md|Grief]]; [[Persecution, Persecute.md|Persecution]]; [[Sorrow.md|Sorrow]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
+*See also* [[Affliction.md|Affliction]]; [[Distress.md|Distress]]; [[Grief.md|Grief]]; [[Persecution.md|Persecution]]; [[Sorrow.md|Sorrow]]; [[Suffering.md|Suffering]]; [[Tribulation.md|Tribulation]]; [[Trouble.md|Trouble]]
 
 hearkened not unto Moses for *anguish* of spirit, [[Exodus 6.9|Exodus 6:9]].
 

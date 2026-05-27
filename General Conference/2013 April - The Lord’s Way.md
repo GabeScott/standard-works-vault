@@ -1,6 +1,8 @@
 # The Lord’s Way
 
-By Elder Stanley G. Ellis - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Stanley G. Ellis - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -48,7 +50,7 @@ Along with the scriptures, some great sources for finding the Lord’s way are *
 
 3. We are taught that if we do things the Lord’s way, He is bound to bless us and we have claim to His promises; and if not His way, we have no promise (see [[D&C 82.10|D&C 82:10]]).
 
-4. The Lord contrasted His way with our way in His training of the prophet Samuel, who was sent to find a new king: “But the Lord said unto Samuel, Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Samuel 16:7]]).
+4. The Lord contrasted His way with our way in His training of the prophet Samuel, who was sent to find a new king: “But the Lord said unto Samuel, Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Samuel 16:7]]).
 
 5. Even with the universally accepted desire to help the poor and needy, the Lord concurs in our goal but warns, “But it must needs be done in mine own way” ([[D&C 104.16|D&C 104:16]]). Otherwise, in our efforts to help, we may actually hurt them. The Lord has taught us the need to promote self-reliance. Even if we are able to help, we should not give or provide what they can and should do for themselves. Everywhere it is tried, the world learns the evils of the dole. Truly God knows best.
 
@@ -74,7 +76,7 @@ In the early years of the Church, President Brigham Young and others would call 
 
 With all that is happening in the Church today, and as the Lord is hastening His work on every side, it is even more critically important that we do all we do in His way!
 
-Especially in the work of salvation, we learn that “in the gift of his Son hath God prepared a more excellent way” ([[Ether 12.11|Ether 12:11]]). The doctrine of Christ “is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God” ([[2 Nephi 31.21|2 Nephi 31:21]]).
+Especially in the work of salvation, we learn that “in the gift of his Son hath God prepared a more excellent way” ([[Ether 12.11|Ether 12:11]]). The doctrine of Christ “is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God” ([[2 Nephi 31.21|2 Nephi 31:21]]).
 
 ## Conclusion
 
@@ -91,15 +93,15 @@ Our Savior, Jesus Christ, is “the way, the truth, and the life” ([[John 14.6
 
 
 
-[^1]: See [[2 Nephi 5.27|2 Nephi 5:27]]; [[Mosiah 4.27|Mosiah 4:27]]; [[Alma 7.23|Alma 7:23–25]][[Alma 7.24|]][[Alma 7.25|]].
+[^1]: See [[2 Nephi 5.27|2 Nephi 5:27]]; [[Mosiah 4.27|Mosiah 4:27]]; [[Alma 7.23|Alma 7:23–25]][[Alma 7.24|]][[Alma 7.25|]].
 
-[^2]: See [[Exodus 20.14|Exodus 20:14]]; [[Deuteronomy 6.5|Deuteronomy 6:5]]; [[John 13.34|John 13:34–35]][[John 13.35|]]; [[Romans 1.24|Romans 1:24–32]][[Romans 1.25|]][[Romans 1.26|]][[Romans 1.27|]][[Romans 1.28|]][[Romans 1.29|]][[Romans 1.30|]][[Romans 1.31|]][[Romans 1.32|]]; [[1 Thessalonians 4.3|1 Thessalonians 4:3]]; [[Alma 39.3|Alma 39:3–5]][[Alma 39.4|]][[Alma 39.5|]].
+[^2]: See [[Exodus 20.14|Exodus 20:14]]; [[Deuteronomy 6.5|Deuteronomy 6:5]]; [[John 13.34|John 13:34–35]][[John 13.35|]]; [[Romans 1.24|Romans 1:24–32]][[Romans 1.25|]][[Romans 1.26|]][[Romans 1.27|]][[Romans 1.28|]][[Romans 1.29|]][[Romans 1.30|]][[Romans 1.31|]][[Romans 1.32|]]; [[1 Thessalonians 4.3|1 Thessalonians 4:3]]; [[Alma 39.3|Alma 39:3–5]][[Alma 39.4|]][[Alma 39.5|]].
 
 [^3]: See [[Mosiah 4.21|Mosiah 4:21–27]][[Mosiah 4.22|]][[Mosiah 4.23|]][[Mosiah 4.24|]][[Mosiah 4.25|]][[Mosiah 4.26|]][[Mosiah 4.27|]]; [[D&C 104.15|Doctrine and Covenants 104:15–18]][[D&C 104.16|]][[D&C 104.17|]][[D&C 104.18|]].
 
-[^4]: See [[Matthew 6.5|Matthew 6:5–13]][[Matthew 6.6|]][[Matthew 6.7|]][[Matthew 6.8|]][[Matthew 6.9|]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]]; [[2 Nephi 32.8|2 Nephi 32:8–9]][[2 Nephi 32.9|]]; [[3 Nephi 18.21|3 Nephi 18:21]]; [[D&C 10.5|Doctrine and Covenants 10:5]].
+[^4]: See [[Matthew 6.5|Matthew 6:5–13]][[Matthew 6.6|]][[Matthew 6.7|]][[Matthew 6.8|]][[Matthew 6.9|]][[Matthew 6.10|]][[Matthew 6.11|]][[Matthew 6.12|]][[Matthew 6.13|]]; [[2 Nephi 32.8|2 Nephi 32:8–9]][[2 Nephi 32.9|]]; [[3 Nephi 18.21|3 Nephi 18:21]]; [[D&C 10.5|Doctrine and Covenants 10:5]].
 
-[^5]: See [[Proverbs 15.1|Proverbs 15:1]]; [[Colossians 4.6|Colossians 4:6]]; [[James 5.12|James 5:12]]; [[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]].
+[^5]: See [[Proverbs 15.1|Proverbs 15:1]]; [[Colossians 4.6|Colossians 4:6]]; [[James 5.12|James 5:12]]; [[3 Nephi 11.29|3 Nephi 11:29–30]][[3 Nephi 11.30|]].
 
 [^6]: See [[D&C 64.10|Doctrine and Covenants 64:10–11]][[D&C 64.11|]]; [[D&C 121.41|121:41–46]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]][[D&C 121.45|]][[D&C 121.46|]].
 
@@ -119,8 +121,3 @@ Our Savior, Jesus Christ, is “the way, the truth, and the life” ([[John 14.6
 
 [^14]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 284.
 
-
-
-
-
-#God_The_Father #Prophets

@@ -1,6 +1,8 @@
 # Love of God
 
-By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -78,7 +80,7 @@ I would like to mention that when we were not honest with the Lord, we were dist
 
 We can perfect our lives by living the Lord’s commandments. And as has been quoted many times in this conference, the Lord has said, “If ye love me, keep my commandments.” ([[John 14.15|John 14:15]].)
 
-The Lord said to the Prophet Joseph Smith in 1831, “… the hour is not yet, but is nigh at hand, when peace shall be taken from the earth, and the devil shall have power over his own dominion.” ([[D&C 1.35|D&C 1:35]].)
+The Lord said to the Prophet Joseph Smith in 1831, “… the hour is not yet, but is nigh at hand, when peace shall be taken from the earth, and the devil shall have power over his own dominion.” ([[D&C 1.35|D&C 1:35]].)
 
 We are in perilous times, and many love pleasure more than they love God. The devil has power over his own dominion. However, in these perilous times there is hope. The Lord is still at the head of his church. It is a great blessing to live in the latter days and to be a Latter-day Saint. The children of our Heavenly Father can receive peace, security, and happiness from loving him with all their hearts, and with all their souls, and with all their minds, and in keeping his commandments.
 
@@ -89,8 +91,3 @@ I express love for my Heavenly Father and for my Savior, Jesus Christ, and for t
 
 
 
-
-
-
-
-#Charity #Tithing

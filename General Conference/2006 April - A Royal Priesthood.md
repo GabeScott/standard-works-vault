@@ -1,5 +1,7 @@
 # A Royal Priesthood
 
+Robert D. Hales
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -67,7 +69,7 @@ I testify of the refining, spiritual, comforting, strengthening, and restraining
 
 [^1]: Adapted from Laird Roberts, “On Water and Bread,” *Tambuli,* Oct. 1984, 40–41; *New Era,* May 1984, 8–9.
 
-[^2]: [[1 Peter 2.9|1 Peter 2:9]].
+[^2]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^3]: See [[D&C 84.18|D&C 84:18]].
 
@@ -81,7 +83,7 @@ I testify of the refining, spiritual, comforting, strengthening, and restraining
 
 [^8]: [[Alma 5.46|Alma 5:46]].
 
-[^9]: [[1 Nephi 7.10|1 Nephi 7:10]].
+[^9]: [[1 Nephi 7.10|1 Nephi 7:10]].
 
 [^10]: See [[D&C 107.15|D&C 107:15]].
 
@@ -95,8 +97,3 @@ I testify of the refining, spiritual, comforting, strengthening, and restraining
 
 [^15]: [[Lamentations 4.12|Lamentations 4:12]].
 
-
-
-
-
-#Priesthood #Responsibility #Testimony

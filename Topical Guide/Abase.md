@@ -1,7 +1,6 @@
 # Abase
 
-
-*See also* [[Humility, Humble.md|Humility]]
+*See also* [[Humility.md|Humility]]
 
 exalt him that is low, and *abase* him that is high, [[Ezekiel 21.26|Ezekiel 21:26]].
 
@@ -11,6 +10,6 @@ exalt himself shall be *abased*, [[Matthew 23.12|Matthew 23:12]] ([[Luke 14.11|L
 
 *abasing* myself that ye might be exalted, [[2 Corinthians 11.7|2 Corinthians 11:7]].
 
-I know both how to be *abased*, and ... to abound, [[Philippians 4.12|Philippians 4:12]].
+I know both how to be *abased*, and … to abound, [[Philippians 4.12|Philippians 4:12]].
 
 Let him therefore *abase* himself, [[D&C 124.114|D&C 124:114]].

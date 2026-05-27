@@ -1,11 +1,10 @@
 # Restitution
 
-
-*See also* [[Repent, Repentance.md|Repent]]; [[Restoration.md|Restoration]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [BD Restitution](https://www.churchofjesuschrist.org/study/scriptures/bd/restitution?lang=eng)
+*See also* [[Repent.md|Repent]]; [[Restoration.md|Restoration]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[BD Restitution.md|BD Restitution]]
 
 he should make full *restitution*, [[Exodus 22.3|Exodus 22:3]].
 
-of the best of his own field ... shall he make *restitution*, [[Exodus 22.5|Exodus 22:5]].
+of the best of his own field … shall he make *restitution*, [[Exodus 22.5|Exodus 22:5]].
 
 he that kindled the fire shall surely make *restitution*, [[Exodus 22.6|Exodus 22:6]].
 

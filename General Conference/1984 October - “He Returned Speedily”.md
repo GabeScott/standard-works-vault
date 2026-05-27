@@ -1,5 +1,7 @@
 # “He Returned Speedily”
 
+Gordon B. Hinckley
+
 By Elder Robert B. Harbertson - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -41,8 +43,3 @@ I love the Lord Jesus Christ and bear solemn testimony to you that he lives. He 
 
 
 
-
-
-
-
-#Missionary_Work #Obedience #Service

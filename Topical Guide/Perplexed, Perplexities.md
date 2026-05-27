@@ -1,9 +1,8 @@
 # Perplexed, Perplexities
 
-
 cattle are *perplexed*, because they have no pasture, [[Joel 1.18|Joel 1:18]].
 
-Herod ... was *perplexed*, [[Luke 9.7|Luke 9:7]].
+Herod … was *perplexed*, [[Luke 9.7|Luke 9:7]].
 
 as they were much *perplexed* thereabout, behold, two men stood by them, [[Luke 24.4|Luke 24:4]].
 

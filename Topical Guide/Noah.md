@@ -1,4 +1,3 @@
 # Noah
 
-
-*See* [BD Noah](https://www.churchofjesuschrist.org/study/scriptures/bd/noah?lang=eng)
+*See also* [[BD Noah.md|BD Noah]]

@@ -1,6 +1,8 @@
 # The Sacrament Can Help Us Become Holy
 
-By Elder Peter F. Meurs - *Of the Seventy*
+Jean B. Bingham
+
+By Elder Peter F. Meurs - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -12,7 +14,7 @@ One of my earliest memories is of sacrament meetings held in our home in Warrnam
 
 As a five-year-old, I could not understand the full meaning of what was being said or done; however, I knew something special was occurring. I could feel the calm and reassuring influence of the Holy Ghost as my father contemplated the Savior’s love for us.
 
-The Savior taught: “This shall ye always do to those who repent and are baptized in my name; and ye shall do it in remembrance of my blood, which I have shed for you, that ye may witness unto the Father that ye do always remember me. And if ye do always remember me ye shall have my Spirit to be with you” ([[3 Nephi 18.11|3 Nephi 18:11]]).
+The Savior taught: “This shall ye always do to those who repent and are baptized in my name; and ye shall do it in remembrance of my blood, which I have shed for you, that ye may witness unto the Father that ye do always remember me. And if ye do always remember me ye shall have my Spirit to be with you” ([[3 Nephi 18.11|3 Nephi 18:11]]).
 
 I invite all of us to consider five ways to increase the impact and power of our regular participation in the sacred ordinance of the sacrament, an ordinance that can help us become holy.
 
@@ -28,7 +30,7 @@ In our preparation, our hearts become broken as we express gratitude for Christ�
 
 Our sacrament experience can be enhanced when we arrive well before the meeting and ponder as the prelude music is played.
 
-President Boyd K. Packer taught: “Prelude music, reverently played, is nourishment for the spirit. It invites inspiration.”[^1] “This is not a time,” President Russell M. Nelson explained, “for conversation or transmission of messages but a period of prayerful meditation as leaders and members prepare spiritually for the sacrament.”[^2]
+President Boyd K. Packer taught: “Prelude music, reverently played, is nourishment for the spirit. It invites inspiration.”[^1] “This is not a time,” President Russell M. Nelson explained, “for conversation or transmission of messages but a period of prayerful meditation as leaders and members prepare spiritually for the sacrament.”[^2]
 
 ## 3. Sing and Learn from the Words of the Sacrament Hymn
 
@@ -36,7 +38,7 @@ The sacrament hymn is an especially important part of our sacrament experience. 
 
 As we sing a hymn in preparation to partake of the emblems, the words can become part of our covenant commitment. Consider, for example: “We love thee, Lord; our hearts are full. We’ll walk thy chosen way.”[^6]
 
-## 4. Spiritually Participate in the Sacrament Prayers (See [[Moroni 4.1|Moroni 4–5]][[Moroni 4.2|]][[Moroni 4.3|]])
+## 4. Spiritually Participate in the Sacrament Prayers (See [[Moroni 4.1|Moroni 4–5]])
 
 Instead of tuning out the familiar words of the sacrament prayers, we can learn much and feel even more as we participate spiritually by considering the commitments and associated blessings included in these sacred prayers.
 
@@ -68,7 +70,7 @@ We may remember the glorious blessing of the Resurrection that “shall come to 
 
 As the water is passed, we may remember the plea of the Savior:
 
-“Behold, I, God, have suffered these things for all, that they might not suffer if they would repent; …
+“Behold, I, God, have suffered these things for all, that they might not suffer if they would repent; …
 
 “Which suffering caused myself, even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit—and would that I might not drink the bitter cup, and shrink” ([[D&C 19.16|D&C 19:16, 18]][[D&C 19.18|]]).
 
@@ -86,16 +88,16 @@ As we consider our sacrament experience, we might ask ourselves:
 
 - What did I think about as the sacrament was passed?
 
-Elder David A. Bednar taught: “The ordinance of the sacrament is a holy and repeated invitation to repent sincerely and to be renewed spiritually. The act of partaking of the sacrament, in and of itself, does not remit sins. But as we prepare conscientiously and participate in this holy ordinance with a broken heart and a contrite spirit, then the promise is that we may *always* have the Spirit of the Lord to be with us. And by the sanctifying power of the Holy Ghost as our constant companion, we can *always* retain a remission of our sins.”[^7]
+Elder David A. Bednar taught: “The ordinance of the sacrament is a holy and repeated invitation to repent sincerely and to be renewed spiritually. The act of partaking of the sacrament, in and of itself, does not remit sins. But as we prepare conscientiously and participate in this holy ordinance with a broken heart and a contrite spirit, then the promise is that we may *always* have the Spirit of the Lord to be with us. And by the sanctifying power of the Holy Ghost as our constant companion, we can *always* retain a remission of our sins.”[^7]
 
 I testify of the multitude of blessings available to us as we increase our preparation for and spiritual participation in the ordinance of the sacrament. I further testify that these blessings are available to us because of the love of our Father in Heaven and the infinite atoning sacrifice of His Beloved Son, Jesus Christ. In His sacred name, even Jesus Christ, amen.
 
 
 
 
-[^1]: Boyd K. Packer, “[[1994 October - Personal Revelation - The Gift, the Test, and the Promise.md|Personal Revelation: The Gift, the Test, and the Promise]],” *Ensign,* Nov. 1994, 61.
+[^1]: Boyd K. Packer, “[[1994 October - Personal Revelation - The Gift, the Test, and the Promise.md|Personal Revelation: The Gift, the Test, and the Promise]],” *Ensign,* Nov. 1994, 61.
 
-[^2]: Russell M. Nelson, “[Worshiping at Sacrament Meeting](https://churchofjesuschrist.org/study/liahona/2004/08/worshiping-at-sacrament-meeting?lang=eng),” *Ensign,* Aug. 2004, 27; *Liahona,* Aug. 2004, 13.
+[^2]: Russell M. Nelson, “[Worshiping at Sacrament Meeting](https://www.churchofjesuschrist.org/study/liahona/2004/08/worshiping-at-sacrament-meeting?lang=eng),” *Ensign,* Aug. 2004, 27; *Liahona,* Aug. 2004, 13.
 
 [^3]: “Jesus of Nazareth, Savior and King,” *Hymns,* no. 181.
 
@@ -105,10 +107,5 @@ I testify of the multitude of blessings available to us as we increase our prepa
 
 [^6]: “As Now We Take the Sacrament,” *Hymns,* no. 169.
 
-[^7]: David A. Bednar, “[[2016 April - Always Retain a Remission of Your Sins.md|Always Retain a Remission of Your Sins]],” *Ensign* or *Liahona,* May 2016, 61–62.
+[^7]: David A. Bednar, “[[2016 April - Always Retain a Remission of Your Sins.md|Always Retain a Remission of Your Sins]],” *Ensign* or *Liahona,* May 2016, 61–62.
 
-
-
-
-
-#Holy_Ghost #Jesus_Christ #Music #Preparation #Sacrament

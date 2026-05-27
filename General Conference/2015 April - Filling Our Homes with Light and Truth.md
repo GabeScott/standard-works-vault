@@ -1,6 +1,8 @@
 # Filling Our Homes with Light and Truth
 
-By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
+Cheryl A. Esplin
+
+By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -22,7 +24,7 @@ One place where we best seek to be filled with light and truth is in our own hom
 
 Strong eternal families and Spirit-filled homes do not just happen. They take great effort, they take time, and they take each member of the family doing his or her part. Every home is different, but every home where even one individual seeks for truth can make a difference.
 
-We are continually counseled to increase our spiritual knowledge through prayer and through studying and pondering the scriptures and the words of the living prophets. In his general conference talk about receiving a testimony of light and truth, President Dieter F. Uchtdorf said:
+We are continually counseled to increase our spiritual knowledge through prayer and through studying and pondering the scriptures and the words of the living prophets. In his general conference talk about receiving a testimony of light and truth, President Dieter F. Uchtdorf said:
 
 “The Everlasting and Almighty God … will speak to those who approach Him with a sincere heart and real intent.
 
@@ -63,12 +65,7 @@ I leave you with my testimony that I know as we fill our hearts and homes with t
 
 [^3]: “The Family Is of God.”
 
-[^4]: Dieter F. Uchtdorf, “Receiving a Testimony of Light and Truth,” *Ensign* or *Liahona,* Nov. 2014, 21.
+[^4]: Dieter F. Uchtdorf, “Receiving a Testimony of Light and Truth,” *Ensign* or *Liahona,* Nov. 2014, 21.
 
 [^5]: See Elizabeth Staheli Walker, “My Testimony, Written for My Children and Their Children after I Am Gone,” 1939, 22–26, University of Nevada, Las Vegas, Special Collections; punctuation, capitalization, and spelling standardized.
 
-
-
-
-
-#Family #Holy_Ghost #Home #Truth

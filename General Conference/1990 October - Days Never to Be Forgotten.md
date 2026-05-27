@@ -1,5 +1,7 @@
 # Days Never to Be Forgotten
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -52,11 +54,11 @@ John E. Page left Kirtland, Ohio, May 31, 1836, on his first mission as an elder
 
 One of the great families to join the Church in Canada was that of Archibald Gardner. From his journal, we learn of the family’s experience in Canada during the year 1843.
 
-Robert Gardner describes the day of their baptism: “We went about a mile and a half into the woods to find a suitable stream. We cut a hole through ice eighteen inches thick. My brother William baptized me. … I was confirmed while sitting on a log beside the stream. …
+Robert Gardner describes the day of their baptism: “We went about a mile and a half into the woods to find a suitable stream. We cut a hole through ice eighteen inches thick. My brother William baptized me. … I was confirmed while sitting on a log beside the stream. …
 
 “I cannot describe my feelings at the time and for a long time afterwards. I felt like a little child and was very careful of what I thought or said or did lest I might offend my Father in Heaven. Reading the Scriptures and secret prayer occupied my leisure time. I kept a pocket Testament constantly with me. When something on a page impressed me supporting Mormonism, I turned down a corner. Soon I could hardly find a desired passage. I had nearly all the pages turned down. I had no trouble believing the Book of Mormon. Everytime I took the book to read I had a burning testimony in my bosom of its truthfulness.”
 
-Archibald Gardner added: “\[My\] mother … \[accepted\] the Gospel at once and whole heartedly, after hearing it. … Not long after contacting the new faith she became desperately ill, so ill that her life was despaired of. She insisted on being baptized. The neighbors said that if we put her in the water they would have us tried for murder as she would surely die. Nevertheless, well bundled up, and tucked into a sleigh, we drove her two miles to the place appointed. Here a hole was cut in the ice and she was baptized in the presence of a crowd of doubters who had come to witness her demise. She was taken home. Her bed was prepared but she said, ‘No, I do not need to go to bed. I am quite well.’ And she was” (in Delilah G. Hughes, *The Life of Archibald Gardner: Utah Pioneer of 1847* \[Draper, Utah: Review and Preview Publishers, 1970\], pp. 25–27).
+Archibald Gardner added: “\[My\] mother … \[accepted\] the Gospel at once and whole heartedly, after hearing it. … Not long after contacting the new faith she became desperately ill, so ill that her life was despaired of. She insisted on being baptized. The neighbors said that if we put her in the water they would have us tried for murder as she would surely die. Nevertheless, well bundled up, and tucked into a sleigh, we drove her two miles to the place appointed. Here a hole was cut in the ice and she was baptized in the presence of a crowd of doubters who had come to witness her demise. She was taken home. Her bed was prepared but she said, ‘No, I do not need to go to bed. I am quite well.’ And she was” (in Delilah G. Hughes, *The Life of Archibald Gardner: Utah Pioneer of 1847* \[Draper, Utah: Review and Preview Publishers, 1970\], pp. 25–27).
 
 Down through the years, this same spirit of faith and confidence in the Lord has continued. During the period 1959 to 1962, my family and I lived in Toronto, where I served as the mission president. We are witnesses to the love God has for the Saints in that area. May I describe some of these “never to be forgotten” events?
 
@@ -109,8 +111,3 @@ That all of us may travel safely to our eternal home is my humble prayer. In the
 
 
 
-
-
-
-
-#Faith #Temple_Work #Temples

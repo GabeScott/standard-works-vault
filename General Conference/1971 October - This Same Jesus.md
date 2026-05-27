@@ -1,6 +1,8 @@
 # This Same Jesus
 
-By Elder Hugh B. Brown - *Of the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Hugh B. Brown - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Hugh B. Brown - *Of the Council of the Twelve*
 
 One of the compensations for going away from home is coming home again, where we receive such a warm welcome. We left here on the 22nd of September for a quick trip to the Holy Land, and with respect to that I would like to speak for just a moment. I shall not inflict upon you a travelogue but will refer to some of the places we visited and the effect upon us of such visits.
 
-I was accompanied by Dr. Truman Grant Madsen of Brigham Young University, who has taken many trips over there with various groups and knows the country well and knows the story of the Christ remarkably well. The question arose as to the wisdom of my going on account of my weakened condition, but Dr. J. Louis Schricker of this city said he would personally accompany me and see that I was getting good care. So with these two fine men, I left via New York and Paris and went to Tel Aviv. From there we took an automobile down to Jerusalem and were booked in the Intercontinental Hotel on top of the Mount of Olives, which gave us a beautiful view of Jerusalem. The Mount of Olives was made famous and sacred by the frequent visits of the Christ; and when he comes again, this mount will be cleft in twain as he descends.
+I was accompanied by Dr. Truman Grant Madsen of Brigham Young University, who has taken many trips over there with various groups and knows the country well and knows the story of the Christ remarkably well. The question arose as to the wisdom of my going on account of my weakened condition, but Dr. J. Louis Schricker of this city said he would personally accompany me and see that I was getting good care. So with these two fine men, I left via New York and Paris and went to Tel Aviv. From there we took an automobile down to Jerusalem and were booked in the Intercontinental Hotel on top of the Mount of Olives, which gave us a beautiful view of Jerusalem. The Mount of Olives was made famous and sacred by the frequent visits of the Christ; and when he comes again, this mount will be cleft in twain as he descends.
 
 We went out from there to Bethlehem, and as we stood in that beautiful, quiet little city, we could almost hear the voices of the angels and the hosts of heaven singing glory to God in the highest, and on earth peace, good will toward men.
 
@@ -26,7 +28,7 @@ From there we went down into the garden and into the tomb. As we stood by the do
 
 Jesus reached forth his hand and said to her, in that voice which only he could use, “Mary.” She looked up and saw the face of Jesus the Christ and was about to embrace him. It was a remarkable feeling we had as we stood and remembered these things; and we, the three of us, had prayer each day, praying God to guide us on our journey and help us to emulate the example of him who made that whole country so famous and so sacred.
 
-After visiting other places in Jerusalem, we went north, starting at the Sea of Galilee. On the way up we visited Mount Tabor, believed to be the Mount of the Transfiguration, where Moses and Elijah met with Jesus and Peter, James, and John; and He was transfigured before them. While on this mount, Christ instructed them, and Peter, feeling that it was a good place to be, said, “Let us build a tabernacle, one for Moses, one for Elijah and one for thee.” (See [[Matthew 17.4|Matt. 17:4]]. See also James E. Talmage, *Jesus the Christ,* pp. 370–71.) That was not thought wise at the time, however.
+After visiting other places in Jerusalem, we went north, starting at the Sea of Galilee. On the way up we visited Mount Tabor, believed to be the Mount of the Transfiguration, where Moses and Elijah met with Jesus and Peter, James, and John; and He was transfigured before them. While on this mount, Christ instructed them, and Peter, feeling that it was a good place to be, said, “Let us build a tabernacle, one for Moses, one for Elijah and one for thee.” (See [[Matthew 17.4|Matt. 17:4]]. See also James E. Talmage, *Jesus the Christ,* pp. 370–71.) That was not thought wise at the time, however.
 
 From Mount Tabor we went on over the hill past Nazareth and came upon the Sea of Galilee. All of us gasped as we came over the hill and saw this beautiful little valley, green all around, and the quiet Sea of Galilee. And as we came down to it, we found accommodations in a small Jewish guest house near the hotel. We were impressed by the thought that here it was that Jesus walked on the water. Here it was that he stilled the tempest. Here it was that he performed many miracles.
 
@@ -34,7 +36,7 @@ In looking across one part of the sea, we saw the Mount of the Beatitudes, where
 
 Upon returning to the Jordan Valley, we saw the cities on the hillside on both sides of the road. We were impressed as we came into Nazareth; it is also a city on a hill. Jesus lived there for a time, and because of that fact, he was known as a Nazarene. We went back into Jerusalem, and there day after day we visited points of interest in that great city.
 
-I tell you these things to indicate the object of our visit, which was to get closer to him, to come home with increased devotion, increased commitment to his work, increased assurance that he is the Son of God, as Brother Anderson has told us this afternoon. Peter said what a lot of us would like to say when Jesus asked him, “… whom sayest ye that I am?” He said, “Thou art the Christ, the Son of the living God.” Jesus said, “Flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.15|Matt. 16:15–17]][[Matthew 16.16|]][[Matthew 16.17|]].)
+I tell you these things to indicate the object of our visit, which was to get closer to him, to come home with increased devotion, increased commitment to his work, increased assurance that he is the Son of God, as Brother Anderson has told us this afternoon. Peter said what a lot of us would like to say when Jesus asked him, “… whom sayest ye that I am?” He said, “Thou art the Christ, the Son of the living God.” Jesus said, “Flesh and blood hath not revealed it unto thee, but my Father which is in heaven.” ([[Matthew 16.15|Matt. 16:15–17]][[Matthew 16.16|]][[Matthew 16.17|]].)
 
 I want to tell you, my brethren and sisters, as is my calling as a witness of Christ, that I too know, and I know it from the same source that Peter knew it, for flesh and blood have not revealed that knowledge unto me, but our Father which is in heaven. And from the bottom of my heart I say to him and to you, as I think back over that trip through the Holy Land, “Thou art the Christ, the Son of the living God,” and I know it as I know that I live.
 
@@ -45,8 +47,3 @@ Let us, then, at this closing session, renew that plea and rededicate ourselves 
 
 
 
-
-
-
-
-#Holy_Land #Jesus_Christ

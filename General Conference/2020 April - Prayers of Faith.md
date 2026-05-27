@@ -1,6 +1,8 @@
 # Prayers of Faith
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -8,7 +10,7 @@ By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/04/17eyring?lang=eng)
 
-The prayer of Elder Maynes at the beginning of this first session of general conference is being answered. Inspiration has come to us through wonderful messages and beautiful music. The promise of President Russell M. Nelson that this conference will be memorable is already beginning to be fulfilled.
+The prayer of Elder Maynes at the beginning of this first session of general conference is being answered. Inspiration has come to us through wonderful messages and beautiful music. The promise of President Russell M. Nelson that this conference will be memorable is already beginning to be fulfilled.
 
 President Nelson has designated this year as “a bicentennial period commemorating 200 years since God the Father and His Beloved Son, Jesus Christ, appeared to Joseph Smith in a vision.” President Nelson invited us to make a personal plan to prepare ourselves for this historic conference, which commemoration he said would be “a hinge point in the history of the Church, and your part is vital.”[^1]
 
@@ -70,33 +72,28 @@ Joseph had faith in Christ to go into the grove and also to pray for release fro
 
 The experience of Enos has taught me the same precious lesson. When I pray with faith, I have the Savior as my advocate with the Father and I can feel that my prayer reaches heaven. Answers come. Blessings are received. There is peace and joy even in hard times.
 
-I remember when, as the newest member of the Quorum of the Twelve Apostles, I knelt in prayer with Elder David B. Haight. He was about the age I am now, with challenges I now experience myself. I remember his voice as he prayed. I didn’t open my eyes to look, but it sounded to me as if he was smiling. He spoke with Heavenly Father with joy in his voice.
+I remember when, as the newest member of the Quorum of the Twelve Apostles, I knelt in prayer with Elder David B. Haight. He was about the age I am now, with challenges I now experience myself. I remember his voice as he prayed. I didn’t open my eyes to look, but it sounded to me as if he was smiling. He spoke with Heavenly Father with joy in his voice.
 
 I can hear in my mind his happiness when he said, “In the name of Jesus Christ.” It sounded to me as if Elder Haight felt the Savior was affirming at that moment the message he had prayed to the Father. And I was sure it would be received with a smile.
 
 Our ability to make our vital contribution to the wonderful continuing Restoration will increase as we grow in our faith in Jesus Christ as our Savior and our Heavenly Father as our loving Father. As we pray in faith, we become a vital part in the Lord’s work as He prepares the world for His Second Coming. I pray that we all may find joy in doing the work He invites each of us to perform.
 
-I testify that Jesus Christ lives. This is His Church and kingdom on earth. Joseph Smith is the prophet of the Restoration. President Russell M. Nelson is the Lord’s prophet on the earth today. He holds all the keys of the priesthood in The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ, amen.
+I testify that Jesus Christ lives. This is His Church and kingdom on earth. Joseph Smith is the prophet of the Restoration. President Russell M. Nelson is the Lord’s prophet on the earth today. He holds all the keys of the priesthood in The Church of Jesus Christ of Latter-day Saints. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[My 2020 Invitation to You: Share the Message of the Restoration of the Savior’s Gospel](http://www.ChurchofJesusChrist.org/blog/my-2020-invitation-to-you-share-the-message-of-the-restoration-of-the-saviors-gospel),” Jan. 1, 2020, blog.ChurchofJesusChrist.org.
+[^1]: Russell M. Nelson, “[My 2020 Invitation to You: Share the Message of the Restoration of the Savior’s Gospel](https://www.ChurchofJesusChrist.org/blog/my-2020-invitation-to-you-share-the-message-of-the-restoration-of-the-saviors-gospel),” Jan. 1, 2020, blog.ChurchofJesusChrist.org.
 
-[^2]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 512–13.
+[^2]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-44?lang=eng&id=title6#title6)* (2007), 512–13.
 
 [^3]: [[Mosiah 15.28|Mosiah 15:28]].
 
 [^4]: [[Matthew 4.19|Matthew 4:19]].
 
-[^5]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 43–44.
+[^5]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 43–44.
 
 [^6]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
 [^7]: [[Enos 1.4|Enos 1:4–8]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].
 
-
-
-
-
-#Faith #Prayer #Restoration

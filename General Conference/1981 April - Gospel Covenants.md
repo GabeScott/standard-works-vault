@@ -1,6 +1,8 @@
 # Gospel Covenants
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Marion G. Romney
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -8,7 +10,7 @@ By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 In our priesthood meeting last October we considered “The Oath and Covenant Which Belongeth to the Priesthood.” (See *Ensign,* Nov. 1980, pp. 43–45.) Tonight I have in mind calling attention to some specific gospel covenants which every priesthood bearer should honor.
 
-In saying to William E. McLellin, “Blessed are you for receiving mine everlasting covenant, even the fulness of my gospel” ([[D&C 66.2|D&C 66:2]]), the Lord identified the gospel as the great and all-embracing covenant. As a matter of fact, the Lord had himself presented it as such to us, his spirit children, in the great pre-earth Council in Heaven. Standing among us at that time in that premortal assembly, the Lord “said unto those who were with him: We will go down … and … make an earth whereon these may dwell;
+In saying to William E. McLellin, “Blessed are you for receiving mine everlasting covenant, even the fulness of my gospel” ([[D&C 66.2|D&C 66:2]]), the Lord identified the gospel as the great and all-embracing covenant. As a matter of fact, the Lord had himself presented it as such to us, his spirit children, in the great pre-earth Council in Heaven. Standing among us at that time in that premortal assembly, the Lord “said unto those who were with him: We will go down … and … make an earth whereon these may dwell;
 
 “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them;
 
@@ -30,7 +32,7 @@ Abraham’s posterity, through Isaac and Jacob—with whom these covenants were 
 
 The first gospel covenant we mortals enter into with the Lord is the baptismal covenant. Alma thus set forth the nature of this covenant when he and others who believed the teachings of Abinadi fled into the wilderness to the “place … \[called\] Mormon.”
 
-There he (Alma) “said unto them: Behold, here are the waters of Mormon … and now, as ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, …
+There he (Alma) “said unto them: Behold, here are the waters of Mormon … and now, as ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, …
 
 “And are willing to mourn with those that mourn; … and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … even until death, that ye may be redeemed of God, … that ye may have eternal life—
 
@@ -62,13 +64,13 @@ Another example of a covenant is the Word of Wisdom, which also promises a speci
 
 “Behold, verily, thus saith the Lord unto you: In consequence of evils and designs which do and will exist in the hearts of conspiring men in the last days, I have warned you, and forewarn you, by giving unto you this word of wisdom by revelation—
 
-“That inasmuch as any man drinketh wine or strong drink among you, behold it is not good, neither meet in the sight of your Father. …
+“That inasmuch as any man drinketh wine or strong drink among you, behold it is not good, neither meet in the sight of your Father. …
 
 “And, again, strong drinks are not for the belly, but for the washing of your bodies.
 
 And again, tobacco is not for the body, neither for the belly, and is not good for man, but is an herb for bruises and all sick cattle, to be used with judgment and skill.
 
-“And again, hot drinks are not for the body or belly. …
+“And again, hot drinks are not for the body or belly. …
 
 “And all saints who remember to keep and do these sayings, walking in obedience to the commandments, shall receive health in their navel and marrow to their bones;
 
@@ -89,8 +91,3 @@ That the Lord will help all of us to magnify our callings in the priesthood by p
 
 
 
-
-
-
-
-#Covenants

@@ -1,5 +1,7 @@
 # Choices
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -40,9 +42,9 @@ These bodies, created in God’s image, are to be preserved, protected, and well
 
 “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
+“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
 
-You are one of God’s noble and great spirits, held in reserve to come to earth at this time (see [[D&C 86.8|D&C 86:8–11]][[D&C 86.9|]][[D&C 86.10|]][[D&C 86.11|]]). In your premortal life you were appointed to help prepare the world for the great gathering of souls that will precede the Lord’s second coming. You are one of a covenant people. You are an heir to the promise that all the earth will be blessed by the seed of Abraham and that God’s covenant with Abraham will be fulfilled through his lineage in these latter days (see [[1 Nephi 15.18|1 Ne. 15:18]]; [[3 Nephi 20.25|3 Ne. 20:25]]).
+You are one of God’s noble and great spirits, held in reserve to come to earth at this time (see [[D&C 86.8|D&C 86:8–11]][[D&C 86.9|]][[D&C 86.10|]][[D&C 86.11|]]). In your premortal life you were appointed to help prepare the world for the great gathering of souls that will precede the Lord’s second coming. You are one of a covenant people. You are an heir to the promise that all the earth will be blessed by the seed of Abraham and that God’s covenant with Abraham will be fulfilled through his lineage in these latter days (see [[1 Nephi 15.18|1 Ne. 15:18]]; [[3 Nephi 20.25|3 Ne. 20:25]]).
 
 As a member of the Church, you have made sacred covenants with the Lord. You have taken upon yourself the name of Christ (see [[D&C 18.28|D&C 18:28]]; [[D&C 20.29|20:29, 37]][[D&C 20.37|]]). You have promised to always remember Him and to keep His commandments. In return, He has agreed to grant His Spirit to be with you (see [[Moroni 4.3|Moro. 4:3]]; [[Moroni 5.2|5:2]]; [[D&C 20.77|D&C 20:77]]).
 
@@ -54,17 +56,17 @@ This question is one I have often asked myself. Well do I remember doing so many
 
 Why are you here on planet earth?
 
-One of the most important reasons is to receive a mortal body. Another is to be tested—to experience mortality—to determine what you will do with life’s challenging opportunities. Those opportunities require you to make choices, and choices depend on agency. A major reason for your mortal existence, therefore, is to test how you will exercise your agency (see [[2 Nephi 2.15|2 Ne. 2:15, 25]][[2 Nephi 2.25|]]).
+One of the most important reasons is to receive a mortal body. Another is to be tested—to experience mortality—to determine what you will do with life’s challenging opportunities. Those opportunities require you to make choices, and choices depend on agency. A major reason for your mortal existence, therefore, is to test how you will exercise your agency (see [[2 Nephi 2.15|2 Ne. 2:15, 25]][[2 Nephi 2.25|]]).
 
 Agency is a divine gift to you. You are free to choose what you will be and what you will do. And you are not without help. Counsel with your parents is a privilege at any age. Prayer provides communication with your Heavenly Father and invites the promptings of personal revelation. And in certain circumstances, consultation with professional advisers and with your local leaders in the Church may be highly advisable, especially when very difficult decisions must be made.
 
-That is precisely the pattern chosen by President Spencer W. Kimball. In 1972, Elder Kimball, then a member of the Council of the Twelve, knew that his mortal life was slipping away because of heart disease. He obtained competent medical counsel and prayerfully consulted with the Lord and with his file leaders in the Church. Elder and Sister Kimball and the First Presidency carefully weighed available alternatives. Then President Harold B. Lee, speaking for the First Presidency, counseled Elder Kimball. With great conviction, President Lee said: “Spencer, you have been called! You are not to die! You must do everything you need to do to care for yourself and continue to live” (“Spencer W. Kimball: Man of Faith,” *Ensign,* Dec. 1985, p. 40).
+That is precisely the pattern chosen by President Spencer W. Kimball. In 1972, Elder Kimball, then a member of the Council of the Twelve, knew that his mortal life was slipping away because of heart disease. He obtained competent medical counsel and prayerfully consulted with the Lord and with his file leaders in the Church. Elder and Sister Kimball and the First Presidency carefully weighed available alternatives. Then President Harold B. Lee, speaking for the First Presidency, counseled Elder Kimball. With great conviction, President Lee said: “Spencer, you have been called! You are not to die! You must do everything you need to do to care for yourself and continue to live” (“Spencer W. Kimball: Man of Faith,” *Ensign,* Dec. 1985, p. 40).
 
 President Kimball chose to have an operation performed upon his heart that was known to carry a high risk. He was blessed with a successful result. He lived thirteen more years, eventually to succeed President Lee as President of the Church.
 
 That precious privilege of choice—man’s agency—was decreed before the world was created (see [[D&C 93.29|D&C 93:29–31]][[D&C 93.30|]][[D&C 93.31|]]). It is a moral agency (see [[D&C 101.78|D&C 101:78]]). Thus, it was opposed by Satan (see [[Moses 4.3|Moses 4:3]]) but affirmed by the Lord (see [[Moses 4.2|Moses 4:2]]) and reaffirmed through prophets in ancient and in modern times (see [[D&C 58.26|D&C 58:26–28]][[D&C 58.27|]][[D&C 58.28|]]; [[Moses 6.56|Moses 6:56]]; [[Moses 7.32|7:32]]).
 
-The proper exercise of moral agency requires faith. Faith in the Lord Jesus Christ is the first principle of the gospel (see [[Articles of Faith 1.4|A of F 1:4]]). Because of Him, you have your agency. He must be the very foundation of your faith, and the testing of that faith is a fundamental reason for your freedom to choose.
+The proper exercise of moral agency requires faith. Faith in the Lord Jesus Christ is the first principle of the gospel (see [[Articles of Faith 1.4|A of F 1:4]]). Because of Him, you have your agency. He must be the very foundation of your faith, and the testing of that faith is a fundamental reason for your freedom to choose.
 
 You are free to develop and exercise faith in God and in His divine Son, faith in His word, faith in His Church, faith in His servants, and faith in His commandments.
 
@@ -72,7 +74,7 @@ Facing difficult challenges is neither new nor unique. Centuries ago, Joshua spo
 
 “Choose you this day whom ye will serve; … as for me and my house, we will serve the Lord” ([[Joshua 24.15|Josh. 24:15]]; see also [[Moses 6.33|Moses 6:33]]).
 
-Cultivation of that faith will entitle you to the companionship of the Holy Ghost, who will help you make wise decisions (see [[2 Nephi 2.27|2 Ne. 2:27–28]][[2 Nephi 2.28|]]; [[D&C 14.8|D&C 14:8]]).
+Cultivation of that faith will entitle you to the companionship of the Holy Ghost, who will help you make wise decisions (see [[2 Nephi 2.27|2 Ne. 2:27–28]][[2 Nephi 2.28|]]; [[D&C 14.8|D&C 14:8]]).
 
 Many may profess a measure of faith in God, but without sincere repentance, faith cannot be fully operative. This concept was made known to the Nephites:
 
@@ -84,7 +86,7 @@ Yes, every test, every trial, every challenge and hardship you endure is an oppo
 
 Faith can be fortified through prayer. Prayer is the powerful key to making decisions, not only concerning your physical body, but concerning all other important aspects of your life. Humbly seek the Lord in prayer with a sincere heart and real intent, and He will help you (see [[Alma 33.23|Alma 33:23]]; [[Moroni 7.9|Moro. 7:9]]; [[Moroni 10.4|10:4]]; [[D&C 9.7|D&C 9:7–9]][[D&C 9.8|]][[D&C 9.9|]]).
 
-Remember that faith and prayer alone are seldom sufficient. Personal effort is usually necessary to accomplish your heart’s desire. “Faith, if it hath not works, is dead, being alone” ([[James 2.17|James 2:17]]; see also [[James 2.18|vs. 18, 20, 26]][[James 2.20|]][[James 2.26|]]; [[Alma 26.22|Alma 26:22]]).
+Remember that faith and prayer alone are seldom sufficient. Personal effort is usually necessary to accomplish your heart’s desire. “Faith, if it hath not works, is dead, being alone” ([[James 2.17|James 2:17]]; see also [[James 2.18|vs. 18, 20, 26]][[James 2.20|]][[James 2.26|]]; [[Alma 26.22|Alma 26:22]]).
 
 The answers to question number two emphasize that you are here to exercise faith, to pray, and to work hard.
 
@@ -92,7 +94,7 @@ Now let’s turn our attention to question number three.
 
 ## “Where Am I Going?”
 
-This question reminds us that eventually you (and I) are going to die, be resurrected, be judged, and be awarded a place in eternal realms (see [[1 Corinthians 15.22|1 Cor. 15:22]]; [[Alma 12.24|Alma 12:24]]; [[Alma 21.9|21:9]]; [[Helaman 14.16|Hel. 14:16–17]][[Helaman 14.17|]]; [[D&C 138.19|D&C 138:19]]). With each passing sunset, you are closer to that inevitable day of judgment. Then you will be asked to account for your faith, your hopes, and your works. The Lord said:
+This question reminds us that eventually you (and I) are going to die, be resurrected, be judged, and be awarded a place in eternal realms (see [[1 Corinthians 15.22|1 Cor. 15:22]]; [[Alma 12.24|Alma 12:24]]; [[Alma 21.9|21:9]]; [[Helaman 14.16|Hel. 14:16–17]][[Helaman 14.17|]]; [[D&C 138.19|D&C 138:19]]). With each passing sunset, you are closer to that inevitable day of judgment. Then you will be asked to account for your faith, your hopes, and your works. The Lord said:
 
 “Every man may act in doctrine and principle … according to the moral agency which I have given unto him, that every man may be accountable for his own sins in the day of judgment” ([[D&C 101.78|D&C 101:78]]; see also [[Mosiah 3.24|Mosiah 3:24]]).
 
@@ -114,7 +116,7 @@ Interviews, as for temple recommends, with your bishop and members of your stake
 
 After the Resurrection and Judgment, you will be assigned to your everlasting home on high. The revelations liken the glory of those dwelling places to the differing lights of heavenly bodies. Paul said:
 
-“There is one glory of the sun, and another glory of the moon, and another glory of the stars” ([[1 Corinthians 15.41|1 Cor. 15:41]]).
+“There is one glory of the sun, and another glory of the moon, and another glory of the stars” ([[1 Corinthians 15.41|1 Cor. 15:41]]).
 
 The Lord revealed more to the Prophet Joseph Smith, who wrote of the *telestial* glory, where those will ultimately abide “who received not the gospel of Christ, neither the testimony of Jesus” while in this life ([[D&C 76.82|D&C 76:82]]).
 
@@ -129,8 +131,3 @@ May each of us choose wisely and with faith in Him who created us, I pray in the
 
 
 
-
-
-
-
-#Agency #Faith #Plan_Of_Salvation

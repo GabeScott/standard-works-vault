@@ -1,5 +1,7 @@
 # Follow the Son of God
 
+Gordon B. Hinckley
+
 By President Howard W. Hunter - *President of the Church*
 
 *Given in the October session of the 1994 General Conference*
@@ -37,8 +39,3 @@ I again testify that the restored gospel of Jesus Christ is true. I feel very de
 
 
 
-
-
-
-
-#Church_Leaders #Couple_Missionaries #Jesus_Christ #Missionary_Work #Ordinances #Temple_Work #Temples

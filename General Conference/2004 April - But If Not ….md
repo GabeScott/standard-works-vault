@@ -1,5 +1,7 @@
 # But If Not …
 
+Gordon B. Hinckley
+
 By Elder Dennis E. Simmons - *Of the Seventy*
 
 *Given in the April session of the 2004 General Conference*
@@ -48,11 +50,11 @@ Men accomplish marvelous things by trusting in the Lord and keeping His commandm
 
 “Choosing rather to suffer affliction with the people of God, than to enjoy the pleasures of sin for a season;
 
-“Esteeming the reproach of Christ greater riches than the treasures in Egypt. …
+“Esteeming the reproach of Christ greater riches than the treasures in Egypt. …
 
-“*By faith* he forsook Egypt, not fearing the wrath of the king. …
+“*By faith* he forsook Egypt, not fearing the wrath of the king. …
 
-“*By faith* they passed through the Red sea as by dry land. …
+“*By faith* they passed through the Red sea as by dry land. …
 
 “*By faith* the walls of Jericho fell down.”[^15]
 
@@ -83,7 +85,7 @@ Our God will see that we receive justice and fairness, *but if not.* … He will
 
 
 
-[^1]: See Guide to the Scriptures, “Faith,” 80; see also [[Hebrews 11.1|Hebrews 11:1]]; [[Alma 32.21|Alma 32:21]]; [[Ether 12.6|Ether 12:6]].
+[^1]: See Guide to the Scriptures, “[Faith](https://www.churchofjesuschrist.org/study/scriptures/gs/faith?lang=eng&id=p1#p1),” 80; see also [[Hebrews 11.1|Hebrews 11:1]]; [[Alma 32.21|Alma 32:21]]; [[Ether 12.6|Ether 12:6]].
 
 [^2]: [[Daniel 3.15|Daniel 3:15]].
 
@@ -91,23 +93,23 @@ Our God will see that we receive justice and fairness, *but if not.* … He will
 
 [^4]: See [[Mosiah 7.33|Mosiah 7:33]].
 
-[^5]: See [[Alma 7.20|Alma 7:20]]; [[3 Nephi 24.6|3 Nephi 24:6]]; [[Mormon 9.19|Mormon 9:19]]; [[Moroni 8.18|Moroni 8:18]].
+[^5]: See [[Alma 7.20|Alma 7:20]]; [[3 Nephi 24.6|3 Nephi 24:6]]; [[Mormon 9.19|Mormon 9:19]]; [[Moroni 8.18|Moroni 8:18]].
 
-[^6]: See [[2 Nephi 11.5|2 Nephi 11:5]]; [[Alma 12.25|Alma 12:25]]; [[D&C 84.35|D&C 84:35–38]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]].
+[^6]: See [[2 Nephi 11.5|2 Nephi 11:5]]; [[Alma 12.25|Alma 12:25]]; [[D&C 84.35|D&C 84:35–38]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]].
 
 [^7]: [[Abraham 3.24|Abraham 3:24–25]][[Abraham 3.25|]].
 
 [^8]: [[Moses 1.39|Moses 1:39]].
 
-[^9]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Helaman 14.30|Helaman 14:30]]; [[D&C 101.78|D&C 101:78]].
+[^9]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Helaman 14.30|Helaman 14:30]]; [[D&C 101.78|D&C 101:78]].
 
-[^10]: See [[1 Corinthians 10.13|1 Corinthians 10:13]]; [[Alma 13.28|Alma 13:28]].
+[^10]: See [[1 Corinthians 10.13|1 Corinthians 10:13]]; [[Alma 13.28|Alma 13:28]].
 
 [^11]: [[Romans 5.3|Romans 5:3–5]][[Romans 5.4|]][[Romans 5.5|]].
 
-[^12]: [[2 Corinthians 12.9|2 Corinthians 12:9]].
+[^12]: [[2 Corinthians 12.9|2 Corinthians 12:9]].
 
-[^13]: [[2 Corinthians 12.9|2 Corinthians 12:9–10]][[2 Corinthians 12.10|]].
+[^13]: [[2 Corinthians 12.9|2 Corinthians 12:9–10]][[2 Corinthians 12.10|]].
 
 [^14]: [[Hebrews 11.17|Hebrews 11:17]]; emphasis added.
 
@@ -117,14 +119,9 @@ Our God will see that we receive justice and fairness, *but if not.* … He will
 
 [^17]: [[Hebrews 11.36|Hebrews 11:36–37]][[Hebrews 11.37|]].
 
-[^18]: Joseph Smith Translation, Hebrews 11:40 (in [[Hebrews 11.note40a|Hebrews 11:40, footnote a)]].
+[^18]: Joseph Smith Translation, Hebrews 11:40 (in [Hebrews 11:40, footnote a)](https://www.churchofjesuschrist.org/study/scriptures/nt/heb/11?lang=eng&id=note40a#note40a).
 
-[^19]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^19]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^20]: See [[D&C 84.35|D&C 84:35–38]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]].
 
-
-
-
-
-#Agency #Faith #Trust

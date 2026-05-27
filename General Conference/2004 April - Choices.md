@@ -1,5 +1,7 @@
 # Choices
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -67,7 +69,7 @@ Brethren, it is my belief and testimony that collectively we have the responsibi
 
 
 
-[^1]: [[2 Nephi 2.26|2 Nephi 2:26]].
+[^1]: [[2 Nephi 2.26|2 Nephi 2:26]].
 
 [^2]: See “Deciding about Decisions,” *New Era,* June 1976, 12–13.
 
@@ -79,16 +81,11 @@ Brethren, it is my belief and testimony that collectively we have the responsibi
 
 [^6]: See *Believe! Helping Youth Trust in the Lord* (2003), 27–28.
 
-[^7]: [[2 Nephi 28.21|2 Nephi 28:21]].
+[^7]: [[2 Nephi 28.21|2 Nephi 28:21]].
 
 [^8]: *For the Strength of Youth* (pamphlet, 2001), 5.
 
 [^9]: [[D&C 9.7|D&C 9:7–9]][[D&C 9.8|]][[D&C 9.9|]].
 
-[^10]: [[2 Nephi 15.20|2 Nephi 15:20]].
+[^10]: [[2 Nephi 15.20|2 Nephi 15:20]].
 
-
-
-
-
-#Agency #Prayer #Repentance #Responsibility

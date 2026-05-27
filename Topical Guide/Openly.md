@@ -1,6 +1,5 @@
 # Openly
 
-
 seeth in secret himself shall reward thee *openly*, [[Matthew 6.4|Matthew 6:4]] ([[3 Nephi 13.4|3 Nephi 13:4]]).
 
 went he also up unto the feast, not *openly*, [[John 7.10|John 7:10]].

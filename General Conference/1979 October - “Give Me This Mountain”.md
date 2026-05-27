@@ -1,6 +1,8 @@
 # “Give Me This Mountain”
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -61,8 +63,3 @@ My brethren and sisters, I testify to you that this is the Lord’s work and tha
 
 
 
-
-
-
-
-#Adversity #Commitment

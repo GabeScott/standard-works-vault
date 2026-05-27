@@ -1,16 +1,18 @@
 # Enriching Family Life
 
-By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
+Ezra Taft Benson
+
+By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1983/04/enriching-family-life?lang=eng)
 
-Brethren, I come humbly to this pulpit. As a young man I recall President J. Reuben Clark pleading time after time in general priesthood meetings that there be unity in the priesthood. He would quote frequently the message of the Lord, “I say unto you, be one; and if ye are not one ye are not mine.” ([[D&C 38.27|D&C 38:27]].)
+Brethren, I come humbly to this pulpit. As a young man I recall President J. Reuben Clark pleading time after time in general priesthood meetings that there be unity in the priesthood. He would quote frequently the message of the Lord, “I say unto you, be one; and if ye are not one ye are not mine.” ([[D&C 38.27|D&C 38:27]].)
 
 Unity in the priesthood should reflect unity in our homes. One wonders why so many more homes are now being weakened and why so many families are disintegrating. The reasons are complex. No doubt it has much to do with the social disorders of the day. We are all subjected to sparkling, enticing false advertising. Violence is powerfully portrayed everywhere. Our society is permeated with the suggestion that selfishness and instant gratification are acceptable or even respectable conduct. The evils of alcoholism have exploded and been magnified by other forms of drug abuse. The sexual revolution has been crippling to the spiritual, mental, and physical health of families.
 
-Among the assaults on families are the attacks on our faith, for which parents should prepare their children. Some of it is coming from apostates who had testimonies and now seem unable to leave the Church alone. One, complaining of Church policy, was heard to say: “I am so mad: if I had been paying my tithing I would quit.” Persecution is not new to the devoted followers of Christ. More recently, however, the anger and venom of our enemies seem to be increasing. Brigham Young said, “We never began to build a temple without the bells of hell beginning to ring.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1973, p. 410.) With twenty-two temples under construction or in the planning stage, there seems to be a lot of bells to be rung.
+Among the assaults on families are the attacks on our faith, for which parents should prepare their children. Some of it is coming from apostates who had testimonies and now seem unable to leave the Church alone. One, complaining of Church policy, was heard to say: “I am so mad: if I had been paying my tithing I would quit.” Persecution is not new to the devoted followers of Christ. More recently, however, the anger and venom of our enemies seem to be increasing. Brigham Young said, “We never began to build a temple without the bells of hell beginning to ring.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1973, p. 410.) With twenty-two temples under construction or in the planning stage, there seems to be a lot of bells to be rung.
 
 When I hear of a family breaking up, I question if family home evening and family prayers have been regularly held in that home and if the law of tithing has been observed. Has that family reverenced the Sabbath day? Have the parents murmured against Church teachings and leaders? I wonder what could possibly justify the forsaking of eternal promises made in the temple, or what could warrant the breaking up of a family with children of tender years.
 
@@ -52,7 +54,7 @@ The touch and time of the mother in the home makes it warm, comfortable, and ple
 
 “Some seem to think that the woman’s responsibility is to take care of the home and everything else while the man goes to meetings. I want to tell you that your chief responsibility is in your own home.” (Seventies and Stake Missionary Conference, 4 Oct. 1941, p. 8.)
 
-This was confirmed by President Harold B. Lee: “The greatest of the Lord’s work you brethren will ever do as fathers will be within the walls of your own home.” (In Conference Report, Apr. 1973, p. 130.)
+This was confirmed by President Harold B. Lee: “The greatest of the Lord’s work you brethren will ever do as fathers will be within the walls of your own home.” (In Conference Report, Apr. 1973, [[1973 April - Follow the Leadership of the Church.md|p. 130]].)
 
 Let there be no ill will or anger between parents and children, brothers and sisters, and kinsmen. Lingering feelings of hurt or disagreement should be settled quickly. Why wait until one party is dying or dead? May the rich humanness of warm, loving family life be restored and prevail in all our kinship.
 
@@ -79,8 +81,3 @@ If we are united and go forward under the leadership of those who have the keys 
 
 
 
-
-
-
-
-#Family #Parenthood

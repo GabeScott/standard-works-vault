@@ -1,5 +1,7 @@
 # “An Eye Single to the Glory of God”
 
+Ezra Taft Benson
+
 By Elder Marlin K. Jensen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -20,9 +22,9 @@ Finally, I am very grateful for each of you, my brothers and sisters all over th
 
 As I have searched the scriptures in recent months for guidance in my new calling, I have become aware of the importance to our eternal welfare of our motives, our desires, and our attitudes. I speak of one of these today: the necessity of performing our earthly labors with “an eye single to the glory of God.” ([[D&C 4.5|D&C 4:5]].)
 
-The temptation to seek personal recognition and reward from our service to others is ever-present. The pattern was established in the pre-earth life by Satan himself. There, when the Father explained His plan of salvation for the inhabitants of this earth and the need for a redeemer, Satan responded by saying, “Behold, here am I, send me, I will be thy son, and I will redeem all mankind, that one soul shall not be lost, and surely I will do it; wherefore give me thine honor.” ([[Moses 4.1|Moses 4:1]].) In contrast, Christ showed us for all time that God’s work is to be done with an attitude of *Thine,* not *mine.* Said He: “Father, thy will be done, and the glory be thine forever.” ([[Moses 4.2|V. 2]].)
+The temptation to seek personal recognition and reward from our service to others is ever-present. The pattern was established in the pre-earth life by Satan himself. There, when the Father explained His plan of salvation for the inhabitants of this earth and the need for a redeemer, Satan responded by saying, “Behold, here am I, send me, I will be thy son, and I will redeem all mankind, that one soul shall not be lost, and surely I will do it; wherefore give me thine honor.” ([[Moses 4.1|Moses 4:1]].) In contrast, Christ showed us for all time that God’s work is to be done with an attitude of *Thine,* not *mine.* Said He: “Father, thy will be done, and the glory be thine forever.” ([[Moses 4.2|V. 2]].)
 
-Those who seek honor and gain for themselves in doing the Lord’s work are guilty of what the scriptures call priestcrafts. Of this sin, Nephi stated: “Priestcrafts are that men preach and set themselves up for a light unto the world, that they may get gain and praise of the world; but they seek not the welfare of Zion.” ([[2 Nephi 26.29|2 Ne. 26:29]].)
+Those who seek honor and gain for themselves in doing the Lord’s work are guilty of what the scriptures call priestcrafts. Of this sin, Nephi stated: “Priestcrafts are that men preach and set themselves up for a light unto the world, that they may get gain and praise of the world; but they seek not the welfare of Zion.” ([[2 Nephi 26.29|2 Ne. 26:29]].)
 
 Latter-day Saints whose eyes are single to God’s glory see life from a vastly different perspective than those whose attention is directed elsewhere. Such members, for instance, care little about receiving credit or recognition for their good deeds. They are more interested in feeding the Lord’s sheep than in counting them. In fact, they frequently find their greatest happiness in serving anonymously, thereby leaving the beneficiaries of their kindness with no one to thank or praise except the Lord. In this regard, we can perhaps learn a lesson from our Christian brothers and sisters in the Amish communities of Pennsylvania. It is reported that their writers frequently compose and publish poetry and religious literature anonymously, so as to deflect attention from themselves and ensure that only God receives the glory.
 
@@ -30,7 +32,7 @@ There is something particularly noble about the good works of those who act with
 
 Our second-youngest daughter illustrated this principle in a simple way a year or so ago when she was three. Without special occasion, except the joy of doing something nice for someone, she hid a tasty bedtime treat under my pillow. When I thanked her and asked her the next morning why she had done such a good deed, she said, “Just because I love you, Daddy—just because I love you.”
 
-Considerations of church position and title are also of little consequence to Latter-day Saints whose eyes are directed toward God’s glory. Their concern is focused on the opportunities for service that church callings present, rather than on gaining personal notoriety. Such members, who serve competently and quietly, regardless of whether they are the “highest” or the “least” in the kingdom, are probably those that the Apostle Paul had in mind when he wrote, “And those members of the body \[meaning the Church\], which we think to be less honourable, upon these we bestow more abundant honour.” ([[1 Corinthians 12.23|1 Cor. 12:23]].)
+Considerations of church position and title are also of little consequence to Latter-day Saints whose eyes are directed toward God’s glory. Their concern is focused on the opportunities for service that church callings present, rather than on gaining personal notoriety. Such members, who serve competently and quietly, regardless of whether they are the “highest” or the “least” in the kingdom, are probably those that the Apostle Paul had in mind when he wrote, “And those members of the body \[meaning the Church\], which we think to be less honourable, upon these we bestow more abundant honour.” ([[1 Corinthians 12.23|1 Cor. 12:23]].)
 
 The merit of rendering faithful service, regardless of one’s position in the Church, was tenderly brought to my attention several years ago during the funeral service of a man who had done much good in his life without ever being recognized with a high church office. I was touched as I heard the deceased’s brother-in-law describe him as a man who had never served as an elders quorum president, as a bishop, or as a stake president, but who “had made a lot of them look awfully good.”
 
@@ -44,7 +46,7 @@ Paul demonstrated a similar attitude and recognition in his first letter to the 
 
 “I have planted, Apollos watered; but God gave the increase.
 
-“So then neither is he that planteth any thing, neither he that watereth; but God that giveth the increase.” ([[1 Corinthians 3.5|1 Cor. 3:5–7]][[1 Corinthians 3.6|]][[1 Corinthians 3.7|]].)
+“So then neither is he that planteth any thing, neither he that watereth; but God that giveth the increase.” ([[1 Corinthians 3.5|1 Cor. 3:5–7]][[1 Corinthians 3.6|]][[1 Corinthians 3.7|]].)
 
 Brothers and sisters, I testify that The Church of Jesus Christ of Latter-day Saints is God’s kingdom on the earth today. This kingdom will roll forward with or without us as individuals. Men and women who even momentarily take their eyes off of God’s glory and seek to exalt themselves, or who become entangled in the vain things of this world, will find that the kingdom quickly moves on without them. Unfortunately, none of us is immune from this all-too-human tendency. In the final dramatic hours of the Savior’s life, even His Apostles—those stalwart men who certainly should have known better—argued with one another about who should be accounted the greatest. (See [[Luke 22.24|Luke 22:24]].)
 
@@ -57,8 +59,3 @@ Of these truths I testify, adding my own humble witness of the reality and goodn
 
 
 
-
-
-
-
-#Humility #Sacrifice

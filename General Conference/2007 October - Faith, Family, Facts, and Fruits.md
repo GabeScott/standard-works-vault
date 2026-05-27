@@ -1,5 +1,7 @@
 # Faith, Family, Facts, and Fruits
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -95,8 +97,3 @@ Brothers and sisters, never hesitate to bear your testimony with sincerity and l
 
 
 
-
-
-
-
-#Example #Faith #Family #Truth

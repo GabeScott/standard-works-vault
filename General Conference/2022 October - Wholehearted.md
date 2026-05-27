@@ -1,6 +1,8 @@
 # Wholehearted
 
-By Sister Michelle D. Craig - *First Counselor in the Young Women General Presidency*
+Dallin H. Oaks
+
+By Sister Michelle D. Craig - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -18,7 +20,7 @@ A dear friend of mine sent me an old article from the *Nebraska Advertiser*, a M
 
 I’ve thought a lot about this mud-drenched woman. Why was she pulling alone? Was she a single mother? What gave her the inner strength, the grit, the perseverance to make such a wrenching journey through mud, pulling all her possessions in a handcart to an unknown desert home—at times being mocked by observers?[^4]
 
-President Joseph F. Smith spoke of the inner strength of these pioneer women, saying: “Could you turn one of these women away from their convictions in the Church of Jesus Christ of Latter-day Saints? Could you darken their minds as to the mission of the Prophet Joseph Smith? Could you blind them with reference to the divine mission of Jesus Christ, the Son of God? No, never in the world could you do it. Why? Because they knew it. God revealed it to them, and they understood it, and no power on earth could turn them from what they knew to be that truth.”[^5]
+President Joseph F. Smith spoke of the inner strength of these pioneer women, saying: “Could you turn one of these women away from their convictions in the Church of Jesus Christ of Latter-day Saints? Could you darken their minds as to the mission of the Prophet Joseph Smith? Could you blind them with reference to the divine mission of Jesus Christ, the Son of God? No, never in the world could you do it. Why? Because they knew it. God revealed it to them, and they understood it, and no power on earth could turn them from what they knew to be that truth.”[^5]
 
 Brothers and sisters, to be such men and women is the call of our day—disciples who dig deep to find the strength to keep pulling when called to walk through the wilderness, disciples with convictions that have been revealed to us by God, followers of Jesus who are joyful and wholehearted in our own personal journey of discipleship. As disciples of Jesus Christ, we believe and can grow in three important truths.
 
@@ -62,7 +64,7 @@ Jesus Christ recognized the abundance of her all where others saw only her lack.
 
 ## Conclusion
 
-My fellow disciples of Jesus Christ, with all my heart, I choose to stand with the Lord. I choose to stand with His chosen servants—President Russell M. Nelson and his fellow Apostles—for they speak for Him and are the stewards of the ordinances and covenants that tie me to the Savior.
+My fellow disciples of Jesus Christ, with all my heart, I choose to stand with the Lord. I choose to stand with His chosen servants—President Russell M. Nelson and his fellow Apostles—for they speak for Him and are the stewards of the ordinances and covenants that tie me to the Savior.
 
 When I stumble, I will keep getting up, relying on the grace and enabling power of Jesus Christ. I will stay in my covenant with Him and work through my questions by study of God’s word, by faith, and with the help of the Holy Ghost, whose guidance I trust. I will seek His Spirit every day by doing the small and simple things.
 
@@ -79,9 +81,9 @@ Arm in arm with you, I want to stand with Him forever. Wholehearted. Knowing tha
 
 [^2]: See [[Matthew 24.13|Matthew 24:13]]; [[Joseph Smith Matthew 1.11|Joseph Smith—Matthew 1:11]]; see also [[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]]; [[John 14.18|John 14:18]].
 
-[^3]: Netty Penwood, “Leaves from My Iowa Log Book,” *Nebraska Advertiser*, July 9, 1857, 1, newspapers.com/clip/60679566/pioneers-trek-to-the-salt-lake-valley/.
+[^3]: Netty Penwood, “Leaves from My Iowa Log Book,” *Nebraska Advertiser*, July 9, 1857, 1, newspapers.com/clip/60679566/pioneers-trek-to-the-salt-lake-valley/.
 
-[^4]: See [[1 Nephi 8.27|1 Nephi 8:27]].
+[^4]: See [[1 Nephi 8.27|1 Nephi 8:27]].
 
 [^5]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 189.
 
@@ -89,13 +91,13 @@ Arm in arm with you, I want to stand with Him forever. Wholehearted. Knowing tha
 
 [^7]: [[Isaiah 53.3|Isaiah 53:3]].
 
-[^8]: See M. Russell Ballard, “[[1999 April - Like a Flame Unquenchable.md|Like a Flame Unquenchable]],” *Ensign*, May 1999, 86; *Liahona*, July 1999, 102.
+[^8]: See M. Russell Ballard, “[[1999 April - Like a Flame Unquenchable.md|Like a Flame Unquenchable]],” *Ensign*, May 1999, 86; *Liahona*, July 1999, 102.
 
-[^9]: See Bible Dictionary, “[Faith](https://churchofjesuschrist.org/study/scriptures/bd/faith?lang=eng&id=p2#p2).”
+[^9]: See Bible Dictionary, “[[BD Faith|Faith]].”
 
 [^10]: Personal correspondence.
 
-[^11]: See [[Joshua 3.5|Joshua 3:5, 13, 15–17]][[Joshua 3.13|]][[Joshua 3.15|]][[Joshua 3.16|]][[Joshua 3.17|]]; [[2 Kings 5.14|2 Kings 5:14]]; [[Matthew 14.29|Matthew 14:29]]; [[Mark 2.3|Mark 2:3–5]][[Mark 2.4|]][[Mark 2.5|]]; [[Luke 8.43|Luke 8:43–44]][[Luke 8.44|]]; [[John 2.3|John 2:3–5]][[John 2.4|]][[John 2.5|]]; [[Acts 11.12|Acts 11:12]]; [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]]; [[1 Nephi 16.23|16:23]]; [[3 Nephi 27.21|3 Nephi 27:21]]; [[Ether 2.16|Ether 2:16]]; [[Ether 3.1|3]][[Ether 3.2|]][[Ether 3.3|]][[Ether 3.4|]][[Ether 3.5|]][[Ether 3.6|]][[Ether 3.7|]][[Ether 3.8|]][[Ether 3.9|]][[Ether 3.10|]][[Ether 3.11|]][[Ether 3.12|]][[Ether 3.13|]][[Ether 3.14|]][[Ether 3.15|]][[Ether 3.16|]][[Ether 3.17|]][[Ether 3.18|]][[Ether 3.19|]][[Ether 3.20|]][[Ether 3.21|]][[Ether 3.22|]][[Ether 3.23|]][[Ether 3.24|]][[Ether 3.25|]][[Ether 3.26|]][[Ether 3.27|]][[Ether 3.28|]]; [[Moses 6.32|Moses 6:32, 42]][[Moses 6.42|]].
+[^11]: See [[Joshua 3.5|Joshua 3:5, 13, 15–17]][[Joshua 3.13|]][[Joshua 3.15|]][[Joshua 3.16|]][[Joshua 3.17|]]; [[2 Kings 5.14|2 Kings 5:14]]; [[Matthew 14.29|Matthew 14:29]]; [[Mark 2.3|Mark 2:3–5]][[Mark 2.4|]][[Mark 2.5|]]; [[Luke 8.43|Luke 8:43–44]][[Luke 8.44|]]; [[John 2.3|John 2:3–5]][[John 2.4|]][[John 2.5|]]; [[Acts 11.12|Acts 11:12]]; [[1 Nephi 4.6|1 Nephi 4:6–7]][[1 Nephi 4.7|]]; [[1 Nephi 16.23|16:23]]; [[3 Nephi 27.21|3 Nephi 27:21]]; [[Ether 2.16|Ether 2:16]]; [[Ether 3.1|3]]; [[Moses 6.32|Moses 6:32, 42]][[Moses 6.42|]].
 
 [^12]: [[Luke 17.14|Luke 17:14]]; emphasis added; see also [[Luke 17.11|verses 11–13]][[Luke 17.12|]][[Luke 17.13|]].
 
@@ -109,7 +111,5 @@ Arm in arm with you, I want to stand with Him forever. Wholehearted. Knowing tha
 
 [^17]: See [[Isaiah 40.31|Isaiah 40:31]].
 
+[^18]: See [[Romans 8.14|Romans 8:14–18, 28, 38–39]][[Romans 8.15|]][[Romans 8.16|]][[Romans 8.17|]][[Romans 8.18|]][[Romans 8.28|]][[Romans 8.38|]][[Romans 8.39|]].
 
-
-
-#Adversity #Covenants #Discipleship #Faith #Jesus_Christ

@@ -1,6 +1,8 @@
 # “I Am the Vine, Ye Are the Branches”
 
-By Elder Dean L. Larsen - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Dean L. Larsen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -39,8 +41,3 @@ I bear witness today, brothers and sisters, that the Lord Jesus Christ lives, th
 
 
 
-
-
-
-
-#Testimony

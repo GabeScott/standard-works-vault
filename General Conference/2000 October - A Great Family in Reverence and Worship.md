@@ -1,5 +1,7 @@
 # A Great Family in Reverence and Worship
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2000 General Conference*
@@ -19,8 +21,3 @@ Welcome to each of you, wherever you may be. May we all be touched by the Holy S
 
 
 
-
-
-
-
-#General_Conference #Reverence #Testimony #Worship

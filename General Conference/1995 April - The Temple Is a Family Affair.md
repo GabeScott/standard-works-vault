@@ -1,5 +1,7 @@
 # The Temple Is a Family Affair
 
+Thomas S. Monson
+
 By Elder J Ballard Washburn - *Of the Seventy*
 
 *Given in the April session of the 1995 General Conference*
@@ -12,13 +14,13 @@ Recently, after a stake conference, I was talking with a family with teenage chi
 
 When Jesus was twelve years old, his parents took him to the temple. I think it is more than coincidental that our sons and daughters can go to the temple with us when they are twelve years old. Joseph and Mary did not say, “Bishop, will you take our son to the temple?” They took him.
 
-Our efforts as parents, wards, and stakes should be to help our youth live worthily to go to the temple *now.* The goal is the same for young women as for young men—*be temple worthy now.* When the bishop interviews the youth each year, it will include a worthiness interview.
+Our efforts as parents, wards, and stakes should be to help our youth live worthily to go to the temple *now.* The goal is the same for young women as for young men: *be temple worthy now.* When the bishop interviews the youth each year, it will include a worthiness interview.
 
 What a wonderful goal for priesthood leaders and young women leaders to help parents inspire every young woman and every young man to go to the temple every year. What a great blessing for parents to be in the temple with their children, age twelve and over, at least once a year where circumstances allow.
 
 One thing that will help us more than anything else to want to be in the temple is to have the Holy Ghost with us.
 
-Two important things are necessary to have the Holy Ghost: First, we must live worthy of it, and second, we must ask for it.
+Two important things are necessary to have the Holy Ghost: first, we must live worthy of it; and second, we must ask for it.
 
 “Ask the Father in my name, in faith believing that you shall receive, and you shall have the Holy Ghost, which manifesteth all things which are expedient unto the children of men.”[^1]
 
@@ -28,9 +30,9 @@ Let me give a word of caution here. We cannot go to His holy house unworthily wi
 
 When couples who have not fully repented of past sins go to the temple to be married, they are starting their marriages on very shaky ground. I believe this is one of the main causes of divorce in temple marriages. If a man who is *dishonest* in his personal life, as it pertains to his wife and children or his business dealings, goes to the temple, he is heaping damnation upon his own soul and is in great need of repentance.
 
-President Hunter said: “It is the deepest desire of my heart to have every member of the Church *worthy* to enter the temple.”[^2] If our young men or young women on their way to the mission field, go to the temple unworthily, it is a great mistake. We must prepare them for the temple *first,* and then they will be prepared for missions. President Hunter said, “Let us prepare every missionary to go to the temple *worthily* and to make that experience an even greater highlight than receiving the mission call.”[^3]
+President Hunter said, “It is the deepest desire of my heart to have every member of the Church *worthy* to enter the temple.”[^2] If our young men or young women on their way to the mission field go to the temple unworthily, it is a great mistake. We must prepare them for the temple *first,* and then they will be prepared for missions. President Hunter said, “Let us prepare every missionary to go to the temple *worthily* and to make that experience an even greater highlight than receiving the mission call.”[^3]
 
-The greatest blessings of eternity come to us through the temple. God’s greatest gift, eternal life, can only come to a man and woman together. And every worthy person will someday have this blessing. In Doctrine and Covenants 131 we read:
+The greatest blessings of eternity come to us through the temple. God’s greatest gift, eternal life, can only come to a man and woman together. And every worthy person will someday have this blessing. In [[D&C 131.1|Doctrine and Covenants 131]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]][[D&C 131.5|]][[D&C 131.6|]][[D&C 131.7|]][[D&C 131.8|]] we read:
 
 “In the celestial glory there are three heavens or degrees;
 
@@ -50,21 +52,16 @@ I hope you will not think it simplistic to suggest that it is the “little thin
 
 By keeping the temple covenants, all of God’s children may be exalted. I say again that *we go to the temple to make the covenants, but we go home to keep those covenants.*
 
-The story is told of Elder Boyd K. Packer: After traveling all over the world and seeing many exotic places, he was asked that if he could go anywhere in the world he wanted, where would he go. He replied, “I would go home.” I feel the same way. If I were asked that same question, I would say, “I would go home and sit in a big rocking chair and take a couple of grandbabies in my arms and hope that a little of the heavenly dust they still have on them would rub off on me.” I’m grateful for homes where we can go to learn how to love, how to share, how to be Christlike.
+The story is told of Elder Boyd K. Packer: After traveling all over the world and seeing many exotic places, he was asked where he would go if he could go anywhere in the world he wanted. He replied, “I would go home.” I feel the same way. If I were asked that same question, I would say, “I would go home and sit in a big rocking chair and take a couple of grandbabies in my arms and hope that a little of the heavenly dust they still have on them would rub off on me.” I’m grateful for homes where we can go to learn how to love, how to share, how to be Christlike.
 
-I am grateful for temples where we can go to be sealed together as families for eternity. I am grateful for temples, where we can go to pray and to worship, where we can call down the blessings of heaven upon our families. I am grateful for temples where we can go as families to strengthen the eternal bonds that will make us forever families, where we can go to do the great redemptive work for our forefathers who cannot do it for themselves … even as Jesus did for us what we cannot do for ourselves. I am grateful that God in his eternal wisdom has made these blessings available to all his children. Some, however, have to wait until the hereafter to enjoy these blessings. But all who live worthily will have every blessing. I testify that Jesus loved to go to the temple. Part of becoming more Christlike is to learn to love to go to the temple. I pray that we may become eternal families that we may have eternal life. In the name of Jesus Christ, amen.
+I am grateful for temples where we can go to be sealed together as families for eternity. I am grateful for temples, where we can go to pray and to worship, where we can call down the blessings of heaven upon our families. I am grateful for temples where we can go as families to strengthen the eternal bonds that will make us forever families, where we can go to do the great redemptive work for our forefathers, who cannot do it for themselves, even as Jesus did for us what we cannot do for ourselves. I am grateful that God in his eternal wisdom has made these blessings available to all his children. Some, however, have to wait until the hereafter to enjoy these blessings. But all who live worthily will have every blessing. I testify that Jesus loved to go to the temple. Part of becoming more Christlike is to learn to love to go to the temple. I pray that we may become eternal families, that we may have eternal life. In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[D&C 18.18|D&C 18:18]].
 
-[^2]: *Ensign,* Nov. 1994, p. 8; emphasis added.
+[^2]: In Conference Report, Oct. 1994, [[1994 October - “Exceeding Great and Precious Promises”.md|p. 8]]; or *Ensign,* Nov. 1994, p. 8; emphasis added.
 
-[^3]: Ibid., p. 88; emphasis added.
+[^3]: In Conference Report, Oct. 1994, [[1994 October - Follow the Son of God.md|p. 118]]; or *Ensign,* Nov. 1994, p. 88; emphasis added.
 
-
-
-
-
-#Covenants #Family #Holy_Ghost #Home #Temples

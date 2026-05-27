@@ -4,6 +4,3 @@
 
 [JST 1 Timothy 6:16](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-tim/6?lang=eng)
 
-
-
-

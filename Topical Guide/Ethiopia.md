@@ -1,4 +1,3 @@
 # Ethiopia
 
-
-*See* [BD Ethiopia](https://www.churchofjesuschrist.org/study/scriptures/bd/ethiopia?lang=eng)
+*See also* [[BD Ethiopia.md|BD Ethiopia]]

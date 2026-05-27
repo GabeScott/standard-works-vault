@@ -1,5 +1,7 @@
 # The Condition of the Church
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2003 General Conference*
@@ -49,5 +51,3 @@ May heaven’s richest blessings rest upon you, my beloved associates. May faith
 
 
 
-
-#Activation #Service #Tithing #Youth

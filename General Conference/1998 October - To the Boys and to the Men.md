@@ -1,5 +1,7 @@
 # To the Boys and to the Men
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
@@ -38,9 +40,9 @@ On the agenda of your lives, of course, would be a mission. You would gladly go 
 
 Permit me to read to you parts of a letter from a young man now serving a mission. It is written to his family, and I hope I do not violate propriety in reading it to this great gathering. I will not disclose the name of the writer or the mission in which he serves.
 
-He says: “This past year has been great! I transferred out of the mission office and came to this small branch. My life has changed dramatically since that last transfer. I have in the past few months learned what is really important. I have learned what matters. I have learned to forget myself. I have learned to work effectively. I have learned to love others. I have learned that God loves me and that I love Him. In short, I have learned to live what I believe. …
+He says: “This past year has been great! I transferred out of the mission office and came to this small branch. My life has changed dramatically since that last transfer. I have in the past few months learned what is really important. I have learned what matters. I have learned to forget myself. I have learned to work effectively. I have learned to love others. I have learned that God loves me and that I love Him. In short, I have learned to live what I believe. …
 
-“I have learned about people and things. I have watched tears of joy come to those who never knew they were children of God. I have seen the prayers of the penitent be answered. I have seen people absorb the gospel of Jesus Christ and want to change into new persons, all because of a feeling. …
+“I have learned about people and things. I have watched tears of joy come to those who never knew they were children of God. I have seen the prayers of the penitent be answered. I have seen people absorb the gospel of Jesus Christ and want to change into new persons, all because of a feeling. …
 
 “I often dream about the plan of salvation. I think about the marvelous work and a wonder that has taken place. I think about the power and force of angels that stand among us. I wonder at times how many of these are around me helping to bear testimony in a language I never thought could be fully understood.
 
@@ -60,7 +62,7 @@ Pharaoh, the ruler of Egypt, dreamed dreams which greatly troubled him. The wise
 
 “And, behold, there came up out of the river seven kine, fatfleshed and well favoured; and they fed in a meadow:
 
-“And, behold, seven other kine came up after them, poor and very ill favoured and leanfleshed. …
+“And, behold, seven other kine came up after them, poor and very ill favoured and leanfleshed. …
 
 “And the lean and the ill favoured kine did eat up the first seven fat kine: …
 
@@ -68,19 +70,19 @@ Pharaoh, the ruler of Egypt, dreamed dreams which greatly troubled him. The wise
 
 “And, behold, seven ears, withered, thin, and blasted with the east wind, sprung up after them:
 
-“And the thin ears devoured the seven good ears. …
+“And the thin ears devoured the seven good ears. …
 
 “And Joseph said unto Pharaoh, … God hath shewed Pharaoh what he is about to do.
 
-“The seven good kine are seven years; and the seven good ears are seven years: the dream is one. …
+“The seven good kine are seven years; and the seven good ears are seven years: the dream is one. …
 
-“… What God is about to do he sheweth unto Pharaoh.
+“… What God is about to do he sheweth unto Pharaoh.
 
 “Behold, there come seven years of great plenty throughout all the land of Egypt:
 
-“And there shall arise after them seven years of famine. …
+“And there shall arise after them seven years of famine. …
 
-“… And God will shortly bring it to pass” ([[Genesis 41.17|Gen. 41:17–20, 22–26, 28–30, 32]][[Genesis 41.18|]][[Genesis 41.19|]][[Genesis 41.20|]][[Genesis 41.22|]][[Genesis 41.23|]][[Genesis 41.24|]][[Genesis 41.25|]][[Genesis 41.26|]][[Genesis 41.28|]][[Genesis 41.29|]][[Genesis 41.30|]][[Genesis 41.32|]]).
+“… And God will shortly bring it to pass” ([[Genesis 41.17|Gen. 41:17–20, 22–26, 28–30, 32]][[Genesis 41.18|]][[Genesis 41.19|]][[Genesis 41.20|]][[Genesis 41.22|]][[Genesis 41.23|]][[Genesis 41.24|]][[Genesis 41.25|]][[Genesis 41.26|]][[Genesis 41.28|]][[Genesis 41.29|]][[Genesis 41.30|]][[Genesis 41.32|]]).
 
 Now, brethren, I want to make it very clear that I am not prophesying, that I am not predicting years of famine in the future. But I am suggesting that the time has come to get our houses in order.
 
@@ -131,8 +133,3 @@ I leave with you my testimony of the divinity of this work and my love for each 
 
 
 
-
-
-
-
-#Financial_Management #Honesty #Jesus_Christ #Love #Missionary_Work #Prayer #Self-Reliance

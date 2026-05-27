@@ -1,6 +1,5 @@
 # Wolf, Wolves
 
-
 Benjamin shall ravin as a *wolf*, [[Genesis 49.27|Genesis 49:27]].
 
 *wolf* also shall dwell with the lamb, [[Isaiah 11.6|Isaiah 11:6]] ([[2 Nephi 21.6|2 Nephi 21:6]]; [[2 Nephi 30.12|2 Nephi 30:12]]).

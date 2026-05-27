@@ -1,6 +1,8 @@
 # Practicing What We Preach
 
-By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -85,8 +87,3 @@ I know the gospel is true, and I know the gospel includes that which he has taug
 
 
 
-
-
-
-
-#Example #Family #Parents

@@ -1,15 +1,14 @@
 # Shine, Shone, Shined, Shining
 
-
 *See also* [[Enlighten.md|Enlighten]]; [[Illuminate.md|Illuminate]]; [[Lighten.md|Lighten]]
 
 skin of his face *shone* while he talked, [[Exodus 34.29|Exodus 34:29]].
 
-Out of Zion ... God hath *shined*, [[Psalms 50.2|Psalms 50:2]].
+Out of Zion … God hath *shined*, [[Psalms 50.2|Psalms 50:2]].
 
 thou that dwellest between the cherubims, *shine* forth, [[Psalms 80.1|Psalms 80:1]].
 
-path of the just is as the shining light, that *shineth* ... unto the perfect day, [[Proverbs 4.18|Proverbs 4:18]].
+path of the just is as the shining light, that *shineth* … unto the perfect day, [[Proverbs 4.18|Proverbs 4:18]].
 
 wisdom maketh his face to *shine*, [[Ecclesiastes 8.1|Ecclesiastes 8:1]].
 
@@ -33,7 +32,7 @@ glory of the Lord *shone* round about them, [[Luke 2.9|Luke 2:9]].
 
 light *shineth* in darkness, [[John 1.5|John 1:5]].
 
-there *shined* ... a light from heaven, [[Acts 9.3|Acts 9:3]] ([[Acts 22.6|Acts 22:6]]; [[Acts 26.13|Acts 26:13]]).
+there *shined* … a light from heaven, [[Acts 9.3|Acts 9:3]] ([[Acts 22.6|Acts 22:6]]; [[Acts 26.13|Acts 26:13]]).
 
 light to *shine* out of darkness, hath *shined* in our hearts, [[2 Corinthians 4.6|2 Corinthians 4:6]].
 
@@ -43,7 +42,7 @@ darkness is past, and the true light now *shineth*, [[1 John 2.8|1 John 2:8]].
 
 day *shone* not for a third part of it, [[Revelation 8.12|Revelation 8:12]].
 
-city had no need of the sun ... to *shine*, [[Revelation 21.23|Revelation 21:23]].
+city had no need of the sun … to *shine*, [[Revelation 21.23|Revelation 21:23]].
 
 his face *shone* with exceeding luster, [[Mosiah 13.5|Mosiah 13:5]].
 
@@ -51,7 +50,7 @@ King of heaven shall very soon *shine* forth, [[Alma 5.50|Alma 5:50]].
 
 righteous *shine* forth in the kingdom of God, [[Alma 40.25|Alma 40:25]].
 
-faces ... did *shine* exceedingly, [[Helaman 5.36|Helaman 5:36]].
+faces … did *shine* exceedingly, [[Helaman 5.36|Helaman 5:36]].
 
 countenance did *shine* upon them, [[3 Nephi 19.25|3 Nephi 19:25]].
 

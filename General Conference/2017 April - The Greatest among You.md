@@ -1,6 +1,8 @@
 # The Greatest among You
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Bonnie H. Cordon
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -64,11 +66,11 @@ God’s greatest reward goes to those who serve without expectation of reward. I
 
 ## Don’t Inhale
 
-Shortly after my call as a new General Authority, I had the privilege to accompany President James E. Faust for a stake reorganization. As I drove the car to our assignment in beautiful Southern Utah, President Faust was kind enough to use the time to instruct and teach me. One lesson I will never forget. Said he, “The members of the Church are gracious to the General Authorities. They will treat you kindly and say nice things about you.” Then he briefly paused and said, “Dieter, *always* be thankful for this, but don’t you ever inhale it.”
+Shortly after my call as a new General Authority, I had the privilege to accompany President James E. Faust for a stake reorganization. As I drove the car to our assignment in beautiful Southern Utah, President Faust was kind enough to use the time to instruct and teach me. One lesson I will never forget. Said he, “The members of the Church are gracious to the General Authorities. They will treat you kindly and say nice things about you.” Then he briefly paused and said, “Dieter, *always* be thankful for this, but don’t you ever inhale it.”
 
 This important lesson about Church service applies to every priesthood holder in every quorum of the Church. It applies to all of us in this Church.
 
-When President J. Reuben Clark Jr. counseled those called to positions of authority in the Church, he would tell them not to forget rule number six.
+When President J. Reuben Clark Jr. counseled those called to positions of authority in the Church, he would tell them not to forget rule number six.
 
 Inevitably, the person would ask, “What is rule number six?”
 
@@ -145,7 +147,7 @@ My dear brethren, dear friends, may we meditate upon, understand, and live this 
 
 [^5]: See [[Matthew 6.4|Matthew 6:4]].
 
-[^6]: See John E. Lewis, “[The Gospel and a Sense of Humor, Too](https://churchofjesuschrist.org/study/ensign/1974/06/insights?lang=eng),” *Ensign,* June 1974, 24.
+[^6]: See John E. Lewis, “[The Gospel and a Sense of Humor, Too](https://www.churchofjesuschrist.org/study/ensign/1974/06/insights?lang=eng),” *Ensign,* June 1974, 24.
 
 [^7]: [[D&C 52.40|Doctrine and Covenants 52:40]].
 
@@ -161,8 +163,3 @@ My dear brethren, dear friends, may we meditate upon, understand, and live this 
 
 [^13]: See [[Matthew 25.31|Matthew 25:31–46]][[Matthew 25.32|]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]][[Matthew 25.41|]][[Matthew 25.42|]][[Matthew 25.43|]][[Matthew 25.44|]][[Matthew 25.45|]][[Matthew 25.46|]].
 
-
-
-
-
-#Church_Callings #Church_Leaders #Discipleship #Humility #Leadership #Service

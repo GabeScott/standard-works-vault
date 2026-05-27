@@ -1,11 +1,10 @@
 # Thick, Thicker
 
-
 *thick* darkness in all the land of Egypt, [[Exodus 10.22|Exodus 10:22]].
 
 thou art waxen fat, thou art grown *thick*, [[Deuteronomy 32.15|Deuteronomy 32:15]].
 
-My little finger shall be *thicker* than my father's loins, [[1 Kings 12.10|1 Kings 12:10]] ([[2 Chronicles 10.10|2 Chronicles 10:10]]).
+My little finger shall be *thicker* than my father’s loins, [[1 Kings 12.10|1 Kings 12:10]] ([[2 Chronicles 10.10|2 Chronicles 10:10]]).
 
 day of clouds and of *thick* darkness, [[Joel 2.2|Joel 2:2]] ([[Zephaniah 1.15|Zephaniah 1:15]]).
 

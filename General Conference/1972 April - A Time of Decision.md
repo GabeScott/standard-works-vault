@@ -1,6 +1,8 @@
 # A Time of Decision
 
-By President Harold B. Lee - *First Counselor in the First Presidency*
+Wilford G. Edling
+
+By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -26,7 +28,7 @@ We were heartened by the president’s reply when he said, “I think that every
 
 During these years of extreme tension, you may constantly have in mind the admonition of the Lord himself: “Wherefore, be subject to the powers that be, until he reigns whose right it is to reign, and subdues all enemies under his feet,” and likewise he reminds us that “he that keepeth the laws of God hath no need to break the laws of the land.” ([[D&C 58.22|D&C 58:22, 21]][[D&C 58.21|]].)
 
-We have recorded the angelic refrain at the time of the Savior’s birth as recorded by Luke: “… on earth peace, good will toward men.” ([[Luke 2.14|Luke 2:14]].)
+We have recorded the angelic refrain at the time of the Savior’s birth as recorded by Luke: “… on earth peace, good will toward men.” ([[Luke 2.14|Luke 2:14]].)
 
 In seeming contradiction to that message are the recorded words of the Master: “Think not that I am come to send peace on the earth: I came not to send peace, but a sword. For I am come to set a man at variance against his father. … And a man’s foes shall be they of his own household.” ([[Matthew 10.34|Matt. 10:34–36]][[Matthew 10.35|]][[Matthew 10.36|]].)
 
@@ -36,7 +38,7 @@ The earliest revelations of this dispensation speak of two so-called conflicting
 
 In the book of Revelation, as well as in other scriptures, we read that before the earth was peopled “there was war in heaven.” ([[Revelation 12.7|Rev. 12:7]].)
 
-One of the ambitious sons of God’s spiritual creations in the premortal world promised salvation for all mankind without effort on their part, provided he would be given almighty power, even to the dethroning of God himself, whose divine right it is to reign over the earth. Intense bitterness ensued between that son, who became Satan, and those who followed after him, and the beloved Son of God and those who followed after him, whose plan of salvation, by contrast, would give to every soul the right of choice, and the glory be to the Father. He even offered himself as “the Lamb slain from the foundation of the world” ([[Revelation 13.8|Rev. 13:8]]), that by the redemption of his atoning sacrifice, “all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.3|A of F 1:3]]).
+One of the ambitious sons of God’s spiritual creations in the premortal world promised salvation for all mankind without effort on their part, provided he would be given almighty power, even to the dethroning of God himself, whose divine right it is to reign over the earth. Intense bitterness ensued between that son, who became Satan, and those who followed after him, and the beloved Son of God and those who followed after him, whose plan of salvation, by contrast, would give to every soul the right of choice, and the glory be to the Father. He even offered himself as “the Lamb slain from the foundation of the world” ([[Revelation 13.8|Rev. 13:8]]), that by the redemption of his atoning sacrifice, “all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.3|A of F 1:3]]).
 
 Satan and his hosts were cast out because he set about to destroy the agency of man, and he became the author of falsehood to deceive and to blind men and to lead captive all who would not hearken to the words and teachings of God’s eternal plan.
 
@@ -48,9 +50,9 @@ These are frightening expressions when you reflect upon what I have just quoted 
 
 The true meaning of free agency is clearly set forth by a father who explained to his son:
 
-“Wherefore, men are free according to the flesh. … And they *are* free to choose liberty and eternal life, through the great mediation of all men \[meaning the atonement of the Savior\], or to choose captivity and death, according to the captivity and power of the devil. …” ([[2 Nephi 2.27|2 Ne. 2:27]].)
+“Wherefore, men are free according to the flesh. … And they *are* free to choose liberty and eternal life, through the great mediation of all men \[meaning the atonement of the Savior\], or to choose captivity and death, according to the captivity and power of the devil. …” ([[2 Nephi 2.27|2 Ne. 2:27]].)
 
-“… the Lord God gave unto man that he should act for himself. Wherefore, man could not act for himself save it should be that he was enticed by the one or the other.” ([[2 Nephi 2.16|2 Ne. 2:16]].)
+“… the Lord God gave unto man that he should act for himself. Wherefore, man could not act for himself save it should be that he was enticed by the one or the other.” ([[2 Nephi 2.16|2 Ne. 2:16]].)
 
 What would it be like if we were to live in a vacuum, with everything coming our way without any effort or struggle on our part to overcome these obstacles?
 
@@ -74,7 +76,7 @@ Now, may I for a few moments speak of certainties upon which one may depend in h
 
 The first of which I would speak is that which is referred to in the scriptures as the Light of Christ, the Spirit of Truth, or Spirit of God, variously spoken of, which in essence means the influence of Deity that proceeds forth from the presence of God, that which quickens the understanding of man. (See [[D&C 88.49|D&C 88:49]].) The apostle John spoke of it as “the true Light, which lighteth every man that cometh into the world.” ([[John 1.9|John 1:9]].)
 
-A president of the Church makes this further explanation: “There is not a man \[or person\] born into the world, but has a portion of the Spirit of God, and it is that Spirit of God which gives to his spirit understanding, … each in accordance with his capacity to receive the light … \[which\] will never cease to strive with man, until man is brought to the possession of the higher intelligence.” (Joseph F. Smith, *Gospel Doctrine,* pp. 63, 62.)
+A president of the Church makes this further explanation: “There is not a man \[or person\] born into the world, but has a portion of the Spirit of God, and it is that Spirit of God which gives to his spirit understanding, … each in accordance with his capacity to receive the light … \[which\] will never cease to strive with man, until man is brought to the possession of the higher intelligence.” (Joseph F. Smith, *Gospel Doctrine,* pp. 63, 62.)
 
 To those not acquainted with the language of the scriptures, it might be explained that the Light of Christ could be described as one’s conscience, or the voice of the divine within one’s own soul.
 
@@ -94,7 +96,7 @@ We constantly impress upon all who go out as true ambassadors of the kingdom of 
 
 “For I am determined not to know any thing among you, save Jesus Christ, and him crucified.
 
-“That your faith should not stand in the wisdom of men, but in the power of God.” ([[1 Corinthians 2.1|1 Cor. 2:1–2, 5]][[1 Corinthians 2.2|]][[1 Corinthians 2.5|]].)
+“That your faith should not stand in the wisdom of men, but in the power of God.” ([[1 Corinthians 2.1|1 Cor. 2:1–2, 5]][[1 Corinthians 2.2|]][[1 Corinthians 2.5|]].)
 
 It has been well said that one does not teach honesty by telling a man how to burglarize a safe, nor do we teach chastity by telling a youth all about sexual activities.
 
@@ -114,9 +116,9 @@ The fourth certainty to keep in mind in our civic responsibilities is to choose 
 
 In a word, we must seek for statesmenlike men who will ask, “Is it right and is it good for the country or the community?” instead of those who may merely ask, “Is it politically expedient?”
 
-Remember always *our* declaration of political faith: “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].)
+Remember always *our* declaration of political faith: “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].)
 
-Wherever you are, wherever you live, pray for the leaders of your country, for remember that they too hold in their hands all that you hold dear. Again I repeat the Lord’s injunction: “… be subject to the powers that be, until he reigns whose right it is to reign, and subdues all enemies under his feet.” ([[D&C 58.22|D&C 58:22]].)
+Wherever you are, wherever you live, pray for the leaders of your country, for remember that they too hold in their hands all that you hold dear. Again I repeat the Lord’s injunction: “… be subject to the powers that be, until he reigns whose right it is to reign, and subdues all enemies under his feet.” ([[D&C 58.22|D&C 58:22]].)
 
 And now, finally, the supreme of all certainties is God’s eternal plan as given in the gospel of Jesus Christ. Here we have given us the never-failing principles that will keep our feet firmly planted on the path of safety. By these eternal principles we can readily detect truth from error. In the earliest revelations of our dispensation we were told that the gospel teachings were given that “inasmuch as they have erred it might be made known; And inasmuch as they sought wisdom they might be instructed.” ([[D&C 1.25|D&C 1:25–26]][[D&C 1.26|]].)
 
@@ -139,8 +141,3 @@ But through the lights and shadows of my life, I also have the assurance that ai
 
 
 
-
-
-
-
-#Agency #Conscience #Standards

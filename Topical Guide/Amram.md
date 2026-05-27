@@ -1,4 +1,3 @@
 # Amram
 
-
-*See* [BD Amram](https://www.churchofjesuschrist.org/study/scriptures/bd/amram?lang=eng)
+*See also* [[BD Amram.md|BD Amram]]

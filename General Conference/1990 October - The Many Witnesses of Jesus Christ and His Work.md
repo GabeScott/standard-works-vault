@@ -1,5 +1,7 @@
 # The Many Witnesses of Jesus Christ and His Work
 
+Gordon B. Hinckley
+
 By Elder James M. Paramore - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -32,19 +34,19 @@ So, again, the witnesses. The record in the New Testament reveals His life and t
 
 Ken, when Jesus was in Palestine, He said, “And other sheep I have, which are not of this fold: them also I must bring, and they shall hear my voice; and there shall be one fold, and one shepherd” ([[John 10.16|John 10:16]]). And following His resurrection, He visited some of the other sheep on the American continent and again established and provided the witnesses as He had done in Palestine.
 
-When He came among them, He said, “And behold, I am the light and the life of the world” ([[3 Nephi 11.11|3 Ne. 11:11]]). “Behold, I am Jesus Christ, whom the prophets \[including those who lived on the American continent\] testified shall come into the world” ([[3 Nephi 11.10|v. 10]]).
+When He came among them, He said, “And behold, I am the light and the life of the world” ([[3 Nephi 11.11|3 Ne. 11:11]]). “Behold, I am Jesus Christ, whom the prophets \[including those who lived on the American continent\] testified shall come into the world” ([[3 Nephi 11.10|v. 10]]).
 
 He established the Church among them. He gave the priesthood and the ordinances of baptism and again the gift of the Holy Ghost to all who would follow Him. He gave prophets and disciples to direct His church and people. He blessed the people, and many miracles followed His work.
 
 My friend, His few days among this people are recorded in the Book of Mormon to help us gain the witness for ourselves. The people in ancient America were so touched and changed by the teachings and power of the Savior that they lived His teachings for over two hundred years. This stands as an everlasting witness of the power of the Savior to cause people to live in peace and unity and receive His blessings. Listen to a recorded account of a very special witness, the Book of Mormon:
 
-“And it came to pass … , the people were all converted unto the Lord, upon all the face of the land, … and there were no contentions and disputations among them, and every man did deal justly one with another. …
+“And it came to pass … , the people were all converted unto the Lord, upon all the face of the land, … and there were no contentions and disputations among them, and every man did deal justly one with another. …
 
-“They did walk after the commandments which they had received from their Lord. …
+“They did walk after the commandments which they had received from their Lord. …
 
-“… And surely there could not be a happier people among all the people who had been created by the hand of God.
+“… And surely there could not be a happier people among all the people who had been created by the hand of God.
 
-“\[And all of this\] because of the love of God which did dwell in the hearts of the people” ([[4 Nephi 1.2|4 Ne. 1:2, 12, 16, 15]][[4 Nephi 1.12|]][[4 Nephi 1.16|]][[4 Nephi 1.15|]]).
+“\[And all of this\] because of the love of God which did dwell in the hearts of the people” ([[4 Nephi 1.2|4 Ne. 1:2, 12, 16, 15]][[4 Nephi 1.12|]][[4 Nephi 1.16|]][[4 Nephi 1.15|]]).
 
 My friend, what powerful witnesses Jesus gave those few short years upon the earth. But, unfortunately, man would ultimately change His truths, His church, and lose sight of His promises. And so, in the year 1820, Jesus would again cross the veil that separates earth life and life hereafter in response to a fervent desire and prayer of a young man, Joseph Smith, Jr., and provide the *witnesses again.*
 
@@ -65,8 +67,3 @@ Ken, no, God has not forgotten His children, even though they leave His presence
 
 
 
-
-
-
-
-#Jesus_Christ #Scriptures #Testimony

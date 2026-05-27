@@ -1,5 +1,7 @@
 # Come to the House of the Lord
 
+Thomas S. Monson
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -50,19 +52,19 @@ Some participate in the feast of which Orson F. Whitney spoke more fully than ot
 
 Others receive less and may be somewhat disappointed in their temple experience; perhaps they do not understand how the Lord teaches us in His house. Elder John A. Widtsoe said:
 
-“We live in a world of symbols. No man or woman can come out of the temple endowed as he should be, unless he has seen, beyond the symbol, the mighty realities for which the symbols stand” (“Temple Worship,” *Utah Genealogical and Historical Magazine,* Apr. 1921, p. 62).
+“We live in a world of symbols. No man or woman can come out of the temple endowed as he should be, unless he has seen, beyond the symbol, the mighty realities for which the symbols stand” (“Temple Worship,” *Utah Genealogical and Historical Magazine,* Apr. 1921, p. 62).
 
 If you may have been somewhat confused, unclear, or concerned about your temple experience, I hope you will return again and again. When you return, come with an open, seeking, contrite heart, and allow the Spirit to teach you by revelation what the symbols can mean to you and the eternal realities which they represent. Elder Widtsoe thoughtfully provided some counsel about how you might do this. He spoke of the Prophet’s first vision as a model of how revelation, in the temple and elsewhere, is received.
 
-“How do men receive revelations?” he asked. “How did the Prophet Joseph Smith obtain his first revelation, his first vision? He desired something. In \[a grove of trees\], away from human confusion, he summoned all the strength of his nature; there he fought the demon of evil, and, at length, because of the strength of his desire and the great effort that he made, the Father and the Son descended out of the heavens and spoke eternal truth to him” (“Temple Worship,” p. 63).
+“How do men receive revelations?” he asked. “How did the Prophet Joseph Smith obtain his first revelation, his first vision? He desired something. In \[a grove of trees\], away from human confusion, he summoned all the strength of his nature; there he fought the demon of evil, and, at length, because of the strength of his desire and the great effort that he made, the Father and the Son descended out of the heavens and spoke eternal truth to him” (“Temple Worship,” p. 63).
 
-Elder Widtsoe observed that it was the strength of Joseph’s desire and the great effort which enabled him to receive his vision of the Father and the Son. Desire and effort are likewise required if we would receive revelation to understand the ordinances of the endowment. He wrote: “Revelation … is not imposed upon a person; it must be drawn to us by faith, seeking and working. … To the man or woman who goes through the temple, with open eyes, heeding the symbols and the covenants, and making a steady, continuous effort to understand the full meaning, God speaks his word, and revelations come. … The endowment which was given by revelation can best be understood by revelation; and to those who seek most vigorously, with pure hearts, will the revelation be greatest” (“Temple Worship,” p. 63).
+Elder Widtsoe observed that it was the strength of Joseph’s desire and the great effort which enabled him to receive his vision of the Father and the Son. Desire and effort are likewise required if we would receive revelation to understand the ordinances of the endowment. He wrote: “Revelation … is not imposed upon a person; it must be drawn to us by faith, seeking and working. … To the man or woman who goes through the temple, with open eyes, heeding the symbols and the covenants, and making a steady, continuous effort to understand the full meaning, God speaks his word, and revelations come. … The endowment which was given by revelation can best be understood by revelation; and to those who seek most vigorously, with pure hearts, will the revelation be greatest” (“Temple Worship,” p. 63).
 
 To understand the things of God requires a continuance effort, a pure and receptive heart, and an open mind. Revelation comes in response to our desire and seeking; then we feast on the “holy joys that tell of heaven.”
 
 President Benson has given us a promise about this. He said:
 
-“Now, by virtue of the sacred priesthood in me vested, … I promise you that, with increased attendance in the temples of our God, you shall receive increased personal revelation to bless your life as you bless those who have died” (in Conference Report, Apr. 1987, p. 108; or *Ensign,* May 1987, p. 85).
+“Now, by virtue of the sacred priesthood in me vested, … I promise you that, with increased attendance in the temples of our God, you shall receive increased personal revelation to bless your life as you bless those who have died” (in Conference Report, Apr. 1987, [[1987 April - The Book of Mormon and the Doctrine and Covenants.md|p. 108]]; or *Ensign,* May 1987, p. 85).
 
 Come to the temples worthily and regularly. Not only do you bless those who are deceased, but you may freely partake of the promised personal revelation that may bless your life with power, knowledge, light, beauty, and truth from on high, which will guide you and your posterity to eternal life. What person would not want these blessings, as expressed by the Prophet Joseph Smith at the dedication of the Kirtland Temple. He said, “We ask thee, Holy Father, that thy servants may go forth from this house armed with thy power, and that thy name may be upon them, and thy glory be round about them, and thine angels have charge over them” ([[D&C 109.22|D&C 109:22]]).
 
@@ -95,8 +97,3 @@ I pray that we will take full advantage of every opportunity to regularly come t
 
 
 
-
-
-
-
-#Marriage #Temple_Work #Worthiness

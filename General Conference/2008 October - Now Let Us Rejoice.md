@@ -1,5 +1,7 @@
 # Now Let Us Rejoice
 
+Thomas S. Monson
+
 By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2008 General Conference*
@@ -18,7 +20,7 @@ The sisters took this charge to heart and became a society dedicated to serving 
 
 In the early days of the Church, sisters provided relief as they went from house to house. Doing what we now call visiting teaching, the sisters went about ministering to all—caring for and attending to the needs of others and ensuring that people had food, clothing, shelter and providing relief when needed. If a sister had something to share, she would contribute it to the visiting sisters. If she was in need, the sisters would help provide for her.[^7]
 
-Let’s devote ourselves to Relief Society, as advised by President Boyd K. Packer: “Service in the Relief Society magnifies and sanctifies each individual sister. … When you devote yourself to the Relief Society and organize it and operate it and participate in it, you sustain the cause that will bless every woman who comes within its influence.”[^8]
+Let’s devote ourselves to Relief Society, as advised by President Boyd K. Packer: “Service in the Relief Society magnifies and sanctifies each individual sister. … When you devote yourself to the Relief Society and organize it and operate it and participate in it, you sustain the cause that will bless every woman who comes within its influence.”[^8]
 
 Just as Emma described the boat stuck on the rapids and the people needing help, we can liken that to our day when we see such things as a neighbor who is ill, a child who needs instruction, a teen needing a friend, or a family who has lost their income and needs assistance to get back on their feet. We hear of calamities, storms, or personal tragedy in the lives of our sisters everywhere. We need not rush about trying to find things to do or causes to take up.
 
@@ -32,11 +34,11 @@ Relief Society women have always sought to learn and grow. We know that “the g
 
 In 1830, in a revelation given through the Prophet Joseph to his wife, Emma, the Lord declared that she should “expound scriptures, and … exhort the church, according as it shall be given thee by my Spirit.”[^12] This charge was given not only to Emma, but Joseph clarified that all of the sisters should seek after this gift.[^13] Women taught the gospel of Jesus Christ and followed the Savior in word and in deed. The sisters nourished one another by the good word of God.[^14]
 
-Some women have said that it is frightening to teach a class or speak in front of a group. I can assure you I know from experience that it can be rather intimidating. Let’s remember what Eliza R. Snow once said to her niece who was called upon to speak in front of a group. When her niece arose, she was unable to say anything because fear overcame her. She finally just sat down. Eliza kindly and gently advised her, “Never mind, but when you are asked to speak again, try and have something to say.”[^15]
+Some women have said that it is frightening to teach a class or speak in front of a group. I can assure you I know from experience that it can be rather intimidating. Let’s remember what Eliza R. Snow once said to her niece who was called upon to speak in front of a group. When her niece arose, she was unable to say anything because fear overcame her. She finally just sat down. Eliza kindly and gently advised her, “Never mind, but when you are asked to speak again, try and have something to say.”[^15]
 
 We will have something to say as we prepare ourselves as the Lord has instructed. He says to “preach my gospel by the Spirit,” and those who preach and those who receive “understand one another, and both are edified and rejoice together.”[^16] As we fervently prepare using the scriptures and approved Church materials and ask the Lord for help, He will give us “the unspeakable gift of the Holy Ghost”[^17] and we will know what to say so that all are edified.
 
-At a wonderful Relief Society meeting, Eliza R. Snow recorded in the minutes that “nearly all present arose and spoke, and the spirit of the Lord like a purifying stream, refreshed every heart.”[^18] We hope our sisters today feel nourished, edified, and uplifted every time they attend a Sunday lesson, go visiting teaching, participate in an activity, or perform any act of service.
+At a wonderful Relief Society meeting, Eliza R. Snow recorded in the minutes that “nearly all present arose and spoke, and the spirit of the Lord like a purifying stream, refreshed every heart.”[^18] We hope our sisters today feel nourished, edified, and uplifted every time they attend a Sunday lesson, go visiting teaching, participate in an activity, or perform any act of service.
 
 Sisters, now more than ever, we need women to step up and be strong. We need women who declare the truth with strength, faith, and boldness. We need women to set an example of righteousness. We need women to be “anxiously engaged in a good cause.”[^19] We need to live so that our lives bear witness that we love our Heavenly Father and the Savior Jesus Christ and that we will do what They have asked us to do. We need to rescue “all that is finest down deep inside of \[us\]”[^20] so that as daughters of God we can do our part to build the kingdom of God. We will have help to do this. As Joseph declared, “If you live up to your privileges, the angels cannot be restrained from being your associates.”[^21]
 
@@ -55,7 +57,7 @@ I testify that God, our Heavenly Father, and His Son, Jesus Christ, live and lov
 
 
 
-[^1]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
+[^1]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
 
 [^2]: *Teachings of Presidents of the Church: Joseph Smith* (Melchizedek Priesthood and Relief Society course of study, 2007), 451; see also Jill Mulvay Derr and others, *Women of Covenant: The Story of Relief Society* (1992), footnote 61, 445–46.
 
@@ -69,7 +71,7 @@ I testify that God, our Heavenly Father, and His Son, Jesus Christ, live and lov
 
 [^7]: See *Women of Covenant: The Story of Relief Society,* 32–33.
 
-[^8]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 110.
+[^8]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 110.
 
 [^9]: *History of the Church,* 5:25.
 
@@ -83,13 +85,13 @@ I testify that God, our Heavenly Father, and His Son, Jesus Christ, live and lov
 
 [^14]: See [[Moroni 6.4|Moroni 6:4]].
 
-[^15]: Eliza R. Snow, quoted in Emily S. Richards, “General Conference: Relief Society,” *Woman’s Exponent,* Dec. 1901, 54.
+[^15]: Eliza R. Snow, quoted in Emily S. Richards, “General Conference: Relief Society,” *Woman’s Exponent,* Dec. 1901, 54.
 
 [^16]: [[D&C 50.14|D&C 50:14, 22]][[D&C 50.22|]].
 
 [^17]: [[D&C 121.26|D&C 121:26]].
 
-[^18]: Eliza R. Snow, Minute Book, entry for Apr. 19, 1842, 33.
+[^18]: Eliza R. Snow, Minute Book, entry for Apr. 19, 1842, 33.
 
 [^19]: [[D&C 58.27|D&C 58:27]].
 
@@ -101,10 +103,5 @@ I testify that God, our Heavenly Father, and His Son, Jesus Christ, live and lov
 
 [^23]: [[Alma 5.19|Alma 5:19]].
 
-[^24]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 110.
+[^24]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 110.
 
-
-
-
-
-#Example #Relief_Society #Service #Teaching #Women

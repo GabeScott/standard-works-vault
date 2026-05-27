@@ -1,5 +1,7 @@
 # Content with the Things Allotted unto Us
 
+Gordon B. Hinckley
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -16,17 +18,17 @@ Thus becoming content with his calling, Alma then meekly hoped to be an instrume
 
 The same contentment awaits us if our own desires can be worked through and aligned.
 
-What some mortals are allotted includes, for instance, very reduced chances because of poverty: “And the people began to be distinguished by ranks, according to their riches and their chances for learning; yea, some were ignorant because of their poverty, and others did receive great learning because of their riches” ([[3 Nephi 6.12|3 Ne. 6:12]]).
+What some mortals are allotted includes, for instance, very reduced chances because of poverty: “And the people began to be distinguished by ranks, according to their riches and their chances for learning; yea, some were ignorant because of their poverty, and others did receive great learning because of their riches” ([[3 Nephi 6.12|3 Ne. 6:12]]).
 
 Furthermore, malevolent, human social structures have included, in the past, tragic constraints like slavery and concentration camps.
 
-Nevertheless, we are to do what we can within our allotted “acreage,” while still using whatever stretch there may be in any tethers. Within what is allotted to us, we can have spiritual contentment. Paul described it as “godliness with contentment,” signifying the adequate presence of attributes such as love, hope, meekness, patience, and submissiveness ([[1 Timothy 6.6|1 Tim. 6:6]]).
+Nevertheless, we are to do what we can within our allotted “acreage,” while still using whatever stretch there may be in any tethers. Within what is allotted to us, we can have spiritual contentment. Paul described it as “godliness with contentment,” signifying the adequate presence of attributes such as love, hope, meekness, patience, and submissiveness ([[1 Timothy 6.6|1 Tim. 6:6]]).
 
-Yet there are other fixed limitations in life. For instance, some have allotments including physical, mental, or geographic constraints. There are those who are unmarried, through no fault of their own, or yearning but childless couples. Still others face persistent and unreconciled relationships within their circles of loved ones, including offspring who have “\[become\] for themselves,” resistant to parental counsel ([[3 Nephi 1.29|3 Ne. 1:29]]). In such and similar situations, there are so many prickly and daily reminders.
+Yet there are other fixed limitations in life. For instance, some have allotments including physical, mental, or geographic constraints. There are those who are unmarried, through no fault of their own, or yearning but childless couples. Still others face persistent and unreconciled relationships within their circles of loved ones, including offspring who have “\[become\] for themselves,” resistant to parental counsel ([[3 Nephi 1.29|3 Ne. 1:29]]). In such and similar situations, there are so many prickly and daily reminders.
 
 Being content means acceptance without self-pity. Meekly borne, however, deprivations such as these can end up being like excavations that make room for greatly enlarged souls.
 
-Some undergo searing developments that cut suddenly into mortality’s status quo. Some have trials to *pass through,* while still others have allotments they are to *live with.* Paul lived with his “thorn in the flesh” ([[2 Corinthians 12.7|2 Cor. 12:7]]).
+Some undergo searing developments that cut suddenly into mortality’s status quo. Some have trials to *pass through,* while still others have allotments they are to *live with.* Paul lived with his “thorn in the flesh” ([[2 Corinthians 12.7|2 Cor. 12:7]]).
 
 Suffice it to say, such mortal allotments will be changed in the world to come. The exception is unrepented sin that shapes our status in the next world.
 
@@ -42,7 +44,7 @@ Incremental improvement is, therefore, the order of the day, and it clearly requ
 
 Mary, having been told some wondrous things about herself and what lay ahead, nevertheless “kept all these things, and pondered them in her heart” ([[Luke 2.19|Luke 2:19]]). Pondering often precedes contentment.
 
-Performance is what matters, not the size of the stage. The Sea of Galilee, only 13 miles by 7, was nevertheless large enough to provide the disciples with a vital experience involving faith and walking on the water (see [[Matthew 14.22|Matt. 14:22–33]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]][[Matthew 14.32|]][[Matthew 14.33|]]). The wind was boisterous and frightening! Even so, compare the size of those Galilean swells and the length of that storm with what Nephi and party had to endure on the vast ocean! (see [[1 Nephi 18.13|1 Ne. 18:13–21]][[1 Nephi 18.14|]][[1 Nephi 18.15|]][[1 Nephi 18.16|]][[1 Nephi 18.17|]][[1 Nephi 18.18|]][[1 Nephi 18.19|]][[1 Nephi 18.20|]][[1 Nephi 18.21|]]). Yet both episodes provided the needed learning experiences. Of course, I should be careful about comparisons involving excesses of water, realizing Noah is in the historical audience!
+Performance is what matters, not the size of the stage. The Sea of Galilee, only 13 miles by 7, was nevertheless large enough to provide the disciples with a vital experience involving faith and walking on the water (see [[Matthew 14.22|Matt. 14:22–33]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]][[Matthew 14.32|]][[Matthew 14.33|]]). The wind was boisterous and frightening! Even so, compare the size of those Galilean swells and the length of that storm with what Nephi and party had to endure on the vast ocean! (see [[1 Nephi 18.13|1 Ne. 18:13–21]][[1 Nephi 18.14|]][[1 Nephi 18.15|]][[1 Nephi 18.16|]][[1 Nephi 18.17|]][[1 Nephi 18.18|]][[1 Nephi 18.19|]][[1 Nephi 18.20|]][[1 Nephi 18.21|]]). Yet both episodes provided the needed learning experiences. Of course, I should be careful about comparisons involving excesses of water, realizing Noah is in the historical audience!
 
 Thus, less spectacular episodes, just as good individuals with lower profiles, are “no less serviceable” in order to get the job done ([[Alma 48.19|Alma 48:19]]).
 
@@ -56,9 +58,9 @@ Ponder how Jesus was and is the Lord of the universe (see [[D&C 45.1|D&C 45:1]];
 
 We can draw upon that glorious Atonement by repenting. We can learn to serve and to forgive within our sample of humanity, including settings no larger than the family or friendships.
 
-The justice and mercy of God will have been so demonstrably perfect that at the Final Judgment there will be no complaints, including from those who once questioned what God had allotted in the mortal framework (see [[2 Nephi 9.14|2 Ne. 9:14–15]][[2 Nephi 9.15|]]; [[Alma 5.15|Alma 5:15–19]][[Alma 5.16|]][[Alma 5.17|]][[Alma 5.18|]][[Alma 5.19|]]; [[Alma 12.3|12:3–14]][[Alma 12.4|]][[Alma 12.5|]][[Alma 12.6|]][[Alma 12.7|]][[Alma 12.8|]][[Alma 12.9|]][[Alma 12.10|]][[Alma 12.11|]][[Alma 12.12|]][[Alma 12.13|]][[Alma 12.14|]]; [[Alma 42.23|42:23–26, 30]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.30|]]).
+The justice and mercy of God will have been so demonstrably perfect that at the Final Judgment there will be no complaints, including from those who once questioned what God had allotted in the mortal framework (see [[2 Nephi 9.14|2 Ne. 9:14–15]][[2 Nephi 9.15|]]; [[Alma 5.15|Alma 5:15–19]][[Alma 5.16|]][[Alma 5.17|]][[Alma 5.18|]][[Alma 5.19|]]; [[Alma 12.3|12:3–14]][[Alma 12.4|]][[Alma 12.5|]][[Alma 12.6|]][[Alma 12.7|]][[Alma 12.8|]][[Alma 12.9|]][[Alma 12.10|]][[Alma 12.11|]][[Alma 12.12|]][[Alma 12.13|]][[Alma 12.14|]]; [[Alma 42.23|42:23–26, 30]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.30|]]).
 
-Hence, we can and “ought to be content with the things … allotted unto \[us\],” ([[Alma 29.3|Alma 29:3]]), being circumstantially content but without being self-satisfied and behaviorally content with ourselves (see [[3 Nephi 12.48|3 Ne. 12:48]]; [[3 Nephi 27.27|27:27]]; [[Matthew 5.48|Matt. 5:48]]).
+Hence, we can and “ought to be content with the things … allotted unto \[us\],” ([[Alma 29.3|Alma 29:3]]), being circumstantially content but without being self-satisfied and behaviorally content with ourselves (see [[3 Nephi 12.48|3 Ne. 12:48]]; [[3 Nephi 27.27|27:27]]; [[Matthew 5.48|Matt. 5:48]]).
 
 Such contentment is more than shoulder-shrugging passivity. It reflects our participative assent rather than uncaring resignation.
 
@@ -66,7 +68,7 @@ The Lord knows our circumstances and the intents of our hearts, and surely the t
 
 What we could and have done within our allotted acreage, therefore, is known perfectly by the Master of the vineyard.
 
-Their meekness and larger capacity for spiritual contentment may be one reason why God uses the weak of the world to accomplish His work (see [[D&C 1.19|D&C 1:19, 23]][[D&C 1.23|]]; [[D&C 35.13|35:13]]; [[D&C 133.58|133:58–59]][[D&C 133.59|]]; [[1 Corinthians 1.27|1 Cor. 1:27]]). The worldly are usually not very interested in doing what they regard as the Lord’s lowly work anyway.
+Their meekness and larger capacity for spiritual contentment may be one reason why God uses the weak of the world to accomplish His work (see [[D&C 1.19|D&C 1:19, 23]][[D&C 1.23|]]; [[D&C 35.13|35:13]]; [[D&C 133.58|133:58–59]][[D&C 133.59|]]; [[1 Corinthians 1.27|1 Cor. 1:27]]). The worldly are usually not very interested in doing what they regard as the Lord’s lowly work anyway.
 
 Significantly, too, the Lord refuses to intimidate by sending legions of angels in order to ensure that individuals do His will (see [[Matthew 26.47|Matt. 26:47–53]][[Matthew 26.48|]][[Matthew 26.49|]][[Matthew 26.50|]][[Matthew 26.51|]][[Matthew 26.52|]][[Matthew 26.53|]]). His will is to be done “because of the word,” not because we are compelled ([[Alma 36.26|Alma 36:26]]). The rule has been, is, and will remain “Nevertheless, thou mayest choose for thyself” ([[Moses 3.17|Moses 3:17]]). The Lord wants conversion without intimidation.
 
@@ -76,7 +78,7 @@ Thus, within our allotments we see how the saintly display kindness even within 
 
 We see something else in Alma’s inspired and instructive episode. Alma acknowledges that God has placed individuals in every nation who can preach and teach His word (see [[Alma 29.8|Alma 29:8]]). Thus, if we press too much, too often, and too hard for enlarged personal roles, we could actually shrink the field of action needed by others. Furthermore, our trusting contentment lets the Holy Ghost have precious time in which to do His special work.
 
-When spiritually aligned, a poise can come, even when we do not know “the meaning of all things” ([[1 Nephi 11.17|1 Ne. 11:17]]). Such contented assurance produces not arrogance but quiet acceptance, which is its own form of being “anxiously engaged” but without all the bells and whistles ([[D&C 58.27|D&C 58:27]]; see also [[D&C 58.28|D&C 58:28]]).
+When spiritually aligned, a poise can come, even when we do not know “the meaning of all things” ([[1 Nephi 11.17|1 Ne. 11:17]]). Such contented assurance produces not arrogance but quiet acceptance, which is its own form of being “anxiously engaged” but without all the bells and whistles ([[D&C 58.27|D&C 58:27]]; see also [[D&C 58.28|D&C 58:28]]).
 
 However, this spiritual contentment rests on our accepting the Atonement of Jesus, because we “have come to a knowledge of the goodness of God, and his matchless power, and his wisdom, and his patience, and his long-suffering towards the children of men; and also, the atonement which has been prepared from the foundation of the world” ([[Mosiah 4.6|Mosiah 4:6]]).
 
@@ -86,13 +88,8 @@ Colleen and I have a special granddaughter, Anna Josephine, who was born without
 
 If Anna Jo, who has difficult days ahead, stays steady within what has been allotted to her, she will continue to be a great blessing to many people!
 
-How blessed we are that Alma’s words have been preserved for all of us. May we liken Alma’s words to ourselves (see [[1 Nephi 19.23|1 Ne. 19:23]]). I pray for this in the name of Him who counts all sparrows and all fingers and yet is the Lord of the universe, even Jesus Christ, amen!
+How blessed we are that Alma’s words have been preserved for all of us. May we liken Alma’s words to ourselves (see [[1 Nephi 19.23|1 Ne. 19:23]]). I pray for this in the name of Him who counts all sparrows and all fingers and yet is the Lord of the universe, even Jesus Christ, amen!
 
 
 
 
-
-
-
-
-#Adversity #Atonement #Attitude #Conversion #Disabilities #Holy_Ghost #Poverty #Repentance #Sin

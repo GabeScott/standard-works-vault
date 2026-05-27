@@ -1,5 +1,7 @@
 # Growing Up Spiritually
 
+James E. Faust
+
 By Janette C. Hales - *Young Women General President*
 
 *Given in the April session of the 1994 General Conference*
@@ -53,8 +55,3 @@ I have a testimony of our Savior’s love for us. He understands our challenges.
 
 
 
-
-
-
-
-#Jesus_Christ #Spirituality #Women #Young_Women

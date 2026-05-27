@@ -1,6 +1,8 @@
 # Blessings of the Temple
 
-By President Thomas S. Monson - *President of the Church*
+Cheryl A. Esplin
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -12,7 +14,7 @@ My beloved brothers and sisters, how grateful I am to be with you this beautiful
 
 This conference marks seven years since I was sustained as President of the Church. They have been busy years, filled not only with a few challenges but also with countless blessings. Among the most enjoyable and sacred of these blessings has been my opportunity to dedicate and rededicate temples.
 
-Most recently, this past November it was my privilege to dedicate the beautiful new Phoenix Arizona Temple. I was joined by President Dieter F. Uchtdorf, Elder Dallin H. Oaks, Elder Richard J. Maynes, Elder Lynn G. Robbins, and Elder Kent F. Richards. On the evening prior to the dedication, a marvelous cultural celebration was held where over 4,000 of our youth from the temple district performed beautifully. The following day the temple was dedicated in three sacred and inspiring sessions.
+Most recently, this past November it was my privilege to dedicate the beautiful new Phoenix Arizona Temple. I was joined by President Dieter F. Uchtdorf, Elder Dallin H. Oaks, Elder Richard J. Maynes, Elder Lynn G. Robbins, and Elder Kent F. Richards. On the evening prior to the dedication, a marvelous cultural celebration was held where over 4,000 of our youth from the temple district performed beautifully. The following day the temple was dedicated in three sacred and inspiring sessions.
 
 The building of temples is a very clear indication of the growth of the Church. We currently have 144 temples in operation worldwide, with 5 being renovated and 13 more under construction. In addition, 13 temples which were previously announced are in various stages of preparation before construction begins. This year we anticipate rededicating 2 temples and dedicating 5 new temples which are scheduled for completion.
 
@@ -55,10 +57,5 @@ May our Heavenly Father bless us that we may have the spirit of temple worship, 
 
 [^1]: [[John 14.27|John 14:27]].
 
-[^2]: Correspondence in the possession of Thomas S. Monson.
+[^2]: Correspondence in the possession of Thomas S. Monson.
 
-
-
-
-
-#Missionary_Work #Peace #Temple_Work #Temples

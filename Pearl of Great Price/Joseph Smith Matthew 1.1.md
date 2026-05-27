@@ -5,6 +5,6 @@
 [Joseph Smith Matthew 1:1](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.1?lang=eng#p1)
 
 
-[^a]: [[Matthew 23.39|Matt. 23:39.]]
-[^b]: [[Psalms 118.26|Ps. 118:26 (24-26)]]; [[Matthew 26.64|Matt. 26:64]]; [[Acts 1.11|Acts 1:11.]]
-[^c]: TG [[Jesus Christ, Relationships with the Father]].
+[^a]: [[Matthew 23.39|Matt. 23:39]].  
+[^b]: [[Psalms 118.24|Ps. 118:26 (24–26)]][[Psalms 118.25|]][[Psalms 118.26|]]; [[Matthew 26.64|Matt. 26:64]]; [[Acts 1.11|Acts 1:11]].  
+[^c]: [[Jesus Christ, Relationships with the Father|TG Jesus Christ, Relationships with the Father]].  

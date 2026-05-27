@@ -1,6 +1,5 @@
 # Commit
 
-
 *See also* [[Commend.md|Commend]]; [[Commitment.md|Commitment]]
 
 Into thine hand I *commit* my spirit, [[Psalms 31.5|Psalms 31:5]].

@@ -1,7 +1,6 @@
 # Mortality
 
-
-*See also* [[Flesh and Blood.md|Flesh and Blood]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Probation, Probationary.md|Probation]]; [[World.md|World]]
+*See also* [[Flesh and Blood.md|Flesh and Blood]]; [[Man, Natural, Not Spiritually Reborn.md|Man, Natural, Not Spiritually Reborn]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]; [[Probation.md|Probation]]; [[World.md|World]]
 
 thou shalt surely *die*, [[Genesis 2.17|Genesis 2:17]] ([[Moses 3.17|Moses 3:17]]).
 
@@ -27,7 +26,7 @@ he remembereth that we are *dust*, [[Psalms 103.14|Psalms 103:14]].
 
 All *flesh* is grass, [[Isaiah 40.6|Isaiah 40:6]] ([[James 1.10|James 1:10]]; [[1 Peter 1.24|1 Peter 1:24]]).
 
-not come to destroy men's *lives*, [[Luke 9.56|Luke 9:56]].
+not come to destroy men’s *lives*, [[Luke 9.56|Luke 9:56]].
 
 Let not sin therefore reign in your *mortal* body, [[Romans 6.12|Romans 6:12]].
 
@@ -35,7 +34,7 @@ quicken your *mortal* bodies by his Spirit, [[Romans 8.11|Romans 8:11]].
 
 this *mortal* must put on immortality, [[1 Corinthians 15.53|1 Corinthians 15:53]] ([[Enos 1.27|Enos 1:27]]; [[Mosiah 16.10|Mosiah 16:10]]; [[Alma 5.15|Alma 5:15]]; [[Mormon 6.21|Mormon 6:21]]).
 
-life ... might be made manifest in our *mortal* flesh, [[2 Corinthians 4.11|2 Corinthians 4:11]].
+life … might be made manifest in our *mortal* flesh, [[2 Corinthians 4.11|2 Corinthians 4:11]].
 
 *mortality* might be swallowed up of life, [[2 Corinthians 5.4|2 Corinthians 5:4]].
 
@@ -51,11 +50,11 @@ I have spoken unto you concerning the death of the *mortal* body, [[Alma 11.45|A
 
 raised from this *mortality* to a state of immortality, [[Alma 12.12|Alma 12:12]].
 
-this *life* is the time ... to prepare to meet God, [[Alma 34.32|Alma 34:32]].
+this *life* is the time … to prepare to meet God, [[Alma 34.32|Alma 34:32]].
 
 *mortality* raised to immortality, [[Alma 41.4|Alma 41:4]].
 
-changed ... from *mortality* to immortality, [[3 Nephi 28.8|3 Nephi 28:8]].
+changed … from *mortality* to immortality, [[3 Nephi 28.8|3 Nephi 28:8]].
 
 cleansed from *mortality* to immortality, [[3 Nephi 28.36|3 Nephi 28:36]].
 
@@ -63,11 +62,11 @@ Spirit of Christ is *given* to every man, [[Moroni 7.16|Moroni 7:16]].
 
 whether in *life* or in death, [[D&C 50.5|D&C 50:5]].
 
-old men shall *die*; but ... not sleep in the dust, [[D&C 63.51|D&C 63:51]].
+old men shall *die*; but … not sleep in the dust, [[D&C 63.51|D&C 63:51]].
 
 Neither can any natural *man* abide the presence of God, [[D&C 67.12|D&C 67:12]].
 
-fear not ... *death*; for in this world your joy is not full, [[D&C 101.36|D&C 101:36]].
+fear not … *death*; for in this world your joy is not full, [[D&C 101.36|D&C 101:36]].
 
 for this cause I know that *man* is nothing, [[Moses 1.10|Moses 1:10]].
 
@@ -78,5 +77,3 @@ by his fall came *death*; and we are made partakers, [[Moses 6.48|Moses 6:48]].
 keep their second *estate* shall have glory, [[Abraham 3.26|Abraham 3:26]].
 
 all *mankind* may be saved, by obedience, [[Articles of Faith 1.3|Articles of Faith 1:3]].
-
-*See also* [[Matthew 4.4|Matthew 4:4]]; [[Matthew 16.26|Matthew 16:26]]; [[2 Nephi 2.11|2 Nephi 2:11]]; [[Mosiah 3.19|Mosiah 3:19]]; [[Mosiah 16.4|Mosiah 16:4]]; [[Helaman 12.1|Helaman 12:1]].

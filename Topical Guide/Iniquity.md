@@ -1,7 +1,6 @@
 # Iniquity
 
-
-*See also* [[Accountability.md|Accountability]]; [[Evil.md|Evil]]; [[Injustice.md|Injustice]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress]]; [[Trespass.md|Trespass]]; [[Wickedness, Wicked.md|Wickedness]]
+*See also* [[Accountability.md|Accountability]]; [[Evil.md|Evil]]; [[Injustice.md|Injustice]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]; [[Trespass.md|Trespass]]; [[Wickedness.md|Wickedness]]
 
 visiting the *iniquity* of the fathers upon the children, [[Exodus 20.5|Exodus 20:5]] ([[Exodus 34.7|Exodus 34:7]]; [[Numbers 14.18|Numbers 14:18]]; [[Deuteronomy 5.9|Deuteronomy 5:9]]; [[Mosiah 13.13|Mosiah 13:13]]).
 
@@ -13,7 +12,7 @@ hast punished us less than our *iniquities* deserve, [[Ezra 9.13|Ezra 9:13]].
 
 filthy is man, which drinketh *iniquity* like water, [[Job 15.16|Job 15:16]].
 
-Depart ... workers of *iniquity*, [[Psalms 6.8|Psalms 6:8]] ([[Matthew 7.23|Matthew 7:23]]; [[Luke 13.27|Luke 13:27]]; [[3 Nephi 14.23|3 Nephi 14:23]]).
+Depart … workers of *iniquity*, [[Psalms 6.8|Psalms 6:8]] ([[Matthew 7.23|Matthew 7:23]]; [[Luke 13.27|Luke 13:27]]; [[3 Nephi 14.23|3 Nephi 14:23]]).
 
 he travaileth with *iniquity*, [[Psalms 7.14|Psalms 7:14]].
 
@@ -53,7 +52,7 @@ same wicked man shall die in his *iniquity*, [[Ezekiel 3.18|Ezekiel 3:18]] ([[Ez
 
 this was the *iniquity* of thy sister Sodom, [[Ezekiel 16.49|Ezekiel 16:49]].
 
-Repent, and turn ... so *iniquity* shall not be your ruin, [[Ezekiel 18.30|Ezekiel 18:30]].
+Repent, and turn … so *iniquity* shall not be your ruin, [[Ezekiel 18.30|Ezekiel 18:30]].
 
 Israel went into captivity for their *iniquity*, [[Ezekiel 39.23|Ezekiel 39:23]].
 
@@ -65,7 +64,7 @@ canst not look on *iniquity*, [[Habakkuk 1.13|Habakkuk 1:13]].
 
 within ye are full of hypocrisy and *iniquity*, [[Matthew 23.28|Matthew 23:28]].
 
-because *iniquity* shall abound, the love of many shall wax cold, [[Matthew 24.12|Matthew 24:12]] ([[D&C 45.27|D&C 45:27]]; [[Joseph Smith Matthew 1.10|Joseph Smith Matthew 1:10]], [[Joseph Smith Matthew 1.30|Joseph Smith Matthew 1:30]]).
+because *iniquity* shall abound, the love of many shall wax cold, [[Matthew 24.12|Matthew 24:12]] ([[D&C 45.27|D&C 45:27]]; [[Joseph Smith Matthew 1.10|Joseph Smith Matthew 1:10]]; [[Joseph Smith Matthew 1.30|Joseph Smith Matthew 1:30]]).
 
 purchased a field with the reward of *iniquity*, [[Acts 1.18|Acts 1:18]].
 
@@ -95,7 +94,7 @@ stiffnecked people, quick to do *iniquity*, [[Mosiah 13.29|Mosiah 13:29]] ([[Alm
 
 slow to hear their cry because of their *iniquities*, [[Mosiah 21.15|Mosiah 21:15]].
 
-redeemed from ... bonds of *iniquity*, [[Mosiah 27.29|Mosiah 27:29]].
+redeemed from … bonds of *iniquity*, [[Mosiah 27.29|Mosiah 27:29]].
 
 how much *iniquity* doth one wicked king cause, [[Mosiah 29.17|Mosiah 29:17]].
 

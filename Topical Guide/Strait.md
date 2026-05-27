@@ -1,6 +1,5 @@
 # Strait
 
-
 *See also* [[Straight.md|Straight]]
 
 place where we dwell with thee is too *strait*, [[2 Kings 6.1|2 Kings 6:1]].

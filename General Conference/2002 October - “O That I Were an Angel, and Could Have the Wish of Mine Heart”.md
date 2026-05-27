@@ -1,5 +1,7 @@
 # “O That I Were an Angel, and Could Have the Wish of Mine Heart”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2002 General Conference*
@@ -65,8 +67,3 @@ May the blessings of heaven rest upon you, my beloved brethren and sisters. May 
 
 
 
-
-
-
-
-#Church_History #Sacrifice #Temple_Work #Temples

@@ -1,6 +1,8 @@
 # Our Heartfelt All
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -119,11 +121,11 @@ I testify that this is true, as I also testify that Jesus Christ is our Master, 
 
 [^4]: [[John 14.6|John 14:6]].
 
-[^5]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^5]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^6]: [[3 Nephi 13.32|3 Nephi 13:32–33]][[3 Nephi 13.33|]]; see also [[Matthew 6.32|Matthew 6:32–33]][[Matthew 6.33|]]. Joseph Smith Translation, Matthew 6:38 provides additional insight: “Seek not the things of this world but seek ye first to build up the kingdom of God, and to establish his righteousness” (in Matthew 6:33, footnote *a*).
+[^6]: [[3 Nephi 13.32|3 Nephi 13:32–33]][[3 Nephi 13.33|]]; see also [[Matthew 6.32|Matthew 6:32–33]][[Matthew 6.33|]]. Joseph Smith Translation, Matthew 6:38 provides additional insight: “Seek not the things of this world but seek ye first to build up the kingdom of God, and to establish his righteousness” (in Matthew 6:33, footnote *a*).
 
-[^7]: One example comes from our prophet, President Russell M. Nelson. When he was at the height of his professional career as a heart surgeon, he was called as stake president. Elders Spencer W. Kimball and LeGrand Richards extended the call. Recognizing the demands of his professional life, they said to him, “If you feel that you are too busy and shouldn’t accept the call, then that’s your privilege.” He answered that his decision about whether or not to serve when called was made long ago, when he and his wife made temple covenants with the Lord. “We made a commitment then,” he said, “to ‘seek … first the kingdom of God, and his righteousness’ \[[[Matthew 6.33|Matthew 6:33]]\], feeling confident that everything else would be added unto us, as the Lord promised” (Russell Marion Nelson, *From Heart to Heart: An Autobiography* \[1979\], 114).
+[^7]: One example comes from our prophet, President Russell M. Nelson. When he was at the height of his professional career as a heart surgeon, he was called as stake president. Elders Spencer W. Kimball and LeGrand Richards extended the call. Recognizing the demands of his professional life, they said to him, “If you feel that you are too busy and shouldn’t accept the call, then that’s your privilege.” He answered that his decision about whether or not to serve when called was made long ago, when he and his wife made temple covenants with the Lord. “We made a commitment then,” he said, “to ‘seek … first the kingdom of God, and his righteousness’ \[[[Matthew 6.33|Matthew 6:33]]\], feeling confident that everything else would be added unto us, as the Lord promised” (Russell Marion Nelson, *From Heart to Heart: An Autobiography* \[1979\], 114).
 
 [^8]: President Nelson recently spoke of “the need for each of us to remove, with the Savior’s help, the old debris in our lives. … I invite you to pray,” he said, “to identify the debris you should remove from your life so you can become more worthy” (“[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 7).
 
@@ -139,8 +141,3 @@ I testify that this is true, as I also testify that Jesus Christ is our Master, 
 
 [^14]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-
-
-
-
-#Balance #Consecration #Discipleship #Sacrifice #Service

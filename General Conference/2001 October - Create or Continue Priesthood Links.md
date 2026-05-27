@@ -1,10 +1,12 @@
 # Create or Continue Priesthood Links
 
+Gordon B. Hinckley
+
 By Elder Keith K. Hilbig - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
 
->*When we serve righteously … , we are strengthening our priesthood link and connecting it ever more securely to those who have preceded and who will follow us.*
+>*When we serve righteously … , we are strengthening our priesthood link and connecting it ever more securely to those who have preceded and who will follow us.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2001/10/create-or-continue-priesthood-links?lang=eng)
 
@@ -45,8 +47,3 @@ I bear solemn testimony of the Savior’s divinity and atoning sacrifice and of 
 
 
 
-
-
-
-
-#Priesthood #Service #Spirituality

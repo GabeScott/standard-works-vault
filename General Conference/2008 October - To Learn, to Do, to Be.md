@@ -1,5 +1,7 @@
 # To Learn, to Do, to Be
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2008 General Conference*
@@ -32,7 +34,7 @@ Let us make our homes sanctuaries of righteousness, places of prayer, and abodes
 
 In this vast throng are priesthood power and the capacity to reach out and share the glorious gospel with others. As has been mentioned, we have the hands to lift others from complacency and inactivity. We have the hearts to serve faithfully in our priesthood callings and thereby inspire others to walk on higher ground and to avoid the swamps of sin which threaten to engulf so many. The worth of souls is indeed great in the sight of God. Ours is the precious privilege, armed with this knowledge, to make a difference in the lives of others. The words found in Ezekiel could well pertain to all of us who follow the Savior in this sacred work:
 
-“A new heart … will I give you, and a new spirit will I put within you. …
+“A new heart … will I give you, and a new spirit will I put within you. …
 
 “And I will put my spirit within you, and cause you to walk in my statutes, and ye shall keep my judgments, and do them.
 
@@ -56,11 +58,11 @@ President Stephen L Richards, who served for many years in the Quorum of the Twe
 
 He continued: “But for practical purposes I like to define the Priesthood in terms of service and I frequently call it ‘the perfect plan of service.’ I do so because it seems to me that it is only through the utilization of the divine power conferred on men that they may ever hope to realize the full import and vitality of this endowment. It is an instrument of service … and the man who fails to use it is apt to lose it, for we are plainly told by revelation that he who neglects it ‘shall not be counted worthy to stand.’”[^4]
 
-President Harold B. Lee, 11th President of the Church and one of the great teachers in the Church, put his counsel in easy-to-understand terms. Said he: “When one becomes a holder of the priesthood, he becomes an agent of the Lord. He should think of his calling as though he were on the Lord’s errand.”[^5]
+President Harold B. Lee, 11th President of the Church and one of the great teachers in the Church, put his counsel in easy-to-understand terms. Said he: “When one becomes a holder of the priesthood, he becomes an agent of the Lord. He should think of his calling as though he were on the Lord’s errand.”[^5]
 
 Now, some of you may be shy by nature or consider yourselves inadequate to respond affirmatively to a calling. Remember that this work is not yours and mine alone. It is the Lord’s work, and when we are on the Lord’s errand, we are entitled to the Lord’s help. Remember that the Lord will shape the back to bear the burden placed upon it.
 
-While the formal classroom may be intimidating at times, some of the most effective teaching takes place other than in the chapel or the classroom. Well do I remember that some years ago, members holding the Aaronic Priesthood would eagerly look forward to an annual outing commemorating the restoration of the Aaronic Priesthood. By the busload the young men of our stake journeyed 90 miles (145 km) north to the Clarkston Cemetery, where we viewed the grave of Martin Harris, one of the Three Witnesses of the Book of Mormon. While surrounding the beautiful granite shaft which marks the grave, a high councilor would present background concerning the life of Martin Harris, read from the Book of Mormon his testimony, and then bear his own witness to the truth. The young men listened with rapt attention, touched the granite marker, and pondered the words they had heard and the feelings they had felt.
+While the formal classroom may be intimidating at times, some of the most effective teaching takes place other than in the chapel or the classroom. Well do I remember that some years ago, members holding the Aaronic Priesthood would eagerly look forward to an annual outing commemorating the restoration of the Aaronic Priesthood. By the busload the young men of our stake journeyed 90 miles (145 km) north to the Clarkston Cemetery, where we viewed the grave of Martin Harris, one of the Three Witnesses of the Book of Mormon. While surrounding the beautiful granite shaft which marks the grave, a high councilor would present background concerning the life of Martin Harris, read from the Book of Mormon his testimony, and then bear his own witness to the truth. The young men listened with rapt attention, touched the granite marker, and pondered the words they had heard and the feelings they had felt.
 
 At a park in Logan, lunch was enjoyed. The group of young men would then lie down on the lawn at the Logan Temple and gaze upward at its lofty spires. Often beautiful white clouds would hurry past the spires, moved along by a gentle breeze. The purpose of temples was taught. Covenants and promises became much more than words. The desire to be worthy to enter those temple doors entered those youthful hearts. Heaven was very close. Learning what we should learn was assured.
 
@@ -78,9 +80,9 @@ Trusting in the Lord, they embarked on their assignment. The living conditions w
 
 Did Elder and Sister Fussek despair because of the enormity of their assignment? Not for a moment. They knew their calling was from God. They prayed for His divine help, and they devoted themselves wholeheartedly to their work. They remained in Poland not two years but five years. All of the foregoing objectives were realized.
 
-Elders Russell M. Nelson, Hans B. Ringger, and I, accompanied by Elder Fussek, met with Minister Adam Wopatka of the Polish government, and we heard him say, “Your church is welcome here. You may build your buildings; you may send your missionaries. You are welcome in Poland. This man,” pointing to Juliusz Fussek, “has served your church well. You can be grateful for his example and his work.”
+Elders Russell M. Nelson, Hans B. Ringger, and I, accompanied by Elder Fussek, met with Minister Adam Wopatka of the Polish government, and we heard him say, “Your church is welcome here. You may build your buildings; you may send your missionaries. You are welcome in Poland. This man,” pointing to Juliusz Fussek, “has served your church well. You can be grateful for his example and his work.”
 
-Like the Fusseks, let us do what we should do in the work of the Lord. Then we can, with Juliusz and Dorothy Fussek, echo the Psalm: “My help cometh from the Lord, which made heaven and earth … : he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep.”[^8]
+Like the Fusseks, let us do what we should do in the work of the Lord. Then we can, with Juliusz and Dorothy Fussek, echo the Psalm: “My help cometh from the Lord, which made heaven and earth … : he that keepeth thee will not slumber. Behold, he that keepeth Israel shall neither slumber nor sleep.”[^8]
 
 Third, *be what we should be.* Paul counseled his beloved friend and associate Timothy, “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.”[^9]
 
@@ -102,7 +104,7 @@ Said the Lord: “I am the good shepherd, and know my sheep, and am known of min
 
 Brethren, may we *learn what we should learn, do what we should do, and be what we should be.* By so doing, the blessings of heaven will attend. We will know that we are not alone. He who notes the sparrow’s fall will, in His own way, acknowledge us.
 
-Several years ago I received a letter from a longtime friend. He bore his testimony in that letter. I would like to share part of it with you tonight, since it illustrates the strength of the priesthood in one who learned what he should learn, who did what he should do, and who always tried to be what he should be. I shall read excerpts of that letter from my friend Theron W. Borup, who passed away three years ago at the age of 90:
+Several years ago I received a letter from a longtime friend. He bore his testimony in that letter. I would like to share part of it with you tonight, since it illustrates the strength of the priesthood in one who learned what he should learn, who did what he should do, and who always tried to be what he should be. I shall read excerpts of that letter from my friend Theron W. Borup, who passed away three years ago at the age of 90:
 
 “At the age of eight, when I was baptized and received the Holy Ghost, I was much impressed about being good and able to have the Holy Ghost to be a help throughout my life. I was told that the Holy Ghost associated only in good company and that when evil entered our lives, he would leave. Not knowing when I would need his promptings and guidance, I tried to so live that I would not lose this gift. On one occasion it saved my life.
 
@@ -125,7 +127,7 @@ I leave with you my testimony that this work in which we are engaged is true. Th
 
 [^4]: Stephen L Richards, in Conference Report, Apr. 1937, 46.
 
-[^5]: Harold B. Lee, *Stand Ye in Holy Places* (1974), 255.
+[^5]: Harold B. Lee, *Stand Ye in Holy Places* (1974), 255.
 
 [^6]: [[D&C 107.99|D&C 107:99]].
 
@@ -133,18 +135,13 @@ I leave with you my testimony that this work in which we are engaged is true. Th
 
 [^8]: [[Psalms 121.2|Psalm 121:2–4]][[Psalms 121.3|]][[Psalms 121.4|]].
 
-[^9]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^9]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^10]: Stephen L Richards, in Conference Report, Oct. 1937, 35.
 
-[^11]: [[3 Nephi 27.27|3 Nephi 27:27]].
+[^11]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
 [^12]: [[John 10.11|John 10:11–15]][[John 10.12|]][[John 10.13|]][[John 10.14|]][[John 10.15|]].
 
 [^13]: Personal correspondence; emphasis added.
 
-
-
-
-
-#Duty #Education #Example #Priesthood

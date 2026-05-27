@@ -1,6 +1,8 @@
 # Faith, Fortitude, Fulfillment: A Message to Single Parents
 
-By Elder David S. Baxter - *Of the Seventy*
+Thomas S. Monson
+
+By Elder David S. Baxter - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -10,7 +12,7 @@ By Elder David S. Baxter - *Of the Seventy*
 
 My message is for the single parents in the Church, the majority of whom are single mothers—you valiant women who, through the varying circumstances of life, find yourselves raising children and running a home on your own. Perhaps you have been widowed or divorced. You may be coping with the challenges of single parenthood as a result of having taken a wrong turn outside of marriage, but you are now living within the framework of the gospel, having turned your life around. Bless you for avoiding the type of companionship that would come at the expense of virtue and discipleship. That would be far too high a price to pay.
 
-Although you may at times have asked, “Why me?” it is through the hardships of life that we grow toward godhood as our character is shaped in the crucible of affliction, as the events of life take place while God respects the agency of man. As Elder Neal A. Maxwell commented, we cannot do all the sums or make it all add up because “we do not have all the numbers.”[^1]
+Although you may at times have asked, “Why me?” it is through the hardships of life that we grow toward godhood as our character is shaped in the crucible of affliction, as the events of life take place while God respects the agency of man. As Elder Neal A. Maxwell commented, we cannot do all the sums or make it all add up because “we do not have all the numbers.”[^1]
 
 Whatever your circumstances or the reasons for them, how wonderful you are. Day to day you face the struggles of life, doing the work that was always meant for two but doing it largely alone. You have to be father as well as mother. You run your household, watch over your family, sometimes struggle to make ends meet, and miraculously even find the wherewithal to serve in the Church in significant ways. You nurture your children. You cry and pray with them and for them. You want the very best for them but fret every night that your best may never be good enough.
 
@@ -30,11 +32,11 @@ Please never feel that you are in some kind of second-tier subcategory of Church
 
 We hope that when you attend meetings and see seemingly complete and happy families or hear someone speak of family ideals, you will feel glad to be part of a church that does focus on families and teaches of their central role in Heavenly Father’s plan for the happiness of His children; that in the midst of world calamity and moral decay, we have the doctrine, authority, ordinances, and covenants that do hold out the best hope for the world, including for the future happiness of your children and the families they will create.
 
-In the general Relief Society meeting of September 2006, President Gordon B. Hinckley related an experience shared by a divorced single mother of seven children then ranging in ages from 7 to 16. She had gone across the street to deliver something to a neighbor. She said:
+In the general Relief Society meeting of September 2006, President Gordon B. Hinckley related an experience shared by a divorced single mother of seven children then ranging in ages from 7 to 16. She had gone across the street to deliver something to a neighbor. She said:
 
 “As I turned around to walk back home, I could see my house lighted up. I could hear echoes of my children as I had walked out of the door a few minutes earlier. They were saying: ‘Mom, what are we going to have for dinner?’ ‘Can you take me to the library?’ ‘I have to get some poster paper tonight.’ Tired and weary, I looked at that house and saw the light on in each of the rooms. I thought of all of those children who were home waiting for me to come and meet their needs. My burdens felt heavier than I could bear.
 
-“I remember looking through tears toward the sky, and I said, ‘Dear Father, I just can’t do it tonight. I’m too tired. I can’t face it. I can’t go home and take care of all those children alone. Could I just come to You and stay with You for just one night? …’
+“I remember looking through tears toward the sky, and I said, ‘Dear Father, I just can’t do it tonight. I’m too tired. I can’t face it. I can’t go home and take care of all those children alone. Could I just come to You and stay with You for just one night? …’
 
 “I didn’t really hear the words of reply, but I heard them in my mind. The answer was: ‘No, little one, you can’t come to me now. … But I can come to you.’”[^2]
 
@@ -59,12 +61,7 @@ Single parents, I testify that as you do your very best in the most difficult of
 
 
 
-[^1]: Neal A. Maxwell, *Notwithstanding My Weakness* (1981), 68.
+[^1]: Neal A. Maxwell, *Notwithstanding My Weakness* (1981), 68.
 
-[^2]: In Gordon B. Hinckley, “In the Arms of His Love,” *Liahona* and *Ensign,* Nov. 2006, 117.
+[^2]: In Gordon B. Hinckley, “In the Arms of His Love,” *Liahona* and *Ensign,* Nov. 2006, 117.
 
-
-
-
-
-#Faith #Parenthood #Single_Members

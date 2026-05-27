@@ -1,6 +1,8 @@
 # “Come, Follow Me” by Practicing Christian Love and Service
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+Jean B. Bingham
+
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -52,7 +54,7 @@ Just before the Savior’s Crucifixion, He taught His Apostles: “A new command
 
 I testify that the Savior’s true posture toward us is the one posed by the outstretched arms of Thorvaldsen’s statue *Christus.* He continues to stretch forth His hands,[^23] beckoning, “Come, follow me.” We follow Him by loving and serving one another and keeping His commandments.
 
-I bear my special witness that He lives and loves us with a perfect love. This is His Church. Thomas S. Monson is His prophet on the earth today. That we may love our Heavenly Father and His Son more, and suffer less, is my prayer. In the name of Jesus Christ, amen.
+I bear my special witness that He lives and loves us with a perfect love. This is His Church. Thomas S. Monson is His prophet on the earth today. That we may love our Heavenly Father and His Son more, and suffer less, is my prayer. In the name of Jesus Christ, amen.
 
 
 
@@ -61,7 +63,7 @@ I bear my special witness that He lives and loves us with a perfect love. This i
 
 [^2]: [[Matthew 5.38|Matthew 5:38]].
 
-[^3]: [[Matthew 5.44|Matthew 5:44]]; see also [[3 Nephi 12.44|3 Nephi 12:44]].
+[^3]: [[Matthew 5.44|Matthew 5:44]]; see also [[3 Nephi 12.44|3 Nephi 12:44]].
 
 [^4]: [[John 13.34|John 13:34]].
 
@@ -69,21 +71,21 @@ I bear my special witness that He lives and loves us with a perfect love. This i
 
 [^6]: [[Mosiah 2.17|Mosiah 2:17]].
 
-[^7]: See [[1 Corinthians 12.12|1 Corinthians 12:12]].
+[^7]: See [[1 Corinthians 12.12|1 Corinthians 12:12]].
 
-[^8]: Adapted from “A Story of the ‘Barefoot Boy’: Written for J. G. Whittier’s Seventieth Birthday,” *The Poetical Works of John Townsend Trowbridge* (1869), 227.
+[^8]: Adapted from “A Story of the ‘Barefoot Boy’: Written for J. G. Whittier’s Seventieth Birthday,” *The Poetical Works of John Townsend Trowbridge* (1869), 227.
 
 [^9]: [[Mosiah 18.8|Mosiah 18:8]].
 
 [^10]: [[D&C 88.77|Doctrine and Covenants 88:77]].
 
-[^11]: [[1 John 4.19|1 John 4:19]].
+[^11]: [[1 John 4.19|1 John 4:19]].
 
 [^12]: See [[D&C 76.26|Doctrine and Covenants 76:26]]; [[Moses 7.37|Moses 7:37]].
 
 [^13]: [[Luke 15.17|Luke 15:17, 20]][[Luke 15.20|]].
 
-[^14]: [[3 Nephi 13.4|3 Nephi 13:4]]; see also [[Matthew 6.4|Matthew 6:4]].
+[^14]: [[3 Nephi 13.4|3 Nephi 13:4]]; see also [[Matthew 6.4|Matthew 6:4]].
 
 [^15]: See “Lean on My Ample Arm,” *Hymns,* no. 120.
 
@@ -103,8 +105,3 @@ I bear my special witness that He lives and loves us with a perfect love. This i
 
 [^23]: See [[Jacob 6.4|Jacob 6:4.]]
 
-
-
-
-
-#Jesus_Christ #Love #Parenthood #Service #Teaching

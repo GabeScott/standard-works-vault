@@ -1,6 +1,8 @@
 # The Greatest Leaders Are the Greatest Followers
 
-By Stephen W. Owen - *Young Men General President*
+Cheryl A. Esplin
+
+By Stephen W. Owen - *Young Men General President*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -68,7 +70,7 @@ Brethren, whether we realize it or not, people are looking up to us—family mem
 
 ## Follow the Man of Galilee
 
-There will be times when the path ahead seems dark, but keep following the Savior. He knows the way; in fact, He *is* the way.[^6] The more earnestly you come unto Christ, the more deeply you will desire to help others experience what you have experienced. Another word for this feeling is charity, “which \[the Father\] hath bestowed upon all who are true followers of his Son, Jesus Christ.”[^7] Then you will find that in the very act of following Christ, you are also leading others to Him, for in the words of President Thomas S. Monson, “As we follow that Man of Galilee—even the Lord Jesus Christ—our personal influence will be felt for good wherever we are, whatever our callings.”[^8]
+There will be times when the path ahead seems dark, but keep following the Savior. He knows the way; in fact, He *is* the way.[^6] The more earnestly you come unto Christ, the more deeply you will desire to help others experience what you have experienced. Another word for this feeling is charity, “which \[the Father\] hath bestowed upon all who are true followers of his Son, Jesus Christ.”[^7] Then you will find that in the very act of following Christ, you are also leading others to Him, for in the words of President Thomas S. Monson, “As we follow that Man of Galilee—even the Lord Jesus Christ—our personal influence will be felt for good wherever we are, whatever our callings.”[^8]
 
 I bear witness that this is Christ’s true Church. We are led by a prophet of God, President Monson—a great leader who is also a true follower of the Savior. In the name of Jesus Christ, amen.
 
@@ -89,10 +91,5 @@ I bear witness that this is Christ’s true Church. We are led by a prophet of G
 
 [^7]: [[Moroni 7.48|Moroni 7:48]].
 
-[^8]: Thomas S. Monson, “[Your Personal Influence](https://churchofjesuschrist.org/study/ensign/2004/05/your-personal-influence?lang=eng),” *Ensign* or *Liahona,* May 2004, 20.
+[^8]: Thomas S. Monson, “[Your Personal Influence](https://www.churchofjesuschrist.org/study/ensign/2004/05/your-personal-influence?lang=eng),” *Ensign* or *Liahona,* May 2004, 20.
 
-
-
-
-
-#Discipleship #Jesus_Christ #Leadership #Priesthood #Service

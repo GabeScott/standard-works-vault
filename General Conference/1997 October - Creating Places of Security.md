@@ -1,5 +1,7 @@
 # Creating Places of Security
 
+Gordon B. Hinckley
+
 By Virginia U. Jensen - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1997 General Conference*
@@ -22,13 +24,13 @@ In 1996 President Gordon B. Hinckley said: “You sisters are the real builders 
 
 This is a marvelous time to live on the earth. Ours is a day seen in vision by many of the prophets down through the ages of time. It was to be called the dispensation of the fulness of times because the gospel was to be fully restored that the lives of those who live in this day might be blessed. All who will hear the glad tidings may have the privilege of full access to the saving and exalting ordinances of the gospel of Jesus Christ and the peace and the happiness they bring to individuals and families.
 
-And yet, as Father Lehi taught, “It must needs be, that there is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]). As the prophets foresaw and prophesied regarding this day of gladness, they also warned that it would be a day of wickedness (see [[2 Timothy 3.1|2 Tim. 3:1–9, 13]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]][[2 Timothy 3.8|]][[2 Timothy 3.9|]][[2 Timothy 3.13|]]), a day of tribulation (see [[Matthew 24.21|Matt. 24:21]]), and an evil day (see [[D&C 27.15|D&C 27:15]]) when “all things shall be in commotion” ([[D&C 88.91|D&C 88:91]]).
+And yet, as Father Lehi taught, “It must needs be, that there is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]). As the prophets foresaw and prophesied regarding this day of gladness, they also warned that it would be a day of wickedness (see [[2 Timothy 3.1|2 Tim. 3:1–9, 13]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]][[2 Timothy 3.8|]][[2 Timothy 3.9|]][[2 Timothy 3.13|]]), a day of tribulation (see [[Matthew 24.21|Matt. 24:21]]), and an evil day (see [[D&C 27.15|D&C 27:15]]) when “all things shall be in commotion” ([[D&C 88.91|D&C 88:91]]).
 
 Sisters, I do not believe that you and I are here at this unique time by accident. I believe that, like Esther of old, we are “come to the kingdom for such a time as this” ([[Esther 4.14|Esth. 4:14]]), when our influence, our example, our strength, and our faith may stand as a bulwark against the rising tide of evil that threatens to engulf our homes, our families, and our loved ones.
 
 There is an exciting story in the Book of Mormon beginning in chapter 48 of Alma. It is a time of peril and commotion for the Nephite nation. Their enemies have sworn to defeat them and take them into bondage. Against what appears to be all odds, Captain Moroni must find a way to defend his people—to create places of security for them. He directs his people to dig deep ditches and build up huge banks of earth around the cities. Later he improves upon his earlier defenses by adding works of timber topped with a frame of pickets and eventually towers to overlook the pickets. So effective is his strategy that the Lamanite armies are astonished and rendered powerless, even though they greatly outnumber the Nephites. The Nephites are safe within their cities and repel the Lamanite attacks.
 
-While his enemies gained power through fraud and deceit, Moroni empowered the Nephites by teaching them to be faithful to God (see [[Alma 48.7|Alma 48:7]]). How do we, like Captain Moroni, create places of security for those around us in these sometimes frightening and perilous times? We can begin by following the admonition found in 1 Timothy 4:12 \[[[1 Timothy 4.12|1 Tim. 4:12]]\]: “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.”
+While his enemies gained power through fraud and deceit, Moroni empowered the Nephites by teaching them to be faithful to God (see [[Alma 48.7|Alma 48:7]]). How do we, like Captain Moroni, create places of security for those around us in these sometimes frightening and perilous times? We can begin by following the admonition found in 1 Timothy 4:12 \[[[1 Timothy 4.12|1 Tim. 4:12]]\]: “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.”
 
 When I was 10 years old, I sat in a sacrament meeting and watched my beautiful mother as she stood at the pulpit and told of her experiences as a young missionary in the Southern States Mission. She likened bringing someone to baptism to the thrill of giving birth and bringing a new child into the world. She bore her testimony with strength and conviction. She didn’t need to tell me that missionary work was important; her example said it all. She didn’t need to tell me what a testimony was because I felt it that day as I heard her share hers with the ward and with me. There are people all around us who need the benefit of our good example. President Gordon B. Hinckley said, “The most persuasive gospel tract is the exemplary life of a faithful Latter-day Saint” (“Five Million Members—A Milestone and Not a Summit,” *Ensign,* May 1982, 45).
 
@@ -55,8 +57,3 @@ I want you to know of my knowledge that our Father in Heaven is real. He lives a
 
 
 
-
-
-
-
-#Agency #Children #Commandments #Example #Motherhood #Ordinances #Parenthood #Peace #Prayer #Safety #Women

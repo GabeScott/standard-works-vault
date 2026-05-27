@@ -1,5 +1,7 @@
 # The War We Are Winning
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1986 General Conference*
@@ -36,7 +38,7 @@ Our people fled their homes, their comfortable homes, their farms, their fields,
 
 But the adversary has never stopped trying. Ninety years ago, in the October conference of 1896, President Wilford Woodruff, then an aged man, standing where I stand in this Tabernacle, said:
 
-“There are two powers on the earth and in the midst of the inhabitants of the earth—the power of God and the power of the devil. In our history we have had some very peculiar experiences. When God has had a people on the earth, it matters not in what age, Lucifer, the son of the morning, and the millions of fallen spirits that were cast out of heaven, have warred against God, against Christ, against the work of God, and against the people of God. And they are not backward in doing it in our day and generation. Whenever the Lord set His hand to perform any work, those powers labored to overthrow it” (*Deseret Evening News,* 17 Oct. 1896, p. 9).
+“There are two powers on the earth and in the midst of the inhabitants of the earth—the power of God and the power of the devil. In our history we have had some very peculiar experiences. When God has had a people on the earth, it matters not in what age, Lucifer, the son of the morning, and the millions of fallen spirits that were cast out of heaven, have warred against God, against Christ, against the work of God, and against the people of God. And they are not backward in doing it in our day and generation. Whenever the Lord set His hand to perform any work, those powers labored to overthrow it” (*Deseret Evening News,* 17 Oct. 1896, p. 9).
 
 President Woodruff knew whereof he spoke. He had then only recently passed through those difficult and perilous days when the government of the nation had come against our people, determined to destroy them. The buildings on this Temple Square, this tabernacle in which we meet tonight and the temple then under construction, were escheated to the federal government. Many citizens were disfranchised. But in faith they moved forward. They kept going. They put their trust in the Almighty, and He revealed unto them the path they should follow. In faith they accepted that revelation and walked in obedience.
 
@@ -88,7 +90,7 @@ The sea parted, and the children of Israel moved to their salvation. The Egyptia
 
 Shall we not also in faith move forward? He who is our eternal leader, the Lord Jesus Christ, has challenged us in words of revelation. Said He:
 
-“Wherefore, lift up your hearts and rejoice, and gird up your loins, and take upon you my whole armor, that ye may be able to withstand the evil day. …
+“Wherefore, lift up your hearts and rejoice, and gird up your loins, and take upon you my whole armor, that ye may be able to withstand the evil day. …
 
 “Stand, therefore, having your loins girt about with truth, having on the breastplate of righteousness, and your feet shod with the preparation of the gospel of peace, which I have sent mine angels to commit unto you;
 
@@ -100,15 +102,10 @@ The war goes on. It is waged across the world over the issues of agency and comp
 
 God bless us, my beloved brethren of the priesthood, in the work that is so clearly laid out before us. May we be faithful. May we be valiant. May we have the courage to be true to the trust God has placed in each of us. May we be unafraid. “For \[to quote the words of Paul to Timothy\] God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.
 
-“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Tim. 1:7–8]][[2 Timothy 1.8|]]).
+“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Tim. 1:7–8]][[2 Timothy 1.8|]]).
 
 In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Commitment #Courage #Faith #Priesthood #Satan #Word_Of_Wisdom

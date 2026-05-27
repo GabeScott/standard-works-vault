@@ -1,5 +1,7 @@
 # A Time for Hope
 
+Ezra Taft Benson
+
 By Ardeth G. Kapp - *Young Women General President*
 
 *Given in the October session of the 1986 General Conference*
@@ -26,7 +28,7 @@ Let us listen to part of a letter received by an anxious but grateful mother. He
 
 “I know I haven’t been much of a daughter. I really hope things can get better between us. Please don’t give up on me. Just because I don’t say I love you doesn’t mean I don’t. Please understand what I am trying to say. We’ll stay together and love each other through the worst and hardest times. We’ll make it ’cause we’re a family.”
 
-I hear your messages, young women. I hear you with my ears and with my heart. I want to reach out to you and share with you what I have learned over the years about *hope.* I would give it to you if I could, but I’ve learned that it only comes from your own upward climb. You see, this brief time away from our heavenly home and parents is a time when we are given our agency for the purpose of being tried and tested in every way (see [[2 Nephi 2.24|2 Ne. 2:24–28]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]]). You should expect some “down” days and some hard tests. Learn from them. Grow from them. Be stronger because of them. Whenever I face things that I don’t understand, I repeat in my mind the words of a song I learned years ago when I wondered if my prayers were being heard and I needed hope to carry on:
+I hear your messages, young women. I hear you with my ears and with my heart. I want to reach out to you and share with you what I have learned over the years about *hope.* I would give it to you if I could, but I’ve learned that it only comes from your own upward climb. You see, this brief time away from our heavenly home and parents is a time when we are given our agency for the purpose of being tried and tested in every way (see [[2 Nephi 2.24|2 Ne. 2:24–28]][[2 Nephi 2.25|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]][[2 Nephi 2.28|]]). You should expect some “down” days and some hard tests. Learn from them. Grow from them. Be stronger because of them. Whenever I face things that I don’t understand, I repeat in my mind the words of a song I learned years ago when I wondered if my prayers were being heard and I needed hope to carry on:
 
 >In the furnace God may prove thee,
 >Thence to bring thee forth more bright,
@@ -79,13 +81,8 @@ From the Philippines: “Hi! I’m Dhezie Jimeno, 16 years old. I would like to 
 
 Thousands of young women writing messages of love and hope sharing the gospel of Jesus Christ worldwide give us reason to celebrate.
 
-With daily prayer, scripture study, and our feet firmly planted on the road to the celestial kingdom, we have a “perfect brightness of hope” ([[2 Nephi 31.20|2 Ne. 31:20]]). There will be some steep climbs ahead, but our Lord and Savior Jesus Christ has covenanted and promised to climb with each of us every step of the way. Think of it! Young women, covenant this day, this very day, if you haven’t already, to plant your feet firmly on the path to the celestial kingdom. Lift up your heart, lift up your heart, and let your soul rejoice, and never, never, never give up. In the name of Jesus Christ, amen.
+With daily prayer, scripture study, and our feet firmly planted on the road to the celestial kingdom, we have a “perfect brightness of hope” ([[2 Nephi 31.20|2 Ne. 31:20]]). There will be some steep climbs ahead, but our Lord and Savior Jesus Christ has covenanted and promised to climb with each of us every step of the way. Think of it! Young women, covenant this day, this very day, if you haven’t already, to plant your feet firmly on the path to the celestial kingdom. Lift up your heart, lift up your heart, and let your soul rejoice, and never, never, never give up. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Adversity #Hope

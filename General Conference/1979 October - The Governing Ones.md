@@ -1,6 +1,8 @@
 # The Governing Ones
 
-By Elder William R. Bradford - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -73,8 +75,3 @@ That we may understand and fulfill our roles as the governing ones, in lockstep 
 
 
 
-
-
-
-
-#Family #Leadership #Priesthood #Teaching

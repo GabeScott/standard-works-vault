@@ -1,6 +1,5 @@
 # Word of the Lord
 
-
 *See also* [[Word.md|Word]]; [[Word of God.md|Word of God]]
 
 *word of the Lord* came unto Abram, [[Genesis 15.1|Genesis 15:1]].
@@ -9,7 +8,7 @@ he hath despised the *word of the Lord*, [[Numbers 15.31|Numbers 15:31]].
 
 *word of the Lord* was precious in those days, [[1 Samuel 3.1|1 Samuel 3:1]].
 
-Lord revealed himself to Samuel ... by the *word of the Lord*, [[1 Samuel 3.21|1 Samuel 3:21]].
+Lord revealed himself to Samuel … by the *word of the Lord*, [[1 Samuel 3.21|1 Samuel 3:21]].
 
 Good is the *word of the Lord*, [[2 Kings 20.19|2 Kings 20:19]] ([[Isaiah 39.8|Isaiah 39:8]]).
 
@@ -35,7 +34,7 @@ they have rejected the *word of the Lord*, [[Jeremiah 8.9|Jeremiah 8:9]].
 
 *word of the Lord* came to Jeremiah, [[Daniel 9.2|Daniel 9:2]].
 
-famine ... of hearing the *words of the Lord*, [[Amos 8.11|Amos 8:11]].
+famine … of hearing the *words of the Lord*, [[Amos 8.11|Amos 8:11]].
 
 run to and fro to seek the *word of the Lord*, [[Amos 8.12|Amos 8:12]].
 
@@ -55,8 +54,6 @@ Nephi, did exhort them to give heed unto the *word of the Lord*, [[1 Nephi 15.25
 
 that the *word of the Lord* might be fulfilled, [[Mosiah 21.4|Mosiah 21:4]].
 
-speak when moved upon by the Holy Ghost ... shall be the *word of the Lord*, [[D&C 68.4|D&C 68:4]].
+speak when moved upon by the Holy Ghost … shall be the *word of the Lord*, [[D&C 68.4|D&C 68:4]].
 
 *word of the Lord* is truth, [[D&C 84.45|D&C 84:45]].
-
-*See also* [[Alma 37.44|Alma 37:44]].

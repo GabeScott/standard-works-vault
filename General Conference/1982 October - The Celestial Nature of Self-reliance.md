@@ -1,6 +1,8 @@
 # The Celestial Nature of Self-reliance
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -12,13 +14,13 @@ I love the simple truths contained in the welfare principles as taught by all th
 
 Since the beginning of time man has been counseled to earn his own way, thereby becoming self-reliant. It is easy to understand the reason why the Lord places so much emphasis on this principle when we come to understand that it is tied very closely to freedom itself.
 
-On this subject, Elder Albert E. Bowen said, “The Lord must want and intend that His people shall be free of constraint whether enforceable or only arising out of the bindings of conscience. … That is why the Church is not satisfied with any system which leaves able people permanently dependent, and insists, on the contrary, that the true function and office of giving, is to help people \[get\] into a position where they can help themselves and thus be free.” (*The Church Welfare Plan,* Gospel Doctrine manual, 1946, p. 77.)
+On this subject, Elder Albert E. Bowen said, “The Lord must want and intend that His people shall be free of constraint whether enforceable or only arising out of the bindings of conscience. … That is why the Church is not satisfied with any system which leaves able people permanently dependent, and insists, on the contrary, that the true function and office of giving, is to help people \[get\] into a position where they can help themselves and thus be free.” (*The Church Welfare Plan,* Gospel Doctrine manual, 1946, p. 77.)
 
 Many programs have been set up by well-meaning individuals to aid those who are in need. However, many of these programs are designed with the shortsighted objective of “helping people,” as opposed to “helping people help themselves.” Our efforts must always be directed toward making able-bodied people self-reliant.
 
 I clipped the following article from the *Reader’s Digest* some time ago and have told it before, but it bears repeating. It reads:
 
-“In our friendly neighbor city of St. Augustine great flocks of sea gulls are starving amid plenty. Fishing is still good, but the gulls don’t know how to fish. For generations they have depended on the shrimp fleet to toss them scraps from the nets. Now the fleet has moved. …
+“In our friendly neighbor city of St. Augustine great flocks of sea gulls are starving amid plenty. Fishing is still good, but the gulls don’t know how to fish. For generations they have depended on the shrimp fleet to toss them scraps from the nets. Now the fleet has moved. …
 
 “The shrimpers had created a Welfare State for the … sea gulls. The big birds never bothered to learn how to fish for themselves and they never taught their children to fish. Instead they led their little ones to the shrimp nets.
 
@@ -38,7 +40,7 @@ Governments are not the only guilty parties. We fear many parents in the Church 
 
 Bishops and other priesthood leaders can be guilty of making “gullible gulls” out of their ward members. Some members become financially or emotionally dependent on their bishops. A dole is a dole whatever its source. All of our Church and family actions should be directed toward making our children and members self-reliant. We can’t always control government programs, but we can control our own homes and congregations. If we will teach these principles and live them, we can do much to counter the negative effects which may exist in government programs in any country.
 
-We know there are some who for no reason of their own cannot become self-reliant. President Henry D. Moyle had these people in mind when he said:
+We know there are some who for no reason of their own cannot become self-reliant. President Henry D. Moyle had these people in mind when he said:
 
 “This great principle does not deny to the needy nor to the poor the assistance they should have. The wholly incapacitated, the aged, the sickly are cared for with all tenderness, but every able-bodied person is enjoined to do his utmost for himself to avoid dependence, if his own efforts can make such a course possible; to look upon adversity as temporary; to combine his faith in his own ability with honest toil; to rehabilitate himself and his family to a position of independence; in every case to minimize the need for help and to supplement any help given with his own best efforts.
 
@@ -48,7 +50,7 @@ We know there are some who for no reason of their own cannot become self-reliant
 
 Self-reliance is not the end, but a means to an end. It is very possible for a person to be completely independent and lack every other desirable attribute. One may become wealthy and never have to ask anyone for anything, but unless there is some spiritual goal attached to this independence, it can canker his soul.
 
-The welfare program is spiritual. In 1936, when the program was introduced, President David O. McKay made this astute observation:
+The welfare program is spiritual. In 1936, when the program was introduced, President David O. McKay made this astute observation:
 
 “The development of our spiritual nature should concern us most. Spirituality is the highest acquisition of the soul, the divine in man; ‘the supreme, crowning gift that makes him king of all created things.’ It is the consciousness of victory over self and of communion with the infinite. It is spirituality alone which really gives one the best in life.
 
@@ -107,8 +109,3 @@ Again, I say the principle of self-reliance is spiritual, as are all the princip
 
 
 
-
-
-
-
-#Spirituality #Welfare

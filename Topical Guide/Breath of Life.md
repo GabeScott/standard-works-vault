@@ -1,13 +1,12 @@
 # Breath of Life
 
-
 *See also* [[Man, Physical Creation of.md|Man, Physical Creation of]]
 
-breathed into his nostrils the *breath of life*, [[Genesis 2.7|Genesis 2:7]] ([[Moses 3.4|Moses 3:4]], [[Moses 3.5|Moses 3:5]], [[Moses 3.6|Moses 3:6]], [[Moses 3.7|Moses 3:7]][[Moses 3.19|Moses 3:19]]; [[Abraham 5.7|Abraham 5:7]]).
+breathed into his nostrils the *breath of life*, [[Genesis 2.7|Genesis 2:7]] ([[Moses 3.19|Moses 3:19]]; [[Abraham 5.7|Abraham 5:7]]).
 
 in whose nostrils was the *breath of life*, [[Genesis 7.22|Genesis 7:22]].
 
-In whose hand is ... the *breath* of all mankind, [[Job 12.10|Job 12:10]].
+In whose hand is … the *breath* of all mankind, [[Job 12.10|Job 12:10]].
 
 the *breath* of the Almighty hath given me life, [[Job 33.4|Job 33:4]].
 

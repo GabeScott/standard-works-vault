@@ -1,5 +1,7 @@
 # Life after Life
 
+Ezra Taft Benson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -24,7 +26,7 @@ President Benson has spoken of one of these priceless records. The activities of
 
 2. Another recorded appearance of the risen Lord was to other women. Witnessing this event were Mary (mother of James), Salome (mother of James and John), Joanna, Susanna, and many others (see [[Mark 16.1|Mark 16:1]]; [[Luke 8.3|Luke 8:3]]).
 
-3. Jesus appeared to Simon Peter (see [[1 Corinthians 15.5|1 Cor. 15:5]]), the senior Apostle, who held the keys of priesthood authority on earth then, as President Benson does now.
+3. Jesus appeared to Simon Peter (see [[1 Corinthians 15.5|1 Cor. 15:5]]), the senior Apostle, who held the keys of priesthood authority on earth then, as President Benson does now.
 
 4. Later the same day, Cleopas and presumably Luke, while journeying on the road to Emmaus, were met by the resurrected Lord. The Savior partook of food with them (see [[Luke 24.30|Luke 24:30, 33]][[Luke 24.33|]]).
 
@@ -34,13 +36,13 @@ President Benson has spoken of one of these priceless records. The activities of
 
 7. At the Sea of Tiberias, Jesus appeared to seven of the Twelve who had fished all night and caught nothing. The Master then caused their nets to be filled with fish. Later, Peter was commanded to feed the flock of God (see [[John 21.1|John 21:1–24]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]][[John 21.15|]][[John 21.16|]][[John 21.17|]][[John 21.18|]][[John 21.19|]][[John 21.20|]][[John 21.21|]][[John 21.22|]][[John 21.23|]][[John 21.24|]]).
 
-8. Perhaps the greatest congregation in Palestine to witness the risen Lord occurred on the mount near Galilee’s shore. Here he was seen by more than five hundred brethren at once! (see [[1 Corinthians 15.6|1 Cor. 15:6]]).
+8. Perhaps the greatest congregation in Palestine to witness the risen Lord occurred on the mount near Galilee’s shore. Here he was seen by more than five hundred brethren at once! (see [[1 Corinthians 15.6|1 Cor. 15:6]]).
 
 9. Later the Master again took the eleven to “a mountain where Jesus had appointed them.” There he gave that endless charge to his Apostles, “Go ye therefore, and teach all nations” ([[Matthew 28.16|Matt. 28:16, 19]][[Matthew 28.19|]]).
 
-10. Then Jesus was seen by his brother, James, who became one of his special disciples (see [[1 Corinthians 15.7|1 Cor. 15:7]]).
+10. Then Jesus was seen by his brother, James, who became one of his special disciples (see [[1 Corinthians 15.7|1 Cor. 15:7]]).
 
-11. Paul added, “And last of all he was seen of me” ([[1 Corinthians 15.8|1 Cor. 15:8]]; see also [[Acts 9.4|Acts 9:4–5]][[Acts 9.5|]]).
+11. Paul added, “And last of all he was seen of me” ([[1 Corinthians 15.8|1 Cor. 15:8]]; see also [[Acts 9.4|Acts 9:4–5]][[Acts 9.5|]]).
 
 12. Prior to his ascension from the Mount of Olives, Jesus bade farewell to the leaders of his Church in Asia and foretold, “Ye shall be witnesses unto me … unto the uttermost part of the earth” ([[Acts 1.8|Acts 1:8]]; see also [[Mark 16.19|Mark 16:19]], [[Luke 24.50|Luke 24:50–51]][[Luke 24.51|]]).
 
@@ -48,15 +50,15 @@ President Benson has spoken of one of these priceless records. The activities of
 
 ## To the Nephites
 
-14. The ministry of the resurrected Lord to the Nephites who lived on the American hemisphere has been spoken of so eloquently by President Benson. He told us that there at least twenty-five hundred souls (see [[3 Nephi 17.25|3 Ne. 17:25]]) heard his voice, felt the nail marks in his hands and feet, and thrust their hands into his side (see [[3 Nephi 11.7|3 Ne. 11:7–17]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]]). I sense that many of them wet his feet with their tears of joyous adoration.
+14. The ministry of the resurrected Lord to the Nephites who lived on the American hemisphere has been spoken of so eloquently by President Benson. He told us that there at least twenty-five hundred souls (see [[3 Nephi 17.25|3 Ne. 17:25]]) heard his voice, felt the nail marks in his hands and feet, and thrust their hands into his side (see [[3 Nephi 11.7|3 Ne. 11:7–17]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]]). I sense that many of them wet his feet with their tears of joyous adoration.
 
 ## To the Dead
 
-15. The postmortal ministry of the Lord continued in other realms. Jesus ministered unto the dead in the postearthly spirit world (see [[3 Nephi 23.9|3 Ne. 23:9–10]][[3 Nephi 23.10|]]). Peter testified that “the gospel \[was\] preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit” ([[1 Peter 4.6|1 Pet. 4:6]]; see also [[1 Peter 3.19|1 Pet. 3:19–21]][[1 Peter 3.20|]][[1 Peter 3.21|]]).John taught of this as well: “The dead shall hear the voice of the Son of God: and they that hear shall live” ([[John 5.25|John 5:25]]). In our day, additional scriptures have been added which attest to the ministry of the living Lord among the dead (see [[D&C 138.1|D&C 138]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.5|]][[D&C 138.6|]][[D&C 138.7|]][[D&C 138.8|]][[D&C 138.9|]][[D&C 138.10|]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]][[D&C 138.38|]][[D&C 138.39|]][[D&C 138.40|]][[D&C 138.41|]][[D&C 138.42|]][[D&C 138.43|]][[D&C 138.44|]][[D&C 138.45|]][[D&C 138.46|]][[D&C 138.47|]][[D&C 138.48|]][[D&C 138.49|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]][[D&C 138.53|]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]][[D&C 138.57|]][[D&C 138.58|]][[D&C 138.59|]][[D&C 138.60|]]).
+15. The postmortal ministry of the Lord continued in other realms. Jesus ministered unto the dead in the postearthly spirit world (see [[3 Nephi 23.9|3 Ne. 23:9–10]][[3 Nephi 23.10|]]). Peter testified that “the gospel \[was\] preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit” ([[1 Peter 4.6|1 Pet. 4:6]]; see also [[1 Peter 3.19|1 Pet. 3:19–21]][[1 Peter 3.20|]][[1 Peter 3.21|]]).John taught of this as well: “The dead shall hear the voice of the Son of God: and they that hear shall live” ([[John 5.25|John 5:25]]). In our day, additional scriptures have been added which attest to the ministry of the living Lord among the dead (see [[D&C 138.1|D&C 138]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.5|]][[D&C 138.6|]][[D&C 138.7|]][[D&C 138.8|]][[D&C 138.9|]][[D&C 138.10|]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]][[D&C 138.38|]][[D&C 138.39|]][[D&C 138.40|]][[D&C 138.41|]][[D&C 138.42|]][[D&C 138.43|]][[D&C 138.44|]][[D&C 138.45|]][[D&C 138.46|]][[D&C 138.47|]][[D&C 138.48|]][[D&C 138.49|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]][[D&C 138.53|]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]][[D&C 138.57|]][[D&C 138.58|]][[D&C 138.59|]][[D&C 138.60|]]).
 
 ## To the Lost Tribes
 
-16. From the Book of Mormon we read that Jesus was to visit the lost tribes of the house of Israel—to do for them, we presume, what he had done for others (see [[2 Nephi 29.13|2 Ne. 29:13]]; [[3 Nephi 17.4|3 Ne. 17:4]]; [[3 Nephi 21.26|21:26]]).
+16. From the Book of Mormon we read that Jesus was to visit the lost tribes of the house of Israel—to do for them, we presume, what he had done for others (see [[2 Nephi 29.13|2 Ne. 29:13]]; [[3 Nephi 17.4|3 Ne. 17:4]]; [[3 Nephi 21.26|21:26]]).
 
 ## To Those of This Dispensation
 
@@ -92,7 +94,7 @@ No one knows precisely how two germ cells unite to make one. Nor do we know how 
 
 “And though after my skin worms destroy this body, yet in my flesh shall I see God” ([[Job 19.25|Job 19:25–26]][[Job 19.26|]]).
 
-At the time of our resurrection, we shall take up our immortal tabernacles. Bodies that now age, deteriorate, and decay will no longer be subject to processes of degeneration: “This mortal must put on immortality” ([[1 Corinthians 15.53|1 Cor. 15:53]]).
+At the time of our resurrection, we shall take up our immortal tabernacles. Bodies that now age, deteriorate, and decay will no longer be subject to processes of degeneration: “This mortal must put on immortality” ([[1 Corinthians 15.53|1 Cor. 15:53]]).
 
 This great priesthood power of resurrection is vested in the Lord of this world. He taught that “all power is given unto me in heaven and in earth” ([[Matthew 28.18|Matt. 28:18]]). Though he supplicated his Father for aid at the eleventh hour, the final victory over death was earned by the Son. These are his words:
 
@@ -112,7 +114,7 @@ The keys of the Resurrection repose securely with our Lord and Master. He said:
 
 But obedience to the commandments of God is requisite if one is to be resurrected with a celestial body. Laws leading to celestial glory will be discussed at this conference. Our challenge is to learn them and abide by them.
 
-I thank God for his Son, Jesus Christ, for his mission in mortality, and for his ministry as the resurrected Lord. He brought about his own resurrection. Testimonies of thousands, from ancient and modern times, attest to the truth that the resurrected Jesus is the Savior of mankind. He brought about a universal resurrection: “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]; see also [[Mosiah 3.16|Mosiah 3:16]]).
+I thank God for his Son, Jesus Christ, for his mission in mortality, and for his ministry as the resurrected Lord. He brought about his own resurrection. Testimonies of thousands, from ancient and modern times, attest to the truth that the resurrected Jesus is the Savior of mankind. He brought about a universal resurrection: “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]; see also [[Mosiah 3.16|Mosiah 3:16]]).
 
 His sacrifice and his glory assure that “the spirit and the body shall be reunited again in its perfect form; both limb and joint shall be restored to its proper frame, even as we now are at this time” ([[Alma 11.43|Alma 11:43]]).
 
@@ -121,8 +123,3 @@ Gratefully and positively, I affirm that there is life after life, first in the 
 
 
 
-
-
-
-
-#Jesus_Christ #Plan_Of_Salvation #Resurrection

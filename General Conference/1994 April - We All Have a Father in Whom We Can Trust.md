@@ -1,5 +1,7 @@
 # We All Have a Father in Whom We Can Trust
 
+James E. Faust
+
 By Elder Kenneth Johnson - *Of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -22,9 +24,9 @@ How like the association we have with our Heavenly Father, believing at times th
 
 Just as I was not able to fully comprehend what my earthly father was building until he completed his work, so it is with our Heavenly Father. When his kingdom is established and the work is complete, we will recognize our home and shout for joy.
 
-Selfless service is an essential ingredient for a full and happy life. The enlightening words of President Marion G. Romney enhance our understanding in this regard: “Service is not something we endure on this earth so we can earn the right to live in the celestial kingdom. Service is the very fiber of which an exalted life in the celestial kingdom is made” (in Conference Report, Oct. 1982, p. 135; or *Ensign,* Nov. 1982, p. 93).
+Selfless service is an essential ingredient for a full and happy life. The enlightening words of President Marion G. Romney enhance our understanding in this regard: “Service is not something we endure on this earth so we can earn the right to live in the celestial kingdom. Service is the very fiber of which an exalted life in the celestial kingdom is made” (in Conference Report, Oct. 1982, [[1982 October - The Celestial Nature of Self-reliance.md|p. 135]]; or *Ensign,* Nov. 1982, p. 93).
 
-It is not necessary for us to know the answer to every question or comprehend the reason for every challenge we face to feel secure in the knowledge of our divine Creator. In the words of Nephi, “I know that he loveth his children; nevertheless, I do not know the meaning of all things” ([[1 Nephi 11.17|1 Ne. 11:17]]).
+It is not necessary for us to know the answer to every question or comprehend the reason for every challenge we face to feel secure in the knowledge of our divine Creator. In the words of Nephi, “I know that he loveth his children; nevertheless, I do not know the meaning of all things” ([[1 Nephi 11.17|1 Ne. 11:17]]).
 
 Twenty-six years after the experience with my father, I continued to learn important lessons through a father-and-son relationship. The exterior woodwork of our home was in need of redecoration. I cleaned and prepared the surface and applied an undercoat. In my mind I could visualize the flawless gloss finish that would be the product of my labors. Our five-year-old son, Kevin, watched as I prepared to apply the final gloss covering. He asked if he could help me. I hesitated before responding, considering what effect this would have on the fulfillment of my dream, or alternatively how he would feel if I declined his offer. It was almost as if I heard someone else say, “That would be a great help. Thank you.”
 
@@ -49,8 +51,3 @@ I know that he lives; I know that he loves us, for we are his children. His son 
 
 
 
-
-
-
-
-#Church_Organization #Family #Fatherhood #God_The_Father #Motherhood #Service

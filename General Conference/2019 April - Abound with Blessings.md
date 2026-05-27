@@ -1,6 +1,8 @@
 # Abound with Blessings
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+Ulisses Soares
+
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -26,7 +28,7 @@ To receive a desired blessing from God, act with faith, striking the metaphorica
 
 Often, the activation energy needed for blessings requires more than just looking or asking; ongoing, repeated, faith-filled actions are required. In the middle of the 19th century, Brigham Young directed a group of Latter-day Saints to explore and settle Arizona, an arid region in North America. After reaching Arizona, the group ran out of water and feared they would perish. They pled with God for help. Soon rain and snow fell, allowing them to fill their barrels with water and provide for their livestock. Grateful and refreshed, they returned to Salt Lake City rejoicing in the goodness of God. Upon their return, they reported the details of their expedition to Brigham Young and pronounced their conclusion that Arizona was uninhabitable.
 
-After listening to the report, Brigham Young asked a man in the room what he thought about the expedition and the miracle. That man, Daniel W. Jones, tersely replied, “I would have filled up, went on, and prayed again.” Brother Brigham put his hand on Brother Jones and said, “This is the man that shall take charge of the next trip to Arizona.”[^17]
+After listening to the report, Brigham Young asked a man in the room what he thought about the expedition and the miracle. That man, Daniel W. Jones, tersely replied, “I would have filled up, went on, and prayed again.” Brother Brigham put his hand on Brother Jones and said, “This is the man that shall take charge of the next trip to Arizona.”[^17]
 
 We can all recall times when we have pushed on and prayed again—and blessings resulted. The experiences of Michael and Marian Holmes illustrate these principles. Michael and I served together as Area Seventies. I was always thrilled whenever he was called on to pray in our meetings because his deep spirituality was readily apparent; he knew how to speak with God. I loved to hear him pray. Early in their marriage, though, Michael and Marian were not praying or attending church. They were busy with three little children and a successful construction company. Michael did not feel that he was a religious man. One evening, their bishop came to their home and encouraged them to begin praying.
 
@@ -42,7 +44,7 @@ A fire, however, must receive a constant supply of oxygen for the wood to ultima
 
 When you receive any blessing from God, you can conclude that you have complied with an eternal law governing reception of that blessing.[^22] But remember that the “irrevocably decreed” law is time insensitive, meaning blessings come on God’s timetable. Even ancient prophets in search of their heavenly home[^23] “died in faith, not having received the promises, but having seen them afar off … \[and\] were persuaded … and embraced them.”[^24] If a desired blessing from God has not been received—yet—you do not need to go crazy, wondering what more you need to do. Instead, heed Joseph Smith’s counsel to “cheerfully do all things that lie in \[your\] power; and then … stand still, with the utmost assurance, to see the … arm \[of God\] … revealed.”[^25] Some blessings are reserved for later, even for the most valiant of God’s children.[^26]
 
-Six months ago a home-centered, Church-supported plan to learn doctrine, strengthen faith, and fortify individuals and families was introduced. President Russell M. Nelson promised that the changes can help us survive spiritually, increase our gospel joy, and deepen our conversion to Heavenly Father and Jesus Christ.[^27] But it is up to us to claim these blessings. We are each responsible to open and study *Come, Follow Me—For Individuals and Families,* along with the scriptures and other *Come, Follow Me* material.[^28] We need to discuss them with our family and friends and organize our Sabbath day to light a metaphorical fire. Or we can leave the resources sitting in a pile in our homes with the potential energy trapped inside.
+Six months ago a home-centered, Church-supported plan to learn doctrine, strengthen faith, and fortify individuals and families was introduced. President Russell M. Nelson promised that the changes can help us survive spiritually, increase our gospel joy, and deepen our conversion to Heavenly Father and Jesus Christ.[^27] But it is up to us to claim these blessings. We are each responsible to open and study *Come, Follow Me—For Individuals and Families,* along with the scriptures and other *Come, Follow Me* material.[^28] We need to discuss them with our family and friends and organize our Sabbath day to light a metaphorical fire. Or we can leave the resources sitting in a pile in our homes with the potential energy trapped inside.
 
 I invite you to faithfully activate heavenly power to receive specific blessings from God. Exercise the faith to strike the match and light the fire. Supply the needed oxygen while you patiently wait on the Lord. With these invitations, I pray that the Holy Ghost will guide and direct you so that you, like the faithful person described in Proverbs, will “abound with blessings.”[^29] I testify that your Heavenly Father and His Beloved Son, Jesus Christ, live, are concerned with your welfare, and delight to bless you, in the name of Jesus Christ, amen.
 
@@ -61,33 +63,33 @@ I invite you to faithfully activate heavenly power to receive specific blessings
 
 [^6]: See *Lectures on Faith* (1985), 3.
 
-[^7]: See David A. Bednar, “[[2008 April - Ask in Faith.md|Ask in Faith]],” *Ensign* or *Liahona,* May 2008, 94.
+[^7]: See David A. Bednar, “[[2008 April - Ask in Faith.md|Ask in Faith]],” *Ensign* or *Liahona,* May 2008, 94.
 
 [^8]: See [[Mosiah 2.24|Mosiah 2:24–25]][[Mosiah 2.25|]].
 
 [^9]: See [[Numbers 21.6|Numbers 21:6–9]][[Numbers 21.7|]][[Numbers 21.8|]][[Numbers 21.9|]].
 
-[^10]: See [[1 Nephi 17.41|1 Nephi 17:41]].
+[^10]: See [[1 Nephi 17.41|1 Nephi 17:41]].
 
-[^11]: See [[1 Nephi 17.42|1 Nephi 17:42]].
+[^11]: See [[1 Nephi 17.42|1 Nephi 17:42]].
 
 [^12]: [[D&C 130.20|Doctrine and Covenants 130:20–21]][[D&C 130.21|]].
 
-[^13]: See [[2 Nephi 10.24|2 Nephi 10:24]]; [[2 Nephi 25.23|25:23]].
+[^13]: See [[2 Nephi 10.24|2 Nephi 10:24]]; [[2 Nephi 25.23|25:23]].
 
-[^14]: See [[Alma 60.11|Alma 60:11, 21]][[Alma 60.21|]]; Dallin H. Oaks, “[[2018 April - Small and Simple Things.md|Small and Simple Things]],” *Ensign* or *Liahona,* May 2018, 89–92; M. Russell Ballard, “[[2012 October - Be Anxiously Engaged.md|Be Anxiously Engaged]],” *Ensign* or *Liahona,* Nov. 2012, 29–31.
+[^14]: See [[Alma 60.11|Alma 60:11, 21]][[Alma 60.21|]]; Dallin H. Oaks, “[[2018 April - Small and Simple Things.md|Small and Simple Things]],” *Ensign* or *Liahona,* May 2018, 89–92; M. Russell Ballard, “[[2012 October - Be Anxiously Engaged.md|Be Anxiously Engaged]],” *Ensign* or *Liahona,* Nov. 2012, 29–31.
 
-[^15]: See Bible Dictionary, “[Prayer](https://churchofjesuschrist.org/study/scriptures/bd/prayer?lang=eng)”; see also [[Moroni 7.48|Moroni 7:48]].
+[^15]: See Bible Dictionary, “[[BD Prayer|Prayer]]”; see also [[Moroni 7.48|Moroni 7:48]].
 
 [^16]: See [[Alma 36.18|Alma 36:18–21]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]]; see also [[Enos 1.5|Enos 1:5–8]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]].
 
-[^17]: Daniel W. Jones, *40 Years Among the Indians* (1960), 222.
+[^17]: Daniel W. Jones, *40 Years Among the Indians* (1960), 222.
 
-[^18]: See [[1 Nephi 16.23|1 Nephi 16:23]].
+[^18]: See [[1 Nephi 16.23|1 Nephi 16:23]].
 
-[^19]: See [[1 Nephi 17.9|1 Nephi 17:9]].
+[^19]: See [[1 Nephi 17.9|1 Nephi 17:9]].
 
-[^20]: See [[1 Kings 17.10|1 Kings 17:10–16]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
+[^20]: See [[1 Kings 17.10|1 Kings 17:10–16]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
 
 [^21]: [[D&C 101.16|Doctrine and Covenants 101:16]].
 
@@ -99,16 +101,11 @@ I invite you to faithfully activate heavenly power to receive specific blessings
 
 [^25]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-[^26]: See Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 36–38; *Liahona,* Jan. 2000, 42–45. Elder Holland said, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come*.”
+[^26]: See Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 36–38; *Liahona,* Jan. 2000, 42–45. Elder Holland said, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come*.”
 
-[^27]: See Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 6–8.
+[^27]: See Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 6–8.
 
-[^28]: See Quentin L. Cook, “[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2018, 8–12.
+[^28]: See Quentin L. Cook, “[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2018, 8–12.
 
 [^29]: [[Proverbs 28.20|Proverbs 28:20]].
 
-
-
-
-
-#Blessings #Faith #Obedience #Prayer #Spirituality

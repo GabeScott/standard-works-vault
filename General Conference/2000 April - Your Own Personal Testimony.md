@@ -1,5 +1,7 @@
 # Your Own Personal Testimony
 
+Gordon B. Hinckley
+
 By Elder Angel Abrea - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -12,7 +14,7 @@ I would like to have an imaginary conversation about personal testimony with the
 
 My dear James, when you were a young boy you bore your testimony and said, “I know the gospel is true. I know that Jesus Christ is the Son of God. I know that Joseph Smith was a true prophet.” You knew those things because others told you. Because of your trust in your parents, your bishop, and others, you never questioned that knowledge. But now, as you grow more independent in understanding, comprehension, and perception of all the different variables that this intense and beautiful life presents to you, frequently you realize that not all men have the same testimony or the “peace of God, which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]).
 
-Maybe, Jonathan, you have already realized that some adults are cynical and will not talk to you about the beautiful concepts of the Atonement, the Resurrection, and eternal life. Instead, they will tell you to “eat, drink, and be merry, for tomorrow we die” ([[2 Nephi 28.7|2 Ne. 28:7]]). Others you will see groping and grasping, looking for answers which they do not find. And yet they will still try to demonstrate to you a knowledge of that which they do not have. Even others will say, “Well, maybe these things are true, but maybe they aren’t. The best thing we can do is live our own lives the way we see fit, and then if there is a life after this one, we will see what happens.”
+Maybe, Jonathan, you have already realized that some adults are cynical and will not talk to you about the beautiful concepts of the Atonement, the Resurrection, and eternal life. Instead, they will tell you to “eat, drink, and be merry, for tomorrow we die” ([[2 Nephi 28.7|2 Ne. 28:7]]). Others you will see groping and grasping, looking for answers which they do not find. And yet they will still try to demonstrate to you a knowledge of that which they do not have. Even others will say, “Well, maybe these things are true, but maybe they aren’t. The best thing we can do is live our own lives the way we see fit, and then if there is a life after this one, we will see what happens.”
 
 Now, Andrew, I can understand the thoughts and feelings you may have in your mind and heart. I can understand that when you listen to these different messages, you may ask yourself what is right and what is not.
 
@@ -22,7 +24,7 @@ And you, Paul, do you remember when the Savior said:
 
 “Verily I say unto you, Except ye be converted, and become as little children, ye shall not enter into the kingdom of heaven.
 
-“Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven” ([[Matthew 18.3|Matt. 18:3–4]][[Matthew 18.4|]]). We are benefited by retaining the humility and teachableness of a child, but we must be sure to continue growing and not be content with the limited knowledge or comprehension of the gospel which a child has. Remember, Paul, what the Apostle of your same name said to the Corinthians: “Brethren, be not children in understanding: howbeit in malice be ye children, but in understanding be men” ([[1 Corinthians 14.20|1 Cor. 14:20]]).
+“Whosoever therefore shall humble himself as this little child, the same is greatest in the kingdom of heaven” ([[Matthew 18.3|Matt. 18:3–4]][[Matthew 18.4|]]). We are benefited by retaining the humility and teachableness of a child, but we must be sure to continue growing and not be content with the limited knowledge or comprehension of the gospel which a child has. Remember, Paul, what the Apostle of your same name said to the Corinthians: “Brethren, be not children in understanding: howbeit in malice be ye children, but in understanding be men” ([[1 Corinthians 14.20|1 Cor. 14:20]]).
 
 Well now, my dear Russell, you will ask yourself, “In that case, do I have to go and look for the answer myself? Can anybody have this kind of testimony? Is it a gift only for a few? Do those who say they *know* really only *think* they know, or have they convinced themselves through a psychological trick?”
 
@@ -32,7 +34,7 @@ Maybe it will be difficult to understand this at your age, but our testimony is 
 
 My dear Matthew, now that you have been able to see the eternal dimension of a testimony, we can continue with our conversation, showing that you can have your own testimony if you do what is necessary to obtain one.
 
-In one of those difficult times that the faithful and dedicated young Nephi had with his rebellious brothers, he reminded them of the following guide to obtaining a testimony. The Lord declared, “If ye will not harden your hearts, and ask me in faith, believing that ye shall receive, with diligence in keeping my commandments, surely these things shall be made known unto you” ([[1 Nephi 15.11|1 Ne. 15:11]]). Now we can review the steps Nephi described.
+In one of those difficult times that the faithful and dedicated young Nephi had with his rebellious brothers, he reminded them of the following guide to obtaining a testimony. The Lord declared, “If ye will not harden your hearts, and ask me in faith, believing that ye shall receive, with diligence in keeping my commandments, surely these things shall be made known unto you” ([[1 Nephi 15.11|1 Ne. 15:11]]). Now we can review the steps Nephi described.
 
 First, *don’t harden your heart.* Seek to know. In other words, have an intense, consuming desire to know. Give place for a seed to be planted in your heart. And if you do this, do you know what the promise is? Alma tells us, “He that will not harden his heart, to him is given … to know the mysteries of God” ([[Alma 12.10|Alma 12:10]]).
 
@@ -48,7 +50,7 @@ Elder Marion G. Romney once wrote: “It is the mission of the Holy Ghost to rev
 
 And now, my youngest grandson, Tate, we can end this conversation, mentioning what a testimony is. Maybe the best way to define it would be by looking at what a testimony represents in our lives.
 
-It is to say, “I will go and do the things which the Lord hath commanded, for I know” ([[1 Nephi 3.7|1 Ne. 3:7]]), and then to act in consequence.
+It is to say, “I will go and do the things which the Lord hath commanded, for I know” ([[1 Nephi 3.7|1 Ne. 3:7]]), and then to act in consequence.
 
 It is to have the peace that comes with knowing that all possible has been done, that all talents have been exercised to the maximum.
 
@@ -58,7 +60,7 @@ And it is to “be patient in afflictions” ([[D&C 31.9|D&C 31:9]]).
 
 It is to never give up, but to stand up as an example to others.
 
-It is to “be ready always to give an answer to every man that asketh you a reason of the hope that is in you with meekness and fear” ([[1 Peter 3.15|1 Pet. 3:15]]).
+It is to “be ready always to give an answer to every man that asketh you a reason of the hope that is in you with meekness and fear” ([[1 Peter 3.15|1 Pet. 3:15]]).
 
 It is to declare His generation: “Jesus Christ \[is\] the Son of God, the Father of heaven and earth, the Creator of all things from the beginning” ([[Mosiah 3.8|Mosiah 3:8]]).
 
@@ -67,8 +69,3 @@ Yes, these and many other characteristics and actions model a testimony. And thi
 
 
 
-
-
-
-
-#Commandments #Education #Faith #Holy_Ghost #Humility #Joseph_Smith #Spirituality #Testimony #Truth

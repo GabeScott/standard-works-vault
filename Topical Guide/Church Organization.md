@@ -1,15 +1,14 @@
 # Church Organization
 
-
 *See also* [[Jesus Christ, Head of the Church.md|Jesus Christ, Head of the Church]]; [[Stake.md|Stake]]
 
-Melchizedek ... was the *priest* of the most high God, [[Genesis 14.18|Genesis 14:18]].
+Melchizedek … was the *priest* of the most high God, [[Genesis 14.18|Genesis 14:18]].
 
-able men ... to be *rulers* of thousands, [[Exodus 18.21|Exodus 18:21]].
+able men … to be *rulers* of thousands, [[Exodus 18.21|Exodus 18:21]].
 
-Moses, and Aaron, ... and *seventy* of the elders of Israel, [[Exodus 24.9|Exodus 24:9]] ([[Numbers 11.16|Numbers 11:16]]).
+Moses, and Aaron, … and *seventy* of the elders of Israel, [[Exodus 24.9|Exodus 24:9]] ([[Numbers 11.16|Numbers 11:16]]).
 
-Take thee Joshua ... and *lay* thine hand upon him, [[Numbers 27.18|Numbers 27:18]] ([[Deuteronomy 34.9|Deuteronomy 34:9]]).
+Take thee Joshua … and *lay* thine hand upon him, [[Numbers 27.18|Numbers 27:18]] ([[Deuteronomy 34.9|Deuteronomy 34:9]]).
 
 Moses with the *elders* of Israel, [[Deuteronomy 27.1|Deuteronomy 27:1]].
 
@@ -17,7 +16,7 @@ Joshua called the *twelve* men, [[Joshua 4.4|Joshua 4:4]].
 
 upon this rock I will build my *church*, [[Matthew 16.18|Matthew 16:18]].
 
-chose twelve, whom also he named *apostles*, [[Luke 6.13|Luke 6:13]] ([[Luke 6.12|6:12-16]][[Luke 6.13|]][[Luke 6.14|]][[Luke 6.15|]][[Luke 6.16|]]).
+chose twelve, whom also he named *apostles*, [[Luke 6.13|Luke 6:13]].
 
 Lord appointed other *seventy*, [[Luke 10.1|Luke 10:1]].
 
@@ -27,7 +26,7 @@ take part of this ministry and *apostleship*, [[Acts 1.25|Acts 1:25]].
 
 when they had prayed, they *laid* their hands on them, [[Acts 6.6|Acts 6:6]].
 
-there were in the church ... *prophets* and teachers, [[Acts 13.1|Acts 13:1]].
+there were in the church … *prophets* and teachers, [[Acts 13.1|Acts 13:1]].
 
 ordained them *elders* in every church, [[Acts 14.23|Acts 14:23]].
 
@@ -80,5 +79,3 @@ Therefore, let every man stand in his own *office*, [[D&C 84.109|D&C 84:109]].
 *officers* belonging to my Priesthood, [[D&C 124.123|D&C 124:123]].
 
 We believe in the same *organization*, [[Articles of Faith 1.6|Articles of Faith 1:6]].
-
-*See also* [[Numbers 27.17|Numbers 27:17]]; [[3 Nephi 15.12|3 Nephi 15:12]]; [[3 Nephi 19.20|3 Nephi 19:20]].

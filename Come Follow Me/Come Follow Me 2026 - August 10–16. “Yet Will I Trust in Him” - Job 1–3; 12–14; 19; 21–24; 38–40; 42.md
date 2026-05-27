@@ -17,7 +17,7 @@ What impresses you about Job’s responses to his trials? (see [[Job 1.20|Job 1:
 
 Job’s friends suggested that God was punishing him (see [[Job 4.1|Job 4–5]][[Job 4.2|]][[Job 4.3|]][[Job 4.4|]][[Job 4.5|]][[Job 4.6|]][[Job 4.7|]][[Job 4.8|]][[Job 4.9|]][[Job 4.10|]][[Job 4.11|]][[Job 4.12|]][[Job 4.13|]][[Job 4.14|]][[Job 4.15|]][[Job 4.16|]][[Job 4.17|]][[Job 4.18|]][[Job 4.19|]][[Job 4.20|]][[Job 4.21|]]; [[Job 8.1|8]][[Job 8.2|]][[Job 8.3|]][[Job 8.4|]][[Job 8.5|]][[Job 8.6|]][[Job 8.7|]][[Job 8.8|]][[Job 8.9|]][[Job 8.10|]][[Job 8.11|]][[Job 8.12|]][[Job 8.13|]][[Job 8.14|]][[Job 8.15|]][[Job 8.16|]][[Job 8.17|]][[Job 8.18|]][[Job 8.19|]][[Job 8.20|]][[Job 8.21|]][[Job 8.22|]]; [[Job 11.1|11]][[Job 11.2|]][[Job 11.3|]][[Job 11.4|]][[Job 11.5|]][[Job 11.6|]][[Job 11.7|]][[Job 11.8|]][[Job 11.9|]][[Job 11.10|]][[Job 11.11|]][[Job 11.12|]][[Job 11.13|]][[Job 11.14|]][[Job 11.15|]][[Job 11.16|]][[Job 11.17|]][[Job 11.18|]][[Job 11.19|]][[Job 11.20|]]). What problems do you see with this idea? Read Job’s response in [[Job 12.1|chapters 12–13]][[Job 12.2|]][[Job 12.3|]][[Job 12.4|]][[Job 12.5|]][[Job 12.6|]][[Job 12.7|]][[Job 12.8|]][[Job 12.9|]][[Job 12.10|]][[Job 12.11|]][[Job 12.12|]][[Job 12.13|]][[Job 12.14|]][[Job 12.15|]][[Job 12.16|]][[Job 12.17|]][[Job 12.18|]][[Job 12.19|]][[Job 12.20|]][[Job 12.21|]][[Job 12.22|]][[Job 12.23|]][[Job 12.24|]][[Job 12.25|]]. What did Job know about God that enabled him to keep trusting? What do you know about God that helps you face challenges?
 
-[[Job 19.1|Job 19]][[Job 19.2|]][[Job 19.3|]][[Job 19.4|]][[Job 19.5|]][[Job 19.6|]][[Job 19.7|]][[Job 19.8|]][[Job 19.9|]][[Job 19.10|]][[Job 19.11|]][[Job 19.12|]][[Job 19.13|]][[Job 19.14|]][[Job 19.15|]][[Job 19.16|]][[Job 19.17|]][[Job 19.18|]][[Job 19.19|]][[Job 19.20|]][[Job 19.21|]][[Job 19.22|]][[Job 19.23|]][[Job 19.24|]][[Job 19.25|]][[Job 19.26|]][[Job 19.27|]][[Job 19.28|]][[Job 19.29|]]
+[[Job 19.1|Job 19]][[Job 19.2|]][[Job 19.3|]][[Job 19.4|]][[Job 19.5|]][[Job 19.6|]][[Job 19.7|]][[Job 19.8|]][[Job 19.9|]][[Job 19.10|]][[Job 19.11|]][[Job 19.12|]][[Job 19.13|]][[Job 19.14|]][[Job 19.15|]][[Job 19.16|]][[Job 19.17|]][[Job 19.18|]][[Job 19.19|]][[Job 19.20|]][[Job 19.21|]][[Job 19.22|]][[Job 19.23|]][[Job 19.24|]][[Job 19.25|]][[Job 19.26|]][[Job 19.27|]][[Job 19.28|]][[Job 19.29|]]
 ### Jesus Christ is my Redeemer.
 
 Sometimes we learn the most important truths during our most difficult times. Ponder the trials Job described in [[Job 19.1|Job 19:1–22]][[Job 19.2|]][[Job 19.3|]][[Job 19.4|]][[Job 19.5|]][[Job 19.6|]][[Job 19.7|]][[Job 19.8|]][[Job 19.9|]][[Job 19.10|]][[Job 19.11|]][[Job 19.12|]][[Job 19.13|]][[Job 19.14|]][[Job 19.15|]][[Job 19.16|]][[Job 19.17|]][[Job 19.18|]][[Job 19.19|]][[Job 19.20|]][[Job 19.21|]][[Job 19.22|]] and the truths he proclaimed in [[Job 19.23|verses 23–27]][[Job 19.24|]][[Job 19.25|]][[Job 19.26|]][[Job 19.27|]]. How do you know that your Redeemer lives? What difference does this knowledge make in your life?
@@ -33,7 +33,7 @@ In [[Job 21.1|Job 21–24]][[Job 21.2|]][[Job 21.3|]][[Job 21.4|]][[Job 21.5|]][
 
 Although we don’t have all the answers, in the restored gospel of Jesus Christ, we have some truths that can help us make sense of adversity and suffering. Below are latter-day scriptures that contain some of these truths. What do these scriptures teach you about Heavenly Father and His plan?
 
-- [[2 Nephi 2.11|2 Nephi 2:11–13]][[2 Nephi 2.12|]][[2 Nephi 2.13|]]
+- [[2 Nephi 2.11|2 Nephi 2:11–13]][[2 Nephi 2.12|]][[2 Nephi 2.13|]]
 
 - [[Mosiah 23.21|Mosiah 23:21–23]][[Mosiah 23.22|]][[Mosiah 23.23|]]; [[Mosiah 24.10|24:10–16]][[Mosiah 24.11|]][[Mosiah 24.12|]][[Mosiah 24.13|]][[Mosiah 24.14|]][[Mosiah 24.15|]][[Mosiah 24.16|]]
 
@@ -64,7 +64,7 @@ Here are two general conference messages that can help change our perspective: T
 
 ### Scripture Helps
 
-- [What might Job have meant when he said, “I know that my redeemer liveth”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/31-job-1-3-12-14-19-21-24-38-40-42?lang=eng&id=p_m2OQv-p_qPDeU#p_m2OQv)
+- [What might Job have meant when he said, “I know that my redeemer liveth”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/31-job-1-3-12-14-19-21-24-38-40-42?lang=eng&id=p_m2OQv-p_qPDeU#p_m2OQv)
 
 - [What occasion caused the children of God to shout for joy?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/31-job-1-3-12-14-19-21-24-38-40-42?lang=eng&id=p_sn0Xj-p_hZCA4#p_sn0Xj)
 
@@ -80,7 +80,7 @@ Here are two general conference messages that can help change our perspective: T
 - Encourage your children to tell you what they know about Job. If they need help, you could point them to [[Job 1.1|Job 1:1, 13–22]][[Job 1.13|]][[Job 1.14|]][[Job 1.15|]][[Job 1.16|]][[Job 1.17|]][[Job 1.18|]][[Job 1.19|]][[Job 1.20|]][[Job 1.21|]][[Job 1.22|]]; [[Job 2.7|2:7–10]][[Job 2.8|]][[Job 2.9|]][[Job 2.10|]] or to “[Job](https://churchofjesuschrist.org/study/manual/old-testament-stories-2022/job?lang=eng)” (in *Old Testament Stories*, 145–47). How did Job respond to challenges? (see [[Job 1.21|Job 1:21]]; [[Job 2.10|2:10]]).> 1:55
 
 
-- Job was faithful in his challenges because of what he knew about the Lord. Maybe you and your children could look at pictures of Jesus Christ interacting with others (such as the one below or pictures in the [Gospel Art Book](https://churchofjesuschrist.org/study/manual/gospel-art-book?lang=eng)). Talk about what you know about Him and what He is like. Here are some verses that show what Job knew about the Lord: [[Job 12.10|Job 12:10, 13, 16]][[Job 12.13|]][[Job 12.16|]]; [[Job 19.25|19:25–27]][[Job 19.26|]][[Job 19.27|]]. Why is it valuable to know these things about Him?
+- Job was faithful in his challenges because of what he knew about the Lord. Maybe you and your children could look at pictures of Jesus Christ interacting with others (such as the one below or pictures in the [Gospel Art Book](https://churchofjesuschrist.org/study/manual/gospel-art-book?lang=eng)). Talk about what you know about Him and what He is like. Here are some verses that show what Job knew about the Lord: [[Job 12.10|Job 12:10, 13, 16]][[Job 12.13|]][[Job 12.16|]]; [[Job 19.25|19:25–27]][[Job 19.26|]][[Job 19.27|]]. Why is it valuable to know these things about Him?
 
 [[Job 14.14|Job 14:14]]
 ### Because of Jesus Christ, I will live again after I die.
@@ -97,7 +97,7 @@ Here are two general conference messages that can help change our perspective: T
 [[Job 19.23|Job 19:23–27]][[Job 19.24|]][[Job 19.25|]][[Job 19.26|]][[Job 19.27|]]
 ### Jesus Christ is my Redeemer.
 
-- After reading [[Job 19.23|Job 19:23–27]][[Job 19.24|]][[Job 19.25|]][[Job 19.26|]][[Job 19.27|]], you and your children could talk about how you know that our Redeemer lives. You might work together to put your testimony (or drawings of the Savior) in a book (see [[Job 19.23|verse 23]]).
+- After reading [[Job 19.23|Job 19:23–27]][[Job 19.24|]][[Job 19.25|]][[Job 19.26|]][[Job 19.27|]], you and your children could talk about how you know that our Redeemer lives. You might work together to put your testimony (or drawings of the Savior) in a book (see [[Job 19.23|verse 23]]).
 
 - You could also sing a song that testifies of the Savior, such as “[I Know That My Redeemer Lives](https://churchofjesuschrist.org/study/manual/hymns/i-know-that-my-redeemer-lives?lang=eng)” (*Hymns*, no. 136). Share phrases from the hymn that strengthen your faith in Him. Why is it important to know that Jesus Christ lives?
 

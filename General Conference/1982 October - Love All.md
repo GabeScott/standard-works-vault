@@ -1,6 +1,8 @@
 # Love All
 
-By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -54,11 +56,11 @@ To the lawyer who asked, “Master, what shall I do to inherit eternal life?” 
 
 The essential difference between the Samaritan and the other two men was that one had a compassionate heart and the others had selfish hearts. Though Samaritans were looked down upon by the Jews, the priest and the Levite—both of whom were Jews—should have come to the aid of the unfortunate man, but did not.
 
-“The full and essential nature of love we may not understand,” wrote Elder John A. Widtsoe. “But there are tests by which it may be recognized.
+“The full and essential nature of love we may not understand,” wrote Elder John A. Widtsoe. “But there are tests by which it may be recognized.
 
 “Love is always founded in truth. … Lies and deceit, or any other violation of the moral law, are proofs of love’s absence. Love perishes in the midst of untruth. … Thus, … \[he\] who falsifies to his loved one, or offers her any act contrary to truth, does not really love her.
 
-“Further, love does not offend or hurt or injure the loved one. … Cruelty is as absent from love … as truth is from untruth. …
+“Further, love does not offend or hurt or injure the loved one. … Cruelty is as absent from love … as truth is from untruth. …
 
 “Love is a positive active force. It helps the loved one. If there is need, love tries to supply it. If there is weakness, love supplants it with strength. … Love that does not help is a faked or transient love.
 
@@ -88,7 +90,7 @@ Love of God is the means of unlocking divine powers which help us to live worthi
 
 The worldly methods of promoting great causes were discarded by the Savior. Money to buy influence—He had none. Publications—He never used. The sword was contrary to His purposes. The people of His own nation disowned Him. He planted His ideals in the hearts of only a few. They were mostly poor; but they met, listened, prayed, and believed in His words. As taught by the Master, they went among other men and by act and word passed on the new ideals, by love unfeigned and by friendship, not by force; and so the work spread.
 
-God accomplishes His purposes heart to heart. The prophet Nephi helps us to understand this: “It is the love of God, which sheddeth itself abroad in the hearts of the children of men; wherefore, it is the most desirable above all things.” ([[1 Nephi 11.22|1 Ne. 11:22]].)
+God accomplishes His purposes heart to heart. The prophet Nephi helps us to understand this: “It is the love of God, which sheddeth itself abroad in the hearts of the children of men; wherefore, it is the most desirable above all things.” ([[1 Nephi 11.22|1 Ne. 11:22]].)
 
 The depth and magnitude of God’s love for all of His children is emphasized in the writings of John: “For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” ([[John 3.16|John 3:16]].)
 
@@ -108,7 +110,7 @@ John the Beloved, who had a special closeness to our Lord, wrote:
 
 “Herein is love, not that we love God, but that he loved us, and sent his Son to be the propitiation for our sins.
 
-“Beloved, if God so loved us, we ought also to love one another.” ([[1 John 4.10|1 Jn. 4:10–11]][[1 John 4.11|]].)
+“Beloved, if God so loved us, we ought also to love one another.” ([[1 John 4.10|1 Jn. 4:10–11]][[1 John 4.11|]].)
 
 By his paying the debt of sin for each of us, Jesus brings us, if we desire, to his Father. We sing these expressive words, which truly convey our feelings:
 
@@ -133,8 +135,3 @@ May each of us adequately play our role in the final accomplishment of God’s d
 
 
 
-
-
-
-
-#Love

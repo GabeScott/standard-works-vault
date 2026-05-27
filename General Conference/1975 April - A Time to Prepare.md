@@ -1,6 +1,8 @@
 # A Time to Prepare
 
-By Elder William H. Bennett - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -20,13 +22,13 @@ Let me share with you some of the words of the Nephite prophet Alma on this matt
 
 “And we see that death comes upon mankind, yea, the death which has been spoken of by Amulek, which is the temporal death; nevertheless there was a space granted unto man in which he might repent; therefore this life became a probationary state; a time to prepare to meet God; a time to prepare for that endless state which has been spoken of by us, which is after the resurrection of the dead.” ([[Alma 12.24|Alma 12:24]].)
 
-Now, the Book of Mormon contains some comments and some very significant predictions of the prophet Nephi relative to conditions that will exist in these the latter days. Let me share some of his statements with respect thereto. Nephi said: “There shall be many which shall teach … false and vain and foolish doctrines … and their works shall be in the dark.” ([[2 Nephi 28.9|2 Ne. 28:9]].)
+Now, the Book of Mormon contains some comments and some very significant predictions of the prophet Nephi relative to conditions that will exist in these the latter days. Let me share some of his statements with respect thereto. Nephi said: “There shall be many which shall teach … false and vain and foolish doctrines … and their works shall be in the dark.” ([[2 Nephi 28.9|2 Ne. 28:9]].)
 
 He also said that in these latter days Satan would “rage in the hearts of … men, and stir them up to anger against that which is good.
 
 “And others he will pacify and lull away into carnal security, … and leadeth them away carefully down to hell.
 
-“Others he flattereth away, and telleth them there is no hell … \[and\] no devil, … and thus he whispereth in their ears, until he grasps them with his awful chains, from which there is no deliverance.” ([[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
+“Others he flattereth away, and telleth them there is no hell … \[and\] no devil, … and thus he whispereth in their ears, until he grasps them with his awful chains, from which there is no deliverance.” ([[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
 
 I should like to emphasize, my brothers and sisters, that those words of Nephi apply to some members of our Church today and not just to some individuals who are not members of our Church. May I suggest that all of us do some soul-searching on that matter and make whatever corrections are necessary to get back on course.
 
@@ -71,8 +73,3 @@ I testify to you that the things we have heard in this conference, including the
 
 
 
-
-
-
-
-#Plan_Of_Salvation #Preparation #Scouting

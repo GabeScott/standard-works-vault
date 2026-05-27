@@ -1,6 +1,8 @@
 # A Time of Testing
 
-By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -18,7 +20,7 @@ Lyman Wight, known as “The Wild Ram of the Mountains,” was one of the early 
 
 Simon, a fisherman, who was to be known later as Simon Peter, or Peter, was introduced to Jesus by his brother Andrew, who already had a testimony that Jesus was the Messiah.
 
-When Jesus first beheld Simon he said: “‘Thou art Simon the son of Jona: thou shalt be called Cephas \[or Peter\], which is by interpretation, A stone,’ (or the Rock). … So from that time, Simon was known as Simon Peter or ‘Simon the Rock.’” (David O. McKay, *Ancient Apostles,* Sunday School Course of Study, 1952, p. 6.)
+When Jesus first beheld Simon he said: “‘Thou art Simon the son of Jona: thou shalt be called Cephas \[or Peter\], which is by interpretation, A stone,’ (or the Rock). … So from that time, Simon was known as Simon Peter or ‘Simon the Rock.’” (David O. McKay, *Ancient Apostles,* Sunday School Course of Study, 1952, p. 6.)
 
 The rocklike characteristics that Jesus saw in Peter were not formed all at once. Near the time when Judas was betraying the Savior, Peter three times denied knowing Jesus. But in the deep grief that followed the crucifixion of the Savior and out of the deep silence of his suffering, there finally came that strength which Christ had urged upon him ever since he called him Peter. Simon was severely tested and tried before he finally qualified as Peter the Rock.
 
@@ -32,7 +34,7 @@ There were times when Joseph wondered if the Lord as well as his friends had des
 
 “Thy friends do stand by thee, and they shall hail thee again with warm hearts and friendly hands.” ([[D&C 121.1|D&C 121:1, 7–9]][[D&C 121.7|]][[D&C 121.8|]][[D&C 121.9|]].)
 
-Joseph Smith was true, faithful, and unwavering to the trust placed in him. His associates were proud to declare to the world: “Joseph Smith, the Prophet and Seer of the Lord, has done more, save Jesus only, for the salvation of men in this world, than any other man that ever lived in it. … He lived great, and he died great in the eyes of God and his people; and like most of the Lord’s anointed in ancient times, has sealed his mission and his works with his own blood. …” ([[D&C 135.3|D&C 135:3]].)
+Joseph Smith was true, faithful, and unwavering to the trust placed in him. His associates were proud to declare to the world: “Joseph Smith, the Prophet and Seer of the Lord, has done more, save Jesus only, for the salvation of men in this world, than any other man that ever lived in it. … He lived great, and he died great in the eyes of God and his people; and like most of the Lord’s anointed in ancient times, has sealed his mission and his works with his own blood. …” ([[D&C 135.3|D&C 135:3]].)
 
 Joseph Smith truly was tested, tried, and not found wanting. He measured up to every requirement expected of him.
 
@@ -53,8 +55,3 @@ All the effort and struggle and sorrow will be well worth it, for we will earn t
 
 
 
-
-
-
-
-#Adversity #Joseph_Smith

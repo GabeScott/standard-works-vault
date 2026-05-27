@@ -1,6 +1,8 @@
 # “Abide in Me, and I in You; Therefore Walk with Me”
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Gary E. Stevenson
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -16,7 +18,7 @@ The scriptural account of Enoch’s call to serve indicates that “he heard a v
 
 Please notice that at the time of Enoch’s call to serve, he became acutely aware of his personal inadequacies and limitations. And I suspect all of us at one time or another in our Church service have felt much like Enoch. But I believe the Lord’s response to Enoch’s pleading question is instructive and applies to each of us today.
 
-“And the Lord said unto Enoch: Go forth and do as I have commanded thee, and no man shall pierce thee. Open thy mouth, and it shall be filled, and I will give thee utterance. …
+“And the Lord said unto Enoch: Go forth and do as I have commanded thee, and no man shall pierce thee. Open thy mouth, and it shall be filled, and I will give thee utterance. …
 
 “Behold my Spirit is upon you, wherefore all thy words will I justify; and the mountains shall flee before you, and the rivers shall turn from their course; and thou shalt *abide in me, and I in you; therefore walk with me.*”[^4]
 
@@ -28,7 +30,7 @@ I earnestly pray for the help of the Holy Ghost as we consider together the coun
 
 The Lord Jesus Christ extends to each of us the invitation to abide in Him.[^5] But how do we actually learn and come to abide in Him?
 
-The word *abide* denotes remaining fixed or stable and enduring without yielding. Elder Jeffrey R. Holland explained that “abiding” as an action means “‘\[to\] stay—but \[to\] stay *forever*.’ That is the call of the gospel message to … everyone … in the world. Come, but come to remain. Come with conviction and endurance. Come permanently, for your sake and the sake of all the generations who must follow you.”[^6] Thus, we abide in Christ as we are firm and steadfast in our devotion to the Redeemer and His holy purposes, in times both good and bad.[^7]
+The word *abide* denotes remaining fixed or stable and enduring without yielding. Elder Jeffrey R. Holland explained that “abiding” as an action means “‘\[to\] stay—but \[to\] stay *forever*.’ That is the call of the gospel message to … everyone … in the world. Come, but come to remain. Come with conviction and endurance. Come permanently, for your sake and the sake of all the generations who must follow you.”[^6] Thus, we abide in Christ as we are firm and steadfast in our devotion to the Redeemer and His holy purposes, in times both good and bad.[^7]
 
 We begin to abide in the Lord by exercising our moral agency to take upon ourselves His yoke[^8] through the covenants and ordinances of the restored gospel. The covenant connection we have with our Heavenly Father and His resurrected and living Son is the supernal source of perspective, hope, power, peace, and enduring joy; it also is the rock-solid foundation[^9] upon which we should build our lives.
 
@@ -70,7 +72,7 @@ We should always remember the Lord’s instruction to Enoch: “Thou shalt abide
 
 The Apostle Paul admonished believers who had received the Lord: “So walk ye in him.”[^24]
 
-Walking in and with the Savior highlights two vital aspects of discipleship: (1) obeying God’s commandments, and (2) remembering and honoring the sacred covenants that connect us to the Father and the Son.
+Walking in and with the Savior highlights two vital aspects of discipleship: (1) obeying God’s commandments, and (2) remembering and honoring the sacred covenants that connect us to the Father and the Son.
 
 John declared:
 
@@ -115,7 +117,7 @@ I joyfully witness that Jesus Christ is our loving and living Savior and Redeeme
 
 [^5]: See [[John 15.4|John 15:4–9]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.8|]][[John 15.9|]].
 
-[^6]: Jeffrey R. Holland, “[[2004 April - “Abide in Me”.md|Abide in Me]],” *Ensign* or *Liahona*, May 2004, 32.
+[^6]: Jeffrey R. Holland, “[[2004 April - “Abide in Me”.md|Abide in Me]],” *Ensign* or *Liahona*, May 2004, 32.
 
 [^7]: See [[John 15.10|John 15:10]].
 
@@ -123,9 +125,9 @@ I joyfully witness that Jesus Christ is our loving and living Savior and Redeeme
 
 [^9]: See [[Helaman 5.12|Helaman 5:12]].
 
-[^10]: See [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
+[^10]: See [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
 
-[^11]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^11]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^12]: [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|5:2]].
 
@@ -141,11 +143,11 @@ I joyfully witness that Jesus Christ is our loving and living Savior and Redeeme
 
 [^18]: I explained this principle in a devotional in 2017:
 
-[^19]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^19]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
-[^20]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^20]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
-[^21]: Alma’s analogy teaches us that the desire to believe plants the seed in our hearts, nourishing the seed by our faith sprouts the tree of life, and nourishing the tree produces fruit of the tree, which is “sweet above all that is sweet” ([[Alma 32.42|Alma 32:42]]) and is “the greatest of all the gifts of God” ([[1 Nephi 15.36|1 Nephi 15:36]]).
+[^21]: Alma’s analogy teaches us that the desire to believe plants the seed in our hearts, nourishing the seed by our faith sprouts the tree of life, and nourishing the tree produces fruit of the tree, which is “sweet above all that is sweet” ([[Alma 32.42|Alma 32:42]]) and is “the greatest of all the gifts of God” ([[1 Nephi 15.36|1 Nephi 15:36]]).
 
 [^22]: [[Alma 5.14|Alma 5:14]].
 
@@ -153,7 +155,7 @@ I joyfully witness that Jesus Christ is our loving and living Savior and Redeeme
 
 [^24]: [[Colossians 2.6|Colossians 2:6]].
 
-[^25]: [[1 John 2.3|1 John 2:3–6]][[1 John 2.4|]][[1 John 2.5|]][[1 John 2.6|]]; emphasis added.
+[^25]: [[1 John 2.3|1 John 2:3–6]][[1 John 2.4|]][[1 John 2.5|]][[1 John 2.6|]]; emphasis added.
 
 [^26]: [[Luke 18.22|Luke 18:22]].
 
@@ -165,8 +167,3 @@ I joyfully witness that Jesus Christ is our loving and living Savior and Redeeme
 
 [^30]: See [[John 15.5|John 15:5]].
 
-
-
-
-
-#Covenants #Discipleship #Endurance #Jesus_Christ

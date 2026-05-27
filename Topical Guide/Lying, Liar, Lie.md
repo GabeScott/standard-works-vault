@@ -1,9 +1,8 @@
 # Lying, Liar, Lie
 
+*See also* [[Deceit.md|Deceit]]; [[False.md|False]]; [[False Doctrine.md|False Doctrine]]; [[Flatter.md|Flatter]]; [[Fraud.md|Fraud]]; [[Gossip.md|Gossip]]; [[Honesty.md|Honesty]]; [[Hypocrisy.md|Hypocrisy]]; [[Slander.md|Slander]]
 
-*See also* [[Deceit, Deceive.md|Deceit]]; [[False.md|False]]; [[False Doctrine.md|False Doctrine]]; [[Flatter, Flattery.md|Flatter]]; [[Fraud.md|Fraud]]; [[Gossip.md|Gossip]]; [[Honesty.md|Honesty]]; [[Hypocrisy, Hypocrite.md|Hypocrisy]]; [[Slander.md|Slander]]
-
-If a soul sin ... and *lie* unto his neighbour, [[Leviticus 6.2|Leviticus 6:2]].
+If a soul sin … and *lie* unto his neighbour, [[Leviticus 6.2|Leviticus 6:2]].
 
 Ye shall not steal, neither deal falsely, neither *lie*, [[Leviticus 19.11|Leviticus 19:11]].
 
@@ -17,7 +16,7 @@ Let the *lying* lips be put to silence, [[Psalms 31.18|Psalms 31:18]].
 
 he that telleth *lies* shall not tarry in my sight, [[Psalms 101.7|Psalms 101:7]].
 
-mouth of the deceitful ... spoken against me with a *lying* tongue, [[Psalms 109.2|Psalms 109:2]].
+mouth of the deceitful … spoken against me with a *lying* tongue, [[Psalms 109.2|Psalms 109:2]].
 
 I hate and abhor *lying*, [[Psalms 119.163|Psalms 119:163]].
 
@@ -51,7 +50,7 @@ he caused you to trust in a *lie*, [[Jeremiah 29.31|Jeremiah 29:31]].
 
 with *lies* ye have made the heart of the righteous sad, [[Ezekiel 13.22|Ezekiel 13:22]].
 
-By swearing, and *lying* ... they break out, [[Hosea 4.2|Hosea 4:2]].
+By swearing, and *lying* … they break out, [[Hosea 4.2|Hosea 4:2]].
 
 remnant of Israel shall not do iniquity, nor speak *lies*, [[Zephaniah 3.13|Zephaniah 3:13]].
 
@@ -107,7 +106,7 @@ unpardonable sin, for I have *lied* unto God, [[Jacob 7.19|Jacob 7:19]].
 
 Enos, knew that God could not *lie*, [[Enos 1.6|Enos 1:6]].
 
-they durst not *lie* ... for *liars* were punished, [[Alma 1.17|Alma 1:17]].
+they durst not *lie* … for *liars* were punished, [[Alma 1.17|Alma 1:17]].
 
 blindness of the minds, which he had caused among the people by his *lying* words, [[Alma 14.6|Alma 14:6]].
 
@@ -115,13 +114,13 @@ thou art possessed with a *lying* spirit, [[Alma 30.42|Alma 30:42]].
 
 art a God of truth, and canst not *lie*, [[Ether 3.12|Ether 3:12]].
 
-devil ... that same *liar* who beguiled our first parents, [[Ether 8.25|Ether 8:25]].
+devil … that same *liar* who beguiled our first parents, [[Ether 8.25|Ether 8:25]].
 
 Deceive and *lie* in wait to catch, [[D&C 10.25|D&C 10:25]].
 
 he that *lieth* and will not repent shall be cast out, [[D&C 42.21|D&C 42:21]].
 
-if he or she shall *lie* ... delivered up unto the law of the land, [[D&C 42.86|D&C 42:86]].
+if he or she shall *lie* … delivered up unto the law of the land, [[D&C 42.86|D&C 42:86]].
 
 I, the Lord, promise the faithful and cannot *lie*, [[D&C 62.6|D&C 62:6]].
 
@@ -137,6 +136,6 @@ that there may be an end to *lyings*, [[D&C 109.30|D&C 109:30]].
 
 fathers, who have inherited *lies*, [[D&C 123.7|D&C 123:7]].
 
-he became Satan ... father of all *lies*, [[Moses 4.4|Moses 4:4]].
+he became Satan … father of all *lies*, [[Moses 4.4|Moses 4:4]].
 
 thou shalt be the father of his *lies*, [[Moses 5.24|Moses 5:24]].

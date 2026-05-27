@@ -1,5 +1,7 @@
 # And Who Is My Neighbor?
 
+Dieter F. Uchtdorf
+
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 2008 General Conference*
@@ -10,7 +12,7 @@ By Bishop H. David Burton - *Presiding Bishop*
 
 Good evening. Tonight the scripture passages “As ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.40|Matthew 25:40]]) and “Remember in all things the poor and the needy” ([[D&C 52.40|D&C 52:40]]) take on special meaning as we review highlights of humanitarian endeavors during the past year.
 
-A briefing on humanitarian assistance was recently given to the General Welfare Committee of the Church. The committee chair, then President Gordon B. Hinckley, expressed profound gratitude for the generosity of members and those not of our faith who have made this outreach possible. In behalf of the General Welfare Committee, we express our deep appreciation to the many individuals, families, quorums, and Relief Society and Young Women groups who are the good Samaritans of today.
+A briefing on humanitarian assistance was recently given to the General Welfare Committee of the Church. The committee chair, then President Gordon B. Hinckley, expressed profound gratitude for the generosity of members and those not of our faith who have made this outreach possible. In behalf of the General Welfare Committee, we express our deep appreciation to the many individuals, families, quorums, and Relief Society and Young Women groups who are the good Samaritans of today.
 
 In 2007 the Church responded to major earthquakes in 5 countries, massive fires in 6 countries, hunger and famine in 18 countries, and flooding and severe storms in 34 countries. In total, the Church and its members responded to 170 major events—nearly one every two days for the entire year. It was a busy year with many opportunities to serve.
 
@@ -36,7 +38,7 @@ Working with the World Health Organization to eliminate measles as a killer of a
 
 Our four-year effort to help those devastated by a tsunami in Indonesia and southern Asia also continued. Funding was provided to help build 902 homes, with 3 community centers, 24 village water systems, 15 schools, and 3 medical centers. A community leader said: “Community members feel happy and blessed to have the community center. … It is a place \[where\] we can pray … and teach the children. … Thank you to \[the Church\] for building this center for our people. … We will pray to God to give \[the Church\] blessings and success in the future. Thank you.”[^5]
 
-In Ethiopia, communities helped to access clean drinking water. The Church drilled wells and constructed storage tanks. Communities organized a water committee and dug the trenches needed to pipe the water from the storage tanks to each village. In some cases this was a distance of over three miles (5 km).
+In Ethiopia, communities helped to access clean drinking water. The Church drilled wells and constructed storage tanks. Communities organized a water committee and dug the trenches needed to pipe the water from the storage tanks to each village. In some cases this was a distance of over three miles (5 km).
 
 Some communities struggled to meet their commitments for trenching. The soil was hard, dry, and full of clay, making digging very difficult. In one community a school of 1,500 students suspended normal school activities for a period of time, and everyone participated in digging the remaining sections of the trench. As they worked, other members of the community joined in. At one point there was over a mile-long line of people digging.
 
@@ -55,8 +57,3 @@ Thank you for your compassion, your goodness, and your generosity. May we press 
 
 [^5]: Mohammed Johan, Calang, Indonesia.
 
-
-
-
-
-#Generosity #Service #Welfare

@@ -1,9 +1,8 @@
 # Prudence, Prudent
 
+*See also* [[Modesty.md|Modesty]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]; [[Wise.md|Wise]]
 
-*See also* [[Modesty.md|Modesty]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]; [[Wise, Wiser.md|Wise]]
-
-son of Jesse ... is ... *prudent* in matters, [[1 Samuel 16.18|1 Samuel 16:18]].
+son of Jesse … is … *prudent* in matters, [[1 Samuel 16.18|1 Samuel 16:18]].
 
 wise son, endued with *prudence*, [[2 Chronicles 2.12|2 Chronicles 2:12]].
 
@@ -35,7 +34,7 @@ my servant shall deal *prudently*, [[Isaiah 52.13|Isaiah 52:13]].
 
 is counsel perished from the *prudent*, [[Jeremiah 49.7|Jeremiah 49:7]].
 
-Who is ... *prudent*, and he shall know them, [[Hosea 14.9|Hosea 14:9]].
+Who is … *prudent*, and he shall know them, [[Hosea 14.9|Hosea 14:9]].
 
 *prudent* shall keep silence in that time, [[Amos 5.13|Amos 5:13]].
 
@@ -57,6 +56,6 @@ understanding of the *prudent* shall come to naught, [[D&C 76.9|D&C 76:9]].
 
 to be used with *prudence* and thanksgiving, [[D&C 89.11|D&C 89:11]].
 
-things which never have been revealed ... kept hid from the wise and *prudent*, [[D&C 128.18|D&C 128:18]].
+things which never have been revealed … kept hid from the wise and *prudent*, [[D&C 128.18|D&C 128:18]].
 
-I rule in the heavens ... in all wisdom and *prudence*, [[Abraham 3.21|Abraham 3:21]].
+I rule in the heavens … in all wisdom and *prudence*, [[Abraham 3.21|Abraham 3:21]].

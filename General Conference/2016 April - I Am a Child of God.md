@@ -1,6 +1,8 @@
 # I Am a Child of God
 
-By Elder Donald L. Hallstrom - *Of the Presidency of the Seventy*
+Cheryl A. Esplin
+
+By Elder Donald L. Hallstrom - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -20,7 +22,7 @@ Our most fundamental doctrine includes the knowledge that we are children of a l
 
 - In 1995, the 15 living apostles and prophets affirmed: “All human beings … are created in the image of God. Each is a *beloved spirit son or daughter of heavenly parents.*”[^5]
 
-- President Thomas S. Monson testified: “We are *sons and daughters of a living God. …* We cannot sincerely hold this conviction without experiencing a profound new sense of strength and power.”[^6]
+- President Thomas S. Monson testified: “We are *sons and daughters of a living God. …* We cannot sincerely hold this conviction without experiencing a profound new sense of strength and power.”[^6]
 
 This doctrine is so basic, so oft stated, and so instinctively simple that it can seem to be ordinary, when in reality it is among the most extraordinary knowledge we can obtain. A correct understanding of our heavenly heritage is essential to exaltation. It is foundational to comprehending the glorious plan of salvation and to nurturing faith in the Firstborn of the Father, Jesus the Christ, and in His merciful Atonement.[^7] Further, it provides continual motivation for us to make and keep our indispensable eternal covenants.
 
@@ -38,9 +40,9 @@ In real life, we face actual, not imagined, hardships. There is pain—physical,
 
 When difficult things occur in our lives, what is our immediate response? Is it confusion or doubt or spiritual withdrawal? Is it a blow to our faith? Do we blame God or others for our circumstances? Or is our first response to remember who we are—that we are children of a loving God? Is that coupled with an absolute trust that He allows some earthly suffering *because* He knows it will bless us, like a refiner’s fire, to become like Him and to gain our eternal inheritance?[^9]
 
-Recently, I was in a meeting with Elder Jeffrey R. Holland. In teaching the principle that mortal life can be agonizing but our hardships have eternal purpose—even if we do not understand it at the time—Elder Holland said, “You can have what you want, or you can have something better.”
+Recently, I was in a meeting with Elder Jeffrey R. Holland. In teaching the principle that mortal life can be agonizing but our hardships have eternal purpose—even if we do not understand it at the time—Elder Holland said, “You can have what you want, or you can have something better.”
 
-Five months ago, my wife, Diane, and I went to Africa with Elder and Sister David A. Bednar. The sixth and last country we visited was Liberia. Liberia is a great country with a noble people and a rich history, but things have not been easy there. Decades of political instability and civil wars have worsened the plague of poverty. On top of that, the dreaded Ebola disease killed nearly 5,000 people there during the latest outbreak. We were the first group of Church leaders from outside the area to visit Monrovia, the capital city, since the World Health Organization declared it safe to do so after the Ebola crisis.
+Five months ago, my wife, Diane, and I went to Africa with Elder and Sister David A. Bednar. The sixth and last country we visited was Liberia. Liberia is a great country with a noble people and a rich history, but things have not been easy there. Decades of political instability and civil wars have worsened the plague of poverty. On top of that, the dreaded Ebola disease killed nearly 5,000 people there during the latest outbreak. We were the first group of Church leaders from outside the area to visit Monrovia, the capital city, since the World Health Organization declared it safe to do so after the Ebola crisis.
 
 On a very hot and humid Sunday morning, we traveled to a rented meeting facility in the center of the city. Every available chair was set up, totaling 3,500 seats. The final count of attendees was 4,100. Almost all who came had to travel by foot or some form of inconvenient public transportation; it was not easy for the Saints to gather. But they came. Most arrived several hours before the appointed meeting time. As we entered the hall, the spiritual atmosphere was electric! The Saints were prepared to be taught.
 
@@ -80,9 +82,9 @@ In today’s world, no matter where we live and no matter what our circumstances
 
 [^4]: [[D&C 76.24|Doctrine and Covenants 76:24]]; emphasis added.
 
-[^5]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129; emphasis added.
+[^5]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129; emphasis added.
 
-[^6]: Thomas S. Monson, “[Canaries with Gray on Their Wings](https://churchofjesuschrist.org/study/liahona/2010/06/canaries-with-gray-on-their-wings?lang=eng),” *Ensign* or *Liahona,* June 2010, 4; emphasis added.
+[^6]: Thomas S. Monson, “[Canaries with Gray on Their Wings](https://www.churchofjesuschrist.org/study/liahona/2010/06/canaries-with-gray-on-their-wings?lang=eng),” *Ensign* or *Liahona,* June 2010, 4; emphasis added.
 
 [^7]: See [[Colossians 1.13|Colossians 1:13–15]][[Colossians 1.14|]][[Colossians 1.15|]].
 
@@ -92,7 +94,5 @@ In today’s world, no matter where we live and no matter what our circumstances
 
 [^10]: “How Firm a Foundation,” *Hymns,* no. 85.
 
+[^11]: [[Mosiah 5.15|Mosiah 5:15]].
 
-
-
-#Adversity #Divine_Nature #Music #Opposition

@@ -1,5 +1,7 @@
 # “Thou Shalt Give Heed unto All His Words”
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -38,9 +40,9 @@ Finally, to ensure that the people understood his words and kept their covenants
 
 In another era, we find another prophet using new media to have his message reach the hearts of the people. There was a special conference held at the time the Church reached its 100th birthday. We find this record from the 100th annual conference, held in the Tabernacle on Sunday, April 6, 1930:
 
-“In accordance with instructions previously issued by the First Presidency of the Church, the following program was carried out in all the wards and branches of the Church, commencing at 10:00 a.m., Sunday, April 6th, except … where arrangements had been made for the people to assemble in their local chapels and listen, by means of radio equipment, to the services as they were broadcast from the Tabernacle in Salt Lake City. …
+“In accordance with instructions previously issued by the First Presidency of the Church, the following program was carried out in all the wards and branches of the Church, commencing at 10:00 a.m., Sunday, April 6th, except … where arrangements had been made for the people to assemble in their local chapels and listen, by means of radio equipment, to the services as they were broadcast from the Tabernacle in Salt Lake City. …
 
-“… The \[Tabernacle\] was crowded to capacity, every seat being taken, and the aisles and doorways and every other available space occupied” (in Conference Report, Apr. 1930, 2).
+“… The \[Tabernacle\] was crowded to capacity, every seat being taken, and the aisles and doorways and every other available space occupied” (in Conference Report, Apr. 1930, 2).
 
 President Heber J. Grant, presiding at this broadcast session of the general conference, began:
 
@@ -50,7 +52,7 @@ President Heber J. Grant, presiding at this broadcast session of the general con
 
 Like King Benjamin, President Grant began by bearing his testimony of God the Father and of our Lord Jesus Christ. Then he went on to emphasize some of the great scientific knowledge, inventions, and industrial developments that have harnessed the forces of the universe and been adapted for the comfort and convenience of men. He stated:
 
-“Undoubtedly the greatest miracle of the century is the accomplishment by which the human voice, with the personality of the speaker, may be indefinitely preserved and reproduced with every detail of originality. …
+“Undoubtedly the greatest miracle of the century is the accomplishment by which the human voice, with the personality of the speaker, may be indefinitely preserved and reproduced with every detail of originality. …
 
 “Contemplating these accomplishments of the past century, to which but brief reference has been made, we are led to exclaim:
 
@@ -66,7 +68,7 @@ But the bricks and mortar and the continued expansion of technology will only br
 
 Remember the words of the Lord when He first instructed the Saints in His newly restored Church on April 6, 1830. He declared:
 
-“Behold, there shall be a record kept among you; and in it thou shalt be called a seer, a translator, a prophet, an apostle of Jesus Christ, an elder of the church through the will of God the Father, and the grace of your Lord Jesus Christ. …
+“Behold, there shall be a record kept among you; and in it thou shalt be called a seer, a translator, a prophet, an apostle of Jesus Christ, an elder of the church through the will of God the Father, and the grace of your Lord Jesus Christ. …
 
 “Wherefore, meaning the church, thou shalt give heed unto all his words and commandments which he shall give unto you as he receiveth them, walking in all holiness before me;
 
@@ -79,8 +81,3 @@ This is my humble testimony to you, and I do it in the name of our Savior, even 
 
 
 
-
-
-
-
-#Church_Growth #Commandments #General_Conference #Joy #Media #Scriptures #Spirituality #Teaching #Testimony

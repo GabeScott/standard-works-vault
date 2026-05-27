@@ -1,6 +1,5 @@
 # Consent
 
-
 *See also* [[Common Consent.md|Common Consent]]
 
 they came out with one *consent*, [[1 Samuel 11.7|1 Samuel 11:7]].
@@ -15,4 +14,4 @@ Saul was *consenting* unto his death, [[Acts 8.1|Acts 8:1]] ([[Acts 22.20|Acts 2
 
 I *consent* unto the law that it is good, [[Romans 7.16|Romans 7:16]].
 
-Defraud ye not ... except it be with *consent*, [[1 Corinthians 7.5|1 Corinthians 7:5]].
+Defraud ye not … except it be with *consent*, [[1 Corinthians 7.5|1 Corinthians 7:5]].

@@ -1,6 +1,8 @@
 # “Bind on Thy Sandals”
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -28,7 +30,7 @@ Oliver Cowdery was one who, for just a moment, slipped his shoes off while the g
 
 Oliver was not as ready as he might have been—or as he once had been. His belief in himself and in this great latter-day work had faltered just a bit, and he cried out, “Wait while I get ready.” But he learned that eternal work can seldom wait for long. The Lord eventually replied to him, “Because … you did not continue as you commenced, … I have taken away this privilege. … You feared, and the time is past, and it is not expedient now.” ([[D&C 9.5|D&C 9:5, 11]][[D&C 9.11|]].) The opportunity of a lifetime had not been seized, and it was gone forever.
 
-If President Kimball will pardon a personal reference, I would like to refer to his readiness and preparation. At President Harold B. Lee’s funeral he said with love and emotion: “President Lee has gone. I never thought it could happen. I sincerely wanted it never to happen. I doubt if anyone in the Church has prayed harder and more consistently for a long life and the general welfare for President Lee than my Camilla and myself. I have not been ambitious. I am four years older than Brother Lee (to the exact day, March 28). I have expected that I would go long before he would go. My heart cries out to him and for him. How we loved him!” (*Ensign,* Feb. 1974, p. 86.)
+If President Kimball will pardon a personal reference, I would like to refer to his readiness and preparation. At President Harold B. Lee’s funeral he said with love and emotion: “President Lee has gone. I never thought it could happen. I sincerely wanted it never to happen. I doubt if anyone in the Church has prayed harder and more consistently for a long life and the general welfare for President Lee than my Camilla and myself. I have not been ambitious. I am four years older than Brother Lee (to the exact day, March 28). I have expected that I would go long before he would go. My heart cries out to him and for him. How we loved him!” (*Ensign,* Feb. 1974, p. 86.)
 
 Certainly President Kimball was not ambitious to be president of the Church, but when the call came, unexpected as it may have been, he was ready. In all the years we have been privileged to know him, President Kimball has always been ready. He has never slipped off his shoes while the game was still on—not ever. He has never had to say, “Wait while I prepare. Wait while I get ready.” Though he may never have dreamed it would someday be his, all of his life he has been getting ready for the assignment he now has.
 
@@ -47,8 +49,3 @@ What a glorious thing it is to have the privilege of bearing the priesthood. God
 
 
 
-
-
-
-
-#Preparation

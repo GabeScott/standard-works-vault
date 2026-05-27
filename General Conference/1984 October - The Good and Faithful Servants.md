@@ -1,5 +1,7 @@
 # The Good and Faithful Servants
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1984 General Conference*
@@ -43,8 +45,3 @@ I invoke the blessings of heaven upon each of you and upon your loved ones and d
 
 
 
-
-
-
-
-#Missionary_Work #Priesthood #Service

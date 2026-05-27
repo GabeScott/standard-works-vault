@@ -1,6 +1,5 @@
 # Dragon
 
-
 *See also* [[Devil.md|Devil]]
 
 brakest the heads of the *dragons*, [[Psalms 74.13|Psalms 74:13]].
@@ -9,9 +8,9 @@ brakest the heads of the *dragons*, [[Psalms 74.13|Psalms 74:13]].
 
 he shall slay the *dragon*, [[Isaiah 27.1|Isaiah 27:1]].
 
-Art thou not it that hath ... wounded the *dragon*, [[Isaiah 51.9|Isaiah 51:9]].
+Art thou not it that hath … wounded the *dragon*, [[Isaiah 51.9|Isaiah 51:9]].
 
-Pharaoh ... the great *dragon*, [[Ezekiel 29.3|Ezekiel 29:3]].
+Pharaoh … the great *dragon*, [[Ezekiel 29.3|Ezekiel 29:3]].
 
 great red *dragon*, having seven heads, [[Revelation 12.3|Revelation 12:3]].
 

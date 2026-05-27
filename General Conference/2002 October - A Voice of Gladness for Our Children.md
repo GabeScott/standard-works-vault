@@ -1,5 +1,7 @@
 # A Voice of Gladness for Our Children
 
+Gordon B. Hinckley
+
 By Coleen K. Menlove - *Primary General President*
 
 *Given in the October session of the 2002 General Conference*
@@ -12,9 +14,9 @@ I like exclamation marks! I use them often when writing notes to myself and to o
 
 “Now, what do we hear in the gospel which we have received? A voice of gladness!” There are 14 more exclamation marks in the rest of the verse and the next four verses that follow. They read in part:
 
-“A voice of mercy from heaven; and a voice of truth out of the earth; … a voice of … glad tidings of great joy. …
+“A voice of mercy from heaven; and a voice of truth out of the earth; … a voice of … glad tidings of great joy. …
 
-“… Glorious is the voice we hear from heaven, proclaiming in our ears, glory, and salvation … !”[^1]—with an exclamation mark.
+“… Glorious is the voice we hear from heaven, proclaiming in our ears, glory, and salvation … !”[^1]—with an exclamation mark.
 
 We can hear a voice of gladness that brings exclamations of hope and joy into our lives. The joy of our testimonies of the Savior can punctuate every aspect of our lives as we seek to come unto Christ.
 
@@ -24,7 +26,7 @@ Her teacher inquired: “Do you know that when Heavenly Father and Jesus appeare
 
 It is this light, the light of the restored gospel—a “voice of gladness”—that parents can help their children come to know. The adversary is real, but children can feel the peace and the joy that come as they exercise faith in Jesus Christ. Our children will not experience this light unless we teach them the gospel.
 
-The Lord directed parents to “bring up \[their\] children in light and truth.”[^2] He also instructed us to teach our children “to pray, and to walk uprightly before the Lord,”[^3] and “to understand the doctrine of repentance, faith in Christ … , and of baptism and the gift of the Holy Ghost.”[^4] We help tune their ears, minds, and hearts to recognize “a voice of gladness” and desire to be worthy to obtain eternal joy when we teach the truths of the gospel.
+The Lord directed parents to “bring up \[their\] children in light and truth.”[^2] He also instructed us to teach our children “to pray, and to walk uprightly before the Lord,”[^3] and “to understand the doctrine of repentance, faith in Christ … , and of baptism and the gift of the Holy Ghost.”[^4] We help tune their ears, minds, and hearts to recognize “a voice of gladness” and desire to be worthy to obtain eternal joy when we teach the truths of the gospel.
 
 This is exemplified in the Book of Mormon. Enos’s father taught him “in the nurture and admonition of the Lord.” This great blessing caused Enos to proclaim, “Blessed be the name of my God for it.”[^5] Enos then explains, “The words which I had often heard my father speak concerning eternal life, and the joy of the saints, sunk deep into my heart.”[^6]
 
@@ -85,16 +87,11 @@ I know—with an exclamation mark—that children can receive a witness by the S
 
 [^8]: First Presidency letter, 11 Feb. 1999; quoted in *Ensign,* June 1999, 80.
 
-[^9]: [[3 Nephi 17.21|3 Nephi 17:21]].
+[^9]: [[3 Nephi 17.21|3 Nephi 17:21]].
 
-[^10]: In Conference Report, Oct. 1994, 74; or *Ensign,* Nov. 1994, 54.
+[^10]: In Conference Report, Oct. 1994, [[1994 October - Save the Children.md|74]]; or *Ensign,* Nov. 1994, 54.
 
 [^11]: *Let Not Your Heart Be Troubled* (1991), 154.
 
-[^12]: In Conference Report, Oct. 1994, 74; or *Ensign,* Nov. 1994, 54.
+[^12]: In Conference Report, Oct. 1994, [[1994 October - Save the Children.md|74]]; or *Ensign,* Nov. 1994, 54.
 
-
-
-
-
-#Children #Jesus_Christ #Joy #Teaching

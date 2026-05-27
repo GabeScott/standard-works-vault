@@ -1,5 +1,7 @@
 # Our Actions Determine Our Character
 
+Gordon B. Hinckley
+
 By Elder Wayne S. Peterson - *Of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -20,7 +22,7 @@ The parents finally did come, and as they pulled away, my newfound friends conti
 
 That was a simple experience, but it demonstrated that in most encounters we can *determine* the kind of experience we are going to have by how we respond. I was grateful that I chose to act in a friendly way rather than react to my young friend’s childish behavior. In doing so I avoided the negative feelings I would have felt had I followed my natural instinct.
 
-In His instructions to the Nephites, the Savior taught, “Therefore, all things whatsoever ye would that men should do to you, do ye even so to them” ([[3 Nephi 14.12|3 Ne. 14:12]]).
+In His instructions to the Nephites, the Savior taught, “Therefore, all things whatsoever ye would that men should do to you, do ye even so to them” ([[3 Nephi 14.12|3 Ne. 14:12]]).
 
 Imagine the effect it would have in the world if everyone practiced this Golden Rule. But to do so seems contrary to human nature. King Benjamin declared that “the natural man is an enemy to God,” and will remain such until he “yields to the enticings of the Holy Spirit, and putteth off the natural man” and learns to be “submissive, meek, humble, patient, \[and\] full of love” ([[Mosiah 3.19|Mosiah 3:19]]).
 
@@ -46,7 +48,7 @@ It is in the home that our behavior is most significant. It is the place where o
 
 There are too many homes where children fear their parents or where wives fear their husbands. Our leaders have reminded us that “fathers are to preside over their families in love and righteousness,” and warned “that individuals who … abuse spouse or offspring … will one day stand accountable before God” (“The Family: A Proclamation to the World,” *Ensign,* Nov. 1995, 102). The adversary knows that if he can foster an atmosphere of contention, conflict, and fear in the home, the Spirit is grieved and the cords that ought to bind the family are weakened.
 
-The resurrected Lord Himself declared, “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another” ([[3 Nephi 11.29|3 Ne. 11:29]]).
+The resurrected Lord Himself declared, “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another” ([[3 Nephi 11.29|3 Ne. 11:29]]).
 
 When we feel anger or contention in our homes, we should immediately recognize what power has taken control of our lives and what Satan is endeavoring to accomplish. Solomon provided us this wise formula: “A soft answer turneth away wrath: but grievous words stir up anger” ([[Proverbs 15.1|Prov. 15:1]]).
 
@@ -65,8 +67,3 @@ Jesus Christ is the perfect example. He is our Savior and our Redeemer. I testif
 
 
 
-
-
-
-
-#Agency #Contention #Fear #Home #Jesus_Christ #Love

@@ -1,6 +1,8 @@
 # These Four Things
 
-By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -42,7 +44,7 @@ Only after true conversion, exemplified by a demonstrated willingness to improve
 
 Our second obligation is to be our brother’s keeper, to be our sister’s keeper, to seek after the lost sheep, to teach one another the doctrines of the kingdom.
 
-I bear testimony to you that home teaching is the divinely inspired method by which we can best touch lives within this Church. Right beside this tremendous priesthood process is Relief Society visiting teaching. Paul had the spirit of home teaching and visiting teaching when he wrote to Timothy: “And the things that thou has heard of me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.” ([[2 Timothy 2.2|2 Tim. 2:2]].)
+I bear testimony to you that home teaching is the divinely inspired method by which we can best touch lives within this Church. Right beside this tremendous priesthood process is Relief Society visiting teaching. Paul had the spirit of home teaching and visiting teaching when he wrote to Timothy: “And the things that thou has heard of me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.” ([[2 Timothy 2.2|2 Tim. 2:2]].)
 
 And now, listen to this, directly from the Lord: “And I give unto you a commandment that you shall teach one another the doctrine of the kingdom.” ([[D&C 88.77|D&C 88:77]].) This is not a mere suggestion, but listen: “I give unto you a *commandment* that you shall teach one another.”
 
@@ -93,8 +95,3 @@ And this is my hope and prayer for all of us, in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Family_History #Jesus_Christ #Missionary_Work #Service

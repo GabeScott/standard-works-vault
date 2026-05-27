@@ -1,4 +1,3 @@
 # Changer
 
-
-*See* [[Money Changer.md|Money Changer]]
+*See also* [[Money Changer.md|Money Changer]]

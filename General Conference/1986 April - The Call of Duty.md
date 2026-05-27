@@ -1,5 +1,7 @@
 # The Call of Duty
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
@@ -30,7 +32,7 @@ The call of duty came to Adam, to Noah, to Abraham, to Moses, to Samuel, to Davi
 
 “Therefore go, my son, and thou shalt be favored of the Lord, because thou hast not murmured.
 
-“And it came to pass that I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.1|1 Ne. 3:1–7]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]].)
+“And it came to pass that I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.1|1 Ne. 3:1–7]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]].)
 
 When that same call comes to you and to me, what will be our response? Will we murmur, as did Laman and Lemuel, and say, “This is a hard thing required of us”? Or will we, with Nephi, individually declare, “I will go. I will do”?
 
@@ -54,7 +56,7 @@ A famed minister observed, “Men will work hard for money. Men will work harder
 
 Robert Louis Stevenson reminded us: “I know what pleasure is, for I have done good work.”
 
-The call of duty can come quietly as we who hold the priesthood respond to the assignments we receive. President George Albert Smith, that modest yet effective leader, declared, “It is your duty first of all to learn what the Lord wants and then by the power and strength of your holy priesthood to so magnify your calling in the presence of your fellows that the people will be glad to follow you.” (*Church News,* 7 Sept. 1968, p. 15.)
+The call of duty can come quietly as we who hold the priesthood respond to the assignments we receive. President George Albert Smith, that modest yet effective leader, declared, “It is your duty first of all to learn what the Lord wants and then by the power and strength of your holy priesthood to so magnify your calling in the presence of your fellows that the people will be glad to follow you.” (*Church News,* 7 Sept. 1968, p. 15.)
 
 What does it mean to magnify a calling? It means to build it up in dignity and importance, to make it honorable and commendable in the eyes of all men, to enlarge and strengthen it, to let the light of heaven shine through it to the view of other men. And how does one magnify a calling? Simply by performing the service that pertains to it. An elder magnifies the ordained calling of an elder by learning what his duties as an elder are and then by doing them. As with an elder, so with a deacon, a teacher, a priest, a bishop, and each who holds office in the priesthood.
 
@@ -97,8 +99,3 @@ We will discover He is more than the Babe in Bethlehem, more than the carpenter�
 
 
 
-
-
-
-
-#Duty

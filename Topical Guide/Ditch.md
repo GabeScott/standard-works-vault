@@ -1,6 +1,5 @@
 # Ditch
 
-
 fallen into the *ditch* which he made, [[Psalms 7.15|Psalms 7:15]].
 
 *ditch* between the two walls for the water, [[Isaiah 22.11|Isaiah 22:11]].

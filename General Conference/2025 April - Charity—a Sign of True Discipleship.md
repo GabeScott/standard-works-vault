@@ -1,6 +1,8 @@
 # Charity—a Sign of True Discipleship
 
-By Elder Michael B. Strong - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Michael B. Strong - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -8,13 +10,13 @@ By Elder Michael B. Strong - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/04/52strong?lang=eng)
 
-President Russell M. Nelson recently invited us to “make our discipleship our highest priority.”[^1] That powerful invitation has stirred me to ponder deeply about my personal discipleship of Jesus Christ.
+President Russell M. Nelson recently invited us to “make our discipleship our highest priority.”[^1] That powerful invitation has stirred me to ponder deeply about my personal discipleship of Jesus Christ.
 
 ## Discipleship Is Deliberate
 
 A disciple is a follower or student of another.[^2] Disciples are “apprentices” who devote their lives to becoming like their teacher. Thus, being a disciple of Jesus Christ implies more than believing His teachings and doctrine. It even implies more than acknowledging His divinity and accepting Him as our Savior and Redeemer, as vitally important as that is.
 
-President Dallin H. Oaks explained: “Following Christ is not a casual or occasional practice. It is a continuous commitment and way of life that should guide us at all times and in all places.”[^3] Discipleship is a deliberate journey that we take to become transformed through the Lord’s atoning sacrifice and His enabling power. The real destination of discipleship is literally to become as Jesus Christ is—even to the point where we receive “his image in \[our\] countenances.”[^4]
+President Dallin H. Oaks explained: “Following Christ is not a casual or occasional practice. It is a continuous commitment and way of life that should guide us at all times and in all places.”[^3] Discipleship is a deliberate journey that we take to become transformed through the Lord’s atoning sacrifice and His enabling power. The real destination of discipleship is literally to become as Jesus Christ is—even to the point where we receive “his image in \[our\] countenances.”[^4]
 
 To be the Lord’s disciples, we must intentionally imitate His thoughts and actions every day—for example, His obedience, humility, and patience. As we gradually incorporate these attributes into our own identities, we become “partakers of \[His\] divine nature.”[^5] This emulation of the Savior’s character is at the heart of worshipping Him. As President Nelson taught, “Our adoration of Jesus is best expressed by our emulation of Jesus.”[^6]
 
@@ -64,44 +66,44 @@ Two disciples, Elder and Sister Cauilan, along with three young service missiona
 
 The Agamatas now enjoy the rich blessings of being sealed as an eternal family because a few fellow disciples who were filled with charity—a sign of their discipleship—determined to help their brothers and sisters forward along their covenant path.
 
-Brothers and sisters, discipleship of Jesus Christ is the only way to obtain enduring happiness. It is a path filled with deliberate and purposeful acts of love toward others. While the path of discipleship may be difficult and challenging, and while at times we may struggle and fall short, we can take comfort that God is mindful of us and yearns to help us every time we try. Isaiah reminds us that “God will hold \[our\] hand, saying … , Fear not; I will help thee.”[^27]
+Brothers and sisters, discipleship of Jesus Christ is the only way to obtain enduring happiness. It is a path filled with deliberate and purposeful acts of love toward others. While the path of discipleship may be difficult and challenging, and while at times we may struggle and fall short, we can take comfort that God is mindful of us and yearns to help us every time we try. Isaiah reminds us that “God will hold \[our\] hand, saying … , Fear not; I will help thee.”[^27]
 
-With this assurance from our Father in Heaven in mind, I earnestly pray that we may follow President Nelson’s invitation to prioritize our discipleship. May we “pray unto the Father with all the energy of heart” to “be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; … that when he shall appear we shall be like him”[^28] because we will carry a sign of true discipleship, which is “charity … the pure love of Christ.”[^29]
+With this assurance from our Father in Heaven in mind, I earnestly pray that we may follow President Nelson’s invitation to prioritize our discipleship. May we “pray unto the Father with all the energy of heart” to “be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; … that when he shall appear we shall be like him”[^28] because we will carry a sign of true discipleship, which is “charity … the pure love of Christ.”[^29]
 
 I testify that Jesus Christ is our living, glorious Savior, Redeemer, Exemplar, and Friend. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121.
+[^1]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121.
 
 [^2]: See *Merriam-Webster.com Dictionary*, “disciple.”
 
-[^3]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 23.
+[^3]: Dallin H. Oaks, “[[2024 October - Following Christ.md|Following Christ]],” *Liahona*, Nov. 2024, 23.
 
 [^4]: [[Alma 5.14|Alma 5:14]]; see also [[Alma 5.19|Alma 5:19]].
 
-[^5]: See [[2 Peter 1.3|2 Peter 1:3–8]][[2 Peter 1.4|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]].
+[^5]: See [[2 Peter 1.3|2 Peter 1:3–8]][[2 Peter 1.4|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]].
 
-[^6]: Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign*, Nov. 1995, 87.
+[^6]: Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign*, Nov. 1995, 87.
 
-[^7]: [[Moroni 7.46|Moroni 7:46]]; see also [[1 Corinthians 13.3|1 Corinthians 13:3]].
+[^7]: [[Moroni 7.46|Moroni 7:46]]; see also [[1 Corinthians 13.3|1 Corinthians 13:3]].
 
 [^8]: [[D&C 18.19|Doctrine and Covenants 18:19]]; emphasis added.
 
 [^9]: [[John 13.34|John 13:34–35]][[John 13.35|]]; emphasis added.
 
-[^10]: *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 127.
+[^10]: *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng&id=p31#p31)* (2023), 127.
 
 [^11]: [[Acts 10.38|Acts 10:38]].
 
-[^12]: See [[3 Nephi 17.3|3 Nephi 17:3]].
+[^12]: See [[3 Nephi 17.3|3 Nephi 17:3]].
 
-[^13]: [[3 Nephi 17.5|3 Nephi 17:5–6]][[3 Nephi 17.6|]].
+[^13]: [[3 Nephi 17.5|3 Nephi 17:5–6]][[3 Nephi 17.6|]].
 
 [^14]: See *Merriam-Webster.com Dictionary*, “compassion.”
 
-[^15]: See [[3 Nephi 17.7|3 Nephi 17:7–25]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]].
+[^15]: See [[3 Nephi 17.7|3 Nephi 17:7–25]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]].
 
 [^16]: [[Matthew 9.36|Matthew 9:36]]; [[Matthew 14.14|14:14]]; [[Mark 1.41|Mark 1:41]]; [[Mark 6.34|6:34]].
 
@@ -109,7 +111,7 @@ I testify that Jesus Christ is our living, glorious Savior, Redeemer, Exemplar, 
 
 [^18]: See [[Matthew 25.31|Matthew 25:31–40]][[Matthew 25.32|]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]], especially [[Matthew 25.36|verse 36]].
 
-[^19]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98.
+[^19]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98.
 
 [^20]: See [[John 5.2|John 5:2–9, 14]][[John 5.3|]][[John 5.4|]][[John 5.5|]][[John 5.6|]][[John 5.7|]][[John 5.8|]][[John 5.9|]][[John 5.14|]].
 
@@ -121,9 +123,9 @@ I testify that Jesus Christ is our living, glorious Savior, Redeemer, Exemplar, 
 
 [^24]: See [[D&C 76.12|Doctrine and Covenants 76:12]].
 
-[^25]: See [[2 Nephi 26.24|2 Nephi 26:24]].
+[^25]: See [[2 Nephi 26.24|2 Nephi 26:24]].
 
-[^26]: Personal communication with Darwin Serrano Cauilan, Dec. 1, 2024.
+[^26]: Personal communication with Darwin Serrano Cauilan, Dec. 1, 2024.
 
 [^27]: [[Isaiah 41.13|Isaiah 41:13]].
 
@@ -131,8 +133,3 @@ I testify that Jesus Christ is our living, glorious Savior, Redeemer, Exemplar, 
 
 [^29]: [[Moroni 7.47|Moroni 7:47]].
 
-
-
-
-
-#Charity #Compassion #Discipleship #Jesus_Christ #Love

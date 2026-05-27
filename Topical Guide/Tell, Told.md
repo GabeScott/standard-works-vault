@@ -1,6 +1,5 @@
 # Tell, Told
 
-
 *See also* [[Declare.md|Declare]]; [[Proclaim.md|Proclaim]]; [[Reveal.md|Reveal]]
 
 *tell* the stars, if thou be able, [[Genesis 15.5|Genesis 15:5]].
@@ -11,7 +10,7 @@ who can *tell* a man what shall be, [[Ecclesiastes 6.12|Ecclesiastes 6:12]] ([[E
 
 for that which had not been *told* them, [[Isaiah 52.15|Isaiah 52:15]].
 
-Jesus saith ... See thou *tell* no man, [[Matthew 8.4|Matthew 8:4]] ([[Luke 5.14|Luke 5:14]]).
+Jesus saith … See thou *tell* no man, [[Matthew 8.4|Matthew 8:4]] ([[Luke 5.14|Luke 5:14]]).
 
 *tell* no man that he was Jesus the Christ, [[Matthew 16.20|Matthew 16:20]] ([[Mark 8.30|Mark 8:30]]; [[Luke 9.21|Luke 9:21]]).
 
@@ -53,7 +52,7 @@ whether in the body, I cannot *tell*, [[2 Corinthians 12.2|2 Corinthians 12:2]].
 
 words of Christ will *tell* you all things what ye should do, [[2 Nephi 32.3|2 Nephi 32:3]].
 
-by the help of the all-powerful Creator ... I can *tell* you concerning your thoughts, [[Jacob 2.5|Jacob 2:5]].
+by the help of the all-powerful Creator … I can *tell* you concerning your thoughts, [[Jacob 2.5|Jacob 2:5]].
 
 I *tell* you by the spirit of prophecy, [[Alma 37.15|Alma 37:15]].
 
@@ -63,14 +62,14 @@ if I have *told* you things which no man knoweth, [[D&C 6.24|D&C 6:24]].
 
 I will *tell* you in your mind and in your heart, [[D&C 8.2|D&C 8:2]].
 
-thus he ... *telleth* them that it is no sin to lie, [[D&C 10.25|D&C 10:25]].
+thus he … *telleth* them that it is no sin to lie, [[D&C 10.25|D&C 10:25]].
 
 you cannot always *tell* the wicked from the righteous, [[D&C 10.37|D&C 10:37]].
 
 I will *tell* you that which no man knoweth save me, [[D&C 15.3|D&C 15:3]].
 
-Satan said unto Cain ... if thou *tell* it thou shalt die, [[Moses 5.29|Moses 5:29]].
+Satan said unto Cain … if thou *tell* it thou shalt die, [[Moses 5.29|Moses 5:29]].
 
 *Tell* us plainly who thou art, [[Moses 6.40|Moses 6:40]].
 
-Lord ... *told* Enoch all the doings of the children of men, [[Moses 7.41|Moses 7:41]].
+Lord … *told* Enoch all the doings of the children of men, [[Moses 7.41|Moses 7:41]].

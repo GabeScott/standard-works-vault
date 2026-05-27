@@ -5,4 +5,4 @@
 [Joseph Smith History 1:18](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.18?lang=eng#p18)
 
 
-[^a]: [[Exodus 18.15|Ex. 18:15]]; [[1 Samuel 9.9|1 Sam. 9:9]]; [[Alma 27.10|Alma 27:10 (7, 10)]]; [[D&C 6.11|D&C 6:11]]; [[D&C 46.7|46:7.]]
+[^a]: [[Exodus 18.15|Ex. 18:15]]; [[1 Samuel 9.9|1 Sam. 9:9]]; [[Alma 27.7|Alma 27:10 (7, 10)]][[Alma 27.10|]]; [[D&C 6.11|D&C 6:11]]; [[D&C 46.7|46:7]].  

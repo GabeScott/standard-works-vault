@@ -1,5 +1,7 @@
 # “Ye Shall Feast upon This Fruit”
 
+Thomas S. Monson
+
 By Janette C. Hales - *Young Women General President*
 
 *Given in the April session of the 1995 General Conference*
@@ -36,7 +38,7 @@ Corrie and her sister, Betsy, lived Christian lives in prewar Holland. They resp
 
 In an unusual way Corrie was able to keep a Bible. She led scripture readings with the other prisoners. Their outer world of suffering grew “harder and harder.” But she described their inner life as just the opposite. In her words:
 
-“Our Bible was the center of an ever-widening circle of help and hope. Like waifs clustered around a blazing fire, we gathered about it, holding out our hearts to its warmth and light. The blacker the night around us grew, the brighter and truer and more beautiful burned the word of God. …
+“Our Bible was the center of an ever-widening circle of help and hope. Like waifs clustered around a blazing fire, we gathered about it, holding out our hearts to its warmth and light. The blacker the night around us grew, the brighter and truer and more beautiful burned the word of God. …
 
 “Life … took place on two separate levels. One, the observable, external life, grew every day more horrible. The other, the life we lived with God, grew daily better, truth upon truth, glory upon glory” (Corrie ten Boom, *The Hiding Place,* New York City: Bantam Books, 1974, pp. 194–95).
 
@@ -61,8 +63,3 @@ This is our Heavenly Father’s promise to us if we respond to the invitation to
 
 
 
-
-
-
-
-#Scripture_Study #Young_Women

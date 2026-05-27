@@ -1,12 +1,14 @@
 # The Way of the Lord
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1977/10/the-way-of-the-lord?lang=eng)
 
-Frequently we sing the hymn, “Come, listen to a prophet’s voice and hear the word of God.” (*Hymns,* no. 46.) Today we have listened to the voice of a prophet, Spencer W. Kimball, proclaim the word of God.
+Frequently we sing the hymn, “Come, listen to a prophet’s voice and hear the word of God.” (*Hymns,* no. 46.) Today we have listened to the voice of a prophet, Spencer W. Kimball, proclaim the word of God.
 
 Humbly and prayerfully I seek Divine help as I speak to you from the crossroads of the West. Salt Lake City is a mecca for tourists from all parts of the globe. Thousands throng to the beautiful ski slopes of Alta, Brighton, Park City, and Snowbird each winter. Each summer the canyons of Bryce and Zion’s host thousands more. An attraction for all seasons is Temple Square, with its historic Tabernacle, lofty, spired temple, and the beautiful Visitors Center which bids to one and all a friendly welcome.
 
@@ -34,13 +36,13 @@ How implausible to her must have been Elijah’s response: “Fear not; go and d
 
 “And she went and did according to the saying of Elijah: and she, and he, and her house, did eat many days.
 
-“And the barrel of meal wasted not, neither did the cruse of oil fail.” ([[1 Kings 17.9|1 Kgs. 17:9–11, 13–16]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].) This is the faith that has ever motivated and inspired the welfare plan of the Lord.
+“And the barrel of meal wasted not, neither did the cruse of oil fail.” ([[1 Kings 17.9|1 Kgs. 17:9–11, 13–16]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].) This is the faith that has ever motivated and inspired the welfare plan of the Lord.
 
 In response to the second question, “How is your welfare plan financed?” one needs but to describe the fast offering principle. The prophet Isaiah described the true fast by asking, “Is it not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him; and that thou hide not thyself from thine own flesh?
 
 “Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the Lord shall be thy rereward.
 
-“Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. …
+“Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. …
 
 “And the Lord shall guide thee continually, and satisfy thy soul in drought: … and thou shalt be like a watered garden, and like a spring of water, whose waters fail not.” ([[Isaiah 58.7|Isa. 58:7–9, 11]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.11|]].)
 
@@ -65,8 +67,3 @@ To all within the sound of my voice I declare that the welfare plan of The Churc
 
 
 
-
-
-
-
-#Service #Welfare

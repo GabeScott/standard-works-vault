@@ -1,6 +1,8 @@
 # The Laborers in the Vineyard
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -10,7 +12,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 In light of the calls and releases the First Presidency has just announced, may I speak for all of us in saying we will remember and love always those who have served so faithfully, just as we immediately love and welcome those who now come into office. Our heartfelt thanks to every one of you.
 
-I wish to speak of the Savior’s parable in which a householder “went out early in the morning to hire labourers.” After employing the first group at 6:00 in the morning, he returned at 9:00 a.m., at 12:00 noon, and at 3:00 in the afternoon, hiring more workers as the urgency of the harvest increased. The scripture says he came back a final time, “about the eleventh hour” (approximately 5:00 p.m.), and hired a concluding number. Then just an hour later, all the workers gathered to receive their day’s wage. Surprisingly, all received the *same* wage in spite of the different hours of labor. Immediately, those hired first were angry, saying, “These last have wrought but one hour, and thou hast made them equal unto us, which have borne the burden and heat of the day.”[^1] When reading this parable, perhaps you, as well as those workers, have felt there was an injustice being done here. Let me speak briefly to that concern.
+I wish to speak of the Savior’s parable in which a householder “went out early in the morning to hire labourers.” After employing the first group at 6:00 in the morning, he returned at 9:00 a.m., at 12:00 noon, and at 3:00 in the afternoon, hiring more workers as the urgency of the harvest increased. The scripture says he came back a final time, “about the eleventh hour” (approximately 5:00 p.m.), and hired a concluding number. Then just an hour later, all the workers gathered to receive their day’s wage. Surprisingly, all received the *same* wage in spite of the different hours of labor. Immediately, those hired first were angry, saying, “These last have wrought but one hour, and thou hast made them equal unto us, which have borne the burden and heat of the day.”[^1] When reading this parable, perhaps you, as well as those workers, have felt there was an injustice being done here. Let me speak briefly to that concern.
 
 First of all it is important to note that *no one* has been treated unfairly here. The first workers agreed to the full wage of the day, and they received it. Furthermore, they were, I can only imagine, very grateful to get the work. In the time of the Savior, an average man and his family could not do much more than live on what they made that day. If you didn’t work or farm or fish or sell, you likely didn’t eat. With more prospective workers than jobs, these first men chosen were the most fortunate in the entire labor pool that morning.
 
@@ -53,12 +55,7 @@ So if you have made covenants, keep them. If you haven’t made them, make them.
 
 [^4]: [[Isaiah 55.1|Isaiah 55:1]].
 
-[^5]: [[2 Nephi 1.14|2 Nephi 1:14, 21]][[2 Nephi 1.21|]].
+[^5]: [[2 Nephi 1.14|2 Nephi 1:14, 21]][[2 Nephi 1.21|]].
 
-[^6]: “We Are All Enlisted,” *Hymns,* no. 250.
+[^6]: “We Are All Enlisted,” *Hymns,* no. 250.
 
-
-
-
-
-#Atonement #Covetousness #Grace #Jesus_Christ

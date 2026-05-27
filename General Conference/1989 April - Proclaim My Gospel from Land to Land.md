@@ -1,5 +1,7 @@
 # Proclaim My Gospel from Land to Land
 
+Ezra Taft Benson
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -8,7 +10,7 @@ By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 From the book of First Peter, we receive this counsel:
 
-“But sanctify the Lord God in your hearts: and be ready always to give an answer to every man that asketh you a reason of the hope that is in you.” ([[1 Peter 3.15|1 Pet. 3:15]].)
+“But sanctify the Lord God in your hearts: and be ready always to give an answer to every man that asketh you a reason of the hope that is in you.” ([[1 Peter 3.15|1 Pet. 3:15]].)
 
 We live in the most exciting era in the history of mankind. The potential for declaring the gospel to the peoples of the world has never been greater. Throughout many lands we have established stakes of Zion. Newly constructed and well-cared-for buildings make worship service inviting to all who attend. Trained priesthood leaders are being taught how to minister to the people and build faith in the gospel of our Lord and Savior, Jesus Christ. The Book of Mormon has been translated into many languages, making available this great doctrinal base of scripture to so many more of our Heavenly Father’s children. It is opening the way for their understanding of the blessings attendant to living the Lord’s law.
 
@@ -16,7 +18,7 @@ Technology has blessed mankind with the tools for teaching and communicating. Te
 
 Yet we see so much more to be done. Most of the world’s population still awaits the gospel message. Blessed with a strong foundation and a world prepared as never before to receive this message, this is surely the time to heed the words of our prophet, President Benson:
 
-“We are commanded by God to take this gospel to all the world. That is the cause that must unite us today. Only the gospel will save the world from the calamity of its own self-destruction. Only the gospel will unite men of all races and nationalities in peace. Only the gospel will bring joy, happiness, and salvation to the human family.” (*Teachings of Ezra Taft Benson,* Salt Lake City: Bookcraft, 1988, p. 167.)
+“We are commanded by God to take this gospel to all the world. That is the cause that must unite us today. Only the gospel will save the world from the calamity of its own self-destruction. Only the gospel will unite men of all races and nationalities in peace. Only the gospel will bring joy, happiness, and salvation to the human family.” (*Teachings of Ezra Taft Benson,* Salt Lake City: Bookcraft, 1988, p. 167.)
 
 The work grows in direct proportion to the number of messengers we have proclaiming the glad tidings. Last year we had the largest number of full-time missionaries serving in many lands in the history of the Church. Last year we also had the highest yield of convert baptisms. This is gratifying, but oh, so far from our potential. Still, many of our young men, young women, and couples have not heeded the prophet’s call to serve.
 
@@ -50,7 +52,7 @@ The third message is the testimony of our Lord and Savior. We declare to the wor
 
 We should develop as one of our teaching skills the presentation of the truthfulness of this book as another reliable, sound witness of the mission of our Lord and Savior. We should know its history and its content. For example, let us consider the miracle of the translation of the Book of Mormon by the Prophet Joseph Smith, with Oliver Cowdery acting as his scribe.
 
-After the 116 pages were lost when Martin Harris was allowed to take them home, the real translation began on April 7, 1829, two days after Oliver Cowdery arrived in Harmony, Pennsylvania, to serve as the Prophet’s scribe. By May 15, five weeks later, they had reached the account of the Savior’s ministry to the Nephites as contained in 3 Nephi, chapter 11.
+After the 116 pages were lost when Martin Harris was allowed to take them home, the real translation began on April 7, 1829, two days after Oliver Cowdery arrived in Harmony, Pennsylvania, to serve as the Prophet’s scribe. By May 15, five weeks later, they had reached the account of the Savior’s ministry to the Nephites as contained in 3 Nephi, chapter 11.
 
 By June 11 they had translated the last plates of Mormon, and it was on June 11 that the Prophet applied for a copyright. By June 30 the book was finished—from start to finish, no more than eighty-five days in translation time. However, with all that went on during these eighty-five days, it is apparent there were only sixty to sixty-five days in which the actual translation could have occurred.
 
@@ -60,7 +62,7 @@ This was an astonishing achievement! The text came through final copy, one time,
 
 The Book of Mormon purports to be a sacred history of the inhabitants of ancient America. It teaches of a faith in Christ and strongly urges obedience to His will; it also testifies of the divinity of Jesus of Nazareth, that He is the Son of God, the Savior of the world. Surely, we as members of the Church can prepare to be capable teachers of this second witness, the Book of Mormon, and what it gives to the world of the mission of our Lord and Savior.
 
-How do we approach a friend who needs the light and life of the gospel? Be a good example! Develop a meaningful and sincere relationship of caring. Be genuinely interested in your friend’s thoughts, feelings, and experiences involving our Eternal Father, the meaning of life, the reason for families, and the mission of our Savior. Have an enjoyable, edifying experience listening to your friends. Then, as President Kimball once said, “We have a double responsibility: we must testify of the things we know, feel, and have felt, and we must live so the Holy Ghost can be with us and convey our words in power to the heart of the investigator” (“It Becometh Every Man,” *Ensign,* Oct. 1977, p. 5).
+How do we approach a friend who needs the light and life of the gospel? Be a good example! Develop a meaningful and sincere relationship of caring. Be genuinely interested in your friend’s thoughts, feelings, and experiences involving our Eternal Father, the meaning of life, the reason for families, and the mission of our Savior. Have an enjoyable, edifying experience listening to your friends. Then, as President Kimball once said, “We have a double responsibility: we must testify of the things we know, feel, and have felt, and we must live so the Holy Ghost can be with us and convey our words in power to the heart of the investigator” (“It Becometh Every Man,” *Ensign,* Oct. 1977, p. 5).
 
 The only hope I can find in this troubled world is to have the standards by which our lives are governed firmly grounded in the gospel of our Lord and Savior.
 
@@ -69,8 +71,3 @@ May each of us be prepared and have the courage to share this greatest of all gi
 
 
 
-
-
-
-
-#Book_Of_Mormon #Missionary_Work #Plan_Of_Salvation

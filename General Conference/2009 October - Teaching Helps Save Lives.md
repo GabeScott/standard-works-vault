@@ -1,5 +1,7 @@
 # Teaching Helps Save Lives
 
+Thomas S. Monson
+
 By Russell T. Osguthorpe - *Sunday School General President*
 
 *Given in the October session of the 2009 General Conference*
@@ -12,13 +14,13 @@ One day while serving as a mission president, I was talking on the phone to our 
 
 Our son treats children with life-threatening illnesses. When he is able to diagnose a disease properly and give the right treatment, he can save a child’s life. I told our missionaries that their work is also to help save lives—the spiritual lives of those they teach.
 
-President Joseph F. Smith said: “When \[we receive\] the truth \[we\] will be saved by it. \[We\] will not be saved merely because someone taught it to \[us\], but because \[we\] received and acted upon it” (in Conference Report, Apr. 1902, 86; see also *Teaching, No Greater Call* \[1999\], 49; [[1 Timothy 4.16|1 Timothy 4:16]]).
+President Joseph F. Smith said: “When \[we receive\] the truth \[we\] will be saved by it. \[We\] will not be saved merely because someone taught it to \[us\], but because \[we\] received and acted upon it” (in Conference Report, Apr. 1902, 86; see also *Teaching, No Greater Call* \[1999\], 49; [[1 Timothy 4.16|1 Timothy 4:16]]).
 
-Our son saves lives by sharing his knowledge of medicine; missionaries and teachers in the Church help save lives by sharing their knowledge of the gospel. When missionaries and teachers draw upon the Spirit, they teach the appropriate principle, invite their learners to live that principle, and bear witness of the promised blessings that will certainly follow. Elder David A. Bednar shared these three simple elements of effective teaching in a recent training meeting: (1) key doctrine, (2) invitation to action, and (3) promised blessings.
+Our son saves lives by sharing his knowledge of medicine; missionaries and teachers in the Church help save lives by sharing their knowledge of the gospel. When missionaries and teachers draw upon the Spirit, they teach the appropriate principle, invite their learners to live that principle, and bear witness of the promised blessings that will certainly follow. Elder David A. Bednar shared these three simple elements of effective teaching in a recent training meeting: (1) key doctrine, (2) invitation to action, and (3) promised blessings.
 
 The guide *Preach My Gospel* helps missionaries teach key doctrine and invite those they teach to take action and receive promised blessings. The guide *Teaching, No Greater Call* helps parents and teachers do the same. It is to gospel teaching what *Preach My Gospel* is to missionary work. We use them to prepare to teach, and then we draw upon the Spirit as we teach.
 
-President Thomas S. Monson tells of a Sunday School teacher from his youth, Lucy Gertsch. One Sunday, partway through a lesson about selfless service, Sister Gertsch invited her students to give their class party fund to the family of one of their classmates whose mother had passed away. President Monson said that in giving that invitation to action, Sister Gertsch had “closed the manual and opened our eyes and our ears and our hearts to the glory of God” (“Examples of Great Teachers” \[worldwide leadership training meeting, Feb. 10, 2007\], *Liahona,* June 2007, 76; *Ensign,* June 2007, 108). Sister Gertsch had clearly used the manual to prepare her lesson, but when inspiration came, she closed the manual and invited her students to live the gospel principle she was teaching.
+President Thomas S. Monson tells of a Sunday School teacher from his youth, Lucy Gertsch. One Sunday, partway through a lesson about selfless service, Sister Gertsch invited her students to give their class party fund to the family of one of their classmates whose mother had passed away. President Monson said that in giving that invitation to action, Sister Gertsch had “closed the manual and opened our eyes and our ears and our hearts to the glory of God” (“Examples of Great Teachers” \[worldwide leadership training meeting, Feb. 10, 2007\], *Liahona,* June 2007, 76; *Ensign,* June 2007, 108). Sister Gertsch had clearly used the manual to prepare her lesson, but when inspiration came, she closed the manual and invited her students to live the gospel principle she was teaching.
 
 As President Monson has taught: “The goal of gospel teaching … is not to ‘pour information’ into the minds of class members. … *The aim is to inspire the individual to think about, feel about, and then do something about living gospel principles*” (in Conference Report, Oct. 1970, 107; italics in original).
 
@@ -71,8 +73,3 @@ I know that God lives. I testify that Jesus is the Christ. I bear witness that t
 
 
 
-
-
-
-
-#Education #Spirituality #Teaching

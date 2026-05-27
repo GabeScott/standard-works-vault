@@ -1,6 +1,8 @@
 # Eyes to See and Ears to Hear
 
-By Elder Kim B. Clark - *Of the Seventy*
+Rosemary M. Wixom
+
+By Elder Kim B. Clark - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -28,7 +30,7 @@ These gifts and blessings strengthened the Lord’s disciples. Although the time
 
 We have much in common with those faithful men and women in the meridian of time. We too live in a time when the Lord Jesus Christ works miracles among us—including healing the sick, cleansing us from sin, changing our hearts, and opening salvation to God’s children on both sides of the veil. In our time we also have living prophets and apostles, priesthood power, spiritual gifts, and the supernal blessings of the ordinances of salvation.
 
-Our time is a dangerous time—a time of great evil and temptation, a time of confusion and commotion. In these perilous times, the Lord’s prophet on the earth, President Thomas S. Monson, has called us to rescue the wounded in spirit,[^12] to stand for truth with courage,[^13] and to build the kingdom of God.[^14] Whatever level of spirituality or faith or obedience we now have, it will not be sufficient for the work that lies ahead. We need greater spiritual light and power. We need eyes to see more clearly the Savior working in our lives and ears to hear His voice more deeply in our hearts.
+Our time is a dangerous time—a time of great evil and temptation, a time of confusion and commotion. In these perilous times, the Lord’s prophet on the earth, President Thomas S. Monson, has called us to rescue the wounded in spirit,[^12] to stand for truth with courage,[^13] and to build the kingdom of God.[^14] Whatever level of spirituality or faith or obedience we now have, it will not be sufficient for the work that lies ahead. We need greater spiritual light and power. We need eyes to see more clearly the Savior working in our lives and ears to hear His voice more deeply in our hearts.
 
 This marvelous blessing comes when we open our hearts and receive[^15]—truly receive—the Lord Jesus Christ, His doctrine, and His Church into our lives. We do not have to be perfect, but we need to be good and getting better. We need to strive to live the plain and simple truths of the gospel. If we take upon us the name of Christ, act with faith in Him to repent of our sins, keep His commandments, and always remember Him, we will receive the companionship of the Holy Ghost through the mercy and grace of Jesus Christ.
 
@@ -57,7 +59,7 @@ Brothers and sisters, I bear witness of Jesus Christ. I know He lives. He is our
 
 [^2]: See [[John 6.66|John 6:66]].
 
-[^3]: [[3 Nephi 9.16|3 Nephi 9:16]].
+[^3]: [[3 Nephi 9.16|3 Nephi 9:16]].
 
 [^4]: [[Acts 28.27|Acts 28:27]]; see also [[Matthew 13.15|Matthew 13:15]].
 
@@ -75,21 +77,19 @@ Brothers and sisters, I bear witness of Jesus Christ. I know He lives. He is our
 
 [^11]: See [[Acts 4.8|Acts 4:8–12]][[Acts 4.9|]][[Acts 4.10|]][[Acts 4.11|]][[Acts 4.12|]].
 
-[^12]: See Thomas S. Monson, [“Looking Back and Moving Forward,”](https://churchofjesuschrist.org/study/ensign/2008/05/looking-back-and-moving-forward?lang=eng) *Ensign* or *Liahona,* May 2008, 90.
+[^12]: See Thomas S. Monson, “[Looking Back and Moving Forward](https://www.churchofjesuschrist.org/study/ensign/2008/05/looking-back-and-moving-forward?lang=eng),” *Ensign* or *Liahona,* May 2008, 90.
 
-[^13]: See Thomas S. Monson, [“Be Strong and of a Good Courage,”](https://churchofjesuschrist.org/study/ensign/2014/05/priesthood-session/be-strong-and-of-a-good-courage?lang=eng) *Ensign* or *Liahona,* May 2014, 66–69.
+[^13]: See Thomas S. Monson, “[Be Strong and of a Good Courage](https://www.churchofjesuschrist.org/study/ensign/2014/05/priesthood-session/be-strong-and-of-a-good-courage?lang=eng),” *Ensign* or *Liahona,* May 2014, 66–69.
 
-[^14]: See Thomas S. Monson, “Faith in the Work of Salvation,” *Worldwide Leadership Training Meeting,* June 2013, [lds.org/broadcasts](https://churchofjesuschrist.org/study/broadcasts/article/worldwide-leadership-training/2013/06/faith-in-the-work-of-salvation?lang=eng).
+[^14]: See Thomas S. Monson, “Faith in the Work of Salvation,” *Worldwide Leadership Training Meeting,* June 2013, [lds.org/broadcasts](https://www.churchofjesuschrist.org/study/broadcasts/article/worldwide-leadership-training/2013/06/faith-in-the-work-of-salvation?lang=eng).
 
-[^15]: The word *receive* has several meanings that are important in this context: “to assimilate through the mind or senses,” “to permit to enter,” to accept as true, to believe, and to welcome (see *Merriam-Webster’s Collegiate Dictionary,* 11th ed. \[2003\], “receive”).
+[^15]: The word *receive* has several meanings that are important in this context: “to assimilate through the mind or senses,” “to permit to enter,” to accept as true, to believe, and to welcome (see *Merriam-Webster’s Collegiate Dictionary,* 11th ed. \[2003\], “receive”).
 
 [^16]: See [[D&C 18.34|Doctrine and Covenants 18:34–36]][[D&C 18.35|]][[D&C 18.36|]]; [[D&C 68.3|68:3–4]][[D&C 68.4|]].
 
-[^17]: President Harold B. Lee taught that this witness was essential to becoming converted unto the Lord (see “Be Loyal to the Royal within You” \[Brigham Young University devotional, Sept. 11, 1973\], 4, [speeches.byu.edu](https://speeches.byu.edu/talks/harold-b-lee/loyal-royal-within)).
+[^17]: President Harold B. Lee taught that this witness was essential to becoming converted unto the Lord (see “Be Loyal to the Royal within You” \[Brigham Young University devotional, Sept. 11, 1973\], 4, [speeches.byu.edu](https://speeches.byu.edu/talks/harold-b-lee/loyal-royal-within)).
 
-[^18]: [[1 Corinthians 2.16|1 Corinthians 2:16]].
+[^18]: [[1 Corinthians 2.16|1 Corinthians 2:16]].
 
+[^19]: [[Alma 27.17|Alma 27:17]]; see also [[Alma 31.38|Alma 31:38]].
 
-
-
-#Adversity #Holy_Ghost #Jesus_Christ #Obedience #Prophets

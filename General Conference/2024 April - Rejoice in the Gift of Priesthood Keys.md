@@ -1,6 +1,8 @@
 # Rejoice in the Gift of Priesthood Keys
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Dallin H. Oaks
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -8,17 +10,17 @@ By President Russell M. Nelson - *President of The Church of Jesus Christ of La
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/04/57nelson?lang=eng)
 
-My dear brothers and sisters, today is an historic day for President Dallin H. Oaks and me. It was 40 years ago, on April 7, 1984, when we were sustained to the Quorum of the Twelve Apostles.[^1] We have rejoiced in each and every general conference since then, including this one. We have once again been blessed with a sacred outpouring of the Spirit. I hope you will repeatedly study the messages of this conference throughout the coming months.
+My dear brothers and sisters, today is an historic day for President Dallin H. Oaks and me. It was 40 years ago, on April 7, 1984, when we were sustained to the Quorum of the Twelve Apostles.[^1] We have rejoiced in each and every general conference since then, including this one. We have once again been blessed with a sacred outpouring of the Spirit. I hope you will repeatedly study the messages of this conference throughout the coming months.
 
 When I was born,[^2] there were six functioning temples in the Church—one each in St. George, Logan, Manti, and Salt Lake City, Utah; as well as in Cardston, Alberta, Canada; and Laie, Hawaii. Two earlier temples had functioned briefly in Kirtland, Ohio, and Nauvoo, Illinois. As the body of the Church moved west, the Saints were forced to leave those two temples behind.
 
-The Nauvoo Temple was destroyed by an arsonist’s fire. It was rebuilt and then dedicated by President Gordon B. Hinckley.[^3] The Kirtland Temple was desecrated by enemies of the Church. Later the Kirtland Temple was acquired by Community of Christ, which has owned it for many years.
+The Nauvoo Temple was destroyed by an arsonist’s fire. It was rebuilt and then dedicated by President Gordon B. Hinckley.[^3] The Kirtland Temple was desecrated by enemies of the Church. Later the Kirtland Temple was acquired by Community of Christ, which has owned it for many years.
 
 Last month we announced that The Church of Jesus Christ of Latter-day Saints has purchased the Kirtland Temple, along with several significant historic sites in Nauvoo. We greatly appreciate the cordial and mutually beneficial discussions we had with leaders from Community of Christ that led to this agreement.
 
 The Kirtland Temple has unusual significance in the Restoration of the gospel of Jesus Christ. Several events that took place there had been prophesied for millennia and were essential for the Lord’s restored Church to fulfill its latter-day mission.
 
-The most important of these events occurred on Easter Sunday, April 3, 1836.[^4] On that day, Joseph Smith and Oliver Cowdery experienced a *series* of remarkable visitations. First, the Lord Jesus Christ appeared. The Prophet recorded that the Savior’s “eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters.”[^5]
+The most important of these events occurred on Easter Sunday, April 3, 1836.[^4] On that day, Joseph Smith and Oliver Cowdery experienced a *series* of remarkable visitations. First, the Lord Jesus Christ appeared. The Prophet recorded that the Savior’s “eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters.”[^5]
 
 During this visitation, the Lord affirmed His identity. He said, “I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father.”[^6]
 
@@ -54,7 +56,7 @@ I invite you to consider carefully the following three statements:
 
 Priesthood keys restored through the Prophet Joseph Smith make it possible for *every* covenant-keeping man and woman to enjoy incredible *personal* spiritual privileges. Here again, there is much we can learn from the sacred history of the Kirtland Temple.
 
-Joseph Smith’s dedicatory prayer of the Kirtland Temple is a tutorial about how the temple spiritually empowers you and me to meet the challenges of life in these last days. I encourage you to study that prayer, recorded in [[D&C 109.1|Doctrine and Covenants section 109]][[D&C 109.2|]][[D&C 109.3|]][[D&C 109.4|]][[D&C 109.5|]][[D&C 109.6|]][[D&C 109.7|]][[D&C 109.8|]][[D&C 109.9|]][[D&C 109.10|]][[D&C 109.11|]][[D&C 109.12|]][[D&C 109.13|]][[D&C 109.14|]][[D&C 109.15|]][[D&C 109.16|]][[D&C 109.17|]][[D&C 109.18|]][[D&C 109.19|]][[D&C 109.20|]][[D&C 109.21|]][[D&C 109.22|]][[D&C 109.23|]][[D&C 109.24|]][[D&C 109.25|]][[D&C 109.26|]][[D&C 109.27|]][[D&C 109.28|]][[D&C 109.29|]][[D&C 109.30|]][[D&C 109.31|]][[D&C 109.32|]][[D&C 109.33|]][[D&C 109.34|]][[D&C 109.35|]][[D&C 109.36|]][[D&C 109.37|]][[D&C 109.38|]][[D&C 109.39|]][[D&C 109.40|]][[D&C 109.41|]][[D&C 109.42|]][[D&C 109.43|]][[D&C 109.44|]][[D&C 109.45|]][[D&C 109.46|]][[D&C 109.47|]][[D&C 109.48|]][[D&C 109.49|]][[D&C 109.50|]][[D&C 109.51|]][[D&C 109.52|]][[D&C 109.53|]][[D&C 109.54|]][[D&C 109.55|]][[D&C 109.56|]][[D&C 109.57|]][[D&C 109.58|]][[D&C 109.59|]][[D&C 109.60|]][[D&C 109.61|]][[D&C 109.62|]][[D&C 109.63|]][[D&C 109.64|]][[D&C 109.65|]][[D&C 109.66|]][[D&C 109.67|]][[D&C 109.68|]][[D&C 109.69|]][[D&C 109.70|]][[D&C 109.71|]][[D&C 109.72|]][[D&C 109.73|]][[D&C 109.74|]][[D&C 109.75|]][[D&C 109.76|]][[D&C 109.77|]][[D&C 109.78|]][[D&C 109.79|]][[D&C 109.80|]]. That dedicatory prayer, which was *received by revelation*, teaches that the temple is “a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God.”[^18]
+Joseph Smith’s dedicatory prayer of the Kirtland Temple is a tutorial about how the temple spiritually empowers you and me to meet the challenges of life in these last days. I encourage you to study that prayer, recorded in [[D&C 109.1|Doctrine and Covenants section 109]][[D&C 109.2|]][[D&C 109.3|]][[D&C 109.4|]][[D&C 109.5|]][[D&C 109.6|]][[D&C 109.7|]][[D&C 109.8|]][[D&C 109.9|]][[D&C 109.10|]][[D&C 109.11|]][[D&C 109.12|]][[D&C 109.13|]][[D&C 109.14|]][[D&C 109.15|]][[D&C 109.16|]][[D&C 109.17|]][[D&C 109.18|]][[D&C 109.19|]][[D&C 109.20|]][[D&C 109.21|]][[D&C 109.22|]][[D&C 109.23|]][[D&C 109.24|]][[D&C 109.25|]][[D&C 109.26|]][[D&C 109.27|]][[D&C 109.28|]][[D&C 109.29|]][[D&C 109.30|]][[D&C 109.31|]][[D&C 109.32|]][[D&C 109.33|]][[D&C 109.34|]][[D&C 109.35|]][[D&C 109.36|]][[D&C 109.37|]][[D&C 109.38|]][[D&C 109.39|]][[D&C 109.40|]][[D&C 109.41|]][[D&C 109.42|]][[D&C 109.43|]][[D&C 109.44|]][[D&C 109.45|]][[D&C 109.46|]][[D&C 109.47|]][[D&C 109.48|]][[D&C 109.49|]][[D&C 109.50|]][[D&C 109.51|]][[D&C 109.52|]][[D&C 109.53|]][[D&C 109.54|]][[D&C 109.55|]][[D&C 109.56|]][[D&C 109.57|]][[D&C 109.58|]][[D&C 109.59|]][[D&C 109.60|]][[D&C 109.61|]][[D&C 109.62|]][[D&C 109.63|]][[D&C 109.64|]][[D&C 109.65|]][[D&C 109.66|]][[D&C 109.67|]][[D&C 109.68|]][[D&C 109.69|]][[D&C 109.70|]][[D&C 109.71|]][[D&C 109.72|]][[D&C 109.73|]][[D&C 109.74|]][[D&C 109.75|]][[D&C 109.76|]][[D&C 109.77|]][[D&C 109.78|]][[D&C 109.79|]][[D&C 109.80|]]. That dedicatory prayer, which was *received by revelation*, teaches that the temple is “a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God.”[^18]
 
 This list of attributes is much more than a description of a temple. It is a promise about what will happen to those who serve and worship in the house of the Lord. They can *expect* to receive answers to prayer, personal revelation, greater faith, strength, comfort, increased knowledge, and increased power.
 
@@ -70,7 +72,7 @@ Understanding the spiritual privileges made possible in the temple is vital to e
 
 My dear brothers and sisters, here is my promise. Nothing will help you *more* to hold fast to the iron rod[^22] than worshipping in the temple as regularly as your circumstances permit. Nothing will protect you *more* as you encounter the world’s mists of darkness. Nothing will bolster your testimony of the Lord Jesus Christ and His Atonement or help you understand God’s magnificent plan *more*. Nothing will soothe your spirit *more* during times of pain. Nothing will open the heavens *more*. Nothing!
 
-The temple *is* the gateway to the greatest blessings God has in store for each of us, for the temple is the only place on earth where we may receive *all* of the blessings promised to Abraham.[^23] That is why we are doing all within our power, under the direction of the Lord, to make the temple blessings more accessible to members of the Church. Thus, we are pleased to announce that we plan to build a new temple in each of the following 15 locations:
+The temple *is* the gateway to the greatest blessings God has in store for each of us, for the temple is the only place on earth where we may receive *all* of the blessings promised to Abraham.[^23] That is why we are doing all within our power, under the direction of the Lord, to make the temple blessings more accessible to members of the Church. Thus, we are pleased to announce that we plan to build a new temple in each of the following 15 locations:
 
 - Uturoa, French Polynesia
 
@@ -109,11 +111,11 @@ Let us *rejoice* in the restoration of priesthood keys, which make it possible f
 
 
 
-[^1]: I filled the vacancy in the Quorum of the Twelve left by the January 11, 1983, death of Elder LeGrand Richards. Elder Oaks filled that which was left by the January 11, 1984, death of Mark E. Petersen.
+[^1]: I filled the vacancy in the Quorum of the Twelve left by the January 11, 1983, death of Elder LeGrand Richards. Elder Oaks filled that which was left by the January 11, 1984, death of Mark E. Petersen.
 
-[^2]: September 9, 1924.
+[^2]: September 9, 1924.
 
-[^3]: The dedication of the rebuilt Nauvoo Illinois Temple by President Gordon B. Hinckley occurred on June 27, 2002, the 158th anniversary of the martyrdom of Joseph and Hyrum Smith.
+[^3]: The dedication of the rebuilt Nauvoo Illinois Temple by President Gordon B. Hinckley occurred on June 27, 2002, the 158th anniversary of the martyrdom of Joseph and Hyrum Smith.
 
 [^4]: Just one week after the Prophet Joseph Smith dedicated the Kirtland Temple.
 
@@ -125,13 +127,13 @@ Let us *rejoice* in the restoration of priesthood keys, which make it possible f
 
 [^8]: See [[D&C 110.11|Doctrine and Covenants 110:11]].
 
-[^9]: [[D&C 110.12|Doctrine and Covenants 110:12]]. This was a perpetuation of the promise the Lord had made to Abraham thousands of years earlier (see [[Genesis 18.18|Genesis 18:18]]; [[1 Nephi 15.18|1 Nephi 15:18]]).
+[^9]: [[D&C 110.12|Doctrine and Covenants 110:12]]. This was a perpetuation of the promise the Lord had made to Abraham thousands of years earlier (see [[Genesis 18.18|Genesis 18:18]]; [[1 Nephi 15.18|1 Nephi 15:18]]).
 
 [^10]: See [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]].
 
 [^11]: See [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-[^12]: See [[D&C 13.1|Doctrine and Covenants 13]]; [[D&C 27.7|27:7–8, 12]][[D&C 27.8|]][[D&C 27.12|]].
+[^12]: See [[D&C 13.1|Doctrine and Covenants 13]]; [[D&C 27.7|27:7–8, 12]][[D&C 27.8|]][[D&C 27.12|]].
 
 [^13]: See [[D&C 20.1|Doctrine and Covenants 20:1–4]][[D&C 20.2|]][[D&C 20.3|]][[D&C 20.4|]].
 
@@ -141,7 +143,7 @@ Let us *rejoice* in the restoration of priesthood keys, which make it possible f
 
 [^16]: See [[D&C 132.45|Doctrine and Covenants 132:45–46]][[D&C 132.46|]].
 
-[^17]: [[2 Nephi 26.33|2 Nephi 26:33]]; emphasis added.
+[^17]: [[2 Nephi 26.33|2 Nephi 26:33]]; emphasis added.
 
 [^18]: [[D&C 109.8|Doctrine and Covenants 109:8]].
 
@@ -155,8 +157,3 @@ Let us *rejoice* in the restoration of priesthood keys, which make it possible f
 
 [^23]: See [[D&C 110.12|Doctrine and Covenants 110:12]]; [[D&C 132.29|132:29–30]][[D&C 132.30|]].
 
-
-
-
-
-#Covenants #Joseph_Smith #Priesthood_Keys #Temple_Work #Temples

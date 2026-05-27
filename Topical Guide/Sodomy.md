@@ -1,4 +1,3 @@
 # Sodomy
 
-
-*See* [[Homosexual Behavior.md|Homosexual Behavior]]
+*See also* [[Homosexual Behavior.md|Homosexual Behavior]]

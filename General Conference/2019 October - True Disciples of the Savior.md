@@ -1,6 +1,8 @@
 # True Disciples of the Savior
 
-By Elder Terence M. Vinson - *Of the Presidency of the Seventy*
+Jeffrey R. Holland
+
+By Elder Terence M. Vinson - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -38,7 +40,7 @@ Lessons were learned from this parable of the fat lip and the broken jaw. Despit
 
 Giving our all doesn’t mean that we will be continually enveloped in blessings or always have success. But it does mean that we will have joy. Joy is not fleeting pleasure or even temporary happiness. Joy is enduring and is founded on our efforts being accepted by the Lord.[^3]
 
-An example of such acceptance is the story of Oliver Granger. As President Boyd K. Packer stated: “When the Saints were driven from Kirtland, … Oliver was left behind to sell their properties for what little he could. There was not much chance that he could succeed. And, really, he did not succeed!”[^4] He had been commissioned by the First Presidency to do a task that was difficult, if not impossible. But the Lord commended him for his apparently unsuccessful efforts in these words:
+An example of such acceptance is the story of Oliver Granger. As President Boyd K. Packer stated: “When the Saints were driven from Kirtland, … Oliver was left behind to sell their properties for what little he could. There was not much chance that he could succeed. And, really, he did not succeed!”[^4] He had been commissioned by the First Presidency to do a task that was difficult, if not impossible. But the Lord commended him for his apparently unsuccessful efforts in these words:
 
 “I remember my servant Oliver Granger; behold, verily I say unto him that his name shall be had in sacred remembrance from generation to generation, forever and ever, saith the Lord.
 
@@ -79,11 +81,11 @@ Are we true followers of Him who gave His all for us? He who is our Redeemer and
 
 [^1]: [[Haggai 1.4|Haggai 1:4–7]][[Haggai 1.5|]][[Haggai 1.6|]][[Haggai 1.7|]].
 
-[^2]: See [[John 15.11|John 15:11]]; [[Romans 14.17|Romans 14:17]]; [[2 Corinthians 8.2|2 Corinthians 8:2]]; [[Hebrews 12.2|Hebrews 12:2]]; [[Moses 5.10|Moses 5:10]], [[Moses 7.53|7:53]].
+[^2]: See [[John 15.11|John 15:11]]; [[Romans 14.17|Romans 14:17]]; [[2 Corinthians 8.2|2 Corinthians 8:2]]; [[Hebrews 12.2|Hebrews 12:2]]; [[Moses 5.10|Moses 5:10]], [[Moses 7.53|7:53]].
 
 [^3]: See [[Enos 1.3|Enos 1:3–6, 27]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.27|]]; [[D&C 52.15|Doctrine and Covenants 52:15]]; [[D&C 97.8|97:8–9]][[D&C 97.9|]].
 
-[^4]: Boyd K. Packer, “[[2004 October - The Least of These.md|The Least of These]],” *Ensign* or *Liahona,* Nov. 2004, 86.
+[^4]: Boyd K. Packer, “[[2004 October - The Least of These.md|The Least of These]],” *Ensign* or *Liahona,* Nov. 2004, 86.
 
 [^5]: [[D&C 117.12|Doctrine and Covenants 117:12–13]][[D&C 117.13|]].
 
@@ -95,10 +97,5 @@ Are we true followers of Him who gave His all for us? He who is our Redeemer and
 
 [^9]: See [[Revelation 3.15|Revelation 3:15–16]][[Revelation 3.16|]].
 
-[^10]: [[2 Nephi 33.6|2 Nephi 33:6]].
+[^10]: [[2 Nephi 33.6|2 Nephi 33:6]].
 
-
-
-
-
-#Commitment #Discipleship

@@ -1,6 +1,8 @@
 # Success Stories
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -87,8 +89,3 @@ And may the Lord bless us with a sufficient amount of his success that we might 
 
 
 
-
-
-
-
-#Success

@@ -1,15 +1,14 @@
 # Wonder
 
-
 *See also* [[Astonished.md|Astonished]]; [[Marvel.md|Marvel]]; [[Miracle.md|Miracle]]; [[Signs.md|Signs]]
 
 smite Egypt with all my *wonders*, [[Exodus 3.20|Exodus 3:20]].
 
-take him a nation from the midst of another nation ... by *wonders*, [[Deuteronomy 4.34|Deuteronomy 4:34]].
+take him a nation from the midst of another nation … by *wonders*, [[Deuteronomy 4.34|Deuteronomy 4:34]].
 
 Thou art the God that doest *wonders*, [[Psalms 77.14|Psalms 77:14]].
 
-will proceed to do ... a marvellous work and a *wonder*, [[Isaiah 29.14|Isaiah 29:14]] ([[2 Nephi 25.17|2 Nephi 25:17]]; [[2 Nephi 27.26|2 Nephi 27:26]]).
+will proceed to do … a marvellous work and a *wonder*, [[Isaiah 29.14|Isaiah 29:14]] ([[2 Nephi 25.17|2 Nephi 25:17]]; [[2 Nephi 27.26|2 Nephi 27:26]]).
 
 I *wondered* that there was none to uphold, [[Isaiah 63.5|Isaiah 63:5]].
 
@@ -25,7 +24,7 @@ they yet believed not for joy, and *wondered*, [[Luke 24.41|Luke 24:41]].
 
 When Moses saw it, he *wondered* at the sight, [[Acts 7.31|Acts 7:31]].
 
-Simon ... *wondered*, beholding the miracles and signs, [[Acts 8.13|Acts 8:13]].
+Simon … *wondered*, beholding the miracles and signs, [[Acts 8.13|Acts 8:13]].
 
 God also bearing them witness, both with signs and *wonders*, [[Hebrews 2.4|Hebrews 2:4]].
 
@@ -37,9 +36,9 @@ he doeth great *wonders*, [[Revelation 13.13|Revelation 13:13]].
 
 turn their hearts aside, rejecting signs and *wonders*, [[1 Nephi 19.13|1 Nephi 19:13]].
 
-instrument in the hands of God ... to work mighty *wonders*, [[2 Nephi 3.24|2 Nephi 3:24]].
+instrument in the hands of God … to work mighty *wonders*, [[2 Nephi 3.24|2 Nephi 3:24]].
 
-many signs, and *wonders* ... showed he unto them, [[Mosiah 3.15|Mosiah 3:15]].
+many signs, and *wonders* … showed he unto them, [[Mosiah 3.15|Mosiah 3:15]].
 
 there shall be many signs and *wonders*, [[Helaman 14.6|Helaman 14:6]] ([[3 Nephi 1.22|3 Nephi 1:22]]).
 

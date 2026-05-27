@@ -1,4 +1,3 @@
 # Worry
 
-
-*See* [[Fearful.md|Fearful]]
+*See also* [[Fearful.md|Fearful]]

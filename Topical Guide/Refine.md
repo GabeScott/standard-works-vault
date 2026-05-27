@@ -1,11 +1,10 @@
 # Refine
 
-
 *See also* [[Refiner.md|Refiner]]
 
 I have *refined* thee, but not with silver, [[Isaiah 48.10|Isaiah 48:10]] ([[1 Nephi 20.10|1 Nephi 20:10]]).
 
-I ... will *refine* them as silver is *refined*, [[Zechariah 13.9|Zechariah 13:9]].
+I … will *refine* them as silver is *refined*, [[Zechariah 13.9|Zechariah 13:9]].
 
 work all kinds of ore and did *refine* it, [[Helaman 6.11|Helaman 6:11]].
 

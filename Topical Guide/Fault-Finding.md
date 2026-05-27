@@ -1,4 +1,3 @@
 # Fault-Finding
 
-
-*See* [[Backbiting.md|Backbiting]]; [[Gossip.md|Gossip]]
+*See also* [[Backbiting.md|Backbiting]]; [[Gossip.md|Gossip]]

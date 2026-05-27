@@ -1,5 +1,7 @@
 # Charity: Perfect and Everlasting Love
 
+Gordon B. Hinckley
+
 By Elder Gene R. Cook - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -61,9 +63,9 @@ The prophet of the Lord here before you loves you, as do all these, my Brethren.
 
 [^1]: [[Moroni 7.47|Moro. 7:47]].
 
-[^2]: See [[1 Nephi 11.22|1 Ne. 11:22–23]][[1 Nephi 11.23|]]; [[1 Nephi 8.10|8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
+[^2]: See [[1 Nephi 11.22|1 Ne. 11:22–23]][[1 Nephi 11.23|]]; [[1 Nephi 8.10|8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
 
-[^3]: [[1 Nephi 15.36|1 Ne. 15:36]].
+[^3]: [[1 Nephi 15.36|1 Ne. 15:36]].
 
 [^4]: [[Moroni 8.17|Moro. 8:17]].
 
@@ -81,21 +83,21 @@ The prophet of the Lord here before you loves you, as do all these, my Brethren.
 
 [^11]: Some destroyers of men’s love and peace include but are not limited to fear, perfectionism, envy, unsubmissiveness, doubt, anger, jealousy, unrighteous control, unbelief, impatience, judging, fostering hurt feelings, pride, contention, murmuring, seeking for honor, competition, and lying. All of these are of the natural man, and not of the man of Christ.
 
-[^12]: See [[1 John 4.19|1 Jn. 4:19]].
+[^12]: See [[1 John 4.19|1 Jn. 4:19]].
 
-[^13]: See [[D&C 138.13|D&C 138:13]]. My friend knew the suffering would help her prove herself (see [[Abraham 3.24|Abr. 3:24–25]][[Abraham 3.25|]]; [[D&C 98.13|D&C 98:13–14]][[D&C 98.14|]]); learn to choose between good and evil (see [[2 Nephi 2.18|2 Ne. 2:18]]); learn that blessings come after the trials (see [[D&C 58.2|D&C 58:2–4]][[D&C 58.3|]][[D&C 58.4|]]); learn obedience, patience, and faith (see [[D&C 105.6|D&C 105:6]]; [[Mosiah 23.21|Mosiah 23:21]]; [[Romans 5.3|Rom. 5:3–5]][[Romans 5.4|]][[Romans 5.5|]]); obtain a forgiveness of sin (see [[Helaman 15.3|Hel. 15:3]]; [[D&C 132.50|D&C 132:50, 60]][[D&C 132.60|]]; [[D&C 95.1|D&C 95:1]]).
+[^13]: See [[D&C 138.13|D&C 138:13]]. My friend knew the suffering would help her prove herself (see [[Abraham 3.24|Abr. 3:24–25]][[Abraham 3.25|]]; [[D&C 98.13|D&C 98:13–14]][[D&C 98.14|]]); learn to choose between good and evil (see [[2 Nephi 2.18|2 Ne. 2:18]]); learn that blessings come after the trials (see [[D&C 58.2|D&C 58:2–4]][[D&C 58.3|]][[D&C 58.4|]]); learn obedience, patience, and faith (see [[D&C 105.6|D&C 105:6]]; [[Mosiah 23.21|Mosiah 23:21]]; [[Romans 5.3|Rom. 5:3–5]][[Romans 5.4|]][[Romans 5.5|]]); obtain a forgiveness of sin (see [[Helaman 15.3|Hel. 15:3]]; [[D&C 132.50|D&C 132:50, 60]][[D&C 132.60|]]; [[D&C 95.1|D&C 95:1]]).
 
-[^14]: See [[2 Peter 1.1|2 Pet. 1:1–8]][[2 Peter 1.2|]][[2 Peter 1.3|]][[2 Peter 1.4|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]].
+[^14]: See [[2 Peter 1.1|2 Pet. 1:1–8]][[2 Peter 1.2|]][[2 Peter 1.3|]][[2 Peter 1.4|]][[2 Peter 1.5|]][[2 Peter 1.6|]][[2 Peter 1.7|]][[2 Peter 1.8|]].
 
 [^15]: [[D&C 88.125|D&C 88:125]].
 
 [^16]: [[Moroni 7.48|Moro. 7:48]].
 
-[^17]: See [[Moroni 8.25|Moro. 8:25–26]][[Moroni 8.26|]]; [[Romans 5.5|Rom. 5:5]]; [[2 Nephi 26.13|2 Ne. 26:13]].
+[^17]: See [[Moroni 8.25|Moro. 8:25–26]][[Moroni 8.26|]]; [[Romans 5.5|Rom. 5:5]]; [[2 Nephi 26.13|2 Ne. 26:13]].
 
 [^18]: See [[Moses 6.63|Moses 6:63]]; [[Alma 30.44|Alma 30:44]].
 
-[^19]: See [[1 John 4.8|1 Jn. 4:8]].
+[^19]: See [[1 John 4.8|1 Jn. 4:8]].
 
 [^20]: See [[D&C 88.33|D&C 88:33]].
 
@@ -107,7 +109,7 @@ The prophet of the Lord here before you loves you, as do all these, my Brethren.
 
 [^24]: See [[Alma 34.38|Alma 34:38]].
 
-[^25]: See [[1 John 2.15|1 Jn. 2:15–17]][[1 John 2.16|]][[1 John 2.17|]].
+[^25]: See [[1 John 2.15|1 Jn. 2:15–17]][[1 John 2.16|]][[1 John 2.17|]].
 
 [^26]: See [[Mosiah 4.11|Mosiah 4:11–12]][[Mosiah 4.12|]].
 
@@ -115,13 +117,13 @@ The prophet of the Lord here before you loves you, as do all these, my Brethren.
 
 [^28]: See [[D&C 93.12|D&C 93:12–13, 20]][[D&C 93.13|]][[D&C 93.20|]].
 
-[^29]: See [[1 John 3.1|1 Jn. 3:1–3]][[1 John 3.2|]][[1 John 3.3|]].
+[^29]: See [[1 John 3.1|1 Jn. 3:1–3]][[1 John 3.2|]][[1 John 3.3|]].
 
 [^30]: See [[John 13.34|John 13:34]]; [[D&C 112.11|D&C 112:11]].
 
 [^31]: “Beware of pride, and not seek to excel one above another, but act for each other’s good” (Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[1976\], 155).
 
-[^32]: See [[1 Corinthians 2.16|1 Cor. 2:16]]; [[2 Corinthians 10.5|2 Cor. 10:5]].
+[^32]: See [[1 Corinthians 2.16|1 Cor. 2:16]]; [[2 Corinthians 10.5|2 Cor. 10:5]].
 
 [^33]: “That man is most truly great who is most Christlike. What you sincerely in your heart think of Christ will determine what you are, will largely determine what your acts will be. … By choosing him as our ideal, we create within ourselves a desire to be like him, to have fellowship with him” (David O. McKay, in Conference Report, Apr. 1951, 93, 98). If you think about Him long enough, you will begin to act like Him. If you act like Him long enough, you’ll truly become like Him.
 
@@ -129,8 +131,3 @@ The prophet of the Lord here before you loves you, as do all these, my Brethren.
 
 [^35]: [[Alma 33.23|Alma 33:23]].
 
-
-
-
-
-#Charity #Gratitude #Love

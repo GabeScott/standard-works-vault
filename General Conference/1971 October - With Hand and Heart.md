@@ -1,6 +1,8 @@
 # With Hand and Heart
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 Yesterday each person assembled in this historic Tabernacle was given the privilege to raise his right hand to sustain, in the positions to which they have been called, the leadership of the Church. The upraised hand is an outward expression of an inner feeling. As one raises his hand, he pledges his heart.
 
-The Master frequently spoke of hand and heart. In a revelation given through the Prophet Joseph Smith at Hiram, Ohio, in March 1832, he counseled: “… be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees.
+The Master frequently spoke of hand and heart. In a revelation given through the Prophet Joseph Smith at Hiram, Ohio, in March 1832, he counseled: “… be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees.
 
 “And if thou art faithful unto the end thou shalt have a crown of immortality, and eternal life in the mansions which I have prepared in the house of my Father.” ([[D&C 81.5|D&C 81:5–6]][[D&C 81.6|]].)
 
@@ -18,7 +20,7 @@ Not only by precept did Jesus teach, but also by example. He was faithful to his
 
 At Galilee there came to him a leper who pleaded: “Lord, if thou wilt, thou canst make me clean. And Jesus put forth his hand, and touched him, saying, I will; be thou clean. And immediately his leprosy was cleansed.” ([[Matthew 8.2|Matt. 8:2–3]][[Matthew 8.3|]].) The hand of Jesus was not polluted by touching the leper’s body, but the leper’s body was cleansed by the touch of that holy hand.
 
-In Capernaum, at the house of Peter, yet another example was provided. The mother of Peter’s wife lay sick of a fever. The sacred record reveals that Jesus came “and took her by the hand, and lifted her up; and immediately the fever left her. …” ([[Mark 1.31|Mark 1:31]].)
+In Capernaum, at the house of Peter, yet another example was provided. The mother of Peter’s wife lay sick of a fever. The sacred record reveals that Jesus came “and took her by the hand, and lifted her up; and immediately the fever left her. …” ([[Mark 1.31|Mark 1:31]].)
 
 So it was with the daughter of Jairus, a ruler of the synagogue. Each parent can appreciate the feelings of Jairus as he sought the Lord, and, upon finding him, fell at his feet and pleaded, “My little daughter lieth at the point of death: I pray thee, come and lay thy hands on her, that she may be healed; and she shall live.” ([[Mark 5.23|Mark 5:23]].)
 
@@ -28,7 +30,7 @@ So it was with the daughter of Jairus, a ruler of the synagogue. Each parent can
 
 “\[He\] … took her by the hand, and called, saying: Maid, arise.
 
-“And her spirit came again, and she arose straightway. …” ([[Luke 8.49|Luke 8:49–50, 52, 54–55]][[Luke 8.50|]][[Luke 8.52|]][[Luke 8.54|]][[Luke 8.55|]].)
+“And her spirit came again, and she arose straightway. …” ([[Luke 8.49|Luke 8:49–50, 52, 54–55]][[Luke 8.50|]][[Luke 8.52|]][[Luke 8.54|]][[Luke 8.55|]].)
 
 Once again, the Lord had stretched forth his hand to take the hand of another.
 
@@ -38,11 +40,11 @@ If they would see the star that should at once direct their feet and influence t
 
 Reflect for a moment on the experience of Peter at the gate Beautiful of the temple. One sympathizes with the plight of the man lame from birth who each day was carried to the temple gate that he might ask alms of all who entered. That he asked alms of Peter and John as these two brethren approached indicates that he regarded them no differently from scores of others who must have passed by him that day. Then Peter’s majestic yet gentle command: “Look on us.” ([[Acts 3.4|Acts 3:4]].) The record states that the lame man gave heed unto them, expecting to receive something from them.
 
-The stirring words Peter then spoke have lifted the hearts of honest believers down through the stream of time, even to this day: “Silver and gold have I none; but such as I have give I thee: In the name of Jesus Christ of Nazareth rise up and walk.” Frequently we conclude the citation at this point and fail to note the next verses: “And he took him by the right hand, and lifted him up: … he … stood, and walked, and entered with them into the temple. …” ([[Acts 3.6|Acts 3:6–8]][[Acts 3.7|]][[Acts 3.8|]].)
+The stirring words Peter then spoke have lifted the hearts of honest believers down through the stream of time, even to this day: “Silver and gold have I none; but such as I have give I thee: In the name of Jesus Christ of Nazareth rise up and walk.” Frequently we conclude the citation at this point and fail to note the next verses: “And he took him by the right hand, and lifted him up: … he … stood, and walked, and entered with them into the temple. …” ([[Acts 3.6|Acts 3:6–8]][[Acts 3.7|]][[Acts 3.8|]].)
 
 A helping hand had been extended. A broken body had been healed. A precious soul had been lifted toward God.
 
-Time passes. Circumstances change. Conditions vary. Unaltered is the divine command to succor the weak and lift up the hands which hang down and strengthen the feeble knees. Each of us has the charge to be not a doubter, but a doer; not a leaner, but a lifter. But our complacency tree has many branches, and each spring more buds come into bloom. Often we live side by side but do not communicate heart to heart. There are those within the sphere of our own influence who, with outstretched hands, cry out: “Is there no balm in Gilead … ?” ([[Jeremiah 8.22|Jer. 8:22]].) Each of us must answer.
+Time passes. Circumstances change. Conditions vary. Unaltered is the divine command to succor the weak and lift up the hands which hang down and strengthen the feeble knees. Each of us has the charge to be not a doubter, but a doer; not a leaner, but a lifter. But our complacency tree has many branches, and each spring more buds come into bloom. Often we live side by side but do not communicate heart to heart. There are those within the sphere of our own influence who, with outstretched hands, cry out: “Is there no balm in Gilead … ?” ([[Jeremiah 8.22|Jer. 8:22]].) Each of us must answer.
 
 Edwin Markham observed:
 
@@ -64,7 +66,7 @@ Lamented Marley, “Business! … Mankind was my business!” (*A Christmas Caro
 
 The change that then occurred in the life of Scrooge was miraculous indeed. He became overnight the most generous, the most lovable, the most kindhearted Christian soul. In his own words he described his condition: “I am not the man I was.” So it ever is when one inclines his heart to the example of the Christ.
 
-“… he that loveth not his brother abideth in death,” wrote the apostle John 1900 years ago. ([[1 John 3.14|1 Jn. 3:14]].)
+“… he that loveth not his brother abideth in death,” wrote the apostle John 1900 years ago. ([[1 John 3.14|1 Jn. 3:14]].)
 
 Some point the accusing finger at the sinner or the unfortunate and in derision say, “He has brought his condition upon himself.” Others exclaim, “Oh, he will never change. He has always been a bad one.” A few see beyond the outward appearance and recognize the true worth of a human soul. When they do, miracles occur. The downtrodden, the discouraged, the helpless become “no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.” ([[Ephesians 2.19|Eph. 2:19]].) True love can alter human lives and change human nature.
 
@@ -74,7 +76,7 @@ Eliza Doolittle was but expressing the profound truth: When we treat people mere
 
 In reality, it was the Redeemer who best taught this principle. Jesus changed men. He changed their habits and opinions and ambitions. He changed their tempers, dispositions, and natures. He changed their hearts. He lifted! He loved! He forgave! He redeemed! Do we have the will to follow?
 
-Prison warden Kenyon J. Scudder has related this experience: A friend of his happened to be sitting in a railroad coach next to a young man who was obviously depressed. Finally the man revealed that he was a paroled convict returning from a distant prison. His imprisonment had brought shame to his family, and they had neither visited him nor written often. He hoped, however, that this was only because they were too poor to travel and too uneducated to write. He hoped, despite the evidence, that they had forgiven him.
+Prison warden Kenyon J. Scudder has related this experience: A friend of his happened to be sitting in a railroad coach next to a young man who was obviously depressed. Finally the man revealed that he was a paroled convict returning from a distant prison. His imprisonment had brought shame to his family, and they had neither visited him nor written often. He hoped, however, that this was only because they were too poor to travel and too uneducated to write. He hoped, despite the evidence, that they had forgiven him.
 
 To make it easy for them, however, he had written them to put up a signal for him when the train passed their little farm on the outskirts of town. If his family had forgiven him, they were to put a white ribbon in the big apple tree which stood near the tracks. If they didn’t want him to return, they were to do nothing, and he would remain on the train as it traveled west.
 
@@ -101,8 +103,3 @@ May we succor the weak, lift up the hands which hang down, and strengthen the fe
 
 
 
-
-
-
-
-#Jesus_Christ #Love

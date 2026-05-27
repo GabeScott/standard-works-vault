@@ -1,6 +1,8 @@
 # Value beyond Measure
 
-By Joy D. Jones - *Primary General President*
+Sharon Eubank
+
+By Joy D. Jones - *Primary General President*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -18,11 +20,11 @@ Now let’s meet the Singh sisters from India. Renu, on the far right, the first
 
 “Before I had the gospel in my life, I was always trying to prove to others that I was someone special. But when I learned the truth, that I am a daughter of God, I didn’t have to prove anything to anyone. I knew that I was special. … Don’t ever think that you are nothing.”
 
-President Thomas S. Monson said it perfectly when he quoted these words: “The worth of a soul is its capacity to become as God.”[^1]
+President Thomas S. Monson said it perfectly when he quoted these words: “The worth of a soul is its capacity to become as God.”[^1]
 
 I was recently blessed to meet another young woman who understands this same truth. Her name is Taiana. I met her at Primary Children’s Hospital in Salt Lake City. Taiana was a junior in high school when she was diagnosed with cancer. She fought a brave battle for 18 months before passing away a few short weeks ago. Taiana was full of light and love. She was known for her contagious smile and her trademark “double thumbs-up.” When others asked, “Why you, Taiana?” her response was, “Why not me?” Taiana sought to become like her Savior, whom she so dearly loved. During our visits, I learned that Taiana understood her divine worth. Knowing she was a daughter of God gave her peace and courage to face her overwhelming trial in the positive way she did.
 
-Mariama, Renu, and Taiana teach us that the Spirit will confirm to each of us individually our divine worth. Truly knowing that you are a daughter of God will affect every aspect of your life and guide you in the service you render each day. President Spencer W. Kimball explained in these glorious words:
+Mariama, Renu, and Taiana teach us that the Spirit will confirm to each of us individually our divine worth. Truly knowing that you are a daughter of God will affect every aspect of your life and guide you in the service you render each day. President Spencer W. Kimball explained in these glorious words:
 
 “God is your Father. He loves you. He and your Mother in heaven value you beyond any measure. … You are unique. One of a kind, made of the eternal intelligence which gives you claim upon eternal life.
 
@@ -50,7 +52,7 @@ The Lord explained the relationship between our worth and His great atoning sacr
 
 Sisters, because of what He did for us, “we are bound to him by loving ties.”[^10] He said, “My Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might draw all men unto me.”[^11]
 
-King Benjamin also explained this binding connection with our Savior: “And lo, he shall suffer temptations, and pain of body, hunger, thirst, and fatigue, even more than man can suffer, except it be unto death; for behold, blood cometh from every pore, so great shall be his anguish for the wickedness and the abominations of his people.”[^12] That suffering and the results of that suffering fill our hearts with love and gratitude. Elder Paul E. Koelliker taught, “As we remove the distractions that pull us toward the world and exercise our agency to seek Him, we open our hearts to a celestial force which draws us toward Him.”[^13] If the love we feel for the Savior and what He did for us is greater than the energy we give to weaknesses, self-doubts, or bad habits, then He will help us overcome the things which cause suffering in our lives. He saves us from ourselves.
+King Benjamin also explained this binding connection with our Savior: “And lo, he shall suffer temptations, and pain of body, hunger, thirst, and fatigue, even more than man can suffer, except it be unto death; for behold, blood cometh from every pore, so great shall be his anguish for the wickedness and the abominations of his people.”[^12] That suffering and the results of that suffering fill our hearts with love and gratitude. Elder Paul E. Koelliker taught, “As we remove the distractions that pull us toward the world and exercise our agency to seek Him, we open our hearts to a celestial force which draws us toward Him.”[^13] If the love we feel for the Savior and what He did for us is greater than the energy we give to weaknesses, self-doubts, or bad habits, then He will help us overcome the things which cause suffering in our lives. He saves us from ourselves.
 
 Let me reemphasize: if the pull of the world is stronger than the faith and trust we have in the Savior, then the pull of the world will prevail every time. If we choose to focus on our negative thoughts and doubt our worth instead of clinging to the Savior, it becomes more difficult to feel the impressions of the Holy Ghost.
 
@@ -59,13 +61,13 @@ Sisters, let’s not be confused about who we are! While it is often easier to b
 
 
 
-[^1]: Thomas S. Monson, “[[2006 April - Our Sacred Priesthood Trust.md|Our Sacred Priesthood Trust]],” *Ensign* or *Liahona,* May 2006, 55.
+[^1]: Thomas S. Monson, “[[2006 April - Our Sacred Priesthood Trust.md|Our Sacred Priesthood Trust]],” *Ensign* or *Liahona,* May 2006, 55.
 
-[^2]: Spencer W. Kimball, “[[1978 October - Privileges and Responsibilities of Sisters.md|Privileges and Responsibilities of Sisters]],” *Ensign,* Nov. 1978, 105.
+[^2]: Spencer W. Kimball, “[[1978 October - Privileges and Responsibilities of Sisters.md|Privileges and Responsibilities of Sisters]],” *Ensign,* Nov. 1978, 105.
 
-[^3]: D. Todd Christofferson, “[[2016 October - “Abide in My Love”.md|Abide in My Love]],” *Ensign* or *Liahona,* Nov. 2016, 48.
+[^3]: D. Todd Christofferson, “[[2016 October - “Abide in My Love”.md|Abide in My Love]],” *Ensign* or *Liahona,* Nov. 2016, 48.
 
-[^4]: Brigham Young, “Remarks,” *Deseret News,* Mar. 6, 1861, 2.
+[^4]: Brigham Young, “Remarks,” *Deseret News,* Mar. 6, 1861, 2.
 
 [^5]: Attributed to Eleanor Roosevelt.
 
@@ -79,16 +81,11 @@ Sisters, let’s not be confused about who we are! While it is often easier to b
 
 [^10]: “Our Savior’s Love,” *Hymns,* no. 113.
 
-[^11]: [[3 Nephi 27.14|3 Nephi 27:14]].
+[^11]: [[3 Nephi 27.14|3 Nephi 27:14]].
 
 [^12]: [[Mosiah 3.7|Mosiah 3:7]].
 
-[^13]: Paul E. Koelliker, “[[2012 April - He Truly Loves Us.md|He Truly Loves Us]],” *Ensign* or *Liahona,* May 2012, 18.
+[^13]: Paul E. Koelliker, “[[2012 April - He Truly Loves Us.md|He Truly Loves Us]],” *Ensign* or *Liahona,* May 2012, 18.
 
 [^14]: [[Moroni 9.25|Moroni 9:25]].
 
-
-
-
-
-#Atonement #Divine_Nature #Holy_Ghost #Individual_Worth #Jesus_Christ #Worthiness

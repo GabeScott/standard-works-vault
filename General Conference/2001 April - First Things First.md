@@ -1,5 +1,7 @@
 # First Things First
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -26,7 +28,7 @@ Satan and his hosts will do all in their power to keep you from obtaining the or
 
 Are there so many fascinating, exciting things to do or so many challenges pressing down upon you that it is hard to keep focused on that which is essential? When things of the world crowd in, all too often the wrong things take highest priority. Then it is easy to forget the fundamental purpose of life. Satan has a powerful tool to use against good people. It is distraction. He would have good people fill life with “good things” so there is no room for the essential ones. Have you unconsciously been caught in that trap?
 
-“Men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, … for \[the devil\] seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).
+“Men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, … for \[the devil\] seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).
 
 Why has your moral agency been given to you? Only to live a pleasurable life and to make choices to do the things you want to do? Or is there a more fundamental reason—to be able to make the choices that will lead you to fully implement your purpose for being here on earth and to establish priorities in your life that will ensure the development and happiness the Lord wants you to receive.
 
@@ -36,7 +38,7 @@ I mentioned how everything I treasure today began to mature in the mission field
 
 In stark contrast, consider the example of another young man. Through the years I have watched how his parents have taught him from infancy to unwaveringly live the commandments of God. By example and precept, they nurtured him, together with their other children, in truth. They encouraged the development of discipline and sacrifice to obtain worthy goals. This young man chose swimming to instill in his character those qualities. Early-morning practice sessions required discipline and sacrifice. Over time he excelled in that sport.
 
-Then came the challenges—for example, a championship swim meet on Sunday. Would he participate? Would he rationalize an exception to his rule of not swimming on Sunday to help his team win the championship? No, he would not yield, even under intense peer pressure. He was called names, even physically abused. But he would not yield. The rejection of friends, the loneliness, and the pressure brought times of sadness and tears. But he would not yield. He was learning firsthand what each of us must come to know—the reality of Paul’s counsel to Timothy: “All that will live godly in Christ Jesus shall suffer persecution” ([[2 Timothy 3.12|2 Tim. 3:12]]). Over the years this consistent pattern of righteous living—woven from hundreds of correct decisions, some in the face of great challenge—has developed a character of strength and capacity. Now, as a missionary, he is appreciated by his peers for his ability to work, his knowledge of truth, his unwavering devotion, and his determination to share the gospel. One who earlier was rejected by his peers now has become a respected leader of his peers. Is there a message for you in these examples?
+Then came the challenges—for example, a championship swim meet on Sunday. Would he participate? Would he rationalize an exception to his rule of not swimming on Sunday to help his team win the championship? No, he would not yield, even under intense peer pressure. He was called names, even physically abused. But he would not yield. The rejection of friends, the loneliness, and the pressure brought times of sadness and tears. But he would not yield. He was learning firsthand what each of us must come to know—the reality of Paul’s counsel to Timothy: “All that will live godly in Christ Jesus shall suffer persecution” ([[2 Timothy 3.12|2 Tim. 3:12]]). Over the years this consistent pattern of righteous living—woven from hundreds of correct decisions, some in the face of great challenge—has developed a character of strength and capacity. Now, as a missionary, he is appreciated by his peers for his ability to work, his knowledge of truth, his unwavering devotion, and his determination to share the gospel. One who earlier was rejected by his peers now has become a respected leader of his peers. Is there a message for you in these examples?
 
 While wholesome pleasure results from much we do that is good, it is not our prime purpose for being on earth. Seek to know and do the will of the Lord, not just what is convenient or what makes life easy. You have His plan of happiness. You know what to do, or can find out through study and prayer. Do it willingly.
 
@@ -44,7 +46,7 @@ The Lord declared:
 
 “It is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant; wherefore he receiveth no reward.
 
-“… Men should be anxiously engaged in a good cause, and do many things of their own free will, and bring to pass much righteousness;
+“… Men should be anxiously engaged in a good cause, and do many things of their own free will, and bring to pass much righteousness;
 
 “For the power is in them, wherein they are agents unto themselves. And inasmuch as men do good they shall in nowise lose their reward.
 
@@ -69,5 +71,3 @@ Put first things first. Do the best you can while on earth to have an *ideal fam
 
 
 
-
-#Adam_And_Eve #Children #Evil #Family #Holy_Ghost #Joy #Missionary_Work #Obedience #Ordinances #Parents #Plan_Of_Salvation #Priorities #Satan #Time_Management

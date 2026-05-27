@@ -1,6 +1,8 @@
 # Seven Events of Great Consequence
 
-By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -28,7 +30,7 @@ The heavens were opened and this great and noble spirit, Joseph Smith, entered i
 
 “I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me.
 
-“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.16|JS—H 1:16–17]][[Joseph Smith History 1.17|]]).
+“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.16|JS—H 1:16–17]][[Joseph Smith History 1.17|]]).
 
 All uncertainty fled away. Joseph Smith had personal knowledge of the reality of these divine beings. The Father and the Son, the creators of the universe, appeared to Joseph Smith.
 
@@ -36,7 +38,7 @@ Event number two: Three years have passed since this first great vision. It is n
 
 “While I was thus in the act of calling upon God, I discovered a light appearing in my room, which continued to increase until the room was lighter than at noonday, when immediately a personage appeared at my bedside, standing in the air, for his feet did not touch the floor.
 
-“He called me by name, and said unto me that he was a messenger sent from the presence of God to me, and that his name was Moroni; that God had a work for me to do. …
+“He called me by name, and said unto me that he was a messenger sent from the presence of God to me, and that his name was Moroni; that God had a work for me to do. …
 
 “He said there was a book deposited, written upon gold plates, giving an account of the former inhabitants of this continent, and the source from whence they sprang. He also said that the fulness of the everlasting Gospel was contained in it, as delivered by the Savior to the ancient inhabitants.” ([[Joseph Smith History 1.30|JS—H 1:30, 33–34]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]].)
 
@@ -50,7 +52,7 @@ Event number four: Two additional years pass. And now comes another visitation, 
 
 “We still continued the work of translation, when, in the ensuing month (May, 1829), we on a certain day went into the woods to pray and inquire of the Lord respecting baptism for the remission of sins, that we found mentioned in the translation of the plates. While we were thus employed, praying and calling upon the Lord, a messenger from heaven descended in a cloud of light, and having laid his hands upon us, he ordained us, saying:
 
-*“Upon you my fellow servants, in the name of Messiah, I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins, …*
+*“Upon you my fellow servants, in the name of Messiah, I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins, …*
 
 “The messenger who visited us on this occasion and conferred this Priesthood upon us, said that his name was John, the same that is called John the Baptist in the New Testament, and that he acted under the direction of Peter, James and John, who held the keys of the Priesthood of Melchizedek, which Priesthood, he said, would in due time be conferred on us.” ([[Joseph Smith History 1.68|JS—H 1:68–69, 72]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.72|]].)
 
@@ -97,8 +99,3 @@ I raise my voice in solemn testimony that these earth-and-heaven encompassing ev
 
 
 
-
-
-
-
-#Restoration

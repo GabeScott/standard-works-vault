@@ -1,6 +1,8 @@
 # The Circle of Sisters
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -14,7 +16,7 @@ I told those sisters that they belonged to the largest, and by all measure, the 
 
 This society is organized, “according to your natures. … You are now placed in a situation in which you can act according to those sympathies” within you.
 
-“If you live to these privileges, … the angels cannot be restrained from being your associates. …
+“If you live to these privileges, … the angels cannot be restrained from being your associates. …
 
 “If this society listen to the counsel of the Almighty, through the heads of the Church, they shall have power to command queens in their midst.” (*History of the Church,* 4:607, 605.)
 
@@ -107,8 +109,3 @@ I bear witness that God lives, that He directs this work, that His benevolent po
 
 
 
-
-
-
-
-#Relief_Society #Sisterhood

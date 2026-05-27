@@ -1,5 +1,7 @@
 # Restored Truth
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -16,7 +18,7 @@ One of the most important accomplishments of the Savior was the establishment of
 
 When Jesus called His twelve Apostles, He laid His hands upon them, ordained them, and conferred upon them the authority to act in His name and govern His church. Peter is commonly understood to have become the chief Apostle, or the President of the Church, after the death, resurrection, and ascension of Christ. Early Christians endured the challenges of persecution and hardship. Peter and his brethren had a difficult time holding the Church together and keeping the doctrine pure. They traveled extensively and wrote to one another about the problems they were facing, but information moved so slowly and the Church and its teachings were so new that heading off false teachings before they became firmly entrenched was difficult.
 
-The New Testament indicates that the early Apostles worked hard to preserve the church that Jesus Christ left to their care and keeping, but they knew their efforts would ultimately be in vain. Paul wrote to the Thessalonian Saints, who were anxiously anticipating the second coming of Christ, that “that day shall not come, except there come a falling away first” ([[2 Thessalonians 2.3|2 Thes. 2:3]]). He also warned Timothy that “the time will come when they will not endure sound doctrine; … And they shall turn away their ears from the truth, and shall be turned unto fables” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]]).
+The New Testament indicates that the early Apostles worked hard to preserve the church that Jesus Christ left to their care and keeping, but they knew their efforts would ultimately be in vain. Paul wrote to the Thessalonian Saints, who were anxiously anticipating the second coming of Christ, that “that day shall not come, except there come a falling away first” ([[2 Thessalonians 2.3|2 Thes. 2:3]]). He also warned Timothy that “the time will come when they will not endure sound doctrine; … And they shall turn away their ears from the truth, and shall be turned unto fables” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]]).
 
 And Peter presupposed the falling away, or the Apostasy, when he spoke of “the times of refreshing” that would come before God would again send Jesus Christ, who “before was preached unto you:
 
@@ -56,7 +58,7 @@ On a beautiful, clear spring morning, Joseph retired to the woods. He paused whe
 
 Reading from Joseph’s account:
 
-“I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me. …
+“I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me. …
 
 “When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!”* ([[Joseph Smith History 1.16|JS—H 1:16–17]][[Joseph Smith History 1.17|]]).
 
@@ -103,8 +105,3 @@ If you will do so, I believe you will come to know as I know that The Church of 
 
 
 
-
-
-
-
-#Apostasy #Book_Of_Mormon #Joseph_Smith #Restoration #Truth

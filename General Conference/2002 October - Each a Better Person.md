@@ -1,5 +1,7 @@
 # Each a Better Person
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2002 General Conference*
@@ -41,8 +43,3 @@ God bless you, my beloved associates. May a spirit of peace and love attend you 
 
 
 
-
-
-
-
-#Family #Home #Joy #Kindness

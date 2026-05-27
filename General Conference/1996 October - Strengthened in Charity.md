@@ -1,5 +1,7 @@
 # Strengthened in Charity
 
+Gordon B. Hinckley
+
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1996 General Conference*
@@ -58,7 +60,7 @@ The greatest acts of charity come from giving of yourself and receiving expressi
 
 I’ve thought about this: “To give of oneself is a holy gift.” “We should strive to give as he gave.” What wise counsel! When we give our time, our energy, our commitment, our testimony to others, we are giving of ourselves. We are sharing intangibles, not easily left on the doorstep but easily deposited in the heart.
 
-So it is with kindness. Nothing will bring the Spirit of the Lord into your meetings, your homes, and your personal associations more quickly than showing kindness. “Charity … is kind” ([[1 Corinthians 13.4|1 Cor. 13:4]]). Kindness should be right at the top of everyone’s list of things to do. Write it down every day: “Be kind.” Kindness comes in many different packages. Be thoughtful to your neighbors. Be patient in a crowd. Be considerate of your children and your husband. Be honest with your sisters. Trust them and they will trust you. Go out and bring them into this grand circle of sisters we call Relief Society. As we increase our kindness, we add charity to our storehouse and we are strengthened.
+So it is with kindness. Nothing will bring the Spirit of the Lord into your meetings, your homes, and your personal associations more quickly than showing kindness. “Charity … is kind” ([[1 Corinthians 13.4|1 Cor. 13:4]]). Kindness should be right at the top of everyone’s list of things to do. Write it down every day: “Be kind.” Kindness comes in many different packages. Be thoughtful to your neighbors. Be patient in a crowd. Be considerate of your children and your husband. Be honest with your sisters. Trust them and they will trust you. Go out and bring them into this grand circle of sisters we call Relief Society. As we increase our kindness, we add charity to our storehouse and we are strengthened.
 
 A Relief Society sister who had moved to Texas to continue her education and then was moving again wrote to me this summer. She told of her experience with the sisters in her ward, of their quick action, willing hands, warmth, and kindness. But it wasn’t *what* they did that prompted her letter; it was *why.* They loved her, and she could feel it. As they shared with her, multiplying their gifts, she too was strengthened in charity. Listen to her story, because it represents all of you and your quiet goodness:
 
@@ -81,8 +83,3 @@ I bear you my testimony of the truths spoken here tonight and the significance o
 
 
 
-
-
-
-
-#Charity #Jesus_Christ #Love #Relief_Society #Service #Women

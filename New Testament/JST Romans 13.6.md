@@ -4,6 +4,3 @@
 
 [JST Romans 13:6](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-rom/13?lang=eng)
 
-
-
-

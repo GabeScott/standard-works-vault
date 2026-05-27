@@ -4,6 +4,3 @@
 
 [JST 1 Timothy 2:4](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-tim/2?lang=eng)
 
-
-
-

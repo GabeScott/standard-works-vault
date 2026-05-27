@@ -1,6 +1,5 @@
 # Repay
 
-
 *repayeth* them that hate him to their face, [[Deuteronomy 7.10|Deuteronomy 7:10]].
 
 to the righteous good shall be *repayed*, [[Proverbs 13.21|Proverbs 13:21]].

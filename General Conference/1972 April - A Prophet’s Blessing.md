@@ -1,5 +1,7 @@
 # A Prophet’s Blessing
 
+Wilford G. Edling
+
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1972 General Conference*
@@ -29,8 +31,3 @@ O God our Heavenly and Eternal Father, look down in love and in mercy upon this 
 
 
 
-
-
-
-
-#Gratitude

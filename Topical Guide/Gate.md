@@ -1,21 +1,20 @@
 # Gate
 
-
 *See also* [[Door.md|Door]]; [[Way.md|Way]]
 
 seed shall possess the *gate* of his enemies, [[Genesis 22.17|Genesis 22:17]].
 
 this is the *gate* of heaven, [[Genesis 28.17|Genesis 28:17]].
 
-write them ... on thy *gates*, [[Deuteronomy 6.9|Deuteronomy 6:9]] ([[Deuteronomy 11.20|Deuteronomy 11:20]]).
+write them … on thy *gates*, [[Deuteronomy 6.9|Deuteronomy 6:9]] ([[Deuteronomy 11.20|Deuteronomy 11:20]]).
 
-Samson ... took the doors of the *gate* of the city, [[Judges 16.3|Judges 16:3]].
+Samson … took the doors of the *gate* of the city, [[Judges 16.3|Judges 16:3]].
 
 at the *gate* of the foundation, [[2 Chronicles 23.5|2 Chronicles 23:5]] ([[Nehemiah 2.14|Nehemiah 2:14]]; [[Nehemiah 3.15|Nehemiah 3:15]]).
 
 entering in at the fish *gate*, [[2 Chronicles 33.14|2 Chronicles 33:14]] ([[Zephaniah 1.10|Zephaniah 1:10]]).
 
-went out ... by the *gate* of the valley, [[Nehemiah 2.13|Nehemiah 2:13]].
+went out … by the *gate* of the valley, [[Nehemiah 2.13|Nehemiah 2:13]].
 
 Lift up your heads, O ye *gates*, [[Psalms 24.7|Psalms 24:7]].
 
@@ -33,7 +32,7 @@ Enter ye in at the strait *gate*, [[Matthew 7.13|Matthew 7:13]] ([[Luke 13.24|Lu
 
 *gates* of hell shall not prevail, [[Matthew 16.18|Matthew 16:18]] ([[3 Nephi 11.39|3 Nephi 11:39]]; [[D&C 10.69|D&C 10:69]]; [[D&C 18.5|D&C 18:5]]).
 
-Jesus also ... suffered without the *gate*, [[Hebrews 13.12|Hebrews 13:12]].
+Jesus also … suffered without the *gate*, [[Hebrews 13.12|Hebrews 13:12]].
 
 twelve *gates*, and at the *gates* twelve angels, [[Revelation 21.12|Revelation 21:12]].
 

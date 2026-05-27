@@ -1,5 +1,7 @@
 # Young Women Striving Together
 
+Gordon B. Hinckley
+
 By Ardeth G. Kapp - *Young Women General President*
 
 *Given in the October session of the 1984 General Conference*
@@ -74,8 +76,3 @@ The evils of our day will increase, even as the wicked armies of Pharaoh threate
 
 
 
-
-
-
-
-#Family #Love #Repentance

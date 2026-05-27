@@ -1,5 +1,7 @@
 # Beware of the Evil behind the Smiling Eyes
 
+Gordon B. Hinckley
+
 By Elder Neil L. Andersen - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -73,33 +75,33 @@ I know that Jesus Christ is our Savior. Words cannot describe His greatness and 
 
 
 
-[^1]: In Conference Report, Apr. 1992, 96; or *Ensign,* May 1992, 69.
+[^1]: In Conference Report, Apr. 1992, [[1992 April - “A Chosen Generation”.md|96]]; or *Ensign,* May 1992, 69.
 
 [^2]: Personal correspondence, Mar. 7, 2005.
 
 [^3]: See [[Moroni 7.12|Moroni 7:12]].
 
-[^4]: See [[Luke 24.36|Luke 24:36–39]][[Luke 24.37|]][[Luke 24.38|]][[Luke 24.39|]]; [[John 1.14|John 1:14]]; [[3 Nephi 12.48|3 Nephi 12:48]]; [[D&C 76.23|D&C 76:23–24]][[D&C 76.24|]].
+[^4]: See [[Luke 24.36|Luke 24:36–39]][[Luke 24.37|]][[Luke 24.38|]][[Luke 24.39|]]; [[John 1.14|John 1:14]]; [[3 Nephi 12.48|3 Nephi 12:48]]; [[D&C 76.23|D&C 76:23–24]][[D&C 76.24|]].
 
 [^5]: [[Moroni 7.17|Moroni 7:17]].
 
-[^6]: [[2 Nephi 2.18|2 Nephi 2:18]].
+[^6]: [[2 Nephi 2.18|2 Nephi 2:18]].
 
-[^7]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^7]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^8]: See [[D&C 93.25|D&C 93:25]]; see also Bible Dictionary, “Devil,” 656.
+[^8]: See [[D&C 93.25|D&C 93:25]]; see also Bible Dictionary, “[[BD Devil|Devil]],” 656.
 
 [^9]: See [[Moses 1.1|Moses 1:1–22]][[Moses 1.2|]][[Moses 1.3|]][[Moses 1.4|]][[Moses 1.5|]][[Moses 1.6|]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.9|]][[Moses 1.10|]][[Moses 1.11|]][[Moses 1.12|]][[Moses 1.13|]][[Moses 1.14|]][[Moses 1.15|]][[Moses 1.16|]][[Moses 1.17|]][[Moses 1.18|]][[Moses 1.19|]][[Moses 1.20|]][[Moses 1.21|]][[Moses 1.22|]].
 
-[^10]: [[2 Nephi 2.16|2 Nephi 2:16]].
+[^10]: [[2 Nephi 2.16|2 Nephi 2:16]].
 
-[^11]: See Gordon B. Hinckley, “A Prophet’s Counsel and Prayer for Youth,” *Liahona,* Apr. 2001, 30; *Ensign,* Jan. 2001, 2–11; in Conference Report, Apr. 1997, 66–71; or *Ensign,* May 1997, 47–50; in Conference Report, Apr. 1998, 66–70; or *Ensign,* May 1998, 49–51.
+[^11]: See Gordon B. Hinckley, “A Prophet’s Counsel and Prayer for Youth,” *Liahona,* Apr. 2001, 30; *Ensign,* Jan. 2001, 2–11; in Conference Report, Apr. 1997, [[1997 April - Converts and Young Men.md|66–71]]; or *Ensign,* May 1997, 47–50; in Conference Report, Apr. 1998, [[1998 April - Living Worthy of the Girl You Will Someday Marry.md|66–70]]; or *Ensign,* May 1998, 49–51.
 
-[^12]: See [[2 Nephi 2.27|2 Nephi 2:27]].
+[^12]: See [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^13]: See [[Moroni 7.14|Moroni 7:14]].
 
-[^14]: [[3 Nephi 18.18|3 Nephi 18:18]].
+[^14]: [[3 Nephi 18.18|3 Nephi 18:18]].
 
 [^15]: [[D&C 50.3|D&C 50:3]].
 
@@ -117,8 +119,3 @@ I know that Jesus Christ is our Savior. Words cannot describe His greatness and 
 
 [^22]: See [[Moses 1.1|Moses 1:1–22]][[Moses 1.2|]][[Moses 1.3|]][[Moses 1.4|]][[Moses 1.5|]][[Moses 1.6|]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.9|]][[Moses 1.10|]][[Moses 1.11|]][[Moses 1.12|]][[Moses 1.13|]][[Moses 1.14|]][[Moses 1.15|]][[Moses 1.16|]][[Moses 1.17|]][[Moses 1.18|]][[Moses 1.19|]][[Moses 1.20|]][[Moses 1.21|]][[Moses 1.22|]].
 
-
-
-
-
-#Agency #Holy_Ghost #Obedience #Prayer #Temptation

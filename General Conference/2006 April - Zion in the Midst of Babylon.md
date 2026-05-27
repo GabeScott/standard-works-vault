@@ -1,5 +1,7 @@
 # Zion in the Midst of Babylon
 
+Robert D. Hales
+
 By Elder David R. Stone - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -36,7 +38,7 @@ Because my wife and I have had the opportunity to live in 10 different countries
 
 Our culture tends to determine what foods we like, how we dress, what constitutes polite behavior, what sports we should follow, what our taste in music should be, the importance of education, and our attitudes toward honesty. It also influences men as to the importance of recreation or religion, influences women about the priority of career or childbearing, and has a powerful effect on how we approach procreation and moral issues. All too often, we are like puppets on a string, as our culture determines what is “cool.”
 
-There is, of course, a zeitgeist to which we should pay attention, and that is the ethos of the Lord, the culture of the people of God. As Peter states it, “But ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Peter 2:9]]).
+There is, of course, a zeitgeist to which we should pay attention, and that is the ethos of the Lord, the culture of the people of God. As Peter states it, “But ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Peter 2:9]]).
 
 It is the ethos of those who keep the Lord’s commandments, walk in His ways, and “live by every word that proceedeth forth from the mouth of God” ([[D&C 84.44|D&C 84:44]]). If that makes us peculiar, so be it.
 
@@ -56,7 +58,7 @@ Seduced by our culture, we often hardly recognize our idolatry, as our strings a
 
 “I have written unto you … because ye are strong, and the word of God abideth in you, and ye have overcome the wicked one.
 
-“Love not the world, neither the things that are in the world” ([[1 John 2.14|1 John 2:14–15]][[1 John 2.15|]]).
+“Love not the world, neither the things that are in the world” ([[1 John 2.14|1 John 2:14–15]][[1 John 2.15|]]).
 
 We do not need to adopt the standards, the mores, and the morals of Babylon. We can create Zion in the midst of Babylon. We can have our own standards for music and literature and dance and film and language. We can have our own standards for dress and deportment, for politeness and respect. We can live in accordance with the Lord’s moral laws. We can limit how much of Babylon we allow into our homes by the media of communication.
 
@@ -87,8 +89,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Standards #Zion

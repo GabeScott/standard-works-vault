@@ -1,15 +1,14 @@
 # Just
 
-
-*See also* [[God, Justice of.md|God, Justice of]]; [[Judgment.md|Judgment]]; [[Justice.md|Justice]]; [[Perfection, Perfect, Perfectly.md|Perfection]]; [[Righteous.md|Righteous]]; [[Upright.md|Upright]]
+*See also* [[God, Justice of.md|God, Justice of]]; [[Judgment.md|Judgment]]; [[Justice.md|Justice]]; [[Perfection.md|Perfection]]; [[Righteous.md|Righteous]]; [[Upright.md|Upright]]
 
 Noah was a *just* man and perfect, [[Genesis 6.9|Genesis 6:9]] ([[Moses 8.27|Moses 8:27]]).
 
-*Just* balances, *just* weights ... shall ye have, [[Leviticus 19.36|Leviticus 19:36]].
+*Just* balances, *just* weights … shall ye have, [[Leviticus 19.36|Leviticus 19:36]].
 
 shall judge the people with *just* judgment, [[Deuteronomy 16.18|Deuteronomy 16:18]].
 
-a God of truth ... *just* and right is he, [[Deuteronomy 32.4|Deuteronomy 32:4]].
+a God of truth … *just* and right is he, [[Deuteronomy 32.4|Deuteronomy 32:4]].
 
 He that ruleth over men must be *just*, [[2 Samuel 23.3|2 Samuel 23:3]].
 
@@ -27,7 +26,7 @@ through knowledge shall the *just* be delivered, [[Proverbs 11.9|Proverbs 11:9]]
 
 wealth of the sinner is laid up for the *just*, [[Proverbs 13.22|Proverbs 13:22]].
 
-*just* weight and balance are the Lord's, [[Proverbs 16.11|Proverbs 16:11]].
+*just* weight and balance are the Lord’s, [[Proverbs 16.11|Proverbs 16:11]].
 
 *just* man walketh in his integrity, [[Proverbs 20.7|Proverbs 20:7]].
 

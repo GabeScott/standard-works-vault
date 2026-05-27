@@ -1,6 +1,5 @@
 # Sun
 
-
 *See also* [[Astronomy.md|Astronomy]]
 
 *Sun*, stand thou still upon Gibeon, [[Joshua 10.12|Joshua 10:12]].
@@ -69,7 +68,7 @@ I saw an angel standing in the *sun*, [[Revelation 19.17|Revelation 19:17]].
 
 city had no need of the *sun*, [[Revelation 21.23|Revelation 21:23]].
 
-they need no ... light of the *sun*, [[Revelation 22.5|Revelation 22:5]].
+they need no … light of the *sun*, [[Revelation 22.5|Revelation 22:5]].
 
 luster was above that of the *sun*, [[1 Nephi 1.9|1 Nephi 1:9]].
 

@@ -1,5 +1,7 @@
 # Tithing—a Commandment Even for the Destitute
 
+Gordon B. Hinckley
+
 By Elder Lynn G. Robbins - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -30,7 +32,7 @@ The Lord often teaches using extreme circumstances to illustrate a principle. Th
 
 The widow of Zarephath lived in the days of the prophet Elijah, by whose word the Lord brought a drought upon the land for three and a half years (see [[Luke 4.25|Luke 4:25]]). The famine grew so severe that many were finally at the point of death. This is the circumstance in which we find the widow.
 
-The Lord says to Elijah, “Arise, get thee to Zarephath … : behold, I have commanded a widow woman there to sustain thee” ([[1 Kings 17.9|1 Kings 17:9]]). It is interesting that Elijah is not told to go to Zarephath until the widow and her son are at the point of death. It is at this extreme moment—facing starvation—that her faith will be tested.
+The Lord says to Elijah, “Arise, get thee to Zarephath … : behold, I have commanded a widow woman there to sustain thee” ([[1 Kings 17.9|1 Kings 17:9]]). It is interesting that Elijah is not told to go to Zarephath until the widow and her son are at the point of death. It is at this extreme moment—facing starvation—that her faith will be tested.
 
 As he comes into the city, he sees her gathering sticks.
 
@@ -72,15 +74,10 @@ My loving mother, Evelyn Robbins, taught me the law of tithing when I was four y
 
 In *A Christmas Carol,* Mr. Scrooge changed his ways—he was not the man he had been. Likewise, this is the gospel of repentance. If the Spirit is prompting us to more fully obey the law of sacrifice in our lives, may we begin making that change today.
 
-I am so grateful for the Savior, who was the perfect example of obedience through sacrifice—who offered “himself a sacrifice for sin” and became, in Lehi’s words, “the *firstfruits* unto God” ([[2 Nephi 2.7|2 Nephi 2:7, 9]][[2 Nephi 2.9|]]; emphasis added). I bear witness of Him and of these, His doctrines, in the name of Jesus Christ, amen.
+I am so grateful for the Savior, who was the perfect example of obedience through sacrifice—who offered “himself a sacrifice for sin” and became, in Lehi’s words, “the *firstfruits* unto God” ([[2 Nephi 2.7|2 Nephi 2:7, 9]][[2 Nephi 2.9|]]; emphasis added). I bear witness of Him and of these, His doctrines, in the name of Jesus Christ, amen.
 
 
 
 
 [^1]: *The Annotated Christmas Carol,* ed. Michael Patrick Hearn (1976), 69; emphasis added.
 
-
-
-
-
-#Blessings #Faith #Sacrifice #Tithing

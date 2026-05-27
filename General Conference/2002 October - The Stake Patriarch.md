@@ -1,5 +1,7 @@
 # The Stake Patriarch
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -108,7 +110,7 @@ After the morning session of conference, where the man had borne a remarkable te
 
 The stake president’s wife was present and wrote to President Lee: “As you walked over to put your hands on \[his\] head, I thought to myself, He is a man with whom we socialize. We have gone on trips with him, to dances. … Now part of his responsibility is to declare the lineage from which each one has come in these blessings. He hasn’t been a student of ancient languages—how is he going to know?
 
-“… You walked over and put your hands on his head, and a light came from behind you and went right through you and into him. And I thought to myself, Isn’t that a strange coincidence that the sunlight has come in just at that moment. And then I realized that there was \[no window,\] no sunlight. I was witnessing the answer to my question. … That light came from somewhere beyond Brother Lee and went through Brother Lee into this patriarch. Then I knew where he was going to get that information—by the revelations of Almighty God.”[^8]
+“… You walked over and put your hands on his head, and a light came from behind you and went right through you and into him. And I thought to myself, Isn’t that a strange coincidence that the sunlight has come in just at that moment. And then I realized that there was \[no window,\] no sunlight. I was witnessing the answer to my question. … That light came from somewhere beyond Brother Lee and went through Brother Lee into this patriarch. Then I knew where he was going to get that information—by the revelations of Almighty God.”[^8]
 
 And so it must be. Whenever a patriarch is ordained or pronounces a blessing, that same light, though it may be unseen, is present. It empowers a patriarch to declare lineage and to give a prophetic blessing, notwithstanding that he himself may be a man of very ordinary capacity.
 
@@ -129,7 +131,7 @@ I bear witness that this is a holy office, a sacred office, a blessing to this C
 
 [^2]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 151.
 
-[^3]: Adam counseled and blessed his posterity (see [[D&C 107.42|D&C 107:42–56]][[D&C 107.43|]][[D&C 107.44|]][[D&C 107.45|]][[D&C 107.46|]][[D&C 107.47|]][[D&C 107.48|]][[D&C 107.49|]][[D&C 107.50|]][[D&C 107.51|]][[D&C 107.52|]][[D&C 107.53|]][[D&C 107.54|]][[D&C 107.55|]][[D&C 107.56|]]); Jacob blessed his sons and their descendants (see [[Genesis 49.1|Genesis 49:1–28]][[Genesis 49.2|]][[Genesis 49.3|]][[Genesis 49.4|]][[Genesis 49.5|]][[Genesis 49.6|]][[Genesis 49.7|]][[Genesis 49.8|]][[Genesis 49.9|]][[Genesis 49.10|]][[Genesis 49.11|]][[Genesis 49.12|]][[Genesis 49.13|]][[Genesis 49.14|]][[Genesis 49.15|]][[Genesis 49.16|]][[Genesis 49.17|]][[Genesis 49.18|]][[Genesis 49.19|]][[Genesis 49.20|]][[Genesis 49.21|]][[Genesis 49.22|]][[Genesis 49.23|]][[Genesis 49.24|]][[Genesis 49.25|]][[Genesis 49.26|]][[Genesis 49.27|]][[Genesis 49.28|]]); Lehi blessed his posterity (see [[2 Nephi 4.3|2 Nephi 4:3–11]][[2 Nephi 4.4|]][[2 Nephi 4.5|]][[2 Nephi 4.6|]][[2 Nephi 4.7|]][[2 Nephi 4.8|]][[2 Nephi 4.9|]][[2 Nephi 4.10|]][[2 Nephi 4.11|]]).
+[^3]: Adam counseled and blessed his posterity (see [[D&C 107.42|D&C 107:42–56]][[D&C 107.43|]][[D&C 107.44|]][[D&C 107.45|]][[D&C 107.46|]][[D&C 107.47|]][[D&C 107.48|]][[D&C 107.49|]][[D&C 107.50|]][[D&C 107.51|]][[D&C 107.52|]][[D&C 107.53|]][[D&C 107.54|]][[D&C 107.55|]][[D&C 107.56|]]); Jacob blessed his sons and their descendants (see [[Genesis 49.1|Genesis 49:1–28]][[Genesis 49.2|]][[Genesis 49.3|]][[Genesis 49.4|]][[Genesis 49.5|]][[Genesis 49.6|]][[Genesis 49.7|]][[Genesis 49.8|]][[Genesis 49.9|]][[Genesis 49.10|]][[Genesis 49.11|]][[Genesis 49.12|]][[Genesis 49.13|]][[Genesis 49.14|]][[Genesis 49.15|]][[Genesis 49.16|]][[Genesis 49.17|]][[Genesis 49.18|]][[Genesis 49.19|]][[Genesis 49.20|]][[Genesis 49.21|]][[Genesis 49.22|]][[Genesis 49.23|]][[Genesis 49.24|]][[Genesis 49.25|]][[Genesis 49.26|]][[Genesis 49.27|]][[Genesis 49.28|]]); Lehi blessed his posterity (see [[2 Nephi 4.3|2 Nephi 4:3–11]][[2 Nephi 4.4|]][[2 Nephi 4.5|]][[2 Nephi 4.6|]][[2 Nephi 4.7|]][[2 Nephi 4.8|]][[2 Nephi 4.9|]][[2 Nephi 4.10|]][[2 Nephi 4.11|]]).
 
 [^4]: The Savior ordained apostles, prophets, and evangelists (see [[Ephesians 4.11|Ephesians 4:11]]); the duty of the Twelve is to ordain evangelists (see [[D&C 107.39|D&C 107:39]]); Hyrum Smith was to take the office of patriarch (see [[D&C 124.91|D&C 124:91–92, 124]][[D&C 124.92|]][[D&C 124.124|]]; [[D&C 135.1|135:1]]).
 
@@ -143,8 +145,3 @@ I bear witness that this is a holy office, a sacred office, a blessing to this C
 
 [^9]: Patriarchal blessing of Boyd K. Packer, 15 Jan. 1944, 2.
 
-
-
-
-
-#Church_Callings #Individual_Worth #Patriarchal_Blessings #Prophecy

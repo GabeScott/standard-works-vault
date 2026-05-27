@@ -1,7 +1,6 @@
 # Offense, Offend, Offender
 
-
-*See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Hurt.md|Hurt]]; [[Mocking, Mock, Mocker, Mockery.md|Mocking]]; [[Transgress, Transgression.md|Transgress]]; [[Trespass.md|Trespass]]
+*See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Hurt.md|Hurt]]; [[Mocking.md|Mocking]]; [[Transgress.md|Transgress]]; [[Trespass.md|Trespass]]
 
 we have *offended* against the Lord already, [[2 Chronicles 28.13|2 Chronicles 28:13]].
 
@@ -15,9 +14,9 @@ if thy right eye *offend* thee, pluck it out, [[Matthew 5.29|Matthew 5:29]] ([[M
 
 whosoever shall not be *offended* in me, [[Matthew 11.6|Matthew 11:6]] ([[Luke 7.23|Luke 7:23]]).
 
-when ... persecution ariseth because of the word ... he is *offended*, [[Matthew 13.21|Matthew 13:21]].
+when … persecution ariseth because of the word … he is *offended*, [[Matthew 13.21|Matthew 13:21]].
 
-gather out ... all things that *offend*, [[Matthew 13.41|Matthew 13:41]].
+gather out … all things that *offend*, [[Matthew 13.41|Matthew 13:41]].
 
 Satan: thou art an *offence* unto me, [[Matthew 16.23|Matthew 16:23]].
 
@@ -31,9 +30,9 @@ then shall many be *offended*, and shall betray, [[Matthew 24.10|Matthew 24:10]]
 
 shall be *offended* because of me, [[Matthew 26.31|Matthew 26:31]] ([[Mark 14.27|Mark 14:27]]).
 
-he said ... Doth this *offend* you, [[John 6.61|John 6:61]].
+he said … Doth this *offend* you, [[John 6.61|John 6:61]].
 
-things have I spoken ... that ye should not be *offended*, [[John 16.1|John 16:1]].
+things have I spoken … that ye should not be *offended*, [[John 16.1|John 16:1]].
 
 a conscience void of *offence* toward God, [[Acts 24.16|Acts 24:16]].
 
@@ -61,7 +60,7 @@ if thy brother or sister *offend* thee, [[D&C 42.88|D&C 42:88]].
 
 wo to him by whom this *offense* cometh, [[D&C 54.5|D&C 54:5]].
 
-in nothing doth man *offend* God ... save those who confess not, [[D&C 59.21|D&C 59:21]].
+in nothing doth man *offend* God … save those who confess not, [[D&C 59.21|D&C 59:21]].
 
 ye may not *offend* him who is your lawgiver, [[D&C 64.13|D&C 64:13]].
 

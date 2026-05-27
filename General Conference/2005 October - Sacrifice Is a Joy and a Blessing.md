@@ -1,5 +1,7 @@
 # Sacrifice Is a Joy and a Blessing
 
+Gordon B. Hinckley
+
 By Elder Won Yong Ko - *Of the Seventy*
 
 *Given in the October session of the 2005 General Conference*
@@ -47,8 +49,3 @@ As President Spencer W. Kimball said, “As we give, we find that ‘sacrifice b
 
 
 
-
-
-
-
-#Blessings #Joy #Sacrifice #Scripture_Study

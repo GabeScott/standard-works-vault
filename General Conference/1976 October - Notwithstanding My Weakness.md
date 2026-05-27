@@ -1,6 +1,8 @@
 # Notwithstanding My Weakness
 
-By Elder Neal A. Maxwell - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By Elder Neal A. Maxwell - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -14,7 +16,7 @@ Earlier disciples who heard Jesus preach some exacting doctrines were also anxio
 
 The first thing to be said of this feeling of inadequacy is that it is normal. There is no way the Church can honestly describe where we must yet go and what we must yet do without creating a sense of immense distance. Following celestial road signs while in telestial traffic jams is not easy, especially when we are not just moving next door—or even across town.
 
-In a Kingdom where perfection is an eventual expectation, each other’s needs for improvement have a way of being noticed. Perceptive Jethro had plenty of data to back up the crisp counsel he gave his son-in-law Moses. (See [[Exodus 18.1|Ex. 18]][[Exodus 18.2|]][[Exodus 18.3|]][[Exodus 18.4|]][[Exodus 18.5|]][[Exodus 18.6|]][[Exodus 18.7|]][[Exodus 18.8|]][[Exodus 18.9|]][[Exodus 18.10|]][[Exodus 18.11|]][[Exodus 18.12|]][[Exodus 18.13|]][[Exodus 18.14|]][[Exodus 18.15|]][[Exodus 18.16|]][[Exodus 18.17|]][[Exodus 18.18|]][[Exodus 18.19|]][[Exodus 18.20|]][[Exodus 18.21|]][[Exodus 18.22|]][[Exodus 18.23|]][[Exodus 18.24|]][[Exodus 18.25|]][[Exodus 18.26|]][[Exodus 18.27|]].) Even prophets notice their weaknesses. Nephi persisted in a major task “notwithstanding my weakness.” ([[2 Nephi 33.11|2 Ne. 33:11]].) Another Nephite prophet, Jacob, wrote candidly of his “over anxiety” for those with whom he was not certain he could communicate adequately. ([[Jacob 4.18|Jacob 4:18]].) Our present prophet has met those telling moments when he has felt as if he could not meet a challenge. Yet he did.
+In a Kingdom where perfection is an eventual expectation, each other’s needs for improvement have a way of being noticed. Perceptive Jethro had plenty of data to back up the crisp counsel he gave his son-in-law Moses. (See [[Exodus 18.1|Ex. 18]][[Exodus 18.2|]][[Exodus 18.3|]][[Exodus 18.4|]][[Exodus 18.5|]][[Exodus 18.6|]][[Exodus 18.7|]][[Exodus 18.8|]][[Exodus 18.9|]][[Exodus 18.10|]][[Exodus 18.11|]][[Exodus 18.12|]][[Exodus 18.13|]][[Exodus 18.14|]][[Exodus 18.15|]][[Exodus 18.16|]][[Exodus 18.17|]][[Exodus 18.18|]][[Exodus 18.19|]][[Exodus 18.20|]][[Exodus 18.21|]][[Exodus 18.22|]][[Exodus 18.23|]][[Exodus 18.24|]][[Exodus 18.25|]][[Exodus 18.26|]][[Exodus 18.27|]].) Even prophets notice their weaknesses. Nephi persisted in a major task “notwithstanding my weakness.” ([[2 Nephi 33.11|2 Ne. 33:11]].) Another Nephite prophet, Jacob, wrote candidly of his “over anxiety” for those with whom he was not certain he could communicate adequately. ([[Jacob 4.18|Jacob 4:18]].) Our present prophet has met those telling moments when he has felt as if he could not meet a challenge. Yet he did.
 
 Thus the feelings of inadequacy are common. So are the feelings of fatigue; hence, the needed warning about our becoming weary of well-doing. (See [[D&C 64.33|D&C 64:33]].)
 
@@ -24,13 +26,13 @@ Some of us who would not chastise a neighbor for his frailties have a field day 
 
 Brothers and sisters, the scriptures are like a developmental display window through which we can see gradual growth—along with this vital lesson: it is direction first, *then* velocity! Enoch’s unique people were improved “in process of time.” ([[Moses 7.21|Moses 7:21]].) Jesus “received not of the fulness at first, but received grace for grace” ([[D&C 93.12|D&C 93:12]]) and even He grew and “increased in wisdom and stature” ([[Luke 2.52|Luke 2:52]]).
 
-In the scriptural display window we see Lehi struggling as an anxious and “trembling parent.” ([[2 Nephi 1.14|2 Ne. 1:14]].) We see sibling rivalries but also deep friendships like that of David and Jonathan. We see that all conflict is not catastrophe. We view misunderstandings even in rich relationships like that of Paul and Barnabas. We see a prophet candidly reminding King Saul that there was a time when “thou wast little in thine own sight.” ([[1 Samuel 15.17|1 Sam. 15:17]].)
+In the scriptural display window we see Lehi struggling as an anxious and “trembling parent.” ([[2 Nephi 1.14|2 Ne. 1:14]].) We see sibling rivalries but also deep friendships like that of David and Jonathan. We see that all conflict is not catastrophe. We view misunderstandings even in rich relationships like that of Paul and Barnabas. We see a prophet candidly reminding King Saul that there was a time when “thou wast little in thine own sight.” ([[1 Samuel 15.17|1 Sam. 15:17]].)
 
 We see our near-perfect parents, Adam and Eve, coping with challenges in the first family, for their children, too, came trailing traits from their formative first estate.
 
-We see a legalistic Paul, but later read his matchless sermon on charity. (See [[1 Corinthians 13.1|1 Cor. 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].) We see a jailed John the Baptist—and there had been “no greater prophet” ([[Matthew 11.11|Matt. 11:11]])—needing reassurance (see [[Matthew 11.2|Matt. 11:2–4]][[Matthew 11.3|]][[Matthew 11.4|]]). We see Peter walking briefly on water but requiring rescue from Jesus’ outstretched hand (see [[Matthew 14.25|Matt. 14:25–31]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]]); later we see Peter stretching his strong hand to Tabitha after helping to restore her to life (see [[Acts 9.36|Acts 9:36–43]][[Acts 9.37|]][[Acts 9.38|]][[Acts 9.39|]][[Acts 9.40|]][[Acts 9.41|]][[Acts 9.42|]][[Acts 9.43|]]).
+We see a legalistic Paul, but later read his matchless sermon on charity. (See [[1 Corinthians 13.1|1 Cor. 13]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]][[1 Corinthians 13.9|]][[1 Corinthians 13.10|]][[1 Corinthians 13.11|]][[1 Corinthians 13.12|]][[1 Corinthians 13.13|]].) We see a jailed John the Baptist—and there had been “no greater prophet” ([[Matthew 11.11|Matt. 11:11]])—needing reassurance (see [[Matthew 11.2|Matt. 11:2–4]][[Matthew 11.3|]][[Matthew 11.4|]]). We see Peter walking briefly on water but requiring rescue from Jesus’ outstretched hand (see [[Matthew 14.25|Matt. 14:25–31]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]]); later we see Peter stretching his strong hand to Tabitha after helping to restore her to life (see [[Acts 9.36|Acts 9:36–43]][[Acts 9.37|]][[Acts 9.38|]][[Acts 9.39|]][[Acts 9.40|]][[Acts 9.41|]][[Acts 9.42|]][[Acts 9.43|]]).
 
-Moroni was not the first underinformed leader to conclude that another leader was not doing enough. (See [[Alma 60.1|Alma 60]][[Alma 60.2|]][[Alma 60.3|]][[Alma 60.4|]][[Alma 60.5|]][[Alma 60.6|]][[Alma 60.7|]][[Alma 60.8|]][[Alma 60.9|]][[Alma 60.10|]][[Alma 60.11|]][[Alma 60.12|]][[Alma 60.13|]][[Alma 60.14|]][[Alma 60.15|]][[Alma 60.16|]][[Alma 60.17|]][[Alma 60.18|]][[Alma 60.19|]][[Alma 60.20|]][[Alma 60.21|]][[Alma 60.22|]][[Alma 60.23|]][[Alma 60.24|]][[Alma 60.25|]][[Alma 60.26|]][[Alma 60.27|]][[Alma 60.28|]][[Alma 60.29|]][[Alma 60.30|]][[Alma 60.31|]][[Alma 60.32|]][[Alma 60.33|]][[Alma 60.34|]][[Alma 60.35|]][[Alma 60.36|]].) Nor was Pahoran’s sweet, generous response to his “beloved brother” Moroni the last such that will be needed. ([[Alma 61.1|Alma 61]][[Alma 61.2|]][[Alma 61.3|]][[Alma 61.4|]][[Alma 61.5|]][[Alma 61.6|]][[Alma 61.7|]][[Alma 61.8|]][[Alma 61.9|]][[Alma 61.10|]][[Alma 61.11|]][[Alma 61.12|]][[Alma 61.13|]][[Alma 61.14|]][[Alma 61.15|]][[Alma 61.16|]][[Alma 61.17|]][[Alma 61.18|]][[Alma 61.19|]][[Alma 61.20|]][[Alma 61.21|]].)
+Moroni was not the first underinformed leader to conclude that another leader was not doing enough. (See [[Alma 60.1|Alma 60]].) Nor was Pahoran’s sweet, generous response to his “beloved brother” Moroni the last such that will be needed. ([[Alma 61.1|Alma 61]].)
 
 What can we do to manage these vexing feelings of inadequacy? Here are but a few suggestions:
 
@@ -38,7 +40,7 @@ What can we do to manage these vexing feelings of inadequacy? Here are but a few
 
 2. We can contemplate how far we have already come in the climb along the pathway to perfection; it is usually much farther than we acknowledge. True, we *are* “unprofitable servants,” but partly because when “we have done that which was our duty to do” ([[Luke 17.10|Luke 17:10]]), with every ounce of such obedience comes a bushel of blessings.
 
-3. We can accept help as well as gladly give it. Happily, General Naaman received honest but helpful feedback, not from fellow generals, but from his orderlies. (See [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].) In the economy of heaven, God does not send thunder if a still, small voice is enough, or a prophet if a priest can do the job.
+3. We can accept help as well as gladly give it. Happily, General Naaman received honest but helpful feedback, not from fellow generals, but from his orderlies. (See [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].) In the economy of heaven, God does not send thunder if a still, small voice is enough, or a prophet if a priest can do the job.
 
 4. We can allow for the agency of others (including our children) *before* we assess our adequacy. Often our deliberate best is less effectual because of someone else’s worst.
 
@@ -71,8 +73,3 @@ If we so live, we too can say in personal prospectus, “And I soon go to the pl
 
 
 
-
-
-
-
-#Patience #Self-Esteem

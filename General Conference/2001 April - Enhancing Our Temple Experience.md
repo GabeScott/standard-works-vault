@@ -1,5 +1,7 @@
 # Enhancing Our Temple Experience
 
+Gordon B. Hinckley
+
 By Elder L. Lionel Kendrick - *Of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -72,7 +74,7 @@ The Savior has given us loving counsel that will assist us in enhancing our temp
 
 Perhaps the chastening words of the Savior to David Whitmer may be appropriate for us to remember:
 
-“Your mind has been on the things of the earth more than on the things of me, your Maker, … and you have not given heed unto my Spirit. …
+“Your mind has been on the things of the earth more than on the things of me, your Maker, … and you have not given heed unto my Spirit. …
 
 “Wherefore, you are left to inquire for yourself” ([[D&C 30.2|D&C 30:2–3]][[D&C 30.3|]]).
 
@@ -87,8 +89,3 @@ May we enhance our temple experience with a spirit of reverence, treating it as 
 
 
 
-
-
-
-
-#Holy_Ghost #Morality #Ordinances #Preparation #Reverence #Spirituality #Temple_Work #Temples #Worldliness #Worship

@@ -1,6 +1,8 @@
 # Fruit That Remains
 
-By Elder Matthew L. Carpenter - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Matthew L. Carpenter - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -14,7 +16,7 @@ Christ directed us to “go and bring forth fruit, … that your fruit should re
 
 The Holy Ghost, in His divine role as the Holy Spirit of Promise, will seal each ordinance upon those who are faithful to their covenants so that it will be valid after mortality.[^2] Having the Holy Ghost seal our ordinances is essential if we want to have the promised blessings for all eternity, becoming fruit that remains.
 
-This is particularly important if we want to be exalted.[^3] As President Russell M. Nelson has taught, we should “begin with the end in mind. … Surely, for each of us, the ‘end’ we would most like to achieve is to live forever with our families in an exalted state where we will be in the presence of God, our Heavenly Father, and His Son Jesus Christ.”[^4] President Nelson has also said: “Celestial marriage is a pivotal part of preparation for eternal life. It requires one to be married to the right person, in the right place, by the right authority, and to obey that sacred covenant faithfully. Then one may be assured of exaltation in the celestial kingdom of God.”[^5]
+This is particularly important if we want to be exalted.[^3] As President Russell M. Nelson has taught, we should “begin with the end in mind. … Surely, for each of us, the ‘end’ we would most like to achieve is to live forever with our families in an exalted state where we will be in the presence of God, our Heavenly Father, and His Son Jesus Christ.”[^4] President Nelson has also said: “Celestial marriage is a pivotal part of preparation for eternal life. It requires one to be married to the right person, in the right place, by the right authority, and to obey that sacred covenant faithfully. Then one may be assured of exaltation in the celestial kingdom of God.”[^5]
 
 What are the blessings of exaltation? They include dwelling in God’s presence for eternity together as husband and wife, inheriting “thrones, kingdoms, principalities, and powers, … and a continuation of the seeds forever and ever,”[^6] receiving all that God the Father has.[^7]
 
@@ -32,11 +34,11 @@ We learn here that one can be in the celestial kingdom, or dwell in the presence
 
 What is required to faithfully keep the new and everlasting covenant of marriage?
 
-President Russell M. Nelson has taught there are two types of bonds when we enter into this eternal marriage covenant: a lateral bond between husband and wife, and a vertical bond with God.[^10] To have the blessings of exaltation sealed upon us and remain after this life, we must be true to both the lateral and the vertical bonds of the covenant.
+President Russell M. Nelson has taught there are two types of bonds when we enter into this eternal marriage covenant: a lateral bond between husband and wife, and a vertical bond with God.[^10] To have the blessings of exaltation sealed upon us and remain after this life, we must be true to both the lateral and the vertical bonds of the covenant.
 
 To keep the lateral bond with your spouse, God has counseled us to “love \[your\] wife \[or husband\] with all \[your\] heart, and … cleave unto her \[or him\] and none else.”[^11] For those who are married, to cleave unto her or him and none else means you counsel together in love, you love and care for each other, you prioritize time with your spouse over outside interests, and you call upon God to help you overcome your weaknesses.[^12] It also means there is no emotional intimacy or sexual relations of any kind outside of your marriage, including flirting or dating, and there is no pornography, which engenders lust.[^13]
 
-To keep the lateral bond in the covenant, each partner must desire to be in the marriage. President Dallin H. Oaks recently taught: “We also know that He \[God\] will force no one into a sealing relationship against his or her will. The blessings of a sealed relationship are assured for all who keep their covenants *but never by forcing a sealed relationship on another person who is unworthy or unwilling*.”[^14]
+To keep the lateral bond in the covenant, each partner must desire to be in the marriage. President Dallin H. Oaks recently taught: “We also know that He \[God\] will force no one into a sealing relationship against his or her will. The blessings of a sealed relationship are assured for all who keep their covenants *but never by forcing a sealed relationship on another person who is unworthy or unwilling*.”[^14]
 
 What is the vertical bond referred to by President Nelson? The vertical bond is one we make with God.
 
@@ -52,7 +54,7 @@ While we hope that all who enter into the new and everlasting covenant remain tr
 
 Brothers and sisters, our loving Heavenly Father has given us covenants so that we may have access to all that He has in store for us. These sacred blessings from God are more delicious than any earthly fruit. They can be preserved for us forever, becoming fruit that remains, as we are faithful to our covenants.
 
-I testify that God has restored the authority to bind on earth and in heaven. That authority is found in The Church of Jesus Christ of Latter-day Saints. It is held by the First Presidency and Quorum of the Twelve and is exercised under the direction of President Russell M. Nelson. Those who enter into the new and everlasting covenant of marriage and keep that covenant can become perfected and eventually receive the fulness of the glory of the Father, regardless of circumstances beyond their control.[^19]
+I testify that God has restored the authority to bind on earth and in heaven. That authority is found in The Church of Jesus Christ of Latter-day Saints. It is held by the First Presidency and Quorum of the Twelve and is exercised under the direction of President Russell M. Nelson. Those who enter into the new and everlasting covenant of marriage and keep that covenant can become perfected and eventually receive the fulness of the glory of the Father, regardless of circumstances beyond their control.[^19]
 
 These promised blessings appertaining to our covenants can be sealed upon us by the Holy Spirit of Promise and become fruit that remains forever and ever. I so testify in the name of Jesus Christ, amen.
 
@@ -61,13 +63,13 @@ These promised blessings appertaining to our covenants can be sealed upon us by 
 
 [^1]: [[John 15.16|John 15:16]].
 
-[^2]: See Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power through Covenants]],” *Liahona*, May 2023, 35–38; [[D&C 132.7|Doctrine and Covenants 132:7]].
+[^2]: See Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power through Covenants]],” *Liahona*, May 2023, 35–38; [[D&C 132.7|Doctrine and Covenants 132:7]].
 
 [^3]: An ordinance is sealed when it is made valid both in heaven and on earth because it is performed by one having authority and is ratified by the Holy Ghost.
 
-[^4]: Russell M. Nelson, *Heart of the Matter: What 100 Years of Living Have Taught Me* (2023), 15. All covenants must be sealed by the Holy Spirit of Promise if they are to have force after the resurrection of the dead (see [[D&C 132.7|Doctrine and Covenants 132:7]]).
+[^4]: Russell M. Nelson, *Heart of the Matter: What 100 Years of Living Have Taught Me* (2023), 15. All covenants must be sealed by the Holy Spirit of Promise if they are to have force after the resurrection of the dead (see [[D&C 132.7|Doctrine and Covenants 132:7]]).
 
-[^5]: Russell M. Nelson, “[[2008 October - Celestial Marriage.md|Celestial Marriage]],” *Ensign* or *Liahona*, Nov. 2008, 94.
+[^5]: Russell M. Nelson, “[[2008 October - Celestial Marriage.md|Celestial Marriage]],” *Ensign* or *Liahona*, Nov. 2008, 94.
 
 [^6]: [[D&C 132.19|Doctrine and Covenants 132:19]].
 
@@ -75,30 +77,25 @@ These promised blessings appertaining to our covenants can be sealed upon us by 
 
 [^8]: [[D&C 131.1|Doctrine and Covenants 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]].
 
-[^9]: See [[D&C 132.19|Doctrine and Covenants 132:19–20]][[D&C 132.20|]]. “That highest destination—exaltation in the celestial kingdom—is the focus of The Church of Jesus Christ of Latter-day Saints” (Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” *Liahona*, Nov. 2023, 26).
+[^9]: See [[D&C 132.19|Doctrine and Covenants 132:19–20]][[D&C 132.20|]]. “That highest destination—exaltation in the celestial kingdom—is the focus of The Church of Jesus Christ of Latter-day Saints” (Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” *Liahona*, Nov. 2023, 26).
 
-[^10]: “Just as marriages and families share a unique *lateral* bond \[which\] creates a special love, so does the new relationship formed when we bind ourselves by covenant *vertically* to … God” when we enter into the new and everlasting covenant of marriage (Russell M. Nelson, *Heart of the Matter*, 41–42).
+[^10]: “Just as marriages and families share a unique *lateral* bond \[which\] creates a special love, so does the new relationship formed when we bind ourselves by covenant *vertically* to … God” when we enter into the new and everlasting covenant of marriage (Russell M. Nelson, *Heart of the Matter*, 41–42).
 
-[^11]: [[D&C 42.22|Doctrine and Covenants 42:22]]; see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [38.6.16](https://churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title97#title97). In discussing marriage here, I am referring to marriage according to God’s law, which defines marriage as the legal and lawful union between a man and a woman (see “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p1#p1),” Gospel Library).
+[^11]: [[D&C 42.22|Doctrine and Covenants 42:22]]; see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [38.6.16](https://www.churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title97#title97). In discussing marriage here, I am referring to marriage according to God’s law, which defines marriage as the legal and lawful union between a man and a woman (see “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p1#p1),” Gospel Library).
 
-[^12]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p6#p6),” Gospel Library.
+[^12]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p6#p6),” Gospel Library.
 
 [^13]: See [[D&C 42.22|Doctrine and Covenants 42:22–24]][[D&C 42.23|]][[D&C 42.24|]].
 
-[^14]: Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” 29; emphasis added.
+[^14]: Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” 29; emphasis added.
 
 [^15]: See [[D&C 86.8|Doctrine and Covenants 86:8–11]][[D&C 86.9|]][[D&C 86.10|]][[D&C 86.11|]]; [[D&C 113.8|113:8]]; [[Abraham 2.9|Abraham 2:9–11]][[Abraham 2.10|]][[Abraham 2.11|]].
 
-[^16]: See *General Handbook*, [38.4.1](https://churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title78#title78).
+[^16]: See *General Handbook*, [38.4.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/38-church-policies-and-guidelines?lang=eng&id=title78#title78).
 
-[^17]: See Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” 26.
+[^17]: See Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” 26.
 
-[^18]: Russell M. Nelson, “[[2008 October - Celestial Marriage.md|Celestial Marriage]],” 94.
+[^18]: Russell M. Nelson, “[[2008 October - Celestial Marriage.md|Celestial Marriage]],” 94.
 
 [^19]: See [[John 15.16|John 15:16]].
 
-
-
-
-
-#Covenants #Holy_Ghost #Marriage #Plan_Of_Salvation #Sealings

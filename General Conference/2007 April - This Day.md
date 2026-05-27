@@ -1,5 +1,7 @@
 # This Day
 
+Thomas S. Monson
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -8,7 +10,7 @@ By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2007/04/this-day?lang=eng)
 
-There is a danger in the word *someday* when what it means is “not this day.” “Someday I will repent.” “Someday I will forgive him.” “Someday I will speak to my friend about the Church.” “Someday I will start to pay tithing.” “Someday I will return to the temple.” “Someday …”
+There is a danger in the word *someday* when what it means is “not this day.” “Someday I will repent.” “Someday I will forgive him.” “Someday I will speak to my friend about the Church.” “Someday I will start to pay tithing.” “Someday I will return to the temple.” “Someday …”
 
 The scriptures make the danger of delay clear. It is that we may discover that we have run out of time. The God who gives us each day as a treasure will require an accounting. We will weep, and He will weep, if we have intended to repent and to serve Him in tomorrows which never came or have dreamt of yesterdays where the opportunity to act was past. This day is a precious gift of God. The thought “Someday I will” can be a thief of the opportunities of time and the blessings of eternity.
 
@@ -22,7 +24,7 @@ Then Amulek warns that procrastinating your repentance and service can cause the
 
 But with the warning he gives this hope: “And this I know, because the Lord hath said he dwelleth not in unholy temples, but in the hearts of the righteous doth he dwell; yea, and he has also said that the righteous shall sit down in his kingdom, to go no more out; but their garments should be made white through the blood of the Lamb.”[^2]
 
-The scriptures are filled with examples of wise servants of God who treasured the day they were in and chose to do what they could to bring cleansing. Joshua was one: “Choose you this day whom ye will serve … ,” he said, “but as for me and my house, we will serve the Lord.”[^3]
+The scriptures are filled with examples of wise servants of God who treasured the day they were in and chose to do what they could to bring cleansing. Joshua was one: “Choose you this day whom ye will serve … ,” he said, “but as for me and my house, we will serve the Lord.”[^3]
 
 Serving Him invites the Holy Ghost to be with us. And the Holy Ghost is a cleanser of sin.
 
@@ -66,7 +68,7 @@ For those who are discouraged by their circumstances and are therefore tempted t
 
 The other promise I make to you is that by choosing to serve Him this day, you will feel His love and grow to love Him more. You may remember the scripture:
 
-“I say unto you, I would that ye should remember to retain the name written always in your hearts, … that ye hear and know the voice by which ye shall be called, and also, the name by which he shall call you.
+“I say unto you, I would that ye should remember to retain the name written always in your hearts, … that ye hear and know the voice by which ye shall be called, and also, the name by which he shall call you.
 
 “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?”[^9]
 
@@ -93,14 +95,9 @@ I know that Heavenly Father lives and answers our prayers. I know that Jesus is 
 
 [^7]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-[^8]: [[2 Nephi 2.21|2 Nephi 2:21]].
+[^8]: [[2 Nephi 2.21|2 Nephi 2:21]].
 
 [^9]: [[Mosiah 5.12|Mosiah 5:12–13]][[Mosiah 5.13|]].
 
 [^10]: [[Matthew 25.21|Matthew 25:21]]; see also [[Matthew 25.23|v. 23]].
 
-
-
-
-
-#Attitude #Service #Time_Management

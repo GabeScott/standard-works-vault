@@ -1,5 +1,7 @@
 # These Are Your Days
 
+Gordon B. Hinckley
+
 By Jayne B. Malan - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -30,7 +32,7 @@ To you, like Janalyn, who know for yourselves you are daughters of God and are l
 
 To you who may question your worth and wonder if God really loves you, these are your days to experiment upon the word of God by obeying his commandments and staying close to him. That feeling of love and acceptance cannot come without obedience.
 
-As it says in this little booklet, *For the Strength of Youth,* “You cannot do wrong and feel right! It is impossible.” (*For the Strength of Youth,* Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990, p. 4.) In a spirit of love and concern for you, these standards were outlined by the First Presidency to help you know how to make wise choices and experience the Savior’s love.
+As it says in this little booklet, *For the Strength of Youth,* “You cannot do wrong and feel right! It is impossible.” (*For the Strength of Youth,* Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1990, p. 4.) In a spirit of love and concern for you, these standards were outlined by the First Presidency to help you know how to make wise choices and experience the Savior’s love.
 
 They’re summarized on this little card. Carry it with you all the time to remind you of the standards to live by.
 
@@ -58,15 +60,10 @@ Hear the words of President Ardeth G. Kapp.
 
 “Reach out to others in a great bond of sisterhood. Unite in righteousness. Hold your banners high for all to see. Don’t be ashamed of the gospel of Christ, for you have a cause and the cause is glorious!” (Young Women fireside, 10 Nov. 1985.)
 
-“Look to this day. Arise in all your splendor, and bear the standards of the world-to-be.” (Maude Osmond Cook, cited in *Ensign,* Nov. 1977, p. 32.)
+“Look to this day. Arise in all your splendor, and bear the standards of the world-to-be.” (Maude Osmond Cook, cited in *Ensign,* Nov. 1977, p. 32.)
 
 We honor you, we pray for you, we love you. May God bless you. I say this in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Faith #Obedience #Self-Esteem #Testimony

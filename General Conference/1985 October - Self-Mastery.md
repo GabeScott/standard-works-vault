@@ -1,5 +1,7 @@
 # Self-Mastery
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -26,7 +28,7 @@ Through those early years, we parents are properly concerned with physical needs
 
 But as you grow older, our concerns shift more toward your spiritual growth, in order that you might achieve your full potential. “For the natural man is an enemy to God, and has been from the fall of Adam, and will be, forever and ever, unless he yields to the enticings of the Holy Spirit … and becometh a saint.” ([[Mosiah 3.19|Mosiah 3:19]].)
 
-That requires self-mastery. Remember, “The spirit and the body are the soul of man.” ([[D&C 88.15|D&C 88:15]].) Both are of great importance. Your physical body is a magnificent creation of God. It is his temple as well as yours, and must be treated with reverence. Scripture declares: “Ye are the temple of God. … If any man defile \[it\], him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
+That requires self-mastery. Remember, “The spirit and the body are the soul of man.” ([[D&C 88.15|D&C 88:15]].) Both are of great importance. Your physical body is a magnificent creation of God. It is his temple as well as yours, and must be treated with reverence. Scripture declares: “Ye are the temple of God. … If any man defile \[it\], him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]].)
 
 Remarkable as your body is, its prime purpose is even of greater importance—to serve as tenement for your spirit. Abraham taught that “these … spirits … existed before, they shall have no end … for they are … eternal.” ([[Abraham 3.18|Abr. 3:18]].)
 
@@ -65,13 +67,13 @@ Shakespeare expressed such self-conflict as one of his characters contemplating 
 >For one sweet grape who will the vine destroy?
 >
 
-Prophets have repeatedly cautioned about moral sin. One, for example, warned: “O, my beloved brethren, remember the awfulness in transgressing against that Holy God, and also the awfulness of yielding to the enticings of that cunning one. Remember, to be carnally-minded is death, and to be spiritually-minded is life eternal.” ([[2 Nephi 9.39|2 Ne. 9:39]]; see also [[Romans 8.6|Rom. 8:6]]; [[Alma 36.4|Alma 36:4]]; [[D&C 29.35|D&C 29:35]]; [[D&C 67.10|67:10]].)
+Prophets have repeatedly cautioned about moral sin. One, for example, warned: “O, my beloved brethren, remember the awfulness in transgressing against that Holy God, and also the awfulness of yielding to the enticings of that cunning one. Remember, to be carnally-minded is death, and to be spiritually-minded is life eternal.” ([[2 Nephi 9.39|2 Ne. 9:39]]; see also [[Romans 8.6|Rom. 8:6]]; [[Alma 36.4|Alma 36:4]]; [[D&C 29.35|D&C 29:35]]; [[D&C 67.10|67:10]].)
 
 Now don’t misunderstand me. I would not want you to neglect your body. It deserves daily care. Physical conditioning through regular exercise requires self-mastery too. I marvel at Elder Joseph Anderson, now in his ninety-sixth year. For decades, the strength of his spirit over his body has induced him to swim regularly. But his motivation has never been to attain physical longevity. That has come only incidentally. His desire has been to serve God and His anointed. Elder Anderson has followed what I label as the Lord’s prescription for a long and useful life. Those faithful in “magnifying their calling, are sanctified by the Spirit unto the renewing of their bodies. They become … the elect of God.” ([[D&C 84.33|D&C 84:33–34]][[D&C 84.34|]].)
 
-Elder Anderson’s exercise program agrees with the perspective of Paul, who said: “Bodily exercise profiteth little: but godliness is profitable unto all things, having promise of the life that now is, and of that which is to come.” ([[1 Timothy 4.8|1 Tim. 4:8]].)
+Elder Anderson’s exercise program agrees with the perspective of Paul, who said: “Bodily exercise profiteth little: but godliness is profitable unto all things, having promise of the life that now is, and of that which is to come.” ([[1 Timothy 4.8|1 Tim. 4:8]].)
 
-Handsome and fit, Elder Anderson personifies this scripture: “Glorify God in your body, and in your spirit, which are God’s.” ([[1 Corinthians 6.20|1 Cor. 6:20]].)
+Handsome and fit, Elder Anderson personifies this scripture: “Glorify God in your body, and in your spirit, which are God’s.” ([[1 Corinthians 6.20|1 Cor. 6:20]].)
 
 As you work during the productive years of life, whether at home or in the field, in the factory or at a workbench, reputation is built and character is forged as you develop self-mastery. Faithful payment of tithing is part of that process. It defends you against dishonesty or shabby temptations. Courageous accountability for your own actions becomes a cherished prize.
 
@@ -81,11 +83,11 @@ It really matters what you listen to, what you look at, what you think, say, and
 
 As you approach old age, you will face new challenges to self-mastery. Symptoms of the deteriorating body can be painful, even disabling. Deep aches of sadness are caused by the departing of loved ones. For some, these deepening trials come early in life. But when yours are thrust upon you, remember a concept expressed by my father some time after my mother had passed away. Your grandparents had been married for sixty-four years. When someone asked how he was doing, my father simply stated, “I’m lonely, but I’m not lonesome.” Do you know what he meant? Though he was now without his sweetheart, he was so busy assisting family and friends, he had replaced sorrow with service and had displaced self-pity with selfless love. He had found joy in following the timeless example of the Master.
 
-Jesus, our Savior, was born in the lowliest of circumstances. For his baptism he was immersed in the lowest body of fresh water upon the planet. In service and suffering, he also “descended below” all things ([[D&C 122.8|D&C 122:8]]), that he could rise above all things. Near the end of his life, he triumphantly declared, “I have overcome the world.” ([[John 16.33|John 16:33]].) “Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life.” ([[3 Nephi 15.9|3 Ne. 15:9]].) Scriptures tutor us at least twenty-six times[*](https://churchofjesuschrist.org/study/general-conference/1985/10/self-mastery?lang=eng#note_asterisk) to endure to the end to attain eternal life. Then we will obtain a resurrected body—one that is incorruptible, glorified, and prepared to live in the presence of God.
+Jesus, our Savior, was born in the lowliest of circumstances. For his baptism he was immersed in the lowest body of fresh water upon the planet. In service and suffering, he also “descended below” all things ([[D&C 122.8|D&C 122:8]]), that he could rise above all things. Near the end of his life, he triumphantly declared, “I have overcome the world.” ([[John 16.33|John 16:33]].) “Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life.” ([[3 Nephi 15.9|3 Ne. 15:9]].) Scriptures tutor us at least twenty-six times[*](https://www.churchofjesuschrist.org/study/general-conference/1985/10/self-mastery?lang=eng#note_asterisk) to endure to the end to attain eternal life. Then we will obtain a resurrected body—one that is incorruptible, glorified, and prepared to live in the presence of God.
 
-To reach your highest destiny, emulate the Savior. He proclaimed, “What manner of men ought ye to be? … Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].) Our loftiest hope is to grow in spirit and attain “the stature of the fulness of Christ: That we henceforth be no more children.” ([[Ephesians 4.13|Eph. 4:13–14]][[Ephesians 4.14|]].)
+To reach your highest destiny, emulate the Savior. He proclaimed, “What manner of men ought ye to be? … Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].) Our loftiest hope is to grow in spirit and attain “the stature of the fulness of Christ: That we henceforth be no more children.” ([[Ephesians 4.13|Eph. 4:13–14]][[Ephesians 4.14|]].)
 
-You will then be well prepared for that pending day of judgment when, as taught by President Spencer W. Kimball, “the soul, composed of the resurrected body and the eternal spirit, … will come before the great judge to receive its final assignment for the eternity” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, p. 46.)
+You will then be well prepared for that pending day of judgment when, as taught by President Spencer W. Kimball, “the soul, composed of the resurrected body and the eternal spirit, … will come before the great judge to receive its final assignment for the eternity” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, p. 46.)
 
 Remember, my dear one, not an age in life passes without temptation, trial, or torment experienced through your physical body. But as you prayerfully develop self-mastery, desires of the flesh may be subdued. And when that has been achieved, you may have the strength to submit to your Heavenly Father, as did Jesus, who said, “Not my will, but thine, be done.” ([[Luke 22.42|Luke 22:42]].)
 
@@ -96,10 +98,5 @@ Christ is our great Exemplar. I declare, as a special witness, that he is the So
 
 
 
-[^*]: [[Matthew 10.22|Matt. 10:22]]; [[Matthew 24.13|24:13]]; [[Mark 13.13|Mark 13:13]]; [[1 Nephi 13.37|1 Ne. 13:37]]; [[1 Nephi 22.31|22:31]]; [[2 Nephi 9.24|2 Ne. 9:24]]; [[2 Nephi 31.15|31:15–16, 20]][[2 Nephi 31.16|]][[2 Nephi 31.20|]]; [[2 Nephi 33.4|33:4]]; [[Omni 1.26|Omni 1:26]]; [[Alma 32.13|Alma 32:13, 15]][[Alma 32.15|]]; [[Alma 38.2|38:2]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[3 Nephi 27.6|27:6, 16–17]][[3 Nephi 27.16|]][[3 Nephi 27.17|]]; [[Mormon 9.29|Morm. 9:29]]; [[Moroni 8.26|Moro. 8:26]]; [[D&C 10.69|D&C 10:69]]; [[D&C 14.7|14:7]]; [[D&C 18.22|18:22]]; [[D&C 20.25|20:25]]; [[D&C 20.29|20:29]]; [[D&C 53.7|53:7]].
+[^*]: [[Matthew 10.22|Matt. 10:22]]; [[Matthew 24.13|24:13]]; [[Mark 13.13|Mark 13:13]]; [[1 Nephi 13.37|1 Ne. 13:37]]; [[1 Nephi 22.31|22:31]]; [[2 Nephi 9.24|2 Ne. 9:24]]; [[2 Nephi 31.15|31:15–16, 20]][[2 Nephi 31.16|]][[2 Nephi 31.20|]]; [[2 Nephi 33.4|33:4]]; [[Omni 1.26|Omni 1:26]]; [[Alma 32.13|Alma 32:13, 15]][[Alma 32.15|]]; [[Alma 38.2|38:2]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[3 Nephi 27.6|27:6, 16–17]][[3 Nephi 27.16|]][[3 Nephi 27.17|]]; [[Mormon 9.29|Morm. 9:29]]; [[Moroni 8.26|Moro. 8:26]]; [[D&C 10.69|D&C 10:69]]; [[D&C 14.7|14:7]]; [[D&C 18.22|18:22]]; [[D&C 20.25|20:25]]; [[D&C 20.29|20:29]]; [[D&C 53.7|53:7]].
 
-
-
-
-
-#Self-Control

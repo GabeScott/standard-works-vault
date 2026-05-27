@@ -1,4 +1,3 @@
 # Chemosh
 
-
-*See* [BD Chemosh](https://www.churchofjesuschrist.org/study/scriptures/bd/chemosh?lang=eng)
+*See also* [[BD Chemosh.md|BD Chemosh]]

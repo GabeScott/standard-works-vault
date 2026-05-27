@@ -1,11 +1,10 @@
 # Milk
 
-
 he took butter, and *milk*, [[Genesis 18.8|Genesis 18:8]].
 
-land flowing with *milk* and honey, [[Exodus 3.8|Exodus 3:8]] ([[Leviticus 20.24|Leviticus 20:24]]; [[Deuteronomy 26.9|Deuteronomy 26:9]], [[Deuteronomy 26.15|Deuteronomy 26:15]]; [[D&C 38.18|D&C 38:18]]).
+land flowing with *milk* and honey, [[Exodus 3.8|Exodus 3:8]] ([[Leviticus 20.24|Leviticus 20:24]]; [[Deuteronomy 26.9|Deuteronomy 26:9]]; [[Deuteronomy 26.15|Deuteronomy 26:15]]; [[D&C 38.18|D&C 38:18]]).
 
-shalt not seethe a kid in his mother's *milk*, [[Exodus 23.19|Exodus 23:19]].
+shalt not seethe a kid in his mother’s *milk*, [[Exodus 23.19|Exodus 23:19]].
 
 churning of *milk* bringeth forth butter, [[Proverbs 30.33|Proverbs 30:33]].
 

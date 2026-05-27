@@ -1,6 +1,5 @@
 # Smell
 
-
 Lord *smelled* a sweet savour, [[Genesis 8.21|Genesis 8:21]].
 
 he *smelled* the *smell* of his raiment, [[Genesis 27.27|Genesis 27:27]].

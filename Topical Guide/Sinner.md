@@ -1,6 +1,5 @@
 # Sinner
 
-
 *See also* [[Evildoer.md|Evildoer]]; [[Sin.md|Sin]]; [[Transgressor.md|Transgressor]]
 
 men of Sodom were wicked and *sinners*, [[Genesis 13.13|Genesis 13:13]].
@@ -25,7 +24,7 @@ one *sinner* destroyeth much good, [[Ecclesiastes 9.18|Ecclesiastes 9:18]].
 
 *sinners* in Zion are afraid, [[Isaiah 33.14|Isaiah 33:14]].
 
-publicans and *sinners* ... sat down with him, [[Matthew 9.10|Matthew 9:10]] ([[Mark 2.15|Mark 2:15]]).
+publicans and *sinners* … sat down with him, [[Matthew 9.10|Matthew 9:10]] ([[Mark 2.15|Mark 2:15]]).
 
 I am not come to call the righteous, but *sinners*, [[Matthew 9.13|Matthew 9:13]] ([[Mark 2.17|Mark 2:17]]; [[Luke 5.32|Luke 5:32]]).
 
@@ -35,7 +34,7 @@ Son of man is betrayed into the hands of *sinners*, [[Matthew 26.45|Matthew 26:4
 
 This man receiveth *sinners*, [[Luke 15.2|Luke 15:2]].
 
-joy ... in heaven over one *sinner* that repenteth, [[Luke 15.7|Luke 15:7]] ([[Luke 15.10|Luke 15:10]]).
+joy … in heaven over one *sinner* that repenteth, [[Luke 15.7|Luke 15:7]] ([[Luke 15.10|Luke 15:10]]).
 
 God be merciful to me a *sinner*, [[Luke 18.13|Luke 18:13]].
 
@@ -45,7 +44,7 @@ while we were yet *sinners*, Christ died for us, [[Romans 5.8|Romans 5:8]].
 
 Jesus came into the world to save *sinners*, [[1 Timothy 1.15|1 Timothy 1:15]].
 
-high priest ... undefiled, separate from *sinners*, [[Hebrews 7.26|Hebrews 7:26]].
+high priest … undefiled, separate from *sinners*, [[Hebrews 7.26|Hebrews 7:26]].
 
 Cleanse your hands, ye *sinners*, [[James 4.8|James 4:8]].
 
@@ -57,4 +56,4 @@ ye do try to suppose that it is injustice that the *sinner* should be consigned 
 
 *sinners* stay and sleep until I shall call, [[D&C 43.18|D&C 43:18]].
 
-those who desire ... to warn *sinners*, [[D&C 63.57|D&C 63:57]].
+those who desire … to warn *sinners*, [[D&C 63.57|D&C 63:57]].

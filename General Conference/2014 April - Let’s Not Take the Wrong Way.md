@@ -1,6 +1,8 @@
 # Let’s Not Take the Wrong Way
 
-By Elder Claudio D. Zivic - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Claudio D. Zivic - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -38,7 +40,7 @@ There are some mistakes that may be serious, and if we do not correct them in ti
 
 I want to give an example of this concept by making reference to one of the most dramatic moments that the Prophet Joseph Smith experienced. Through this experience, the Savior has given us invaluable teachings regarding principles that we ought to keep in mind throughout our lives. It happened when Martin Harris lost the 116 translated pages of the first part of the Book of Mormon.
 
-After repenting for not following God’s counsel, the Prophet received the revelation that is found in [[D&C 3.1|section 3]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]][[D&C 3.11|]][[D&C 3.12|]][[D&C 3.13|]][[D&C 3.14|]][[D&C 3.15|]][[D&C 3.16|]][[D&C 3.17|]][[D&C 3.18|]][[D&C 3.19|]][[D&C 3.20|]] of the Doctrine and Covenants (see *Teachings of Presidents of the Church: Joseph Smith* \[2007\], 69–71). From what is written in [[D&C 3.1|verses 1 to 10]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]], I wish to highlight three principles that we should always remember:
+After repenting for not following God’s counsel, the Prophet received the revelation that is found in [[D&C 3.1|section 3]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]][[D&C 3.11|]][[D&C 3.12|]][[D&C 3.13|]][[D&C 3.14|]][[D&C 3.15|]][[D&C 3.16|]][[D&C 3.17|]][[D&C 3.18|]][[D&C 3.19|]][[D&C 3.20|]] of the Doctrine and Covenants (see *Teachings of Presidents of the Church: Joseph Smith* \[2007\], 69–71). From what is written in [[D&C 3.1|verses 1 to 10]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]], I wish to highlight three principles that we should always remember:
 
 1. The works and the purposes of God cannot be frustrated.
 
@@ -46,7 +48,7 @@ After repenting for not following God’s counsel, the Prophet received the reve
 
 3. There is a need of constant repentance.
 
-In [[D&C 3.13|verse 13]], the Lord teaches us four actions that we should never do:
+In [[D&C 3.13|verse 13]], the Lord teaches us four actions that we should never do:
 
 1. Set at naught the counsels of God.
 
@@ -73,8 +75,3 @@ I testify to the four ends of the earth that Jesus Christ lives. He exhorts us, 
 
 
 
-
-
-
-
-#Jesus_Christ #Repentance

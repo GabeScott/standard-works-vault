@@ -1,6 +1,8 @@
 # That They May See
 
-By Bonnie H. Cordon - *Young Women General President*
+Russell M. Nelson
+
+By Bonnie H. Cordon - *Young Women General President*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -14,7 +16,7 @@ Two hundred years ago, a pillar of light rested on a young man in a grove of tre
 
 By virtue of the Restoration of His gospel, we can be filled with the light of our Savior. However, that light is not meant for you and me alone. Jesus Christ has called upon us to “let your light so shine before this people, that they may see your good works and glorify your Father who is in heaven.”[^1] I have come to love the phrase “that they may see.” It is an earnest invitation from the Lord to be more intentional about helping others see the path and thereby come unto Christ.
 
-When I was 10 years old, our family had the honor of hosting Elder L. Tom Perry of the Quorum of the Twelve Apostles while he was on assignment in my hometown.
+When I was 10 years old, our family had the honor of hosting Elder L. Tom Perry of the Quorum of the Twelve Apostles while he was on assignment in my hometown.
 
 At the close of the day, our family and the Perrys sat down in our living room to enjoy my mother’s delicious apple pie while Elder Perry recounted stories about Saints around the world. I was enthralled.
 
@@ -38,7 +40,7 @@ The Savior testified, “Behold I am the light; I have set an example for you.�
 
 The woman at the well was a Samaritan who did not know Jesus Christ and was viewed by many as an outcast in her own society. Jesus met her and initiated a conversation. He spoke to her of water. He then led her to increased light as He declared Himself to be the “living water.”[^4]
 
-Christ was compassionately aware of her and her needs. He met the woman where she was and started by talking about something familiar and common. If He had stopped there, it would have been a positive encounter. But it would not have resulted in her going to the city to proclaim, “Come, see … : is not this the Christ?”[^5] Gradually, through the conversation, she discovered Jesus Christ, and despite her past, she became an instrument of light, shining the way for others to see.[^6]
+Christ was compassionately aware of her and her needs. He met the woman where she was and started by talking about something familiar and common. If He had stopped there, it would have been a positive encounter. But it would not have resulted in her going to the city to proclaim, “Come, see … : is not this the Christ?”[^5] Gradually, through the conversation, she discovered Jesus Christ, and despite her past, she became an instrument of light, shining the way for others to see.[^6]
 
 Now let’s look at two people who followed the Savior’s example of shining light. Recently my friend Kevin was seated next to a business executive at dinner. He worried what to talk about for two hours. Following a prompting, Kevin asked, “Tell me about your family. Where do they come from?”
 
@@ -71,32 +73,27 @@ I invite all of us to follow the example of Jesus Christ and be compassionately 
 
 
 
-[^1]: [[3 Nephi 12.16|3 Nephi 12:16]].
+[^1]: [[3 Nephi 12.16|3 Nephi 12:16]].
 
-[^2]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
+[^2]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
 
-[^3]: [[3 Nephi 18.16|3 Nephi 18:16]].
+[^3]: [[3 Nephi 18.16|3 Nephi 18:16]].
 
 [^4]: See [[John 4.9|John 4:9–30]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]][[John 4.27|]][[John 4.28|]][[John 4.29|]][[John 4.30|]].
 
 [^5]: [[John 4.29|John 4:29]].
 
-[^6]: See Robert and Marie Lund, “[The Savior’s Respect for Women](https://churchofjesuschrist.org/study/ensign/2015/03/the-saviors-respect-for-women?lang=eng),” *Ensign,* Mar. 2015, 50–55; *Liahona,* Mar. 2015, 32–36.
+[^6]: See Robert and Marie Lund, “[The Savior’s Respect for Women](https://www.churchofjesuschrist.org/study/ensign/2015/03/the-saviors-respect-for-women?lang=eng),” *Ensign,* Mar. 2015, 50–55; *Liahona,* Mar. 2015, 32–36.
 
 [^7]: Personal correspondence.
 
 [^8]: Personal correspondence.
 
-[^9]: [[3 Nephi 18.24|3 Nephi 18:24]].
+[^9]: [[3 Nephi 18.24|3 Nephi 18:24]].
 
 [^10]: [[D&C 123.12|Doctrine and Covenants 123:12]].
 
-[^11]: See Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona,* May 2019, 15–18.
+[^11]: See Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona,* May 2019, 15–18.
 
 [^12]: [[John 8.12|John 8:12]].
 
-
-
-
-
-#Example #Jesus_Christ

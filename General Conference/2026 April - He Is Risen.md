@@ -1,5 +1,7 @@
 # He Is Risen
 
+Dallin H. Oaks
+
 By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -65,7 +67,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^4]: [[John 8.12|John 8:12]].
 
-[^5]: [[2 Nephi 25.19|2 Nephi 25:19]].
+[^5]: [[2 Nephi 25.19|2 Nephi 25:19]].
 
 [^6]: [[D&C 42.1|Doctrine and Covenants 42:1]].
 
@@ -73,7 +75,7 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^8]: See [[D&C 76.17|Doctrine and Covenants 76:17]].
 
-[^9]: [[1 Timothy 6.15|1 Timothy 6:15]].
+[^9]: [[1 Timothy 6.15|1 Timothy 6:15]].
 
 [^10]: [[Mosiah 27.31|Mosiah 27:31]]; see also [[Isaiah 45.23|Isaiah 45:23]]; [[Philippians 2.10|Philippians 2:10–11]][[Philippians 2.11|]]; [[D&C 76.110|Doctrine and Covenants 76:110]]; [[D&C 88.104|88:104]].
 
@@ -95,17 +97,17 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^19]: [[Moses 7.35|Moses 7:35]].
 
-[^20]: See [[1 Corinthians 15.6|1 Corinthians 15:6]]. The Holy Land is very much a backdrop to the narratives of both the New and Old Testaments, though it is not mentioned explicitly in the Bible. It has been called the “Promised Land” and at the time of Christ’s ministry would have included the areas of Galilee, Judea, and Samaria.
+[^20]: See [[1 Corinthians 15.6|1 Corinthians 15:6]]. The Holy Land is very much a backdrop to the narratives of both the New and Old Testaments, though it is not mentioned explicitly in the Bible. It has been called the “Promised Land” and at the time of Christ’s ministry would have included the areas of Galilee, Judea, and Samaria.
 
-[^21]: In the land called Bountiful, a great multitude of the people of Nephi gathered around the temple and marveled at the changes that had taken place in the land (see [[3 Nephi 11.1|3 Nephi 11:1]]).
+[^21]: In the land called Bountiful, a great multitude of the people of Nephi gathered around the temple and marveled at the changes that had taken place in the land (see [[3 Nephi 11.1|3 Nephi 11:1]]).
 
-[^22]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^22]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
-[^23]: [[3 Nephi 11.8|3 Nephi 11:8]].
+[^23]: [[3 Nephi 11.8|3 Nephi 11:8]].
 
-[^24]: [[3 Nephi 11.9|3 Nephi 11:9]].
+[^24]: [[3 Nephi 11.9|3 Nephi 11:9]].
 
-[^25]: [[3 Nephi 11.10|3 Nephi 11:10]].
+[^25]: [[3 Nephi 11.10|3 Nephi 11:10]].
 
 [^26]: See [[Matthew 14.31|Matthew 14:31]].
 
@@ -117,17 +119,17 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^30]: [[Isaiah 41.10|Isaiah 41:10]].
 
-[^31]: [[3 Nephi 11.14|3 Nephi 11:14]].
+[^31]: [[3 Nephi 11.14|3 Nephi 11:14]].
 
-[^32]: [[3 Nephi 11.15|3 Nephi 11:15]]. The number of those gathered at the temple is mentioned in [[3 Nephi 17.25|3 Nephi 17:25]].
+[^32]: [[3 Nephi 11.15|3 Nephi 11:15]]. The number of those gathered at the temple is mentioned in [[3 Nephi 17.25|3 Nephi 17:25]].
 
-[^33]: [[3 Nephi 17.11|3 Nephi 17:11]].
+[^33]: [[3 Nephi 17.11|3 Nephi 17:11]].
 
-[^34]: [[3 Nephi 17.21|3 Nephi 17:21]].
+[^34]: [[3 Nephi 17.21|3 Nephi 17:21]].
 
 [^35]: See Ronald A. Rasband, “[[2012 April - Special Lessons.md|Special Lessons]],” *Liahona*, May 2012, 80–82.
 
-[^36]: [[3 Nephi 17.7|3 Nephi 17:7]].
+[^36]: [[3 Nephi 17.7|3 Nephi 17:7]].
 
 [^37]: [[John 9.3|John 9:3]].
 
@@ -147,5 +149,3 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^45]: See [[D&C 107.23|Doctrine and Covenants 107:23]].
 
-
-#Jesus_Christ #Resurrection

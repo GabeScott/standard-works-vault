@@ -1,5 +1,7 @@
 # We Have a Work to Do
 
+Ezra Taft Benson
+
 By Elder Lloyd P. George - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -25,8 +27,3 @@ May we all have the desire to accomplish this so there will be no one that will 
 
 
 
-
-
-
-
-#Missionary_Work

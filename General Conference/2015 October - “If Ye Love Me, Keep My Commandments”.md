@@ -1,6 +1,8 @@
 # “If Ye Love Me, Keep My Commandments”
 
-By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
+Rosemary M. Wixom
+
+By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -74,7 +76,7 @@ When your mind is filled with doubt and confusion, the Father and the Son will s
 
 Recently, living prophets have counseled us to “remember the sabbath day, to keep it holy,”[^14] and to live the law of the fast. Obedience to this prophetic counsel provides a way for us to be obedient to God’s commandment to love Him and our neighbor as we increase our faith in Jesus Christ and extend our hand to love and care for others.[^15]
 
-There is safety in following the word of the Lord through His prophets. God called President Thomas S. Monson, the counselors in the First Presidency, and the members of the Quorum of the Twelve Apostles as prophets, seers, and revelators. In this world of increasing fear, distraction, adversity, and anger, we can look to them to see how disciples of Jesus Christ—filled with charity—look, sound, and react to issues that could be divisive. They testify of Jesus Christ and respond with charity, the pure love of Jesus Christ, whose witnesses they are.
+There is safety in following the word of the Lord through His prophets. God called President Thomas S. Monson, the counselors in the First Presidency, and the members of the Quorum of the Twelve Apostles as prophets, seers, and revelators. In this world of increasing fear, distraction, adversity, and anger, we can look to them to see how disciples of Jesus Christ—filled with charity—look, sound, and react to issues that could be divisive. They testify of Jesus Christ and respond with charity, the pure love of Jesus Christ, whose witnesses they are.
 
 After my experience with Chloe, I searched the scriptures for verses that mentioned commandments and love. I found many. Each of these verses reminds us that His commandments are a manifestation of His love for us and obedience to His commandments is an expression of our love for Him.
 
@@ -93,17 +95,19 @@ I testify that as we trust God, our Eternal Father; trust His Son, Jesus Christ,
 
 [^5]: [[D&C 130.20|Doctrine and Covenants 130:20]].
 
-[^6]: Russell M. Nelson, in R. Scott Lloyd, “God Wants His Children to Return to Him, Elder Nelson Teaches,” Church News section of  
+[^6]: Russell M. Nelson, in R. Scott Lloyd, “God Wants His Children to Return to Him, Elder Nelson Teaches,” Church News section of 
 
 
 
-LDS.org  
+
+LDS.org 
 
 
 
-, Jan. 28, 2014.
 
-[^7]: Russell M. Nelson, “Prepare for the Blessings of the Temple,” *Ensign* or *Liahona,* Oct. 2010, 49.
+, Jan. 28, 2014.
+
+[^7]: Russell M. Nelson, “Prepare for the Blessings of the Temple,” *Ensign* or *Liahona,* Oct. 2010, 49.
 
 [^8]: [[John 15.10|John 15:10]].
 
@@ -119,18 +123,15 @@ LDS.org
 
 [^14]: [[Exodus 20.8|Exodus 20:8]].
 
-[^15]: See *Handbook 2: Administering the Church* (2010),  
+[^15]: See *Handbook 2: Administering the Church* (2010), 
 
 
 
-6.1.2  
+
+6.1.2 
+
 
 
 
 .
 
-
-
-
-
-#Commandments #God_The_Father #Holy_Ghost #Jesus_Christ #Love #Obedience #Plan_Of_Salvation #Prophets #Sacrament

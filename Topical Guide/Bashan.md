@@ -1,4 +1,3 @@
 # Bashan
 
-
-*See* [BD Bashan](https://www.churchofjesuschrist.org/study/scriptures/bd/bashan?lang=eng)
+*See also* [[BD Bashan.md|BD Bashan]]

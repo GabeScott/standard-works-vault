@@ -1,6 +1,5 @@
 # Terrible
 
-
 *See also* [[Fearful.md|Fearful]]; [[Terrify.md|Terrify]]; [[Terror.md|Terror]]
 
 *terrible* thing that I will do with thee, [[Exodus 34.10|Exodus 34:10]].
@@ -37,10 +36,10 @@ multitudes who had not fallen because of the great and *terrible* judgments, [[1
 
 great and *terrible* tempest, [[3 Nephi 8.6|3 Nephi 8:6]] ([[Ether 6.6|Ether 6:6]]).
 
-coming forth of my church ... *terrible* as an army, [[D&C 5.14|D&C 5:14]].
+coming forth of my church … *terrible* as an army, [[D&C 5.14|D&C 5:14]].
 
 inhabitants of Zion are *terrible*, [[D&C 45.70|D&C 45:70]] ([[D&C 45.74|D&C 45:74]]).
 
-nations of the earth ... shall fear because of her *terrible* ones, [[D&C 64.43|D&C 64:43]].
+nations of the earth … shall fear because of her *terrible* ones, [[D&C 64.43|D&C 64:43]].
 
 that her banners may be *terrible* unto all nations, [[D&C 105.31|D&C 105:31]] ([[D&C 109.73|D&C 109:73]]).

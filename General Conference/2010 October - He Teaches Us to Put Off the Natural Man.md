@@ -1,5 +1,7 @@
 # He Teaches Us to Put Off the Natural Man
 
+Thomas S. Monson
+
 By Elder Juan A. Uceda - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -61,7 +63,7 @@ He is “the Lamb of God,”[^9] He is “the Holy and Righteous One,”[^10] �
 
 [^1]: [[Mosiah 3.19|Mosiah 3:19]].
 
-[^2]: Bible Dictionary, “Temple.”
+[^2]: Bible Dictionary, “[[BD Temple|Temple]].”
 
 [^3]: [[D&C 121.37|Doctrine and Covenants 121:37]].
 
@@ -81,8 +83,3 @@ He is “the Lamb of God,”[^9] He is “the Holy and Righteous One,”[^10] �
 
 [^11]: [[Isaiah 9.6|Isaiah 9:6]].
 
-
-
-
-
-#Atonement #Family #Humility #Love #Patience #Repentance #Righteousness

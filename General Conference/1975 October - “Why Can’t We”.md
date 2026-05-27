@@ -1,6 +1,8 @@
 # “Why Can’t We?”
 
-By Elder David B. Haight - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -63,5 +65,3 @@ I testify that Jesus the Christ is the source of priesthood power. No power can 
 
 
 
-
-#Activation #Priesthood

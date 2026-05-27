@@ -1,6 +1,8 @@
 # The Purpose of Church Welfare Services
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -16,9 +18,9 @@ Since we have so far in this meeting concentrated on *how* we should minister in
 
 If we will do the things the Lord has asked us to do, we too will continue to be blessed and will grow in righteousness. In the revelation that the Prophet specified as “embracing the law of the Church” ([[D&C 42.1|D&C 42]][[D&C 42.2|]][[D&C 42.3|]][[D&C 42.4|]][[D&C 42.5|]][[D&C 42.6|]][[D&C 42.7|]][[D&C 42.8|]][[D&C 42.9|]][[D&C 42.10|]][[D&C 42.11|]][[D&C 42.12|]][[D&C 42.13|]][[D&C 42.14|]][[D&C 42.15|]][[D&C 42.16|]][[D&C 42.17|]][[D&C 42.18|]][[D&C 42.19|]][[D&C 42.20|]][[D&C 42.21|]][[D&C 42.22|]][[D&C 42.23|]][[D&C 42.24|]][[D&C 42.25|]][[D&C 42.26|]][[D&C 42.27|]][[D&C 42.28|]][[D&C 42.29|]][[D&C 42.30|]][[D&C 42.31|]][[D&C 42.32|]][[D&C 42.33|]][[D&C 42.34|]][[D&C 42.35|]][[D&C 42.36|]][[D&C 42.37|]][[D&C 42.38|]][[D&C 42.39|]][[D&C 42.40|]][[D&C 42.41|]][[D&C 42.42|]][[D&C 42.43|]][[D&C 42.44|]][[D&C 42.45|]][[D&C 42.46|]][[D&C 42.47|]][[D&C 42.48|]][[D&C 42.49|]][[D&C 42.50|]][[D&C 42.51|]][[D&C 42.52|]][[D&C 42.53|]][[D&C 42.54|]][[D&C 42.55|]][[D&C 42.56|]][[D&C 42.57|]][[D&C 42.58|]][[D&C 42.59|]][[D&C 42.60|]][[D&C 42.61|]][[D&C 42.62|]][[D&C 42.63|]][[D&C 42.64|]][[D&C 42.65|]][[D&C 42.66|]][[D&C 42.67|]][[D&C 42.68|]][[D&C 42.69|]][[D&C 42.70|]][[D&C 42.71|]][[D&C 42.72|]][[D&C 42.73|]][[D&C 42.74|]][[D&C 42.75|]][[D&C 42.76|]][[D&C 42.77|]][[D&C 42.78|]][[D&C 42.79|]][[D&C 42.80|]][[D&C 42.81|]][[D&C 42.82|]][[D&C 42.83|]][[D&C 42.84|]][[D&C 42.85|]][[D&C 42.86|]][[D&C 42.87|]][[D&C 42.88|]][[D&C 42.89|]][[D&C 42.90|]][[D&C 42.91|]][[D&C 42.92|]][[D&C 42.93|]], chapter heading), the Lord said:
 
-“Behold, thou wilt remember the poor, and consecrate of thy properties for their support that which thou hast to impart unto them. …
+“Behold, thou wilt remember the poor, and consecrate of thy properties for their support that which thou hast to impart unto them. …
 
-“And inasmuch as ye impart of your substance unto the poor, ye will do it unto me; and they shall be laid before the bishop of my church and his counselors. …
+“And inasmuch as ye impart of your substance unto the poor, ye will do it unto me; and they shall be laid before the bishop of my church and his counselors. …
 
 “And it shall come to pass, that after they are laid before the bishop of my church, … it shall be kept to administer to those who have not, from time to time, that every man who has need may be amply supplied and receive according to his wants.
 
@@ -46,11 +48,11 @@ The intent was, however, for him to so operate his property as to produce a livi
 
 These divine principles are very simple and easily understood. However, there are a number of concepts which must prevail in order for this ideal to be realized. Chief among these concepts are the following:
 
-1. *A belief in God* and acceptance of Him as Lord of the earth and the author of the united order. Through it we seek righteousness and spiritual development. “For,” declared the Lord, “if ye are not *equal in earthly things ye cannot be equal in obtaining heavenly things;*“For if you will,” he continued, “that I give unto you a place in the celestial world, you must prepare yourselves by doing the things which I have commanded you and required of you. …“That you may come up unto the crown prepared for you, and be made rulers over many kingdoms, saith the Lord God, the Holy One of Zion.” ([[D&C 78.6|D&C 78:6–7, 15]][[D&C 78.7|]][[D&C 78.15|]]; italics added.)
+1. *A belief in God* and acceptance of Him as Lord of the earth and the author of the united order. Through it we seek righteousness and spiritual development. “For,” declared the Lord, “if ye are not *equal in earthly things ye cannot be equal in obtaining heavenly things;*“For if you will,” he continued, “that I give unto you a place in the celestial world, you must prepare yourselves by doing the things which I have commanded you and required of you. …“That you may come up unto the crown prepared for you, and be made rulers over many kingdoms, saith the Lord God, the Holy One of Zion.” ([[D&C 78.6|D&C 78:6–7, 15]][[D&C 78.7|]][[D&C 78.15|]]; italics added.)
 
 2. The united order is implemented by *the voluntary freewill actions of men,* evidenced by a consecration of all their property to the Church of God. No force of any kind is ever involved.
 
-3. As to property, in harmony with Church belief as set forth in the Doctrine and Covenants, “no government can exist in peace, except such laws are framed and held inviolate as will secure to each individual the free exercise of conscience, \[and\] the right and control of property.” ([[D&C 134.2|D&C 134:2]].) The united order is operated upon the principle of *private ownership and individual management.* Thus, in both ownership and management of property, the united order preserved to men their God-given agency. In this way, He holds each steward accountable for his own work and productivity. Indeed, He said:“For it is expedient that I, the Lord, should make every man accountable, as a steward over earthly blessings, which I have made and prepared for my creatures.” ([[D&C 104.13|D&C 104:13]].)You can see from this the truth of President Clark’s statement when he said:“The Church never was, and under existing commandments never will be, a communal society, under the directions thus far given by the Lord. The United Order was not communal nor communistic. It was completely and intensely individualistic, with a consecration of unneeded surpluses for the support of the Church and the poor.” (J. Reuben Clark, Jr., “The United Order and Law of Consecration As Set Out in the Revelations of the Lord,” from a pamphlet of articles reprinted from the Church Section of the *Deseret News,* 1942, pp. 26–27.)
+3. As to property, in harmony with Church belief as set forth in the Doctrine and Covenants, “no government can exist in peace, except such laws are framed and held inviolate as will secure to each individual the free exercise of conscience, \[and\] the right and control of property.” ([[D&C 134.2|D&C 134:2]].) The united order is operated upon the principle of *private ownership and individual management.* Thus, in both ownership and management of property, the united order preserved to men their God-given agency. In this way, He holds each steward accountable for his own work and productivity. Indeed, He said:“For it is expedient that I, the Lord, should make every man accountable, as a steward over earthly blessings, which I have made and prepared for my creatures.” ([[D&C 104.13|D&C 104:13]].)You can see from this the truth of President Clark’s statement when he said:“The Church never was, and under existing commandments never will be, a communal society, under the directions thus far given by the Lord. The United Order was not communal nor communistic. It was completely and intensely individualistic, with a consecration of unneeded surpluses for the support of the Church and the poor.” (J. Reuben Clark, Jr., “The United Order and Law of Consecration As Set Out in the Revelations of the Lord,” from a pamphlet of articles reprinted from the Church Section of the *Deseret News,* 1942, pp. 26–27.)
 
 4. *The united order is nonpolitical.* It is therefore totally unlike the various forms of socialism, which are political, both in theory and in practice. They are thus exposed to, and riddled by, the corruption which plagues and finally destroys all political governments which undertake to abridge man’s agency.
 
@@ -76,11 +78,11 @@ Full implementation of the united order must, according to the revelation, await
 
 The law of tithing, for example, gives us a great opportunity to implement the principle of consecration and stewardship. When it was instituted, four years after the united order experiment was suspended, the Lord required the people to put “all their surplus property … into the hands of the bishop”; thereafter they were to “pay one-tenth of all their interest annually.” ([[D&C 119.1|D&C 119:1, 4]][[D&C 119.4|]].) This law, still in force, implements to a degree at least the united order principle of stewardship. It leaves in the hands of each person the ownership and management of the property from which he produces the needs of himself and family. To use again the words of President Clark:
 
-“In lieu of residues and surpluses which were accumulated and built up under the United Order, we, today, have our fast offerings, our Welfare donations, and our tithing, all of which may be devoted to the care of the poor, as well as the carrying on of the activities and business of the Church. …
+“In lieu of residues and surpluses which were accumulated and built up under the United Order, we, today, have our fast offerings, our Welfare donations, and our tithing, all of which may be devoted to the care of the poor, as well as the carrying on of the activities and business of the Church. …
 
-“Furthermore, we had under the United Order a bishop’s storehouse in which were collected the materials from which to supply the needs and the wants of the poor. We have a bishop’s storehouse under the Welfare Plan, used for the same purpose. …
+“Furthermore, we had under the United Order a bishop’s storehouse in which were collected the materials from which to supply the needs and the wants of the poor. We have a bishop’s storehouse under the Welfare Plan, used for the same purpose. …
 
-“We have now under the Welfare Plan all over the church, … projects … farmed \[or managed\] for the benefit of the poor. …
+“We have now under the Welfare Plan all over the church, … projects … farmed \[or managed\] for the benefit of the poor. …
 
 “Thus … in many of its great essentials, we have, \[in\] the Welfare Plan … the broad essentials of the United Order.” (*Conference Report,* Oct. 1942, pp. 57–58.)
 
@@ -97,8 +99,3 @@ And now in line with these remarks, for three things I pray:
 
 
 
-
-
-
-
-#Consecration #Welfare

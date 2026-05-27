@@ -1,6 +1,5 @@
 # God, Power of
 
-
 *See also* [[God, Omniscience of.md|God, Omniscience of]]
 
 I am the *Almighty* God, [[Genesis 17.1|Genesis 17:1]] ([[Revelation 1.8|Revelation 1:8]]; [[Helaman 10.11|Helaman 10:11]]).
@@ -37,11 +36,11 @@ All things were *made* by him, [[John 1.3|John 1:3]].
 
 the Father raiseth up the dead, and *quickeneth* them, [[John 5.21|John 5:21]].
 
-I have *power* to lay it down ... to take it again, [[John 10.18|John 10:18]].
+I have *power* to lay it down … to take it again, [[John 10.18|John 10:18]].
 
 God, who *quickeneth* the dead, [[Romans 4.17|Romans 4:17]].
 
-he that raised up Christ ... shall also *quicken* your mortal bodies, [[Romans 8.11|Romans 8:11]].
+he that raised up Christ … shall also *quicken* your mortal bodies, [[Romans 8.11|Romans 8:11]].
 
 there is no *power* but of God, [[Romans 13.1|Romans 13:1]].
 
@@ -57,9 +56,9 @@ Lord God *omnipotent* reigneth, [[Revelation 19.6|Revelation 19:6]].
 
 Lord God *Almighty* and the Lamb are the temple, [[Revelation 21.22|Revelation 21:22]].
 
-Lord God Almighty ... thy *power*, and goodness, [[1 Nephi 1.14|1 Nephi 1:14]].
+Lord God Almighty … thy *power*, and goodness, [[1 Nephi 1.14|1 Nephi 1:14]].
 
-Lord ... is *mightier* than all the earth, [[1 Nephi 4.1|1 Nephi 4:1]].
+Lord … is *mightier* than all the earth, [[1 Nephi 4.1|1 Nephi 4:1]].
 
 Lord is *able* to do all things, [[1 Nephi 7.12|1 Nephi 7:12]].
 
@@ -71,7 +70,7 @@ I am *able* to do mine own work, [[2 Nephi 27.20|2 Nephi 27:20]].
 
 *power* of the resurrection which is in Christ, [[Jacob 4.11|Jacob 4:11]].
 
-believe that he has ... all *power*, [[Mosiah 4.9|Mosiah 4:9]].
+believe that he has … all *power*, [[Mosiah 4.9|Mosiah 4:9]].
 
 for he has all *power*, [[Alma 26.35|Alma 26:35]].
 
@@ -89,12 +88,10 @@ hearken unto the voice of him who has all *power*, [[D&C 61.1|D&C 61:1]].
 
 saith the Lord *Almighty*, I will rend their kingdoms, [[D&C 84.118|D&C 84:118]].
 
-feel the ... chastening hand of an *Almighty* God, [[D&C 87.6|D&C 87:6]].
+feel the … chastening hand of an *Almighty* God, [[D&C 87.6|D&C 87:6]].
 
 fierceness of the wrath of *Almighty* God, [[D&C 88.106|D&C 88:106]].
 
 Lord God *Almighty*, maker of heaven, earth, and seas, [[D&C 121.4|D&C 121:4]].
 
 hinder the *Almighty* from pouring down knowledge, [[D&C 121.33|D&C 121:33]].
-
-*See also* [[2 Kings 6.16|2 Kings 6:16]]; [[2 Chronicles 32.7|2 Chr. 32:7-8]][[2 Chronicles 32.8|]]; [[Job 42.2|Job 42:2]]; [[Isaiah 52.10|Isaiah 52:10]]; [[Matthew 17.20|Matthew 17:20]]; [[Matthew 21.21|Matthew 21:21]]; [[Mark 9.23|Mark 9:23]]; [[John 11.43|John 11:43]]; [[1 Nephi 22.10|1 Nephi 22:10]]; [[Jacob 4.6|Jacob 4:6]]; [[Words of Mormon 1.17|Words of Mormon 1:17]]; [[Alma 17.3|Alma 17:3]]; [[Ether 12.30|Ether 12:30]]; [[D&C 45.8|D&C 45:8]]; [[D&C 133.3|D&C 133:3]]; [[Moses 1.4|Moses 1:4]], [[Moses 1.20|Moses 1:20]].

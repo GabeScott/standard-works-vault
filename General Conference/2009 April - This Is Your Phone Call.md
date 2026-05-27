@@ -1,5 +1,7 @@
 # This Is Your Phone Call
 
+Thomas S. Monson
+
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2009 General Conference*
@@ -16,7 +18,7 @@ Often, individuals who are not of our faith—members of other churches, relief 
 
 Tonight I wish to speak of another challenge to which we have opportunities to respond, and brethren, *this is your phone call.* This challenge is not one of natural causes; however, its effects are real and are being felt globally. And while we are optimistic about the future, we continue—as we have for decades—to espouse the fundamental principle that we are our brother’s keeper.
 
-Elder Robert D. Hales has recently observed: “The economic clouds that have long threatened the world are now fully upon us. The impact of this economic storm on our Heavenly Father’s children requires a gospel vision of welfare today more than ever before.”[^1] The unemployment and financial wakes of this storm are splashing over every stake and every ward throughout the Church. I suspect they have been felt in some way by each of us, whether personally—through members of our families or extended families—or through someone we know.
+Elder Robert D. Hales has recently observed: “The economic clouds that have long threatened the world are now fully upon us. The impact of this economic storm on our Heavenly Father’s children requires a gospel vision of welfare today more than ever before.”[^1] The unemployment and financial wakes of this storm are splashing over every stake and every ward throughout the Church. I suspect they have been felt in some way by each of us, whether personally—through members of our families or extended families—or through someone we know.
 
 Brethren, there is no organization better able to respond to the challenges of humanity than the priesthood of the Most High God. We have the organization. Stake presidents, bishops, elders quorum presidents, and high priests group leaders—we now call upon you to mobilize our priesthood quorums in response to the employment and financial challenges facing our members. *Consider this your personal phone call.* Now is the time to rally around, lift up, and help the families in our quorums who may be in distress.
 
@@ -40,17 +42,17 @@ Bishops, the sisters have a role in this effort. Because of the economy, many mo
 
 Now, let me say a few words to those of you who are currently unemployed. The responsibility for finding employment or improving your employment rests with you. Continued guidance comes from the Lord through regular fasting and prayer. Your quorum leaders, bishops, specialists, and employment resource center staff will help in your efforts. We fear, however, that often priesthood leaders are unaware of your situation. *Speak up!* Let them know you are looking for work. And bishops and priesthood leaders, *rise up* and let the brotherhood of the priesthood engage themselves in the wonderful opportunity to truly be a quorum, a brotherhood, a brother’s keeper.
 
-President Gordon B. Hinckley, while a member of the Quorum of the Twelve Apostles, said:
+President Gordon B. Hinckley, while a member of the Quorum of the Twelve Apostles, said:
 
 “I am satisfied, my brethren, that there is enough of expertise, of knowledge, of strength, of concern in every priesthood quorum to assist the troubled members of that quorum if these resources are properly administered.
 
-“… It is the obligation of the priesthood quorum to set in motion those forces and facilities which will equip the needy member to provide on a continuing basis for himself and his family.”[^3]
+“… It is the obligation of the priesthood quorum to set in motion those forces and facilities which will equip the needy member to provide on a continuing basis for himself and his family.”[^3]
 
 In October 1856, during a general conference, President Young learned that two handcart companies, the Martin company and the Willie company, were traveling late in the season and would face harsh winter weather on the plains of the western United States. He stood at the pulpit as a prophet of God and declared:
 
-“Many of our brethren and sisters are on the plains with hand-carts, … and they must be brought here, we must send assistance to them. … This community is to send for them and bring them in. …
+“Many of our brethren and sisters are on the plains with hand-carts, … and they must be brought here, we must send assistance to them. … This community is to send for them and bring them in. …
 
-“That is my religion; that is the dictation of the Holy Ghost that I possess, it is to save the people. …
+“That is my religion; that is the dictation of the Holy Ghost that I possess, it is to save the people. …
 
 “I will tell you all that your faith, religion, and profession of religion, will never save one soul of you in the celestial kingdom of our God, unless you carry out just such principles as I am now teaching you. Go and bring in those people now on the plains.”[^4]
 
@@ -61,16 +63,11 @@ Brethren, this is your phone call. This is our phone call. May the Lord bless us
 
 
 
-[^1]: Robert D. Hales, “A Gospel Vision of Welfare: Faith in Action,” in *Basic Principles of Welfare and Self-Reliance* (booklet, 2009), 1.
+[^1]: Robert D. Hales, “A Gospel Vision of Welfare: Faith in Action,” in *Basic Principles of Welfare and Self-Reliance* (booklet, 2009), 1.
 
-[^2]: Thomas S. Monson, in Conference Report, Apr. 2001, 65; or *Ensign,* May 2001, 50.
+[^2]: Thomas S. Monson, in Conference Report, Apr. 2001, [[2001 April - To the Rescue.md|65]]; or *Ensign,* May 2001, 50.
 
-[^3]: Gordon B. Hinckley, “Welfare Responsibilities of the Priesthood Quorums,” *Ensign,* Nov. 1977, 85–86.
+[^3]: Gordon B. Hinckley, “Welfare Responsibilities of the Priesthood Quorums,” *Ensign,* Nov. 1977, 85–86.
 
 [^4]: Brigham Young, *Deseret News,* Oct. 15, 1856, 252.
 
-
-
-
-
-#Brotherhood #Employment #Priesthood #Service

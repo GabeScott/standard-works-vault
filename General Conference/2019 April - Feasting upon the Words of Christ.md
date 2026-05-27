@@ -1,5 +1,7 @@
 # Feasting upon the Words of Christ
 
+Ulisses Soares
+
 By Elder Takashi Wada - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
@@ -8,17 +10,17 @@ By Elder Takashi Wada - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/26wada?lang=eng)
 
-Our Heavenly Father loves us. He has provided a perfect plan for us to enjoy His blessings. In this life, we are all invited to come unto Christ and receive the restored gospel of Jesus Christ through baptism, receiving the gift of the Holy Ghost, and faithfully living the gospel. Nephi describes our commitment to be baptized as entering a “strait and narrow path,” and he reminds us to continue to “press forward with a steadfastness in Christ, … feasting upon the word of Christ, and endure to the end,” in order to receive all the blessings Heavenly Father has in store for us ([[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]]).
+Our Heavenly Father loves us. He has provided a perfect plan for us to enjoy His blessings. In this life, we are all invited to come unto Christ and receive the restored gospel of Jesus Christ through baptism, receiving the gift of the Holy Ghost, and faithfully living the gospel. Nephi describes our commitment to be baptized as entering a “strait and narrow path,” and he reminds us to continue to “press forward with a steadfastness in Christ, … feasting upon the word of Christ, and endure to the end,” in order to receive all the blessings Heavenly Father has in store for us ([[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]]).
 
-Nephi further reminds us that if we will “feast upon the words of Christ,” they “will tell \[us\] all things \[we\] should do” ([[2 Nephi 32.3|2 Nephi 32:3]]) and that we will be empowered to overcome the “fiery darts of the adversary” ([[1 Nephi 15.24|1 Nephi 15:24]]).
+Nephi further reminds us that if we will “feast upon the words of Christ,” they “will tell \[us\] all things \[we\] should do” ([[2 Nephi 32.3|2 Nephi 32:3]]) and that we will be empowered to overcome the “fiery darts of the adversary” ([[1 Nephi 15.24|1 Nephi 15:24]]).
 
 ## What Is Feasting?
 
 When I was young, I thought that feasting was simply having a big meal with rice, sushi, and soy sauce. I now know true feasting is more than enjoying a delicious meal. It is an experience of joy, nourishment, celebration, sharing, expressing love to families and loved ones, communicating our thanksgiving to God, and building relationships while enjoying abundant, incredibly delicious food. I believe when we feast upon the words of Christ, we ought to be thinking of the same kind of experience. Feasting upon the scriptures is not just reading them. It should bring us real joy and build our relationship with the Savior.
 
-This is clearly taught in the Book of Mormon. Recall Lehi’s dream where he saw a tree “whose fruit \[is\] desirable to make one happy.” This fruit represents the love of God, and as Lehi tastes the fruit, “it was … sweet, above all that \[he\] ever before tasted.” It “filled \[his\] soul with exceedingly great joy” and is something he wants to share with his family ([[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]).
+This is clearly taught in the Book of Mormon. Recall Lehi’s dream where he saw a tree “whose fruit \[is\] desirable to make one happy.” This fruit represents the love of God, and as Lehi tastes the fruit, “it was … sweet, above all that \[he\] ever before tasted.” It “filled \[his\] soul with exceedingly great joy” and is something he wants to share with his family ([[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]).
 
-When we feast, we will also likely find that the amount or kind of food we have may not matter if our hearts are filled with gratitude. Lehi’s family lived on raw meat in the wilderness, but Nephi described this difficult trial, saying, “So great were the blessings of the Lord” that “our women … were strong” and were able “to bear their journeyings without murmurings” ([[1 Nephi 17.1|1 Nephi 17:1–2]][[1 Nephi 17.2|]]).
+When we feast, we will also likely find that the amount or kind of food we have may not matter if our hearts are filled with gratitude. Lehi’s family lived on raw meat in the wilderness, but Nephi described this difficult trial, saying, “So great were the blessings of the Lord” that “our women … were strong” and were able “to bear their journeyings without murmurings” ([[1 Nephi 17.1|1 Nephi 17:1–2]][[1 Nephi 17.2|]]).
 
 Feasting sometimes involves experimenting and tasting. Alma talks about a good seed being planted in our hearts. As we experiment on it, we will realize the seed begins “to be delicious” (see [[Alma 32.28|Alma 32:28–33]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]]).
 
@@ -26,7 +28,7 @@ Feasting sometimes involves experimenting and tasting. Alma talks about a good s
 
 The blessings of feasting upon the words of Christ are powerful and life changing. There are three in particular I would like to invite you to apply in your life.
 
-First, the words of Christ can help us “increase \[our\] spiritual capacity to receive revelation” (Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96) and safely guide us through our life. Mormon teaches that the words of Christ have “a great tendency to lead the people to do that which \[is\] just” and that they are more powerful than anything “the sword” can accomplish ([[Alma 31.5|Alma 31:5]]). As I have searched for God’s wisdom in dealing with my own challenges, always as I have tried the “virtue of the word of God” ([[Alma 31.5|Alma 31:5]]), I have felt inspired and enabled to make wise decisions, overcome temptations, and bless my life with increased faith in Christ and love for those around me. Our prophet, Russell M. Nelson, has taught us that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost” (“[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96). Needed revelation will come as we try the “virtue of the word,” and that word will be more powerful than anything else we could try or imagine.
+First, the words of Christ can help us “increase \[our\] spiritual capacity to receive revelation” (Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96) and safely guide us through our life. Mormon teaches that the words of Christ have “a great tendency to lead the people to do that which \[is\] just” and that they are more powerful than anything “the sword” can accomplish ([[Alma 31.5|Alma 31:5]]). As I have searched for God’s wisdom in dealing with my own challenges, always as I have tried the “virtue of the word of God” ([[Alma 31.5|Alma 31:5]]), I have felt inspired and enabled to make wise decisions, overcome temptations, and bless my life with increased faith in Christ and love for those around me. Our prophet, Russell M. Nelson, has taught us that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost” (“[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96). Needed revelation will come as we try the “virtue of the word,” and that word will be more powerful than anything else we could try or imagine.
 
 Second, when we struggle with our own identity and lack of self-esteem, the “pleasing word of God” ([[Jacob 2.8|Jacob 2:8]]) in the scriptures will help us know who we really are and give us strength beyond our own. Recognizing my identity as God’s child was one of the sweetest moments I have ever experienced. In my early teenage years, I did not know anything about the teachings of the Savior. When I first read the New Testament, the words of Christ truly healed my wounded soul. I realized I was not alone and that I am a child of God. As I recognized my true identity before God, I realized my infinite potential through Christ’s Atonement.
 
@@ -40,13 +42,8 @@ The words of Christ will profoundly touch hearts and open the eyes of those who 
 
 ## Conclusion
 
-In conclusion, I bear testimony that feasting upon the words of Christ can happen at any time and on any occasion if we prepare our hearts to receive them. Feasting upon the words of Christ will bring life-sustaining revelation, reaffirm our true identity and worth before God as His child, and lead our friends unto Christ and everlasting life. Let me end by echoing the invitation of Nephi when he said: “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]). In the name of Jesus Christ, amen.
+In conclusion, I bear testimony that feasting upon the words of Christ can happen at any time and on any occasion if we prepare our hearts to receive them. Feasting upon the words of Christ will bring life-sustaining revelation, reaffirm our true identity and worth before God as His child, and lead our friends unto Christ and everlasting life. Let me end by echoing the invitation of Nephi when he said: “Ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]). In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Jesus_Christ #Scriptures

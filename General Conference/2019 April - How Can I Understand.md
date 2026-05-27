@@ -1,5 +1,7 @@
 # How Can I Understand?
 
+Ulisses Soares
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
@@ -8,11 +10,11 @@ By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/11soares?lang=eng)
 
-My dear brothers and sisters, what a great joy it is to be here together again in this general conference for The Church of Jesus Christ of Latter-day Saints under the direction of our beloved prophet, President Russell M. Nelson. I testify to you that we will have the privilege of hearing the voice of our Savior, Jesus Christ, through the teachings of those who pray, sing, and speak to the needs of our day in this conference.
+My dear brothers and sisters, what a great joy it is to be here together again in this general conference for The Church of Jesus Christ of Latter-day Saints under the direction of our beloved prophet, President Russell M. Nelson. I testify to you that we will have the privilege of hearing the voice of our Savior, Jesus Christ, through the teachings of those who pray, sing, and speak to the needs of our day in this conference.
 
 As recorded in the book of Acts, Philip the evangelist taught the gospel to a certain Ethiopian who was a eunuch in charge of all the treasures belonging to the queen of Ethiopia.[^1] While returning from worshipping in Jerusalem, he read the book of Isaiah. Compelled by the Spirit, Philip came closer to him and said, “Understandest thou what thou readest?
 
-“And \[the eunuch\] said, How can I, except some man should guide me? …
+“And \[the eunuch\] said, How can I, except some man should guide me? …
 
 “Then Philip opened his mouth, and began at the same scripture, and preached unto him Jesus.”[^2]
 
@@ -24,7 +26,7 @@ The commandment to learn the gospel and teach it to one another is not new; it h
 
 Moses admonished his people:
 
-“Hearken, O Israel, unto the statutes and unto the judgments, which I teach you, for to do them, that ye may live, and go in and possess the land which the Lord God of your fathers giveth you. …
+“Hearken, O Israel, unto the statutes and unto the judgments, which I teach you, for to do them, that ye may live, and go in and possess the land which the Lord God of your fathers giveth you. …
 
 “… Teach them thy sons, and thy sons’ sons.”[^8]
 
@@ -71,7 +73,7 @@ I testify that Jesus Christ is the Savior of the world. He is the Redeemer, and 
 
 [^3]: See [[D&C 88.77|Doctrine and Covenants 88:77–78, 118]][[D&C 88.78|]][[D&C 88.118|]]; [[D&C 130.18|130:18–19]][[D&C 130.19|]]; [[D&C 131.6|131:6]].
 
-[^4]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^4]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
 [^5]: [[Acts 8.39|Acts 8:39]].
 
@@ -87,7 +89,7 @@ I testify that Jesus Christ is the Savior of the world. He is the Redeemer, and 
 
 [^11]: [[D&C 93.40|Doctrine and Covenants 93:40]].
 
-[^12]: Russell M. Nelson, “[[2008 April - Salvation and Exaltation.md|Salvation and Exaltation]],” *Ensign* or *Liahona,* May 2008, 9.
+[^12]: Russell M. Nelson, “[[2008 April - Salvation and Exaltation.md|Salvation and Exaltation]],” *Ensign* or *Liahona,* May 2008, 9.
 
 [^13]: See [[Mosiah 3.9|Mosiah 3:9]].
 
@@ -105,10 +107,5 @@ I testify that Jesus Christ is the Savior of the world. He is the Redeemer, and 
 
 [^20]: See [[Luke 15.20|Luke 15:20]].
 
-[^21]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
+[^21]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
-
-
-
-
-#Example #Teaching

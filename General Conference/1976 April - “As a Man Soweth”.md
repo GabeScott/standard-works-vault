@@ -1,6 +1,8 @@
 # “As a Man Soweth”
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -32,7 +34,7 @@ After the physical creation had been completed, the Lord responded to the petiti
 
 “That which breaketh a law, and abideth not by law, but seeketh to become a law unto itself, and willeth to abide in sin, and altogether abideth in sin, cannot be sanctified by law, neither by mercy, justice, nor judgment. Therefore, they must remain filthy still.” ([[D&C 88.33|D&C 88:33–35]][[D&C 88.34|]][[D&C 88.35|]].)
 
-In commentary, it has been written about these particular verses of scripture as follows: “Every law God has given us is of such a nature that by keeping it, we are preserved, perfected and sanctified. If we keep the word of wisdom, our bodies will be kept pure. If we observe the law of tithing we shall learn to be unselfish and honest. If we pray, we shall hold communion with the holy spirit. If we try to do our duty in everything, we shall come day by day nearer to perfection. On the other hand, those who refuse to be governed by law and are a law unto themselves cannot be sanctified. They are outside the pale of mercy and justice and judgment as well as law and must remain filthy still. It is only when we try to obey God’s laws that we have claim upon His mercy. Justice will take into account in the judgment every honest effort to do the will of God.” (Hyrum M. Smith and Janne M. Sjodahl, *Doctrine and Covenants Commentary,* Deseret Book Co., 1972, p. 546.)
+In commentary, it has been written about these particular verses of scripture as follows: “Every law God has given us is of such a nature that by keeping it, we are preserved, perfected and sanctified. If we keep the word of wisdom, our bodies will be kept pure. If we observe the law of tithing we shall learn to be unselfish and honest. If we pray, we shall hold communion with the holy spirit. If we try to do our duty in everything, we shall come day by day nearer to perfection. On the other hand, those who refuse to be governed by law and are a law unto themselves cannot be sanctified. They are outside the pale of mercy and justice and judgment as well as law and must remain filthy still. It is only when we try to obey God’s laws that we have claim upon His mercy. Justice will take into account in the judgment every honest effort to do the will of God.” (Hyrum M. Smith and Janne M. Sjodahl, *Doctrine and Covenants Commentary,* Deseret Book Co., 1972, p. 546.)
 
 Thus, the Lord in his wisdom and great affection for us did establish a foundation which is firm, unchangeable, and can be relied upon, on which we can build our lives with positive assurance that the results will be contingent upon our worthiness.
 
@@ -69,8 +71,3 @@ May God bless us that we may sow to the Spirit in order that our harvest will be
 
 
 
-
-
-
-
-#Commandments #Laws #Obedience

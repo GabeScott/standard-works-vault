@@ -1,5 +1,7 @@
 # True to Our Priesthood Trust
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -95,8 +97,3 @@ Brethren, let us learn our duties. Let us ever be worthy to perform those duties
 
 
 
-
-
-
-
-#Duty #Priesthood #Service #Trust #Worthiness

@@ -1,5 +1,7 @@
 # Sacrament of the Lord’s Supper
 
+James E. Faust
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -56,7 +58,7 @@ As we come to our sacrament meeting, we should prepare ourselves to partake of t
 
 “But let a man examine himself, and so let him eat of that bread, and drink of that cup.
 
-“For he that eateth and drinketh unworthily, eateth and drinketh damnation to himself” ([[1 Corinthians 11.28|1 Cor. 11:28–29]][[1 Corinthians 11.29|]]).
+“For he that eateth and drinketh unworthily, eateth and drinketh damnation to himself” ([[1 Corinthians 11.28|1 Cor. 11:28–29]][[1 Corinthians 11.29|]]).
 
 President Brigham Young, speaking of the sacrament, said, “Its observance is as necessary to our salvation as any other of the ordinances and commandments that have been instituted in order that … people may be sanctified” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[1941\], 171).
 
@@ -66,9 +68,9 @@ As members of the Church, we should delight in the privilege of partaking of the
 
 “The first: We are willing to take upon ourselves the name of the Son. In so doing we choose him as our leader and our ideal; and he is the one perfect character in all the world.
 
-“The second: That we will always remember him. Not just on Sunday, but on Monday \[and the other days of the week\], in our daily acts, in our self-control. …
+“The second: That we will always remember him. Not just on Sunday, but on Monday \[and the other days of the week\], in our daily acts, in our self-control. …
 
-“The third: We promise to ‘… keep his commandments which he has given …’—tithing, fast offerings, the Word of Wisdom, kindness, forgiveness, love. The obligation of a member of the Church of Jesus Christ is great, but it is as glorious as it is great, because obedience to these principles gives life, eternal life. …
+“The third: We promise to ‘… keep his commandments which he has given …’—tithing, fast offerings, the Word of Wisdom, kindness, forgiveness, love. The obligation of a member of the Church of Jesus Christ is great, but it is as glorious as it is great, because obedience to these principles gives life, eternal life. …
 
 “Order, reverence, attention to divine promises—the promise to enter into the fold of Christ, to cherish virtues mentioned in the gospel of Christ, to keep them ever in mind, to love the Lord wholeheartedly, and to labor, even at the sacrifice of self, for the brotherhood of man—these and all kindred virtues are associated with the partaking of the sacrament. It is good to meet together and especially to renew our covenants with God in that holy sacrament” (*Gospel Ideals* \[1953\], 146–47).
 
@@ -81,8 +83,3 @@ I encourage each of you to be faithful in your attendance at sacrament meeting. 
 
 
 
-
-
-
-
-#Atonement #Church_Organization #Covenants #Jesus_Christ #Plan_Of_Salvation #Sacrament #Sacrifice

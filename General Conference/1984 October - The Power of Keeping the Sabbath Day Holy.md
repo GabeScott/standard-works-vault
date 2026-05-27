@@ -1,5 +1,7 @@
 # The Power of Keeping the Sabbath Day Holy
 
+Gordon B. Hinckley
+
 By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -72,7 +74,7 @@ I let my imagination go and seemed to see a band of destroying angels loosed fro
 
 The leader looked me squarely in the eye and challenged, “By what right do you ask us to hold? Have you not seen the evil of the land?”
 
-I replied, “Yes, I know of the sordidness of the world. I see the constant mocking of God’s laws, the merchandising on his holy day, the constant breaking of his commandments. I see the evil that exists almost universally. Yes, yes, all these things are true, still …” Then I became concerned. What right had I to ask them to hold?
+I replied, “Yes, I know of the sordidness of the world. I see the constant mocking of God’s laws, the merchandising on his holy day, the constant breaking of his commandments. I see the evil that exists almost universally. Yes, yes, all these things are true, still …” Then I became concerned. What right had I to ask them to hold?
 
 My eyes began to fall from his penetrating gaze, but something inside kept searching, searching, until finally a laserlike beam locked onto a misty memory made many months ago and faithfully filed away for such a time as this. A vista of a beautiful green valley passed before me and moved to the front of my consciousness.
 
@@ -89,8 +91,3 @@ May we all live that someday, someway, somewhere, somehow, as we face that which
 
 
 
-
-
-
-
-#Commandments #Obedience #Sabbath

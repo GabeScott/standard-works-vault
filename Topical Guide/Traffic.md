@@ -1,6 +1,5 @@
 # Traffic
 
-
 ye shall *traffick* in the land, [[Genesis 42.34|Genesis 42:34]].
 
 young twigs, and carried it into a land of *traffick*, [[Ezekiel 17.4|Ezekiel 17:4]].

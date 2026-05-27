@@ -1,5 +1,7 @@
 # Anxiously Engaged
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -127,7 +129,7 @@ May we, as did the Savior’s followers of old, respond to the invitation, “Fo
 
 [^9]: [[John 11.43|John 11:43]].
 
-[^10]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
+[^10]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
 [^11]: [[D&C 110.4|D&C 110:4]].
 
@@ -137,7 +139,5 @@ May we, as did the Savior’s followers of old, respond to the invitation, “Fo
 
 [^14]: See [[James 1.22|James 1:22]].
 
+[^15]: [[Matthew 4.19|Matthew 4:19]].
 
-
-
-#Activation #Love #Responsibility #Service

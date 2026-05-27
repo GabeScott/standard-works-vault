@@ -1,6 +1,5 @@
 # Interpreters
 
-
 *See also* [[Urim and Thummim.md|Urim and Thummim]]
 
 things are called *interpreters*, [[Mosiah 8.13|Mosiah 8:13]] ([[Mosiah 8.19|Mosiah 8:19]]).

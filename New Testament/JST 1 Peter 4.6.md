@@ -4,6 +4,3 @@
 
 [JST 1 Peter 4:6](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-pet/4?lang=eng)
 
-
-
-

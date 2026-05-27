@@ -1,5 +1,7 @@
 # The Power of Teaching Doctrine
 
+Gordon B. Hinckley
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -8,7 +10,7 @@ By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/04/the-power-of-teaching-doctrine?lang=eng)
 
-There has been a war between light and darkness, between good and evil, since before the world was created. The battle still rages, and the casualties seem to be increasing. All of us have family members we love who are being buffeted by the forces of the destroyer, who would make all God’s children miserable. For many of us, there have been sleepless nights. We have tried to add every force for good we can to the powers swirling around the people who are at risk. We have loved them. We have set the best example we could. We have pled in prayer for them. A wise prophet long ago gave us counsel about another force which we may at times underestimate and thus use too little.
+There has been a war between light and darkness, between good and evil, since before the world was created. The battle still rages, and the casualties seem to be increasing. All of us have family members we love who are being buffeted by the forces of the destroyer, who would make all God’s children miserable. For many of us there have been sleepless nights. We have tried to add every force for good we can to the powers swirling around the people who are at risk. We have loved them. We have set the best example we could. We have pled in prayer for them. A wise prophet long ago gave us counsel about another force which we may at times underestimate and thus use too little.
 
 Alma was the leader of a people faced with destruction by ferocious enemies. In the face of that danger, he could not do everything, so he had to choose. He could have built fortifications or created armaments or trained armies. But his only hope of victory was to get God’s help, and for that he knew the people must repent. And so he chose to try one thing first:
 
@@ -70,17 +72,17 @@ There was not enough money for all to go. Mary volunteered to stay behind becaus
 
 It was against the law then to teach the doctrine of The Church of Jesus Christ of Latter-day Saints in Berlin. But Mary could not keep the good news to herself. The woman of the house and her friends would gather around the loom to hear the Swiss girl teach. She talked about the appearance of Heavenly Father and Jesus Christ to Joseph Smith, of the visitation of angels, and of the Book of Mormon. When she came to the accounts of Alma, she taught the doctrine of the Resurrection.
 
-That caused some problems with her weaving. In those days, many children died very young. The women around the loom had lost children in death, some of them several children. When Mary taught the truth that little children were heirs of the celestial kingdom and that those women might again be with them and with the Savior and our Heavenly Father, tears rolled down the faces of the women. Mary cried too. All those tears falling got the cloth wet that Mary had woven.
+That caused some problems with her weaving. In those days many children died very young. The women around the loom had lost children in death, some of them several children. When Mary taught the truth that little children were heirs of the celestial kingdom and that those women might again be with them and with the Savior and our Heavenly Father, tears rolled down the faces of the women. Mary cried too. All those tears falling got the cloth wet that Mary had woven.
 
-Mary’s teaching created a more serious problem. Even though Mary begged the women not to talk about what she told them, they did. They shared the joyous doctrine with their friends. So one night there was a knock at the door. It was the police. They took Mary off to jail. On the way, she asked the policeman for the name of the judge she was to appear before the next morning. She asked if he had a family. She asked if he was a good father and a good husband. The policeman smiled as he described the judge as a man of the world.
+Mary’s teaching created a more serious problem. Even though Mary begged the women not to talk about what she told them, they did. They shared the joyous doctrine with their friends. So one night there was a knock at the door. It was the police. They took Mary off to jail. On the way she asked the policeman for the name of the judge she was to appear before the next morning. She asked if he had a family. She asked if he was a good father and a good husband. The policeman smiled as he described the judge as a man of the world.
 
-At the jail, Mary asked for a pencil and some paper. She wrote a letter to the judge. She wrote about the Resurrection of Jesus Christ as described in the Book of Mormon, about the spirit world, and about how long the judge would have to think and to consider his life before facing the final judgment. She wrote that she knew he had much to repent of which would break his family’s heart and bring him great sorrow. She wrote through the night. In the morning she asked the policeman to take her letter to the judge. He did.
+At the jail Mary asked for a pencil and some paper. She wrote a letter to the judge. She wrote about the Resurrection of Jesus Christ as described in the Book of Mormon, about the spirit world, and about how long the judge would have to think and to consider his life before facing the final judgment. She wrote that she knew he had much to repent of which would break his family’s heart and bring him great sorrow. She wrote through the night. In the morning she asked the policeman to take her letter to the judge. He did.
 
-Later, the policeman was summoned by the judge to his office. The letter Mary had written was irrefutable evidence that she was teaching the gospel and so breaking the law. Nevertheless, it wasn’t long until the policeman came back to Mary’s cell. He told her that all charges were dismissed and that she was free to go, on the conditions she had stated in her letter. Her teaching the doctrine of the restored gospel of Jesus Christ had opened eyes and hearts enough to get her cast into jail. And her declaring the doctrine of repentance to the judge got her cast out of jail (see Theresa Snow Hill, *Life and Times of Henry Eyring and Mary Bommeli* \[1997\], 15–22).
+Later, the policeman was summoned by the judge to his office. The letter Mary had written was irrefutable evidence that she was teaching the gospel and so breaking the law. Nevertheless, it wasn’t long until the policeman came back to Mary’s cell. He told her that all charges were dismissed and that she was free to go, on the conditions she had stated in her letter. Her teaching the doctrine of the restored gospel of Jesus Christ had opened eyes and hearts enough to get her cast into jail. And her declaring the doctrine of repentance to the judge got her cast out of jail. (See Theresa Snow Hill, *Life and Times of Henry Eyring and Mary Bommeli* \[1997\], 15–22.)
 
 The teaching of Mary Bommeli touched more than those women around the loom and the judge. My father, her grandson, talked to me during the nights as he approached death. He spoke of joyous reunions that were coming soon in the spirit world. I could almost see the bright sunlight and the smiles in that place of paradise as he talked about it with such assurance.
 
-At one point, I asked him if he had some repenting to do. He smiled. He chuckled softly as he said, “No, Hal, I’ve been repenting as I went along.” The doctrine of paradise that Mary Bommeli taught those women was real to her grandson. And even the doctrine Mary taught the judge had shaped my father’s life for good. That will not be the end of Mary Bommeli’s teaching. The record of her words will send true doctrine to generations of her family yet unborn. Because she believed that even a new convert knew enough doctrine to teach it, the minds and hearts of her descendants will be opened, and they will be strengthened in the battle.
+At one point I asked him if he had some repenting to do. He smiled. He chuckled softly as he said, “No, Hal, I’ve been repenting as I went along.” The doctrine of paradise that Mary Bommeli taught those women was real to her grandson. And even the doctrine Mary taught the judge had shaped my father’s life for good. That will not be the end of Mary Bommeli’s teaching. The record of her words will send true doctrine to generations of her family yet unborn. Because she believed that even a new convert knew enough doctrine to teach it, the minds and hearts of her descendants will be opened, and they will be strengthened in the battle.
 
 Your descendants will teach doctrine to each other because you taught it. Doctrine can more than open minds to spiritual things and hearts to the love of God. When that doctrine brings joy and peace, it also has the power to open mouths. Like those women in Berlin, your descendants will not be able to keep the good news to themselves.
 
@@ -89,8 +91,3 @@ I am grateful to live in a time when we and our families have the fulness of the
 
 
 
-
-
-
-
-#Church_Doctrine #Faith #God_The_Father #Jesus_Christ #Parenthood #Priesthood #Resurrection #Satan #Teaching

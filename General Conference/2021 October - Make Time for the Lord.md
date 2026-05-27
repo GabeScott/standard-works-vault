@@ -1,6 +1,8 @@
 # Make Time for the Lord
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -37,14 +39,9 @@ May God be with you until we meet again, I pray in the sacred name of Jesus Chri
 
 [^1]: [[Jacob 4.13|Jacob 4:13]]; emphasis added.
 
-[^2]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^2]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
-[^3]: See [[2 Nephi 31.20|2 Nephi 31:20]].
+[^3]: See [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^4]: See [[Exodus 31.13|Exodus 31:13, 16]][[Exodus 31.16|]]; [[Isaiah 58.13|Isaiah 58:13]].
 
-
-
-
-
-#Holy_Ghost #Jesus_Christ #Temples

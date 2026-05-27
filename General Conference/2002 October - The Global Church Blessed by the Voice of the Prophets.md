@@ -1,5 +1,7 @@
 # The Global Church Blessed by the Voice of the Prophets
 
+Gordon B. Hinckley
+
 By Elder Dieter F. Uchtdorf - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2002 General Conference*
@@ -26,7 +28,7 @@ Another source of strength was a letter written by the Apostle Paul while he was
 
 “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.
 
-“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]]).
+“Be not thou therefore ashamed of the testimony of our Lord” ([[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]]).
 
 These words from one of the ancient Apostles of our Savior rang with great importance for me in postwar times, even as they do today. Yet how many of us permit our fears to take control in this time of international tension, economical and political uncertainties, and personal challenges.
 
@@ -38,9 +40,9 @@ We have a living prophet on the face of the earth, even President Gordon B. Hinc
 
 “There is no need to fear. We can have peace in our hearts and peace in our homes. We can be an influence for good in this world, every one of us.”
 
-“Our safety lies in repentance. Our strength comes of obedience to the commandments of God” (in Conference Report, Oct. 2001, 91; or *Ensign,* Nov. 2001, 74).
+“Our safety lies in repentance. Our strength comes of obedience to the commandments of God” (in Conference Report, Oct. 2001, [[2001 October - The Times in Which We Live.md|91]]; or *Ensign,* Nov. 2001, 74).
 
-The prophets speak to us in the name of the Lord and in plainness. As the Book of Mormon confirms, “the Lord God giveth light unto the understanding; for he speaketh unto men according to their language, unto their understanding” ([[2 Nephi 31.3|2 Nephi 31:3]]).
+The prophets speak to us in the name of the Lord and in plainness. As the Book of Mormon confirms, “the Lord God giveth light unto the understanding; for he speaketh unto men according to their language, unto their understanding” ([[2 Nephi 31.3|2 Nephi 31:3]]).
 
 It is our responsibility not only to listen but also to act upon His word, that we may claim the blessings of the ordinances and covenants of the restored gospel. He said, “I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise” ([[D&C 82.10|D&C 82:10]]).
 
@@ -55,8 +57,3 @@ Let us in humility and faith refresh our dedication and our commitment to follow
 
 
 
-
-
-
-
-#Atonement #Church_Growth #Peace #Pioneers #Prophets

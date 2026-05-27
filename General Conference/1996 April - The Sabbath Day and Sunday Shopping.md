@@ -1,5 +1,7 @@
 # The Sabbath Day and Sunday Shopping
 
+James E. Faust
+
 By Elder Earl C. Tingey - *Of the Seventy*
 
 *Given in the April session of the 1996 General Conference*
@@ -81,20 +83,15 @@ I bear humble witness of the sanctity of the Sabbath day and of our need to reso
 
 [^9]: [[Nehemiah 10.31|Neh. 10:31]].
 
-[^10]: In Conference Report, Oct. 1986, 26; or *Ensign,* Nov. 1986, 21.
+[^10]: In Conference Report, Oct. 1986, [[1986 October - “Brother’s Keeper”.md|26]]; or *Ensign,* Nov. 1986, 21.
 
 [^11]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 227.
 
-[^12]: In Conference Report, Oct. 1989, 68; or *Ensign,* Nov. 1989, 51.
+[^12]: In Conference Report, Oct. 1989, [[1989 October - An Ensign to the Nations.md|68]]; or *Ensign,* Nov. 1989, 51.
 
 [^13]: See [[D&C 59.16|D&C 59:16–19]][[D&C 59.17|]][[D&C 59.18|]][[D&C 59.19|]]; [[Leviticus 26.2|Lev. 26:2–6, 9]][[Leviticus 26.3|]][[Leviticus 26.4|]][[Leviticus 26.5|]][[Leviticus 26.6|]][[Leviticus 26.9|]].
 
 [^14]: In Conference Report, Oct. 1935, 120.
 
-[^15]: In Conference Report, Apr. 1975, 72; or *Ensign,* May 1975, 49.
+[^15]: In Conference Report, Apr. 1975, [[1975 April - The Sabbath Day.md|72]]; or *Ensign,* May 1975, 49.
 
-
-
-
-
-#Atonement #Commandments #Covenants #Jesus_Christ #Sabbath

@@ -1,4 +1,3 @@
 # Apocalypse
 
-
-*See* [BD Revelation of John](https://www.churchofjesuschrist.org/study/scriptures/bd/revelation-of-john?lang=eng)
+*See also* [[BD Revelation of John.md|BD Revelation of John]]

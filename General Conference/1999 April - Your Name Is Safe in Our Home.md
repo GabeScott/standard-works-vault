@@ -1,5 +1,7 @@
 # Your Name Is Safe in Our Home
 
+Gordon B. Hinckley
+
 By Elder Cree-L Kofford - *Of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -38,15 +40,15 @@ The old adage “Never judge another man until you have walked a mile in his foo
 
 The principle is not new, nor is it unique to our day and time. The book of Psalms from the Old Testament contains this urgent warning from the Lord: “Whoso privily slandereth his neighbour, him will I cut off” ([[Psalms 101.5|Ps. 101:5]]).
 
-James, a servant of the Lord in the meridian of time, repeated this eternal truth when he said: “Speak not evil one of another, brethren. He that speaketh evil of his brother, and judgeth his brother, speaketh evil of the law, and judgeth the law. …
+James, a servant of the Lord in the meridian of time, repeated this eternal truth when he said: “Speak not evil one of another, brethren. He that speaketh evil of his brother, and judgeth his brother, speaketh evil of the law, and judgeth the law. …
 
-“… Who art thou that judgest another?” ([[James 4.11|James 4:11–12]][[James 4.12|]]).
+“… Who art thou that judgest another?” ([[James 4.11|James 4:11–12]][[James 4.12|]]).
 
 And in this latter day, the Lord renewed His long-taught command in a revelation given through the prophet Brigham Young: “Cease to speak evil one of another” ([[D&C 136.23|D&C 136:23]]).
 
 It is most significant to me that this simple commandment is set forth just a few verses from the Lord’s words on the penalty for disobedience: “Be diligent in keeping all my commandments, lest judgments come upon you, and your faith fail you, and your enemies triumph over you” ([[D&C 136.42|D&C 136:42]]).
 
-To those who doubt the importance of the commandment, may I pose two simple questions: (1) How can you say you love your fellowman when behind his back you seek to diminish his good name and reputation? (2) How can you say you love your God when you cannot even love your neighbor?
+To those who doubt the importance of the commandment, may I pose two simple questions: (1) How can you say you love your fellowman when behind his back you seek to diminish his good name and reputation? (2) How can you say you love your God when you cannot even love your neighbor?
 
 Any feeble attempt to justify such conduct only brings more forcibly to mind those explosive words of the Savior found in the book of Matthew:
 
@@ -67,8 +69,3 @@ On this special Easter Day, I close with my solemn declaration, born of the Spir
 
 
 
-
-
-
-
-#Communication #Criticism #Evil #Love

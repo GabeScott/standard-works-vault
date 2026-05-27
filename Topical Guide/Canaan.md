@@ -1,4 +1,3 @@
 # Canaan
 
-
-*See* [[Israel, Land of.md|Israel, Land of]]; [BD Canaan](https://www.churchofjesuschrist.org/study/scriptures/bd/canaan?lang=eng)
+*See also* [[Israel, Land of.md|Israel, Land of]]; [[BD Canaan.md|BD Canaan]]

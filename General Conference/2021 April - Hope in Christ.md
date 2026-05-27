@@ -1,6 +1,8 @@
 # Hope in Christ
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -50,9 +52,9 @@ Brothers and sisters, more than half of adults in the Church today are widowed, 
 
 May I suggest that there are some important principles we need to understand.
 
-*First, scriptures and latter-day prophets confirm that everyone who is faithful in keeping gospel covenants will have the opportunity for exaltation*. President Russell M. Nelson taught: “In the Lord’s own way and time, no blessing will be withheld from His faithful Saints. The Lord will judge and reward each individual according to heartfelt desire as well as deed.”[^10]
+*First, scriptures and latter-day prophets confirm that everyone who is faithful in keeping gospel covenants will have the opportunity for exaltation*. President Russell M. Nelson taught: “In the Lord’s own way and time, no blessing will be withheld from His faithful Saints. The Lord will judge and reward each individual according to heartfelt desire as well as deed.”[^10]
 
-*Second, the precise time and manner in which the blessings of exaltation are bestowed have not all been revealed, but they are nonetheless assured*.[^11] President Dallin H. Oaks explained that some of the circumstances “of mortality will be set right in the Millennium, which is the time for fulfilling all that is incomplete in the great plan of happiness for all of our Father’s worthy children.”[^12]
+*Second, the precise time and manner in which the blessings of exaltation are bestowed have not all been revealed, but they are nonetheless assured*.[^11] President Dallin H. Oaks explained that some of the circumstances “of mortality will be set right in the Millennium, which is the time for fulfilling all that is incomplete in the great plan of happiness for all of our Father’s worthy children.”[^12]
 
 That doesn’t mean that every blessing is deferred until the Millennium; some have already been received, and others will continue to be received until that day.[^13]
 
@@ -66,7 +68,7 @@ The personal growth one can achieve now while waiting upon the Lord and His prom
 
 In the final analysis, a person’s capacity, desires, and opportunities in matters of agency and choice, including qualification for eternal blessings, are matters only the Lord can judge.
 
-*Fifth, our confidence in these assurances is rooted in our faith in Jesus Christ, by whose grace all things pertaining to mortality are set right*.[^16] All promised blessings are made possible through Him, who, by His Atonement, “descended below all things”[^17] and has “overcome the world.”[^18] He “hath sat down on the right hand of God, to claim of the Father his rights of mercy which he hath upon the children of men … ; wherefore he advocateth the cause of the children of men.”[^19] In the end, “the saints shall be filled with his glory, and receive their inheritance”[^20] as “joint-heirs with Christ.”[^21]
+*Fifth, our confidence in these assurances is rooted in our faith in Jesus Christ, by whose grace all things pertaining to mortality are set right*.[^16] All promised blessings are made possible through Him, who, by His Atonement, “descended below all things”[^17] and has “overcome the world.”[^18] He “hath sat down on the right hand of God, to claim of the Father his rights of mercy which he hath upon the children of men … ; wherefore he advocateth the cause of the children of men.”[^19] In the end, “the saints shall be filled with his glory, and receive their inheritance”[^20] as “joint-heirs with Christ.”[^21]
 
 Our desire is that these principles will help all have increased hope in Christ and feel a sense of belonging.
 
@@ -95,27 +97,27 @@ I bear my witness on this Easter weekend of our Savior, Jesus Christ, and the et
 
 [^2]: [[Matthew 11.27|Matthew 11:27]].
 
-[^3]: Jennifer Wickham, “Is Having a Sense of Belonging Important?,” *Speaking of Health* (blog), Mayo Clinic Health System, Mar. 8, 2019, mayoclinichealthsystem.org.
+[^3]: Jennifer Wickham, “Is Having a Sense of Belonging Important?,” *Speaking of Health* (blog), Mayo Clinic Health System, Mar. 8, 2019, mayoclinichealthsystem.org.
 
 [^4]: [[John 16.33|John 16:33]]; emphasis added.
 
-[^5]: [[1 Corinthians 15.3|1 Corinthians 15:3]].
+[^5]: [[1 Corinthians 15.3|1 Corinthians 15:3]].
 
 [^6]: See [[John 20.19|John 20:19]].
 
-[^7]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org.
+[^7]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” ChurchofJesusChrist.org.
 
 [^8]: [[D&C 76.79|Doctrine and Covenants 76:79]]; see also [[D&C 121.29|Doctrine and Covenants 121:29]].
 
 [^9]: [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
-[^10]: Russell M. Nelson, “[[2008 October - Celestial Marriage.md|Celestial Marriage]],” *Ensign* or *Liahona*, Nov. 2008, 94.
+[^10]: Russell M. Nelson, “[[2008 October - Celestial Marriage.md|Celestial Marriage]],” *Ensign* or *Liahona*, Nov. 2008, 94.
 
 [^11]: See [[Mosiah 2.41|Mosiah 2:41]].
 
-[^12]: Dallin H. Oaks, “[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign*, Nov. 1993, 75.
+[^12]: Dallin H. Oaks, “[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign*, Nov. 1993, 75.
 
-[^13]: See [[Hebrews 11.13|Hebrews 11:13]]; [[2 Nephi 26.33|2 Nephi 26:33]]; [[Alma 32.21|Alma 32:21]]; [[Ether 12.6|Ether 12:6]]; [[Articles of Faith 1.3|Articles of Faith 1:3]].
+[^13]: See [[Hebrews 11.13|Hebrews 11:13]]; [[2 Nephi 26.33|2 Nephi 26:33]]; [[Alma 32.21|Alma 32:21]]; [[Ether 12.6|Ether 12:6]]; [[Articles of Faith 1.3|Articles of Faith 1:3]].
 
 [^14]: See [[Isaiah 64.4|Isaiah 64:4]]; [[D&C 133.45|Doctrine and Covenants 133:45]].
 
@@ -135,8 +137,3 @@ I bear my witness on this Easter weekend of our Savior, Jesus Christ, and the et
 
 [^22]: [[Acts 17.26|Acts 17:26]].
 
-
-
-
-
-#Belonging #Blessings #Hope #Jesus_Christ #Loneliness #Obedience #Patience #Single_Adults

@@ -1,5 +1,7 @@
 # The Book of Mormon—Keystone of Our Religion
 
+Ezra Taft Benson
+
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1986 General Conference*
@@ -28,7 +30,7 @@ If the early Saints were rebuked for treating the Book of Mormon lightly, are we
 
 There are three great reasons why Latter-day Saints should make the study of the Book of Mormon a lifetime pursuit.
 
-The *first* is that the Book of Mormon is the keystone of our religion. This was the Prophet Joseph Smith’s statement. He testified that “the Book of Mormon was the most correct of any book on earth, and the keystone of our religion” ([Introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)). A keystone is the central stone in an arch. It holds all the other stones in place, and if removed, the arch crumbles.
+The *first* is that the Book of Mormon is the keystone of our religion. This was the Prophet Joseph Smith’s statement. He testified that “the Book of Mormon was the most correct of any book on earth, and the keystone of our religion” ([Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)). A keystone is the central stone in an arch. It holds all the other stones in place, and if removed, the arch crumbles.
 
 There are three ways in which the Book of Mormon is the keystone of our religion. It is the keystone in our witness of Christ. It is the keystone of our doctrine. It is the keystone of testimony.
 
@@ -42,7 +44,7 @@ Yes, my beloved brothers and sisters, the Book of Mormon is the keystone of our 
 
 The *second* great reason why we must make the Book of Mormon a center focus of study is that it was written for our day. The Nephites never had the book; neither did the Lamanites of ancient times. It was meant for us. Mormon wrote near the end of the Nephite civilization. Under the inspiration of God, who sees all things from the beginning, he abridged centuries of records, choosing the stories, speeches, and events that would be most helpful to us.
 
-Each of the major writers of the Book of Mormon testified that he wrote for future generations. Nephi said: “The Lord God promised unto me that these things which I write shall be kept and preserved, and handed down unto my seed, from generation to generation” ([[2 Nephi 25.21|2 Ne. 25:21]]). His brother Jacob, who succeeded him, wrote similar words: “For \[Nephi\] said that the history of his people should be engraven upon his other plates, and that I should preserve these plates and hand them down unto my seed, from generation to generation” ([[Jacob 1.3|Jacob 1:3]]). Enos and Jarom both indicated that they too were writing not for their own peoples but for future generations (see [[Enos 1.15|Enos 1:15–16]][[Enos 1.16|]], [[Jarom 1.2|Jarom 1:2]]).
+Each of the major writers of the Book of Mormon testified that he wrote for future generations. Nephi said: “The Lord God promised unto me that these things which I write shall be kept and preserved, and handed down unto my seed, from generation to generation” ([[2 Nephi 25.21|2 Ne. 25:21]]). His brother Jacob, who succeeded him, wrote similar words: “For \[Nephi\] said that the history of his people should be engraven upon his other plates, and that I should preserve these plates and hand them down unto my seed, from generation to generation” ([[Jacob 1.3|Jacob 1:3]]). Enos and Jarom both indicated that they too were writing not for their own peoples but for future generations (see [[Enos 1.15|Enos 1:15–16]][[Enos 1.16|]], [[Jarom 1.2|Jarom 1:2]]).
 
 Mormon himself said, “Yea, I speak unto you, ye remnant of the house of Israel” ([[Mormon 7.1|Morm. 7:1]]). And Moroni, the last of the inspired writers, actually saw our day and time. “Behold,” he said, “the Lord hath shown unto me great and marvelous things concerning that which must shortly come, at that day when these things shall come forth among you.
 
@@ -54,13 +56,13 @@ And there is example after example of how that question will be answered. For ex
 
 From the Book of Mormon we learn how disciples of Christ live in times of war. From the Book of Mormon we see the evils of secret combinations portrayed in graphic and chilling reality. In the Book of Mormon we find lessons for dealing with persecution and apostasy. We learn much about how to do missionary work. And more than anywhere else, we see in the Book of Mormon the dangers of materialism and setting our hearts on the things of the world. Can anyone doubt that this book was meant for us and that in it we find great power, great comfort, and great protection?
 
-The *third* reason why the Book of Mormon is of such value to Latter-day Saints is given in the same statement by the Prophet Joseph Smith cited previously. He said, “I told the brethren that the Book of Mormon was the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book” ([Introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)). That is the third reason for studying the book. It helps us draw nearer to God. Is there not something deep in our hearts that longs to draw nearer to God, to be more like Him in our daily walk, to feel His presence with us constantly? If so, then the Book of Mormon will help us do so more than any other book.
+The *third* reason why the Book of Mormon is of such value to Latter-day Saints is given in the same statement by the Prophet Joseph Smith cited previously. He said, “I told the brethren that the Book of Mormon was the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book” ([Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)). That is the third reason for studying the book. It helps us draw nearer to God. Is there not something deep in our hearts that longs to draw nearer to God, to be more like Him in our daily walk, to feel His presence with us constantly? If so, then the Book of Mormon will help us do so more than any other book.
 
 It is not just that the Book of Mormon teaches us truth, though it indeed does that. It is not just that the Book of Mormon bears testimony of Christ, though it indeed does that, too. But there is something more. There is a power in the book which will begin to flow into your lives the moment you begin a serious study of the book. You will find greater power to resist temptation. You will find the power to avoid deception. You will find the power to stay on the strait and narrow path. The scriptures are called “the words of life” ([[D&C 84.85|D&C 84:85]]), and nowhere is that more true than it is of the Book of Mormon. When you begin to hunger and thirst after those words, you will find life in greater and greater abundance.
 
 Our beloved brother, President Marion G. Romney, who celebrated his eighty-ninth birthday last month and who knows of himself of the power that resides in this book, testified of the blessings that can come into the lives of those who will read and study the Book of Mormon. He said:
 
-“I feel certain that if, in our homes, parents will read from the Book of Mormon prayerfully and regularly, both by themselves and with their children, the spirit of that great book will come to permeate our homes and all who dwell therein. The spirit of reverence will increase; mutual respect and consideration for each other will grow. The spirit of contention will depart. Parents will counsel their children in greater love and wisdom. Children will be more responsive and submissive to the counsel of their parents. Righteousness will increase. Faith, hope, and charity—the pure love of Christ—will abound in our homes and lives, bringing in their wake peace, joy, and happiness” (in Conference Report, Apr. 1980, p. 90; or *Ensign,* May 1980, p. 67).
+“I feel certain that if, in our homes, parents will read from the Book of Mormon prayerfully and regularly, both by themselves and with their children, the spirit of that great book will come to permeate our homes and all who dwell therein. The spirit of reverence will increase; mutual respect and consideration for each other will grow. The spirit of contention will depart. Parents will counsel their children in greater love and wisdom. Children will be more responsive and submissive to the counsel of their parents. Righteousness will increase. Faith, hope, and charity—the pure love of Christ—will abound in our homes and lives, bringing in their wake peace, joy, and happiness” (in Conference Report, Apr. 1980, [[1980 April - The Book of Mormon.md|p. 90]]; or *Ensign,* May 1980, p. 67).
 
 These promises—increased love and harmony in the home, greater respect between parent and child, increased spirituality and righteousness—are not idle promises, but exactly what the Prophet Joseph Smith meant when he said the Book of Mormon will help us draw nearer to God.
 
@@ -70,7 +72,7 @@ Over ten years ago I made the following statement regarding the Book of Mormon:
 
 “Do eternal consequences rest upon our response to this book? Yes, either to our blessing or our condemnation.
 
-“Every Latter-day Saint should make the study of this book a lifetime pursuit. Otherwise he is placing his soul in jeopardy and neglecting that which could give spiritual and intellectual unity to his whole life. There is a difference between a convert who is built on the rock of Christ through the Book of Mormon and stays hold of that iron rod, and one who is not” (in Conference Report, Apr. 1975, p. 97; or *Ensign,* May 1975, p. 65).
+“Every Latter-day Saint should make the study of this book a lifetime pursuit. Otherwise he is placing his soul in jeopardy and neglecting that which could give spiritual and intellectual unity to his whole life. There is a difference between a convert who is built on the rock of Christ through the Book of Mormon and stays hold of that iron rod, and one who is not” (in Conference Report, Apr. 1975, [[1975 April - The Book of Mormon Is the Word of God.md|p. 97]]; or *Ensign,* May 1975, p. 65).
 
 I reaffirm those words to you this day. Let us not remain under condemnation, with its scourge and judgment, by treating lightly this great and marvelous gift the Lord has given to us. Rather, let us win the promises associated with treasuring it up in our hearts.
 
@@ -95,8 +97,3 @@ This is my prayer, that the Book of Mormon may become the keystone of our lives,
 
 
 
-
-
-
-
-#Book_Of_Mormon #Scriptures #Testimony

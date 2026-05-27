@@ -1,6 +1,8 @@
 # Blessings in Self-Reliance
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+Marion G. Romney
+
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -20,7 +22,7 @@ Since all human beings are His children, His commandments apply to everyone. The
 
 There is no escaping these two alternatives. One or the other will control our lives, so it is only sensible to be realistic and face up to these hard facts.
 
-Inasmuch as God has given us our free agency to do as we please, He expects us to use our intelligence and ingenuity to improve our circumstances both spiritually and temporally. He wants us to be successful in life and desires to help us. Man really is that he might have joy. (See [[2 Nephi 2.25|2 Ne. 2:25]].)
+Inasmuch as God has given us our free agency to do as we please, He expects us to use our intelligence and ingenuity to improve our circumstances both spiritually and temporally. He wants us to be successful in life and desires to help us. Man really is that he might have joy. (See [[2 Nephi 2.25|2 Ne. 2:25]].)
 
 Then we should plan well for our future and not live entirely for the present nor suppose that the status quo will continue on indefinitely.
 
@@ -136,7 +138,7 @@ Let us remember that it is against the will of God that any one of us should be 
 
 Shall we trust Him? His burden is so much easier than that of the world.
 
-“Come unto me,” He says “… and I will give you rest.” ([[Matthew 11.28|Matt. 11:28]].)
+“Come unto me,” He says “… and I will give you rest.” ([[Matthew 11.28|Matt. 11:28]].)
 
 He loves us. He will watch over us, and—even in hard times He will prosper us—*if* we are not of little faith. He may try us, but He will not forsake us.
 
@@ -156,8 +158,3 @@ That is His promise, and His word is true, I testify in His sacred name, the nam
 
 
 
-
-
-
-
-#Morality #Obedience

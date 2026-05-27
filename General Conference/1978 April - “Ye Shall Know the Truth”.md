@@ -1,6 +1,8 @@
 # “Ye Shall Know the Truth”
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -10,7 +12,7 @@ This morning we have enjoyed lovely music, and have had many truths explained to
 
 “And ye shall know the truth, and the truth shall make you free.” ([[John 8.31|John 8:31–32]][[John 8.32|]].)
 
-We have been greatly blessed also to have heard a message from the Lord’s prophet, President Spencer W. Kimball, whose words of truth we should all heed.
+We have been greatly blessed also to have heard a message from the Lord’s prophet, President Spencer W. Kimball, whose words of truth we should all heed.
 
 Shortly before his betrayal and subsequent death and resurrection, our Savior spent some very sacred and solemn moments with his apostles, comforting them and revealing to them some of the events which would transpire, even though they did not fully understand or comprehend the meaning of his words. After intimating that they would soon be left alone—that is, without him—he spoke of the tribulation in the world, but admonished them to be of good cheer, for he had overcome the world. Then he lifted his eyes to heaven and said:
 
@@ -24,9 +26,9 @@ Shortly before his betrayal and subsequent death and resurrection, our Savior sp
 
 “And now, O Father, glorify thou me with thine own self with the glory which I had with thee before the world was.
 
-“I have manifested thy name unto the men which thou gavest me out of the world: thine they were, and thou gavest them me; and they have kept thy word. …
+“I have manifested thy name unto the men which thou gavest me out of the world: thine they were, and thou gavest them me; and they have kept thy word. …
 
-“For I have given unto them the words which thou gavest me; and they have received them, and have known surely that I came out from thee, and they have believed that thou didst send me. …
+“For I have given unto them the words which thou gavest me; and they have received them, and have known surely that I came out from thee, and they have believed that thou didst send me. …
 
 “Holy Father, keep through thine own name those whom thou hast given me, that they may be one, as we are.” ([[John 17.1|John 17:1–6, 8, 11]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.8|]][[John 17.11|]]; italics added.)
 
@@ -54,7 +56,7 @@ We are encouraged to study and pray and seek wisdom and to teach one another. We
 
 “And I give unto you a commandment that you shall teach one another *the doctrine of the kingdom.*
 
-“Teach ye diligently and my grace shall attend you, that you may be instructed more perfectly in theory, in principle, in doctrine, in the law of the gospel, in all things that pertain unto the kingdom of God, that are expedient for you to understand; …
+“Teach ye diligently and my grace shall attend you, that you may be instructed more perfectly in theory, in principle, in doctrine, in the law of the gospel, in all things that pertain unto the kingdom of God, that are expedient for you to understand; …
 
 “That ye may be prepared in all things when I shall send you again to magnify the calling whereunto I have called you, and the mission with which I have commissioned you.
 
@@ -62,7 +64,7 @@ We are encouraged to study and pray and seek wisdom and to teach one another. We
 
 “Therefore, they are left without excuse, and their sins are upon their own heads.
 
-“He that seeketh me early shall find me, and shall not be forsaken. …
+“He that seeketh me early shall find me, and shall not be forsaken. …
 
 “Abide ye in the liberty wherewith ye are made free; entangle not yourselves in sin, but let your hands be clean, until the Lord comes.” ([[D&C 88.77|D&C 88:77–78, 80–83, 86]][[D&C 88.78|]][[D&C 88.80|]][[D&C 88.81|]][[D&C 88.82|]][[D&C 88.83|]][[D&C 88.86|]]; italics added.)
 
@@ -90,7 +92,7 @@ Dr. Henry Eyring, one of our leading scientists, makes this observation:
 
 “The more I try to unravel the mysteries of the world in which we live, the more I come to the conception of a single overruling power—God. One can come to this point of view by prayer and the testimony of the Holy Ghost or because there seems to be no other explanation of the unity and wonder of the universe or by the pragmatic method of science that the Savior suggested long ago—try it and you will know.
 
-“I have often met this question: ‘Dr. Eyring, as a scientist, how can you accept revealed religion?’ The answer is simple. The Gospel commits us only to the truth. The same pragmatic tests that apply in science apply to religion. Try it. Does it work? The conception of a God ruling the universe and concerned with how it works is impossible for me without the corollary that He should be interested in man, the most remarkable phenomenon in the world. Being interested in man, it is natural that He would provide a plan for man’s development and welfare. This plan is the Gospel of Jesus Christ. …
+“I have often met this question: ‘Dr. Eyring, as a scientist, how can you accept revealed religion?’ The answer is simple. The Gospel commits us only to the truth. The same pragmatic tests that apply in science apply to religion. Try it. Does it work? The conception of a God ruling the universe and concerned with how it works is impossible for me without the corollary that He should be interested in man, the most remarkable phenomenon in the world. Being interested in man, it is natural that He would provide a plan for man’s development and welfare. This plan is the Gospel of Jesus Christ. …
 
 “The significant thing about a scientist is this: he simply expects the truth to prevail because it IS the truth. … In science, the thing IS, and its being so is something one cannot resent. If a thing is wrong, nothing can save it, and if it is right, it cannot help succeeding.
 
@@ -100,11 +102,11 @@ To know that God the Eternal Father knows all truth and acts in accordance with 
 
 One of the great differences between God and man is *God’s greater knowledge of the truth,* which makes him *free* to create worlds and to control the universe.
 
-We believe also that “as man now is, God once was: As God now is, man may be.” (Lorenzo Snow, 11 January 1892, reprinted in *Latter-day Prophets Speak,* ed. Daniel H. Ludlow, Salt Lake City: Bookcraft, 1951, p. 72.) Therefore, man should strive all his days to increase his intelligence and learn all the truths he can. He should realize that the gospel of Jesus Christ embraces all truth wherever it may be found, and as he gains knowledge and truth he should teach it to his fellowmen.
+We believe also that “as man now is, God once was: As God now is, man may be.” (Lorenzo Snow, 11 January 1892, reprinted in *Latter-day Prophets Speak,* ed. Daniel H. Ludlow, Salt Lake City: Bookcraft, 1951, p. 72.) Therefore, man should strive all his days to increase his intelligence and learn all the truths he can. He should realize that the gospel of Jesus Christ embraces all truth wherever it may be found, and as he gains knowledge and truth he should teach it to his fellowmen.
 
 Especially do parents have a responsibility to teach their children. A child must be taught the difference between right and wrong. Left on his own, the child may learn only the wrong. He needs guidance and instruction as to the consequences of his choices—why he will receive blessings for some and punishment for others.
 
-Let us never forget that we are the architects of our own fates. God is not responsible for the consequences of our acts. He gives us the word—the truth—and the rules to follow and the opportunity to learn and to act and to progress. I like what the late President David O. McKay said regarding this:
+Let us never forget that we are the architects of our own fates. God is not responsible for the consequences of our acts. He gives us the word—the truth—and the rules to follow and the opportunity to learn and to act and to progress. I like what the late President David O. McKay said regarding this:
 
 “I believe that God is love, that He is our Father and desires the happiness and eternal life of His children. … He has placed man upon earth and … gave to man ‘that he should be an agent unto himself.’ \[See [[D&C 29.35|D&C 29:35]].\] Men may choose the right or they may choose the wrong; they may walk in darkness or they may walk in the light; and, mind you, God has not left his children without the light. He has given them in the various dispensations of the world the light of the gospel wherein they could walk and not stumble, wherein they could find that peace and happiness which he desires, as a loving father, his children should enjoy, but the Lord does not take from them their free agency.
 
@@ -120,7 +122,7 @@ But for those who do not make the right choices, who may turn away from the trut
 
 From the beginning of time God’s concern and love for his children has prompted him to warn them against the temptations of the enemy of truth and light, even Satan, who has committed himself, with his followers, to destroy mankind and thwart the plan of God to save his children. We could well apply to our day the following words which were spoken by a Book of Mormon prophet to his people, as he was moved upon by the Spirit of the Lord:
 
-“Yea, wo unto this people, because of this time which has arrived, that ye do cast out the prophets, and do mock them, and cast stones at them, and do slay them, and do all manner of iniquity unto them, even as they did of old time. …
+“Yea, wo unto this people, because of this time which has arrived, that ye do cast out the prophets, and do mock them, and cast stones at them, and do slay them, and do all manner of iniquity unto them, even as they did of old time. …
 
 “O ye wicked and ye perverse generation; ye hardened and ye stiffnecked people, how long will ye suppose that the Lord will suffer you? Yea, how long will ye suffer yourselves to be led by foolish and blind guides? Yea, how long will ye choose darkness rather than light?” ([[Helaman 13.24|Hel. 13:24, 29]][[Helaman 13.29|]].)
 
@@ -141,8 +143,3 @@ May we all accept God as our Father, and his Son Jesus Christ as our Savior, and
 
 
 
-
-
-
-
-#Freedom #Jesus_Christ #Obedience #Truth

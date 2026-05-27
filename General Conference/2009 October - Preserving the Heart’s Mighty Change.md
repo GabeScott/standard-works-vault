@@ -1,5 +1,7 @@
 # Preserving the Heart’s Mighty Change
 
+Thomas S. Monson
+
 By Elder Dale G. Renlund - *Of the Seventy*
 
 *Given in the October session of the 2009 General Conference*
@@ -57,7 +59,7 @@ I pray that we may press forward with steadfast faith in Christ and endure joyfu
 
 [^3]: [[Ezekiel 36.26|Ezekiel 36:26]].
 
-[^4]: See [[3 Nephi 27.16|3 Nephi 27:16]].
+[^4]: See [[3 Nephi 27.16|3 Nephi 27:16]].
 
 [^5]: [[D&C 20.34|D&C 20:34]].
 
@@ -69,12 +71,7 @@ I pray that we may press forward with steadfast faith in Christ and endure joyfu
 
 [^9]: See [[Alma 5.27|Alma 5:27–30]][[Alma 5.28|]][[Alma 5.29|]][[Alma 5.30|]].
 
-[^10]: See [[2 Nephi 25.26|2 Nephi 25:26]].
+[^10]: See [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^11]: See Dieter F. Uchtdorf, in Conference Report, Oct. 2007, 16–19; or *Ensign,* Nov. 2007, 18–21.
+[^11]: See Dieter F. Uchtdorf, in Conference Report, Oct. 2007, [[2007 October - Have We Not Reason to Rejoice.md|16–19]]; or *Ensign,* Nov. 2007, 18–21.
 
-
-
-
-
-#Conversion #Endurance #Faith

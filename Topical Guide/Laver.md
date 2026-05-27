@@ -1,4 +1,3 @@
 # Laver
 
-
-*See* [BD Laver](https://www.churchofjesuschrist.org/study/scriptures/bd/laver?lang=eng)
+*See also* [[BD Laver.md|BD Laver]]

@@ -1,6 +1,8 @@
 # The Resurrection of Jesus
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -58,7 +60,7 @@ Thus, on this eventful day, did his former associates behold his glorious resurr
 
 For forty days he ministered among his disciples in the Holy Land. He appeared unto his disciples again at Jerusalem, when Thomas was present (see [[John 20.26|John 20:26–29]][[John 20.27|]][[John 20.28|]][[John 20.29|]]), and on the shore of the Sea of Tiberias, where he directed them in casting for fish, invited them to dine, gave them food to eat which he himself had prepared on a fire of coals, and instructed them in the ministry (see [[John 21.1|John 21:1–14]][[John 21.2|]][[John 21.3|]][[John 21.4|]][[John 21.5|]][[John 21.6|]][[John 21.7|]][[John 21.8|]][[John 21.9|]][[John 21.10|]][[John 21.11|]][[John 21.12|]][[John 21.13|]][[John 21.14|]]). On a mountain in Galilee he commissioned the eleven to teach the gospel to all nations. (See [[Matthew 28.16|Matt. 28:16–18]][[Matthew 28.17|]][[Matthew 28.18|]].) And finally, after he had blessed them at Bethany, they saw him “carried up into heaven.” (See [[Luke 24.50|Luke 24:50–53]][[Luke 24.51|]][[Luke 24.52|]][[Luke 24.53|]].)
 
-His mission being ended in Palestine, he paid a visit to the Nephites in America, that they too might know of his resurrection. His Father introduced him to them as “my Beloved Son, in whom I am well pleased.” When they saw him descend from heaven, they described him as “a Man … clothed in a white robe.” He announced himself as “Jesus Christ, whom the prophets testified shall come into the world.” They saw him, they heard him, and at his invitation they all “went forth, and thrust their hands into his side, and did feel the prints of the nails in his hands and in his feet,” and knew of a surety and did testify that he was the resurrected Redeemer. (See [[3 Nephi 11.7|3 Ne. 11:7–15]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]].)
+His mission being ended in Palestine, he paid a visit to the Nephites in America, that they too might know of his resurrection. His Father introduced him to them as “my Beloved Son, in whom I am well pleased.” When they saw him descend from heaven, they described him as “a Man … clothed in a white robe.” He announced himself as “Jesus Christ, whom the prophets testified shall come into the world.” They saw him, they heard him, and at his invitation they all “went forth, and thrust their hands into his side, and did feel the prints of the nails in his hands and in his feet,” and knew of a surety and did testify that he was the resurrected Redeemer. (See [[3 Nephi 11.7|3 Ne. 11:7–15]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]].)
 
 As he revealed himself after his resurrection to his followers in the Holy Land and to the Nephites in America, so he has revealed himself in our day. Indeed, this dispensation opened with a glorious vision in which the Prophet Joseph was visited by the Father and the Son. He heard their voices, for they both spoke to him. He was given a personal introduction to the resurrected Jesus by the Father himself. He beheld their glorious bodies and afterwards thus described them: “The Father has a body of flesh and bones as tangible as man’s; the Son also.” ([[D&C 130.22|D&C 130:22]].)
 
@@ -84,7 +86,7 @@ This was the world’s supreme act of charity, performed by Jesus out of his gre
 
 Regardless of what we believe or how we live, we shall be resurrected, for through the atonement of Christ redemption from the grave is granted to every soul unconditionally. This is not so, however, with respect to forgiveness and redemption from the effects of our own transgressions. The only persons who are thus forgiven and redeemed are those who accept and abide the terms prescribed by the Redeemer, thus bringing themselves, with respect to their own sins, within the reach of his atoning blood.
 
-He has set forth the terms of his gospel—the gospel of Jesus Christ—which is the law of mercy, the first requirement of which is to accept Jesus for what he is, literally our Redeemer. This is “faith in the Lord Jesus Christ.” ([[Articles of Faith 1.4|A of F 1:4]].) Then follows the forsaking of one’s sins and the making of such restitution as is within one’s power. This is repentance.
+He has set forth the terms of his gospel—the gospel of Jesus Christ—which is the law of mercy, the first requirement of which is to accept Jesus for what he is, literally our Redeemer. This is “faith in the Lord Jesus Christ.” ([[Articles of Faith 1.4|A of F 1:4]].) Then follows the forsaking of one’s sins and the making of such restitution as is within one’s power. This is repentance.
 
 Without complying with these requirements and the other principles and the ordinances of the gospel, one is left beyond the reach of the plan of mercy, to rely upon the law of justice, which will require that he suffer for his own sins, even as Jesus suffered. (See [[D&C 19.16|D&C 19:16–18]][[D&C 19.17|]][[D&C 19.18|]].) For “he that exercises no faith unto repentance is exposed to the whole law of the demands of justice; therefore only unto him that has faith unto repentance is brought about the great and eternal plan of redemption.” ([[Alma 34.16|Alma 34:16]].)
 
@@ -97,8 +99,3 @@ To this I bear solemn witness, in the sacred name of Jesus Christ, our Redeemer,
 
 
 
-
-
-
-
-#Jesus_Christ #Resurrection

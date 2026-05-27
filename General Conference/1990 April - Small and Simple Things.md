@@ -1,5 +1,7 @@
 # Small and Simple Things
 
+Thomas S. Monson
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -20,7 +22,7 @@ To illustrate, let me read from a letter written by one of our faithful sister m
 
 “It’s really interesting with the people from the country—they are so quiet, timid, shy, and embarrassed. You are never sure exactly how much they understand. They will live and die in this small town. They are so poor and so simple and so childlike. They may never see a General Authority, never attend general conference, never go to BYU. They’ll never be Boy Scouts, never play basketball in a huge Church gym, never drive a car to stake conference, regional basketball finals, or anywhere. Many of the things we think about when we think of the Church—and take for granted—they may never see. \[Now, the point.\] But they have faith, they repent, they are baptized, they receive the Holy Ghost, and they renew their baptismal covenants each week when they partake of the sacrament. They pray and read the scriptures daily. They know God lives and that Christ is our Savior. And, I believe, they are going to the celestial kingdom. I do all the things they never will, but I’m not so sure about my own salvation.
 
-“At first glance, the Church here looks absolutely nothing like the Church in downtown Orem, Utah. I have to keep reminding myself it is the same church and we all follow the same prophet. We have a sacrament meeting in the country each week because the members there really can’t afford to come into town. And as I sit there outside on a wooden chair on the plain ground, with the sun setting and the six people in attendance, as we sing hymns, pray, and partake of the sacrament, I wonder if that isn’t closer to Christ’s church than at home. But I guess it is really the same. The things that matter, the true elements of the gospel as Christ taught in [[3 Nephi 11.1|3 Nephi 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]], are the same here as they are in Orem, Utah.”
+“At first glance, the Church here looks absolutely nothing like the Church in downtown Orem, Utah. I have to keep reminding myself it is the same church and we all follow the same prophet. We have a sacrament meeting in the country each week because the members there really can’t afford to come into town. And as I sit there outside on a wooden chair on the plain ground, with the sun setting and the six people in attendance, as we sing hymns, pray, and partake of the sacrament, I wonder if that isn’t closer to Christ’s church than at home. But I guess it is really the same. The things that matter, the true elements of the gospel as Christ taught in [[3 Nephi 11.1|3 Nephi 11]], are the same here as they are in Orem, Utah.”
 
 The Lord has graciously provided the means for conversion even in the most simple and humble of circumstances. Unfortunately, some of us look beyond the mark and depend too much on buildings, budgets, programs, and activities for conversion rather than on the small and simple things that are central to the gospel. We need not look beyond our own hearts to experience the sweet spiritual feelings promised to those who obey God. That is why a new member in the most humble conditions can experience the gospel as deeply as a lifetime member who was raised in the shadow of Church headquarters.
 
@@ -80,7 +82,7 @@ I am grateful that the Lord answered the prayers of this young man by prompting 
 
 Great and marvelous events seem to motivate us, but small things often do not hold our attention. Noting that the Liahona worked by faith, Alma stated, “Nevertheless, because those miracles were worked by small means … \[the people of Lehi\] were slothful, and forgot to exercise their faith and diligence and then those marvelous works ceased, and they did not progress in their journey” ([[Alma 37.41|Alma 37:41]]).
 
-Is our journey sometimes impeded when we forget the importance of small things? (see [[Alma 37.46|Alma 37:46]]). Do we realize that small events and choices determine the direction of our lives just as small helms determine the direction of great ships? (see [[James 3.4|James 3:4]]; [[D&C 123.16|D&C 123:16]]). Are we ever like Naaman, the leper, expecting some great thing before we will pay attention to prophets? (see [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]]).
+Is our journey sometimes impeded when we forget the importance of small things? (see [[Alma 37.46|Alma 37:46]]). Do we realize that small events and choices determine the direction of our lives just as small helms determine the direction of great ships? (see [[James 3.4|James 3:4]]; [[D&C 123.16|D&C 123:16]]). Are we ever like Naaman, the leper, expecting some great thing before we will pay attention to prophets? (see [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]]).
 
 May the Lord bless each one of us to follow the counsel of our prophets. We need to have family and personal prayers; study the scriptures, particularly the Book of Mormon; hold family home evenings; follow the admonition of the Savior to love one another; and be thoughtful, kind, and gentle within the family. Through these and other similar small and simple things, we have the promise that our lives will be filled with peace and joy.
 
@@ -89,8 +91,3 @@ I know that Jesus Christ lives and that this is his Church. I testify that his g
 
 
 
-
-
-
-
-#Agency #Faith #Prophets #Service #Spirituality

@@ -1,5 +1,7 @@
 # The Work Moves Forward
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1999 General Conference*
@@ -45,8 +47,3 @@ Now I invite you to listen to the Brethren and sisters. All who speak feel the r
 
 
 
-
-
-
-
-#Adversity #Church_Growth #Family #Family_History #General_Conference #Media #Temples #Tolerance

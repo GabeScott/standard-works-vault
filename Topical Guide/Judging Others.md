@@ -1,4 +1,3 @@
 # Judging Others
 
-
-*See* [[Judgment.md|Judgment]]
+*See also* [[Judgment.md|Judgment]]

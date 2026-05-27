@@ -1,5 +1,7 @@
 # Prepare the Way
 
+Bonnie H. Cordon
+
 By Bishop Gérald Caussé - *Presiding Bishop*
 
 *Given in the April session of the 2017 General Conference*
@@ -40,7 +42,7 @@ Just think of what would take place in our priesthood quorums if the relationshi
 
 My adult brethren, whether you are fathers, bishops, Young Men advisers, or simply holders of the Melchizedek Priesthood, you can follow the Savior’s example by turning to your brothers who hold the lesser priesthood and inviting them to labor with you. In reality, this invitation comes from the Lord Himself. He said, “Therefore, take with you those who are ordained unto the lesser priesthood, and send them before you to make appointments, and to prepare the way, and to fill appointments that you yourselves are not able to fill.”[^8]
 
-As you invite your younger brothers to “prepare the way,” you help them recognize and honor the sacred authority they hold. By doing so, you help them prepare their own way as they prepare for the day that they receive and exercise the higher priesthood.
+As you invite your younger brothers to “prepare the way,” you help them recognize and honor the sacred authority they hold. By doing so, you help them prepare their own way as they prepare for the day that they receive and exercise the higher priesthood.
 
 Allow me to share the true story of Alex, a quiet, thoughtful, and bright young priest. One Sunday, Alex’s bishop found him alone in a classroom in a state of great distress. The young man explained how painfully difficult it was for him to attend church without his father, who was not a member. Then he tearfully said it would probably be better for him to leave the Church.
 
@@ -63,7 +65,7 @@ My dear brethren of the Melchizedek Priesthood, I invite you to strengthen the e
 
 
 
-[^1]: [[1 Nephi 10.7|1 Nephi 10:7]].
+[^1]: [[1 Nephi 10.7|1 Nephi 10:7]].
 
 [^2]: [[Mark 6.20|Mark 6:20]].
 
@@ -83,8 +85,3 @@ My dear brethren of the Melchizedek Priesthood, I invite you to strengthen the e
 
 [^10]: [[D&C 35.4|Doctrine and Covenants 35:4]].
 
-
-
-
-
-#Preparation #Priesthood #Service #Unity #Youth

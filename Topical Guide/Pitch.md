@@ -1,6 +1,5 @@
 # Pitch
 
-
 *See also* [[Set.md|Set]]
 
 Moses took the tabernacle, and *pitched* it without the camp, [[Exodus 33.7|Exodus 33:7]].

@@ -4,6 +4,3 @@
 
 [JST Luke 21:26](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/21?lang=eng)
 
-
-
-

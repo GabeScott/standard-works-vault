@@ -5,4 +5,4 @@
 [Joseph Smith History 1:5](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.5?lang=eng#p5)
 
 
-[^a]: [[Matthew 24.23|Matt. 24:23.]]
+[^a]: [[Matthew 24.23|Matt. 24:23]].  

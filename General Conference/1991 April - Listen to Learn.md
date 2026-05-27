@@ -1,5 +1,7 @@
 # Listen to Learn
 
+Thomas S. Monson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -72,7 +74,7 @@ President Ezra Taft Benson has proclaimed the importance of studying the Book of
 
 Gratefully we thank God for a prophet to guide us in these latter days. But many turn a deaf ear to his teachings, oblivious to his prophetic position. They do so at great risk, for scriptures contain this warning:
 
-“A prophet shall the Lord your God raise up unto you … ; him shall ye hear in all things whatsoever he shall say unto you. …
+“A prophet shall the Lord your God raise up unto you … ; him shall ye hear in all things whatsoever he shall say unto you. …
 
 “Every soul, which will not hear that prophet, shall be destroyed from among the people” ([[Acts 3.22|Acts 3:22–23]][[Acts 3.23|]]).[^11]
 
@@ -92,13 +94,13 @@ President Spencer W. Kimball said, “It would not hurt us, either, if we paused
 
 In a world scarred by scourges of tyranny and war, many of its inhabitants earnestly pray for inner peace. For example, not long ago a beautiful young mother named Svetlana developed an intense desire to obtain a Bible. But in her city of Leningrad, a Bible was very rare and expensive. Frequently and fervently she prayed for a Bible. Ultimately, she and her husband were impressed to travel with their small child to Helsinki, Finland, with that hope in mind. There one day while walking in a park, she stumbled across an object buried under the cover of autumn leaves. She picked it up and found it to be a Bible written in the Russian language! Excitedly she recounted the story of this great discovery to another mother who was also in the park with her youngster. The second mother rejoiced with Svetlana and added, “Would you like to have *another* book about Jesus Christ?” Svetlana, of course, answered in the affirmative. The other mother provided Svetlana with a copy of a Russian-language edition of the Book of Mormon and invited the family to church. She eagerly embraced the teachings of the missionaries and shortly thereafter joined The Church of Jesus Christ of Latter-day Saints. Then they returned to their home, where they have helped pioneer the work in the Leningrad Branch of the Church.[^17]
 
-Her experience typifies this promise of the Savior to those who seek Him: “Thus saith the Lord God: I will give unto the children of men line upon line, precept upon precept, here a little and there a little; and blessed are those who *hearken* unto my precepts, and *lend an ear* unto my counsel, for they shall learn wisdom; for unto him that receiveth I will give more” ([[2 Nephi 28.30|2 Ne. 28:30]]; italics added).[^18]
+Her experience typifies this promise of the Savior to those who seek Him: “Thus saith the Lord God: I will give unto the children of men line upon line, precept upon precept, here a little and there a little; and blessed are those who *hearken* unto my precepts, and *lend an ear* unto my counsel, for they shall learn wisdom; for unto him that receiveth I will give more” ([[2 Nephi 28.30|2 Ne. 28:30]]; italics added).[^18]
 
 While stressing the importance of listening well, I am mindful of those who cannot hear. Many labeled as deaf have received the Spirit “by the hearing of faith” ([[Galatians 3.2|Gal. 3:2]]).[^19] The example of Rachel Ivins Grant is inspiring to me. She never complained about her own deafness. Though most women in their seventies would be completely worn out while rearing six growing children of another mother, she undertook that task. Rachel’s deafness seemed to save her from the wear and tear of noise. Sometimes, when two were arguing, Rachel would burst out laughing. She said they had no idea how funny it was to see their angry faces and hear none of their words.
 
 Before her son, Heber J. Grant, became the seventh President of the Church, she declared, “Of course the greatest trial I have is that I cannot hear, but I have so many blessings I cannot complain, but if we only will live so that we may receive the instructions of God, there is nothing we are called to pass through but will be for our good.”[^20]
 
-The Redeemer loves such faithful souls: “For the eyes of the Lord are over the righteous, and his ears are open unto their prayers” ([[1 Peter 3.12|1 Pet. 3:12]]).
+The Redeemer loves such faithful souls: “For the eyes of the Lord are over the righteous, and his ears are open unto their prayers” ([[1 Peter 3.12|1 Pet. 3:12]]).
 
 They qualify for this prophetic promise: “Before they call, I \[the Lord\] will answer; and while they are yet speaking, I will hear” ([[Isaiah 65.24|Isa. 65:24]]).
 
@@ -117,52 +119,47 @@ The wise listen to learn from the Lord. I testify of Him and certify that as we 
 
 [^2]: See also [[Proverbs 8.32|Prov. 8:32–33]][[Proverbs 8.33|]]; [[Jacob 6.12|Jacob 6:12]].
 
-[^3]: George D. Durrant, “Take Time to Talk,” *Ensign,* Apr. 1973, p. 24; see also [[James 1.19|James 1:19]].
+[^3]: George D. Durrant, “Take Time to Talk,” *Ensign,* Apr. 1973, p. 24; see also [[James 1.19|James 1:19]].
 
-[^4]: Florence B. Pinnock, “Let’s Listen,” *Improvement Era,* Oct. 1964, pp. 872–73.
+[^4]: Florence B. Pinnock, “Let’s Listen,” *Improvement Era,* Oct. 1964, pp. 872–73.
 
-[^5]: See [[Exodus 20.12|Ex. 20:12]]; [[Deuteronomy 5.16|Deut. 5:16]]; [[Matthew 15.4|Matt. 15:4]]; [[Matthew 19.19|19:19]]; [[Mark 7.10|Mark 7:10]]; [[Mark 10.19|10:19]]; [[Luke 18.20|Luke 18:20]]; [[Ephesians 6.2|Eph. 6:2]]; [[1 Nephi 17.55|1 Ne. 17:55]]; [[Mosiah 13.20|Mosiah 13:20]].
+[^5]: See [[Exodus 20.12|Ex. 20:12]]; [[Deuteronomy 5.16|Deut. 5:16]]; [[Matthew 15.4|Matt. 15:4]]; [[Matthew 19.19|19:19]]; [[Mark 7.10|Mark 7:10]]; [[Mark 10.19|10:19]]; [[Luke 18.20|Luke 18:20]]; [[Ephesians 6.2|Eph. 6:2]]; [[1 Nephi 17.55|1 Ne. 17:55]]; [[Mosiah 13.20|Mosiah 13:20]].
 
 [^6]: See [[Leviticus 10.11|Lev. 10:11]]; [[Deuteronomy 4.10|Deut. 4:10]]; [[Deuteronomy 6.5|6:5–7]][[Deuteronomy 6.6|]][[Deuteronomy 6.7|]]; [[Deuteronomy 11.19|11:19]]; [[Mosiah 1.4|Mosiah 1:4]]; [[D&C 68.25|D&C 68:25, 28]][[D&C 68.28|]]; [[Moses 6.57|Moses 6:57–58]][[Moses 6.58|]].
 
 [^7]: See also [[Colossians 3.20|Col. 3:20]].
 
-[^8]: F. Burton Howard, *Marion G. Romney: His Life and Faith* \[Salt Lake City: Bookcraft, 1988\], pp. 144–45.
+[^8]: F. Burton Howard, *Marion G. Romney: His Life and Faith* \[Salt Lake City: Bookcraft, 1988\], pp. 144–45.
 
-[^9]: See [[Ephesians 5.25|Eph. 5:25, 33]][[Ephesians 5.33|]]; [[Colossians 3.19|Col. 3:19]]; [[1 Peter 3.1|1 Pet. 3:1]]; [[Jacob 3.7|Jacob 3:7]]; [[D&C 132.19|D&C 132:19]].
+[^9]: See [[Ephesians 5.25|Eph. 5:25, 33]][[Ephesians 5.33|]]; [[Colossians 3.19|Col. 3:19]]; [[1 Peter 3.1|1 Pet. 3:1]]; [[Jacob 3.7|Jacob 3:7]]; [[D&C 132.19|D&C 132:19]].
 
 [^10]: See also [[Matthew 22.39|Matt. 22:39]]; [[Mark 12.31|Mark 12:31, 33]][[Mark 12.33|]]; [[Luke 10.27|Luke 10:27]]; [[Romans 13.9|Rom. 13:9]]; [[Galatians 5.14|Gal. 5:14]]; [[James 2.8|James 2:8]]; [[Mosiah 23.15|Mosiah 23:15]]; [[D&C 59.6|D&C 59:6]].
 
 [^11]: See also [[Jeremiah 5.21|Jer. 5:21]]; [[D&C 1.14|D&C 1:14]].
 
-[^12]: J. Reuben Clark, Jr., “Not a Prophet—but a Listening Ear,” *Improvement Era,* Nov. 1948, p. 685.
+[^12]: J. Reuben Clark, Jr., “Not a Prophet—but a Listening Ear,” *Improvement Era,* Nov. 1948, p. 685.
 
-[^13]: See [[Matthew 17.5|Matt. 17:5]]; [[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]]; [[3 Nephi 11.7|3 Ne. 11:7]]; [[Joseph Smith History 1.17|JS—H 1:17]]; italics added.
+[^13]: See [[Matthew 17.5|Matt. 17:5]]; [[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]]; [[3 Nephi 11.7|3 Ne. 11:7]]; [[Joseph Smith History 1.17|JS—H 1:17]]; italics added.
 
-[^14]: See [[Exodus 20.6|Ex. 20:6]]; [[Deuteronomy 5.10|Deut. 5:10]]; [[Deuteronomy 7.9|7:9]]; [[Deuteronomy 11.1|11:1]]; [[Deuteronomy 30.16|30:16]]; [[Joshua 22.5|Josh. 22:5]]; [[Nehemiah 1.5|Neh. 1:5]]; [[Daniel 9.4|Dan. 9:4]]; [[John 14.15|John 14:15]]; [[John 15.10|15:10]]; [[1 John 5.2|1 Jn. 5:2–3]][[1 John 5.3|]]; [[2 John 1.6|2 Jn. 1:6]]; [[Mosiah 13.14|Mosiah 13:14]]; [[D&C 42.2|D&C 42:2]]; [[D&C 46.9|46:9]]; [[D&C 124.87|124:87]].
+[^14]: See [[Exodus 20.6|Ex. 20:6]]; [[Deuteronomy 5.10|Deut. 5:10]]; [[Deuteronomy 7.9|7:9]]; [[Deuteronomy 11.1|11:1]]; [[Deuteronomy 30.16|30:16]]; [[Joshua 22.5|Josh. 22:5]]; [[Nehemiah 1.5|Neh. 1:5]]; [[Daniel 9.4|Dan. 9:4]]; [[John 14.15|John 14:15]]; [[John 15.10|15:10]]; [[1 John 5.2|1 Jn. 5:2–3]][[1 John 5.3|]]; [[2 John 1.6|2 Jn. 1:6]]; [[Mosiah 13.14|Mosiah 13:14]]; [[D&C 42.2|D&C 42:2]]; [[D&C 46.9|46:9]]; [[D&C 124.87|124:87]].
 
 [^15]: That term was שָׁמַע (shâma’), which means “to hear intelligently.” The term was used hundreds of times in the Hebrew Old Testament as Israel was counseled to *hearken* to the word of the Lord and *obey* it.
 
-[^16]: Spencer W. Kimball, in Conference Report, Oct. 1979, p. 5; or *Ensign,* Nov. 1979, pp. 4–5.
+[^16]: Spencer W. Kimball, in Conference Report, Oct. 1979, [[1979 October - “We Need a Listening Ear”.md|p. 5]]; or *Ensign,* Nov. 1979, pp. 4–5.
 
 [^17]: Steven R. Mecham, president of the Finland Helsinki Mission, personal communication to the author, 26 Apr. 1990. Svetlana’s last name is Artemova. The name of the other mother is Raija Kemppainen, wife of Jussi Kemppainen, who at that time was president of the Baltic District of that mission.
 
 [^18]: See also [[D&C 29.7|D&C 29:7]].
 
-[^19]: For example, see Anne C. Bradshaw, “Listen with Your Heart,” *New Era,* Mar. 1989, pp. 28–31.
+[^19]: For example, see Anne C. Bradshaw, “Listen with Your Heart,” *New Era,* Mar. 1989, pp. 28–31.
 
-[^20]: *Woman’s Exponent,* 1 and 15 Dec. 1902, p. 52. Earlier, at age 67, she wrote, “I look for the time when I will be able to hear by the power of God” (*Woman’s Exponent,* 15 Aug. 1888, p. 46).
+[^20]: *Woman’s Exponent,* 1 and 15 Dec. 1902, p. 52. Earlier, at age 67, she wrote, “I look for the time when I will be able to hear by the power of God” (*Woman’s Exponent,* 15 Aug. 1888, p. 46).
 
 [^21]: See also [[Mosiah 2.9|Mosiah 2:9]]; [[Alma 5.41|Alma 5:41]]; [[Alma 36.3|36:3]].
 
-[^22]: See [[1 Kings 19.12|1 Kgs. 19:12]]; [[1 Nephi 17.45|1 Ne. 17:45]]; [[D&C 85.6|D&C 85:6]].
+[^22]: See [[1 Kings 19.12|1 Kgs. 19:12]]; [[1 Nephi 17.45|1 Ne. 17:45]]; [[D&C 85.6|D&C 85:6]].
 
 [^23]: See [[John 5.39|John 5:39]]; [[Alma 14.1|Alma 14:1]]; [[Alma 33.2|33:2]].
 
 [^24]: See [[Mosiah 9.18|Mosiah 9:18]]; [[Mosiah 23.10|23:10]]; [[Alma 9.26|Alma 9:26]]; [[D&C 19.23|D&C 19:23]]; [[D&C 112.10|112:10]]; [[Abraham 2.19|Abr. 2:19]]; JS—H, footnote to 1:71, para. 5.
 
-
-
-
-
-#Family #Jesus_Christ #Listening #Prayer #Prophets

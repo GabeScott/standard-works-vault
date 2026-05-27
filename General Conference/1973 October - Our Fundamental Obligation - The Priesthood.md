@@ -1,6 +1,8 @@
 # Our Fundamental Obligation: The Priesthood
 
-By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
+Harold B. Lee
+
+By Elder Robert L. Simpson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -10,13 +12,13 @@ Tonight we meet in what is possibly the largest gathering of priesthood members 
 
 Our message to the world is that he lives, that the heavens have been opened, that priesthood authority has been restored, and that a living prophet stands at our head.
 
-We regard as scripture that chapter of the Pearl of Great Price that records the precious thoughts and words of the Prophet Joseph Smith as he recounts the astounding events that occurred in the spring of 1820. He said he did it to “put all inquirers after truth in possession of the facts, as they have transpired. …” ([[Joseph Smith History 1.1|JS—H 1:1]].) He further states: “… I shall present the various events … in truth and righteousness. …” ([[Joseph Smith History 1.2|JS—H 1:2]].)
+We regard as scripture that chapter of the Pearl of Great Price that records the precious thoughts and words of the Prophet Joseph Smith as he recounts the astounding events that occurred in the spring of 1820. He said he did it to “put all inquirers after truth in possession of the facts, as they have transpired. …” ([[Joseph Smith History 1.1|JS—H 1:1]].) He further states: “… I shall present the various events … in truth and righteousness. …” ([[Joseph Smith History 1.2|JS—H 1:2]].)
 
 You will remember that, after recounting some family history and commenting about religious unrest in the community, the Prophet tells of being impressed by the scripture found in [[James 1.5|James, chapter 1, verse 5]], which reads: “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him.” Then the Prophet said:
 
-“Never did any passage of scripture come with more power to the heart of man than this did at this time to mine. It seemed to enter with great force into every feeling of my heart. …
+“Never did any passage of scripture come with more power to the heart of man than this did at this time to mine. It seemed to enter with great force into every feeling of my heart. …
 
-“… I at length came to the determination to ‘ask of God,’ concluding that if he gave wisdom to them that lacked wisdom, and would give liberally, and not upbraid, I might venture.
+“… I at length came to the determination to ‘ask of God,’ concluding that if he gave wisdom to them that lacked wisdom, and would give liberally, and not upbraid, I might venture.
 
 “So, in accordance with this, my determination to ask of God, I retired to the woods to make the attempt. It was on the morning of a beautiful, clear day, early in the spring of eighteen hundred and twenty. It was the first time in my life that I had made such an attempt, for amidst all my anxieties I had never as yet made the attempt to pray vocally.” ([[Joseph Smith History 1.12|JS—H 1:12–14]][[Joseph Smith History 1.13|]][[Joseph Smith History 1.14|]].)
 
@@ -48,11 +50,11 @@ Then nearly six years later at the Kirtland Temple on a Sabbath afternoon, the L
 
 “We saw the Lord standing upon the breastwork of the pulpit, before us; and under his feet was a paved work of pure gold, in color like amber.
 
-“His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, even the voice of Jehovah. …” ([[D&C 110.1|D&C 110:1–3]][[D&C 110.2|]][[D&C 110.3|]].)
+“His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, even the voice of Jehovah. …” ([[D&C 110.1|D&C 110:1–3]][[D&C 110.2|]][[D&C 110.3|]].)
 
 The Savior then delivered a message that we should all read on occasion. It is recorded in the [[D&C 110.1|110th section of the Doctrine and Covenants]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-We attending this meeting tonight have accepted the obligation of priesthood. The commitment has been made, and there is really no excuse for failure because “… the Lord giveth no commandments \[or commission\] unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].) With a promise like that, there is really no excuse for us to fail.
+We attending this meeting tonight have accepted the obligation of priesthood. The commitment has been made, and there is really no excuse for failure because “… the Lord giveth no commandments \[or commission\] unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].) With a promise like that, there is really no excuse for us to fail.
 
 Now, brethren of the priesthood, after reviewing these divine appearances—God the Father; Jesus Christ, his Son; John the Baptist; Peter, James, and John; and other ancient prophets—doesn’t this make you excited about this great work!
 
@@ -72,9 +74,9 @@ If I were an active Melchizedek Priesthood holder, high councilor, member of the
 
 Brethren, four great statements I leave with you to ponder. First, the words of God the Eternal Father, “This is My Beloved Son. Hear Him!” \[[[Joseph Smith History 1.17|JS—H 1:17]]\] Not 2,000 years ago, but in our time.
 
-Next, the memorable words of John the Baptist who declared with authority: “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron …” ([[D&C 13.1|D&C 13]]) in our day.
+Next, the memorable words of John the Baptist who declared with authority: “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron …” ([[D&C 13.1|D&C 13]]) in our day.
 
-Third, the Savior’s statement about: “Peter, and James, and John, whom I have sent unto you, by whom I have ordained you and confirmed you …” ([[D&C 27.12|D&C 27:12]]) happening in our time of the world’s history.
+Third, the Savior’s statement about: “Peter, and James, and John, whom I have sent unto you, by whom I have ordained you and confirmed you …” ([[D&C 27.12|D&C 27:12]]) happening in our time of the world’s history.
 
 And fourth, from Kirtland, as recorded by the Prophet Joseph: “We saw the Lord standing upon the breastwork of the pulpit, before us; and under his feet was a paved work of pure gold, in color like amber.” ([[D&C 110.2|D&C 110:2]].)
 
@@ -85,8 +87,3 @@ I testify with all the sobriety of my heart and soul that we are committed, that
 
 
 
-
-
-
-
-#Joseph_Smith #Priesthood #Responsibility

@@ -1,5 +1,7 @@
 # “Come unto Christ, and Be Perfected in Him”
 
+Ezra Taft Benson
+
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1988 General Conference*
@@ -18,7 +20,7 @@ I commend my Brethren of the General Authorities for the excellent addresses the
 
 As we have felt the Spirit and made new and sacred resolves, may we now have the courage and fortitude to carry out those resolves.
 
-For the next six months, your conference edition of the *Ensign* should stand next to your standard works and be referred to frequently. As my dear friend and brother Harold B. Lee said, we should let these conference addresses “be the guide to \[our\] walk and talk during the next six months. These are the important matters the Lord sees fit to reveal to this people in this day” (in Conference Report, Apr. 1946, p. 68).
+For the next six months, your conference edition of the *Ensign* should stand next to your standard works and be referred to frequently. As my dear friend and brother Harold B. Lee said, we should let these conference addresses “be the guide to \[our\] walk and talk during the next six months. These are the important matters the Lord sees fit to reveal to this people in this day” (in Conference Report, Apr. 1946, p. 68).
 
 May we all go to our homes rededicated to the sacred mission of the Church as so beautifully set forth in these conference sessions—to “invite all to come unto Christ” ([[D&C 20.59|D&C 20:59]]), “yea, come unto Christ, and be perfected in him” ([[Moroni 10.32|Moro. 10:32]]).
 
@@ -64,7 +66,7 @@ Now, as we conclude this general conference of the Church, I feel to say to you 
 
 “And see that ye have faith, hope, and charity, and then ye will always abound in good works.
 
-“And may the Lord bless you, and keep your garments spotless, that ye may at last be brought to sit down with Abraham, Isaac, and Jacob, and the holy prophets who have been ever since the world began. …
+“And may the Lord bless you, and keep your garments spotless, that ye may at last be brought to sit down with Abraham, Isaac, and Jacob, and the holy prophets who have been ever since the world began. …
 
 “And now my beloved brethren, I have spoken these words unto you according to the Spirit which testifieth in me; and my soul doth exceedingly rejoice, because of the exceeding diligence and heed which ye have given unto my word.
 
@@ -85,8 +87,3 @@ Let us all come unto Christ and be perfected in Him, I humbly pray in the name o
 
 
 
-
-
-
-
-#Jesus_Christ #Missionary_Work #Scripture_Study #Temple_Work

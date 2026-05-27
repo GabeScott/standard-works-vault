@@ -1,6 +1,8 @@
 # Revelation: The Word of the Lord to His Prophets
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -14,27 +16,27 @@ We have all felt the outpouring of the Spirit of the Lord as we have assembled i
 
 We have been counseled in the ways of righteousness, urged to be faithful and to keep the commandments of God, to love the Lord and our fellowmen. We have been warned against the pitfalls of following the ways of Satan and counseled to resist evil by being humble, prayerful, and submissive to the constant promptings of the Spirit. We have this great promise from the Lord given in our day:
 
-“Assuredly as the Lord liveth, who is your God and your Redeemer, even so surely shall you receive a knowledge of whatsoever things you shall ask in faith, with an honest heart, believing that you shall receive. …
+“Assuredly as the Lord liveth, who is your God and your Redeemer, even so surely shall you receive a knowledge of whatsoever things you shall ask in faith, with an honest heart, believing that you shall receive. …
 
 “Yea, behold, I will tell you in your mind and in your heart, by the Holy Ghost, which shall come upon you and which shall dwell in your heart.
 
-“Now, behold, this is the spirit of revelation. …” ([[D&C 8.1|D&C 8:1–3]][[D&C 8.2|]][[D&C 8.3|]].)
+“Now, behold, this is the spirit of revelation. …” ([[D&C 8.1|D&C 8:1–3]][[D&C 8.2|]][[D&C 8.3|]].)
 
 Of all things, that for which we should be most grateful today is that the heavens are indeed open and that the restored church of Jesus Christ is founded upon the rock of revelation. Continuous revelation is indeed the very lifeblood of the gospel of the living Lord and Savior, Jesus Christ.
 
-We proclaim to the world in one of our Articles of Faith, “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God.” ([[Articles of Faith 1.9|A of F 1:9]].)
+We proclaim to the world in one of our Articles of Faith, “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God.” ([[Articles of Faith 1.9|A of F 1:9]].)
 
 From the scripture of ancient time comes this ringing declaration: “Surely the Lord God will do nothing, but he revealeth his secret unto his servants the prophets.” ([[Amos 3.7|Amos 3:7]].)
 
 This postulation to the prophet Amos has come down from antiquity and speaks of the Lord “Jesus Christ the same yesterday, and to day, and for ever.” ([[Hebrews 13.8|Heb. 13:8]].)
 
-We read of the unchangeable Lord in the holy scriptures. In the Bible, which we proclaim “to be the word of God as far as it is translated correctly” ([[Articles of Faith 1.8|A of F 1:8]]), the Old Testament prophets from Adam to Malachi are testifying of the divinity of the Lord Jesus Christ and our Heavenly Father. Jesus Christ was the God of the Old Testament, and it was He who conversed with Abraham and Moses. It was He who inspired Isaiah and Jeremiah; it was He who foretold through those chosen men the happenings of the future, even to the latest day and hour.
+We read of the unchangeable Lord in the holy scriptures. In the Bible, which we proclaim “to be the word of God as far as it is translated correctly” ([[Articles of Faith 1.8|A of F 1:8]]), the Old Testament prophets from Adam to Malachi are testifying of the divinity of the Lord Jesus Christ and our Heavenly Father. Jesus Christ was the God of the Old Testament, and it was He who conversed with Abraham and Moses. It was He who inspired Isaiah and Jeremiah; it was He who foretold through those chosen men the happenings of the future, even to the latest day and hour.
 
 And the New Testament is what it implies—a new, additional witness and testimony of the sonship of Jesus Christ and the fatherhood of the Father and the divinity of this work, and the necessity of living the gospel, which he outlined and proclaimed.
 
 We do not accept the theory of the so-called teachers of Christianity, that the Old Testament constituted the total words of God’s prophets; nor do we believe the New Testament to be the end of revelation. We testify that rather than an end of revelations of God, they continue to pour forth from God for the welfare and benefit of men.
 
-I believe with Peter of old who said: “For the prophecy came not in old time by the will of man: But holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.21|2 Pet. 1:21]].)
+I believe with Peter of old who said: “For the prophecy came not in old time by the will of man: But holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.21|2 Pet. 1:21]].)
 
 How this confused world of today needs revelation from God. With war and pestilence and famine, with poverty, desolation, with more and more graft, dishonesty, and immorality, certainly the people of this world need revelation from God as never before. How absurd it would be to think that the Lord would give to a small handful of people in Palestine and the Old World his precious direction through revelation and now, in our extremity, close the heavens.
 
@@ -42,9 +44,9 @@ However, it is the sad truth that if prophets and people are unreachable, the Lo
 
 When the children of Israel would not live the commandments, believe in him, and follow his program, the Lord said: “And I will break the pride of your power; and I will make your heaven as iron, and your earth as brass:
 
-“And your strength shall be spent. …” ([[Leviticus 26.19|Lev. 26:19–20]][[Leviticus 26.20|]].)
+“And your strength shall be spent. …” ([[Leviticus 26.19|Lev. 26:19–20]][[Leviticus 26.20|]].)
 
-If the Bible were “the end of the prophets,” then it was through lack of faith and belief, and that is the reason the heavens at times were closed and locked and became as iron, and the earth as brass. When the heavens are sealed, the spiritual darkness that follows is not unlike that physical darkness in Nephite history, when “neither candles, neither torches; neither could there be fire kindled with their fine and exceedingly dry wood.” ([[3 Nephi 8.21|3 Ne. 8:21]].)
+If the Bible were “the end of the prophets,” then it was through lack of faith and belief, and that is the reason the heavens at times were closed and locked and became as iron, and the earth as brass. When the heavens are sealed, the spiritual darkness that follows is not unlike that physical darkness in Nephite history, when “neither candles, neither torches; neither could there be fire kindled with their fine and exceedingly dry wood.” ([[3 Nephi 8.21|3 Ne. 8:21]].)
 
 The Lord will not force himself upon people, and if they do not believe, they will receive no revelation. If they are content to depend upon their own limited calculations and interpretations, then, of course, the Lord will leave them to their chosen fate.
 
@@ -80,7 +82,7 @@ Expecting the spectacular, one may not be fully alerted to the constant flow of 
 
 Man never needs to stand alone. Every faithful person may have the inspiration for his own limited kingdom. But the Lord definitely calls prophets today and reveals his secrets unto them as he did yesterday, he does today, and will do tomorrow: that is the way it is.
 
-As we sang “We Thank Thee, O God, for a Prophet” earlier in the afternoon, a thought ran through my mind which I have expressed before. I hope you were all thinking of Joseph Smith, of Brigham Young, of John Taylor, Wilford Woodruff, and all the other Presidents. I hope you were thinking of President David O. McKay and President Joseph Fielding Smith, President Harold B. Lee and all of those who have filled this position in these days.
+As we sang “We Thank Thee, O God, for a Prophet” earlier in the afternoon, a thought ran through my mind which I have expressed before. I hope you were all thinking of Joseph Smith, of Brigham Young, of John Taylor, Wilford Woodruff, and all the other Presidents. I hope you were thinking of President David O. McKay and President Joseph Fielding Smith, President Harold B. Lee and all of those who have filled this position in these days.
 
 They have contributed a great service. They have done a great work for the people of this world. They have organized the Church and continued to develop it, and it has grown tremendously under their care.
 
@@ -88,7 +90,7 @@ I hope we will always remember that and not let it all be centered in the living
 
 Before I close I should like to mention two other matters. One, I hope you have had the opportunity to see the four beautiful statues that have been placed just east of the temple in the central Church plaza. These four are a part of the group of thirteen statues honoring women that will be set up next year in the Relief Society park in Nauvoo, at the visitors center there. These four have been placed in the plaza for your enjoyment. They are lovely indeed. We invite you to visit that area and see the statues while you are here in Salt Lake City.
 
-I was impressed when Elder Gordon B. Hinckley spoke of Joseph Smith so tenderly, and sweetly, and the thought went through my mind of that last night in Carthage, Illinois. They were gathered together with the mob all around them and the Prophet Joseph Smith asked one of the brethren to sing for him “A Poor Wayfaring Man of Grief.”
+I was impressed when Elder Gordon B. Hinckley spoke of Joseph Smith so tenderly, and sweetly, and the thought went through my mind of that last night in Carthage, Illinois. They were gathered together with the mob all around them and the Prophet Joseph Smith asked one of the brethren to sing for him “A Poor Wayfaring Man of Grief.”
 
 >A poor wayfaring Man of grief
 >Hath often crossed me on my way,
@@ -161,8 +163,3 @@ We ask this all, with our affection for you, in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Prophets #Spirituality

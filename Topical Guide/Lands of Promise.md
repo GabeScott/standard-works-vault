@@ -1,4 +1,3 @@
 # Lands of Promise
 
-
-*See* [[Lands of Inheritance.md|Lands of Inheritance]]
+*See also* [[Lands of Inheritance.md|Lands of Inheritance]]

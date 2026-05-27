@@ -1,5 +1,7 @@
 # Strength in the Savior
 
+Gordon B. Hinckley
+
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1993 General Conference*
@@ -52,11 +54,11 @@ The scriptures are filled with testimonies of the strength that comes from the S
 
 Moses exulted, “The Lord is my strength and song, and he is become my salvation” ([[Exodus 15.2|Ex. 15:2]]).
 
-David sang, “God is my strength and power: and he maketh my way perfect” ([[2 Samuel 22.33|2 Sam. 22:33]]).
+David sang, “God is my strength and power: and he maketh my way perfect” ([[2 Samuel 22.33|2 Sam. 22:33]]).
 
 To Isaiah, the Lord promised, “Fear thou not; for I am with thee: be not dismayed; for I am thy God: I will strengthen thee; yea, I will help thee; yea, I will uphold thee with the right hand of my righteousness” ([[Isaiah 41.10|Isa. 41:10]]).
 
-How can we build this kind of faith in the strength of the Savior? David had counsel for the people of his time that I repeat to you: “Seek the Lord and his strength … continually” ([[1 Chronicles 16.11|1 Chr. 16:11]]). “Blessed is the man \[or woman\] whose strength is in thee. … Go from strength to strength” ([[Psalms 84.5|Ps. 84:5, 7]][[Psalms 84.7|]]).
+How can we build this kind of faith in the strength of the Savior? David had counsel for the people of his time that I repeat to you: “Seek the Lord and his strength … continually” ([[1 Chronicles 16.11|1 Chr. 16:11]]). “Blessed is the man \[or woman\] whose strength is in thee. … Go from strength to strength” ([[Psalms 84.5|Ps. 84:5, 7]][[Psalms 84.7|]]).
 
 Sisters, strengthen yourselves by seeking the source of true strength—the Savior. Come unto him. He loves you. He desires your happiness and exults in your desires for righteousness. Make him your strength, your daily companion, your rod and your staff. Let him comfort you. There is no burden we need bear alone. His grace compensates for our deficiencies.
 
@@ -71,14 +73,9 @@ I say this in the name of our Savior Jesus Christ, amen.
 
 
 
-[^1]: *Ensign,* July 1993, pp. 4–5.
+[^1]: *Ensign,* July 1993, pp. 4–5.
 
-[^2]: *Ensign,* Nov. 1982, p. 59.
+[^2]: *Ensign,* Nov. 1982, p. 59.
 
 [^3]: Tim B. Heaton, “Vital Statistics,” *Encyclopedia of Mormonism* (New York: Macmillan, 1992), 4:1532.
 
-
-
-
-
-#Faith #Family #Holy_Ghost #Jesus_Christ

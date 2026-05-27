@@ -1,6 +1,8 @@
 # Ministering to Needs through LDS Social Services
 
-By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -16,7 +18,7 @@ Let me begin by reading a letter which relates the tragic story of a young man w
 
 “Not knowing what else to do, I ran from this new stranger in a panic to my mother and whispered tones to her of my calamity, which she denied, but did not convince me. That night I watched my father as I stood in the shadows of my darkened bedroom. I swore to myself that I would close the door until he sought to open it. I would ignore him until he sought after me.
 
-“He didn’t notice. If he did, he never asked me what was wrong. Well, needless to say, through the next years I went through the motions and rebelled to get his attention, which I got in the form of anger. At any rate, I developed into a homosexual, a vitiating disease, and was soon entrenched in my prison. I didn’t know myself. And I have felt for more years than I can remember that the Lord didn’t love me either. From age seventeen to about twenty-three I began using drugs. …”
+“He didn’t notice. If he did, he never asked me what was wrong. Well, needless to say, through the next years I went through the motions and rebelled to get his attention, which I got in the form of anger. At any rate, I developed into a homosexual, a vitiating disease, and was soon entrenched in my prison. I didn’t know myself. And I have felt for more years than I can remember that the Lord didn’t love me either. From age seventeen to about twenty-three I began using drugs. …”
 
 Well, you can imagine where his life went from there. This young man closes his letter with these words: “Thank you for your time. Can you help me? Is there reason for me to help myself? Can you convince me? Can you spare the time? I’ve not much left.”
 
@@ -42,13 +44,13 @@ These currents in society affect us, too. In many of our stakes there are unwed 
 
 As priesthood and Relief Society leaders, we are charged with the responsibility of helping members who suffer from these social and emotional problems. Indeed, the Lord has said that we are to “succor the weak, lift up the hands which hang down, and strengthen the feeble knees.” ([[D&C 81.5|D&C 81:5]].) The Brethren recognize the magnitude of this charge and have provided us with a valuable resource so that we might minister “in the Lord’s own way.” This resource, of course, is our own LDS Social Services division of Welfare Services.
 
-Of their vital work President Harold B. Lee instructed the Regional Representatives in 1970:
+Of their vital work President Harold B. Lee instructed the Regional Representatives in 1970:
 
 “Our social services program has already been a great blessing to our Church members. This program seeks to respond to many problems that beset our members in an affluent society, and it will no doubt increase in its importance, because so many of the problems which this cluster of agencies deals with are symptomatic of our time. Members may need counseling more than clothing, and members who, through bishops, are referred to an agency in our social services program should feel no more hesitancy in asking for help of this kind than we should in requesting help through the priesthood welfare program.” (Seminar for Regional Representatives of the Twelve, Oct. 1, 1970.)
 
 The purpose or mission of LDS Social Services is to assist priesthood leaders by providing quality *licensed* and *clinical* services to members of the Church. This is accomplished by using highly qualified staff members and volunteers whose values, knowledge, and professional skills are in harmony with the gospel and the order of the Church. We should remember that LDS Social Services exists not because anyone doubts that a bishop or quorum doesn’t receive inspiration; rather, it exists because our prophets were inspired to give local priesthood leaders a *resource* to meet social-emotional needs. However, it is important to underscore this caution found on page 25 of the *Welfare Services Handbook:* “The bishop and Melchizedek Priesthood quorum and group leaders are the Lord’s ecclesiastical leaders. They cannot and must not abdicate their responsibility to any agency. Social services agencies are established to be a *resource* to the ecclesiastical leaders. There is no substitute for the inspired counsel and priesthood blessing by the bishop or quorum or group leader.” (*Welfare Services Handbook,* 1974, p. 25; italics added.)
 
-We should also remember that the aim of the Church is to help people to help themselves. To care for people on any other basis, President Romney has said, is to do them more harm than good. A spiritual or emotional dole, Elder Boyd K. Packer has noted, can be just as damaging as a material one.
+We should also remember that the aim of the Church is to help people to help themselves. To care for people on any other basis, President Romney has said, is to do them more harm than good. A spiritual or emotional dole, Elder Boyd K. Packer has noted, can be just as damaging as a material one.
 
 The *General Handbook of Instructions* indicates that LDS Social Services is the official arm of the Church to handle *licensed services*—which include services to unwed parents, adoptions, foster care, and Indian student placement.
 
@@ -83,8 +85,3 @@ As we contemplate how we can use this resource, think of the young boy staring o
 
 
 
-
-
-
-
-#Social_Services

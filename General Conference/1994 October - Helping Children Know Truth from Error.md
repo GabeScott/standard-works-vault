@@ -1,5 +1,7 @@
 # Helping Children Know Truth from Error
 
+Gordon B. Hinckley
+
 By Michaelene P. Grassli - *Recently Released Primary General President*
 
 *Given in the October session of the 1994 General Conference*
@@ -8,7 +10,7 @@ By Michaelene P. Grassli - *Recently Released Primary General President*
 
 It is a distinct privilege to participate in this historic meeting, adding my heart and hand and voice to sustain the Lord’s living prophet—and I do so with all my heart. I support also the action taken today sustaining Sister Patricia Pinegar as the new Primary general president. My time here has been full of extraordinary experiences, and I will miss them. But I know Sister Pinegar, Sister Wirthlin, and Sister Warner, and I know our children are in good hands. I wish this new presidency well.
 
-The Church of Jesus Christ of Latter-day Saints has always cherished children. The First Presidency, recognizing today’s unprecedented world conditions, has taken unprecedented action that renews our commitment to our little ones. Through a message to the Church called “Focus on Children,” they have asked us to love and protect our children as never before, to teach them better than we have done in the past, to prepare them more thoroughly to conquer Satan’s power in their lives and to receive of the Lord’s eternal peace and glory (see “Focus on Children,” *Ensign,* Jan. 1994, p. 80).
+The Church of Jesus Christ of Latter-day Saints has always cherished children. The First Presidency, recognizing today’s unprecedented world conditions, has taken unprecedented action that renews our commitment to our little ones. Through a message to the Church called “Focus on Children,” they have asked us to love and protect our children as never before, to teach them better than we have done in the past, to prepare them more thoroughly to conquer Satan’s power in their lives and to receive of the Lord’s eternal peace and glory (see “Focus on Children,” *Ensign,* Jan. 1994, p. 80).
 
 We care what happens to our children. They are precious to our Heavenly Father, and they are our hope for bringing about good in the world. President Boyd K. Packer once told me, “It is today’s children who will bring the gospel to all the world. The children must be powerful and strong and independent in their agency. In order for that to be, they must have a knowledge of the gospel and a testimony that it is true.”
 
@@ -71,8 +73,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Agency #Children #Family_Home_Evening #Honesty #Prayer #Primary #Satan #Truth

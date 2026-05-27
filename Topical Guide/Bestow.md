@@ -1,6 +1,5 @@
 # Bestow
 
-
 he may *bestow* upon you a blessing this day, [[Exodus 32.29|Exodus 32:29]].
 
 though I *bestow* all my goods to feed the poor, [[1 Corinthians 13.3|1 Corinthians 13:3]].

@@ -1,5 +1,7 @@
 # Instruments to Accomplish His Purposes
 
+Thomas S. Monson
+
 By Barbara W. Winder - *Recently Released as Relief Society General President*
 
 *Given in the April session of the 1990 General Conference*
@@ -8,15 +10,15 @@ By Barbara W. Winder - *Recently Released as Relief Society General President*
 
 My dear brothers and sisters, my heart is full to capacity. As we have been released in the normal rotation of assignments, we want to welcome those who have been newly called and to offer them our love and sincere support.
 
-Luther Burbank wrote: “Like the year \[at the end of summer,\] I pause now, toward the end of my allotted time, to glance backward and to gather my harvest of experience and growth and friendship and … memory. …
+Luther Burbank wrote: “Like the year \[at the end of summer,\] I pause now, toward the end of my allotted time, to glance backward and to gather my harvest of experience and growth and friendship and … memory. …
 
-“\[And\] what has been my ‘harvest …’?
+“\[And\] what has been my ‘harvest …’?
 
-- “The harvest of work accomplished and aims achieved. …
+- “The harvest of work accomplished and aims achieved. …
 
-- “The harvested experiences and lessons that have moulded and impressed … my … life. …
+- “The harvested experiences and lessons that have moulded and impressed … my … life. …
 
-- “\[And\] the harvest of dear friendships, happy memories. …“\[And\] the harvest is rich and heavy and abundant” (*The Harvest of the Years* \[Cambridge, Mass.: Houghton Mifflin Co., 1931\], pp. 280–81).
+- “\[And\] the harvest of dear friendships, happy memories. …“\[And\] the harvest is rich and heavy and abundant” (*The Harvest of the Years* \[Cambridge, Mass.: Houghton Mifflin Co., 1931\], pp. 280–81).
 
 The harvest of work accomplished: The work of Relief Society is focused on the pure and simple part of the gospel, to develop faith and bear testimony; to render compassionate service as we care for the needy; to strengthen our families here and in eternity; and to work with our “hearts knit together in unity and love one towards another” ([[Mosiah 18.21|Mosiah 18:21]]).
 
@@ -26,7 +28,7 @@ Our harvested experiences and lessons have been molded with many of you:
 
 - Your yearnings and desires shared by letter or visit have become the pleadings of our prayers.
 
-- Our assignments and invitations have brought us into your homes, families, and chapels, where we became acutely aware of how much you hunger and thirst after righteousness, for we with you, while we have been there, have been filled with the Holy Ghost (see [[3 Nephi 12.6|3 Ne. 12:6]]).
+- Our assignments and invitations have brought us into your homes, families, and chapels, where we became acutely aware of how much you hunger and thirst after righteousness, for we with you, while we have been there, have been filled with the Holy Ghost (see [[3 Nephi 12.6|3 Ne. 12:6]]).
 
 - We have watched your tender mercies and ministerings to one another.
 
@@ -59,8 +61,3 @@ May we all feel his strength as we seek to serve him. In the name of Jesus Chris
 
 
 
-
-
-
-
-#Fellowshipping #Service

@@ -1,5 +1,7 @@
 # On Being Worthy
 
+Ezra Taft Benson
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -48,7 +50,7 @@ Another quotation, which comes from President George Q. Cannon, is very meaningf
 
 If we are in the keeping of angels, God is certainly telling us that we are worthy to be watched over, helped, and directed by him. As we become aware of God’s watch-care and as we turn to Church leaders to help us learn how to become worthy members of The Church of Jesus Christ of Latter-day Saints, we learn that we can reach the status of worthiness for each goal along life’s path. Yet we must strive for worthiness.
 
-In Official Declaration—2 \[[OD 2](https://churchofjesuschrist.org/study/scriptures/dc-testament/od/2?lang=eng)\], accepted by the Church on September 30, 1978, we are reminded that certain privileges have worthiness as a prerequisite. In this official declaration, the word *worthy* or *worthiness* is used six times. This leaves little doubt as to the importance of being worthy if specific blessings are to be available to us.
+In Official Declaration—2 \[[[Official Declaration 2.1|OD 2]]\], accepted by the Church on September 30, 1978, we are reminded that certain privileges have worthiness as a prerequisite. In this official declaration, the word *worthy* or *worthiness* is used six times. This leaves little doubt as to the importance of being worthy if specific blessings are to be available to us.
 
 As we said in the beginning, it is a wonderful strength and a needful process to be able to go to a bishop or a stake president and discuss our worthiness. During such interviews it may be determined how worthiness can be achieved if there is need for improvement.
 
@@ -60,15 +62,15 @@ President N. Eldon Tanner gave us some wise counsel:
 
 “It is important that those we interview realize that they are *spirit children of God* and that *we love them,* and *let them know that we love them* and are interested in their welfare and in helping them succeed in life.
 
-“It is a great responsibility for a bishop or stake president to conduct a worthiness interview. There is equal responsibility, however, upon the member who is interviewed. Careful, searching interviews need to be conducted always individually and privately. …
+“It is a great responsibility for a bishop or stake president to conduct a worthiness interview. There is equal responsibility, however, upon the member who is interviewed. Careful, searching interviews need to be conducted always individually and privately. …
 
-“Let \[the member\] know that if there is something amiss in his life, there are ways to straighten it out. There is a great cleansing power of repentance. …
+“Let \[the member\] know that if there is something amiss in his life, there are ways to straighten it out. There is a great cleansing power of repentance. …
 
 “You bishops and stake presidents might approach an interview for a temple recommend something like this:
 
 “‘You have come to me for a recommend to enter the temple. I have the responsibility of representing the Lord in interviewing you. At the conclusion of the interview there is provision for me to sign your recommend; but mine is not the only important signature on your recommend. Before the recommend is valid, you must sign it yourself.’ …
 
-“And so it is. The Lord gives the privilege to members of the Church to respond to those questions in such interviews. Then if there is something amiss, the member can get his life in order so that he may qualify for the priesthood advancement, for a mission, or for a temple recommend.” (In Conference Report, Oct. 1978, pp. 59–60; or *Ensign,* Nov. 1978, pp. 41–42.)
+“And so it is. The Lord gives the privilege to members of the Church to respond to those questions in such interviews. Then if there is something amiss, the member can get his life in order so that he may qualify for the priesthood advancement, for a mission, or for a temple recommend.” (In Conference Report, Oct. 1978, [[1978 October - The Blessing of Church Interviews.md|pp. 59–60]]; or *Ensign,* Nov. 1978, pp. 41–42.)
 
 As we strive for worthiness, a scripture we should not lose sight of is [[D&C 136.31|Doctrine and Covenants, section 136, verse 31]]: “He that will not bear chastisement is not worthy of \[the Lord’s\] kingdom.” Sometimes there is a great need for us to be chastised, disciplined, and corrected in a spirit of love, help, and hope. Guidance and suggestions should be offered in a loving way, but most of us have a tendency to rebel or be dismayed when someone suggests that our conduct is less than it should be. As Benjamin Franklin once said: “Those things that hurt, instruct. It is for this reason that wise people learn not to dread but welcome problems.”
 
@@ -76,7 +78,7 @@ In life there are requirements for almost all privileges—education demands the
 
 When we dwell on our own weaknesses, it is easy to dwell on the feelings that we are unworthy. Somehow we need to bridge the gap between continually striving to improve and yet not feeling defeated when our actions aren’t perfect all the time. We need to remove *unworthy* from our vocabulary and replace it with *hope* and *work.* This we can do if we turn to quieter, deeper, surer guidelines—the words of our prophets and leaders, past and present.
 
-Abraham Lincoln wisely said, “It is difficult to make a man miserable while he feels worthy of himself and claims kindred to the great God who made him.” (In *The International Thesaurus of Quotations,* comp. Rhoda Thomas Tripp, New York: Thomas Y. Crowell Co., 1970, p. 575.)
+Abraham Lincoln wisely said, “It is difficult to make a man miserable while he feels worthy of himself and claims kindred to the great God who made him.” (In *The International Thesaurus of Quotations,* comp. Rhoda Thomas Tripp, New York: Thomas Y. Crowell Co., 1970, p. 575.)
 
 To reinforce the importance of the word *worthy* and of worthy processes, I would like to share part of a poem by Elder Hugh B. Brown, “I Would Be Worthy.”
 
@@ -118,8 +120,3 @@ I leave my love, blessings, and testimony of these truths in the worthy name of 
 
 
 
-
-
-
-
-#Worthiness

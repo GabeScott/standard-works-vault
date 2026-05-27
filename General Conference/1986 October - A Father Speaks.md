@@ -1,5 +1,7 @@
 # A Father Speaks
 
+Ezra Taft Benson
+
 By Elder George I. Cannon - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -30,13 +32,13 @@ Follow the wise counsel of Alma to his son Helaman given centuries ago: “O, re
 
 In one of his last conference addresses, President David O. McKay gave this counsel to the youth of the Church:
 
-“Our body will not fulfill its purpose—it cannot—without that life-giving something within which is the offspring of Deity as eternal as \[your\] Father \[in Heaven\]. … That spirit within, young man, young woman, is the *real* you. What you make of yourself depends upon you as an individual. You are in this world to choose the right or the wrong, to accept the right or yield to temptation. Upon that choice will depend the development of the spiritual part of you” (in Conference Report, Apr. 1967, pp. 134–35; or *Improvement Era,* June 1967, p. 110).
+“Our body will not fulfill its purpose—it cannot—without that life-giving something within which is the offspring of Deity as eternal as \[your\] Father \[in Heaven\]. … That spirit within, young man, young woman, is the *real* you. What you make of yourself depends upon you as an individual. You are in this world to choose the right or the wrong, to accept the right or yield to temptation. Upon that choice will depend the development of the spiritual part of you” (in Conference Report, Apr. 1967, pp. 134–35; or *Improvement Era,* June 1967, p. 110).
 
 O wonderful youth of Zion, pray, study the scriptures, and serve in the Church so that you can have that inner peace that Christ is your Savior and the gospel is the right way to live.
 
 As Elder Richard L. Evans wrote:
 
-“*Oh, beloved young friends:* remember life is forever—but youth doesn’t last very long. Live to make memories that will bless the *whole* length of your life” (*Richard Evans’ Quote Book,* Salt Lake City: Publishers Press, 1971, p. 40).
+“*Oh, beloved young friends:* remember life is forever—but youth doesn’t last very long. Live to make memories that will bless the *whole* length of your life” (*Richard Evans’ Quote Book,* Salt Lake City: Publishers Press, 1971, p. 40).
 
 Now I speak to you stalwart single adults. You are making great contributions wherever you go. You are helping to build the individual, the home, the Church, and the community as you serve as missionaries, teachers, neighbors, and friends to those in need. Your enthusiasm, spirit, and faith are a blessing to all of us. My fatherly counsel is to remind you of the importance of today. This is the time in which the work of this life is to be done. Be a participant. See that things happen. Make commitments to yourself and the Lord. Live outside yourself with love. A Hindu proverb says, “Help thy brother’s boat across, and lo, thine own has reached the shore.”
 
@@ -44,21 +46,16 @@ Now I speak to you who are parents. I was reminded of a cartoon LaRue Longden, f
 
 Three thoughts I would share:
 
-First, take time for your children. As Elder Evans counseled: “Children are shaped and molded at a very early age. … Life goes quickly. Don’t brush them off and turn them over to others. Take time for your children—before they’re grown, before they’re gone” (*Thoughts for One Hundred Days: Volume Four,* Salt Lake City: Publishers Press, 1970, pp. 34–35).
+First, take time for your children. As Elder Evans counseled: “Children are shaped and molded at a very early age. … Life goes quickly. Don’t brush them off and turn them over to others. Take time for your children—before they’re grown, before they’re gone” (*Thoughts for One Hundred Days: Volume Four,* Salt Lake City: Publishers Press, 1970, pp. 34–35).
 
 Second, live within your income. Be frugal and wise. Pay your obligations to the Lord, your country, and yourself, and then live on what is left. It takes will power to say no when you can’t afford it, but you will sleep better at night.
 
 Third, remember constant courtship. The most important relationship upon this earth for you is between you and your sweetheart. Work at it, sacrifice for it, enjoy it. You can make your home a bit of heaven as you build for an eternity together.
 
-Now to those in your mature years. “Press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men” ([[2 Nephi 31.20|2 Ne. 31:20]]). Continue to be living testimonies of the gospel as you share your faith, love, and wisdom. You are sorely needed in the mission field. What lives you will bless as you accept the call to serve! There is so much for you to do in the holy temples. Don’t retire from active service in the Lord’s kingdom. You are needed!
+Now to those in your mature years. “Press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men” ([[2 Nephi 31.20|2 Ne. 31:20]]). Continue to be living testimonies of the gospel as you share your faith, love, and wisdom. You are sorely needed in the mission field. What lives you will bless as you accept the call to serve! There is so much for you to do in the holy temples. Don’t retire from active service in the Lord’s kingdom. You are needed!
 
 I bear my testimony that God lives, that Jesus is the Savior, and that the gospel is for every nation, kindred, tongue, and people. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Elderly #Joy #Parenthood #Youth

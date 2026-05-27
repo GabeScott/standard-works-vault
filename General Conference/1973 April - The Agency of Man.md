@@ -1,6 +1,8 @@
 # The Agency of Man
 
-By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
+Harold B. Lee
+
+By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -20,9 +22,9 @@ It has been said that “every day is election day, for throughout every hour of
 
 Our Father in heaven was aware of the reality of this principle of agency in the beginning. We read from the scriptures in some detail:
 
-“Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; …
+“Now the Lord had shown unto me, Abraham, the intelligences that were organized before the world was; …
 
-“And God saw these souls that they were good. …
+“And God saw these souls that they were good. …
 
 “And there stood one among them that was like unto God, and he said unto those who were with him: We will go down, for there is space there, and we will take of these materials, and we will make an earth whereon these may dwell;
 
@@ -32,17 +34,17 @@ Our Father in heaven was aware of the reality of this principle of agency in the
 
 “And the Lord said: Whom shall I send? And one answered like unto the Son of Man: Here am I, send me.” ([[Abraham 3.22|Abr. 3:22–27]][[Abraham 3.23|]][[Abraham 3.24|]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]].) And that one said, “Father, thy will be done, and the glory be thine forever.” ([[Moses 4.2|Moses 4:2]].)
 
-“… And another answered and said: Here am I, send me.” ([[Abraham 3.27|Abr. 3:27]].)
+“… And another answered and said: Here am I, send me.” ([[Abraham 3.27|Abr. 3:27]].)
 
 “I will be thy son, and I will redeem all mankind, that one soul shall not be lost, and surely I will do it; wherefore give me thine honor.” ([[Moses 4.1|Moses 4:1]].)
 
-“… And the Lord said: I will send the first.
+“… And the Lord said: I will send the first.
 
-“And the second was angry, and kept not his first estate. …” ([[Abraham 3.27|Abr. 3:27–28]][[Abraham 3.28|]].) “And he became Satan, … the father of all lies, to deceive and to blind men, and to lead them captive at his will, even as many as would not hearken unto my voice.” ([[Moses 4.4|Moses 4:4]].)
+“And the second was angry, and kept not his first estate. …” ([[Abraham 3.27|Abr. 3:27–28]][[Abraham 3.28|]].) “And he became Satan, … the father of all lies, to deceive and to blind men, and to lead them captive at his will, even as many as would not hearken unto my voice.” ([[Moses 4.4|Moses 4:4]].)
 
-Satan rebelled against God and “sought to destroy the agency of man, which I, the Lord God, had given him. …” ([[Moses 4.3|Moses 4:3]].)
+Satan rebelled against God and “sought to destroy the agency of man, which I, the Lord God, had given him. …” ([[Moses 4.3|Moses 4:3]].)
 
-Unfortunately, many do not realize the quality and blessing of that gift of agency of man. If we would but reason the matter, we would come to realize as is expressed in this thought: “Choice is an element of human dignity. Without the power of choice, a man is a lot less than a man. Without the exercise of choice a man never discovers what he can be or what he can do. Choice is the key to the future.” (George E. Farling, “Youth Can’t, But Must,” *Weslyan Methodist.*)
+Unfortunately, many do not realize the quality and blessing of that gift of agency of man. If we would but reason the matter, we would come to realize as is expressed in this thought: “Choice is an element of human dignity. Without the power of choice, a man is a lot less than a man. Without the exercise of choice a man never discovers what he can be or what he can do. Choice is the key to the future.” (George E. Farling, “Youth Can’t, But Must,” *Weslyan Methodist.*)
 
 Since the authorship of the agency of man is God’s, should we not look to him for the best media to help us to control our choices? The media he has given to us are the words spoken by his prophets, as are recorded in the scriptures. Jesus confirms this in responding to the recreant Jews of his time, who accused him of breaking the Sabbath by healing a man on that day. He included in his rebuke to them these words:
 
@@ -60,7 +62,7 @@ The guide to the answer to their problem was to be found in the scriptures. He r
 
 “All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness:
 
-“That the man of God may be perfect, throughly furnished unto all good works.” ([[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]].)
+“That the man of God may be perfect, throughly furnished unto all good works.” ([[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]].)
 
 As fellow workers for the cause of building the kingdom of God, they are our source of faith, commitment, determination, and leadership; doctrine for the foundation of our decisions. Let us refer to the scriptures for a few well-known examples to illustrate. I refer to the example of the faith of Job, a very affluent, God-fearing man, having much of the world’s goods and a fine family. Overnight, he suffered the sudden loss of all his earthly possessions and his children and then responded to the situation with faith and realism.
 
@@ -92,7 +94,7 @@ And Joshua the leader, as he turned the hearts of the belligerent people by his 
 
 These are but a few of the unnumbered examples to be found in the scriptures, but even as we examine these few evidences of outstanding characters, our spirits receive the inspiration of their strength. Reasoning tells us that the development of their lives had to be built on making proper choices. They were established on truth. Their examples teach us celestial lessons.
 
-The Lord’s call to us is: “Come now, and let us reason together. …” ([[Isaiah 1.18|Isa. 1:18]].) He wants us to listen to and consider his doctrine. The scriptures tell us this: “… that men might be made partakers of the glories which were to be revealed, the Lord sent forth the fulness of his gospel, his everlasting covenant, reasoning in plainness and simplicity.” ([[D&C 133.57|D&C 133:57]].)
+The Lord’s call to us is: “Come now, and let us reason together. …” ([[Isaiah 1.18|Isa. 1:18]].) He wants us to listen to and consider his doctrine. The scriptures tell us this: “… that men might be made partakers of the glories which were to be revealed, the Lord sent forth the fulness of his gospel, his everlasting covenant, reasoning in plainness and simplicity.” ([[D&C 133.57|D&C 133:57]].)
 
 He wants us to become acquainted with his gospel, to test it, to prove it, to participate in it, and to use it as a base on which to make our decisions. This is that men might base their choices on truth. When reason is joined with truth, there is convincing logic that sets up the path in our hearts that leads upward and onward to a nobler life.
 
@@ -110,15 +112,10 @@ Let us incline our hearts toward God, that we may receive these words of John:
 
 “And this is his commandment, That we should believe on the name of his Son Jesus Christ, and love one another, as he gave us commandment.
 
-“And he that keepeth his commandments dwelleth in him, and he in him. And hereby we know that he abideth in us, by the Spirit which he hath given us.” ([[1 John 3.21|1 Jn. 3:21–24]][[1 John 3.22|]][[1 John 3.23|]][[1 John 3.24|]].)
+“And he that keepeth his commandments dwelleth in him, and he in him. And hereby we know that he abideth in us, by the Spirit which he hath given us.” ([[1 John 3.21|1 Jn. 3:21–24]][[1 John 3.22|]][[1 John 3.23|]][[1 John 3.24|]].)
 
 In the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Agency #Faith

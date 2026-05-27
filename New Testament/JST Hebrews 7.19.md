@@ -4,6 +4,3 @@
 
 [JST Hebrews 7:19](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-heb/7?lang=eng)
 
-
-
-

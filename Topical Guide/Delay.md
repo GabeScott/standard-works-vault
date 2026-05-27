@@ -1,6 +1,5 @@
 # Delay
 
-
 Thou shalt not *delay* to offer the first, [[Exodus 22.29|Exodus 22:29]].
 
 the people saw that Moses *delayed* to come down, [[Exodus 32.1|Exodus 32:1]].

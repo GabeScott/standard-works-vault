@@ -1,6 +1,8 @@
 # Follow the Prophets
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+Gordon B. Hinckley
+
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -19,11 +21,11 @@ As Brother Featherstone mentioned in his prayer, one of the favorite hymns of th
 >To shed a holy light around our way.
 >
 
-Who is more beloved in the Church than President Spencer W. Kimball? And for whom do more prayers ascend from all parts of the world where Latter-day Saints live?
+Who is more beloved in the Church than President Spencer W. Kimball? And for whom do more prayers ascend from all parts of the world where Latter-day Saints live?
 
 Not only is President Kimball universally loved and revered, but he loves and reveres the Saints and prays for them and labors for them without hesitation and without limit. His kindness is Christlike. He endeavors to do to all as he himself would be done by.
 
-The Lord has given him great and wise men as counselors: President N. Eldon Tanner, President Marion G. Romney, and President Gordon B. Hinckley, who is a new counselor in the First Presidency, a man of God every inch of him, a wise man, an energetic man, courageous in the faith, solid and substantial as Gibraltar.
+The Lord has given him great and wise men as counselors: President N. Eldon Tanner, President Marion G. Romney, and President Gordon B. Hinckley, who is a new counselor in the First Presidency, a man of God every inch of him, a wise man, an energetic man, courageous in the faith, solid and substantial as Gibraltar.
 
 These brethren are as devoted as is the President himself, constantly giving their all to the work, everlastingly supporting the President, counseling in kindness and with great intelligence in all matters that come before them.
 
@@ -79,7 +81,7 @@ His methods indeed are devious, as we are told so plainly by the prophet Nephi, 
 
 “And others he will pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.
 
-“And … others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
+“And … others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
 
 Have you ever known a time in your lives when there was as much temptation as there is right now? Many an adult has said that he is glad he is not growing up in this day when the world is so corrupt.
 
@@ -113,7 +115,7 @@ Are we willing—at all costs—to defend the kingdom of God against the vicious
 
 If we are on his side, we will follow his prophets.
 
-I testify to you that they are men of God. I testify to you that our great leader, President Spencer W. Kimball personally is a seer and a revelator, a prophet in the same sense as was Moses or Isaiah or Joseph Smith, and that he holds divine powers even as they did.
+I testify to you that they are men of God. I testify to you that our great leader, President Spencer W. Kimball personally is a seer and a revelator, a prophet in the same sense as was Moses or Isaiah or Joseph Smith, and that he holds divine powers even as they did.
 
 For our own sake, for the sake of our families, for the sake of this restored church of Jesus Christ to which we give our allegiance, but also to earn the blessing of heaven, let us serve the Lord and keep his commandments.
 
@@ -158,8 +160,3 @@ In the name of the Lord, Jesus Christ, amen.
 
 
 
-
-
-
-
-#Prophets

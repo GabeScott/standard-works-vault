@@ -1,7 +1,6 @@
 # Publican
 
-
-*See also* [BD Publicans](https://www.churchofjesuschrist.org/study/scriptures/bd/publicans?lang=eng)
+*See also* [[BD Publicans.md|BD Publicans]]
 
 do not even the *publicans* the same, [[Matthew 5.46|Matthew 5:46]].
 
@@ -21,4 +20,4 @@ drew near unto him all the *publicans*, [[Luke 15.1|Luke 15:1]].
 
 one a Pharisee, and the other a *publican*, [[Luke 18.10|Luke 18:10]].
 
-Zacchæus ... chief among the *publicans*, [[Luke 19.2|Luke 19:2]].
+Zacchæus … chief among the *publicans*, [[Luke 19.2|Luke 19:2]].

@@ -1,6 +1,8 @@
 # Our Father’s Glorious Plan
 
-By Elder Weatherford T. Clayton - *Of the Seventy*
+Bonnie H. Cordon
+
+By Elder Weatherford T. Clayton - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -32,7 +34,7 @@ Jesus Christ lived a perfect life, always keeping His Father’s commandments. �
 
 At the end of His mortal life, He knelt down and prayed, saying:
 
-“Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done. …
+“Father, if thou be willing, remove this cup from me: nevertheless not my will, but thine, be done. …
 
 “And being in an agony he prayed more earnestly: and his sweat was as it were great drops of blood falling down to the ground.”[^17]
 
@@ -83,7 +85,7 @@ For those who have experienced these truths and for whatever reason have wandere
 
 
 
-[^1]: See [[2 Nephi 31.18|2 Nephi 31:18]].
+[^1]: See [[2 Nephi 31.18|2 Nephi 31:18]].
 
 [^2]: “[Plan of Salvation](https://www.lds.org/topics/plan-of-salvation),” Gospel Topics, topics.lds.org.
 
@@ -95,13 +97,13 @@ For those who have experienced these truths and for whatever reason have wandere
 
 [^6]: [[Job 38.7|Job 38:7]].
 
-[^7]: See Russell M. Nelson, “[Standards of the Lord’s Standard-Bearers](https://churchofjesuschrist.org/study/ensign/1991/08/standards-of-the-lords-standard-bearers?lang=eng),” *Ensign,* Aug. 1991, 5–6.
+[^7]: See Russell M. Nelson, “[Standards of the Lord’s Standard-Bearers](https://www.churchofjesuschrist.org/study/ensign/1991/08/standards-of-the-lords-standard-bearers?lang=eng),” *Ensign,* Aug. 1991, 5–6.
 
-[^8]: See [[3 Nephi 9.15|3 Nephi 9:15]].
+[^8]: See [[3 Nephi 9.15|3 Nephi 9:15]].
 
-[^9]: See [[2 Nephi 2.22|2 Nephi 2:22–25]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]].
+[^9]: See [[2 Nephi 2.22|2 Nephi 2:22–25]][[2 Nephi 2.23|]][[2 Nephi 2.24|]][[2 Nephi 2.25|]].
 
-[^10]: See Thomas S. Monson, “[[2016 April - Choices.md|Choices]],” *Ensign* or *Liahona,* May 2016, 86; “[Agency](https://www.lds.org/topics/agency),” Gospel Topics, topics.lds.org.
+[^10]: See Thomas S. Monson, “[[2016 April - Choices.md|Choices]],” *Ensign* or *Liahona,* May 2016, 86; “[Agency](https://www.lds.org/topics/agency),” Gospel Topics, topics.lds.org.
 
 [^11]: See [[John 14.15|John 14:15, 23]][[John 14.23|]]; see also [[Alma 38.1|Alma 38:1]].
 
@@ -109,11 +111,11 @@ For those who have experienced these truths and for whatever reason have wandere
 
 [^13]: [[John 3.16|John 3:16]]; see also [[John 3.17|John 3:17]].
 
-[^14]: “[The Living Christ: The Testimony of the Apostles](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2.
+[^14]: “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” *Ensign* or *Liahona,* Apr. 2000, 2.
 
 [^15]: [[Acts 10.38|Acts 10:38]].
 
-[^16]: “[The Living Christ](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 2.
+[^16]: “[The Living Christ](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 2.
 
 [^17]: [[Luke 22.42|Luke 22:42, 44]][[Luke 22.44|]].
 
@@ -121,15 +123,15 @@ For those who have experienced these truths and for whatever reason have wandere
 
 [^19]: See [[Isaiah 53.4|Isaiah 53:4–6]][[Isaiah 53.5|]][[Isaiah 53.6|]]; [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
-[^20]: “[The Living Christ](https://churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 2.
+[^20]: “[The Living Christ](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” 2.
 
-[^21]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
+[^21]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
 [^22]: See [[John 20.1|John 20:1]].
 
 [^23]: See [[Alma 40.11|Alma 40:11]].
 
-[^24]: See [[1 Peter 2.21|1 Peter 2:21–25]][[1 Peter 2.22|]][[1 Peter 2.23|]][[1 Peter 2.24|]][[1 Peter 2.25|]].
+[^24]: See [[1 Peter 2.21|1 Peter 2:21–25]][[1 Peter 2.22|]][[1 Peter 2.23|]][[1 Peter 2.24|]][[1 Peter 2.25|]].
 
 [^25]: See [[D&C 138.57|Doctrine and Covenants 138:57–59]][[D&C 138.58|]][[D&C 138.59|]].
 
@@ -137,20 +139,15 @@ For those who have experienced these truths and for whatever reason have wandere
 
 [^27]: [[Alma 11.44|Alma 11:44]].
 
-[^28]: [[3 Nephi 27.15|3 Nephi 27:15–16]][[3 Nephi 27.16|]].
+[^28]: [[3 Nephi 27.15|3 Nephi 27:15–16]][[3 Nephi 27.16|]].
 
-[^29]: See [Preach My Gospel: A Guide to Missionary Service](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng) (2004), 1.
+[^29]: See [Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng) (2004), 1.
 
-[^30]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^30]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^31]: See [[2 Nephi 9.50|2 Nephi 9:50–51]][[2 Nephi 9.51|]]; [[2 Nephi 31.13|31:13]].
+[^31]: See [[2 Nephi 9.50|2 Nephi 9:50–51]][[2 Nephi 9.51|]]; [[2 Nephi 31.13|31:13]].
 
 [^32]: [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
 [^33]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-
-
-
-
-#Agency #Atonement #Commandments #Creation #Death #Fall #Jesus_Christ #Plan_Of_Salvation #Premortal_Existence #Resurrection

@@ -1,6 +1,8 @@
 # Your Priesthood Playbook
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+Ulisses Soares
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -153,7 +155,7 @@ I pray that you will make the commitment to live worthy of the holy priesthood t
 
 
 
-[^1]: “Age-Group Progression for Children and Youth,” First Presidency letter, Dec. 14, 2018.
+[^1]: “Age-Group Progression for Children and Youth,” First Presidency letter, Dec. 14, 2018.
 
 [^2]: [[Alma 34.32|Alma 34:32]].
 
@@ -161,7 +163,7 @@ I pray that you will make the commitment to live worthy of the holy priesthood t
 
 [^4]: [[D&C 1.19|Doctrine and Covenants 1:19]].
 
-[^5]: See [[1 Samuel 17.1|1 Samuel 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]].
+[^5]: See [[1 Samuel 17.1|1 Samuel 17]][[1 Samuel 17.2|]][[1 Samuel 17.3|]][[1 Samuel 17.4|]][[1 Samuel 17.5|]][[1 Samuel 17.6|]][[1 Samuel 17.7|]][[1 Samuel 17.8|]][[1 Samuel 17.9|]][[1 Samuel 17.10|]][[1 Samuel 17.11|]][[1 Samuel 17.12|]][[1 Samuel 17.13|]][[1 Samuel 17.14|]][[1 Samuel 17.15|]][[1 Samuel 17.16|]][[1 Samuel 17.17|]][[1 Samuel 17.18|]][[1 Samuel 17.19|]][[1 Samuel 17.20|]][[1 Samuel 17.21|]][[1 Samuel 17.22|]][[1 Samuel 17.23|]][[1 Samuel 17.24|]][[1 Samuel 17.25|]][[1 Samuel 17.26|]][[1 Samuel 17.27|]][[1 Samuel 17.28|]][[1 Samuel 17.29|]][[1 Samuel 17.30|]][[1 Samuel 17.31|]][[1 Samuel 17.32|]][[1 Samuel 17.33|]][[1 Samuel 17.34|]][[1 Samuel 17.35|]][[1 Samuel 17.36|]][[1 Samuel 17.37|]][[1 Samuel 17.38|]][[1 Samuel 17.39|]][[1 Samuel 17.40|]][[1 Samuel 17.41|]][[1 Samuel 17.42|]][[1 Samuel 17.43|]][[1 Samuel 17.44|]][[1 Samuel 17.45|]][[1 Samuel 17.46|]][[1 Samuel 17.47|]][[1 Samuel 17.48|]][[1 Samuel 17.49|]][[1 Samuel 17.50|]][[1 Samuel 17.51|]][[1 Samuel 17.52|]][[1 Samuel 17.53|]][[1 Samuel 17.54|]][[1 Samuel 17.55|]][[1 Samuel 17.56|]][[1 Samuel 17.57|]][[1 Samuel 17.58|]].
 
 [^6]: [[Romans 8.31|Romans 8:31]].
 
@@ -169,7 +171,5 @@ I pray that you will make the commitment to live worthy of the holy priesthood t
 
 [^8]: [[D&C 4.3|Doctrine and Covenants 4:3]].
 
+[^9]: See [[D&C 27.15|Doctrine and Covenants 27:15–18]][[D&C 27.16|]][[D&C 27.17|]][[D&C 27.18|]].
 
-
-
-#Aaronic_Priesthood #Discipleship #Spirituality

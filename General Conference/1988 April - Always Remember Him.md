@@ -1,5 +1,7 @@
 # Always Remember Him
 
+Ezra Taft Benson
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -10,7 +12,7 @@ In April 1830 the Lord commanded the members of his newly restored Church to “
 
 “And he took bread, and gave thanks, and brake it, and gave unto them, saying, This is my body which is given for you: this do in remembrance of me” ([[Luke 22.19|Luke 22:19]]).
 
-When we partake of the sacrament, we witness unto God the Eternal Father that we “do always remember” his Son (see [[D&C 20.77|D&C 20:77, 79]][[D&C 20.79|]]; [[3 Nephi 18.7|3 Ne. 18:7, 11]][[3 Nephi 18.11|]]). Each Sabbath day millions of Latter-day Saints make this promise. What does it mean to “always remember” our Savior?
+When we partake of the sacrament, we witness unto God the Eternal Father that we “do always remember” his Son (see [[D&C 20.77|D&C 20:77, 79]][[D&C 20.79|]]; [[3 Nephi 18.7|3 Ne. 18:7, 11]][[3 Nephi 18.11|]]). Each Sabbath day millions of Latter-day Saints make this promise. What does it mean to “always remember” our Savior?
 
 To remember means to keep in memory. In the scriptures, it often means to keep a person in memory, together with associated emotions like love, loyalty, or gratitude. The stronger the emotion, the more vivid and influential the memory. Here are some examples:
 
@@ -24,7 +26,7 @@ By now you must surely realize that I have given these three examples because th
 
 ## Our Creator, Our Redeemer, Our Teacher
 
-Under the direction and according to the plan of God the Father, his Son Jehovah “created the heavens and the earth, and all things that in them are” ([[3 Nephi 9.15|3 Ne. 9:15]]). He gave us life in the beginning of this world, and through the power of his resurrection he will give each of us life again after we have died in mortality. Jesus Christ is the life of the world.
+Under the direction and according to the plan of God the Father, his Son Jehovah “created the heavens and the earth, and all things that in them are” ([[3 Nephi 9.15|3 Ne. 9:15]]). He gave us life in the beginning of this world, and through the power of his resurrection he will give each of us life again after we have died in mortality. Jesus Christ is the life of the world.
 
 He is our Redeemer. According to the Father’s plan, he provided the atoning sacrifice that can rescue us from the extremity of spiritual death. As a free-will offering, the Only Begotten Son of God came to earth and shed his blood for the remission of our sins (see [[D&C 27.2|D&C 27:2]]).
 
@@ -52,7 +54,7 @@ Among the things we should remember about the Savior is that there are things we
 
 “And his lord was wroth, and delivered him to the tormentors, till he should pay all that was due unto him.
 
-“So likewise shall my heavenly Father do also unto you,” Jesus concluded ([[Matthew 18.33|Matt. 18:33–35]][[Matthew 18.34|]][[Matthew 18.35|]]; see also [[Matthew 6.14|Matt. 6:14–15]][[Matthew 6.15|]]; [[3 Nephi 13.14|3 Ne. 13:14–15]][[3 Nephi 13.15|]]).
+“So likewise shall my heavenly Father do also unto you,” Jesus concluded ([[Matthew 18.33|Matt. 18:33–35]][[Matthew 18.34|]][[Matthew 18.35|]]; see also [[Matthew 6.14|Matt. 6:14–15]][[Matthew 6.15|]]; [[3 Nephi 13.14|3 Ne. 13:14–15]][[3 Nephi 13.15|]]).
 
 As the Lord has told us in modern revelation, “He that forgiveth not his brother his trespasses standeth condemned before the Lord; for there remaineth in him the greater sin” ([[D&C 64.9|D&C 64:9]]). If we always remember our Savior, we will forgive and forget grievances against those who have wronged us.
 
@@ -80,7 +82,7 @@ Remembering the Savior can also help us understand and endure the inevitable aff
 
 ## Minister to the Sick and the Afflicted
 
-When the Risen Lord appeared to the people on this continent, he taught them and called leaders and gave them the authority of his priesthood. Next he healed the sick, the lame, the blind, and all others who were afflicted in any manner. Then “he commanded that their little children should be brought” ([[3 Nephi 17.11|3 Ne. 17:11]]). And he “blessed them, and prayed unto the Father for them” ([[3 Nephi 17.21|v. 21]]).
+When the Risen Lord appeared to the people on this continent, he taught them and called leaders and gave them the authority of his priesthood. Next he healed the sick, the lame, the blind, and all others who were afflicted in any manner. Then “he commanded that their little children should be brought” ([[3 Nephi 17.11|3 Ne. 17:11]]). And he “blessed them, and prayed unto the Father for them” ([[3 Nephi 17.21|v. 21]]).
 
 As I remember this inspiring example, I also remember visits and letters I have had from persons caring for loved ones who are sick or who are afflicted with the infirmities of old age. I also remember loved ones grieving over little children with life-shortening or crippling physical or emotional disabilities. How their hearts ache for their little ones! How they need our love and support! I also remember the words, “Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me” ([[Matthew 25.40|Matt. 25:40]]). Here our Savior gives an assurance of blessings for those who carry such burdens and a challenge for others who can lend them support.
 
@@ -119,8 +121,3 @@ May we always remember, as we covenant to do, is my humble prayer in the name of
 
 
 
-
-
-
-
-#Compassion #Fellowshipping #Forgiveness #Jesus_Christ

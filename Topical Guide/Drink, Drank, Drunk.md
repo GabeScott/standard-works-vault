@@ -1,6 +1,5 @@
 # Drink, Drank, Drunk
 
-
 he *drank* of the wine, and was drunken, [[Genesis 9.21|Genesis 9:21]].
 
 they could not *drink* of the waters of Marah, [[Exodus 15.23|Exodus 15:23]].
@@ -27,7 +26,7 @@ kings to *drink* wine; nor for princes strong *drink*, [[Proverbs 31.4|Proverbs 
 
 strong *drink* unto him that is ready to perish, [[Proverbs 31.6|Proverbs 31:6]].
 
-nothing better for a man, than ... eat and *drink*, [[Ecclesiastes 2.24|Ecclesiastes 2:24]].
+nothing better for a man, than … eat and *drink*, [[Ecclesiastes 2.24|Ecclesiastes 2:24]].
 
 that they may follow strong *drink*, [[Isaiah 5.11|Isaiah 5:11]] ([[2 Nephi 15.11|2 Nephi 15:11]]).
 
@@ -83,7 +82,7 @@ kingdom of God is not meat and *drink*, [[Romans 14.17|Romans 14:17]].
 
 did all *drink* the same spiritual *drink*, [[1 Corinthians 10.4|1 Corinthians 10:4]].
 
-eat, or *drink* ... do all to the glory of God, [[1 Corinthians 10.31|1 Corinthians 10:31]].
+eat, or *drink* … do all to the glory of God, [[1 Corinthians 10.31|1 Corinthians 10:31]].
 
 as oft as ye *drink* it, in remembrance of me, [[1 Corinthians 11.25|1 Corinthians 11:25]].
 
@@ -97,4 +96,4 @@ men *drink* damnation to their own souls except they humble themselves, [[Mosiah
 
 I will *drink* of the fruit of the vine with you, [[D&C 27.5|D&C 27:5]].
 
-*drinketh* wine or strong *drink* ... not good, [[D&C 89.5|D&C 89:5]].
+*drinketh* wine or strong *drink* … not good, [[D&C 89.5|D&C 89:5]].

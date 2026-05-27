@@ -1,5 +1,7 @@
 # Special Experiences
 
+Dieter F. Uchtdorf
+
 By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -8,7 +10,7 @@ By Elder Ronald A. Rasband - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/special-experiences?lang=eng)
 
-I would like to add my testimony and witness on this special day that President Thomas S. Monson is the Lord’s prophet on the earth. I am grateful to have this privilege to speak in general conference.
+I would like to add my testimony and witness on this special day that President Thomas S. Monson is the Lord’s prophet on the earth. I am grateful to have this privilege to speak in general conference.
 
 I am grateful, as you are, for the experience we have in this historic conference as we sustain, in an orderly and patterned way, our new prophet, First Presidency, and other leaders of the Church.
 
@@ -57,8 +59,3 @@ In these days of worldly intrusions into our lives, when trials and difficulties
 
 
 
-
-
-
-
-#Faith #Testimony

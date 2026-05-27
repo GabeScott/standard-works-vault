@@ -1,5 +1,7 @@
 # Christ: The Light That Shines in Darkness
 
+Ulisses Soares
+
 By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2019 General Conference*
@@ -20,7 +22,7 @@ When tragedies overtake us, when life hurts so much we can’t breathe, when we�
 
 ## Some of Us Are Just So Tired
 
-Elder Jeffrey R. Holland said: “It is not intended that we run faster than we have strength. … But \[in spite of\] that, I know … many of you run \[very,\] very fast and that \[the\] energy and emotional supply sometimes registers close to empty.”[^3] When expectations overwhelm us, we can step back and ask Heavenly Father what to let go of. Part of our life experience is learning what not to do. But even so, sometimes life can be exhausting. Jesus assures us, “Come unto me, all ye that labour and are heavy laden, and I will give you rest.”[^4]
+Elder Jeffrey R. Holland said: “It is not intended that we run faster than we have strength. … But \[in spite of\] that, I know … many of you run \[very,\] very fast and that \[the\] energy and emotional supply sometimes registers close to empty.”[^3] When expectations overwhelm us, we can step back and ask Heavenly Father what to let go of. Part of our life experience is learning what not to do. But even so, sometimes life can be exhausting. Jesus assures us, “Come unto me, all ye that labour and are heavy laden, and I will give you rest.”[^4]
 
 Christ is willing to join with us in the yoke and pull in order to lighten our burdens. **Christ is rest.**
 
@@ -44,7 +46,7 @@ The scarlet dye of the Old Testament was not only colorful but also colorfast, m
 
 “Though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.”[^16] The Lord says emphatically: he or she “who has repented of … sins, the same is forgiven, and I, the Lord, remember them no more.”[^17] In essence: Come, let us reason together.[^18] You made mistakes; all come short.[^19] Come unto me and repent.[^20] I will remember the sin no more.[^21] You can be whole again.[^22] I have a work for you to do.[^23] **Christ makes wool white.**
 
-But what are the practical steps? What is the key to reconnecting to the power of Jesus Christ when we are flickering? President Russell M. Nelson said it very simply: “The key is to make and keep sacred covenants. … It is not a complicated way.”[^24] Make Christ the center of your life.[^25]
+But what are the practical steps? What is the key to reconnecting to the power of Jesus Christ when we are flickering? President Russell M. Nelson said it very simply: “The key is to make and keep sacred covenants. … It is not a complicated way.”[^24] Make Christ the center of your life.[^25]
 
 If you feel that the beacon of your testimony is sputtering and darkness is closing in, take courage. Keep your promises to God. Ask your questions. Patiently melt stone to glass. Turn to Jesus Christ, who loves you still.
 
@@ -67,7 +69,7 @@ Take a few more steps on the covenant path, even if it’s too dark to see very 
 
 [^2]: [[Mosiah 24.14|Mosiah 24:14]].
 
-[^3]: Jeffrey R. Holland, “[Bearing One Another’s Burdens](https://churchofjesuschrist.org/study/liahona/2018/06/bearing-one-anothers-burdens?lang=eng&id=p23#p23),” *Ensign,* June 2018, 28; *Liahona,* June 2018, 30.
+[^3]: Jeffrey R. Holland, “[Bearing One Another’s Burdens](https://www.churchofjesuschrist.org/study/liahona/2018/06/bearing-one-anothers-burdens?lang=eng&id=p23#p23),” *Ensign,* June 2018, 28; *Liahona,* June 2018, 30.
 
 [^4]: [[Matthew 11.28|Matthew 11:28]].
 
@@ -75,7 +77,7 @@ Take a few more steps on the covenant path, even if it’s too dark to see very 
 
 [^6]: [[Luke 19.9|Luke 19:9]].
 
-[^7]: [[3 Nephi 18.25|3 Nephi 18:25]].
+[^7]: [[3 Nephi 18.25|3 Nephi 18:25]].
 
 [^8]: [[Acts 10.28|Acts 10:28]].
 
@@ -89,7 +91,7 @@ Take a few more steps on the covenant path, even if it’s too dark to see very 
 
 [^13]: [[Ether 4.12|Ether 4:12]].
 
-[^14]: See “[Scarlet, Crimson, Snow, and Wool](https://churchofjesuschrist.org/study/ensign/2016/12/scarlet-crimson-snow-and-wool?lang=eng),” *Ensign,* Dec. 2016, 64–65.
+[^14]: See “[Scarlet, Crimson, Snow, and Wool](https://www.churchofjesuschrist.org/study/ensign/2016/12/scarlet-crimson-snow-and-wool?lang=eng),” *Ensign,* Dec. 2016, 64–65.
 
 [^15]: [[Isaiah 55.9|Isaiah 55:9]].
 
@@ -101,7 +103,7 @@ Take a few more steps on the covenant path, even if it’s too dark to see very 
 
 [^19]: See [[Romans 3.23|Romans 3:23]].
 
-[^20]: See [[3 Nephi 9.22|3 Nephi 9:22]].
+[^20]: See [[3 Nephi 9.22|3 Nephi 9:22]].
 
 [^21]: See [[D&C 58.42|Doctrine and Covenants 58:42]].
 
@@ -109,9 +111,9 @@ Take a few more steps on the covenant path, even if it’s too dark to see very 
 
 [^23]: See [[Moses 1.6|Moses 1:6]].
 
-[^24]: Russell M. Nelson, “[Four Gifts That Jesus Christ Offers to You](https://churchofjesuschrist.org/study/broadcasts/christmas-devotional/2018/12/four-gifts-that-jesus-christ-offers-to-you?lang=eng&id=p21#p21)” (First Presidency Christmas devotional, Dec. 2, 2018), broadcasts.ChurchofJesusChrist.org.
+[^24]: Russell M. Nelson, “[Four Gifts That Jesus Christ Offers to You](https://www.churchofjesuschrist.org/study/broadcasts/christmas-devotional/2018/12/four-gifts-that-jesus-christ-offers-to-you?lang=eng&id=p21#p21)” (First Presidency Christmas devotional, Dec. 2, 2018), broadcasts.ChurchofJesusChrist.org.
 
-[^25]: See Russell M. Nelson, “Why Have Faith Now? LDS President Russell M. Nelson Explains during Phoenix-Area Visit,” *Arizona Republic,* Feb. 10, 2019, azcentral.com.
+[^25]: See Russell M. Nelson, “Why Have Faith Now? LDS President Russell M. Nelson Explains during Phoenix-Area Visit,” *Arizona Republic,* Feb. 10, 2019, azcentral.com.
 
 [^26]: [[D&C 6.21|Doctrine and Covenants 6:21]].
 
@@ -121,8 +123,3 @@ Take a few more steps on the covenant path, even if it’s too dark to see very 
 
 [^29]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-
-
-
-
-#Faith #Hope #Jesus_Christ

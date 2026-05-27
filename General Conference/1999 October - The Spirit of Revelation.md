@@ -1,5 +1,7 @@
 # The Spirit of Revelation
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -134,7 +136,7 @@ The Lord promised, “I will not leave you comfortless: I will come to you.”[^
 
 “I will tell you in your *mind* and in your *heart,* by the Holy Ghost, which shall come upon you and which shall dwell in your heart.
 
-“… This is the spirit of revelation. …
+“… This is the spirit of revelation. …
 
 “Therefore this is thy gift; apply unto it, and blessed art thou, for it shall deliver you.”[^8]
 
@@ -153,7 +155,7 @@ You look ahead to a long life, to the long, long future before this Church, befo
 
 [^4]: Author unknown, “All the Water in the World,” in *Best-Loved Poems of the LDS People,* ed. Jack M. Lyon and others (1996), 302.
 
-[^5]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^5]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^6]: “My Little Kingdom,” *Louisa May Alcott—Her Girlhood Diary,* ed. Cary Ryan (1993), 8–9.
 
@@ -163,8 +165,3 @@ You look ahead to a long life, to the long, long future before this Church, befo
 
 [^9]: “The Church of Jesus Christ,” *Children’s Songbook,* 77.
 
-
-
-
-
-#Holy_Ghost #Music #Prayer #Repentance #Self-Control #Spirituality

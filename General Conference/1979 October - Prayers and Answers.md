@@ -1,6 +1,8 @@
 # Prayers and Answers
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -50,23 +52,23 @@ One day we came to realize that each would hear only the one to which we were as
 
 We have commented on this over the years, convinced that you can train yourself to hear what you want to hear, to see and feel what you desire, but it takes some conditioning.
 
-There are so many of us who go through life and seldom, if ever, hear that voice of inspiration, because “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Cor. 2:14]]).
+There are so many of us who go through life and seldom, if ever, hear that voice of inspiration, because “the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Cor. 2:14]]).
 
 The scriptures have many lessons on this subject.
 
 Lehi told his sons of a vision, but Laman and Lemuel resisted his teachings:
 
-“For he truly spake many great things unto them, which were hard to be understood, save a man should inquire of the Lord; and they being hard in their hearts, therefore they did not look unto the Lord as they ought” ([[1 Nephi 15.3|1 Ne. 15:3]]).
+“For he truly spake many great things unto them, which were hard to be understood, save a man should inquire of the Lord; and they being hard in their hearts, therefore they did not look unto the Lord as they ought” ([[1 Nephi 15.3|1 Ne. 15:3]]).
 
 They complained to their younger brother, Nephi, that they could not understand their father, and Nephi asked this question:
 
 “Have ye inquired of the Lord?
 
-“And they said unto \[him\]: We have not; for the Lord maketh no such thing known unto us” ([[1 Nephi 15.8|1 Ne. 15:8–9]][[1 Nephi 15.9|]]).
+“And they said unto \[him\]: We have not; for the Lord maketh no such thing known unto us” ([[1 Nephi 15.8|1 Ne. 15:8–9]][[1 Nephi 15.9|]]).
 
 Later they intended to do Nephi harm and he said to them:
 
-“Ye are swift to do iniquity but slow to remember the Lord your God. Ye have seen an angel, and he spake unto you; yea, ye have heard his voice from time to time; and he hath spoken unto you in a still small voice, but ye were past *feeling,* that ye could not *feel* his words” ([[1 Nephi 17.45|1 Ne. 17:45]]; italics added).
+“Ye are swift to do iniquity but slow to remember the Lord your God. Ye have seen an angel, and he spake unto you; yea, ye have heard his voice from time to time; and he hath spoken unto you in a still small voice, but ye were past *feeling,* that ye could not *feel* his words” ([[1 Nephi 17.45|1 Ne. 17:45]]; italics added).
 
 I have come to know that inspiration comes more as a feeling than as a sound.
 
@@ -196,8 +198,3 @@ I know that Jesus is the Christ, that He directs this Church, that He is close t
 
 
 
-
-
-
-
-#Holy_Ghost #Prayer #Spirituality #Youth

@@ -1,5 +1,7 @@
 # A Woman of Faith
 
+Gordon B. Hinckley
+
 By Margaret D. Nadauld - *Recently Released Young Women General President*
 
 *Given in the October session of the 2002 General Conference*
@@ -45,8 +47,3 @@ Dear brothers and sisters, please know of my love for you and my great gratitude
 
 [^7]: [[Ecclesiastes 4.9|Ecclesiastes 4:9–10]][[Ecclesiastes 4.10|]].
 
-
-
-
-
-#Courage #Faith #Trust #Women

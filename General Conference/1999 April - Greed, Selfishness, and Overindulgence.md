@@ -1,5 +1,7 @@
 # Greed, Selfishness, and Overindulgence
 
+Gordon B. Hinckley
+
 By Elder Joe J. Christensen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1999 General Conference*
@@ -113,7 +115,7 @@ I testify that Jesus is the Christ, this is His Church led by living prophets, a
 
 [^3]: Morris Chalfant, “The Sin of the Church,” *Wesleyan Methodist,* quoted by John H. Vandenberg in Conference Report, Oct. 1965, 131; or *Improvement Era,* Dec. 1965, 1154.
 
-[^4]: See [[1 Timothy 6.10|1 Tim. 6:10]].
+[^4]: See [[1 Timothy 6.10|1 Tim. 6:10]].
 
 [^5]: BYU devotional, 12 Jan. 1999.
 
@@ -127,7 +129,7 @@ I testify that Jesus is the Christ, this is His Church led by living prophets, a
 
 [^10]: [[Alma 4.6|Alma 4:6]].
 
-[^11]: In Conference Report, Oct. 1998, 71; or *Ensign,* Nov. 1998, 53.
+[^11]: In Conference Report, Oct. 1998, [[1998 October - To the Boys and to the Men.md|71]]; or *Ensign,* Nov. 1998, 53.
 
 [^12]: Thomas J. Stanley and William D. Danko, *The Millionaire Next Door* (1996), 1.
 
@@ -137,8 +139,3 @@ I testify that Jesus is the Christ, this is His Church led by living prophets, a
 
 [^15]: [[John 3.16|John 3:16]].
 
-
-
-
-
-#Children #Covetousness #Faith #Financial_Management #Generosity #Greed #Jesus_Christ #Love #Parenthood #Self-Reliance #Spirituality #Success #Wealth

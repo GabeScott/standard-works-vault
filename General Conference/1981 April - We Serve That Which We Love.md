@@ -1,6 +1,8 @@
 # We Serve That Which We Love
 
-By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
+Marion G. Romney
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -28,11 +30,11 @@ Many today are caught up in their love for worldly goods which they think will b
 
 Love of money, drugs, and alcohol can turn men into thieves, murderers, and derelicts. First they love the effects of those evil things; then they sacrifice all—life, health, and liberty—for that which they thought were treasures. Love of the sensual, drugs, and lies grows as we serve in these appealing areas offered by Satan. Love bonds become strong and intense in proportion to our continuing service. A man who learns to love a lie serves dishonesty all his life. In fact, a drug addict can usually be cured more quickly than a liar.
 
-One of the greatest accomplishments of Satan in these last days is his success in turning men’s affection towards the destructive, the fleeting, or the worldly. Rather than planning for that which is best for all, the world is becoming increasingly “me-centered.” On every hand we have many group leaders saying, “We have a right.” “We demand.” Many young people believe that love has “rights” one can demand of a loved one. For example, a young man often says, “If you love me, you will let me …” He would take what he supposes are his rights rather than serving the higher standards of morality. Such a request does not bespeak love.
+One of the greatest accomplishments of Satan in these last days is his success in turning men’s affection towards the destructive, the fleeting, or the worldly. Rather than planning for that which is best for all, the world is becoming increasingly “me-centered.” On every hand we have many group leaders saying, “We have a right.” “We demand.” Many young people believe that love has “rights” one can demand of a loved one. For example, a young man often says, “If you love me, you will let me …” He would take what he supposes are his rights rather than serving the higher standards of morality. Such a request does not bespeak love.
 
 Day-to-day acts of service, whether for good or evil, may not seem important, but they are building cords of love that become so strong they can seldom be broken. Ours is to place our areas of love in proper perspective. Meaningful love always works for our eternal progress and not against it.
 
-One who loves has and feels responsibility. Paul in 1 Corinthians says love thinketh no evil, is not self-seeking, is long-suffering, and is kind. (See [[1 Corinthians 13.4|1 Cor. 13:4–5]][[1 Corinthians 13.5|]].) If we look at love between two who are preparing for temple marriage, we see the elements of sacrifice and of serving each other’s best interests, not a shortsighted “me” interest. True love and happiness in courtship and marriage are based upon honesty, self-respect, sacrifice, consideration, courtesy, kindness, and placing “we” ahead of “me.” Those who would have us forfeit virtue and chastity to prove our love in sexual participation out of wedlock are neither friends nor eternally family-oriented. To classify them as selfish and unwise is not too severe. Those who serve the flesh will never know the love and fruits of purity.
+One who loves has and feels responsibility. Paul in 1 Corinthians says love thinketh no evil, is not self-seeking, is long-suffering, and is kind. (See [[1 Corinthians 13.4|1 Cor. 13:4–5]][[1 Corinthians 13.5|]].) If we look at love between two who are preparing for temple marriage, we see the elements of sacrifice and of serving each other’s best interests, not a shortsighted “me” interest. True love and happiness in courtship and marriage are based upon honesty, self-respect, sacrifice, consideration, courtesy, kindness, and placing “we” ahead of “me.” Those who would have us forfeit virtue and chastity to prove our love in sexual participation out of wedlock are neither friends nor eternally family-oriented. To classify them as selfish and unwise is not too severe. Those who serve the flesh will never know the love and fruits of purity.
 
 A new convert to the Church recently shared this story. “I was in and out of enforced confinement most of my teen years. It wasn’t so bad being there because the food was pretty good, and we were treated all right. But it did get boring, so when anyone had any reading material, funny books, magazines, or anything, we would trade our food for a chance to borrow those items. One day I saw a fellow with a nice, thick book. I knew it would take a long time to read, so I offered him my pork chops, my potatoes, and all my main course food items for a week. He accepted my offer and loaned me the book. As I read it, I knew I was reading something very special and very true. The book for which I had sacrificed my food was titled the Book of Mormon. When I had a chance, I found the missionaries, changed my habits, and am now finding a new way of life. I love that book for which I traded my food.”
 
@@ -67,8 +69,3 @@ May God help us to love the right, love the truth, and love areas of service tha
 
 
 
-
-
-
-
-#Family #Love

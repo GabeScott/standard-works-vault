@@ -1,6 +1,8 @@
 # The Hope of God’s Light
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -125,7 +127,7 @@ As you walk toward the hope of God’s light, you will discover the compassion, 
 
 [^3]: [[D&C 6.21|Doctrine and Covenants 6:21]].
 
-[^4]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^4]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^5]: See [[Alma 34.31|Alma 34:31]].
 
@@ -135,7 +137,5 @@ As you walk toward the hope of God’s light, you will discover the compassion, 
 
 [^8]: [[John 8.12|John 8:12]].
 
+[^9]: [[1 John 1.5|1 John 1:5]].
 
-
-
-#Adversity #Healing #Hope #Jesus_Christ

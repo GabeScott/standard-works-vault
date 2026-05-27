@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:41](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.41?lang=eng#p41)
 
 
-[^a]: [[Genesis 6.5|Gen. 6:5.]]
+[^a]: [[Genesis 6.5|Gen. 6:5]].  

@@ -1,5 +1,7 @@
 # “If Thou Art Faithful”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1984 General Conference*
@@ -95,8 +97,3 @@ God bless you my beloved sisters—you little girls whom we so much appreciate; 
 
 
 
-
-
-
-
-#Faith #Relief_Society #Women

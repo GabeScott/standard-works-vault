@@ -1,5 +1,7 @@
 # “Come unto Me with Full Purpose of Heart, and I Shall Heal You”
 
+Thomas S. Monson
+
 By Elder Patrick Kearon - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -38,7 +40,7 @@ Brethren, we find healing and relief only when we bring ourselves to the feet of
 
 “For God sent not his Son into the world to condemn the world; but that the world through him might be saved.”[^12]
 
-President James E. Faust taught:
+President James E. Faust taught:
 
 “When obedience becomes our goal, it is no longer an irritation; instead of a stumbling block, it becomes a building block.”
 
@@ -79,18 +81,13 @@ Not one of you has thrown away your last chance. You can change, you can come ba
 
 [^9]: [[D&C 112.13|Doctrine and Covenants 112:13]]; emphasis added.
 
-[^10]: [[3 Nephi 18.32|3 Nephi 18:32]].
+[^10]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
 [^11]: [[D&C 121.37|Doctrine and Covenants 121:37, 38]][[D&C 121.38|]].
 
 [^12]: [[John 3.17|John 3:17]].
 
-[^13]: James E. Faust, in Conference Report, Apr. 1999, 61, 60; or *Ensign,* May 1999, 47, 45.
+[^13]: James E. Faust, in Conference Report, Apr. 1999, [[1999 April - Obedience - The Path to Freedom.md|61, 60]]; or *Ensign,* May 1999, 47, 45.
 
-[^14]: [[3 Nephi 17.7|3 Nephi 17:7]]; emphasis added.
+[^14]: [[3 Nephi 17.7|3 Nephi 17:7]]; emphasis added.
 
-
-
-
-
-#Healing #Obedience #Repentance

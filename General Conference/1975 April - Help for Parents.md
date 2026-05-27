@@ -1,6 +1,8 @@
 # Help for Parents
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -12,11 +14,11 @@ On one occasion my young friend told me he was sure that his parents loved him, 
 
 Now, years later, the offspring of this family have experienced the birth of illegitimate children, divorce in their own marriages, runaways, drug addiction, and most everything else that can be tragic in our lives.
 
-Today I would like to visit with the parents about some concerns I believe we share together. As we read the newspapers, we become justifiably concerned over what is happening around us. There is a growing concern among our people as we see the prophecies of times past being unfolded before our very eyes. Some have a feeling of frustration, anxiety, anger, and yes, even fear. But remember that Paul, in his letters to Timothy, counseled: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.7|2 Tim. 1:7]].)
+Today I would like to visit with the parents about some concerns I believe we share together. As we read the newspapers, we become justifiably concerned over what is happening around us. There is a growing concern among our people as we see the prophecies of times past being unfolded before our very eyes. Some have a feeling of frustration, anxiety, anger, and yes, even fear. But remember that Paul, in his letters to Timothy, counseled: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.7|2 Tim. 1:7]].)
 
 May I suggest that the steps we can take to dispel fear and bring peace and power are really very simple. The teachings of the gospel are not complicated. They are not hard to understand. They need not be confusing. Let us not be blinded by the craftiness of men.
 
-Nephi once said that because of the simpleness of the way or the easiness of it, there were many who perished. (See [[1 Nephi 17.41|1 Ne. 17:41]].) Jacob put it another way when he said that they became blinded because they were continually looking beyond the mark in their search for answers. (See [[Jacob 4.14|Jacob 4:14]].) They didn’t believe in the simplicity of the gospel teachings.
+Nephi once said that because of the simpleness of the way or the easiness of it, there were many who perished. (See [[1 Nephi 17.41|1 Ne. 17:41]].) Jacob put it another way when he said that they became blinded because they were continually looking beyond the mark in their search for answers. (See [[Jacob 4.14|Jacob 4:14]].) They didn’t believe in the simplicity of the gospel teachings.
 
 Yes, it is true that a family beset with trials and concerns seems to be the constant pattern of our mortal existence. However true this fact may be, it need not—it must not—have an adverse influence in our lives. Children are saved and families are exalted by participating in some very simple gospel experiences.
 
@@ -75,8 +77,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Family #Scriptures

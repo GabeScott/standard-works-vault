@@ -1,6 +1,8 @@
 # Divine Helps for Mortality
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Dallin H. Oaks
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -14,7 +16,7 @@ Through the Prophet Joseph Smith, the Lord revealed a few things about our pre-e
 
 To establish the conditions of this divine plan, God chose His Only Begotten Son to be our Savior. Lucifer, whose suggested alternative would destroy the agency of man, became Satan and was “cast down.”[^3] Banished to the earth and denied the privilege of mortal life, Satan was permitted to attempt “to deceive and to blind men, and to lead them captive at his will, even as many as would not hearken unto \[God’s\] voice” ([[Moses 4.4|Moses 4:4]]).
 
-Essential to God’s great plan for the mortal growth of His children was for them to experience “opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]). Just as our physical muscles cannot be developed or maintained without straining against the law of gravity, so mortal growth requires us to strain against Satan’s temptations and other mortal opposition. Most important for spiritual growth is the requirement to choose between good and evil.[^4] Those who choose good would progress toward their eternal destiny. Those who choose evil—as all would do in the various temptations of mortality—would need saving help, which a loving God designed to provide.
+Essential to God’s great plan for the mortal growth of His children was for them to experience “opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]). Just as our physical muscles cannot be developed or maintained without straining against the law of gravity, so mortal growth requires us to strain against Satan’s temptations and other mortal opposition. Most important for spiritual growth is the requirement to choose between good and evil.[^4] Those who choose good would progress toward their eternal destiny. Those who choose evil—as all would do in the various temptations of mortality—would need saving help, which a loving God designed to provide.
 
 ## II.
 
@@ -42,9 +44,9 @@ The *second* of the great assistances provided by the Lord to help us choose wha
 
 Other God-given helps for making right choices are the *manifestations* of the Holy Ghost. The Holy Ghost is the third member of the Godhead. His function, defined in scripture, is to testify of the Father and the Son, to teach us, to bring all things to our remembrance, and to guide us into all truth.[^7] The scriptures include many descriptions of the manifestations of the Holy Ghost, such as a spiritual witness in response to an inquiry about the truth of the Book of Mormon.[^8] A manifestation is not to be confused with the gift of the Holy Ghost, which is conferred following baptism.
 
-One of the most significant of God’s helps for His faithful children is the gift of the Holy Ghost. The importance of this gift is evident in the fact that it is formally conferred after repentance and baptism by water, “and then \[the scriptures explain\] cometh a remission of your sins by fire and by the Holy Ghost” ([[2 Nephi 31.17|2 Nephi 31:17]]). Persons who have this remission of sins—and then regularly renew their cleansing by daily repentance and living according to the covenants they make through the ordinance of the sacrament—qualify for the promise that the Holy Ghost, the Spirit of the Lord, “may always … be with them” ([[D&C 20.77|Doctrine and Covenants 20:77]]).
+One of the most significant of God’s helps for His faithful children is the gift of the Holy Ghost. The importance of this gift is evident in the fact that it is formally conferred after repentance and baptism by water, “and then \[the scriptures explain\] cometh a remission of your sins by fire and by the Holy Ghost” ([[2 Nephi 31.17|2 Nephi 31:17]]). Persons who have this remission of sins—and then regularly renew their cleansing by daily repentance and living according to the covenants they make through the ordinance of the sacrament—qualify for the promise that the Holy Ghost, the Spirit of the Lord, “may always … be with them” ([[D&C 20.77|Doctrine and Covenants 20:77]]).
 
-Thus, President Joseph F. Smith taught that the Holy Ghost will “enlighten the minds of the people with regard to the things of God, to convince them at the time of their conversion of their having done the will of the Father, and to be in them an abiding testimony as a companion through life, acting as the sure and safe guide into all truth and filling them day by day with joy and gladness, with a disposition to do good to all men, to suffer wrong rather than to do wrong, to be kind and merciful, long suffering and charitable. All who possess this inestimable gift, this pearl of great price, have a continual thirst after righteousness. Without the aid of the Holy Spirit,” President Smith concluded, “no mortal can walk in the straight and narrow way.”[^9]
+Thus, President Joseph F. Smith taught that the Holy Ghost will “enlighten the minds of the people with regard to the things of God, to convince them at the time of their conversion of their having done the will of the Father, and to be in them an abiding testimony as a companion through life, acting as the sure and safe guide into all truth and filling them day by day with joy and gladness, with a disposition to do good to all men, to suffer wrong rather than to do wrong, to be kind and merciful, long suffering and charitable. All who possess this inestimable gift, this pearl of great price, have a continual thirst after righteousness. Without the aid of the Holy Spirit,” President Smith concluded, “no mortal can walk in the straight and narrow way.”[^9]
 
 ## IV.
 
@@ -67,22 +69,17 @@ I have spoken of the many mortal helps our loving Father in Heaven has given to 
 
 [^3]: See [[Moses 4.1|Moses 4:1–4]][[Moses 4.2|]][[Moses 4.3|]][[Moses 4.4|]].
 
-[^4]: See [[2 Nephi 2.11|2 Nephi 2:11, 15–16]][[2 Nephi 2.15|]][[2 Nephi 2.16|]].
+[^4]: See [[2 Nephi 2.11|2 Nephi 2:11, 15–16]][[2 Nephi 2.15|]][[2 Nephi 2.16|]].
 
 [^5]: See [[Alma 7.11|Alma 7:11–14]][[Alma 7.12|]][[Alma 7.13|]][[Alma 7.14|]].
 
-[^6]: Joseph Fielding Smith, *Doctrines of Salvation*, comp. Bruce R. McConkie (1954), 1:51. President Smith adds that this light is the power of God, “which is in all things” ([[D&C 88.13|Doctrine and Covenants 88:13]]; see *Doctrines of Salvation*, 1:52).
+[^6]: Joseph Fielding Smith, *Doctrines of Salvation*, comp. Bruce R. McConkie (1954), 1:51. President Smith adds that this light is the power of God, “which is in all things” ([[D&C 88.13|Doctrine and Covenants 88:13]]; see *Doctrines of Salvation*, 1:52).
 
-[^7]: See [[John 14.26|John 14:26]]; [[John 16.13|16:13]]; [[2 Nephi 31.18|2 Nephi 31:18]].
+[^7]: See [[John 14.26|John 14:26]]; [[John 16.13|16:13]]; [[2 Nephi 31.18|2 Nephi 31:18]].
 
-[^8]: See [[Moroni 10.4|Moroni 10:4, 8]][[Moroni 10.8|]]; see also [[2 Nephi 26.13|2 Nephi 26:13]]; [[D&C 18.18|Doctrine and Covenants 18:18]]; [[1 Corinthians 12.7|1 Corinthians 12:7]].
+[^8]: See [[Moroni 10.4|Moroni 10:4, 8]][[Moroni 10.8|]]; see also [[2 Nephi 26.13|2 Nephi 26:13]]; [[D&C 18.18|Doctrine and Covenants 18:18]]; [[1 Corinthians 12.7|1 Corinthians 12:7]].
 
-[^9]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 70.
+[^9]: *[Teachings of Presidents of the Church: Joseph F. Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-f-smith/chapter-8?lang=eng&id=p12#p12)* (1998), 70.
 
 [^10]: See [[Matthew 25.1|Matthew 25:1–2]][[Matthew 25.2|]].
 
-
-
-
-
-#Agency #Atonement #Commandments #Covenants #Holy_Ghost #Jesus_Christ #Light_Of_Christ #Ordinances #Plan_Of_Salvation

@@ -1,6 +1,8 @@
 # Blessed and Happy Are Those Who Keep the Commandments of God
 
-By Elder Von G. Keetch - *Of the Seventy*
+Rosemary M. Wixom
+
+By Elder Von G. Keetch - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -32,7 +34,7 @@ We show our love for God—and our faith in Him—by doing our very best every d
 
 In the New Testament, Ananias could not comprehend the Lord’s command to seek out and bless Saul—a man who literally had a license to imprison the believers of Christ. Yet because he obeyed God’s command, Ananias was instrumental in the spiritual birth of the Apostle Paul.[^4]
 
-As we trust in the Lord, exercise our faith, obey His commandments, and follow the course He has charted for us, we become more the person the Lord wants us to become. It is this “becoming”—this conversion of the heart—that is all-important. As Elder Dallin H. Oaks has taught us: “It is not enough for anyone just to go through the motions. The commandments, ordinances, and covenants of the gospel are not a list of deposits required to be made in some heavenly account. The gospel of Jesus Christ is a plan that shows us how to become what our Heavenly Father desires us to become.”[^5]
+As we trust in the Lord, exercise our faith, obey His commandments, and follow the course He has charted for us, we become more the person the Lord wants us to become. It is this “becoming”—this conversion of the heart—that is all-important. As Elder Dallin H. Oaks has taught us: “It is not enough for anyone just to go through the motions. The commandments, ordinances, and covenants of the gospel are not a list of deposits required to be made in some heavenly account. The gospel of Jesus Christ is a plan that shows us how to become what our Heavenly Father desires us to become.”[^5]
 
 True obedience, therefore, is giving ourselves entirely to Him and allowing Him to chart our course both in calm waters and in troubled ones, understanding that He can make more of us than we could ever make of ourselves.
 
@@ -47,24 +49,19 @@ I testify that we are children of a loving God. I witness that He wants us to be
 
 
 
-[^1]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
+[^1]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
 
 [^2]: [[D&C 88.6|Doctrine and Covenants 88:6]].
 
-[^3]: See Boyd K. Packer, [“Spiritual Crocodiles,”](https://churchofjesuschrist.org/study/ensign/1976/05/spiritual-crocodiles?lang=eng) *Ensign,* May 1976, 30–32.
+[^3]: See Boyd K. Packer, “[Spiritual Crocodiles](https://www.churchofjesuschrist.org/study/ensign/1976/05/spiritual-crocodiles?lang=eng),” *Ensign,* May 1976, 30–32.
 
 [^4]: See [[Acts 9.10|Acts 9:10–18]][[Acts 9.11|]][[Acts 9.12|]][[Acts 9.13|]][[Acts 9.14|]][[Acts 9.15|]][[Acts 9.16|]][[Acts 9.17|]][[Acts 9.18|]].
 
-[^5]: Dallin H. Oaks, “The Challenge to Become,” *Ensign,* Nov. 2000, 32; *Liahona,* Jan. 2001, 40.
+[^5]: Dallin H. Oaks, “The Challenge to Become,” *Ensign,* Nov. 2000, 32; *Liahona,* Jan. 2001, 40.
 
 [^6]: [[Mosiah 2.41|Mosiah 2:41]].
 
-[^7]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+[^7]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^8]: See [[Matthew 28.6|Matthew 28:6]]; [[Mark 16.6|Mark 16:6]].
 
-
-
-
-
-#Commandments #Conversion #Jesus_Christ #Obedience #Safety

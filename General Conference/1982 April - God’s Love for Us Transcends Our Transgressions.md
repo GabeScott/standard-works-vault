@@ -1,6 +1,8 @@
 # God’s Love for Us Transcends Our Transgressions
 
-By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -50,7 +52,7 @@ Hosea’s ancient message is repeated and elaborated throughout the scriptures. 
 
 “Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil;
 
-“Learn to do well. …
+“Learn to do well. …
 
 “Come now, and let us reason together, saith the Lord: though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.” ([[Isaiah 1.16|Isa. 1:16–18]][[Isaiah 1.17|]][[Isaiah 1.18|]].)
 
@@ -73,8 +75,3 @@ I know of no greater inducement to repentance and reconciliation with our Father
 
 
 
-
-
-
-
-#Forgiveness

@@ -1,6 +1,5 @@
 # Ruin
 
-
 *See also* [[Desolation.md|Desolation]]; [[Destruction.md|Destruction]]; [[Waste.md|Waste]]
 
 they were the *ruin* of him, and of all Israel, [[2 Chronicles 28.23|2 Chronicles 28:23]].

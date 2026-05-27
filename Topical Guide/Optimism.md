@@ -1,4 +1,3 @@
 # Optimism
 
-
-*See* [[Cheerful, Cheerfulness.md|Cheerful]]; [[Hope.md|Hope]]
+*See also* [[Cheerful.md|Cheerful]]; [[Hope.md|Hope]]

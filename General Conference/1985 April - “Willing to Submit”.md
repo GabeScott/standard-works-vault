@@ -1,12 +1,14 @@
 # “Willing to Submit”
 
+Gordon B. Hinckley
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/04/willing-to-submit?lang=eng)
 
-I do not apologize for trying to speak about one of what Paul called “the deep things of God” ([[1 Corinthians 2.10|1 Cor. 2:10]]), only for my inability to go deeply enough.
+I do not apologize for trying to speak about one of what Paul called “the deep things of God” ([[1 Corinthians 2.10|1 Cor. 2:10]]), only for my inability to go deeply enough.
 
 While we see this quality in the quiet but spiritually luxuriant lives of the genuine, spiritual heroes and heroines about us, the lack of it keeps so many of us straggling in the foothills and off the peaks in the adventure of full discipleship. I refer to our hesitancy and our holding back in submitting fully to the Lord and His purposes for us.
 
@@ -16,7 +18,7 @@ Though possessed of other fine attributes, we may still lack this one quality. S
 
 With honest, individualized introspection, each of us could name what we yet lack—and in my case more than one thing.
 
-Spiritual submissiveness is so much more than bended knee or bowed head. Alas, insofar as we “mind the things of the flesh” ([[Romans 8.5|Rom. 8:5]]), we simply cannot have the “mind of Christ.” ([[1 Corinthians 2.16|1 Cor. 2:16]].)
+Spiritual submissiveness is so much more than bended knee or bowed head. Alas, insofar as we “mind the things of the flesh” ([[Romans 8.5|Rom. 8:5]]), we simply cannot have the “mind of Christ.” ([[1 Corinthians 2.16|1 Cor. 2:16]].)
 
 Jesus laid down this sobering requirement: “Except ye … become as little children, ye shall not enter into the kingdom of heaven.” ([[Matthew 18.3|Matt. 18:3]].)
 
@@ -28,11 +30,11 @@ Moreover, the descriptive simplicity of this quality is matched by its developme
 
 A superficial view of this life, therefore, will not do, lest we mistakenly speak of this mortal experience only as coming here to get a body, as if we were merely picking up a suit at the cleaners. Or, lest we casually recite how we have come here to be proved, as if a few brisk push-ups and deep knee bends would do.
 
-Just how much submissiveness to circumstance there should be is not treated in these brief remarks. Suffice it to say, God “allotteth unto men” certain things with which we are to be content. (See [[Alma 29.4|Alma 29:4]], [[Philippians 4.11|Philip. 4:11]]; [[1 Timothy 6.8|1 Tim. 6:8]].) A missing parent or limb is to be lived without. Yet temper and lust are to be tamed. One’s race is fixed, but one’s genetic endowment offers opportunity to be a careful steward. The submissive soul will be led aright, enduring some things well while being anxiously engaged in setting other things right—all the time discerning the difference.
+Just how much submissiveness to circumstance there should be is not treated in these brief remarks. Suffice it to say, God “allotteth unto men” certain things with which we are to be content. (See [[Alma 29.4|Alma 29:4]], [[Philippians 4.11|Philip. 4:11]]; [[1 Timothy 6.8|1 Tim. 6:8]].) A missing parent or limb is to be lived without. Yet temper and lust are to be tamed. One’s race is fixed, but one’s genetic endowment offers opportunity to be a careful steward. The submissive soul will be led aright, enduring some things well while being anxiously engaged in setting other things right—all the time discerning the difference.
 
 Required, in particular, is meekness of mind which recognizes God’s perfect love of us and His omniscience. By acknowledging these reassuring realities and accepting that God desires our full development and true happiness, we are readied even as the learning experiences come. Such meekness requires genuine intellectual honesty, owning up to the learning experiences of the past and listening to the Holy Ghost as he preaches to us from the pulpit of memory.
 
-As the Lord communicates with the meek and submissive, fewer decibels are required, and more nuances are received. Even the most meek, like Moses (see [[Numbers 12.3|Num. 12:3]]), learn overwhelming things they “never had supposed.” ([[Moses 1.10|Moses 1:10]].) But it is only the meek mind which can be so shown and so stretched—not those, as Isaiah wrote, who “are wise in their own eyes.” ([[Isaiah 5.21|Isa. 5:21]]; see also [[2 Nephi 9.29|2 Ne. 9:29]] and [[2 Nephi 15.21|15:21]].)
+As the Lord communicates with the meek and submissive, fewer decibels are required, and more nuances are received. Even the most meek, like Moses (see [[Numbers 12.3|Num. 12:3]]), learn overwhelming things they “never had supposed.” ([[Moses 1.10|Moses 1:10]].) But it is only the meek mind which can be so shown and so stretched—not those, as Isaiah wrote, who “are wise in their own eyes.” ([[Isaiah 5.21|Isa. 5:21]]; see also [[2 Nephi 9.29|2 Ne. 9:29]] and [[2 Nephi 15.21|15:21]].)
 
 God’s counsel aligns us and conjoins us with the great realities of the universe; whereas sin empties, isolates, and separates us, confining us to the solitary cell of selfishness. Hence the lonely crowd in hell.
 
@@ -48,9 +50,9 @@ Yet we need to break free of our old selves—the provincial, constraining, and 
 
 How can we truly acknowledge the Fatherhood of God and refuse His tutorials? Especially in view of the fact, the Lord even chastens those whom He loves. (See [[Hebrews 12.6|Heb. 12:6]], [[D&C 136.31|D&C 136:31]], [[Mosiah 23.21|Mosiah 23:21]], [[Revelation 3.19|Rev. 3:19]].)
 
-Saul, when chosen, was “a choice young man, … and there was not among the children of Israel a goodlier person than he.” ([[1 Samuel 9.2|1 Sam. 9:2]].) Later, he became encrusted with ego and puffed by power. Samuel then recalled a time when Saul “wast little in \[his\] own sight.” ([[1 Samuel 15.17|1 Sam. 15:17]].) In contrast, true submissiveness greatly enlarges the soul, but *without* hypocrisy and guile. (See [[D&C 121.42|D&C 121:42]].)
+Saul, when chosen, was “a choice young man, … and there was not among the children of Israel a goodlier person than he.” ([[1 Samuel 9.2|1 Sam. 9:2]].) Later, he became encrusted with ego and puffed by power. Samuel then recalled a time when Saul “wast little in \[his\] own sight.” ([[1 Samuel 15.17|1 Sam. 15:17]].) In contrast, true submissiveness greatly enlarges the soul, but *without* hypocrisy and guile. (See [[D&C 121.42|D&C 121:42]].)
 
-Submissiveness also checks our tendency to demand advance explanations of the Lord as a perplexed yet trusting Nephi understood: “I know that \[God\] loveth his children; nevertheless, I do not know the meaning of all things.” ([[1 Nephi 11.17|1 Ne. 11:17]].)
+Submissiveness also checks our tendency to demand advance explanations of the Lord as a perplexed yet trusting Nephi understood: “I know that \[God\] loveth his children; nevertheless, I do not know the meaning of all things.” ([[1 Nephi 11.17|1 Ne. 11:17]].)
 
 So did a wondering but submissive Mary: “And Mary said, Behold the handmaid of the Lord; be it unto me according to thy word.” ([[Luke 1.38|Luke 1:38]].)
 
@@ -64,7 +66,7 @@ Suppose Peter had not left his nets “straightway”? (See [[Mark 1.18|Mark 1:1
 
 We have been given three special words—*but if not*—by three submissive young men who entered their fiery furnace, knowing “our God … is able to deliver us from the burning fiery furnace, … *But if not,* be it known unto thee, O king, that we will not serve thy gods.” ([[Daniel 3.17|Dan. 3:17–18]][[Daniel 3.18|]]; italics added.)
 
-Moreover, our prayers should allow for three more special words: “And whatsoever ye shall ask the Father in my name, *which is right,* believing that ye shall receive, behold it shall be given unto you.” ([[3 Nephi 18.20|3 Ne. 18:20]]; italics added.)
+Moreover, our prayers should allow for three more special words: “And whatsoever ye shall ask the Father in my name, *which is right,* believing that ye shall receive, behold it shall be given unto you.” ([[3 Nephi 18.20|3 Ne. 18:20]]; italics added.)
 
 It is only by yielding to God that we can begin to realize His will for us. And if we truly trust God, why not yield to His loving omniscience? After all, He knows us and our possibilities much better than do we.
 
@@ -72,7 +74,7 @@ It is only by yielding to God that we can begin to realize His will for us. And 
 
 Otherwise, one can be too busy promoting his own agendum: “For they being ignorant of God’s righteousness, and going about to establish their own righteousness, have not submitted themselves unto the righteousness of God.” ([[Romans 10.3|Rom. 10:3]].)
 
-Distinguished therefrom is Jesus’ clear call: “Wherefore, seek not the things of this world but seek ye first to build up the kingdom of God, and to establish his righteousness.” ([[JST Matthew 6.38|JST, Matt. 6:38]]; see [[Matthew 6.note33a|Matt. 6:33, note a]].)
+Distinguished therefrom is Jesus’ clear call: “Wherefore, seek not the things of this world but seek ye first to build up the kingdom of God, and to establish his righteousness.” ([[JST Matthew 6.38|JST, Matt. 6:38]]; see [Matt. 6:33, note a](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a).)
 
 While events often induce submissiveness, one’s development need not be dramatic or tied to a single moment; it can occur steadily in seemingly ordinary, daily settings. If we are meek, a rich and needed insight can be contained in reproof. A new calling can beckon us away from comfortable routine and from competencies already acquired. One may be stripped of accustomed luxury in order that the malignant mole of materialism be removed. One may feel humiliated in order that pride be chipped away.
 
@@ -84,7 +86,7 @@ While most of our suffering is self-inflicted, some is caused by or permitted by
 
 For the faithful, what finally emerges is an understanding of “things as they really are” ([[Jacob 4.13|Jacob 4:13]]), such as the reassuring realization that we are in the Lord’s hands! But, brothers and sisters, we were never really anywhere else! Demonstrating this great attitude is our beloved and submissive brother, Bruce R. McConkie.
 
-“Know ye not that ye are in the hands of God?” ([[Mormon 5.23|Morm. 5:23]].) Likewise, “all flesh” ([[D&C 101.16|D&C 101:16]], [[Moses 6.32|Moses 6:32]]) and “the heavens and the earth” ([[D&C 67.2|D&C 67:2]])! Perhaps the realization of being in God’s hands comes fully only as we ponder the significance of the prints in the hands of our submissive Savior. (See [[3 Nephi 11.14|3 Ne. 11:14–15]][[3 Nephi 11.15|]].) Some will have to ask what those wounds are, having been estranged. (See [[D&C 45.51|D&C 45:51–52]][[D&C 45.52|]].) These are they who “regard not the work of the Lord, neither consider the operation of his hands.” ([[2 Nephi 15.12|2 Ne. 15:12]].)
+“Know ye not that ye are in the hands of God?” ([[Mormon 5.23|Morm. 5:23]].) Likewise, “all flesh” ([[D&C 101.16|D&C 101:16]], [[Moses 6.32|Moses 6:32]]) and “the heavens and the earth” ([[D&C 67.2|D&C 67:2]])! Perhaps the realization of being in God’s hands comes fully only as we ponder the significance of the prints in the hands of our submissive Savior. (See [[3 Nephi 11.14|3 Ne. 11:14–15]][[3 Nephi 11.15|]].) Some will have to ask what those wounds are, having been estranged. (See [[D&C 45.51|D&C 45:51–52]][[D&C 45.52|]].) These are they who “regard not the work of the Lord, neither consider the operation of his hands.” ([[2 Nephi 15.12|2 Ne. 15:12]].)
 
 The more we study, pray, and ponder the awesome Atonement, the more we are willing to acknowledge that we are in His and the Father’s hands. Let us ponder, therefore, these final things.
 
@@ -115,8 +117,3 @@ May we now, in our time and turn, be “willing to submit” ([[Mosiah 3.19|Mosi
 
 
 
-
-
-
-
-#Obedience

@@ -1,5 +1,7 @@
 # Rejoice!
 
+Gordon B. Hinckley
+
 By Elder Quentin L. Cook - *Of the Seventy*
 
 *Given in the October session of the 1996 General Conference*
@@ -61,8 +63,3 @@ Brothers and sisters, let us avoid the Saturday morning cartoons of life, partic
 
 
 
-
-
-
-
-#Atonement #Gratitude #Jesus_Christ #Joy #Responsibility #Temples

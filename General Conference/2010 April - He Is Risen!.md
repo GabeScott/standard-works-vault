@@ -1,5 +1,7 @@
 # He Is Risen!
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2010 General Conference*
@@ -121,7 +123,7 @@ As one of His special witnesses on earth today, this glorious Easter Sunday, I d
 
 [^1]: Robert Louis Stevenson, “Requiem,” in *An Anthology of Modern Verse,* ed. A. Methuen (1921), 208.
 
-[^2]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 20.
+[^2]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 20.
 
 [^3]: [[Job 14.14|Job 14:14]].
 
@@ -143,7 +145,7 @@ As one of His special witnesses on earth today, this glorious Easter Sunday, I d
 
 [^12]: [[Luke 24.5|Luke 24:5–6]][[Luke 24.6|]].
 
-[^13]: [[1 Corinthians 15.21|1 Corinthians 15:21–22]][[1 Corinthians 15.22|]].
+[^13]: [[1 Corinthians 15.21|1 Corinthians 15:21–22]][[1 Corinthians 15.22|]].
 
 [^14]: [[D&C 76.22|Doctrine and Covenants 76:22–23]][[D&C 76.23|]].
 
@@ -155,8 +157,3 @@ As one of His special witnesses on earth today, this glorious Easter Sunday, I d
 
 [^18]: “He Is Risen!” *Hymns,* no. 199.
 
-
-
-
-
-#Death #Jesus_Christ #Resurrection

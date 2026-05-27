@@ -1,6 +1,8 @@
 # That He May Become Strong Also
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Jean B. Bingham
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -14,7 +16,7 @@ The Lord grants His power to those in all priesthood offices who worthily serve 
 
 Wilford Woodruff, as President of the Church, described his experience in the offices of the priesthood:
 
-“I heard the first sermon I ever heard in this Church. The next day I was baptized. … I was ordained a Teacher. My mission immediately commenced. … I went through that whole mission as a Teacher. … At the conference I was ordained a Priest. … After I was ordained a Priest I was sent … on a mission to the southern country. That was in the fall of 1834. I had a companion with me, and we started out without purse and scrip. I traveled alone a good many miles and preached the Gospel, and I baptized a number that I could not confirm in the Church, because I was only a Priest. … I traveled some time preaching the Gospel before I was ordained an Elder. …
+“I heard the first sermon I ever heard in this Church. The next day I was baptized. … I was ordained a Teacher. My mission immediately commenced. … I went through that whole mission as a Teacher. … At the conference I was ordained a Priest. … After I was ordained a Priest I was sent … on a mission to the southern country. That was in the fall of 1834. I had a companion with me, and we started out without purse and scrip. I traveled alone a good many miles and preached the Gospel, and I baptized a number that I could not confirm in the Church, because I was only a Priest. … I traveled some time preaching the Gospel before I was ordained an Elder. …
 
 “\[Now\] I have been some fifty-four years a member of the Twelve Apostles. I have traveled with that and other quorums now for sixty years; and I want to say to this assembly that I was just as much sustained by the power of God while holding the office of a Teacher, and especially while officiating in the vineyard as a Priest, as I ever was as an Apostle. There is no difference in this so long as we do our duty.”[^1]
 
@@ -90,14 +92,14 @@ All of us hope that more young men will have experiences like Wilford Woodruff, 
 
 I pray that we will rise to our call to lift others to prepare them for their glorious service. I thank with all my heart the wonderful people who have lifted me and shown me how to love and lift others.
 
-I testify that President Thomas S. Monson holds all the keys of the priesthood on earth at this time. I bear witness that he, over a lifetime of service, has been an example for us all of reaching to lift others as a holder of the Melchizedek Priesthood. I am personally grateful for the way he has lifted me and shown me how to lift others.
+I testify that President Thomas S. Monson holds all the keys of the priesthood on earth at this time. I bear witness that he, over a lifetime of service, has been an example for us all of reaching to lift others as a holder of the Melchizedek Priesthood. I am personally grateful for the way he has lifted me and shown me how to lift others.
 
 God the Father lives. Jesus is the Christ. This is His Church and kingdom. This is His priesthood. I know this for myself by the power of the Holy Ghost. In the name of the Lord Jesus Christ, amen.
 
 
 
 
-[^1]: Wilford Woodruff, “The Rights of the Priesthood,” *Deseret Weekly,* Mar. 17, 1894, 381.
+[^1]: Wilford Woodruff, “The Rights of the Priesthood,” *Deseret Weekly,* Mar. 17, 1894, 381.
 
 [^2]: See [[D&C 84.30|Doctrine and Covenants 84:30]]; [[D&C 107.14|107:14]].
 
@@ -115,8 +117,3 @@ God the Father lives. Jesus is the Christ. This is His Church and kingdom. This 
 
 [^9]: [[D&C 84.106|Doctrine and Covenants 84:106–8]][[D&C 84.107|]][[D&C 84.108|]].
 
-
-
-
-
-#Gratitude #Priesthood #Service

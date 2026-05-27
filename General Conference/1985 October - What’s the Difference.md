@@ -1,5 +1,7 @@
 # What’s the Difference?
 
+Gordon B. Hinckley
+
 By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -36,7 +38,7 @@ I remember a fine minister, visiting Salt Lake City from South Africa, who came 
 
 “Of course,” he replied.
 
-“Then what of those who died without baptism?” I inquired, and he indicated that he had often wondered about that. I asked whether he had overlooked Paul’s teaching: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].) The minister looked at me and quietly said: “Thank you for explaining that doctrine.” I was glad he had been enlightened but sad that he and so many others had failed to see before. Yes, our Father in Heaven loves all of his children and has provided a way for every one of them to return to him.
+“Then what of those who died without baptism?” I inquired, and he indicated that he had often wondered about that. I asked whether he had overlooked Paul’s teaching: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].) The minister looked at me and quietly said: “Thank you for explaining that doctrine.” I was glad he had been enlightened but sad that he and so many others had failed to see before. Yes, our Father in Heaven loves all of his children and has provided a way for every one of them to return to him.
 
 *Question number five: If God loves us so much, why doesn’t he warn us about the evils of alcohol, tobacco, and other drugs?* So many of God’s children degrade themselves by becoming chemically dependent. He is concerned, and in the year 1833 he gave such a warning through the latter-day prophet, Joseph Smith. This health law is called the Word of Wisdom. Oh, that the world would heed this counsel from the Lord through a prophet, for a great part of crime, sickness, and unhappiness in the world is drug related.
 
@@ -71,8 +73,3 @@ Yes, my dear inquiring friend, we will add to the truth you have, for God speaks
 
 
 
-
-
-
-
-#Church_Organization #Missionary_Work #Restoration

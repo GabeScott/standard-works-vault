@@ -1,6 +1,8 @@
 # A Time of Urgency
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -44,7 +46,7 @@ It can be properly and appropriately concluded that the ten virgins represent th
 
 Today thousands of us are in a similar position. Through lack of patience and confidence, preparation has ceased. Others have lulled themselves to sleep to a complacency with the rationalization that midnight will never come. The responsibility for having oil in our personal lamps is an individual requirement and opportunity. The oil of spiritual preparedness cannot be shared. The wise were not unkind or selfish when they refused oil to the foolish in the moment of truth. The kind of oil needed by all of us to light up the darkness and illuminate the way is not shareable. The oil could have been purchased at the market in the parable, but in our lives it is accumulated by righteous living, a drop at a time.
 
-How can one share the blessings that come through visiting the sick? How can one share in the blessings that come from assisting the widow or the fatherless? How can one share a personal testimony? How can one share the blessings of conference attendance? How can one share the lesson of obedience learned in living the principle of tithing? Certainly each must accumulate this kind of oil for himself. Let us not procrastinate. Midnight is so far and yet so close to those who have procrastinated. “But behold, your days of probation are past; ye have procrastinated the day of your salvation until it is everlastingly too late, and your destruction is made sure. …” ([[Helaman 13.38|Hel. 13:38]].)
+How can one share the blessings that come through visiting the sick? How can one share in the blessings that come from assisting the widow or the fatherless? How can one share a personal testimony? How can one share the blessings of conference attendance? How can one share the lesson of obedience learned in living the principle of tithing? Certainly each must accumulate this kind of oil for himself. Let us not procrastinate. Midnight is so far and yet so close to those who have procrastinated. “But behold, your days of probation are past; ye have procrastinated the day of your salvation until it is everlastingly too late, and your destruction is made sure. …” ([[Helaman 13.38|Hel. 13:38]].)
 
 There is an urgency in this day for us to prepare for the coming of the Lord. For you who have heeded the warning and continue in your preparations to accumulate the oil of righteousness in your lamps, great blessings are yours.
 
@@ -56,9 +58,9 @@ It was paid for by our people. It was polished to a fine finish by hands that to
 
 In all of our ward and stake buildings spiritual oil is available. Come and prepare. Join the ward members. Be involved. Don’t simply give—give of yourself. Don’t take without taking part. One who is thinking of others and serving others is filling his lamp with oil. While our worldwide fuel energy crisis is relieved by conservation, quite to the contrary, the spiritual crisis is corrected through use and preparation. I declare to you today that the more you give, the more drops of spiritual oil you will accumulate for yourself.
 
-I am thinking now of a certain home, the home of a neighbor—your friend and mine. He certainly is one whose home is appropriately identified as one carrying the greeting, “Welcome Neighbor—Spiritual Oil Available—Come In As You Are.” I refer to the home of our beloved President Spencer W. Kimball. Wherever you are, wherever you have been, he is your friend. His is a home of prayer. When he prays, we feel the Lord’s power near. Faith precedes his prayers. Those of us who have the great blessing of daily, intimate association with President Kimball have heard him observe in the very recent past that with each passing day, prayer in his life has a new dimension. Prayer is a learning experience. Prayer is a power experience. Prayer is a humbling experience. Prayer is a resource for spiritual fuel. To pray with President Kimball is a spiritual refreshment.
+I am thinking now of a certain home, the home of a neighbor—your friend and mine. He certainly is one whose home is appropriately identified as one carrying the greeting, “Welcome Neighbor—Spiritual Oil Available—Come In As You Are.” I refer to the home of our beloved President Spencer W. Kimball. Wherever you are, wherever you have been, he is your friend. His is a home of prayer. When he prays, we feel the Lord’s power near. Faith precedes his prayers. Those of us who have the great blessing of daily, intimate association with President Kimball have heard him observe in the very recent past that with each passing day, prayer in his life has a new dimension. Prayer is a learning experience. Prayer is a power experience. Prayer is a humbling experience. Prayer is a resource for spiritual fuel. To pray with President Kimball is a spiritual refreshment.
 
-May we not appropriately conclude that though he, Spencer W. Kimball, is a prophet of God, yet learns he to pray by praying. He has wisely told us, “Attendance at sacrament meetings adds oil to our lamps, drop by drop over the years. Fasting, family prayer, home teaching, control of bodily appetites, preaching the gospel, studying the scriptures—each act of dedication and obedience is a drop added to our store. Deeds of kindness, payments of offerings and tithes, chaste thoughts and actions, marriage in the covenant for eternity—these, too, contribute importantly to the oil with which we can at midnight refuel our exhausted lamps.” (Spencer W. Kimball, *Faith Precedes the Miracle,* Deseret Book Co., 1972, p. 256.)
+May we not appropriately conclude that though he, Spencer W. Kimball, is a prophet of God, yet learns he to pray by praying. He has wisely told us, “Attendance at sacrament meetings adds oil to our lamps, drop by drop over the years. Fasting, family prayer, home teaching, control of bodily appetites, preaching the gospel, studying the scriptures—each act of dedication and obedience is a drop added to our store. Deeds of kindness, payments of offerings and tithes, chaste thoughts and actions, marriage in the covenant for eternity—these, too, contribute importantly to the oil with which we can at midnight refuel our exhausted lamps.” (Spencer W. Kimball, *Faith Precedes the Miracle,* Deseret Book Co., 1972, p. 256.)
 
 I bear witness to you that God listens to humble prayer. If he didn’t, he wouldn’t ask us to pray. Part of our worthwhile, urgency prayers today can be a reverent, quiet, listening period. Can we not appropriately say that he that goes to the well of prayer with faith unwavering is daily drawing oil for his lamp? It is also possible to help accumulate our supply in meaningful meditation.
 
@@ -79,8 +81,3 @@ God lives. Jesus is the Christ. He is our Redeemer, and this is His kingdom here
 
 
 
-
-
-
-
-#Jesus_Christ #Preparation

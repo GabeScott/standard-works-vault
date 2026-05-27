@@ -1,6 +1,5 @@
 # Gentiles
 
-
 *See also* [[Israel, Mission of.md|Israel, Mission of]]
 
 isles of the *Gentiles* divided, [[Genesis 10.5|Genesis 10:5]].
@@ -45,11 +44,11 @@ times of the *Gentiles* be fulfilled, [[Luke 21.24|Luke 21:24]].
 
 dispersed among the *Gentiles*, and teach the *Gentiles*, [[John 7.35|John 7:35]].
 
-chosen vessel ... to bear my name before the *Gentiles*, [[Acts 9.15|Acts 9:15]].
+chosen vessel … to bear my name before the *Gentiles*, [[Acts 9.15|Acts 9:15]].
 
 on the *Gentiles* also was poured out the gift, [[Acts 10.45|Acts 10:45]].
 
-apostles ... heard that the *Gentiles* had also received the word of God, [[Acts 11.1|Acts 11:1]].
+apostles … heard that the *Gentiles* had also received the word of God, [[Acts 11.1|Acts 11:1]].
 
 God also to the *Gentiles* granted repentance, [[Acts 11.18|Acts 11:18]].
 
@@ -65,7 +64,7 @@ God had wrought among the *Gentiles* by his ministry, [[Acts 21.19|Acts 21:19]].
 
 salvation of God is sent unto the *Gentiles*, [[Acts 28.28|Acts 28:28]].
 
-fruit among you ... even as among other *Gentiles*, [[Romans 1.13|Romans 1:13]].
+fruit among you … even as among other *Gentiles*, [[Romans 1.13|Romans 1:13]].
 
 to the Jew first, and also to the *Gentile*, [[Romans 2.10|Romans 2:10]].
 
@@ -111,21 +110,21 @@ make himself manifest, by the Holy Ghost, unto the *Gentiles*, [[1 Nephi 10.11|1
 
 These are the nations and kingdoms of the *Gentiles*, [[1 Nephi 13.3|1 Nephi 13:3]].
 
-I saw among ... *Gentiles* the formation of a great church, [[1 Nephi 13.4|1 Nephi 13:4]].
+I saw among … *Gentiles* the formation of a great church, [[1 Nephi 13.4|1 Nephi 13:4]].
 
-*Gentiles* ... went forth out of captivity, [[1 Nephi 13.13|1 Nephi 13:13]] ([[1 Nephi 13.29|1 Nephi 13:29]]).
+*Gentiles* … went forth out of captivity, [[1 Nephi 13.13|1 Nephi 13:13]] ([[1 Nephi 13.29|1 Nephi 13:29]]).
 
 go forth from the Jews in purity unto the *Gentiles*, [[1 Nephi 13.25|1 Nephi 13:25]].
 
-smitten them by the hand of the *Gentiles* ... *Gentiles* do stumble ... merciful unto the *Gentiles*, [[1 Nephi 13.34|1 Nephi 13:34]].
+smitten them by the hand of the *Gentiles* … *Gentiles* do stumble … merciful unto the *Gentiles*, [[1 Nephi 13.34|1 Nephi 13:34]].
 
 if the *Gentiles* shall hearken unto the Lamb of God, [[1 Nephi 14.1|1 Nephi 14:1]].
 
-gospel ... come unto the *Gentiles*, and from the *Gentiles* unto the remnant, [[1 Nephi 15.13|1 Nephi 15:13]].
+gospel … come unto the *Gentiles*, and from the *Gentiles* unto the remnant, [[1 Nephi 15.13|1 Nephi 15:13]].
 
-nursed by the *Gentiles* ... set them up for a standard, [[1 Nephi 22.6|1 Nephi 22:6]].
+nursed by the *Gentiles* … set them up for a standard, [[1 Nephi 22.6|1 Nephi 22:6]].
 
-*Gentiles* ... blessed and numbered among the house of Israel, [[2 Nephi 10.18|2 Nephi 10:18]].
+*Gentiles* … blessed and numbered among the house of Israel, [[2 Nephi 10.18|2 Nephi 10:18]].
 
 many of the *Gentiles* shall say: A Bible! A Bible, [[2 Nephi 29.3|2 Nephi 29:3]].
 
@@ -137,17 +136,17 @@ day when the *Gentiles* shall sin against my gospel, [[3 Nephi 16.10|3 Nephi 16:
 
 wo be unto the *Gentiles* except they repent, [[3 Nephi 21.14|3 Nephi 21:14]].
 
-record ... unto the *Gentiles* from the Jews, [[Mormon 7.8|Mormon 7:8]].
+record … unto the *Gentiles* from the Jews, [[Mormon 7.8|Mormon 7:8]].
 
 stirred up unto repentance, both the *Gentiles* and also the house of Israel, [[D&C 18.6|D&C 18:6]].
 
-great work ... among the *Gentiles*, [[D&C 35.7|D&C 35:7]].
+great work … among the *Gentiles*, [[D&C 35.7|D&C 35:7]].
 
 when the times of the *Gentiles* is come in, [[D&C 45.28|D&C 45:28]].
 
 to go forth among the *Gentiles* for the last time, [[D&C 88.84|D&C 88:84]].
 
-word may go forth unto ... the *Gentiles* first, [[D&C 90.9|D&C 90:9]].
+word may go forth unto … the *Gentiles* first, [[D&C 90.9|D&C 90:9]].
 
 who are identified with the *Gentiles*, [[D&C 109.60|D&C 109:60]].
 

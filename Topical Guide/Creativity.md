@@ -1,4 +1,3 @@
 # Creativity
 
-
-*See* [[Art.md|Art]]; [[Skill.md|Skill]]
+*See also* [[Art.md|Art]]; [[Skill.md|Skill]]

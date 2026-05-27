@@ -1,6 +1,5 @@
 # Despise
 
-
 *See also* [[Abhor.md|Abhor]]; [[Hate.md|Hate]]; [[Loathe.md|Loathe]]
 
 her mistress was *despised* in her, [[Genesis 16.4|Genesis 16:4]].
@@ -11,7 +10,7 @@ he hath *despised* the word of the Lord, [[Numbers 15.31|Numbers 15:31]].
 
 that *despise* me shall be lightly esteemed, [[1 Samuel 2.30|1 Samuel 2:30]].
 
-saw king David leaping ... she *despised* him, [[2 Samuel 6.16|2 Samuel 6:16]] ([[1 Chronicles 15.29|1 Chronicles 15:29]]).
+saw king David leaping … she *despised* him, [[2 Samuel 6.16|2 Samuel 6:16]] ([[1 Chronicles 15.29|1 Chronicles 15:29]]).
 
 hast thou *despised* the commandment, [[2 Samuel 12.9|2 Samuel 12:9]].
 
@@ -45,7 +44,7 @@ mocketh at his father, and *despiseth* to obey, [[Proverbs 30.17|Proverbs 30:17]
 
 *despised* the word of the Holy One of Israel, [[Isaiah 5.24|Isaiah 5:24]] ([[2 Nephi 15.24|2 Nephi 15:24]]).
 
-saith the Lord ... to him whom man *despiseth*, [[Isaiah 49.7|Isaiah 49:7]] ([[1 Nephi 21.7|1 Nephi 21:7]]).
+saith the Lord … to him whom man *despiseth*, [[Isaiah 49.7|Isaiah 49:7]] ([[1 Nephi 21.7|1 Nephi 21:7]]).
 
 *despised* and rejected of men; a man of sorrows, [[Isaiah 53.3|Isaiah 53:3]] ([[Mosiah 14.3|Mosiah 14:3]]).
 
@@ -77,11 +76,11 @@ Let no man *despise* thy youth, [[1 Timothy 4.12|1 Timothy 4:12]].
 
 Let no man *despise* thee, [[Titus 2.15|Titus 2:15]].
 
-He that *despised* Moses' law died without mercy, [[Hebrews 10.28|Hebrews 10:28]].
+He that *despised* Moses’ law died without mercy, [[Hebrews 10.28|Hebrews 10:28]].
 
 ye have *despised* the poor, [[James 2.6|James 2:6]].
 
-them that ... *despise* government, [[2 Peter 2.10|2 Peter 2:10]].
+them that … *despise* government, [[2 Peter 2.10|2 Peter 2:10]].
 
 *despise* dominion, and speak evil of dignities, [[Jude 1.8|Jude 1:8]].
 
@@ -93,9 +92,9 @@ because they are rich they *despise* the poor, [[2 Nephi 9.30|2 Nephi 9:30]].
 
 they *despised* the words of plainness, [[Jacob 4.14|Jacob 4:14]].
 
-they are *despised* ... because of their poverty, [[Alma 32.5|Alma 32:5]].
+they are *despised* … because of their poverty, [[Alma 32.5|Alma 32:5]].
 
-men ... *despise* his words, [[D&C 3.7|D&C 3:7]].
+men … *despise* his words, [[D&C 3.7|D&C 3:7]].
 
 shall be *despised* by those that flattered them, [[D&C 121.20|D&C 121:20]].
 

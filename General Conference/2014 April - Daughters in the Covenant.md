@@ -1,6 +1,8 @@
 # Daughters in the Covenant
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -50,7 +52,7 @@ You have been blessed not only to find the way to make those covenants in this l
 
 You all have felt the blessing of being in the company tonight of daughters of God who are also under covenant to help and direct you as they promised to do. I have seen what you have seen as covenant sisters keep that commitment to comfort and help—and do it with a smile.
 
-I remember the smile of Sister Ruby Haight. She was the wife of Elder David B. Haight, who was a member of the Quorum of the Twelve Apostles. As a young man he served as the president of the Palo Alto stake in California. He prayed over, and worried about, the girls in the Mia Maid class in his own ward.
+I remember the smile of Sister Ruby Haight. She was the wife of Elder David B. Haight, who was a member of the Quorum of the Twelve Apostles. As a young man he served as the president of the Palo Alto stake in California. He prayed over, and worried about, the girls in the Mia Maid class in his own ward.
 
 So President Haight was inspired to ask the bishop to call Ruby Haight to teach those young girls. He knew she would be a witness of God who would lift, comfort, and love the girls in that class.
 
@@ -76,7 +78,7 @@ In missions across the earth, sisters are being called to serve as leaders. The 
 
 Whether or not you serve as a full-time missionary, you can gain the same ability to enrich your marriage and the capacity to raise noble children by following the examples of great women.
 
-Consider Eve, the mother of all living. Elder Russell M. Nelson said this of Eve: “We and all mankind are forever blessed because of Eve’s great courage and wisdom. By partaking of the fruit first, she did what needed to be done. Adam was wise enough to do likewise.”[^4]
+Consider Eve, the mother of all living. Elder Russell M. Nelson said this of Eve: “We and all mankind are forever blessed because of Eve’s great courage and wisdom. By partaking of the fruit first, she did what needed to be done. Adam was wise enough to do likewise.”[^4]
 
 Every daughter of Eve has the potential to bring the same blessing to her family that Eve brought to hers. She was so important in the establishment of families that we have this report of her creation: “And the Gods said: Let us make an help meet for the man, for it is not good that the man should be alone, therefore we will form an help meet for him.”[^5]
 
@@ -94,7 +96,7 @@ I know that Eve faced sorrows and disappointments, but I also know that she foun
 
 I have a sure witness that God the Father watches over you in love. He loves each of you. You are His daughters in the covenant. Because He loves you, He will provide the help that you need to move yourself and others upward along the way back to His presence.
 
-I know that the Savior paid the price of all of our sins and that the Holy Ghost testifies of truth. You have felt that comfort in this meeting. I have a testimony that all the keys which bind sacred covenants have been restored. They are held and exercised today by our living prophet, President Thomas S. Monson. I leave these words of comfort and hope with you, His beloved covenant daughters, in the sacred name of Jesus Christ, amen.
+I know that the Savior paid the price of all of our sins and that the Holy Ghost testifies of truth. You have felt that comfort in this meeting. I have a testimony that all the keys which bind sacred covenants have been restored. They are held and exercised today by our living prophet, President Thomas S. Monson. I leave these words of comfort and hope with you, His beloved covenant daughters, in the sacred name of Jesus Christ, amen.
 
 
 
@@ -103,9 +105,9 @@ I know that the Savior paid the price of all of our sins and that the Holy Ghost
 
 [^2]: [[Mosiah 18.8|Mosiah 18:8–11]][[Mosiah 18.9|]][[Mosiah 18.10|]][[Mosiah 18.11|]].
 
-[^3]: See [[3 Nephi 26.14|3 Nephi 26:14]].
+[^3]: See [[3 Nephi 26.14|3 Nephi 26:14]].
 
-[^4]: Russell M. Nelson, “Constancy amid Change,” *Ensign,* Nov. 1993, 34.
+[^4]: Russell M. Nelson, “Constancy amid Change,” *Ensign,* Nov. 1993, 34.
 
 [^5]: [[Abraham 5.14|Abraham 5:14]].
 
@@ -113,8 +115,3 @@ I know that the Savior paid the price of all of our sins and that the Holy Ghost
 
 [^7]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
-
-
-
-
-#Baptism #Covenants #Sisterhood

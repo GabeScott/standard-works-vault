@@ -1,6 +1,8 @@
 # Your Wonderful Journey Home
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -8,7 +10,7 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2013/04/your-wonderful-journey-home?lang=eng)
 
-We are honored this evening with the presence of President Thomas S. Monson, our beloved prophet. President, we always pray for you.
+We are honored this evening with the presence of President Thomas S. Monson, our beloved prophet. President, we always pray for you.
 
 My dear sisters, thank you for the music and the spoken word. All was so inspiring and so fitting for Easter, the sacred season we celebrate this week.
 
@@ -94,7 +96,7 @@ Of course, simply having a map doesn’t do any good unless you study it—unles
 
 Your map is full of encouraging and instructive messages from your Heavenly Father and His Son Jesus Christ. Today I would like to share with you three of those messages that will help you to have a successful journey back to your heavenly home.
 
-**The first message: “Do not fear, for I the Lord am with you.”**
+**The first message: “Do not fear, for I the Lord am with you.”[^4]**
 
 You are not alone on this journey. Your Heavenly Father knows you. Even when no one else hears you, He hears you. When you rejoice in righteousness, He rejoices with you. When you are beset with trial, He grieves with you.
 
@@ -114,7 +116,7 @@ Life can be difficult, and it can harden hearts to the point where certain peopl
 
 It is not your responsibility to convert anyone. That is the work of the Holy Ghost. Your task is to share your beliefs and to not be afraid. Be a friend to all, but never compromise your standards. Stand true to your convictions and faith. Stand tall, because you are a daughter of God, and He stands with you!
 
-**The second message: “Love one another, as I have loved you.”**
+**The second message: “Love one another, as I have loved you.”[^8]**
 
 Have you ever wondered what language we all spoke when we lived in the presence of God? I have strong suspicions that it was German, though I suppose no one knows for sure. But I do know that in our premortal life we learned firsthand, from the Father of our spirits, a universal language—one that has the power to overcome emotional, physical, and spiritual barriers.
 
@@ -138,7 +140,7 @@ This deep and abiding influence is a language that reaches to the very soul. It 
 
 Learn to use the universal language of Christ’s love.
 
-**And the third message: “Be of good cheer.”**
+**And the third message: “Be of good cheer.”[^10]**
 
 Sometimes we become impatient with where we are in our journey, don’t we? If you are 12 years old, you might wish you were 14. At 14, you might wish you were 18. And at 18, occasionally you might even wish you were 12 again and could start all over.
 
@@ -155,15 +157,15 @@ Dear sisters, dear young women of the Church, dear young friends, as an Apostle 
 
 [^1]: See Charles Dickens, *A Christmas Carol.*
 
-[^2]: See J. R. R. Tolkien, *The Hobbit.*
+[^2]: See J. R. R. Tolkien, *The Hobbit.*
 
 [^3]: See [[John 14.6|John 14:6]].
 
 [^4]: [[D&C 68.6|Doctrine and Covenants 68:6]]; see also [[Isaiah 41.10|Isaiah 41:10]]; [[John 14.18|John 14:18]].
 
-[^5]: See [[1 Samuel 16.7|1 Samuel 16:7]].
+[^5]: See [[1 Samuel 16.7|1 Samuel 16:7]].
 
-[^6]: See [[1 Peter 5.6|1 Peter 5:6–7]][[1 Peter 5.7|]].
+[^6]: See [[1 Peter 5.6|1 Peter 5:6–7]][[1 Peter 5.7|]].
 
 [^7]: See [[Jeremiah 29.13|Jeremiah 29:13]].
 
@@ -171,12 +173,7 @@ Dear sisters, dear young women of the Church, dear young friends, as an Apostle 
 
 [^9]: [[D&C 138.56|Doctrine and Covenants 138:56]].
 
-[^10]: [[D&C 78.18|Doctrine and Covenants 78:18]]; see also [[John 16.33|John 16:33]]; [[3 Nephi 1.13|3 Nephi 1:13]].
+[^10]: [[D&C 78.18|Doctrine and Covenants 78:18]]; see also [[John 16.33|John 16:33]]; [[3 Nephi 1.13|3 Nephi 1:13]].
 
 [^11]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
-
-
-
-
-#Love #Mortality #Plan_Of_Salvation #Premortal_Existence

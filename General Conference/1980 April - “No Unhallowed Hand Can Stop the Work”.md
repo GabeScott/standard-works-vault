@@ -1,6 +1,8 @@
 # “No Unhallowed Hand Can Stop the Work”
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -18,7 +20,7 @@ You will recall, also, our saying last year in general conference and in seminar
 
 Those adjustments, as you have recently learned, now have been made. We are confident that as a result we will indeed see an upsurge in quality family life, in Christian service, and in attendance at Church meetings.
 
-We hope, for instance, that either before or after your series of Sunday meetings, depending upon your particular consolidated meeting schedule, you will do what the Savior asked the Nephite disciples to do: After he taught them, he asked them to go to their homes and to ponder and to pray over what was said (see [[3 Nephi 17.3|3 Ne. 17:3]]). Let us keep that pattern in mind.
+We hope, for instance, that either before or after your series of Sunday meetings, depending upon your particular consolidated meeting schedule, you will do what the Savior asked the Nephite disciples to do: After he taught them, he asked them to go to their homes and to ponder and to pray over what was said (see [[3 Nephi 17.3|3 Ne. 17:3]]). Let us keep that pattern in mind.
 
 We also said last year that we have paused on some plateaus long enough, and then we gave an emphasis to councils—family councils, ward and stake councils, and on through to area and Churchwide councils.
 
@@ -26,7 +28,7 @@ If you continue to observe carefully, you will see how all these developments ar
 
 May we suggest that, in our desire to enrich family life in the Church and to provide more time for Christian service, we make sure we do not overlook the tens of thousands of single Latter-day Saints who do not live in a traditional Latter-day Saint family setting. Please do not neglect these wonderful brothers and sisters.
 
-A year ago it was also observed that “our success … will largely be determined by how faithfully we focus on living the gospel in the home” (Spencer W. Kimball, *Ensign,* May 1979, p. 83). That is surely true and, in like manner, we will be spiritually successful to the degree that we are good neighbors and good friends to those in the household of faith and to our nonmember friends.
+A year ago it was also observed that “our success … will largely be determined by how faithfully we focus on living the gospel in the home” (Spencer W. Kimball, *Ensign,* May 1979, p. 83). That is surely true and, in like manner, we will be spiritually successful to the degree that we are good neighbors and good friends to those in the household of faith and to our nonmember friends.
 
 With the announcement just made of the construction of seven new temples, there begins the most intensive period of temple building in the history of the Church.
 
@@ -51,8 +53,3 @@ Let us, then, press on confidently in the work of the Lord as we look forward to
 
 
 
-
-
-
-
-#Family #Missionary_Work

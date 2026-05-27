@@ -1,6 +1,8 @@
 # “Is Not This the Fast That I Have Chosen?”
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Cheryl A. Esplin
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -48,7 +50,7 @@ It is the law of the fast. The words in the book of Isaiah are the Lord’s desc
 
 So the Lord has given us a simple commandment with a marvelous promise. In the Church today we are offered the opportunity to fast once a month and give a generous fast offering through our bishop or branch president for the benefit of the poor and the needy. Some of what you give will be used to help those around you, perhaps someone in your own family. The Lord’s servants will pray and fast for the revelation to know whom to help and what help to give. That which is not needed to help people in your local Church unit will become available to bless other Church members across the world who are in need.
 
-The commandment to fast for the poor has many blessings attached to it. President Spencer W. Kimball called failing to follow that law a sin of omission with a heavy cost. He wrote: “Rich promises are made by the Lord to those who fast and assist the needy. … Inspiration and spiritual guidance will come with righteousness and closeness to our Heavenly Father. To omit to do this righteous act of fasting would deprive us of these blessings.”[^3]
+The commandment to fast for the poor has many blessings attached to it. President Spencer W. Kimball called failing to follow that law a sin of omission with a heavy cost. He wrote: “Rich promises are made by the Lord to those who fast and assist the needy. … Inspiration and spiritual guidance will come with righteousness and closeness to our Heavenly Father. To omit to do this righteous act of fasting would deprive us of these blessings.”[^3]
 
 I received one of those blessings just a few weeks ago. Since general conference falls on a weekend that would normally include the fast and testimony meeting, I fasted and prayed to know how I should still obey the commandment to care for those in need.
 
@@ -100,11 +102,11 @@ The visitor closed Sister Turay’s scriptures and thought, as he stood with thi
 
 Just as the receipt of the blessing of your fast offering and mine can change hearts, so does fasting for the good of another. Even a child can feel it.
 
-Many children, and some adults, may for personal reasons find a 24-hour fast difficult. It can be, in the words of Isaiah, felt that the fast has “afflicted \[their\] soul.” Wise parents recognize that possibility and so are careful to follow the counsel of President Joseph F. Smith: “Better to teach them the principle, and let them observe it when they are old enough to choose intelligently.”[^12]
+Many children, and some adults, may for personal reasons find a 24-hour fast difficult. It can be, in the words of Isaiah, felt that the fast has “afflicted \[their\] soul.” Wise parents recognize that possibility and so are careful to follow the counsel of President Joseph F. Smith: “Better to teach them the principle, and let them observe it when they are old enough to choose intelligently.”[^12]
 
 I saw the blessing in that counsel recently. One of my grandsons had found a 24-hour fast beyond his powers of endurance. But his wise parents still placed the principle in his heart. One of his school friends recently lost a young cousin to accidental death. My grandson asked his mother on fast day, at about the time he had always felt the fast was too hard to continue, whether it would make his grieving friend feel better if he continued his fast.
 
-His question was the confirmation of President Joseph F. Smith’s counsel. My grandson had come to the point where he not only understood the principle of the fast, but it had also been planted in his heart. He had come to feel that his fasting and prayers would lead to a blessing from God for someone in need. If he lives the principle often enough, it will bring the wonderful effects in his own life, as promised by the Lord. He will have the spiritual blessing of power to receive inspiration and greater capacity to resist temptation.
+His question was the confirmation of President Joseph F. Smith’s counsel. My grandson had come to the point where he not only understood the principle of the fast, but it had also been planted in his heart. He had come to feel that his fasting and prayers would lead to a blessing from God for someone in need. If he lives the principle often enough, it will bring the wonderful effects in his own life, as promised by the Lord. He will have the spiritual blessing of power to receive inspiration and greater capacity to resist temptation.
 
 We do not know all the reasons why Jesus Christ went into the wilderness to fast and to pray. But we know at least one of the effects: the Savior completely resisted Satan’s temptations to misuse His divine power.
 
@@ -123,38 +125,33 @@ I bear my witness that Jesus is the Christ, that in His Church we are invited to
 
 [^2]: [[Isaiah 58.6|Isaiah 58:6–11]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]].
 
-[^3]: Spencer W. Kimball, *The Miracle of Forgiveness* (1969), 98.
+[^3]: Spencer W. Kimball, *The Miracle of Forgiveness* (1969), 98.
 
 [^4]: See Steve Almasy, Ben Brumfield, and Laura Smith-Spark, “Cleanup Begins in Vanuatu after Cyclone Batters Islands,” Mar. 14, 2015, edition.cnn.com.
 
-[^5]: See Sean Morris, Steve Almasy, and Laura Smith-Spark, “‘Unbelievable Destruction’ Reported in Tropical Cyclone Pam’s Wake,” Mar. 14, 2015, edition.cnn.com.
+[^5]: See Sean Morris, Steve Almasy, and Laura Smith-Spark, “‘Unbelievable Destruction’ Reported in Tropical Cyclone Pam’s Wake,” Mar. 14, 2015, edition.cnn.com.
 
-[^6]: Peter F. Evans, “Sister Abie Turay’s Story,” unpublished manuscript.
+[^6]: Peter F. Evans, “Sister Abie Turay’s Story,” unpublished manuscript.
 
-[^7]: Peter F. Evans, “Sister Abie Turay’s Story.”
+[^7]: Peter F. Evans, “Sister Abie Turay’s Story.”
 
-[^8]: Abie Turay, quoted in Peter F. Evans, “Sister Abie Turay’s Story.”
+[^8]: Abie Turay, quoted in Peter F. Evans, “Sister Abie Turay’s Story.”
 
-[^9]: Peter F. Evans, “Sister Abie Turay’s Story.”
+[^9]: Peter F. Evans, “Sister Abie Turay’s Story.”
 
-[^10]: Abie Turay, quoted in Peter F. Evans, “Sister Abie Turay’s Story.”
+[^10]: Abie Turay, quoted in Peter F. Evans, “Sister Abie Turay’s Story.”
 
-[^11]: Peter F. Evans, “Sister Abie Turay’s Story”; a video about Sister Turay, “We Did Not Stand Alone,” is available at  
+[^11]: Peter F. Evans, “Sister Abie Turay’s Story”; a video about Sister Turay, “We Did Not Stand Alone,” is available at 
 
 
 
-lds.org/media-library  
+lds.org/media-library 
 
 
 
 .
 
-[^12]: Joseph F. Smith, “Editor’s Table,” *Improvement Era,* Dec. 1903, 149.
+[^12]: Joseph F. Smith, “Editor’s Table,” *Improvement Era,* Dec. 1903, 149.
 
 [^13]: [[Isaiah 58.8|Isaiah 58:8–9]][[Isaiah 58.9|]].
 
-
-
-
-
-#Blessings #Fasting #Service #Tithing

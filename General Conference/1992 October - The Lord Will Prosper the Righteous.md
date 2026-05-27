@@ -1,5 +1,7 @@
 # The Lord Will Prosper the Righteous
 
+Gordon B. Hinckley
+
 By Elder Dean L. Larsen - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -24,11 +26,11 @@ The scriptures contain many evidences of the Lord’s willingness to prosper his
 
 When the people of Lehi arrived in the Americas from the Old World, they felt a great dependence upon the Lord as they established their homes and worked to provide for themselves. Nephi makes this entry in his record:
 
-“And we did observe to keep the judgments, and the statutes, and the commandments of the Lord in all things. …
+“And we did observe to keep the judgments, and the statutes, and the commandments of the Lord in all things. …
 
-“And the Lord was with us; and we did prosper exceedingly; for we did sow seed, and we did reap again in abundance. And we began to raise flocks, and herds, and animals of every kind. …
+“And the Lord was with us; and we did prosper exceedingly; for we did sow seed, and we did reap again in abundance. And we began to raise flocks, and herds, and animals of every kind. …
 
-“And it came to pass that we began to prosper exceedingly, and to multiply in the land” ([[2 Nephi 5.10|2 Ne. 5:10–11, 13]][[2 Nephi 5.11|]][[2 Nephi 5.13|]]).
+“And it came to pass that we began to prosper exceedingly, and to multiply in the land” ([[2 Nephi 5.10|2 Ne. 5:10–11, 13]][[2 Nephi 5.11|]][[2 Nephi 5.13|]]).
 
 This kind of material prosperity has always been a fragile thing. It has proved to be one of the greatest tests with which a people can be confronted. The essential human qualities and other factors that generate abundance have always been difficult to sustain. We see this reflected in an episode that is described in the first chapter of Alma in the Book of Mormon.
 
@@ -38,7 +40,7 @@ As I read several of the verses from this account, make particular note of the e
 
 “And they did impart of their substance, every man according to that which he had, to the poor, and the needy, and the sick, and the afflicted; and they did not wear costly apparel, yet they were neat and comely.
 
-“And thus they did establish the affairs of the church; and thus they began to have continual peace. …
+“And thus they did establish the affairs of the church; and thus they began to have continual peace. …
 
 “And now, because of the steadiness of the church they began to be exceedingly rich, having abundance of all things whatsoever they stood in need—an abundance of flocks and herds, and fatlings of every kind, and also abundance of grain, and of gold, and of silver, and of precious things, and abundance of silk and fine-twined linen, and all manner of good homely cloth.
 
@@ -56,19 +58,19 @@ It has always been so. When the lives of the people are in harmony with the Lord
 
 Perhaps the greatest tragedies of all time have occurred when people have received the promised blessings of the Lord and then have forgotten the source of their good life. Moses cautioned the people of Israel against this natural inclination when he said:
 
-“Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes. …
+“Beware that thou forget not the Lord thy God, in not keeping his commandments, and his judgments, and his statutes. …
 
 “Lest when thou hast eaten and art full, and hast built goodly houses, and dwelt therein;
 
 “And when thy herds and thy flocks multiply, and thy silver and thy gold is multiplied, and all that thou hast is multiplied;
 
-“Then thine heart be lifted up, and thou forget the Lord thy God, …
+“Then thine heart be lifted up, and thou forget the Lord thy God, …
 
 “And thou say in thine heart, My power and the might of *mine* hand hath gotten me this wealth” ([[Deuteronomy 8.11|Deut. 8:11–14, 17]][[Deuteronomy 8.12|]][[Deuteronomy 8.13|]][[Deuteronomy 8.14|]][[Deuteronomy 8.17|]]; emphasis added).
 
 Returning to the account in Alma to which I made earlier reference, not many years passed away from the time of prosperity described in such glowing terms until the people began to take all of the credit for the good times unto themselves. We find this sad entry in Alma’s record:
 
-“And it came to pass in the eighth year of the reign of the judges, that the people of the church began to wax proud, because of their exceeding riches, and their fine silks, and their fine-twined linen, and because of their many flocks and herds, and their gold and their silver, and all manner of precious things, which they had obtained by their industry; and in all these things were they lifted up in the pride of their eyes. …
+“And it came to pass in the eighth year of the reign of the judges, that the people of the church began to wax proud, because of their exceeding riches, and their fine silks, and their fine-twined linen, and because of their many flocks and herds, and their gold and their silver, and all manner of precious things, which they had obtained by their industry; and in all these things were they lifted up in the pride of their eyes. …
 
 “The people of the church began … to set their hearts upon riches and upon the vain things of the world, that they began to be scornful, one towards another” ([[Alma 4.6|Alma 4:6, 8]][[Alma 4.8|]]).
 
@@ -103,8 +105,3 @@ As the world continues to ripen in iniquity, our lives of necessity must become 
 
 
 
-
-
-
-
-#Blessings #Obedience #Pride

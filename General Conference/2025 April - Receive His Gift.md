@@ -1,5 +1,7 @@
 # Receive His Gift
 
+Dallin H. Oaks
+
 By Elder Patrick Kearon - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
@@ -79,23 +81,23 @@ You *are* a child of God. This is not just a nice song we sing.[^16] Will you pl
 
 [^4]: [[Ether 12.11|Ether 12:11.]]
 
-[^5]: See [[Romans 8.16|Romans 8:16]]; [[1 Nephi 11.17|1 Nephi 11:17]].
+[^5]: See [[Romans 8.16|Romans 8:16]]; [[1 Nephi 11.17|1 Nephi 11:17]].
 
-[^6]: See [[John 3.16|John 3:16–17; ]][[John 3.17|]][[1 Nephi 17.36|1 Nephi 17:36]]; [[3 Nephi 14.9|3 Nephi 14:9–11.]][[3 Nephi 14.10|]][[3 Nephi 14.11|]]
+[^6]: See [[John 3.16|John 3:16–17;]][[John 3.17|]] [[1 Nephi 17.36|1 Nephi 17:36]]; [[3 Nephi 14.9|3 Nephi 14:9–11.]][[3 Nephi 14.10|]][[3 Nephi 14.11|]]
 
 [^7]: See [[Jeremiah 1.5|Jeremiah 1:5]].
 
-[^8]: See [[Romans 6.23|Romans 6:23]]; [[1 John 5.7|1 John 5:7, 11, 14]][[1 John 5.11|]][[1 John 5.14|]]; [[3 Nephi 9.14|3 Nephi 9:14]]; [[D&C 14.7|Doctrine and Covenants 14:7]]; [[D&C 66.12|66:12]].
+[^8]: See [[Romans 6.23|Romans 6:23]]; [[1 John 5.7|1 John 5:7, 11, 14]][[1 John 5.11|]][[1 John 5.14|]]; [[3 Nephi 9.14|3 Nephi 9:14]]; [[D&C 14.7|Doctrine and Covenants 14:7]]; [[D&C 66.12|66:12]].
 
 [^9]: [[D&C 88.33|Doctrine and Covenants 88:33]].
 
 [^10]: See [[Psalms 82.6|Psalm 82:6]].
 
-[^11]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^11]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^12]: “The way you think about who you really are affects almost every decision you will ever make” (Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p30#p30)” \[worldwide devotional for young adults, May 15, 2022\], Gospel Library).
+[^12]: “The way you think about who you really are affects almost every decision you will ever make” (Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p30#p30)” \[worldwide devotional for young adults, May 15, 2022\], Gospel Library).
 
-[^13]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^13]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^14]: [[Moroni 10.8|Moroni 10:8, 30.]][[Moroni 10.30|]]
 
@@ -105,10 +107,5 @@ You *are* a child of God. This is not just a nice song we sing.[^16] Will you pl
 
 [^17]: See [[Ether 12.11|Ether 12:11.]]
 
-[^18]: See [[2 Nephi 2.25|2 Nephi 2:25.]]
+[^18]: See [[2 Nephi 2.25|2 Nephi 2:25.]]
 
-
-
-
-
-#Divine_Nature #God_The_Father #Jesus_Christ #Love

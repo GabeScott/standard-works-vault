@@ -1,6 +1,8 @@
 # The Mystery of Life
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+Gordon B. Hinckley
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -157,8 +159,3 @@ God bless us that we and all who will hear His message can celebrate the Light! 
 
 
 
-
-
-
-
-#Premortal_Existence

@@ -1,7 +1,6 @@
 # See, Saw, Seen
 
-
-*See also* [[Behold, Beheld.md|Behold]]; [[Look.md|Look]]; [[Observe.md|Observe]]; [[Watch, Watchfulness.md|Watch]]
+*See also* [[Behold.md|Behold]]; [[Look.md|Look]]; [[Observe.md|Observe]]; [[Watch.md|Watch]]
 
 I have *seen* God face to face, [[Genesis 32.30|Genesis 32:30]].
 
@@ -13,9 +12,9 @@ there shall no man *see* me, and live, [[Exodus 33.20|Exodus 33:20]].
 
 they shall not *see* the land which I sware, [[Numbers 14.23|Numbers 14:23]].
 
-Caleb ... shall *see* it, [[Deuteronomy 1.36|Deuteronomy 1:36]].
+Caleb … shall *see* it, [[Deuteronomy 1.36|Deuteronomy 1:36]].
 
-gods ... which neither *see*, nor hear, [[Deuteronomy 4.28|Deuteronomy 4:28]].
+gods … which neither *see*, nor hear, [[Deuteronomy 4.28|Deuteronomy 4:28]].
 
 I have *seen* an angel of the Lord, [[Judges 6.22|Judges 6:22]].
 
@@ -63,9 +62,9 @@ he shall *see* his seed, [[Isaiah 53.10|Isaiah 53:10]] ([[Mosiah 14.10|Mosiah 14
 
 Gentiles shall *see* thy righteousness, [[Isaiah 62.2|Isaiah 62:2]].
 
-neither hath the eye *seen* ... what he hath prepared, [[Isaiah 64.4|Isaiah 64:4]] ([[1 Corinthians 2.9|1 Corinthians 2:9]]).
+neither hath the eye *seen* … what he hath prepared, [[Isaiah 64.4|Isaiah 64:4]] ([[1 Corinthians 2.9|1 Corinthians 2:9]]).
 
-foolish people ... which have eyes, and *see* not, [[Jeremiah 5.21|Jeremiah 5:21]].
+foolish people … which have eyes, and *see* not, [[Jeremiah 5.21|Jeremiah 5:21]].
 
 we have *seen* his star, [[Matthew 2.2|Matthew 2:2]].
 
@@ -77,13 +76,13 @@ do not your alms before men, to be *seen* of them, [[Matthew 6.1|Matthew 6:1]].
 
 Father which *seeth* in secret, [[Matthew 6.4|Matthew 6:4]] ([[3 Nephi 13.6|3 Nephi 13:6]]).
 
-shew John ... those things which ye do hear and *see*, [[Matthew 11.4|Matthew 11:4]] ([[Luke 7.22|Luke 7:22]]).
+shew John … those things which ye do hear and *see*, [[Matthew 11.4|Matthew 11:4]] ([[Luke 7.22|Luke 7:22]]).
 
 Master, we would *see* a sign from thee, [[Matthew 12.38|Matthew 12:38]].
 
 because they seeing *see* not, [[Matthew 13.13|Matthew 13:13]] ([[Luke 8.10|Luke 8:10]]).
 
-multitude wondered, when they *saw* ... the blind to *see*, [[Matthew 15.31|Matthew 15:31]] ([[Luke 7.22|Luke 7:22]]).
+multitude wondered, when they *saw* … the blind to *see*, [[Matthew 15.31|Matthew 15:31]] ([[Luke 7.22|Luke 7:22]]).
 
 not taste of death, till they *see* the Son of man, [[Matthew 16.28|Matthew 16:28]] ([[Mark 9.1|Mark 9:1]]; [[Luke 9.27|Luke 9:27]]).
 
@@ -99,7 +98,7 @@ Having eyes, *see* ye not, [[Mark 8.18|Mark 8:18]].
 
 I *see* men as trees, walking, [[Mark 8.24|Mark 8:24]].
 
-he should not *see* death, before he had *seen* the Lord's Christ, [[Luke 2.26|Luke 2:26]].
+he should not *see* death, before he had *seen* the Lord’s Christ, [[Luke 2.26|Luke 2:26]].
 
 mine eyes have *seen* thy salvation, [[Luke 2.30|Luke 2:30]].
 
@@ -115,7 +114,7 @@ Except a man be born again, he cannot *see* the kingdom, [[John 3.3|John 3:3]].
 
 Son can do nothing of himself, but what he *seeth* the Father do, [[John 5.19|John 5:19]].
 
-Ye have neither heard his voice ... nor *seen* his shape, [[John 5.37|John 5:37]].
+Ye have neither heard his voice … nor *seen* his shape, [[John 5.37|John 5:37]].
 
 which is of God, he hath *seen* the Father, [[John 6.46|John 6:46]].
 
@@ -127,7 +126,7 @@ Abraham rejoiced to *see* my day, [[John 8.56|John 8:56]].
 
 whereas I was blind, now I *see*, [[John 9.25|John 9:25]].
 
-I am come ... that they which *see* not might *see*, [[John 9.39|John 9:39]].
+I am come … that they which *see* not might *see*, [[John 9.39|John 9:39]].
 
 said Esaias, when he *saw* his glory, [[John 12.41|John 12:41]].
 
@@ -147,7 +146,7 @@ because thou hast *seen* me, thou hast believed, [[John 20.29|John 20:29]].
 
 cannot but speak the things which we have *seen*, [[Acts 4.20|Acts 4:20]].
 
-I *see* ... the Son of man standing on the right hand of God, [[Acts 7.56|Acts 7:56]] ([[Acts 7.55|Acts 7:55]]).
+I *see* … the Son of man standing on the right hand of God, [[Acts 7.56|Acts 7:56]] ([[Acts 7.55|Acts 7:55]]).
 
 declared unto them how he had *seen* the Lord, [[Acts 9.27|Acts 9:27]].
 
@@ -157,13 +156,13 @@ he was *seen* of Cephas, [[1 Corinthians 15.5|1 Corinthians 15:5]].
 
 he was *seen* of above five hundred, [[1 Corinthians 15.6|1 Corinthians 15:6]].
 
-things which are *seen* are temporal ... not *seen* are eternal, [[2 Corinthians 4.18|2 Corinthians 4:18]].
+things which are *seen* are temporal … not *seen* are eternal, [[2 Corinthians 4.18|2 Corinthians 4:18]].
 
 whom no man hath *seen*, nor can *see*, [[1 Timothy 6.16|1 Timothy 6:16]].
 
 we *see* Jesus, who was made a little lower than the angels, [[Hebrews 2.9|Hebrews 2:9]].
 
-faith ... the evidence of things not *seen*, [[Hebrews 11.1|Hebrews 11:1]].
+faith … the evidence of things not *seen*, [[Hebrews 11.1|Hebrews 11:1]].
 
 holiness, without which no man shall *see* the Lord, [[Hebrews 12.14|Hebrews 12:14]].
 
@@ -213,7 +212,7 @@ I have *seen* Jesus, and that he hath talked with me, [[Ether 12.39|Ether 12:39]
 
 no eye that shall not *see*, [[D&C 1.2|D&C 1:2]].
 
-they ... shall *see* me, [[D&C 35.21|D&C 35:21]] ([[D&C 50.45|D&C 50:45]]).
+they … shall *see* me, [[D&C 35.21|D&C 35:21]] ([[D&C 50.45|D&C 50:45]]).
 
 I am in your midst and ye cannot *see* me, [[D&C 38.7|D&C 38:7]].
 
@@ -223,11 +222,11 @@ He who hath faith to *see* shall *see*, [[D&C 42.49|D&C 42:49]].
 
 they that have laughed shall *see* their folly, [[D&C 45.49|D&C 45:49]].
 
-poor who are pure in heart ... shall *see* the kingdom of God, [[D&C 56.18|D&C 56:18]].
+poor who are pure in heart … shall *see* the kingdom of God, [[D&C 56.18|D&C 56:18]].
 
 veil shall be rent and you shall *see* me, [[D&C 67.10|D&C 67:10]].
 
-no man has *seen* God ... in the flesh, except quickened by the Spirit, [[D&C 67.11|D&C 67:11]].
+no man has *seen* God … in the flesh, except quickened by the Spirit, [[D&C 67.11|D&C 67:11]].
 
 we *saw* him, even on the right hand of God, [[D&C 76.23|D&C 76:23]].
 
@@ -241,7 +240,7 @@ ye cannot *see* it now, yet a little while and ye shall *see* it, [[D&C 84.119|D
 
 days will come that you shall *see* him, [[D&C 88.68|D&C 88:68]].
 
-forsaketh his sins ... shall *see* my face, [[D&C 93.1|D&C 93:1]].
+forsaketh his sins … shall *see* my face, [[D&C 93.1|D&C 93:1]].
 
 pure in heart that shall come into it shall *see* God, [[D&C 97.16|D&C 97:16]].
 

@@ -1,5 +1,7 @@
 # One by One
 
+Gordon B. Hinckley
+
 By Elder Ronald A. Rasband - *Of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -18,11 +20,11 @@ I express my love and gratitude to my dear eternal companion and choice family f
 
 Throughout my life, I have come to know through my own experiences that Heavenly Father hears and answers our personal prayers. I know that Jesus is the living Christ and that He knows each of us individually, or, as the scriptures express it, “one by one.”
 
-This sacred assurance is taught compassionately by the Savior Himself in His appearance to the people of Nephi. We read of this in [[3 Nephi 11.15|3 Nephi, chapter 11, verse 15]]:
+This sacred assurance is taught compassionately by the Savior Himself in His appearance to the people of Nephi. We read of this in [[3 Nephi 11.15|3 Nephi, chapter 11, verse 15]]:
 
 “And it came to pass that the multitude went forth, and thrust their hands into his side, and did feel the prints of the nails in his hands and in his feet; and this they did do, going forth *one by one* until they had all gone forth” (emphasis added).
 
-To further illustrate the “one by one” nature of our Savior’s ministry, we read in [[3 Nephi 17.9|3 Nephi, chapter 17, verse 9]]:
+To further illustrate the “one by one” nature of our Savior’s ministry, we read in [[3 Nephi 17.9|3 Nephi, chapter 17, verse 9]]:
 
 “And it came to pass that when he had thus spoken, all the multitude, with one accord, did go forth with their sick and their afflicted, and their lame, and with their blind, and with their dumb, and with all them that were afflicted in any manner; and he did heal them *every one* as they were brought forth unto him” (emphasis added).
 
@@ -51,8 +53,3 @@ I share this witness and hope, in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Children #Friendship #Holy_Ghost #Individual_Worth #Jesus_Christ #Love #Prayer

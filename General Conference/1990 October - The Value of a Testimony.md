@@ -1,5 +1,7 @@
 # The Value of a Testimony
 
+Gordon B. Hinckley
+
 By Elder Helvécio Martins - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -32,7 +34,7 @@ But a testimony is not a work that is merely completed and concluded. Indeed, it
 
 John Taylor, still a newly called elder of the Church, arrived in Kirtland while the fierce winds of apostasy were raging. Parley P. Pratt reported to him the rumors murmured against Joseph Smith. John Taylor answered:
 
-“The principles you taught me led to \[the Lord\], and I now have the same testimony that you then rejoiced in. If the work was true six months ago, it is true today; if Joseph Smith was then a prophet, he is now a prophet” (in B. H. Roberts, *The Life of John Taylor* \[Salt Lake City: Bookcraft, 1963\], pp. 39–40).
+“The principles you taught me led to \[the Lord\], and I now have the same testimony that you then rejoiced in. If the work was true six months ago, it is true today; if Joseph Smith was then a prophet, he is now a prophet” (in B. H. Roberts, *The Life of John Taylor* \[Salt Lake City: Bookcraft, 1963\], pp. 39–40).
 
 In the same way, Ammon and his brothers “had waxed strong in the knowledge of the truth; for they were men of a sound understanding and they had searched the scriptures diligently, that they might know the word of God.
 
@@ -42,7 +44,7 @@ A testimony should not be hidden. It must be shared (see [[D&C 62.3|D&C 62:3]]; 
 
 In a remarkable address during the April session of general conference in 1973, President Harold B. Lee said:
 
-“For the strength of the Church is not in the numbers, nor in the amount of tithes and offerings paid by faithful members, nor in the magnitude of chapels and temple buildings, but because in the hearts of faithful members of the Church is the conviction that this is indeed the Church and kingdom of God on the earth” (in Conference Report, Apr. 1973, p. 9; or *Ensign,* July 1973, p. 6).
+“For the strength of the Church is not in the numbers, nor in the amount of tithes and offerings paid by faithful members, nor in the magnitude of chapels and temple buildings, but because in the hearts of faithful members of the Church is the conviction that this is indeed the Church and kingdom of God on the earth” (in Conference Report, Apr. 1973, [[1973 April - Strengthen the Stakes of Zion.md|p. 9]]; or *Ensign,* July 1973, p. 6).
 
 Brothers and sisters, I am absolutely sure that you can imagine how long my journey was to arrive here. But I ask if you know what brings me here? And I hasten to answer: my testimony.
 
@@ -57,8 +59,3 @@ This testimony I witness unto you with all my heart, in the name of Jesus Christ
 
 
 
-
-
-
-
-#Missionary_Work #Testimony

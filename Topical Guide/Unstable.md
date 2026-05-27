@@ -1,6 +1,5 @@
 # Unstable
 
-
 *Unstable* as water, thou shalt not excel, [[Genesis 49.4|Genesis 49:4]].
 
 double minded man is *unstable* in all his ways, [[James 1.8|James 1:8]].

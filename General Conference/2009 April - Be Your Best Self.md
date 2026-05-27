@@ -1,5 +1,7 @@
 # Be Your Best Self
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2009 General Conference*
@@ -12,7 +14,7 @@ My beloved brethren of the priesthood assembled here in this full Conference Cen
 
 Brethren, our responsibilities as bearers of the priesthood are most significant, as outlined in the Doctrine and Covenants: “The power and authority of the higher, or Melchizedek Priesthood, is to hold the keys of all the spiritual blessings of the church.”[^1] And further, “The power and authority of the lesser, or Aaronic Priesthood, is to hold the keys of the ministering of angels, and to administer in outward ordinances, the letter of the gospel, the baptism of repentance for the remission of sins, agreeable to the covenants and commandments.”[^2]
 
-In 1958 Elder Harold B. Lee, who later served as the 11th President of the Church, described the priesthood as “the Lord’s … troops against the forces of evil.”[^3]
+In 1958 Elder Harold B. Lee, who later served as the 11th President of the Church, described the priesthood as “the Lord’s … troops against the forces of evil.”[^3]
 
 President John Taylor stated that “the power manifested by the priesthood is simply the power of God.”[^4]
 
@@ -22,7 +24,7 @@ In the world today we face difficulties and challenges, some of which can seem t
 
 Now to you who hold the Aaronic Priesthood, may I say that I sincerely hope each of you is aware of the significance of your priesthood ordination. Yours is a vital role in the life of every member of your ward as you participate in the administration and passing of the sacrament each Sunday.
 
-I had the privilege to serve as the secretary of my deacons quorum. I recall the many assignments we members of that quorum had the opportunity to fill. Passing the sacred sacrament, collecting the monthly fast offerings, and looking after one another come readily to mind. The most frightening one, however, happened at the leadership session of our ward conference. The member of our stake presidency who was presiding called on a number of the ward officers to speak. They did so. Then, without the slightest warning, he stood and said, “We will now call on one of our younger ward officers, Thomas S. Monson, secretary of the deacons quorum, to give us an accounting of his service and to bear his testimony.” I don’t remember a single thing I said, but I have never forgotten the experience or the lesson that it taught me. It was the Apostle Peter who said, “Be ready always to give an answer to every man that asketh you a reason of the hope that is in you.”[^5]
+I had the privilege to serve as the secretary of my deacons quorum. I recall the many assignments we members of that quorum had the opportunity to fill. Passing the sacred sacrament, collecting the monthly fast offerings, and looking after one another come readily to mind. The most frightening one, however, happened at the leadership session of our ward conference. The member of our stake presidency who was presiding called on a number of the ward officers to speak. They did so. Then, without the slightest warning, he stood and said, “We will now call on one of our younger ward officers, Thomas S. Monson, secretary of the deacons quorum, to give us an accounting of his service and to bear his testimony.” I don’t remember a single thing I said, but I have never forgotten the experience or the lesson that it taught me. It was the Apostle Peter who said, “Be ready always to give an answer to every man that asketh you a reason of the hope that is in you.”[^5]
 
 In an earlier generation, the Lord gave this promise to holders of the priesthood: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up.”[^6]
 
@@ -99,15 +101,15 @@ The strength which we earnestly seek in order to meet the challenges of a comple
 
 [^2]: [[D&C 107.20|D&C 107:20]].
 
-[^3]: Harold B. Lee, “Priesthood” (address to seminary and institute personnel, Brigham Young University, July 17, 1958), 1.
+[^3]: Harold B. Lee, “Priesthood” (address to seminary and institute personnel, Brigham Young University, July 17, 1958), 1.
 
-[^4]: John Taylor, *The Gospel Kingdom,* sel. G. Homer Durham (1943), 130.
+[^4]: John Taylor, *The Gospel Kingdom,* sel. G. Homer Durham (1943), 130.
 
-[^5]: [[1 Peter 3.15|1 Peter 3:15]].
+[^5]: [[1 Peter 3.15|1 Peter 3:15]].
 
 [^6]: [[D&C 84.88|D&C 84:88]].
 
-[^7]: [[1 Nephi 15.24|1 Nephi 15:24–25]][[1 Nephi 15.25|]].
+[^7]: [[1 Nephi 15.24|1 Nephi 15:24–25]][[1 Nephi 15.25|]].
 
 [^8]: [[James 1.5|James 1:5]].
 
@@ -115,8 +117,3 @@ The strength which we earnestly seek in order to meet the challenges of a comple
 
 [^10]: [[Joshua 24.15|Joshua 24:15]].
 
-
-
-
-
-#Blessings #Prayer #Priesthood #Scripture_Study

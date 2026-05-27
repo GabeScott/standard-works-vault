@@ -1,4 +1,3 @@
 # Bethesda
 
-
-*See* [BD Bethesda](https://www.churchofjesuschrist.org/study/scriptures/bd/bethesda?lang=eng)
+*See also* [[BD Bethesda.md|BD Bethesda]]

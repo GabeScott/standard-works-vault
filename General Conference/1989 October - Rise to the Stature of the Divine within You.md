@@ -1,5 +1,7 @@
 # Rise to the Stature of the Divine within You
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -28,11 +30,11 @@ I had taken a briefcase filled with papers to read on the long ride to and from.
 
 My heart reaches out to the writers of these letters, and to many others who by the circumstances in which they find themselves feel oppressed and smothered—all but destroyed. I regret that there are some men who are egotistical and evil, who are insensitive and even brutal. They are to be both condemned and pitied. I believe that any man who offends a daughter of God will someday be held accountable, and the time will come when he will stand before the bar of judgment with sorrow and remorse. But this is material for another talk, and that to the men of the Church.
 
-To you women, I wish to issue a challenge tonight. That challenge is to rise to the stature of the divine within you. As you have been reminded, yours is a godly inheritance. “I am a child of God” is not an idle or meaningless statement. You were there “when the morning stars sang together, and all the sons \[and daughters\] of God shouted for joy.” ([[Job 38.7|Job 38:7]].) You brought some of that inheritance with you when you came “trailing clouds of glory … from God who is our home.” (William Wordsworth, “Ode: Intimations of Immortality from Recollections of Early Childhood,” st. 5.) You were there when “there was war in heaven: Michael and his angels fought against the dragon. …
+To you women, I wish to issue a challenge tonight. That challenge is to rise to the stature of the divine within you. As you have been reminded, yours is a godly inheritance. “I am a child of God” is not an idle or meaningless statement. You were there “when the morning stars sang together, and all the sons \[and daughters\] of God shouted for joy.” ([[Job 38.7|Job 38:7]].) You brought some of that inheritance with you when you came “trailing clouds of glory … from God who is our home.” (William Wordsworth, “Ode: Intimations of Immortality from Recollections of Early Childhood,” st. 5.) You were there when “there was war in heaven: Michael and his angels fought against the dragon. …
 
 “And the great dragon was cast out, that old serpent, called the Devil, and Satan, which deceiveth the whole world: he was cast out into the earth, and his angels were cast out with him.” ([[Revelation 12.7|Rev. 12:7, 9]][[Revelation 12.9|]].) You were among those who chose to follow the plan of Him who became our Redeemer rather than the plan of him who became our adversary. Great and marvelous is your place in the plan of God our Eternal Father.
 
-Is there anything more beautiful, anything that speaks more of divinity than a lovely little girl? I have little granddaughters, bright-eyed and beautiful, who sing and smile and touch my heart with thoughts of heaven. When I see them in their innocence, I recall the words of the Lord, “Except ye … become as little children, ye shall not enter into the kingdom of heaven.” ([[Matthew 18.3|Matt. 18:3]]; see also [[3 Nephi 11.37|3 Ne. 11:37–38]][[3 Nephi 11.38|]].)
+Is there anything more beautiful, anything that speaks more of divinity than a lovely little girl? I have little granddaughters, bright-eyed and beautiful, who sing and smile and touch my heart with thoughts of heaven. When I see them in their innocence, I recall the words of the Lord, “Except ye … become as little children, ye shall not enter into the kingdom of heaven.” ([[Matthew 18.3|Matt. 18:3]]; see also [[3 Nephi 11.37|3 Ne. 11:37–38]][[3 Nephi 11.38|]].)
 
 I see young women, radiant in the beauty of youth, whose virtue is more precious than rubies—young women who are bright and who study with enthusiasm and diligence to learn the word of the Lord and also to equip themselves to take their places with honor and ability in the world in which they will live. I see young women who know the word of God and can quote it; who know the standards of the Church and live by them; who have a sense of worth and a wondrous sensitivity to the beauties of life and nature, music and art; who treasure truth and seek to enlarge their understanding of it; who have determined that worthiness to enter the house of the Lord for a divine endowment and an eternal sealing is the most desirable of all goals. Can anyone doubt that there is something divine within such?
 
@@ -70,17 +72,17 @@ Third, may I suggest that you walk with prayer and faith, with charity and love.
 
 One of the darkest chapters in the history of our people occurred in 1838 when they were being driven from Missouri. The incident to which I refer is known as the Haun’s Mill Massacre. In that tragic happening Amanda Smith lost her husband and her son Sardius. Her younger boy Alma was savagely wounded. In the darkness she carried him from the mill to a shelter in the brush. His hip joint had been shot away. Through the night she cried out in prayer, “Oh my Heavenly Father … what shall I do? Thou seest my poor wounded boy and knowest my inexperience. Oh Heavenly Father direct me what to do!” She later wrote in her journal concerning what happened: “I was directed as by a voice speaking to me.
 
-“The ashes of our fire \[were\] still smouldering. We had been burning the bark of the shag-bark hickory. I was directed to take those ashes and make a lye and put a cloth saturated with it right into the wound. It hurt, but little Alma was too near dead to heed it much. Again and again I saturated the cloth and put it into the hole from which the hip-joint had been ploughed. …
+“The ashes of our fire \[were\] still smouldering. We had been burning the bark of the shag-bark hickory. I was directed to take those ashes and make a lye and put a cloth saturated with it right into the wound. It hurt, but little Alma was too near dead to heed it much. Again and again I saturated the cloth and put it into the hole from which the hip-joint had been ploughed. …
 
 “Having done as directed I again prayed to the Lord and was again instructed as distinctly as though a physician had been standing by speaking to me.
 
-“Near by was a slippery-elm tree. From this I was told to make a slippery-elm poultice and fill the wound with it.” (In Edward W. Tullidge, *The Women of Mormondom,* New York, 1877; reprint, Salt Lake City, 1957, 1965, p. 124.)
+“Near by was a slippery-elm tree. From this I was told to make a slippery-elm poultice and fill the wound with it.” (In Edward W. Tullidge, *The Women of Mormondom,* New York, 1877; reprint, Salt Lake City, 1957, 1965, p. 124.)
 
 She was able to get the injured boy to a house. With a mother’s love and a mother’s faith, she said to him, “The Lord can make something there in the place of your hip.” She had him lie on his face, and there he remained while a miracle occurred. Of that miracle she wrote, “So Alma laid on his face for five weeks, until he was entirely recovered—a flexible gristle having grown in place of the missing joint and socket, which remains to this day a marvel to physicians.
 
 “On the day that he walked again I was out of the house fetching a bucket of water, when I heard screams from the children. Running back, in affright, I entered, and there was Alma on the floor, dancing around, and the children screaming in astonishment and joy.
 
-“It is now nearly forty years ago,” she concluded, “but Alma has never been the least crippled during his life, and he has traveled quite a long period of the time as a missionary of the gospel and a living miracle of the power of God.” (*Ibid.,* p. 128.)
+“It is now nearly forty years ago,” she concluded, “but Alma has never been the least crippled during his life, and he has traveled quite a long period of the time as a missionary of the gospel and a living miracle of the power of God.” (*Ibid.,* p. 128.)
 
 Marvelous is the power of women of faith. It has been demonstrated again and again in the history of this church. It goes on among us today. I think it is part of the divinity within you.
 
@@ -97,8 +99,3 @@ Yes, there are adversities to be overcome, not a few of them. There are trials t
 
 
 
-
-
-
-
-#Faith #Marriage #Women

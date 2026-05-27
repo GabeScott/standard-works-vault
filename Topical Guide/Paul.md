@@ -1,4 +1,3 @@
 # Paul
 
-
-*See* [BD Paul](https://www.churchofjesuschrist.org/study/scriptures/bd/paul?lang=eng)
+*See also* [[BD Paul.md|BD Paul]]

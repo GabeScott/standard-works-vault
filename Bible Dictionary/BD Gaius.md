@@ -6,7 +6,7 @@
 
 (2) Of Derbe ([[Acts 20.4|Acts 20:4]]).
 
-(3) Of Corinth ([[Romans 16.23|Rom. 16:23]]; [[1 Corinthians 1.14|1 Cor. 1:14]]).
+(3) Of Corinth ([[Romans 16.23|Rom. 16:23]]; [[1 Corinthians 1.14|1 Cor. 1:14]]).
 
 (4) The man to whom the third epistle of John was addressed, probably a wealthy layman living near Ephesus.
 

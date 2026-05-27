@@ -1,5 +1,7 @@
 # Jesus of Nazareth
 
+James E. Faust
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -20,7 +22,7 @@ I am indebted for some of my remarks to eyewitness accounts of Christ’s life a
 
 We have learned that during the last days of His mortal life, Jesus had withdrawn from all public teaching and had spent the Wednesday before Passover in Bethany in seclusion. The next day, Thursday, Jesus instructed Peter and John to go to Jerusalem, where they would find a room prepared so they could meet together. In that room Jesus met with the Twelve, and they sat down to eat.
 
-It was custom that as a person entered a room, he laid aside his sandals at the door and his feet were washed to remove the dust from his travels. A servant usually performed this lowly task, but on this sacred night, “Jesus Himself, in His eternal humility and self-denial, rose from His place at the meal to do \[this\] menial service” (Frederic W. Farrar, *The Life of Christ* \[Portland, Oreg.: Fountain Publications, 1964\], p. 557).
+It was custom that as a person entered a room, he laid aside his sandals at the door and his feet were washed to remove the dust from his travels. A servant usually performed this lowly task, but on this sacred night, “Jesus Himself, in His eternal humility and self-denial, rose from His place at the meal to do \[this\] menial service” (Frederic W. Farrar, *The Life of Christ* \[Portland, Oreg.: Fountain Publications, 1964\], p. 557).
 
 Jesus said to them:
 
@@ -28,7 +30,7 @@ Jesus said to them:
 
 “If I then, your Lord and Master, have washed your feet; ye also ought to wash one another’s feet” ([[John 13.13|John 13:13–14]][[John 13.14|]]).
 
-“He their Lord and Master had washed their feet. It was a kind and gracious task, and such ought to be the nature of all their dealings with each other. He had done it to teach them humility, … self-denial, \[and\] love” (*Life of Christ,* p. 559).
+“He their Lord and Master had washed their feet. It was a kind and gracious task, and such ought to be the nature of all their dealings with each other. He had done it to teach them humility, … self-denial, \[and\] love” (*Life of Christ,* p. 559).
 
 During the course of the meal, He revealed the terrible news that one among them would betray Him, and a deep sadness fell over all of them.
 
@@ -36,9 +38,9 @@ Jesus spoke to Judas, “That \[which\] thou doest, do quickly” ([[John 13.27|
 
 Conscious of the impending events, Jesus opened His heart to His chosen eleven, saying:
 
-“Now is the Son of man glorified, and God is glorified in him. …
+“Now is the Son of man glorified, and God is glorified in him. …
 
-“Little children, yet a little while I am with you. Ye shall seek me: \[but\] whither I go, ye cannot come. …
+“Little children, yet a little while I am with you. Ye shall seek me: \[but\] whither I go, ye cannot come. …
 
 “A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another.
 
@@ -60,33 +62,33 @@ The time which remained for Him to be with them was short. He told them of the H
 
 They rose from the table, united their voices in a hymn, and left the room together to walk to the Garden of Gethsemane and all that awaited them there.
 
-“The awful hour of His deepest \[suffering\] had arrived. … Nothing remained … but the torture of physical pain and … mental anguish. … He … calm\[ed\] His spirit by prayer and solitude to meet that hour in which all that is evil in the Power of \[Satan\] should wreak its worst upon the Innocent and Holy \[One\]. And He must face that hour alone” (*Life of Christ,* p. 575).
+“The awful hour of His deepest \[suffering\] had arrived. … Nothing remained … but the torture of physical pain and … mental anguish. … He … calm\[ed\] His spirit by prayer and solitude to meet that hour in which all that is evil in the Power of \[Satan\] should wreak its worst upon the Innocent and Holy \[One\]. And He must face that hour alone” (*Life of Christ,* p. 575).
 
-“‘My soul,’ He said, ‘is full of anguish, even unto death’” (*Life of Christ,* p. 576). It was not the anguish and fear of pain and death but “the burden … of the world’s sin which lay heavy on His heart” (p. 579).
+“‘My soul,’ He said, ‘is full of anguish, even unto death’” (*Life of Christ,* p. 576). It was not the anguish and fear of pain and death but “the burden … of the world’s sin which lay heavy on His heart” (p. 579).
 
-“He withdrew to find His only consolation in communing with \[His Father\]. And there He found all that He needed. Before that hour was over He was prepared for the worst that Satan or man could do” (p. 580).
+“He withdrew to find His only consolation in communing with \[His Father\]. And there He found all that He needed. Before that hour was over He was prepared for the worst that Satan or man could do” (p. 580).
 
-“From the terrible conflict in Gethsemane, Christ emerged a victor. Though in the dark tribulation of that … hour He had pleaded that the bitter cup be removed from His lips, … the Father’s will was never lost sight of” (James E. Talmage, *Jesus the Christ,* 3rd ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916\], p. 614).
+“From the terrible conflict in Gethsemane, Christ emerged a victor. Though in the dark tribulation of that … hour He had pleaded that the bitter cup be removed from His lips, … the Father’s will was never lost sight of” (James E. Talmage, *Jesus the Christ,* 3rd ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916\], p. 614).
 
 And then came Judas with his betraying kiss; Christ’s surrender to His enemies; the arrest of the Son of God and three sham trials before the priests in the Sanhedrin; the insults and the derision of the multitudes; Christ’s appearance before Pontius Pilate, then Herod, then again before Pilate. Then came the final pronouncement of Pilate. After three appeals to the multitude of Jews to spare one of their own fell upon deaf ears, he delivered Jesus to be scourged.
 
-“Scourging was the ordinary preliminary to crucifixion. … The … sufferer was publicly stripped, … tied … to a pillar, and then … blows were inflicted with leathern thongs, weighted with jagged … bone \[or rock\]. The victim generally fainted, \[or\] often died” (*Life of Christ,* p. 624).
+“Scourging was the ordinary preliminary to crucifixion. … The … sufferer was publicly stripped, … tied … to a pillar, and then … blows were inflicted with leathern thongs, weighted with jagged … bone \[or rock\]. The victim generally fainted, \[or\] often died” (*Life of Christ,* p. 624).
 
-When the cross had been prepared, they placed it upon His shoulders and led Him to Golgotha. “But Jesus was enfeebled … by \[hours\] of violent … agitation, … by an evening of deep … emotion, … by the mental \[anguish\] of the garden, \[and\] by \[the\] three trials and three sentences of death before the Jews. … All \[of\] these, \[added\] to the \[wounds\] of the scourging \[and loss of blood\], had utterly broken … His physical strength” (*Life of Christ,* pp. 634–35). So a bystander was enlisted to carry the heavy cross.
+When the cross had been prepared, they placed it upon His shoulders and led Him to Golgotha. “But Jesus was enfeebled … by \[hours\] of violent … agitation, … by an evening of deep … emotion, … by the mental \[anguish\] of the garden, \[and\] by \[the\] three trials and three sentences of death before the Jews. … All \[of\] these, \[added\] to the \[wounds\] of the scourging \[and loss of blood\], had utterly broken … His physical strength” (*Life of Christ,* pp. 634–35). So a bystander was enlisted to carry the heavy cross.
 
-At Calvary, Christ was laid down upon the cross. “His arms were stretched along the cross-beams; and at the centre of the open palms, the point of a huge iron nail was placed \[and driven through the quivering flesh\] into the wood” (*Life of Christ,* p. 639). His feet were also nailed to the cross, which was slowly raised and fixed firmly in the ground. “*All* the voices about Him rang with blasphemy and spite, and in that long slow agony His dying ear caught no \[words\] of gratitude, of pity, or of love” (p. 644). Every movement would be agony to the fresh wounds in the hands and the feet. “Dizziness, … thirst, … sleeplessness, … fever, … long \[hours\] of torment. … Such was the death to which Christ was doomed” (p. 641).
+At Calvary, Christ was laid down upon the cross. “His arms were stretched along the cross-beams; and at the centre of the open palms, the point of a huge iron nail was placed \[and driven through the quivering flesh\] into the wood” (*Life of Christ,* p. 639). His feet were also nailed to the cross, which was slowly raised and fixed firmly in the ground. “*All* the voices about Him rang with blasphemy and spite, and in that long slow agony His dying ear caught no \[words\] of gratitude, of pity, or of love” (p. 644). Every movement would be agony to the fresh wounds in the hands and the feet. “Dizziness, … thirst, … sleeplessness, … fever, … long \[hours\] of torment. … Such was the death to which Christ was doomed” (p. 641).
 
-Jesus was nailed to the cross on that fateful Friday morning, probably between nine and ten o’clock. “At noontide the light of the sun was obscured, and black darkness spread over the whole land. The terrifying gloom continued for a period of three hours. … It was a fitting sign of the earth’s deep mourning over the impending death of her Creator” (*Jesus the Christ,* p. 660).
+Jesus was nailed to the cross on that fateful Friday morning, probably between nine and ten o’clock. “At noontide the light of the sun was obscured, and black darkness spread over the whole land. The terrifying gloom continued for a period of three hours. … It was a fitting sign of the earth’s deep mourning over the impending death of her Creator” (*Jesus the Christ,* p. 660).
 
-At the ninth hour Christ uttered that anguished cry, “My God, my God, why hast thou forsaken me?” ([[Matthew 27.46|Matt. 27:46]]). “In that bitterest hour the dying Christ was alone. \[So\] that the supreme sacrifice of the Son might be consummated in all its fulness, the Father seems to have withdrawn … His immediate Presence, leaving to the Savior of men the glory of complete victory over the forces of sin and death” (*Jesus the Christ,* p. 661).
+At the ninth hour Christ uttered that anguished cry, “My God, my God, why hast thou forsaken me?” ([[Matthew 27.46|Matt. 27:46]]). “In that bitterest hour the dying Christ was alone. \[So\] that the supreme sacrifice of the Son might be consummated in all its fulness, the Father seems to have withdrawn … His immediate Presence, leaving to the Savior of men the glory of complete victory over the forces of sin and death” (*Jesus the Christ,* p. 661).
 
-Later, “realizing that He was no longer forsaken, but that His atoning sacrifice had been accepted by the Father, and that His mission in the flesh had been carried to glorious consummation, He exclaimed in a loud voice of holy triumph: *‘It is finished.’* In reverence, resignation, and relief, He addressed the Father saying: *‘Father, into thy hands I commend my spirit.’* He bowed His head, and voluntarily gave up His life” (*Jesus the Christ,* p. 661–62).
+Later, “realizing that He was no longer forsaken, but that His atoning sacrifice had been accepted by the Father, and that His mission in the flesh had been carried to glorious consummation, He exclaimed in a loud voice of holy triumph: *‘It is finished.’* In reverence, resignation, and relief, He addressed the Father saying: *‘Father, into thy hands I commend my spirit.’* He bowed His head, and voluntarily gave up His life” (*Jesus the Christ,* p. 661–62).
 
-“At that moment the vail of the Temple was rent in twain from the top to the bottom. An earthquake shook the earth. … The multitude, \[now\] utterly sobered … , returned to Jerusalem” (*Life of Christ,* pp. 651–52).
+“At that moment the vail of the Temple was rent in twain from the top to the bottom. An earthquake shook the earth. … The multitude, \[now\] utterly sobered … , returned to Jerusalem” (*Life of Christ,* pp. 651–52).
 
 Christ’s body was lovingly taken from the cross, placed on fine linen purchased by Joseph of Arimathea, covered with rich spices, and carried to a nearby garden where a new tomb belonging to Joseph was located.
 
-It was now late in the afternoon, and “the preparations had to be hurried, because when the sun had set the Sabbath would have begun. All that they could do, therefore, was to wash \[and lay the precious body\] amid the spices, to wrap the head in a white napkin, to roll the fine linen round … the wounded limbs, and to lay the body reverently in the rocky niche” (*Life of Christ,* p. 659). Then a great stone was rolled across the opening of the tomb.
+It was now late in the afternoon, and “the preparations had to be hurried, because when the sun had set the Sabbath would have begun. All that they could do, therefore, was to wash \[and lay the precious body\] amid the spices, to wrap the head in a white napkin, to roll the fine linen round … the wounded limbs, and to lay the body reverently in the rocky niche” (*Life of Christ,* p. 659). Then a great stone was rolled across the opening of the tomb.
 
 On the dawn of that first-ever Easter morn, the two Marys, along with other women, carried their precious spices and ointments to the tomb to finish preparing the body. They wondered who would help them remove the stone from the opening of the sepulchre. To their amazement, they found the heavy stone already rolled away, the body of Jesus gone, and two angels in white bearing witness that Christ had risen from the dead. The two women hurried to the disciples with their news. John and Peter rushed to the tomb to find that it was so. The grave was empty.
 
@@ -132,7 +134,7 @@ Eliza R. Snow, who loved this work—as do I—wrote these precious lines:
 >His precious blood he freely spilt;
 >His life he freely gave,
 >A sinless sacrifice for guilt,
->A dying world to save. …
+>A dying world to save. …
 >
 >How great, how glorious, how complete,
 >Redemption’s grand design,
@@ -145,8 +147,3 @@ The prophet Alma taught that the plan of mercy required an atonement to be made 
 
 
 
-
-
-
-
-#Jesus_Christ #Love #Resurrection #Sacrament

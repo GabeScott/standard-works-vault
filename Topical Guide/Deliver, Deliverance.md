@@ -1,9 +1,8 @@
 # Deliver, Deliverance
 
+*See also* [[Israel, Deliverance of.md|Israel, Deliverance of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Protection, Divine.md|Protection, Divine]]; [[Redeem.md|Redeem]]; [[Redemption.md|Redemption]]; [[Salvation.md|Salvation]]; [[Save.md|Save]]
 
-*See also* [[Israel, Deliverance of.md|Israel, Deliverance of]]; [[Jesus Christ, Redeemer.md|Jesus Christ, Redeemer]]; [[Jesus Christ, Savior.md|Jesus Christ, Savior]]; [[Protection, Divine.md|Protection, Divine]]; [[Redeem, Redeemed.md|Redeem]]; [[Redemption.md|Redemption]]; [[Salvation.md|Salvation]]; [[Save.md|Save]]
-
-*Deliver* me ... from the hand of my brother, [[Genesis 32.11|Genesis 32:11]].
+*Deliver* me … from the hand of my brother, [[Genesis 32.11|Genesis 32:11]].
 
 are *delivered* ere the midwives come, [[Exodus 1.19|Exodus 1:19]].
 
@@ -13,7 +12,7 @@ smote the Egyptians, and *delivered* our houses, [[Exodus 12.27|Exodus 12:27]].
 
 *delivered* them out of the hand of those that spoiled, [[Judges 2.16|Judges 2:16]].
 
-Lord raised up a *deliverer* to ... Israel, [[Judges 3.9|Judges 3:9]].
+Lord raised up a *deliverer* to … Israel, [[Judges 3.9|Judges 3:9]].
 
 I will *deliver* you no more, [[Judges 10.13|Judges 10:13]].
 
@@ -47,9 +46,9 @@ I will carry, and will *deliver* you, [[Isaiah 46.4|Isaiah 46:4]].
 
 gold shall not be able to *deliver* them, [[Ezekiel 7.19|Ezekiel 7:19]].
 
-righteousness ... shall not *deliver* him, [[Ezekiel 33.12|Ezekiel 33:12]].
+righteousness … shall not *deliver* him, [[Ezekiel 33.12|Ezekiel 33:12]].
 
-God ... is able to *deliver* us from the ... furnace, [[Daniel 3.17|Daniel 3:17]].
+God … is able to *deliver* us from the … furnace, [[Daniel 3.17|Daniel 3:17]].
 
 no other God that can *deliver*, [[Daniel 3.29|Daniel 3:29]].
 
@@ -83,7 +82,7 @@ All things are *delivered* to me of my Father, [[Luke 10.22|Luke 10:22]].
 
 God by his hand would *deliver* them, [[Acts 7.25|Acts 7:25]].
 
-Moses ... did God send to be a ruler and a *deliverer*, [[Acts 7.35|Acts 7:35]].
+Moses … did God send to be a ruler and a *deliverer*, [[Acts 7.35|Acts 7:35]].
 
 spared not his own Son, but *delivered* him up for us, [[Romans 8.32|Romans 8:32]].
 
@@ -119,9 +118,9 @@ according to the power of his *deliverance*, [[Alma 7.13|Alma 7:13]].
 
 according to the power and *deliverance* of Jesus Christ, [[Alma 9.28|Alma 9:28]].
 
-give us strength ... unto *deliverance*, [[Alma 14.26|Alma 14:26]].
+give us strength … unto *deliverance*, [[Alma 14.26|Alma 14:26]].
 
-related unto them ... of their power of *deliverance*, [[Alma 15.2|Alma 15:2]].
+related unto them … of their power of *deliverance*, [[Alma 15.2|Alma 15:2]].
 
 put my trust in him, and he will still *deliver* me, [[Alma 36.27|Alma 36:27]].
 
@@ -149,16 +148,16 @@ he will *deliver* them in time of trouble, [[D&C 105.8|D&C 105:8]].
 
 to bless you and *deliver* you forever, [[D&C 108.8|D&C 108:8]].
 
-we plead ... for a full and complete *deliverance*, [[D&C 109.32|D&C 109:32]].
+we plead … for a full and complete *deliverance*, [[D&C 109.32|D&C 109:32]].
 
-my arm was not shortened ... neither my power to *deliver*, [[D&C 133.67|D&C 133:67]].
+my arm was not shortened … neither my power to *deliver*, [[D&C 133.67|D&C 133:67]].
 
-find that which thy neighbor has lost ... *deliver* it to him, [[D&C 136.26|D&C 136:26]].
+find that which thy neighbor has lost … *deliver* it to him, [[D&C 136.26|D&C 136:26]].
 
-joy and gladness ... *deliverance* was at hand, [[D&C 138.15|D&C 138:15]] ([[D&C 138.23|D&C 138:23]]).
+joy and gladness … *deliverance* was at hand, [[D&C 138.15|D&C 138:15]] ([[D&C 138.23|D&C 138:23]]).
 
 *deliver* my people from bondage, [[Moses 1.26|Moses 1:26]].
 
-Satan desireth to have thee ... I will *deliver* thee up, [[Moses 5.23|Moses 5:23]].
+Satan desireth to have thee … I will *deliver* thee up, [[Moses 5.23|Moses 5:23]].
 
 I found myself *delivered* from the enemy, [[Joseph Smith History 1.17|Joseph Smith History 1:17]].

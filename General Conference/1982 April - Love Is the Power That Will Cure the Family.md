@@ -1,6 +1,8 @@
 # Love Is the Power That Will Cure the Family
 
-By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -12,7 +14,7 @@ Just a little over a generation ago, members of the average family had to work a
 
 Today influences from literally unlimited sources through the media of radio, television, and print, together with numerous inventions of modern civilization, have drastically changed the historical cultural setting of the family. In this time of special challenge for marriage and the family, the Lord has restored, through his prophets in these latter days, the eternal dimension of that sacred covenant between husband and wife and has charged us with a new awareness of the real purpose of the family.
 
-The integrity of this covenant became the center of revealed gospel truths in these latter days, well summarized by the late prophet David O. McKay, who said, “No other success can compensate for failure in the home.” (In Conference Report, Apr. 1964, p. 5.) It is obvious that in marriage today we cannot rely merely on patterns of the past without developing, perfecting, and putting into action that power that the Lord has given us as the greatest commandment—the commandment to love one another.
+The integrity of this covenant became the center of revealed gospel truths in these latter days, well summarized by the late prophet David O. McKay, who said, “No other success can compensate for failure in the home.” (In Conference Report, Apr. 1964, p. 5.) It is obvious that in marriage today we cannot rely merely on patterns of the past without developing, perfecting, and putting into action that power that the Lord has given us as the greatest commandment—the commandment to love one another.
 
 Still, after nearly two thousand years, the people of the world are refusing to accept the words of the Savior found in Matthew, chapter 5:
 
@@ -20,7 +22,7 @@ Still, after nearly two thousand years, the people of the world are refusing to 
 
 “But I say unto you, Love your enemies, bless them that curse you, do good to them that hate you, and pray for them which despitefully use you, and persecute you.” ([[Matthew 5.43|Verses 43–44]][[Matthew 5.44|]].)
 
-This love that Christ is teaching us is not the same as the world’s love. It does not mean just to love the one who is nice, who behaves well and is respected, powerful, and influential. Our Heavenly Father, through his prophets in these latter days, calls us to develop the love of God as a power from above that cannot be threatened through outward circumstances. This love of God, according to the prophet Nephi of the Book of Mormon, has to be achieved and is “the most desirable above all things.” ([[1 Nephi 11.22|1 Ne. 11:22]].)
+This love that Christ is teaching us is not the same as the world’s love. It does not mean just to love the one who is nice, who behaves well and is respected, powerful, and influential. Our Heavenly Father, through his prophets in these latter days, calls us to develop the love of God as a power from above that cannot be threatened through outward circumstances. This love of God, according to the prophet Nephi of the Book of Mormon, has to be achieved and is “the most desirable above all things.” ([[1 Nephi 11.22|1 Ne. 11:22]].)
 
 However, as King Benjamin, another great Book of Mormon leader, teaches us, this love of God will not be in us as long as we remain in our natural state. “The natural man is an enemy to God,” he explains. ([[Mosiah 3.19|Mosiah 3:19]].) We have to overcome this natural man—this “enemy to God”—our natural self. According to King Benjamin, we have to learn to listen to the enticings of the Holy Spirit and literally make a covenant with God, accepting the atonement of the Savior, and becoming as a child—submissive, meek, humble, patient, full of love, and willing to submit to all things, even as a child submits to his father. (See [[Mosiah 3.19|Mosiah 3:19]].)
 
@@ -69,8 +71,3 @@ Brothers and sisters, I know that God lives, that this is his church, that these
 
 
 
-
-
-
-
-#Love #Marriage

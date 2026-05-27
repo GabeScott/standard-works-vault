@@ -1,4 +1,3 @@
 # Choice
 
-
-*See* [[Agency.md|Agency]]; [[Fall of Man.md|Fall of Man]]
+*See also* [[Agency.md|Agency]]; [[Fall of Man.md|Fall of Man]]

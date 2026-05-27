@@ -1,5 +1,7 @@
 # Personal Integrity
 
+Thomas S. Monson
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -36,7 +38,7 @@ In a tender, touching scene, Joseph identified himself to his brothers and forga
 
 “I am Joseph your brother, whom ye sold into Egypt.
 
-“Now therefore be not grieved, nor angry with yourselves, that ye sold me hither. …
+“Now therefore be not grieved, nor angry with yourselves, that ye sold me hither. …
 
 “And God sent me before you to preserve you a posterity … and to save your lives by a great deliverance.
 
@@ -44,35 +46,35 @@ In a tender, touching scene, Joseph identified himself to his brothers and forga
 
 Through Joseph, the Lord preserved the children of Israel and provided a place in Egypt for them to flourish and increase.
 
-This story is well known, but I urge you to read it again, focusing your attention on the integrity of Joseph and on the blessings it brought to him. He became the birthright son in the house of Israel and received an inheritance in the lands of the Americas (see [[Ether 13.8|Ether 13:8]]). The Lord permitted him to prophesy of Moses, who would deliver the children of Israel out of Egypt (see [[JST Genesis 50.27|JST, Gen. 50:27–29]][[JST Genesis 50.28|]][[JST Genesis 50.29|]]), and of Joseph Smith, the prophet of the restoration of the gospel in the latter days (see [[JST Genesis 50.30|JST, Gen. 50:30–33]][[JST Genesis 50.31|]][[JST Genesis 50.32|]][[JST Genesis 50.33|]]; [[2 Nephi 3.6|2 Ne. 3:6–21]][[2 Nephi 3.7|]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]][[2 Nephi 3.12|]][[2 Nephi 3.13|]][[2 Nephi 3.14|]][[2 Nephi 3.15|]][[2 Nephi 3.16|]][[2 Nephi 3.17|]][[2 Nephi 3.18|]][[2 Nephi 3.19|]][[2 Nephi 3.20|]][[2 Nephi 3.21|]]).
+This story is well known, but I urge you to read it again, focusing your attention on the integrity of Joseph and on the blessings it brought to him. He became the birthright son in the house of Israel and received an inheritance in the lands of the Americas (see [[Ether 13.8|Ether 13:8]]). The Lord permitted him to prophesy of Moses, who would deliver the children of Israel out of Egypt (see [[JST Genesis 50.27|JST, Gen. 50:27–29]][[JST Genesis 50.28|]][[JST Genesis 50.29|]]), and of Joseph Smith, the prophet of the restoration of the gospel in the latter days (see [[JST Genesis 50.30|JST, Gen. 50:30–33]][[JST Genesis 50.31|]][[JST Genesis 50.32|]][[JST Genesis 50.33|]]; [[2 Nephi 3.6|2 Ne. 3:6–21]][[2 Nephi 3.7|]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.10|]][[2 Nephi 3.11|]][[2 Nephi 3.12|]][[2 Nephi 3.13|]][[2 Nephi 3.14|]][[2 Nephi 3.15|]][[2 Nephi 3.16|]][[2 Nephi 3.17|]][[2 Nephi 3.18|]][[2 Nephi 3.19|]][[2 Nephi 3.20|]][[2 Nephi 3.21|]]).
 
-A more modern life of integrity is exemplified by George Washington, first president of the United States of America. His integrity and character, more than the brilliance of his intellect, made him the choice of his countrymen as their leader. He loved the peace and tranquillity of his Mount Vernon estate but responded when duty called him into the turmoil of public life. He refused any compensation, expecting the government to pay only his expenses, of which he kept an exact account. He gave forty-five years of his life in the service of his country (see David O. McKay, *Secrets of a Happy Life* \[Salt Lake City: Bookcraft, 1967\], pp. 142–44). As I visited the Mount Vernon stake two weeks ago, I felt the spirit of George Washington, the father of his country. The noble deeds of this great man passed through my mind.
+A more modern life of integrity is exemplified by George Washington, first president of the United States of America. His integrity and character, more than the brilliance of his intellect, made him the choice of his countrymen as their leader. He loved the peace and tranquillity of his Mount Vernon estate but responded when duty called him into the turmoil of public life. He refused any compensation, expecting the government to pay only his expenses, of which he kept an exact account. He gave forty-five years of his life in the service of his country (see David O. McKay, *Secrets of a Happy Life* \[Salt Lake City: Bookcraft, 1967\], pp. 142–44). As I visited the Mount Vernon stake two weeks ago, I felt the spirit of George Washington, the father of his country. The noble deeds of this great man passed through my mind.
 
-The Prophet Joseph Smith is another great example of integrity. He did not waver from doing as the Lord directed, even at the peril of his life. He “did not shirk life, nor did he try to avoid its experiences. …
+The Prophet Joseph Smith is another great example of integrity. He did not waver from doing as the Lord directed, even at the peril of his life. He “did not shirk life, nor did he try to avoid its experiences. …
 
-“He marched, built, sawed, hewed, plowed, planted with everyone else. His muscular body was a result of physical exertion. His mind was ‘an IDEAL’ of unrelenting seeking” (Leon R. Hartshorn, *Joseph Smith: Prophet of the Restoration* \[Salt Lake City: Deseret Book Co., 1970\], p. 67). “His greatness did not lie alone in prophesying, … speaking, or writing, but in what he was” (Hartshorn, p. 38).
+“He marched, built, sawed, hewed, plowed, planted with everyone else. His muscular body was a result of physical exertion. His mind was ‘an IDEAL’ of unrelenting seeking” (Leon R. Hartshorn, *Joseph Smith: Prophet of the Restoration* \[Salt Lake City: Deseret Book Co., 1970\], p. 67). “His greatness did not lie alone in prophesying, … speaking, or writing, but in what he was” (Hartshorn, p. 38).
 
 President Ezra Taft Benson, our prophet, seer, and revelator, is an example of sublime integrity. His assignment to Europe by the First Presidency to relieve the sufferings of our Saints after World War II exemplified the nobility of his character.
 
-“A man’s true greatness is not in what he says he is, nor in what people say he is; his greatness lies in what he really is” (Hartshorn, p. 38). Our integrity determines what we really are.
+“A man’s true greatness is not in what he says he is, nor in what people say he is; his greatness lies in what he really is” (Hartshorn, p. 38). Our integrity determines what we really are.
 
 The Lord expects us to live lives of integrity and to be obedient to his commandments. He said, “And why call ye me, Lord, Lord, and do not the things which I say?” ([[Luke 6.46|Luke 6:46]]). On another occasion, he said, “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven” ([[Matthew 7.21|Matt. 7:21]]).
 
-A little lying, a little cheating, or taking a little unfair advantage is not acceptable to the Lord (see [[2 Nephi 28.8|2 Ne. 28:8–9]][[2 Nephi 28.9|]]). The scriptures warn that these are Satan’s ways to lead us “carefully down to \[destruction\]” ([[2 Nephi 28.21|v. 21]]).
+A little lying, a little cheating, or taking a little unfair advantage is not acceptable to the Lord (see [[2 Nephi 28.8|2 Ne. 28:8–9]][[2 Nephi 28.9|]]). The scriptures warn that these are Satan’s ways to lead us “carefully down to \[destruction\]” ([[2 Nephi 28.21|v. 21]]).
 
 To Saints of the Restoration, the Savior said, “For of him unto whom much is given much is required” ([[D&C 82.3|D&C 82:3]]). Church members have been given much, indeed: the gospel of Jesus Christ. That blessing carries a risk. We have been warned, “Therefore to him that knoweth to do good, and doeth it not, to him it is sin” ([[James 4.17|James 4:17]]).
 
-The world desperately needs men and women of integrity. Nearly every day we hear of fraud, misapplication of funds, false advertising, or other dealings designed to obtain gain by cheating or deception. The Lord abhors such practices. A proverb states, “A false balance \[that is, a deceptive scale\] is abomination to the Lord: but a just weight is his delight” ([[Proverbs 11.1|Prov. 11:1]]). The Lord commanded, “If thou borrowest … , thou shalt restore that which thou hast borrowed” ([[D&C 136.25|D&C 136:25]]). He commanded the ancient Israelites:
+The world desperately needs men and women of integrity. Nearly every day we hear of fraud, misapplication of funds, false advertising, or other dealings designed to obtain gain by cheating or deception. The Lord abhors such practices. A proverb states, “A false balance \[that is, a deceptive scale\] is abomination to the Lord: but a just weight is his delight” ([[Proverbs 11.1|Prov. 11:1]]). The Lord commanded, “If thou borrowest … , thou shalt restore that which thou hast borrowed” ([[D&C 136.25|D&C 136:25]]). He commanded the ancient Israelites:
 
-“Ye shall not steal, neither deal falsely, neither lie one to another. …
+“Ye shall not steal, neither deal falsely, neither lie one to another. …
 
-“Thou shalt not defraud thy neighbour, neither rob him. …
+“Thou shalt not defraud thy neighbour, neither rob him. …
 
 “Ye shall do no \[injustice\] in judgment, … in weight, or in measure.
 
 “Just balances, just weights … shall ye have” ([[Leviticus 19.11|Lev. 19:11, 13, 35–36]][[Leviticus 19.13|]][[Leviticus 19.35|]][[Leviticus 19.36|]]).
 
-The Lord commanded the Israelites to be more than honest. If they came upon a lost ox, they were to search out the owner so they could return the animal. Today, our intentions and dealings must be similarly pure and sound before the Lord. We must be fair with suppliers, customers, and employees; repay obligations and keep agreements; and never deceive by failing to disclose all the facts about an investment or business venture. If our selfish hearts “are set so much upon the things of this world” ([[D&C 121.35|D&C 121:35]]), we can easily lose our integrity. We must remember that “we believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men” ([[Articles of Faith 1.13|A of F 1:13]]).
+The Lord commanded the Israelites to be more than honest. If they came upon a lost ox, they were to search out the owner so they could return the animal. Today, our intentions and dealings must be similarly pure and sound before the Lord. We must be fair with suppliers, customers, and employees; repay obligations and keep agreements; and never deceive by failing to disclose all the facts about an investment or business venture. If our selfish hearts “are set so much upon the things of this world” ([[D&C 121.35|D&C 121:35]]), we can easily lose our integrity. We must remember that “we believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men” ([[Articles of Faith 1.13|A of F 1:13]]).
 
 Elder Neal A. Maxwell stated, “Oh, how we wish for more honesty and less corruption, more goodness instead of so much cleverness, and more wisdom in lieu of unanchored brilliance.”
 
@@ -101,8 +103,3 @@ I bear my witness that Jesus is the Christ, the Son of God, and is our Lord and 
 
 
 
-
-
-
-
-#Holy_Ghost #Honesty #Joseph_Smith #Love #Service

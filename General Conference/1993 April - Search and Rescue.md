@@ -1,5 +1,7 @@
 # Search and Rescue
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -163,7 +165,5 @@ It was an appropriate season of the year for our visit together, when all Christ
 
 [^10]: [[Luke 15.32|Luke 15:32]].
 
+[^11]: [[Ecclesiastes 11.1|Eccl. 11:1]].
 
-
-
-#Activation #Endurance #Missionary_Work #Service

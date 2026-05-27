@@ -1,6 +1,5 @@
 # Sweet, Sweeter
 
-
 waters were made *sweet*, [[Exodus 15.25|Exodus 15:25]].
 
 a *sweet* savour, an offering made by fire unto the Lord, [[Exodus 29.18|Exodus 29:18]] ([[Leviticus 1.9|Leviticus 1:9]]).
@@ -9,7 +8,7 @@ What is *sweeter* than honey, [[Judges 14.18|Judges 14:18]].
 
 *sweet* are thy words unto my taste, [[Psalms 119.103|Psalms 119:103]].
 
-Pleasant words are ... *sweet* to the soul, [[Proverbs 16.24|Proverbs 16:24]].
+Pleasant words are … *sweet* to the soul, [[Proverbs 16.24|Proverbs 16:24]].
 
 to the hungry soul every bitter thing is *sweet*, [[Proverbs 27.7|Proverbs 27:7]].
 

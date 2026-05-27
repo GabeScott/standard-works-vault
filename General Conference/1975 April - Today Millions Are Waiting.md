@@ -1,6 +1,8 @@
 # Today Millions Are Waiting
 
-By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -14,7 +16,7 @@ The phenomenal population growth in these, the latter days, is by divine power w
 
 The dispensation of the fulness of times has staggering statistics, perilous times, and worldwide need for millions of valiant Saints and missionaries.
 
-The Lord, by revelation to his Prophet Joseph Smith, declared and commanded the Latter-day Saints to teach the gospel of Jesus Christ to every nation and people. He said, “Proclaim my gospel from land to land, and from city to city. …
+The Lord, by revelation to his Prophet Joseph Smith, declared and commanded the Latter-day Saints to teach the gospel of Jesus Christ to every nation and people. He said, “Proclaim my gospel from land to land, and from city to city. …
 
 “Bear testimony in every place, unto every people.” ([[D&C 66.5|D&C 66:5, 7]][[D&C 66.7|]].)
 
@@ -38,7 +40,7 @@ The Lord gave this important warning by commandment to his Latter-day Saints: �
 
 “Yea, verily, verily, I say unto you, that the field is white already to harvest; wherefore, thrust in your sickles, and reap with all your might, mind, and strength.
 
-“Open your mouths and they shall be filled. …
+“Open your mouths and they shall be filled. …
 
 “Yea, open your mouths and spare not, and you shall be laden with sheaves upon your backs, for lo, I am with you.
 
@@ -60,13 +62,13 @@ Saints who do not become saviors will be cast out and trodden under foot of men.
 
 To all who will teach the gospel of Jesus Christ to their friends and neighbors the Lord has promised salvation to their souls. Hear this divine counsel and promise:
 
-“O ye that embark in the service of God, see that ye serve him with all your heart, might, mind and strength, that ye may stand blameless before God at the last day. …
+“O ye that embark in the service of God, see that ye serve him with all your heart, might, mind and strength, that ye may stand blameless before God at the last day. …
 
 “For behold the field is white already to harvest; and lo, he that thrusteth in his sickle with his might, the same layeth up in store that he perisheth not, but bringeth salvation to his soul.” ([[D&C 4.2|D&C 4:2, 4]][[D&C 4.4|]].)
 
 I would like to quote several statements that were given by President Kimball. He said:
 
-“Perhaps the greatest reason for missionary work is to give the world its chance to hear and accept the gospel. The scriptures are replete with commands and promises and calls and rewards for teaching the gospel. I use the word *command* deliberately,” he said, “for it seems to be an insistent directive from which we, singly and collectively, cannot escape. … \[Ours is a missionary church. We must prepare missionaries. We must be missionaries.\] Every young man should fill a mission. … What an army we should have teaching Christ and him crucified! …
+“Perhaps the greatest reason for missionary work is to give the world its chance to hear and accept the gospel. The scriptures are replete with commands and promises and calls and rewards for teaching the gospel. I use the word *command* deliberately,” he said, “for it seems to be an insistent directive from which we, singly and collectively, cannot escape. … \[Ours is a missionary church. We must prepare missionaries. We must be missionaries.\] Every young man should fill a mission. … What an army we should have teaching Christ and him crucified! …
 
 “\[We hope to go to all the world. How we’ll do that only the Lord knows, but we are trying to find out.\] I believe that the Lord is anxious to put into our hands inventions of which we laymen have hardly had a glimpse. … He will open the gates and make possible the proselyting. … I believe the time has come when we must … change our sights and raise our goals.” (“When the World Will Be Converted,” *Ensign,* Oct. 1974, pp. 4, 8, 10, 13, 14.)
 
@@ -90,13 +92,8 @@ The number of saints that will possess this earth “forever and ever” depends
 
 Jesus said, “This is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].) We should give, we that have testimonies, the Lord’s children a chance and opportunity to know the only true God and Jesus Christ.
 
-I love and sustain President Spencer W. Kimball. He’s truly a prophet of God. I bear witness that God lives, in the name of Jesus Christ. Amen.
+I love and sustain President Spencer W. Kimball. He’s truly a prophet of God. I bear witness that God lives, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Last_Days #Missionary_Work

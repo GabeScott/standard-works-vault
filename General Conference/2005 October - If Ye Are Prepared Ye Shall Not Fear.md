@@ -1,5 +1,7 @@
 # If Ye Are Prepared Ye Shall Not Fear
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2005 General Conference*
@@ -28,13 +30,13 @@ We have contributed substantial amounts of money to the Red Cross and other agen
 
 Now, I do not say, and I repeat emphatically that I do not say or infer, that what has happened is the punishment of the Lord. Many good people, including some of our faithful Latter-day Saints, are among those who have suffered. Having said this, I do not hesitate to say that this old world is no stranger to calamities and catastrophes. Those of us who read and believe the scriptures are aware of the warnings of prophets concerning catastrophes that have come to pass and are yet to come to pass.
 
-There was the great flood, when waters covered the earth and when, as Peter says, only “eight souls were saved” ([[1 Peter 3.20|1 Peter 3:20]]).
+There was the great flood, when waters covered the earth and when, as Peter says, only “eight souls were saved” ([[1 Peter 3.20|1 Peter 3:20]]).
 
-If anyone has any doubt concerning the terrible things that can and will afflict mankind, let him read the 24th chapter of Matthew. Among other things the Lord says: “Ye shall hear of wars and rumours of wars. …
+If anyone has any doubt concerning the terrible things that can and will afflict mankind, let him read the 24th chapter of Matthew. Among other things the Lord says: “Ye shall hear of wars and rumours of wars. …
 
 “For nation shall rise against nation, and kingdom against kingdom: and there shall be famines, and pestilences, and earthquakes, in divers places.
 
-“All these are the beginning of sorrows. …
+“All these are the beginning of sorrows. …
 
 “And woe unto them that are with child, and to them that give suck in those days! …
 
@@ -54,13 +56,13 @@ In the Book of Mormon we read of unimaginable destruction in the Western Hemisph
 
 “And the city of Moroni did sink into the depths of the sea, and the inhabitants thereof were drowned.
 
-“And the earth was carried up upon the city of Moronihah, that in the place of the city there became a great mountain. …
+“And the earth was carried up upon the city of Moronihah, that in the place of the city there became a great mountain. …
 
-“… The whole face of the land was changed, because of the tempest and the whirlwinds, and the thunderings and the lightnings, and the exceedingly great quaking of the whole earth;
+“… The whole face of the land was changed, because of the tempest and the whirlwinds, and the thunderings and the lightnings, and the exceedingly great quaking of the whole earth;
 
 “And the highways were broken up, and the level roads were spoiled, and many smooth places became rough.
 
-“And many great and notable cities were sunk, and many were burned, and many were shaken till the buildings thereof had fallen to the earth, and the inhabitants thereof were slain, and the places were left desolate” ([[3 Nephi 8.5|3 Nephi 8:5–10, 12–14]][[3 Nephi 8.6|]][[3 Nephi 8.7|]][[3 Nephi 8.8|]][[3 Nephi 8.9|]][[3 Nephi 8.10|]][[3 Nephi 8.12|]][[3 Nephi 8.13|]][[3 Nephi 8.14|]]).
+“And many great and notable cities were sunk, and many were burned, and many were shaken till the buildings thereof had fallen to the earth, and the inhabitants thereof were slain, and the places were left desolate” ([[3 Nephi 8.5|3 Nephi 8:5–10, 12–14]][[3 Nephi 8.6|]][[3 Nephi 8.7|]][[3 Nephi 8.8|]][[3 Nephi 8.9|]][[3 Nephi 8.10|]][[3 Nephi 8.12|]][[3 Nephi 8.13|]][[3 Nephi 8.14|]]).
 
 What a terrible catastrophe that must have been.
 
@@ -119,8 +121,3 @@ I have faith, my dear brethren, that the Lord will bless us and watch over us an
 
 
 
-
-
-
-
-#Faith #Obedience #Preparation #Priesthood #Safety #Self-Reliance #Service

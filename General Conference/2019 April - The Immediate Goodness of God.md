@@ -1,6 +1,8 @@
 # The Immediate Goodness of God
 
-By Elder Kyle S. McKay - *Of the Seventy*
+Ulisses Soares
+
+By Elder Kyle S. McKay - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -16,7 +18,7 @@ When Alma and his people were captured by the Lamanites, they prayed for deliver
 
 The immediate goodness of God comes to all who call upon Him with real intent and full purpose of heart. This includes those who cry out in earnest desperation, when deliverance seems so distant and suffering seems prolonged, even intensified.
 
-So it was with a young prophet who suffered to the brink in the dank of a dungeon before finally crying out: “O God, where art thou? … How long shall thy hand be stayed … ? Yea, O Lord, how long … ?”[^4] In response, the Lord did not immediately deliver Joseph, but He did immediately pronounce peace.[^5]
+So it was with a young prophet who suffered to the brink in the dank of a dungeon before finally crying out: “O God, where art thou? … How long shall thy hand be stayed … ? Yea, O Lord, how long … ?”[^4] In response, the Lord did not immediately deliver Joseph, but He did immediately pronounce peace.[^5]
 
 God also gives immediate hope for eventual deliverance.[^6] No matter what, no matter where, in Christ and through Christ there is always hope smiling brightly before us.[^7] Immediately before us.
 
@@ -38,7 +40,7 @@ And immediately, as He had done with Peter of old, Jesus stretched forth His han
 
 Emilie’s healing and ultimate deliverance took a long time—months of treatment, training, and counseling, during which she was sustained and sometimes carried by His goodness. And that goodness continued with her as she entered the temple with her husband and children to be sealed together forever. Like the people of Zarahemla, Emilie now gives thanks as she reflects on the immediate goodness of God and His power in delivering her from bondage.
 
-Now, from the life of another brave believer. On December 27, 2013, Alicia Schroeder joyfully welcomed her dear friends Sean and Sharla Chilcote, who unexpectedly showed up on her doorstep. Sean, who was also Alicia’s bishop, handed her his cell phone and solemnly said, “Alicia, we love you. You need to take this call.”
+Now, from the life of another brave believer. On December 27, 2013, Alicia Schroeder joyfully welcomed her dear friends Sean and Sharla Chilcote, who unexpectedly showed up on her doorstep. Sean, who was also Alicia’s bishop, handed her his cell phone and solemnly said, “Alicia, we love you. You need to take this call.”
 
 Alicia’s husband, Mario, was on the phone. He was in a remote area with some of their children on a long-anticipated snowmobile trip. There had been a terrible accident. Mario was seriously injured, and their 10-year-old son, Kaleb, was gone. When Mario tearfully told Alicia of Kaleb’s death, she was overcome with a shock and horror few of us will ever know. It dropped her. Paralyzed with unspeakable anguish, Alicia could neither move nor speak.
 
@@ -67,7 +69,7 @@ I bear witness that Jesus Christ is the Great Deliverer, and in His name, I prom
 
 [^6]: See [[Alma 58.11|Alma 58:11]]: “Yea, and it came to pass that the Lord our God did visit us with assurances that he would deliver us; yea, … and did cause us that we should hope for our deliverance in him.” See also [[D&C 121.7|Doctrine and Covenants 121:7–8]][[D&C 121.8|]].
 
-[^7]: See “We Thank Thee, O God, for a Prophet,” *Hymns,* no. 19.
+[^7]: See “We Thank Thee, O God, for a Prophet,” *Hymns,* no. 19.
 
 [^8]: [[Isaiah 54.10|Isaiah 54:10]]; emphasis added.
 
@@ -81,10 +83,5 @@ I bear witness that Jesus Christ is the Great Deliverer, and in His name, I prom
 
 [^13]: [[Alma 34.31|Alma 34:31]].
 
-[^14]: [[1 Nephi 5.15|1 Nephi 5:15]].
+[^14]: [[1 Nephi 5.15|1 Nephi 5:15]].
 
-
-
-
-
-#Love

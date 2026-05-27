@@ -1,9 +1,8 @@
 # Ox, Oxen
 
+If an *ox* gore a man … *ox* shall be surely stoned, [[Exodus 21.28|Exodus 21:28]].
 
-If an *ox* gore a man ... *ox* shall be surely stoned, [[Exodus 21.28|Exodus 21:28]].
-
-steal an *ox* ... restore five *oxen* for an *ox*, [[Exodus 22.1|Exodus 22:1]].
+steal an *ox* … restore five *oxen* for an *ox*, [[Exodus 22.1|Exodus 22:1]].
 
 shalt not muzzle the *ox*, [[Deuteronomy 25.4|Deuteronomy 25:4]] ([[1 Corinthians 9.9|1 Corinthians 9:9]]; [[1 Timothy 5.18|1 Timothy 5:18]]).
 

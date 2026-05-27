@@ -1,6 +1,8 @@
 # Love Her Mother
 
-By Elaine S. Dalton - *Young Women General President*
+Richard G. Scott
+
+By Elaine S. Dalton - *Young Women General President*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -36,9 +38,9 @@ In the Book of Mormon, Abish was converted by her father’s sharing with her hi
 
 As the hymn says, “Rise up, O men of God!”[^11] This is a call to you, the men who bear the holy priesthood of God. May it be said of you as was said of Captain Moroni:
 
-“\[He\] was a strong and a mighty man; … a man of a perfect understanding; … a man who was firm in the faith of Christ. …
+“\[He\] was a strong and a mighty man; … a man of a perfect understanding; … a man who was firm in the faith of Christ. …
 
-“… If all men had been, and were, and ever would be, like unto Moroni, behold, the very powers of hell would have been shaken forever; … the devil would never have power over the hearts of the children of men.”[^12]
+“… If all men had been, and were, and ever would be, like unto Moroni, behold, the very powers of hell would have been shaken forever; … the devil would never have power over the hearts of the children of men.”[^12]
 
 Brethren, fathers, young men, “Be loyal to the royal within you.”[^13]
 
@@ -47,15 +49,15 @@ So how do you raise a girl? Love her mother. Lead your family to the temple, be 
 
 
 
-[^1]: President David O. McKay often quoted this statement of Theodore Hesburgh, in “Quotable Quotes,” *Reader’s Digest,* Jan. 1963, 25; see also *Richard Evans’ Quote Book* (1971), 11.
+[^1]: President David O. McKay often quoted this statement of Theodore Hesburgh, in “Quotable Quotes,” *Reader’s Digest,* Jan. 1963, 25; see also *Richard Evans’ Quote Book* (1971), 11.
 
-[^2]: [[2 Nephi 5.27|2 Nephi 5:27]].
+[^2]: [[2 Nephi 5.27|2 Nephi 5:27]].
 
 [^3]: “The Family: A Proclamation to the World,” *Liahona* and *Ensign,* Nov. 2010, 129.
 
-[^4]: A. Theodore Tuttle, in Conference Report, Oct. 1973, 87; or *Ensign,* Jan. 1974, 67.
+[^4]: A. Theodore Tuttle, in Conference Report, Oct. 1973, [[1973 October - The Role of Fathers.md|87]]; or *Ensign,* Jan. 1974, 67.
 
-[^5]: Ezra Taft Benson, in Conference Report, Oct. 1986, 60; or *Ensign,* Nov. 1986, 46.
+[^5]: Ezra Taft Benson, in Conference Report, Oct. 1986, [[1986 October - Godly Characteristics of the Master.md|60]]; or *Ensign,* Nov. 1986, 46.
 
 [^6]: [[D&C 46.33|Doctrine and Covenants 46:33]].
 
@@ -67,14 +69,9 @@ So how do you raise a girl? Love her mother. Lead your family to the temple, be 
 
 [^10]: [[Alma 23.6|Alma 23:6]]; see also [[Alma 19.16|Alma 19:16–17]][[Alma 19.17|]]; [[Alma 53.10|53:10–22]][[Alma 53.11|]][[Alma 53.12|]][[Alma 53.13|]][[Alma 53.14|]][[Alma 53.15|]][[Alma 53.16|]][[Alma 53.17|]][[Alma 53.18|]][[Alma 53.19|]][[Alma 53.20|]][[Alma 53.21|]][[Alma 53.22|]].
 
-[^11]: “Rise Up, O Men of God,” *Hymns,* no. 323.
+[^11]: “Rise Up, O Men of God,” *Hymns,* no. 323.
 
 [^12]: [[Alma 48.11|Alma 48:11, 13, 17]][[Alma 48.13|]][[Alma 48.17|]].
 
-[^13]: In Harold B. Lee, “Be Loyal to the Royal within You,” in *Speeches of the Year: BYU Devotional and Ten-Stake Fireside Addresses 1973* (1974), 100.
+[^13]: In Harold B. Lee, “Be Loyal to the Royal within You,” in *Speeches of the Year: BYU Devotional and Ten-Stake Fireside Addresses 1973* (1974), 100.
 
-
-
-
-
-#Example #Family #Fatherhood #Morality #Motherhood #Priesthood #Standards #Young_Women

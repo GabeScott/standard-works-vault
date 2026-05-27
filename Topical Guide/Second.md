@@ -1,6 +1,5 @@
 # Second
 
-
 *See also* [[Death, Spiritual, Second.md|Death, Spiritual, Second]]; [[Jesus Christ, Second Coming.md|Jesus Christ, Second Coming]]
 
 set his hand again the *second* time to recover the remnant, [[Isaiah 11.11|Isaiah 11:11]] ([[2 Nephi 21.11|2 Nephi 21:11]]; [[2 Nephi 25.17|2 Nephi 25:17]]; [[2 Nephi 29.1|2 Nephi 29:1]]; [[Jacob 6.2|Jacob 6:2]]).
@@ -15,7 +14,7 @@ Inasmuch as ye are not guilty of the first offense, neither the *second*, [[Alma
 
 preparing the way of the Lord for his *second* coming, [[D&C 34.6|D&C 34:6]].
 
-seal ... the *second* also of the *second* thousand years, [[D&C 77.7|D&C 77:7]] ([[D&C 88.109|D&C 88:109]]).
+seal … the *second* also of the *second* thousand years, [[D&C 77.7|D&C 77:7]] ([[D&C 88.109|D&C 88:109]]).
 
 he said unto the *second*: Go ye also, [[D&C 88.53|D&C 88:53]].
 
@@ -29,4 +28,4 @@ they who keep their *second* estate, [[Abraham 3.26|Abraham 3:26]].
 
 the *second* was angry, and kept not his first estate, [[Abraham 3.28|Abraham 3:28]].
 
-first principles and ordinances ... *second*, Repentance, [[Articles of Faith 1.4|Articles of Faith 1:4]].
+first principles and ordinances … *second*, Repentance, [[Articles of Faith 1.4|Articles of Faith 1:4]].

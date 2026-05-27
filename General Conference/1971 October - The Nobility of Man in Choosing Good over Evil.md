@@ -1,6 +1,8 @@
 # The Nobility of Man in Choosing Good over Evil
 
-By Elder Alvin R. Dyer - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Alvin R. Dyer - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -20,11 +22,11 @@ This is a very controversial subject, with many different ideas. I once heard of
 
 A great thinker of our modern day supports the statement of the Lord concerning idleness, for said he:
 
-“When a man shuns effort, he is in no position to resist temptation. So, through all the ages, idleness has been known as the parent of all the vices. … The dryrot of ennui, the vague self-disgust of those who cannot ‘deal with time,’ is the natural result of idleness. … The indolent ennui of the hopelessly rich and the indolent misery of the helplessly poor have this much in common. … ‘Life drives him hard’ who has nothing in the world to do.” (David Starr Jordan, *The Strength of Being Clean* \[New York and Boston: H.M. Caldwell Co., 1900\], pp. 18–19.)
+“When a man shuns effort, he is in no position to resist temptation. So, through all the ages, idleness has been known as the parent of all the vices. … The dryrot of ennui, the vague self-disgust of those who cannot ‘deal with time,’ is the natural result of idleness. … The indolent ennui of the hopelessly rich and the indolent misery of the helplessly poor have this much in common. … ‘Life drives him hard’ who has nothing in the world to do.” (David Starr Jordan, *The Strength of Being Clean* \[New York and Boston: H.M. Caldwell Co., 1900\], pp. 18–19.)
 
 Concerning chastity and cleanliness, as associated with righteous dominion, the Lord gave this direction:
 
-“… let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
+“… let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
 
 “The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever.” ([[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]].)
 
@@ -38,13 +40,13 @@ For a man to seek ascendance over another man by the suppressing of his rights i
 
 “Therefore all things whatsoever ye would that men should do to you, do ye even so to them: for this is the law and the prophets.” ([[Matthew 7.12|Matt. 7:12]].)
 
-As to sleep and rest, the Prophet Joseph Smith, in saying “Cease to sleep longer than is needful,” does not mean, as Dr. John A. Widtsoe states it, that “one should sleep a certain minimum number of hours. … Nine hours is a minimum for some adults, while others seem to keep healthy on seven or less.” (*The Word of Wisdom* \[Deseret Book Co., 1938\], p. 231.)
+As to sleep and rest, the Prophet Joseph Smith, in saying “Cease to sleep longer than is needful,” does not mean, as Dr. John A. Widtsoe states it, that “one should sleep a certain minimum number of hours. … Nine hours is a minimum for some adults, while others seem to keep healthy on seven or less.” (*The Word of Wisdom* \[Deseret Book Co., 1938\], p. 231.)
 
 Authorities on child nutrition insist that many undernourished children are lacking not good food but enough sleep. Perhaps the late TV shows are taking a toll in this regard.
 
 What I believe that the Prophet is saying about more sleep than is needful concerns the individual who goes far beyond the need, developing slothful and lazy habits, which deaden the senses and become a retarder of accomplishment. To overcome these things in life requires discipline and restraint.
 
-Soon after Adam and Eve, our first earthly parents, were driven from the Garden of Eden because of their yielding to temptation, they came to know the difference between right and wrong and good and evil, for thus the Lord declared: “… Behold, the man is become as one of us, to know good and evil. …” ([[Genesis 3.22|Gen. 3:22]].)
+Soon after Adam and Eve, our first earthly parents, were driven from the Garden of Eden because of their yielding to temptation, they came to know the difference between right and wrong and good and evil, for thus the Lord declared: “… Behold, the man is become as one of us, to know good and evil. …” ([[Genesis 3.22|Gen. 3:22]].)
 
 Without a knowledge of good and evil, the divine principle of agency would be ineffectual. The application of this law, while serving to elevate man, can also condemn him. For that in which we participate, whether it is good or evil, either defiles or exalts us. Concerning this, the Master has said: “There is nothing from without a man, that entering into him can defile him: but the things which come out of him, those are they that defile the man.” ([[Mark 7.15|Mark 7:15]].)
 
@@ -60,7 +62,7 @@ Sicknesses such as these, which sometimes induce improper and wrongful habits, s
 
 The practice of restraint is a necessary attribute of every gentle and good man. Women without it become coarse and unrefined. To curb the appetites and passions, to screen wisely the thoughts that are permitted to enter our minds, to avoid the habit that does not produce the spiritual and abundant life, are experiences of life to be concerned with if the crown of achievement and the nobility of good character are to be possessed.
 
-Choosing good over evil and right over wrong is the crowning achievement of life, and in so doing man becomes the masterpiece of the Creator and fulfills the basic purposes of his mortal probation. An ancient prophet speaks of it in this way: “… he that ruleth his spirit \[is greater\] than he that taketh a city.” ([[Proverbs 16.32|Prov. 16:32]].)
+Choosing good over evil and right over wrong is the crowning achievement of life, and in so doing man becomes the masterpiece of the Creator and fulfills the basic purposes of his mortal probation. An ancient prophet speaks of it in this way: “… he that ruleth his spirit \[is greater\] than he that taketh a city.” ([[Proverbs 16.32|Prov. 16:32]].)
 
 Among the last words spoken unto the beloved apostle John, while in vision on the Isle of Patmos, are these: “He that overcometh shall inherit all things; and I will be his God, and he shall be my son.” ([[Revelation 21.7|Rev. 21:7]].)
 
@@ -81,8 +83,3 @@ Of this I testify in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Agency #Habits #Obedience

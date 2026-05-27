@@ -1,6 +1,5 @@
 # Estate
 
-
 concerning the *estate* of the sons of men, [[Ecclesiastes 3.18|Ecclesiastes 3:18]].
 
 shall return to your former *estate*, [[Ezekiel 16.55|Ezekiel 16:55]].

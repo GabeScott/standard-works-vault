@@ -1,5 +1,7 @@
 # The Bishop and His Counselors
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -8,7 +10,7 @@ By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apos
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1999/04/the-bishop-and-his-counselors?lang=eng)
 
-Last night in the priesthood session, President Hinckley gave a tribute, counsel, and a blessing to our bishops. Under the rule of two witnesses explained to us by Elder Oaks yesterday, I stand as a second witness.
+Last night in the priesthood session, President Hinckley gave a tribute, counsel, and a blessing to our bishops. Under the rule of two witnesses, explained to us by Elder Oaks yesterday, I stand as a second witness.
 
 Years ago I served on a stake high council with Emery Wight. For 10 years Emery had served as bishop of rural Harper Ward. His wife, Lucille, became our stake Relief Society president.
 
@@ -18,7 +20,7 @@ Lucille calmly replied, “Oh, don’t be alarmed. No doubt someone is in troubl
 
 The image of that team of horses standing for hours in the field symbolizes the dedication of the bishops in the Church and of the counselors who stand by their side. Every bishop and every counselor, figuratively speaking, leaves his team standing in an unfinished furrow when someone needs help.
 
-I have passed that field many times over the years. It is a reminder of the sacrifice and the service of those called to serve in bishoprics of wards and of their wives and families without whose help they could not serve.
+I have passed that field many times over the years. It is a reminder of the sacrifice and the service of those called to serve in bishoprics of wards and of their wives and families, without whose help they could not serve.
 
 Recently, very early on a Sunday morning, I stood in that field. I looked up toward the home where Emery and Lucille reared their children and to the foothills beyond. As a boy, with other Scouts I left that home with Bishop Wight. We hiked into the hills, with Emery teaching us every step of the way.
 
@@ -64,22 +66,22 @@ Bishops are inspired! Each of us has agency to accept or reject counsel from our
 
 It can be a tough world, a tough life, and in some ways it’s even tougher in the Church. Eliza R. Snow wrote:
 
->*Think not when you gather to Zion,*
->*Your troubles and trials are through,*
->*That nothing but comfort and pleasure*
->*Are waiting in Zion for you:*
->*No, no, ’tis designed as a furnace,*
->*All substance, all textures to try,*
->*To burn all the ‘wood … and \[the\] stubble,’*
->*The gold from the dross purify. …*
+>Think not when you gather to Zion,
+>Your troubles and trials are through,
+>That nothing but comfort and pleasure
+>Are waiting in Zion for you:
+>No, no, ’tis designed as a furnace,
+>All substance, all textures to try,
+>To burn all the ‘wood … and \[the\] stubble,’
+>The gold from the dross purify. …
 >
->*The Saints here have nothing to do*
->*But to look to your personal welfare,*
->*And always be comforting you.*
->*No; those who are faithful are doing*
->*What they find to do with their might;*
->*To gather the scattered of Israel*
->*They labor by day and by night.*[^4]
+>The Saints here have nothing to do
+>But to look to your personal welfare,
+>And always be comforting you.
+>No; those who are faithful are doing
+>What they find to do with their might;
+>To gather the scattered of Israel
+>They labor by day and by night.[^4]
 >
 
 When we need help the bishop is there, but be careful not to impose unnecessarily upon his time. Bishops can do only so much. The bishopric must have time to make a living and time for their own families.
@@ -92,7 +94,7 @@ No matter if the Church grows to be a hundred million (as it surely will!), it w
 
 Small numbers of wards are grouped together under the shelter of stakes and branches under districts. There is a stake presidency and a council to train the bishopric and other leaders to train those who serve with them.
 
-This organization, in place across the world, is a product of the restoration of the gospel of Jesus Christ. This miracle of willing service is possible because of individual testimonies of the Redeemer.
+This organization, in place across the world, is a product of the Restoration of the gospel of Jesus Christ. This miracle of willing service is possible because of individual testimonies of the Redeemer.
 
 The revelation, present when this system was conceived, did not end there, for the purpose of it all is to shelter families. Families are grouped together in a ward or branch.
 
@@ -108,9 +110,9 @@ Our handbooks state:
 
 The First Presidency recently wrote to the Church:
 
-“The home is the basis of a righteous life, and no other instrumentality can take its place or fulfill its essential functions in carrying forward this God-given responsibility. …
+“The home is the basis of a righteous life, and no other instrumentality can take its place or fulfill its essential functions in carrying forward this God-given responsibility. …
 
-“… However worthy and appropriate other demands or activities may be, they must not be permitted to displace the divinely-appointed duties that only parents and families can adequately perform.”[^8]
+“… However worthy and appropriate other demands or activities may be, they must not be permitted to displace the divinely-appointed duties that only parents and families can adequately perform.”[^8]
 
 Families, like wards, vary in size and shape. Time moves on; one generation replaces another. Babies are born and mature to become parents and then grandparents. One family divides itself to become several. Wards grow and are divided. Where there was one, there are others.
 
@@ -123,13 +125,13 @@ Now and always hereafter, ordinary men will leave their teams standing in an unf
 
 
 
-[^1]: [[1 Timothy 3.2|1 Tim. 3:2]].
+[^1]: [[1 Timothy 3.2|1 Tim. 3:2]].
 
 [^2]: [[D&C 58.18|D&C 58:18]]; emphasis added.
 
-[^3]: [[Articles of Faith 1.5|A of F 1:5]].
+[^3]: [[Articles of Faith 1.5|A of F 1:5]].
 
-[^4]: “Think not, When You Gather to Zion,” *Hymns* (1948), no. 21, vv. 1, 3.
+[^4]: “Think Not, When You Gather to Zion,” *Hymns* (1948), no. 21, vv. 1, 3.
 
 [^5]: See [[D&C 68.25|D&C 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]].
 
@@ -139,8 +141,3 @@ Now and always hereafter, ordinary men will leave their teams standing in an unf
 
 [^8]: First Presidency letter, 11 Feb. 1999, cited in *Church News,* 27 Feb. 1999, 3.
 
-
-
-
-
-#Bishops #Church_Organization #Family #Jesus_Christ #Parents #Plan_Of_Salvation

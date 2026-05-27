@@ -1,5 +1,7 @@
 # Heavenly Father Has a Special Plan
 
+Gordon B. Hinckley
+
 By Elder Yoshihiko Kikuchi - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -70,7 +72,7 @@ How can you and I share the beautiful message of the Lord Jesus Christ?
 
 President Hinckley quotes the testimony of Alma:
 
-“O Lord, wilt thou grant unto us that we may have success in bringing them again unto thee. …
+“O Lord, wilt thou grant unto us that we may have success in bringing them again unto thee. …
 
 “Behold, O Lord, their souls are precious; … give unto us, O Lord, power and wisdom that we may bring these, our brethren, … unto thee.”[^10]
 
@@ -119,19 +121,19 @@ He loves you. He knows you. He lives. In 1820 Heavenly Father and His Son, Jesus
 
 [^4]: [[John 10.14|John 10:14, 27]][[John 10.27|]].
 
-[^5]: See [[1 Nephi 11.8|1 Ne. 11:8–9]][[1 Nephi 11.9|]].
+[^5]: See [[1 Nephi 11.8|1 Ne. 11:8–9]][[1 Nephi 11.9|]].
 
-[^6]: See [[1 Nephi 11.15|1 Ne. 11:15–20]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]].
+[^6]: See [[1 Nephi 11.15|1 Ne. 11:15–20]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]].
 
-[^7]: [[1 Nephi 11.21|1 Ne. 11:21]].
+[^7]: [[1 Nephi 11.21|1 Ne. 11:21]].
 
-[^8]: [[1 Nephi 11.22|1 Ne. 11:22]].
+[^8]: [[1 Nephi 11.22|1 Ne. 11:22]].
 
 [^9]: “Find the Lambs, Feed the Sheep,” *Ensign,* May 1999, 106.
 
 [^10]: [[Alma 31.34|Alma 31:34–35]][[Alma 31.35|]].
 
-[^11]: Bible Dictionary, “Prayer,” 753.
+[^11]: Bible Dictionary, “[[BD Prayer|Prayer]],” 753.
 
 [^12]: *Ensign,* May 1999, 107.
 
@@ -139,9 +141,9 @@ He loves you. He knows you. He lives. In 1820 Heavenly Father and His Son, Jesus
 
 [^14]: [[Matthew 5.13|Matt. 5:13–14]][[Matthew 5.14|]].
 
-[^15]: [[1 Nephi 11.22|1 Ne. 11:22, 25]][[1 Nephi 11.25|]].
+[^15]: [[1 Nephi 11.22|1 Ne. 11:22, 25]][[1 Nephi 11.25|]].
 
-[^16]: In Conference Report, Oct. 1986, 41; or *Ensign,* Nov. 1986, 33.
+[^16]: In Conference Report, Oct. 1986, [[1986 October - We Proclaim the Gospel.md|41]]; or *Ensign,* Nov. 1986, 33.
 
 [^17]: See [[D&C 18.18|D&C 18:18]].
 
@@ -151,7 +153,7 @@ He loves you. He knows you. He lives. In 1820 Heavenly Father and His Son, Jesus
 
 [^20]: See [[Alma 34.10|Alma 34:10, 12]][[Alma 34.12|]].
 
-[^21]: [[1 Nephi 11.23|1 Ne. 11:23]].
+[^21]: [[1 Nephi 11.23|1 Ne. 11:23]].
 
 [^22]: [[D&C 19.15|D&C 19:15–16, 18–19]][[D&C 19.16|]][[D&C 19.18|]][[D&C 19.19|]].
 
@@ -159,8 +161,3 @@ He loves you. He knows you. He lives. In 1820 Heavenly Father and His Son, Jesus
 
 [^24]: [[D&C 88.62|D&C 88:62–63]][[D&C 88.63|]].
 
-
-
-
-
-#Education #Example #Family #God_The_Father #Holy_Ghost #Jesus_Christ #Love #Missionary_Work #Plan_Of_Salvation #Prayer #Spirituality

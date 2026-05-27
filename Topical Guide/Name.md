@@ -1,11 +1,10 @@
 # Name
 
-
-*See also* [[Name of the Lord.md|Name of the Lord]]; [BD Christ, names of](https://www.churchofjesuschrist.org/study/scriptures/bd/christ-names-of?lang=eng)
+*See also* [[Name of the Lord.md|Name of the Lord]]; [[BD Christ, names of.md|BD Christ, names of]]
 
 whatsoever Adam called every living creature, that was the *name*, [[Genesis 2.19|Genesis 2:19]] ([[Moses 3.19|Moses 3:19]]; [[Abraham 5.20|Abraham 5:20]]).
 
-Cain ... called the *name* of the city, after the *name* of his son, Enoch, [[Genesis 4.17|Genesis 4:17]].
+Cain … called the *name* of the city, after the *name* of his son, Enoch, [[Genesis 4.17|Genesis 4:17]].
 
 let us make us a *name*, [[Genesis 11.4|Genesis 11:4]].
 
@@ -23,7 +22,7 @@ Lord shall blot out his *name*, [[Deuteronomy 29.20|Deuteronomy 29:20]].
 
 to raise up the *name* of the dead upon his inheritance, [[Ruth 4.5|Ruth 4:5]].
 
-leadeth me in the paths of righteousness for his *name's* sake, [[Psalms 23.3|Psalms 23:3]].
+leadeth me in the paths of righteousness for his *name’s* sake, [[Psalms 23.3|Psalms 23:3]].
 
 they call their lands after their own *names*, [[Psalms 49.11|Psalms 49:11]].
 
@@ -41,13 +40,13 @@ I will give them an everlasting *name*, [[Isaiah 56.5|Isaiah 56:5]].
 
 new *name*, which the mouth of the Lord shall *name*, [[Isaiah 62.2|Isaiah 62:2]].
 
-God shall ... call his servants by another *name*, [[Isaiah 65.15|Isaiah 65:15]].
+God shall … call his servants by another *name*, [[Isaiah 65.15|Isaiah 65:15]].
 
-men ... saying, Prophesy not in the *name* of the Lord, [[Jeremiah 11.21|Jeremiah 11:21]].
+men … saying, Prophesy not in the *name* of the Lord, [[Jeremiah 11.21|Jeremiah 11:21]].
 
 prophets prophesy lies in my *name*, [[Jeremiah 14.14|Jeremiah 14:14]].
 
-I have sworn ... that my *name* shall no more be *named* in the mouth ... of Judah, [[Jeremiah 44.26|Jeremiah 44:26]].
+I have sworn … that my *name* shall no more be *named* in the mouth … of Judah, [[Jeremiah 44.26|Jeremiah 44:26]].
 
 I will make you a *name* and a praise, [[Zephaniah 3.20|Zephaniah 3:20]].
 
@@ -57,7 +56,7 @@ unto you that fear my *name* shall the Sun of righteousness arise, [[Malachi 4.2
 
 your *names* are written in heaven, [[Luke 10.20|Luke 10:20]].
 
-I am come in my Father's *name*, [[John 5.43|John 5:43]].
+I am come in my Father’s *name*, [[John 5.43|John 5:43]].
 
 he calleth his own sheep by *name*, [[John 10.3|John 10:3]].
 
@@ -101,12 +100,12 @@ like unto mine apostle of old, whose *name* was Peter, [[D&C 49.11|D&C 49:11]].
 
 These are they whose *names* are written in heaven, [[D&C 76.68|D&C 76:68]].
 
-bishop unto my people ... not in *name* but in deed, [[D&C 117.11|D&C 117:11]].
+bishop unto my people … not in *name* but in deed, [[D&C 117.11|D&C 117:11]].
 
 ends of the earth shall inquire after thy *name*, [[D&C 122.1|D&C 122:1]].
 
-white stone ... whereon is a new *name* written, [[D&C 130.11|D&C 130:11]].
+white stone … whereon is a new *name* written, [[D&C 130.11|D&C 130:11]].
 
 One of them spake unto me, calling me by *name*, [[Joseph Smith History 1.17|Joseph Smith History 1:17]].
 
-He called me by *name* ... his *name* was Moroni, [[Joseph Smith History 1.33|Joseph Smith History 1:33]].
+He called me by *name* … his *name* was Moroni, [[Joseph Smith History 1.33|Joseph Smith History 1:33]].

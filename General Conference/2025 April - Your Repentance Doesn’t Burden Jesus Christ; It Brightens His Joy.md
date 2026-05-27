@@ -1,6 +1,8 @@
 # Your Repentance Doesn’t Burden Jesus Christ; It Brightens His Joy
 
-By Sister Tamara W. Runia - *First Counselor in the Young Women General Presidency*
+Dallin H. Oaks
+
+By Sister Tamara W. Runia - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -104,7 +106,7 @@ Remember King Benjamin’s people, who had no more disposition to do evil but on
 
 Once, at the beach, I saw a bird flying into the wind, flapping its wings so hard, almost frenetically, but staying in the same place. Then I noticed another bird, higher up. It had caught an updraft and was floating easily, unburdened in the wind. That’s the difference between trying to do this by ourselves and turning to our Savior, letting Him lift us, with “healing in his wings.”[^25]
 
-As mission leaders in Australia, during our last visit with each missionary, we talked about [[3 Nephi 17.1|3 Nephi 17]][[3 Nephi 17.2|]][[3 Nephi 17.3|]][[3 Nephi 17.4|]][[3 Nephi 17.5|]][[3 Nephi 17.6|]][[3 Nephi 17.7|]][[3 Nephi 17.8|]][[3 Nephi 17.9|]][[3 Nephi 17.10|]][[3 Nephi 17.11|]][[3 Nephi 17.12|]][[3 Nephi 17.13|]][[3 Nephi 17.14|]][[3 Nephi 17.15|]][[3 Nephi 17.16|]][[3 Nephi 17.17|]][[3 Nephi 17.18|]][[3 Nephi 17.19|]][[3 Nephi 17.20|]][[3 Nephi 17.21|]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]], where the people were close to the Savior and could hear Him praying for them. We asked, “If you could hear the Savior praying for *you*, what do you think He would say?”[^26]
+As mission leaders in Australia, during our last visit with each missionary, we talked about [[3 Nephi 17.1|3 Nephi 17]], where the people were close to the Savior and could hear Him praying for them. We asked, “If you could hear the Savior praying for *you*, what do you think He would say?”[^26]
 
 To hear their answers was one of the most Spirit-filled experiences of my life. Every one of those missionaries would pause, and tears would fill their eyes as we reminded them, “Your Savior knows the degree of difficulty you’re experiencing. He’s felt it!”
 
@@ -137,7 +139,7 @@ Bathed in His light, you’ll see people all around you who have felt alone too,
 
 [^6]: This idea came from a conversation with my daughter Carly Runia Red.
 
-[^7]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98.
+[^7]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98.
 
 [^8]: [[Helaman 7.17|Helaman 7:17]].
 
@@ -147,9 +149,9 @@ Bathed in His light, you’ll see people all around you who have felt alone too,
 
 [^11]: [[Hebrews 12.2|Hebrews 12:2]].
 
-[^12]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^12]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^13]: This thought was shared with me by Anthony Sweat; see also [[D&C 18.13|Doctrine and Covenants 18:13]]; Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 123.
+[^13]: This thought was shared with me by Anthony Sweat; see also [[D&C 18.13|Doctrine and Covenants 18:13]]; Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 123.
 
 [^14]: “Prayer is the contrite sinner’s voice, returning from his ways, while angels in their songs rejoice and cry, ‘Behold, he prays!’” (“Prayer Is the Soul’s Sincere Desire,” *Hymns*, no. 145).
 
@@ -157,32 +159,27 @@ Bathed in His light, you’ll see people all around you who have felt alone too,
 
 [^16]: See [[Revelation 12.10|Revelation 12:10]].
 
-[^17]: See [[Matthew 4.10|Matthew 4:10]]; [[Moses 1.20|Moses 1:20]]. President Russell M. Nelson urged us: “Please do not fear or delay repenting. Satan delights in your misery. Cut it short. Cast his influence out of your life!” (“[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” 98).
+[^17]: See [[Matthew 4.10|Matthew 4:10]]; [[Moses 1.20|Moses 1:20]]. President Russell M. Nelson urged us: “Please do not fear or delay repenting. Satan delights in your misery. Cut it short. Cast his influence out of your life!” (“[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” 98).
 
 [^18]: See [[Alma 34.31|Alma 34:31]]; [[D&C 88.63|Doctrine and Covenants 88:63]].
 
 [^19]: See [[D&C 88.6|Doctrine and Covenants 88:6]].
 
-[^20]: “It is not possible for you to sink lower than the infinite light of Christ’s Atonement shines” (Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona*, May 2012, 33).
+[^20]: “It is not possible for you to sink lower than the infinite light of Christ’s Atonement shines” (Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona*, May 2012, 33).
 
 [^21]: [[D&C 18.10|Doctrine and Covenants 18:10]].
 
-[^22]: See Stephen E. Robinson, *Following Christ: The Parable of the Divers and More Good News* (1995), 34–38.
+[^22]: See Stephen E. Robinson, *Following Christ: The Parable of the Divers and More Good News* (1995), 34–38.
 
-[^23]: See [[1 Nephi 12.16|1 Nephi 12:16–17]][[1 Nephi 12.17|]].
+[^23]: See [[1 Nephi 12.16|1 Nephi 12:16–17]][[1 Nephi 12.17|]].
 
 [^24]: See [[Mosiah 5.1|Mosiah 5:1–5]][[Mosiah 5.2|]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]].
 
 [^25]: [[Malachi 4.2|Malachi 4:2]].
 
-[^26]: See Tom Christofferson, “What Would It Be Like to Hear the Savior Pray for You?,” *LDS Living*, Jan. 19, 2021, ldsliving.com.
+[^26]: See Tom Christofferson, “What Would It Be Like to Hear the Savior Pray for You?,” *LDS Living*, Jan. 19, 2021, ldsliving.com.
 
 [^27]: See [[Isaiah 9.2|Isaiah 9:2]]; [[D&C 11.11|Doctrine and Covenants 11:11]].
 
 [^28]: From a personal letter from Vincent Alma Wood, my father, while I was attending Brigham Young University in 1979.
 
-
-
-
-
-#Forgiveness #Hope #Individual_Worth #Jesus_Christ #Joy #Love #Obedience #Repentance

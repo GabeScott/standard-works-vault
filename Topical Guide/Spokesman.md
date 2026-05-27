@@ -1,7 +1,6 @@
 # Spokesman
 
-
-he shall be thy *spokesman* ... instead of God, [[Exodus 4.16|Exodus 4:16]].
+he shall be thy *spokesman* … instead of God, [[Exodus 4.16|Exodus 4:16]].
 
 I will make a *spokesman* for him, [[2 Nephi 3.17|2 Nephi 3:17]].
 

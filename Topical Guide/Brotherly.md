@@ -1,6 +1,5 @@
 # Brotherly
 
-
 remembered not the *brotherly* covenant, [[Amos 1.9|Amos 1:9]].
 
 affectioned one to another with *brotherly* love, [[Romans 12.10|Romans 12:10]].

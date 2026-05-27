@@ -1,5 +1,7 @@
 # “His Word Ye Shall Receive”
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -22,11 +24,11 @@ A year and a half later, the Lord added to that significant promise this stern w
 
 “What I the Lord have spoken, I have spoken, and I excuse not myself; and though the heavens and the earth pass away, my word shall not pass away, but shall all be fulfilled, whether by mine own voice or by the voice of my servants, it is the same” ([[D&C 1.38|D&C 1:38]]).
 
-It is no small thing, my brothers and sisters, to have a prophet of God in our midst. Great and wonderful are the blessings that come into our lives as we listen to the word of the Lord given to us through him. At the same time, knowing that President Gordon B. Hinckley is God’s prophet also endows us with responsibility. When we hear the counsel of the Lord expressed through the words of the President of the Church, our response should be positive and prompt. History has shown that there is safety, peace, prosperity, and happiness in responding to prophetic counsel as did Nephi of old: “I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]).
+It is no small thing, my brothers and sisters, to have a prophet of God in our midst. Great and wonderful are the blessings that come into our lives as we listen to the word of the Lord given to us through him. At the same time, knowing that President Gordon B. Hinckley is God’s prophet also endows us with responsibility. When we hear the counsel of the Lord expressed through the words of the President of the Church, our response should be positive and prompt. History has shown that there is safety, peace, prosperity, and happiness in responding to prophetic counsel as did Nephi of old: “I will go and do the things which the Lord hath commanded” ([[1 Nephi 3.7|1 Ne. 3:7]]).
 
-We know of the experience of Naaman, who was struck with leprosy and who eventually contacted the prophet Elisha and was instructed to “go and wash in \[the\] Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean” ([[2 Kings 5.10|2 Kgs. 5:10]]).
+We know of the experience of Naaman, who was struck with leprosy and who eventually contacted the prophet Elisha and was instructed to “go and wash in \[the\] Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean” ([[2 Kings 5.10|2 Kgs. 5:10]]).
 
-At first, Naaman was unwilling to follow Elisha’s counsel. He couldn’t understand the thing he had been asked to do—to wash seven times in the Jordan River. In other words, his pride and stubbornness were keeping him from receiving the Lord’s blessing through His prophet. Thankfully, he finally went down and “dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean” ([[2 Kings 5.14|2 Kgs. 5:14]]).
+At first, Naaman was unwilling to follow Elisha’s counsel. He couldn’t understand the thing he had been asked to do—to wash seven times in the Jordan River. In other words, his pride and stubbornness were keeping him from receiving the Lord’s blessing through His prophet. Thankfully, he finally went down and “dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean” ([[2 Kings 5.14|2 Kgs. 5:14]]).
 
 What a humbling thing it must have been for Naaman to realize how close he came to allowing his own pride and his unwillingness to listen to the counsel of the prophet to prevent him from receiving such a great, cleansing blessing. And what a humbling thing it is to contemplate how many of us might miss out on great and promised blessings because we do not listen *and then do* the relatively simple things our prophet is telling us to do today.
 
@@ -36,7 +38,7 @@ And then last November, from this very pulpit, President Hinckley spoke to all o
 
 It is significant to remember that President Hinckley petitioned the Lord on behalf of our young people. He said, “I want you to know that I have been on my knees asking the Lord to bless me with the power and the capacity and the language to reach into your hearts” (*Ensign,* Jan. 2001, 2).
 
-During the priesthood session President Hinckley said: “I hope \[your sons and daughters\] can share their burden with you, their fathers and mothers. I hope that you will listen, that you will be patient and understanding, that you will draw them to you and comfort and sustain them in their loneliness. Pray for direction. Pray for patience. Pray for the strength to love even though the offenses may have been serious. Pray for understanding and kindness and, above all, for wisdom and inspiration” (in Conference Report, Oct. 2000, 69; or *Ensign,* Nov. 2000, 51).
+During the priesthood session President Hinckley said: “I hope \[your sons and daughters\] can share their burden with you, their fathers and mothers. I hope that you will listen, that you will be patient and understanding, that you will draw them to you and comfort and sustain them in their loneliness. Pray for direction. Pray for patience. Pray for the strength to love even though the offenses may have been serious. Pray for understanding and kindness and, above all, for wisdom and inspiration” (in Conference Report, Oct. 2000, [[2000 October - “Great Shall Be the Peace of Thy Children”.md|69]]; or *Ensign,* Nov. 2000, 51).
 
 Have we studied his counsel and identified the things we need to avoid or to do differently? I know a 17-year-old who, just prior to the prophet’s talk, had pierced her ears a second time. She came home from the fireside, took off the second set of earrings, and simply said to her parents, “If President Hinckley says we should only wear one set of earrings, that’s good enough for me.”
 
@@ -59,8 +61,3 @@ My brothers and sisters, I testify to you that the fulness of the everlasting go
 
 
 
-
-
-
-
-#Adversity #Commandments #Family #Fatherhood #Joy #Leadership #Morality #Obedience #Parents #Peace #Prophets #Quorum_Of_The_Twelve_Apostles #Safety #Youth

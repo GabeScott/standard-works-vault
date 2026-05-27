@@ -4,6 +4,3 @@
 
 [JST Matthew 17:14](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/17?lang=eng)
 
-
-
-

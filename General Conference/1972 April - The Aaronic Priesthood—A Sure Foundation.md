@@ -1,6 +1,8 @@
 # The Aaronic Priesthood—A Sure Foundation
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Wilford G. Edling
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -14,7 +16,7 @@ I do this because I know that God lives. I know that his Son, Jesus Christ, the 
 
 I also know I have been called by the Lord through his prophets, as President Smith announced, and that if I will repent of my sins, He will bless me and strengthen me for the tasks ahead. If I did not know these things to be true, I would not have the courage nor the temerity to accept such a call. Even knowing this, it is frightening to contemplate assuming such a sacred trust.
 
-The last ten and one-half years under the direction of a great leader, Bishop John H. Vandenberg, have been wonderful indeed. I have been associated with him as a member of my stake presidency when I served as bishop of the Denver Fourth Ward, as a fellow counselor in the Denver Stake presidency, and now for more than ten years as one of his counselors in the Presiding Bishopric. I want him and you to know that I love and appreciate him. He is a man of great ability. I am deeply grateful for having had the privilege of being his counselor.
+The last ten and one-half years under the direction of a great leader, Bishop John H. Vandenberg, have been wonderful indeed. I have been associated with him as a member of my stake presidency when I served as bishop of the Denver Fourth Ward, as a fellow counselor in the Denver Stake presidency, and now for more than ten years as one of his counselors in the Presiding Bishopric. I want him and you to know that I love and appreciate him. He is a man of great ability. I am deeply grateful for having had the privilege of being his counselor.
 
 Bishop Simpson, as first counselor in the Presiding Bishopric, has made a great contribution to the Church, as evidenced by the love the people everywhere have for him. He is a man without guile.
 
@@ -85,8 +87,3 @@ We want you to know of our love and support for you. We are grateful to the Lord
 
 
 
-
-
-
-
-#Leadership #Priesthood

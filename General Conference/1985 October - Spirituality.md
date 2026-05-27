@@ -1,5 +1,7 @@
 # Spirituality
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -10,7 +12,7 @@ As faithful members of The Church of Jesus Christ of Latter-day Saints, we have 
 
 To the faithful, spirituality is a lens through which we view life and a gauge by which we evaluate it. The Apostle Paul expressed this thought in two of his letters:
 
-“We look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal.” ([[2 Corinthians 4.18|2 Cor. 4:18]].)
+“We look not at the things which are seen, but at the things which are not seen: for the things which are seen are temporal; but the things which are not seen are eternal.” ([[2 Corinthians 4.18|2 Cor. 4:18]].)
 
 “For they that are after the flesh do mind the things of the flesh; but they that are after the Spirit the things of the Spirit.
 
@@ -18,7 +20,7 @@ To the faithful, spirituality is a lens through which we view life and a gauge b
 
 To be spiritually minded is to view and evaluate our experiences in terms of the enlarged perspective of eternity.
 
-Each of us has a personal lens through which we *view* the world. Our lens gives its special tint to all we see. It can suppress some features and emphasize others. It can also reveal things otherwise invisible. Through the lens of spirituality, we can know “the things of God” by “the Spirit of God.” ([[1 Corinthians 2.11|1 Cor. 2:11]].) As the Apostle Paul taught, such things are “foolishness” to the “natural man.” He cannot see them “because they are spiritually discerned.” (See [[1 Corinthians 2.14|1 Cor. 2:14]].)
+Each of us has a personal lens through which we *view* the world. Our lens gives its special tint to all we see. It can suppress some features and emphasize others. It can also reveal things otherwise invisible. Through the lens of spirituality, we can know “the things of God” by “the Spirit of God.” ([[1 Corinthians 2.11|1 Cor. 2:11]].) As the Apostle Paul taught, such things are “foolishness” to the “natural man.” He cannot see them “because they are spiritually discerned.” (See [[1 Corinthians 2.14|1 Cor. 2:14]].)
 
 How we *interpret* our experiences is also a function of our degree of spirituality. Some interpret mortality solely in terms of worldly accomplishments and possessions. In contrast, we who have a testimony of the gospel of Jesus Christ should interpret our experiences in terms of our knowledge of the purpose of life, the mission of our Savior, and the eternal destiny of the children of God.
 
@@ -44,11 +46,11 @@ The contrast between the spiritual and the temporal is also illustrated by the t
 
 The Roman soldiers of Pilate provided an unforgettable illustration of the different perspectives of the carnal mind and the spiritual mind. During a tragic afternoon on Calvary, a handful of soldiers waited at the foot of a cross. The most important event in all eternity was taking place on the cross above their heads. Oblivious to that fact, they occupied themselves casting lots to divide the earthly property of the dying Son of God. (See [[Matthew 27.35|Matt. 27:35]]; [[Luke 23.34|Luke 23:34]]; [[John 19.24|John 19:24]].) Their example reminds each of us that we should not be casting our lots for the things of the world while the things of eternity, including our families and the work of the Lord, suffer for our attention.
 
-Here is an example of a spiritual and a temporal evaluation of an everyday experience. In a BYU devotional several years ago, Elder Loren C. Dunn described how his father, a busy stake president in Tooele, gave his two young sons the responsibility of raising cows on the family farm. He gave the boys large latitude in what they could do, and they made some mistakes. These were observed by an alert neighbor, who complained to their father about what the young cow-raisers were doing. “Jim, you don’t understand,” President Dunn replied. “You see, I’m raising boys, not cows.” (“Our Spiritual Heritage,” in *Brigham Young University 1981–82 Fireside and Devotional Speeches,* Provo: Brigham Young University Press, 1982, p. 138.) What a marvelous insight! What an example for parents who are inclined to view and evaluate their children’s performance solely in temporal terms.
+Here is an example of a spiritual and a temporal evaluation of an everyday experience. In a BYU devotional several years ago, Elder Loren C. Dunn described how his father, a busy stake president in Tooele, gave his two young sons the responsibility of raising cows on the family farm. He gave the boys large latitude in what they could do, and they made some mistakes. These were observed by an alert neighbor, who complained to their father about what the young cow-raisers were doing. “Jim, you don’t understand,” President Dunn replied. “You see, I’m raising boys, not cows.” (“Our Spiritual Heritage,” in *Brigham Young University 1981–82 Fireside and Devotional Speeches,* Provo: Brigham Young University Press, 1982, p. 138.) What a marvelous insight! What an example for parents who are inclined to view and evaluate their children’s performance solely in temporal terms.
 
 What we *see* around us depends on what we *seek* in life. The Spanish conquerors took irreplaceable objects of art from the craftsmen of the New World and melted them down into gold bullion. The enemies of the young prophet, Joseph Smith, hounded him to get possession of the golden plates from which he was to translate the Book of Mormon. They sought the golden plates to get money, not a message. The temporal value of the plates had a price; their spiritual value was priceless.
 
-Elder John A. Widtsoe taught that “there is a spiritual meaning of all human acts and earthly events. … It is the business of man to find the spiritual meaning of earthly things. … No man is quite so happy … as he who backs all his labors by such a spiritual interpretation and understanding of the acts of his life.” (In Conference Report, Apr. 1922, pp. 96–97.)
+Elder John A. Widtsoe taught that “there is a spiritual meaning of all human acts and earthly events. … It is the business of man to find the spiritual meaning of earthly things. … No man is quite so happy … as he who backs all his labors by such a spiritual interpretation and understanding of the acts of his life.” (In Conference Report, Apr. 1922, pp. 96–97.)
 
 The Latter-day Saint men and women who settled these valleys of the mountains acted upon that principle. Judged in terms of the values and aspirations of the world, some pioneer enterprises were failures. The iron mission did not succeed in making significant quantities of iron. The cotton mission did not give the Utah Territory self-sufficiency in cotton production. Efforts to manufacture sugar did not achieve material success for forty years. The Perpetual Immigration Fund did not perpetuate itself because many immigrants were unable to pay their debt to it.
 
@@ -56,7 +58,7 @@ But, when measured against the eternal values of loyalty, cooperation, and conse
 
 In another great event in Mormon history, several hundred men marched from Ohio to give military relief to the persecuted Saints in Zion—western Missouri. But when the men of Zion’s Camp approached their intended destination, the Prophet Joseph Smith disbanded them. According to its ostensible purpose, the expedition was a failure. But most of the men who were to lead the Church for the next half-century, including those who would take the Saints across the plains and colonize the Intermountain West, came to know the Prophet Joseph and received their formative leadership training in the march of Zion’s Camp. As Elder Orson F. Whitney said of Zion’s Camp:
 
-“The redemption of Zion is more than the purchase or recovery of lands, the building of cities, or even the founding of nations. It is the conquest of the heart, the subjugation of the soul, the sanctifying of the flesh, the purifying and ennobling of the passions.” (*The Life of Heber C. Kimball,* 2d ed., Salt Lake City: Stevens & Wallis, 1945, p. 65.)
+“The redemption of Zion is more than the purchase or recovery of lands, the building of cities, or even the founding of nations. It is the conquest of the heart, the subjugation of the soul, the sanctifying of the flesh, the purifying and ennobling of the passions.” (*The Life of Heber C. Kimball,* 2d ed., Salt Lake City: Stevens & Wallis, 1945, p. 65.)
 
 The first of the Ten Commandments—“Thou shalt have no other gods before me” ([[Exodus 20.3|Ex. 20:3]])—epitomizes the nature of spirituality. A spiritual person has no priorities ahead of God. A person who seeks or serves other objectives, such as power or prominence, is not spiritual.
 
@@ -64,7 +66,7 @@ The primacy of the spiritual over the temporal is evident in the teachings of th
 
 “All flesh is as grass, and all the glory of man as the flower of grass. The grass withereth, and the flower thereof falleth away:
 
-“But the word of the Lord endureth for ever.” ([[1 Peter 1.24|1 Pet. 1:24–25]][[1 Peter 1.25|]].)
+“But the word of the Lord endureth for ever.” ([[1 Peter 1.24|1 Pet. 1:24–25]][[1 Peter 1.25|]].)
 
 James asked: “Know ye not that the friendship of the world is enmity with God? whosoever therefore will be a friend of the world is the enemy of God.” ([[James 4.4|James 4:4]].)
 
@@ -74,15 +76,15 @@ And the Apostle John wrote:
 
 “For all that is in the world, the lust of the flesh, and the lust of the eyes, and the pride of life, is not of the Father, but is of the world.
 
-“And the world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.” ([[1 John 2.15|1 Jn. 2:15–17]][[1 John 2.16|]][[1 John 2.17|]].)
+“And the world passeth away, and the lust thereof: but he that doeth the will of God abideth for ever.” ([[1 John 2.15|1 Jn. 2:15–17]][[1 John 2.16|]][[1 John 2.17|]].)
 
 Materialism, which gives priority to material needs and objects, is obviously the opposite of spirituality. The Savior taught that we should not lay up “treasures upon earth, where moth and rust doth corrupt, and where thieves break through and steal.” ([[Matthew 6.19|Matt. 6:19]].) We should lay up treasures in heaven: “For where your treasure is, there will your heart be also.” ([[Matthew 6.21|Matt. 6:21]].)
 
 Like other Book of Mormon prophets, Samuel the Lamanite warned the Nephites that they were cursed because of their riches, “Because ye have set your hearts upon them, and have not hearkened unto the words of him who gave them unto you.” ([[Helaman 13.21|Hel. 13:21]]; see also [[Helaman 6.17|Hel. 6:17]]; [[Helaman 7.21|7:21]].)
 
-The Apostle Paul counseled young Timothy, “Charge them that are rich in this world, that they be not highminded, nor trust in uncertain riches, but in the living God, who giveth us richly all things to enjoy.” ([[1 Timothy 6.17|1 Tim. 6:17]].)
+The Apostle Paul counseled young Timothy, “Charge them that are rich in this world, that they be not highminded, nor trust in uncertain riches, but in the living God, who giveth us richly all things to enjoy.” ([[1 Timothy 6.17|1 Tim. 6:17]].)
 
-There is nothing inherently evil about money. The Good Samaritan used the same coinage to serve his fellowman that Judas used to betray the Master. It is “the *love of money* \[which\] is the root of all evil.” ([[1 Timothy 6.10|1 Tim. 6:10]]; italics added.) The critical difference is the degree of spirituality we exercise in viewing, evaluating, and managing the things of this world and our experiences in it.
+There is nothing inherently evil about money. The Good Samaritan used the same coinage to serve his fellowman that Judas used to betray the Master. It is “the *love of money* \[which\] is the root of all evil.” ([[1 Timothy 6.10|1 Tim. 6:10]]; italics added.) The critical difference is the degree of spirituality we exercise in viewing, evaluating, and managing the things of this world and our experiences in it.
 
 If allowed to become an object of worship or priority, money can make us selfish and prideful, “puffed up in the vain things of the world.” ([[Alma 5.37|Alma 5:37]].) In contrast, if used for fulfilling our legal obligations and for paying our tithes and offerings, money can demonstrate integrity and develop unselfishness. The spiritually enlightened use of property can help prepare us for the higher law of a celestial glory.
 
@@ -90,7 +92,7 @@ The qualities of spirituality we have been able to embody in our lives are often
 
 Seen with the perspective of eternity, a temporal setback can be an opportunity to develop soul power of eternal significance. Strength is forged in adversity. Faith is developed in a setting where we cannot see what lies ahead.
 
-Lehi promised his son Jacob that God “shall consecrate thine afflictions for thy gain.” ([[2 Nephi 2.2|2 Ne. 2:2]].) In the midst of the Missouri persecutions, the Lord assured the Saints that “all things wherewith you have been afflicted shall work together for your good.” ([[D&C 98.3|D&C 98:3]].) Those who can look upon their afflictions in this manner have spirituality.
+Lehi promised his son Jacob that God “shall consecrate thine afflictions for thy gain.” ([[2 Nephi 2.2|2 Ne. 2:2]].) In the midst of the Missouri persecutions, the Lord assured the Saints that “all things wherewith you have been afflicted shall work together for your good.” ([[D&C 98.3|D&C 98:3]].) Those who can look upon their afflictions in this manner have spirituality.
 
 How do we achieve spirituality? How do we attain that degree of holiness where we can have the constant companionship of the Holy Ghost? How do we come to view and evaluate the things of this world with the perspective of eternity?
 
@@ -115,8 +117,3 @@ May we strive to attain that level of spirituality where we sanctify ourselves t
 
 
 
-
-
-
-
-#Spirituality

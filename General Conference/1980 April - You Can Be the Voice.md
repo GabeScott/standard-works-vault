@@ -1,6 +1,8 @@
 # You Can Be the Voice
 
-By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder M. Russell Ballard - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -55,5 +57,3 @@ God bless us to keep this commitment, my brethren, to bring into full fellowship
 
 
 
-
-#Activation #Commitment

@@ -1,6 +1,8 @@
 # The Imperfect Harvest
 
-By Elder Vern P. Stanfill - *Of the Seventy*
+Gary E. Stevenson
+
+By Elder Vern P. Stanfill - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -24,7 +26,7 @@ Becoming perfected in Christ is another matter. It is the process—lovingly gui
 
 We can see this principle in effect when the Savior fed the five thousand.
 
-“When Jesus then lifted up his eyes, and saw a great company come unto him, he saith unto Philip, Whence shall we buy bread, that these may eat? …
+“When Jesus then lifted up his eyes, and saw a great company come unto him, he saith unto Philip, Whence shall we buy bread, that these may eat? …
 
 “Philip answered him, Two hundred pennyworth of bread is not sufficient for them, that every one of them may take a little.
 
@@ -54,9 +56,9 @@ Shortly after this experience, Jesus sent His disciples ahead on a boat. They so
 
 Brothers and sisters, that may not have been the end of the conversation. I believe that as Peter and the Savior walked back to the ship arm in arm, Peter soaking wet and perhaps feeling very foolish, the Savior may have said something like this: “Oh, Peter, fear not and worry not. If you could see yourself as I see you, your doubt would fade and your faith increase. I love you, dear Peter; you got out of the boat. Your offering is acceptable, and even though you faltered, I will always be there to lift you from the depths, and your offering will be made perfect.”
 
-Elder Dieter F. Uchtdorf taught:
+Elder Dieter F. Uchtdorf taught:
 
-“I believe the Savior Jesus Christ would want you to see, feel, and know that He is your strength. That with His help, there are no limits to what you can accomplish. That your potential is limitless. He would want you to see yourself the way He sees you. And that is very different from the way the world sees you. …
+“I believe the Savior Jesus Christ would want you to see, feel, and know that He is your strength. That with His help, there are no limits to what you can accomplish. That your potential is limitless. He would want you to see yourself the way He sees you. And that is very different from the way the world sees you. …
 
 “He gives power to the weary; and to those who feel powerless, He increases strength.”[^6]
 
@@ -74,9 +76,9 @@ And then He taught, “Verily, verily, I say unto you, He that believeth on me, 
 
 Regardless of how insignificant our efforts may seem, if we are sincere, the Savior will use us to accomplish His work. If we simply do the best we can and trust Him to make up the difference, we can become part of the miracles that surround us.
 
-Elder Dale G. Renlund said, “You don’t have to be perfect, but we need you, because everybody who’s willing can do something.”[^9]
+Elder Dale G. Renlund said, “You don’t have to be perfect, but we need you, because everybody who’s willing can do something.”[^9]
 
-And President Russell M. Nelson teaches us, “The Lord loves effort.”[^10]
+And President Russell M. Nelson teaches us, “The Lord loves effort.”[^10]
 
 The Savior stands ready to accept our humble offerings and perfect them through His grace. With Christ, there is no imperfect harvest. We must have the courage to believe that His grace is for us—that He will help us, rescue us from the depths when we falter, and perfect our less-than-perfect efforts.
 
@@ -99,22 +101,17 @@ Brothers and sisters, I testify of Christ, who has the power to perfect even our
 
 [^5]: [[Matthew 14.27|Matthew 14:27–31]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]].
 
-[^6]: Dieter F. Uchtdorf, “[[2022 October - Jesus Christ Is the Strength of Youth.md|Jesus Christ Is the Strength of Youth]],” *Liahona*, Nov. 2022, 9–10.
+[^6]: Dieter F. Uchtdorf, “[[2022 October - Jesus Christ Is the Strength of Youth.md|Jesus Christ Is the Strength of Youth]],” *Liahona*, Nov. 2022, 9–10.
 
 [^7]: [[John 14.9|John 14:9]].
 
 [^8]: [[John 14.12|John 14:12]].
 
-[^9]: Dale G. Renlund, in Aubrey Eyre, “[Elder Renlund Visits Caribbean Saints Preparing to Withstand ‘Seismic Hits of Life](https://www.churchofjesuschrist.org/church/news/elder-renlund-visits-caribbean-saints-preparing-to-withstand-seismic-hits-of-life),’” Church News, Mar. 4, 2020, ChurchofJesusChrist.org.
+[^9]: Dale G. Renlund, in Aubrey Eyre, “[Elder Renlund Visits Caribbean Saints Preparing to Withstand ‘Seismic Hits of Life](https://www.churchofjesuschrist.org/church/news/elder-renlund-visits-caribbean-saints-preparing-to-withstand-seismic-hits-of-life),’” Church News, Mar. 4, 2020, ChurchofJesusChrist.org.
 
-[^10]: Russell M. Nelson, in Joy D. Jones, “[[2020 April - An Especially Noble Calling.md|An Especially Noble Calling]],” *Ensign* or *Liahona*, May 2020, 16.
+[^10]: Russell M. Nelson, in Joy D. Jones, “[[2020 April - An Especially Noble Calling.md|An Especially Noble Calling]],” *Ensign* or *Liahona*, May 2020, 16.
 
 [^11]: See [[Matthew 13.1|Matthew 13:1–23]][[Matthew 13.2|]][[Matthew 13.3|]][[Matthew 13.4|]][[Matthew 13.5|]][[Matthew 13.6|]][[Matthew 13.7|]][[Matthew 13.8|]][[Matthew 13.9|]][[Matthew 13.10|]][[Matthew 13.11|]][[Matthew 13.12|]][[Matthew 13.13|]][[Matthew 13.14|]][[Matthew 13.15|]][[Matthew 13.16|]][[Matthew 13.17|]][[Matthew 13.18|]][[Matthew 13.19|]][[Matthew 13.20|]][[Matthew 13.21|]][[Matthew 13.22|]][[Matthew 13.23|]].
 
 [^12]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-
-
-#Grace #Individual_Worth #Jesus_Christ

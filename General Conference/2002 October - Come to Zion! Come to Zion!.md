@@ -1,5 +1,7 @@
 # Come to Zion! Come to Zion!
 
+Gordon B. Hinckley
+
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2002 General Conference*
@@ -43,7 +45,7 @@ Among the doctrines that give rise to this highest order of priesthood society a
 
 The first is *love.*
 
-“Jesus said … , Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
+“Jesus said … , Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind.
 
 “This is the first and great commandment.
 
@@ -80,7 +82,7 @@ I bear witness that these things are true. President Gordon B. Hinckley is God�
 
 [^4]: [[D&C 97.21|D&C 97:21]].
 
-[^5]: See [[4 Nephi 1.16|4 Nephi 1:16]]; see also [[4 Nephi 1.1|vv. 1–18]][[4 Nephi 1.2|]][[4 Nephi 1.3|]][[4 Nephi 1.4|]][[4 Nephi 1.5|]][[4 Nephi 1.6|]][[4 Nephi 1.7|]][[4 Nephi 1.8|]][[4 Nephi 1.9|]][[4 Nephi 1.10|]][[4 Nephi 1.11|]][[4 Nephi 1.12|]][[4 Nephi 1.13|]][[4 Nephi 1.14|]][[4 Nephi 1.15|]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]].
+[^5]: See [[4 Nephi 1.16|4 Nephi 1:16]]; see also [[4 Nephi 1.1|vv. 1–18]][[4 Nephi 1.2|]][[4 Nephi 1.3|]][[4 Nephi 1.4|]][[4 Nephi 1.5|]][[4 Nephi 1.6|]][[4 Nephi 1.7|]][[4 Nephi 1.8|]][[4 Nephi 1.9|]][[4 Nephi 1.10|]][[4 Nephi 1.11|]][[4 Nephi 1.12|]][[4 Nephi 1.13|]][[4 Nephi 1.14|]][[4 Nephi 1.15|]][[4 Nephi 1.16|]][[4 Nephi 1.17|]][[4 Nephi 1.18|]].
 
 [^6]: [[Moses 7.18|Moses 7:18]]; emphasis added.
 
@@ -90,9 +92,9 @@ I bear witness that these things are true. President Gordon B. Hinckley is God�
 
 [^9]: See [[D&C 65.2|D&C 65:2, 6]][[D&C 65.6|]].
 
-[^10]: In Conference Report, Oct. 1989, 70; or *Ensign,* Nov. 1989, 53.
+[^10]: In Conference Report, Oct. 1989, [[1989 October - An Ensign to the Nations.md|70]]; or *Ensign,* Nov. 1989, 53.
 
-[^11]: Gordon B. Hinckley, in Conference Report, Oct. 1991, 78; or *Ensign,* Nov. 1991, 59.
+[^11]: Gordon B. Hinckley, in Conference Report, Oct. 1991, [[1991 October - Our Mission of Saving.md|78]]; or *Ensign,* Nov. 1991, 59.
 
 [^12]: See Spencer W. Kimball, “‘And the Lord Called His People Zion,’” *Ensign,* Aug. 1984, 2–6; *Tambuli,* Dec. 1984, 2–9.
 
@@ -102,11 +104,11 @@ I bear witness that these things are true. President Gordon B. Hinckley is God�
 
 [^15]: [[Moses 4.25|Moses 4:25]]; see also [[Genesis 3.19|Genesis 3:19]].
 
-[^16]: [[2 Nephi 26.31|2 Nephi 26:31]].
+[^16]: [[2 Nephi 26.31|2 Nephi 26:31]].
 
 [^17]: See [[D&C 78.13|D&C 78:13–14]][[D&C 78.14|]]; [[D&C 38.29|38:29–31]][[D&C 38.30|]][[D&C 38.31|]].
 
-[^18]: Spencer W. Kimball, in Conference Report, Apr. 1978, 120; or *Ensign,* May 1978, 79; see also [[1 Timothy 5.8|1 Timothy 5:8]].
+[^18]: Spencer W. Kimball, in Conference Report, Apr. 1978, [[1978 April - Becoming the Pure in Heart.md|120]]; or *Ensign,* May 1978, 79; see also [[1 Timothy 5.8|1 Timothy 5:8]].
 
 [^19]: See *Providing in the Lord’s Way: A Leader’s Guide to Welfare* (welfare handbook, 1990), 5.
 
@@ -116,8 +118,3 @@ I bear witness that these things are true. President Gordon B. Hinckley is God�
 
 [^22]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 231–32; emphasis added.
 
-
-
-
-
-#Consecration #Love #Self-Reliance #Work #Zion

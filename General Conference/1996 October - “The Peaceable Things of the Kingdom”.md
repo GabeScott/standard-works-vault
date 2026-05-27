@@ -1,5 +1,7 @@
 # “The Peaceable Things of the Kingdom”
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -91,7 +93,7 @@ Of Him and His good tidings, of the publication of His peace in this conference 
 
 [^12]: Adapted from George MacDonald.
 
-[^13]: [[2 Nephi 2.11|2 Ne. 2:11]].
+[^13]: [[2 Nephi 2.11|2 Ne. 2:11]].
 
 [^14]: [[Moses 5.11|Moses 5:11]].
 
@@ -101,10 +103,5 @@ Of Him and His good tidings, of the publication of His peace in this conference 
 
 [^17]: [[Isaiah 40.31|Isa. 40:31]].
 
-[^18]: [[3 Nephi 22.10|3 Ne. 22:10]].
+[^18]: [[3 Nephi 22.10|3 Ne. 22:10]].
 
-
-
-
-
-#Adversity #Forgiveness #Jesus_Christ #Obedience #Opposition #Peace #Prayer #Repentance

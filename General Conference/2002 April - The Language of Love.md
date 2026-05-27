@@ -1,5 +1,7 @@
 # The Language of Love
 
+Gordon B. Hinckley
+
 By Gayle M. Clegg - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2002 General Conference*
@@ -30,13 +32,13 @@ Our lives are filled with many instances of the frustration of learning a foreig
 
 After Jesus had been teaching for some time at the temple in Bountiful, He perceived the people might not have understood all the words He spoke. He asked them to go to their homes and ponder and pray with their families and prepare for Him to come the next day.
 
-But when “he cast his eyes round about again on the multitude, \[he\] beheld they were in tears, and did look steadfastly upon him as if they would ask him to tarry a little longer with them. …
+But when “he cast his eyes round about again on the multitude, \[he\] beheld they were in tears, and did look steadfastly upon him as if they would ask him to tarry a little longer with them. …
 
-“He took their little children, one by one, and blessed them. …
+“He took their little children, one by one, and blessed them. …
 
 “And he spake unto the multitude, and said unto them: Behold your little ones.
 
-“And as they looked … they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, … and the angels did minister unto them” ([[3 Nephi 17.5|3 Ne. 17:5, 21, 23–24]][[3 Nephi 17.21|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
+“And as they looked … they saw angels descending out of heaven as it were in the midst of fire; and they came down and encircled those little ones about, … and the angels did minister unto them” ([[3 Nephi 17.5|3 Ne. 17:5, 21, 23–24]][[3 Nephi 17.21|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
 
 To “encircle” with the fire of our testimony is a language all of us must learn to speak and understand.
 
@@ -74,17 +76,17 @@ Susan Madsen tells the story of Agnes Caldwell in the Willie handcart company. T
 
 Little nine-year-old Agnes was too weary to walk any farther. The driver took notice of her determination to keep up with the wagon and asked if she would like a ride. She tells in her own words what happened next:
 
-“At this he reached over, taking my hand, clucking to his horses to make me run, with legs that … could run no farther. On we went, to what to me seemed miles. What went through my head at that time was that he was the meanest man that ever lived or that I had ever heard of. … Just at what seemed the breaking point, he stopped \[and pulled me into the wagon\]. Taking a blanket, he wrapped me up … , warm and comfortable. Here I had time to change my mind, as I surely did, knowing full well by doing this he saved me from freezing when taken into the wagon” (in *I Walked to Zion* \[1994\], 59).
+“At this he reached over, taking my hand, clucking to his horses to make me run, with legs that … could run no farther. On we went, to what to me seemed miles. What went through my head at that time was that he was the meanest man that ever lived or that I had ever heard of. … Just at what seemed the breaking point, he stopped \[and pulled me into the wagon\]. Taking a blanket, he wrapped me up … , warm and comfortable. Here I had time to change my mind, as I surely did, knowing full well by doing this he saved me from freezing when taken into the wagon” (in *I Walked to Zion* \[1994\], 59).
 
 The driver of that relief wagon made the little girl run as far and as fast as she could to push blood back into her frozen feet and legs. He saved her legs, possibly her life, by letting her help herself.
 
 Our children today have journeys as terrible and taxing as the westward migration. They are faced with every calamity along the trail. We need to build their backs to bear their burdens and build their legs for dancing under starry skies. Sometimes we must run to keep up with our children’s faith.
 
-Another time in 3 Nephi when Christ was blessing the disciples, “his countenance did smile upon them, and the light of his countenance did shine upon them” ([[3 Nephi 19.25|3 Ne. 19:25]]).
+Another time in 3 Nephi when Christ was blessing the disciples, “his countenance did smile upon them, and the light of his countenance did shine upon them” ([[3 Nephi 19.25|3 Ne. 19:25]]).
 
 A smiling countenance says you are good. Children are trying to be like Jesus. They want to be like someone who smiles. They want to be with someone who responds to them joyfully.
 
-President Hinckley has said: “Children need sunlight. They need happiness. They need love and nurture” (in Conference Report, Oct. 1994, 75; or *Ensign,* Nov. 1994, 54).
+President Hinckley has said: “Children need sunlight. They need happiness. They need love and nurture” (in Conference Report, Oct. 1994, [[1994 October - Save the Children.md|75]]; or *Ensign,* Nov. 1994, 54).
 
 This should be the language of gospel instruction to our children. Whatever your mother tongue, learn to teach and speak in the language of heartfelt prayers and joyful testimony so that angels, earthly and heavenly, can encircle and minister to us. We need gospel mentors who speak the language of praise and friendship. We need to give regular spiritual report cards that affirm our goodness in each other’s eyes. It is a blessing to allow children to run as far as they can under their own power, to build strength for their own testimonies, and we should smile upon them and wrap them in the blanket of our affection throughout the great journey in the universal language of love.
 
@@ -93,8 +95,3 @@ I give thanks for the great blessing to “behold \[our\] little ones.” I like
 
 
 
-
-
-
-
-#Children #God_The_Father #Joy #Love #Music #Prayer

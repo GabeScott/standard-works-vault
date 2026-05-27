@@ -1,4 +1,3 @@
 # Zipporah
 
-
-*See* [BD Zipporah](https://www.churchofjesuschrist.org/study/scriptures/bd/zipporah?lang=eng)
+*See also* [[BD Zipporah.md|BD Zipporah]]

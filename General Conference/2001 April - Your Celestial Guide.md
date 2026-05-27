@@ -1,5 +1,7 @@
 # Your Celestial Guide
 
+Gordon B. Hinckley
+
 By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -10,9 +12,9 @@ By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 At this time in your life, you have probably had the experience of trying to perform a task that seemed really difficult and beyond your ability or experience. And possibly while you were attempting this seemingly insurmountable task, there were some, maybe even friends, who tried to discourage you, embarrass you, and belittle you. Challenges are different for each of us, but the Source for help is the same. Let’s look at Nephi’s experience.
 
-He grew up in a desert. We don’t know if he had ever seen a ship before the Lord asked him to build a ship—a seemingly insurmountable task! But Nephi had faith the Lord would help him. He said the Lord showed him “from time to time” how he should build it ([[1 Nephi 18.1|1 Ne. 18:1]]). Nephi tells us he did not build it like men build ships. He built it “after the manner” the Lord showed him ([[1 Nephi 18.2|1 Ne. 18:2]]). Then he tells us how.
+He grew up in a desert. We don’t know if he had ever seen a ship before the Lord asked him to build a ship—a seemingly insurmountable task! But Nephi had faith the Lord would help him. He said the Lord showed him “from time to time” how he should build it ([[1 Nephi 18.1|1 Ne. 18:1]]). Nephi tells us he did not build it like men build ships. He built it “after the manner” the Lord showed him ([[1 Nephi 18.2|1 Ne. 18:2]]). Then he tells us how.
 
-“I did pray oft unto the Lord; wherefore the Lord showed unto me great things” ([[1 Nephi 18.3|1 Ne. 18:3]]).
+“I did pray oft unto the Lord; wherefore the Lord showed unto me great things” ([[1 Nephi 18.3|1 Ne. 18:3]]).
 
 When you pray often and seek to know the Lord’s will like Nephi did, the Lord will show you the way. But you can be sure when you are trying your best to obey, you may face strong opposition from those wishing to discourage and dissuade you. Nephi’s dissenters were his own brothers. Think how hard that would be!
 
@@ -46,7 +48,7 @@ I had overstepped something that was expected of me. I had chosen to be popular 
 
 There may be times the Spirit finds it difficult to help you because maybe you are not asking for His help in your prayers, or maybe because you are not listening, or maybe the message can’t get through the loud music or the radio or video.
 
-Kirstin said, “From personal experience, if we will listen to the Spirit, our lives will not be as complicated and full of temptation” (letter on file in the Young Women office). Laman and Lemuel refused to listen so many times that they were “past feeling” those sacred promptings ([[1 Nephi 17.45|1 Ne. 17:45]]).
+Kirstin said, “From personal experience, if we will listen to the Spirit, our lives will not be as complicated and full of temptation” (letter on file in the Young Women office). Laman and Lemuel refused to listen so many times that they were “past feeling” those sacred promptings ([[1 Nephi 17.45|1 Ne. 17:45]]).
 
 You might ask yourself, *How can I tell it’s the Holy Ghost teaching me and not my emotions or circumstances?* Think of a time when you know you felt the Spirit of the Lord. Maybe it was during testimony meeting at camp or you were with your family or you were reading the scriptures or praying. Maybe sometime during this meeting as you listen to the music or hear our prophet speak, you will feel that warmth in your heart. That is the Holy Ghost bearing witness to you. Remember, remember how the Spirit feels. Use that experience to help you identify the Spirit again and again.
 
@@ -67,8 +69,3 @@ If He knows one young woman in a faraway branch in British Columbia, He knows yo
 
 
 
-
-
-
-
-#Adversity #Holy_Ghost #Obedience #Patriarchal_Blessings #Prayer #Sacrament #Spirituality #Temptation #Young_Women

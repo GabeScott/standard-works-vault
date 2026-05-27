@@ -1,9 +1,8 @@
 # Bondman
 
+We were Pharaoh’s *bondmen* in Egypt, [[Deuteronomy 6.21|Deuteronomy 6:21]].
 
-We were Pharaoh's *bondmen* in Egypt, [[Deuteronomy 6.21|Deuteronomy 6:21]].
-
-remember that thou wast a *bondman* in ... Egypt, [[Deuteronomy 15.15|Deuteronomy 15:15]].
+remember that thou wast a *bondman* in … Egypt, [[Deuteronomy 15.15|Deuteronomy 15:15]].
 
 of Israel did Solomon make no *bondmen*, [[1 Kings 9.22|1 Kings 9:22]].
 

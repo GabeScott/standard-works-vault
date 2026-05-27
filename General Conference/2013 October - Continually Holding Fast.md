@@ -1,6 +1,8 @@
 # Continually Holding Fast
 
-By Elder Kevin S. Hamilton - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Kevin S. Hamilton - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -22,7 +24,7 @@ Lehi then saw a second group that was “pressing forward, and they came forth a
 
 There was, however, a third group that was not only successful in reaching the tree of life, but they afterward did not fall away. Of these, the scriptures say that they pressed “forward, *continually holding fast* to the rod of iron, until they came forth and fell down and partook of the fruit of the tree.”[^3] The rod of iron represented for this group of people the only safety and security that they could find, and they held fast continually; they refused to let go, even for something as simple as a Sunday afternoon ride in the country.
 
-About this group of people, Elder David A. Bednar has taught: “The key phrase in this verse is ‘continually holding fast’ to the rod of iron. … Perhaps this third group of people *consistently* read *and* studied *and* searched the words of Christ. … This is the group you and I should strive to join.”[^4]
+About this group of people, Elder David A. Bednar has taught: “The key phrase in this verse is ‘continually holding fast’ to the rod of iron. … Perhaps this third group of people *consistently* read *and* studied *and* searched the words of Christ. … This is the group you and I should strive to join.”[^4]
 
 Those of us who are members of God’s Church today have made covenants to follow Jesus Christ and to obey God’s commandments. At baptism we covenanted to stand as a witness of the Savior,[^5] to succor the weak and the needy,[^6] to keep the commandments of God, and to repent as needed, for as the Apostle Paul taught, “All have sinned, and \[fall\] short of the glory of God.”[^7]
 
@@ -36,7 +38,7 @@ One might ask why we have three separate meetings on Sunday and why the need for
 
 - Sunday School allows us to “teach one another the doctrine of the kingdom,”[^9] that all might be “edified and rejoice together.”[^10] Great power and personal peace come as we understand the doctrines of the restored gospel.
 
-- Priesthood meetings are a time for men and young men to “learn \[their\] duty”[^11] and to “be instructed more perfectly,”[^12] and Relief Society meetings provide the women of the Church an opportunity to “increase their faith … , strengthen \[their\] families and homes, and help those in need.”[^13]
+- Priesthood meetings are a time for men and young men to “learn \[their\] duty”[^11] and to “be instructed more perfectly,”[^12] and Relief Society meetings provide the women of the Church an opportunity to “increase their faith … , strengthen \[their\] families and homes, and help those in need.”[^13]
 
 Likewise, our young women and children have their own meetings and classes where they are taught the gospel as they prepare for important responsibilities that will come to them. In each of these unique but connected meetings, we learn the doctrine, feel the Spirit, and serve one another. While there may be exceptions due to distance, travel cost, or health, we should strive to attend all of our Sunday meetings. I promise that blessings of great joy and peace will come from worship during our three-hour Sunday meeting schedule.
 
@@ -61,13 +63,13 @@ May we choose to be diligent and gain the great blessings and protections that c
 
 
 
-[^1]: [[1 Nephi 8.21|1 Nephi 8:21–23]][[1 Nephi 8.22|]][[1 Nephi 8.23|]].
+[^1]: [[1 Nephi 8.21|1 Nephi 8:21–23]][[1 Nephi 8.22|]][[1 Nephi 8.23|]].
 
-[^2]: [[1 Nephi 8.24|1 Nephi 8:24–28]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].
+[^2]: [[1 Nephi 8.24|1 Nephi 8:24–28]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]].
 
-[^3]: [[1 Nephi 8.30|1 Nephi 8:30]]; emphasis added.
+[^3]: [[1 Nephi 8.30|1 Nephi 8:30]]; emphasis added.
 
-[^4]: David A. Bednar, “A Reservoir of Living Water” (Church Educational System fireside address, Feb. 4, 2007), 8–9; [speeches.byu.edu](http://speeches.byu.edu).
+[^4]: David A. Bednar, “A Reservoir of Living Water” (Church Educational System fireside address, Feb. 4, 2007), 8–9; [speeches.byu.edu](https://speeches.byu.edu).
 
 [^5]: See [[Mosiah 18.9|Mosiah 18:9]].
 
@@ -87,18 +89,13 @@ May we choose to be diligent and gain the great blessings and protections that c
 
 [^13]: *Handbook 2: Administering the Church* (2010), 9.1.1.
 
-[^14]: [[2 Nephi 28.21|2 Nephi 28:21]].
+[^14]: [[2 Nephi 28.21|2 Nephi 28:21]].
 
-[^15]: See Dallin H. Oaks, [“Good, Better, Best,”](https://churchofjesuschrist.org/study/ensign/2007/11/good-better-best?lang=eng) *Ensign* or *Liahona,* Nov. 2007, 104–8.
+[^15]: See Dallin H. Oaks, [“Good, Better, Best,”](https://www.churchofjesuschrist.org/study/ensign/2007/11/good-better-best?lang=eng) *Ensign* or *Liahona,* Nov. 2007, 104–8.
 
-[^16]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^16]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^17]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-[^18]: [[1 Nephi 15.36|1 Nephi 15:36]].
+[^18]: [[1 Nephi 15.36|1 Nephi 15:36]].
 
-
-
-
-
-#Church_Meetings #Covenants #Sacrament

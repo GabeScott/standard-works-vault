@@ -1,10 +1,12 @@
 # Come: Let Israel Build Zion
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
->*The following sermon was given by Elder McConkie on 27 February 1977 in Lima, Peru. President Spencer W. Kimball was desirous that it be printed for the membership of the Church.*
+>*The following sermon was given by Elder McConkie on 27 February 1977 in Lima, Peru. President Spencer W. Kimball was desirous that it be printed for the membership of the Church.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1977/04/come-let-israel-build-zion?lang=eng)
 
@@ -76,7 +78,7 @@ This same Zion which was taken up into heaven shall return during the Millennium
 
 That many of these truths about Zion were known and taught in ancient Israel is clear from the many references in Isaiah and the Psalms and elsewhere. Isaiah made particular mention of stakes of Zion which would be established in the day of restoration.
 
-As is well known, ancient Israel was scattered among all the nations of the earth because they forsook the Lord and worshipped false gods. As is also well known, the gathering of Israel consists of receiving the truth, gaining again a true knowledge of the Redeemer, and coming back into the true fold of the Good Shepherd. In the language of the Book of Mormon, it consists of being “restored to the true church and fold of God,” and then being “gathered” and “established” in various “lands of promise.” ([[2 Nephi 9.2|2 Ne. 9:2]].) “When they shall come to the knowledge of their Redeemer, they shall be gathered together again to the lands of their inheritance.” ([[2 Nephi 6.11|2 Ne. 6:11]].)
+As is well known, ancient Israel was scattered among all the nations of the earth because they forsook the Lord and worshipped false gods. As is also well known, the gathering of Israel consists of receiving the truth, gaining again a true knowledge of the Redeemer, and coming back into the true fold of the Good Shepherd. In the language of the Book of Mormon, it consists of being “restored to the true church and fold of God,” and then being “gathered” and “established” in various “lands of promise.” ([[2 Nephi 9.2|2 Ne. 9:2]].) “When they shall come to the knowledge of their Redeemer, they shall be gathered together again to the lands of their inheritance.” ([[2 Nephi 6.11|2 Ne. 6:11]].)
 
 Two things are accomplished by the gathering of Israel: First, those who have thus chosen Christ as their Shepherd; those who have taken upon themselves his name in the waters of baptism; those who are seeking to enjoy his Spirit here and now and to be inheritors of eternal life hereafter—such people need to be gathered together to strengthen each other and to help one another perfect their lives.
 
@@ -86,7 +88,7 @@ Manifestly in the early days of this dispensation, this meant gathering to the m
 
 However, in the providences of Him who knoweth all things, in the providences of Him who scattered Israel and who is now gathering that favored people again, the day has now come when the fold of Christ is reaching out to the ends of the earth. We are not established in all nations, but we surely shall be before the second coming of the Son of Man.
 
-As the Book of Mormon says, in the last days, “the saints of God” shall be found “upon all the face of the earth.” Also: “The saints of the church of the Lamb and … the covenant people of the Lord”—scattered as they are “upon all the face of the earth”—shall be “armed with righteousness and with the power of God in great glory.” ([[1 Nephi 14.12|1 Ne. 14:12, 14]][[1 Nephi 14.14|]].)
+As the Book of Mormon says, in the last days, “the saints of God” shall be found “upon all the face of the earth.” Also: “The saints of the church of the Lamb and … the covenant people of the Lord”—scattered as they are “upon all the face of the earth”—shall be “armed with righteousness and with the power of God in great glory.” ([[1 Nephi 14.12|1 Ne. 14:12, 14]][[1 Nephi 14.14|]].)
 
 We are living in a new day. The Church of Jesus Christ of Latter-day Saints is fast becoming a worldwide church. Congregations of Saints are now, or soon will be, strong enough to support and sustain their members no matter where they reside. Temples are being built wherever the need justifies. We can foresee many temples in South America in process of time.
 
@@ -110,7 +112,7 @@ Our Article of Faith says that “We believe … in the restoration of the Ten T
 
 Our Article of Faith says “that Zion (the New Jerusalem) will be built upon this \[the American\] continent.” This also is future and will occur after the Lord’s people have gained strength and influence and power in all the nations whither he hath scattered them.
 
-Our Article of Faith says “that Christ will reign personally upon the earth; and, that the earth will be renewed and receive its paradisiacal glory.” This also is future, a day which we devoutly desire and seek. ([[Articles of Faith 1.10|A of F 1:10]])
+Our Article of Faith says “that Christ will reign personally upon the earth; and, that the earth will be renewed and receive its paradisiacal glory.” This also is future, a day which we devoutly desire and seek. ([[Articles of Faith 1.10|A of F 1:10]])
 
 Each one of us can build up Zion in our own lives by being pure in heart. And the promise is, “Blessed are the pure in heart: for they shall see God.” ([[Matthew 5.8|Matt. 5:8]].) Each one of us can extend the borders of Zion by gathering our friends and neighbors into the fold of Israel.
 
@@ -123,8 +125,3 @@ By the revelations of the Holy Spirit to my soul, I know this work in which we a
 
 
 
-
-
-
-
-#House_Of_Israel #Restoration #Zion

@@ -1,6 +1,8 @@
 # That They Do Always Remember Him
 
-By Elder Claudio R. M. Costa - *Of the Seventy*
+Rosemary M. Wixom
+
+By Elder Claudio R. M. Costa - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -40,13 +42,13 @@ I rejoice in knowing there are parents who tell stories of Christ to their child
 
 I am grateful to my parents for having taught me about Christ. I continue to see how the Savior’s example helps my dear wife and me as we teach our own children.
 
-My heart is filled with joy when I see my children tell stories of Christ to my grandchildren. It reminds me of one of my favorite scriptures, found in [[3 John 1.4|3 John chapter 1, verse 4]], which reads, “I have no greater joy than to hear that my children walk in truth.” And why not our grandchildren as well?
+My heart is filled with joy when I see my children tell stories of Christ to my grandchildren. It reminds me of one of my favorite scriptures, found in [[3 John 1.4|3 John chapter 1, verse 4]], which reads, “I have no greater joy than to hear that my children walk in truth.” And why not our grandchildren as well?
 
 I am grateful for our leaders, who are constantly teaching us about Christ, about keeping the Sabbath day holy, and about partaking of the sacrament each Sunday in honor of the Savior.
 
 The Sabbath and the sacrament become much more enjoyable as we study the stories of Christ. In so doing, we create traditions that build our faith and testimony and also protect our family.
 
-A few weeks ago, while studying again the message President Russell M. Nelson delivered in the last general conference, and while pondering on the Sabbath day, I felt a deep gratitude for the blessing and privilege of being able to partake of the sacrament. For me that is a very solemn, sacred, and spiritual moment. I greatly enjoy sacrament meeting.
+A few weeks ago, while studying again the message President Russell M. Nelson delivered in the last general conference, and while pondering on the Sabbath day, I felt a deep gratitude for the blessing and privilege of being able to partake of the sacrament. For me that is a very solemn, sacred, and spiritual moment. I greatly enjoy sacrament meeting.
 
 While pondering, I carefully studied the blessings on the bread and the water. I read and deeply meditated on the prayers and the ordinance of the sacrament. I began to go over in my mind and in my heart the events that are connected to it.
 
@@ -108,7 +110,7 @@ Furthermore, meditating on the sacrament prayers and the very special and meanin
 
 I believe the Lord has His own timing as to when to give revelation unto us. I understood this very clearly while studying [[Ecclesiastes 3.1|Ecclesiastes 3:1, 6]][[Ecclesiastes 3.6|]], which reads:
 
-“To every thing there is a season, and a time to every purpose under the heaven: …
+“To every thing there is a season, and a time to every purpose under the heaven: …
 
 “A time to get, and a time to lose; a time to keep, and a time to cast away.”
 
@@ -129,7 +131,7 @@ I love the Sabbath, the sacrament, and what they mean. I love the Savior with al
 
 [^5]: See [[Luke 24.13|Luke 24:13–35]][[Luke 24.14|]][[Luke 24.15|]][[Luke 24.16|]][[Luke 24.17|]][[Luke 24.18|]][[Luke 24.19|]][[Luke 24.20|]][[Luke 24.21|]][[Luke 24.22|]][[Luke 24.23|]][[Luke 24.24|]][[Luke 24.25|]][[Luke 24.26|]][[Luke 24.27|]][[Luke 24.28|]][[Luke 24.29|]][[Luke 24.30|]][[Luke 24.31|]][[Luke 24.32|]][[Luke 24.33|]][[Luke 24.34|]][[Luke 24.35|]].
 
-[^6]: [[3 Nephi 11.14|3 Nephi 11:14]].
+[^6]: [[3 Nephi 11.14|3 Nephi 11:14]].
 
 [^7]: [[Matthew 26.18|Matthew 26:18]].
 
@@ -179,8 +181,3 @@ I love the Sabbath, the sacrament, and what they mean. I love the Savior with al
 
 [^30]: [[Matthew 7.7|Matthew 7:7]].
 
-
-
-
-
-#Jesus_Christ #Revelation #Sabbath #Sacrament

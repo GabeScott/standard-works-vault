@@ -1,5 +1,7 @@
 # True Happiness: A Conscious Decision
 
+Gordon B. Hinckley
+
 By Elder Benjamín De Hoyos - *Of the Seventy*
 
 *Given in the October session of the 2005 General Conference*
@@ -49,24 +51,19 @@ I leave with you my love and my humble testimony, in the name of the Lord Jesus 
 
 [^1]: [[Helaman 3.27|Helaman 3:27–30]][[Helaman 3.28|]][[Helaman 3.29|]][[Helaman 3.30|]]; emphasis added.
 
-[^2]: [[1 Nephi 1.20|1 Nephi 1:20]]; emphasis added.
+[^2]: [[1 Nephi 1.20|1 Nephi 1:20]]; emphasis added.
 
-[^3]: See Guide to the Scriptures, “Joy,” 137.
+[^3]: See Guide to the Scriptures, “[Joy](https://www.churchofjesuschrist.org/study/scriptures/gs/joy?lang=eng&id=p1#p1),” 137.
 
-[^4]: See [[2 Nephi 9.43|2 Nephi 9:43]].
+[^4]: See [[2 Nephi 9.43|2 Nephi 9:43]].
 
 [^5]: *History of the Church,* 5:134–35.
 
-[^6]: See [[2 Nephi 5.10|2 Nephi 5:10]].
+[^6]: See [[2 Nephi 5.10|2 Nephi 5:10]].
 
-[^7]: [[2 Nephi 5.27|2 Nephi 5:27]].
+[^7]: [[2 Nephi 5.27|2 Nephi 5:27]].
 
 [^8]: [[Mosiah 2.41|Mosiah 2:41]].
 
 [^9]: [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-
-#Agency #Jesus_Christ #Joy #Obedience

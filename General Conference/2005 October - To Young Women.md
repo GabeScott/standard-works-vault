@@ -1,5 +1,7 @@
 # To Young Women
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -63,16 +65,11 @@ To my granddaughter and to every other young person in this Church I bear my per
 
 [^10]: Halle Berry, quoted in “Halle Slams ‘Insane’ Plastic Surgery,” *This Is London,* Aug. 2, 2004, www.thisislondon.com/showbiz/articles/12312096?source=PA.
 
-[^11]: [[1 Nephi 12.18|1 Nephi 12:18]].
+[^11]: [[1 Nephi 12.18|1 Nephi 12:18]].
 
-[^12]: See [[1 Nephi 8.27|1 Nephi 8:27]]. See Douglas Bassett, “Faces of Worldly Pride in the Book of Mormon,” *Ensign,* Oct. 2000, 51, for an excellent discussion of this issue.
+[^12]: See [[1 Nephi 8.27|1 Nephi 8:27]]. See Douglas Bassett, “Faces of Worldly Pride in the Book of Mormon,” *Ensign,* Oct. 2000, 51, for an excellent discussion of this issue.
 
 [^13]: See [[Joseph Smith History 1.24|Joseph Smith—History 1:24–25]][[Joseph Smith History 1.25|]].
 
 [^14]: [[John 20.27|John 20:27]].
 
-
-
-
-
-#Divine_Nature #Morality #Plan_Of_Salvation #Self-Esteem #Testimony #Womanhood #Young_Women

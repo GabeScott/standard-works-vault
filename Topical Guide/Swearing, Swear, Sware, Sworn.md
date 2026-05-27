@@ -1,7 +1,6 @@
 # Swearing, Swear, Sware, Sworn
 
-
-*See also* [[Blaspheme, Blasphemous, Blasphemy.md|Blaspheme]]; [[Covenants.md|Covenants]]; [[Honesty.md|Honesty]]; [[Oath.md|Oath]]; [[Obedience, Obedient, Obey.md|Obedience]]; [[Pledge.md|Pledge]]; [[Profanity.md|Profanity]]; [[Promise.md|Promise]]; [[Vow.md|Vow]]
+*See also* [[Blaspheme.md|Blaspheme]]; [[Covenants.md|Covenants]]; [[Honesty.md|Honesty]]; [[Oath.md|Oath]]; [[Obedience.md|Obedience]]; [[Pledge.md|Pledge]]; [[Profanity.md|Profanity]]; [[Promise.md|Promise]]; [[Vow.md|Vow]]
 
 Beer-sheba; because there they *sware*, [[Genesis 21.31|Genesis 21:31]].
 
@@ -13,9 +12,9 @@ not take the name of the Lord thy God in *vain*, [[Exodus 20.7|Exodus 20:7]].
 
 not *swear* by my name falsely, [[Leviticus 19.12|Leviticus 19:12]].
 
-Lord ... *sware* that I should not go over Jordan, [[Deuteronomy 4.21|Deuteronomy 4:21]].
+Lord … *sware* that I should not go over Jordan, [[Deuteronomy 4.21|Deuteronomy 4:21]].
 
-Thou ... shalt *swear* by his name, [[Deuteronomy 6.13|Deuteronomy 6:13]].
+Thou … shalt *swear* by his name, [[Deuteronomy 6.13|Deuteronomy 6:13]].
 
 possess the good land which the Lord *sware* unto thy fathers, [[Deuteronomy 6.18|Deuteronomy 6:18]].
 
@@ -29,7 +28,7 @@ Lord hath *sworn* in truth, [[Psalms 132.11|Psalms 132:11]] ([[Acts 2.30|Acts 2:
 
 every knee shall bow, every tongue shall *swear*, [[Isaiah 45.23|Isaiah 45:23]].
 
-*swear* ... but not in truth, [[Isaiah 48.1|Isaiah 48:1]] ([[1 Nephi 20.1|1 Nephi 20:1]]).
+*swear* … but not in truth, [[Isaiah 48.1|Isaiah 48:1]] ([[1 Nephi 20.1|1 Nephi 20:1]]).
 
 how should my *name* be polluted, [[Isaiah 48.11|Isaiah 48:11]].
 
@@ -43,7 +42,7 @@ because of *swearing* the land mourneth, [[Jeremiah 23.10|Jeremiah 23:10]].
 
 *sware* by him that liveth for ever, [[Daniel 12.7|Daniel 12:7]] ([[Revelation 10.6|Revelation 10:6]]).
 
-By *swearing* ... they break out, [[Hosea 4.2|Hosea 4:2]].
+By *swearing* … they break out, [[Hosea 4.2|Hosea 4:2]].
 
 They have spoken words, *swearing* falsely, [[Hosea 10.4|Hosea 10:4]].
 
@@ -53,9 +52,9 @@ They that *swear* by the sin of Samaria, [[Amos 8.14|Amos 8:14]].
 
 every one that *sweareth* shall be cut off, [[Zechariah 5.3|Zechariah 5:3]].
 
-swift witness ... against false *swearers*, [[Malachi 3.5|Malachi 3:5]] ([[3 Nephi 24.5|3 Nephi 24:5]]).
+swift witness … against false *swearers*, [[Malachi 3.5|Malachi 3:5]] ([[3 Nephi 24.5|3 Nephi 24:5]]).
 
-*Swear* not at all, [[Matthew 5.34|Matthew 5:34]] ([[James 5.12|James 5:12]]; [[3 Nephi 12.33|3 Ne. 12:33-37]][[3 Nephi 12.34|]][[3 Nephi 12.35|]][[3 Nephi 12.36|]][[3 Nephi 12.37|]]).
+*Swear* not at all, [[Matthew 5.34|Matthew 5:34]] ([[James 5.12|James 5:12]]).
 
 he that shall *swear* by heaven, *sweareth* by the throne of God, [[Matthew 23.22|Matthew 23:22]].
 
@@ -69,15 +68,15 @@ knowing that God had *sworn* with an oath, [[Acts 2.30|Acts 2:30]].
 
 because he could *swear* by no greater, he *sware* by himself, [[Hebrews 6.13|Hebrews 6:13]].
 
-above all things ... *swear* not, [[James 5.12|James 5:12]].
+above all things … *swear* not, [[James 5.12|James 5:12]].
 
 *swearing* with an oath that he would drink his blood, [[Alma 49.27|Alma 49:27]].
 
 *swearing* by their everlasting Maker, [[Helaman 1.11|Helaman 1:11]].
 
-I *swear* unto you ... ye shall not be destroyed, [[3 Nephi 3.8|3 Nephi 3:8]].
+I *swear* unto you … ye shall not be destroyed, [[3 Nephi 3.8|3 Nephi 3:8]].
 
-swift witness against ... false *swearers*, [[3 Nephi 24.5|3 Nephi 24:5]].
+swift witness against … false *swearers*, [[3 Nephi 24.5|3 Nephi 24:5]].
 
 did *swear* by the heavens, [[Mormon 3.10|Mormon 3:10]].
 

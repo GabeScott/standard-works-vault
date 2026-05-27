@@ -1,4 +1,3 @@
 # Glorying
 
-
-*See* [[Boast, Boasting.md|Boast]]
+*See also* [[Boast.md|Boast]]

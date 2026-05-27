@@ -1,5 +1,7 @@
 # Confidence through Conversion
 
+Gordon B. Hinckley
+
 By Aileen H. Clyde - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -20,7 +22,7 @@ Then a transition takes place and we find ourselves here—one of the ones Moses
 
 “And under this head ye are made free, and there is no other head whereby ye can be made free. There is no other name given whereby salvation cometh; therefore, I would that ye should take upon you the name of Christ, all you that have entered into the covenant with God that ye should be obedient unto the end of your lives.” ([[Mosiah 5.7|Mosiah 5:7–8]][[Mosiah 5.8|]].)
 
-My whole hope in speaking to you about gospel knowledge of our individual importance to our Heavenly Father and our Savior is that it will build our confidence in our own ability to make good decisions that will help us grow spiritually. Some people want a strong authoritative voice to say, “Do this” or “Do that.” Some want God to tell them exactly what to do before they risk anything. Recently at a BYU fireside address, Elder Dallin Oaks said: “Personal decision making is one of the sources of the growth we are meant to experience in mortality. Persons who try to shift all decision making to the Lord and plead for revelation in every choice will soon find circumstances where they pray for guidance and don’t receive it. For example, this is likely to occur in those numerous circumstances where choices are trivial or where either choice is acceptable. We should study things out in our minds, using the reasoning powers our Creator has placed within us. Then we should pray for guidance and act upon it if we receive it, and upon our own best judgment if we do not.” (Dallin H. Oaks, “Our Strength Can Become Our Downfall,” Fireside of BYU Stakes, 7 June 1992, pp. 3–4.)
+My whole hope in speaking to you about gospel knowledge of our individual importance to our Heavenly Father and our Savior is that it will build our confidence in our own ability to make good decisions that will help us grow spiritually. Some people want a strong authoritative voice to say, “Do this” or “Do that.” Some want God to tell them exactly what to do before they risk anything. Recently at a BYU fireside address, Elder Dallin Oaks said: “Personal decision making is one of the sources of the growth we are meant to experience in mortality. Persons who try to shift all decision making to the Lord and plead for revelation in every choice will soon find circumstances where they pray for guidance and don’t receive it. For example, this is likely to occur in those numerous circumstances where choices are trivial or where either choice is acceptable. We should study things out in our minds, using the reasoning powers our Creator has placed within us. Then we should pray for guidance and act upon it if we receive it, and upon our own best judgment if we do not.” (Dallin H. Oaks, “Our Strength Can Become Our Downfall,” Fireside of BYU Stakes, 7 June 1992, pp. 3–4.)
 
 When we are converted to the gospel of Jesus Christ we become both humble and courageous. Our conversion strengthens us greatly in our decision making. A good example of the kinds of real circumstances good people face in this life can be found in the Old Testament in the very short, five-page book of Ruth. Each time I read it I see something new. Lately I have been thinking of it as a story of conversion, of courage and decision making. It is about another time, another culture, yet it is about us too.
 
@@ -47,8 +49,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Agency #Conversion #Self-Esteem

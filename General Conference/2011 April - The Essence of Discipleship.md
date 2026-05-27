@@ -1,6 +1,8 @@
 # The Essence of Discipleship
 
-By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
+Thomas S. Monson
+
+By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -75,12 +77,7 @@ May the Lord bless each one of us as we walk in obedience to His commandments, H
 
 [^8]: [[Acts 10.38|Acts 10:38]]; [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-[^9]: See *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 82.
+[^9]: See *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 82.
 
 [^10]: [[John 13.35|John 13:35]].
 
-
-
-
-
-#Discipleship #Love #Self-Reliance #Service #Welfare #Work

@@ -1,6 +1,8 @@
 # Our Constant Companion
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+David A. Bednar
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -12,7 +14,7 @@ My beloved brothers and sisters, in this conference we have been blessed with an
 
 I have been touched by the testimonies borne in this conference that the Lord speaks to us personally through the Holy Ghost. As we pray and then heed the Spirit’s promptings, we gain greater insights and blessings to guide us through the increasingly difficult days ahead.
 
-We have heard again President Russell M. Nelson’s warning that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^1]
+We have heard again President Russell M. Nelson’s warning that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^1]
 
 That prophetic warning has led me to ponder what I might teach my children, grandchildren, and great-grandchildren about how to have that crucial guidance in the difficult days ahead for them.
 
@@ -42,7 +44,7 @@ When that happens, as it will, we may feel disapproval from the Lord. And we may
 
 If you have felt the influence of the Holy Ghost today, you may take it as a sweet evidence that the Atonement is working in your life.
 
-As Elder Jeffrey R. Holland has said: “Whenever these moments of our extremity come, we must not succumb to the fear that God has abandoned us or that He does not hear our prayers. He *does* hear us. He *does* see us. He *does* love us.”[^6]
+As Elder Jeffrey R. Holland has said: “Whenever these moments of our extremity come, we must not succumb to the fear that God has abandoned us or that He does not hear our prayers. He *does* hear us. He *does* see us. He *does* love us.”[^6]
 
 That assurance has helped me. When I feel distant from the Lord, when answers to my prayers seem delayed, I have learned to follow the counsel of President Nelson to review my life for opportunities to repent. He reminds us, “Daily repentance is the pathway to purity, and purity brings power.”[^7]
 
@@ -70,35 +72,30 @@ I testify that the Lord has kept His promise. The Holy Ghost is being sent to th
 
 I bear my witness that God the Father lives. He loves you. He hears your every prayer. Jesus Christ did pray to the Father to send the Holy Ghost to guide, comfort, and testify of truth to us. The Father and His Beloved Son appeared to Joseph Smith in a grove of trees. The Prophet Joseph Smith translated the Book of Mormon by the gift and power of God.
 
-Heavenly messengers restored priesthood keys. President Russell M. Nelson is the prophet of God for all the earth.
+Heavenly messengers restored priesthood keys. President Russell M. Nelson is the prophet of God for all the earth.
 
 As a witness of Jesus Christ, I know that He lives and He leads His Church. You and I have the opportunity to have the Holy Ghost as our constant companion and to have those truths confirmed as we remember and love the Savior, repent, and ask for His love to be in our hearts. I pray that we may have that blessing and the companionship of the Holy Spirit this day and every day of our lives. I love you. In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^1]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
 [^2]: [[Helaman 11.23|Helaman 11:23]].
 
-[^3]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^3]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^4]: [[1 Nephi 4.5|1 Nephi 4:5–6]][[1 Nephi 4.6|]].
+[^4]: [[1 Nephi 4.5|1 Nephi 4:5–6]][[1 Nephi 4.6|]].
 
 [^5]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^6]: Jeffrey R. Holland, “[Lessons from Liberty Jail](https://speeches.byu.edu/talks/jeffrey-r-holland/lessons-liberty-jail)” (Brigham Young University devotional, Sept. 7, 2008), 5, speeches.byu.edu.
+[^6]: Jeffrey R. Holland, “[Lessons from Liberty Jail](https://speeches.byu.edu/talks/jeffrey-r-holland/lessons-liberty-jail)” (Brigham Young University devotional, Sept. 7, 2008), 5, speeches.byu.edu.
 
-[^7]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 68.
+[^7]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 68.
 
-[^8]: “An inability to feel the Spirit, or a general feeling of apathy or numbness, \[can also be\] a symptom of poor mental health” (“[At times I have difficulty feeling the Spirit because I feel numb … ](https://churchofjesuschrist.org/study/manual/mental-health-help-for-me/6-difficulty-feeling-the-spirit?lang=eng&id=p1#p1),” in “Mental Health: Help for Me,” Life Help, Gospel Library). If you experience difficulties with your mental or emotional health, please be assured of Heavenly Father’s love for you, and continue to pray to Him and trust in Him.
+[^8]: “An inability to feel the Spirit, or a general feeling of apathy or numbness, \[can also be\] a symptom of poor mental health” (“[At times I have difficulty feeling the Spirit because I feel numb … ](https://www.churchofjesuschrist.org/study/manual/mental-health-help-for-me/6-difficulty-feeling-the-spirit?lang=eng&id=p1#p1),” in “Mental Health: Help for Me,” Life Help, Gospel Library). If you experience difficulties with your mental or emotional health, please be assured of Heavenly Father’s love for you, and continue to pray to Him and trust in Him.
 
 [^9]: [[John 15.26|John 15:26]].
 
 [^10]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
-
-
-
-
-#Holy_Ghost #Inspiration #Ministering #Prayer #Repentance

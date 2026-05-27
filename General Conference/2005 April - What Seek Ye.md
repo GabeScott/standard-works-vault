@@ -1,5 +1,7 @@
 # What Seek Ye?
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -97,8 +99,3 @@ Just as a building is constructed one brick at a time, the Savior’s true Churc
 
 
 
-
-
-
-
-#Conversion #Missionary_Work #Restoration

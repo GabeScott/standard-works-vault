@@ -1,5 +1,7 @@
 # Teach Them Correct Principles
 
+Thomas S. Monson
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -32,7 +34,7 @@ To many, the announcement came as a surprise, a very welcome surprise, and yet i
 
 For years, Presidents of the Church have talked of and prayed for the day when tithes and offerings would qualify members for full participation in the Church.
 
-President Joseph F. Smith, as early as 1907, stated, “We may not be able to reach it right away, but we expect to see the day when we will not have to ask you for one dollar of donation for any purpose, except that which you volunteer to give of your own accord, because we will have tithes sufficient in the storehouse of the Lord to pay everything that is needful for the advancement of the kingdom of God.” (In Conference Report, Apr. 1907, p. 7.)
+President Joseph F. Smith, as early as 1907, stated, “We may not be able to reach it right away, but we expect to see the day when we will not have to ask you for one dollar of donation for any purpose, except that which you volunteer to give of your own accord, because we will have tithes sufficient in the storehouse of the Lord to pay everything that is needful for the advancement of the kingdom of God.” (In Conference Report, Apr. 1907, p. 7.)
 
 The First Presidency has counseled us again and again:
 
@@ -102,7 +104,7 @@ You must devise ways of letting those who have drawn back because of expense kno
 
 Tell them what the prophet said:
 
-“Come, my brethren, every one that thirsteth, come ye to the waters; and he that *hath no money,* come buy and eat; yea, come buy wine and milk *without money* and *without price.*” ([[2 Nephi 9.50|2 Ne. 9:50]]; italics added.)
+“Come, my brethren, every one that thirsteth, come ye to the waters; and he that *hath no money,* come buy and eat; yea, come buy wine and milk *without money* and *without price.*” ([[2 Nephi 9.50|2 Ne. 9:50]]; italics added.)
 
 For those who can and are willing, there comes the opportunity to make generous offerings. In leaving decisions to you, do you not see the fundamental doctrine of moral agency asserting itself? Do you not see the change from *assessment* to *offering* something of the testing which is fundamental to our mortal probation?
 
@@ -115,5 +117,3 @@ I could not express to you, my brethren and sisters, the depths of my feeling ab
 
 
 
-
-#Activation #Financial_Management #Tithing

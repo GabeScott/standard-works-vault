@@ -1,6 +1,8 @@
 # The Correct Name of the Church
 
-By President Russell M. Nelson - *President of the Church*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of the Church*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -28,7 +30,7 @@ Instead, it *is* a correction. It *is* the command of the Lord. Joseph Smith did
 
 Even earlier, in AD 34, our resurrected Lord gave similar instruction to members of His Church when He visited them in the Americas. At that time He said:
 
-“Ye shall call the church in my name. …
+“Ye shall call the church in my name. …
 
 “And how be it my church save it be called in my name? For if a church be called in Moses’ name then it be Moses’ church; or if it be called in the name of a man then it be the church of a man; but if it be called in my name then it is my church.”[^5]
 
@@ -85,7 +87,7 @@ I know that God lives. Jesus is the Christ. He leads His Church today. I so test
 
 
 
-[^1]: “The Lord has impressed upon my mind the importance of the name He has revealed for His Church, even The Church of Jesus Christ of Latter-day Saints. We have work before us to bring ourselves in harmony with His will. In recent weeks, various Church leaders and departments have initiated the necessary steps to do so. Additional information about this important matter will be made available in the coming months” (Russell M. Nelson, in “[The Name of the Church](https://www.mormonnewsroom.org/article/name-of-the-church)” \[official statement, Aug. 16, 2018\], mormonnewsroom.org).
+[^1]: “The Lord has impressed upon my mind the importance of the name He has revealed for His Church, even The Church of Jesus Christ of Latter-day Saints. We have work before us to bring ourselves in harmony with His will. In recent weeks, various Church leaders and departments have initiated the necessary steps to do so. Additional information about this important matter will be made available in the coming months” (Russell M. Nelson, in “[The Name of the Church](https://www.mormonnewsroom.org/article/name-of-the-church)” \[official statement, Aug. 16, 2018\], mormonnewsroom.org).
 
 [^2]: Preceding Presidents of the Church have made similar requests. For example, President George Albert Smith said: “Don’t let the Lord down by calling this the Mormon Church. He didn’t call it the Mormon Church” (in Conference Report, Apr. 1948, 160).
 
@@ -93,7 +95,7 @@ I know that God lives. Jesus is the Christ. He leads His Church today. I so test
 
 [^4]: [[D&C 115.4|Doctrine and Covenants 115:4]].
 
-[^5]: [[3 Nephi 27.7|3 Nephi 27:7–8]][[3 Nephi 27.8|]].
+[^5]: [[3 Nephi 27.7|3 Nephi 27:7–8]][[3 Nephi 27.8|]].
 
 [^6]: See [[Moses 1.33|Moses 1:33]].
 
@@ -107,7 +109,7 @@ I know that God lives. Jesus is the Christ. He leads His Church today. I so test
 
 [^11]: Other epithets seem to have occurred in New Testament times. During the Apostle Paul’s trial before Felix, Paul was said to be “a ringleader of the sect of the Nazarenes” ([[Acts 24.5|Acts 24:5]]). Regarding the use of the phrase “of the Nazarenes,” one commentator wrote: “This was the name usually given to Christians by way of contempt. They were so called because Jesus was of Nazareth” (Albert Barnes, *Notes, Explanatory and Practical, on the Acts of the Apostles* \[1937\], 313).
 
-[^12]: See [[1 Nephi 18.1|1 Nephi 18:1–2]][[1 Nephi 18.2|]].
+[^12]: See [[1 Nephi 18.1|1 Nephi 18:1–2]][[1 Nephi 18.2|]].
 
 [^13]: Benjamín De Hoyos, “[[2011 April - Called to Be Saints.md|Called to Be Saints]],” *Ensign* or *Liahona,* May 2011, 106.
 
@@ -119,8 +121,3 @@ I know that God lives. Jesus is the Christ. He leads His Church today. I so test
 
 [^17]: See [[D&C 121.33|Doctrine and Covenants 121:33]].
 
-
-
-
-
-#Atonement #Jesus_Christ #Name_Of_Church #Restoration

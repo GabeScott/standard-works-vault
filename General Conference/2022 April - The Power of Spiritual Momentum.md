@@ -1,6 +1,8 @@
 # The Power of Spiritual Momentum
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -42,7 +44,7 @@ Later we make additional covenants in the temple, where we receive even greater 
 
 In my dream, a woman then asked how someone who has broken his or her covenants can get back on that path. My answer to her question leads to my second suggestion:
 
-**Discover the joy of daily repentance.**
+**Discover the *joy* of daily repentance.**
 
 How important is repentance? Alma taught that we should “preach nothing save it were repentance and faith on the Lord.”[^7] Repentance is required of every accountable person who desires eternal glory.[^8] There are no exceptions. In a revelation to the Prophet Joseph Smith, the Lord chastised early Church leaders for not teaching the gospel to their children.[^9] Repenting is the *key* to progress. Pure faith keeps us moving forward on the covenant path.
 
@@ -87,13 +89,13 @@ God lives! Jesus is the Christ! He lives! He loves us and will help us. Of this 
 
 
 
-[^1]: See [[3 Nephi 12.39|3 Nephi 12:39]].
+[^1]: See [[3 Nephi 12.39|3 Nephi 12:39]].
 
-[^2]: See [[3 Nephi 12.44|3 Nephi 12:44]].
+[^2]: See [[3 Nephi 12.44|3 Nephi 12:44]].
 
-[^3]: [[D&C 64.10|Doctrine and Covenants 64:10]]; see also [[D&C 64.9|verse 9]].
+[^3]: [[D&C 64.10|Doctrine and Covenants 64:10]]; see also [[D&C 64.9|verse 9]].
 
-[^4]: As the Apostle Paul said, “In every thing give thanks” ([[1 Thessalonians 5.18|1 Thessalonians 5:18]]). One of the surest antidotes for despair, discouragement, and spiritual lethargy is gratitude. What are some things for which we can give thanks to God? Thank Him for the beauty of the earth, for the Restoration of the gospel, and for the countless ways He and His Son make Their power available to us here on this earth. Thank Him for the scriptures, for angels who respond to our pleas to God for help, for revelation, and for eternal families. And most of all, thank God for the gift of His Son and the Atonement of Jesus Christ, which makes it possible for us to fulfill the missions for which we have been sent to earth.
+[^4]: As the Apostle Paul said, “In every thing give thanks” ([[1 Thessalonians 5.18|1 Thessalonians 5:18]]). One of the surest antidotes for despair, discouragement, and spiritual lethargy is gratitude. What are some things for which we can give thanks to God? Thank Him for the beauty of the earth, for the Restoration of the gospel, and for the countless ways He and His Son make Their power available to us here on this earth. Thank Him for the scriptures, for angels who respond to our pleas to God for help, for revelation, and for eternal families. And most of all, thank God for the gift of His Son and the Atonement of Jesus Christ, which makes it possible for us to fulfill the missions for which we have been sent to earth.
 
 [^5]: To understand the covenant path, it is important to understand that a covenant involves a two-way commitment between God and one of His children. In a covenant, God sets the terms, and we agree to those terms. In exchange, God makes promises to us. Many covenants are accompanied by outward signs—or sacred ordinances—in which we participate with witnesses present. For example, baptism is a sign to the Lord that the person being baptized has made a covenant to keep the commandments of God.
 
@@ -107,11 +109,11 @@ God lives! Jesus is the Christ! He lives! He loves us and will help us. Of this 
 
 [^10]: See [[Mosiah 3.19|Mosiah 3:19]].
 
-[^11]: [[Isaiah 54.10|Isaiah 54:10]], emphasis added; see also [[3 Nephi 22.10|3 Nephi 22:10]]. *Kindness* is translated from the Hebrew term *hesed*, a powerful word with deep meaning that encompasses kindness, mercy, covenant love, and more.
+[^11]: [[Isaiah 54.10|Isaiah 54:10]], emphasis added; see also [[3 Nephi 22.10|3 Nephi 22:10]]. *Kindness* is translated from the Hebrew term *hesed*, a powerful word with deep meaning that encompasses kindness, mercy, covenant love, and more.
 
 [^12]: It is possible to make restitution for some sins but not others. If one person abuses or assaults another, or if one takes the life of another, full restitution cannot be made. The sinner in those cases can only do so much, and a large balance is left owing. Because of the Lord’s willingness to forgive a balance due, we can come to Him regardless of how far we have strayed. When we sincerely repent, He will forgive us. Any balance owing between our sins and our ability to make full restitution can be paid only by applying the Atonement of Jesus Christ, who can make a gift of mercy. His willingness to forgive our balance due is a priceless gift.
 
-[^13]: See [[2 Nephi 31.18|2 Nephi 31:18–20]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
+[^13]: See [[2 Nephi 31.18|2 Nephi 31:18–20]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
 
 [^14]: The Nephite prophet King Benjamin.
 
@@ -127,7 +129,7 @@ God lives! Jesus is the Christ! He lives! He loves us and will help us. Of this 
 
 [^20]: [[Moroni 6.4|Moroni 6:4]].
 
-[^21]: [[Mormon 9.15|Mormon 9:15]]; see also [[Mormon 9.19|verse 19]].
+[^21]: [[Mormon 9.15|Mormon 9:15]]; see also [[Mormon 9.19|verse 19]].
 
 [^22]: John the Apostle declared that he recorded the Savior’s miracles so “that \[we\] might believe that Jesus is the Christ” ([[John 20.31|John 20:31]]).
 
@@ -135,7 +137,5 @@ God lives! Jesus is the Christ! He lives! He loves us and will help us. Of this 
 
 [^24]: [[Isaiah 40.29|Isaiah 40:29]].
 
+[^25]: [[Matthew 6.14|Matthew 6:14]].
 
-
-
-#Adversity #Covenants #Forgiveness #Jesus_Christ #Miracles #Peace #Repentance #Satan #Spirituality

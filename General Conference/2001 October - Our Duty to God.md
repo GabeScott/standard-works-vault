@@ -1,5 +1,7 @@
 # Our Duty to God
 
+Gordon B. Hinckley
+
 By Elder Cecil O. Samuelson Jr. - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -14,7 +16,7 @@ As we follow the life of Samuel, we recognize that he did fulfill his duty to Go
 
 I hope that you young men of the Aaronic Priesthood today understand that, as Samuel, you also have a sacred duty to God. Samuel had a sainted mother, Hannah, and a great priesthood leader, Eli. Most of you young men, likewise, have wonderful parents and inspired priesthood leaders who care for you and stand ready to assist both you and your parents in your quest to fulfill your duty to God.
 
-President Gordon B. Hinckley has said this of you and your generation of young people: “I have … great love for the young men and young women of this Church. … How we love you and pray constantly for the genius to help you. Your lives are filled with difficult decisions and with dreams and hopes and longings to find that which will bring you peace and happiness. …
+President Gordon B. Hinckley has said this of you and your generation of young people: “I have … great love for the young men and young women of this Church. … How we love you and pray constantly for the genius to help you. Your lives are filled with difficult decisions and with dreams and hopes and longings to find that which will bring you peace and happiness. …
 
 “… I make you a promise that God will not forsake you if you will walk in His paths with the guidance of His commandments.”[^5]
 
@@ -73,13 +75,13 @@ You must remember that your duty to God is very clearly linked to your duties to
 
 
 
-[^1]: See [[1 Samuel 3.4|1 Sam. 3:4–8]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]].
+[^1]: See [[1 Samuel 3.4|1 Sam. 3:4–8]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]].
 
-[^2]: [[1 Samuel 3.7|1 Sam. 3:7]].
+[^2]: [[1 Samuel 3.7|1 Sam. 3:7]].
 
-[^3]: [[1 Samuel 3.10|1 Sam. 3:10]].
+[^3]: [[1 Samuel 3.10|1 Sam. 3:10]].
 
-[^4]: [[1 Samuel 3.19|1 Sam. 3:19]].
+[^4]: [[1 Samuel 3.19|1 Sam. 3:19]].
 
 [^5]: “A Prophet’s Counsel and Prayer for Youth,” *New Era,* Jan. 2001, 4, 6; or *Ensign,* Jan. 2001, 2.
 
@@ -99,10 +101,5 @@ You must remember that your duty to God is very clearly linked to your duties to
 
 [^13]: [[Luke 2.51|Luke 2:51–52]][[Luke 2.52|]].
 
-[^14]: [[1 Samuel 3.10|1 Sam. 3:10]].
+[^14]: [[1 Samuel 3.10|1 Sam. 3:10]].
 
-
-
-
-
-#Commandments #Conversion #Duty #Education #Goals #God_The_Father #Jesus_Christ #Parents #Preparation #Priesthood #Respect #Responsibility #Service #Testimony #Worthiness #Youth

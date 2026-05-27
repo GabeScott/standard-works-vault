@@ -5,6 +5,6 @@
 [Joseph Smith History 1:33](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.33?lang=eng#p33)
 
 
-[^a]: [[Exodus 33.12|Ex. 33:12 (12, 17)]]; [[Isaiah 45.3|Isa. 45:3 (3-4).]]
-[^b]: JS—H 1:26.
-[^c]: [[Isaiah 5.20|Isa. 5:20.]]
+[^a]: [[Exodus 33.12|Ex. 33:12 (12, 17)]][[Exodus 33.17|]]; [[Isaiah 45.3|Isa. 45:3 (3–4)]][[Isaiah 45.4|]].  
+[^b]: [[Joseph Smith History 1.26|JS—H 1:26]].  
+[^c]: [[Isaiah 5.20|Isa. 5:20]].  

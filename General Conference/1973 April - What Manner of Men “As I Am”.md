@@ -1,6 +1,8 @@
 # What Manner of Men? “As I Am”
 
-By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
+Harold B. Lee
+
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 It is my purpose today to bear testimony to some who have special needs, and to those who have accepted commission from the Lord and covenanted with him to try to help satisfy those needs.
 
-As Christ taught the gospel to the people of this hemisphere, he asked them, “… what manner of men ought ye to be?” and answered, “Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+As Christ taught the gospel to the people of this hemisphere, he asked them, “… what manner of men ought ye to be?” and answered, “Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 As Christians, we accept that instruction reverently as our guide and our goal.
 
@@ -20,7 +22,7 @@ He was gracious but he was not timid. He taught men the truth about his Father, 
 
 Christ knows the worth of souls.
 
-He came as Isaiah had prophesied and as he affirmed in the synagogue in Nazareth: “… to preach the gospel to the poor; … to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised.” ([[Luke 4.18|Luke 4:18]].)
+He came as Isaiah had prophesied and as he affirmed in the synagogue in Nazareth: “… to preach the gospel to the poor; … to heal the brokenhearted, to preach deliverance to the captives, and recovering of sight to the blind, to set at liberty them that are bruised.” ([[Luke 4.18|Luke 4:18]].)
 
 He taught the parables of the lost sheep and the lost coin and the lost son, and he lunched with accused Zacchaeus; admonished men to emulate the compassionate act of the demeaned Samaritan—“Go thou and do likewise.” He exalted the humble Publican, who, in contrast to the self-righteous Pharisee, “would not lift up so much as his eyes unto heaven, but smote upon his breast, saying, God be merciful to me a sinner” ([[Luke 18.13|Luke 18:13]]); and he confronted the accusers of the repentant woman.
 
@@ -40,7 +42,7 @@ He taught us to pray.
 
 These and much more he taught and did. They represent the manner of person he was.
 
-Of course he was more: he was the Divine Redeemer, the Savior of all mankind, the Firstborn in the spirit and the Only Begotten in the flesh. He was the Prince of Peace. He “came into the world … to be crucified for the world, and to bear the sins of the world, and to sanctify the world, and to cleanse it from all unrighteousness; That through him all might be saved. …” ([[D&C 76.41|D&C 76:41–42]][[D&C 76.42|]].)
+Of course he was more: he was the Divine Redeemer, the Savior of all mankind, the Firstborn in the spirit and the Only Begotten in the flesh. He was the Prince of Peace. He “came into the world … to be crucified for the world, and to bear the sins of the world, and to sanctify the world, and to cleanse it from all unrighteousness; That through him all might be saved. …” ([[D&C 76.41|D&C 76:41–42]][[D&C 76.42|]].)
 
 What he did for us we could never do for ourselves, and his example of love and service and sacrifice and seeking first the kingdom of God is our guidestar and our path.
 
@@ -66,7 +68,7 @@ After a meeting with our servicemen at DaNang in South Vietnam, we talked with a
 
 Those nearest us need love also.
 
-There are so many who grieve and are weighted down because they have not behaved in a way their own conscience can approve. To them the Lord still speaks through his prophets ancient and modern. Recall the words of Jacob to his brethren: “And now my beloved brethren, seeing that our merciful God has given us so great knowledge concerning these things, let us remember him, and lay aside our sins, and not hang down our heads, for we are not cast off. …” ([[2 Nephi 10.20|2 Ne. 10:20]].)
+There are so many who grieve and are weighted down because they have not behaved in a way their own conscience can approve. To them the Lord still speaks through his prophets ancient and modern. Recall the words of Jacob to his brethren: “And now my beloved brethren, seeing that our merciful God has given us so great knowledge concerning these things, let us remember him, and lay aside our sins, and not hang down our heads, for we are not cast off. …” ([[2 Nephi 10.20|2 Ne. 10:20]].)
 
 In the last recorded letter of the great prophet Mormon to his son Moroni are written the lamentings of the prophet over the wickedness of the people, described in the record to be “without principle, and past feeling.” Mormon’s final testimony to his beloved son included this marvelous admonition and explanation of the effect Christ’s gifts should have in all of our lives: “My son, be faithful in Christ; and may not the things which I have written grieve thee, to weigh thee down unto death; but may Christ lift thee up, and may his sufferings and death \[and his resurrection\], … and his mercy and long-suffering, and the hope of his glory of eternal life, rest in your mind forever.” ([[Moroni 9.25|Moro. 9:25]].)
 
@@ -87,8 +89,3 @@ God bless us to look up and to look around and to kneel down, and to be worthy, 
 
 
 
-
-
-
-
-#Charity #Compassion #Love

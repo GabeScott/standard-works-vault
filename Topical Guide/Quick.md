@@ -1,6 +1,5 @@
 # Quick
 
-
 *See also* [[Alive.md|Alive]]; [[Living.md|Living]]; [[Quicken.md|Quicken]]; [[Quickly.md|Quickly]]
 
 go down *quick* into the pit, [[Numbers 16.30|Numbers 16:30]].
@@ -13,7 +12,7 @@ Christ, who shall judge the *quick* and the dead, [[2 Timothy 4.1|2 Timothy 4:1]
 
 word of God is *quick*, and powerful, [[Hebrews 4.12|Hebrews 4:12]] ([[Helaman 3.29|Helaman 3:29]]; [[D&C 6.2|D&C 6:2]]; [[D&C 27.1|D&C 27:1]]).
 
-they were ... *quick* to do iniquity, [[Mosiah 13.29|Mosiah 13:29]].
+they were … *quick* to do iniquity, [[Mosiah 13.29|Mosiah 13:29]].
 
 how *quick* the children of men do forget the Lord, [[Alma 46.8|Alma 46:8]].
 

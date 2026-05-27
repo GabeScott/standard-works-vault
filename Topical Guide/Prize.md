@@ -1,6 +1,5 @@
 # Prize
 
-
 in a race run all, but one receiveth the *prize*, [[1 Corinthians 9.24|1 Corinthians 9:24]].
 
 mark for the *prize* of the high calling of God, [[Philippians 3.14|Philippians 3:14]].

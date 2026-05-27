@@ -1,5 +1,7 @@
 # “No Man Is an Island”
 
+Gordon B. Hinckley
+
 By Elder Richard H. Winkel - *Of the Seventy*
 
 *Given in the October session of the 1999 General Conference*
@@ -50,15 +52,10 @@ You might recall that when Christ organized His Church, He called many to serve:
 
 When the Savior called Peter, James, John, and others, did they have experience? No, but He told them He would train them; He would make them fishers of men. Did His Apostles and disciples make mistakes? Of course they did, but they were given opportunity, and they learned. So will our new brothers and sisters learn and grow as we befriend them, extend calls to them, and nourish them with the good word of God.
 
-One of the other abundant species under the redwood canopy is a little-known hardwood tree called *Lithocarpus densiflorus.* It is also called tan oak. The tan oak fits into the same general family as the true oaks but is a little different. There are several billion board feet of this species growing amongst the popular redwoods, and it has many fine qualities, but it’s almost completely overlooked and unused. What a waste, what a tragedy when you consider the tan oak’s potential. The mind-set of many wood users is, “We’re doing just fine with the old standbys; why change?” We cannot overlook the potential of our new members or misjudge their talents. Remember, “he inviteth them all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God, both Jew and Gentile” ([[2 Nephi 26.33|2 Ne. 26:33]]).
+One of the other abundant species under the redwood canopy is a little-known hardwood tree called *Lithocarpus densiflorus.* It is also called tan oak. The tan oak fits into the same general family as the true oaks but is a little different. There are several billion board feet of this species growing amongst the popular redwoods, and it has many fine qualities, but it’s almost completely overlooked and unused. What a waste, what a tragedy when you consider the tan oak’s potential. The mind-set of many wood users is, “We’re doing just fine with the old standbys; why change?” We cannot overlook the potential of our new members or misjudge their talents. Remember, “he inviteth them all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God, both Jew and Gentile” ([[2 Nephi 26.33|2 Ne. 26:33]]).
 
 I am thankful for the web of friendship that has nurtured me throughout my life, for having been born of goodly parents, for my brothers, sisters, and extended family. I am especially grateful for the love and support of my wonderful wife, Karen, and also our equally wonderful and loving children. I would like also to say that I feel very fortunate to have had many good friends through the years, both in and out of the Church. I am grateful to have recently been associated with outstanding missionaries in Spain and for the wonderful members of that country. Brothers and sisters, I know we have a kind and wise Heavenly Father and bear testimony of His Son, Jesus Christ, and of His atoning sacrifice, which touches each one of us. I also bear testimony that the Church is led by a great prophet today, even Gordon B. Hinckley. I ask the Lord to bless us all that we might feel more connected and caring of one another, especially as we move into this new era of growth in the Church and into this exciting new millennium, and I say this in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Conversion #Creation #Fellowshipping #Friendship #Love #Service

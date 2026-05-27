@@ -1,6 +1,8 @@
 # “Honour Thy Father and Thy Mother”
 
-By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
+Gordon B. Hinckley
+
+By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -119,8 +121,3 @@ Finally, may we do unto the aged what we would want to have done to us. Remember
 
 
 
-
-
-
-
-#Elderly

@@ -4,6 +4,3 @@
 
 [JST Isaiah 42:20](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-isa/42?lang=eng)
 
-
-
-

@@ -1,5 +1,7 @@
 # An Attitude of Gratitude
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1992 General Conference*
@@ -156,8 +158,3 @@ My sincere prayer is that we may, in our individual lives, reflect that marvelou
 
 [^2]: Louise N. Parter.
 
-
-
-
-
-#Gratitude #Jesus_Christ #Kindness #Parents #Teaching

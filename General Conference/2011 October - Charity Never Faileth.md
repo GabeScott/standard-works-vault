@@ -1,6 +1,8 @@
 # Charity Never Faileth
 
-By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
+Richard G. Scott
+
+By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -18,7 +20,7 @@ He describes the qualities embodied in charity. He said:
 
 “Charity suffereth long, and is kind; charity envieth not; charity vaunteth not itself, is not puffed up,
 
-“… Seeketh not her own, is not easily provoked, thinketh no evil;
+“… Seeketh not her own, is not easily provoked, thinketh no evil;
 
 “Rejoiceth not in iniquity, but rejoiceth in the truth;
 
@@ -54,7 +56,7 @@ The Savior is the perfect example of how to extend charity. During His mortal mi
 
 Throughout his life the Prophet Joseph Smith also practiced charity as he extended brotherly love and respect to others. He was well known for his kindness, affection, compassion, and concern for those around him.
 
-Today we are blessed to have a prophet who embodies charity. President Thomas S. Monson is an example to us and to the world. He wears the mantle of charity. He is kind, compassionate, and generous, a true minister of the Lord Jesus Christ.
+Today we are blessed to have a prophet who embodies charity. President Thomas S. Monson is an example to us and to the world. He wears the mantle of charity. He is kind, compassionate, and generous, a true minister of the Lord Jesus Christ.
 
 President Monson teaches: “Charity is having patience with someone who has let us down. It is resisting the impulse to become offended easily. It is accepting weaknesses and shortcomings. It is accepting people as they truly are. It is looking beyond physical appearances to attributes that will not dim through time. It is resisting the impulse to categorize others.”[^13]
 
@@ -72,9 +74,9 @@ Emily is a young wife who was in search of the truth. Her husband, Michael, was 
 
 “Charity never faileth. … Charity … is kind, … seeketh not her own, … beareth all things, endureth all things.”[^14]
 
-President Henry B. Eyring said:
+President Henry B. Eyring said:
 
-“The history of the Relief Society is filled with accounts of such remarkable selfless service. …
+“The history of the Relief Society is filled with accounts of such remarkable selfless service. …
 
 “This society is composed of women whose feelings of charity spring from hearts changed by qualifying for and by keeping covenants offered only in the Lord’s true Church. Their feelings of charity come from Him through His Atonement. Their acts of charity are guided by His example—and come out of gratitude for His infinite gift of mercy—and by the Holy Spirit, which He sends to accompany His servants on their missions of mercy. Because of that, they have done and are able to do uncommon things for others and to find joy even when their own unmet needs are great.”[^15]
 
@@ -95,9 +97,9 @@ May our knowledge of the great love that the Father and the Son have for us, and
 
 
 
-[^1]: [[1 Corinthians 13.13|1 Corinthians 13:13]].
+[^1]: [[1 Corinthians 13.13|1 Corinthians 13:13]].
 
-[^2]: [[1 Corinthians 13.4|1 Corinthians 13:4–8]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]].
+[^2]: [[1 Corinthians 13.4|1 Corinthians 13:4–8]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]].
 
 [^3]: Joseph Smith, in *Daughters in My Kingdom: The History and Work of Relief Society* (2011), 23.
 
@@ -107,7 +109,7 @@ May our knowledge of the great love that the Father and the Son have for us, and
 
 [^6]: [[Colossians 3.14|Colossians 3:14]].
 
-[^7]: [[2 Nephi 26.30|2 Nephi 26:30]].
+[^7]: [[2 Nephi 26.30|2 Nephi 26:30]].
 
 [^8]: See [[Moroni 7.48|Moroni 7:48]].
 
@@ -119,16 +121,11 @@ May our knowledge of the great love that the Father and the Son have for us, and
 
 [^12]: See [[John 21.16|John 21:16–17]][[John 21.17|]].
 
-[^13]: Thomas S. Monson, “Charity Never Faileth,” *Liahona* and *Ensign,* Nov. 2010, 124.
+[^13]: Thomas S. Monson, “Charity Never Faileth,” *Liahona* and *Ensign,* Nov. 2010, 124.
 
-[^14]: [[1 Corinthians 13.4|1 Corinthians 13:4–5, 7–8]][[1 Corinthians 13.5|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]].
+[^14]: [[1 Corinthians 13.4|1 Corinthians 13:4–5, 7–8]][[1 Corinthians 13.5|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]].
 
-[^15]: Henry B. Eyring, “The Enduring Legacy of Relief Society,” *Liahona* and *Ensign,* Nov. 2009, 121.
+[^15]: Henry B. Eyring, “The Enduring Legacy of Relief Society,” *Liahona* and *Ensign,* Nov. 2009, 121.
 
 [^16]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 454.
 
-
-
-
-
-#Charity #Service #Visiting_Teaching

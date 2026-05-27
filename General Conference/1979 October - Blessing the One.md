@@ -1,6 +1,8 @@
 # Blessing the One
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Spencer W. Kimball
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -38,7 +40,7 @@ And now another example. \[Some of the actual names and places have been changed
 
 This letter was written by the Wilsons’ Lamanite foster daughter, Celia Red Horse, whom they had not heard from for several years.
 
-The seeds of their relationship had been planted in 1965 in a talk delivered by Elder Spencer W. Kimball, then a member of the Quorum of the Twelve. Brother Wilson, who was a bishop at the time of Elder Kimball’s address, was impressed with the words of a scripture from the Book of Mormon: “I will soften the hearts of the Gentiles that they shall be like unto a father to them” ([[2 Nephi 10.18|2 Ne. 10:18]]). As the meeting continued, Bishop Wilson was further touched in his heart and determined within himself to help with the Indian student placement program. In the fall of 1967, a wonderful new experience came into the lives of the Wilson family when sixteen-year-old Celia Red Horse came to live with them for the school year.
+The seeds of their relationship had been planted in 1965 in a talk delivered by Elder Spencer W. Kimball, then a member of the Quorum of the Twelve. Brother Wilson, who was a bishop at the time of Elder Kimball’s address, was impressed with the words of a scripture from the Book of Mormon: “I will soften the hearts of the Gentiles that they shall be like unto a father to them” ([[2 Nephi 10.18|2 Ne. 10:18]]). As the meeting continued, Bishop Wilson was further touched in his heart and determined within himself to help with the Indian student placement program. In the fall of 1967, a wonderful new experience came into the lives of the Wilson family when sixteen-year-old Celia Red Horse came to live with them for the school year.
 
 To quote the Wilsons: “We enjoyed Celia and had some special times with her. She was a good student and very obedient. When she went home to the reservation, we communicated with her for some time, but gradually, as the years passed, there was less communication.”
 
@@ -46,7 +48,7 @@ After Celia left, the Wilsons had several other young Lamanites in their home ov
 
 “Right now, I am working as a secretary. I am saving a lot of my pay so that I can buy clothes for my daughter before she can go on placement.
 
-“I guess I haven’t seen you or your family for about ten years. I know everyone has changed quite a bit. I imagine the kids are all grown up and gone. …
+“I guess I haven’t seen you or your family for about ten years. I know everyone has changed quite a bit. I imagine the kids are all grown up and gone. …
 
 “I have one little girl. Her name is Margaret. She is seven and will be going on placement this fall. She wants to go. I have told her all about the program. She has never been away from home in all her seven years.
 
@@ -58,9 +60,9 @@ Celia goes on to mention that the problems of modern youth having to do with alc
 
 “Are you still participating in the placement program?
 
-“Please write and tell me all the news. …
+“Please write and tell me all the news. …
 
-“I think I better close here. Take care, and may the Lord bless you in all your righteous endeavors. Love. …”
+“I think I better close here. Take care, and may the Lord bless you in all your righteous endeavors. Love. …”
 
 As Brother and Sister Wilson read this lovely letter from Celia, Brother Wilson vaguely remembered a portion of the address he had heard Elder Kimball deliver twelve years earlier. “Elder Kimball had said that success would not be felt in the first generation, but real success would come in the second, third, or fourth,” Brother Wilson recalled. “When this statement came back to me, I felt that we should invite Celia’s daughter to come into our home, for this would be the second generation of the same family in the same home.”
 
@@ -80,7 +82,7 @@ Now “she asks if she can ask the blessing on the food or if she can offer pray
 
 As the end of the school year approached, the Wilsons made arrangements for Celia to visit with them in Idaho, and a special reunion time was held with her at that time as she came back to her foster home and stayed with her daughter and her foster family. She took Margaret home with her and, in discussion with the Wilson family, decided that Margaret should remain home with her family this year and attend school on the reservation.
 
-We see exemplified in this experience the blessings associated with giving and receiving. These sentiments were expressed so well by President J. Reuben Clark, Jr., in a special meeting of stake presidencies on 2 October 1936:
+We see exemplified in this experience the blessings associated with giving and receiving. These sentiments were expressed so well by President J. Reuben Clark, Jr., in a special meeting of stake presidencies on 2 October 1936:
 
 “The real long-term objective of the welfare plan is the building of character in the members of the Church, givers and receivers, rescuing all that is finest down deep inside of them, and bringing to flower and fruitage the latent richness of the spirit, which after all is the mission and purpose and reason for being of this Church.”
 
@@ -89,8 +91,3 @@ It is my prayer, my brothers and sisters, that each of us as leaders and parents
 
 
 
-
-
-
-
-#Native_Americans #Social_Services #Welfare

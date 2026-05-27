@@ -1,6 +1,8 @@
 # Success Is Gauged by Self-Mastery
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -110,15 +112,10 @@ The Lord is always looking for men in whom he can place his full confidence, who
 
 He said, “This is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].) He is asking us as priesthood holders if we will come and help him spread the gospel and live, and help others to live, so as to enjoy immortality and eternal life.
 
-I wish to bear my witness to you and to the world at this Easter season that Jesus Christ lives and that he is actually the Son of the living God; that he came and gave his life for you and me; that he gave us the plan of life and salvation, which is the gospel we teach in his restored church; that we are led by a prophet of God, Spencer W. Kimball.
+I wish to bear my witness to you and to the world at this Easter season that Jesus Christ lives and that he is actually the Son of the living God; that he came and gave his life for you and me; that he gave us the plan of life and salvation, which is the gospel we teach in his restored church; that we are led by a prophet of God, Spencer W. Kimball.
 
 May we apply the principles of self-mastery and discipline, so as to prove worthy of the many blessings we receive as priesthood holders, and walk uprightly before the Lord at all times, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Self-Control

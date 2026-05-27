@@ -1,6 +1,8 @@
 # Be Valiant in the Fight of Faith
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -10,7 +12,7 @@ From the pen of Paul, we take this challenge:
 
 “O man of God, … follow after righteousness, godliness, faith, love, patience, meekness.
 
-“Fight the good fight of faith, lay hold on eternal life.” ([[1 Timothy 6.11|1 Tim. 6:11–12]][[1 Timothy 6.12|]].)
+“Fight the good fight of faith, lay hold on eternal life.” ([[1 Timothy 6.11|1 Tim. 6:11–12]][[1 Timothy 6.12|]].)
 
 So wrote our fellow apostle to those who had accepted the Son of God as their Savior, who had taken upon themselves the yoke of Christ, who had covenanted in the waters of baptism to serve him and keep his commandments. And so say we to all those today who have in like manner taken upon themselves the name of Christ and enlisted in the cause of truth and righteousness: Be valiant. Fight a good fight. Stand true. Keep the commandments. Overcome the world.
 
@@ -18,7 +20,7 @@ Speaking of himself and the great warfare with the world which he had won, Paul 
 
 “I have fought a good fight, I have finished my course, I have kept the faith:
 
-“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.” ([[2 Timothy 4.7|2 Tim. 4:7–8]][[2 Timothy 4.8|]].)
+“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.” ([[2 Timothy 4.7|2 Tim. 4:7–8]][[2 Timothy 4.8|]].)
 
 As members of the Church, we are engaged in a mighty conflict. We are at war. We have enlisted in the cause of Christ to fight against Lucifer and all that is lustful and carnal and evil in the world. We have sworn to fight alongside our friends and against our enemies, and we must not be confused in distinguishing friends from foes. As another of our ancient fellow apostles wrote: “Know ye not that the friendship of the world is enmity with God? whosoever therefore will be a friend of the world is the enemy of God.” ([[James 4.4|James 4:4]].)
 
@@ -28,9 +30,9 @@ That war is continuing on earth, and the devil is still wroth with the Church an
 
 And it is now as it has always been. The Saints can only overcome him and his forces “by the blood of the Lamb, … by the word of their testimony,” and if they love “not their lives unto the death.” ([[Revelation 12.11|Rev. 12:11]].)
 
-Now there neither are nor can be any neutrals in this war. Every member of the Church is on one side or the other. The soldiers who fight in its battles will either, with Paul, come off victorious and win “a crown of righteousness,” or they shall, in Paul’s language, “be punished with everlasting destruction from the presence of the Lord, and from the glory of his power” in that day when he comes to take “vengeance on them that know not God, and that obey not the gospel of our Lord Jesus Christ.” ([[2 Thessalonians 1.9|2 Thes. 1:9, 8]][[2 Thessalonians 1.8|]].)
+Now there neither are nor can be any neutrals in this war. Every member of the Church is on one side or the other. The soldiers who fight in its battles will either, with Paul, come off victorious and win “a crown of righteousness,” or they shall, in Paul’s language, “be punished with everlasting destruction from the presence of the Lord, and from the glory of his power” in that day when he comes to take “vengeance on them that know not God, and that obey not the gospel of our Lord Jesus Christ.” ([[2 Thessalonians 1.9|2 Thes. 1:9, 8]][[2 Thessalonians 1.8|]].)
 
-In this war all who do not stand forth courageously and valiantly are by that fact alone aiding the cause of the enemy. “They who are not for me are against me, saith our God.” ([[2 Nephi 10.16|2 Ne. 10:16]].)
+In this war all who do not stand forth courageously and valiantly are by that fact alone aiding the cause of the enemy. “They who are not for me are against me, saith our God.” ([[2 Nephi 10.16|2 Ne. 10:16]].)
 
 We are either for the Church or we are against it. We either take its part or we take the consequences. We cannot survive spiritually with one foot in the Church and the other in the world. We must make the choice. It is either the Church or the world. There is no middle ground. And the Lord loves a courageous man who fights openly and boldly in his army.
 
@@ -46,11 +48,11 @@ As Jesus said, “No man, having put his hand to the plough, and looking back, i
 
 What is the testimony of Jesus? And what must we do to be valiant therein?
 
-“Be not … ashamed of the testimony of our Lord,” Paul wrote to Timothy, “… but be thou partaker of the afflictions of the gospel.” ([[2 Timothy 1.8|2 Tim. 1:8]].) And to the Beloved John came this divine message: “The testimony of Jesus is the spirit of prophecy.” ([[Revelation 19.10|Rev. 19:10]].)
+“Be not … ashamed of the testimony of our Lord,” Paul wrote to Timothy, “… but be thou partaker of the afflictions of the gospel.” ([[2 Timothy 1.8|2 Tim. 1:8]].) And to the Beloved John came this divine message: “The testimony of Jesus is the spirit of prophecy.” ([[Revelation 19.10|Rev. 19:10]].)
 
 The testimony of our Lord! The testimony of Jesus! What a glorious and wondrous concept! It opens the door to glory and honor with the Father and the Son forever! The testimony of Jesus is to believe in Christ, to receive his gospel, and to live his law.
 
-Jesus is the Lord. He is God’s own Son who came into the world to ransom us men from the temporal and spiritual death brought upon us by the fall of Adam. Jesus has bought us with his blood. He is the resurrection and the life. He “hath abolished death, and hath brought life and immortality to light through the gospel.” ([[2 Timothy 1.10|2 Tim. 1:10]].) He is our Savior, our Redeemer, our Advocate with the Father. “There is one God, and one mediator between God and men, the man Christ Jesus.” ([[1 Timothy 2.5|1 Tim. 2:5]].)
+Jesus is the Lord. He is God’s own Son who came into the world to ransom us men from the temporal and spiritual death brought upon us by the fall of Adam. Jesus has bought us with his blood. He is the resurrection and the life. He “hath abolished death, and hath brought life and immortality to light through the gospel.” ([[2 Timothy 1.10|2 Tim. 1:10]].) He is our Savior, our Redeemer, our Advocate with the Father. “There is one God, and one mediator between God and men, the man Christ Jesus.” ([[1 Timothy 2.5|1 Tim. 2:5]].)
 
 Salvation is in Christ. His is the only name given under heaven whereby this priceless gift may be won. Without him there would be no resurrection and all men would be forever lost. Without him there would be no eternal life, no return to the presence of a gracious Father, no celestial thrones for the saints.
 
@@ -72,7 +74,7 @@ To be valiant in the testimony of Jesus is to believe in Christ and his gospel w
 
 But this is not all. It is more than believing and knowing. We must be doers of the word and not hearers only. It is more than lip service; it is not simply confessing with the mouth the divine Sonship of the Savior. It is obedience and conformity and personal righteousness. “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.” ([[Matthew 7.21|Matt. 7:21]].)
 
-To be valiant in the testimony of Jesus is to “press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men.” It is to “endure to the end.” ([[2 Nephi 31.20|2 Ne. 31:20]].) It is to live our religion, to practice what we preach, to keep the commandments. It is the manifestation of “pure religion” in the lives of men; it is visiting “the fatherless and widows in their affliction” and keeping ourselves “unspotted from the world.” ([[James 1.27|James 1:27]].)
+To be valiant in the testimony of Jesus is to “press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men.” It is to “endure to the end.” ([[2 Nephi 31.20|2 Ne. 31:20]].) It is to live our religion, to practice what we preach, to keep the commandments. It is the manifestation of “pure religion” in the lives of men; it is visiting “the fatherless and widows in their affliction” and keeping ourselves “unspotted from the world.” ([[James 1.27|James 1:27]].)
 
 To be valiant in the testimony of Jesus is to bridle our passions, control our appetites, and rise above carnal and evil things. It is to overcome the world as did he who is our prototype and who himself was the most valiant of all our Father’s children. It is to be morally clean, to pay our tithes and offerings, to honor the Sabbath day, to pray with full purpose of heart, to lay our all upon the altar if called upon to do so.
 
@@ -109,8 +111,3 @@ God grant us the wisdom and vision and determination, the valiance and courage, 
 
 
 
-
-
-
-
-#Commitment #Testimony

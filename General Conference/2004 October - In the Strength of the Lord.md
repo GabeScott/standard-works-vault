@@ -1,5 +1,7 @@
 # In the Strength of the Lord
 
+Gordon B. Hinckley
+
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -10,9 +12,9 @@ By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 Brothers and sisters, my heart is filled to overflowing, my mind is spinning, my knees are weak and wobbly, and I find that words are totally inadequate to communicate effectively the feelings and thoughts I desire to share with you. I pray for and invite the companionship of the Holy Ghost for me and for you as I speak with you briefly this Sabbath morning.
 
-In the hours since President Hinckley extended this new call to serve, I have heeded the admonition of Nephi to “liken all scriptures unto us” ([[1 Nephi 19.23|1 Nephi 19:23]]) with a greater sense of purpose and intensity than I have ever done before.
+In the hours since President Hinckley extended this new call to serve, I have heeded the admonition of Nephi to “liken all scriptures unto us” ([[1 Nephi 19.23|1 Nephi 19:23]]) with a greater sense of purpose and intensity than I have ever done before.
 
-I have reflected on the teaching of Paul that “God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty” ([[1 Corinthians 1.27|1 Corinthians 1:27]]). This morning I take great comfort in knowing that I am one of the truly weak things of the world.
+I have reflected on the teaching of Paul that “God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty” ([[1 Corinthians 1.27|1 Corinthians 1:27]]). This morning I take great comfort in knowing that I am one of the truly weak things of the world.
 
 I have pondered the instruction of Jacob as contained in the Book of Mormon:
 
@@ -24,7 +26,7 @@ Brothers and sisters, please pay particular attention to the word *grace* as it 
 
 “The main idea of the word is divine means of help or strength, given through the bounteous mercy and love of Jesus Christ.
 
-“… It is likewise through the grace of the Lord that individuals, through faith in the atonement of Jesus Christ and repentance of their sins, receive strength and assistance to do good works that they otherwise would not be able to maintain if left to their own means. This grace is an enabling power that allows men and women to lay hold on eternal life and exaltation after they have expended their own best efforts” (p. 697).
+“… It is likewise through the grace of the Lord that individuals, through faith in the atonement of Jesus Christ and repentance of their sins, receive strength and assistance to do good works that they otherwise would not be able to maintain if left to their own means. This grace is an enabling power that allows men and women to lay hold on eternal life and exaltation after they have expended their own best efforts” (p. [[BD Grace|697]]).
 
 Thus, the enabling and strengthening aspect of the Atonement helps us to see and to do and to become good in ways that we could never recognize or accomplish with our limited mortal capacity. I testify and witness that the enabling power of the Savior’s Atonement is real. Without that strengthening power of the Atonement, I could not stand before you this morning.
 
@@ -57,8 +59,3 @@ As one of the weakest of the weak, I testify that God lives. I testify and witne
 
 
 
-
-
-
-
-#Atonement #Grace #Humility #Quorum_Of_The_Twelve_Apostles #Testimony

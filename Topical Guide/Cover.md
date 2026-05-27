@@ -1,9 +1,8 @@
 # Cover
 
-
 she took a veil, and *covered* herself, [[Genesis 24.65|Genesis 24:65]].
 
-waters returned, and *covered* ... all the host, [[Exodus 14.28|Exodus 14:28]].
+waters returned, and *covered* … all the host, [[Exodus 14.28|Exodus 14:28]].
 
 *cover* thee with my hand while I pass by, [[Exodus 33.22|Exodus 33:22]].
 
@@ -15,7 +14,7 @@ thou hast *covered* all their sin, [[Psalms 85.2|Psalms 85:2]].
 
 they turn not again to *cover* the earth, [[Psalms 104.9|Psalms 104:9]].
 
-thou hast *covered* me in my mother's womb, [[Psalms 139.13|Psalms 139:13]].
+thou hast *covered* me in my mother’s womb, [[Psalms 139.13|Psalms 139:13]].
 
 He that *covereth* a transgression seeketh love, [[Proverbs 17.9|Proverbs 17:9]].
 
@@ -25,7 +24,7 @@ He that *covereth* his sins shall not prosper, [[Proverbs 28.13|Proverbs 28:13]]
 
 as the waters *cover* the sea, [[Isaiah 11.9|Isaiah 11:9]] ([[Habakkuk 2.14|Habakkuk 2:14]]).
 
-prophets ... the seers hath he *covered*, [[Isaiah 29.10|Isaiah 29:10]].
+prophets … the seers hath he *covered*, [[Isaiah 29.10|Isaiah 29:10]].
 
 darkness shall *cover* the earth, [[Isaiah 60.2|Isaiah 60:2]].
 

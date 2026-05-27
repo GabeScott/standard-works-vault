@@ -1,5 +1,7 @@
 # Discipleship
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -18,7 +20,7 @@ One of those corners of our lives is in the special attention we give in the are
 
 Inescapably our thoughts shape our lives. James Allen has expressed it this way in his book *As a Man Thinketh:*
 
-“As the plant springs from, and could not be without, the seed, so every act of a man springs from the hidden seeds of thought, and could not have appeared without them. This applies equally to those acts called ‘spontaneous’ and ‘unpremeditated’ as to those which are deliberately executed. …
+“As the plant springs from, and could not be without, the seed, so every act of a man springs from the hidden seeds of thought, and could not have appeared without them. This applies equally to those acts called ‘spontaneous’ and ‘unpremeditated’ as to those which are deliberately executed. …
 
 “In the armoury of thought he forges the weapons by which he destroys himself; he also fashions the tools with which he builds for himself heavenly mansions of joy and strength and peace. … Between these two extremes are all the grades of character, and man is their maker and master. … Man is the master of thought, the moulder of character, and the maker and shaper of condition, environment, and destiny” (*As a Man Thinketh* \[1983\], 7–10).
 
@@ -28,7 +30,7 @@ Truly one of the corners we must diligently strive to keep clean is our thoughts
 
 Perhaps another corner that can accumulate dust because of neglect pertains to the earnest direction we give to our families. President Kimball highlighted his concerns in these words:
 
-“Our success, individually and as a Church, will largely be determined by how faithfully we focus on living the gospel in the home. Only as we see clearly the responsibilities of each individual and the role of families and homes can we properly understand that priesthood quorums and auxiliary organizations, even wards and stakes, exist primarily to help members live the gospel in the home. Then we can understand that people are more important than programs, and that Church programs should always support and never detract from gospel-centered family activities. …
+“Our success, individually and as a Church, will largely be determined by how faithfully we focus on living the gospel in the home. Only as we see clearly the responsibilities of each individual and the role of families and homes can we properly understand that priesthood quorums and auxiliary organizations, even wards and stakes, exist primarily to help members live the gospel in the home. Then we can understand that people are more important than programs, and that Church programs should always support and never detract from gospel-centered family activities. …
 
 “All should work together to make home a place where we love to be, a place of listening and learning, a place where each member can find mutual love, support, appreciation, and encouragement.
 
@@ -44,7 +46,7 @@ The Savior instructed those that would follow Him about the essence of disciples
 
 “If any man will come after me, let him deny himself, and take up his cross and follow me.
 
-“And now for a man to take up his cross, is to deny himself all ungodliness, and every worldly lust, and keep my commandments” ([[JST Matthew 16.25|JST, Matt. 16:25–26]][[JST Matthew 16.26|]]; see [[Matthew 16.note24e|footnote e for Matt. 16:24]] in the LDS edition of the King James Bible).
+“And now for a man to take up his cross, is to deny himself all ungodliness, and every worldly lust, and keep my commandments” ([[JST Matthew 16.25|JST, Matt. 16:25–26]][[JST Matthew 16.26|]]; see [footnote e for Matt. 16:24](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/16?lang=eng&id=note24e#note24e) in the LDS edition of the King James Bible).
 
 “Break not my commandments for to save your lives; for whosoever will save his life in this world, shall lose it in the world to come.
 
@@ -87,8 +89,3 @@ Moreover, may God bless us that we will earnestly desire to do our spiritual hou
 
 
 
-
-
-
-
-#Discipleship #Education #Example #Home #Jesus_Christ #Obedience #Repentance #Worldliness

@@ -1,6 +1,8 @@
 # Just Keep Going—with Faith
 
-By Elder Carl B. Cook - *Of the Presidency of the Seventy*
+Gary E. Stevenson
+
+By Elder Carl B. Cook - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Carl B. Cook - *Of the Presidency of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/04/13cook?lang=eng)
 
-Elder George A. Smith, an Apostle, received counsel from the Prophet Joseph Smith at a time of great difficulty: “He told me I should never get discouraged, whatever difficulties might surround me. If I was sunk in the lowest pit of Nova Scotia and all the Rocky Mountains piled on top of me, I ought not to be discouraged but hang on, exercise faith, and keep up good courage and I should come out on the top of the heap at last.”[^1]
+Elder George A. Smith, an Apostle, received counsel from the Prophet Joseph Smith at a time of great difficulty: “He told me I should never get discouraged, whatever difficulties might surround me. If I was sunk in the lowest pit of Nova Scotia and all the Rocky Mountains piled on top of me, I ought not to be discouraged but hang on, exercise faith, and keep up good courage and I should come out on the top of the heap at last.”[^1]
 
 How could the Prophet Joseph say that—to someone who was suffering? Because he knew it was true. He lived it. Joseph repeatedly experienced severe difficulties in his life. However, as he exercised faith in Jesus Christ and His Atonement and just kept going, he overcame seemingly insurmountable obstacles.[^2]
 
@@ -30,7 +32,7 @@ Do you know what she was grateful for? That she didn’t give up. She just kept 
 
 The God of heaven and earth will help us overcome discouragement and whatever obstacles we encounter if we look to Him, follow the promptings of the Holy Ghost,[^9] and just keep going—with faith.
 
-Thankfully, when we are weak or incapable, the Lord can strengthen our faith. He can increase our capacity beyond our own. I have experienced that. More than 20 years ago, I was unexpectedly called as an Area Seventy, and I felt very inadequate. Following my training assignments, I was to preside at my first stake conference.[^10] The stake president and I meticulously planned every detail. Shortly before the conference, President Boyd K. Packer, then–Acting President of the Quorum of the Twelve Apostles, called to see if he could accompany me. I was surprised and, of course, agreed. I asked how he would like to proceed since he would preside. He suggested that we undo the plans and prepare to follow the Spirit. Thankfully, I still had 10 days to study, pray, and prepare.
+Thankfully, when we are weak or incapable, the Lord can strengthen our faith. He can increase our capacity beyond our own. I have experienced that. More than 20 years ago, I was unexpectedly called as an Area Seventy, and I felt very inadequate. Following my training assignments, I was to preside at my first stake conference.[^10] The stake president and I meticulously planned every detail. Shortly before the conference, President Boyd K. Packer, then–Acting President of the Quorum of the Twelve Apostles, called to see if he could accompany me. I was surprised and, of course, agreed. I asked how he would like to proceed since he would preside. He suggested that we undo the plans and prepare to follow the Spirit. Thankfully, I still had 10 days to study, pray, and prepare.
 
 With an open agenda, we were on the stand 20 minutes before the leadership meeting began. I leaned over to the stake president and whispered, “This is a wonderful stake.”
 
@@ -58,7 +60,7 @@ I was empty. I had nothing. I knew it was time to exercise more faith. Slowly, I
 
 The meeting finally ended, but I quickly realized that the adult session would start in one hour. Oh, no! Like Zoram, I sincerely wanted to run, but just as Nephi caught him, I knew President Packer would catch me. The adult meeting followed the very same pattern. I spoke three more times. The next day during the general session, I spoke once.
 
-After the conference, President Packer said with affection, “Let’s do it again sometime.” I love President Boyd K. Packer and appreciate all that I learned.
+After the conference, President Packer said with affection, “Let’s do it again sometime.” I love President Boyd K. Packer and appreciate all that I learned.
 
 Do you know what I am grateful for? That I didn’t give up—or resist. If I had given in to my desperate desire to escape from those meetings, I would have missed an opportunity to increase my faith and receive a rich outpouring of love and support from my Heavenly Father. I learned of His mercy, the miraculous enabling power of Jesus Christ and His Atonement, and the powerful influence of the Holy Ghost. In spite of my weakness,[^16] I learned that I can serve; I can contribute when the Lord is by my side if I just keep going—with faith.
 
@@ -71,43 +73,41 @@ As the Prophet Joseph Smith said, “Stand fast, ye Saints of God, hold on a lit
 
 
 
-[^1]: George A. Smith, in *Teachings of Presidents of the Church: Joseph Smith* (2011), 235.
+[^1]: George A. Smith, in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-19?lang=eng&id=p34#p34)* (2011), 235.
 
-[^2]: See *Teachings: Joseph Smith*, 227–36.
+[^2]: See *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-19?lang=eng)*, 227–36.
 
 [^3]: When I speak of discouragement, I am not suggesting that to “just keep going with faith in Christ” is the only effort needed for people experiencing clinical depression, anxiety disorders, or other illnesses. For these friends, family members, and others listening, I echo the counsel of our Church leaders to please seek medical, psychological, and spiritual care while trusting in the Lord. My heart goes out to each of you wrestling with these unique challenges. We sincerely pray for you.
 
-[^4]: Some of my heroes in the scriptures include Caleb (see [[Numbers 14.6|Numbers 14:6–9, 24]][[Numbers 14.7|]][[Numbers 14.8|]][[Numbers 14.9|]][[Numbers 14.24|]]), Job (see [[Job 19.25|Job 19:25–26]][[Job 19.26|]]), and Nephi (see [[1 Nephi 3.7|1 Nephi 3:7]]), in addition to my modern-day heroes.
+[^4]: Some of my heroes in the scriptures include Caleb (see [[Numbers 14.6|Numbers 14:6–9, 24]][[Numbers 14.7|]][[Numbers 14.8|]][[Numbers 14.9|]][[Numbers 14.24|]]), Job (see [[Job 19.25|Job 19:25–26]][[Job 19.26|]]), and Nephi (see [[1 Nephi 3.7|1 Nephi 3:7]]), in addition to my modern-day heroes.
 
-[^5]: See [[1 Nephi 4.20|1 Nephi 4:20, 30–35, 38]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.38|]].
+[^5]: See [[1 Nephi 4.20|1 Nephi 4:20, 30–35, 38]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.38|]].
 
-[^6]: See Dale G. Renlund, “[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Liahona*, May 2021, 41–45.
+[^6]: See Dale G. Renlund, “[[2021 April - Infuriating Unfairness.md|Infuriating Unfairness]],” *Liahona*, May 2021, 41–45.
 
-[^7]: See [[2 Nephi 1.30|2 Nephi 1:30–32]][[2 Nephi 1.31|]][[2 Nephi 1.32|]]. “Although \[Zoram\] had to endure a little rough handling, the trap he was caught in was the very situation through which God had determined to bless him. Though he had to give up his homeland, God was preparing a better one” (David B. Paxman, “[Zoram and I: Getting Our Stories Straight](https://speeches.byu.edu/talks/david-b-paxman/zoram-and-i-getting-our-stories-straight)” \[Brigham Young University devotional, July 27, 2010\], 8, speeches.byu.edu).
+[^7]: See [[2 Nephi 1.30|2 Nephi 1:30–32]][[2 Nephi 1.31|]][[2 Nephi 1.32|]]. “Although \[Zoram\] had to endure a little rough handling, the trap he was caught in was the very situation through which God had determined to bless him. Though he had to give up his homeland, God was preparing a better one” (David B. Paxman, “[Zoram and I: Getting Our Stories Straight](https://speeches.byu.edu/talks/david-b-paxman/zoram-and-i-getting-our-stories-straight)” \[Brigham Young University devotional, July 27, 2010\], 8, speeches.byu.edu).
 
-[^8]: I heard this sister’s testimony in a ward in the Riverdale Utah Stake on December 11, 2022. The experience she shared occurred in a previous ward.
+[^8]: I heard this sister’s testimony in a ward in the Riverdale Utah Stake on December 11, 2022. The experience she shared occurred in a previous ward.
 
 [^9]: See [[D&C 11.12|Doctrine and Covenants 11:12–13]][[D&C 11.13|]].
 
-[^10]: My assignment was in the Benson Utah Stake on November 3–4, 2001. President Jerry Toombs was the stake president.
+[^10]: My assignment was in the Benson Utah Stake on November 3–4, 2001. President Jerry Toombs was the stake president.
 
-[^11]: See Boyd K. Packer, “[[1991 October - Reverence Invites Revelation.md|Reverence Invites Revelation]],” *Ensign*, Nov. 1991, 21–23.
+[^11]: See Boyd K. Packer, “[[1991 October - Reverence Invites Revelation.md|Reverence Invites Revelation]],” *Ensign*, Nov. 1991, 21–23.
 
 [^12]: See [[D&C 46.2|Doctrine and Covenants 46:2]].
 
 [^13]: [[D&C 100.5|Doctrine and Covenants 100:5–6]][[D&C 100.6|]]; see also [[D&C 100.7|verses 7–8]][[D&C 100.8|]].
 
-[^14]: [[1 Corinthians 2.13|1 Corinthians 2:13]].
+[^14]: [[1 Corinthians 2.13|1 Corinthians 2:13]].
 
-[^15]: President Russell M. Nelson has said, “When you spiritually stretch beyond anything you have ever done before, then \[the Savior’s\] power will flow into you” (“[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 42).
+[^15]: President Russell M. Nelson has said, “When you spiritually stretch beyond anything you have ever done before, then \[the Savior’s\] power will flow into you” (“[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 42).
 
 [^16]: See [[Ether 12.27|Ether 12:27]].
 
 [^17]: See [[John 17.4|John 17:4]].
 
-[^18]: See [[2 Nephi 31.20|2 Nephi 31:20]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Alma 36.3|Alma 36:3]].
+[^18]: See [[2 Nephi 31.20|2 Nephi 31:20]]; [[Mosiah 2.41|Mosiah 2:41]]; [[Alma 36.3|Alma 36:3]].
 
+[^19]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-19?lang=eng&id=p33#p33)*, 235.
 
-
-
-#Adversity #Courage #Faith #Holy_Ghost #Joseph_Smith #Perseverance

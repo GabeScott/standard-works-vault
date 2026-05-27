@@ -1,6 +1,5 @@
 # Avail
 
-
 neither circumcision *availeth* any thing, [[Galatians 5.6|Galatians 5:6]].
 
 fervent prayer of a righteous man *availeth* much, [[James 5.16|James 5:16]].

@@ -1,5 +1,7 @@
 # “An Humble and a Contrite Heart”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2000 General Conference*
@@ -47,8 +49,3 @@ I bear witness of the truth of this work and of the living reality of God our Et
 
 
 
-
-
-
-
-#Family_Home_Evening #General_Conference #Home #Love #Prayer #Spirituality

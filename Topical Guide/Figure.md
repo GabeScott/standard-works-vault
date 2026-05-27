@@ -1,6 +1,5 @@
 # Figure
 
-
 maketh it after the *figure* of a man, [[Isaiah 44.13|Isaiah 44:13]].
 
 *figures* which ye made to worship them, [[Acts 7.43|Acts 7:43]].

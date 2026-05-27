@@ -1,6 +1,8 @@
 # Moving Forward
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -39,7 +41,5 @@ I pray that you will *choose* to lay hold upon the word of God as it is declared
 
 [^2]: [[Helaman 3.29|Helaman 3:29]]; emphasis added.
 
+[^3]: See [[2 Nephi 1.15|2 Nephi 1:15]].
 
-
-
-#Adversity #Faith #Family_History

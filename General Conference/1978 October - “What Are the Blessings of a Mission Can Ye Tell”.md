@@ -1,6 +1,8 @@
 # “What Are the Blessings of a Mission? Can Ye Tell?”
 
-By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -42,7 +44,7 @@ Another fine young elder was called on a mission. At the time, he drove cars acr
 
 Another elder entered the mission just after I arrived in San Antonio. He came from a large family. The father found that he needed to pick up a part-time job to help support his son. This was not quite enough, and so the sweet mother went to work in the school lunch program so that she could be home when her children were home. Even with this additional money, the elder fell a little further behind each month. A choice friend occasionally gives me several $100 bills to share where they are needed. When I interviewed this elder, I asked him how he was doing financially. His eyes clouded up, and he said was really trying, but his folks weren’t sending him quite enough. He said, “President, I haven’t been wasting. I haven’t eaten anything for three days, trying to cut back.” Then he said, “Even my little sister is helping. She received a one-dollar bill for her birthday, and she put it in an envelope and sent it to me because she thought I needed it more than she did.” Then he wept openly. I reached into my shirt pocket, and extracted two crisp $100 bills, and said, “A choice friend of mine asked me to give these to you.” He put his head down in his hands and was overcome.
 
-Elder Daniel Gifford was promised in his patriarchal blessing that he would serve closely with a General Authority while he was on his mission. He wondered how this would be when he received his mission call to Texas, where the mission president had only served two or three months. While he was in the Missionary Training Center listening to the final session of October general conference, he heard President Tanner announce that the next speaker would be Elder Vaughn J. Featherstone, a member of the First Quorum of the Seventy and newly called president of the Texas San Antonio Mission. When Elder Gifford was later called to be an assistant to the president, he shared his patriarchal blessing promise with us. Do you think he has any question about whose work this is?
+Elder Daniel Gifford was promised in his patriarchal blessing that he would serve closely with a General Authority while he was on his mission. He wondered how this would be when he received his mission call to Texas, where the mission president had only served two or three months. While he was in the Missionary Training Center listening to the final session of October general conference, he heard President Tanner announce that the next speaker would be Elder Vaughn J. Featherstone, a member of the First Quorum of the Seventy and newly called president of the Texas San Antonio Mission. When Elder Gifford was later called to be an assistant to the president, he shared his patriarchal blessing promise with us. Do you think he has any question about whose work this is?
 
 One elder who was transferred from another mission wanted to go home. He knew his parents and bishop wanted him to stay and complete his mission. In one of the many interviews we had, he said that five previous elders in his ward had abandoned their missions and had returned home early. I thought what a great disservice the first elder did to the other young men who followed his poor example. I made a solemn vow that this elder would not go home until his mission was completed successfully. Every week for thirteen to fifteen weeks he would write in his letter to the president all the reasons he should be released from his mission. Each week I wrote a letter of response.
 
@@ -69,5 +71,3 @@ God bless that *all*—all—who may be able to serve will make themselves avail
 
 
 
-
-#Activation #Conversion #Missionary_Work

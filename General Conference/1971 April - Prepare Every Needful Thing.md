@@ -1,6 +1,8 @@
 # Prepare Every Needful Thing
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -22,7 +24,7 @@ Thumbing through the Doctrine and Covenants to the eighty-eighth section, we fin
 
 “And as all have not faith, seek ye diligently and teach one another words of wisdom; yea, seek ye out of the best books words of wisdom; seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].)
 
-After this injunction to teach one another, to seek wisdom out of the best books, and to seek learning, the Lord gave further instructions and suggested in very few words that programs be established to carry out these responsibilities. This is how he said it should be done: “Organize yourselves; prepare every needful thing. …” ([[D&C 88.119|D&C 88:119]].)
+After this injunction to teach one another, to seek wisdom out of the best books, and to seek learning, the Lord gave further instructions and suggested in very few words that programs be established to carry out these responsibilities. This is how he said it should be done: “Organize yourselves; prepare every needful thing. …” ([[D&C 88.119|D&C 88:119]].)
 
 If we are to teach one another, if we are to seek wisdom and learning by study and by faith, we must organize and prepare every needful thing. These words form the basis upon which the idea of the meetinghouse library is conceived—to “prepare every needful thing” for more effective teaching.
 
@@ -65,8 +67,3 @@ I testify to you that the meetinghouse library program is divinely inspired. It 
 
 
 
-
-
-
-
-#Preparation #Teaching

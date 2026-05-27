@@ -1,5 +1,7 @@
 # A Broken Heart and a Contrite Spirit
 
+Gordon B. Hinckley
+
 By Elder Bruce D. Porter - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -22,9 +24,9 @@ The sacrifices mandated during the Mosaic dispensation pointed symbolically to t
 
 After His Resurrection, Jesus Christ declared to the people in the New World:
 
-“Your sacrifices and your burnt offerings shall be done away, for I will accept none of \[them\]. …
+“Your sacrifices and your burnt offerings shall be done away, for I will accept none of \[them\]. …
 
-“And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart … , him will I baptize with fire and with the Holy Ghost” ([[3 Nephi 9.19|3 Nephi 9:19–20]][[3 Nephi 9.20|]]).
+“And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart … , him will I baptize with fire and with the Holy Ghost” ([[3 Nephi 9.19|3 Nephi 9:19–20]][[3 Nephi 9.20|]]).
 
 What are a broken heart and a contrite spirit? And why are they considered a sacrifice?
 
@@ -34,13 +36,13 @@ The Savior’s perfect submission to the Eternal Father is the very essence of a
 
 A broken heart and a contrite spirit are also preconditions to repentance. Lehi taught:
 
-“Wherefore, redemption cometh in and through the Holy Messiah. …
+“Wherefore, redemption cometh in and through the Holy Messiah. …
 
-“Behold, he offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered” ([[2 Nephi 2.6|2 Nephi 2:6–7]][[2 Nephi 2.7|]]).
+“Behold, he offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered” ([[2 Nephi 2.6|2 Nephi 2:6–7]][[2 Nephi 2.7|]]).
 
-When we sin and desire forgiveness, a broken heart and a contrite spirit mean to experience “godly sorrow \[that\] worketh repentance” ([[2 Corinthians 7.10|2 Corinthians 7:10]]). This comes when our desire to be cleansed from sin is so consuming that our hearts ache with sorrow and we yearn to feel at peace with our Father in Heaven. Those who have a broken heart and a contrite spirit are willing to do anything and everything that God asks of them, without resistance or resentment. We cease doing things our way and learn to do them God’s way instead. In such a condition of submissiveness, the Atonement can take effect and true repentance can occur. The penitent will then experience the sanctifying power of the Holy Ghost, which will fill them with peace of conscience and the joy of reconciliation with God. In a wondrous union of divine attributes, the same God who teaches us to walk with a broken heart invites us to rejoice and to be of good cheer.
+When we sin and desire forgiveness, a broken heart and a contrite spirit mean to experience “godly sorrow \[that\] worketh repentance” ([[2 Corinthians 7.10|2 Corinthians 7:10]]). This comes when our desire to be cleansed from sin is so consuming that our hearts ache with sorrow and we yearn to feel at peace with our Father in Heaven. Those who have a broken heart and a contrite spirit are willing to do anything and everything that God asks of them, without resistance or resentment. We cease doing things our way and learn to do them God’s way instead. In such a condition of submissiveness, the Atonement can take effect and true repentance can occur. The penitent will then experience the sanctifying power of the Holy Ghost, which will fill them with peace of conscience and the joy of reconciliation with God. In a wondrous union of divine attributes, the same God who teaches us to walk with a broken heart invites us to rejoice and to be of good cheer.
 
-When we have received a forgiveness of sins, a broken heart serves as a divine shield against temptation. Nephi prayed, “May the gates of hell be shut continually before me, because that my heart is broken and my spirit is contrite!” ([[2 Nephi 4.32|2 Nephi 4:32]]). King Benjamin taught his people that if they would walk in the depths of humility, they might ever rejoice, “be filled with the love of God, and always retain a remission of … sins” ([[Mosiah 4.12|Mosiah 4:12]]). When we yield our hearts to the Lord, the attractions of the world simply lose their luster.
+When we have received a forgiveness of sins, a broken heart serves as a divine shield against temptation. Nephi prayed, “May the gates of hell be shut continually before me, because that my heart is broken and my spirit is contrite!” ([[2 Nephi 4.32|2 Nephi 4:32]]). King Benjamin taught his people that if they would walk in the depths of humility, they might ever rejoice, “be filled with the love of God, and always retain a remission of … sins” ([[Mosiah 4.12|Mosiah 4:12]]). When we yield our hearts to the Lord, the attractions of the world simply lose their luster.
 
 There is yet another dimension of a broken heart—namely, our deep gratitude for Christ’s suffering on our behalf. In Gethsemane, the Savior “descended below all things” ([[D&C 88.6|D&C 88:6]]) as He bore the burden of sin for every human being. At Golgotha, He “poured out his soul unto death” ([[Isaiah 53.12|Isaiah 53:12]]), and His great heart literally broke with an all-encompassing love for the children of God. When we remember the Savior and His suffering, our hearts too will break in gratitude for the Anointed One.
 
@@ -49,8 +51,3 @@ As we make the sacrifice to Him of all that we have and all that we are, the Lor
 
 
 
-
-
-
-
-#Gratitude #Repentance #Sacrifice

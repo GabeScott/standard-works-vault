@@ -1,5 +1,7 @@
 # A Willing Heart
 
+Ezra Taft Benson
+
 By Elder Monte J. Brough - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -33,8 +35,3 @@ In reference to Elder Marvin J. Ashtonâ€™s talk, I have work to do on my heartâ€
 
 
 
-
-
-
-
-#Commitment #Parenthood

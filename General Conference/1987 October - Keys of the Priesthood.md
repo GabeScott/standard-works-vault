@@ -1,5 +1,7 @@
 # Keys of the Priesthood
 
+Ezra Taft Benson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -22,13 +24,13 @@ Let us consider keys of the priesthood through three scenes of history: in ancie
 
 Scene one pertains to keys of the priesthood in ancient days, even before creation of the earth. We then existed as spirit children of God. Abraham was one of us. He was told that he was among rulers chosen—even before he was born (see [[Abraham 3.23|Abr. 3:23]]). Scriptures also relate that the Lord God foreordained priests prepared from the foundation of the world according to his foreknowledge. Thus, our calling to the holy priesthood was foreseen before we were born (see [[Alma 13.1|Alma 13:1–5]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]]).
 
-We know that Adam received priesthood authority before the world was formed (see Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 157, 167–68; see also [[D&C 78.16|D&C 78:16]]).
+We know that Adam received priesthood authority before the world was formed (see Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 157, 167–68; see also [[D&C 78.16|D&C 78:16]]).
 
-The potential of the priesthood is so vast that our comprehension of it is a challenge. The Prophet Joseph Smith declared, “The Priesthood is an everlasting principle, and existed with God from eternity, and will to eternity” (*Teachings,* p. 157).
+The potential of the priesthood is so vast that our comprehension of it is a challenge. The Prophet Joseph Smith declared, “The Priesthood is an everlasting principle, and existed with God from eternity, and will to eternity” (*Teachings,* p. 157).
 
-President Brigham Young added that the priesthood is “the law by which the worlds are, were, and will continue for ever and ever” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 130).
+President Brigham Young added that the priesthood is “the law by which the worlds are, were, and will continue for ever and ever” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 130).
 
-Priesthood is the authority of God delegated to man to minister for the salvation of men. “The power of directing these labors constitutes the *keys* of the Priesthood” (Joseph F. Smith, “Editor’s Table,” *Improvement Era,* Jan. 1901, p. 230).
+Priesthood is the authority of God delegated to man to minister for the salvation of men. “The power of directing these labors constitutes the *keys* of the Priesthood” (Joseph F. Smith, “Editor’s Table,” *Improvement Era,* Jan. 1901, p. 230).
 
 Many in scene one held those keys, such as Abraham, Isaac, Jacob, Joseph, Moses, Elias, and Elijah.
 
@@ -90,7 +92,24 @@ I am deeply grateful that we bear the priesthood—each of us foreordained from 
 
 As a symbol of gratitude, I have penned a few lines to be sung as the concluding portion of my message. A verse for each of three scenes of history may summarize my remarks. This song will be new to you. The words have been written to music from Wales.[^1] For the gracious support of Brother Jerold D. Ottley and our male chorus I express my appreciation. To this song I have assigned an ancient title, “Hosanna,” the prayerful shout of fervent praise:
 
-*Hosanna**Through time’s immortal endless stay**In love he guides our way.**Beyond the realms of heaven’s beam,**Our great God, Elohim.**Hosanna to his holy name—**Our fathers’ God is still the same.**That holy night in Bethlehem**His Son was born among men.**To ransom from a timeless grave,**Each child of God to save.**Hosanna to his holy name—**Our fathers’ God is still the same.**His priesthood power restored to earth**To bless each soul given birth.**Our song of prayer to him we raise**Proclaiming joy and praise.**Hosanna to his holy name—**Our fathers’ God is still the same.**Amen, amen, amen, amen.*
+>*Through time’s immortal endless stay*
+>*In love he guides our way.*
+>*Beyond the realms of heaven’s beam,*
+>*Our great God, Elohim.*
+>*Hosanna to his holy name—*
+>*Our fathers’ God is still the same.*
+>
+>*That holy night in Bethlehem*
+>*His Son was born among men.*
+>*To ransom from a timeless grave,*
+>*Each child of God to save.*
+>
+>*His priesthood power restored to earth*
+>*To bless each soul given birth.*
+>*Our song of prayer to him we raise*
+>*Proclaiming joy and praise.*
+>*Amen, amen, amen, amen.*
+>
 
 May we be true to the trust he has given to us who bear the holy priesthood and hold its sacred keys, I pray in the name of Jesus Christ, amen.
 
@@ -99,8 +118,3 @@ May we be true to the trust he has given to us who bear the holy priesthood and 
 
 [^1]: Lyrics by Russell M. Nelson, copyright 1987; “Tydi A Roddaist,” by Arwell Hughes, copyright 1938. Gratitude is expressed to Mr. Hughes for permission to use his music with these words, and to Barry D. R. Whittaker, president of the Cardiff Wales Stake, for his assistance.
 
-
-
-
-
-#Priesthood #Responsibility

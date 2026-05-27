@@ -1,6 +1,8 @@
 # Temple Standard
 
-By Elder Scott D. Whiting - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Scott D. Whiting - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -10,11 +12,11 @@ By Elder Scott D. Whiting - *Of the Seventy*
 
 While recently touring the beautiful Brigham City Utah Temple, I was reminded of an experience that I had while serving as the coordinator of the open house, rededication, and cultural celebration of the historic Laie Hawaii Temple.
 
-A few months prior to the completion of the extensive renovation work, I was invited to tour the temple with the Executive Director of the Temple Department, Elder William R. Walker, and his Temple Department associates. In addition, various members of the general contracting firm were in attendance. The purpose of the tour, in part, was to review the progress and quality of the work performed. At the time of this tour, the work was about 85 percent completed.
+A few months prior to the completion of the extensive renovation work, I was invited to tour the temple with the Executive Director of the Temple Department, Elder William R. Walker, and his Temple Department associates. In addition, various members of the general contracting firm were in attendance. The purpose of the tour, in part, was to review the progress and quality of the work performed. At the time of this tour, the work was about 85 percent completed.
 
 As we moved through the temple, I watched and listened to Elder Walker and his associates as they inspected the work and conversed with the general contractor. On occasion I observed one man running his hand along the walls as we moved from room to room. A few times after doing this, he would rub his fingers together and then approach the general contractor and say, “I feel grit on this wall. Grit is not temple standard. You will need to re-sand and buff this wall.” The contractor dutifully took notes of each observation.
 
-As we approached an area in the temple that few eyes would ever see, the same man stopped us and directed our attention to a newly installed, beautiful leaded-glass window. This window measured about two feet (0.6 m) wide by six feet (1.8 m) tall and contained an embedded, small stained-glass geometric pattern. He pointed to a small two-inch (5 cm) colored-glass square that was part of the simple pattern and said, “That square is crooked.” I looked at the square, and to my eyes it looked evenly placed. However, upon closer inspection with a measuring device in hand, I could see there was a flaw and that this little square was indeed one-eighth of an inch (3 mm) crooked. Direction was then given to the contractor that this window would need to be replaced because it was not temple standard.
+As we approached an area in the temple that few eyes would ever see, the same man stopped us and directed our attention to a newly installed, beautiful leaded-glass window. This window measured about two feet (0.6 m) wide by six feet (1.8 m) tall and contained an embedded, small stained-glass geometric pattern. He pointed to a small two-inch (5 cm) colored-glass square that was part of the simple pattern and said, “That square is crooked.” I looked at the square, and to my eyes it looked evenly placed. However, upon closer inspection with a measuring device in hand, I could see there was a flaw and that this little square was indeed one-eighth of an inch (3 mm) crooked. Direction was then given to the contractor that this window would need to be replaced because it was not temple standard.
 
 I admit that I was surprised that an entire window would need to be replaced because of such a small, barely noticeable defect. Surely, it was unlikely that anyone would ever know or even notice this window given its remote location in the temple.
 
@@ -32,7 +34,7 @@ In the revelation given to the Prophet Joseph Smith to build a temple in Nauvoo,
 
 “Come ye, with all your gold, and your silver, and your precious stones, and with all your antiquities; and with all who have knowledge of antiquities, … and bring … the precious trees of the earth;
 
-“… And build a house to my name, for the Most High to dwell therein.”[^1]
+“… And build a house to my name, for the Most High to dwell therein.”[^1]
 
 This follows a pattern established by King Solomon in the Old Testament when he built a temple unto the Lord using only the finest materials and workmanship.[^2] Today we continue to follow this pattern, with appropriate moderation, as we build the temples of the Church.
 
@@ -59,16 +61,11 @@ We are each made of the finest materials, and we are the miraculous result of di
 
 [^1]: [[D&C 124.26|Doctrine and Covenants 124:26–27]][[D&C 124.27|]].
 
-[^2]: See [[1 Kings 6.1|1 Kings 6–7]][[1 Kings 6.2|]][[1 Kings 6.3|]][[1 Kings 6.4|]][[1 Kings 6.5|]][[1 Kings 6.6|]][[1 Kings 6.7|]][[1 Kings 6.8|]][[1 Kings 6.9|]][[1 Kings 6.10|]][[1 Kings 6.11|]][[1 Kings 6.12|]][[1 Kings 6.13|]][[1 Kings 6.14|]][[1 Kings 6.15|]][[1 Kings 6.16|]][[1 Kings 6.17|]][[1 Kings 6.18|]][[1 Kings 6.19|]][[1 Kings 6.20|]][[1 Kings 6.21|]][[1 Kings 6.22|]][[1 Kings 6.23|]][[1 Kings 6.24|]][[1 Kings 6.25|]][[1 Kings 6.26|]][[1 Kings 6.27|]][[1 Kings 6.28|]][[1 Kings 6.29|]][[1 Kings 6.30|]][[1 Kings 6.31|]][[1 Kings 6.32|]][[1 Kings 6.33|]][[1 Kings 6.34|]][[1 Kings 6.35|]][[1 Kings 6.36|]][[1 Kings 6.37|]][[1 Kings 6.38|]].
+[^2]: See [[1 Kings 6.1|1 Kings 6–7]][[1 Kings 6.2|]][[1 Kings 6.3|]][[1 Kings 6.4|]][[1 Kings 6.5|]][[1 Kings 6.6|]][[1 Kings 6.7|]][[1 Kings 6.8|]][[1 Kings 6.9|]][[1 Kings 6.10|]][[1 Kings 6.11|]][[1 Kings 6.12|]][[1 Kings 6.13|]][[1 Kings 6.14|]][[1 Kings 6.15|]][[1 Kings 6.16|]][[1 Kings 6.17|]][[1 Kings 6.18|]][[1 Kings 6.19|]][[1 Kings 6.20|]][[1 Kings 6.21|]][[1 Kings 6.22|]][[1 Kings 6.23|]][[1 Kings 6.24|]][[1 Kings 6.25|]][[1 Kings 6.26|]][[1 Kings 6.27|]][[1 Kings 6.28|]][[1 Kings 6.29|]][[1 Kings 6.30|]][[1 Kings 6.31|]][[1 Kings 6.32|]][[1 Kings 6.33|]][[1 Kings 6.34|]][[1 Kings 6.35|]][[1 Kings 6.36|]][[1 Kings 6.37|]][[1 Kings 6.38|]].
 
 [^3]: [[D&C 97.15|Doctrine and Covenants 97:15–17]][[D&C 97.16|]][[D&C 97.17|]].
 
 [^4]: [[D&C 121.37|Doctrine and Covenants 121:37]].
 
-[^5]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]; see also [[1 Corinthians 3.19|verse 19]].
+[^5]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]; see also [[1 Corinthians 3.19|verse 19]].
 
-
-
-
-
-#Standards #Temples

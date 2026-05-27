@@ -1,5 +1,7 @@
 # Our Responsibility to Share the Gospel
 
+Gordon B. Hinckley
+
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -20,7 +22,7 @@ Permit me to suggest some of the ways you can participate in this glorious endea
 
 First, *you can live the principles of the gospel.*
 
-The Lord expects this of us. The Apostle Paul commanded, “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.” ([[1 Timothy 4.12|1 Tim. 4:12]].)
+The Lord expects this of us. The Apostle Paul commanded, “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.” ([[1 Timothy 4.12|1 Tim. 4:12]].)
 
 We are grateful that members of the Church for the most part are striving to live the gospel and dealing justly with our fellowman. But are we not all saddened and disappointed when Church members are found guilty of taking advantage of others through business transactions or are judged guilty of breaking the laws of God and man? As Church members, blessed with the truths of the gospel, the Lord expects us to be honest, morally clean, chaste, free from profanity and vulgarity, trustworthy, and exemplary in all our conduct.
 
@@ -84,7 +86,7 @@ How I pray that we will be filled with the love of God for our fellowman!
 
 Fifth, *we can participate in missionary service by preparing for and serving a mission.*
 
-One way couples can do this is to save and prepare to serve a mission together. Again I state, “We have need for select missionary couples.” (*Ensign,* May 1984, p. 45.)
+One way couples can do this is to save and prepare to serve a mission together. Again I state, “We have need for select missionary couples.” (*Ensign,* May 1984, p. 45.)
 
 I repeat, we urge you to seriously consider serving a full-time mission. Some of you younger couples have your sons already on missions. Perhaps now is the time for you to prepare financially and otherwise for missionary service. Many couples have provided distinguished service and stability to various missions in the Church.
 
@@ -105,8 +107,3 @@ God bless us all as members of His Church to share the gospel with others, in th
 
 
 
-
-
-
-
-#Missionary_Work

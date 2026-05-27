@@ -1,13 +1,12 @@
 # Bow [verb]
 
-
 nations *bow* down to thee, [[Genesis 27.29|Genesis 27:29]].
 
 come to *bow* down ourselves to thee, [[Genesis 37.10|Genesis 37:10]].
 
-Israel *bowed* himself upon the bed's head, [[Genesis 47.31|Genesis 47:31]].
+Israel *bowed* himself upon the bed’s head, [[Genesis 47.31|Genesis 47:31]].
 
-thy father's children shall *bow* down, [[Genesis 49.8|Genesis 49:8]].
+thy father’s children shall *bow* down, [[Genesis 49.8|Genesis 49:8]].
 
 shalt not *bow* down thyself to them, [[Exodus 20.5|Exodus 20:5]] ([[Deuteronomy 5.9|Deuteronomy 5:9]]).
 
@@ -15,7 +14,7 @@ Thou shalt not *bow* down to their gods, [[Exodus 23.24|Exodus 23:24]].
 
 that *boweth* down upon his knees to drink, [[Judges 7.5|Judges 7:5]].
 
-Samson ... *bowed* himself with all his might, [[Judges 16.30|Judges 16:30]].
+Samson … *bowed* himself with all his might, [[Judges 16.30|Judges 16:30]].
 
 which have not *bowed* unto Baal, [[1 Kings 19.18|1 Kings 19:18]] ([[Romans 11.4|Romans 11:4]]).
 
@@ -43,7 +42,7 @@ every knee shall *bow*, and every tongue confess, [[Mosiah 27.31|Mosiah 27:31]] 
 
 *bow* down before God, and call on his name, [[Alma 22.16|Alma 22:16]].
 
-leading the ... people to *bow* down to dumb idols, [[Alma 31.1|Alma 31:1]].
+leading the … people to *bow* down to dumb idols, [[Alma 31.1|Alma 31:1]].
 
 if he will *bow* down before me, and humble, [[D&C 5.24|D&C 5:24]].
 

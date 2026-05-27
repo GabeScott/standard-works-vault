@@ -1,5 +1,7 @@
 # Valiant in the Testimony of Jesus
 
+Spencer W. Kimball
+
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -40,17 +42,17 @@ Concerning those who will receive the terrestrial, or lesser, kingdom, the Lord 
 
 Considering some of the challenges which the Church faces currently, and which it will continue to face in the future, three statements of former Church leaders come to mind.
 
-President Joseph F. Smith said, “There are at least three dangers that threaten the Church within, … they are flattery of prominent men in the world, false educational ideas, and sexual impurity.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, pp. 312–13.) These three dangers are of greater concern today than when they were identified by President Smith.
+President Joseph F. Smith said, “There are at least three dangers that threaten the Church within, … they are flattery of prominent men in the world, false educational ideas, and sexual impurity.” (*Gospel Doctrine,* 5th ed., Salt Lake City: Deseret Book Co., 1939, pp. 312–13.) These three dangers are of greater concern today than when they were identified by President Smith.
 
-A second statement was a prophecy by Heber C. Kimball, counselor to President Brigham Young. Speaking to members of the Church who had come to the Salt Lake Valley, he declared:
+A second statement was a prophecy by Heber C. Kimball, counselor to President Brigham Young. Speaking to members of the Church who had come to the Salt Lake Valley, he declared:
 
-“To meet the difficulties that are coming, it will be necessary for you to have a knowledge of the truth of this work for yourselves. The difficulties will be of such a character that the man or woman who does not possess this personal knowledge or witness will fall. If you have not got the testimony, live right and call upon the Lord and cease not till you obtain it. If you do not you will not stand. …
+“To meet the difficulties that are coming, it will be necessary for you to have a knowledge of the truth of this work for yourselves. The difficulties will be of such a character that the man or woman who does not possess this personal knowledge or witness will fall. If you have not got the testimony, live right and call upon the Lord and cease not till you obtain it. If you do not you will not stand. …
 
-“The time will come when no man nor woman will be able to endure on borrowed light. Each will have to be guided by the light within himself. …
+“The time will come when no man nor woman will be able to endure on borrowed light. Each will have to be guided by the light within himself. …
 
-“If you don’t have it you will not stand; therefore seek for the testimony of Jesus and cleave to it, that when the trying time comes you may not stumble and fall.” (Orson F. Whitney, *Life of Heber C. Kimball,* Salt Lake City: Bookcraft, 1967, p. 450.)
+“If you don’t have it you will not stand; therefore seek for the testimony of Jesus and cleave to it, that when the trying time comes you may not stumble and fall.” (Orson F. Whitney, *Life of Heber C. Kimball,* Salt Lake City: Bookcraft, 1967, p. 450.)
 
-The third statement is from President Harold B. Lee, my boyhood companion and friend, and eleventh President of the Church:
+The third statement is from President Harold B. Lee, my boyhood companion and friend, and eleventh President of the Church:
 
 “We have some tight places to go before the Lord is through with this church and the world in this dispensation, which is the last dispensation, which shall usher in the coming of the Lord. The gospel was restored to prepare a people ready to receive him. The power of Satan will increase; we see it in evidence on every hand. There will be inroads within the Church. … We will see those who profess membership but secretly are plotting and trying to lead people not to follow the leadership that the Lord has set up to preside in this church.
 
@@ -64,13 +66,13 @@ There are some who want to expose the weaknesses of Church leaders in an effort 
 
 President Brigham Young revealed that on one occasion he was tempted to be critical of the Prophet Joseph Smith regarding a certain financial matter. He said that the feeling did not last for more than perhaps thirty seconds. That feeling, he said, caused him great sorrow in his heart. The lesson he gave to members of the Church in his day may well be increased in significance today because the devil continues more active:
 
-“I clearly saw and understood, *by the spirit of revelation manifested to me,* that if I was to harbor a thought in my heart that Joseph could be wrong in anything, I would begin to lose confidence in him, and that feeling would grow from step to step, and from one degree to another, until at last I would have the same lack of confidence in his being the mouthpiece for the Almighty. …
+“I clearly saw and understood, *by the spirit of revelation manifested to me,* that if I was to harbor a thought in my heart that Joseph could be wrong in anything, I would begin to lose confidence in him, and that feeling would grow from step to step, and from one degree to another, until at last I would have the same lack of confidence in his being the mouthpiece for the Almighty. …
 
-“I repented of my unbelief, and that too, very suddenly; I repented about as quickly as I committed the error. It was not for me to question whether Joseph was dictated by the Lord at all times and under all circumstances. …
+“I repented of my unbelief, and that too, very suddenly; I repented about as quickly as I committed the error. It was not for me to question whether Joseph was dictated by the Lord at all times and under all circumstances. …
 
 “It was not my prerogative to call him in question with regard to any act of his life. He was God’s servant, and not mine. He did not belong to the people but to the Lord, and was doing the work of the Lord.” (In *Journal of Discourses,* 4:297.)
 
-From the days of my youth, I have gratefully cherished a testimony of the truth of this glorious work in which we are engaged. I want you to know of my love for President Spencer W. Kimball—and how grateful we are that he is here with us at the closing session. I feel the same toward his counselors, and my brethren of the Twelve, the Seventy, and the Bishopric. I know them to be men appointed by our Lord, under the inspiration of heaven. I sustain their inspired words and counsel and testify to you of the unity that we all feel among the General Authorities of this Church.
+From the days of my youth, I have gratefully cherished a testimony of the truth of this glorious work in which we are engaged. I want you to know of my love for President Spencer W. Kimball—and how grateful we are that he is here with us at the closing session. I feel the same toward his counselors, and my brethren of the Twelve, the Seventy, and the Bishopric. I know them to be men appointed by our Lord, under the inspiration of heaven. I sustain their inspired words and counsel and testify to you of the unity that we all feel among the General Authorities of this Church.
 
 I love you, the members of the Church. I love all our Father’s children and desire all to realize the blessings of eternal life, and I know that is what the Lord, our Savior and Redeemer, desires for each one of us.
 
@@ -81,8 +83,3 @@ I bear testimony that this is the Church of Jesus Christ. He presides over it an
 
 
 
-
-
-
-
-#Faith #Obedience

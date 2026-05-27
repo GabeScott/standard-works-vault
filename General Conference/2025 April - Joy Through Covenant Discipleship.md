@@ -1,6 +1,8 @@
 # Joy Through Covenant Discipleship
 
-By Elder John A. McCune - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder John A. McCune - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -12,11 +14,11 @@ One day in 2023, Uyanga Altansukh was at work in the northern Mongolian city of 
 
 “I saw him and thought he had this bright light in his countenance. He was very kind and fun to those around him, and I felt warmth. Before he left, I asked him some questions. A few days later, he came into my work again and asked if I could attend his church. I thought it might be helpful. I was worried for my children’s future, as society seemed to be full of stress and darkness. I wanted my children to be like this man with a light in their countenance, spreading joy to others around them.
 
-“One day the missionaries taught us the law of tithing. My children said with excitement, ‘We must pay our tithing, Mom.’ I could see my children’s faith at that moment. Before I joined the Church, I watched general conference and listened to President Russell M. Nelson speak. He announced new temples all over the world and said that a new temple would be built in Ulaanbaatar, Mongolia. I rejoiced and shed tears, even though I did not understand why. With this joy, I could tell that my faith and testimony were growing.”
+“One day the missionaries taught us the law of tithing. My children said with excitement, ‘We must pay our tithing, Mom.’ I could see my children’s faith at that moment. Before I joined the Church, I watched general conference and listened to President Russell M. Nelson speak. He announced new temples all over the world and said that a new temple would be built in Ulaanbaatar, Mongolia. I rejoiced and shed tears, even though I did not understand why. With this joy, I could tell that my faith and testimony were growing.”
 
 Uyanga, like millions of others, is part of the great gathering of Israel in preparation for the Second Coming of Jesus Christ. She has begun her journey along the covenant path and has become a disciple of Christ. What does it mean to be a disciple of Christ? I appreciate the Japanese word for disciple—*deshi*—*de* meaning younger brother, and *shi* meaning child.
 
-Jesus Christ declared, “I was in the beginning with the Father, and am the Firstborn.”[^1] Because of *who* He *is* and *what *He has *done*, we worship Him, we revere Him, we give glory to Him, and we follow Him. Christ has redeemed us,[^2] and we are forever grateful for His infinite and atoning sacrifice.
+Jesus Christ declared, “I was in the beginning with the Father, and am the Firstborn.”[^1] Because of *who* He *is* and *what* He has *done*, we worship Him, we revere Him, we give glory to Him, and we follow Him. Christ has redeemed us,[^2] and we are forever grateful for His infinite and atoning sacrifice.
 
 We have a Heavenly Father, who loves us as His children. His love for us is perfect. Jesus Christ and His mission illustrate God’s love for us. As John wrote, “For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.”[^3]
 
@@ -57,30 +59,25 @@ As we bind ourselves to act as covenant disciples, in whatever our level of capa
 
 [^1]: [[D&C 93.21|Doctrine and Covenants 93:21]].
 
-[^2]: See [[Matthew 1.21|Matthew 1:21]]; [[2 Nephi 2.6|2 Nephi 2:6]].
+[^2]: See [[Matthew 1.21|Matthew 1:21]]; [[2 Nephi 2.6|2 Nephi 2:6]].
 
 [^3]: [[John 3.16|John 3:16]].
 
 [^4]: [[Mosiah 5.7|Mosiah 5:7]].
 
-[^5]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 4–11.
+[^5]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” *Liahona*, Oct. 2022, 4–11.
 
-[^6]: See Dale G. Renlund, “[Experience God’s Love](https://speeches.byu.edu/talks/dale-g-renlund/experience-gods-love)” (Brigham Young University devotional, Dec. 3, 2019), speeches.byu.edu.
+[^6]: See Dale G. Renlund, “[Experience God’s Love](https://speeches.byu.edu/talks/dale-g-renlund/experience-gods-love)” (Brigham Young University devotional, Dec. 3, 2019), speeches.byu.edu.
 
 [^7]: [[John 15.9|John 15:9–11]][[John 15.10|]][[John 15.11|]].
 
 [^8]: See [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
-[^9]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^9]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^10]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p11#p11)” (worldwide youth devotional, June 3, 2018), Gospel Library.
+[^10]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p11#p11)” (worldwide youth devotional, June 3, 2018), Gospel Library.
 
 [^11]: [[Jacob 5.75|Jacob 5:75]].
 
-[^12]: See “[Hesed, God’s Covenant Love, Is the Reason We Build Temples and Perform Ordinances: Instruction from President Russell M. Nelson](https://churchofjesuschrist.org/study/manual/leadership-instruction-october-2024/01-nelson?lang=eng),” general conference leadership meeting, Oct. 2024, Gospel Library.
+[^12]: See “[Hesed, God’s Covenant Love, Is the Reason We Build Temples and Perform Ordinances: Instruction from President Russell M. Nelson](https://www.churchofjesuschrist.org/study/manual/leadership-instruction-october-2024/01-nelson?lang=eng),” general conference leadership meeting, Oct. 2024, Gospel Library.
 
-
-
-
-
-#Covenants #Discipleship #God_The_Father #Jesus_Christ #Joy #Love

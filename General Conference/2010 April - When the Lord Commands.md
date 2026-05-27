@@ -1,5 +1,7 @@
 # When the Lord Commands
 
+Thomas S. Monson
+
 By Elder Bruce A. Carlson - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -20,7 +22,7 @@ Fortunately there were no serious injuries, and after regaining their senses, on
 
 Like the two sportsmen, occasionally we believe that there must be an easier way, a shortcut or modification of the Lord’s commandments that will accommodate our individual circumstances. Thoughts such as these fail to acknowledge that strict obedience to God’s laws brings His blessings and failure to abide by His laws leads to foreseeable consequences.
 
-At the time of his appointment as President of the Church, Harold B. Lee said: “The safety of the church lies in the members keeping the commandments. … As they keep the commandments, blessings will come.”[^1]
+At the time of his appointment as President of the Church, Harold B. Lee said: “The safety of the church lies in the members keeping the commandments. … As they keep the commandments, blessings will come.”[^1]
 
 When we choose to disobey a commandment, it is usually because (1) we have convinced ourselves that the commandment does not apply to us; (2) we do not believe that it is important; or (3) we are certain that it is too difficult to obey.
 
@@ -74,42 +76,42 @@ Obedience to the Lord’s commandments provides us confidence in our chosen path
 
 It is my prayer that each day will find us striving to be more obedient to the laws, ordinances, and commandments of the gospel of Jesus Christ in order that He may more fully bless our lives.
 
-I testify that obedience to God’s commands brings the blessings of heaven; that our Heavenly Father and His Son, Jesus Christ, live; that the Book of Mormon is the word of God; and that President Thomas S. Monson is the Lord’s prophet for our day, in the name of Jesus Christ, amen.
+I testify that obedience to God’s commands brings the blessings of heaven; that our Heavenly Father and His Son, Jesus Christ, live; that the Book of Mormon is the word of God; and that President Thomas S. Monson is the Lord’s prophet for our day, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Harold B. Lee, quoted in Stephen W. Gibson, “Presidency Meets the Press,” *Church News,* July 15, 1972, 3.
+[^1]: Harold B. Lee, quoted in Stephen W. Gibson, “Presidency Meets the Press,” *Church News,* July 15, 1972, 3.
 
-[^2]: [[1 Kings 11.11|1 Kings 11:11]].
+[^2]: [[1 Kings 11.11|1 Kings 11:11]].
 
-[^3]: [[1 Kings 11.28|1 Kings 11:28]].
+[^3]: [[1 Kings 11.28|1 Kings 11:28]].
 
-[^4]: [[1 Kings 11.31|1 Kings 11:31]].
+[^4]: [[1 Kings 11.31|1 Kings 11:31]].
 
-[^5]: [[1 Kings 11.38|1 Kings 11:38]].
+[^5]: [[1 Kings 11.38|1 Kings 11:38]].
 
-[^6]: See [[1 Kings 11.40|1 Kings 11:40]].
+[^6]: See [[1 Kings 11.40|1 Kings 11:40]].
 
-[^7]: See [[1 Kings 12.2|1 Kings 12:2–3, 20]][[1 Kings 12.3|]][[1 Kings 12.20|]].
+[^7]: See [[1 Kings 12.2|1 Kings 12:2–3, 20]][[1 Kings 12.3|]][[1 Kings 12.20|]].
 
-[^8]: See [[1 Kings 12.25|1 Kings 12:25–30]][[1 Kings 12.26|]][[1 Kings 12.27|]][[1 Kings 12.28|]][[1 Kings 12.29|]][[1 Kings 12.30|]].
+[^8]: See [[1 Kings 12.25|1 Kings 12:25–30]][[1 Kings 12.26|]][[1 Kings 12.27|]][[1 Kings 12.28|]][[1 Kings 12.29|]][[1 Kings 12.30|]].
 
-[^9]: See [[1 Kings 14.10|1 Kings 14:10, 15–16]][[1 Kings 14.15|]][[1 Kings 14.16|]].
+[^9]: See [[1 Kings 14.10|1 Kings 14:10, 15–16]][[1 Kings 14.15|]][[1 Kings 14.16|]].
 
-[^10]: [[2 Kings 5.1|2 Kings 5:1]].
+[^10]: [[2 Kings 5.1|2 Kings 5:1]].
 
-[^11]: See [[2 Kings 5.5|2 Kings 5:5–6]][[2 Kings 5.6|]].
+[^11]: See [[2 Kings 5.5|2 Kings 5:5–6]][[2 Kings 5.6|]].
 
-[^12]: [[2 Kings 5.10|2 Kings 5:10]].
+[^12]: [[2 Kings 5.10|2 Kings 5:10]].
 
-[^13]: See [[2 Kings 5.11|2 Kings 5:11–14]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
+[^13]: See [[2 Kings 5.11|2 Kings 5:11–14]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
 
-[^14]: [[1 Nephi 2.10|1 Nephi 2:10]].
+[^14]: [[1 Nephi 2.10|1 Nephi 2:10]].
 
-[^15]: [[1 Nephi 3.3|1 Nephi 3:3]].
+[^15]: [[1 Nephi 3.3|1 Nephi 3:3]].
 
-[^16]: [[1 Nephi 3.5|1 Nephi 3:5]].
+[^16]: [[1 Nephi 3.5|1 Nephi 3:5]].
 
 [^17]: See *History of the Church,* 1:20–21; [[D&C 3.1|Doctrine and Covenants 3]][[D&C 3.2|]][[D&C 3.3|]][[D&C 3.4|]][[D&C 3.5|]][[D&C 3.6|]][[D&C 3.7|]][[D&C 3.8|]][[D&C 3.9|]][[D&C 3.10|]][[D&C 3.11|]][[D&C 3.12|]][[D&C 3.13|]][[D&C 3.14|]][[D&C 3.15|]][[D&C 3.16|]][[D&C 3.17|]][[D&C 3.18|]][[D&C 3.19|]][[D&C 3.20|]]; [[D&C 10.1|10]][[D&C 10.2|]][[D&C 10.3|]][[D&C 10.4|]][[D&C 10.5|]][[D&C 10.6|]][[D&C 10.7|]][[D&C 10.8|]][[D&C 10.9|]][[D&C 10.10|]][[D&C 10.11|]][[D&C 10.12|]][[D&C 10.13|]][[D&C 10.14|]][[D&C 10.15|]][[D&C 10.16|]][[D&C 10.17|]][[D&C 10.18|]][[D&C 10.19|]][[D&C 10.20|]][[D&C 10.21|]][[D&C 10.22|]][[D&C 10.23|]][[D&C 10.24|]][[D&C 10.25|]][[D&C 10.26|]][[D&C 10.27|]][[D&C 10.28|]][[D&C 10.29|]][[D&C 10.30|]][[D&C 10.31|]][[D&C 10.32|]][[D&C 10.33|]][[D&C 10.34|]][[D&C 10.35|]][[D&C 10.36|]][[D&C 10.37|]][[D&C 10.38|]][[D&C 10.39|]][[D&C 10.40|]][[D&C 10.41|]][[D&C 10.42|]][[D&C 10.43|]][[D&C 10.44|]][[D&C 10.45|]][[D&C 10.46|]][[D&C 10.47|]][[D&C 10.48|]][[D&C 10.49|]][[D&C 10.50|]][[D&C 10.51|]][[D&C 10.52|]][[D&C 10.53|]][[D&C 10.54|]][[D&C 10.55|]][[D&C 10.56|]][[D&C 10.57|]][[D&C 10.58|]][[D&C 10.59|]][[D&C 10.60|]][[D&C 10.61|]][[D&C 10.62|]][[D&C 10.63|]][[D&C 10.64|]][[D&C 10.65|]][[D&C 10.66|]][[D&C 10.67|]][[D&C 10.68|]][[D&C 10.69|]][[D&C 10.70|]].
 
@@ -119,8 +121,3 @@ I testify that obedience to God’s commands brings the blessings of heaven; tha
 
 [^20]: [[D&C 76.5|Doctrine and Covenants 76:5]]; emphasis added.
 
-
-
-
-
-#Blessings #Commandments #Obedience

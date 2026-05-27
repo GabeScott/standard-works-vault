@@ -1,5 +1,7 @@
 # “My Sheep Hear My Voice”
 
+Gordon B. Hinckley
+
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -16,7 +18,7 @@ The Book of Mormon testifies: “They heard a voice as if it came out of heaven;
 
 “And behold, the third time they did understand the voice which they heard; and it said unto them;
 
-*“Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.”* ([[3 Nephi 11.3|3 Ne. 11:3, 5–7]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]]; italics added.)
+*“Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.”* ([[3 Nephi 11.3|3 Ne. 11:3, 5–7]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]]; italics added.)
 
 I know that the same Father spoke to the Jewish people in the eastern hemisphere. When our Lord Jesus Christ was baptized, the Bible testifies, “And, lo, the heavens were opened unto him, and he saw the Spirit of God descending like a dove, and lighting upon him:
 
@@ -24,7 +26,7 @@ I know that the same Father spoke to the Jewish people in the eastern hemisphere
 
 *I know that early one morning in the spring of 1820, in the state of New York, the Father and the Son appeared to the boy Joseph Smith.* Joseph Smith testified: “I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me.
 
-“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.16|JS—H 1:16–17]][[Joseph Smith History 1.17|]].)
+“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.16|JS—H 1:16–17]][[Joseph Smith History 1.17|]].)
 
 *I know Joseph Smith saw God, the Father, and his Son, Jesus Christ. And I know that Joseph was a true living prophet of God. Like Joseph Smith of our day and like the ancient disciples and Apostles of the western and eastern hemispheres, I know that our Heavenly Father’s own testimony is true: Jesus of Nazareth is his Beloved Son, in whom he is well pleased. Hear ye him!*
 
@@ -44,7 +46,7 @@ Shortly before coming to this conference, I received a beautiful letter from a w
 
 After four days of studying and praying with the missionaries, she too came to accept the Savior and was baptized. Shortly thereafter, her youngest son also entered into the waters of baptism. Now Sister Masako Anan and her two boys are preparing to go to the Tokyo Temple to be sealed as a family with their deceased father for time and all eternity. Oh, how glorious is the power of the gospel which can change the hearts of people from sorrow and despair to happiness and joy! Oh, how glorious it is to know that the power conferred upon Joseph Smith can change the hearts of the people!
 
-*I know that the gospel has been restored* and that the true church of God has been reestablished here upon this earth. I humbly extend my invitation to all my friends everywhere, and I say humbly today, “Come partake of this living water. Believe the testimony of the Father: ‘\[This is\] my Beloved Son, in whom I am well pleased, … hear ye him.’” ([[3 Nephi 11.7|3 Ne. 11:7]].)
+*I know that the gospel has been restored* and that the true church of God has been reestablished here upon this earth. I humbly extend my invitation to all my friends everywhere, and I say humbly today, “Come partake of this living water. Believe the testimony of the Father: ‘\[This is\] my Beloved Son, in whom I am well pleased, … hear ye him.’” ([[3 Nephi 11.7|3 Ne. 11:7]].)
 
 I know for those who wish to hear the Father’s beloved Son, the Book of Mormon like the Bible has a familiar voice. It is the word of God and has the power to change men’s souls.
 
@@ -60,15 +62,10 @@ Brother Choi was so inspired and magnified by reading the Book of Mormon and tou
 
 Oh, how we need the missionaries of the Lord to carry the Father’s testimony of his Beloved Son to every people, kindred, and tongue! There must be many Bishop Chois and there must be many Sister Anans in your own neighborhoods.
 
-I know Spencer W. Kimball is a prophet of the Lord. He is a living prophet. He instructs us that we should lengthen our stride, quicken our pace with a sense of urgency; do it now! President Kimball, you are a living prophet of the Lord; you are a man scorned and covered with scars like Job of old, and yet you are ready to move forward, to climb another mountain. We love you. We need you.
+I know Spencer W. Kimball is a prophet of the Lord. He is a living prophet. He instructs us that we should lengthen our stride, quicken our pace with a sense of urgency; do it now! President Kimball, you are a living prophet of the Lord; you are a man scorned and covered with scars like Job of old, and yet you are ready to move forward, to climb another mountain. We love you. We need you.
 
 Brothers and sisters, why don’t we pay more humble attention to this servant of the Lord so that we can lengthen our own stride and share this beautiful gospel of the Lord Jesus Christ with another Bishop Choi and another Sister Anan. I humbly pray in the sacred name of the Lord Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Missionary_Work #Testimony

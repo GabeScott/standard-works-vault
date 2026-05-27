@@ -1,5 +1,7 @@
 # Where Is Wisdom?
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -42,7 +44,7 @@ Choose what you will learn and whose purposes you will serve. But don’t place 
 
 “O the vainness, and the frailties, and the foolishness of men! When they are learned they think they are wise, and they hearken not unto the counsel of God, for they set it aside, supposing they know of themselves, wherefore, their wisdom is foolishness and it profiteth them not. And they shall perish.
 
-“But to be learned is good if they hearken unto the counsels of God” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]]).
+“But to be learned is good if they hearken unto the counsels of God” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]]).
 
 That scripture reminds me of a friend who proudly boasted that his climb toward wealth had come from tireless work and lessons learned in the “school of hard knocks.” But his fortune had come at the expense of his spiritual development. When it was too late, he regretfully discovered that his ladder of success had been leaning against the wrong wall. He had never read this instruction from his Maker:
 
@@ -64,11 +66,11 @@ With these highlights of history in mind, may I quote the word of the Lord recor
 
 “Speak unto the children of Israel, and say unto them, When any man hath a running issue out of his flesh, because of his issue he is unclean.
 
-“And this shall be his uncleanness *in his issue.* …
+“And this shall be his uncleanness *in his issue.* …
 
 “Every bed, whereon he lieth that hath the issue, is unclean: and every thing, whereon he sitteth, shall be unclean.
 
-“And whosoever toucheth his bed shall wash his clothes, and bathe himself in water. …
+“And whosoever toucheth his bed shall wash his clothes, and bathe himself in water. …
 
 “And he that toucheth the flesh of him that hath the issue shall wash his clothes, and bathe himself in water” ([[Leviticus 15.1|Lev. 15:1–5, 7]][[Leviticus 15.2|]][[Leviticus 15.3|]][[Leviticus 15.4|]][[Leviticus 15.5|]][[Leviticus 15.7|]]; emphasis added).
 
@@ -84,15 +86,15 @@ In our day, many challenges face us. Some are new, some are old—simply clothed
 
 “In the last days perilous times shall come.
 
-“For men shall be lovers of their own selves, covetous, boasters, proud, \[and the list of insidious qualities goes on\] …
+“For men shall be lovers of their own selves, covetous, boasters, proud, \[and the list of insidious qualities goes on\] …
 
-“Without natural affection, …
+“Without natural affection, …
 
 “Lovers of pleasures more than lovers of God;
 
-“Having a form of godliness, but denying the power thereof: …
+“Having a form of godliness, but denying the power thereof: …
 
-“Ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.1|2 Tim. 3:1–5, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.7|]]).
+“Ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.1|2 Tim. 3:1–5, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.7|]]).
 
 Paul’s warnings describe apostasy and other dangers of our day. Some of these perils are contrary to God’s purposes and are championed by persuasive people possessing more ability than morality, more knowledge than wisdom. Their rationalization breeds justification. The Bible affirms that “the way of a fool is right in his own eyes” ([[Proverbs 12.15|Prov. 12:15]]). Indeed, individuals with malignity of purpose often wear the mask of honesty. So we must constantly be on guard.
 
@@ -110,7 +112,7 @@ Avoidable deaths and mounting financial burdens are also incurred worldwide beca
 
 Wisdom is to be found in pure intelligence—in that divine light which can guide people in all countries, all climes, and all continents. The Lord has promised that “a light shall break forth among them that sit in darkness, and it shall be the fulness of my gospel” ([[D&C 45.28|D&C 45:28]]). Then He lamented:
 
-“But they receive it not; for they perceive not the light, and they turn their hearts from me because of the precepts of men. …
+“But they receive it not; for they perceive not the light, and they turn their hearts from me because of the precepts of men. …
 
 “And there shall be men standing in that generation, that shall not pass until they shall see an overflowing scourge; for a desolating sickness shall cover the land.
 
@@ -122,7 +124,7 @@ In bright contrast to such bitter chaos, the light of the gospel of Jesus Christ
 
 Again I pose the question once asked by Job: “Where shall wisdom be found?” ([[Job 28.12|Job 28:12]]). Answer: It emanates from the Lord. He Himself said:
 
-“I will give unto the children of men line upon line, precept upon precept, here a little and there a little; and blessed are those who hearken unto my precepts, and lend an ear unto my counsel, for they shall learn wisdom; for unto him that receiveth I will give more” ([[2 Nephi 28.30|2 Ne. 28:30]]).
+“I will give unto the children of men line upon line, precept upon precept, here a little and there a little; and blessed are those who hearken unto my precepts, and lend an ear unto my counsel, for they shall learn wisdom; for unto him that receiveth I will give more” ([[2 Nephi 28.30|2 Ne. 28:30]]).
 
 Divine light and wisdom continue to increase when love for Deity grows:
 
@@ -137,9 +139,9 @@ Where is wisdom? It pulses and surges with the Lord’s light of truth! With tha
 
 [^1]: *History of the Church,* 4:269.
 
-[^2]: Journal History of The Church of Jesus Christ of Latter-day Saints, 28 Feb. 1850, pp. 1–2.
+[^2]: Journal History of The Church of Jesus Christ of Latter-day Saints, 28 Feb. 1850, pp. 1–2.
 
-[^3]: In Elbert D. Thomas, *Thomas Jefferson, World Citizen* (New York: Modern Age Books, 1942), p. 251.
+[^3]: In Elbert D. Thomas, *Thomas Jefferson, World Citizen* (New York: Modern Age Books, 1942), p. 251.
 
 [^4]: J. Lister, “On a New Method of Treating Compound Fracture, Abscess, etc., with Observations on the Conditions of Suppuration,” *Lancet,* 1 (1867): 326.
 
@@ -149,16 +151,11 @@ Where is wisdom? It pulses and surges with the Lord’s light of truth! With tha
 
 [^7]: See Edward Cook, *The Life of Florence Nightingale,* 2 vols. (London: Macmillan and Co., 1913), 1:352–438.
 
-[^8]: See Ignaz Philipp Semmelweiss, *Die Aetiologie, der Begriff und die Prophylaxis des Kindbettfiebers,* reprinted from 1861 ed. (New York: Johnson Reprint Co., 1966), pp. 102–13.
+[^8]: See Ignaz Philipp Semmelweiss, *Die Aetiologie, der Begriff und die Prophylaxis des Kindbettfiebers,* reprinted from 1861 ed. (New York: Johnson Reprint Co., 1966), pp. 102–13.
 
-[^9]: See *Isolation Techniques for Use in Hospitals* (Washington, D.C.: U.S. Department of Health, Education, and Welfare, 1970), p. 9.
+[^9]: See *Isolation Techniques for Use in Hospitals* (Washington, D.C.: U.S. Department of Health, Education, and Welfare, 1970), p. 9.
 
-[^10]: See Bryce J. Christensen, “Critically Ill: The Family and Health Care,” in *The Family in America,* (Mount Morris, Ill.: The Rockford Institute Center on the Family in America, May 1992), pp. 1–8.
+[^10]: See Bryce J. Christensen, “Critically Ill: The Family and Health Care,” in *The Family in America,* (Mount Morris, Ill.: The Rockford Institute Center on the Family in America, May 1992), pp. 1–8.
 
-[^11]: T. S. Eliot, “Choruses from ‘The Rock,’” *The Complete Poems and Plays* (New York: Harcourt, Brace and World, 1971), p. 96.
+[^11]: T. S. Eliot, “Choruses from ‘The Rock,’” *The Complete Poems and Plays* (New York: Harcourt, Brace and World, 1971), p. 96.
 
-
-
-
-
-#Education #Faith #Wisdom

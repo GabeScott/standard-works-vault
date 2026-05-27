@@ -1,12 +1,14 @@
 # In the Time of Old Age
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/04/in-the-time-of-old-age?lang=eng)
 
-“Sunrise, sunset—swiftly fly the years. …” (From *Fiddler on the Roof,* 1964.)
+“Sunrise, sunset—swiftly fly the years. …” (From *Fiddler on the Roof,* 1964.)
 
 Those lines from the poignant song bring a memory of two friends who, like the father and mother portrayed in *Fiddler on the Roof,* did not “remember getting older.” The man was about sixty-three and the woman fifty-five. Both were healthy, happy, and employed in work they enjoyed.
 
@@ -18,7 +20,7 @@ What, indeed, was there for this man to do, who one day was at the peak of his c
 
 Now there are those who would say that this crisis in the lives of my friends was inevitable. This, of course, is true. Aging is a natural process.
 
-President N. Eldon Tanner has counseled: “People of all ages must realize that one day they could be old … —a time for which we should all prepare.” (“Preparing for Old Age,” *Ensign,* Dec. 1976, p. 4.)
+President N. Eldon Tanner has counseled: “People of all ages must realize that one day they could be old … —a time for which we should all prepare.” (“Preparing for Old Age,” *Ensign,* Dec. 1976, p. 4.)
 
 Many different circumstances and factors affect the quality of a person’s life in the later years. But there is a corollary between preparing for old age and enjoying it when it comes. We are told in the Doctrine and Covenants: “If ye are prepared ye shall not fear.” ([[D&C 38.30|D&C 38:30]].)
 
@@ -73,8 +75,3 @@ I humbly pray, in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Elderly

@@ -1,6 +1,8 @@
 # The Savior’s Touch
 
-By Elder Walter F. González - *Of the Seventy*
+Jeffrey R. Holland
+
+By Elder Walter F. González - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -35,7 +37,7 @@ Whatever our circumstances might be, we can exercise our faith to come unto Chri
 >According to the prophet, God’s face is brighter than the sun
 >and His hair is whiter than snow
 >and His voice roars like the rushing of a river,
->and next to Him man is nothing. …
+>and next to Him man is nothing. …
 >I am crushed as I realize that even I am nothing.
 >And only then do I fumble my way to a god I can trust.
 >And only then do I discover the God I can trust.[^6]
@@ -55,7 +57,7 @@ A sincere desire that His will be done, along with an understanding of our Redee
 
 He can heal us and lift us up because He has the ability to do it. He took upon Himself all the pains of body and spirit so that His bowels would be filled with mercy in order to be able to help us in all things and to heal us and lift us up.[^12] The words of Isaiah, as cited by Abinadi, put it beautifully and movingly:
 
-“Surely he has borne our griefs, and carried our sorrows. …
+“Surely he has borne our griefs, and carried our sorrows. …
 
 “… He was wounded for our transgressions, he was bruised for our iniquities; the chastisement of our peace was upon him; and with his stripes we are healed.”[^13]
 
@@ -96,7 +98,7 @@ The Savior is a God we can trust. He is the Christ, the Anointed One, the Messia
 
 [^4]: See [[Leviticus 13.45|Leviticus 13:45]].
 
-[^5]: See Bruce R. McConkie, *Doctrinal New Testament Commentary* (1973), 1:174.
+[^5]: See Bruce R. McConkie, *Doctrinal New Testament Commentary* (1973), 1:174.
 
 [^6]: See also [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]]; [[D&C 110.2|Doctrine and Covenants 110:2–3]][[D&C 110.3|]]; [[Moses 1.2|Moses 1:2–10]][[Moses 1.3|]][[Moses 1.4|]][[Moses 1.5|]][[Moses 1.6|]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.9|]][[Moses 1.10|]].
 
@@ -114,14 +116,9 @@ The Savior is a God we can trust. He is the Christ, the Anointed One, the Messia
 
 [^13]: [[Mosiah 14.4|Mosiah 14:4–5]][[Mosiah 14.5|]].
 
-[^14]: George Blair, “The Carpenter of Nazareth,” in Obert C. Tanner, *Christ’s Ideals for Living* (Sunday School manual, 1955), 22; in Jeffrey R. Holland, “[[2006 April - Broken Things to Mend.md|Broken Things to Mend]],” *Ensign* or *Liahona,* May 2006, 71.
+[^14]: George Blair, “The Carpenter of Nazareth,” in Obert C. Tanner, *Christ’s Ideals for Living* (Sunday School manual, 1955), 22; in Jeffrey R. Holland, “[[2006 April - Broken Things to Mend.md|Broken Things to Mend]],” *Ensign* or *Liahona,* May 2006, 71.
 
 [^15]: [[D&C 88.6|Doctrine and Covenants 88:6]].
 
-[^16]: [[Colossians 1.20|Colossians 1:20]]; see also [[2 Corinthians 5.18|2 Corinthians 5:18–20]][[2 Corinthians 5.19|]][[2 Corinthians 5.20|]].
+[^16]: [[Colossians 1.20|Colossians 1:20]]; see also [[2 Corinthians 5.18|2 Corinthians 5:18–20]][[2 Corinthians 5.19|]][[2 Corinthians 5.20|]].
 
-
-
-
-
-#Atonement #Faith #Humility #Jesus_Christ

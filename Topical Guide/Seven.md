@@ -1,9 +1,8 @@
 # Seven
 
-
 I will serve thee *seven* years for Rachel, [[Genesis 29.18|Genesis 29:18]].
 
-*seven* empty ears ... shall be *seven* years of famine, [[Genesis 41.27|Genesis 41:27]].
+*seven* empty ears … shall be *seven* years of famine, [[Genesis 41.27|Genesis 41:27]].
 
 punish you *seven* times more for your sins, [[Leviticus 26.18|Leviticus 26:18]].
 
@@ -11,7 +10,7 @@ ye shall compass the city *seven* times, [[Joshua 6.4|Joshua 6:4]].
 
 *seven* women shall take hold of one man, [[Isaiah 4.1|Isaiah 4:1]] ([[2 Nephi 14.1|2 Nephi 14:1]]).
 
-to restore and to build Jerusalem ... shall be *seven* weeks, [[Daniel 9.25|Daniel 9:25]].
+to restore and to build Jerusalem … shall be *seven* weeks, [[Daniel 9.25|Daniel 9:25]].
 
 sin against me, and I forgive him? till *seven* times, [[Matthew 18.21|Matthew 18:21]].
 

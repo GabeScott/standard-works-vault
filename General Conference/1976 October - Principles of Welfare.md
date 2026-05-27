@@ -1,12 +1,14 @@
 # Principles of Welfare
 
-By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1976/10/principles-of-welfare?lang=eng)
 
-I would be ungrateful this morning if I didn’t express my appreciation for walking in the shadow of two great and holy men, Bishop Brown and Bishop Peterson, and for letting you know that I have a personal witness that J. Richard Clarke is a suited companion for these great men.
+I would be ungrateful this morning if I didn’t express my appreciation for walking in the shadow of two great and holy men, Bishop Brown and Bishop Peterson, and for letting you know that I have a personal witness that J. Richard Clarke is a suited companion for these great men.
 
 This morning I have the assignment from Bishop Brown to discuss employment responsibilities. Six months ago Bishop Peterson discussed employment.
 
@@ -70,7 +72,65 @@ I. Stake presidents and bishops, instruct your stake and ward welfare services c
 
 II. Quorum presidents and bishops, contact the unemployed member immediately, as soon as you know he is out of work. Do not wait until Sunday. Counsel those who are unemployed to do the following (some of these suggestions might not be locally applicable, but the principles are universal; use every *personal* resource possible):
 
+Resolve to work at looking for a job. Get up every morning at 7:00 a.m., shower, clean up, have prayer and breakfast, and leave at 8:00 a.m. to look for a job. Spend several hours each day looking for a job.
+
+
+While endeavoring to find a job—
+
+
+Make out a resumé which has a professional appearance. Quorum or ward resource people may assist in filling out a resumé.
+
+
+If appropriate, send a resumé, depending on the type of work in which you are interested, to executive search firms, or place it in the hands of prospective employers.
+
+
+Check companies or businesses in which you have had experience. Call and make appointments.
+
+
+Review the “help wanted” section of the paper—even papers from other communities if you don’t mind moving.
+
+
+Check with employment agencies.
+
+
+Check telephone directories for a list of companies in the field of your employment skills.
+
+
+Visit family or other acquaintances who may know of an opening.
+
+
+Take a period of time (at least 30 minutes) to pray and meditate about where you may be able to find employment. You will be inspired and directed.
+
+
+Read materials that increase your faith and confidence, i.e., scriptures or success motivation books.
+
+
+
+
+Plan and outline exactly what the course of action will be for the next day’s searching for a job. Here again is an excellent opportunity for one or more resource persons to do some creative thinking and dialoguing with the unemployed person.
+
+
+Dress appropriately for the interview. This gives confidence and creates a good first impression. Be willing to start at the bottom and work up. Be willing to prove yourself to a new employer.
+
+
+Pay tithing even though it may be all the money you have. The Lord’s blessings are needed, and this is one way of assuring them.
+
+
+
 III. Quorum presidents and bishops, talk with the unemployed individual and—
+
+rebuild his self-image;
+
+
+instruct him as previously listed;
+
+
+lay your hands on his head and give him a special blessing where such is requested;
+
+
+make the resources of the quorum and ward available as needed.
+
+
 
 IV. If work does not come at first, stay close to the unemployed individual so he can have someone with whom he can review his frustrations and keep him thinking positively.
 
@@ -80,7 +140,7 @@ VI. There may be occasions that warrant the quorum members’ assisting while th
 
 The great blessing of the quorum and the ward is that instead of one person feeling lost and alone, he will feel that there are a hundred people or more working to help him find a job. The ward welfare services committee discusses the needs of the individual. Each member of the quorum or group presidency immediately involves quorum or group members to help locate employment. Thus the entire priesthood unit becomes involved by assisting in trying to locate job openings.
 
-In 1937, Elder Harold B. Lee said, “It must surely be apparent to all that every step the unemployed person takes away from the circle of his quorum carries him that much further from possible employment.”
+In 1937, Elder Harold B. Lee said, “It must surely be apparent to all that every step the unemployed person takes away from the circle of his quorum carries him that much further from possible employment.”
 
 When necessary, get the entire ward involved. When we do, we have 100 times more exposure, we have 100 times more chance for success. It is one thing to talk about a problem and another thing to actually contribute to the solution. Ward welfare services committees are organized to get results. A quorum and ward totally united in fasting, prayer, and works on behalf of one individual in need of work will produce miracles.
 
@@ -100,13 +160,8 @@ There is a holy brotherhood in a good quorum that draws the members together wit
 
 The bishop, through his counselor responsible for personal welfare matters, has the duty to correlate employment-finding activities outside the quorums.
 
-God bless you, our beloved leaders, to have charity for the unfortunate, which charity is the true love of Christ. “For now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.13|1 Cor. 13:13]].) In the name of Jesus Christ. Amen.
+God bless you, our beloved leaders, to have charity for the unfortunate, which charity is the true love of Christ. “For now abideth faith, hope, charity, these three; but the greatest of these is charity.” ([[1 Corinthians 13.13|1 Cor. 13:13]].) In the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Employment #Welfare

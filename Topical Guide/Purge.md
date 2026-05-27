@@ -1,7 +1,6 @@
 # Purge
 
-
-iniquity of Eli's house shall not be *purged*, [[1 Samuel 3.14|1 Samuel 3:14]].
+iniquity of Eli’s house shall not be *purged*, [[1 Samuel 3.14|1 Samuel 3:14]].
 
 he began to *purge* Judah and Jerusalem, [[2 Chronicles 34.3|2 Chronicles 34:3]].
 
@@ -11,7 +10,7 @@ By mercy and truth iniquity is *purged*, [[Proverbs 16.6|Proverbs 16:6]].
 
 *purge* away thy dross, [[Isaiah 1.25|Isaiah 1:25]].
 
-Lord ... shall have *purged* the blood of Jerusalem, [[Isaiah 4.4|Isaiah 4:4]] ([[2 Nephi 14.4|2 Nephi 14:4]]).
+Lord … shall have *purged* the blood of Jerusalem, [[Isaiah 4.4|Isaiah 4:4]] ([[2 Nephi 14.4|2 Nephi 14:4]]).
 
 By this therefore shall the iniquity of Jacob be *purged*, [[Isaiah 27.9|Isaiah 27:9]].
 
@@ -29,7 +28,7 @@ every branch that beareth fruit, he *purgeth*, [[John 15.2|John 15:2]].
 
 when he had by himself *purged* our sins, [[Hebrews 1.3|Hebrews 1:3]].
 
-blood of Christ ... *purge* your conscience from dead works, [[Hebrews 9.14|Hebrews 9:14]].
+blood of Christ … *purge* your conscience from dead works, [[Hebrews 9.14|Hebrews 9:14]].
 
 almost all things are by the law *purged* with blood, [[Hebrews 9.22|Hebrews 9:22]].
 

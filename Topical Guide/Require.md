@@ -1,23 +1,22 @@
 # Require
 
-
 *See also* [[Demand.md|Demand]]
 
 surely your blood of your lives will I *require*, [[Genesis 9.5|Genesis 9:5]].
 
 what doth the Lord thy God *require* of thee, [[Deuteronomy 10.12|Deuteronomy 10:12]].
 
-whosoever will not hearken ... I will *require* it of him, [[Deuteronomy 18.19|Deuteronomy 18:19]].
+whosoever will not hearken … I will *require* it of him, [[Deuteronomy 18.19|Deuteronomy 18:19]].
 
 his blood will I *require* at thine hand, [[Ezekiel 3.18|Ezekiel 3:18]] ([[Ezekiel 33.8|Ezekiel 33:8]]).
 
-his blood will I *require* at the watchman's hand, [[Ezekiel 33.6|Ezekiel 33:6]].
+his blood will I *require* at the watchman’s hand, [[Ezekiel 33.6|Ezekiel 33:6]].
 
 I will *require* my flock at their hand, [[Ezekiel 34.10|Ezekiel 34:10]].
 
 what doth the Lord *require* of thee, but to do justly, [[Micah 6.8|Micah 6:8]].
 
-the blood ... may be *required* of this generation, [[Luke 11.50|Luke 11:50]].
+the blood … may be *required* of this generation, [[Luke 11.50|Luke 11:50]].
 
 this night thy soul shall be *required* of thee, [[Luke 12.20|Luke 12:20]].
 
@@ -47,7 +46,7 @@ account of this stewardship will I *require*, [[D&C 70.4|D&C 70:4]].
 
 learn to impart one to another as the gospel *requires*, [[D&C 88.123|D&C 88:123]].
 
-this is the tithing ... which I, the Lord, *require*, [[D&C 97.12|D&C 97:12]].
+this is the tithing … which I, the Lord, *require*, [[D&C 97.12|D&C 97:12]].
 
 union *required* by the law of the celestial kingdom, [[D&C 105.4|D&C 105:4]].
 

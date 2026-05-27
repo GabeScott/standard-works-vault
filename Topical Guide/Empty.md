@@ -1,6 +1,5 @@
 # Empty
 
-
 *See also* [[Void.md|Void]]
 
 when ye go, ye shall not go *empty*, [[Exodus 3.21|Exodus 3:21]].

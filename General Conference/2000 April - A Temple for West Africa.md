@@ -1,5 +1,7 @@
 # A Temple for West Africa
 
+Gordon B. Hinckley
+
 By Elder Glenn L. Pace - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -18,7 +20,7 @@ I remember with thanksgiving going to the temple with my parents and receiving m
 
 My wife and I were married in the Salt Lake Temple about three years later. In subsequent years I have had the honor of performing the temple marriages of each of our six children.
 
-We know many members of the Church have not had the luxury I have had of growing up around temples. Because of this knowledge we were all thrilled with the announcement made by President Hinckley in October of 1997 when he said, “We are determined … to take the temples to the people and afford them every opportunity for the very precious blessings that come of temple worship” (in Conference Report, Oct. 1997, 69; or *Ensign,* Nov. 1997, 50).
+We know many members of the Church have not had the luxury I have had of growing up around temples. Because of this knowledge we were all thrilled with the announcement made by President Hinckley in October of 1997 when he said, “We are determined … to take the temples to the people and afford them every opportunity for the very precious blessings that come of temple worship” (in Conference Report, Oct. 1997, [[1997 October - Some Thoughts on Temples, Retention of Converts, and Missionary Service.md|69]]; or *Ensign,* Nov. 1997, 50).
 
 Since that time we have rejoiced and marveled as we have heard announcements of numerous temples and subsequently read of their open houses and dedications. We are witnessing a modern-day miracle and fulfillment of prophecy. What a wonderful time to be alive!
 
@@ -53,8 +55,3 @@ I testify to the divinity of this work. Jesus is the Christ. He stands at the he
 
 
 
-
-
-
-
-#Covenants #Faith #Miracles #Ordinances #Peace #Preparation #Satan #Temple_Work #Temples

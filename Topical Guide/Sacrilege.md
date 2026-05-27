@@ -1,11 +1,10 @@
 # Sacrilege
 
-
-*See also* [[Blaspheme, Blasphemous, Blasphemy.md|Blaspheme]]; [[Defile.md|Defile]]; [[Pollution, Pollute.md|Pollution]]; [[Profanity.md|Profanity]]
+*See also* [[Blaspheme.md|Blaspheme]]; [[Defile.md|Defile]]; [[Pollution.md|Pollution]]; [[Profanity.md|Profanity]]
 
 not take the name of the Lord thy God in *vain*, [[Exodus 20.7|Exodus 20:7]].
 
-Philistines took the *ark* ... into the house of Dagon, [[1 Samuel 5.2|1 Samuel 5:2]].
+Philistines took the *ark* … into the house of Dagon, [[1 Samuel 5.2|1 Samuel 5:2]].
 
 Give not that which is *holy* unto the dogs, [[Matthew 7.6|Matthew 7:6]] ([[3 Nephi 14.6|3 Nephi 14:6]]).
 
@@ -21,4 +20,4 @@ which was sacred into the hands of a *wicked* man, [[D&C 3.12|D&C 3:12]] ([[D&C 
 
 *Trifle* not with sacred things, [[D&C 6.12|D&C 6:12]].
 
-tempt me ... to get the plates for ... getting *rich*, [[Joseph Smith History 1.46|Joseph Smith History 1:46]].
+tempt me … to get the plates for … getting *rich*, [[Joseph Smith History 1.46|Joseph Smith History 1:46]].

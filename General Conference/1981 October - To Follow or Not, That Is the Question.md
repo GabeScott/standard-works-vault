@@ -1,5 +1,7 @@
 # To Follow or Not, That Is the Question
 
+Gordon B. Hinckley
+
 By Elder Charles Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
@@ -62,7 +64,7 @@ All the teachings of the Lord and the prophets carry that persistent message, to
 
 The permanent duty to God, to oneself, to one’s family, to the Church, and to one’s country represents a goal for which we should all strive and which was given by the Lord as he taught the Nephites:
 
-“Therefore I would that ye should be perfect even as I, or your Father who is in heaven is perfect.” ([[3 Nephi 12.48|3 Ne. 12:48]].)
+“Therefore I would that ye should be perfect even as I, or your Father who is in heaven is perfect.” ([[3 Nephi 12.48|3 Ne. 12:48]].)
 
 Again, these words were not given to discourage or to tempt us to desert, but rather to motivate us to be prepared and not to be afraid. Prepared to do what? The Lord has commanded us again and again to be prepared to “live by every word that proceedeth forth from the mouth of God,” ([[D&C 84.44|D&C 84:44]]) to serve him with all of our heart, might, mind, and strength (see [[D&C 59.5|D&C 59:5]]).
 
@@ -70,13 +72,13 @@ To endure in obedience and service is contrary to desertion. It is to continue w
 
 The encouraging factor in recognizing adversity is that we are not alone. The Lord told Joseph Smith, “Be patient in afflictions, for thou shalt have many; but endure them, for, lo, I am with thee, even unto the end of thy days.” ([[D&C 24.8|D&C 24:8]].)
 
-George Q. Cannon wrote in *Gospel Truths:* “So it is with all of us. We have great afflictions from time to time. It seems to be necessary that we should be tried and proved to see whether we are full of integrity or not. In this way we get to know ourselves and our own weaknesses; and the Lord knows us, and our brethren and sisters know us.
+George Q. Cannon wrote in *Gospel Truths:* “So it is with all of us. We have great afflictions from time to time. It seems to be necessary that we should be tried and proved to see whether we are full of integrity or not. In this way we get to know ourselves and our own weaknesses; and the Lord knows us, and our brethren and sisters know us.
 
-“Therefore, it is a precious gift to have the gift of patience, to be good-tempered, to be cheerful, to not be depressed, to not give way to wrong feelings and become impatient and irritable. It is a blessed gift for all to possess.” (Jerreld L. Newquist, ed., Salt Lake City: Deseret Book Co., 1957, 2:198.)
+“Therefore, it is a precious gift to have the gift of patience, to be good-tempered, to be cheerful, to not be depressed, to not give way to wrong feelings and become impatient and irritable. It is a blessed gift for all to possess.” (Jerreld L. Newquist, ed., Salt Lake City: Deseret Book Co., 1957, 2:198.)
 
 Yes, there are obstacles and challenges. Men sometimes become cynical. Some despair and lose hope and faith in the future, but the message stands: do not abandon, for the Lord lives. He is our Savior and Redeemer; he is the Prince of Peace. The great assurance of life, the great reason for eternal life, is the Lord Jesus Christ. There is no other way.
 
-There is only one way. The teachings of our duty to God determine our duty to ourselves, to our families, to our church, and to our country. No vacillation can be permitted, for “no man can serve two masters; for either he will hate the one and love the other, or else he will hold to the one and despise the other. Ye cannot serve God and Mammon.” ([[3 Nephi 13.24|3 Ne. 13:24]].)
+There is only one way. The teachings of our duty to God determine our duty to ourselves, to our families, to our church, and to our country. No vacillation can be permitted, for “no man can serve two masters; for either he will hate the one and love the other, or else he will hold to the one and despise the other. Ye cannot serve God and Mammon.” ([[3 Nephi 13.24|3 Ne. 13:24]].)
 
 President George Albert Smith’s grandfather said: “There is a line of demarcation well defined between the Lord’s territory and the devil’s territory. If you will remain on the Lord’s side of the line, the adversary cannot come there to tempt you. You are perfectly safe as long as you stay on the Lord’s side of the line. But … if you cross onto the devil’s side of the line, you are in his territory, and you are in his power, and he will work on you to get you just as far from that line as he possibly can, knowing that he can only succeed in destroying you by keeping you away from the place where there is safety.” (Quoted by George Albert Smith in Conference Report, Oct. 1945, p. 118.)
 
@@ -110,8 +112,3 @@ Our testimony to the world is that Jesus is the Christ, our Savior and our Redee
 
 
 
-
-
-
-
-#Duty #Endurance

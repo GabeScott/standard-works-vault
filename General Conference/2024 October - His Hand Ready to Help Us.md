@@ -1,5 +1,7 @@
 # His Hand Ready to Help Us
 
+Henry B. Eyring
+
 By Elder Juan Pablo Villar - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
@@ -20,7 +22,7 @@ As a new big wave approached, Claudio quickly said, “Look at me; this is how y
 
 This time my brother invited me to dive with him. As per his invitation, I followed him, and we dove together. I felt as if I was conquering the most complicated challenge. Certainly, it was not very easy, but I did it, thanks to the help and example shown by my brother. His hand rescued me twice; his example showed me how to deal with my challenge and be victorious that day.
 
-President Russell M. Nelson has invited us to think celestial,[^1] and I want to follow his advice and apply it to my summer story.
+President Russell M. Nelson has invited us to think celestial,[^1] and I want to follow his advice and apply it to my summer story.
 
 ## The Savior’s Power over the Adversary
 
@@ -53,23 +55,21 @@ If I think celestial, I know that we are not left alone in this life. While we m
 
 
 
-[^1]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 118:
+[^1]: See Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 118:
 
 [^2]: See [[Mark 4.35|Mark 4:35–41]][[Mark 4.36|]][[Mark 4.37|]][[Mark 4.38|]][[Mark 4.39|]][[Mark 4.40|]][[Mark 4.41|]].
 
 [^3]: While we believe that our Heavenly Father and Jesus Christ have the ability to help us whenever we need it, Their help may not always come in the way we expect. It’s important to trust that They know us better than we know ourselves and will provide the support and assistance that is best for us at the right time: “Know thou, my son, that all these things shall give thee experience, and shall be for thy good” ([[D&C 122.7|Doctrine and Covenants 122:7]]).
 
-[^4]: See [[Matthew 14.31|Matthew 14:31]]; [[Mark 1.31|Mark 1:31]]; [[Mark 5.41|5:41]]; [[Mark 9.27|9:27]]; [[Acts 3.7|Acts 3:7]]; [[3 Nephi 18.36|3 Nephi 18:36]].
+[^4]: See [[Matthew 14.31|Matthew 14:31]]; [[Mark 1.31|Mark 1:31]]; [[Mark 5.41|5:41]]; [[Mark 9.27|9:27]]; [[Acts 3.7|Acts 3:7]]; [[3 Nephi 18.36|3 Nephi 18:36]].
 
-[^5]: When President Russell M. Nelson invited us to minister in a newer and holier way (see “[[2018 April - Ministering as the Savior Does.md|Ministering]],” *Ensign* or *Liahona*, May 2018, 100), he also asked us to understand that this new way of ministering is not about us and what we want to offer but what others need. Jesus Christ is giving us the opportunity to love our neighbor (see [[Luke 10.27|Luke 10:27]]) in a higher and holier way.
+[^5]: When President Russell M. Nelson invited us to minister in a newer and holier way (see “[[2018 April - Ministering.md|Ministering]],” *Ensign* or *Liahona*, May 2018, 100), he also asked us to understand that this new way of ministering is not about us and what we want to offer but what others need. Jesus Christ is giving us the opportunity to love our neighbor (see [[Luke 10.27|Luke 10:27]]) in a higher and holier way.
 
 [^6]: [[Matthew 14.29|Matthew 14:29–30]][[Matthew 14.30|]].
 
 [^7]: [[Matthew 14.31|Matthew 14:31]].
 
-[^8]: To truly understand happiness, we need to understand the role of blessings in our lives. The definition of *blessings* helps to clarify this concept: a blessing is “to confer divine favor upon someone. Anything contributing to true happiness, well-being, or prosperity is a blessing” (Guide to the Scriptures, “[Bless, Blessed, Blessing](https://churchofjesuschrist.org/study/scriptures/gs/bless-blessed-blessing?lang=eng&id=p1#p1),” Gospel Library). The world often confuses true happiness with temporary pleasure, which imitates a “happiness” that is short-lived.
+[^8]: To truly understand happiness, we need to understand the role of blessings in our lives. The definition of *blessings* helps to clarify this concept: a blessing is “to confer divine favor upon someone. Anything contributing to true happiness, well-being, or prosperity is a blessing” (Guide to the Scriptures, “[Bless, Blessed, Blessing](https://www.churchofjesuschrist.org/study/scriptures/gs/bless-blessed-blessing?lang=eng&id=p1#p1),” Gospel Library). The world often confuses true happiness with temporary pleasure, which imitates a “happiness” that is short-lived.
 
+[^9]: See [[Isaiah 49.16|Isaiah 49:16]].
 
-
-
-#Adversity #Faith #Jesus_Christ #Ministering

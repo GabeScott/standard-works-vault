@@ -1,6 +1,8 @@
 # Embrace the Lord’s Gift of Repentance
 
-By Elder Jorge M. Alvarado - *Of the Seventy*
+Henry B. Eyring
+
+By Elder Jorge M. Alvarado - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -52,17 +54,17 @@ Well, a few days later, do you know what happened? Célia received a letter. I h
 
 “Your absent friend.”[^11]
 
-Brothers and sisters, the light of the Savior can reach us all, no matter our circumstances. “It is not possible for you to sink lower than the infinite light of Christ’s Atonement shines,” said President Jeffrey R. Holland.[^12]
+Brothers and sisters, the light of the Savior can reach us all, no matter our circumstances. “It is not possible for you to sink lower than the infinite light of Christ’s Atonement shines,” said President Jeffrey R. Holland.[^12]
 
 As for the unintended recipient of Célia’s gift, the Book of Mormon, this brother went on to witness more of the Lord’s mercy. Although it took time for this brother to forgive himself, he found joy in repentance. What a miracle! One faithful sister, one Book of Mormon, sincere repentance, and the Savior’s power led to the enjoyment of the fulness of blessings of the gospel and sacred covenants in the house of the Lord.[^13] Other family members followed and accepted sacred responsibilities in the Lord’s vineyard, including full-time missionary service.[^14]
 
 As we come unto Jesus Christ, our path of sincere repentance will eventually lead us to the Savior’s holy temple.
 
-What a righteous motive to strive to be clean—to be worthy of the fulness of the blessings made possible by our Heavenly Father and His Son through sacred temple covenants! Serving regularly in the house of the Lord and striving to keep the sacred covenants we make there will increase both our desire and our ability to experience the change of heart, might, mind, and soul necessary for us to become more like our Savior. President Russell M. Nelson has testified: “Nothing will open the heavens *more* \[than worshipping in the temple\]. Nothing!”[^15]
+What a righteous motive to strive to be clean—to be worthy of the fulness of the blessings made possible by our Heavenly Father and His Son through sacred temple covenants! Serving regularly in the house of the Lord and striving to keep the sacred covenants we make there will increase both our desire and our ability to experience the change of heart, might, mind, and soul necessary for us to become more like our Savior. President Russell M. Nelson has testified: “Nothing will open the heavens *more* \[than worshipping in the temple\]. Nothing!”[^15]
 
 My dear friends, do you feel inadequate? Do you feel unworthy? Are you second-guessing yourself? Perhaps you might worry and ask: Do I measure up? Is it too late for me? Why do I keep failing when I am trying my absolute best?[^16]
 
-Brothers and sisters, surely we will make mistakes in our lives along the way. But please remember that, as Elder Gerrit W. Gong has taught: “Our Savior’s Atonement is infinite and eternal. Each of us strays and falls short. We may, for a time, lose our way. God lovingly assures us \[that\] no matter where we are or what we have done, there is no point of no return. He waits ready to embrace us.”[^17]
+Brothers and sisters, surely we will make mistakes in our lives along the way. But please remember that, as Elder Gerrit W. Gong has taught: “Our Savior’s Atonement is infinite and eternal. Each of us strays and falls short. We may, for a time, lose our way. God lovingly assures us \[that\] no matter where we are or what we have done, there is no point of no return. He waits ready to embrace us.”[^17]
 
 As my dear wife, Cari Lu, has also taught me, we all need to repent, rewind, and reset the time to “zero o’clock” every single day.
 
@@ -82,7 +84,7 @@ The Master Potter, taught my dad, will mold and refine us, which can be difficul
 
 I testify of God’s love and of the infinite power of His Son’s Atonement. We can feel it profoundly as we sincerely and wholeheartedly repent.
 
-My friends, I am a witness of the glorious Restoration of the gospel through the Prophet Joseph Smith and the current divine guidance of the Savior through His prophet and mouthpiece, President Russell M. Nelson. I know Jesus Christ lives and that He is the Master Healer of our souls. I know and I testify that these things are true, in the holy name of Jesus Christ, amen.
+My friends, I am a witness of the glorious Restoration of the gospel through the Prophet Joseph Smith and the current divine guidance of the Savior through His prophet and mouthpiece, President Russell M. Nelson. I know Jesus Christ lives and that He is the Master Healer of our souls. I know and I testify that these things are true, in the holy name of Jesus Christ, amen.
 
 
 
@@ -91,7 +93,7 @@ My friends, I am a witness of the glorious Restoration of the gospel through the
 
 [^2]: [[Alma 26.12|Alma 26:12]].
 
-[^3]: [[2 Nephi 4.17|2 Nephi 4:17]]; see also [[2 Nephi 4.18|verses 18–19]][[2 Nephi 4.19|]].
+[^3]: [[2 Nephi 4.17|2 Nephi 4:17]]; see also [[2 Nephi 4.18|verses 18–19]][[2 Nephi 4.19|]].
 
 [^4]: [[Joseph Smith History 1.29|Joseph Smith—History 1:29]].
 
@@ -99,40 +101,35 @@ My friends, I am a witness of the glorious Restoration of the gospel through the
 
 [^6]: See [[Mosiah 4.11|Mosiah 4:11–12]][[Mosiah 4.12|]].
 
-[^7]: President Russell M. Nelson taught: “When we choose to repent, we choose to change! We allow the Savior to transform us into the best version of ourselves. We choose to grow spiritually and receive joy—the joy of redemption in Him. When we choose to repent, we choose to become more like Jesus Christ!” (“[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67).
+[^7]: President Russell M. Nelson taught: “When we choose to repent, we choose to change! We allow the Savior to transform us into the best version of ourselves. We choose to grow spiritually and receive joy—the joy of redemption in Him. When we choose to repent, we choose to become more like Jesus Christ!” (“[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67).
 
-[^8]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^8]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^9]: [[Alma 34.18|Alma 34:18]].
 
-[^10]: “My brothers and sisters, how precious *is* the Book of Mormon to you? If you were offered diamonds or rubies *or* the Book of Mormon, which would you choose? Honestly, which *is* of greater worth to you?” (Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]],” *Ensign* or *Liahona*, Nov. 2017, 61).
+[^10]: “My brothers and sisters, how precious *is* the Book of Mormon to you? If you were offered diamonds or rubies *or* the Book of Mormon, which would you choose? Honestly, which *is* of greater worth to you?” (Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]],” *Ensign* or *Liahona*, Nov. 2017, 61).
 
-[^11]: In F. Burton Howard, “[Missionary Moments: ‘My Life Has Changed](https://www.thechurchnews.com/1996/1/6/23254534/missionary-moments-my-life-has-changed),’” *Church News*, Jan. 6, 1996, thechurchnews.com; see also *Saints: The Story of the Church of Jesus Christ in the Latter Days*, vol. 4, *Sounded in Every Ear*, 1955–2020 (2024), 472–74, 477–79.
+[^11]: In F. Burton Howard, “[Missionary Moments: ‘My Life Has Changed](https://www.thechurchnews.com/1996/1/6/23254534/missionary-moments-my-life-has-changed),’” *Church News*, Jan. 6, 1996, thechurchnews.com; see also *[Saints: The Story of the Church of Jesus Christ in the Latter Days](https://www.churchofjesuschrist.org/study/history/saints-v4/part-3/28-the-lords-path?lang=eng&id=p41-p49,p63-p72#p41)*, vol. 4, *Sounded in Every Ear*, 1955–2020 (2024), 472–74, 477–79.
 
-[^12]: Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona*, May 2012, 33.
+[^12]: Jeffrey R. Holland, “[[2012 April - The Laborers in the Vineyard.md|The Laborers in the Vineyard]],” *Ensign* or *Liahona*, May 2012, 33.
 
 [^13]: May we stop for one second and think about our posterity? Because of our myopic view, we cannot see it now, but our willingness to turn to the Lord with full purpose of heart—to change, repent, and embrace the gospel of Jesus Christ—can influence generations! Imagine the additional blessings that may blossom from one soul’s humility, meekness, and faith in Jesus Christ under even the most inconvenient of circumstances!
 
-[^14]: These details were recounted by Sister Célia Cruz in a personal conversation with Elder Jorge M. Alvarado on September 10, 2024.
+[^14]: These details were recounted by Sister Célia Cruz in a personal conversation with Elder Jorge M. Alvarado on September 10, 2024.
 
-[^15]: Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 122.
+[^15]: Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 122.
 
 [^16]: When we find ourselves asking questions like these, it is important to remember the words of the Apostle Paul:
 
-[^17]: Gerrit W. Gong, “[[2018 October - Our Campfire of Faith.md|Our Campfire of Faith]],” *Ensign* or *Liahona*, Nov. 2018, 41.
+[^17]: Gerrit W. Gong, “[[2018 October - Our Campfire of Faith.md|Our Campfire of Faith]],” *Ensign* or *Liahona*, Nov. 2018, 41.
 
 [^18]: Nephi is a good example of this. He exclaimed:
 
-[^19]: President Dallin H. Oaks taught: “When a person has gone through the \[repentance\] process … , the Savior does more than cleanse that person from sin. He also gives him or her new strength. That strengthening is essential for us to realize the purpose of the cleansing, which is to return to our Heavenly Father. To be admitted to His presence, we must be more than clean. We must also be changed from a morally weak person who has sinned into a strong person with the spiritual stature to dwell in the presence of God” (“[The Atonement and Faith](https://churchofjesuschrist.org/study/ensign/2010/04/the-atonement-and-faith?lang=eng&id=p21#p21),” *Ensign*, Apr. 2010, 33–34).
+[^19]: President Dallin H. Oaks taught: “When a person has gone through the \[repentance\] process … , the Savior does more than cleanse that person from sin. He also gives him or her new strength. That strengthening is essential for us to realize the purpose of the cleansing, which is to return to our Heavenly Father. To be admitted to His presence, we must be more than clean. We must also be changed from a morally weak person who has sinned into a strong person with the spiritual stature to dwell in the presence of God” (“[The Atonement and Faith](https://www.churchofjesuschrist.org/study/ensign/2010/04/the-atonement-and-faith?lang=eng&id=p21#p21),” *Ensign*, Apr. 2010, 33–34).
 
-[^20]: [[2 Nephi 31.21|2 Nephi 31:21]].
+[^20]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
 [^21]: We honor our family and Heavenly Father by embracing repentance and striving to live a good life.
 
-[^22]: *Hymns*, no. 193.
+[^22]: *Hymns*, no. 193.
 
-
-
-
-
-#Repentance

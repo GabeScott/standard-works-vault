@@ -1,7 +1,6 @@
 # Death
 
-
-*See also* [[Dead.md|Dead]]; [[Death, Power over.md|Death, Power over]]; [[Death, Spiritual, First.md|Death, Spiritual, First]]; [[Death, Spiritual, Second.md|Death, Spiritual, Second]]; [[Die.md|Die]]; [[Fall of Man.md|Fall of Man]]; [[Grave [noun].md|Grave [noun]]]; [[Immortality, Immortal.md|Immortality]]; [[Mortality.md|Mortality]]
+*See also* [[Dead.md|Dead]]; [[Death, Power over.md|Death, Power over]]; [[Death, Spiritual, First.md|Death, Spiritual, First]]; [[Death, Spiritual, Second.md|Death, Spiritual, Second]]; [[Die.md|Die]]; [[Fall of Man.md|Fall of Man]]; [[Grave [noun].md|Grave [noun]]]; [[Immortality.md|Immortality]]; [[Mortality.md|Mortality]]
 
 giveth any of his seed unto Molech; he shall surely be put to *death*, [[Leviticus 20.2|Leviticus 20:2]].
 
@@ -9,7 +8,7 @@ fathers shall not be put to *death* for the children, [[Deuteronomy 24.16|Deuter
 
 set before you life and *death*, [[Deuteronomy 30.19|Deuteronomy 30:19]].
 
-rebel ... shall be put to *death*, [[Joshua 1.18|Joshua 1:18]].
+rebel … shall be put to *death*, [[Joshua 1.18|Joshua 1:18]].
 
 this day I am going the way of all the *earth*, [[Joshua 23.14|Joshua 23:14]].
 
@@ -19,13 +18,13 @@ there is *death* in the pot, [[2 Kings 4.40|2 Kings 4:40]].
 
 every man shall be put to *death* for his own sin, [[2 Kings 14.6|2 Kings 14:6]].
 
-not seek the Lord ... be put to *death*, [[2 Chronicles 15.13|2 Chronicles 15:13]].
+not seek the Lord … be put to *death*, [[2 Chronicles 15.13|2 Chronicles 15:13]].
 
 land of darkness and the shadow of *death*, [[Job 10.21|Job 10:21]].
 
 go the *way* whence I shall not return, [[Job 16.22|Job 16:22]].
 
-flesh shall *perish* ... and man shall turn again unto dust, [[Job 34.15|Job 34:15]].
+flesh shall *perish* … and man shall turn again unto dust, [[Job 34.15|Job 34:15]].
 
 valley of the shadow of *death*, [[Psalms 23.4|Psalms 23:4]].
 
@@ -49,9 +48,9 @@ the righteous hath hope in his *death*, [[Proverbs 14.32|Proverbs 14:32]].
 
 to deliver them that are drawn unto *death*, [[Proverbs 24.11|Proverbs 24:11]].
 
-better ... the day of *death* than the day of one's birth, [[Ecclesiastes 7.1|Ecclesiastes 7:1]].
+better … the day of *death* than the day of one’s birth, [[Ecclesiastes 7.1|Ecclesiastes 7:1]].
 
-dust return to the earth ... *spirit* shall return unto God, [[Ecclesiastes 12.7|Ecclesiastes 12:7]].
+dust return to the earth … *spirit* shall return unto God, [[Ecclesiastes 12.7|Ecclesiastes 12:7]].
 
 land of the shadow of *death*, [[Isaiah 9.2|Isaiah 9:2]] ([[Matthew 4.16|Matthew 4:16]]).
 
@@ -65,7 +64,7 @@ he hath poured out his soul unto *death*, [[Isaiah 53.12|Isaiah 53:12]] ([[Mosia
 
 way of life, and the way of *death*, [[Jeremiah 21.8|Jeremiah 21:8]].
 
-if ye put me to *death* ... bring innocent blood upon yourselves, [[Jeremiah 26.15|Jeremiah 26:15]].
+if ye put me to *death* … bring innocent blood upon yourselves, [[Jeremiah 26.15|Jeremiah 26:15]].
 
 I have no pleasure in the *death*, [[Ezekiel 18.32|Ezekiel 18:32]] ([[Ezekiel 33.11|Ezekiel 33:11]]).
 
@@ -87,7 +86,7 @@ take him by craft, and put him to *death*, [[Mark 14.1|Mark 14:1]].
 
 sit in darkness and in the shadow of *death*, [[Luke 1.79|Luke 1:79]].
 
-not see *death*, before he had seen the Lord's Christ, [[Luke 2.26|Luke 2:26]].
+not see *death*, before he had seen the Lord’s Christ, [[Luke 2.26|Luke 2:26]].
 
 not taste of *death*, till they see the kingdom, [[Luke 9.27|Luke 9:27]].
 
@@ -129,7 +128,7 @@ carnally minded is *death*, [[Romans 8.6|Romans 8:6]] ([[2 Nephi 9.39|2 Nephi 9:
 
 I am persuaded, that neither *death*, nor life, [[Romans 8.38|Romans 8:38]].
 
-ye do shew the Lord's *death* till he come, [[1 Corinthians 11.26|1 Corinthians 11:26]].
+ye do shew the Lord’s *death* till he come, [[1 Corinthians 11.26|1 Corinthians 11:26]].
 
 by man came *death*, [[1 Corinthians 15.21|1 Corinthians 15:21]].
 
@@ -145,23 +144,23 @@ Christ shall be magnified in my body, whether it be by life, or by *death*, [[Ph
 
 obedient unto *death*, even the *death* of the cross, [[Philippians 2.8|Philippians 2:8]].
 
-know him ... made conformable unto his *death*, [[Philippians 3.10|Philippians 3:10]].
+know him … made conformable unto his *death*, [[Philippians 3.10|Philippians 3:10]].
 
 Christ, who hath abolished *death*, [[2 Timothy 1.10|2 Timothy 1:10]].
 
-suffering of *death* ... taste *death* for every man, [[Hebrews 2.9|Hebrews 2:9]].
+suffering of *death* … taste *death* for every man, [[Hebrews 2.9|Hebrews 2:9]].
 
 through *death* he might destroy him that had the power of *death*, [[Hebrews 2.14|Hebrews 2:14]].
 
 by means of *death*, for the redemption, [[Hebrews 9.15|Hebrews 9:15]].
 
-where a testament is, there must ... be the *death* of the testator, [[Hebrews 9.16|Hebrews 9:16]].
+where a testament is, there must … be the *death* of the testator, [[Hebrews 9.16|Hebrews 9:16]].
 
 Enoch was translated that he should not see *death*, [[Hebrews 11.5|Hebrews 11:5]].
 
-sin ... bringeth forth *death*, [[James 1.15|James 1:15]].
+sin … bringeth forth *death*, [[James 1.15|James 1:15]].
 
-converteth the sinner ... save a soul from *death*, [[James 5.20|James 5:20]].
+converteth the sinner … save a soul from *death*, [[James 5.20|James 5:20]].
 
 put to *death* in the flesh, but quickened by the Spirit, [[1 Peter 3.18|1 Peter 3:18]].
 
@@ -187,17 +186,17 @@ shall be no more *death*, neither sorrow, [[Revelation 21.4|Revelation 21:4]].
 
 which is the second *death*, [[Revelation 21.8|Revelation 21:8]].
 
-cold and silent *grave* ... the way of all the earth, [[2 Nephi 1.14|2 Nephi 1:14]].
+cold and silent *grave* … the way of all the earth, [[2 Nephi 1.14|2 Nephi 1:14]].
 
-this *death* ... the temporal ... which *death* is the grave, [[2 Nephi 9.11|2 Nephi 9:11]] ([[2 Nephi 9.6|2 Nephi 9:6]]).
+this *death* … the temporal … which *death* is the grave, [[2 Nephi 9.11|2 Nephi 9:11]] ([[2 Nephi 9.6|2 Nephi 9:6]]).
 
-signs given ... of his *death*, [[2 Nephi 26.3|2 Nephi 26:3]].
+signs given … of his *death*, [[2 Nephi 26.3|2 Nephi 26:3]].
 
 God breaketh the bands of *death*, [[Mosiah 15.8|Mosiah 15:8]].
 
 *death* should have no sting, [[Mosiah 16.7|Mosiah 16:7]].
 
-Abinadi ... sealed the truth of his words by his *death*, [[Mosiah 17.20|Mosiah 17:20]].
+Abinadi … sealed the truth of his words by his *death*, [[Mosiah 17.20|Mosiah 17:20]].
 
 he that murdered was punished unto *death*, [[Alma 1.18|Alma 1:18]].
 
@@ -205,15 +204,15 @@ take upon him *death*, that he may loose the bands of *death*, [[Alma 7.12|Alma 
 
 Christ shall loose the bands of this temporal *death*, [[Alma 11.42|Alma 11:42]] ([[Alma 11.45|Alma 11:45]]).
 
-*death* comes upon mankind ... the temporal *death*, [[Alma 12.24|Alma 12:24]] ([[Alma 12.16|Alma 12:16]]).
+*death* comes upon mankind … the temporal *death*, [[Alma 12.24|Alma 12:24]] ([[Alma 12.16|Alma 12:16]]).
 
 delivered from Satan, and from *death*, [[Alma 15.17|Alma 15:17]].
 
-holding forth ... the Son of God, his sufferings and *death*, [[Alma 16.19|Alma 16:19]] ([[Alma 21.9|Alma 21:9]]; [[Alma 22.14|Alma 22:14]]; [[3 Nephi 6.20|3 Nephi 6:20]]; [[D&C 45.4|D&C 45:4]]).
+holding forth … the Son of God, his sufferings and *death*, [[Alma 16.19|Alma 16:19]] ([[Alma 21.9|Alma 21:9]]; [[Alma 22.14|Alma 22:14]]; [[3 Nephi 6.20|3 Nephi 6:20]]; [[D&C 45.4|D&C 45:4]]).
 
 put to *death*, yea, all those that believed, [[Alma 25.7|Alma 25:7]].
 
-never did look upon *death* with ... terror, [[Alma 27.28|Alma 27:28]].
+never did look upon *death* with … terror, [[Alma 27.28|Alma 27:28]].
 
 encircled about by the everlasting chains of *death*, [[Alma 36.18|Alma 36:18]] ([[Alma 5.7|Alma 5:7]]).
 
@@ -223,7 +222,7 @@ awful *death* cometh upon the wicked, [[Alma 40.26|Alma 40:26]].
 
 seek *death* among them until they shall sue for peace, [[Alma 55.3|Alma 55:3]].
 
-except the Lord doth chasten ... with *death*, [[Helaman 12.3|Helaman 12:3]].
+except the Lord doth chasten … with *death*, [[Helaman 12.3|Helaman 12:3]].
 
 I give unto you, yea, a sign of his *death*, [[Helaman 14.14|Helaman 14:14]] ([[3 Nephi 11.2|3 Nephi 11:2]]).
 

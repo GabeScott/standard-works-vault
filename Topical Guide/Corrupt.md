@@ -1,17 +1,16 @@
 # Corrupt
 
-
 *See also* [[Corruption.md|Corruption]]; [[Defile.md|Defile]]; [[Pervert.md|Pervert]]
 
 earth also was *corrupt* before God, [[Genesis 6.11|Genesis 6:11]] ([[Moses 8.28|Moses 8:28]]).
 
-thy people ... have *corrupted* themselves, [[Exodus 32.7|Exodus 32:7]] ([[Deuteronomy 9.12|Deuteronomy 9:12]]).
+thy people … have *corrupted* themselves, [[Exodus 32.7|Exodus 32:7]] ([[Deuteronomy 9.12|Deuteronomy 9:12]]).
 
 *corrupt* yourselves, and make you a graven image, [[Deuteronomy 4.16|Deuteronomy 4:16]].
 
 after my death ye will utterly *corrupt* yourselves, [[Deuteronomy 31.29|Deuteronomy 31:29]].
 
-fool hath said ... They are *corrupt*, [[Psalms 14.1|Psalms 14:1]] ([[Psalms 53.1|Psalms 53:1]]).
+fool hath said … They are *corrupt*, [[Psalms 14.1|Psalms 14:1]] ([[Psalms 53.1|Psalms 53:1]]).
 
 I will *corrupt* your seed, [[Malachi 2.3|Malachi 2:3]].
 

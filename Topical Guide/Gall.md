@@ -1,7 +1,6 @@
 # Gall
 
-
-*See also* [BD Gall](https://www.churchofjesuschrist.org/study/scriptures/bd/gall?lang=eng)
+*See also* [[BD Gall.md|BD Gall]]
 
 root that beareth *gall* and wormwood, [[Deuteronomy 29.18|Deuteronomy 29:18]].
 

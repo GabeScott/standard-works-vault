@@ -1,6 +1,8 @@
 # Spiritual Development
 
-By Elder M. Russell Ballard - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder M. Russell Ballard - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -10,7 +12,7 @@ On behalf of all of us, I’d like to say, we love you, President Young.
 
 Recently I held our first grandchild in my arms and had the same feelings come to me that I had when I held each one of my own children shortly after their birth. As I looked into their innocent faces, these questions came into my mind: “Who are you, my little one? What does Heavenly Father want you to accomplish in this life?” I imagine that many of you parents have had the same thoughts as you have held your infant children.
 
-I wonder if Spencer W. Kimball’s father had any idea, when he first held this infant son, that into his home had come a spirit ordained in the premortal life to someday grow in such spiritual strength and power that he would sit in this great conference today as our prophet and President of The Church of Jesus Christ of Latter-day Saints? It is possible, my brothers and sisters, that among the little ones in your homes and in your care are spirit children that were sent to you to be trained and prepared to fulfill callings as General Authorities, stake presidents, bishops, Relief Society or Primary presidents. In someone’s home there is a little one sent from our Heavenly Father that someday will be called to sit in the seat where our great prophet now sits. Whoever is training our prophet of the future generations, please train him well. Teach him to love the Lord, the scriptures, and his fellowmen as President Kimball loves us today.
+I wonder if Spencer W. Kimball’s father had any idea, when he first held this infant son, that into his home had come a spirit ordained in the premortal life to someday grow in such spiritual strength and power that he would sit in this great conference today as our prophet and President of The Church of Jesus Christ of Latter-day Saints? It is possible, my brothers and sisters, that among the little ones in your homes and in your care are spirit children that were sent to you to be trained and prepared to fulfill callings as General Authorities, stake presidents, bishops, Relief Society or Primary presidents. In someone’s home there is a little one sent from our Heavenly Father that someday will be called to sit in the seat where our great prophet now sits. Whoever is training our prophet of the future generations, please train him well. Teach him to love the Lord, the scriptures, and his fellowmen as President Kimball loves us today.
 
 What can we do to better prepare our children spiritually for their eternal roles? Perhaps the most inclusive answer is: Teach them how to live the principles of the gospel. To be good teachers, we must learn to be better listeners. Let me share one personal example: Our first child, Clark, when he was four years old, appeared to be guilty of some minor wrongdoing that at the time seemed to require some sound fatherly counsel. I took him into the bedroom and talked to him about why he must not ever again do what I had predetermined that he had done. When I concluded my great discourse, this little, brown-eyed boy looked into my eyes and said, “But Daddy, I didn’t do it.” Through his eyes his spirit talked to me and I knew that he was telling me the truth. I embraced him and asked for his forgiveness. His spirit, though in a four-year-old mortal body, spoke loudly to me that day, and I learned from him a great lesson: Always be a good listener.
 
@@ -53,8 +55,3 @@ I know God lives and that all men are his children. I testify that Jesus is the 
 
 
 
-
-
-
-
-#Spirituality

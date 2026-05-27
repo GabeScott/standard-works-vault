@@ -1,6 +1,8 @@
 # Look to the Book, Look to the Lord
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+Jean B. Bingham
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -58,7 +60,7 @@ Each of you can also receive a personal witness of this book! Do you realize tha
 
 “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing.”[^5]
 
-In order to help the Book of Mormon become the keystone of your testimony, I offer you a challenge. I recently learned that many young people spend an average of seven hours a day looking at TV, computer, and smartphone screens.[^6] With this in mind, would you make a small change? Will you replace some of that daily screen time—particularly that devoted to social media, the internet, gaming, or television—with reading the Book of Mormon? If the studies I referred to are accurate, you could easily find time for daily study of the Book of Mormon even if for only 10 minutes a day. And you can study in a way that allows you to enjoy it and understand it—either on your device or in book form. President Russell M. Nelson recently cautioned, “We should never make reading the Book of Mormon seem like an onerous duty, like the gulping of nasty medicine to be swallowed quickly and then checked off with finality.”[^7]
+In order to help the Book of Mormon become the keystone of your testimony, I offer you a challenge. I recently learned that many young people spend an average of seven hours a day looking at TV, computer, and smartphone screens.[^6] With this in mind, would you make a small change? Will you replace some of that daily screen time—particularly that devoted to social media, the internet, gaming, or television—with reading the Book of Mormon? If the studies I referred to are accurate, you could easily find time for daily study of the Book of Mormon even if for only 10 minutes a day. And you can study in a way that allows you to enjoy it and understand it—either on your device or in book form. President Russell M. Nelson recently cautioned, “We should never make reading the Book of Mormon seem like an onerous duty, like the gulping of nasty medicine to be swallowed quickly and then checked off with finality.”[^7]
 
 For some of you younger children, you might read it with a parent, grandparent, or loved one. If a chapter, verse, or portion becomes difficult enough to discourage your reading, move on to the next and the next. I picture you following the example of Mary. I picture you excitedly finding time and a quiet place to read the Book of Mormon. I see you discovering answers, feeling guidance, and gaining your own testimony of the Book of Mormon and a testimony of Jesus Christ. As you look to the book, you look to the Lord.
 
@@ -85,7 +87,7 @@ Within the book’s pages, you will discover the infinite love and incomprehensi
 
 [^6]: See American Academy of Pediatrics, “Media and Children,” aap.org.
 
-[^7]: Russell M. Nelson, “Strengthen the Shepherds” (address given at the general conference leadership meetings, Sept. 28, 2016).
+[^7]: Russell M. Nelson, “Strengthen the Shepherds” (address given at the general conference leadership meetings, Sept. 28, 2016).
 
 [^8]: See Susan Easton Black, *Finding Christ through the Book of Mormon* (1987), 16–18.
 
@@ -93,8 +95,3 @@ Within the book’s pages, you will discover the infinite love and incomprehensi
 
 [^10]: [[Moroni 10.4|Moroni 10:4]]; see also [[Moroni 10.3|verses 3, 5]][[Moroni 10.5|]].
 
-
-
-
-
-#Book_Of_Mormon #Church_History #Holy_Ghost #Joseph_Smith #Testimony

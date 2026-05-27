@@ -1,18 +1,20 @@
 # “An Angel from on High, the Long, Long Silence Broke”
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/10/an-angel-from-on-high-the-long-long-silence-broke?lang=eng)
 
-We often sing in our congregations a favorite hymn—the words were written well over a century ago by Parley P. Pratt (see *Hymns,* no. 224). They represent his declaration of the miraculous coming forth of a remarkable book. Exactly 150 years ago this fall that book was first being set in type and run on a press in Palmyra, New York.
+We often sing in our congregations a favorite hymn—the words were written well over a century ago by Parley P. Pratt (see *Hymns,* no. 224). They represent his declaration of the miraculous coming forth of a remarkable book. Exactly 150 years ago this fall that book was first being set in type and run on a press in Palmyra, New York.
 
 Permit me to tell you how Parley Pratt came to know of the book about which he wrote these words. In August of 1830, as a lay preacher, he was traveling from Ohio to eastern New York. At Newark, along the Erie Canal, he left the boat and walked ten miles into the country where he met a Baptist deacon by the name of Hamlin, who told him “of a *book,* a strange book, a VERY STRANGE BOOK! … This book, he said, purported to have been originally written on plates either of gold or brass, by a branch of the tribes of Israel; and to have been discovered and translated by a young man near Palmyra, in the State of New York, by the aid of visions, or the ministry of angels. I inquired of him how or where the book was to be obtained. He promised me the perusal of it, at his house the next day. … Next morning I called at his house, where, for the first time, my eyes beheld the ‘BOOK OF MORMON’—that book of books … which was the principal means, in the hands of God, of directing the entire course of my future life.
 
 “I opened it with eagerness, and read its title page. I then read the testimony of several witnesses in relation to the manner of its being found and translated. After this I commenced its contents by course. I read all day; eating was a burden, I had no desire for food; sleep was a burden when the night came, for I preferred reading to sleep.
 
-“As I read, the spirit of the Lord was upon me, and I knew and comprehended that the book was true, as plainly and manifestly as a man comprehends and knows that he exists” (*Autobiography of Parley P. Pratt,* 3d ed., Salt Lake City: Deseret Book Co., 1938, pp. 36–37).
+“As I read, the spirit of the Lord was upon me, and I knew and comprehended that the book was true, as plainly and manifestly as a man comprehends and knows that he exists” (*Autobiography of Parley P. Pratt,* 3d ed., Salt Lake City: Deseret Book Co., 1938, pp. 36–37).
 
 Parley Pratt was then twenty-three years of age. The reading of the Book of Mormon affected him so profoundly that he was soon baptized into the Church and became one of its most effective and powerful advocates. In the course of his ministry he traveled from coast to coast across what is now the United States, into Canada, and to England; he opened the work in the isles of the Pacific and was the first Mormon elder to set foot on the soil of South America. In 1857, while serving a mission in Arkansas, he was shot in the back and killed by an assailant. He was buried in a rural area near the community of Alma, and today in that quiet place a large block of polished granite marks the site of his grave. Incised in its surface are the words of another of his great and prophetic hymns, setting forth his vision of the work in which he was engaged:
 
@@ -64,8 +66,3 @@ My brothers and sisters, without reservation I promise you that if each of you w
 
 
 
-
-
-
-
-#Book_Of_Mormon

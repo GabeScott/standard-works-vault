@@ -1,5 +1,7 @@
 # At All Times, in All Things, and in All Places
 
+Dieter F. Uchtdorf
+
 By Elaine S. Dalton - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -28,7 +30,7 @@ Being steadfast and immovable means being obedient. One of the reasons you are h
 
 The precious gift of your body enables you to exercise your agency and put your faith and obedience into action. Have you ever noticed that nearly all of Satan’s attacks are directed at your body? Pornography, immodesty, tattoos, immorality, drug abuse, and addictions are all efforts to take possession of this precious gift. This was a gift that was denied Satan. Obedience to the commandments and standards enables each of you to be steadfast and immovable in protecting the precious gifts of your agency and your body.
 
-Being steadfast and immovable also means that you keep moving forward with “a steadfastness in Christ” ([[2 Nephi 31.20|2 Nephi 31:20]]). Several years ago, I had the opportunity to run the Boston Marathon. I had trained hard and felt I was prepared, but at mile 20 there are hills. The locals call the steepest and longest hill Heartbreak Hill. When I reached that point, I was physically spent. The hill was long, and because I was a novice, I allowed myself to do something no seasoned runner ever does—I started to think negatively. This slowed my pace, so I tried to think positively and visualize the finish line. But as I did this, I suddenly realized that I was in a big city, there were thousands of people lining the route, and I had not made any arrangements to locate my husband at the end of the marathon. I felt lost and alone, and I started to cry. I was wearing a big red T-shirt with the word *Utah* printed on the front in big block letters. As the spectators saw that I was crying, they would yell, “Keep going, Utah.” “Don’t cry, Utah.” “You’re almost finished, Utah.” But I knew I wasn’t, and I was lost. I also knew that even if I stopped running and dropped out of the race, I would still be lost.
+Being steadfast and immovable also means that you keep moving forward with “a steadfastness in Christ” ([[2 Nephi 31.20|2 Nephi 31:20]]). Several years ago, I had the opportunity to run the Boston Marathon. I had trained hard and felt I was prepared, but at mile 20 there are hills. The locals call the steepest and longest hill Heartbreak Hill. When I reached that point, I was physically spent. The hill was long, and because I was a novice, I allowed myself to do something no seasoned runner ever does—I started to think negatively. This slowed my pace, so I tried to think positively and visualize the finish line. But as I did this, I suddenly realized that I was in a big city, there were thousands of people lining the route, and I had not made any arrangements to locate my husband at the end of the marathon. I felt lost and alone, and I started to cry. I was wearing a big red T-shirt with the word *Utah* printed on the front in big block letters. As the spectators saw that I was crying, they would yell, “Keep going, Utah.” “Don’t cry, Utah.” “You’re almost finished, Utah.” But I knew I wasn’t, and I was lost. I also knew that even if I stopped running and dropped out of the race, I would still be lost.
 
 Do any of you ever feel like you’re running up Heartbreak Hill and that even though there are people lining the route, you are alone? That’s how I felt. So I did what every one of you would do—I began to pray right there on that marathon route. I told Heavenly Father that I was alone and that I was on a hill. I told Him that I was discouraged and afraid and that I felt lost. I asked for help and strength to be steadfast and to finish the race. As I continued to run, these words came into my mind:
 
@@ -47,8 +49,3 @@ I testify that as you stand as a witness, obey the commandments, and press forwa
 
 
 
-
-
-
-
-#Courage #Faith #Jesus_Christ #Obedience

@@ -1,6 +1,5 @@
 # Glorify
 
-
 *See also* [[Exalt.md|Exalt]]; [[Glorious.md|Glorious]]; [[Glory.md|Glory]]; [[Honor.md|Honor]]; [[Praise.md|Praise]]
 
 before all the people I will be *glorified*, [[Leviticus 10.3|Leviticus 10:3]].
@@ -9,9 +8,9 @@ worship before thee, O Lord; and shall *glorify* thy name, [[Psalms 86.9|Psalms 
 
 my servant, O Israel, in whom I will be *glorified*, [[Isaiah 49.3|Isaiah 49:3]].
 
-nations ... shall run unto thee ... for he hath *glorified* thee, [[Isaiah 55.5|Isaiah 55:5]] ([[Isaiah 60.9|Isaiah 60:9]]).
+nations … shall run unto thee … for he hath *glorified* thee, [[Isaiah 55.5|Isaiah 55:5]] ([[Isaiah 60.9|Isaiah 60:9]]).
 
-that hated you ... said, Let the Lord be *glorified*, [[Isaiah 66.5|Isaiah 66:5]].
+that hated you … said, Let the Lord be *glorified*, [[Isaiah 66.5|Isaiah 66:5]].
 
 see your good works, and *glorify* your Father, [[Matthew 5.16|Matthew 5:16]] ([[3 Nephi 12.16|3 Nephi 12:16]]).
 
@@ -27,7 +26,7 @@ that the Son of God might be *glorified*, [[John 11.4|John 11:4]].
 
 hour is come, that the Son of man should be *glorified*, [[John 12.23|John 12:23]].
 
-*glorify* thy name ... I have both *glorified* it, and will *glorify* it, [[John 12.28|John 12:28]].
+*glorify* thy name … I have both *glorified* it, and will *glorify* it, [[John 12.28|John 12:28]].
 
 Son of man *glorified*, and God is *glorified* in him, [[John 13.31|John 13:31]].
 
@@ -61,7 +60,7 @@ God in all things may be *glorified* through Jesus, [[1 Peter 4.11|1 Peter 4:11]
 
 is evil spoken of, but on your part he is *glorified*, [[1 Peter 4.14|1 Peter 4:14]].
 
-I speak unto you ... that ye may learn and *glorify* ... God, [[2 Nephi 6.4|2 Nephi 6:4]].
+I speak unto you … that ye may learn and *glorify* … God, [[2 Nephi 6.4|2 Nephi 6:4]].
 
 day that the Father should *glorify* his name, [[3 Nephi 23.9|3 Nephi 23:9]].
 

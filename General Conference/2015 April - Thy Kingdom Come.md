@@ -1,6 +1,8 @@
 # Thy Kingdom Come
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -24,11 +26,11 @@ We live, brothers and sisters, in the days preceding the Lord’s Second Coming,
 
 But we also live in the glorious time of the Restoration, when the gospel is being taken to all the world—a time when the Lord has promised that He “will raise up … a pure people”[^4] and arm them “with righteousness and with the power of God.”[^5]
 
-We rejoice in these days and pray that we will be able to courageously face our struggles and uncertainties. The difficulties of some are more severe than those of others, but no one is immune. Elder Neal A. Maxwell once said to me, “If everything is going perfectly for you right now, just wait.”
+We rejoice in these days and pray that we will be able to courageously face our struggles and uncertainties. The difficulties of some are more severe than those of others, but no one is immune. Elder Neal A. Maxwell once said to me, “If everything is going perfectly for you right now, just wait.”
 
 Although the Lord reassures us again and again that we “need not fear,”[^6] keeping a clear perspective and seeing beyond this world is not always easy when we are in the midst of trials.
 
-President Thomas S. Monson taught me an important lesson about keeping an eternal point of view.
+President Thomas S. Monson taught me an important lesson about keeping an eternal point of view.
 
 Eighteen years ago while traveling on a train in Switzerland with President Monson, I asked him about his heavy responsibilities. His response strengthened my faith. “In the First Presidency,” he said, “we do everything we can to move this work forward. But this is the Lord’s work, and He directs it. He is at the helm. We marvel as we watch Him open doors we cannot open and perform miracles we can scarcely imagine.”[^7]
 
@@ -46,7 +48,7 @@ Three beautiful examples of the Lord’s hand in establishing His kingdom are th
 
 The location of a temple is not a convenient geographical decision. It comes by revelation from the Lord to His prophet, signifying a great work to be done and acknowledging the righteousness of the Saints who will treasure and care for His house through generations.[^12]
 
-My wife, Kathy, and I visited Haiti just two years ago. High on the mountain overlooking Port-au-Prince, we joined with Haitian Saints in commemorating the dedication of the country by then-Elder Thomas S. Monson only 30 years earlier. None of us will ever forget the devastating Haitian earthquake of 2010. With faithful members and a courageous band of missionaries made up almost exclusively of Haitians, the Church in this island nation has continued to grow and strengthen. It lifts my faith to visualize these righteous Saints of God, clothed in white, having the power of the holy priesthood to direct and perform the sacred ordinances in the Lord’s house.
+My wife, Kathy, and I visited Haiti just two years ago. High on the mountain overlooking Port-au-Prince, we joined with Haitian Saints in commemorating the dedication of the country by then-Elder Thomas S. Monson only 30 years earlier. None of us will ever forget the devastating Haitian earthquake of 2010. With faithful members and a courageous band of missionaries made up almost exclusively of Haitians, the Church in this island nation has continued to grow and strengthen. It lifts my faith to visualize these righteous Saints of God, clothed in white, having the power of the holy priesthood to direct and perform the sacred ordinances in the Lord’s house.
 
 Who could imagine a house of the Lord in the beautiful city of Bangkok? Christians are only 1 percent of this principally Buddhist country. As in Haiti we also find in Bangkok that the Lord has gathered the elect of the earth. While there a few months ago, we met Sathit and Juthamas Kaivaivatana and their devoted children. Sathit joined the Church when he was 17 and served a mission in his native land. Later he met Juthamas at the institute, and they were sealed in the Manila Philippines Temple. In 1993 the Kaivaivatanas were hit by a truck whose driver had fallen asleep, and Sathit was paralyzed from his chest down. Their faith has never wavered. Sathit is an admired teacher at the International School Bangkok. He serves as the stake president of the Thailand Bangkok North Stake. We see God’s miracles in His wondrous work and in our own personal lives.
 
@@ -56,7 +58,7 @@ Can you see the hand of God moving His work forward? Can you see the hand of God
 
 “And in nothing doth man offend God … save those who confess not his hand in all things.”[^13]
 
-God’s miracles are not happening just in Haiti, Thailand, or the Ivory Coast. Look around you.[^14] “God is mindful of every people … ; yea, he numbereth his people, and his … mercy \[is\] over all the earth.”[^15]
+God’s miracles are not happening just in Haiti, Thailand, or the Ivory Coast. Look around you.[^14] “God is mindful of every people … ; yea, he numbereth his people, and his … mercy \[is\] over all the earth.”[^15]
 
 Sometimes we can see the hand of the Lord in the lives of others but wonder, “How can I more clearly see His hand in my own life?”
 
@@ -66,7 +68,7 @@ The Savior said:
 
 “Be not afraid.”[^17]
 
-“Not … one \[sparrow\] shall … fall \[to\] the ground without your Father \[knowing\]. …
+“Not … one \[sparrow\] shall … fall \[to\] the ground without your Father \[knowing\]. …
 
 “Fear … not therefore, \[for\] ye are of more value than many sparrows.”[^18]
 
@@ -96,7 +98,7 @@ Then, a seemingly impossible experience: “All flesh,” the Lord says, “shal
 
 There will be unforgettable reunions with the angels of heaven and the Saints upon the earth.[^34] But most important, as Isaiah declares, “All the ends of the earth shall see the salvation of our God,”[^35] and He “shall reign over all flesh.”[^36]
 
-In that day the skeptics will be silent, “for every ear shall hear … , and every knee shall bow, and every tongue shall confess”[^37] that Jesus is the Christ, the Son of God, the Savior and Redeemer of the world.
+In that day the skeptics will be silent, “for every ear shall hear … , and every knee shall bow, and every tongue shall confess”[^37] that Jesus is the Christ, the Son of God, the Savior and Redeemer of the world.
 
 Today is Easter. We rejoice with Christians all over the world in His glorious Resurrection and in our own promised resurrection. May we prepare for His coming by rehearsing these glorious events over and over in our own minds and with those we love, and may His prayer be our prayer: “Thy kingdom come. Thy will be done in earth, as it is in heaven.”[^38] I testify that He lives. “Come, O thou King of Kings.” In the name of Jesus Christ, amen.
 
@@ -107,29 +109,29 @@ Today is Easter. We rejoice with Christians all over the world in His glorious R
 
 [^2]: “Come, O Thou King of Kings,” *Hymns,* no. 59.
 
-[^3]: On Tuesday, March 31, 2015, the First Presidency’s office sent me an email explaining that I would speak on Sunday afternoon, April 5, immediately following the congregational hymn “Come, O Thou King of Kings.” The text of this great Restoration hymn, written by Parley P. Pratt, is a humble plea to the Savior to return to the earth. It embodied the message of my conference talk perhaps more powerfully than any other hymn we sing. I was deeply moved by the significance of believing Saints everywhere joining together on Easter Sunday, raising our voices to God and in unison singing, “Come, O thou King of Kings! We’ve waited long for thee.” Realizing that I personally had no input on the music selection for general conference, I wondered if those responsible for the music had read my conference talk entitled “Thy Kingdom Come” and then chosen this hymn about the Second Coming of the Savior. I later learned that the Tabernacle Choir directors had recommended the hymn to the First Presidency in early March, weeks prior to my talk being sent to the First Presidency for translation. The last time that “Come, O Thou King of Kings” was sung as a congregational hymn in general conference was October 2002. We each try to do our part, but He is the grand architect.
+[^3]: On Tuesday, March 31, 2015, the First Presidency’s office sent me an email explaining that I would speak on Sunday afternoon, April 5, immediately following the congregational hymn “Come, O Thou King of Kings.” The text of this great Restoration hymn, written by Parley P. Pratt, is a humble plea to the Savior to return to the earth. It embodied the message of my conference talk perhaps more powerfully than any other hymn we sing. I was deeply moved by the significance of believing Saints everywhere joining together on Easter Sunday, raising our voices to God and in unison singing, “Come, O thou King of Kings! We’ve waited long for thee.” Realizing that I personally had no input on the music selection for general conference, I wondered if those responsible for the music had read my conference talk entitled “Thy Kingdom Come” and then chosen this hymn about the Second Coming of the Savior. I later learned that the Tabernacle Choir directors had recommended the hymn to the First Presidency in early March, weeks prior to my talk being sent to the First Presidency for translation. The last time that “Come, O Thou King of Kings” was sung as a congregational hymn in general conference was October 2002. We each try to do our part, but He is the grand architect.
 
 [^4]: [[D&C 100.16|Doctrine and Covenants 100:16]].
 
-[^5]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^5]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
 [^6]: [[D&C 10.55|Doctrine and Covenants 10:55]].
 
 [^7]: Personal experience, May 1997.
 
-[^8]: [[2 Nephi 27.20|2 Nephi 27:20]].
+[^8]: [[2 Nephi 27.20|2 Nephi 27:20]].
 
 [^9]: [[John 1.3|John 1:3]].
 
 [^10]: [[D&C 65.2|Doctrine and Covenants 65:2]].
 
-[^11]: [[1 Nephi 14.12|1 Nephi 14:12]].
+[^11]: [[1 Nephi 14.12|1 Nephi 14:12]].
 
-[^12]: In the fall of 2001, while living in Brazil, I enthusiastically shared with President James E. Faust of the First Presidency many impressive facts about the Saints living in the city of Curitiba, hoping he would pass the information on to President Gordon B. Hinckley. President Faust stopped me midsentence. “Neil,” he said, “we don’t lobby the President. The decision of where to build a temple is between the Lord and His prophet.” The Curitiba Brazil Temple was dedicated in 2008.
+[^12]: In the fall of 2001, while living in Brazil, I enthusiastically shared with President James E. Faust of the First Presidency many impressive facts about the Saints living in the city of Curitiba, hoping he would pass the information on to President Gordon B. Hinckley. President Faust stopped me midsentence. “Neil,” he said, “we don’t lobby the President. The decision of where to build a temple is between the Lord and His prophet.” The Curitiba Brazil Temple was dedicated in 2008.
 
 [^13]: [[D&C 59.21|Doctrine and Covenants 59:21]].
 
-[^14]: One of the great miracles of the Lord’s hand is the movement of His kingdom across the United States into cities and towns in every state. Here is one example. In May 2006 I was assigned to a stake conference in Denton, Texas. I stayed in the home of the stake president, President Vaughn A Andrus. Sister Andrus told me of the early Church in Denton, beginning with her parents, John and Margaret Porter. There was only a Sunday School in the beginning. But the Porters shared the gospel with the Ragsdales, who in turn shared it with the Nobles and the Martinos. The missionaries, of course, added their important contribution. Many families joined the Church. Others from the west moved to Denton. Today, where there was a small branch, there are now four stakes, and one of the Martinos’ sons, Elder James B. Martino, who joined the Church when he was 17, serves as a General Authority of the Church.
+[^14]: One of the great miracles of the Lord’s hand is the movement of His kingdom across the United States into cities and towns in every state. Here is one example. In May 2006 I was assigned to a stake conference in Denton, Texas. I stayed in the home of the stake president, President Vaughn A Andrus. Sister Andrus told me of the early Church in Denton, beginning with her parents, John and Margaret Porter. There was only a Sunday School in the beginning. But the Porters shared the gospel with the Ragsdales, who in turn shared it with the Nobles and the Martinos. The missionaries, of course, added their important contribution. Many families joined the Church. Others from the west moved to Denton. Today, where there was a small branch, there are now four stakes, and one of the Martinos’ sons, Elder James B. Martino, who joined the Church when he was 17, serves as a General Authority of the Church.
 
 [^15]: [[Alma 26.37|Alma 26:37]].
 
@@ -139,9 +141,9 @@ Today is Easter. We rejoice with Christians all over the world in His glorious R
 
 [^18]: [[Matthew 10.29|Matthew 10:29, 31]][[Matthew 10.31|]].
 
-[^19]: [[2 Kings 6.15|2 Kings 6:15]].
+[^19]: [[2 Kings 6.15|2 Kings 6:15]].
 
-[^20]: [[2 Kings 6.16|2 Kings 6:16–17]][[2 Kings 6.17|]].
+[^20]: [[2 Kings 6.16|2 Kings 6:16–17]][[2 Kings 6.17|]].
 
 [^21]: [[Mosiah 4.11|Mosiah 4:11]].
 
@@ -151,7 +153,7 @@ Today is Easter. We rejoice with Christians all over the world in His glorious R
 
 [^24]: [[D&C 45.44|Doctrine and Covenants 45:44]].
 
-[^25]: [[1 Thessalonians 4.16|1 Thessalonians 4:16]].
+[^25]: [[1 Thessalonians 4.16|1 Thessalonians 4:16]].
 
 [^26]: [[D&C 133.49|Doctrine and Covenants 133:49]].
 
@@ -177,7 +179,5 @@ Today is Easter. We rejoice with Christians all over the world in His glorious R
 
 [^37]: [[D&C 88.104|Doctrine and Covenants 88:104]].
 
+[^38]: [[Matthew 6.10|Matthew 6:10]].
 
-
-
-#Adversity #Church_Growth #Jesus_Christ #Perspective #Second_Coming

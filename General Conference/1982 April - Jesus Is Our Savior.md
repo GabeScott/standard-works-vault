@@ -1,6 +1,8 @@
 # Jesus Is Our Savior
 
-By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -22,7 +24,7 @@ Jesus Christ was chosen and ordained to be the one and only Savior and Redeemer 
 
 He taught His disciples:
 
-“I came down from heaven, not to do mine own will, but the will of him that sent me. …
+“I came down from heaven, not to do mine own will, but the will of him that sent me. …
 
 “That every one which seeth the Son, and believeth on him, may have everlasting life: and I will raise him up at the last day.” ([[John 6.38|John 6:38, 40]][[John 6.40|]].)
 
@@ -36,9 +38,9 @@ The day preceding the eating of the Passover, Jesus instructed His disciples whe
 
 “If I then, your Lord and Master, have washed your feet; ye also ought to wash one another’s feet.” ([[John 13.13|John 13:13–14]][[John 13.14|]].) Then He taught them:
 
-“Now is the Son of man glorified, and God is glorified in him. …
+“Now is the Son of man glorified, and God is glorified in him. …
 
-“Little children, yet a little while I am with you. Ye shall seek me: and as I said unto the Jews, Whither I go, ye cannot come; …
+“Little children, yet a little while I am with you. Ye shall seek me: and as I said unto the Jews, Whither I go, ye cannot come; …
 
 “A new commandment I give unto you, That ye love one another; as I have loved you, that ye also love one another.
 
@@ -68,7 +70,7 @@ While in that upper room, Jesus, initiating the sacrament, picked up bread, brak
 
 “This is my body which is given for you: this do in remembrance of me.
 
-“… This cup is the new testament in my blood, which is shed for you.” ([[Luke 22.19|Luke 22:19–20]][[Luke 22.20|]].)
+“… This cup is the new testament in my blood, which is shed for you.” ([[Luke 22.19|Luke 22:19–20]][[Luke 22.20|]].)
 
 After introducing the sacrament, the Savior said to His disciples, “It is expedient for you that I go away: for if I go not away, the Comforter will not come unto you; but if I depart, I will send him unto you.” ([[John 16.7|John 16:7]].)
 
@@ -162,7 +164,7 @@ Then she knew Him and replied, “Master.”
 
 Later Jesus appeared to the Apostles in the upper room where He had spent the evening with them prior to His death. They were frightened. Then they heard the voice of the Master:
 
-“Peace be unto you. …
+“Peace be unto you. …
 
 “Why are ye troubled? and why do thoughts arise in your hearts?
 
@@ -207,8 +209,3 @@ He is our Redeemer, our Lord, our King. His kingdom is again established on the 
 
 
 
-
-
-
-
-#Jesus_Christ

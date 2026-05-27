@@ -1,11 +1,10 @@
 # Marriage, Continuing Courtship in
 
-
 whatsoever ye would that men should do to you, *do* ye, [[Matthew 7.12|Matthew 7:12]] ([[3 Nephi 14.12|3 Nephi 14:12]]).
 
 husband render unto the wife due *benevolence*, [[1 Corinthians 7.3|1 Corinthians 7:3]].
 
-neither is the man without the *woman* ... in the Lord, [[1 Corinthians 11.11|1 Corinthians 11:11]].
+neither is the man without the *woman* … in the Lord, [[1 Corinthians 11.11|1 Corinthians 11:11]].
 
 Wives, *submit* yourselves unto your own husbands, [[Ephesians 5.22|Ephesians 5:22]].
 

@@ -1,6 +1,8 @@
 # Inertia
 
-By Elder William H. Bennett - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder William H. Bennett - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -16,13 +18,13 @@ The greatest loss of power that there is, is the loss that results from the fail
 
 As it is in using the letters of the alphabet in writing, so it is in putting things together in our lives; action is all-important, but action alone is not enough. We need the right kind of action, purposeful action—the things we do should add up in meaningful ways and contribute to rich, purposeful living here and bring eternal joy hereafter. The wrong kind of action can destroy.
 
-Many poets, philosophers, and others have written about these things in meaningful ways, but today I should like to put the spotlight on some of the inspired utterances of our beloved Richard L. Evans as given in his “Sunday Morning from Temple Square” presentations:
+Many poets, philosophers, and others have written about these things in meaningful ways, but today I should like to put the spotlight on some of the inspired utterances of our beloved Richard L. Evans as given in his “Sunday Morning from Temple Square” presentations:
 
 “The past has its place and is valuable for lessons learned. The present also has its place, and what we cannot change should not needlessly keep us from looking and moving forward. Nothing lost or left behind should keep us from now becoming what we can become, from learning what we now can learn.
 
-“There are new decisions every day, every hour, and reasons to improve and to repent. Whatever we are, wherever we’ve been, each day we have some opportunity to determine direction. …
+“There are new decisions every day, every hour, and reasons to improve and to repent. Whatever we are, wherever we’ve been, each day we have some opportunity to determine direction. …
 
-“Whatever the past or its meaning, or its length, or its losses, or its lessons learned or left unlearned, we go on from where we are—wherever it is—and become what we can become; with work, repentance, improvement; with faith in the future.” (Richard L. Evans, Jr., *Richard L. Evans—The Man and the Message,* Bookcraft, Inc., 1973, pp. 124–25.)
+“Whatever the past or its meaning, or its length, or its losses, or its lessons learned or left unlearned, we go on from where we are—wherever it is—and become what we can become; with work, repentance, improvement; with faith in the future.” (Richard L. Evans, Jr., *Richard L. Evans—The Man and the Message,* Bookcraft, Inc., 1973, pp. 124–25.)
 
 “Some *things* we inherit. Some *things* are passed to us from others. But this doesn’t make of *us* anything we aren’t. We may enjoy the talents of others, but this doesn’t develop our own. We do not suddenly become what we do not cooperate in becoming. We do not learn well what we are not willing to learn.
 
@@ -40,7 +42,7 @@ My brothers and sisters, if we are to make the most of our lives we must have a 
 
 “For he beholdeth himself, and goeth his way, and straightway forgetteth what manner of man he was.”
 
-One of the great challenges we face in The Church of Jesus Christ of Latter-day Saints today is that we have too many priesthood holders who are at rest. Because they are, oftentimes their wives and children are not as active in the Church as they could be and should be. I challenge all of you who are in this category to *awaken, arise,* and *advance,* so that the blessings of the gospel of Jesus Christ can be experienced in your personal lives and in the lives of your loved ones. Do not be content to just go through life and put in your time. Resolve that you will make the most of your life, live the gospel, keep the commandments, and set the proper example before your loved ones and before all with whom you come in contact. Do not shortchange yourselves and others by being too easy with yourselves. There is just too much at stake to take this matter lightly. Those of us who have leadership responsibilities for building the kingdom and for saving the souls of our Father’s children—which is the main objective of all that we do in the Church—should be imaginative and ingenious in seeking ways and means for getting through to the minds and the hearts of those for whom we have responsibility, and for getting them involved in meaningful ways. The key to activity is meaningful involvement. Truly we do learn to do by doing. Seamann A. Knapp, who is considered to be the father of the demonstration method of teaching, once said that a man may doubt what he hears, and possibly what he sees, but he cannot doubt what he does himself. How true that is.
+One of the great challenges we face in The Church of Jesus Christ of Latter-day Saints today is that we have too many priesthood holders who are at rest. Because they are, oftentimes their wives and children are not as active in the Church as they could be and should be. I challenge all of you who are in this category to *awaken, arise,* and *advance,* so that the blessings of the gospel of Jesus Christ can be experienced in your personal lives and in the lives of your loved ones. Do not be content to just go through life and put in your time. Resolve that you will make the most of your life, live the gospel, keep the commandments, and set the proper example before your loved ones and before all with whom you come in contact. Do not shortchange yourselves and others by being too easy with yourselves. There is just too much at stake to take this matter lightly. Those of us who have leadership responsibilities for building the kingdom and for saving the souls of our Father’s children—which is the main objective of all that we do in the Church—should be imaginative and ingenious in seeking ways and means for getting through to the minds and the hearts of those for whom we have responsibility, and for getting them involved in meaningful ways. The key to activity is meaningful involvement. Truly we do learn to do by doing. Seamann A. Knapp, who is considered to be the father of the demonstration method of teaching, once said that a man may doubt what he hears, and possibly what he sees, but he cannot doubt what he does himself. How true that is.
 
 In conclusion let me suggest that each of us conduct a personal interview with ourselves periodically to see how well we are doing. To make this most meaningful we need to have challenging goals for ourselves that require us to stretch ourselves in order to attain them. Let us be truly objective with ourselves as we conduct these personal interviews. Some of the best planning and supervision that any of us can take part in is the planning and supervision that we do for ourselves as we take definite steps to chart a meaningful course in life by establishing goals and methods for reaching them and then checking up on ourselves. In doing so we should let the gospel of Jesus Christ be our guide, and use the measuring sticks that the Lord himself, and his prophets—including our living prophets today—have given for our guidance.
 
@@ -49,8 +51,3 @@ My brothers and sisters, I pay tribute today to President Kimball as a great man
 
 
 
-
-
-
-
-#Time_Management

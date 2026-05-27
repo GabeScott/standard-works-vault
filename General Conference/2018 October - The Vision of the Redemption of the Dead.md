@@ -1,6 +1,8 @@
 # The Vision of the Redemption of the Dead
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -56,11 +58,11 @@ The revelation he received on October 3 comforted his heart and provided answers
 
 Among the many things President Smith saw was the Savior’s visit to the faithful in the spirit world after His own death on the cross. From the vision I quote:
 
-“But behold, from among the righteous, he organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth and carry the light of the gospel to them that were in darkness, even to all the spirits of men \[and women\];[^16] and thus was the gospel preached to the dead. …
+“But behold, from among the righteous, he organized his forces and appointed messengers, clothed with power and authority, and commissioned them to go forth and carry the light of the gospel to them that were in darkness, even to all the spirits of men \[and women\];[^16] and thus was the gospel preached to the dead. …
 
 “These were taught faith in God, repentance from sin, vicarious baptism for the remission of sins, the gift of the Holy Ghost by the laying on of hands,
 
-“And all other principles of the gospel that were necessary for them to know in order to qualify themselves that they might be judged according to men in the flesh, but live according to God in the spirit. …
+“And all other principles of the gospel that were necessary for them to know in order to qualify themselves that they might be judged according to men in the flesh, but live according to God in the spirit. …
 
 “For the dead had looked upon the long absence of their spirits from their bodies as a bondage.
 
@@ -81,41 +83,39 @@ How grateful I am to know where my precious Barbara is and that we will be toget
 
 [^1]: [[D&C 138.6|Doctrine and Covenants 138:6, 11]][[D&C 138.11|]].
 
-[^2]: Joseph F. Smith, in Preston Nibley, *The Presidents of the Church* (1959), 228.
+[^2]: Joseph F. Smith, in Preston Nibley, *The Presidents of the Church* (1959), 228.
 
 [^3]: See Joseph Fielding Smith, *Life of Joseph F. Smith* (1938), 13.
 
 [^4]: He married Levira Clark in 1859, Julina Lambson in 1866, Sarah Richards in 1868, Edna Lambson in 1871, Alice Kimball in 1883, and Mary Schwartz in 1884.
 
-[^5]: Joseph F. Smith was called as an additional counselor in the First Presidency (Brigham Young, Heber C. Kimball, and Daniel H. Wells). He also served as Second Counselor in the First Presidency to three Church Presidents: Presidents John Taylor, Wilford Woodruff, and Lorenzo Snow.
+[^5]: Joseph F. Smith was called as an additional counselor in the First Presidency (Brigham Young, Heber C. Kimball, and Daniel H. Wells). He also served as Second Counselor in the First Presidency to three Church Presidents: Presidents John Taylor, Wilford Woodruff, and Lorenzo Snow.
 
-[^6]: Joseph F. Smith served as a counselor to the First Presidency during Brigham Young’s administration and served as the Second Counselor in the First Presidency during the administrations of John Taylor, Wilford Woodruff, and Lorenzo Snow. He was the first Church President to have served in the First Presidency before being called as the President.
+[^6]: Joseph F. Smith served as a counselor to the First Presidency during Brigham Young’s administration and served as the Second Counselor in the First Presidency during the administrations of John Taylor, Wilford Woodruff, and Lorenzo Snow. He was the first Church President to have served in the First Presidency before being called as the President.
 
-[^7]: Mercy Josephine, Joseph F.’s firstborn child, was born on August 14, 1867, and died on June 6, 1870.
+[^7]: Mercy Josephine, Joseph F.’s firstborn child, was born on August 14, 1867, and died on June 6, 1870.
 
-[^8]: Joseph F. Smith, journal, July 7, 1870, Church History Library, The Church of Jesus Christ of Latter-day Saints, Salt Lake City, Utah.
+[^8]: Joseph F. Smith, journal, July 7, 1870, Church History Library, The Church of Jesus Christ of Latter-day Saints, Salt Lake City, Utah.
 
-[^9]: Joseph F. Smith to Martha Ann Smith Harris, Aug. 26, 1883, Church History Library; see Richard Neitzel Holzapfel and David M. Whitchurch, *My Dear Sister: The Letters between Joseph F. Smith and His Sister Martha Ann* (2018), 290–91.
+[^9]: Joseph F. Smith to Martha Ann Smith Harris, Aug. 26, 1883, Church History Library; see Richard Neitzel Holzapfel and David M. Whitchurch, *My Dear Sister: The Letters between Joseph F. Smith and His Sister Martha Ann* (2018), 290–91.
 
-[^10]: In many instances, the Lord directed Joseph F. Smith in his personal life and in his ministry as an Apostle and President of the Church through inspired dreams, revelations, and visions. Often these precious gifts from the Lord were recorded in his journals, sermons, reminiscences, and official records of the Church.
+[^10]: In many instances, the Lord directed Joseph F. Smith in his personal life and in his ministry as an Apostle and President of the Church through inspired dreams, revelations, and visions. Often these precious gifts from the Lord were recorded in his journals, sermons, reminiscences, and official records of the Church.
 
-[^11]: Joseph F. Smith, journal, Jan. 23, 1918, Church History Library; spelling and capitalization modernized; see Joseph Fielding Smith, *Life of Joseph F. Smith,* 473–74.
+[^11]: Joseph F. Smith, journal, Jan. 23, 1918, Church History Library; spelling and capitalization modernized; see Joseph Fielding Smith, *Life of Joseph F. Smith,* 473–74.
 
-[^12]: See “A. \[P.\] Kesler Is Killed in Fall from a Building,” *Ogden Standard,* Feb. 5, 1918, 5.
+[^12]: See “A. \[P.\] Kesler Is Killed in Fall from a Building,” *Ogden Standard,* Feb. 5, 1918, 5.
 
-[^13]: Joseph F. Smith, journal, Feb. 4, 1918, Church History Library.
+[^13]: Joseph F. Smith, journal, Feb. 4, 1918, Church History Library.
 
-[^14]: See “Ida Bowman Smith,” *Salt Lake Herald-Republican,* Sept. 26, 1918, 4.
+[^14]: See “Ida Bowman Smith,” *Salt Lake Herald-Republican,* Sept. 26, 1918, 4.
 
-[^15]: Joseph F. Smith, in Conference Report, Oct. 1918, 2.
+[^15]: Joseph F. Smith, in Conference Report, Oct. 1918, 2.
 
 [^16]: See the reference to “our glorious Mother Eve” and the “faithful daughters who … worshiped the true and living God” ([[D&C 138.39|Doctrine and Covenants 138:39]]).
 
 [^17]: [[D&C 138.30|Doctrine and Covenants 138:30, 33–34, 50–52]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]].
 
-[^18]: The text of the vision first appeared in the November 30, 1918, edition of the *Deseret News,* 11 days after the passing of President Smith, on November 19. It was printed in the December *Improvement Era* and in January 1919 editions of the *Relief Society Magazine,* the *Utah Genealogical and Historical Magazine,* the *Young Woman’s Journal,* and the *Millennial Star.*
+[^18]: The text of the vision first appeared in the November 30, 1918, edition of the *Deseret News,* 11 days after the passing of President Smith, on November 19. It was printed in the December *Improvement Era* and in January 1919 editions of the *Relief Society Magazine,* the *Utah Genealogical and Historical Magazine,* the *Young Woman’s Journal,* and the *Millennial Star.*
 
+[^19]: Although sons of perdition will be resurrected, they may not give love and praise to Heavenly Father and Jesus Christ as will those who receive a kingdom of glory. See [[Alma 11.41|Alma 11:41]]; [[D&C 88.32|Doctrine and Covenants 88:32–35]][[D&C 88.33|]][[D&C 88.34|]][[D&C 88.35|]].
 
-
-
-#Adversity #Death #Holy_Ghost #Jesus_Christ #Revelation

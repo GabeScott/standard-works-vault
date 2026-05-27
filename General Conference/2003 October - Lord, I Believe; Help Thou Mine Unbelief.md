@@ -1,5 +1,7 @@
 # Lord, I Believe; Help Thou Mine Unbelief
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2003 General Conference*
@@ -75,7 +77,7 @@ I believe that every person’s individual testimony of Jesus as the Christ come
 
 [^7]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 458.
 
-[^8]: In Conference Report, Apr. 1993, 91; or *Ensign,* May 1993, 74.
+[^8]: In Conference Report, Apr. 1993, [[1993 April - This Peaceful House of God.md|91]]; or *Ensign,* May 1993, 74.
 
 [^9]: [[Acts 3.21|Acts 3:21]].
 
@@ -107,8 +109,3 @@ I believe that every person’s individual testimony of Jesus as the Christ come
 
 [^23]: [[Mosiah 5.5|Mosiah 5:5, 7]][[Mosiah 5.7|]].
 
-
-
-
-
-#Book_Of_Mormon #Faith #Holy_Ghost #Joseph_Smith #Temple_Work #Testimony

@@ -1,12 +1,14 @@
 # Teach LDS Women Self-Sufficiency
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the April session of the 1976 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1976/04/teach-lds-women-self-sufficiency?lang=eng)
 
-My dear brothers and sisters, this morning and in the welfare meeting last October, our Presiding Bishop, Victor L. Brown, quoted from the Doctrine and Covenants, section 78, verses 13 and 14, in which the Lord says he is preparing us to withstand the tribulations that shall come upon us so that “the church may stand independent above all other creatures beneath the celestial world.” ([[D&C 78.14|D&C 78:14]].)
+My dear brothers and sisters, this morning and in the welfare meeting last October, our Presiding Bishop, Victor L. Brown, quoted from the Doctrine and Covenants, section 78, verses 13 and 14, in which the Lord says he is preparing us to withstand the tribulations that shall come upon us so that “the church may stand independent above all other creatures beneath the celestial world.” ([[D&C 78.14|D&C 78:14]].)
 
 We have been told that the gaining of this independence will come to Church members only in proportion to their obedience to the word of the Lord in this matter. Obedience brings security and self-sufficiency. It breeds confidence and a peaceful attitude.
 
@@ -46,13 +48,13 @@ May I suggest that when approving such plans, each Relief Society presidency use
 
 If we do these things, when trouble comes we will be like a family I know who experienced unexpected financial reverses last year. The father became severely ill, and they were temporarily without employment income. As the fresh produce in the refrigerator was eaten, the family began to use the food they had stored. When the father recovered, he had to look for work in another community. While he was gone, there was a breakdown in the town water system. The family had gallons of water stored which were used for several days before the water line was repaired. Throughout this experience there was no panic, no sense of being overwhelmed. They were prepared for the emergency. Adequate advance provision had been made, including money saved. The basic household bills were paid, and the family was able to care for itself independently.
 
-The principles of family preparedness and a woman’s part in them were not given for our time alone. I consider the women described in the thirty-first chapter of Proverbs a provident woman. Recall her wisdom, prudence, frugality, and preparation, as “She seeketh wool, and flax, and worketh willingly with her hands. …
+The principles of family preparedness and a woman’s part in them were not given for our time alone. I consider the women described in the thirty-first chapter of Proverbs a provident woman. Recall her wisdom, prudence, frugality, and preparation, as “She seeketh wool, and flax, and worketh willingly with her hands. …
 
-“With the fruit of her hands she planteth a vineyard. …
+“With the fruit of her hands she planteth a vineyard. …
 
-“She layeth her hands to the spindle, and her hands hold the distaff. …
+“She layeth her hands to the spindle, and her hands hold the distaff. …
 
-“She is not afraid of the snow for her household: for all her household are clothed with scarlet. …
+“She is not afraid of the snow for her household: for all her household are clothed with scarlet. …
 
 “She looketh well to the ways of her household, and eateth not the bread of idleness.” (See [[Proverbs 31.13|Prov. 31:13–31]][[Proverbs 31.14|]][[Proverbs 31.15|]][[Proverbs 31.16|]][[Proverbs 31.17|]][[Proverbs 31.18|]][[Proverbs 31.19|]][[Proverbs 31.20|]][[Proverbs 31.21|]][[Proverbs 31.22|]][[Proverbs 31.23|]][[Proverbs 31.24|]][[Proverbs 31.25|]][[Proverbs 31.26|]][[Proverbs 31.27|]][[Proverbs 31.28|]][[Proverbs 31.29|]][[Proverbs 31.30|]][[Proverbs 31.31|]].)
 
@@ -67,8 +69,3 @@ I pray that we may all become provident homemakers and help each other to perfor
 
 
 
-
-
-
-
-#Relief_Society #Self-Reliance #Women

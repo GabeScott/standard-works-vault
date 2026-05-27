@@ -1,6 +1,8 @@
 # The Sacrament—a Renewal for the Soul
 
-By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
+Thomas S. Monson
+
+By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -8,13 +10,13 @@ By Cheryl A. Esplin - *Second Counselor in the Primary General Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/the-sacrament-a-renewal-for-the-soul?lang=eng)
 
-A group of young women once asked me, “What do you wish you had known when you were our age?” If I were to answer that question now, I would include this thought: “I wish when I was your age I had understood the significance of the sacrament better than I did. I wish I had understood the sacrament in the way that Elder Jeffrey R. Holland described. He said, ‘One of the invitations inherent in the sacramental ordinance is that it be a truly spiritual experience, a holy communion, a renewal for the soul.’[^1]”
+A group of young women once asked me, “What do you wish you had known when you were our age?” If I were to answer that question now, I would include this thought: “I wish when I was your age I had understood the significance of the sacrament better than I did. I wish I had understood the sacrament in the way that Elder Jeffrey R. Holland described. He said, ‘One of the invitations inherent in the sacramental ordinance is that it be a truly spiritual experience, a holy communion, a renewal for the soul.’[^1]”
 
 How can the sacrament “be a truly spiritual experience, a holy communion, a renewal for the soul” each week?
 
-The sacrament becomes a spiritually strengthening experience when we listen to the sacrament prayers and recommit to our covenants. To do this, we must be willing to take upon us the name of Jesus Christ.[^2] Speaking of this promise, President Henry B. Eyring taught: “That means we must see ourselves as His. We will put Him first in our lives. We will want what He wants rather than what we want or what the world teaches us to want.”[^3]
+The sacrament becomes a spiritually strengthening experience when we listen to the sacrament prayers and recommit to our covenants. To do this, we must be willing to take upon us the name of Jesus Christ.[^2] Speaking of this promise, President Henry B. Eyring taught: “That means we must see ourselves as His. We will put Him first in our lives. We will want what He wants rather than what we want or what the world teaches us to want.”[^3]
 
-When we take the sacrament, we also covenant to “always remember”[^4] Jesus Christ. On the night before He was crucified, Christ gathered His Apostles around Him and instituted the sacrament. He broke bread, blessed it, and said, “Take, eat; this is in remembrance of my body which I give a ransom for you.”[^5] Next He took a cup of wine, gave thanks, gave it to His Apostles to drink, and said, “This is in remembrance of my blood … , which is shed for as many as shall believe on my name.”[^6]
+When we take the sacrament, we also covenant to “always remember”[^4] Jesus Christ. On the night before He was crucified, Christ gathered His Apostles around Him and instituted the sacrament. He broke bread, blessed it, and said, “Take, eat; this is in remembrance of my body which I give a ransom for you.”[^5] Next He took a cup of wine, gave thanks, gave it to His Apostles to drink, and said, “This is in remembrance of my blood … , which is shed for as many as shall believe on my name.”[^6]
 
 Among the Nephites and again at the Restoration of His Church in the latter days, He repeated that we are to take the sacrament in remembrance of Him.[^7]
 
@@ -34,9 +36,9 @@ With this in mind, she reflected again on the previous week. She said: “A feel
 
 She concluded: “As I thanked God for the Savior’s enabling power in my life, I felt so much more optimistic toward the repentance process I was working through and I looked to the next week with renewed hope.”
 
-Elder Melvin J. Ballard taught how the sacrament can be a healing and cleansing experience. He said:
+Elder Melvin J. Ballard taught how the sacrament can be a healing and cleansing experience. He said:
 
-“Who is there among us that does not wound his spirit by word, thought, or deed, from Sabbath to Sabbath? We do things for which we are sorry and desire to be forgiven. … The method to obtain forgiveness is … to repent of our sins, to go to those against whom we have sinned or transgressed and obtain their forgiveness and then repair to the sacrament table where, if we have sincerely repented and put ourselves in proper condition, we shall be forgiven, and spiritual healing will come to our souls. …
+“Who is there among us that does not wound his spirit by word, thought, or deed, from Sabbath to Sabbath? We do things for which we are sorry and desire to be forgiven. … The method to obtain forgiveness is … to repent of our sins, to go to those against whom we have sinned or transgressed and obtain their forgiveness and then repair to the sacrament table where, if we have sincerely repented and put ourselves in proper condition, we shall be forgiven, and spiritual healing will come to our souls. …
 
 “I am a witness,” Elder Ballard said, “that there is a spirit attending the administration of the sacrament that warms the soul from head to foot; you feel the wounds of the spirit being healed, and the load being lifted. Comfort and happiness come to the soul that is worthy and truly desirous of partaking of this spiritual food.”[^11]
 
@@ -63,44 +65,39 @@ I know that our Heavenly Father and our Savior live. I am grateful for the oppor
 
 
 
-[^1]: Jeffrey R. Holland, *Christ and the New Covenant: The Messianic Message of the Book of Mormon* (1997), 283.
+[^1]: Jeffrey R. Holland, *Christ and the New Covenant: The Messianic Message of the Book of Mormon* (1997), 283.
 
 [^2]: See [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^3]: Henry B. Eyring, “That We May Be One,” *Ensign,* May 1998, 67.
+[^3]: Henry B. Eyring, “That We May Be One,” *Ensign,* May 1998, 67.
 
 [^4]: [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]].
 
-[^5]: [[JST Matthew 26.22|Joseph Smith Translation, Matthew 26:22]] (in [[Matthew 26.note26c|Matthew 26:26, footnote c,]] and in the Bible appendix).
+[^5]: [[JST Matthew 26.22|Joseph Smith Translation, Matthew 26:22]] (in [Matthew 26:26, footnote c,](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/26?lang=eng&id=note26c#note26c) and in the Bible appendix).
 
 [^6]: [[JST Matthew 26.24|Joseph Smith Translation, Matthew 26:24]] (in the Bible appendix); see also [[Matthew 26.26|Matthew 26:26–28]][[Matthew 26.27|]][[Matthew 26.28|]]; [[Mark 14.22|Mark 14:22–24]][[Mark 14.23|]][[Mark 14.24|]]; [[Luke 22.15|Luke 22:15–20]][[Luke 22.16|]][[Luke 22.17|]][[Luke 22.18|]][[Luke 22.19|]][[Luke 22.20|]].
 
-[^7]: See [[3 Nephi 18.7|3 Nephi 18:7, 11]][[3 Nephi 18.11|]]; [[D&C 20.75|Doctrine and Covenants 20:75]].
+[^7]: See [[3 Nephi 18.7|3 Nephi 18:7, 11]][[3 Nephi 18.11|]]; [[D&C 20.75|Doctrine and Covenants 20:75]].
 
-[^8]: See “How Do I Keep My Covenant to Always Remember the Savior?” *Come, Follow Me* Sunday School curriculum; [lds.org/youth/learn/ss/ordinances-covenants/remember](https://churchofjesuschrist.org/study/youth/learn/ss/ordinances-covenants/remember?lang=eng); *True to the Faith: A Gospel Reference* (2004), 147–48.
+[^8]: See “How Do I Keep My Covenant to Always Remember the Savior?” *Come, Follow Me* Sunday School curriculum; [lds.org/youth/learn/ss/ordinances-covenants/remember](https://www.churchofjesuschrist.org/study/youth/learn/ss/ordinances-covenants/remember?lang=eng); *True to the Faith: A Gospel Reference* (2004), 147–48.
 
 [^9]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
 [^10]: [[John 14.15|John 14:15]].
 
-[^11]: Melvin J. Ballard, in Melvin R. Ballard, *Melvin J. Ballard: Crusader for Righteousness* (1966), 132–33.
+[^11]: Melvin J. Ballard, in Melvin R. Ballard, *Melvin J. Ballard: Crusader for Righteousness* (1966), 132–33.
 
 [^12]: [[John 6.48|John 6:48]].
 
 [^13]: [[John 4.10|John 4:10]].
 
-[^14]: [[3 Nephi 20.8|3 Nephi 20:8–9]][[3 Nephi 20.9|]].
+[^14]: [[3 Nephi 20.8|3 Nephi 20:8–9]][[3 Nephi 20.9|]].
 
 [^15]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^16]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^16]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
 [^17]: I’m grateful to Ann Madsen for her insight on this principle.
 
-[^18]: Jeffrey R. Holland, *Christ and the New Covenant,* 283.
+[^18]: Jeffrey R. Holland, *Christ and the New Covenant,* 283.
 
-
-
-
-
-#Atonement #Jesus_Christ #Sacrament

@@ -1,6 +1,8 @@
 # Commitment to Serve
 
-By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -16,7 +18,7 @@ Through the New Testament, I returned to Bethlehem to the site of the manger, sa
 
 Through the Book of Mormon, I saw the blessings of obedience and the suffering of disobedience in the lives of the eternal spirit posterity of Lehi and others who were led to this promised land, giving me a panorama of our Heavenly Father’s desire to nurture and perfect—even by adversity—his children.
 
-From the pages of modern scripture revealed in the tender years of the establishment of the Lord’s kingdom in our day, the following truths seem most appropriate: “… three Presiding High Priests … form a quorum of the Presidency of the Church”; ([[D&C 107.22|D&C 107:22]]) and the Twelve, “under the direction of the Presidency … , \[are\] to build up the church, and regulate all the affairs of the same in all nations. …” ([[D&C 107.33|D&C 107:33]].) “… Whatsoever they shall speak when moved upon by the Holy Ghost shall be scripture. …” ([[D&C 68.4|D&C 68:4]].)
+From the pages of modern scripture revealed in the tender years of the establishment of the Lord’s kingdom in our day, the following truths seem most appropriate: “… three Presiding High Priests … form a quorum of the Presidency of the Church”; ([[D&C 107.22|D&C 107:22]]) and the Twelve, “under the direction of the Presidency … , \[are\] to build up the church, and regulate all the affairs of the same in all nations. …” ([[D&C 107.33|D&C 107:33]].) “… Whatsoever they shall speak when moved upon by the Holy Ghost shall be scripture. …” ([[D&C 68.4|D&C 68:4]].)
 
 When these words distill upon my soul, I stand in reverential awe in the presence of these appointed brethren. Particularly am I indebted to the four members of the Council of the Twelve who serve as advisers to Internal Communications.
 
@@ -35,8 +37,3 @@ President Kimball and your inspired counselors, President Benson and the special
 
 
 
-
-
-
-
-#Scriptures #Testimony

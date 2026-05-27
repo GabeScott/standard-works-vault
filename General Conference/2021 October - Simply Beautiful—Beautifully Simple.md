@@ -1,6 +1,8 @@
 # Simply Beautiful—Beautifully Simple
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -34,7 +36,7 @@ You might view them as I do: as a road map to return back to our loving Heavenly
 
 It has been said that the gospel of Jesus Christ is “simply beautiful and beautifully simple.”[^5] The world is not. It is complicated, complex, and filled with turmoil and strife. We are blessed as we exercise care not to allow complexity, so common in the world, to enter into the way we receive and practice the gospel.
 
-President Dallin H. Oaks observed: “We are taught many small and simple things in the gospel of Jesus Christ. We need to be reminded that in total and over a significant period of time, those seemingly small things bring to pass great things.”[^6] Jesus Christ Himself describes that His yoke is easy and His burden is light.[^7] We should all strive to keep the gospel simple—in our lives, in our families, in our classes and quorums, and in our wards and stakes.
+President Dallin H. Oaks observed: “We are taught many small and simple things in the gospel of Jesus Christ. We need to be reminded that in total and over a significant period of time, those seemingly small things bring to pass great things.”[^6] Jesus Christ Himself describes that His yoke is easy and His burden is light.[^7] We should all strive to keep the gospel simple—in our lives, in our families, in our classes and quorums, and in our wards and stakes.
 
 As you listen to the following stories I will share with you, recognize that they have been carefully chosen to inspire on the one hand and to inform on the other. The actions of each of these Latter-day Saints becomes a model for each of us in applying the gospel in plain, precious, simple ways while fulfilling one of the divinely appointed responsibilities just introduced.
 
@@ -101,20 +103,15 @@ Doing so will surely bring joy and peace. Of this I promise and testify—and of
 
 [^1]: [[Moroni 10.32|Moroni 10:32]].
 
-[^2]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title_number3#title_number3), ChurchofJesusChrist.org.
+[^2]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title_number3#title_number3), ChurchofJesusChrist.org.
 
-[^3]: See [[D&C 110.11|Doctrine and Covenants 110:11–16]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]. See also Dallin H. Oaks, “[[2020 April - The Melchizedek Priesthood and the Keys.md|The Melchizedek Priesthood and the Keys]],” *Ensign* or *Liahona*, May 2020, 70: “Following the dedication of the first temple of this dispensation in Kirtland, Ohio, three prophets—Moses, Elias, and Elijah—restored ‘the keys of this dispensation,’ including keys pertaining to the gathering of Israel and the work of the temples of the Lord.” See also Quentin L. Cook, “[[2018 April - Prepare to Meet God.md|Prepare to Meet God]],” *Ensign* or *Liahona*, May 2018, 114: “Ancient prophets restored priesthood keys for the eternal saving ordinances of the gospel of Jesus Christ. … These keys provide the ‘power from on high’ \[[[D&C 38.38|Doctrine and Covenants 38:38]]\] for divinely appointed responsibilities that constitute the primary purpose of the Church.”
+[^3]: See [[D&C 110.11|Doctrine and Covenants 110:11–16]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]. See also Dallin H. Oaks, “[[2020 April - The Melchizedek Priesthood and the Keys.md|The Melchizedek Priesthood and the Keys]],” *Ensign* or *Liahona*, May 2020, 70: “Following the dedication of the first temple of this dispensation in Kirtland, Ohio, three prophets—Moses, Elias, and Elijah—restored ‘the keys of this dispensation,’ including keys pertaining to the gathering of Israel and the work of the temples of the Lord.” See also Quentin L. Cook, “[[2018 April - Prepare to Meet God.md|Prepare to Meet God]],” *Ensign* or *Liahona*, May 2018, 114: “Ancient prophets restored priesthood keys for the eternal saving ordinances of the gospel of Jesus Christ. … These keys provide the ‘power from on high’ \[[[D&C 38.38|Doctrine and Covenants 38:38]]\] for divinely appointed responsibilities that constitute the primary purpose of the Church.”
 
 [^4]: See [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
 [^5]: In *Matthew Cowley Speaks: Discourses of Elder Matthew Cowley of the Quorum of the Twelve of The Church of Jesus Christ of Latter-day Saints* (1954), xii.
 
-[^6]: Dallin H. Oaks, “[[2018 April - Small and Simple Things.md|Small and Simple Things]],” *Ensign* or *Liahona*, May 2018, 89.
+[^6]: Dallin H. Oaks, “[[2018 April - Small and Simple Things.md|Small and Simple Things]],” *Ensign* or *Liahona*, May 2018, 89.
 
 [^7]: See [[Matthew 11.30|Matthew 11:30]].
 
-
-
-
-
-#Discipleship #Missionary_Work #Responsibility #Service #Temple_Work

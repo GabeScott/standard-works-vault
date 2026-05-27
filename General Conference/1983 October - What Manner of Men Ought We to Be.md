@@ -1,12 +1,14 @@
 # What Manner of Men Ought We to Be?
 
+Gordon B. Hinckley
+
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1983/10/what-manner-of-men-ought-we-to-be?lang=eng)
 
-My beloved brethren, I have entitled my remarks “What Manner of Men Ought We to Be?” You will recognize this title as a variation of the question Jesus posed to the Nephites. (See [[3 Nephi 27.27|3 Ne. 27:27]].) It is a timely question for each member of the priesthood of God to consider.
+My beloved brethren, I have entitled my remarks “What Manner of Men Ought We to Be?” You will recognize this title as a variation of the question Jesus posed to the Nephites. (See [[3 Nephi 27.27|3 Ne. 27:27]].) It is a timely question for each member of the priesthood of God to consider.
 
 This title is prompted by reports that have recently come to my attention about the shocking actions of some fathers and husbands, and their unrighteous actions involve wife and child abuse.
 
@@ -44,7 +46,7 @@ A priesthood holder who would curse his wife, abuse her with words or actions, o
 
 If a man does not control his temper it is a sad admission that he is not in control of his thoughts. He then becomes a victim to his own passions and emotions, which lead him to actions that are totally unfit for civilized behavior, let alone behavior for a priesthood holder.
 
-President David O. McKay once said, “A man who cannot control his temper is not very likely to control his passion, and no matter what his pretensions in religion, he moves in daily life very close to the animal plane.” (*Improvement Era,* June 1958, p. 407.)
+President David O. McKay once said, “A man who cannot control his temper is not very likely to control his passion, and no matter what his pretensions in religion, he moves in daily life very close to the animal plane.” (*Improvement Era,* June 1958, p. 407.)
 
 A priesthood holder is to be *patient.* Patience is another form of self-control. It is the ability to postpone gratification and to bridle one’s passions. (See [[Alma 28.12|Alma 28:12]].) A patient man does not engage in impetuous behavior in his relationships with loved ones, which he will later regret. Patience is composure under stress. A patient man is understanding of others’ faults.
 
@@ -64,7 +66,7 @@ How is this done?
 
 As I’ve thought about the serious sins that some of our brethren have committed, I’ve wondered, “Did they seek the Lord to help them overcome their emotional outbursts? Did they rely on fasting and prayer? Did they seek a priesthood blessing? Did they ask our Heavenly Father to temper their emotions by the influence of the Holy Ghost?”
 
-Jesus said we are to “hunger and thirst after righteousness.” ([[3 Nephi 12.6|3 Ne. 12:6]].) To do this, we must earnestly desire a righteous and virtuous life.
+Jesus said we are to “hunger and thirst after righteousness.” ([[3 Nephi 12.6|3 Ne. 12:6]].) To do this, we must earnestly desire a righteous and virtuous life.
 
 I cite for you an example of a man whose life was changed to a more Christlike life after he earnestly desired such a change and sought the Lord’s help.
 
@@ -82,7 +84,7 @@ Brethren, each of us must surrender our sins if we are to really know Christ. Fo
 
 Attaining a righteous and virtuous life is within the capability of any one of us if we will earnestly seek for it. If we do not have these character traits, the Lord has told us that we should “ask, and ye shall receive; knock, and it shall be opened unto you.” ([[D&C 4.7|D&C 4:7]].)
 
-The Apostle Peter tells us that when we possess these traits we are not “unfruitful in the *knowledge* of our Lord Jesus Christ.” ([[2 Peter 1.8|2 Pet. 1:8]]; italics added.)
+The Apostle Peter tells us that when we possess these traits we are not “unfruitful in the *knowledge* of our Lord Jesus Christ.” ([[2 Peter 1.8|2 Pet. 1:8]]; italics added.)
 
 To *know* the Savior, then, is to be *like* Him.
 
@@ -114,13 +116,13 @@ The same applies to our families. Our homes should be havens of peace and joy fo
 
 As the patriarch in your home, you have a serious responsibility to assume leadership in the home. You must create a home where the Spirit of the Lord can abide.
 
-You should always remember the statement of the Savior that “the spirit of contention is not of me, but is of the devil.” ([[3 Nephi 11.29|3 Ne. 11:29]].) Never allow the adversary to be an influence in your home.
+You should always remember the statement of the Savior that “the spirit of contention is not of me, but is of the devil.” ([[3 Nephi 11.29|3 Ne. 11:29]].) Never allow the adversary to be an influence in your home.
 
 Now, brethren, I have spoken plainly. I do not wish to offend anyone, but there needs to be a change of attitude and behavior on the part of some who claim membership in the Lord’s church but who act in an un-Christlike manner.
 
 As holders of the priesthood of God, we must be more Christlike in our attitude and behavior than what we see in the world. We should be as charitable and considerate with our loved ones as Christ is with us. He is kind, loving, and patient with each of us. Should we not reciprocate the same love to our wives and children?
 
-I opened with the question “What manner of men ought we to be?” You remember the Lord’s answer is this: “Verily I say unto you, *even as I am*.” ([[3 Nephi 27.27|3 Ne. 27:27]]; italics added.)
+I opened with the question “What manner of men ought we to be?” You remember the Lord’s answer is this: “Verily I say unto you, *even as I am*.” ([[3 Nephi 27.27|3 Ne. 27:27]]; italics added.)
 
 He expects us to be like Him. He expects us to demonstrate the fruits of the Spirit in our lives which are “love, joy, peace, longsuffering, gentleness, goodness, faith, meekness, temperance.” ([[Galatians 5.22|Gal. 5:22–23]][[Galatians 5.23|]].)
 
@@ -145,8 +147,3 @@ This is my fervent witness as I invoke the blessings of God upon each one of you
 
 
 
-
-
-
-
-#Repentance

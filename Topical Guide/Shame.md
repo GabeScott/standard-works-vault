@@ -1,9 +1,8 @@
 # Shame
 
+*See also* [[Abase.md|Abase]]; [[Dishonor.md|Dishonor]]; [[Guilt.md|Guilt]]; [[Reproach.md|Reproach]]
 
-*See also* [[Abase.md|Abase]]; [[Dishonor.md|Dishonor]]; [[Guilt, Guilty.md|Guilt]]; [[Reproach.md|Reproach]]
-
-they were both naked ... and were not *ashamed*, [[Genesis 2.25|Genesis 2:25]] ([[Moses 3.25|Moses 3:25]]; [[Abraham 5.19|Abraham 5:19]]).
+they were both naked … and were not *ashamed*, [[Genesis 2.25|Genesis 2:25]] ([[Moses 3.25|Moses 3:25]]; [[Abraham 5.19|Abraham 5:19]]).
 
 They that hate thee shall be clothed with *shame*, [[Job 8.22|Job 8:22]].
 
@@ -11,7 +10,7 @@ how long will ye turn my glory into *shame*, [[Psalms 4.2|Psalms 4:2]].
 
 Ye have *shamed* the counsel of the poor, [[Psalms 14.6|Psalms 14:6]].
 
-I trust in thee: let me not be *ashamed*, [[Psalms 25.2|Psalms 25:2]] ([[Psalms 25.3|Psalms 25:3]], [[Psalms 25.20|Psalms 25:20]]; [[Psalms 31.1|Psalms 31:1]], [[Psalms 31.17|Psalms 31:17]]).
+I trust in thee: let me not be *ashamed*, [[Psalms 25.2|Psalms 25:2]] ([[Psalms 25.3|Psalms 25:3]]; [[Psalms 25.20|Psalms 25:20]]; [[Psalms 31.1|Psalms 31:1]]; [[Psalms 31.17|Psalms 31:17]]).
 
 be desolate for a reward of their *shame*, [[Psalms 40.15|Psalms 40:15]] ([[Psalms 70.3|Psalms 70:3]]).
 
@@ -89,9 +88,9 @@ whose glory is in their *shame*, [[Philippians 3.19|Philippians 3:19]].
 
 Be not thou therefore *ashamed* of the testimony, [[2 Timothy 1.8|2 Timothy 1:8]].
 
-fall away ... put him to an open *shame*, [[Hebrews 6.6|Hebrews 6:6]] ([[D&C 76.35|D&C 76:35]]).
+fall away … put him to an open *shame*, [[Hebrews 6.6|Hebrews 6:6]] ([[D&C 76.35|D&C 76:35]]).
 
-Jesus ... endured the cross, despising the *shame*, [[Hebrews 12.2|Hebrews 12:2]].
+Jesus … endured the cross, despising the *shame*, [[Hebrews 12.2|Hebrews 12:2]].
 
 cast their eyes about as if they were *ashamed*, [[1 Nephi 8.25|1 Nephi 8:25]].
 
@@ -109,6 +108,6 @@ their *shame* shall be made manifest, [[D&C 71.7|D&C 71:7]].
 
 Be not *ashamed*, neither confounded, [[D&C 90.17|D&C 90:17]].
 
-bring to *shame* ... all those who have spread lying, [[D&C 109.29|D&C 109:29]].
+bring to *shame* … all those who have spread lying, [[D&C 109.29|D&C 109:29]].
 
 sun shall hide his face in *shame*, [[D&C 133.49|D&C 133:49]].

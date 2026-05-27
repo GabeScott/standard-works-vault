@@ -1,5 +1,7 @@
 # Do It Now
 
+Gordon B. Hinckley
+
 By Elder Donald L. Hallstrom - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -59,8 +61,3 @@ It is my witness that you and all of us can change, and it can be now. It may no
 
 
 
-
-
-
-
-#Preparation #Priorities #Repentance #Time_Management

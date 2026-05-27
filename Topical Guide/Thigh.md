@@ -1,7 +1,6 @@
 # Thigh
 
-
-hollow of Jacob's *thigh* was out of joint, [[Genesis 32.25|Genesis 32:25]].
+hollow of Jacob’s *thigh* was out of joint, [[Genesis 32.25|Genesis 32:25]].
 
 when the Lord doth make thy *thigh* to rot, [[Numbers 5.21|Numbers 5:21]].
 

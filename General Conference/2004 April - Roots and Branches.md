@@ -1,5 +1,7 @@
 # Roots and Branches
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -40,9 +42,9 @@ Their noble ancestors “were brought to the knowledge of the truth, … accordi
 
 The Lord issued this solemn warning:
 
-“After ye have been nourished by the good word of God … , will ye reject these words … of the prophets; and will ye reject all the words which have been spoken concerning Christ, … and the power of God, and the gift of the Holy Ghost, … and make a mock of the great plan of redemption, which \[has\] been laid for you?
+“After ye have been nourished by the good word of God … , will ye reject these words … of the prophets; and will ye reject all the words which have been spoken concerning Christ, … and the power of God, and the gift of the Holy Ghost, … and make a mock of the great plan of redemption, which \[has\] been laid for you?
 
-“… The resurrection … will bring you to stand with shame and awful guilt before the bar of God.”[^9]
+“… The resurrection … will bring you to stand with shame and awful guilt before the bar of God.”[^9]
 
 I plead with each of us to heed that sacred warning.
 
@@ -91,9 +93,9 @@ God lives. Jesus is the Christ. Joseph Smith is the revelator and prophet of thi
 
 [^9]: [[Jacob 6.7|Jacob 6:7–9]][[Jacob 6.8|]][[Jacob 6.9|]].
 
-[^10]: See, for example, [[2 Nephi 3.6|2 Nephi 3:6–7]][[2 Nephi 3.7|]].
+[^10]: See, for example, [[2 Nephi 3.6|2 Nephi 3:6–7]][[2 Nephi 3.7|]].
 
-[^11]: [[Matthew 7.20|Matthew 7:20]]; [[3 Nephi 14.20|3 Nephi 14:20]]; see also Joseph Smith Translation, Matthew 7:25 (The Holy Scriptures: Inspired Version).
+[^11]: [[Matthew 7.20|Matthew 7:20]]; [[3 Nephi 14.20|3 Nephi 14:20]]; see also Joseph Smith Translation, Matthew 7:25 (The Holy Scriptures: Inspired Version).
 
 [^12]: [[Galatians 5.22|Galatians 5:22]].
 
@@ -101,7 +103,7 @@ God lives. Jesus is the Christ. Joseph Smith is the revelator and prophet of thi
 
 [^14]: [[D&C 93.36|D&C 93:36]].
 
-[^15]: See [[Malachi 3.10|Malachi 3:10]]; [[3 Nephi 24.10|3 Nephi 24:10]].
+[^15]: See [[Malachi 3.10|Malachi 3:10]]; [[3 Nephi 24.10|3 Nephi 24:10]].
 
 [^16]: See [[D&C 89.18|D&C 89:18–21]][[D&C 89.19|]][[D&C 89.20|]][[D&C 89.21|]].
 
@@ -123,8 +125,3 @@ God lives. Jesus is the Christ. Joseph Smith is the revelator and prophet of thi
 
 [^25]: See [[John 15.16|John 15:16]].
 
-
-
-
-
-#Articles_Of_Faith #Conversion #Endurance #Family #Family_History

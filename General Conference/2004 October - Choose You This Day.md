@@ -1,5 +1,7 @@
 # Choose You This Day
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -79,7 +81,7 @@ When the Savior sought a man of faith, He did not select him from the throng of 
 
 Simon answered, “Master, we have toiled all the night, and have taken nothing: nevertheless at thy word I will let down the net.
 
-“And when they had this done, they inclosed a great multitude of fishes. …
+“And when they had this done, they inclosed a great multitude of fishes. …
 
 “When Simon Peter saw it, he fell down at Jesus’ knees, saying, Depart from me; for I am a sinful man, O Lord.”[^14]
 
@@ -128,13 +130,13 @@ In the name of Jesus Christ, amen.
 
 [^3]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 54.
 
-[^4]: [[2 Nephi 10.23|2 Nephi 10:23]].
+[^4]: [[2 Nephi 10.23|2 Nephi 10:23]].
 
 [^5]: “Choose the Right,” *Hymns,* no. 239.
 
 [^6]: Adapted from Lewis Carroll, *Alice’s Adventures in Wonderland* (1992), 76.
 
-[^7]: [[1 Timothy 4.14|1 Timothy 4:14]]; [[1 Timothy 6.20|6:20]].
+[^7]: [[1 Timothy 4.14|1 Timothy 4:14]]; [[1 Timothy 6.20|6:20]].
 
 [^8]: [[Ecclesiastes 12.13|Ecclesiastes 12:13]].
 
@@ -160,12 +162,7 @@ In the name of Jesus Christ, amen.
 
 [^19]: *Hymns,* no. 239.
 
-[^20]: [[1 Corinthians 3.16|1 Corinthians 3:16]].
+[^20]: [[1 Corinthians 3.16|1 Corinthians 3:16]].
 
 [^21]: [[Matthew 25.23|Matthew 25:23]].
 
-
-
-
-
-#Agency #Faith #Jesus_Christ #Service

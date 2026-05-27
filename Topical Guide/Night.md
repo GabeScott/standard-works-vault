@@ -1,11 +1,10 @@
 # Night
 
-
 *See also* [[Darkness, Physical.md|Darkness, Physical]]
 
 darkness he called *Night*, [[Genesis 1.5|Genesis 1:5]] ([[Moses 2.5|Moses 2:5]]; [[Abraham 4.5|Abraham 4:5]]).
 
-While the earth remaineth ... day and *night* shall not cease, [[Genesis 8.22|Genesis 8:22]].
+While the earth remaineth … day and *night* shall not cease, [[Genesis 8.22|Genesis 8:22]].
 
 appearance of fire by *night*, [[Numbers 9.16|Numbers 9:16]].
 

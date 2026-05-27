@@ -1,6 +1,5 @@
 # Usury
 
-
 *See also* [[Debt.md|Debt]]
 
 neither shalt thou lay upon him *usury*, [[Exodus 22.25|Exodus 22:25]].

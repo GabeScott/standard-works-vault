@@ -1,6 +1,8 @@
 # “We Beheld His Glory”
 
-By Elder David B. Haight - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -42,27 +44,27 @@ Testifying later, John said, “We beheld his glory, the glory as of the only be
 
 “For he received from God the Father honour and glory, when there came such a voice to him from the excellent glory, This is my beloved Son, in whom I am well pleased.
 
-“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.16|2 Pet. 1:16–18]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
+“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.16|2 Pet. 1:16–18]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
 
 Peter, James, and John—they alone beheld the glory and majesty of the transfigured Jesus and undoubtedly received the keys of the kingdom. These three were yet to be taken to a spot in Gethsemane where they would behold his suffering as He took upon Himself the sins of the world that He might redeem us from the Fall and through His resurrection demonstrate to us that He is the Only Begotten of the Father in the flesh and show unto us that He is the Redeemer of the world.
 
 These same three witnesses who were on the mount—Peter, the senior of Christ’s apostles, and James and John—appeared to Joseph Smith and Oliver Cowdery in 1829 and conferred upon them the Melchizedek Priesthood and gave to them the keys of the kingdom and apostleship. Christ Himself, followed by Moses, Elias, and Elijah, appeared to Joseph and Oliver in the Kirtland Temple, giving authority and committing other essential keys of this dispensation. The Prophet’s own words of this event record:
 
-“In the afternoon, I assisted the other presidents in distributing the Lord’s Supper to the Church, receiving it from the Twelve, whose privilege it was to officiate at the sacred desk this day. After having performed this service to my brethren. I retired to the pulpit, the veils being dropped, and bowed myself with Oliver Cowdery, in solemn and silent prayer. After rising from prayer, the following vision was opened to both of us. …
+“In the afternoon, I assisted the other presidents in distributing the Lord’s Supper to the Church, receiving it from the Twelve, whose privilege it was to officiate at the sacred desk this day. After having performed this service to my brethren. I retired to the pulpit, the veils being dropped, and bowed myself with Oliver Cowdery, in solemn and silent prayer. After rising from prayer, the following vision was opened to both of us. …
 
 “The veil was taken from our minds, and the eyes of our understanding were opened.
 
-“We saw the Lord standing upon the breastwork of the pulpit, before us; and under his feet was a paved work of pure gold, in color like amber. …
+“We saw the Lord standing upon the breastwork of the pulpit, before us; and under his feet was a paved work of pure gold, in color like amber. …
 
-“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father. …
+“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father. …
 
-“After this vision closed, the heavens were again opened unto us; and Moses appeared before us, and committed unto us the keys of the gathering of Israel. …
+“After this vision closed, the heavens were again opened unto us; and Moses appeared before us, and committed unto us the keys of the gathering of Israel. …
 
 “After this, Elias appeared, and committed the dispensation of the gospel of Abraham, saying that in us and our seed all generations after us should be blessed.
 
-“After this vision had closed, another great and glorious vision burst upon us; for Elijah the prophet, who was taken to heaven without tasting death, stood before us, and said: …
+“After this vision had closed, another great and glorious vision burst upon us; for Elijah the prophet, who was taken to heaven without tasting death, stood before us, and said: …
 
-“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.” ([D&C 110: Chapter heading, 1–2, 4, 11–13, 16](https://churchofjesuschrist.org/study/scriptures/dc-testament/dc/110?lang=eng&id=study_intro1,1-p2,4,11-p13,16#study_intro1).)
+“Therefore, the keys of this dispensation are committed into your hands; and by this ye may know that the great and dreadful day of the Lord is near, even at the doors.” ([D&C 110: Chapter heading, 1–2, 4, 11–13, 16](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/110?lang=eng&id=study_intro1,1-p2,4,11-p13,16#study_intro1).)
 
 The divine keys, power, and authority were committed by heavenly messengers to Joseph Smith in this the dispensation of the fulness of times. Those keys—the same that were delivered to Peter, James, and John on the mountain—authorize us to carry the gospel to all nations and declare the power, glory, and majesty of our Lord Jesus Christ and that the day of His coming is near. The prophet of God, to whom we have listened this morning, holds these keys and authority today. We invite people everywhere to inquire further into this divine message which we have to offer to all mankind.
 
@@ -71,8 +73,3 @@ I testify in all sincerity to the truth of these things, in the name of Him whom
 
 
 
-
-
-
-
-#Jesus_Christ

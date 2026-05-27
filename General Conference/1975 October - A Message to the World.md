@@ -1,5 +1,7 @@
 # A Message to the World
 
+Spencer W. Kimball
+
 By President Ezra Taft Benson - *President of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
@@ -103,8 +105,3 @@ Humbly and prayerfully I leave this testimony, knowing full well I must eventual
 
 
 
-
-
-
-
-#Commandments #Repentance #Restoration

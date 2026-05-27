@@ -1,6 +1,5 @@
 # Sting
 
-
 *stingeth* like an adder, [[Proverbs 23.32|Proverbs 23:32]].
 
 death, where is thy *sting*, [[1 Corinthians 15.55|1 Corinthians 15:55]].

@@ -1,19 +1,21 @@
 # Planting Gospel Seeds of Spirituality
 
-By Elder David B. Haight - *Assistant to the Council of the Twelve*
+N. Eldon Tanner
+
+By Elder David B. Haight - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/10/planting-gospel-seeds-of-spirituality?lang=eng)
 
-The Savior’s powerful promise, “… I will cause that your bosom shall burn within you” ([[D&C 9.8|D&C 9:8]]), became a reality to me as I sat in the National Auditorium in Mexico City a few weeks ago and looked out upon the vast throng of 16,000 faithful Saints.
+The Savior’s powerful promise, “… I will cause that your bosom shall burn within you” ([[D&C 9.8|D&C 9:8]]), became a reality to me as I sat in the National Auditorium in Mexico City a few weeks ago and looked out upon the vast throng of 16,000 faithful Saints.
 
 Some had borrowed money, mortgaged possessions, traveled for days, and made many sacrifices unknown to us that they might attend this great area conference. Our members had come to see a living prophet—to see him face to face, to hear his voice, to hear his words of assurance and admonition, and to personally witness the presidency of the kingdom of God on the earth. They came in great numbers. They saw the prophet and they felt of the comforting Spirit of the Lord. The Saints gathered there heard the truth and believed.
 
 I thought of the great significance of the full-time missionary service of your sons and daughters, who join in heart and voice in humble meetings throughout the world, as they sing:
 
 >“Ye elders of Israel, come join now with me
->And seek out the righteous, where’er they may be: …
+>And seek out the righteous, where’er they may be: …
 >We’ll gather the wheat from the midst of the tares
 >And bring them from bondage, from sorrow and snares.”
 >
@@ -30,11 +32,11 @@ Hollywood would never be able to produce the thrilling stories, the real-life dr
 
 The Savior explained what might happen to some of our efforts. He said:
 
-“A sower went out to sow his seed: and as he sowed, some fell by the way side; and it was trodden down. …
+“A sower went out to sow his seed: and as he sowed, some fell by the way side; and it was trodden down. …
 
-“And some fell upon a rock; and … it withered away. …
+“And some fell upon a rock; and … it withered away. …
 
-“And other fell on good ground, and sprang up, and bare fruit an hundredfold. …” ([[Luke 8.5|Luke 8:5–6, 8]][[Luke 8.6|]][[Luke 8.8|]].)
+“And other fell on good ground, and sprang up, and bare fruit an hundredfold. …” ([[Luke 8.5|Luke 8:5–6, 8]][[Luke 8.6|]][[Luke 8.8|]].)
 
 Imagine the quantity of seed planted over the years by the tens of thousands of missionaries. Some seeds lie dormant for years; others spring forth immediately. Some years ago such a precious seed was planted in fertile soil in Germany.
 
@@ -76,15 +78,10 @@ And as I stood and looked upon this young man at the stake conference, I saw the
 
 I thank the Lord for our missionary service. It is a divine program. I thank the Lord for our young men and women who represent him before the world in helping build Zion, and in so doing develop their own spiritual knowledge. May our parents always instill in their sons a desire to go on a mission.
 
-God bless our missionary homes. May he also bless our missionaries, as promised by President John Taylor, who said of missionaries, “… he is commissioned of the great Jehovah to bear a message … and God has promised to sustain him. He has always sustained His faithful Elders, and He always will.” (*Journal of Discourses,* vol. 24, p. 35.)
+God bless our missionary homes. May he also bless our missionaries, as promised by President John Taylor, who said of missionaries, “… he is commissioned of the great Jehovah to bear a message … and God has promised to sustain him. He has always sustained His faithful Elders, and He always will.” (*Journal of Discourses,* vol. 24, p. 35.)
 
 May your sons respond to the great call that shall be theirs, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Missionary_Work

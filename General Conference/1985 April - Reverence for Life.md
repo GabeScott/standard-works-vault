@@ -1,5 +1,7 @@
 # Reverence for Life
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -93,31 +95,29 @@ Life comes from life. It is a gift from our Heavenly Father. It is eternal, as h
 
 
 
-[^1]: Christopher Tietze, *Induced Abortion: A World Review,* 4th ed. (New York: Population Council, 1981), p. 19.
+[^1]: Christopher Tietze, *Induced Abortion: A World Review,* 4th ed. (New York: Population Council, 1981), p. 19.
 
-[^2]: Tietze, *Induced Abortion,* pp. 7, 19–37.
+[^2]: Tietze, *Induced Abortion,* pp. 7, 19–37.
 
-[^3]: See Stanley K. Henshaw, Jacqueline Darroch Forrest, Ellen Sullivan, and Christopher Tietze, “Abortion Services in the United States, 1979 and 1980,” *Family Planning Perspective,* Jan./Feb. 1982, pp. 1, 7.
+[^3]: See Stanley K. Henshaw, Jacqueline Darroch Forrest, Ellen Sullivan, and Christopher Tietze, “Abortion Services in the United States, 1979 and 1980,” *Family Planning Perspective,* Jan./Feb. 1982, pp. 1, 7.
 
-[^4]: Henshaw, et al., “Abortion Services,” *Family Planning Perspective,* p. 6.
+[^4]: Henshaw, et al., “Abortion Services,” *Family Planning Perspective,* p. 6.
 
-[^5]: See Center for Disease Control, *Annual Summary: Abortion Surveillance, 1979–80,* U.S. Department of Health, Education, and Welfare, p. 130.
+[^5]: See Center for Disease Control, *Annual Summary: Abortion Surveillance, 1979–80,* U.S. Department of Health, Education, and Welfare, p. 130.
 
-[^6]: See [[Exodus 20.13|Ex. 20:13]]; [[Deuteronomy 5.17|Deut. 5:17]]; [[Matthew 5.21|Matt. 5:21]]; [[Mark 10.19|Mark 10:19]]; [[Luke 18.20|Luke 18:20]]; [[Romans 13.9|Rom. 13:9]]; [[James 2.11|James 2:11]]; [[Mosiah 13.21|Mosiah 13:21]]; [[3 Nephi 12.21|3 Ne. 12:21]]; [[D&C 42.18|D&C 42:18–19]][[D&C 42.19|]]; [[D&C 132.36|132:36]].
+[^6]: See [[Exodus 20.13|Ex. 20:13]]; [[Deuteronomy 5.17|Deut. 5:17]]; [[Matthew 5.21|Matt. 5:21]]; [[Mark 10.19|Mark 10:19]]; [[Luke 18.20|Luke 18:20]]; [[Romans 13.9|Rom. 13:9]]; [[James 2.11|James 2:11]]; [[Mosiah 13.21|Mosiah 13:21]]; [[3 Nephi 12.21|3 Ne. 12:21]]; [[D&C 42.18|D&C 42:18–19]][[D&C 42.19|]]; [[D&C 132.36|132:36]].
 
 [^7]: John Calvin, *Commentaries on the Four Last Books of Moses Arranged in the Form of a Harmony,* 24 vols., trans. Charles William Bingham (Grand Rapids, Michigan: William B. Eerdmans Publishing Company, 1950), 3:42 ([[Exodus 21.22|Ex. 21:22]]).
 
 [^8]: See U.S. Senate Committee on the Judiciary, *The Human Life Bill: Hearings on S. 158,* 97th Congress, 1st session, 1981.
 
-[^9]: See J. Willis Hurst, R. Bruce Logue, Robert C. Schlant, and Nanette Kass Wenger, *The Heart,* 4th ed. (New York: McGraw-Hill, 1978), p. 7.
+[^9]: See J. Willis Hurst, R. Bruce Logue, Robert C. Schlant, and Nanette Kass Wenger, *The Heart,* 4th ed. (New York: McGraw-Hill, 1978), p. 7.
 
-[^10]: See [[Leviticus 26.3|Lev. 26:3–15]][[Leviticus 26.4|]][[Leviticus 26.5|]][[Leviticus 26.6|]][[Leviticus 26.7|]][[Leviticus 26.8|]][[Leviticus 26.9|]][[Leviticus 26.10|]][[Leviticus 26.11|]][[Leviticus 26.12|]][[Leviticus 26.13|]][[Leviticus 26.14|]][[Leviticus 26.15|]]; [[Joshua 1.7|Josh. 1:7–8]][[Joshua 1.8|]]; [[1 Kings 2.3|1 Kgs. 2:3]]; [[2 Kings 18.7|2 Kgs. 18:7]]; [[2 Chronicles 24.20|2 Chr. 24:20]]; [[2 Chronicles 26.5|26:5]]; [[2 Chronicles 31.21|31:21]]; [[Ezra 6.14|Ezra 6:14]]; [[Job 36.11|Job 36:11]]; [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 4.14|4:14]]; [[2 Nephi 1.9|2 Ne. 1:9, 20, 31]][[2 Nephi 1.20|]][[2 Nephi 1.31|]]; [[2 Nephi 4.4|4:4]]; [[2 Nephi 5.10|5:10–11]][[2 Nephi 5.11|]]; [[Jarom 1.9|Jarom 1:9]]; [[Omni 1.6|Omni 1:6]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Mosiah 2.22|2:22, 31]][[Mosiah 2.31|]]; [[Alma 9.13|Alma 9:13]]; [[Alma 36.1|36:1, 30]][[Alma 36.30|]]; [[Alma 37.13|37:13]]; [[Alma 38.1|38:1]]; [[Alma 45.6|45:6–8]][[Alma 45.7|]][[Alma 45.8|]]; [[Alma 48.15|48:15, 25]][[Alma 48.25|]]; [[Alma 50.20|50:20]]; [[Helaman 3.20|Hel. 3:20]]; [[3 Nephi 5.22|3 Ne. 5:22]]; [[D&C 9.13|D&C 9:13]].
+[^10]: See [[Leviticus 26.3|Lev. 26:3–15]][[Leviticus 26.4|]][[Leviticus 26.5|]][[Leviticus 26.6|]][[Leviticus 26.7|]][[Leviticus 26.8|]][[Leviticus 26.9|]][[Leviticus 26.10|]][[Leviticus 26.11|]][[Leviticus 26.12|]][[Leviticus 26.13|]][[Leviticus 26.14|]][[Leviticus 26.15|]]; [[Joshua 1.7|Josh. 1:7–8]][[Joshua 1.8|]]; [[1 Kings 2.3|1 Kgs. 2:3]]; [[2 Kings 18.7|2 Kgs. 18:7]]; [[2 Chronicles 24.20|2 Chr. 24:20]]; [[2 Chronicles 26.5|26:5]]; [[2 Chronicles 31.21|31:21]]; [[Ezra 6.14|Ezra 6:14]]; [[Job 36.11|Job 36:11]]; [[1 Nephi 2.20|1 Ne. 2:20]]; [[1 Nephi 4.14|4:14]]; [[2 Nephi 1.9|2 Ne. 1:9, 20, 31]][[2 Nephi 1.20|]][[2 Nephi 1.31|]]; [[2 Nephi 4.4|4:4]]; [[2 Nephi 5.10|5:10–11]][[2 Nephi 5.11|]]; [[Jarom 1.9|Jarom 1:9]]; [[Omni 1.6|Omni 1:6]]; [[Mosiah 1.7|Mosiah 1:7]]; [[Mosiah 2.22|2:22, 31]][[Mosiah 2.31|]]; [[Alma 9.13|Alma 9:13]]; [[Alma 36.1|36:1, 30]][[Alma 36.30|]]; [[Alma 37.13|37:13]]; [[Alma 38.1|38:1]]; [[Alma 45.6|45:6–8]][[Alma 45.7|]][[Alma 45.8|]]; [[Alma 48.15|48:15, 25]][[Alma 48.25|]]; [[Alma 50.20|50:20]]; [[Helaman 3.20|Hel. 3:20]]; [[3 Nephi 5.22|3 Ne. 5:22]]; [[D&C 9.13|D&C 9:13]].
 
 [^11]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (Salt Lake City: Bookcraft, 1965–75), 3:11.
 
-[^12]: *Ensign,* Nov. 1975, p. 6.
+[^12]: *Ensign,* Nov. 1975, p. 6.
 
+[^13]: *General Handbook of Instructions, 1983,* p. 78.
 
-
-
-#Abortion

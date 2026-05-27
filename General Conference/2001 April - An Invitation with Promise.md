@@ -1,5 +1,7 @@
 # An Invitation with Promise
 
+Gordon B. Hinckley
+
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2001 General Conference*
@@ -48,11 +50,11 @@ The Lord sets forth the way in which such progress is made. Said He, “Wherefor
 
 Holding to this course provides Latter-day Saints the means for avoiding the treacherous shoals of worldliness. Living this way enables members of the Church to become the covenant people of the Lord. For our time, we have the following prophetic guidance from President Hinckley on how this can be done. I quote:
 
-“We are a covenant people. I have had the feeling that if we could just encourage our people to live by three or four covenants everything else would take care of itself. …
+“We are a covenant people. I have had the feeling that if we could just encourage our people to live by three or four covenants everything else would take care of itself. …
 
-“*The first of these is the covenant of the sacrament,* in which we take upon ourselves the name of the Savior and agree to keep His commandments with the promise in His covenant that He will bless us with His spirit. …
+“*The first of these is the covenant of the sacrament,* in which we take upon ourselves the name of the Savior and agree to keep His commandments with the promise in His covenant that He will bless us with His spirit. …
 
-“*Second, the covenant of tithing.* … The promise … is that He will stay the destroyer and open the windows of heaven and pour down blessings that there will not be room enough to receive them. …
+“*Second, the covenant of tithing.* … The promise … is that He will stay the destroyer and open the windows of heaven and pour down blessings that there will not be room enough to receive them. …
 
 “*Three, the covenants of the temple:* Sacrifice, the willingness to sacrifice for this the Lord’s work—and inherent in that law of sacrifice is the very essence of the Atonement. … Consecration, which is associated with it, a willingness to give everything, if need be, to help in the onrolling of this great work. And a covenant of love and loyalty one to another in the bonds of marriage, fidelity, chastity, morality.
 
@@ -75,13 +77,13 @@ And so, fear not. The things deemed weak by the world overthrow evils that appea
 
 [^3]: [[D&C 84.49|D&C 84:49]].
 
-[^4]: [[1 Timothy 6.10|1 Tim. 6:10]].
+[^4]: [[1 Timothy 6.10|1 Tim. 6:10]].
 
 [^5]: [[D&C 1.36|D&C 1:36]].
 
 [^6]: David O. McKay, in Conference Report, Apr. 1964, 5.
 
-[^7]: [[JST Matthew 6.38|JST, Matt. 6:38]]; see [[Matthew 6.note33a|Matt. 6:33]], footnote *a.*
+[^7]: [JST, Matt. 6:38](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/6?lang=eng&id=p38#note38); see [Matt. 6:33](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a), footnote *a.*
 
 [^8]: *Teachings of Gordon B. Hinckley* (1997), 146–47; emphasis added.
 
@@ -91,8 +93,3 @@ And so, fear not. The things deemed weak by the world overthrow evils that appea
 
 [^11]: See [[D&C 1.19|D&C 1:19–23]][[D&C 1.20|]][[D&C 1.21|]][[D&C 1.22|]][[D&C 1.23|]].
 
-
-
-
-
-#Covenants #Evil #Family #Fasting #Greed #Home #Morality #Sacrament #Sacrifice #Safety #Satan #Spirituality #Temples #Temptation #Tithing #Worldliness

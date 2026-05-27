@@ -1,6 +1,8 @@
 # The Role of Fathers
 
-By President A. Theodore Tuttle - *Of the First Council of the Seventy*
+Harold B. Lee
+
+By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -10,7 +12,7 @@ There is genuine concern over the diminishing role of the father in the home. Hi
 
 The father is the patriarch in the home. This means that the father is the presiding authority. This does not mean that he should be dictatorial. Modern scriptures set forth qualifications for all who preside:
 
-“No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned. …” ([[D&C 121.41|D&C 121:41]].)
+“No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned. …” ([[D&C 121.41|D&C 121:41]].)
 
 In reality, each family is a dominion within itself. Father heads that government. In the beginning it was the only government on the earth and was passed down from Adam to his descendants. Properly organized in the Church, the father is the patriarch of an eternal family unit. Heaven, to us, will be simply an extension of an ideal home. As the presiding priesthood officer, the father fills an irreplaceable role.
 
@@ -40,9 +42,9 @@ The story is told of an elementary teacher who had students write essays in hope
 
 God help us to be real companions.
 
-A father is a teacher. The Lord has commanded sons and daughters to honor their parents and to give heed to their counsel. The words that open that great volume of scripture, the Book of Mormon, ought to be our guide as fathers: “… having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
+A father is a teacher. The Lord has commanded sons and daughters to honor their parents and to give heed to their counsel. The words that open that great volume of scripture, the Book of Mormon, ought to be our guide as fathers: “… having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
 
-Enos, likewise, credited his father for his teachings: “… knowing my father that he was a just man—for he taught me in his language, and also the nurture and admonition of the Lord—and blessed be the name of my God for it. …” ([[Enos 1.1|Enos 1:1]].)
+Enos, likewise, credited his father for his teachings: “… knowing my father that he was a just man—for he taught me in his language, and also the nurture and admonition of the Lord—and blessed be the name of my God for it. …” ([[Enos 1.1|Enos 1:1]].)
 
 Have you fathers noticed that the present Melchizedek Priesthood lessons are like father-training lessons? I cite an example:
 
@@ -69,8 +71,3 @@ I know that God lives. I know that Jesus is the Christ. I know that he guides th
 
 
 
-
-
-
-
-#Discipline #Fatherhood #Priesthood

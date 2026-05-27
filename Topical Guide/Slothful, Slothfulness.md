@@ -1,7 +1,6 @@
 # Slothful, Slothfulness
 
-
-*See also* [[Apathy.md|Apathy]]; [[Idleness, Idle, Idler.md|Idleness]]; [[Laziness.md|Laziness]]; [[Sluggard.md|Sluggard]]
+*See also* [[Apathy.md|Apathy]]; [[Idleness.md|Idleness]]; [[Laziness.md|Laziness]]; [[Sluggard.md|Sluggard]]
 
 be not *slothful* to go, [[Judges 18.9|Judges 18:9]].
 
@@ -35,9 +34,9 @@ would ye rather harden your hearts in unbelief, and be *slothful*, [[Alma 33.21|
 
 They were *slothful*, and forgot to exercise their faith, [[Alma 37.41|Alma 37:41]].
 
-judgments ... upon this people, because of their exceeding *slothfulness*, [[Alma 60.14|Alma 60:14]].
+judgments … upon this people, because of their exceeding *slothfulness*, [[Alma 60.14|Alma 60:14]].
 
-he that is compelled ... is a *slothful* and not a wise servant, [[D&C 58.26|D&C 58:26]].
+he that is compelled … is a *slothful* and not a wise servant, [[D&C 58.26|D&C 58:26]].
 
 keep *slothfulness* and uncleanness far from you, [[D&C 90.18|D&C 90:18]].
 

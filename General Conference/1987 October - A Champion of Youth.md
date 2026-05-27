@@ -1,5 +1,7 @@
 # A Champion of Youth
 
+Ezra Taft Benson
+
 By Elder Vaughn J. Featherstone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -14,11 +16,11 @@ Some who work with youth may feel that they do not “fit” the calling. It is 
 
 At an encampment in Finland, the Scouts decided I should know how to sauna. Finns heat their saunas to 170 or 180 degrees. President Olli Roto, the stake president who was teaching me, along with the Scouts, who were experts, made a small bundle of birch branches. When we really began to perspire, he took the bundle of birch leaves and swatted me all over my back, chest, and legs, and said, “That brings the blood to the surface.” I said, “It works.” Then we ran down and dove into the Baltic Sea, then went back into the sauna. It’s amazing what we learn when we’re working with youth.
 
-Elder Orson F. Whitney said: “You parents of the wilful and the wayward! Don’t give them up. Don’t cast them off. They are not utterly lost. The Shepherd will find his sheep. They were his before they were yours—long before he entrusted them to your care; and you cannot begin to love them as he loves them. They have but strayed in ignorance from the Path of Right, \[but\] God is merciful to ignorance. Only the fulness of knowledge brings the fulness of accountability. Our Heavenly Father is far more merciful, infinitely more charitable, than even the best of his servants, and the Everlasting Gospel is mightier in power to save than our narrow finite minds can comprehend” (in Conference Report, Apr. 1929, p. 110).
+Elder Orson F. Whitney said: “You parents of the wilful and the wayward! Don’t give them up. Don’t cast them off. They are not utterly lost. The Shepherd will find his sheep. They were his before they were yours—long before he entrusted them to your care; and you cannot begin to love them as he loves them. They have but strayed in ignorance from the Path of Right, \[but\] God is merciful to ignorance. Only the fulness of knowledge brings the fulness of accountability. Our Heavenly Father is far more merciful, infinitely more charitable, than even the best of his servants, and the Everlasting Gospel is mightier in power to save than our narrow finite minds can comprehend” (in Conference Report, Apr. 1929, p. 110).
 
 Elder Lee in his talk referred to Horace Mann, who was “called to dedicate a great school for boys. … He said, ‘If this school costing all the millions that it has cost is able to save but one boy, it is worth all that it has cost.’ One of his friends said to him after the meeting, ‘You let your enthusiasm run away with you, didn’t you? You don’t mean that the millions we have spent here would be worth it all if we saved just one boy.’ Horace Mann looked at him and replied, ‘No, my friend, it wouldn’t be too much to spend if that one boy were my son.’”
 
-Then Elder Lee with great power and emotion said: “I want to tell you it wouldn’t be too much if that were one of my grandsons. They’re precious to me and some of them are stubborn, hard-headed, and rascals just like their grandfather, hard to manage and difficult. If somebody, please, God, would just steer them past this dangerous age so that maybe they will find themselves like someone tried to help me when I was at that dangerous age, I would be most grateful” (*A Leader—The Champion of Youth,* p. 3).
+Then Elder Lee with great power and emotion said: “I want to tell you it wouldn’t be too much if that were one of my grandsons. They’re precious to me and some of them are stubborn, hard-headed, and rascals just like their grandfather, hard to manage and difficult. If somebody, please, God, would just steer them past this dangerous age so that maybe they will find themselves like someone tried to help me when I was at that dangerous age, I would be most grateful” (*A Leader—The Champion of Youth,* p. 3).
 
 The youth of today are wonderful. Elder L. Tom Perry, the Utah South Area Presidency, and the Young Women presidency recently held meetings for all the seminary students in the Salt Lake area. In Salt Lake City, youth filled the Tabernacle, the Assembly Hall, and the Salt Palace auditorium, and 4,000 youth crowded the grounds of Temple Square and listened to the public address system. We had 23,000 young people in the Marriott Center at BYU, 3,200 at Dixie College, and over 3,000 at Snow College. The total count exceeded the number of seminary students enrolled by 5,000.
 
@@ -32,7 +34,7 @@ Our youth influence their peer groups for good. President Wilford Woodruff said 
 
 I believe the promise of Ammon to his brethren applies to the youth today. In the 26th chapter of Alma we read: “Yea, they shall not be beaten down by the storm at the last day; yea, neither shall they be harrowed up by the whirlwinds; but when the storm cometh they shall be gathered together in their place, that the storm cannot penetrate to them; yea, neither shall they be driven with fierce winds whithersoever the enemy listeth to carry them.
 
-“But behold, they are in the hands of the Lord of the harvest, and they are his; and he will raise them up at the last day” ([[Alma 26.6|vs. 6–7]][[Alma 26.7|]]).
+“But behold, they are in the hands of the Lord of the harvest, and they are his; and he will raise them up at the last day” ([[Alma 26.6|vs. 6–7]][[Alma 26.7|]]).
 
 This is a chosen generation.
 
@@ -42,7 +44,7 @@ Some time back, I was in Raymond, Alberta, Canada. Debbie, a beautiful teenage g
 
 What a blessing it is to the Church when brothers and sisters are filled with that kind of love and respect for each other!
 
-In April 1945 Elder Harold B. Lee talked about our young men in the military. He said, “I listened to a doctor recently who said that the medical journals reported that the boys who had become mentally unbalanced in large majority \[in World War II\], were the boys who had broken homes, whose wives or sweethearts had been unfaithful at home.” Then he said this: “We have heard much in this conference about our boys. We have heard but little about our girls” (in Conference Report, Apr. 1945, p. 165).
+In April 1945 Elder Harold B. Lee talked about our young men in the military. He said, “I listened to a doctor recently who said that the medical journals reported that the boys who had become mentally unbalanced in large majority \[in World War II\], were the boys who had broken homes, whose wives or sweethearts had been unfaithful at home.” Then he said this: “We have heard much in this conference about our boys. We have heard but little about our girls” (in Conference Report, Apr. 1945, p. 165).
 
 Thank God for great women like President Dwan Young and President Ardeth Kapp, who are great champions of youth. These are wonderful, noble, great women with vision and understanding.
 
@@ -56,7 +58,7 @@ President Gordon B. Hinckley, during the February 1985 Diamond Jubilee of Scouti
 
 “What a wonderful thing it is to plant in the heart of a boy the compelling axiom—‘Be prepared.’ Be prepared for what? For tieing knots, yes. Knot tieing is Tenderfoot duty, but it is important. In one sense this whole business of living and doing is one of tieing knots, the kind of knots that will hold and not give under stress and strain. We see all around us the evidence of failure, of knots that slipped when they should have held. They are evident in career failures, in business failures, in professional failures, in marriage failures. To be able to tie the right knot for the right reason, for the right occasion, and to have it hold against every stress is a part of the process of being prepared” (Boy Scouts Program, 10 Feb. 1985).
 
-And President Thomas S. Monson’s entire life has been committed to the youth. He sits on the National Executive Board of the Boy Scouts of America. His talks over the years have reflected a special love for youth. Who will ever forget his talk “‘Run, Boy, Run’”? (in Conference Report, Oct. 1982, pp. 25–29; or *Ensign,* Nov. 1982, pp. 19–21).
+And President Thomas S. Monson’s entire life has been committed to the youth. He sits on the National Executive Board of the Boy Scouts of America. His talks over the years have reflected a special love for youth. Who will ever forget his talk “‘Run, Boy, Run’”? (in Conference Report, Oct. 1982, [[1982 October - “Run, Boy, Run!”.md|pp. 25–29]]; or *Ensign,* Nov. 1982, pp. 19–21).
 
 Donald Dowdle, a great friend of mine, sat in a meeting years back. A young counselor in the stake presidency, Thomas S. Monson, had just concluded speaking. The old patriarch in the stake stood up in the congregation and said, “Thomas Monson will sit in the Quorum of Twelve Apostles.” Then he sat down. Indeed, Thomas Monson would and has. And what a towering champion of youth he has been!
 
@@ -76,15 +78,15 @@ I think Lord Baden-Powell was endowed from on high with a fire burning in his bo
 
 “Nature study will show you how full of beautiful and wonderful things God has made the world for you to enjoy. Be contented with what you have got and make the best of it. Look on the bright side of things instead of the gloomy one.
 
-“But the real way to get happiness is by giving out happiness to other people. Try and leave this world a little better than you found it and when your turn comes to die, you can die happy in feeling that at any rate you have not wasted your time but have *done your best.* ‘Be Prepared’ in this way, to live happy and to die happy—stick to your Scout promise always—even after you have ceased to be a boy—and God help you to do it. Your friend, Baden-Powell” (in *Baden-Powell,* E. E. Reynolds, New York: Oxford University Press, 1957, p. 264).
+“But the real way to get happiness is by giving out happiness to other people. Try and leave this world a little better than you found it and when your turn comes to die, you can die happy in feeling that at any rate you have not wasted your time but have *done your best.* ‘Be Prepared’ in this way, to live happy and to die happy—stick to your Scout promise always—even after you have ceased to be a boy—and God help you to do it. Your friend, Baden-Powell” (in *Baden-Powell,* E. E. Reynolds, New York: Oxford University Press, 1957, p. 264).
 
 Now to my young friends also, from one who loves you:
 
 What you do now, today, may have far-reaching consequences. I believe today’s Aaronic Priesthood and young women of the Church will lead the youth of the world through the most trying time in history. It is time for the Aaronic Priesthood to come of age. The rod of iron leading to the tree of life for you, our young men, may well be the implementation of the complete and full work of the Aaronic Priesthood. As we marshal your forces in your true identity as deacons, teachers, and priests in the holy Aaronic Priesthood, we mobilize an army of Israel such as has never been known before in the Church. Your numbers are legion. I believe you will be expected to perform the most important work in this dispensation, with the exception of the work done by the Prophet Joseph Smith.
 
-President Spencer W. Kimball said: “When I read Church history, I am amazed at the boldness of the early brethren as they went out into the world. They seemed to find a way. Even in persecution and hardship, they went and opened doors which evidently had been allowed to sag on their hinges and many of them to close. …
+President Spencer W. Kimball said: “When I read Church history, I am amazed at the boldness of the early brethren as they went out into the world. They seemed to find a way. Even in persecution and hardship, they went and opened doors which evidently had been allowed to sag on their hinges and many of them to close. …
 
-“These men of valor began to walk the earth with dignity and honor, with mantles on their shoulders, and keys in their hands and love in their hearts” (address delivered at Regional Representatives’ seminar, 4 Apr. 1974, p. 9).
+“These men of valor began to walk the earth with dignity and honor, with mantles on their shoulders, and keys in their hands and love in their hearts” (address delivered at Regional Representatives’ seminar, 4 Apr. 1974, p. 9).
 
 My faithful young friends, you can match their boldness stride for stride. You can walk with equal dignity and honor, with the mantle on your shoulders and keys in your hands and love in your hearts.
 
@@ -97,8 +99,3 @@ God bless you, youth of the noble birthright, I pray in the name of Jesus Christ
 
 
 
-
-
-
-
-#Scouting #Youth

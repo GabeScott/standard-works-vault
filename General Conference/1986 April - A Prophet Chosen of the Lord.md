@@ -1,5 +1,7 @@
 # A Prophet Chosen of the Lord
 
+Ezra Taft Benson
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -12,11 +14,11 @@ This conference is historic because we will be given the opportunity to raise ou
 
 The Church of Jesus Christ of Latter-day Saints proclaims to the world that this church is a restoration of Christ’s church. A restoration was necessary because prophets and Apostles, who were the foundation of the Lord’s original church, were put to death or otherwise taken. The Church today is built on a foundation of prophets and Apostles, with Jesus Christ as its chief cornerstone. It is therefore not a reformation, a revision, a reorganization, or a mere sect. It is the Church of Jesus Christ restored in these latter days.
 
-A distinguishing feature of the Church is the claim to continuous revelation from the Lord—“the making known of divine truth by communications from its heavens.” (James E. Talmage, *The Articles of Faith,* 12th ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924, p. 296.) Today, the Lord’s Church is guided by the same relationship with Deity that existed in previous dispensations.
+A distinguishing feature of the Church is the claim to continuous revelation from the Lord—“the making known of divine truth by communications from its heavens.” (James E. Talmage, *The Articles of Faith,* 12th ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924, p. 296.) Today, the Lord’s Church is guided by the same relationship with Deity that existed in previous dispensations.
 
 This claim is not made lightly. I know there is revelation, as I am a witness to sacred things also experienced by others who administer His work.
 
-The principle of revelation by the Holy Ghost is a fundamental principle of the Lord’s Church. Prophets of God receive revelation by this process. Individual members of the Church may also receive revelation to confirm truth. The Prophet Joseph Smith told us that “no man can receive the Holy Ghost without receiving revelation.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1977, p. 328.)
+The principle of revelation by the Holy Ghost is a fundamental principle of the Lord’s Church. Prophets of God receive revelation by this process. Individual members of the Church may also receive revelation to confirm truth. The Prophet Joseph Smith told us that “no man can receive the Holy Ghost without receiving revelation.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1977, p. 328.)
 
 On April 6, 1830—the day the Church was organized in this dispensation—the Lord revealed to members of His church how they should regard the words of His appointed prophet with these instructions:
 
@@ -38,9 +40,9 @@ This divinely revealed procedure for installing a new First Presidency of the Ch
 
 Several years ago President Spencer W. Kimball, then a member of the Twelve Apostles, on such an occasion as this, said:
 
-“It is reassuring to know that \[a new President is\] … not elected through committees and conventions with all their conflicts, criticisms, and by the vote of men, but \[is\] called of God and then sustained by the people. …
+“It is reassuring to know that \[a new President is\] … not elected through committees and conventions with all their conflicts, criticisms, and by the vote of men, but \[is\] called of God and then sustained by the people. …
 
-“The pattern divine allows for no errors, no conflicts, no ambitions, no ulterior motives. The Lord has reserved for himself the calling of his leaders over his church.” (*Ensign,* Jan. 1973, p. 33.)
+“The pattern divine allows for no errors, no conflicts, no ambitions, no ulterior motives. The Lord has reserved for himself the calling of his leaders over his church.” (*Ensign,* Jan. 1973, p. 33.)
 
 The calling of Ezra Taft Benson as the thirteenth President of The Church of Jesus Christ of Latter-day Saints will long be remembered, particularly by the seven newest members of the Quorum of the Twelve, who experienced for the first time the holy direction we received in the calling of a President of the Church. After much fasting and prayer, and the seeking of personal revelation to know the mind and will of God, it was confirmed to our souls who should be called—even Ezra Taft Benson. This I know! With that heavenly confirmation to each of those present, Ezra Taft Benson was ordained and set apart on Sunday, November 10, 1985, as prophet, seer, and revelator, and President of The Church of Jesus Christ of Latter-day Saints.
 
@@ -48,7 +50,7 @@ What kind of preparation had the Lord given to this servant whom we will sustain
 
 He was reared on a small farm in Whitney, Idaho, the eldest of eleven children. His stalwart parents had great faith in God. They taught their children that, in spite of difficulties and hardships, they could always go to the Lord and He would give them strength and help.
 
-President Benson’s father lovingly counseled his young son: “Remember that whatever you do or wherever you are, you are never alone. Our Heavenly Father is always near. You can reach out and receive His aid through prayer.” On many occasions, our beloved prophet has stated: “\[This is\] prized above any other advice I have ever received. It has become an integral part of me, an anchor, a constant source of strength.” (Frederick W. Babbel, *On Wings of Faith,* Salt Lake City: Bookcraft, 1972, p. 85.)
+President Benson’s father lovingly counseled his young son: “Remember that whatever you do or wherever you are, you are never alone. Our Heavenly Father is always near. You can reach out and receive His aid through prayer.” On many occasions, our beloved prophet has stated: “\[This is\] prized above any other advice I have ever received. It has become an integral part of me, an anchor, a constant source of strength.” (Frederick W. Babbel, *On Wings of Faith,* Salt Lake City: Bookcraft, 1972, p. 85.)
 
 Prayer has sustained him throughout his life, including during his early missionary experiences in England, where on one occasion his very life was in peril.
 
@@ -58,13 +60,13 @@ Called as a new Apostle in 1943, Elder Benson soon received from the First Presi
 
 Frederick W. Babbel, called to serve as executive secretary to Elder Benson while he was in Europe, wrote to his family:
 
-“The Lord knew what he was doing when he sent \[Elder\] Benson over here. He is a living apostle of God in every way. … I continue to marvel at his unwavering faith, his unflinching courage, his resolute determination and undaunted spirit. … He not only speaks to God, but he listens, and I’m sure God speaks with him even as he did with his apostles of old. … \[He is\] one of the humblest, most devoted men I have ever known, so kind in spirit and manner … a man surpassing all men I have known.” (*On Wings of Faith,* p. 125.)
+“The Lord knew what he was doing when he sent \[Elder\] Benson over here. He is a living apostle of God in every way. … I continue to marvel at his unwavering faith, his unflinching courage, his resolute determination and undaunted spirit. … He not only speaks to God, but he listens, and I’m sure God speaks with him even as he did with his apostles of old. … \[He is\] one of the humblest, most devoted men I have ever known, so kind in spirit and manner … a man surpassing all men I have known.” (*On Wings of Faith,* p. 125.)
 
 In this special assignment, President Benson was responsible for perhaps the largest distribution of welfare supplies to members that has been undertaken. Thousands of tons of food, clothing, bedding, and medical supplies were delivered to Saints in thirteen nations. It is significant that he will now be sustained as the President of the Church during the fiftieth anniversary of the welfare program.
 
 During that historic mission away from his family, Elder Benson held meetings with the Saints, reorganized the branches and missions, and lifted members’ spirits. To them he was an angel of mercy.
 
-Only by prayer and divine intervention was he able to accomplish that mission and gain entrance into some countries. He said, “I assure you I know the source of the success which attended our labors. … It would \[have been impossible\] … to accomplish the mission … without the directing power of the Almighty.” (In Conference Report, Apr. 1947, p. 152.)
+Only by prayer and divine intervention was he able to accomplish that mission and gain entrance into some countries. He said, “I assure you I know the source of the success which attended our labors. … It would \[have been impossible\] … to accomplish the mission … without the directing power of the Almighty.” (In Conference Report, Apr. 1947, p. 152.)
 
 For eight years he served in the cabinet of the president of the United States. Before the first Cabinet meeting, then-Secretary Benson suggested to President-elect Eisenhower that they commence with prayer. President Eisenhower spoke of the weight of responsibility on the new administration and the need for divine guidance, then called on the Secretary of Agriculture to open the meeting with prayer. That practice continued throughout the Eisenhower administration.
 
@@ -83,8 +85,3 @@ May God bless each of us with listening ears, to heed the counsel of our new Fir
 
 
 
-
-
-
-
-#Prophets #Spirituality

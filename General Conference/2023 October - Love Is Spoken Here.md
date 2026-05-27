@@ -1,6 +1,8 @@
 # Love Is Spoken Here
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+David A. Bednar
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -38,9 +40,9 @@ As we gather again at church each week to honor and rejoice in the Sabbath day, 
 
 When I ask local Church leaders what concerns them, both brothers and sisters say, “Some of our members are not accepting Church calls.” Calls to serve the Lord and each other in His Church give opportunity to increase in compassion, capacity, and humility. As we are set apart, we can receive the Lord’s inspiration to lift and strengthen others and ourselves. Of course, the changing circumstances and seasons of our lives may affect our ability to serve, but hopefully never our desire. With King Benjamin, we say, “If I had I would give”[^6] and offer all we can.
 
-Stake and ward leaders, let’s do our part. As we call (and release) brothers and sisters to serve in the Lord’s Church, let’s please do so with dignity and inspiration. Help each feel appreciated and that they can be successful. Please counsel with and listen to sister leaders. May we remember, as President J. Reuben Clark taught, in the Lord’s Church we serve where called, “which place one neither seeks nor declines.”[^7]
+Stake and ward leaders, let’s do our part. As we call (and release) brothers and sisters to serve in the Lord’s Church, let’s please do so with dignity and inspiration. Help each feel appreciated and that they can be successful. Please counsel with and listen to sister leaders. May we remember, as President J. Reuben Clark taught, in the Lord’s Church we serve where called, “which place one neither seeks nor declines.”[^7]
 
-When Sister Gong and I were married, Elder David B. Haight counseled: “Always hold a calling in the Church. Especially when life is busy,” he said, “you need to feel the Lord’s love for those you serve and for you as you serve.” I promise that love is spoken here, there, and everywhere as we answer yes to Church leaders to serve the Lord in His Church by His Spirit and our covenants.
+When Sister Gong and I were married, Elder David B. Haight counseled: “Always hold a calling in the Church. Especially when life is busy,” he said, “you need to feel the Lord’s love for those you serve and for you as you serve.” I promise that love is spoken here, there, and everywhere as we answer yes to Church leaders to serve the Lord in His Church by His Spirit and our covenants.
 
 The Lord’s restored Church can be an incubator for a Zion community. As we worship, serve, enjoy, and learn His love together, we anchor each other in His gospel. We may disagree politically or on social issues but find harmony as we sing together in the ward choir. We nurture connection and fight isolation as we regularly minister with our hearts in each other’s homes and neighborhoods.
 
@@ -87,20 +89,15 @@ In God’s plan, we will each transition one day from this life into the next li
 
 [^3]: See Howard Gardner, *Frames of Mind: The Theory of Multiple Intelligences* (2011).
 
-[^4]: A similar experience appears in Alonzo L. Gaskill, *Converted: True Conversion Stories from 15 Religions* (2017), 3.
+[^4]: A similar experience appears in Alonzo L. Gaskill, *Converted: True Conversion Stories from 15 Religions* (2017), 3.
 
-[^5]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^5]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^6]: [[Mosiah 4.24|Mosiah 4:24]].
 
-[^7]: J. Reuben Clark Jr., in Conference Report, Apr. 1951, 154.
+[^7]: J. Reuben Clark Jr., in Conference Report, Apr. 1951, 154.
 
-[^8]: [[1 John 4.18|1 John 4:18]]; see also [[Moroni 8.16|Moroni 8:16]].
+[^8]: [[1 John 4.18|1 John 4:18]]; see also [[Moroni 8.16|Moroni 8:16]].
 
 [^9]: [[Matthew 16.25|Matthew 16:25–26]][[Matthew 16.26|]]; see also [[Matthew 10.39|Matthew 10:39–40]][[Matthew 10.40|]]; [[Mark 8.35|Mark 8:35–36]][[Mark 8.36|]]; [[Luke 9.24|Luke 9:24–25]][[Luke 9.25|]]; [[Luke 17.33|17:33]]; [[John 12.25|John 12:25]].
 
-
-
-
-
-#Belonging #Church_Callings #Covenants #Jesus_Christ #Love #Reverence #Service #Unity

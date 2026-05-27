@@ -1,5 +1,7 @@
 # Dear Are the Sheep That Have Wandered
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -8,7 +10,7 @@ By President James E. Faust - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2003/04/dear-are-the-sheep-that-have-wandered?lang=eng)
 
-My dear brothers and sisters and friends, my message this morning is one of hope and solace to heartbroken parents who have done their best to rear their children in righteousness with love and devotion but have despaired because a child has rebelled or been led astray to follow the path of evil and destruction. In contemplating your deep anguish, I am reminded of the words of Jeremiah: “A voice was heard in Ramah, … Rahel weeping for her children refused to be comforted.” To this the Lord gave this welcome reassurance: “Refrain thy voice from weeping, … for thy work shall be rewarded … ; and they shall come again from the land of the enemy.”[^1]
+My dear brothers and sisters and friends, my message this morning is one of hope and solace to heartbroken parents who have done their best to rear their children in righteousness with love and devotion but have despaired because a child has rebelled or been led astray to follow the path of evil and destruction. In contemplating your deep anguish, I am reminded of the words of Jeremiah: “A voice was heard in Ramah, … Rahel weeping for her children refused to be comforted.” To this the Lord gave this welcome reassurance: “Refrain thy voice from weeping, … for thy work shall be rewarded … ; and they shall come again from the land of the enemy.”[^1]
 
 I must begin by testifying that the word of the Lord to parents in this Church is contained in the 68th section of the Doctrine and Covenants in this remarkable instruction: “And again, inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents.”[^2] Parents are instructed to “teach their children to pray, and to walk uprightly before the Lord.”[^3] As a father, grandfather, and great-grandfather I accept this as the word of the Lord, and as a servant of Jesus Christ I urge parents to follow this counsel as conscientiously as they can.
 
@@ -65,9 +67,9 @@ Let us not be arrogant but rather humbly grateful if our children are obedient a
 
 [^4]: [[D&C 68.28|D&C 68:28]].
 
-[^5]: Howard W. Hunter, in Conference Report, Oct. 1983, 94; or *Ensign,* Nov. 1983, 65.
+[^5]: Howard W. Hunter, in Conference Report, Oct. 1983, [[1983 October - Parents’ Concern for Children.md|94]]; or *Ensign,* Nov. 1983, 65.
 
-[^6]: [[2 Samuel 18.33|2 Samuel 18:33]].
+[^6]: [[2 Samuel 18.33|2 Samuel 18:33]].
 
 [^7]: [[Luke 15.32|Luke 15:32]].
 
@@ -99,8 +101,3 @@ Let us not be arrogant but rather humbly grateful if our children are obedient a
 
 [^21]: [[Jeremiah 31.16|Jeremiah 31:16]].
 
-
-
-
-
-#Children #Love #Parenthood #Repentance #Teaching

@@ -1,5 +1,7 @@
 # To Young Women and Men
 
+Ezra Taft Benson
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -66,7 +68,7 @@ There is a courage far greater than Gareth needed to face the black knight. It i
 
 You have an alarm system built into both body and spirit. In your body it is pain; in your spirit it is guilt—or spiritual pain. While neither pain nor guilt is pleasant, and an excess of either can be destructive, both are a protection, for they sound the alarm “Don’t do that again!”
 
-Be grateful for both. If the nerve endings in your hands were altered so that you couldn’t feel pain, you might put them in fire or machinery and destroy them. In your teenage heart of hearts, you know right from wrong. (See [[2 Nephi 2.5|2 Ne. 2:5]].) Learn to pay attention to that spiritual voice of warning within you. Even then, you will not get by without some mistakes.
+Be grateful for both. If the nerve endings in your hands were altered so that you couldn’t feel pain, you might put them in fire or machinery and destroy them. In your teenage heart of hearts, you know right from wrong. (See [[2 Nephi 2.5|2 Ne. 2:5]].) Learn to pay attention to that spiritual voice of warning within you. Even then, you will not get by without some mistakes.
 
 ## Forgiveness
 
@@ -74,7 +76,7 @@ Those who make one serious mistake tend to add another by assuming that it is th
 
 While your temptations are greater than were ours, that will be considered in the judgments of the Lord. He said that “his mercies \[are suited\] according to the conditions of … men.” ([[D&C 46.15|D&C 46:15]].) That is only just.
 
-A great contribution to Christian doctrine is the explanation in the Book of Mormon of how *justice* and *mercy* and *repentance* and *forgiveness* work together to erase transgressions. (See [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]].)
+A great contribution to Christian doctrine is the explanation in the Book of Mormon of how *justice* and *mercy* and *repentance* and *forgiveness* work together to erase transgressions. (See [[Alma 42.1|Alma 42]].)
 
 The discouraging idea that a mistake (or even a series of them) makes it everlastingly too late, does not come from the Lord. He has said that *if* we will repent, not only will He forgive us our transgressions, but He will forget them and remember our sins no more. (See [[Isaiah 43.25|Isa. 43:25]]; [[Hebrews 8.12|Heb. 8:12]]; [[Hebrews 10.17|10:17]]; [[Alma 36.19|Alma 36:19]]; [[D&C 58.42|D&C 58:42]].) Repentance is like soap; it can wash sin away. Ground-in dirt may take the strong detergent of discipline to get the stains out, but out they will come.
 
@@ -109,8 +111,3 @@ God bless you young women and young men who struggle through the worrisome teena
 
 
 
-
-
-
-
-#Agency #Courage #Forgiveness #Jesus_Christ #Obedience #Temptation #Youth

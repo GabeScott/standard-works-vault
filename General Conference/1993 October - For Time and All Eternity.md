@@ -1,5 +1,7 @@
 # For Time and All Eternity
 
+Gordon B. Hinckley
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -78,7 +80,7 @@ During World War II, men were called away to fight. In the emergency, wives and 
 
 In the October 1942 general conference, the First Presidency delivered a message to “the Saints in every land and clime,” in which they said, “By virtue of the authority in us vested as the First Presidency of the Church, we warn our people.”
 
-And they said: “Amongst His earliest commands to Adam and Eve, the Lord said: ‘Multiply and replenish the earth.’ He has repeated that command in our day. He has again revealed in this, the last dispensation, the principle of the eternity of the marriage covenant. …
+And they said: “Amongst His earliest commands to Adam and Eve, the Lord said: ‘Multiply and replenish the earth.’ He has repeated that command in our day. He has again revealed in this, the last dispensation, the principle of the eternity of the marriage covenant. …
 
 “The Lord has told us that it is the duty of every husband and wife to obey the command given to Adam to multiply and replenish the earth, so that the legions of choice spirits waiting for their tabernacles of flesh may come here and move forward under God’s great design to become perfect souls, for without these fleshly tabernacles they cannot progress to their God-planned destiny. Thus, every husband and wife should become a father and mother in Israel to children born under the holy, eternal covenant.
 
@@ -127,9 +129,9 @@ I bear witness of our Father’s plan for happiness, and bear testimony in the n
 
 [^1]: See [[D&C 76.24|D&C 76:24]]; see also [[Numbers 16.22|Num. 16:22]]; [[Hebrews 12.9|Heb. 12:9]].
 
-[^2]: See [[D&C 132.63|D&C 132:63]]; First Presidency, “The Origin of Man” (Nov. 1909), in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (Salt Lake City: Bookcraft, 1965–75), 4:203; see also Spencer W. Kimball, “The Blessings and Responsibilities of Womanhood,” *Ensign,* Mar. 1976, p. 71; Gordon B. Hinckley, in Conference Report, Oct. 1983, p. 115; or *Ensign,* Nov. 1983, p. 83.
+[^2]: See [[D&C 132.63|D&C 132:63]]; First Presidency, “The Origin of Man” (Nov. 1909), in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (Salt Lake City: Bookcraft, 1965–75), 4:203; see also Spencer W. Kimball, “The Blessings and Responsibilities of Womanhood,” *Ensign,* Mar. 1976, p. 71; Gordon B. Hinckley, in Conference Report, Oct. 1983, [[1983 October - Live Up to Your Inheritance.md|p. 115]]; or *Ensign,* Nov. 1983, p. 83.
 
-[^3]: See *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), pp. 348–49, 357, 365.
+[^3]: See *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), pp. 348–49, 357, 365.
 
 [^4]: See [[Abraham 3.24|Abr. 3:24–27]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]].
 
@@ -141,17 +143,17 @@ I bear witness of our Father’s plan for happiness, and bear testimony in the n
 
 [^8]: See [[Alma 42.2|Alma 42:2–5]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]].
 
-[^9]: See [[2 Nephi 9.28|2 Ne. 9:28]]; [[Alma 12.4|Alma 12:4–5]][[Alma 12.5|]]; [[Helaman 2.8|Hel. 2:8]]; [[3 Nephi 1.16|3 Ne. 1:16]]; [[D&C 10.12|D&C 10:12, 23]][[D&C 10.23|]]; [[Moses 4.3|Moses 4:3]].
+[^9]: See [[2 Nephi 9.28|2 Ne. 9:28]]; [[Alma 12.4|Alma 12:4–5]][[Alma 12.5|]]; [[Helaman 2.8|Hel. 2:8]]; [[3 Nephi 1.16|3 Ne. 1:16]]; [[D&C 10.12|D&C 10:12, 23]][[D&C 10.23|]]; [[Moses 4.3|Moses 4:3]].
 
-[^10]: See *Teachings of the Prophet Joseph Smith,* pp. 181, 297.
+[^10]: See *Teachings of the Prophet Joseph Smith,* pp. 181, 297.
 
-[^11]: See *Teachings of the Prophet Joseph Smith,* p. 181.
+[^11]: See *Teachings of the Prophet Joseph Smith,* p. 181.
 
-[^12]: See [[2 Nephi 2.18|2 Ne. 2:18]]; [[2 Nephi 28.20|28:20]].
+[^12]: See [[2 Nephi 2.18|2 Ne. 2:18]]; [[2 Nephi 28.20|28:20]].
 
 [^13]: See [[Alma 39.5|Alma 39:5]]; [[Moroni 9.9|Moro. 9:9]].
 
-[^14]: See [[D&C 130.2|D&C 130:2]]; [[D&C 131.2|131:2]]; [[1 Corinthians 11.11|1 Cor. 11:11]]; [[Ephesians 5.31|Eph. 5:31]].
+[^14]: See [[D&C 130.2|D&C 130:2]]; [[D&C 131.2|131:2]]; [[1 Corinthians 11.11|1 Cor. 11:11]]; [[Ephesians 5.31|Eph. 5:31]].
 
 [^15]: See [[Moses 6.8|Moses 6:8–9]][[Moses 6.9|]].
 
@@ -167,9 +169,9 @@ I bear witness of our Father’s plan for happiness, and bear testimony in the n
 
 [^21]: See [[Moses 4.7|Moses 4:7–12]][[Moses 4.8|]][[Moses 4.9|]][[Moses 4.10|]][[Moses 4.11|]][[Moses 4.12|]].
 
-[^22]: [[2 Nephi 2.25|2 Ne. 2:25]].
+[^22]: [[2 Nephi 2.25|2 Ne. 2:25]].
 
-[^23]: *Cowley and Whitney on Doctrine,* comp. Forace Green (Salt Lake City: Bookcraft, 1963), p. 287.
+[^23]: *Cowley and Whitney on Doctrine,* comp. Forace Green (Salt Lake City: Bookcraft, 1963), p. 287.
 
 [^24]: [[Moses 2.28|Moses 2:28]]; see also [[Genesis 1.28|Gen. 1:28]]; [[Genesis 9.1|9:1]].
 
@@ -177,11 +179,11 @@ I bear witness of our Father’s plan for happiness, and bear testimony in the n
 
 [^26]: See [[D&C 131.2|D&C 131:2]].
 
-[^27]: See “Our Wives and Our Mothers in the Eternal Plan” (address given in general Relief Society conference, 3 Oct. 1946), in *J. Reuben Clark: Selected Papers on Religion, Education, and Youth,* ed. David H. Yarn, Jr. (Provo: Brigham Young University Press, 1984), p. 62.
+[^27]: See “Our Wives and Our Mothers in the Eternal Plan” (address given in general Relief Society conference, 3 Oct. 1946), in *J. Reuben Clark: Selected Papers on Religion, Education, and Youth,* ed. David H. Yarn, Jr. (Provo: Brigham Young University Press, 1984), p. 62.
 
 [^28]: See [[Genesis 1.28|Gen. 1:28]], note 28c.
 
-[^29]: See [[D&C 75.28|D&C 75:28]]; [[1 Timothy 5.8|1 Tim. 5:8]].
+[^29]: See [[D&C 75.28|D&C 75:28]]; [[1 Timothy 5.8|1 Tim. 5:8]].
 
 [^30]: [[D&C 107.40|D&C 107:40–41]][[D&C 107.41|]]; see also [[D&C 84.14|D&C 84:14–16]][[D&C 84.15|]][[D&C 84.16|]].
 
@@ -193,20 +195,15 @@ I bear witness of our Father’s plan for happiness, and bear testimony in the n
 
 [^34]: [[D&C 121.37|D&C 121:37]].
 
-[^35]: See *Teachings of the Prophet Joseph Smith,* pp. 308, 367.
+[^35]: See *Teachings of the Prophet Joseph Smith,* pp. 308, 367.
 
 [^36]: In *Journal of Discourses,* 22:342; emphasis added.
 
-[^37]: In Conference Report, Oct. 1942, pp. 7, 11–12.
+[^37]: In Conference Report, Oct. 1942, pp. 7, 11–12.
 
 [^38]: See [[D&C 107.8|D&C 107:8–9, 22, 91]][[D&C 107.9|]][[D&C 107.22|]][[D&C 107.91|]].
 
 [^39]: See [[D&C 137.7|D&C 137:7–9]][[D&C 137.8|]][[D&C 137.9|]].
 
-[^40]: “Discourse by President Lorenzo Snow,” *Millennial Star,* 31 Aug. 1899, p. 547.
+[^40]: “Discourse by President Lorenzo Snow,” *Millennial Star,* 31 Aug. 1899, p. 547.
 
-
-
-
-
-#Marriage #Motherhood #Priesthood

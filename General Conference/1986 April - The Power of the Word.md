@@ -1,5 +1,7 @@
 # The Power of the Word
 
+Ezra Taft Benson
+
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1986 General Conference*
@@ -12,19 +14,19 @@ My dear brethren, what a thrilling sight it is to look out over this body of pri
 
 We live in a day of great challenge. We live in that time of which the Lord spoke when he said, “Peace shall be taken from the earth, and the devil shall have power over his own dominion.” ([[D&C 1.35|D&C 1:35]].) We live in that day which John the Revelator foresaw when “the dragon was wroth with the woman, and went to make war with the remnant of her seed, which keep the commandments of God, and have the testimony of Jesus Christ.” ([[Revelation 12.17|Rev. 12:17]].) The dragon is Satan; the woman represents the Church of Jesus Christ. Satan is waging war against the members of the Church who have testimonies and are trying to keep the commandments. And while many of our members are remaining faithful and strong, some are wavering. Some are falling. Some are fulfilling John’s prophecy that in the war with Satan, some Saints would be overcome. (See [[Revelation 13.7|Rev. 13:7]].)
 
-The prophet Lehi also saw our day in his great visionary dream of the tree of life. He saw that many people would wander blindly in the mists of darkness, which symbolized the temptations of the devil. (See [[1 Nephi 12.17|1 Ne. 12:17]].) He saw some fall away “in forbidden paths,” others drown in rivers of filthiness, and still others wander in “strange roads.” ([[1 Nephi 8.28|1 Ne. 8:28, 32]][[1 Nephi 8.32|]].) When we read of the spreading curse of drugs, or read of the pernicious flood of pornography and immorality, do any of us doubt that these are the forbidden paths and rivers of filthiness Lehi described?
+The prophet Lehi also saw our day in his great visionary dream of the tree of life. He saw that many people would wander blindly in the mists of darkness, which symbolized the temptations of the devil. (See [[1 Nephi 12.17|1 Ne. 12:17]].) He saw some fall away “in forbidden paths,” others drown in rivers of filthiness, and still others wander in “strange roads.” ([[1 Nephi 8.28|1 Ne. 8:28, 32]][[1 Nephi 8.32|]].) When we read of the spreading curse of drugs, or read of the pernicious flood of pornography and immorality, do any of us doubt that these are the forbidden paths and rivers of filthiness Lehi described?
 
 Not all of those Lehi saw perishing were of the world. Some had come to the tree and partaken of the fruit. In other words, some members of the Church today are among those souls Lehi saw which were lost.
 
-The Apostle Paul also saw our day. He described it as a time when such things as blasphemy, dishonesty, cruelty, unnatural affection, pride, and pleasure seeking would abound. (See [[2 Timothy 3.1|2 Tim. 3:1–7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]].) He also warned that “evil men and seducers shall wax worse and worse, deceiving, and being deceived.” ([[2 Timothy 3.13|2 Tim 3:13]].)
+The Apostle Paul also saw our day. He described it as a time when such things as blasphemy, dishonesty, cruelty, unnatural affection, pride, and pleasure seeking would abound. (See [[2 Timothy 3.1|2 Tim. 3:1–7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]].) He also warned that “evil men and seducers shall wax worse and worse, deceiving, and being deceived.” ([[2 Timothy 3.13|2 Tim 3:13]].)
 
 Such grim predictions by prophets of old would be cause for great fear and discouragement if those same prophets had not, at the same time, offered the solution. In their inspired counsel we can find the answer to the spiritual crises of our age.
 
-In his dream, Lehi saw an iron rod which led through the mists of darkness. He saw that if people would hold fast to that rod, they could avoid the rivers of filthiness, stay away from the forbidden paths, stop from wandering in the strange roads that lead to destruction. Later his son Nephi clearly explained the symbolism of the iron rod. When Laman and Lemuel asked, “What meaneth the rod of iron?” Nephi answered, “It was the word of God; and \[note this promise\] *whoso would hearken unto the word of God, and would hold fast unto it, they would never perish; neither could the temptations and the fiery darts of the adversary overpower them unto blindness, to lead them away to destruction.*” ([[1 Nephi 15.23|1 Ne. 15:23–24]][[1 Nephi 15.24|]]; italics added.) Not only will the word of God lead us to the fruit which is desirable above all others, but in the word of God and through it we can find the power to resist temptation, the power to thwart the work of Satan and his emissaries.
+In his dream, Lehi saw an iron rod which led through the mists of darkness. He saw that if people would hold fast to that rod, they could avoid the rivers of filthiness, stay away from the forbidden paths, stop from wandering in the strange roads that lead to destruction. Later his son Nephi clearly explained the symbolism of the iron rod. When Laman and Lemuel asked, “What meaneth the rod of iron?” Nephi answered, “It was the word of God; and \[note this promise\] *whoso would hearken unto the word of God, and would hold fast unto it, they would never perish; neither could the temptations and the fiery darts of the adversary overpower them unto blindness, to lead them away to destruction.*” ([[1 Nephi 15.23|1 Ne. 15:23–24]][[1 Nephi 15.24|]]; italics added.) Not only will the word of God lead us to the fruit which is desirable above all others, but in the word of God and through it we can find the power to resist temptation, the power to thwart the work of Satan and his emissaries.
 
-Paul’s message is the same as Lehi’s. After portraying the terrible wickedness of future times—future to him, but present to us!—he said this to Timothy: “But continue thou in the things which thou hast learned. …
+Paul’s message is the same as Lehi’s. After portraying the terrible wickedness of future times—future to him, but present to us!—he said this to Timothy: “But continue thou in the things which thou hast learned. …
 
-“From a child thou hast known the holy scriptures, *which are able to make thee wise unto salvation*.” ([[2 Timothy 3.14|2 Tim. 3:14–15]][[2 Timothy 3.15|]]; italics added.)
+“From a child thou hast known the holy scriptures, *which are able to make thee wise unto salvation*.” ([[2 Timothy 3.14|2 Tim. 3:14–15]][[2 Timothy 3.15|]]; italics added.)
 
 My dear brethren, this is an answer to the great challenge of our time. The word of God, as found in the scriptures, in the words of living prophets, and in personal revelation, has the power to fortify the Saints and arm them with the Spirit so they can resist evil, hold fast to the good, and find joy in this life.
 
@@ -32,17 +34,17 @@ Now to you priesthood leaders we say, look to the prophetic counsel of Lehi and 
 
 While none of those activities can be ignored and laid aside, they are not the most important thing you can do for those you serve. In recent years, time and again we have counseled you that certain activities bring greater spiritual returns than others. As early as 1970, President Harold B. Lee told the regional representatives:
 
-“We are convinced that our members are hungry for the gospel, undiluted, with its abundant truths and insights. … There are those who have seemed to forget that the most powerful weapons the Lord has given us against all that is evil are His own declarations, the plain simple doctrines of salvation as found in the scriptures.” (In Regional Representatives’ Seminar, 1 Oct. 1970, p. 6.)
+“We are convinced that our members are hungry for the gospel, undiluted, with its abundant truths and insights. … There are those who have seemed to forget that the most powerful weapons the Lord has given us against all that is evil are His own declarations, the plain simple doctrines of salvation as found in the scriptures.” (In Regional Representatives’ Seminar, 1 Oct. 1970, p. 6.)
 
 In a First Presidency message in 1976, President Kimball said:
 
-“I am convinced that each of us, at least some time in our lives, must discover the scriptures for ourselves—and not just discover them once, but rediscover them again and again. …
+“I am convinced that each of us, at least some time in our lives, must discover the scriptures for ourselves—and not just discover them once, but rediscover them again and again. …
 
-“The Lord is not trifling with us when he gives us these things, for ‘unto whomsoever much is given, of him shall be much required.’ ([[Luke 12.48|Luke 12:48]].) Access to these things means responsibility for them. We must study the scriptures according to the Lord’s commandment (see [[3 Nephi 23.1|3 Ne. 23:1–5]][[3 Nephi 23.2|]][[3 Nephi 23.3|]][[3 Nephi 23.4|]][[3 Nephi 23.5|]]); and we must let them govern our lives.” (*Ensign,* Sept. 1976, pp. 4–5.)
+“The Lord is not trifling with us when he gives us these things, for ‘unto whomsoever much is given, of him shall be much required.’ ([[Luke 12.48|Luke 12:48]].) Access to these things means responsibility for them. We must study the scriptures according to the Lord’s commandment (see [[3 Nephi 23.1|3 Ne. 23:1–5]][[3 Nephi 23.2|]][[3 Nephi 23.3|]][[3 Nephi 23.4|]][[3 Nephi 23.5|]]); and we must let them govern our lives.” (*Ensign,* Sept. 1976, pp. 4–5.)
 
-In April 1982, Elder Bruce R. McConkie spoke to the regional representatives about the priority the scriptures should take in our labors. He said: “We are so wound up in programs and statistics and trends, in properties, lands and mammon, and in achieving goals that will highlight the excellence of our work, that we have ‘omitted the weightier matters of the law.’ … However talented men may be in administrative matters; however eloquent they may be in expressing their views; however learned they may be in the worldly things—they will be denied the sweet whisperings of the Spirit that might have been theirs unless they pay the price of studying, pondering, and praying about the scriptures.” (In Regional Representatives’ Seminar, 2 Apr. 1982, pp. 1–2.)
+In April 1982, Elder Bruce R. McConkie spoke to the regional representatives about the priority the scriptures should take in our labors. He said: “We are so wound up in programs and statistics and trends, in properties, lands and mammon, and in achieving goals that will highlight the excellence of our work, that we have ‘omitted the weightier matters of the law.’ … However talented men may be in administrative matters; however eloquent they may be in expressing their views; however learned they may be in the worldly things—they will be denied the sweet whisperings of the Spirit that might have been theirs unless they pay the price of studying, pondering, and praying about the scriptures.” (In Regional Representatives’ Seminar, 2 Apr. 1982, pp. 1–2.)
 
-That same day, Elder Boyd K. Packer spoke to the stake presidents and regional representatives. He said: “Buildings and budgets, and reports and programs and procedures are very important. But, by themselves, they do not carry that essential spiritual nourishment and will not accomplish what the Lord has given us to do. … The right things, those with true spiritual nourishment, are centered in the scriptures.” (In Meeting with Stake Presidents and Regional Representatives, 2 Apr. 1982, pp. 1–2.)
+That same day, Elder Boyd K. Packer spoke to the stake presidents and regional representatives. He said: “Buildings and budgets, and reports and programs and procedures are very important. But, by themselves, they do not carry that essential spiritual nourishment and will not accomplish what the Lord has given us to do. … The right things, those with true spiritual nourishment, are centered in the scriptures.” (In Meeting with Stake Presidents and Regional Representatives, 2 Apr. 1982, pp. 1–2.)
 
 I add my voice to these wise and inspired brethren and say to you that one of the most important things you can do as priesthood leaders is to immerse yourselves in the scriptures. Search them diligently. Feast upon the words of Christ. Learn the doctrine. Master the principles that are found therein. There are few other efforts that will bring greater dividends to your calling. There are few other ways to gain greater inspiration as you serve.
 
@@ -54,13 +56,13 @@ You must help the Saints see that studying and searching the scriptures is not a
 
 “This book of the law shall not depart out of thy mouth; but thou shalt meditate therein day and night, that thou mayest observe to do according to all that is written therein: for *then thou shalt make thy way prosperous, and then thou shalt have good success*.” ([[Joshua 1.8|Josh. 1:8]]; italics added.)
 
-The Lord was not promising Joshua material wealth and fame, but that his life would prosper in righteousness and that he would have success in that which matters most in life, namely the quest to find true joy. (See [[2 Nephi 2.25|2 Ne. 2:25]].)
+The Lord was not promising Joshua material wealth and fame, but that his life would prosper in righteousness and that he would have success in that which matters most in life, namely the quest to find true joy. (See [[2 Nephi 2.25|2 Ne. 2:25]].)
 
 Do you have members in your stakes whose lives are shattered by sin or tragedy, who are in despair and without hope? Have you longed for some way to reach out and heal their wounds, soothe their troubled souls? The prophet Jacob offers just that with this remarkable promise: “They have come up hither to hear the pleasing word of God, yea, *the word which healeth the wounded soul*.” ([[Jacob 2.8|Jacob 2:8]]; italics added.)
 
 Today the world is full of alluring and attractive ideas that can lead even the best of our members into error and deception. Students at universities are sometimes so filled with the doctrines of the world they begin to question the doctrines of the gospel. How do you as a priesthood leader help fortify your membership against such deceptive teachings? The Savior gave the answer in His great discourse on the Mount of Olives when He promised, “*And whoso treasureth up my word, shall not be deceived.*” ([[Joseph Smith Matthew 1.37|JS—M 1:37]]; italics added.)
 
-The scriptures are replete with similar promises about the value of the word. Do you have members who long for direction and guidance in their lives? The Psalms tell us, “Thy word is a lamp unto my feet, and a light unto my path” ([[Psalms 119.105|Ps. 119:105]]), and Nephi promises that feasting upon the words of Christ “will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].)
+The scriptures are replete with similar promises about the value of the word. Do you have members who long for direction and guidance in their lives? The Psalms tell us, “Thy word is a lamp unto my feet, and a light unto my path” ([[Psalms 119.105|Ps. 119:105]]), and Nephi promises that feasting upon the words of Christ “will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].)
 
 Are there members of your flock who are deep in sin and need to pull themselves back? Helaman’s promise is for them: “Yea, we see that whosoever will may lay hold upon the word of God, which is quick and powerful, which shall divide asunder all the cunning and the snares and the wiles of the devil.” ([[Helaman 3.29|Hel. 3:29]].)
 
@@ -81,8 +83,3 @@ Like Alma, I say unto you, “It \[is\] expedient that \[you\] should try the vi
 
 
 
-
-
-
-
-#Book_Of_Mormon

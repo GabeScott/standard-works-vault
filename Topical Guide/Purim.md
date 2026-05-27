@@ -1,4 +1,3 @@
 # Purim
 
-
-*See* [BD Purim](https://www.churchofjesuschrist.org/study/scriptures/bd/purim?lang=eng)
+*See also* [[BD Purim.md|BD Purim]]

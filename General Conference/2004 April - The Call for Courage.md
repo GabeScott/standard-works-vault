@@ -1,5 +1,7 @@
 # The Call for Courage
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -24,7 +26,7 @@ The courage of a military leader was recorded by a young infantryman wearing the
 
 “\[At a critical point in the battle,\] he waved his hand toward the enemy and shouted, ‘Forward men! Forward! Just follow me!’ …
 
-“… With courage and resolution \[they followed\] after him like a wide raging torrent,” and the objective was seized and held.[^1]
+“… With courage and resolution \[they followed\] after him like a wide raging torrent,” and the objective was seized and held.[^1]
 
 At an earlier time, in a land far distant, another leader issued the same plea: “Follow me.”[^2] He was not a general of war. Rather, He was the Prince of Peace, the Son of God. Those who followed Him then and those who follow Him now win a far more significant victory, with consequences that are everlasting. The need for courage is constant.
 
@@ -36,7 +38,7 @@ Who can help but be inspired by the lives of the 2,000 stripling sons of Helaman
 
 Perhaps each of these accounts is crowned by the example of Moroni, who had the courage to persevere to the end in righteousness.[^5]
 
-All were fortified by the words of Moses: “Be strong and of a good courage, fear not, nor be afraid … : for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.”[^6] He did not fail them. He will not fail us. He did not forsake them. He will not forsake us.
+All were fortified by the words of Moses: “Be strong and of a good courage, fear not, nor be afraid … : for the Lord thy God, he it is that doth go with thee; he will not fail thee, nor forsake thee.”[^6] He did not fail them. He will not fail us. He did not forsake them. He will not forsake us.
 
 It is this sweet assurance that can guide you and me—in our time, in our day, in our lives. Of course we will face fear, experience ridicule, and meet opposition. Let us have the courage to defy the consensus, the courage to stand for principle. Courage, not compromise, brings the smile of God’s approval. Courage becomes a living and an attractive virtue when it is regarded not only as a willingness to die manfully, but also as a determination to live decently. A moral coward is one who is afraid to do what he thinks is right because others will disapprove or laugh. Remember that all men have their fears, but those who face their fears with dignity have courage as well.
 
@@ -127,9 +129,9 @@ May we each have the courage to do so, I pray, in the name of Jesus Christ, amen
 
 [^3]: [[Genesis 39.9|Genesis 39:9–10, 12]][[Genesis 39.10|]][[Genesis 39.12|]].
 
-[^4]: See [[Alma 56.1|Alma 56]][[Alma 56.2|]][[Alma 56.3|]][[Alma 56.4|]][[Alma 56.5|]][[Alma 56.6|]][[Alma 56.7|]][[Alma 56.8|]][[Alma 56.9|]][[Alma 56.10|]][[Alma 56.11|]][[Alma 56.12|]][[Alma 56.13|]][[Alma 56.14|]][[Alma 56.15|]][[Alma 56.16|]][[Alma 56.17|]][[Alma 56.18|]][[Alma 56.19|]][[Alma 56.20|]][[Alma 56.21|]][[Alma 56.22|]][[Alma 56.23|]][[Alma 56.24|]][[Alma 56.25|]][[Alma 56.26|]][[Alma 56.27|]][[Alma 56.28|]][[Alma 56.29|]][[Alma 56.30|]][[Alma 56.31|]][[Alma 56.32|]][[Alma 56.33|]][[Alma 56.34|]][[Alma 56.35|]][[Alma 56.36|]][[Alma 56.37|]][[Alma 56.38|]][[Alma 56.39|]][[Alma 56.40|]][[Alma 56.41|]][[Alma 56.42|]][[Alma 56.43|]][[Alma 56.44|]][[Alma 56.45|]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]][[Alma 56.49|]][[Alma 56.50|]][[Alma 56.51|]][[Alma 56.52|]][[Alma 56.53|]][[Alma 56.54|]][[Alma 56.55|]][[Alma 56.56|]][[Alma 56.57|]].
+[^4]: See [[Alma 56.1|Alma 56]].
 
-[^5]: See [[Moroni 1.1|Moroni 1–10]][[Moroni 1.2|]][[Moroni 1.3|]][[Moroni 1.4|]].
+[^5]: See [[Moroni 1.1|Moroni 1–10]].
 
 [^6]: [[Deuteronomy 31.6|Deuteronomy 31:6]].
 
@@ -143,7 +145,5 @@ May we each have the courage to do so, I pray, in the name of Jesus Christ, amen
 
 [^11]: See Hugh Nibley, *Abraham in Egypt* (1981), 192.
 
+[^12]: [[D&C 107.99|D&C 107:99]].
 
-
-
-#Adversity #Courage #Duty

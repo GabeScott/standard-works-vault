@@ -1,6 +1,5 @@
 # Blackness
 
-
 all faces shall gather *blackness*, [[Joel 2.6|Joel 2:6]].
 
 nor unto *blackness*, and darkness, and tempest, [[Hebrews 12.18|Hebrews 12:18]].

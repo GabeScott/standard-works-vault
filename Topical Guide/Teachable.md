@@ -1,7 +1,6 @@
 # Teachable
 
-
-*See also* [[Believe.md|Believe]]; [[Contrite Heart.md|Contrite Heart]]; [[Humility, Humble.md|Humility]]; [[Learn, Learning.md|Learn]]; [[Meek, Meekness.md|Meek]]
+*See also* [[Believe.md|Believe]]; [[Contrite Heart.md|Contrite Heart]]; [[Humility.md|Humility]]; [[Learn.md|Learn]]; [[Meek.md|Meek]]
 
 stand still, that I may *reason* with you, [[1 Samuel 12.7|1 Samuel 12:7]].
 
@@ -23,7 +22,7 @@ Blessed are they which do *hunger* and thirst, [[Matthew 5.6|Matthew 5:6]] ([[3 
 
 He that *receiveth* you receiveth me, [[Matthew 10.40|Matthew 10:40]].
 
-seed into the good ground is he that *heareth* the word, [[Matthew 13.23|Matthew 13:23]] ([[Matthew 13.3|13:3-8]][[Matthew 13.4|]][[Matthew 13.5|]][[Matthew 13.6|]][[Matthew 13.7|]][[Matthew 13.8|]]).
+seed into the good ground is he that *heareth* the word, [[Matthew 13.23|Matthew 13:23]].
 
 they that gladly *received* his word were baptized, [[Acts 2.41|Acts 2:41]].
 
@@ -51,14 +50,12 @@ ye are to be *taught* from on high, [[D&C 43.16|D&C 43:16]].
 
 he that *receiveth* light, and continueth in God, receiveth more, [[D&C 50.24|D&C 50:24]].
 
-Lord requireth ... a *willing* mind, [[D&C 64.34|D&C 64:34]].
+Lord requireth … a *willing* mind, [[D&C 64.34|D&C 64:34]].
 
 they are *willing* to be guided, [[D&C 101.63|D&C 101:63]].
 
-churches ... *willing* to hearken to my voice, [[D&C 101.75|D&C 101:75]].
+churches … *willing* to hearken to my voice, [[D&C 101.75|D&C 101:75]].
 
 that my people may be *taught* more perfectly, [[D&C 105.10|D&C 105:10]].
 
 Whosoever *receiveth* my word receiveth me, [[D&C 112.20|D&C 112:20]].
-
-*See also* [[Jeremiah 7.28|Jeremiah 7:28]]; [[Luke 10.8|Luke 10:8]]; [[John 1.12|John 1:12]]; [[Hebrews 12.7|Hebrews 12:7]]; [[2 Nephi 28.28|2 Nephi 28:28]]; [[3 Nephi 12.2|3 Nephi 12:2]].

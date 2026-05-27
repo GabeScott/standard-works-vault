@@ -1,6 +1,8 @@
 # The Great Plan
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -22,7 +24,7 @@ In the Council in Heaven, all the spirit children of God were introduced to the 
 
 I will now summarize some of the principal elements of the Father’s plan as they affect us during our mortal journeys and in the spirit world that follows.
 
-The purpose of mortal life and the postmortal growth that can follow it is for the offspring of God to become like He is. This is Heavenly Father’s desire for all His children. To achieve this joyful destiny, eternal laws require that we must become purified beings through the Atonement of Jesus Christ so we can dwell in the presence of the Father and the Son and enjoy the blessings of exaltation. As the Book of Mormon teaches, He invites “all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God” ([[2 Nephi 26.33|2 Nephi 26:33]]; see also [[Alma 5.49|Alma 5:49]]).
+The purpose of mortal life and the postmortal growth that can follow it is for the offspring of God to become like He is. This is Heavenly Father’s desire for all His children. To achieve this joyful destiny, eternal laws require that we must become purified beings through the Atonement of Jesus Christ so we can dwell in the presence of the Father and the Son and enjoy the blessings of exaltation. As the Book of Mormon teaches, He invites “all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God” ([[2 Nephi 26.33|2 Nephi 26:33]]; see also [[Alma 5.49|Alma 5:49]]).
 
 The divine plan for us to become what we are destined to become requires us to make choices to reject the evil opposition that tempts mortals to act contrary to God’s commandments and His plan. It also requires that we be subject to other mortal opposition, such as from the sins of others or from some defects of birth. Sometimes our needed growth is achieved better by suffering and adversity than by comfort and tranquility. And none of this mortal opposition could achieve its eternal purpose if divine intervention relieved us from all the adverse consequences of mortality.
 
@@ -42,7 +44,7 @@ The restored gospel assures us that the Resurrection can include the opportunity
 
 Here are some other fundamentals of our Heavenly Father’s plan:
 
-The restored gospel of Jesus Christ gives us a unique perspective on the subjects of chastity, marriage, and the bearing of children. It teaches that marriage according to God’s plan is necessary for accomplishing the purpose of God’s plan, to provide the divinely appointed setting for mortal birth, and to prepare family members for eternal life. “Marriage is ordained of God unto man,” the Lord said, “… that the earth might answer the end of its creation” ([[D&C 49.15|Doctrine and Covenants 49:15–16]][[D&C 49.16|]]). In this, His plan, of course, runs counter to some strong worldly forces in law and custom.
+The restored gospel of Jesus Christ gives us a unique perspective on the subjects of chastity, marriage, and the bearing of children. It teaches that marriage according to God’s plan is necessary for accomplishing the purpose of God’s plan, to provide the divinely appointed setting for mortal birth, and to prepare family members for eternal life. “Marriage is ordained of God unto man,” the Lord said, “… that the earth might answer the end of its creation” ([[D&C 49.15|Doctrine and Covenants 49:15–16]][[D&C 49.16|]]). In this, His plan, of course, runs counter to some strong worldly forces in law and custom.
 
 The power to create mortal life is the most exalted power God has given His children. Its use was mandated in the first commandment to Adam and Eve, but another important commandment was given to forbid its misuse. Outside the bonds of marriage, all uses of the procreative power are to one degree or another a sinful degrading and perversion of the most divine attribute of men and women. The emphasis the restored gospel places on this law of chastity is because of the purpose of our procreative powers in the accomplishment of God’s plan.
 
@@ -54,17 +56,12 @@ As we look to the future, however, our vision is far less sure. We know that two
 
 We know that the Savior will return and that there will be a millennium of peaceful reign to wrap up the mortal part of God’s plan. We also know that there will be different resurrections, of the just and the unjust, with the final judgment of each person always following his or her resurrection.
 
-We will be judged according to our actions, the desires of our hearts, and the kind of person we have become. This judgment will cause all of the children of God to proceed to a kingdom of glory for which their obedience has qualified them and where they will be comfortable. The judge of all this is our Savior, Jesus Christ (see [[John 5.22|John 5:22]]; [[2 Nephi 9.41|2 Nephi 9:41]]). His omniscience gives Him a perfect knowledge of all of our acts and desires, both those unrepented or unchanged and those repented or righteous. Therefore, after His judgment we will all confess “that his judgments are just” ([[Mosiah 16.1|Mosiah 16:1]]).
+We will be judged according to our actions, the desires of our hearts, and the kind of person we have become. This judgment will cause all of the children of God to proceed to a kingdom of glory for which their obedience has qualified them and where they will be comfortable. The judge of all this is our Savior, Jesus Christ (see [[John 5.22|John 5:22]]; [[2 Nephi 9.41|2 Nephi 9:41]]). His omniscience gives Him a perfect knowledge of all of our acts and desires, both those unrepented or unchanged and those repented or righteous. Therefore, after His judgment we will all confess “that his judgments are just” ([[Mosiah 16.1|Mosiah 16:1]]).
 
 In conclusion, I share the conviction that has come to me from many letters and by reviewing many requests to return to the Church after name removal or apostasy. Many of our members do not fully understand this plan of salvation, which answers most questions about the doctrine and inspired policies of the restored Church. We who know God’s plan and who have covenanted to participate have a clear responsibility to teach these truths and do all that we can to further them for others and in our own circumstances in mortality. I testify of Jesus Christ, our Savior and Redeemer, who makes it all possible, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” in Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 91–92.
+[^1]: “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” in Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 91–92.
 
-
-
-
-
-#Atonement #Death #Family #Marriage #Plan_Of_Salvation #Premortal_Existence #Resurrection

@@ -1,6 +1,8 @@
 # Willing and Worthy to Serve
 
-By President Thomas S. Monson - *President of the Church*
+Thomas S. Monson
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -14,7 +16,7 @@ From the Prophet Joseph Smith: “Priesthood is an everlasting principle, and ex
 
 From the words of President Wilford Woodruff, we learn: “The Holy Priesthood is the channel through which God communicates and deals with man upon the earth; and the heavenly messengers that have visited the earth to communicate with man are men who held and honored the priesthood while in the flesh; and everything that God has caused to be done for the salvation of man, from the coming of man upon the earth to the redemption of the world, has been and will be by virtue of the everlasting priesthood.”[^2]
 
-President Joseph F. Smith further clarified: “The Priesthood … is … the power of God delegated to man by which man can act in the earth for the salvation of the human family, in the name of the Father and the Son and the Holy Ghost, and act legitimately; not assuming that authority, nor borrowing it from generations that are dead and gone, but authority that has been given in this day in which we live by ministering angels and spirits from above, *direct from the presence of Almighty God.*”[^3]
+President Joseph F. Smith further clarified: “The Priesthood … is … the power of God delegated to man by which man can act in the earth for the salvation of the human family, in the name of the Father and the Son and the Holy Ghost, and act legitimately; not assuming that authority, nor borrowing it from generations that are dead and gone, but authority that has been given in this day in which we live by ministering angels and spirits from above, *direct from the presence of Almighty God.*”[^3]
 
 And finally from President John Taylor: “What is priesthood? … It is the government of God, whether on the earth or in the heavens, for it is by that power, agency, or principle that all things are governed on the earth and in the heavens, and by that power that all things are upheld and sustained. It governs all things—it directs all things—it sustains all things—and has to do with all things that God and truth are associated with.”[^4]
 
@@ -46,9 +48,9 @@ As we perform our duties and exercise our priesthood, we will find true joy. We 
 
 We have been taught the specific duties of the priesthood which we hold, whether it be the Aaronic or the Melchizedek Priesthood. I urge you to contemplate those duties and then do all within your power to fulfill them. In order to do so, each must be worthy. Let us have ready hands, clean hands, and willing hands, that we may participate in providing what our Heavenly Father would have others receive from Him. If we are not worthy, it is possible to lose the power of the priesthood; and if we lose it, we have lost the essence of exaltation. Let us be worthy to serve.
 
-President Harold B. Lee, one of the great teachers in the Church, said: “When one becomes a holder of the priesthood, he becomes an agent of the Lord. He should think of his calling as though he were on the Lord’s errand.”[^10]
+President Harold B. Lee, one of the great teachers in the Church, said: “When one becomes a holder of the priesthood, he becomes an agent of the Lord. He should think of his calling as though he were on the Lord’s errand.”[^10]
 
-During World War II, in the early part of 1944, an experience involving the priesthood took place as United States marines were taking Kwajalein Atoll, part of the Marshall Islands and located in the Pacific Ocean about midway between Australia and Hawaii. What took place in this regard was related by a correspondent—not a member of the Church—who worked for a newspaper in Hawaii. In the 1944 newspaper article he wrote following the experience, he explained that he and other correspondents were in the second wave behind the marines at Kwajalein Atoll. As they advanced, they noticed a young marine floating facedown in the water, obviously badly wounded. The shallow water around him was red with his blood. And then they noticed another marine moving toward his wounded comrade. The second marine was also wounded, with his left arm hanging helplessly by his side. He lifted up the head of the one who was floating in the water in order to keep him from drowning. In a panicky voice he called for help. The correspondents looked again at the boy he was supporting and called back, “Son, there is nothing we can do for this boy.”
+During World War II, in the early part of 1944, an experience involving the priesthood took place as United States marines were taking Kwajalein Atoll, part of the Marshall Islands and located in the Pacific Ocean about midway between Australia and Hawaii. What took place in this regard was related by a correspondent—not a member of the Church—who worked for a newspaper in Hawaii. In the 1944 newspaper article he wrote following the experience, he explained that he and other correspondents were in the second wave behind the marines at Kwajalein Atoll. As they advanced, they noticed a young marine floating facedown in the water, obviously badly wounded. The shallow water around him was red with his blood. And then they noticed another marine moving toward his wounded comrade. The second marine was also wounded, with his left arm hanging helplessly by his side. He lifted up the head of the one who was floating in the water in order to keep him from drowning. In a panicky voice he called for help. The correspondents looked again at the boy he was supporting and called back, “Son, there is nothing we can do for this boy.”
 
 “Then,” wrote the correspondent, “I saw something that I had never seen before.” This boy, badly wounded himself, made his way to the shore with the seemingly lifeless body of his fellow marine. He “put the head of his companion on his knee. … What a picture that was—these two mortally wounded boys—both … clean, wonderful-looking young men, even in their distressing situation. And the one boy bowed his head over the other and said, ‘I command you, in the name of Jesus Christ and by the power of the priesthood, to remain alive until I can get medical help.’” The correspondent concluded his article: “The three of us \[the two marines and I\] are here in the hospital. The doctors don’t know \[how they made it alive\], but I know.”[^11]
 
@@ -64,7 +66,7 @@ I responded, “Well, maybe this will be the month.” As it turned out, that *w
 
 Brother Bryson was no happier than was his bishop. I had learned the practical application of the adage “Do \[your\] duty; that is best; leave unto \[the\] Lord the rest.”[^13]
 
-Years later, while attending the Salt Lake Cottonwood Stake when James E. Faust served as its president, I related that account in an effort to encourage attention to our servicemen. After the meeting, a fine-looking young man came forward. He took my hand in his and asked, “Bishop Monson, do you remember me?”
+Years later, while attending the Salt Lake Cottonwood Stake when James E. Faust served as its president, I related that account in an effort to encourage attention to our servicemen. After the meeting, a fine-looking young man came forward. He took my hand in his and asked, “Bishop Monson, do you remember me?”
 
 I suddenly realized who he was. “Brother Bryson!” I exclaimed. “How are you? What are you doing in the Church?”
 
@@ -81,23 +83,23 @@ Let us learn and contemplate our duty. Let us be willing and worthy to serve. Le
 
 [^2]: *Teachings of Presidents of the Church: Wilford Woodruff* (2004), 38.
 
-[^3]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 139–40; emphasis added.
+[^3]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 139–40; emphasis added.
 
 [^4]: *Teachings of Presidents of the Church: John Taylor* (2001), 119.
 
 [^5]: [[D&C 107.99|Doctrine and Covenants 107:99]]; emphasis added.
 
-[^6]: [[1 Nephi 3.7|1 Nephi 3:7]]; see also [[1 Nephi 3.1|verses 1–5]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]].
+[^6]: [[1 Nephi 3.7|1 Nephi 3:7]]; see also [[1 Nephi 3.1|verses 1–5]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]].
 
-[^7]: See [[1 Nephi 3.5|1 Nephi 3:5]].
+[^7]: See [[1 Nephi 3.5|1 Nephi 3:5]].
 
 [^8]: Rabindranath Tagore, in William Jay Jacobs, *Mother Teresa: Helping the Poor* (1991), 42.
 
-[^9]: Robert Louis Stevenson, in Elbert Hubbard II, comp., *The Note Book of Elbert Hubbard: Mottoes, Epigrams, Short Essays, Passages, Orphic Sayings and Preachments* (1927), 125.
+[^9]: Robert Louis Stevenson, in Elbert Hubbard II, comp., *The Note Book of Elbert Hubbard: Mottoes, Epigrams, Short Essays, Passages, Orphic Sayings and Preachments* (1927), 125.
 
-[^10]: *Stand Ye in Holy Places: Selected Sermons and Writings of President Harold B. Lee* (1976), 255.
+[^10]: *Stand Ye in Holy Places: Selected Sermons and Writings of President Harold B. Lee* (1976), 255.
 
-[^11]: In Ernest Eberhard Jr., “Giving Our Young Men the Proper Priesthood Perspective,” typescript, July 19, 1971, 4–5, Church History Library.
+[^11]: In Ernest Eberhard Jr., “Giving Our Young Men the Proper Priesthood Perspective,” typescript, July 19, 1971, 4–5, Church History Library.
 
 [^12]: George Albert Smith, in Conference Report, Apr. 1942, 14.
 
@@ -109,8 +111,3 @@ Let us learn and contemplate our duty. Let us be willing and worthy to serve. Le
 
 [^16]: [[Moses 4.2|Moses 4:2]].
 
-
-
-
-
-#Duty #Priesthood #Service

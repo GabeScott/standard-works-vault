@@ -1,5 +1,7 @@
 # Let There Be Light!
 
+Thomas S. Monson
+
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -42,7 +44,7 @@ We also find the majority of people are still respectful of basic moral values. 
 
 There has always been an ongoing battle between people of faith and those who would purge religion and God from public life.[^12] Many opinion leaders today reject a moral view of the world based on Judeo-Christian values. In their view there is no objective moral order.[^13] They believe no preference should be given to moral goals.[^14]
 
-Still, the majority of people aspire to be good and honorable. The Light of Christ, which is distinct from the Holy Ghost, informs their conscience. We know from the scriptures that the Light of Christ is “the Spirit \[which\] giveth light to every man that cometh into the world.”[^15] This light is given “for the sake of the whole world.”[^16] President Boyd K. Packer has taught that this is a “source of inspiration, which each of us possesses in common with all other members of the human family.”[^17] This is why many will accept moral values even when founded on religious convictions which they do not personally support. As we read in Mosiah in the Book of Mormon, “It is not common that the voice of the people desireth anything contrary to that which is right; but it is common for the lesser part of the people to desire that which is not right.” Mosiah then warns, “If the time comes that the voice of the people doth choose iniquity, then is the time that the judgments of God will come.”[^18]
+Still, the majority of people aspire to be good and honorable. The Light of Christ, which is distinct from the Holy Ghost, informs their conscience. We know from the scriptures that the Light of Christ is “the Spirit \[which\] giveth light to every man that cometh into the world.”[^15] This light is given “for the sake of the whole world.”[^16] President Boyd K. Packer has taught that this is a “source of inspiration, which each of us possesses in common with all other members of the human family.”[^17] This is why many will accept moral values even when founded on religious convictions which they do not personally support. As we read in Mosiah in the Book of Mormon, “It is not common that the voice of the people desireth anything contrary to that which is right; but it is common for the lesser part of the people to desire that which is not right.” Mosiah then warns, “If the time comes that the voice of the people doth choose iniquity, then is the time that the judgments of God will come.”[^18]
 
 In our increasingly unrighteous world, it is essential that values based on religious belief be part of the public discourse. Moral positions informed by a religious conscience must be accorded equal access to the public square. Under the constitutions of most countries, a religious conscience may not be given preference, but neither should it be disregarded.[^19]
 
@@ -85,7 +87,7 @@ If we both live and proclaim these principles, we will be following Jesus Christ
 
 [^2]: Attributed to Sir Edward Grey, in Elizabeth M. Knowles, comp., *The Oxford Dictionary of Quotations,* 5th ed. (1999), 353.
 
-[^3]: See [[D&C 88.11|Doctrine and Covenants 88:11–13]][[D&C 88.12|]][[D&C 88.13|]]. The Light of Christ is “the light which is in all things, which giveth life to all things, which is the law by which all things are governed” (verse 13). For a comprehensive understanding of the Light of Christ and the difference between the Light of Christ and the Holy Ghost, see Boyd K. Packer, “The Light of Christ,” *Liahona* and *Ensign,* Apr. 2005, 8–14.
+[^3]: See [[D&C 88.11|Doctrine and Covenants 88:11–13]][[D&C 88.12|]][[D&C 88.13|]]. The Light of Christ is “the light which is in all things, which giveth life to all things, which is the law by which all things are governed” (verse 13). For a comprehensive understanding of the Light of Christ and the difference between the Light of Christ and the Holy Ghost, see Boyd K. Packer, “The Light of Christ,” *Liahona* and *Ensign,* Apr. 2005, 8–14.
 
 [^4]: [[Moroni 7.19|Moroni 7:19]].
 
@@ -95,7 +97,7 @@ If we both live and proclaim these principles, we will be following Jesus Christ
 
 [^7]: [[Matthew 5.16|Matthew 5:16]].
 
-[^8]: Roger B. Porter, “Seek Ye First the Kingdom of God” (talk given at Cambridge University Ward, Cambridge Massachusetts Stake, Sept. 13, 2009).
+[^8]: Roger B. Porter, “Seek Ye First the Kingdom of God” (talk given at Cambridge University Ward, Cambridge Massachusetts Stake, Sept. 13, 2009).
 
 [^9]: [[Mormon 6.17|Mormon 6:17]].
 
@@ -105,15 +107,15 @@ If we both live and proclaim these principles, we will be following Jesus Christ
 
 [^12]: See Diana Butler Bass, “Peace, Love and Understanding” (review of *God Is Back,* by John Micklethwait and Adrian Wooldridge), *Washington Post National Weekly Edition,* July 27–Aug. 2, 2009, 39.
 
-[^13]: See David D. Kirkpatrick, “The Right Hand of the Fathers,” *New York Times Magazine,* Dec. 20, 2009, 27.
+[^13]: See David D. Kirkpatrick, “The Right Hand of the Fathers,” *New York Times Magazine,* Dec. 20, 2009, 27.
 
-[^14]: See Kirkpatrick, “The Right Hand of the Fathers,” 27. Robert P. George teaches that either we have moral reason and free choice or we have amorality and determinism.
+[^14]: See Kirkpatrick, “The Right Hand of the Fathers,” 27. Robert P. George teaches that either we have moral reason and free choice or we have amorality and determinism.
 
 [^15]: [[D&C 84.46|Doctrine and Covenants 84:46]].
 
 [^16]: [[D&C 84.48|Doctrine and Covenants 84:48]].
 
-[^17]: Boyd K. Packer, “The Light of Christ,” 8.
+[^17]: Boyd K. Packer, “The Light of Christ,” 8.
 
 [^18]: [[Mosiah 29.26|Mosiah 29:26–27]][[Mosiah 29.27|]].
 
@@ -123,7 +125,7 @@ If we both live and proclaim these principles, we will be following Jesus Christ
 
 [^21]: “The Cotter’s Saturday Night,” in *Poems by Robert Burns* (1811), 191.
 
-[^22]: See Clayton M. Christensen, “The Importance of Asking the Right Questions” (commencement speech, Southern New Hampshire University, Manchester, N.H., May 16, 2009).
+[^22]: See Clayton M. Christensen, “The Importance of Asking the Right Questions” (commencement speech, Southern New Hampshire University, Manchester, N.H., May 16, 2009).
 
 [^23]: See [[Genesis 1.26|Genesis 1:26]].
 
@@ -135,16 +137,11 @@ If we both live and proclaim these principles, we will be following Jesus Christ
 
 [^27]: See Hague, *William Wilberforce,* 107–8.
 
-[^28]: See James B. Allen and Glen M. Leonard, *The Story of the Latter-day Saints,* 2nd ed. (1992), 93, 120, 202.
+[^28]: See James B. Allen and Glen M. Leonard, *The Story of the Latter-day Saints,* 2nd ed. (1992), 93, 120, 202.
 
-[^29]: See Leonard J. Arrington and Davis Bitton, *The Mormon Experience: A History of the Latter-day Saints,* 2nd ed. (1992), 48–51; see also Clyde A. Milner and others, *The Oxford History of the American West* (1994), 362: “Proslavery settlers and politicians persecuted them mercilessly.”
+[^29]: See Leonard J. Arrington and Davis Bitton, *The Mormon Experience: A History of the Latter-day Saints,* 2nd ed. (1992), 48–51; see also Clyde A. Milner and others, *The Oxford History of the American West* (1994), 362: “Proslavery settlers and politicians persecuted them mercilessly.”
 
 [^30]: [[D&C 101.79|Doctrine and Covenants 101:79]].
 
 [^31]: Final line in the song “When the Lights Go On Again (All over the World).”
 
-
-
-
-
-#Agency #Honesty #Integrity #Light_Of_Christ #Morality #Respect

@@ -1,6 +1,5 @@
 # Grow, Grew, Grown
 
-
 *See also* [[Enlarge.md|Enlarge]]; [[Flourish.md|Flourish]]; [[Increase.md|Increase]]
 
 hair of his head began to *grow* again, [[Judges 16.22|Judges 16:22]].
@@ -21,7 +20,7 @@ milk of the word, that ye may *grow* thereby, [[1 Peter 2.2|1 Peter 2:2]].
 
 fruit of the loins of Judah, shall *grow* together, [[2 Nephi 3.12|2 Nephi 3:12]].
 
-seed ... beginneth to *grow*, [[Alma 32.30|Alma 32:30]] ([[Alma 32.32|32:32-41]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]]).
+seed … beginneth to *grow*, [[Alma 32.30|Alma 32:30]].
 
 children shall *grow* up without sin, [[D&C 45.58|D&C 45:58]].
 

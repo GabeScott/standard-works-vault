@@ -1,5 +1,7 @@
 # Hope, an Anchor of the Soul
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -14,7 +16,7 @@ This morning “I would speak unto you,” as Mormon said, “concerning hope.�
 
 Hope is the anchor of our souls. I know of no one who is not in need of hope—young or old, strong or weak, rich or poor. In the Book of Mormon we are exhorted, “Wherefore, whoso believeth in God might *with surety hope* for a better world, yea, even a place at the right hand of God, which hope cometh of faith, maketh an anchor to the souls of men, which would make them sure and steadfast, always abounding in good works, being led to glorify God.”[^3]
 
-Nephi admonished those of his day, “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men … , feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.”[^4]
+Nephi admonished those of his day, “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men … , feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.”[^4]
 
 Everybody in this life has their challenges and difficulties. That is part of our mortal test. The reason for some of these trials cannot be readily understood except on the basis of faith and hope because there is often a larger purpose which we do not always understand. Peace comes through hope.
 
@@ -32,7 +34,7 @@ Hope is trust in God’s promises, faith that if we act now, the desired blessin
 
 A few years ago, Sister Joyce Audrey Evans, a young mother in Belfast, Northern Ireland, was having trouble with a pregnancy. She went to the hospital, where one of the nurses told her she would probably lose the baby. Sister Evans replied, “But I can’t give up. … You have to give me hope.” Sister Evans later recalled, “I couldn’t give up hope until all reason for hope was gone. It was something I owed to my unborn child.”
 
-Three days later she had a miscarriage. She wrote: “For one long moment, I felt nothing. Then a profound feeling of peace flowed through me. With the peace came understanding. I knew now why I couldn’t give up hope in spite of all the circumstances: you either live in hope or you live in despair. Without hope, you cannot endure to the end. I had looked for an answer to prayers and was not disappointed; I was healed in body and rewarded with a spirit of peace. Never before had I felt so close to my Heavenly Father; never before had I felt such peace. …
+Three days later she had a miscarriage. She wrote: “For one long moment, I felt nothing. Then a profound feeling of peace flowed through me. With the peace came understanding. I knew now why I couldn’t give up hope in spite of all the circumstances: you either live in hope or you live in despair. Without hope, you cannot endure to the end. I had looked for an answer to prayers and was not disappointed; I was healed in body and rewarded with a spirit of peace. Never before had I felt so close to my Heavenly Father; never before had I felt such peace. …
 
 “The miracle of peace was not the only blessing to come from this experience. Some weeks later, I fell to thinking about the child I had lost. The Spirit brought to my mind the words from [[Genesis 4.25|Genesis 4:25]]: ‘And she bare a son, and called his name Seth: For God, said she, hath appointed me another seed. …’
 
@@ -79,7 +81,7 @@ There has come with my apostolic calling a sure witness of the life and ministry
 
 [^3]: [[Ether 12.4|Ether 12:4]]; emphasis added.
 
-[^4]: [[2 Nephi 31.20|2 Ne. 31:20]].
+[^4]: [[2 Nephi 31.20|2 Ne. 31:20]].
 
 [^5]: See [[John 9.2|John 9:2–3]][[John 9.3|]].
 
@@ -101,13 +103,11 @@ There has come with my apostolic calling a sure witness of the life and ministry
 
 [^14]: See [[Helaman 5.12|Hel. 5:12]].
 
-[^15]: [[1 Corinthians 15.19|1 Cor. 15:19]].
+[^15]: [[1 Corinthians 15.19|1 Cor. 15:19]].
 
-[^16]: [[2 Nephi 9.41|2 Ne. 9:41]].
+[^16]: [[2 Nephi 9.41|2 Ne. 9:41]].
 
 [^17]: [[Job 19.25|Job 19:25]].
 
+[^18]: [[Job 16.19|Job 16:19]].
 
-
-
-#Accountability #Adversity #Holy_Ghost #Hope #Jesus_Christ #Peace

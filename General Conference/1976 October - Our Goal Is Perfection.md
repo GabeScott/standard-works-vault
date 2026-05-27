@@ -1,6 +1,8 @@
 # Our Goal Is Perfection
 
-By Elder William H. Bennett - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder William H. Bennett - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -30,23 +32,23 @@ Outstanding athletes think positively. They dream the impossible dreams; they re
 
 An article pertaining to the courage of a young lady from Nephi, Utah, who was seriously injured in a car accident appeared in the *New Era* recently. (See Carol Clark, “Making Tracks While the Sun Shines,” *New Era,* Sept. 1975, pp. 44–47.) Read it. It will inspire you to new heights in your lives.
 
-As it is in athletics, so it is in other aspects of our living. There are artists, poets, and other writers, musicians, craftsmen, and technicians in many fields of activity who strive diligently to do their best in all they do and then try to make their best better. One of the best examples of this is our great Mormon Tabernacle Choir, the organists, and the “Spoken Word” presentations of Richard L. Evans and now more recently Spencer Kinard. The Choir members and others who have participated in these outstanding presentations over the years and the millions of people who have listened to them know that the unreachable star of perfection has been reached perhaps as well as it can be here in mortality. God bless them all for their dedicated, committed service.
+As it is in athletics, so it is in other aspects of our living. There are artists, poets, and other writers, musicians, craftsmen, and technicians in many fields of activity who strive diligently to do their best in all they do and then try to make their best better. One of the best examples of this is our great Mormon Tabernacle Choir, the organists, and the “Spoken Word” presentations of Richard L. Evans and now more recently Spencer Kinard. The Choir members and others who have participated in these outstanding presentations over the years and the millions of people who have listened to them know that the unreachable star of perfection has been reached perhaps as well as it can be here in mortality. God bless them all for their dedicated, committed service.
 
 With respect to spiritual matters, we can be perfect in this life in paying tithing; being honest in our dealings with others; having personal and family prayers; abstaining from the use of alcohol, tobacco, and drugs; holding family home evenings; and in reading the scriptures daily. We can if we really want to.
 
 No one is perfect, but everyone should be striving for perfection. If we should stumble or fall as we travel life’s highway, let us apply the counsel given to us by Cliff Cushman, a member of the 1960 U.S. Olympic team. He won the silver medal in the 400-meter hurdles and was a top candidate for the gold medal in the 1964 Olympics; but in the American trials, he hit and tripped over a hurdle and was eliminated. Messages of sympathy poured in to him, and he replied with an open letter to the youth of his hometown, Grand Forks, North Dakota. He wrote:
 
-“Over 15 years ago, I saw a star—first place in the Olympic Games. I literally started to run after it. In 1960 I came within three yards of grabbing it; this year I stumbled, fell and watched it recede four more years away. …
+“Over 15 years ago, I saw a star—first place in the Olympic Games. I literally started to run after it. In 1960 I came within three yards of grabbing it; this year I stumbled, fell and watched it recede four more years away. …
 
 “In a split second all the many years of training, pain, sweat, blisters and agony of running were simply and irrevocably wiped out.
 
-“But I tried! I would much rather fail knowing I had put forth an honest effort than never to have tried at all. …
+“But I tried! I would much rather fail knowing I had put forth an honest effort than never to have tried at all. …
 
 “Certainly I was very disappointed in falling flat on my face. However, there is nothing I can do about it now but get up, pick the cinders from my wounds, and take one more step followed by one more and one more, until the steps turn into miles and miles into success.
 
-“I know I may never make it. The odds are against me, but I have something in my favor—desire and faith. … At least I am going to try. How about you? … Unless your reach exceeds your grasp, how can you be sure what you can attain? …
+“I know I may never make it. The odds are against me, but I have something in my favor—desire and faith. … At least I am going to try. How about you? … Unless your reach exceeds your grasp, how can you be sure what you can attain? …
 
-“Let me tell you something about yourselves. … You are spending more money, enjoying more freedom, and driving more cars than ever before, yet many of you are very unhappy. Some of you have never known the satisfaction of doing your best in sports, the joy of excelling in class, the wonderful feeling of completing a job, any job, and looking back on it knowing that you have done your best. …
+“Let me tell you something about yourselves. … You are spending more money, enjoying more freedom, and driving more cars than ever before, yet many of you are very unhappy. Some of you have never known the satisfaction of doing your best in sports, the joy of excelling in class, the wonderful feeling of completing a job, any job, and looking back on it knowing that you have done your best. …
 
 “I dare you to look up at the stars, not down at the mud, and set your sights on them that, up to now, you thought were unattainable. There is plenty of room at the top, but no room for anyone to sit down.
 
@@ -63,8 +65,3 @@ May we be successful in this, our greatest responsibility, is my humble prayer, 
 
 
 
-
-
-
-
-#Dedication #Plan_Of_Salvation #Self-Control

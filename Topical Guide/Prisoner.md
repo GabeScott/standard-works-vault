@@ -1,6 +1,5 @@
 # Prisoner
 
-
 *See also* [[Captive.md|Captive]]
 
 to bring out the *prisoners* from the prison, [[Isaiah 42.7|Isaiah 42:7]].

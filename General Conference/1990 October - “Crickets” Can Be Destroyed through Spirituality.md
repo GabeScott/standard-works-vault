@@ -1,32 +1,34 @@
 # “Crickets” Can Be Destroyed through Spirituality
 
+Gordon B. Hinckley
+
 By Ardeth G. Kapp - *Young Women General President*
 
 *Given in the October session of the 1990 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1990/10/crickets-can-be-destroyed-through-spirituality?lang=eng)
 
-My dear young women friends, tonight I want to be sensitive to your feelings. I pray that you will open your hearts and that the Spirit will teach you as I speak to you about some things that are very important, that need to be talked about at this time. I love you. I have great faith in you. President Benson has taught that “you have been born at this time for a sacred and glorious purpose. … Your birth at this particular time was foreordained in the eternities.” (*Ensign,* Nov. 1986, p. 81.) Even so, we have feelings of great anxiety for your welfare.
+My dear young women friends, tonight I want to be sensitive to your feelings. I pray that you will open your hearts and that the Spirit will teach you as I speak to you about some things that are very important, that need to be talked about at this time. I love you. I have great faith in you. President Benson has taught that “you have been born at this time for a sacred and glorious purpose. … Your birth at this particular time was foreordained in the eternities.” (*Ensign,* Nov. 1986, p. 81.) Even so, we have feelings of great anxiety for your welfare.
 
-This is a glorious time to live, to be young, to face an exciting future; but it is also a very threatening and frightening time, if you are not prepared. And if you are prepared, there is no need to fear. (See [[D&C 38.30|D&C 38:30]].) You are the pioneers of today and will blaze a trail into a wilderness unlike and perhaps even more challenging than that of the pioneers of earlier days. Your courage must be equal to, if not greater than, the courage of young women like Mary Goble Pay. From her journal we read: “We arrived in Salt Lake City nine o’clock at night the 11th of December 1856. Three out of four that were living were frozen. My mother was dead in the wagon. …
+This is a glorious time to live, to be young, to face an exciting future; but it is also a very threatening and frightening time, if you are not prepared. And if you are prepared, there is no need to fear. (See [[D&C 38.30|D&C 38:30]].) You are the pioneers of today and will blaze a trail into a wilderness unlike and perhaps even more challenging than that of the pioneers of earlier days. Your courage must be equal to, if not greater than, the courage of young women like Mary Goble Pay. From her journal we read: “We arrived in Salt Lake City nine o’clock at night the 11th of December 1856. Three out of four that were living were frozen. My mother was dead in the wagon. …
 
 “Early next morning Bro. Brigham Young … came. … When he saw our condition—our feet frozen and our mother dead—tears rolled down his cheeks.
 
-“The doctor amputated my toes. … The sisters were dressing Mother for \[her grave. When my feet were fixed, they carried us in to see our mother for the last time.\] That afternoon she was buried. …
+“The doctor amputated my toes. … The sisters were dressing Mother for \[her grave. When my feet were fixed, they carried us in to see our mother for the last time.\] That afternoon she was buried. …
 
-“I \[have\] thought of \[my mother’s\] words \[before we left England\], ‘Polly, I want to go to Zion while my children are small, so they can be raised in the Gospel of Christ. For I know this is the true Church.’” (In *A Believing People,* Richard H. Cracroft and Neal E. Lambert, comp., Provo, Utah: Brigham Young University Press, 1979, pp. 107, 111.)
+“I \[have\] thought of \[my mother’s\] words \[before we left England\], ‘Polly, I want to go to Zion while my children are small, so they can be raised in the Gospel of Christ. For I know this is the true Church.’” (In *A Believing People,* Richard H. Cracroft and Neal E. Lambert, comp., Provo, Utah: Brigham Young University Press, 1979, pp. 107, 111.)
 
 Do mothers today care that much for the gospel and for their children? They do; of course they do. Mothers, it may seem easier for you to die in the wagon than to stand guard every day in defending and upholding standards of righteousness. It may seem easier to die for the gospel in an effort to save your children than to live for it. But live it you must, so that they will not die spiritually.
 
 And young women, it may seem easier for you to have your toes amputated than to be a pioneer today and stand on your feet in front of your peers and dare to be different if their actions violate what the Holy Spirit whispers to you is right.
 
-We are warned in the scriptures, “Yea, and all that will live godly in Christ Jesus shall suffer persecution.” ([[2 Timothy 3.12|2 Tim. 3:12]].) Peer pressure is a form of persecution. Peer pressure is one of the great tests of today.
+We are warned in the scriptures, “Yea, and all that will live godly in Christ Jesus shall suffer persecution.” ([[2 Timothy 3.12|2 Tim. 3:12]].) Peer pressure is a form of persecution. Peer pressure is one of the great tests of today.
 
 Do you remember the story of the early pioneers and how the terrible plague of black crickets came down from the mountains to destroy the crops of grain? Men, women, and children prayed and fought those ravaging crickets in a desperate effort to save their crops. The Lord heard their earnest prayers and sent sea gulls. They devoured the crickets. The crops were saved. It was a miracle, they said.
 
 Young women, you are the tender crops of today, the promise of tomorrow. President Gordon B. Hinckley has taught us that when we save one young woman, we save generations. Every young woman counts so very, very much.
 
-In all soberness I ask you young women, mothers, leaders—all women—to consider the black crickets of our day that are trying to destroy our tender crops, not only our young women and young men, but many adults, also. We have been warned by our prophet that the “forces of evil increase under Lucifer’s leadership and the forces of good increase under the leadership of Jesus Christ.” (Ezra Taft Benson, *Ensign,* Nov. 1988, p. 87.) The heat of that great confrontation is becoming more intense. Sooner or later, either privately or publicly, we will all be tested. We must be prepared to defend our values, our standards, our commitments, and our covenants to stand as a witness of God at all times, in all things, and in all places.
+In all soberness I ask you young women, mothers, leaders—all women—to consider the black crickets of our day that are trying to destroy our tender crops, not only our young women and young men, but many adults, also. We have been warned by our prophet that the “forces of evil increase under Lucifer’s leadership and the forces of good increase under the leadership of Jesus Christ.” (Ezra Taft Benson, *Ensign,* Nov. 1988, p. 87.) The heat of that great confrontation is becoming more intense. Sooner or later, either privately or publicly, we will all be tested. We must be prepared to defend our values, our standards, our commitments, and our covenants to stand as a witness of God at all times, in all things, and in all places.
 
 The crickets of our day are different than in times past. They are powerful, more dangerous and less noticeable. Let me explain. At first, things may appear to be very innocent. Thoughts, words, and pictures are placed into our minds through very subtle and sophisticated ways. Thoughts come first and are then expressed through words. No one uses vulgar, crude words without first having the same kind of thoughts. Can you see how damaging such innocent beginnings are? If we are not watchful, the crickets will creep into our safe places, our homes, our hearts, and our minds. Through TV, radio, magazines, movies, literature, music, and fashions, these evil influences will aggressively begin their silent destruction, multiplying their forces as they go.
 
@@ -46,7 +48,7 @@ I firmly believe that activities and practices, even traditions that do not adhe
 
 The Lord sent sea gulls to help those early Saints. Sea gulls are not the answer for us today. But *spirituality* is. We live in a world where many voices and influences are attempting to deceive youth and adults. You might honestly wonder, “How can I know for sure? Some things that are so enticing seem so innocent at first.”
 
-*There is a sure way to know.* Just as the Lord sent the sea gulls to destroy the crickets, He has provided safety and protection for you and me. Spirituality allows us to have the Spirit of the Lord with us, and when we do, we will never be deceived. He promises us, “I will … be your light in the wilderness … if … \[you\] shall keep my commandments.” ([[1 Nephi 17.13|1 Ne. 17:13]].) Now listen to this: When you were baptized and then confirmed a member of The Church of Jesus Christ of Latter-day Saints, you were given the gift of the Holy Ghost. The Holy Ghost will help you recognize good and evil, right and wrong, and will teach you and help you remember the lessons you learned even before your earth life. He will strengthen you, comfort you, and give you peace. But there is something important that you must never forget. To have the companionship of the Holy Ghost, you must be clean; and to be clean, you must keep the commandments of God.
+*There is a sure way to know.* Just as the Lord sent the sea gulls to destroy the crickets, He has provided safety and protection for you and me. Spirituality allows us to have the Spirit of the Lord with us, and when we do, we will never be deceived. He promises us, “I will … be your light in the wilderness … if … \[you\] shall keep my commandments.” ([[1 Nephi 17.13|1 Ne. 17:13]].) Now listen to this: When you were baptized and then confirmed a member of The Church of Jesus Christ of Latter-day Saints, you were given the gift of the Holy Ghost. The Holy Ghost will help you recognize good and evil, right and wrong, and will teach you and help you remember the lessons you learned even before your earth life. He will strengthen you, comfort you, and give you peace. But there is something important that you must never forget. To have the companionship of the Holy Ghost, you must be clean; and to be clean, you must keep the commandments of God.
 
 Let me say it another way. When we keep the commandments, we are clean; and when we are clean in our thoughts, our words, and our actions, we can hear the whisperings of the Holy Ghost. In answer to your prayers, you will feel what is right and you will be able to discern between good and evil.
 
@@ -61,8 +63,3 @@ I encourage you to participate in experiences that are outlined in your *Persona
 
 
 
-
-
-
-
-#Example #Faith #Family #Individual_Worth #Obedience #Pioneers #Temptation #Women #Youth

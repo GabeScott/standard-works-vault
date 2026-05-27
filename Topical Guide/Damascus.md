@@ -1,4 +1,3 @@
 # Damascus
 
-
-*See* [BD Damascus](https://www.churchofjesuschrist.org/study/scriptures/bd/damascus?lang=eng)
+*See also* [[BD Damascus.md|BD Damascus]]

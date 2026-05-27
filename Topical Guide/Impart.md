@@ -1,13 +1,12 @@
 # Impart
 
-
 *See also* [[Almsgiving.md|Almsgiving]]
 
 two coats, let him *impart* to him that hath none, [[Luke 3.11|Luke 3:11]].
 
-ought to *impart* of the substance, [[Mosiah 4.21|Mosiah 4:21]] ([[Mosiah 4.26|Mosiah 4:26]]; [[Mosiah 18.27|18:27-28]][[Mosiah 18.28|]]; [[Alma 1.27|Alma 1:27]]).
+ought to *impart* of the substance, [[Mosiah 4.21|Mosiah 4:21]] ([[Mosiah 4.26|Mosiah 4:26]]; [[Alma 1.27|Alma 1:27]]).
 
-*impart* ... portion of his word which he doth grant, [[Alma 12.9|Alma 12:9]].
+*impart* … portion of his word which he doth grant, [[Alma 12.9|Alma 12:9]].
 
 he *imparteth* his word by angels, [[Alma 32.23|Alma 32:23]].
 
@@ -19,6 +18,6 @@ he *imparteth* his word by angels, [[Alma 32.23|Alma 32:23]].
 
 *impart* of your substance unto the poor, [[D&C 42.31|D&C 42:31]].
 
-if any man ... *impart* not his portion, [[D&C 104.18|D&C 104:18]].
+if any man … *impart* not his portion, [[D&C 104.18|D&C 104:18]].
 
-they ... do not *impart* of their substance, [[D&C 105.3|D&C 105:3]].
+they … do not *impart* of their substance, [[D&C 105.3|D&C 105:3]].

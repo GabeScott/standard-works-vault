@@ -1,6 +1,8 @@
 # Addressing Mental Health
 
-By Elder Erich W. Kopischke - *Of the Seventy*
+Russell M. Nelson
+
+By Elder Erich W. Kopischke - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -14,7 +16,7 @@ During my ministry, I have encountered hundreds of individuals and families with
 
 At the same time, our doctrine teaches us to strive to become like Jesus Christ and be perfected in Him. Our children sing, “I’m trying to be like Jesus.”[^2] We long to be perfect even as our Heavenly Father and Jesus Christ are perfect.[^3] Because mental illness can interfere with our perception of perfection, it remains all too often a taboo. As a result, there is too much ignorance, too much silent suffering, and too much despair. Many, feeling overwhelmed because they do not meet perceived standards, mistakenly believe they have no place in the Church.
 
-To combat such deception, it is important to remember that “the Savior loves each of His Father’s children. He fully comprehends the pain and struggle that many experience as they live with a broad range of mental health challenges. He suffered ‘pains and afflictions and temptations of *every* kind; … \[taking\] upon him the pains and the sicknesses of his people’ ([[Alma 7.11|Alma 7:11]]; emphasis added; see also [[Hebrews 4.15|Hebrews 4:15–16]][[Hebrews 4.16|]]; [[2 Nephi 9.21|2 Nephi 9:21]]). Because He understands all afflictions, He knows how ‘to heal the brokenhearted’ ([[Luke 4.18|Luke 4:18]]; see also [[Isaiah 49.13|Isaiah 49:13–16]][[Isaiah 49.14|]][[Isaiah 49.15|]][[Isaiah 49.16|]]).”[^4] Challenges often indicate a need for additional tools and support and are not a character defect.
+To combat such deception, it is important to remember that “the Savior loves each of His Father’s children. He fully comprehends the pain and struggle that many experience as they live with a broad range of mental health challenges. He suffered ‘pains and afflictions and temptations of *every* kind; … \[taking\] upon him the pains and the sicknesses of his people’ ([[Alma 7.11|Alma 7:11]]; emphasis added; see also [[Hebrews 4.15|Hebrews 4:15–16]][[Hebrews 4.16|]]; [[2 Nephi 9.21|2 Nephi 9:21]]). Because He understands all afflictions, He knows how ‘to heal the brokenhearted’ ([[Luke 4.18|Luke 4:18]]; see also [[Isaiah 49.13|Isaiah 49:13–16]][[Isaiah 49.14|]][[Isaiah 49.15|]][[Isaiah 49.16|]]).”[^4] Challenges often indicate a need for additional tools and support and are not a character defect.
 
 Allow me to share several observations I made as our family has passed through trials.
 
@@ -42,7 +44,7 @@ Again, educating ourselves about mental illness prepares us to help ourselves an
 
 One of the first things we need to learn is that we are certainly not alone. I invite you to study the topic of mental health in the Life Help section of the Gospel Library app. Learning will lead to more understanding, more acceptance, more compassion, more love. It can lessen tragedy while helping us develop and manage healthy expectations and healthy interactions.
 
-My final observation: we need to constantly watch over each other. We must love one another and be less judgmental—especially when our expectations are not immediately met. We should help our children and youth feel the love of Jesus Christ in their lives, even when they struggle to personally feel love for themselves. Elder Orson F. Whitney, who served as a member of the Quorum of the Twelve Apostles, counseled parents how to help struggling offspring: “Pray for your … children; hold on to them with your faith.”[^6]
+My final observation: we need to constantly watch over each other. We must love one another and be less judgmental—especially when our expectations are not immediately met. We should help our children and youth feel the love of Jesus Christ in their lives, even when they struggle to personally feel love for themselves. Elder Orson F. Whitney, who served as a member of the Quorum of the Twelve Apostles, counseled parents how to help struggling offspring: “Pray for your … children; hold on to them with your faith.”[^6]
 
 I have often pondered what it means to hold on to them with faith. I believe it includes simple acts of love, meekness, kindness, and respect. It means allowing them to develop at their own pace and bearing testimony to help them feel our Savior’s love. It requires us to think more about them and less about ourselves or others. That usually means speaking less and listening much, much more. We must love them, empower them, and praise them often in their efforts to succeed and be faithful to God. And finally, we should do everything in our power to stay close to them—just as we stay close to God.
 
@@ -52,7 +54,7 @@ I testify that Jesus Christ is our Savior. He knows us. He loves us, and He will
 
 >*Fear not, I am with thee; oh, be not dismayed,*
 >*For I am thy God and will still give thee aid.*
->*I’ll strengthen thee, help thee, and cause thee to stand, …*
+>*I’ll strengthen thee, help thee, and cause thee to stand, …*
 >*Upheld by my righteous, omnipotent hand.*
 >
 
@@ -60,7 +62,7 @@ Knowing how firm our foundation is, may we ever joyfully declare:
 
 >*The soul that on Jesus hath leaned for repose*
 >*I will not, I cannot, desert to his foes;*
->*That soul, though all hell should endeavor to shake, …*
+>*That soul, though all hell should endeavor to shake, …*
 >*I’ll never, no never, no never forsake![^8]*
 >
 
@@ -73,20 +75,15 @@ In the name of Jesus Christ, amen.
 
 [^2]: “I’m Trying to Be like Jesus,” *Children’s Songbook*, 78–79.
 
-[^3]: See [[3 Nephi 12.48|3 Nephi 12:48]].
+[^3]: See [[3 Nephi 12.48|3 Nephi 12:48]].
 
-[^4]: “[Like a Broken Vessel](https://churchofjesuschrist.org/study/manual/mental-health-general-principles/2-like-a-broken-vessel?lang=eng&id=p2#p2),” Mental Health: General Principles, ChurchofJesusChrist.org.
+[^4]: “[Like a Broken Vessel](https://www.churchofjesuschrist.org/study/manual/mental-health-general-principles/2-like-a-broken-vessel?lang=eng&id=p2#p2),” Mental Health: General Principles, ChurchofJesusChrist.org.
 
-[^5]: Sheldon Martin, “[Strive to Be—a Pattern for Growth and Mental and Emotional Wellness](https://churchofjesuschrist.org/study/liahona/2021/08/strive-to-be-a-pattern-for-growth-and-mental-and-emotional-wellness?lang=eng&id=p12#p12),” *Liahona*, Aug. 2021, 14.
+[^5]: Sheldon Martin, “[Strive to Be—a Pattern for Growth and Mental and Emotional Wellness](https://www.churchofjesuschrist.org/study/liahona/2021/08/strive-to-be-a-pattern-for-growth-and-mental-and-emotional-wellness?lang=eng&id=p12#p12),” *Liahona*, Aug. 2021, 14.
 
-[^6]: Orson F. Whitney, in Conference Report, Apr. 1929, 110.
+[^6]: Orson F. Whitney, in Conference Report, Apr. 1929, 110.
 
 [^7]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
 [^8]: “How Firm a Foundation,” *Hymns*, no. 85.
 
-
-
-
-
-#Anxiety #Depression #Love #Mental_Health #Mental_Illness #Ministering

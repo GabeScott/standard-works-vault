@@ -1,6 +1,8 @@
 # You Are Not Alone in the Work
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Rosemary M. Wixom
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -8,7 +10,7 @@ By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/10/you-are-not-alone-in-the-work?lang=eng)
 
-My beloved brethren, we are grateful that the Lord has called Elder Ronald A. Rasband, Elder Gary E. Stevenson, and Elder Dale G. Renlund as Apostles of the Lord Jesus Christ. Our hearts, our prayers, and our faith sustain them.
+My beloved brethren, we are grateful that the Lord has called Elder Ronald A. Rasband, Elder Gary E. Stevenson, and Elder Dale G. Renlund as Apostles of the Lord Jesus Christ. Our hearts, our prayers, and our faith sustain them.
 
 We know of their great capacity. Yet they will need reassurance in their calls, as we all do, that the Lord is with them in His work. The newest deacon needs that confidence, as does the most experienced high priest who receives a new call.
 
@@ -48,11 +50,11 @@ The young man, who—like you—was a servant of the Lord, simply believed that 
 
 There will be times in your service when you won’t have the remarkable and visible success of that young elders quorum president. That is the time when you will need to be confident that the Lord, knowing you would do your part in the work, called you through His authorized servants. Having faith in the call from the Lord’s servants was crucial in the missionary service of my great-grandfather Henry Eyring.
 
-He was baptized on March 11, 1855, in St. Louis, Missouri. Erastus Snow ordained him to the office of a priest shortly thereafter. The president of the St. Louis Stake, John H. Hart, called him to serve a mission to the Cherokee Nation on October 6.[^1] He was ordained an elder on October 11. He left on horseback for the Cherokee Mission on October 24. He was 20 years old and a convert of only seven months.
+He was baptized on March 11, 1855, in St. Louis, Missouri. Erastus Snow ordained him to the office of a priest shortly thereafter. The president of the St. Louis Stake, John H. Hart, called him to serve a mission to the Cherokee Nation on October 6.[^1] He was ordained an elder on October 11. He left on horseback for the Cherokee Mission on October 24. He was 20 years old and a convert of only seven months.
 
 If any priesthood holder had a reason to feel unqualified or unprepared, it was Henry Eyring. The only reason he could have had the courage to go was that he knew in his heart that God had called him through His authorized servants. It was the source of his courage. That must be the source of our courage to persevere, whatever our callings in the priesthood.
 
-After Elder Eyring had served for three difficult years and upon the death of the mission president, Henry was nominated and sustained as president of the mission in a meeting held on October 6, 1858. He was surprised and as shocked as a new deacon would be. He wrote, “It was quite unexpected to me to be called to that responsible office but as it was the will of the brethren I cheerfully accepted, feeling at the same time my great weakness and lack of experience.”[^2]
+After Elder Eyring had served for three difficult years and upon the death of the mission president, Henry was nominated and sustained as president of the mission in a meeting held on October 6, 1858. He was surprised and as shocked as a new deacon would be. He wrote, “It was quite unexpected to me to be called to that responsible office but as it was the will of the brethren I cheerfully accepted, feeling at the same time my great weakness and lack of experience.”[^2]
 
 The now-President Eyring traveled to the Cherokee, Creek, and Choctaw Nations in 1859. Through his efforts, the Lord “added,” as Henry recorded, “a number to the church.” He organized two branches but noted that “very few are alive in the cause.”[^3]
 
@@ -64,7 +66,7 @@ He continued: “The following dream was given to me in answer to my prayer. I d
 
 Henry wrote in his journal, “Having had dreams before which were literally fulfilled I had faith to believe, that this also would be and consequently commenced at once to prepare for a start.”
 
-He arrived in Salt Lake City on August 29, 1860, having walked most of the way. Two days later, he walked into the office of President Brigham Young.[^5]
+He arrived in Salt Lake City on August 29, 1860, having walked most of the way. Two days later, he walked into the office of President Brigham Young.[^5]
 
 Henry described the experience in these words: “\[I\] called upon \[President\] Young, who received \[me\] very kindly. I said to him, ‘\[President\] Young I have come without being sent for, if I have done wrong, I am willing to return and finish my mission.’ \[Brigham Young\] answered: ‘It is all right, we have been looking for you.’”
 
@@ -89,17 +91,15 @@ I am grateful for the examples of faithful priesthood holders everywhere. Heaven
 
 [^1]: See “Minutes of the Conference,” *St. Louis Luminary,* Oct. 13, 1855, 187.
 
-[^2]: Henry Eyring letter to Brigham Young, Oct. 7, 1858, Brigham Young Office Files, Church History Library, Salt Lake City.
+[^2]: Henry Eyring letter to Brigham Young, Oct. 7, 1858, Brigham Young Office Files, Church History Library, Salt Lake City.
 
 [^3]: Henry Eyring report to Church Historian’s Office, Aug. 1860, Missionary Reports, Church History Library, Salt Lake City.
 
-[^4]: See Henry Eyring letter to Brigham Young, Oct. 9, 1859, Brigham Young Office Files, Church History Library, Salt Lake City.
+[^4]: See Henry Eyring letter to Brigham Young, Oct. 9, 1859, Brigham Young Office Files, Church History Library, Salt Lake City.
 
 [^5]: See President’s Office Journals, Aug. 31, 1860, vol. D, 137, Brigham Young Office Files, Church History Library, Salt Lake City.
 
 [^6]: Henry Eyring reminiscences, 1896, typescript, 27–28, Church History Library, Salt Lake City.
 
+[^7]: [[Matthew 25.23|Matthew 25:23]].
 
-
-
-#Activation #Atonement #Conversion #Example #Friendship #Priesthood #Service

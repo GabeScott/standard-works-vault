@@ -1,5 +1,7 @@
 # Friends Standing Together
 
+Gordon B. Hinckley
+
 By Kristin Banner - *Parrish Canyon Ward, Centerville Utah Stake*
 
 *Given in the April session of the 1997 General Conference*
@@ -25,8 +27,3 @@ In closing, I’d like to tell you all how humbled and grateful I am to share so
 
 
 
-
-
-
-
-#Faith #Friendship #Pioneers #Young_Women

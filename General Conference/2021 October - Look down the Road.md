@@ -1,6 +1,8 @@
 # Look down the Road
 
-By Elder Alvin F. Meredith III - *Of the Seventy*
+Russell M. Nelson
+
+By Elder Alvin F. Meredith III - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -77,19 +79,17 @@ I invite you to be intentional about “looking down the road” and increase yo
 
 [^7]: [[Matthew 14.30|Matthew 14:30]].
 
-[^8]: *Preach My Gospel: A Guide to Missionary Service* (2019), 50.
+[^8]: *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/lesson-2-the-plan-of-salvation?lang=eng&id=p11#p11)* (2019), 50.
 
-[^9]: See [[1 Nephi 8.26|1 Nephi 8:26–27]][[1 Nephi 8.27|]]; [[1 Nephi 12.18|12:18]].
+[^9]: See [[1 Nephi 8.26|1 Nephi 8:26–27]][[1 Nephi 8.27|]]; [[1 Nephi 12.18|12:18]].
 
 [^10]: [[Matthew 14.30|Matthew 14:30–31]][[Matthew 14.31|]].
 
 [^11]: See [[Mark 6.48|Mark 6:48]].
 
-[^12]: See [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^12]: See [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
-[^13]: See Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 121–24.
+[^13]: See Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 121–24.
 
+[^14]: See [[D&C 18.13|Doctrine and Covenants 18:13]].
 
-
-
-#Adversity #Faith #Hope #Jesus_Christ #Repentance

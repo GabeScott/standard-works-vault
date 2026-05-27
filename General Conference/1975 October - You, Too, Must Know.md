@@ -1,6 +1,8 @@
 # You, Too, Must Know
 
-By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -16,15 +18,15 @@ Those familiar with the scriptures are aware that many of the most powerful and 
 
 It has been particularly vital to me, since I did not have the blessing of knowing my own father before he died in my infancy, to discover what it was that parents, fathers especially, were anxious to have their sons learn, to feel the deep intensity of their desire to make known in thought and feelings to their own children what had become so greatly important to them.
 
-One powerful and motivating example of a father’s instructions to his children is the series of chapters in which Alma shares with his sons the profoundest lessons of his own life. From his experiences, good and bad (for he had both, like the rest of us), there were certain crucial convictions which he was anxious to teach. Of three such matters this humble man speaks in a strong and tender testimony to his son Helaman ([[Alma 36.1|Alma 36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]]), and repeats the witness to his other children.
+One powerful and motivating example of a father’s instructions to his children is the series of chapters in which Alma shares with his sons the profoundest lessons of his own life. From his experiences, good and bad (for he had both, like the rest of us), there were certain crucial convictions which he was anxious to teach. Of three such matters this humble man speaks in a strong and tender testimony to his son Helaman ([[Alma 36.1|Alma 36]]), and repeats the witness to his other children.
 
 “My son,” he said, “thou art in thy youth, and therefore, I beseech of thee that thou wilt hear my words and learn of me; for I do know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day.
 
 “And I would not that ye think that I know of myself—not of the temporal but of the spiritual, not of the carnal mind but of God.” ([[Alma 36.3|Alma 36:3–4]][[Alma 36.4|]].)
 
-“… \[for\] it is the Spirit of God which is in me which maketh these things known unto me; for if I had not been born of God I should not have known these things.
+“… \[for\] it is the Spirit of God which is in me which maketh these things known unto me; for if I had not been born of God I should not have known these things.
 
-“… and never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But … I did cry unto him and I did find peace to my soul.” ([[Alma 38.6|Alma 38:6–8]][[Alma 38.7|]][[Alma 38.8|]].)
+“… and never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But … I did cry unto him and I did find peace to my soul.” ([[Alma 38.6|Alma 38:6–8]][[Alma 38.7|]][[Alma 38.8|]].)
 
 “And I have been supported under trials and troubles of every kind, yea, and in all manner of afflictions; … and I do put my trust in him, and he will still deliver me.” ([[Alma 36.27|Alma 36:27]].)
 
@@ -34,7 +36,7 @@ That was this father’s first great witness to his sons: that he knew, in the o
 
 There is a second matter of which Alma testified to his son—that from the time of his own witness from the Lord, he said, “I have labored without ceasing, that I might bring souls unto repentance; that I might bring them to taste of that exceeding joy of which I did taste; that they might also be born of God, and be filled with the Holy Ghost.
 
-“… my son, the Lord doth give me exceeding great joy in the fruit of my labors;
+“… my son, the Lord doth give me exceeding great joy in the fruit of my labors;
 
 “For because of the word which he has imparted unto me … many have been born of God, and have tasted as I have tasted, and have seen eye to eye as I have seen; therefore they do know of these things of which I have spoken, as I do know; and the knowledge which I have is of God.” ([[Alma 36.24|Alma 36:24–26]][[Alma 36.25|]][[Alma 36.26|]].)
 
@@ -62,7 +64,7 @@ And there is something more I would add that you must know. Alma understood in a
 
 “And now because of their unbelief they could not understand the word of God; and their hearts were hardened.
 
-“… they would not be baptized; neither would they join the church … \[nor would they\] call upon the Lord their God.” ([[Mosiah 26.1|Mosiah 26:1–4]][[Mosiah 26.2|]][[Mosiah 26.3|]][[Mosiah 26.4|]].)
+“… they would not be baptized; neither would they join the church … \[nor would they\] call upon the Lord their God.” ([[Mosiah 26.1|Mosiah 26:1–4]][[Mosiah 26.2|]][[Mosiah 26.3|]][[Mosiah 26.4|]].)
 
 Alma, son of a prophet, and his friends, sons of a righteous king, partook of the spirit of rebellion and used their special gifts and talents to destroy faith. “He \[and they\] became a great hinderment to the prosperity of the church of God; stealing away the hearts of the people; causing much dissension … giving a chance for the enemy of God to exercise his power over them.” ([[Mosiah 27.9|Mosiah 27:9]].)
 
@@ -72,9 +74,9 @@ There is a wonderful description in the record of the program through which thes
 
 “But this is not all; they had given themselves to much prayer, and fasting; therefore they had the spirit of prophecy, and the spirit of revelation, and when they taught, they taught with power and authority of God.” ([[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]].)
 
-It is important now, as it has always been, that every man go to with his might, “take righteousness in his hands and faithfulness upon his loins, and lift a warning voice unto the inhabitants of the earth. …” ([[D&C 63.37|D&C 63:37]].)
+It is important now, as it has always been, that every man go to with his might, “take righteousness in his hands and faithfulness upon his loins, and lift a warning voice unto the inhabitants of the earth. …” ([[D&C 63.37|D&C 63:37]].)
 
-“… every man to his neighbor, in mildness and in meekness.” ([[D&C 38.41|D&C 38:41]].)
+“… every man to his neighbor, in mildness and in meekness.” ([[D&C 38.41|D&C 38:41]].)
 
 And let each of us remember that among our neighbors are those of our own households who must know for themselves.
 
@@ -95,8 +97,3 @@ I testify that God lives, and Jesus is the Christ, and this is his work. In the 
 
 
 
-
-
-
-
-#Fatherhood #Youth

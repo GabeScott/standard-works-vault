@@ -1,9 +1,8 @@
 # High Priest, Melchizedek Priesthood
 
+*See also* [[High Priest, Aaronic Priesthood.md|High Priest, Aaronic Priesthood]]; [[Priesthood, Melchizedek.md|Priesthood, Melchizedek]]; [[BD High priest.md|BD High priest]]
 
-*See also* [[High Priest, Aaronic Priesthood.md|High Priest, Aaronic Priesthood]]; [[Priesthood, Melchizedek.md|Priesthood, Melchizedek]]; [BD High priest](https://www.churchofjesuschrist.org/study/scriptures/bd/high-priest?lang=eng)
-
-Melchizedek ... *priest* of the most high God, [[Genesis 14.18|Genesis 14:18]].
+Melchizedek … *priest* of the most high God, [[Genesis 14.18|Genesis 14:18]].
 
 Thou art a *priest* for ever, [[Psalms 110.4|Psalms 110:4]].
 
@@ -21,11 +20,11 @@ Christ being come an *high priest*, [[Hebrews 9.11|Hebrews 9:11]].
 
 having an *high priest* over the house of God, [[Hebrews 10.21|Hebrews 10:21]].
 
-*priests* of God and of Christ ... reign with him, [[Revelation 20.6|Revelation 20:6]].
+*priests* of God and of Christ … reign with him, [[Revelation 20.6|Revelation 20:6]].
 
 ordained after the manner of his *holy order*, [[2 Nephi 6.2|2 Nephi 6:2]].
 
-*priests* ... should labor with their own hands, [[Mosiah 18.24|Mosiah 18:24]].
+*priests* … should labor with their own hands, [[Mosiah 18.24|Mosiah 18:24]].
 
 Alma, who was the *high priest*, [[Mosiah 26.7|Mosiah 26:7]] ([[Alma 4.4|Alma 4:4]]).
 
@@ -33,7 +32,7 @@ he retained the office of *high priest* unto himself, [[Alma 4.18|Alma 4:18]].
 
 Lord God ordained *priests*, after his holy order, [[Alma 13.1|Alma 13:1]].
 
-Every ... *high priest*, is to be ordained, [[D&C 20.67|D&C 20:67]].
+Every … *high priest*, is to be ordained, [[D&C 20.67|D&C 20:67]].
 
 as a *high priest* of the Melchizedek Priesthood, [[D&C 68.19|D&C 68:19]].
 
@@ -45,14 +44,12 @@ those who are sealed are *high priests*, [[D&C 77.11|D&C 77:11]] ([[Revelation 7
 
 *High priests* after the order of the Melchizedek Priesthood, [[D&C 107.10|D&C 107:10]].
 
-called Seth, Enos ... Enoch ... all *high priests*, [[D&C 107.53|D&C 107:53]].
+called Seth, Enos … Enoch … all *high priests*, [[D&C 107.53|D&C 107:53]].
 
 Presiding *High Priest* over the High Priesthood, [[D&C 107.66|D&C 107:66]].
 
-duty of the President ... of the *High Priesthood*, [[D&C 107.91|D&C 107:91]].
+duty of the President … of the *High Priesthood*, [[D&C 107.91|D&C 107:91]].
 
 Shem, the great *high priest*, [[D&C 138.41|D&C 138:41]].
 
 I became a rightful heir, a *High Priest*, [[Abraham 1.2|Abraham 1:2]].
-
-*See also* [[3 Nephi 6.21|3 Nephi 6:21]].

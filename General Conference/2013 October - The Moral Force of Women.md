@@ -1,6 +1,8 @@
 # The Moral Force of Women
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -24,7 +26,7 @@ My grandmother Adena Warnick Swenson taught me to be conscientious in priesthood
 
 A woman’s moral influence is nowhere more powerfully felt or more beneficially employed than in the home. There is no better setting for rearing the rising generation than the traditional family, where a father and a mother work in harmony to provide for, teach, and nurture their children. Where this ideal does not exist, people strive to duplicate its benefits as best they can in their particular circumstances.
 
-In all events, a mother can exert an influence unequaled by any other person in any other relationship. By the power of her example and teaching, her sons learn to respect womanhood and to incorporate discipline and high moral standards in their own lives. Her daughters learn to cultivate their own virtue and to stand up for what is right, again and again, however unpopular. A mother’s love and high expectations lead her children to act responsibly without excuses, to be serious about education and personal development, and to make ongoing contributions to the well-being of all around them. Elder Neal A. Maxwell once asked: “When the real history of mankind is fully disclosed, will it feature the echoes of gunfire or the shaping sound of lullabies? The great armistices made by military men or the peacemaking of women in homes and in neighborhoods? Will what happened in cradles and kitchens prove to be more controlling than what happened in congresses?”[^3]
+In all events, a mother can exert an influence unequaled by any other person in any other relationship. By the power of her example and teaching, her sons learn to respect womanhood and to incorporate discipline and high moral standards in their own lives. Her daughters learn to cultivate their own virtue and to stand up for what is right, again and again, however unpopular. A mother’s love and high expectations lead her children to act responsibly without excuses, to be serious about education and personal development, and to make ongoing contributions to the well-being of all around them. Elder Neal A. Maxwell once asked: “When the real history of mankind is fully disclosed, will it feature the echoes of gunfire or the shaping sound of lullabies? The great armistices made by military men or the peacemaking of women in homes and in neighborhoods? Will what happened in cradles and kitchens prove to be more controlling than what happened in congresses?”[^3]
 
 Most sacred is a woman’s role in the creation of life. We know that our physical bodies have a divine origin[^4] and that we must experience both a physical birth and a spiritual rebirth to reach the highest realms in God’s celestial kingdom.[^5] Thus, women play an integral part (sometimes at the risk of their own lives) in God’s work and glory “to bring to pass the immortality and eternal life of man.”[^6] As grandmothers, mothers, and role models, women have been the guardians of the wellspring of life, teaching each generation the importance of sexual purity—of chastity before marriage and fidelity within marriage. In this way, they have been a civilizing influence in society; they have brought out the best in men; they have perpetuated wholesome environments in which to raise secure and healthy children.
 
@@ -38,7 +40,7 @@ There has long been a cultural double standard that expected women to be sexuall
 
 A third area of concern comes from those who, in the name of equality, want to erase all differences between the masculine and the feminine. Often this takes the form of pushing women to adopt more masculine traits—be more aggressive, tough, and confrontational. It is now common in movies and video games to see women in terribly violent roles, leaving dead bodies and mayhem in their wake. It is soul-numbing to see men in such roles and certainly no less so when women are the ones perpetrating and suffering the violence.
 
-Former Young Women general president Margaret D. Nadauld taught: “The world has enough women who are tough; we need women who are tender. There are enough women who are coarse; we need women who are kind. There are enough women who are rude; we need women who are refined. We have enough women of fame and fortune; we need more women of faith. We have enough greed; we need more goodness. We have enough vanity; we need more virtue. We have enough popularity; we need more purity.”[^10] In blurring feminine and masculine differences, we lose the distinct, complementary gifts of women and men that together produce a greater whole.
+Former Young Women general president Margaret D. Nadauld taught: “The world has enough women who are tough; we need women who are tender. There are enough women who are coarse; we need women who are kind. There are enough women who are rude; we need women who are refined. We have enough women of fame and fortune; we need more women of faith. We have enough greed; we need more goodness. We have enough vanity; we need more virtue. We have enough popularity; we need more purity.”[^10] In blurring feminine and masculine differences, we lose the distinct, complementary gifts of women and men that together produce a greater whole.
 
 My plea to women and girls today is to protect and cultivate the moral force that is within you. Preserve that innate virtue and the unique gifts you bring with you into the world. Your intuition is to do good and to be good, and as you follow the Holy Spirit, your moral authority and influence will grow. To the young women I say, don’t lose that moral force even before you have it in full measure. Take particular care that your language is clean, not coarse; that your dress reflects modesty, not vanity; and that your conduct manifests purity, not promiscuity. You cannot lift others to virtue on the one hand if you are entertaining vice on the other.
 
@@ -53,11 +55,11 @@ Dear sisters, we rely on the moral force you bring to the world, to marriage, to
 
 
 
-[^1]: [[2 Timothy 1.5|2 Timothy 1:5]].
+[^1]: [[2 Timothy 1.5|2 Timothy 1:5]].
 
-[^2]: Orson Scott Card, “Neighborliness: Daines Style,” *Ensign,* Apr. 1977, 19.
+[^2]: Orson Scott Card, “Neighborliness: Daines Style,” *Ensign,* Apr. 1977, 20.
 
-[^3]: Neal A. Maxwell, “The Women of God,” *Ensign,* May 1978, 10–11.
+[^3]: Neal A. Maxwell, “The Women of God,” *Ensign,* May 1978, 10–11.
 
 [^4]: See [[Moses 2.27|Moses 2:27]].
 
@@ -65,26 +67,21 @@ Dear sisters, we rely on the moral force you bring to the world, to marriage, to
 
 [^6]: [[Moses 1.39|Moses 1:39]].
 
-[^7]: “A century ago, attachment scholar John Bowlby found that the bond created through the innumerable caring interactions between a mother and child is the critical foundation for social-emotional development. … And feminist scholar Sara Ruddick identified a mother’s ‘attentive love’ as the core of effective parenting. Through the ‘patient eye of love,’ mothers develop a special knowledge of their children—a knowledge that gives them unique insight into what the truly ‘best practices’ for each child should be” (Jenet Jacob Erickson, “Love, Not Perfection, Root of Good Mothering,” *Deseret News,* May 12, 2013, G3).
+[^7]: “A century ago, attachment scholar John Bowlby found that the bond created through the innumerable caring interactions between a mother and child is the critical foundation for social-emotional development. … And feminist scholar Sara Ruddick identified a mother’s ‘attentive love’ as the core of effective parenting. Through the ‘patient eye of love,’ mothers develop a special knowledge of their children—a knowledge that gives them unique insight into what the truly ‘best practices’ for each child should be” (Jenet Jacob Erickson, “Love, Not Perfection, Root of Good Mothering,” *Deseret News,* May 12, 2013, G3).
 
-[^8]: It is true that many women over many generations have been exploited or saddled with unfair burdens both in family and employment, but selflessness and sacrifice need not and should not become abusive or exploitative. Elder Bruce C. Hafen observed: “If being ‘selfless’ means a woman must give up her own inner identity and personal growth, that understanding of selflessness is wrong. … But today’s liberationist model goes too far the other way, stereotyping women as excessively *independent* of their families. A more sensible view is that husbands and wives are *interdependent* with each other. … The critics who moved mothers from dependence to independence skipped the fertile middle ground of interdependence. Those who moved mothers from selflessness to selfishness skipped the fertile middle ground of self-chosen service that contributes toward a woman’s personal growth. Because of these excesses, debates about the value of motherhood have, ironically, caused the general society to discount not only mothers but women in general” (“Motherhood and the Moral Influence of Women” \[remarks to the World Congress of Families II, Geneva, Plenary Session IV, Nov. 16, 1999\], http://worldcongress.org/wcf2_spkrs/wcf2_hafen.htm).
+[^8]: It is true that many women over many generations have been exploited or saddled with unfair burdens both in family and employment, but selflessness and sacrifice need not and should not become abusive or exploitative. Elder Bruce C. Hafen observed: “If being ‘selfless’ means a woman must give up her own inner identity and personal growth, that understanding of selflessness is wrong. … But today’s liberationist model goes too far the other way, stereotyping women as excessively *independent* of their families. A more sensible view is that husbands and wives are *interdependent* with each other. … The critics who moved mothers from dependence to independence skipped the fertile middle ground of interdependence. Those who moved mothers from selflessness to selfishness skipped the fertile middle ground of self-chosen service that contributes toward a woman’s personal growth. Because of these excesses, debates about the value of motherhood have, ironically, caused the general society to discount not only mothers but women in general” (“Motherhood and the Moral Influence of Women” \[remarks to the World Congress of Families II, Geneva, Plenary Session IV, Nov. 16, 1999\], http://worldcongress.org/wcf2_spkrs/wcf2_hafen.htm).
 
-[^9]: One mother in a *Wall Street Journal* editorial observed: “With the exception of some Mormons, evangelicals and Orthodox Jews, scads of us don’t know how to teach our own sons and daughters not to give away their bodies so readily. … Still, in my own circle of girlfriends, the desire to push back is strong. I don’t know one of them who doesn’t have feelings of lingering discomfort regarding her own sexual past. And not one woman I’ve ever asked about the subject has said that she wishes she’d ‘experimented’ more” (Jennifer Moses, “Why Do We Let Them Dress Like That?” *Wall Street Journal,* Mar. 19, 2011, C3).
+[^9]: One mother in a *Wall Street Journal* editorial observed: “With the exception of some Mormons, evangelicals and Orthodox Jews, scads of us don’t know how to teach our own sons and daughters not to give away their bodies so readily. … Still, in my own circle of girlfriends, the desire to push back is strong. I don’t know one of them who doesn’t have feelings of lingering discomfort regarding her own sexual past. And not one woman I’ve ever asked about the subject has said that she wishes she’d ‘experimented’ more” (Jennifer Moses, “Why Do We Let Them Dress Like That?” *Wall Street Journal,* Mar. 19, 2011, C3).
 
-[^10]: Margaret D. Nadauld, “The Joy of Womanhood,” *Ensign,* Nov. 2000, 15; or *Liahona,* Jan. 2001, 18.
+[^10]: Margaret D. Nadauld, “The Joy of Womanhood,” *Ensign,* Nov. 2000, 15; or *Liahona,* Jan. 2001, 18.
 
 [^11]: See [[John 8.29|John 8:29]].
 
-[^12]: [[1 Peter 3.15|1 Peter 3:15]].
+[^12]: [[1 Peter 3.15|1 Peter 3:15]].
 
-[^13]: [[2 Timothy 4.2|2 Timothy 4:2]].
+[^13]: [[2 Timothy 4.2|2 Timothy 4:2]].
 
 [^14]: [[D&C 93.40|Doctrine and Covenants 93:40]].
 
 [^15]: [[D&C 68.28|Doctrine and Covenants 68:28]].
 
-
-
-
-
-#Family #Morality #Motherhood #Women

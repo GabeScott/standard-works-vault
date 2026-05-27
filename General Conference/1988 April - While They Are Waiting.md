@@ -1,5 +1,7 @@
 # While They Are Waiting
 
+Ezra Taft Benson
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -14,7 +16,7 @@ I recall vividly and with feeling this friend’s additional request, “Please 
 
 How can we as Church members best help these good people?
 
-I suggest a quotation from the Book of Mormon as a foundation for our actions: “Nevertheless, ye shall not cast him out from among you, but ye shall minister unto him and shall pray for him unto the Father, in my name; and if it so be that he repenteth and is baptized in my name, then shall ye receive him, and shall minister unto him of my flesh and blood” ([[3 Nephi 18.30|3 Ne. 18:30]]).
+I suggest a quotation from the Book of Mormon as a foundation for our actions: “Nevertheless, ye shall not cast him out from among you, but ye shall minister unto him and shall pray for him unto the Father, in my name; and if it so be that he repenteth and is baptized in my name, then shall ye receive him, and shall minister unto him of my flesh and blood” ([[3 Nephi 18.30|3 Ne. 18:30]]).
 
 Often in the scriptures we are reminded that we should minister to all of God’s children, that we should do so with the pure love of God in our hearts. George Bernard Shaw once wrote, “The worst sin towards our fellow creatures is not to hate them, but to be indifferent to them” (*The Devil’s Disciple,* act 2). Indifference can be one of the most hurtful ways of behavior. Never should we in life allow ourselves to turn away, walk on the other side of the street, and pretend we didn’t see, or prohibit involvement in accepted ways. We need to learn to love everyone, even those who are difficult.
 
@@ -24,9 +26,9 @@ As we support the efforts of those who are trying to work through their challeng
 
 Many of those “waiting” have often been hurt by thoughtless words and deeds of those around them. Blessed is he or she who avoids being offended. There are appropriate and acceptable assignments which can and should be given to those who are in this waiting period.
 
-Now as to the request of my friend, “What can I do while I’m waiting?” Also from 3 Nephi we are given this warm invitation:
+Now as to the request of my friend, “What can I do while I’m waiting?” Also from 3 Nephi we are given this warm invitation:
 
-“Yea, verily I say unto you, if ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come, him will I receive; and blessed are those who come unto me” ([[3 Nephi 9.14|3 Ne. 9:14]]).
+“Yea, verily I say unto you, if ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come, him will I receive; and blessed are those who come unto me” ([[3 Nephi 9.14|3 Ne. 9:14]]).
 
 This scripture indicates that in life there is no waiting period before we can come unto God. In our weakness we know where we can turn for strength. What good advice and wise direction for our lives can be gleaned through study of the scriptures! Self-esteem can be renewed and strength to do His will can be revived. People must always count more than programs.
 
@@ -54,11 +56,11 @@ While waiting, there are many ways to participate:
 
 7. **Participate in worthy community projects, including compassionate and other volunteer services.** Often our own problems seem to diminish when we become aware of the challenges faced by others. When my wife was volunteering as a pink lady at one of our local hospitals, she noticed that some of the doctors in the area would encourage their patients who were depressed, sad, or emotionally ill to join the volunteer organization. That prescription often worked better than medicine to build self-image and restore health to those who found joy in helping others.As budget cuts plague so many of our cultural and civic programs, there is a place for anyone who desires to work with Scouts, help with reputable drives to collect money, and help in schools, art galleries, welfare agencies, and many other places.There are no restrictions on participating in good works. There are no reasons to wait while God’s children are in need of your love and service. Love should be a vehicle allowed to travel without limitations. Jesus was always supremely interested in the individual over the circumstances.
 
-8. **Participate in “reporting in.”** Part of your responsibility in coming back is to find someone with whom you can share your concerns, questions, and progress. John Powell, in his book *The Secret of Staying in Love,* tells us that “the genius of communication is the ability to be both totally honest and totally kind at the same time” (Valencia, California: Tabor Publishing, 1974, p. 131).Look for this kind of person in your life. Problems often seem to diminish when they are vocalized. Another person’s point of view may help you gain a different perspective of a situation. It is comforting to have a listener who will share your feelings and respect your needs.Communication should be kind, gentle, open, and constructive.One of the greatest blessings available to all is personal prayer. By this means everyone can “report in” to an understanding Father who loves all His children. God knows the feelings in every human heart. He can soften sorrow and lead when there seems to be no light. Prayer can give guidance and confidence. It reminds us that no one need be alone in this world. If all else fails, remember: God and one other person can be a family.
+8. **Participate in “reporting in.”** Part of your responsibility in coming back is to find someone with whom you can share your concerns, questions, and progress. John Powell, in his book *The Secret of Staying in Love,* tells us that “the genius of communication is the ability to be both totally honest and totally kind at the same time” (Valencia, California: Tabor Publishing, 1974, p. 131).Look for this kind of person in your life. Problems often seem to diminish when they are vocalized. Another person’s point of view may help you gain a different perspective of a situation. It is comforting to have a listener who will share your feelings and respect your needs.Communication should be kind, gentle, open, and constructive.One of the greatest blessings available to all is personal prayer. By this means everyone can “report in” to an understanding Father who loves all His children. God knows the feelings in every human heart. He can soften sorrow and lead when there seems to be no light. Prayer can give guidance and confidence. It reminds us that no one need be alone in this world. If all else fails, remember: God and one other person can be a family.
 
 My plea and invitation to all, especially to those who have temporarily lost certain privileges, is come back. Your lives are as important to us as they should be to you. One of the main goals of the Church is to secure the development and happiness of the individual. We want to have your association and your influence. President David O. McKay once wrote:
 
-“In thus emphasizing individual effort, I am not unmindful of the necessity of cooperation. A single, struggling individual may be stalled with his heavy load even as he begins to climb the hill before him. To reach the top unaided is an impossibility. With a little help from fellow travelers he makes the grade and goes on his way in gratitude and rejoicing” (*Pathways to Happiness,* comp. Llewelyn R. McKay, Salt Lake City: Bookcraft, 1957, p. 131).
+“In thus emphasizing individual effort, I am not unmindful of the necessity of cooperation. A single, struggling individual may be stalled with his heavy load even as he begins to climb the hill before him. To reach the top unaided is an impossibility. With a little help from fellow travelers he makes the grade and goes on his way in gratitude and rejoicing” (*Pathways to Happiness,* comp. Llewelyn R. McKay, Salt Lake City: Bookcraft, 1957, p. 131).
 
 We want to be your fellow travelers while you are en route back. Anxiously engage in actions and attitudes that will bring full fellowship and the accompanying joys and rights to which you will be entitled. We will be at your side to help as you travel upward in a support system with God at the helm. We promise you in all the days ahead, that while you are going through what is identified as a waiting period, the quotation from [[Psalms 142.4|Psalm 142:4]] will not be your relationship to us: “I looked on my right hand, and beheld, but there was no man that would know me: refuge failed me; no man cared for my soul.”
 
@@ -67,5 +69,3 @@ We love you. We know you, and we care for you. We are all God’s children, and 
 
 
 
-
-#Activation #Compassion #Disciplinary_Councils #Fellowshipping #Love #Repentance #Responsibility

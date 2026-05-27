@@ -1,6 +1,5 @@
 # Fish
 
-
 dominion over the *fish* of the sea, [[Genesis 1.26|Genesis 1:26]] ([[Moses 2.28|Moses 2:28]]; [[Abraham 4.26|Abraham 4:26]]).
 
 *fish* that was in the river died, [[Exodus 7.21|Exodus 7:21]].
@@ -9,7 +8,7 @@ remember the *fish*, which we did eat in Egypt, [[Numbers 11.5|Numbers 11:5]].
 
 *fish* gate did the sons of Hassenaah build, [[Nehemiah 3.3|Nehemiah 3:3]].
 
-I will send for many fishers ... they shall *fish* them, [[Jeremiah 16.16|Jeremiah 16:16]].
+I will send for many fishers … they shall *fish* them, [[Jeremiah 16.16|Jeremiah 16:16]].
 
 prepared a great *fish* to swallow up Jonah, [[Jonah 1.17|Jonah 1:17]].
 
@@ -27,7 +26,7 @@ great multitude of *fishes*: and their net brake, [[Luke 5.6|Luke 5:6]].
 
 they gave him a piece of a broiled *fish*, [[Luke 24.42|Luke 24:42]].
 
-Peter saith ... I go a *fishing*, [[John 21.3|John 21:3]].
+Peter saith … I go a *fishing*, [[John 21.3|John 21:3]].
 
 not able to draw it for the multitude of *fishes*, [[John 21.6|John 21:6]].
 

@@ -1,5 +1,7 @@
 # Priceless Principles for Success
 
+Gordon B. Hinckley
+
 By Elder Claudio R. M. Costa - *Of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -39,8 +41,3 @@ I shall always remember the counsel given by our beloved President Spencer W. Ki
 
 
 
-
-
-
-
-#Spirituality #Success

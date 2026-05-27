@@ -1,6 +1,8 @@
 # Gratitude
 
-By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Richard G. Scott - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -26,13 +28,8 @@ And again, “I will tell you in your mind and in your heart, by the Holy Ghost,
 
 I know the reality of the promptings of the Holy Ghost. In times of urgent need, after meditation and prayer to receive confirmation of a selected course of action, those promptings have given the comforted feeling that it was right. Other times, without beckoning, counsel and instruction and assurance have come through the power of the Holy Ghost; and then, at times, there have flooded into my mind and heart warnings of impending danger that would have otherwise overtaken me.
 
-Yes, I know that Spencer W. Kimball is a prophet of God. I know that Jesus Christ lives and loves each one of us. I know that God our Eternal Father answers prayer, unmistakably, when we live worthy of such answers. I publicly commit my life, my energy, all that I am to the service of the Master and to the building of His kingdom, in Jesus’ name. Amen.
+Yes, I know that Spencer W. Kimball is a prophet of God. I know that Jesus Christ lives and loves each one of us. I know that God our Eternal Father answers prayer, unmistakably, when we live worthy of such answers. I publicly commit my life, my energy, all that I am to the service of the Master and to the building of His kingdom, in Jesus’ name. Amen.
 
 
 
 
-
-
-
-
-#Testimony

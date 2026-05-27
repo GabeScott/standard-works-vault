@@ -1,6 +1,8 @@
 # Love, Share, Invite
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -62,7 +64,7 @@ We all share things with others. We do it often. We share what movies and food w
 
 How might we simply add to the list of things we already share what we love about the gospel of Jesus Christ?
 
-Elder Dieter F. Uchtdorf explained: “If someone asks about your weekend, don’t hesitate to talk about what you experienced at church. Tell about the little children who stood in front of a congregation and sang with eagerness how they are trying to be like Jesus. Talk about the group of youth who spent time helping the elderly in rest homes to compile personal histories.”[^7]
+Elder Dieter F. Uchtdorf explained: “If someone asks about your weekend, don’t hesitate to talk about what you experienced at church. Tell about the little children who stood in front of a congregation and sang with eagerness how they are trying to be like Jesus. Talk about the group of youth who spent time helping the elderly in rest homes to compile personal histories.”[^7]
 
 Sharing isn’t about “selling” the gospel. You don’t have to write a sermon or correct someone’s incorrect perceptions.
 
@@ -109,7 +111,7 @@ That we may heed the Savior’s call and strive to engage in His great commissio
 
 [^1]: [[Matthew 28.19|Matthew 28:19]].
 
-[^2]: What was the cause of the growth of the early Church? One historian suggests: “The first thing that would have elicited serious inquiry concerning the nature of the faith was personal contact with other believers. … To live and work alongside those who followed Jesus, to witness their behavior at close quarters, and to listen as they talked about the gospel amid their ordinary daily activities was to be confronted by the evidence of changed lives. In this sense, the drawing power of the Christian faith must often have consisted not so much in the public declarations of its most prominent representatives as in the quiet testimony of ordinary worshipers of Jesus witnessing to the credibility of their commitment by their integrity, constancy, and openness to others” (Ivor J. Davidson, *The Birth of the Church: From Jesus to Constantine, AD 30–312* \[2005\], 108–9).
+[^2]: What was the cause of the growth of the early Church? One historian suggests: “The first thing that would have elicited serious inquiry concerning the nature of the faith was personal contact with other believers. … To live and work alongside those who followed Jesus, to witness their behavior at close quarters, and to listen as they talked about the gospel amid their ordinary daily activities was to be confronted by the evidence of changed lives. In this sense, the drawing power of the Christian faith must often have consisted not so much in the public declarations of its most prominent representatives as in the quiet testimony of ordinary worshipers of Jesus witnessing to the credibility of their commitment by their integrity, constancy, and openness to others” (Ivor J. Davidson, *The Birth of the Church: From Jesus to Constantine, AD 30–312* \[2005\], 108–9).
 
 [^3]: See [Lucy Mack Smith, History, 1845, page 169](https://www.josephsmithpapers.org/paper-summary/lucy-mack-smith-history-1845/177), josephsmithpapers.org.
 
@@ -119,10 +121,5 @@ That we may heed the Savior’s call and strive to engage in His great commissio
 
 [^6]: [[Matthew 5.16|Matthew 5:16]].
 
-[^7]: Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 17.
+[^7]: Dieter F. Uchtdorf, “[[2019 April - Missionary Work - Sharing What Is in Your Heart.md|Missionary Work: Sharing What Is in Your Heart]],” *Ensign* or *Liahona*, May 2019, 17.
 
-
-
-
-
-#Discipleship #Love #Missionary_Work #Sharing

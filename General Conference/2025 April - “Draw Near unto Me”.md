@@ -1,6 +1,8 @@
 # “Draw Near unto Me”
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Dallin H. Oaks
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -82,7 +84,7 @@ Just as His beloved disciples, every child of Heavenly Father who has chosen to 
 
 “As ye are desirous to come into the fold of God, and to be called his people, and are willing to bear one another’s burdens, that they may be light;
 
-“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.”[^9]
+“Yea, and are willing to mourn with those that mourn; yea, and comfort those that stand in need of comfort, and to stand as witnesses of God at all times and in all things, and in all places … , even until death, that ye may be redeemed of God, … that ye may have eternal life.”[^9]
 
 As you are faithful to these promises, you will find that the Lord keeps His promise to be one with you in your service, making your burdens light. You will come to know the Savior, and in time you will come to be like Him and “be perfected in him.”[^10] By helping others for the Savior, you will find that you are drawing nearer to Him.
 
@@ -105,7 +107,7 @@ I testify as a witness of the risen Savior and our Redeemer, in the name of Jesu
 
 [^1]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-[^2]: “Abide with Me; ’Tis Eventide,” *Hymns*, no. 165.
+[^2]: “Abide with Me; ’Tis Eventide,” *Hymns*, no. 165.
 
 [^3]: [[Luke 24.5|Luke 24:5–7]][[Luke 24.6|]][[Luke 24.7|]].
 
@@ -127,8 +129,3 @@ I testify as a witness of the risen Savior and our Redeemer, in the name of Jesu
 
 [^12]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-
-#Discipleship #Jesus_Christ #Love #Resurrection #Service

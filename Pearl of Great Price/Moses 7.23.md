@@ -7,4 +7,4 @@
 
 [^a]: [[Heaven|TG Heaven]].  
 [^b]: [[Vision|TG Vision]].  
-[^c]: [[D&C 88.47|D&C 88:47 (45–47)]]; [[Moses 1.28|Moses 1:28 (27–29)]]; [[Abraham 3.21|Abr. 3:21 (21–23)]].  
+[^c]: [[D&C 88.45|D&C 88:47 (45–47)]][[D&C 88.46|]][[D&C 88.47|]]; [[Moses 1.27|Moses 1:28 (27–29)]][[Moses 1.28|]][[Moses 1.29|]]; [[Abraham 3.21|Abr. 3:21 (21–23)]][[Abraham 3.22|]][[Abraham 3.23|]].  

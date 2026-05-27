@@ -1,6 +1,8 @@
 # Obedience, Consecration, and Sacrifice
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -42,7 +44,7 @@ Wasn’t there someone once who said, “Beware of covetousness: for a man’s l
 
 And then did He not conclude the matter by saying, “So is he that layeth up treasure for himself, and is not rich toward God.” ([[Luke 12.15|Luke 12:15–21]][[Luke 12.16|]][[Luke 12.17|]][[Luke 12.18|]][[Luke 12.19|]][[Luke 12.20|]][[Luke 12.21|]].)
 
-When the prophet Gad commanded David to build an altar and offer sacrifice on property owned by a certain man, that man offered to provide the land, the oxen, and all things for the sacrifice, without cost. But David said, “Nay; but I will surely buy it of thee at a price: neither will I offer burnt offerings unto the Lord my God of that which doth cost me nothing.” ([[2 Samuel 24.24|2 Sam. 24:24]].)
+When the prophet Gad commanded David to build an altar and offer sacrifice on property owned by a certain man, that man offered to provide the land, the oxen, and all things for the sacrifice, without cost. But David said, “Nay; but I will surely buy it of thee at a price: neither will I offer burnt offerings unto the Lord my God of that which doth cost me nothing.” ([[2 Samuel 24.24|2 Sam. 24:24]].)
 
 When it costs us but little to give, the treasure laid up in heaven is a small one. The widow’s mite, given in sacrifice, weighs more heavily in the eternal scales than the bulging granaries of the rich man.
 
@@ -88,7 +90,7 @@ And the fact that faithful members of the Church do all these things is one of t
 
 In the true church we neither preach for hire nor divine for money. We follow the pattern of Paul and make the gospel of Christ without charge, lest we abuse or misuse the power the Lord has given us. Freely we have received and freely we give, for salvation is free. All who thirst are invited to come and drink of the waters of life, to buy corn and wine without money and without price.
 
-All our service in God’s kingdom is predicated on his eternal law which states: “The laborer in Zion shall labor for Zion, for if they labor for money they shall perish.” ([[2 Nephi 26.31|2 Ne. 26:31]].)
+All our service in God’s kingdom is predicated on his eternal law which states: “The laborer in Zion shall labor for Zion, for if they labor for money they shall perish.” ([[2 Nephi 26.31|2 Ne. 26:31]].)
 
 We know full well that the laborer is worthy of his hire, and that those who devote all their time to the building up of the kingdom must be provided with food, clothing, shelter, and the necessaries of life. We must employ teachers in our schools, architects to design our temples, contractors to build our synagogues, and managers to run our businesses. But those so employed, along with the whole membership of the Church, participate also on a freewill and voluntary basis in otherwise furthering the Lord’s work. Bank presidents work on welfare projects. Architects leave their drafting boards to go on missions. Contractors lay down their tools to serve as home teachers or bishops. Lawyers put aside *Corpus Juris* and the Civil Code to act as guides on Temple Square. Teachers leave the classroom to visit the fatherless and widows in their affliction. Musicians who make their livelihood from their artistry willingly direct church choirs and perform at church gatherings. Artists who paint for a living are pleased to volunteer their services freely.
 
@@ -103,8 +105,3 @@ In the name of the Lord Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Consecration #Obedience #Sacrifice

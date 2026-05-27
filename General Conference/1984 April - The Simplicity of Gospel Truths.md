@@ -1,5 +1,7 @@
 # The Simplicity of Gospel Truths
 
+Gordon B. Hinckley
+
 By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -22,7 +24,7 @@ As we stood by beautiful Galilee, we marveled at the simplicity of His unique bu
 
 Such quotes are typical of the Master Teacher, He who taught pure and plain truth, spoken in humility and with beautiful simplicity.
 
-This reawakening to the superb teachings of the Savior while we were in Israel was most reassuring. How simple and pure are the concepts he left us. Indeed, Paul held the same view as he wrote to the Saints of Corinth, “For God is not the author of confusion, but of peace.” ([[1 Corinthians 14.33|1 Cor. 14:33]].)
+This reawakening to the superb teachings of the Savior while we were in Israel was most reassuring. How simple and pure are the concepts he left us. Indeed, Paul held the same view as he wrote to the Saints of Corinth, “For God is not the author of confusion, but of peace.” ([[1 Corinthians 14.33|1 Cor. 14:33]].)
 
 James said it another way: “But the wisdom that is from above is first pure, then peaceable, gentle, and easy to be entreated, full of mercy.” (See [[James 3.16|James 3:16–17]][[James 3.17|]].)
 
@@ -40,9 +42,9 @@ Without doubt the Savior had in mind the implicit faith and sincerity of a littl
 
 Perhaps we should all take heed as we listen to our children pray. I remember well Elder Monson’s story yesterday. When our daughter, Christine, was still very young she was always invited to take her turn praying in the family circle. We as a family always prayed that we might be a healthy family. Some of her words came with difficulty. She couldn’t say “healthy,” and it always came out, “Bless us, Heavenly Father, to be a wealthy family.” That sounded good to me—we just let her go on like that—but Heavenly Father knew what she meant, and wealth has eluded us.
 
-That wise and noble prophet and teacher King Benjamin taught his people about putting off the natural man and becoming a Saint through the atonement of Christ the Lord. Then he added that we must become as a child, “submissive, meek, humble, patient, full of love, willing to submit to all things … , even as a child doth submit to his father.” ([[Mosiah 3.19|Mosiah 3:19]].)
+That wise and noble prophet and teacher King Benjamin taught his people about putting off the natural man and becoming a Saint through the atonement of Christ the Lord. Then he added that we must become as a child, “submissive, meek, humble, patient, full of love, willing to submit to all things … , even as a child doth submit to his father.” ([[Mosiah 3.19|Mosiah 3:19]].)
 
-We have always been taught that the gospel of Jesus Christ embraces all truth, wherever that truth is found. This should also include truth found in science. The simplicity of basic truth in the fields of chemistry and physics has always intrigued me. For example, there is the simple expression that HO is the chemical formula for water. Also fascinating is the fact that Einstein could express his mind-expanding theory of relativity by the simple equation E = mc. It almost appears that the closer we approach a basic truth, the more simply it can be expressed.
+We have always been taught that the gospel of Jesus Christ embraces all truth, wherever that truth is found. This should also include truth found in science. The simplicity of basic truth in the fields of chemistry and physics has always intrigued me. For example, there is the simple expression that H2O is the chemical formula for water. Also fascinating is the fact that Einstein could express his mind-expanding theory of relativity by the simple equation E = mc2. It almost appears that the closer we approach a basic truth, the more simply it can be expressed.
 
 The best example of this in religious truth is perhaps the oft-repeated scriptural passage found in Moses in the Pearl of Great Price, wherein God states in a single sentence the total objective of all eternity: “For behold, this is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
@@ -84,13 +86,8 @@ He said that he turned around, fully, expecting to see an angel standing there; 
 
 Not long ago a young American woman living in Taiwan felt that her taxi driver was taking her the long way around in order to increase the fare. She was in the process of venting her feelings in unmistakable terms when the young Chinese driver, obviously hurt by the accusation, stopped the cab, turned off the ignition, then turned around and said simply, “I would not do that. I am a Mormon.” Calmed down and totally disarmed by the sincerity of his statement, she then asked what a Mormon was. She obviously found out, as she joined the Church just three weeks later. It all happens so simply when the honest in heart are involved.
 
-Nephi, in foretelling the ministry of the Apostle John, described his teachings as “plain and pure, and most precious and easy to the understanding of all men.” ([[1 Nephi 14.23|1 Ne. 14:23]].) That our understanding and interpretation of truth may always be beautifully simple and simply beautiful is my sincere prayer for each of us, in the name of Jesus Christ, our Savior and Redeemer, amen.
+Nephi, in foretelling the ministry of the Apostle John, described his teachings as “plain and pure, and most precious and easy to the understanding of all men.” ([[1 Nephi 14.23|1 Ne. 14:23]].) That our understanding and interpretation of truth may always be beautifully simple and simply beautiful is my sincere prayer for each of us, in the name of Jesus Christ, our Savior and Redeemer, amen.
 
 
 
 
-
-
-
-
-#Truth

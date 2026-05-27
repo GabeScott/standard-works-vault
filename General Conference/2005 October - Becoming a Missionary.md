@@ -1,5 +1,7 @@
 # Becoming a Missionary
 
+Gordon B. Hinckley
+
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -30,9 +32,9 @@ My earnest hope for each of you young men is that you will not simply go on a mi
 
 Elder Dallin H. Oaks has taught us most effectively about the challenge to become something instead of just doing expected things or performing certain actions:
 
-“The Apostle Paul taught that the Lord’s teachings and teachers were given that we may all attain ‘the measure of the stature of the fulness of Christ’ ([[Ephesians 4.13|Ephesians 4:13]]). This process requires far more than acquiring knowledge. It is not even enough for us to be *convinced* of the gospel; we must act and think so that we are *converted* by it. In contrast to the institutions of the world, which teach us to *know* something, the gospel of Jesus Christ challenges us to *become* something. …
+“The Apostle Paul taught that the Lord’s teachings and teachers were given that we may all attain ‘the measure of the stature of the fulness of Christ’ ([[Ephesians 4.13|Ephesians 4:13]]). This process requires far more than acquiring knowledge. It is not even enough for us to be *convinced* of the gospel; we must act and think so that we are *converted* by it. In contrast to the institutions of the world, which teach us to *know* something, the gospel of Jesus Christ challenges us to *become* something. …
 
-“… It is not enough for anyone just to go through the motions. The commandments, ordinances, and covenants of the gospel are not a list of deposits required to be made in some heavenly account. The gospel of Jesus Christ is a plan that shows us how to become what our Heavenly Father desires us to become” (in Conference Report, Oct. 2000, 40–41; or *Ensign,* Nov. 2000, 32).
+“… It is not enough for anyone just to go through the motions. The commandments, ordinances, and covenants of the gospel are not a list of deposits required to be made in some heavenly account. The gospel of Jesus Christ is a plan that shows us how to become what our Heavenly Father desires us to become” (in Conference Report, Oct. 2000, [[2000 October - The Challenge to Become.md|40–41]]; or *Ensign,* Nov. 2000, 32).
 
 Brethren, the challenge to become applies precisely and perfectly to missionary preparation. Obviously the process of becoming a missionary does not require a young man to wear a white shirt and tie to school every day or to follow the missionary guidelines for going to bed and getting up, although most parents certainly would support that idea. But you can increase in your desire to serve God (see [[D&C 4.3|D&C 4:3]]), and you can begin to think as missionaries think, to read what missionaries read, to pray as missionaries pray, and to feel what missionaries feel. You can avoid the worldly influences that cause the Holy Ghost to withdraw, and you can grow in confidence in recognizing and responding to spiritual promptings. Line upon line and precept upon precept, here a little and there a little, you can gradually become the missionary you hope to be and the missionary the Savior expects.
 
@@ -46,7 +48,7 @@ The preparation I am describing is not oriented only toward your missionary serv
 
 ## The Seed of Abraham
 
-The heirs of all the promises and covenants made by God to Abraham are referred to as *the seed of Abraham* (see Bible Dictionary, “Seed of Abraham,” 771). These blessings are obtained only by obedience to the laws and ordinances of the gospel of Jesus Christ. Brethren, the process of becoming a missionary is directly related to understanding who we are as the seed of Abraham.
+The heirs of all the promises and covenants made by God to Abraham are referred to as *the seed of Abraham* (see Bible Dictionary, “[[BD Seed Of Abraham|Seed of Abraham]],” 771). These blessings are obtained only by obedience to the laws and ordinances of the gospel of Jesus Christ. Brethren, the process of becoming a missionary is directly related to understanding who we are as the seed of Abraham.
 
 Abraham was a great prophet who desired righteousness and was obedient to all of the commandments he received from God, including the command to offer as a sacrifice his precious son Isaac. Because of his steadfastness and obedience, Abraham is often referred to as the father of the faithful, and Heavenly Father established a covenant with and promised great blessings to Abraham and his posterity:
 
@@ -83,8 +85,3 @@ I declare my witness that Jesus is the Christ, our Savior and Redeemer. I know t
 
 
 
-
-
-
-
-#Covenants #Missionary_Work #Obedience #Preparation #Priesthood

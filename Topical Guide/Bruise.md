@@ -1,6 +1,5 @@
 # Bruise
 
-
 *See also* [[Hurt.md|Hurt]]; [[Wound.md|Wound]]
 
 it shall *bruise* thy head, and thou shalt *bruise* his heel, [[Genesis 3.15|Genesis 3:15]] ([[Moses 4.21|Moses 4:21]]).

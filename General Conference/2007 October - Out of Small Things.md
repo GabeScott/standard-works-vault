@@ -1,5 +1,7 @@
 # Out of Small Things
 
+Gordon B. Hinckley
+
 By Elder Michael J. Teh - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -69,8 +71,3 @@ May we always find opportunities to serve is my prayer in the name of Jesus Chri
 
 [^6]: [[D&C 64.33|D&C 64:33]].
 
-
-
-
-
-#Compassion #Missionary_Work #Service

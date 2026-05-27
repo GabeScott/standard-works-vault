@@ -1,6 +1,5 @@
 # Privilege
 
-
 every man may enjoy his rights and *privileges*, [[Mosiah 29.32|Mosiah 29:32]].
 
 might have had as great *privilege* as their brethren, [[Alma 13.4|Alma 13:4]].

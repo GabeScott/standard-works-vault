@@ -1,5 +1,7 @@
 # “A Teacher Come from God”
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -22,7 +24,7 @@ For each of us to “come unto Christ,”[^5] to keep His commandments and follo
 
 The Apostle Paul taught: “For whosoever shall call upon the name of the Lord shall be saved.
 
-“\[But\] how then shall they call on him in whom they have not believed? and how shall they believe in him of whom they have not heard? …
+“\[But\] how then shall they call on him in whom they have not believed? and how shall they believe in him of whom they have not heard? …
 
 “*… Faith cometh by hearing,* and hearing by the word of God.”[^8]
 
@@ -42,9 +44,9 @@ That is what our members really want when they gather in a meeting or come into 
 
 We do have a legitimate worry about the new member, wanting each one to stay with us and enjoy the full blessings of the Church. I am just simple enough to think that if we continue to *teach them*—with the same Christlike spirit, conviction, doctrine, and personal interest the missionaries have shown them—new converts will not only stay with us but, quite literally, could not be kept away. The need for continuing such solid teaching is obvious. In times like ours we *all* need what Mormon called “the virtue of the word of God” because, he said, it “had \[a\] more powerful effect upon the minds of the people than the sword, or anything else, which had happened unto them.”[^17] When crises come in our lives—and they will—the philosophies of men interlaced with a few scriptures and poems just won’t do. Are we really nurturing our youth and our new members in a way that will sustain them when the stresses of life appear? Or are we giving them a kind of theological Twinkie—spiritually empty calories? President John Taylor once called such teaching “fried froth,” the kind of thing you could eat all day and yet finish feeling totally unsatisfied.[^18] During a severe winter several years ago, President Boyd K. Packer noted that a goodly number of deer had died of starvation while their stomachs were full of hay. In an honest effort to assist, agencies had supplied the superficial when the substantial was what had been needed. Regrettably they had *fed* the deer, but they had not *nourished* them.
 
-I love what President J. Reuben Clark said of our youth well over a half century ago. The same thing can be said of new members. “\[They\] are hungry for the things of the spirit,” he said; “they are eager to learn the Gospel, and they want it straight, undiluted. …
+I love what President J. Reuben Clark said of our youth well over a half century ago. The same thing can be said of new members. “\[They\] are hungry for the things of the spirit,” he said; “they are eager to learn the Gospel, and they want it straight, undiluted. …
 
-“… You do not have to sneak up behind \[them\] and whisper religion in \[their\] ears; … you can bring these truths \[out\] openly.”[^19]
+“… You do not have to sneak up behind \[them\] and whisper religion in \[their\] ears; … you can bring these truths \[out\] openly.”[^19]
 
 Satan is certainly not subtle in his teachings; why should we be? Whether we are instructing our children at home or standing before an audience in church, let us *never* make our faith difficult to detect. Remember, we are to be teachers “come from God.” Never sow seeds of doubt. Avoid self-serving performance and vanity. Prepare lessons well. Give scripturally based sermons. Teach the revealed doctrine. Bear heartfelt testimony. Pray and practice and try to improve. In our administrative meetings let us both “instruct and edify” as the revelations say, that even in these our teaching may ultimately be “from on high.”[^20] The Church will be the better for it, and so will you, for as Paul said to the Romans, “Thou therefore which teachest another, teachest thou not thyself?”[^21]
 
@@ -63,11 +65,11 @@ From all of us who have been taught to all of you who teach—we say thank you, 
 
 [^1]: [[John 3.2|John 3:2]].
 
-[^2]: [[Moroni 6.4|Moro. 6:4]]; see also Gordon B. Hinckley, in Conference Report, Apr. 1997, 66; or *Ensign,* May 1997, 47.
+[^2]: [[Moroni 6.4|Moro. 6:4]]; see also Gordon B. Hinckley, in Conference Report, Apr. 1997, [[1997 April - Converts and Young Men.md|66]]; or *Ensign,* May 1997, 47.
 
 [^3]: *Teaching—No Greater Call* (resource materials for teacher improvement, 1995); see also Spencer W. Kimball, “No Greater Call,” Sunday School Conference, 1 Oct. 1967.
 
-[^4]: [[1 Corinthians 12.28|1 Cor. 12:28]].
+[^4]: [[1 Corinthians 12.28|1 Cor. 12:28]].
 
 [^5]: [[D&C 20.59|D&C 20:59]].
 
@@ -111,8 +113,3 @@ From all of us who have been taught to all of you who teach—we say thank you, 
 
 [^25]: [[John 20.16|John 20:16]]; see footnote *a* to Greek.
 
-
-
-
-
-#Church_Callings #Fellowshipping #Holy_Ghost #Home #Jesus_Christ #Leadership #Spirituality #Teaching #Youth

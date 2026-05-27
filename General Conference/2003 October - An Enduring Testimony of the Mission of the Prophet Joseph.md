@@ -1,5 +1,7 @@
 # An Enduring Testimony of the Mission of the Prophet Joseph
 
+Gordon B. Hinckley
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -91,20 +93,15 @@ I testify that God lives. I know that Jesus Christ lives and that He is our Savi
 
 [^4]: See [[James 1.5|James 1:5]].
 
-[^5]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^5]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^6]: *History of the Church,* 4:461; see also [[3 Nephi 5.18|3 Nephi 5:18]]; [[D&C 17.6|D&C 17:6]]; [[D&C 20.6|20:6–10]][[D&C 20.7|]][[D&C 20.8|]][[D&C 20.9|]][[D&C 20.10|]].
+[^6]: *History of the Church,* 4:461; see also [[3 Nephi 5.18|3 Nephi 5:18]]; [[D&C 17.6|D&C 17:6]]; [[D&C 20.6|20:6–10]][[D&C 20.7|]][[D&C 20.8|]][[D&C 20.9|]][[D&C 20.10|]].
 
-[^7]: See [[1 Nephi 11.21|1 Nephi 11:21–23]][[1 Nephi 11.22|]][[1 Nephi 11.23|]]; [[1 Nephi 15.36|15:36]].
+[^7]: See [[1 Nephi 11.21|1 Nephi 11:21–23]][[1 Nephi 11.22|]][[1 Nephi 11.23|]]; [[1 Nephi 15.36|15:36]].
 
-[^8]: [[1 Nephi 13.37|1 Nephi 13:37]].
+[^8]: [[1 Nephi 13.37|1 Nephi 13:37]].
 
 [^9]: *History of the Church,* 6:601.
 
 [^10]: [[Moroni 7.46|Moroni 7:46–47]][[Moroni 7.47|]].
 
-
-
-
-
-#Holy_Ghost #Joseph_Smith #Prayer #Scripture_Study #Testimony

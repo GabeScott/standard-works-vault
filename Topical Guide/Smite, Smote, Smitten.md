@@ -1,7 +1,6 @@
 # Smite, Smote, Smitten
 
-
-*See also* [[Kill.md|Kill]]; [[Strike, Struck, Stricken.md|Strike]]
+*See also* [[Kill.md|Kill]]; [[Strike.md|Strike]]
 
 neither will I again *smite* any more every thing living, [[Genesis 8.21|Genesis 8:21]].
 
@@ -25,7 +24,7 @@ retire ye from him, that he may be *smitten*, [[2 Samuel 11.15|2 Samuel 11:15]].
 
 *smote* the waters, and they were divided, [[2 Kings 2.8|2 Kings 2:8]].
 
-angel ... *smote* in the camp of the Assyrians, [[2 Kings 19.35|2 Kings 19:35]] ([[Isaiah 37.36|Isaiah 37:36]]).
+angel … *smote* in the camp of the Assyrians, [[2 Kings 19.35|2 Kings 19:35]] ([[Isaiah 37.36|Isaiah 37:36]]).
 
 he *smote* the rock, [[Psalms 78.20|Psalms 78:20]].
 
@@ -45,11 +44,11 @@ I gave my back to the *smiters*, [[Isaiah 50.6|Isaiah 50:6]].
 
 we did esteem him stricken, *smitten* of God, [[Isaiah 53.4|Isaiah 53:4]] ([[Mosiah 14.4|Mosiah 14:4]]).
 
-ye fast ... to *smite* with the fist of wickedness, [[Isaiah 58.4|Isaiah 58:4]].
+ye fast … to *smite* with the fist of wickedness, [[Isaiah 58.4|Isaiah 58:4]].
 
 let us *smite* him with the tongue, [[Jeremiah 18.18|Jeremiah 18:18]].
 
-stone ... *smote* the image upon his feet, [[Daniel 2.34|Daniel 2:34]].
+stone … *smote* the image upon his feet, [[Daniel 2.34|Daniel 2:34]].
 
 Ephraim is *smitten*, [[Hosea 9.16|Hosea 9:16]].
 
@@ -69,9 +68,9 @@ shall begin to *smite* his fellowservants, [[Matthew 24.49|Matthew 24:49]].
 
 Who is he that *smote* thee, [[Matthew 26.68|Matthew 26:68]] ([[Luke 22.64|Luke 22:64]]).
 
-they ... *smote* him on the head, [[Matthew 27.30|Matthew 27:30]] ([[Mark 15.19|Mark 15:19]]; [[John 19.3|John 19:3]]).
+they … *smote* him on the head, [[Matthew 27.30|Matthew 27:30]] ([[Mark 15.19|Mark 15:19]]; [[John 19.3|John 19:3]]).
 
-publican ... *smote* upon his breast, [[Luke 18.13|Luke 18:13]].
+publican … *smote* upon his breast, [[Luke 18.13|Luke 18:13]].
 
 if well, why *smitest* thou me, [[John 18.23|John 18:23]].
 
@@ -81,21 +80,21 @@ them that stood by him to *smite* him on the mouth, [[Acts 23.2|Acts 23:2]].
 
 God shall *smite* thee, thou whited wall, [[Acts 23.3|Acts 23:3]].
 
-ye suffer ... if a man *smite* you on the face, [[2 Corinthians 11.20|2 Corinthians 11:20]].
+ye suffer … if a man *smite* you on the face, [[2 Corinthians 11.20|2 Corinthians 11:20]].
 
 they did *smite* us even with a rod, [[1 Nephi 3.28|1 Nephi 3:28]].
 
-mine adversary ... I will *smite* him with the strength of my mouth, [[2 Nephi 7.8|2 Nephi 7:8]].
+mine adversary … I will *smite* him with the strength of my mouth, [[2 Nephi 7.8|2 Nephi 7:8]].
 
 knowledge of their iniquities shall *smite* them at the last day, [[2 Nephi 9.33|2 Nephi 9:33]].
 
 glory of his majesty shall *smite* thee, [[2 Nephi 12.10|2 Nephi 12:10]].
 
-seed of my brethren ... shall have been *smitten* by the Gentiles, [[2 Nephi 26.15|2 Nephi 26:15]].
+seed of my brethren … shall have been *smitten* by the Gentiles, [[2 Nephi 26.15|2 Nephi 26:15]].
 
 they were *smitten* with famine, [[Mosiah 1.17|Mosiah 1:17]].
 
-ye shall have power ... and shall *smite* the earth with famine, [[Helaman 10.6|Helaman 10:6]].
+ye shall have power … and shall *smite* the earth with famine, [[Helaman 10.6|Helaman 10:6]].
 
 they did *smite* upon the people of Jesus, [[4 Nephi 1.34|4 Nephi 1:34]].
 
@@ -109,4 +108,4 @@ if men will *smite* you, or your families, once, [[D&C 98.23|D&C 98:23]].
 
 they shall *smite* the rocks, and the ice shall flow, [[D&C 133.26|D&C 133:26]].
 
-Lord ... *smote* the priest that he died, [[Abraham 1.20|Abraham 1:20]].
+Lord … *smote* the priest that he died, [[Abraham 1.20|Abraham 1:20]].

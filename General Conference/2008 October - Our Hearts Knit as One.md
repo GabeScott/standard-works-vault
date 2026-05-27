@@ -1,5 +1,7 @@
 # Our Hearts Knit as One
 
+Thomas S. Monson
+
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2008 General Conference*
@@ -12,7 +14,7 @@ My beloved brothers and sisters, it is a joy to be gathered with you on this Sab
 
 We see increased conflict between peoples in the world around us. Those divisions and differences could infect us. That is why my message of hope today is that a great day of unity is coming. The Lord Jehovah will return to live with those who have become His people and will find them united, of one heart, unified with Him and with our Heavenly Father.
 
-You have heard that message of unity from me more than once. I may well speak of it in the future. I have heard it from every prophet of God in my lifetime. A plea for unity was the last message I remember from President David O. McKay. The Lord’s prophets have always called for unity. The need for that gift to be granted to us and the challenge to maintain it will grow greater in the days ahead, in which we will be prepared as a people for our glorious destiny.
+You have heard that message of unity from me more than once. I may well speak of it in the future. I have heard it from every prophet of God in my lifetime. A plea for unity was the last message I remember from President David O. McKay. The Lord’s prophets have always called for unity. The need for that gift to be granted to us and the challenge to maintain it will grow greater in the days ahead, in which we will be prepared as a people for our glorious destiny.
 
 My message is that we are doing better. Fathers and mothers are pleading for unity in their homes, and those prayers are being answered. Families are praying together night and morning. I was invited to kneel at bedtime with a family when I was a guest in their home. The smallest child was asked to be voice. He prayed like a patriarch for every person in the family, by name. I opened my eyes for an instant to see the faces of the other children and the parents. I could tell that they were joining their faith and their hearts in that little boy’s prayer.
 
@@ -32,7 +34,7 @@ Everything Alma and his people were inspired to do was pointed at helping people
 
 In Mosiah we read:
 
-“And they were called the church of God, or the church of Christ, from that time forward. And it came to pass that whosoever was baptized by the power and authority of God was added to his church. …
+“And they were called the church of God, or the church of Christ, from that time forward. And it came to pass that whosoever was baptized by the power and authority of God was added to his church. …
 
 “And he commanded them that they should teach nothing save it were the things which he had taught, and which had been spoken by the mouth of the holy prophets.
 
@@ -87,7 +89,7 @@ I leave you my blessing that you will enjoy unity in your homes and in the Churc
 
 [^1]: See [[John 17.21|John 17:21]]; see also [[D&C 50.43|D&C 50:43]]; [[D&C 93.3|93:3]].
 
-[^2]: [[3 Nephi 28.10|3 Nephi 28:10]].
+[^2]: [[3 Nephi 28.10|3 Nephi 28:10]].
 
 [^3]: [[Mosiah 18.17|Mosiah 18:17, 19–22]][[Mosiah 18.19|]][[Mosiah 18.20|]][[Mosiah 18.21|]][[Mosiah 18.22|]].
 
@@ -95,8 +97,3 @@ I leave you my blessing that you will enjoy unity in your homes and in the Churc
 
 [^5]: [[Ephesians 2.18|Ephesians 2:18–19]][[Ephesians 2.19|]].
 
-
-
-
-
-#Humility #Joy #Kindness #Prayer #Spirituality #Unity

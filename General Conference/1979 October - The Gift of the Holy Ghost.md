@@ -1,5 +1,7 @@
 # The Gift of the Holy Ghost
 
+Spencer W. Kimball
+
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
@@ -24,7 +26,7 @@ When I was the Presiding Bishop and one of my counselors, Bishop Ashton, died, I
 
 Now if you could hear from each one of these men! For instance, I had a business with ten men and two girls working for me, and the President of the Church sent my father over to see how I would like to go to California and preside over the Hollywood Stake. I won’t take time to tell you all the details. In sixty days I’d sold my business, I’d sold my beautiful home, and moved my family down to California with no allowance to live on. I had to start all over again.
 
-Then when I was in business here in Salt Lake and President Heber J. Grant called for a thousand short-term missionaries, he said: “Bishops and stake presidents are not exempt.” I was then a bishop. I landed back in New England—left my wife and seven kiddies and my business in the hands of my brother-in-law. You don’t do things like that with normal men! It takes men inspired by the Holy Spirit.
+Then when I was in business here in Salt Lake and President Heber J. Grant called for a thousand short-term missionaries, he said: “Bishops and stake presidents are not exempt.” I was then a bishop. I landed back in New England—left my wife and seven kiddies and my business in the hands of my brother-in-law. You don’t do things like that with normal men! It takes men inspired by the Holy Spirit.
 
 We have 28,000 missionaries in the world today paying their own way and maintaining themselves, and we have had hundreds of thousands since this Church was organized and the only reason that they do it is because they have the gift of the Holy Ghost. Most of them from their infancy have looked forward to the day when they could go on a mission.
 
@@ -36,7 +38,7 @@ Brother Benson said: “And what are they?”
 
 Now that is the difference when you are operating in the kingdom of man and the kingdom of God. It is God’s kingdom. He is the only one that can put his Holy Spirit into the hearts of his people.
 
-No one in this world could duplicate what we did here last night when we held a conference of the priesthood of the Church. It was broadcast in over 1,700 different buildings and I imagine that we had an estimated attendance of over 200,000 men and boys, all bearing the priesthood of God together. No wonder Peter said: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people \[we are peculiar to the world\]; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
+No one in this world could duplicate what we did here last night when we held a conference of the priesthood of the Church. It was broadcast in over 1,700 different buildings and I imagine that we had an estimated attendance of over 200,000 men and boys, all bearing the priesthood of God together. No wonder Peter said: “Ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people \[we are peculiar to the world\]; that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 Now think of this choir back here that has been singing to us so wonderfully. They have been doing it now for over fifty years. (I don’t suppose all of them have, but the Choir has!) And we don’t have to pay them anything—350 of them that gather here week after week to practice and then come to sing for us.
 
@@ -75,8 +77,3 @@ God bless you all. I thank him with all my heart and soul for the restoration of
 
 
 
-
-
-
-
-#Holy_Ghost #Missionary_Work

@@ -1,6 +1,8 @@
 # Fatherhood—Our Eternal Destiny
 
-By Larry M. Gibson - *Recently Released First Counselor in the Young Men General Presidency*
+Cheryl A. Esplin
+
+By Larry M. Gibson - *Recently Released First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -32,17 +34,17 @@ I had no idea, so he escorted me to a full-length mirror and asked, “Now what 
 
 “No,” he replied, “what you see is silver reflecting you. If you focus on the silver, all you will see is yourself, and like a veil, it will keep you from seeing clearly the eternal destiny Heavenly Father has prepared just for you.”
 
-“Larry,” he continued, “‘seek not the things of this world but seek … first … the kingdom of God, and to establish \[*His*\] righteousness, and all these things shall be added unto you’” ([[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]] \[in [[Matthew 6.note33a|Matthew 6:33, footnote a]]\]).
+“Larry,” he continued, “‘seek not the things of this world but seek … first … the kingdom of God, and to establish \[*His*\] righteousness, and all these things shall be added unto you’” ([[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]] \[in [Matthew 6:33, footnote a](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a)\]).
 
 He told me to keep the dollar and never lose it. Each time I looked at it, I was to think about the eternal destiny that Heavenly Father has for me.
 
 I loved my father and how he taught. I wanted to be like him. He planted in my heart the desire to be a good father, and my deepest hope is that I am living up to his example.
 
-Our beloved prophet, President Thomas S. Monson, has often said that our decisions determine our destiny and have eternal consequences (see “Decisions Determine Destiny” \[Church Educational System fireside, Nov. 6, 2005\], 2; ).
+Our beloved prophet, President Thomas S. Monson, has often said that our decisions determine our destiny and have eternal consequences (see “Decisions Determine Destiny” \[Church Educational System fireside, Nov. 6, 2005\], 2; [lds.org/broadcasts](https://www.lds.org/broadcasts/archive/ces-devotionals/2005/01?lang=eng)).
 
 Should we not, then, develop a clear vision of our *eternal destiny,* particularly the one that Heavenly Father wants us to achieve—eternal fatherhood? Let our *eternal destiny* drive *all* of our decisions. Regardless of how difficult those decisions may be, Father will sustain us.
 
-I learned about the power of such a vision when I joined my 12- and 13-year-old sons for a 50/20 competition. A 50/20 consists of walking 50 miles (80 km) in less than 20 hours. We started at 9:00 p.m. and walked all that night and most of the next day. It was an excruciating 19 hours, but we succeeded.
+I learned about the power of such a vision when I joined my 12- and 13-year-old sons for a 50/20 competition. A 50/20 consists of walking 50 miles (80 km) in less than 20 hours. We started at 9:00 p.m. and walked all that night and most of the next day. It was an excruciating 19 hours, but we succeeded.
 
 Upon returning home, we literally crawled into the house, where a wonderful wife and mother had prepared a lovely dinner, which we didn’t touch. My younger son collapsed, totally exhausted, on the couch, while my older son crawled downstairs to his bedroom.
 
@@ -80,7 +82,7 @@ They will learn how to treat their future wife and children as they watch you tr
 
 Through your example, they can learn how to respect, honor, and protect womanhood.
 
-In your home, they can learn to preside over their family in love and righteousness. They can learn to provide the necessities of life and protection for their family—temporally and spiritually (see “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129).
+In your home, they can learn to preside over their family in love and righteousness. They can learn to provide the necessities of life and protection for their family—temporally and spiritually (see “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129).
 
 Brethren, with all the energy of my soul, I ask you to consider this question: Do your sons see you striving to do what Heavenly Father would have *them* do?
 
@@ -121,8 +123,3 @@ I know that Heavenly Father is concerned about each of us individually and has a
 
 
 
-
-
-
-
-#Fatherhood #Priesthood #Teaching

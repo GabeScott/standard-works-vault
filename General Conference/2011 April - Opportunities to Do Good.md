@@ -1,6 +1,8 @@
 # Opportunities to Do Good
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -84,11 +86,11 @@ First, all people are happier and feel more self-respect when they can provide f
 
 I have learned that the way to have a surplus is to spend less than I earn. With that surplus I have been able to learn that it really is better to give than to receive. That is partly because when we give help in the Lord’s way, He blesses us.
 
-President Marion G. Romney said of welfare work, “You cannot give yourself poor in this work.” And then he quoted his mission president, Melvin J. Ballard, this way: “A person cannot give a crust to the Lord without receiving a loaf in return.”[^3]
+President Marion G. Romney said of welfare work, “You cannot give yourself poor in this work.” And then he quoted his mission president, Melvin J. Ballard, this way: “A person cannot give a crust to the Lord without receiving a loaf in return.”[^3]
 
 I have found that to be true in my life. When I am generous to Heavenly Father’s children in need, He is generous to me.
 
-A second gospel principle that has been a guide to me in welfare work is the power and blessing of unity. When we join hands to serve people in need, the Lord unites our hearts. President J. Reuben Clark Jr. put it this way: “That giving has … brought … a feeling of common brotherhood as men of all training and occupation have worked side by side in a Welfare garden or other project.”[^4]
+A second gospel principle that has been a guide to me in welfare work is the power and blessing of unity. When we join hands to serve people in need, the Lord unites our hearts. President J. Reuben Clark Jr. put it this way: “That giving has … brought … a feeling of common brotherhood as men of all training and occupation have worked side by side in a Welfare garden or other project.”[^4]
 
 That increased feeling of brotherhood is true for the receiver as well as the giver. To this day, a man with whom I shoveled mud side by side in his flooded Rexburg home feels a bond with me. And he feels greater personal dignity for having done all he could for himself and for his family. If we had worked alone, both of us would have lost a spiritual blessing.
 
@@ -114,7 +116,7 @@ I get that same expression of appreciation from people who have worked with you.
 
 For the Master I extend thanks for your work to serve the children of our Heavenly Father. He knows you, and He sees your effort, diligence, and sacrifice. I pray that He will grant you the blessing of seeing the fruit of your labors in the happiness of those you have helped and with whom you have helped for the Lord.
 
-I know that God the Father lives and hears our prayers. I know that Jesus is the Christ. You and those you serve can be purified and strengthened by serving Him and keeping His commandments. You can know as I know, by the power of the Holy Ghost, that Joseph Smith was God’s prophet to restore the true and living Church, which this is. I testify that President Thomas S. Monson is the living prophet of God. He is a great example of what the Lord did: going about doing good. I pray that we may seize our opportunities to “lift up the hands \[that\] hang down, and strengthen the feeble knees.”[^6] In the sacred name of Jesus Christ, amen.
+I know that God the Father lives and hears our prayers. I know that Jesus is the Christ. You and those you serve can be purified and strengthened by serving Him and keeping His commandments. You can know as I know, by the power of the Holy Ghost, that Joseph Smith was God’s prophet to restore the true and living Church, which this is. I testify that President Thomas S. Monson is the living prophet of God. He is a great example of what the Lord did: going about doing good. I pray that we may seize our opportunities to “lift up the hands \[that\] hang down, and strengthen the feeble knees.”[^6] In the sacred name of Jesus Christ, amen.
 
 
 
@@ -123,16 +125,11 @@ I know that God the Father lives and hears our prayers. I know that Jesus is the
 
 [^2]: “Sweet Is the Work,” *Hymns,* no. 147.
 
-[^3]: Marion G. Romney, in Conference Report, Oct. 1980, 137; or *Ensign,* Nov. 1980, 93.
+[^3]: Marion G. Romney, in Conference Report, Oct. 1980, [[1980 October - Welfare Services - The Savior’s Program.md|137]]; or *Ensign,* Nov. 1980, 93.
 
-[^4]: J. Reuben Clark Jr., in Conference Report, Oct. 1943, 13.
+[^4]: J. Reuben Clark Jr., in Conference Report, Oct. 1943, 13.
 
-[^5]: See [[Matthew 7.7|Matthew 7:7–8]][[Matthew 7.8|]]; [[Luke 11.9|Luke 11:9–10]][[Luke 11.10|]]; [[3 Nephi 14.7|3 Nephi 14:7–8]][[3 Nephi 14.8|]].
+[^5]: See [[Matthew 7.7|Matthew 7:7–8]][[Matthew 7.8|]]; [[Luke 11.9|Luke 11:9–10]][[Luke 11.10|]]; [[3 Nephi 14.7|3 Nephi 14:7–8]][[3 Nephi 14.8|]].
 
 [^6]: [[D&C 81.5|Doctrine and Covenants 81:5]].
 
-
-
-
-
-#Love #Self-Reliance #Service #Welfare

@@ -1,5 +1,7 @@
 # The Roots of Mormonism
 
+Spencer W. Kimball
+
 By Elder Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1975 General Conference*
@@ -16,7 +18,7 @@ The Church of Jesus Christ of Latter-day Saints is being lionized today in many 
 
 I have a very good friend who served as a Congregational minister for over 26 years. He had one of the largest churches on Long Island, New York, at one time. He became acquainted with the Mormons by visiting Salt Lake City and receiving visits from Latter-day Saint missionaries in his home. He developed a great admiration for the programs of the Church, primarily *because of* the fruits he saw that were produced by the Church. So he thought to borrow these programs and adopt them into his own church, which he tried to do. But he found that they did not work. His statement to me was:
 
-“It was somewhat of a jolt to discover that the genius of Mormonism was in its theology, not its methodology, and that the amazing vitality of the Church sprang from the commitment of its members to the Restored Gospel of Jesus Christ received by revelation. It became obvious that *one could not have the fruits of Mormonism without its roots.*” (John F. Heidenreich, “It May Change Your Life.”)
+“It was somewhat of a jolt to discover that the genius of Mormonism was in its theology, not its methodology, and that the amazing vitality of the Church sprang from the commitment of its members to the Restored Gospel of Jesus Christ received by revelation. It became obvious that *one could not have the fruits of Mormonism without its roots.*” (John F. Heidenreich, “It May Change Your Life.”)
 
 I am convinced that others who are attempting the same thing today will ultimately arrive at the same conclusion. The family home evening program, the youth activity program, young adult program, building programs, welfare programs, and Relief Society programs will not produce for others. The programs will not work for other churches. The magic is not in the program; it is in the theology. We can help them set up the programs, but we cannot guarantee them success.
 
@@ -32,7 +34,7 @@ Further, they know that by this same authority or priesthood a man and woman are
 
 These programs do not run by themselves. They are made to work by people, and every program requires sacrifice, just as Elder McConkie has so eloquently said. It seems we are eternally having to do that which we may not particularly want to do to bring to pass the purposes of God among his children on earth. The real secret of the success of the Lord’s program here on earth, or anywhere else for that matter, is sacrifice.
 
-“It \[is\] through … sacrifice, and this only,” said the Prophet Joseph Smith, “that God has ordained that men should enjoy eternal life; and it is through the medium of the sacrifice of all earthly things that men do actually know that they are doing the things that are well pleasing in the sight of God. …
+“It \[is\] through … sacrifice, and this only,” said the Prophet Joseph Smith, “that God has ordained that men should enjoy eternal life; and it is through the medium of the sacrifice of all earthly things that men do actually know that they are doing the things that are well pleasing in the sight of God. …
 
 “For a man to lay down his all, his character and reputation, his honor and applause, his good name among men, his houses, his lands, his brothers and sisters, his wife and children, and even his own life also—counting all things but filth and dross for the excellency of the knowledge of Jesus Christ—requires more than mere belief or supposition that he is doing the will of God; but actual knowledge, realizing that, when these sufferings are ended, he will enter into eternal rest, and be a partaker of the glory of God.” (*Lectures on Faith,* p. 58.)
 
@@ -56,15 +58,10 @@ No, the power or vitality is not in the programs of The Church of Jesus Christ o
 
 I am a witness that these things are true. I know that they are true. I know that God is our Father, that he lives, and that he hears and answers prayers. I know and bear witness to you that Jesus is the Christ and that he lives, that this is his true church, for he has reestablished it upon the earth in our own day and time through his great prophet Joseph Smith, wonderful man that he was, and that we have a prophet of God on earth today.
 
-Yes, Spencer W. Kimball is a prophet of the living God, and he makes the decisions in the church and kingdom of God and gives forth the mind of the Lord and the will of the Lord just as he has done in this conference.
+Yes, Spencer W. Kimball is a prophet of the living God, and he makes the decisions in the church and kingdom of God and gives forth the mind of the Lord and the will of the Lord just as he has done in this conference.
 
 I bear witness that if we follow the prophet, we will have blessings unnumbered and that the programs of the Church will work, for they will bring people to an understanding of their responsibility to their Heavenly Father as well as to their fellowman, and they will love to carry out these assignments. This is the church of Jesus Christ and he runs this church. I bear this record in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Church_Doctrine

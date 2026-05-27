@@ -1,5 +1,7 @@
 # Mrs. Patton—the Story Continues
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -66,7 +68,7 @@ I assured Mrs. Patton and all others who were listening that God would never for
 
 “In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you.
 
-“… I will come again, and receive you unto myself; that where I am, there ye may be also.”[^9]
+“… I will come again, and receive you unto myself; that where I am, there ye may be also.”[^9]
 
 I reiterated the testimonies of John the Revelator and Paul the Apostle. John recorded:
 
@@ -153,9 +155,9 @@ Will we listen for that knock? Will we hear that voice? Will we open that door t
 
 [^10]: [[Revelation 20.12|Revelation 20:12–13]][[Revelation 20.13|]].
 
-[^11]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
+[^11]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
 
-[^12]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
+[^12]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
 
 [^13]: [[Matthew 11.28|Matthew 11:28–29]][[Matthew 11.29|]].
 
@@ -165,8 +167,3 @@ Will we listen for that knock? Will we hear that voice? Will we open that door t
 
 [^16]: [[Revelation 3.20|Revelation 3:20]].
 
-
-
-
-
-#Death #Jesus_Christ #Resurrection

@@ -4,6 +4,3 @@
 
 [JST Exodus 33:23](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-ex/33?lang=eng)
 
-
-
-

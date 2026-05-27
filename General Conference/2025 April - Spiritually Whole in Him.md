@@ -1,6 +1,8 @@
 # Spiritually Whole in Him
 
-By President Camille N. Johnson - *Relief Society General President*
+Dallin H. Oaks
+
+By President Camille N. Johnson - *Relief Society General President*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -30,7 +32,7 @@ We are whole in Jesus Christ when we exercise our agency to follow Him in faith,
 
 Faith in Jesus Christ begets hope. I find hope in striving to be whole—a wholeness born of faith in Jesus Christ. Faith in Him increases my hope for healing, and that hope reinforces my faith in Jesus Christ. It is a powerful cycle.[^3]
 
-The Lord told Enos his faith had made him “whole.”[^4] Wholeness came as Enos pondered on the words of his prophet-father, Jacob, as he hungered to understand the opportunity for eternal life, as he cried unto God in mighty prayer. And in that state of desire and humility, the voice of the Lord came to him, announcing his sins were forgiven. And Enos asked the Lord, “How is it done?”[^5] And the Lord responded, “Because of thy faith in Christ, … thy faith hath made thee whole.”[^6]
+The Lord told Enos his faith had made him “whole.”[^4] Wholeness came as Enos pondered on the words of his prophet-father, Jacob, as he hungered to understand the opportunity for eternal life, as he cried unto God in mighty prayer. And in that state of desire and humility, the voice of the Lord came to him, announcing his sins were forgiven. And Enos asked the Lord, “How is it done?”[^5] And the Lord responded, “Because of thy faith in Christ, … thy faith hath made thee whole.”[^6]
 
 Through our faith in Jesus Christ, we can seek to be spiritually whole while we wait and hope for physical and emotional healing.
 
@@ -62,7 +64,7 @@ Indeed, “\[we\] are the light of the world.”[^14] The Savior declared:
 
 “I give unto you to be the light of this people. A city that is set on a hill cannot be hid.
 
-“… Do \[we\] light a candle and put it under a bushel? Nay, but on a candlestick; and it giveth light \[unto\] all that are in the house;
+“… Do \[we\] light a candle and put it under a bushel? Nay, but on a candlestick; and it giveth light \[unto\] all that are in the house;
 
 “Therefore let your light so shine before this people, that they may see your good works and glorify your Father \[which\] is in heaven.”[^15]
 
@@ -72,9 +74,9 @@ A scriptural example is useful in reinforcing the principle that we can be whole
 
 The Apostle Paul had some kind of affliction—what he described as a “thorn in the flesh,”[^17] which three times he had asked the Lord to remove.[^18] And the Lord said to Paul, “My grace is sufficient for thee: for my strength is made perfect in weakness.”[^19] To which Paul declared:
 
-“Most gladly therefore will I … glory in my infirmities, that the power of Christ may rest upon me.
+“Most gladly therefore will I … glory in my infirmities, that the power of Christ may rest upon me.
 
-“Therefore I take pleasure in infirmities, … in distresses for Christ’s sake: for when I am weak, then am I strong.”[^20]
+“Therefore I take pleasure in infirmities, … in distresses for Christ’s sake: for when I am weak, then am I strong.”[^20]
 
 Paul’s example suggests that even in our weakness, our strength in Jesus Christ can be made perfect—that is, complete and whole. Those who wrestle with mortal struggles and turn to God in faith like Paul can receive the blessings of becoming acquainted with God.
 
@@ -96,7 +98,7 @@ She went to His tomb to complete the burial preparations and discovered that the
 
 Mary cried, “They have taken away my Lord, and I know not where they have laid him.”[^27]
 
-And Jesus tenderly called her by name, “Mary.” And she recognized Him and reverently replied, “Rabboni; … Master.”[^28]
+And Jesus tenderly called her by name, “Mary.” And she recognized Him and reverently replied, “Rabboni; … Master.”[^28]
 
 Prophesying of the Savior, Isaiah said, “He will swallow up death in victory; and the Lord God will wipe away tears from off all faces.”[^29]
 
@@ -111,7 +113,7 @@ I humbly add my testimony to Mary’s. He is risen. Jesus Christ lives. Ultimate
 
 [^1]: See [[Luke 17.11|Luke 17:11–19]][[Luke 17.12|]][[Luke 17.13|]][[Luke 17.14|]][[Luke 17.15|]][[Luke 17.16|]][[Luke 17.17|]][[Luke 17.18|]][[Luke 17.19|]]. The term “made whole” was translated from a Greek word that means to save, to rescue, to deliver, or to heal. That seems to underscore the vital truth that Jesus Christ can heal us physically *and* He can also deliver, rescue, save, and heal us in other ways.
 
-[^2]: See [[Alma 40.23|Alma 40:23]]: “The soul shall be restored to the body, and the body to the soul; yea, and every limb and joint shall be restored to its body; yea, even a hair of the head shall not be lost; but all things shall be restored to their proper and perfect frame.” See also Russell M. Nelson, “[[2005 October - Jesus Christ—the Master Healer.md|Jesus Christ—the Master Healer]],” *Ensign* or *Liahona*, Nov. 2005, 87: “The gift of resurrection is the Lord’s consummate act of healing.”
+[^2]: See [[Alma 40.23|Alma 40:23]]: “The soul shall be restored to the body, and the body to the soul; yea, and every limb and joint shall be restored to its body; yea, even a hair of the head shall not be lost; but all things shall be restored to their proper and perfect frame.” See also Russell M. Nelson, “[[2005 October - Jesus Christ—the Master Healer.md|Jesus Christ—the Master Healer]],” *Ensign* or *Liahona*, Nov. 2005, 87: “The gift of resurrection is the Lord’s consummate act of healing.”
 
 [^3]: See [[Moroni 7.40|Moroni 7:40–42]][[Moroni 7.41|]][[Moroni 7.42|]].
 
@@ -127,9 +129,9 @@ I humbly add my testimony to Mary’s. He is risen. Jesus Christ lives. Ultimate
 
 [^9]: Joseph Smith Translation, Matthew 25:12 (in [[Matthew 25.12|Matthew 25:12]], footnote *a*).
 
-[^10]: Of the parable of the ten virgins, Elder David A. Bednar taught:
+[^10]: Of the parable of the ten virgins, Elder David A. Bednar taught:
 
-[^11]: [[D&C 33.17|Doctrine and Covenants 33:17]]. President Russell M. Nelson has counseled: “Now is the time for you and for me to prepare for the Second Coming of our Lord and Savior, Jesus the Christ. Now is the time for us to make our discipleship our highest priority” (“[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121).
+[^11]: [[D&C 33.17|Doctrine and Covenants 33:17]]. President Russell M. Nelson has counseled: “Now is the time for you and for me to prepare for the Second Coming of our Lord and Savior, Jesus the Christ. Now is the time for us to make our discipleship our highest priority” (“[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121).
 
 [^12]: The sculptor of *Five Wise Virgins* is artist Ben Hammond, who portrayed the five wise virgins as women of various ages and racial backgrounds, representing the diversity of women who are converted disciples of Jesus Christ.
 
@@ -137,21 +139,21 @@ I humbly add my testimony to Mary’s. He is risen. Jesus Christ lives. Ultimate
 
 [^14]: [[Matthew 5.14|Matthew 5:14]].
 
-[^15]: [[3 Nephi 12.14|3 Nephi 12:14–16]][[3 Nephi 12.15|]][[3 Nephi 12.16|]].
+[^15]: [[3 Nephi 12.14|3 Nephi 12:14–16]][[3 Nephi 12.15|]][[3 Nephi 12.16|]].
 
 [^16]: In the words of the hymn:
 
-[^17]: [[2 Corinthians 12.7|2 Corinthians 12:7]].
+[^17]: [[2 Corinthians 12.7|2 Corinthians 12:7]].
 
-[^18]: See [[2 Corinthians 12.8|2 Corinthians 12:8]].
+[^18]: See [[2 Corinthians 12.8|2 Corinthians 12:8]].
 
-[^19]: [[2 Corinthians 12.9|2 Corinthians 12:9]].
+[^19]: [[2 Corinthians 12.9|2 Corinthians 12:9]].
 
-[^20]: [[2 Corinthians 12.9|2 Corinthians 12:9–10]][[2 Corinthians 12.10|]].
+[^20]: [[2 Corinthians 12.9|2 Corinthians 12:9–10]][[2 Corinthians 12.10|]].
 
-[^21]: [[Philippians 4.4|Philippians 4:4]]; see also [[2 Corinthians 1.3|2 Corinthians 1:3–4]][[2 Corinthians 1.4|]]: “Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.”
+[^21]: [[Philippians 4.4|Philippians 4:4]]; see also [[2 Corinthians 1.3|2 Corinthians 1:3–4]][[2 Corinthians 1.4|]]: “Blessed be God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort; who comforteth us in all our tribulation, that we may be able to comfort them which are in any trouble, by the comfort wherewith we ourselves are comforted of God.”
 
-[^22]: See David A. Bednar, “[[2022 October - Put On Thy Strength, O Zion.md|Put On Thy Strength, O Zion]],” *Liahona*, Nov. 2022, 94.
+[^22]: See David A. Bednar, “[[2022 October - Put On Thy Strength, O Zion.md|Put On Thy Strength, O Zion]],” *Liahona*, Nov. 2022, 94.
 
 [^23]: [[Matthew 22.14|Matthew 22:14]]; see also [[D&C 121.34|Doctrine and Covenants 121:34–35]][[D&C 121.35|]].
 
@@ -159,7 +161,7 @@ I humbly add my testimony to Mary’s. He is risen. Jesus Christ lives. Ultimate
 
 [^25]: See [[John 19.25|John 19:25]].
 
-[^26]: [[John 20.15|John 20:15]]; see also [[John 20.13|verse 13]].
+[^26]: [[John 20.15|John 20:15]]; see also [[John 20.13|verse 13]].
 
 [^27]: [[John 20.13|John 20:13]].
 
@@ -167,8 +169,3 @@ I humbly add my testimony to Mary’s. He is risen. Jesus Christ lives. Ultimate
 
 [^29]: [[Isaiah 25.8|Isaiah 25:8]].
 
-
-
-
-
-#Conversion #Faith #Healing #Hope #Jesus_Christ #Mental_Health

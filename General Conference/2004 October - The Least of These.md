@@ -1,5 +1,7 @@
 # The Least of These
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -32,9 +34,9 @@ We cannot always expect to succeed, but we should try the best we can.
 
 The Lord said to the Church:
 
-“When I give a commandment to any of the sons of men to do a work unto my name, and those sons of men go with all their might and with all they have to perform that work, and cease not their diligence, and their enemies come upon them and hinder them from performing that work, behold, it behooveth me to require that work no more at the hands of those sons of men, but to accept of their offerings. …
+“When I give a commandment to any of the sons of men to do a work unto my name, and those sons of men go with all their might and with all they have to perform that work, and cease not their diligence, and their enemies come upon them and hinder them from performing that work, behold, it behooveth me to require that work no more at the hands of those sons of men, but to accept of their offerings. …
 
-“… This I make an example unto you, for your consolation concerning all those who have been commanded to do a work and have been hindered by the hands of their enemies, and by oppression, saith the Lord your God” ([[D&C 124.49|D&C 124:49, 53]][[D&C 124.53|]]; see also [[Mosiah 4.27|Mosiah 4:27]]).
+“… This I make an example unto you, for your consolation concerning all those who have been commanded to do a work and have been hindered by the hands of their enemies, and by oppression, saith the Lord your God” ([[D&C 124.49|D&C 124:49, 53]][[D&C 124.53|]]; see also [[Mosiah 4.27|Mosiah 4:27]]).
 
 The few in Kirtland are now millions of ordinary Latter-day Saints across the world. They speak a multitude of languages but unite in faith and understanding through the language of the Spirit.
 
@@ -88,7 +90,7 @@ I do not like to receive honors. Compliments always bother me because the great 
 
 My wife and I do not expect reward for ourselves greater than will come to our own children or to our parents. We do not press nor do we really want our children to set great prominence and visibility in the world or even in the Church as their goal in life. That has so very little to do with the worth of the soul. They will fulfill our dreams if they live the gospel and raise their children in faith.
 
-Like John, “\[We\] have no greater joy than to hear that \[our\] children walk in truth” ([[3 John 1.4|3 John 1:4]]).
+Like John, “\[We\] have no greater joy than to hear that \[our\] children walk in truth” ([[3 John 1.4|3 John 1:4]]).
 
 Some years ago, as president of the New England Mission, I left Fredericton, New Brunswick. It was 40 degrees below zero. As the plane taxied away from that small terminal, I saw two young elders standing outside, waving good-bye. I thought, “Foolish boys. Why do they not go inside where it’s warm?”
 
@@ -119,8 +121,3 @@ Of this I bear an apostolic witness, in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Faith #Priesthood #Worthiness #Youth

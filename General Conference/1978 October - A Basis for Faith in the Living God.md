@@ -1,6 +1,8 @@
 # A Basis for Faith in the Living God
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -24,7 +26,7 @@ Adam lived for nine hundred and thirty years, during which time he could give pe
 
 He made himself known by various means of communication to Moses, who even beheld the “similitude” of God (see [[Numbers 12.8|Num. 12:8]]); and this account of direct communication has been preserved by Israel through all generations.
 
-In addition to history and tradition, human reason declares the existence of God. We find this confirmed in nature all around us. I quote from Elder James E. Talmage, a noted scientist of his day:
+In addition to history and tradition, human reason declares the existence of God. We find this confirmed in nature all around us. I quote from Elder James E. Talmage, a noted scientist of his day:
 
 “The observer is impressed by the manifest order and system in creation; he notes the regular succession of day and night providing alternate periods of work and rest for man, animals, and plants; the sequence of the seasons, each with its longer periods of activity and recuperation; the mutual dependence of animals and plants; the circulation of water from sea to cloud, from cloud to earth again, with beneficent effect. As man proceeds to the closer examination of things he finds that by study and scientific investigation these proofs are multiplied many fold. He may learn of the laws by which the earth and its associated worlds are governed in their orbits; by which satellites are held subordinate to planets, and planets to suns; he may behold the marvels of vegetable and animal anatomy, and the surpassing mechanism of his own body; and with such appeals to his reason increasing at every step, his wonder as to who ordained all this gives place to adoration for the Creator whose presence and power are thus so forcefully proclaimed; and the observer becomes a worshiper.” (*The Articles of Faith,* 42nd ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1961, pp. 32–33.)
 
@@ -58,11 +60,11 @@ Each member of this trinity is called God, and together they constitute the Godh
 
 To those who question or do not understand, let me assure you that every human soul can receive this personal testimony. God may not come in person, as he did to Joseph Smith and others; but through the power of the Holy Ghost, by which all truth is discerned, every person can gain a knowledge for himself that God lives, that Jesus Christ is the Son of the Father, and that he came and dwelt among men to give them the plan of life and salvation.
 
-Recently I was reading from a talk given in September 1919 by President Heber J. Grant, the seventh president of the Church. He told of reading a book entitled *The Young Man and the World,* written by Senator Albert J. Beveridge. In one chapter called “The Young Man and the Pulpit,” Mr. Beveridge said, according to President Grant, that “any man who enters the pulpit to preach, if he is not converted in his heart of hearts to the truth of that which he preaches, commits a sacrilege every time he stands up in his pulpit.”
+Recently I was reading from a talk given in September 1919 by President Heber J. Grant, the seventh president of the Church. He told of reading a book entitled *The Young Man and the World,* written by Senator Albert J. Beveridge. In one chapter called “The Young Man and the Pulpit,” Mr. Beveridge said, according to President Grant, that “any man who enters the pulpit to preach, if he is not converted in his heart of hearts to the truth of that which he preaches, commits a sacrilege every time he stands up in his pulpit.”
 
-Then Mr. Beveridge said: “A certain man, with good opportunities for getting correct answers, during an entire summer vacation asked three questions of all the ministers with whom he came in contact. The first question was: ‘Do you believe in God, the Father—God, a person—God, a definite and tangible intelligence—not a congeries of laws floating like a fog through the universe—but God, a person in whose image you were made? Don’t argue; don’t explain; but is your mind in a condition where you can answer yes or no?’ Not a minister answered ‘Yes.’ …
+Then Mr. Beveridge said: “A certain man, with good opportunities for getting correct answers, during an entire summer vacation asked three questions of all the ministers with whom he came in contact. The first question was: ‘Do you believe in God, the Father—God, a person—God, a definite and tangible intelligence—not a congeries of laws floating like a fog through the universe—but God, a person in whose image you were made? Don’t argue; don’t explain; but is your mind in a condition where you can answer yes or no?’ Not a minister answered ‘Yes.’ …
 
-The next question in Senator Beveridge’s book was: “‘Yes or no, do you believe that Christ was the Son of the Living God, sent by Him to save the World … , that Christ was God’s very Son, with a divinely appointed and definite mission, dying on the cross and raised from the dead—yes or no?’ Not a minister answered ‘Yes.’”
+The next question in Senator Beveridge’s book was: “‘Yes or no, do you believe that Christ was the Son of the Living God, sent by Him to save the World … , that Christ was God’s very Son, with a divinely appointed and definite mission, dying on the cross and raised from the dead—yes or no?’ Not a minister answered ‘Yes.’”
 
 The third question was: “‘Do you believe that when you die you will live again as a conscious intelligence, knowing who you are and who other people are? Answer yes or no.’ Not one answered ‘Yes.’”
 
@@ -72,7 +74,7 @@ We *know* that we had a preexistence, that we are here in mortality to prove our
 
 This brings us to another article of our faith which declares:
 
-“We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.3|A of F 1:3]]).
+“We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.3|A of F 1:3]]).
 
 This declaration is clarified in a revelation to the Prophet Joseph Smith as recorded in the seventy-sixth section of the Doctrine and Covenants:
 
@@ -88,7 +90,7 @@ The Atonement and redemption was taught by Paul, who said, in writing to the Cor
 
 “For since by man came death, by man came also the resurrection of the dead.
 
-“For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.19|1 Cor. 15:19–22]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].)
+“For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.19|1 Cor. 15:19–22]][[1 Corinthians 15.20|]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].)
 
 Christ said:
 
@@ -124,13 +126,8 @@ There may be some who feel so burdened with guilt over transgressions of the pas
 
 As a special witness for Christ, I bear my solemn testimony that God lives; that we are his spirit children; that Jesus Christ is his Only Begotten Son in the flesh, and is the Savior of us all; that “God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life” ([[John 3.16|John 3:16]]); and that through the Atonement of Christ all mankind can enjoy eternal life by obedience to the laws and ordinances of the gospel.
 
-I bear further witness that the gospel in its fulness has been restored in these the latter days; that this church, under the direction of Jesus Christ, is led by a prophet of God, even Spencer W. Kimball. May we all accept the gospel of Jesus Christ and so live as to enjoy eternal life with God, I humbly pray in the name of Jesus Christ. Amen.
+I bear further witness that the gospel in its fulness has been restored in these the latter days; that this church, under the direction of Jesus Christ, is led by a prophet of God, even Spencer W. Kimball. May we all accept the gospel of Jesus Christ and so live as to enjoy eternal life with God, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Godhead #Plan_Of_Salvation #Testimony

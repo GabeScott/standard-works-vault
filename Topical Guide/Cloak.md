@@ -1,7 +1,6 @@
 # Cloak
 
-
-if any man ... take away thy coat, let him have thy *cloak*, [[Matthew 5.40|Matthew 5:40]] ([[Luke 6.29|Luke 6:29]]).
+if any man … take away thy coat, let him have thy *cloak*, [[Matthew 5.40|Matthew 5:40]] ([[Luke 6.29|Luke 6:29]]).
 
 now they have no *cloak* for their sin, [[John 15.22|John 15:22]].
 

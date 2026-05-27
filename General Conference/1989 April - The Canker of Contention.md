@@ -1,5 +1,7 @@
 # The Canker of Contention
 
+Ezra Taft Benson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -18,13 +20,13 @@ His peace is not necessarily political; His peace is personal. But that spirit o
 
 As we dread any disease that undermines the health of the body, so should we deplore contention, which is a corroding canker of the spirit. I appreciate the counsel of Abraham Lincoln, who said:
 
-“Quarrel not at all. No man resolved to make the most of himself can spare time for personal contention. … Better give your path to a dog than be bitten by him.” (Letter to J. M. Cutts, 26 Oct. 1863, in *Concise Lincoln Dictionary of Thoughts and Statements,* comp. and arr. Ralph B. Winn, New York: New York Philosophical Library, 1959, p. 107.)
+“Quarrel not at all. No man resolved to make the most of himself can spare time for personal contention. … Better give your path to a dog than be bitten by him.” (Letter to J. M. Cutts, 26 Oct. 1863, in *Concise Lincoln Dictionary of Thoughts and Statements,* comp. and arr. Ralph B. Winn, New York: New York Philosophical Library, 1959, p. 107.)
 
 President Ezra Taft Benson in his keynote address yesterday described contention as “another face of pride.”
 
 My concern is that contention is becoming accepted as a way of life. From what we see and hear in the media, the classroom, and the workplace, all are now infected to some degree with contention. How easy it is, yet how wrong it is, to allow habits of contention to pervade matters of spiritual significance, because contention is forbidden by divine decree:
 
-“The Lord God hath commanded that men should not murder; that they should not lie; that they should not steal; that they should not take the name of the Lord their God in vain; that they should not envy; that they should not have malice; that they should not contend one with another.” ([[2 Nephi 26.32|2 Ne. 26:32]].)
+“The Lord God hath commanded that men should not murder; that they should not lie; that they should not steal; that they should not take the name of the Lord their God in vain; that they should not envy; that they should not have malice; that they should not contend one with another.” ([[2 Nephi 26.32|2 Ne. 26:32]].)
 
 ## Creator of Contention
 
@@ -36,7 +38,7 @@ When Christ did come to the Nephites, He confirmed that prophecy:
 
 “He that hath the spirit of contention is not of me \[saith the Lord\], but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
-“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.” ([[3 Nephi 11.29|3 Ne. 11:29–30]][[3 Nephi 11.30|]].)
+“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away.” ([[3 Nephi 11.29|3 Ne. 11:29–30]][[3 Nephi 11.30|]].)
 
 ## Origin of Contention
 
@@ -46,7 +48,7 @@ Contention existed before the earth was formed. When God’s plan for creation a
 
 Satan’s selfish efforts to alter the plan of God resulted in great contention in heaven. The Prophet Joseph Smith explained:
 
-“Jesus said there would be certain souls that would not be saved; and the devil said he could save them all, and laid his plans before the grand council, who gave their vote in favor of Jesus Christ. So the devil rose up in rebellion against God, and was cast down.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 357.)
+“Jesus said there would be certain souls that would not be saved; and the devil said he could save them all, and laid his plans before the grand council, who gave their vote in favor of Jesus Christ. So the devil rose up in rebellion against God, and was cast down.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 357.)
 
 This war in heaven was not a war of bloodshed. It was a war of conflicting ideas—the beginning of contention.
 
@@ -74,7 +76,7 @@ Parents should be partners to cherish and protect one another, knowing that the 
 
 ## Leaders of the Church
 
-Leaders of the Church are targets for attack by those who stir contention. This is true even though not a single leader has called himself or herself to a position of responsibility. Each General Authority, for instance, chose another path to pursue as his life’s occupation. But the reality is, as with Peter or Paul, each was surely “called of God, by prophecy, and by the laying on of hands by those who are in authority.” ([[Articles of Faith 1.5|A of F 1:5]].) With that call comes the commitment to emulate the patterns of the Prince of Peace.
+Leaders of the Church are targets for attack by those who stir contention. This is true even though not a single leader has called himself or herself to a position of responsibility. Each General Authority, for instance, chose another path to pursue as his life’s occupation. But the reality is, as with Peter or Paul, each was surely “called of God, by prophecy, and by the laying on of hands by those who are in authority.” ([[Articles of Faith 1.5|A of F 1:5]].) With that call comes the commitment to emulate the patterns of the Prince of Peace.
 
 That goal is shared by worthy servants of the Master, who would not speak ill of the Lord’s anointed nor provoke contention over teachings declared by ancient or living prophets.
 
@@ -88,13 +90,13 @@ Yet, mercifully, the anointed pray for those who attack them, knowing the sad fa
 
 Throughout the world, Saints of the Lord follow Him *and* His anointed leaders. They have learned that the path of dissent leads to real dangers. The Book of Mormon carries this warning:
 
-“Now these dissenters, having the same instruction and the same information … , having been instructed in the same knowledge of the Lord, nevertheless, it is strange to relate, not long after their dissensions they became more hardened and impenitent, and more wild, wicked and ferocious … ; giving way to indolence, and all manner of lasciviousness; yea, entirely forgetting the Lord their God.” ([[Alma 47.36|Alma 47:36]].)
+“Now these dissenters, having the same instruction and the same information … , having been instructed in the same knowledge of the Lord, nevertheless, it is strange to relate, not long after their dissensions they became more hardened and impenitent, and more wild, wicked and ferocious … ; giving way to indolence, and all manner of lasciviousness; yea, entirely forgetting the Lord their God.” ([[Alma 47.36|Alma 47:36]].)
 
 How divisive is the force of dissension! Small acts can lead to such great consequences. Regardless of position or situation, no one can safely assume immunity to contention’s terrible toll.
 
 Thomas B. Marsh, once one of the Twelve, left the Church. His spiritual slide to apostasy started because his wife and another woman had quarreled over a little cream! After an absence from the Church of nearly nineteen years, he came back. To a congregation of Saints, he then said:
 
-“If there are any among this people who should ever apostatize and do as I have done, prepare your backs for a good whipping, if you are such as the Lord loves. But if you will take my advice, you will stand by the authorities.” (In *Journal of Discourses,* 5:206; see also Gordon B. Hinckley, in Conference Report, Apr. 1984, pp. 109–12; or *Ensign,* May 1984, pp. 81–83.)
+“If there are any among this people who should ever apostatize and do as I have done, prepare your backs for a good whipping, if you are such as the Lord loves. But if you will take my advice, you will stand by the authorities.” (In *Journal of Discourses,* 5:206; see also Gordon B. Hinckley, in Conference Report, Apr. 1984, [[1984 April - Small Acts Lead to Great Consequences.md|pp. 109–12]]; or *Ensign,* May 1984, pp. 81–83.)
 
 Of course the authorities are human. But to them God has entrusted the keys to His divine work. And He holds us accountable for our responses to the teachings of His servants. These are the words of the Lord:
 
@@ -106,9 +108,9 @@ Of course the authorities are human. But to them God has entrusted the keys to H
 
 Divine doctrine of the Church is the prime target of attack by the spiritually contentious. Well do I remember a friend who would routinely sow seeds of contention in Church classes. His assaults would invariably be preceded by this predictable comment: “Let me play the role of devil’s advocate.” Recently he passed away. One day he will stand before the Lord in judgment. Then, I wonder, will my friend’s predictable comment again be repeated?
 
-Such contentious spirits are not new. In an epistle to Timothy, the Apostle Paul gave this warning, “that the name of God and his doctrine be not blasphemed.” ([[1 Timothy 6.1|1 Tim. 6:1]].)
+Such contentious spirits are not new. In an epistle to Timothy, the Apostle Paul gave this warning, “that the name of God and his doctrine be not blasphemed.” ([[1 Timothy 6.1|1 Tim. 6:1]].)
 
-“If any man teach otherwise, and consent not to wholesome words, even the words of our Lord Jesus Christ, and to \[his\] doctrine … doting about questions and strifes of words, … supposing that gain is godliness: from such withdraw thyself.” ([[1 Timothy 6.3|1 Tim. 6:3–5]][[1 Timothy 6.4|]][[1 Timothy 6.5|]]; see also [[Isaiah 29.21|Isa. 29:21]]; [[2 Nephi 27.32|2 Ne. 27:32]]; [[D&C 19.30|D&C 19:30]]; [[D&C 38.41|38:41]]; [[D&C 60.14|60:14]].)
+“If any man teach otherwise, and consent not to wholesome words, even the words of our Lord Jesus Christ, and to \[his\] doctrine … doting about questions and strifes of words, … supposing that gain is godliness: from such withdraw thyself.” ([[1 Timothy 6.3|1 Tim. 6:3–5]][[1 Timothy 6.4|]][[1 Timothy 6.5|]]; see also [[Isaiah 29.21|Isa. 29:21]]; [[2 Nephi 27.32|2 Ne. 27:32]]; [[D&C 19.30|D&C 19:30]]; [[D&C 38.41|38:41]]; [[D&C 60.14|60:14]].)
 
 Dissecting doctrine in a controversial way in order to draw attention to oneself is not pleasing to the Lord. He declared:
 
@@ -132,9 +134,9 @@ Such high mutual regard would then let us respectfully disagree without being di
 
 But the ultimate step lies beyond beginning control of expression. Personal peace is reached when one, in humble submissiveness, truly loves God. Heed carefully this scripture:
 
-“There was no contention in the land, *because of* the love of God which did dwell in the hearts of the people.” ([[4 Nephi 1.15|4 Ne. 1:15]]; italics added; see also [[4 Nephi 1.2|4 Ne. 1:2]].)
+“There was no contention in the land, *because of* the love of God which did dwell in the hearts of the people.” ([[4 Nephi 1.15|4 Ne. 1:15]]; italics added; see also [[4 Nephi 1.2|4 Ne. 1:2]].)
 
-Thus, love of God should be our aim. It is the first commandment—the foundation of faith. As we develop love of God and Christ, love of family and neighbor will naturally follow. Then will we eagerly emulate Jesus. He healed. He comforted. He taught, “Blessed are the peacemakers: for they shall be called the children of God.” ([[Matthew 5.9|Matt. 5:9]]; see also [[3 Nephi 12.9|3 Ne. 12:9]].)
+Thus, love of God should be our aim. It is the first commandment—the foundation of faith. As we develop love of God and Christ, love of family and neighbor will naturally follow. Then will we eagerly emulate Jesus. He healed. He comforted. He taught, “Blessed are the peacemakers: for they shall be called the children of God.” ([[Matthew 5.9|Matt. 5:9]]; see also [[3 Nephi 12.9|3 Ne. 12:9]].)
 
 Through love of God, the pain caused by the fiery canker of contention will be extinguished from the soul. This healing begins with a personal vow: “Let there be peace on earth, and let it begin with me.” (Sy Miller and Jill Jackson, “Let There Be Peace on Earth,” Beverly Hills, Calif.: Jan-Lee Music, 1972.) This commitment will then spread to family and friends and will bring peace to neighborhoods and nations.
 
@@ -143,8 +145,3 @@ Shun contention. Seek godliness. Be enlightened by eternal truth. Be like-minded
 
 
 
-
-
-
-
-#Contention #Family #Humility #Love #Peace

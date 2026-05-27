@@ -1,6 +1,5 @@
 # Brier
 
-
 *See also* [[Thorn.md|Thorn]]
 
 there shall come up *briers* and thorns, [[Isaiah 5.6|Isaiah 5:6]] ([[Isaiah 32.13|Isaiah 32:13]]; [[2 Nephi 15.6|2 Nephi 15:6]]).

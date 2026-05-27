@@ -1,5 +1,7 @@
 # The Call—An Eternal Miracle
 
+Gordon B. Hinckley
+
 By Elder Gardner H. Russell - *Released Member of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -49,8 +51,3 @@ Our Heavenly Father might not call us by name, but his called and ordained serva
 
 
 
-
-
-
-
-#Faith #Family #Missionary_Work #Service #Testimony

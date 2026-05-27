@@ -4,6 +4,3 @@
 
 [JST John 6:44](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-john/6?lang=eng)
 
-
-
-

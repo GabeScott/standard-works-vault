@@ -1,6 +1,8 @@
 # The Power, Joy, and Love of Covenant Keeping
 
-By Linda K. Burton - *Relief Society General President*
+Thomas S. Monson
+
+By Linda K. Burton - *Relief Society General President*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -18,7 +20,7 @@ That evening as his family watched, the man approached the ewe, which stood at t
 
 In the spirit of that story, I pray that the Holy Ghost will help us learn together tonight about covenant keeping. Making and keeping covenants means choosing to bind ourselves to our Father in Heaven and Jesus Christ. It is committing to follow the Savior. It is trusting Him and desiring to show our gratitude for the price He paid to set us free through the infinite gift of the Atonement.
 
-Elder Jeffrey R. Holland explained that “a covenant is a binding spiritual contract, a solemn promise to God our Father that we will live and think and act in a certain way—the way of His Son, the Lord Jesus Christ. In return, the Father, Son, and Holy Ghost promise us the full splendor of eternal life.”[^2] In that binding contract, the Lord sets the terms and we agree to keep them. Making and keeping our covenants is an expression of our commitment to become like the Savior.[^3] The ideal is to strive for the attitude best expressed in a few phrases of a favorite hymn: “I’ll go where *you* want me to go. … I’ll say what *you* want me to say. … I’ll be what *you* want me to be.”[^4]
+Elder Jeffrey R. Holland explained that “a covenant is a binding spiritual contract, a solemn promise to God our Father that we will live and think and act in a certain way—the way of His Son, the Lord Jesus Christ. In return, the Father, Son, and Holy Ghost promise us the full splendor of eternal life.”[^2] In that binding contract, the Lord sets the terms and we agree to keep them. Making and keeping our covenants is an expression of our commitment to become like the Savior.[^3] The ideal is to strive for the attitude best expressed in a few phrases of a favorite hymn: “I’ll go where *you* want me to go. … I’ll say what *you* want me to say. … I’ll be what *you* want me to be.”[^4]
 
 ## Why Make and Keep Covenants?
 
@@ -34,13 +36,13 @@ Oh, sisters, we all have burdens to bear and burdens to share. An invitation to 
 
 The Book of Mormon reminds us that even the prophet Alma had to bear the burden of having a rebellious son. But Alma was blessed with covenant-keeping brothers and sisters in the gospel who were deeply converted unto the Lord and had learned what it meant to bear each other’s burdens. We are familiar with the verse in Mosiah that speaks of the great faith of Alma’s prayers in behalf of his son. But the record states that “the Lord … heard the prayers *of his people,* and also the prayers of his servant, Alma.”[^8]
 
-We know that the Lord always rejoices “in the soul that repenteth,”[^9] but we desire above all to have our children follow the counsel of President Henry B. Eyring to “start early and be steady” in making and keeping covenants.[^10] Not long ago a thought-provoking and sincere question was raised in a council of priesthood and auxiliary leaders: do we really expect eight-year-olds to keep their covenants? As we counseled together, it was suggested that one way to prepare children to make and keep sacred baptismal covenants is to help them learn to make and keep a simple promise.
+We know that the Lord always rejoices “in the soul that repenteth,”[^9] but we desire above all to have our children follow the counsel of President Henry B. Eyring to “start early and be steady” in making and keeping covenants.[^10] Not long ago a thought-provoking and sincere question was raised in a council of priesthood and auxiliary leaders: do we really expect eight-year-olds to keep their covenants? As we counseled together, it was suggested that one way to prepare children to make and keep sacred baptismal covenants is to help them learn to make and keep a simple promise.
 
 Faithful parents are entitled to know how to best teach to meet the needs of their children. As parents seek and act on personal revelation, counsel together, minister and teach the simple principles of the gospel, they will have power to strengthen and protect their families. Other family members can also help. My cute grandpa taught us the importance of keeping promises through a simple song. It went something like this: “Before you make a promise, consider well its importance. Then when made, engrave it upon your heart. Engrave it upon your heart.” That little song was taught with love, conviction, and power because Grandpa engraved his own promises on his heart.
 
 A wise mother I know intentionally includes her children in her efforts to keep her covenants. She joyfully bears the burdens of neighbors, friends, and ward members—and comforts those who stand in need of comfort. It was not surprising when her young daughter recently came asking for help to know how to best comfort her friend whose father had just passed away. That was a perfect setting to teach that her desire to comfort her friend was one way to keep her baptismal covenant. How can we expect children to make and keep temple covenants if we don’t expect them to keep their first covenant—their baptismal covenant?
 
-Elder Richard G. Scott observed, “One of the greatest blessings we can offer to the world is the power of a Christ-centered home where the gospel is taught, covenants are kept, and love abounds.”[^11] What are some ways we can create such a home to prepare our children to make and keep temple covenants?
+Elder Richard G. Scott observed, “One of the greatest blessings we can offer to the world is the power of a Christ-centered home where the gospel is taught, covenants are kept, and love abounds.”[^11] What are some ways we can create such a home to prepare our children to make and keep temple covenants?
 
 - We can discover together what it means to be worthy of a temple recommend.
 
@@ -62,13 +64,13 @@ Let us remember the concept of “good, better, and best” as we teach.[^13] It
 
 **2. Keeping covenants is essential for true happiness.**
 
-President Thomas S. Monson taught, “Sacred covenants are to be revered by us, and faithfulness to them is a requirement for happiness.”[^14] In 2 Nephi we read, “And it came to pass that we lived after the manner of happiness.”[^15] Earlier in this same chapter we learn that Nephi and his people had just built a temple. Surely they were joyful covenant keepers! And in Alma we read, “But behold there never was a happier time among the people of Nephi, since the days of Nephi, than in the days of Moroni.”[^16] Why? Again we learn in a previous verse that they “were faithful in keeping the commandments of the Lord.”[^17] Covenant keepers are commandment keepers!
+President Thomas S. Monson taught, “Sacred covenants are to be revered by us, and faithfulness to them is a requirement for happiness.”[^14] In 2 Nephi we read, “And it came to pass that we lived after the manner of happiness.”[^15] Earlier in this same chapter we learn that Nephi and his people had just built a temple. Surely they were joyful covenant keepers! And in Alma we read, “But behold there never was a happier time among the people of Nephi, since the days of Nephi, than in the days of Moroni.”[^16] Why? Again we learn in a previous verse that they “were faithful in keeping the commandments of the Lord.”[^17] Covenant keepers are commandment keepers!
 
 I love the scripture that reads: “And now when the people had heard these words \[meaning the words describing the baptismal covenant\], they clapped their hands for joy, and exclaimed: This is the desire of our hearts.”[^18] I love the desire of their hearts. They cheerfully desired to make and keep their covenants!
 
 One Sunday a young sister joyfully exclaimed, “I get to take the sacrament today!” When was the last time we rejoiced in that privilege? And how do we demonstrate it? We do this by *always* remembering the Savior and *always* keeping His commandments, which include keeping His Sabbath day holy. We do it by *always* remembering Him as we *always* have our personal and family prayers, daily scripture study, and weekly family home evenings. And when we get distracted or casual with these important things, we repent and begin again.
 
-Making and cheerfully keeping our covenants gives validity and life to the vital sacred and saving ordinances we need to receive in order to obtain “all that \[the\] Father hath.”[^19] Ordinances and covenants are the “spiritual milestones” President Henry B. Eyring referred to when he taught: “The Latter-day Saints are a covenant people. From the day of baptism through the spiritual milestones of our lives, we make promises with God and He makes promises with us. He *always* keeps His promises offered through His authorized servants, but it is the crucial test of our lives to see if *we* will make and keep our covenants with Him.”[^20]
+Making and cheerfully keeping our covenants gives validity and life to the vital sacred and saving ordinances we need to receive in order to obtain “all that \[the\] Father hath.”[^19] Ordinances and covenants are the “spiritual milestones” President Henry B. Eyring referred to when he taught: “The Latter-day Saints are a covenant people. From the day of baptism through the spiritual milestones of our lives, we make promises with God and He makes promises with us. He *always* keeps His promises offered through His authorized servants, but it is the crucial test of our lives to see if *we* will make and keep our covenants with Him.”[^20]
 
 **3. Keeping our covenants demonstrates our love for the Savior and our Father in Heaven.**
 
@@ -85,15 +87,15 @@ Let us remember that even those who have been wayward in the past or who are cur
 
 
 
-[^1]: See D. Todd Christofferson, [“You Are Free,”](https://churchofjesuschrist.org/study/ensign/2013/03/you-are-free?lang=eng) *Ensign,* Mar. 2013, 38, 40; or *Liahona,* Mar. 2013, 16, 18.
+[^1]: See D. Todd Christofferson, [“You Are Free,”](https://www.churchofjesuschrist.org/study/ensign/2013/03/you-are-free?lang=eng) *Ensign,* Mar. 2013, 38, 40; or *Liahona,* Mar. 2013, 16, 18.
 
-[^2]: Jeffrey R. Holland, “Keeping Covenants: A Message for Those Who Will Serve a Mission,” *New Era,* Jan. 2012, 3; or *Liahona,* Jan. 2012, 49.
+[^2]: Jeffrey R. Holland, “Keeping Covenants: A Message for Those Who Will Serve a Mission,” *New Era,* Jan. 2012, 3; or *Liahona,* Jan. 2012, 49.
 
-[^3]: See [“Understanding Our Covenants with God,”](https://churchofjesuschrist.org/study/ensign/2012/07/understanding-our-covenants-with-god?lang=eng) *Ensign,* July 2012, 25; or *Liahona,* July 2012, 23.
+[^3]: See [“Understanding Our Covenants with God,”](https://www.churchofjesuschrist.org/study/ensign/2012/07/understanding-our-covenants-with-god?lang=eng) *Ensign,* July 2012, 25; or *Liahona,* July 2012, 23.
 
 [^4]: “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270; emphasis added.
 
-[^5]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^5]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
 [^6]: [[John 13.35|John 13:35]].
 
@@ -103,17 +105,17 @@ Let us remember that even those who have been wayward in the past or who are cur
 
 [^9]: [[D&C 18.13|Doctrine and Covenants 18:13]].
 
-[^10]: See Henry B. Eyring, [“Spiritual Preparedness: Start Early and Be Steady,”](https://churchofjesuschrist.org/study/ensign/2005/11/spiritual-preparedness-start-early-and-be-steady?lang=eng) *Ensign* or *Liahona,* Nov. 2005, 37–40.
+[^10]: See Henry B. Eyring, [“Spiritual Preparedness: Start Early and Be Steady,”](https://www.churchofjesuschrist.org/study/ensign/2005/11/spiritual-preparedness-start-early-and-be-steady?lang=eng) *Ensign* or *Liahona,* Nov. 2005, 37–40.
 
-[^11]: Richard G. Scott, “For Peace at Home,” *Ensign* or *Liahona,* May 2013, 30.
+[^11]: Richard G. Scott, “For Peace at Home,” *Ensign* or *Liahona,* May 2013, 30.
 
-[^12]: See D. Todd Christofferson, “The Gospel Answers Life’s Problems and Challenges” (worldwide leadership training meeting, Feb. 2012); [lds.org/broadcasts](http://www.lds.org/broadcasts/article/worldwide-leadership-training/2012/01/the-gospel-answers-lifes-problems-and-challenges?lang=eng).
+[^12]: See D. Todd Christofferson, “The Gospel Answers Life’s Problems and Challenges” (worldwide leadership training meeting, Feb. 2012); [lds.org/broadcasts](https://www.churchofjesuschrist.org/study/video/worldwide-leadership-training/2012/2012-02-1010-the-gospel-answers-lifes-problems-and-challenges?lang=eng).
 
-[^13]: See Dallin H. Oaks, [“Good, Better, Best,”](https://churchofjesuschrist.org/study/ensign/2007/11/good-better-best?lang=eng) *Ensign* or *Liahona,* Nov. 2007, 104.
+[^13]: See Dallin H. Oaks, [“Good, Better, Best,”](https://www.churchofjesuschrist.org/study/ensign/2007/11/good-better-best?lang=eng) *Ensign* or *Liahona,* Nov. 2007, 104.
 
-[^14]: Thomas S. Monson, “Happiness—the Universal Quest,” *Ensign,* Oct. 1993, 4; or *Liahona,* Mar. 1996, 5.
+[^14]: Thomas S. Monson, “Happiness—the Universal Quest,” *Ensign,* Oct. 1993, 4; or *Liahona,* Mar. 1996, 5.
 
-[^15]: [[2 Nephi 5.27|2 Nephi 5:27]].
+[^15]: [[2 Nephi 5.27|2 Nephi 5:27]].
 
 [^16]: [[Alma 50.23|Alma 50:23]].
 
@@ -123,7 +125,7 @@ Let us remember that even those who have been wayward in the past or who are cur
 
 [^19]: [[D&C 84.38|Doctrine and Covenants 84:38]].
 
-[^20]: Henry B. Eyring, “Witnesses for God,” *Ensign,* Nov. 1996, 30; emphasis added.
+[^20]: Henry B. Eyring, “Witnesses for God,” *Ensign,* Nov. 1996, 30; emphasis added.
 
 [^21]: [[Genesis 29.20|Genesis 29:20]].
 
@@ -131,14 +133,9 @@ Let us remember that even those who have been wayward in the past or who are cur
 
 [^23]: Joseph Fielding Smith, “Importance of the Sacrament Meeting,” *Relief Society Magazine,* Oct. 1943, 592.
 
-[^24]: Jeffrey R. Holland, “The First Great Commandment,” *Ensign* or *Liahona,* Nov. 2012, 84.
+[^24]: Jeffrey R. Holland, “The First Great Commandment,” *Ensign* or *Liahona,* Nov. 2012, 84.
 
 [^25]: [[John 14.21|John 14:21]].
 
 [^26]: [[John 10.11|John 10:11]].
 
-
-
-
-
-#Covenants #Love #Service

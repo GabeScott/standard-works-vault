@@ -1,6 +1,8 @@
 # The Light of the Gospel
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -66,9 +68,9 @@ How glorious and how desirable! Who would not want to strive for such a blessing
 
 “Which truth shineth. This is the light of Christ. As also he is in the sun, and the light of the sun, and the power thereof by which it was made.
 
-“… and is the light of the moon, …
+“… and is the light of the moon, …
 
-“As also the light of the stars, …
+“As also the light of the stars, …
 
 “And the earth also, and the power thereof, even the earth upon which you stand.
 
@@ -94,7 +96,7 @@ At this same time the inhabitants on the American Continent were awaiting the ev
 
 “There could be no light, because of the darkness, neither candles, neither torches; neither could there be fire kindled with their fine and exceedingly dry wood, so that there could not be any light at all;
 
-“And there was not any light seen, neither fire, nor glimmer, neither the sun, nor the moon, nor the stars, for so great were the mists of darkness which were upon the face of the land.” ([[3 Nephi 8.21|3 Ne. 8:21–22]][[3 Nephi 8.22|]].)
+“And there was not any light seen, neither fire, nor glimmer, neither the sun, nor the moon, nor the stars, for so great were the mists of darkness which were upon the face of the land.” ([[3 Nephi 8.21|3 Ne. 8:21–22]][[3 Nephi 8.22|]].)
 
 The darkness was dispelled by the appearance of the resurrected Lord, who came to visit his “other sheep” referred to in John when he said:
 
@@ -116,13 +118,13 @@ Joseph was told to join none of the existing churches. He followed this instruct
 
 He relates: “While I was thus in the act of calling upon God, I discovered a *light* appearing in my room, which continued to increase until the room was *lighter* than at noonday, when immediately a personage appeared at my bedside, standing in the air, for his feet did not touch the floor.
 
-“… his whole person was glorious beyond description, and his countenance truly like lightning. The room was exceedingly *light,* but not so very bright as immediately around his person. When I first looked upon him, I was afraid; but the fear soon left me.” ([[Joseph Smith History 1.27|JS—H 1:27, 29–30, 32]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.32|]]; italics added.)
+“… his whole person was glorious beyond description, and his countenance truly like lightning. The room was exceedingly *light,* but not so very bright as immediately around his person. When I first looked upon him, I was afraid; but the fear soon left me.” ([[Joseph Smith History 1.27|JS—H 1:27, 29–30, 32]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.32|]]; italics added.)
 
 This personage was the angel Moroni, and he delivered a message concerning the gold plates from which the Book of Mormon was to be translated. That event heralded the restoration of the gospel (also foretold by Old and New Testament prophets) and the additional light and knowledge which men can enjoy through acceptance of the teachings of Jesus Christ, and through the influence of the priesthood of God, which is the power of God given to men to act in his name.
 
 Every individual has the right to and can have the Light of Christ in his life as an abiding influence. But he must *earn* that privilege and blessing. Each of us must so live as to be worthy for the blessings of the Lord to attend us. This means we must know and understand and keep his commandments. Through the saving principles of the gospel, we can use the light in our lives to dispel the darkness in the world and to thwart the plans of that Prince of Darkness, even Satan, who has vowed to destroy mankind and the glorious plan of life and salvation authored by God and his Son Jesus Christ.
 
-We have a prophet of God upon the earth today, even Spencer W. Kimball, through whom God speaks to man just as he did in former days, and as we accept his counsel, we will receive further light and knowledge.
+We have a prophet of God upon the earth today, even Spencer W. Kimball, through whom God speaks to man just as he did in former days, and as we accept his counsel, we will receive further light and knowledge.
 
 Parents have a particular responsibility to teach their children the importance of following the light and avoiding the darkness. This applies to both their spiritual and physical surroundings. It is a fact that most evil is perpetrated under the cover of darkness. The Lord has warned:
 
@@ -156,8 +158,3 @@ May each of us so live that through our works of righteousness, and with the lig
 
 
 
-
-
-
-
-#Example #Restoration #Spirituality

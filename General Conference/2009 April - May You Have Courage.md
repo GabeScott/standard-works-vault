@@ -1,5 +1,7 @@
 # May You Have Courage
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2009 General Conference*
@@ -38,7 +40,7 @@ I would venture to say that there are young women around you who, because of you
 
 The Savior said:
 
-“A new commandment I give unto you, That ye love one another. …
+“A new commandment I give unto you, That ye love one another. …
 
 “By this shall all men know that ye are my disciples, if ye have love one to another.”[^3]
 
@@ -70,7 +72,7 @@ Powerful is this quote from news commentator Ted Koppel, host of ABC’s *Nightl
 
 “We have actually convinced ourselves that slogans will save us. ‘Shoot up if you must; but use a clean needle.’ ‘Enjoy sex whenever with whomever you wish; but \[protect yourself\].’
 
-“No. The answer is no. Not no because it isn’t cool or smart or because you might end up in jail or dying in an AIDS ward—but no, because it’s wrong. …
+“No. The answer is no. Not no because it isn’t cool or smart or because you might end up in jail or dying in an AIDS ward—but no, because it’s wrong. …
 
 “What Moses brought down from Mt. Sinai were not the Ten Suggestions, they are Commandments. Are, not were.”[^5]
 
@@ -80,13 +82,13 @@ Help in maintaining the proper perspective in these permissive times can come to
 
 If any has stumbled in her journey, there is a way back. The process is called repentance. Our Savior died to provide you and me that blessed gift. The path may be difficult, but the promise is real: “Though your sins be as scarlet, they shall be as white as snow.”[^6] “And I will remember \[them\] no more.”[^7]
 
-Some years ago another First Presidency made this statement, and your First Presidency today echoes the appeal. I quote: “To the youth … , we plead with you to live clean \[lives\], for the unclean life leads only to suffering, misery, and woe physically,—and spiritually it is the path to destruction. How glorious and near to the angels is youth that is clean; this youth has joy unspeakable here and eternal happiness hereafter. Sexual purity is youth’s most precious possession; it is the foundation of all righteousness.”[^8]
+Some years ago another First Presidency made this statement, and your First Presidency today echoes the appeal. I quote: “To the youth … , we plead with you to live clean \[lives\], for the unclean life leads only to suffering, misery, and woe physically,—and spiritually it is the path to destruction. How glorious and near to the angels is youth that is clean; this youth has joy unspeakable here and eternal happiness hereafter. Sexual purity is youth’s most precious possession; it is the foundation of all righteousness.”[^8]
 
 May you have the courage to be chaste and virtuous.
 
 My final plea tonight is that you have the courage to stand firm for truth and righteousness. Because the trend in society today is away from the values and principles the Lord has given us, you will almost certainly be called upon to defend that which you believe. Unless the roots of your testimony are firmly planted, it will be difficult for you to withstand the ridicule of those who challenge your faith. When firmly planted, your testimony of the gospel, of the Savior, and of our Heavenly Father will influence all that you do throughout your life. The adversary would like nothing better than for you to allow derisive comments and criticism of the Church to cause you to question and doubt. Your testimony, when constantly nourished, will keep you safe.
 
-Recall with me Lehi’s vision of the tree of life. He saw that many who had held to the iron rod and had made their way through the mists of darkness, arriving at last at the tree of life and partaking of the fruit of the tree, did then “cast their eyes about as if they were ashamed.”[^9] Lehi wondered as to the cause of their embarrassment. As he looked about, he “beheld, on the other side of the river of water, a great and spacious building. …
+Recall with me Lehi’s vision of the tree of life. He saw that many who had held to the iron rod and had made their way through the mists of darkness, arriving at last at the tree of life and partaking of the fruit of the tree, did then “cast their eyes about as if they were ashamed.”[^9] Lehi wondered as to the cause of their embarrassment. As he looked about, he “beheld, on the other side of the river of water, a great and spacious building. …
 
 “And it was filled with people, both old and young, both male and female; and their manner of dress was exceedingly fine; and they were in the attitude of mocking and pointing their fingers towards those who … were partaking of the fruit.”[^10]
 
@@ -147,15 +149,15 @@ My earnest prayer is that you will have the courage required to refrain from jud
 
 [^8]: First Presidency, in Conference Report, Apr. 1942, 89.
 
-[^9]: [[1 Nephi 8.25|1 Nephi 8:25]].
+[^9]: [[1 Nephi 8.25|1 Nephi 8:25]].
 
-[^10]: [[1 Nephi 8.26|1 Nephi 8:26–27]][[1 Nephi 8.27|]].
+[^10]: [[1 Nephi 8.26|1 Nephi 8:26–27]][[1 Nephi 8.27|]].
 
-[^11]: [[1 Nephi 8.28|1 Nephi 8:28]].
+[^11]: [[1 Nephi 8.28|1 Nephi 8:28]].
 
 [^12]: [[Romans 1.16|Romans 1:16]].
 
-[^13]: [[2 Timothy 1.7|2 Timothy 1:7]].
+[^13]: [[2 Timothy 1.7|2 Timothy 1:7]].
 
 [^14]: [[Esther 3.8|Esther 3:8]].
 
@@ -171,10 +173,5 @@ My earnest prayer is that you will have the courage required to refrain from jud
 
 [^20]: [[Esther 4.14|Esther 4:14]].
 
-[^21]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^21]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
-
-
-
-
-#Courage #Judging #Standards #Virtue

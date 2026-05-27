@@ -1,6 +1,8 @@
 # Prepare for Honorable Employment
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -49,8 +51,3 @@ I am grateful for my membership in a church that has this concern for its member
 
 
 
-
-
-
-
-#Employment

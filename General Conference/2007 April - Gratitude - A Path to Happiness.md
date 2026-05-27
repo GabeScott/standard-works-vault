@@ -1,5 +1,7 @@
 # Gratitude: A Path to Happiness
 
+Thomas S. Monson
+
 By Bonnie D. Parkin - *Recently Released Relief Society General President*
 
 *Given in the April session of the 2007 General Conference*
@@ -46,7 +48,7 @@ The kind of gratitude that receives even tribulations with thanksgiving requires
 
 When was the last time you thanked the Lord for a trial or tribulation? Adversity compels us to go to our knees; does gratitude for adversity do that as well?
 
-President David O. McKay observed, “We find in the bitter chill of adversity the real test of our gratitude … , which … goes beneath the surface of life, whether sad or joyous.”[^9]
+President David O. McKay observed, “We find in the bitter chill of adversity the real test of our gratitude … , which … goes beneath the surface of life, whether sad or joyous.”[^9]
 
 ## Conclusion
 
@@ -61,7 +63,7 @@ My most profound gratitude is for my Savior—an obedient Son, who did all that 
 
 [^2]: Personal correspondence.
 
-[^3]: [[1 Nephi 2.12|1 Nephi 2:12]].
+[^3]: [[1 Nephi 2.12|1 Nephi 2:12]].
 
 [^4]: [[Alma 34.38|Alma 34:38]].
 
@@ -75,7 +77,5 @@ My most profound gratitude is for my Savior—an obedient Son, who did all that 
 
 [^9]: *Pathways to Happiness,* comp. Llewelyn R. McKay (1957), 318.
 
+[^10]: [[2 Corinthians 9.15|2 Corinthians 9:15]].
 
-
-
-#Adversity #Gratitude #Love

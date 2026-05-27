@@ -1,5 +1,7 @@
 # The Victory over Death
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1985 General Conference*
@@ -14,7 +16,7 @@ My beloved brethren and sisters, what a glorious day is Easter! This is the day 
 
 But thanks be to God for the wonder and the majesty of His eternal plan. Thank and glorify His Beloved Son, who, with indescribable suffering, gave His life on Calvary’s cross to pay the debt of mortal sin. He it was who, through His atoning sacrifice, broke the bonds of death and with godly power rose triumphant from the tomb. He is our Redeemer, the Redeemer of all mankind. He is the Savior of the world. He is the Son of God, the Author of our salvation.
 
-“If a man die, shall he live again?” ([[Job 14.14|Job 14:14]].) This is the great universal question framed by Job. He spoke what every other living man or woman has pondered. The Christ alone, of all the millions who up to that time had walked the earth, was the first to emerge from the grave triumphant, a living soul complete in spirit and body. He became “the firstfruits of them that slept.” ([[1 Corinthians 15.20|1 Cor. 15:20]].) Were greater words ever spoken than those of the angel that first resurrection morn—“Why seek ye the living among the dead?” ([[Luke 24.5|Luke 24:5]].) “He is not here: for he is risen, as he said.” ([[Matthew 28.6|Matt. 28:6]].)
+“If a man die, shall he live again?” ([[Job 14.14|Job 14:14]].) This is the great universal question framed by Job. He spoke what every other living man or woman has pondered. The Christ alone, of all the millions who up to that time had walked the earth, was the first to emerge from the grave triumphant, a living soul complete in spirit and body. He became “the firstfruits of them that slept.” ([[1 Corinthians 15.20|1 Cor. 15:20]].) Were greater words ever spoken than those of the angel that first resurrection morn—“Why seek ye the living among the dead?” ([[Luke 24.5|Luke 24:5]].) “He is not here: for he is risen, as he said.” ([[Matthew 28.6|Matt. 28:6]].)
 
 His death sealed the testimony of His love for all mankind. His resurrection opened the gates of salvation to the sons and daughters of God of all generations.
 
@@ -40,7 +42,7 @@ It was over. His mortal life was finished. He had offered it as a ransom for all
 
 Gone were the hopes of those who loved Him. Forgotten were the promises He had made. His body was hurriedly but tenderly placed in a borrowed tomb on the eve of the Jewish Sabbath. That Sabbath came and went. Then, early in the morning of Sunday, Mary Magdalene and other women came to the tomb. They wondered as they hurried how the stone might be rolled from the door of the sepulchre. Arriving, they saw an angel who spoke to them: “I know that ye seek Jesus, which was crucified. He is not here: for he is risen, as he said.” ([[Matthew 28.5|Matt. 28:5–6]][[Matthew 28.6|]].)
 
-It had never before happened. The empty tomb was the answer to the question of the ages. Well did Paul say: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
+It had never before happened. The empty tomb was the answer to the question of the ages. Well did Paul say: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
 
 The miracle of that resurrection morning, that first Easter Sunday, is a miracle for all mankind. It is the miracle of the power of God, whose Beloved Son gave His life to atone for the sins of all, a sacrifice of love for every son and daughter of God. In so doing He broke the seals of death.
 
@@ -106,11 +108,11 @@ May I read a few lines from two letters. The first is from the chairman of Catho
 
 And now from the president of the American Red Cross:
 
-“I cannot thank you and your members in the U.S. and Canada enough for the outstanding support you have given the Red Cross relief effort in Africa. Your most recent contribution of $800,000 brings the total donations to $1,400,000. This support … has permitted us to provide 350,000 victims food for a month based upon the Red Cross estimate that $4 a month is needed to feed a child. …
+“I cannot thank you and your members in the U.S. and Canada enough for the outstanding support you have given the Red Cross relief effort in Africa. Your most recent contribution of $800,000 brings the total donations to $1,400,000. This support … has permitted us to provide 350,000 victims food for a month based upon the Red Cross estimate that $4 a month is needed to feed a child. …
 
 “In Ethiopia … on a daily average the Red Cross workers are feeding more than 500,000 people. … Red Cross assistance is being provided to the most vulnerable groups: children under 5 years of age, pregnant women, nursing mothers and the elderly. In northern Ethiopia where few other organizations are able to work, assistance is being given to the most needy.
 
-“In neighboring Sudan the situation is deteriorating rapidly. 200,000 to 300,000 new refugees from Chad, Uganda and Ethiopia are expected by the end of May. In addition, Sudan itself is being affected by the drought with 280,000 forced to leave their homes in search of food. 15,000 children were recently found to suffer night blindness, the last step to total blindness due to poor nutrition. These children are now being fed by the Red Cross. …
+“In neighboring Sudan the situation is deteriorating rapidly. 200,000 to 300,000 new refugees from Chad, Uganda and Ethiopia are expected by the end of May. In addition, Sudan itself is being affected by the drought with 280,000 forced to leave their homes in search of food. 15,000 children were recently found to suffer night blindness, the last step to total blindness due to poor nutrition. These children are now being fed by the Red Cross. …
 
 “You may be assured the Red Cross is honored by the trust you have placed in our relief work. *All* contributions given through the American Red Cross are used in African Famine Relief. No overhead or fund raising costs are being deducted. I know your members have sacrificed to make this relief possible. The trust of your fellowship will be honored. God bless you all. \[Signed\] Richard Schubert, President”
 
@@ -123,8 +125,3 @@ You responded in a magnificent way in sharing of your plenty with those who are 
 
 
 
-
-
-
-
-#Jesus_Christ #Resurrection

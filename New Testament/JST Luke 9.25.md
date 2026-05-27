@@ -4,6 +4,3 @@
 
 [JST Luke 9:25](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/9?lang=eng)
 
-
-
-

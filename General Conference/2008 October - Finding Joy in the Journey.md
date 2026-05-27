@@ -1,5 +1,7 @@
 # Finding Joy in the Journey
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2008 General Conference*
@@ -68,7 +70,7 @@ Borghild Dahl, both before and after her sight was restored, was filled with gra
 
 In 1982, two years before she died, at the age of 92 her last book was published. Its title: *Happy All My Life.* Her attitude of thankfulness enabled her to appreciate her blessings and to live a full and rich life despite her challenges.
 
-In 1 Thessalonians in the New Testament, [[1 Thessalonians 5.18|chapter 5, verse 18]], we are told by the Apostle Paul, “In every thing give thanks: for this is the will of God.”
+In 1 Thessalonians in the New Testament, [[1 Thessalonians 5.18|chapter 5, verse 18]], we are told by the Apostle Paul, “In every thing give thanks: for this is the will of God.”
 
 Recall with me the account of the 10 lepers:
 
@@ -141,8 +143,3 @@ Brothers and sisters, my sincere prayer is that we may adapt to the changes in o
 
 [^17]: [[D&C 11.6|D&C 11:6]].
 
-
-
-
-
-#Gratitude #Jesus_Christ #Joy #Opposition

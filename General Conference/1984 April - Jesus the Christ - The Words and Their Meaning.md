@@ -1,5 +1,7 @@
 # Jesus the Christ: The Words and Their Meaning
 
+Gordon B. Hinckley
+
 By Elder G. Homer Durham - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -24,11 +26,11 @@ Elder Talmage defined the two words as follows:
 
 “*Jesus* is the individual name of the Savior, and as thus spelled is of Greek derivation. … In the original the name was well understood as meaning ‘Help of Jehovah,’ or, ‘Savior.’”
 
-Elder Talmage emphasized that the word *Christ* is a sacred title, not “an ordinary … common name; it is of Greek derivation, and … is identical with its Hebrew equivalent *Messiah* … , signifying the *Anointed One.*” (*Jesus the Christ,* Salt Lake City: Deseret Book Co., 1973, pp. 35–36.)
+Elder Talmage emphasized that the word *Christ* is a sacred title, not “an ordinary … common name; it is of Greek derivation, and … is identical with its Hebrew equivalent *Messiah* … , signifying the *Anointed One.*” (*Jesus the Christ,* Salt Lake City: Deseret Book Co., 1973, pp. 35–36.)
 
 What was the earliest documented mention of the sacred name *Jesus Christ* now available to us? Dr. Joseph Armitage Robinson, one-time Norrisson Professor of Cambridge University, held that it is probably found in the opening verse of First Thessalonians. (*Encyclopedia Britannica,* 11th ed., vol. 15, s.v. “Jesus.”) Imagine the impact of those words then, as we read them today in English, as received by the Thessalonians possibly two decades after the Crucifixion:
 
-“Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians which is in God the Father and in the Lord Jesus Christ: Grace be unto you, and peace, from God our Father, and the Lord Jesus Christ.” ([[1 Thessalonians 1.1|1 Thes. 1:1]].)
+“Paul, and Silvanus, and Timotheus, unto the church of the Thessalonians which is in God the Father and in the Lord Jesus Christ: Grace be unto you, and peace, from God our Father, and the Lord Jesus Christ.” ([[1 Thessalonians 1.1|1 Thes. 1:1]].)
 
 Note that the phrase *God the Father* is separated by the conjunction *and* from the phrase *the Lord Jesus Christ.* This demonstrates first-century belief in the separate individuality of the Father and the Son, as restored by the Prophet Joseph Smith.
 
@@ -64,15 +66,10 @@ The name which means “God is help,” “the Anointed One,” “the Promised 
 
 Some three decades ago, Professor Arnold Toynbee concluded one of the most extensive studies of history ever undertaken. He recorded mankind’s quest for “saviours,” for “the way out.” He identified four categories: (1) the “Creative Genius”; (2) the “Saviour with a Sword”; (3) the “Saviour with a Time Machine,” one dreaming of a utopia or an archaic past which never existed; (4) the saviour as a “Philosopher, Masked as a King.” All these history rejects. Finally, Toynbee pointed to “the God Incarnate in a Man,” the Lord Jesus Christ. And then he wrote:
 
-“This is in truth the final result of our survey of saviours. When we set out on this quest we found ourselves moving in the midst of a mighty host, but, as we have pressed forward, the marchers, company by company, have fallen out of the race. The first to fail were the swordsmen, the next the archaists and the futurists, the next the philosophers, until only gods were left in the running. … And now, as we stand and gaze with our eyes fixed upon the farther shore, a single figure rises from the flood and straightway fills the whole horizon. There is the Saviour.” (*A Study of History,* abridgment, vols. 1–6, D. C. Somervell, Oxford: Oxford University Press, 1957, p. 547.)
+“This is in truth the final result of our survey of saviours. When we set out on this quest we found ourselves moving in the midst of a mighty host, but, as we have pressed forward, the marchers, company by company, have fallen out of the race. The first to fail were the swordsmen, the next the archaists and the futurists, the next the philosophers, until only gods were left in the running. … And now, as we stand and gaze with our eyes fixed upon the farther shore, a single figure rises from the flood and straightway fills the whole horizon. There is the Saviour.” (*A Study of History,* abridgment, vols. 1–6, D. C. Somervell, Oxford: Oxford University Press, 1957, p. 547.)
 
 We know that Savior to be the Lord Jesus Christ. From many, many experiences over my lifetime, I can truly testify to you that He truly is our Savior; and if the Father is approached in prayer, as His Son has commanded us, doors will open to help us move forward without fear in life. That all men everywhere may come to realize and know the significance of *Jesus the Christ,* the One chosen before the foundation of the world, is my faith and witness. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Jesus_Christ

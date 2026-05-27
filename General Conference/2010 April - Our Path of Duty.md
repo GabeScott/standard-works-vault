@@ -1,5 +1,7 @@
 # Our Path of Duty
 
+Thomas S. Monson
+
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2010 General Conference*
@@ -24,11 +26,11 @@ Corrie ten Boom then said:
 
 “It could not have been many seconds that he stood there—hand held out—but to me it seemed hours as I wrestled with the most difficult thing I had ever had to do.
 
-“… The message that God forgives has a … condition: that we forgive those who have injured us. …
+“… The message that God forgives has a … condition: that we forgive those who have injured us. …
 
-“… ‘Help me!’ I prayed silently. ‘I can lift my hand. I can do that much. You supply the feeling.’
+“… ‘Help me!’ I prayed silently. ‘I can lift my hand. I can do that much. You supply the feeling.’
 
-“… Woodenly, mechanically, I thrust my hand into the one stretched out to me. As I did, an incredible thing took place. The current started in my shoulder, raced down my arm, sprang into our joined hands. And then this healing warmth seemed to flood my whole being, bringing tears to my eyes.
+“… Woodenly, mechanically, I thrust my hand into the one stretched out to me. As I did, an incredible thing took place. The current started in my shoulder, raced down my arm, sprang into our joined hands. And then this healing warmth seemed to flood my whole being, bringing tears to my eyes.
 
 “‘I forgive you, brother!’ I cried. ‘With all my heart.’
 
@@ -36,7 +38,7 @@ Corrie ten Boom then said:
 
 For those who eschew evil and live good lives, who strive for a brighter day and keep the commandments of God, things can get better and better even in the face of tragedy. The Savior showed us the way. From Gethsemane, the cross, and the tomb, He rose triumphant, bringing life and hope to us all. He bids us, “Come, follow me.”[^7]
 
-President Thomas S. Monson has counseled: “If we are to walk with head held high, we must make our contribution to life. If we are to fulfill our destiny and return to live with our Father in Heaven, we must keep His commandments and pattern our lives after the Savior. By so doing, we will not only achieve our goal of eternal life, but we will also leave the world richer and better than it would have been had we not *lived and performed our duties.*”[^8]
+President Thomas S. Monson has counseled: “If we are to walk with head held high, we must make our contribution to life. If we are to fulfill our destiny and return to live with our Father in Heaven, we must keep His commandments and pattern our lives after the Savior. By so doing, we will not only achieve our goal of eternal life, but we will also leave the world richer and better than it would have been had we not *lived and performed our duties.*”[^8]
 
 In the Holy Bible are these inspired words: “Let us hear the conclusion of the whole matter: Fear God, and keep his commandments: for *this is the whole duty of man.*”[^9]
 
@@ -50,7 +52,7 @@ President Monson said of it, “I love and cherish the noble word *duty.*”[^10
 
 First, our path of duty is to God, our Eternal Father. He is the author of the plan of salvation, “the framer of heaven and earth,” the creator of Adam and Eve.[^11] He is the fountain of truth,[^12] the embodiment of love,[^13] and the reason there is redemption through Christ.[^14]
 
-Said President Joseph F. Smith: “All that we have comes from \[God\]. … In and of ourselves we are but a lifeless lump of clay. Life, intelligence, wisdom, judgment, power to reason, all are the gifts of God to the children of men. He gives us our physical strength as well as our mental powers. … We should honor God with our intelligence, with our strength, with our understanding, with our wisdom, and with all the power that we possess. We should seek to do good in the world. *This is our duty.*”[^15]
+Said President Joseph F. Smith: “All that we have comes from \[God\]. … In and of ourselves we are but a lifeless lump of clay. Life, intelligence, wisdom, judgment, power to reason, all are the gifts of God to the children of men. He gives us our physical strength as well as our mental powers. … We should honor God with our intelligence, with our strength, with our understanding, with our wisdom, and with all the power that we possess. We should seek to do good in the world. *This is our duty.*”[^15]
 
 One cannot do his or her duty to God the Father without doing likewise to the Son of God, the Lord Jesus Christ. To revere one requires reverence for the other, for the Father has appointed that it is only in and through the name of Christ that one can completely fulfill this dutiful charge.[^16] He is our Exemplar, our Redeemer, and our King.
 
@@ -60,13 +62,13 @@ As men and women and boys and girls do their duty to God, they feel impelled to 
 
 We pray! It is everyone’s sure way to know; it is everyone’s lifeline to heaven. Said the Apostle Peter, “The eyes of the Lord are over the righteous, and his ears are open unto their prayers.”[^18]
 
-Humble, sincere, inspired prayer makes available to each of us the divine guidance we so desperately need. Brigham Young counseled, “At times, men are perplexed and full of care and trouble … ; yet our judgment teaches us that *it is our duty to pray.*”[^19]
+Humble, sincere, inspired prayer makes available to each of us the divine guidance we so desperately need. Brigham Young counseled, “At times, men are perplexed and full of care and trouble … ; yet our judgment teaches us that *it is our duty to pray.*”[^19]
 
 Jesus taught:
 
-“Ye must watch and pray always lest ye enter into temptation; …
+“Ye must watch and pray always lest ye enter into temptation; …
 
-“Therefore ye must always pray unto the Father in my name; …
+“Therefore ye must always pray unto the Father in my name; …
 
 “Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.”[^20]
 
@@ -79,7 +81,7 @@ I bear my witness that our path of duty is clearly marked by an undivided faith 
 
 [^1]: [[Moses 7.61|Moses 7:61]]; emphasis added.
 
-[^2]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 156.
+[^2]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 156.
 
 [^3]: [[Mosiah 1.17|Mosiah 1:17]].
 
@@ -91,31 +93,31 @@ I bear my witness that our path of duty is clearly marked by an undivided faith 
 
 [^7]: [[Luke 18.22|Luke 18:22]].
 
-[^8]: Thomas S. Monson, unpublished statement in possession of author; emphasis added.
+[^8]: Thomas S. Monson, unpublished statement in possession of author; emphasis added.
 
 [^9]: [[Ecclesiastes 12.13|Ecclesiastes 12:13]]; emphasis added.
 
-[^10]: Thomas S. Monson, in Conference Report, Apr. 1996, 61; or *Ensign,* May 1996, 43.
+[^10]: Thomas S. Monson, in Conference Report, Apr. 1996, [[1996 April - Duty Calls.md|61]]; or *Ensign,* May 1996, 43.
 
 [^11]: See [[D&C 20.17|Doctrine and Covenants 20:17–19]][[D&C 20.18|]][[D&C 20.19|]].
 
 [^12]: See [[D&C 93.36|Doctrine and Covenants 93:36]].
 
-[^13]: See [[1 John 4.8|1 John 4:8]].
+[^13]: See [[1 John 4.8|1 John 4:8]].
 
 [^14]: See [[John 3.16|John 3:16]]; [[Helaman 5.10|Helaman 5:10–11]][[Helaman 5.11|]].
 
-[^15]: Joseph F. Smith, in Conference Report, Oct. 1899, 70; emphasis added.
+[^15]: Joseph F. Smith, in Conference Report, Oct. 1899, 70; emphasis added.
 
 [^16]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]]; [[D&C 59.5|Doctrine and Covenants 59:5]].
 
 [^17]: See [[Alma 7.23|Alma 7:23, 27]][[Alma 7.27|]].
 
-[^18]: [[1 Peter 3.12|1 Peter 3:12]].
+[^18]: [[1 Peter 3.12|1 Peter 3:12]].
 
 [^19]: *Teachings of Presidents of the Church: Brigham Young* (1997), 45; emphasis added.
 
-[^20]: [[3 Nephi 18.18|3 Nephi 18:18–19, 21]][[3 Nephi 18.19|]][[3 Nephi 18.21|]].
+[^20]: [[3 Nephi 18.18|3 Nephi 18:18–19, 21]][[3 Nephi 18.19|]][[3 Nephi 18.21|]].
 
 [^21]: See [[D&C 50.29|Doctrine and Covenants 50:29–30]][[D&C 50.30|]].
 
@@ -129,8 +131,3 @@ I bear my witness that our path of duty is clearly marked by an undivided faith 
 
 [^26]: [[Ecclesiastes 12.13|Ecclesiastes 12:13]]; emphasis added.
 
-
-
-
-
-#Commandments #Duty #Obedience #Prayer

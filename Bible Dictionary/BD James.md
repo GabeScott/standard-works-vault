@@ -6,7 +6,7 @@ An English form of the Hebrew name Jacob. There are several persons of this name
 
 (2) Son of Alphaeus, also one of the Twelve ([[Matthew 10.3|Matt. 10:3]]; [[Mark 3.18|Mark 3:18]]; [[Luke 6.15|Luke 6:15]]; [[Acts 1.13|Acts 1:13]]).
 
-(3) Brother of the Lord ([[Galatians 1.19|Gal. 1:19]]) and of Joses, Simon, Jude, and some sisters ([[Matthew 13.55|Matt. 13:55]]; [[Mark 6.3|Mark 6:3]]; [[Jude 1.1|Jude 1:1]]); known as James the Just. He occupied an important position in the Church of Jerusalem ([[Acts 12.17|Acts 12:17]]; [[Acts 15.13|15:13]]; [[Acts 21.18|21:18]]; [[1 Corinthians 15.7|1 Cor. 15:7]]; [[Galatians 2.9|Gal. 2:9–12]][[Galatians 2.10|]][[Galatians 2.11|]][[Galatians 2.12|]]) and was probably the writer of the Epistle of James.
+(3) Brother of the Lord ([[Galatians 1.19|Gal. 1:19]]) and of Joses, Simon, Jude, and some sisters ([[Matthew 13.55|Matt. 13:55]]; [[Mark 6.3|Mark 6:3]]; [[Jude 1.1|Jude 1:1]]); known as James the Just. He occupied an important position in the Church of Jerusalem ([[Acts 12.17|Acts 12:17]]; [[Acts 15.13|15:13]]; [[Acts 21.18|21:18]]; [[1 Corinthians 15.7|1 Cor. 15:7]]; [[Galatians 2.9|Gal. 2:9–12]][[Galatians 2.10|]][[Galatians 2.11|]][[Galatians 2.12|]]) and was probably the writer of the Epistle of James.
 
 (4) James, called “the Less,” son of Mary and brother of Joses ([[Matthew 27.56|Matt. 27:56]]; [[Mark 15.40|Mark 15:40]]; [[Luke 24.10|Luke 24:10]]). Nothing further is known of him, unless he is, as some think, the same as number 3 (above).
 

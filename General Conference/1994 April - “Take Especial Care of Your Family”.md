@@ -1,5 +1,7 @@
 # “Take Especial Care of Your Family”
 
+James E. Faust
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1994 General Conference*
@@ -28,7 +30,7 @@ Note several terrible trends which, *if uncorrected,* will produce an even worse
 
 - “Fifty-five percent of \[American\] children under the age of six … have both parents or their only parent working in the labor force.”[^7]
 
-Father Lehi once described himself as a “trembling parent” ([[2 Nephi 1.14|2 Ne. 1:14]]). There are trembling parents and grandparents today! Some of today’s families already exist in a worse wilderness than did Father Lehi’s. Healthy, traditional families are becoming an endangered species! Perhaps, one day, families may even rank with the threatened spotted owl in effective attention given!
+Father Lehi once described himself as a “trembling parent” ([[2 Nephi 1.14|2 Ne. 1:14]]). There are trembling parents and grandparents today! Some of today’s families already exist in a worse wilderness than did Father Lehi’s. Healthy, traditional families are becoming an endangered species! Perhaps, one day, families may even rank with the threatened spotted owl in effective attention given!
 
 As parenting declines, the need for policing increases. There will always be a shortage of police if there is a shortage of effective parents! Likewise, there will not be enough prisons if there are not enough good homes.
 
@@ -52,7 +54,7 @@ After all, mortal families predate the founding of nations, and families will ex
 
 Of all the work of “perfecting the Saints,” none compares to that done in healthy families. President David O. McKay taught, “The home is the basis of a righteous life, and no other instrumentality can take its place nor fulfill its essential functions.”[^9] Sometimes, unintentionally, even certain extracurricular Church activities, insensitively administered, can hamper family life.
 
-Instructively, after the resurrected Jesus taught the Nephites, He said, “Go ye unto your homes, and ponder upon the things which I have said,” and pray and prepare “for the morrow” ([[3 Nephi 17.3|3 Ne. 17:3]]). Jesus did not say go to your civic clubs, town meetings, or even stake centers!
+Instructively, after the resurrected Jesus taught the Nephites, He said, “Go ye unto your homes, and ponder upon the things which I have said,” and pray and prepare “for the morrow” ([[3 Nephi 17.3|3 Ne. 17:3]]). Jesus did not say go to your civic clubs, town meetings, or even stake centers!
 
 Attending to all family duties includes really teaching our children “to understand the doctrine of repentance, faith in Christ the Son of the living God” ([[D&C 68.25|D&C 68:25]]). What a different view of parenting from that of the world. Marie Winn lamented in *Children without Childhood* how there is an emerging but unjustified tendency to treat children as if they have the capacity for unrestricted adult experience.[^10] Brothers and sisters, we may not be able to change such trends, but we can refuse to be a part of them.
 
@@ -66,7 +68,7 @@ In the face of such challenges, we need more mothers who know the truth, whose c
 
 In the healthy family, first and best, we can learn to listen, forgive, praise, and to rejoice in the achievements of others. There also we can learn to tame our egos, work, repent, and love. In families with spiritual perspective, yesterday need not hold tomorrow hostage. If we sometimes act the fool, loving families know this is not our last act; the curtain is not rung down.
 
-To some, these remedies, and things like them, may seem too simple to heal a society stung by so many afflictions. In afflicted ancient Israel, some also disdained the simple, divinely provided remedies, and they perished (see [[1 Nephi 17.41|1 Ne. 17:41]]).
+To some, these remedies, and things like them, may seem too simple to heal a society stung by so many afflictions. In afflicted ancient Israel, some also disdained the simple, divinely provided remedies, and they perished (see [[1 Nephi 17.41|1 Ne. 17:41]]).
 
 Obviously, family values mirror our personal priorities. Given the gravity of current conditions, would parents be willing to give up just one outside thing, giving that time and talent instead to the family? Parents and grandparents, please scrutinize your schedules and priorities in order to ensure that life’s prime relationships get more prime time! Even consecrated and devoted Brigham Young was once told by the Lord, “Take especial care of your family” ([[D&C 126.3|D&C 126:3]]). Sometimes it is the most conscientious who need this message the most!
 
@@ -78,40 +80,38 @@ As the number of dysfunctional families increases, their failures will spill int
 
 Nations in which traditional idealism gives way to modern cynicism will forfeit the blessings of heaven, which they so urgently need, and such nations will also lose legitimacy in the eyes of their citizens.
 
-Amid the Babel of prescriptions from “so many kinds of voices in the world,” rescuing and redeeming perspective requires our coming to know who Jesus Christ is, how He lived, and what He died for ([[1 Corinthians 14.10|1 Cor. 14:10]]; see also [[John 10.27|John 10:27]]). After all, it is Jesus who has given us commanding perspective concerning families.
+Amid the Babel of prescriptions from “so many kinds of voices in the world,” rescuing and redeeming perspective requires our coming to know who Jesus Christ is, how He lived, and what He died for ([[1 Corinthians 14.10|1 Cor. 14:10]]; see also [[John 10.27|John 10:27]]). After all, it is Jesus who has given us commanding perspective concerning families.
 
 Therefore, as this Easter day draws to a close, how fitting that we contemplate atoning Jesus—bending and curved in Gethsemane. His bleeding curvature transformed the grammar of death. Until Gethsemane and Calvary, death was a punctuating, rigid exclamation point! Then death, too, curved—into a mere comma!
 
-Praise be to Jesus for bearing the sins and pains of all “the family of Adam” back then ([[2 Nephi 9.21|2 Ne. 9:21]]; [[2 Nephi 2.20|2:20]]). Let us strive here and now to take especial care of our families as Jesus did of His, “even the family of all the earth” ([[2 Nephi 2.20|2 Ne. 2:20]]). I so pray in the name of Jesus Christ, amen.
+Praise be to Jesus for bearing the sins and pains of all “the family of Adam” back then ([[2 Nephi 9.21|2 Ne. 9:21]]; [[2 Nephi 2.20|2:20]]). Let us strive here and now to take especial care of our families as Jesus did of His, “even the family of all the earth” ([[2 Nephi 2.20|2 Ne. 2:20]]). I so pray in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: *The Story of Philosophy* (New York: Simon and Schuster, 1927), p. 1.
+[^1]: *The Story of Philosophy* (New York: Simon and Schuster, 1927), p. 1.
 
-[^2]: José Ortega y Gasset, *The Modern Theme,* trans. James Cleugh (New York: Harper and Row, 1961), p. 29.
+[^2]: José Ortega y Gasset, *The Modern Theme,* trans. James Cleugh (New York: Harper and Row, 1961), p. 29.
 
-[^3]: See President Clinton, “State of the Union Address,” CNN Specials, 25 Jan. 1994, p. 3.
+[^3]: See President Clinton, “State of the Union Address,” CNN Specials, 25 Jan. 1994, p. 3.
 
-[^4]: See “The Basics Debate,” *Wall Street Journal,* 18 Nov. 1993, sec. A, p. 18.
+[^4]: See “The Basics Debate,” *Wall Street Journal,* 18 Nov. 1993, sec. A, p. 18.
 
-[^5]: Barbara Dafoe Whitehead, “Dan Quayle Was Right,” *Atlantic Monthly,* Apr. 1993, p. 47.
+[^5]: Barbara Dafoe Whitehead, “Dan Quayle Was Right,” *Atlantic Monthly,* Apr. 1993, p. 47.
 
-[^6]: *Research Briefs from Utah Foundation,* 16 July 1993, p. 1.
+[^6]: *Research Briefs from Utah Foundation,* 16 July 1993, p. 1.
 
-[^7]: *Research Briefs,* p. 1.
+[^7]: *Research Briefs,* p. 1.
 
 [^8]: Quoted in *The Listener,* 12 Feb. 1959.
 
-[^9]: *Family Home Evening Manual* (1965), p. iii.
+[^9]: *Family Home Evening Manual* (1965), p. iii.
 
-[^10]: See *Children without Childhood* (New York: Penguin, 1983), p. 5.
+[^10]: See *Children without Childhood* (New York: Penguin, 1983), p. 5.
 
-[^11]: See “Callers Weigh in on Domestic Abuse,” CNN, 6 Nov. 1993; *The World Almanac* (Mahwah, N.J.: Funk and Wagnall’s, 1993) p. 954.
+[^11]: See “Callers Weigh in on Domestic Abuse,” CNN, 6 Nov. 1993; *The World Almanac* (Mahwah, N.J.: Funk and Wagnall’s, 1993) p. 954.
 
-[^12]: Jennifer Dixon, “A Youth Dies by Gunfire Every Two Hours,” *Deseret News,* 20 Jan. 1994, sec. A, p. 1.
+[^12]: Jennifer Dixon, “A Youth Dies by Gunfire Every Two Hours,” *Deseret News,* 20 Jan. 1994, sec. A, p. 1.
 
+[^13]: In Neal A. Maxwell, *That My Family Should Partake* (Salt Lake City: Deseret Book Co., 1974), p. 56.
 
-
-
-#Accountability #Authority #Children #Family #Love #Parenthood #Perspective #Priorities #Violence

@@ -1,6 +1,8 @@
 # “Strengthen Thy Brethren”
 
-By Bishop Robert L. Simpson - *Of the Presiding Bishopric*
+Joseph Fielding Smith
+
+By Bishop Robert L. Simpson - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -46,7 +48,7 @@ The scriptures declare that “many are called, but few are chosen.” ([[D&C 12
 
 Well, it is exciting that you are here; you are special! And furthermore, the Lord has something in mind for you to do about it starting right now. The Church has need of every member, and that means not only you but also four of your friends who should be sitting by you in this meeting tonight but who are missing.
 
-A recurring theme during the life of the Savior as he taught the people was that each man is his brother’s keeper. No priesthood obligation is more important. The scriptures say something very similar but in another way that I like very much: “… when thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].)
+A recurring theme during the life of the Savior as he taught the people was that each man is his brother’s keeper. No priesthood obligation is more important. The scriptures say something very similar but in another way that I like very much: “… when thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].)
 
 No one takes upon himself the covenant of baptism nor the honor of the priesthood except he also receives the obligations associated with Church membership and priesthood affiliation.
 
@@ -58,19 +60,19 @@ The world today tells you to leave your friend alone. He has the right to come a
 
 Now at this point the Lord gives a commandment that we must speak in his name with solemnity of heart and in the spirit of meekness, and then he concludes with this promise:
 
-“… inasmuch as ye do this the Holy Ghost shall be shed forth in bearing record unto all things whatsoever ye shall say.” ([[D&C 100.5|D&C 100:5–8]][[D&C 100.6|]][[D&C 100.7|]][[D&C 100.8|]].)
+“… inasmuch as ye do this the Holy Ghost shall be shed forth in bearing record unto all things whatsoever ye shall say.” ([[D&C 100.5|D&C 100:5–8]][[D&C 100.6|]][[D&C 100.7|]][[D&C 100.8|]].)
 
 Following this divine formula will take your contact with a friend out of the usual lip-to-ear communication category. With the help of the Holy Ghost, there will be a penetration into the heart of your friend. He will be persuaded through a wonderful spiritual process that is reserved for worthy members of the Church. It is the same process by which converts are brought into the Church and will be an important spiritual gift for each of you to develop and improve on a continuing basis.
 
 Yes, the Church has need of every member, and the list of indifferent members is much too long; it concerns the First Presidency; it concerns the Lord.
 
-There will not be a sign or miracle in the heavens to wake people up. It was decided aeons ago that people would be helped by people so far as the Lord’s work is concerned. This is an eternal principle and process: “… when thou art converted, strengthen thy brethren.” The task is largely up to those of us who are here tonight, and the responsibility is upon the newest deacon as well as the high priest of longest standing. While I have directed my comments primarily to the Aaronic Priesthood—Youth, certainly every principle applies to all of us involved in this great work.
+There will not be a sign or miracle in the heavens to wake people up. It was decided aeons ago that people would be helped by people so far as the Lord’s work is concerned. This is an eternal principle and process: “… when thou art converted, strengthen thy brethren.” The task is largely up to those of us who are here tonight, and the responsibility is upon the newest deacon as well as the high priest of longest standing. While I have directed my comments primarily to the Aaronic Priesthood—Youth, certainly every principle applies to all of us involved in this great work.
 
 May I conclude with a word of caution as the Lord gave it to the Prophet Joseph Smith. He said this: “What I say unto one I say unto all; pray always lest that wicked one have power in you, and remove you out of your place.” ([[D&C 93.49|D&C 93:49]].)
 
 “Many are called, but few are chosen.” What a tragedy to be foreordained or to be chosen or to be called and ordained only to have the adversary “remove you out of your place.” Don’t you allow it to happen. Live beyond his grasp, for I can promise you that there are limits beyond which Satan cannot reach. He will not have claim on the righteous. The challenge for each of us is to stand worthy that we might better assist our brother back into the circle of activity, and may our efforts to do so be centered in that glorious revelation which is pure poetry in a scriptural setting:
 
-“… let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
+“… let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
 
 “The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion, and without compulsory means it shall flow unto thee forever and ever.” ([[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]].)
 
@@ -83,8 +85,3 @@ Are you converted? You most certainly are, whether you recognize it or not, and 
 
 
 
-
-
-
-
-#Love #Priesthood

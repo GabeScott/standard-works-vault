@@ -1,6 +1,5 @@
 # Residue
 
-
 *See also* [[Remnant.md|Remnant]]
 
 diadem of beauty, unto the *residue* of his people, [[Isaiah 28.5|Isaiah 28:5]].

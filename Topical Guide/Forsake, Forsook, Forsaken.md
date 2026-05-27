@@ -1,7 +1,6 @@
 # Forsake, Forsook, Forsaken
 
-
-*See also* [[Leave, Left [verb].md|Leave]]
+*See also* [[Leave.md|Leave]]
 
 he will not *forsake* thee, [[Deuteronomy 4.31|Deuteronomy 4:31]].
 
@@ -25,11 +24,11 @@ ye have *forsaken* the commandments of the Lord, [[1 Kings 18.18|1 Kings 18:18]]
 
 if thou *forsake* him, he will cast thee off, [[1 Chronicles 28.9|1 Chronicles 28:9]].
 
-Rehoboam ... *forsook* the law of the Lord, [[2 Chronicles 12.1|2 Chronicles 12:1]].
+Rehoboam … *forsook* the law of the Lord, [[2 Chronicles 12.1|2 Chronicles 12:1]].
 
 if ye *forsake* him, he will *forsake* you, [[2 Chronicles 15.2|2 Chronicles 15:2]].
 
-Yet thou ... *forsookest* them not in the wilderness, [[Nehemiah 9.19|Nehemiah 9:19]].
+Yet thou … *forsookest* them not in the wilderness, [[Nehemiah 9.19|Nehemiah 9:19]].
 
 Lord loveth judgment, and *forsaketh* not his saints, [[Psalms 37.28|Psalms 37:28]].
 
@@ -43,7 +42,7 @@ Let not mercy and truth *forsake* thee, [[Proverbs 3.3|Proverbs 3:3]].
 
 confesseth and *forsaketh* them shall have mercy, [[Proverbs 28.13|Proverbs 28:13]].
 
-sinful nation ... they have *forsaken* the Lord, [[Isaiah 1.4|Isaiah 1:4]].
+sinful nation … they have *forsaken* the Lord, [[Isaiah 1.4|Isaiah 1:4]].
 
 they that *forsake* the Lord shall be consumed, [[Isaiah 1.28|Isaiah 1:28]].
 
@@ -59,7 +58,7 @@ thou hast been *forsaken* and hated, [[Isaiah 60.15|Isaiah 60:15]].
 
 Thou shalt no more be termed *Forsaken*, [[Isaiah 62.4|Isaiah 62:4]].
 
-utter my judgments against them ... who have *forsaken* me, [[Jeremiah 1.16|Jeremiah 1:16]].
+utter my judgments against them … who have *forsaken* me, [[Jeremiah 1.16|Jeremiah 1:16]].
 
 have committed two evils; they have *forsaken* me, [[Jeremiah 2.13|Jeremiah 2:13]].
 
@@ -69,7 +68,7 @@ as ye have *forsaken* me, and served strange gods, [[Jeremiah 5.19|Jeremiah 5:19
 
 I have *forsaken* mine house, [[Jeremiah 12.7|Jeremiah 12:7]].
 
-they that depart from me ... have *forsaken* the Lord, [[Jeremiah 17.13|Jeremiah 17:13]].
+they that depart from me … have *forsaken* the Lord, [[Jeremiah 17.13|Jeremiah 17:13]].
 
 have *forsaken* the covenant of the Lord, [[Jeremiah 22.9|Jeremiah 22:9]].
 
@@ -103,13 +102,13 @@ they would not *forsake* the Lord their God, [[Alma 46.21|Alma 46:21]].
 
 For a small moment have I *forsaken* thee, [[3 Nephi 22.7|3 Nephi 22:7]].
 
-committed adultery and repents ... and *forsaketh* it, [[D&C 42.25|D&C 42:25]].
+committed adultery and repents … and *forsaketh* it, [[D&C 42.25|D&C 42:25]].
 
-if a man repenteth ... he will confess them and *forsake* them, [[D&C 58.43|D&C 58:43]].
+if a man repenteth … he will confess them and *forsake* them, [[D&C 58.43|D&C 58:43]].
 
 I have not *forsaken* you, [[D&C 61.36|D&C 61:36]].
 
-He that seeketh me ... shall not be *forsaken*, [[D&C 88.83|D&C 88:83]].
+He that seeketh me … shall not be *forsaken*, [[D&C 88.83|D&C 88:83]].
 
 every soul who *forsaketh* his sins, [[D&C 93.1|D&C 93:1]].
 

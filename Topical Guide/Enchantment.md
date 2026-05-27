@@ -1,7 +1,6 @@
 # Enchantment
 
-
-*See also* [[Sorcery.md|Sorcery]]; [[Superstitions.md|Superstitions]]; [[Witch, Witchcraft.md|Witch]]
+*See also* [[Sorcery.md|Sorcery]]; [[Superstitions.md|Superstitions]]; [[Witch.md|Witch]]
 
 they also did in like manner with their *enchantments*, [[Exodus 7.11|Exodus 7:11]].
 

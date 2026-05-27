@@ -1,6 +1,8 @@
 # Divine Love in the Father’s Plan
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -16,13 +18,13 @@ I love you, my brothers and sisters. I love all of God’s children. When Jesus 
 
 A common misunderstanding of the judgment that ultimately follows mortal life is that good people go to a place called *heaven* and bad people go to an everlasting place called *hell*. This erroneous assumption of only two ultimate destinations implies that those who cannot keep all the commandments required for heaven will necessarily be forever destined for hell.
 
-A loving Heavenly Father has a better plan for His children. The revealed doctrine of the restored Church of Jesus Christ teaches that *all the children of God*—with exceptions too limited to consider here—will finally wind up in a kingdom of *glory*.[^2] “In my Father’s house are many mansions,”[^3] Jesus taught. From modern revelation we know that those mansions are in three different kingdoms of glory. In the Final Judgment each of us will be judged according to our deeds and the desires of our hearts.[^4] Before that, we will need to suffer for our unrepented sins. The scriptures are clear on that.[^5] Then our righteous Judge will grant us residence in one of those kingdoms of glory. Thus, as we know from modern revelation, all “shall be judged … , and every man shall receive according to his own works, his own dominion, in the mansions which are prepared.”[^6]
+A loving Heavenly Father has a better plan for His children. The revealed doctrine of the restored Church of Jesus Christ teaches that *all the children of God*—with exceptions too limited to consider here—will finally wind up in a kingdom of *glory*.[^2] “In my Father’s house are many mansions,”[^3] Jesus taught. From modern revelation we know that those mansions are in three different kingdoms of glory. In the Final Judgment each of us will be judged according to our deeds and the desires of our hearts.[^4] Before that, we will need to suffer for our unrepented sins. The scriptures are clear on that.[^5] Then our righteous Judge will grant us residence in one of those kingdoms of glory. Thus, as we know from modern revelation, all “shall be judged … , and every man shall receive according to his own works, his own dominion, in the mansions which are prepared.”[^6]
 
 The Lord has chosen to reveal comparatively little about two of these kingdoms of glory. In contrast, the Lord has revealed much about the highest kingdom of glory, which the Bible describes as the “glory of the sun.”[^7]
 
 In the “celestial” glory[^8] there are three degrees, or levels.[^9] The highest of these is exaltation in the celestial kingdom, wherein we may become like our Father and His Son, Jesus Christ. To help us develop the godly attributes and the change in nature necessary to realize our divine potential, the Lord has revealed doctrine and established commandments based on eternal law. This is what we teach in The Church of Jesus Christ of Latter-day Saints because the purpose of the doctrine and policies of this restored Church is to prepare God’s children for salvation in the celestial glory and, more particularly, for exaltation in its highest degree.
 
-The covenants made and the blessings promised to the faithful in the temples of God are the key. This explains our worldwide building of temples, about which the choir has sung so beautifully. Some are puzzled at this emphasis, not understanding that the covenants and ordinances of the temple guide us toward achieving exaltation. This can be understood only in the context of the revealed truth of *three* degrees of glory. Because of our Heavenly Father’s great love for all of His children, He has provided other kingdoms of glory—as Elder Quentin L. Cook explained yesterday—all of which are more wonderful than we can comprehend.[^10]
+The covenants made and the blessings promised to the faithful in the temples of God are the key. This explains our worldwide building of temples, about which the choir has sung so beautifully. Some are puzzled at this emphasis, not understanding that the covenants and ordinances of the temple guide us toward achieving exaltation. This can be understood only in the context of the revealed truth of *three* degrees of glory. Because of our Heavenly Father’s great love for all of His children, He has provided other kingdoms of glory—as Elder Quentin L. Cook explained yesterday—all of which are more wonderful than we can comprehend.[^10]
 
 The Atonement of Jesus Christ makes all of this possible. He has revealed that He “glorifies the Father, and *saves all the works of his hands*.”[^11] That salvation is granted in different kingdoms of glory. We know from modern revelation that “all kingdoms have a law given.”[^12] Significantly:
 
@@ -46,7 +48,7 @@ Eternal doctrine also provides a distinctive perspective on children. Through th
 
 ## III.
 
-Finally, The Church of Jesus Christ of Latter-day Saints is properly known as a family-centered Church. But not well understood is the reality that our family-centeredness is not limited to mortal relationships. Eternal relationships are also fundamental to our theology. The mission of the restored Church is to help all the children of God qualify for what God desires as their ultimate destiny. By the redemption provided through the Atonement of Christ, all may attain eternal life (exaltation in the celestial kingdom), which Mother Eve declared “God giveth unto all the obedient.”[^14] This is more than salvation. President Russell M. Nelson has reminded us that “in God’s eternal plan, salvation is an individual matter; \[but\] exaltation is a family matter.”[^15]
+Finally, The Church of Jesus Christ of Latter-day Saints is properly known as a family-centered Church. But not well understood is the reality that our family-centeredness is not limited to mortal relationships. Eternal relationships are also fundamental to our theology. The mission of the restored Church is to help all the children of God qualify for what God desires as their ultimate destiny. By the redemption provided through the Atonement of Christ, all may attain eternal life (exaltation in the celestial kingdom), which Mother Eve declared “God giveth unto all the obedient.”[^14] This is more than salvation. President Russell M. Nelson has reminded us that “in God’s eternal plan, salvation is an individual matter; \[but\] exaltation is a family matter.”[^15]
 
 Fundamental to us is God’s revelation that exaltation can be attained only through faithfulness to the covenants of an eternal marriage between a man and a woman.[^16] That divine doctrine is why we teach that “gender is an essential characteristic of individual premortal, mortal, and eternal identity and purpose.”[^17]
 
@@ -62,7 +64,7 @@ That is the context for the unique doctrine and policies of the restored Church 
 
 In many relationships and circumstances in mortal life, each of us must live with differences. As followers of Christ who should love our fellow men, we should live peacefully with those who do not believe as we do. We are all children of a loving Heavenly Father. For all of us, He has destined life after death and, ultimately, a kingdom of glory. God desires all of us to strive for His highest possible blessings by keeping His highest commandments, covenants, and ordinances, all of which culminate in His holy temples being built throughout the world. We must seek to share these truths of eternity with others. But with the love we owe to all of our neighbors, we always accept their decisions. As a Book of Mormon prophet taught, we must press forward, having “a love of God and of all men.”[^22]
 
-As President Russell M. Nelson declared in our last conference: “There has never been a time in the history of the world when knowledge of our Savior is more personally vital and relevant to *every human soul*. … The pure doctrine of Christ is powerful. It changes the life of everyone who understands it and seeks to implement it in his or her life.”[^23]
+As President Russell M. Nelson declared in our last conference: “There has never been a time in the history of the world when knowledge of our Savior is more personally vital and relevant to *every human soul*. … The pure doctrine of Christ is powerful. It changes the life of everyone who understands it and seeks to implement it in his or her life.”[^23]
 
 May we all implement that sacred doctrine in our own lives, I pray in the name of Jesus Christ, amen.
 
@@ -77,13 +79,13 @@ May we all implement that sacred doctrine in our own lives, I pray in the name o
 
 [^4]: See [[D&C 137.9|Doctrine and Covenants 137:9]].
 
-[^5]: See [[2 Nephi 9.10|2 Nephi 9:10–12]][[2 Nephi 9.11|]][[2 Nephi 9.12|]]; [[D&C 19.4|Doctrine and Covenants 19:4, 15, 17]][[D&C 19.15|]][[D&C 19.17|]]; [[D&C 138.57|138:57–59]][[D&C 138.58|]][[D&C 138.59|]]; Bible Dictionary, “[Hell](https://churchofjesuschrist.org/study/scriptures/bd/hell?lang=eng).”
+[^5]: See [[2 Nephi 9.10|2 Nephi 9:10–12]][[2 Nephi 9.11|]][[2 Nephi 9.12|]]; [[D&C 19.4|Doctrine and Covenants 19:4, 15, 17]][[D&C 19.15|]][[D&C 19.17|]]; [[D&C 138.57|138:57–59]][[D&C 138.58|]][[D&C 138.59|]]; Bible Dictionary, “[[BD Hell|Hell]].”
 
 [^6]: [[D&C 76.111|Doctrine and Covenants 76:111]].
 
-[^7]: [[1 Corinthians 15.41|1 Corinthians 15:41]]; see also [[D&C 76.96|Doctrine and Covenants 76:96]].
+[^7]: [[1 Corinthians 15.41|1 Corinthians 15:41]]; see also [[D&C 76.96|Doctrine and Covenants 76:96]].
 
-[^8]: [[1 Corinthians 15.40|1 Corinthians 15:40]]; see also Joseph Smith Translation (in 1 Corinthians 15:40, footnote *a*).
+[^8]: [[1 Corinthians 15.40|1 Corinthians 15:40]]; see also Joseph Smith Translation (in 1 Corinthians 15:40, footnote *a*).
 
 [^9]: See [[D&C 131.1|Doctrine and Covenants 131:1]].
 
@@ -97,26 +99,21 @@ May we all implement that sacred doctrine in our own lives, I pray in the name o
 
 [^14]: [[Moses 5.11|Moses 5:11]]; see also [[D&C 14.7|Doctrine and Covenants 14:7]].
 
-[^15]: Russell M. Nelson, “Salvation and Exaltation,” *Ensign* or *Liahona*, May 2008, 10.
+[^15]: Russell M. Nelson, “Salvation and Exaltation,” *Ensign* or *Liahona*, May 2008, 10.
 
-[^16]: See [[D&C 131.1|Doctrine and Covenants 131:1–3]][[D&C 131.2|]][[D&C 131.3|]]; “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
+[^16]: See [[D&C 131.1|Doctrine and Covenants 131:1–3]][[D&C 131.2|]][[D&C 131.3|]]; “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
 
-[^17]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” ChurchofJesusChrist.org.
+[^17]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=p2#p2),” ChurchofJesusChrist.org.
 
-[^18]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^18]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
-[^19]: See Dallin H. Oaks, “[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign*, Nov. 1993, 72–75; see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, 38.1.4, ChurchofJesusChrist.org.
+[^19]: See Dallin H. Oaks, “[[1993 October - “The Great Plan of Happiness”.md|The Great Plan of Happiness]],” *Ensign*, Nov. 1993, 72–75; see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [38.1.4](https://www.churchofjesuschrist.org/study/manual/general-handbook-excerpts/38-church-policies-and-guidelines?lang=eng&id=title_number2#title_number2), ChurchofJesusChrist.org.
 
 [^20]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
-[^21]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
+[^21]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
 
-[^22]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^22]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^23]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6.
+[^23]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6.
 
-
-
-
-
-#Family #Laws #Love #Plan_Of_Salvation #Temples

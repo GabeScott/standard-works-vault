@@ -1,5 +1,7 @@
 # Obedience—Life’s Great Challenge
 
+Gordon B. Hinckley
+
 By Elder Donald L. Staheli - *Of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -18,7 +20,7 @@ If any one of us were asked what is most important in life, most of us would qui
 
 President Spencer W. Kimball warned us, “The cares of the world are so many and so entangling, even very good people are diverted from following the truth because they care too much for the things of the world.”[^1]
 
-While I have had my share of lessons on obedience during my life, one of the most memorable was taught to me as a young boy by my dog and my mother. When I was about eight years of age, my father brought home a puppy which I promptly named Spot. We became the greatest of pals as I tried to teach him a few tricks and obedience to my commands. He learned well, except he could not conquer an overwhelming desire to chase and bark at cars as they came down the dusty street by our home in our small southern Utah town. As hard as I tried, I could not break Spot of his bad habit. One day a neighbor came speeding by in his large truck. He knew Spot and he knew Spot’s bad habit. This time, just as Spot approached the truck in his usual aggressive manner, this man swerved toward Spot, running over him with the rear wheel of his truck.
+While I have had my share of lessons on obedience during my life, one of the most memorable was taught to me as a young boy by my dog and my mother. When I was about eight years of age, my father brought home a puppy which I promptly named Spot. We became the greatest of pals as I tried to teach him a few tricks and obedience to my commands. He learned well, except he could not conquer an overwhelming desire to chase and bark at cars as they came down the dusty street by our home in our small southern Utah town. As hard as I tried, I could not break Spot of his bad habit. One day, a neighbor came speeding by in his large truck. He knew Spot and he knew Spot’s bad habit. This time, just as Spot approached the truck in his usual aggressive manner, this man swerved toward Spot, running over him with the rear wheel of his truck.
 
 With tears streaming down my face, I cradled Spot in my arms and ran to the house, calling to my mother and brother for help. As we washed the blood from his head, it soon became apparent that Spot’s disobedient act had dealt him a fatal blow. As the burial of Spot was completed and the tears dried, my mother then taught me one of the great lessons of life as she explained the principle of obedience and its application in my life. She made clear that seemingly small acts of disobedience can result in longer-term consequences of unhappiness, regrets, and even fatal results.
 
@@ -38,16 +40,16 @@ The scriptures make it clear the Lord recognizes that many of us tend to stray f
 
 Whether we are being chastened or challenged as we are being tossed to and fro on the seas of life, obedience to the teachings of our Savior and prophets will qualify us for King Benjamin’s great promise to those that keep God’s commandments: “For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven, that thereby they may dwell with God in a state of never-ending happiness.”[^5]
 
-To the Savior’s call “Come, follow me”[^6] or to His admonition “If ye love me, keep my commandments,”[^7] our response should be clear and unequivocal. As we are obedient to His call, it is my testimony that we will enjoy His love and His peace in our lives. In the name of Jesus Christ, amen.
+To the Savior’s call, “Come, follow me,”[^6] or to His admonition, “If ye love me, keep my commandments,”[^7] our response should be clear and unequivocal. As we are obedient to His call, it is my testimony that we will enjoy His love and His peace in our lives. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: “Listen to the Prophets,” *Ensign,* May 1978, 77.
+[^1]: In Conference Report, Apr. 1978, [[1978 April - Listen to the Prophets.md|115]]; or *Ensign,* May 1978, 77.
 
 [^2]: [[Matthew 16.25|Matt. 16:25]].
 
-[^3]: “‘Let Us Move This Work Forward,’” *Ensign,* Nov. 1985, 83.
+[^3]: In Conference Report, Oct. 1985, [[1985 October - “Let Us Move This Work Forward”.md|109]]; or *Ensign,* Nov. 1985, 83.
 
 [^4]: [[D&C 105.6|D&C 105:6]].
 
@@ -57,8 +59,3 @@ To the Savior’s call “Come, follow me”[^6] or to His admonition “If ye l
 
 [^7]: [[John 14.15|John 14:15]].
 
-
-
-
-
-#Adversity #Blessings #Book_Of_Mormon #Commandments #Family #Holy_Ghost #Jesus_Christ #Joy #Obedience #Priorities #Repentance

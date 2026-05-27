@@ -1,6 +1,5 @@
 # Passion
 
-
 *See also* [[Lust.md|Lust]]; [[Passion of Jesus Christ.md|Passion of Jesus Christ]]
 
 We also are men of like *passions*, [[Acts 14.15|Acts 14:15]].

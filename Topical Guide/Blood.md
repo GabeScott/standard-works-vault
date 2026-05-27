@@ -1,19 +1,18 @@
 # Blood
 
+*See also* [[Bleed.md|Bleed]]; [[Blood, Eating of.md|Blood, Eating of]]; [[Blood, Shedding of.md|Blood, Shedding of]]; [[Blood, Symbolism of.md|Blood, Symbolism of]]; [[Capital Punishment.md|Capital Punishment]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Life, Sanctity of.md|Life, Sanctity of]]; [[Martyrdom.md|Martyrdom]]; [[BD Blood.md|BD Blood]]
 
-*See also* [[Bleed.md|Bleed]]; [[Blood, Eating of.md|Blood, Eating of]]; [[Blood, Shedding of.md|Blood, Shedding of]]; [[Blood, Symbolism of.md|Blood, Symbolism of]]; [[Capital Punishment.md|Capital Punishment]]; [[Jesus Christ, Atonement through.md|Jesus Christ, Atonement through]]; [[Life, Sanctity of.md|Life, Sanctity of]]; [[Martyrdom.md|Martyrdom]]; [BD Blood](https://www.churchofjesuschrist.org/study/scriptures/bd/blood?lang=eng)
+voice of thy brother’s *blood* crieth unto me, [[Genesis 4.10|Genesis 4:10]] ([[Moses 5.35|Moses 5:35]]).
 
-voice of thy brother's *blood* crieth unto me, [[Genesis 4.10|Genesis 4:10]] ([[Moses 5.35|Moses 5:35]]).
+killed a kid … and dipped the coat in the *blood*, [[Genesis 37.31|Genesis 37:31]].
 
-killed a kid ... and dipped the coat in the *blood*, [[Genesis 37.31|Genesis 37:31]].
-
-water ... shall become *blood* upon the dry land, [[Exodus 4.9|Exodus 4:9]].
+water … shall become *blood* upon the dry land, [[Exodus 4.9|Exodus 4:9]].
 
 a *bloody* husband art thou, [[Exodus 4.25|Exodus 4:25]].
 
-waters ... in the river were turned to *blood*, [[Exodus 7.20|Exodus 7:20]].
+waters … in the river were turned to *blood*, [[Exodus 7.20|Exodus 7:20]].
 
-take of the *blood*, and strike it on ... the upper door, [[Exodus 12.7|Exodus 12:7]].
+take of the *blood*, and strike it on … the upper door, [[Exodus 12.7|Exodus 12:7]].
 
 took the *blood*, and sprinkled it on the people, [[Exodus 24.8|Exodus 24:8]].
 
@@ -53,17 +52,17 @@ their *blood* shall be sprinkled upon my garments, [[Isaiah 63.3|Isaiah 63:3]].
 
 his *blood* will I require at thine hand, [[Ezekiel 3.18|Ezekiel 3:18]] ([[Ezekiel 33.8|Ezekiel 33:8]]).
 
-turned ... the moon into *blood*, [[Joel 2.31|Joel 2:31]] ([[Acts 2.20|Acts 2:20]]).
+turned … the moon into *blood*, [[Joel 2.31|Joel 2:31]] ([[Acts 2.20|Acts 2:20]]).
 
 They build up Zion with *blood*, [[Micah 3.10|Micah 3:10]].
 
 Woe to him that buildeth a town with *blood*, [[Habakkuk 2.12|Habakkuk 2:12]].
 
-woman ... diseased with an issue of *blood*, [[Matthew 9.20|Matthew 9:20]] ([[Mark 5.25|Mark 5:25]]; [[Luke 8.43|Luke 8:43]]).
+woman … diseased with an issue of *blood*, [[Matthew 9.20|Matthew 9:20]] ([[Mark 5.25|Mark 5:25]]; [[Luke 8.43|Luke 8:43]]).
 
 flesh and *blood* hath not revealed it unto thee, [[Matthew 16.17|Matthew 16:17]].
 
-partakers ... in the *blood* of the prophets, [[Matthew 23.30|Matthew 23:30]].
+partakers … in the *blood* of the prophets, [[Matthew 23.30|Matthew 23:30]].
 
 That upon you may come all the righteous *blood* shed upon the earth, [[Matthew 23.35|Matthew 23:35]] ([[Luke 11.51|Luke 11:51]]).
 
@@ -71,25 +70,25 @@ His *blood* be on us, and on our children, [[Matthew 27.25|Matthew 27:25]].
 
 whose *blood* Pilate had mingled with their sacrifices, [[Luke 13.1|Luke 13:1]].
 
-his sweat was ... great drops of *blood*, [[Luke 22.44|Luke 22:44]].
+his sweat was … great drops of *blood*, [[Luke 22.44|Luke 22:44]].
 
-born, not of *blood* ... but of God, [[John 1.13|John 1:13]].
+born, not of *blood* … but of God, [[John 1.13|John 1:13]].
 
 eateth my flesh, and drinketh my *blood*, [[John 6.54|John 6:54]].
 
 came there out *blood* and water, [[John 19.34|John 19:34]].
 
-Aceldama ... The field of *blood*, [[Acts 1.19|Acts 1:19]].
+Aceldama … The field of *blood*, [[Acts 1.19|Acts 1:19]].
 
-ye ... intend to bring this man's *blood* upon us, [[Acts 5.28|Acts 5:28]].
+ye … intend to bring this man’s *blood* upon us, [[Acts 5.28|Acts 5:28]].
 
-abstain from ... things strangled, and from *blood*, [[Acts 15.20|Acts 15:20]] ([[Acts 15.29|Acts 15:29]]; [[Acts 21.25|Acts 21:25]]).
+abstain from … things strangled, and from *blood*, [[Acts 15.20|Acts 15:20]] ([[Acts 15.29|Acts 15:29]]; [[Acts 21.25|Acts 21:25]]).
 
 hath made of one *blood* all nations of men, [[Acts 17.26|Acts 17:26]].
 
 Your *blood* be upon your own heads, [[Acts 18.6|Acts 18:6]].
 
-sick ... of a *bloody* flux, [[Acts 28.8|Acts 28:8]].
+sick … of a *bloody* flux, [[Acts 28.8|Acts 28:8]].
 
 communion of the *blood* of Christ, [[1 Corinthians 10.16|1 Corinthians 10:16]].
 
@@ -105,9 +104,9 @@ made peace through the *blood* of his cross, [[Colossians 1.20|Colossians 1:20]]
 
 as the children are partakers of flesh and *blood*, [[Hebrews 2.14|Hebrews 2:14]].
 
-high priest ... not without *blood*, [[Hebrews 9.7|Hebrews 9:7]].
+high priest … not without *blood*, [[Hebrews 9.7|Hebrews 9:7]].
 
-not possible that the *blood* of bulls ... take away sins, [[Hebrews 10.4|Hebrews 10:4]].
+not possible that the *blood* of bulls … take away sins, [[Hebrews 10.4|Hebrews 10:4]].
 
 enter into the holiest by the *blood* of Jesus, [[Hebrews 10.19|Hebrews 10:19]].
 
@@ -131,9 +130,9 @@ third part of the sea became *blood*, [[Revelation 8.8|Revelation 8:8]].
 
 have power over waters to turn them to *blood*, [[Revelation 11.6|Revelation 11:6]].
 
-sea ... became as the *blood* of a dead man, [[Revelation 16.3|Revelation 16:3]].
+sea … became as the *blood* of a dead man, [[Revelation 16.3|Revelation 16:3]].
 
-they have shed the *blood* of saints ... thou hast given them *blood* to drink, [[Revelation 16.6|Revelation 16:6]].
+they have shed the *blood* of saints … thou hast given them *blood* to drink, [[Revelation 16.6|Revelation 16:6]].
 
 woman drunken with the *blood* of the saints, [[Revelation 17.6|Revelation 17:6]].
 
@@ -159,8 +158,8 @@ my *blood* shall not cleanse them, [[D&C 29.17|D&C 29:17]].
 
 by the virtue of the *blood* which I have spilt, have I pleaded, [[D&C 38.4|D&C 38:4]].
 
-how long wilt thou suffer ... their *blood* come up in testimony, [[D&C 109.49|D&C 109:49]].
+how long wilt thou suffer … their *blood* come up in testimony, [[D&C 109.49|D&C 109:49]].
 
-Joseph Smith ... sealed his mission ... with his own *blood*, [[D&C 135.3|D&C 135:3]] ([[D&C 136.39|D&C 136:39]]).
+Joseph Smith … sealed his mission … with his own *blood*, [[D&C 135.3|D&C 135:3]] ([[D&C 136.39|D&C 136:39]]).
 
 they have shed innocent *blood*, which crieth from the ground, [[D&C 136.36|D&C 136:36]].

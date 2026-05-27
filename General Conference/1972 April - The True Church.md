@@ -1,5 +1,7 @@
 # The True Church
 
+Wilford G. Edling
+
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
@@ -16,13 +18,13 @@ In the general priesthood meeting last night he added, “The gospel shall roll 
 
 I think of the words of the apostle Peter of old. He said to the saints of his day:
 
-“… ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; \[Why?\] that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.” ([[1 Peter 2.9|1 Pet. 2:9]].)
+“… ye are a chosen generation, a royal priesthood, an holy nation, a peculiar people; \[Why?\] that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light.” ([[1 Peter 2.9|1 Pet. 2:9]].)
 
 We have been admonished in this conference to let our light so shine, as Jesus said, that others seeing our good works may be led to glorify our Father which is in heaven. (See [[Matthew 5.16|Matt. 5:16]].)
 
-Paul tells us: “… faith cometh by hearing, and hearing by the word of God.” ([[Romans 10.17|Rom. 10:17]].)
+Paul tells us: “… faith cometh by hearing, and hearing by the word of God.” ([[Romans 10.17|Rom. 10:17]].)
 
-“… and how shall they hear without a preacher? And how shall they preach, except they be sent? …” ([[Romans 10.14|Rom. 10:14–15]][[Romans 10.15|]].)
+“… and how shall they hear without a preacher? And how shall they preach, except they be sent? …” ([[Romans 10.14|Rom. 10:14–15]][[Romans 10.15|]].)
 
 Therefore, there rests upon this people the great responsibility of bearing witness to the entire world of what the Lord has done in restoring his truth to the earth in this dispensation.
 
@@ -32,9 +34,9 @@ When Jesus was asked by his disciples for the sign of his second coming, you wil
 
 Where would one look today to find that gospel of the kingdom that Jesus referred to? Not according to man’s interpretation of the scriptures, but where the divine power rests, such as Jesus gave to his Twelve when he said:
 
-“Ye have not chosen me, but I have chosen you, and ordained you. …” ([[John 15.16|John 15:16]].)
+“Ye have not chosen me, but I have chosen you, and ordained you. …” ([[John 15.16|John 15:16]].)
 
-“… and whatsoever thou shalt bind on earth shall be bound in heaven. …” ([[Matthew 16.19|Matt. 16:19]].)
+“… and whatsoever thou shalt bind on earth shall be bound in heaven. …” ([[Matthew 16.19|Matt. 16:19]].)
 
 Anybody could organize a church and take from the scriptures certain passages and base their church upon that, but how can they take a living branch from a dead tree? How can they put in it the power and the authority to act in the name of the Lord?
 
@@ -42,7 +44,7 @@ They couldn’t do that any more than they could act for the mayor of the city, 
 
 And so we stand here as witnesses of the restoration of the gospel and bear our witness to all the world that we do know that Christ lives, that our Father lives, that they have visited this earth. As was sung in that song about the Prophet Joseph, he announced that in answer to his inquiry as to which of all the churches he should join, he was told he should join none of them, for they taught for doctrines the commandments or precepts of men.
 
-I think if people were just open-minded, it wouldn’t be so hard for them to know where to find the truth. Of course, we take the Bible as our guide to help us in our search for the truth. I have always been greatly impressed by the experience that Elder Orson F. Whitney had. He was a member of the Quorum of the Twelve, and he related this in one of our conferences. I would like to read it to you. He said:
+I think if people were just open-minded, it wouldn’t be so hard for them to know where to find the truth. Of course, we take the Bible as our guide to help us in our search for the truth. I have always been greatly impressed by the experience that Elder Orson F. Whitney had. He was a member of the Quorum of the Twelve, and he related this in one of our conferences. I would like to read it to you. He said:
 
 “Many years ago a learned man, a member of the Roman Catholic Church, came to Utah and spoke from the stand of the Salt Lake Tabernacle. I became well-acquainted with him, and we conversed freely and frankly. A great scholar, with perhaps a dozen languages at his tongue’s end, he seemed to know all about theology, law, literature, science and philosophy. One day he said to me: ‘You Mormons are all ignoramuses. You don’t even know the strength of your own position. It is so strong that there is only one other tenable in the whole Christian world, and that is the position of the Catholic Church. The issue is between Catholicism and Mormonism. If we are right, you are wrong; if you are right, we are wrong; and that’s all there is to it. The Protestants haven’t a leg to stand on. For, if we are wrong, they are wrong with us, since they were a part of us and went out from us; while if we are right, they are apostates whom we cut off long ago. If we have the apostolic succession from St. Peter, as we claim, there is no need of Joseph Smith and Mormonism; but if we have not that succession, then such a man as Joseph Smith was necessary, and Mormonism’s attitude is the only consistent one. It is either the perpetuation of the gospel from ancient times, or the restoration of the gospel in latter days.’” (LeGrand Richards, *A Marvelous Work and a Wonder* \[Deseret Book Co., 1950\], pp. 3–4.)
 
@@ -52,7 +54,7 @@ One can’t study the holy scriptures without knowing that the prophets have dec
 
 Then he showed him all things from the war in heaven to the final winding-up scene, and he showed him the power that would be given to Satan to make war with the saints (and the saints were the followers of Christ in his church); and he said that power was given him over all kindreds and tongues and nations. (See [[Revelation 13.7|Rev. 13:7]].) Why should that be in the holy scriptures if the gospel was to remain upon the earth from the days of St. Peter down to the present time?
 
-Paul was constantly warning the people in his day that they should not look for the coming of Jesus until there should be a falling away, and the man of sin would be revealed. (See [[2 Thessalonians 2.1|2 Thes. 2:1–4]][[2 Thessalonians 2.2|]][[2 Thessalonians 2.3|]][[2 Thessalonians 2.4|]].) And others of the prophets have likewise testified of the day when there should be a famine in the land. The prophet Amos said:
+Paul was constantly warning the people in his day that they should not look for the coming of Jesus until there should be a falling away, and the man of sin would be revealed. (See [[2 Thessalonians 2.1|2 Thes. 2:1–4]][[2 Thessalonians 2.2|]][[2 Thessalonians 2.3|]][[2 Thessalonians 2.4|]].) And others of the prophets have likewise testified of the day when there should be a famine in the land. The prophet Amos said:
 
 “Behold, the days come, saith the Lord God, that I will send a famine in the land, not a famine of bread, nor a thirst for water, but of hearing the words of the Lord:
 
@@ -84,15 +86,15 @@ And that isn’t all. Then there came Elijah the Prophet, of whom Malachi spoke,
 
 That opened the door for an understanding of the words of the apostle Paul, when he said that the Lord had revealed the mystery of his will unto him:
 
-“That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth. …” ([[Ephesians 1.10|Eph. 1:10]].)
+“That in the dispensation of the fulness of times he might gather together in one all things in Christ, both which are in heaven, and which are on earth. …” ([[Ephesians 1.10|Eph. 1:10]].)
 
 We live in the dispensation of the fulness of times, and the coming of Elijah has brought the keys of his mission, and that is why we build these holy temples. That is why we have this great genealogical program, the like of which can’t be found anywhere in all this world. And so the prophets have foreseen the coming of these holy prophets.
 
 John, while he was on the Isle of Patmos, didn’t only see the power that Satan would have to make war with the saints and to reign over them all, but he “saw another angel fly in the midst of heaven, having the everlasting gospel to preach unto them that dwell on the earth, and to every nation, and kindred, and tongue, and people.” ([[Revelation 14.6|Rev. 14:6]].)
 
-This would not have been necessary if there had been a continuation of the gospel. And then he said: “Fear God, and give glory to him; for the hour of his judgment is come. …” ([[Revelation 14.7|Rev. 14:7]].) And we live in the day of his judgment.
+This would not have been necessary if there had been a continuation of the gospel. And then he said: “Fear God, and give glory to him; for the hour of his judgment is come. …” ([[Revelation 14.7|Rev. 14:7]].) And we live in the day of his judgment.
 
-Then he adds: “… and worship him that made heaven, and earth, and the sea, and the fountains of waters.” ([[Revelation 14.7|Rev. 14:7]].)
+Then he adds: “… and worship him that made heaven, and earth, and the sea, and the fountains of waters.” ([[Revelation 14.7|Rev. 14:7]].)
 
 At the time that Joseph Smith had his marvelous vision, there wasn’t a church in the world worshiping the God who made the heavens and the earth and the sea and the fountains of waters, and created man in his own image. They worshiped an essence everywhere present. They described him as being without body, parts, or passions, who sits on the top of a topless throne, and that is about the best explanation of nothing as a person could write. If he doesn’t have a body, how could he speak? How could he hear? How could he understand and talk?
 
@@ -102,9 +104,9 @@ That is the kind of god this world was worshiping at the time Joseph Smith had h
 
 But Moses saw something more. He saw that in the latter days (and we live in the latter days), if his people would search for him, they should surely find him. (See [[Deuteronomy 4.29|Deut. 4:29]].) And Joseph Smith, answering that admonition in James, “If any of you lack wisdom, let him ask of God, that giveth to all men liberally, and upbraideth not; and it shall be given him” ([[James 1.5|James 1:5]]), went and sought after him, as Moses advised, and he found the true and the living God. We have a testimony to bear to all of the world to this event.
 
-I think of the words of the apostle Paul when he said that he determined to know nothing but Jesus and him crucified. (See [[1 Corinthians 2.2|1 Cor. 2:2]].) That doesn’t mean that he didn’t know the old prophets or appreciate them, but a new day had come.
+I think of the words of the apostle Paul when he said that he determined to know nothing but Jesus and him crucified. (See [[1 Corinthians 2.2|1 Cor. 2:2]].) That doesn’t mean that he didn’t know the old prophets or appreciate them, but a new day had come.
 
-The Son of God had come, of whom the prophets had spoken, and then he said: “… for necessity is laid upon me; yea, woe is unto me, if I preach not the gospel!” ([[1 Corinthians 9.16|1 Cor. 9:16]].)
+The Son of God had come, of whom the prophets had spoken, and then he said: “… for necessity is laid upon me; yea, woe is unto me, if I preach not the gospel!” ([[1 Corinthians 9.16|1 Cor. 9:16]].)
 
 In that same sense, we know nothing but the restoration of the gospel, that it was brought by the Son of Man himself, so that there is no separation from the prophets of this dispensation, and woe be unto us if we share not these marvelous truths with the world!
 
@@ -115,8 +117,3 @@ That is my witness and testimony to you, and I leave it in the name of the Lord 
 
 
 
-
-
-
-
-#Church_Organization #Restoration

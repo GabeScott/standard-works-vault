@@ -1,6 +1,8 @@
 # For Him
 
-By Joy D. Jones - *Primary General President*
+Russell M. Nelson
+
+By Joy D. Jones - *Primary General President*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,7 +10,7 @@ By Joy D. Jones - *Primary General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/for-him?lang=eng)
 
-On this historic night, I express my love and appreciation to each of you, my dear sisters. Whatever our age, location, or circumstance, we gather tonight in unity, in strength, in purpose, and in testimony that we are loved and led by our Heavenly Father; our Savior, Jesus Christ; and our living prophet, President Russell M. Nelson.
+On this historic night, I express my love and appreciation to each of you, my dear sisters. Whatever our age, location, or circumstance, we gather tonight in unity, in strength, in purpose, and in testimony that we are loved and led by our Heavenly Father; our Savior, Jesus Christ; and our living prophet, President Russell M. Nelson.
 
 As a young couple, my husband and I were called by our bishop to visit and minister to a family who hadn’t been to church in many years. We willingly accepted the assignment and went to their home a few days later. It was immediately clear to us that they did not want visitors from the Church.
 
@@ -16,7 +18,7 @@ So on our next visit, we approached them with a plate of cookies, confident that
 
 Our lack of spiritual vision made additional failed attempts frustrating. Rejection is never comfortable. Over time we began to ask ourselves, “*Why* are we doing this? What is our purpose?”
 
-Elder Carl B. Cook made this observation: “Serving in the Church … can be challenging if we are asked to do something that frightens us, if we grow weary of serving, or if we are called to do something that we do not initially find appealing.”[^1] We were experiencing the truth of Elder Cook’s words when we decided we had to seek direction from Someone with a greater perspective than our own.
+Elder Carl B. Cook made this observation: “Serving in the Church … can be challenging if we are asked to do something that frightens us, if we grow weary of serving, or if we are called to do something that we do not initially find appealing.”[^1] We were experiencing the truth of Elder Cook’s words when we decided we had to seek direction from Someone with a greater perspective than our own.
 
 So, after much sincere prayer and study, we received the answer to the *why* of our service. We had a change in our understanding, a change of heart, actually a revelatory experience.[^2] As we sought direction from the scriptures, the Lord taught us how to make the process of serving others easier and more meaningful. Here is the verse we read that changed both our hearts and our approach: “Thou shalt love the Lord thy God with all thy heart, with all thy might, mind, and strength; and in the name of Jesus Christ *thou shalt serve him*.”[^3] Though this verse was so familiar, it seemed to speak to us in a new and important way.
 
@@ -34,7 +36,7 @@ Sometimes we may initially serve from a sense of duty or obligation, but even th
 
 When we focus on all that God has done for us, our service flows from a heart of gratitude. As we become less concerned about our service magnifying us, we realize instead that the focus of our service will be on putting God first.[^9]
 
-President M. Russell Ballard taught, “It is only when we love God and Christ with all of our hearts, souls, and minds that we are able to share this love with our neighbors through acts of kindness and service.”[^10]
+President M. Russell Ballard taught, “It is only when we love God and Christ with all of our hearts, souls, and minds that we are able to share this love with our neighbors through acts of kindness and service.”[^10]
 
 The first of the Ten Commandments reiterates this divine wisdom: “I am the Lord thy God. … Thou shalt have no other gods before me.”[^11] The placement of this commandment helps us understand that *if* we place Him as our main priority, everything else will ultimately fall into place—even our service to others. When He takes the preeminent position in our lives by our deliberate choice, then He is able to bless our actions to our good and to the good of others.
 
@@ -50,11 +52,11 @@ The Savior taught this principle so simply and directly: “Therefore let your l
 
 May I share with you some words of wisdom that were found on the wall of an orphanage in Calcutta, India: “If you are kind, people may accuse you of selfish, ulterior motives. Be kind anyway. What you spend years building, someone could destroy overnight. Build anyway. The good you do today, people will often forget tomorrow. Do good anyway. Give the world the best you have, and it may never be enough. Give the world the best you’ve got anyway. You see, in the final analysis, it is between you and your God … anyway.”[^17]
 
-Sisters, it is always between us and the Lord. As President James E. Faust said: “‘What is the greatest need in the world?’ … ‘Is not the greatest need in all of the world for every person to have a personal, ongoing, daily, continuing relationship with the Savior?’ Having such a relationship can unchain the divinity within us, and nothing can make a greater difference in our lives as we come to know and understand our divine relationship with God.”[^18]
+Sisters, it is always between us and the Lord. As President James E. Faust said: “‘What is the greatest need in the world?’ … ‘Is not the greatest need in all of the world for every person to have a personal, ongoing, daily, continuing relationship with the Savior?’ Having such a relationship can unchain the divinity within us, and nothing can make a greater difference in our lives as we come to know and understand our divine relationship with God.”[^18]
 
 Similarly, Alma explained to his son, “Yea, let all thy doings be unto the Lord, and whithersoever thou goest let it be in the Lord; yea, let all thy thoughts be directed unto the Lord; yea, let the affections of thy heart be placed upon the Lord forever.”[^19]
 
-And President Russell M. Nelson has likewise taught us, “When we comprehend His voluntary Atonement, any sense of sacrifice on our part becomes completely overshadowed by a profound sense of gratitude for the privilege of serving Him.”[^20]
+And President Russell M. Nelson has likewise taught us, “When we comprehend His voluntary Atonement, any sense of sacrifice on our part becomes completely overshadowed by a profound sense of gratitude for the privilege of serving Him.”[^20]
 
 Sisters, I testify that when Jesus Christ, through the power of His Atonement, works *on* us and *in* us, He begins to work *through* us to bless others. We serve them, but we do so by loving and serving Him. We become what the scripture describes: “Every man \[and woman\] seeking the interest of his \[or her\] neighbor, and doing all things with an eye single to the glory of God.”[^21]
 
@@ -63,7 +65,7 @@ Maybe our bishop knew that was the lesson my husband and I would learn from thos
 
 
 
-[^1]: Carl B. Cook, “[[2016 October - Serve.md|Serve]],” *Ensign* or *Liahona,* Nov. 2016, 110.
+[^1]: Carl B. Cook, “[[2016 October - Serve.md|Serve]],” *Ensign* or *Liahona,* Nov. 2016, 110.
 
 [^2]: See [[Mosiah 5.2|Mosiah 5:2]].
 
@@ -71,17 +73,17 @@ Maybe our bishop knew that was the lesson my husband and I would learn from thos
 
 [^4]: [[Mosiah 2.16|Mosiah 2:16]]; emphasis added.
 
-[^5]: See [[1 Nephi 11.22|1 Nephi 11:22]].
+[^5]: See [[1 Nephi 11.22|1 Nephi 11:22]].
 
 [^6]: [[Mosiah 2.17|Mosiah 2:17]].
 
-[^7]: [[1 Corinthians 12.31|1 Corinthians 12:31]].
+[^7]: [[1 Corinthians 12.31|1 Corinthians 12:31]].
 
-[^8]: Russell M. Nelson, “[[2018 April - Ministering as the Savior Does.md|Ministering]],” *Ensign* or *Liahona,* May 2018, 100.
+[^8]: Russell M. Nelson, “[[2018 April - Ministering.md|Ministering]],” *Ensign* or *Liahona,* May 2018, 100.
 
 [^9]: See [[Matthew 6.1|Matthew 6:1–4, 33]][[Matthew 6.2|]][[Matthew 6.3|]][[Matthew 6.4|]][[Matthew 6.33|]].
 
-[^10]: M. Russell Ballard, “[[2011 April - Finding Joy through Loving Service.md|Finding Joy through Loving Service]],” *Ensign* or *Liahona,* May 2011, 47.
+[^10]: M. Russell Ballard, “[[2011 April - Finding Joy through Loving Service.md|Finding Joy through Loving Service]],” *Ensign* or *Liahona,* May 2011, 47.
 
 [^11]: [[Exodus 20.2|Exodus 20:2–3]][[Exodus 20.3|]].
 
@@ -93,20 +95,15 @@ Maybe our bishop knew that was the lesson my husband and I would learn from thos
 
 [^15]: See [[Matthew 16.24|Matthew 16:24–25]][[Matthew 16.25|]].
 
-[^16]: [[3 Nephi 12.16|3 Nephi 12:16]]; emphasis added.
+[^16]: [[3 Nephi 12.16|3 Nephi 12:16]]; emphasis added.
 
-[^17]: Often attributed to Mother Teresa; see Kent M. Keith, *The Paradoxical Commandments* (1968).
+[^17]: Often attributed to Mother Teresa; see Kent M. Keith, *The Paradoxical Commandments* (1968).
 
-[^18]: James E. Faust, “[[1976 October - A Personal Relationship with the Savior.md|A Personal Relationship with the Savior]],” *Ensign,* Nov. 1976, 58.
+[^18]: James E. Faust, “[[1976 October - A Personal Relationship with the Savior.md|A Personal Relationship with the Savior]],” *Ensign,* Nov. 1976, 58.
 
 [^19]: [[Alma 37.36|Alma 37:36]].
 
-[^20]: Russell M. Nelson, “[[1996 October - The Atonement.md|The Atonement]],” *Ensign* or *Liahona,* Nov. 1996, 35.
+[^20]: Russell M. Nelson, “[[1996 October - The Atonement.md|The Atonement]],” *Ensign* or *Liahona,* Nov. 1996, 35.
 
 [^21]: [[D&C 82.19|Doctrine and Covenants 82:19]].
 
-
-
-
-
-#Ministering #Service

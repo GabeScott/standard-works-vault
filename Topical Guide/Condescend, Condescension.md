@@ -1,6 +1,5 @@
 # Condescend, Condescension
 
-
 *See also* [[Jesus Christ, Condescension of.md|Jesus Christ, Condescension of]]
 
 Mind not high things, but *condescend* to men of low estate, [[Romans 12.16|Romans 12:16]].

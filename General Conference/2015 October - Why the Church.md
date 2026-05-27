@@ -1,6 +1,8 @@
 # Why the Church
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Rosemary M. Wixom
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -77,19 +79,19 @@ In the name of Jesus Christ, amen.
 
 [^5]: [[D&C 93.13|Doctrine and Covenants 93:13]].
 
-[^6]: See [[2 Nephi 31.17|2 Nephi 31:17–20]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
+[^6]: See [[2 Nephi 31.17|2 Nephi 31:17–20]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].
 
-[^7]: [[2 Nephi 31.18|2 Nephi 31:18]].
+[^7]: [[2 Nephi 31.18|2 Nephi 31:18]].
 
 [^8]: [[Ephesians 4.11|Ephesians 4:11–13]][[Ephesians 4.12|]][[Ephesians 4.13|]].
 
 [^9]: [[Moroni 6.4|Moroni 6:4]].
 
-[^10]: See [[3 Nephi 27.5|3 Nephi 27:5–7]][[3 Nephi 27.6|]][[3 Nephi 27.7|]].
+[^10]: See [[3 Nephi 27.5|3 Nephi 27:5–7]][[3 Nephi 27.6|]][[3 Nephi 27.7|]].
 
 [^11]: [[Moroni 6.5|Moroni 6:5]].
 
-[^12]: [[4 Nephi 1.12|4 Nephi 1:12]].
+[^12]: [[4 Nephi 1.12|4 Nephi 1:12]].
 
 [^13]: [[Ephesians 4.13|Ephesians 4:13]].
 
@@ -97,7 +99,7 @@ In the name of Jesus Christ, amen.
 
 [^15]: [[D&C 42.45|Doctrine and Covenants 42:45]].
 
-[^16]: [[1 Corinthians 12.22|1 Corinthians 12:22]]. Paul also declared: “Now \[we are\] many members, yet but one body. … And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it” ([[1 Corinthians 12.20|1 Corinthians 12:20, 26]][[1 Corinthians 12.26|]]; see also [[Mosiah 18.9|Mosiah 18:9]]).
+[^16]: [[1 Corinthians 12.22|1 Corinthians 12:22]]. Paul also declared: “Now \[we are\] many members, yet but one body. … And whether one member suffer, all the members suffer with it; or one member be honoured, all the members rejoice with it” ([[1 Corinthians 12.20|1 Corinthians 12:20, 26]][[1 Corinthians 12.26|]]; see also [[Mosiah 18.9|Mosiah 18:9]]).
 
 [^17]: [[Isaiah 58.14|Isaiah 58:14]].
 
@@ -105,11 +107,11 @@ In the name of Jesus Christ, amen.
 
 [^19]: [[D&C 121.43|Doctrine and Covenants 121:43]].
 
-[^20]: See [[3 Nephi 18.21|3 Nephi 18:21–23, 30–32]][[3 Nephi 18.22|]][[3 Nephi 18.23|]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]].
+[^20]: See [[3 Nephi 18.21|3 Nephi 18:21–23, 30–32]][[3 Nephi 18.22|]][[3 Nephi 18.23|]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]].
 
-[^21]: See Donald L. Hallstrom, [“Converted to His Gospel through His Church,”](https://churchofjesuschrist.org/study/ensign/2012/05/saturday-morning-session/converted-to-his-gospel-through-his-church?lang=eng) *Ensign* or *Liahona,* May 2012, 13–15.
+[^21]: See Donald L. Hallstrom, “[Converted to His Gospel through His Church](https://www.churchofjesuschrist.org/study/ensign/2012/05/saturday-morning-session/converted-to-his-gospel-through-his-church?lang=eng),” *Ensign* or *Liahona,* May 2012, 13–15.
 
-[^22]: [[3 Nephi 28.23|3 Nephi 28:23]]; emphasis added.
+[^22]: [[3 Nephi 28.23|3 Nephi 28:23]]; emphasis added.
 
 [^23]: [[Mosiah 18.29|Mosiah 18:29]].
 
@@ -139,8 +141,3 @@ In the name of Jesus Christ, amen.
 
 [^36]: [[D&C 65.5|Doctrine and Covenants 65:5–6]][[D&C 65.6|]].
 
-
-
-
-
-#Church_Meetings #Church_Organization #Kingdom_Of_God #Priesthood

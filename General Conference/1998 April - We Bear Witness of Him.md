@@ -1,5 +1,7 @@
 # We Bear Witness of Him
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1998 General Conference*
@@ -30,7 +32,7 @@ But in all of this there is no doctrinal compromise. There need not be and must 
 
 As we carry forward our distinctive mission, we work under a mandate given us by the risen Lord, who has spoken in this last and final dispensation. This is His unique and wonderful cause. We bear testimony and witness of Him. But we need not do so with arrogance or self-righteousness.
 
-As Peter expressed it, we are “a chosen generation, a royal priesthood, an holy nation, a peculiar people.” Why? That we might “shew forth the praises of him who hath called \[us\] out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
+As Peter expressed it, we are “a chosen generation, a royal priesthood, an holy nation, a peculiar people.” Why? That we might “shew forth the praises of him who hath called \[us\] out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 A holier-than-thou attitude is not becoming to us. I am in receipt of a letter from a man in our community who is not a member of the Church. In it he says that his little daughter has been ostracized by her schoolmates who are Latter-day Saints. He sets forth another instance of a child who, it is alleged, had a religious medal ripped from his neck by an LDS child. I hope this is not true. If it is, I apologize to those who have been offended.
 
@@ -55,8 +57,3 @@ And so, my beloved brothers and sisters, let us rejoice together now as we celeb
 
 
 
-
-
-
-
-#Book_Of_Mormon #Church_History #Faith #General_Conference #Jesus_Christ #Joseph_Smith #Love #Religion

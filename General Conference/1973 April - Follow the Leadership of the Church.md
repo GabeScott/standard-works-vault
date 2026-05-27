@@ -1,12 +1,14 @@
 # Follow the Leadership of the Church
 
-By President Harold B. Lee - *President of the Church*
+Harold B. Lee
+
+By President Harold B. Lee - *President of the Church*
 
 *Given in the April session of the 1973 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1973/04/follow-the-leadership-of-the-church?lang=eng)
 
-We have here Captain Larry J. Chesley, Major Jay C. Hess, and Lieutenant Commander David J. Rollins. Will you stand up, please? Captain Chesley, United States Air Force, was a prisoner of war for seven years. He comes from the Burley Stake, Star Ward. Major Jay Hess, United States Air Force, was a prisoner of war for six years, from Bountiful East Stake. Lieutenant Commander Rollins, United States Navy, a prisoner of war for six years, is from the San Diego North Stake.
+We have here Captain Larry J. Chesley, Major Jay C. Hess, and Lieutenant Commander David J. Rollins. Will you stand up, please? Captain Chesley, United States Air Force, was a prisoner of war for seven years. He comes from the Burley Stake, Star Ward. Major Jay Hess, United States Air Force, was a prisoner of war for six years, from Bountiful East Stake. Lieutenant Commander Rollins, United States Navy, a prisoner of war for six years, is from the San Diego North Stake.
 
 These three young men represent many of those boys who have gone through the fire of adversity. We just want you men to know that our hearts have been touched by the announcement of your faith, your confidence in your country and in your commander-in-chief, that you have come through thus far. We want to say to you that we have been praying, we have been hoping with every means at our command; and we now say to the priesthood, brethren, will you put your arms around these boys, and help them now to make their adjustments as may be necessary in their homecoming.
 
@@ -22,17 +24,17 @@ As I have gone out to youth conferences on various occasions, I have asked, “W
 
 Suspend judgment, then, and ponder what has been said tonight until you receive further instructions, which will be given you in detail, as the brethren have explained.
 
-I have a letter from some man who seemingly has found something in the hieroglyphics of some discovery that is the answer to a lot of the things that lay ahead for the world. And interestingly enough, as I looked at this, my mind reflected back to an address I heard delivered from this pulpit by President Anthony W. Ivins on October 4, 1931. Just why I thought of that—I suppose it was intended that I should—is because he gave an address at that conference and used as his text the recently published book called *Our Bible in Stone.* Many of you remember this treated principally the erection, the symbolism, and the prophetic character of the pyramid of Gizeh, or in Greek, the Cheops. Students of the pyramid, after a study of the measurements, symbols, and the record of the pyramid, if it had a record, said that the year 1928 would witness the beginning of a period of great tribulation, which would culminate with intensity in 1936. That period, according to the reckoning of the students, would close with the advent of the Lord and the establishment of a period of peace, happiness, and goodwill among men.
+I have a letter from some man who seemingly has found something in the hieroglyphics of some discovery that is the answer to a lot of the things that lay ahead for the world. And interestingly enough, as I looked at this, my mind reflected back to an address I heard delivered from this pulpit by President Anthony W. Ivins on October 4, 1931. Just why I thought of that—I suppose it was intended that I should—is because he gave an address at that conference and used as his text the recently published book called *Our Bible in Stone.* Many of you remember this treated principally the erection, the symbolism, and the prophetic character of the pyramid of Gizeh, or in Greek, the Cheops. Students of the pyramid, after a study of the measurements, symbols, and the record of the pyramid, if it had a record, said that the year 1928 would witness the beginning of a period of great tribulation, which would culminate with intensity in 1936. That period, according to the reckoning of the students, would close with the advent of the Lord and the establishment of a period of peace, happiness, and goodwill among men.
 
 Then President Ivins gave these wise words of counsel with reference to this book: “Now, my brethren … I have referred to this little book and its contents as I desire that you might understand. It will undoubtedly go into the mission field and our elders may make use of it. I simply want to warn you against sensationalism of any kind. … I do not say that his conclusions are wrong, but I do say that they do not come to us as the voice of the Church, nor are they to be accepted as such.”
 
-Then he said something that seems very significant to me. He said: “Brother J. Golden Kimball told us yesterday that he was a great believer in dreams that come true.” I wish you would think of that. That accords with my feelings. I am a great believer in dreams that have come true.
+Then he said something that seems very significant to me. He said: “Brother J. Golden Kimball told us yesterday that he was a great believer in dreams that come true.” I wish you would think of that. That accords with my feelings. I am a great believer in dreams that have come true.
 
 “I am reminded of the fact,” he said, “that immediately after the close of the World War these students of the Pyramids announced and published it that according to their measurements and calculations there would begin in the year 1928 a period which would bring tribulation and sorrow to the people of the world; that they would be required to humble themselves before the Lord, and that that period of tribulation would continue until the year 1936. … We all know that a part of this dream at least has come true.”
 
 After commenting on the financial condition throughout the nations at that time, in the 1930s, President Ivins then concluded his remarks with these profound words of wisdom: “Well, now, my brethren and sisters, what about it all? Just be calm and turn to the Lord. … I pleaded with the people to put their houses in order and get out of debt, for I knew this was coming, because God himself through his Only Begotten Son had declared it.
 
-“Now, my brethren and sisters, if the Church has anything to say to you it will come from them direct and not from the writings of other men. It will come to you in a manner that you will understand it. It will not be speculative. It will come to you philosophically, truthfully, and governed by common sense. God bless you,” he said, “is my humble prayer. …” (*Conference Report,* October 1931, pp. 87–94.)
+“Now, my brethren and sisters, if the Church has anything to say to you it will come from them direct and not from the writings of other men. It will come to you in a manner that you will understand it. It will not be speculative. It will come to you philosophically, truthfully, and governed by common sense. God bless you,” he said, “is my humble prayer. …” (*Conference Report,* October 1931, pp. 87–94.)
 
 Now this is something that needs repeating to this great body of priesthood, because we have a rash of writings by certain persons who claim to be of good standing in the Church, going into considerable detail as they recite their past and present Church affiliations and activities in the foreword, interlude, and advertising. There are sensational predictions and observations, and to make their writings appear to have Church sanction, they use quotations and addresses from Church leaders, past and present, taken out of context in such a way as to make it appear as though these quotations were the endorsement of the book they wish to sell to Church members, who may thereby be induced to accept their writings as from unquestioned sources.
 
@@ -50,11 +52,11 @@ Now a word about magnifying the priesthood. Much has been said about that tonigh
 
 “And now this calling and commandment give I unto you concerning all men—
 
-“That as many as shall come before my servants Sidney Rigdon and Joseph Smith, Jun., embracing this calling, … shall be ordained and sent forth to preach the everlasting gospel among the nations. …
+“That as many as shall come before my servants Sidney Rigdon and Joseph Smith, Jun., embracing this calling, … shall be ordained and sent forth to preach the everlasting gospel among the nations. …
 
 “And this commandment shall be given unto the elders of my church, that every man which will embrace it with singleness of heart may be ordained and sent forth, even as I have spoken.
 
-“I am Jesus Christ, the Son of God; wherefore, gird up your loins, and I will suddenly come to my temple. …” ([[D&C 36.1|D&C 36:1–2, 4–5, 7–8]][[D&C 36.2|]][[D&C 36.4|]][[D&C 36.5|]][[D&C 36.7|]][[D&C 36.8|]].)
+“I am Jesus Christ, the Son of God; wherefore, gird up your loins, and I will suddenly come to my temple. …” ([[D&C 36.1|D&C 36:1–2, 4–5, 7–8]][[D&C 36.2|]][[D&C 36.4|]][[D&C 36.5|]][[D&C 36.7|]][[D&C 36.8|]].)
 
 Now, I want to refer particularly to this one verse, and then make a few comments about magnifying the priesthood. Notice what the Lord said: “And I will lay my hand upon you \[Edward Partridge\] by the hand of my servant Sidney Rigdon, and you shall receive my Spirit, the Holy Ghost, even the Comforter, which shall teach you the peaceable things of the kingdom.”
 
@@ -89,8 +91,3 @@ So I bear you that witness and leave you my blessing this night, and pray God’
 
 
 
-
-
-
-
-#Priesthood #Youth

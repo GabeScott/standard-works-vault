@@ -1,5 +1,7 @@
 # Relief Society: A Balm in Gilead
 
+Gordon B. Hinckley
+
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1995 General Conference*
@@ -22,7 +24,7 @@ The mother felt better. The visiting teachers grew closer to each other and to t
 
 President Boyd K. Packer, in a talk to the women of the Church, quoted the First Presidency:
 
-“We ask our Sisters of the Relief Society never to forget that they are a unique organization in the whole world, for they were organized under the inspiration of the Lord. … No other women’s organization in all the earth has had such a birth” (*Ensign,* Nov. 1980, p. 111).
+“We ask our Sisters of the Relief Society never to forget that they are a unique organization in the whole world, for they were organized under the inspiration of the Lord. … No other women’s organization in all the earth has had such a birth” (*Ensign,* Nov. 1980, p. 111).
 
 That divine direction continues today as priesthood leaders counsel with us, give us guidance, encouragement, and inspiration. I am grateful for our prophet, Gordon B. Hinckley, and for the General Authorities of this church who reverence the work of Relief Society.
 
@@ -57,7 +59,7 @@ So much of our contribution is done in quiet ways, one sister at a time. It has 
 
 I have been privileged to meet many of you. Thank you for the steadfast love you extend to one another, for your example, for your service. Thank you for putting your arms around each other and drawing each other into the circle of sisters that is the heart and soul of a branch, a ward, or a stake.
 
-The fifth general president of Relief Society, Emmeline B. Wells, described the influence of the sisters when she said, “The sun never sets on the Relief Society” (“R.S. Reports: Alpine Stake,” *Woman’s Exponent,* Aug. 1904, p. 21).
+The fifth general president of Relief Society, Emmeline B. Wells, described the influence of the sisters when she said, “The sun never sets on the Relief Society” (“R.S. Reports: Alpine Stake,” *Woman’s Exponent,* Aug. 1904, p. 21).
 
 I have been to Relief Society gatherings in many parts of the world, and I know that the Lord has no finer forces than the good women in these congregations. Our balm of Gilead takes many forms for we minister with both our hearts and our hands.
 
@@ -100,8 +102,3 @@ I leave you with my testimony that God lives, that Jesus Christ is his Son, and 
 
 
 
-
-
-
-
-#Charity #Family #Home #Individual_Worth #Peace #Relief_Society #Women

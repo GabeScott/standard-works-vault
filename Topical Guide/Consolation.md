@@ -1,6 +1,5 @@
 # Consolation
 
-
 *See also* [[Comfort.md|Comfort]]; [[Compassion.md|Compassion]]
 
 neither shall men give them the cup of *consolation*, [[Jeremiah 16.7|Jeremiah 16:7]].

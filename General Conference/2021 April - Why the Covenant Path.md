@@ -1,6 +1,8 @@
 # Why the Covenant Path
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -8,11 +10,11 @@ By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/04/54christofferson?lang=eng)
 
-Throughout his ministry, President Russell M. Nelson has studied and taught of God’s covenants with His children. He is himself a shining example of one who walks the covenant path. In his first message as President of the Church, President Nelson stated:
+Throughout his ministry, President Russell M. Nelson has studied and taught of God’s covenants with His children. He is himself a shining example of one who walks the covenant path. In his first message as President of the Church, President Nelson stated:
 
 “Your commitment to follow the Savior by making covenants with Him and then keeping these covenants will open the door to every spiritual blessing and privilege available to men, women, and children everywhere.
 
-“… The ordinances of the temple and the covenants you make there are key to strengthening your life, your marriage and family, and your ability to resist the attacks of the adversary. Your worship in the temple and your service there for your ancestors will bless you with increased personal revelation and peace and will fortify your commitment to stay on the covenant path.”[^1]
+“… The ordinances of the temple and the covenants you make there are key to strengthening your life, your marriage and family, and your ability to resist the attacks of the adversary. Your worship in the temple and your service there for your ancestors will bless you with increased personal revelation and peace and will fortify your commitment to stay on the covenant path.”[^1]
 
 What is the covenant path? It is the one path that leads to the celestial kingdom of God. We embark upon the path at the gate of baptism and then “press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men \[the two great commandments\] … to the end.”[^2] In the course of the covenant path (which, by the way, extends beyond mortality), we receive all the ordinances and covenants pertaining to salvation and exaltation.
 
@@ -20,7 +22,7 @@ Our overarching covenant commitment is to do God’s will “and to be obedient 
 
 Too often our problems or challenges are self-inflicted, the result of poor choices, or, we could say, the result of “unforced errors.” When we are diligently pursuing the covenant path, we quite naturally avoid many “unforced errors.” We sidestep the various forms of addiction. We do not fall into the ditch of dishonest conduct. We cross over the abyss of immorality and infidelity. We bypass the people and things that, even if popular, would jeopardize our physical and spiritual well-being. We avoid the choices that harm or disadvantage others and instead acquire the habits of self-discipline and service.[^4]
 
-Elder J. Golden Kimball is purported to have said, “I may not have \[always\] walked the straight and narrow, but I \[try\] to cross it as often as I \[can\].”[^5] In a more serious moment, I am sure Brother Kimball would agree that staying on, not just crossing, the covenant path is our greatest hope for avoiding *avoidable* misery on the one hand and successfully dealing with the *unavoidable* woes of life on the other.
+Elder J. Golden Kimball is purported to have said, “I may not have \[always\] walked the straight and narrow, but I \[try\] to cross it as often as I \[can\].”[^5] In a more serious moment, I am sure Brother Kimball would agree that staying on, not just crossing, the covenant path is our greatest hope for avoiding *avoidable* misery on the one hand and successfully dealing with the *unavoidable* woes of life on the other.
 
 Some might say, “I can make good choices with or without baptism; I don’t need covenants to be an honorable and successful person.” Indeed, there are many who, while not on the covenant path themselves, act in a way that mirrors the choices and contributions of those who are on the path. You might say they reap the blessings of walking a “covenant-consistent” path. What, then, is the difference of the covenant path?
 
@@ -46,7 +48,7 @@ A second unique aspect of the covenant path is our relationship with Deity. The 
 
 I once read an article by a poorly informed newspaper reporter who explained that the way we perform baptisms for the dead is to immerse rolls of microfilm in water. Then all those whose names appear on the microfilm are considered baptized. That approach would be efficient, but it ignores the infinite worth of each soul and the critical importance of a personal covenant with God.
 
-“\[Jesus\] said … : Enter ye in at the strait gate; for strait is the gate, and narrow is the way that leads to life, and few there be that find it.”[^10] Figuratively speaking, this gate is so narrow that it allows only one to enter at a time. Each one makes an individual commitment to God and in return receives from Him a personal covenant, by name, that he or she can rely on implicitly in time and eternity. With the ordinances and covenants, “the power of godliness is manifest” in our lives.[^11]
+“\[Jesus\] said … : Enter ye in at the strait gate; for strait is the gate, and narrow is the way that leads to life, and few there be that find it.”[^10] Figuratively speaking, this gate is so narrow that it allows only one to enter at a time. Each one makes an individual commitment to God and in return receives from Him a personal covenant, by name, that he or she can rely on implicitly in time and eternity. With the ordinances and covenants, “the power of godliness is manifest” in our lives.[^11]
 
 ## Divine Help
 
@@ -70,7 +72,7 @@ Finally, it is only in pursuing the covenant path that we inherit the blessings 
 
 Scriptural references to the covenant people often mean literal descendants of Abraham or the “house of Israel.” But the covenant people also include all who receive the gospel of Jesus Christ.[^24] Paul explained:
 
-“For as many of you as have been baptized into Christ have put on Christ. …
+“For as many of you as have been baptized into Christ have put on Christ. …
 
 “And if ye be Christ’s, then are ye Abraham’s seed, and heirs according to the promise.”[^25]
 
@@ -83,17 +85,17 @@ With Nephi, “my soul delighteth in the covenants of the Lord.”[^30] On this 
 
 
 
-[^1]: Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona*, Apr. 2018, 7.
+[^1]: Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona*, Apr. 2018, 7.
 
-[^2]: [[2 Nephi 31.20|2 Nephi 31:20]]. The covenant path was established from the beginning with Adam and Eve (see [[Moses 6.50|Moses 6:50–68]][[Moses 6.51|]][[Moses 6.52|]][[Moses 6.53|]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]][[Moses 6.63|]][[Moses 6.64|]][[Moses 6.65|]][[Moses 6.66|]][[Moses 6.67|]][[Moses 6.68|]]).
+[^2]: [[2 Nephi 31.20|2 Nephi 31:20]]. The covenant path was established from the beginning with Adam and Eve (see [[Moses 6.50|Moses 6:50–68]][[Moses 6.51|]][[Moses 6.52|]][[Moses 6.53|]][[Moses 6.54|]][[Moses 6.55|]][[Moses 6.56|]][[Moses 6.57|]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]][[Moses 6.63|]][[Moses 6.64|]][[Moses 6.65|]][[Moses 6.66|]][[Moses 6.67|]][[Moses 6.68|]]).
 
 [^3]: [[Mosiah 5.5|Mosiah 5:5]]. As Alma the Elder expressed, “If this be the desire of your hearts, what have you against being baptized in the name of the Lord, as a witness before him that ye have entered into a covenant with him, that ye will serve him and keep his commandments, that he may pour out his Spirit more abundantly upon you?” ([[Mosiah 18.10|Mosiah 18:10]]).
 
 [^4]: For a scriptural example, see [[Alma 1.29|Alma 1:29–32]][[Alma 1.30|]][[Alma 1.31|]][[Alma 1.32|]].
 
-[^5]: In Eric A. Eliason, *The J. Golden Kimball Stories* (2007), 78.
+[^5]: In Eric A. Eliason, *The J. Golden Kimball Stories* (2007), 78.
 
-[^6]: See [[2 Nephi 31.6|2 Nephi 31:6–7]][[2 Nephi 31.7|]].
+[^6]: See [[2 Nephi 31.6|2 Nephi 31:6–7]][[2 Nephi 31.7|]].
 
 [^7]: [[Ephesians 6.4|Ephesians 6:4]]; see also [[Enos 1.1|Enos 1:1]].
 
@@ -101,11 +103,11 @@ With Nephi, “my soul delighteth in the covenants of the Lord.”[^30] On this 
 
 [^9]: See [[John 16.33|John 16:33]].
 
-[^10]: [[3 Nephi 27.33|3 Nephi 27:33]]; see also [[Matthew 7.14|Matthew 7:14]].
+[^10]: [[3 Nephi 27.33|3 Nephi 27:33]]; see also [[Matthew 7.14|Matthew 7:14]].
 
 [^11]: See [[D&C 84.20|Doctrine and Covenants 84:20.]]
 
-[^12]: See Bible Dictionary, “[Holy Ghost](https://churchofjesuschrist.org/study/scriptures/bd/holy-ghost?lang=eng).”
+[^12]: See Bible Dictionary, “[[BD Holy Ghost|Holy Ghost]].”
 
 [^13]: [[Moroni 8.26|Moroni 8:26]].
 
@@ -113,11 +115,11 @@ With Nephi, “my soul delighteth in the covenants of the Lord.”[^30] On this 
 
 [^15]: See [[Mosiah 18.9|Mosiah 18:9]].
 
-[^16]: [[3 Nephi 27.20|3 Nephi 27:20]]; see also [[2 Nephi 31.17|2 Nephi 31:17]].
+[^16]: [[3 Nephi 27.20|3 Nephi 27:20]]; see also [[2 Nephi 31.17|2 Nephi 31:17]].
 
-[^17]: See, for example, [[Isaiah 5.26|Isaiah 5:26–29]][[Isaiah 5.27|]][[Isaiah 5.28|]][[Isaiah 5.29|]] ([[2 Nephi 15.26|2 Nephi 15:26–28]][[2 Nephi 15.27|]][[2 Nephi 15.28|]]); [[Isaiah 54.7|Isaiah 54:7]]; [[Jeremiah 16.14|Jeremiah 16:14–16]][[Jeremiah 16.15|]][[Jeremiah 16.16|]]; [[2 Nephi 29.14|2 Nephi 29:14]]; [[3 Nephi 29.1|3 Nephi 29:1]]; [[Articles of Faith 1.10|Articles of Faith 1:10]]. The coming forth of the Book of Mormon is a sign that the Lord has begun to fulfill His covenant with the house of Israel, including “their restoration to the lands of their inheritance” ([[3 Nephi 29.1|3 Nephi 29:1]]; see also [[3 Nephi 21.1|3 Nephi 21:1–7]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]]). The Book of Mormon is also the instrument used to accomplish that gathering (see [[3 Nephi 16.4|3 Nephi 16:4–8]][[3 Nephi 16.5|]][[3 Nephi 16.6|]][[3 Nephi 16.7|]][[3 Nephi 16.8|]]).
+[^17]: See, for example, [[Isaiah 5.26|Isaiah 5:26–29]][[Isaiah 5.27|]][[Isaiah 5.28|]][[Isaiah 5.29|]] ([[2 Nephi 15.26|2 Nephi 15:26–28]][[2 Nephi 15.27|]][[2 Nephi 15.28|]]); [[Isaiah 54.7|Isaiah 54:7]]; [[Jeremiah 16.14|Jeremiah 16:14–16]][[Jeremiah 16.15|]][[Jeremiah 16.16|]]; [[2 Nephi 29.14|2 Nephi 29:14]]; [[3 Nephi 29.1|3 Nephi 29:1]]; [[Articles of Faith 1.10|Articles of Faith 1:10]]. The coming forth of the Book of Mormon is a sign that the Lord has begun to fulfill His covenant with the house of Israel, including “their restoration to the lands of their inheritance” ([[3 Nephi 29.1|3 Nephi 29:1]]; see also [[3 Nephi 21.1|3 Nephi 21:1–7]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]]). The Book of Mormon is also the instrument used to accomplish that gathering (see [[3 Nephi 16.4|3 Nephi 16:4–8]][[3 Nephi 16.5|]][[3 Nephi 16.6|]][[3 Nephi 16.7|]][[3 Nephi 16.8|]]).
 
-[^18]: Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org; see also Russell M. Nelson, “[[2011 October - Covenants.md|Covenants]],” *Ensign* or *Liahona*, Nov. 2011, 86–89.
+[^18]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org; see also Russell M. Nelson, “[[2011 October - Covenants.md|Covenants]],” *Ensign* or *Liahona*, Nov. 2011, 86–89.
 
 [^19]: [[D&C 115.5|Doctrine and Covenants 115:5–6]][[D&C 115.6|]].
 
@@ -125,13 +127,13 @@ With Nephi, “my soul delighteth in the covenants of the Lord.”[^30] On this 
 
 [^21]: [[Moroni 6.5|Moroni 6:5]].
 
-[^22]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-36?lang=eng&id=p15#p15) (2007), 416.
+[^22]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-36?lang=eng&id=p15#p15) (2007), 416.
 
-[^23]: See Bible Dictionary, “[Abraham, covenant of](https://churchofjesuschrist.org/study/scriptures/bd/abraham-covenant-of?lang=eng)”; [[Abraham 2.11|Abraham 2:11]].
+[^23]: See Bible Dictionary, “[[BD Abraham Covenant Of|Abraham, covenant of]]”; [[Abraham 2.11|Abraham 2:11]].
 
-[^24]: The Book of Mormon is sent to the Gentiles, “that they may repent and come unto me and be baptized in my name and know of the true points of my doctrine, that they may be numbered among my people, O house of Israel” ([[3 Nephi 21.6|3 Nephi 21:6]]).
+[^24]: The Book of Mormon is sent to the Gentiles, “that they may repent and come unto me and be baptized in my name and know of the true points of my doctrine, that they may be numbered among my people, O house of Israel” ([[3 Nephi 21.6|3 Nephi 21:6]]).
 
-[^25]: [[Galatians 3.27|Galatians 3:27, 29]][[Galatians 3.29|]]; see also [[Abraham 2.10|Abraham 2:10]]. At the same time, even those who may be the literal descendants or seed of Abraham forfeit their legacy as part of the Lord’s chosen people unless they accept Jesus Christ. “For it shall come to pass, saith the Father, that at that day whosoever will not repent and come unto my Beloved Son, them will I cut off from among my people, O house of Israel” ([[3 Nephi 21.20|3 Nephi 21:20]]; see also [[2 Nephi 30.2|2 Nephi 30:2]]).
+[^25]: [[Galatians 3.27|Galatians 3:27, 29]][[Galatians 3.29|]]; see also [[Abraham 2.10|Abraham 2:10]]. At the same time, even those who may be the literal descendants or seed of Abraham forfeit their legacy as part of the Lord’s chosen people unless they accept Jesus Christ. “For it shall come to pass, saith the Father, that at that day whosoever will not repent and come unto my Beloved Son, them will I cut off from among my people, O house of Israel” ([[3 Nephi 21.20|3 Nephi 21:20]]; see also [[2 Nephi 30.2|2 Nephi 30:2]]).
 
 [^26]: [[D&C 76.65|Doctrine and Covenants 76:65]].
 
@@ -139,12 +141,7 @@ With Nephi, “my soul delighteth in the covenants of the Lord.”[^30] On this 
 
 [^28]: [[D&C 76.59|Doctrine and Covenants 76:59]].
 
-[^29]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^29]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
-[^30]: [[2 Nephi 11.5|2 Nephi 11:5]].
+[^30]: [[2 Nephi 11.5|2 Nephi 11:5]].
 
-
-
-
-
-#Choices #Covenants #Gathering #Holy_Ghost #Obedience #Ordinances

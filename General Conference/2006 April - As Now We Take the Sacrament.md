@@ -1,5 +1,7 @@
 # As Now We Take the Sacrament
 
+Robert D. Hales
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -46,7 +48,7 @@ In the New Testament we have an account of the Lord administering the sacrament 
 
 “For this is my blood of the new testament, which is shed for many for the remission of sins” ([[Matthew 26.26|vv. 26–28]][[Matthew 26.27|]][[Matthew 26.28|]]).
 
-The Book of Mormon, in 3 Nephi, chapter 18, gives us a detailed account of the Savior’s administration of the sacrament to the Nephites:
+The Book of Mormon, in 3 Nephi, chapter 18, gives us a detailed account of the Savior’s administration of the sacrament to the Nephites:
 
 “And it came to pass that Jesus commanded his disciples that they should bring forth some bread and wine unto him.
 
@@ -99,8 +101,3 @@ May there be instilled in each of us an increased reverence for the Sabbath. May
 
 
 
-
-
-
-
-#Covenants #Priesthood #Sacrament

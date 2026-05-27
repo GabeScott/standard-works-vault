@@ -1,6 +1,8 @@
 # Covenants
 
-By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
+Richard G. Scott
+
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -40,7 +42,7 @@ Some of these promises have been fulfilled; others are still pending. I quote fr
 
 To facilitate that promise, the Lord appeared in these latter days to renew that Abrahamic covenant. To the Prophet Joseph Smith, the Master declared:
 
-“Abraham received promises concerning his seed, and of the fruit of his loins—from whose loins ye are, … my servant Joseph. …
+“Abraham received promises concerning his seed, and of the fruit of his loins—from whose loins ye are, … my servant Joseph. …
 
 “This promise is yours also, because ye are of Abraham.”[^19]
 
@@ -64,7 +66,7 @@ When we realize that we are children of the covenant, we know who we are and wha
 
 The greatest compliment that can be earned here in this life is to be known as a covenant keeper. The rewards for a covenant keeper will be realized both here and hereafter. Scripture declares that “ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, … and if they hold out faithful to the end they are received into heaven … \[and\] dwell with God in a state of never-ending happiness.”[^40]
 
-God lives. Jesus is the Christ. His Church has been restored to bless all people. President Thomas S. Monson is His prophet today. And we, as *faithful* children of the covenant, will be blessed now and forever. I so testify in the name of Jesus Christ, amen.
+God lives. Jesus is the Christ. His Church has been restored to bless all people. President Thomas S. Monson is His prophet today. And we, as *faithful* children of the covenant, will be blessed now and forever. I so testify in the name of Jesus Christ, amen.
 
 
 
@@ -77,7 +79,7 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^4]: [[D&C 130.21|Doctrine and Covenants 130:21]].
 
-[^5]: For example, after the great Flood, He stated that “the bow shall be seen in the cloud: and I will remember my covenant, which I have made between me and you … ; and the waters shall no more become a flood to destroy all flesh” ([[Genesis 9.note15b|Genesis 9:14–15, footnote 15b]]; from Joseph Smith Translation, Genesis 9:20 \[The Holy Scriptures: Inspired Version\]).
+[^5]: For example, after the great Flood, He stated that “the bow shall be seen in the cloud: and I will remember my covenant, which I have made between me and you … ; and the waters shall no more become a flood to destroy all flesh” ([Genesis 9:14–15, footnote 15b](https://www.churchofjesuschrist.org/study/scriptures/ot/gen/9?lang=eng&id=note15b#note15b); from Joseph Smith Translation, Genesis 9:20 \[The Holy Scriptures: Inspired Version\]).
 
 [^6]: See [[D&C 66.2|Doctrine and Covenants 66:2]]; [[D&C 133.57|133:57]].
 
@@ -87,13 +89,13 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^9]: [[Acts 3.25|Acts 3:25]].
 
-[^10]: See [[3 Nephi 20.26|3 Nephi 20:26]].
+[^10]: See [[3 Nephi 20.26|3 Nephi 20:26]].
 
-[^11]: [[3 Nephi 20.25|3 Nephi 20:25]].
+[^11]: [[3 Nephi 20.25|3 Nephi 20:25]].
 
-[^12]: [[3 Nephi 20.26|3 Nephi 20:26]].
+[^12]: [[3 Nephi 20.26|3 Nephi 20:26]].
 
-[^13]: See [[Genesis 17.1|Genesis 17:1–10, 19]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]][[Genesis 17.9|]][[Genesis 17.10|]][[Genesis 17.19|]]; [[Leviticus 26.42|Leviticus 26:42]]; [[Acts 3.25|Acts 3:25]]; Bible Dictionary, “Abraham, Covenant of.”
+[^13]: See [[Genesis 17.1|Genesis 17:1–10, 19]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]][[Genesis 17.9|]][[Genesis 17.10|]][[Genesis 17.19|]]; [[Leviticus 26.42|Leviticus 26:42]]; [[Acts 3.25|Acts 3:25]]; Bible Dictionary, “[[BD Abraham Covenant Of|Abraham, Covenant of]].”
 
 [^14]: See [[Genesis 26.1|Genesis 26:1–5, 24]][[Genesis 26.2|]][[Genesis 26.3|]][[Genesis 26.4|]][[Genesis 26.5|]][[Genesis 26.24|]].
 
@@ -101,9 +103,9 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^16]: See references listed above in endnotes 13–15.
 
-[^17]: [[Deuteronomy 7.9|Deuteronomy 7:9]]; [[1 Chronicles 16.15|1 Chronicles 16:15]]; [[Psalms 105.8|Psalm 105:8]].
+[^17]: [[Deuteronomy 7.9|Deuteronomy 7:9]]; [[1 Chronicles 16.15|1 Chronicles 16:15]]; [[Psalms 105.8|Psalm 105:8]].
 
-[^18]: [[1 Nephi 15.18|1 Nephi 15:18]]; emphasis added.
+[^18]: [[1 Nephi 15.18|1 Nephi 15:18]]; emphasis added.
 
 [^19]: [[D&C 132.30|Doctrine and Covenants 132:30–31]][[D&C 132.31|]]. The Lord also told the Prophet Joseph Smith, “As I said unto Abraham concerning the kindreds of the earth, even so I say unto my servant Joseph: In thee and in thy seed shall the kindred of the earth be blessed” ([[D&C 124.58|Doctrine and Covenants 124:58]]).
 
@@ -127,9 +129,9 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^29]: See [[Alma 13.1|Alma 13:1–9]][[Alma 13.2|]][[Alma 13.3|]][[Alma 13.4|]][[Alma 13.5|]][[Alma 13.6|]][[Alma 13.7|]][[Alma 13.8|]][[Alma 13.9|]].
 
-[^30]: See [[3 Nephi 29.1|3 Nephi 29]][[3 Nephi 29.2|]][[3 Nephi 29.3|]][[3 Nephi 29.4|]][[3 Nephi 29.5|]][[3 Nephi 29.6|]][[3 Nephi 29.7|]][[3 Nephi 29.8|]][[3 Nephi 29.9|]].
+[^30]: See [[3 Nephi 29.1|3 Nephi 29]].
 
-[^31]: [[3 Nephi 29.1|3 Nephi 29:1, 3]][[3 Nephi 29.3|]].
+[^31]: [[3 Nephi 29.1|3 Nephi 29:1, 3]][[3 Nephi 29.3|]].
 
 [^32]: Title page of the Book of Mormon: Another Testament of Jesus Christ.
 
@@ -137,20 +139,15 @@ God lives. Jesus is the Christ. His Church has been restored to bless all people
 
 [^34]: See [[D&C 20.37|Doctrine and Covenants 20:37]].
 
-[^35]: “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, … that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
+[^35]: “We talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, … that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
 
 [^36]: See [[Galatians 3.29|Galatians 3:29]]; [[D&C 86.8|Doctrine and Covenants 86:8–11]][[D&C 86.9|]][[D&C 86.10|]][[D&C 86.11|]].
 
-[^37]: This concept pertains to us: “Many generations after the Messiah shall be manifested in body unto the children of men, then shall the fulness of the gospel of the Messiah come unto the Gentiles, and from the Gentiles unto the remnant of our seed—and at that day shall the remnant of our seed know that they are of the house of Israel, and that they are the covenant people of the Lord; and then shall they know and come to the knowledge of their forefathers, and also to the knowledge of the gospel of their Redeemer, which was ministered unto their fathers by him; wherefore, they shall come to the knowledge of their Redeemer and the very points of his doctrine, that they may know how to come unto him and be saved” ([[1 Nephi 15.13|1 Nephi 15:13–14]][[1 Nephi 15.14|]]).
+[^37]: This concept pertains to us: “Many generations after the Messiah shall be manifested in body unto the children of men, then shall the fulness of the gospel of the Messiah come unto the Gentiles, and from the Gentiles unto the remnant of our seed—and at that day shall the remnant of our seed know that they are of the house of Israel, and that they are the covenant people of the Lord; and then shall they know and come to the knowledge of their forefathers, and also to the knowledge of the gospel of their Redeemer, which was ministered unto their fathers by him; wherefore, they shall come to the knowledge of their Redeemer and the very points of his doctrine, that they may know how to come unto him and be saved” ([[1 Nephi 15.13|1 Nephi 15:13–14]][[1 Nephi 15.14|]]).
 
-[^38]: See [[Isaiah 55.3|Isaiah 55:3]]; [[Jeremiah 31.33|Jeremiah 31:33]]; [[Romans 2.15|Romans 2:15]]; [[2 Corinthians 3.2|2 Corinthians 3:2–3]][[2 Corinthians 3.3|]]; [[Hebrews 10.16|Hebrews 10:16]].
+[^38]: See [[Isaiah 55.3|Isaiah 55:3]]; [[Jeremiah 31.33|Jeremiah 31:33]]; [[Romans 2.15|Romans 2:15]]; [[2 Corinthians 3.2|2 Corinthians 3:2–3]][[2 Corinthians 3.3|]]; [[Hebrews 10.16|Hebrews 10:16]].
 
-[^39]: See [[Psalms 95.7|Psalm 95:7]]; [[Psalms 100.3|100:3]]; [[Jeremiah 24.7|Jeremiah 24:7]]; [[Jeremiah 31.33|31:33]]; [[Jeremiah 32.38|32:38]]; [[Ezekiel 11.20|Ezekiel 11:20]]; [[Ezekiel 37.23|37:23, 27]][[Ezekiel 37.27|]]; [[Zechariah 8.8|Zechariah 8:8]]; [[2 Corinthians 6.16|2 Corinthians 6:16]]; [[Hebrews 8.10|Hebrews 8:10]].
+[^39]: See [[Psalms 95.7|Psalm 95:7]]; [[Psalms 100.3|100:3]]; [[Jeremiah 24.7|Jeremiah 24:7]]; [[Jeremiah 31.33|31:33]]; [[Jeremiah 32.38|32:38]]; [[Ezekiel 11.20|Ezekiel 11:20]]; [[Ezekiel 37.23|37:23, 27]][[Ezekiel 37.27|]]; [[Zechariah 8.8|Zechariah 8:8]]; [[2 Corinthians 6.16|2 Corinthians 6:16]]; [[Hebrews 8.10|Hebrews 8:10]].
 
 [^40]: [[Mosiah 2.41|Mosiah 2:41]].
 
-
-
-
-
-#Covenants #House_Of_Israel #Obedience #Priesthood

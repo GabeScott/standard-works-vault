@@ -1,5 +1,7 @@
 # Receiving by the Spirit
 
+Gordon B. Hinckley
+
 By A. Roger Merrill - *Sunday School General President*
 
 *Given in the October session of the 2006 General Conference*
@@ -30,7 +32,7 @@ As I have reflected on that experience—and many such witnesses since—I have 
 
 Such receiving is a foundational gospel pattern. It is set forth in the very ordinance by which we are confirmed members of the Church. In this ordinance we are instructed to “receive the Holy Ghost.” This is a formal invitation to act, to receive this great gift.
 
-As I have become more aware of this principle, I find that the scriptures are replete with the doctrine of receiving. As President Boyd K. Packer has said, “No message appears in scripture more times, in more ways than ‘Ask, and ye shall receive’” (in Conference Report, Oct. 1991, 26; or *Ensign,* Nov. 1991, 21).
+As I have become more aware of this principle, I find that the scriptures are replete with the doctrine of receiving. As President Boyd K. Packer has said, “No message appears in scripture more times, in more ways than ‘Ask, and ye shall receive’” (in Conference Report, Oct. 1991, [[1991 October - Reverence Invites Revelation.md|26]]; or *Ensign,* Nov. 1991, 21).
 
 At the very core of our mortal probation is the choice to receive Jesus as the Christ. The Apostle John taught:
 
@@ -63,8 +65,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Holy_Ghost #Listening #Scriptures

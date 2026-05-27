@@ -1,6 +1,8 @@
 # “The Morning Breaks; the Shadows Flee”
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -60,13 +62,13 @@ And with the gospel dawn and the spread of truth over all the earth, the terrors
 
 Soon the wolves of wickedness will no longer howl and the jackals of sin no longer snivel and snipe at the ongoing kingdom, and the great millennial day will be upon us.
 
-This is thy day, O Zion! “Arise, shine; for thy light is come, and the glory of the Lord is risen upon thee. …
+This is thy day, O Zion! “Arise, shine; for thy light is come, and the glory of the Lord is risen upon thee. …
 
 “His glory shall be seen upon thee.
 
-“And the Gentiles shall come to thy light, and kings to the brightness of thy rising. …
+“And the Gentiles shall come to thy light, and kings to the brightness of thy rising. …
 
-“Violence shall no more be heard in thy land, wasting nor destruction within thy borders; but thou shalt call thy walls Salvation, and thy gates Praise. …
+“Violence shall no more be heard in thy land, wasting nor destruction within thy borders; but thou shalt call thy walls Salvation, and thy gates Praise. …
 
 “The Lord shall be unto thee an everlasting light, and thy God thy glory.” ([[Isaiah 60.1|Isa. 60:1–3, 18–19]][[Isaiah 60.2|]][[Isaiah 60.3|]][[Isaiah 60.18|]][[Isaiah 60.19|]].)
 
@@ -75,8 +77,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Apostasy #Restoration

@@ -1,5 +1,7 @@
 # A Still, Small Voice and a Throbbing Heart
 
+Gordon B. Hinckley
+
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2005 General Conference*
@@ -16,7 +18,7 @@ After the priesthood leadership meeting, I reintroduced myself to the visiting p
 
 At the conclusion of the Saturday evening adult session, this man came rushing to the podium and, thumping his chest, excitedly declared, “My heart is throbbing just like this. I can hardly contain it in my body. I don’t know if I can wait the four weeks for my family to be baptized.” I suggested he ought to slow down his heart and wait for his wife and children so all could be baptized together.
 
-When Elijah was fleeing for his life from the wicked Phoenician princess Jezebel, the Lord directed him to a high mountain, where he had a most unusual experience. As Elijah stood upon the mount before the Lord, he felt “a great and strong wind … ; but the Lord was not in the wind: and after the wind an earthquake; but the Lord was not in the earthquake: and after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice” ([[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]]).
+When Elijah was fleeing for his life from the wicked Phoenician princess Jezebel, the Lord directed him to a high mountain, where he had a most unusual experience. As Elijah stood upon the mount before the Lord, he felt “a great and strong wind … ; but the Lord was not in the wind: and after the wind an earthquake; but the Lord was not in the earthquake: and after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice” ([[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]]).
 
 I am occasionally asked by those not of our faith why it is that our Church grows so rapidly, in both membership and activity, while other churches are reportedly declining in both. The answer to that question is simply a still, small voice and then a throbbing heart. In this busy, tumultuous, and noisy world, it is not like a wind, it is not like a fire, it is not like an earthquake; but it is a still, small, but a very discernible voice, and it causes a throbbing heart. It is a quiet burning within that this is the restored gospel of Jesus Christ, with all of its doctrine, priesthood, and covenants that had been lost through the many centuries of darkness and confusion. Yes, it is a still, small voice and a throbbing heart that testifies of the miracle of the Restoration.
 
@@ -49,8 +51,3 @@ Like Alma of old, each of us, members and sincere investigators alike, can know 
 
 
 
-
-
-
-
-#Atonement #Book_Of_Mormon #Holy_Ghost #Jesus_Christ #Restoration #Testimony

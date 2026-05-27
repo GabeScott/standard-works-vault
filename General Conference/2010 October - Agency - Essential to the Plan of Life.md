@@ -1,5 +1,7 @@
 # Agency: Essential to the Plan of Life
 
+Thomas S. Monson
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -26,7 +28,7 @@ Before we came to this earth, Heavenly Father presented His plan of salvation—
 
 Our agency—our ability to choose and act for ourselves—was an essential element of this plan. Without agency we would be unable to make right choices and progress. Yet with agency we could make wrong choices, commit sin, and lose the opportunity to be with Heavenly Father again. For this reason a Savior would be provided to suffer for our sins and redeem us if we would repent. By His infinite Atonement, He brought about “the plan of mercy, to appease the demands of justice.”[^4]
 
-After Heavenly Father presented His plan, Lucifer stepped forward, saying, “Send me, … and I will redeem all mankind, that \[not even\] one soul shall … be lost … ; wherefore give me thine honor.”[^5] This plan was rejected by our Father, for it would have denied us our agency. Indeed, it was a plan of rebellion.
+After Heavenly Father presented His plan, Lucifer stepped forward, saying, “Send me, … and I will redeem all mankind, that \[not even\] one soul shall … be lost … ; wherefore give me thine honor.”[^5] This plan was rejected by our Father, for it would have denied us our agency. Indeed, it was a plan of rebellion.
 
 Then Jesus Christ, Heavenly Father’s “Beloved and Chosen \[Son\] from the beginning,” exercised His agency to say, “Father, thy will be done, and the glory be thine forever.”[^6] He would be our Savior—the Savior of the world.
 
@@ -64,9 +66,9 @@ Contrary to the world’s secular teaching, the scriptures teach us that we do h
 
 For example, through the prophet Samuel, the Lord gave a clear commandment to King Saul:
 
-“The Lord sent me to anoint thee to be king … : now therefore hearken thou unto the voice … of the Lord. …
+“The Lord sent me to anoint thee to be king … : now therefore hearken thou unto the voice … of the Lord. …
 
-“… Go and smite Amalek, and utterly destroy all that they have.”[^21]
+“… Go and smite Amalek, and utterly destroy all that they have.”[^21]
 
 But Saul did not follow the Lord’s commandment. He practiced what I call “selective obedience.” Relying on his own wisdom, he spared the life of King Agag and brought back the best of the sheep, oxen, and other animals.
 
@@ -87,9 +89,9 @@ I bear my special witness that They live. When we exercise our agency in righteo
 
 
 
-[^1]: [[2 Nephi 2.26|2 Nephi 2:26]].
+[^1]: [[2 Nephi 2.26|2 Nephi 2:26]].
 
-[^2]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^2]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^3]: “Know This, That Every Soul Is Free,” *Hymns,* no. 240.
 
@@ -103,11 +105,11 @@ I bear my special witness that They live. When we exercise our agency in righteo
 
 [^8]: [[Moses 4.3|Moses 4:3]].
 
-[^9]: [[2 Nephi 2.27|2 Nephi 2:27]]; see also [[2 Nephi 9.9|2 Nephi 9:9]].
+[^9]: [[2 Nephi 2.27|2 Nephi 2:27]]; see also [[2 Nephi 9.9|2 Nephi 9:9]].
 
 [^10]: [[Luke 2.49|Luke 2:49]].
 
-[^11]: [[3 Nephi 27.13|3 Nephi 27:13]].
+[^11]: [[3 Nephi 27.13|3 Nephi 27:13]].
 
 [^12]: [[Luke 22.42|Luke 22:42–43]][[Luke 22.43|]].
 
@@ -119,23 +121,23 @@ I bear my special witness that They live. When we exercise our agency in righteo
 
 [^16]: [[Hebrews 4.15|Hebrews 4:15]].
 
-[^17]: [[2 Nephi 28.8|2 Nephi 28:8]].
+[^17]: [[2 Nephi 28.8|2 Nephi 28:8]].
 
-[^18]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^18]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^19]: [[Alma 30.17|Alma 30:17]].
 
-[^20]: [[2 Nephi 2.12|2 Nephi 2:12]].
+[^20]: [[2 Nephi 2.12|2 Nephi 2:12]].
 
-[^21]: [[1 Samuel 15.1|1 Samuel 15:1, 3]][[1 Samuel 15.3|]].
+[^21]: [[1 Samuel 15.1|1 Samuel 15:1, 3]][[1 Samuel 15.3|]].
 
-[^22]: [[1 Samuel 15.13|1 Samuel 15:13]].
+[^22]: [[1 Samuel 15.13|1 Samuel 15:13]].
 
-[^23]: [[1 Samuel 15.14|1 Samuel 15:14]].
+[^23]: [[1 Samuel 15.14|1 Samuel 15:14]].
 
-[^24]: [[1 Samuel 15.22|1 Samuel 15:22]].
+[^24]: [[1 Samuel 15.22|1 Samuel 15:22]].
 
-[^25]: [[1 Samuel 15.24|1 Samuel 15:24]].
+[^25]: [[1 Samuel 15.24|1 Samuel 15:24]].
 
 [^26]: [[Romans 3.23|Romans 3:23]].
 
@@ -147,8 +149,3 @@ I bear my special witness that They live. When we exercise our agency in righteo
 
 [^30]: [[Mosiah 27.31|Mosiah 27:31]].
 
-
-
-
-
-#Agency #Plan_Of_Salvation #Repentance

@@ -1,6 +1,8 @@
 # The Law of Abundance
 
-By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Franklin D. Richards - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -20,7 +22,7 @@ And, “If we do right, there will be an eternal increase among this people in t
 
 It is interesting to note that here, as elsewhere in the scriptures, promises of earthly wealth and increased talents are made to those who live the gospel principles, and counsel is given to use our talents and wealth for the building of the kingdom. Many scriptures, however, contain words of admonition regarding temptations brought about through the acquisition of wealth and its use for unrighteous purposes.
 
-The great apostle Paul, in writing to his beloved associate Timothy, told him that “the love of money is the root of all evil,” and to “charge them that are rich in this world, that they be not highminded, nor trust in uncertain riches, but in the living God, who giveth us richly all things to enjoy; That they do good, that they be rich in good works, ready to distribute. …” ([[1 Timothy 6.10|1 Tim. 6:10, 17–18]][[1 Timothy 6.17|]][[1 Timothy 6.18|]].)
+The great apostle Paul, in writing to his beloved associate Timothy, told him that “the love of money is the root of all evil,” and to “charge them that are rich in this world, that they be not highminded, nor trust in uncertain riches, but in the living God, who giveth us richly all things to enjoy; That they do good, that they be rich in good works, ready to distribute. …” ([[1 Timothy 6.10|1 Tim. 6:10, 17–18]][[1 Timothy 6.17|]][[1 Timothy 6.18|]].)
 
 Throughout the history of the Church its leaders have taught the value of the principles of work, industry, and thrift; and as they have been practiced, Church members have prospered in numerous ways. Likewise, members have been counseled to establish and maintain their economic independence, and employment-creating industries have been encouraged.
 
@@ -42,7 +44,7 @@ Throughout the ages the Lord has commanded his people to remember the needy and 
 
 In this dispensation the Lord has revealed to us that “it is a day of sacrifice, and a day for the tithing of my people.” ([[D&C 64.23|D&C 64:23]].) I think it should be noted that a very substantial number are today honestly meeting this requirement. Yet, on the other hand, many are negligent in the payment of their tithes and offerings.
 
-The Lord has said: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
+The Lord has said: “Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
 
 “Bring ye all the tithes into the storehouse … and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.” ([[Malachi 3.8|Mal. 3:8, 10]][[Malachi 3.10|]].)
 
@@ -56,7 +58,7 @@ The Church is designed to take care of the spiritual and temporal needs of its m
 
 We have been looking to this day for more than one hundred years, and I am sure that as we keep the commandments of the Lord, he will open up the way whereby we can meet the financial obligations relative to the growth and development of the Church, as well as our own responsibilities.
 
-The apostle Paul, in writing to the Corinthian Saints, told them that “he which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully. …
+The apostle Paul, in writing to the Corinthian Saints, told them that “he which soweth sparingly shall reap also sparingly; and he which soweth bountifully shall reap also bountifully. …
 
 “Let him give; not grudgingly, or of necessity: for God loveth a cheerful giver.” ([[2 Corinthians 9.6|2 Cor. 9:6–7]][[2 Corinthians 9.7|]].)
 
@@ -87,8 +89,3 @@ Therefore, let us dispense the means which the Lord has given us to enrich the l
 
 
 
-
-
-
-
-#Tithing #Wealth

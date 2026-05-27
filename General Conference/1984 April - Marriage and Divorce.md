@@ -1,5 +1,7 @@
 # Marriage and Divorce
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -30,7 +32,7 @@ They are not to be mistreated or abused, for, with their parents, they are part 
 
 President Spencer W. Kimball explained:
 
-“The Lord organized the whole program in the beginning with a father who procreates, provides, and loves and directs, and a mother who conceives and bears and nurtures and feeds and trains. The Lord could have organized it otherwise but chose to have a unit with responsibility and purposeful associations where children train and discipline each other and come to love, honor, and appreciate each other. The family is the great plan of life as conceived and organized by our Father in Heaven.” (*Ensign,* July 1973, p. 15.)
+“The Lord organized the whole program in the beginning with a father who procreates, provides, and loves and directs, and a mother who conceives and bears and nurtures and feeds and trains. The Lord could have organized it otherwise but chose to have a unit with responsibility and purposeful associations where children train and discipline each other and come to love, honor, and appreciate each other. The family is the great plan of life as conceived and organized by our Father in Heaven.” (*Ensign,* July 1973, p. 15.)
 
 Marriage was meant to be and can be a loving, binding, and harmonious relationship between a husband and wife.
 
@@ -56,7 +58,7 @@ Too many people are inadequately prepared for this lofty responsibility.
 
 Serious transgressions, as well as injured lives that sometimes are revealed in bishops’ offices, all too frequently make it clear that husband and wife relationships deserve a great deal more prayerful attention than many are giving it. Fewer marriages would get in trouble, and more would be happier, if couples visited a warm-hearted bishop who might suggest ways of avoiding pitfalls, and encourage husbands and wives to thoughtfully use self-discipline and needed restraint and develop the loving attribute of unselfishness.
 
-A few years ago, President Harold B. Lee received this letter from a married woman: “When we thought that the end was here and that there was only one thing to do and that was to get a divorce, we had been told that we should counsel with our bishop. At first … we hesitated, because he was just a young man. … But he was our bishop so we went to see him. We poured out our souls to our young bishop. He sat and listened silently, and when we ran out of conversation he said, simply, ‘Well, my wife and I, we had problems, too, and we learned how to solve them.’ That is all … he said. But you know there was something that happened as a result of that young bishop’s statement. We walked out of there and we said, ‘Well, if they can solve their problems, what is the matter with us?’” (*Ensign,* Jan. 1974, p. 100.)
+A few years ago, President Harold B. Lee received this letter from a married woman: “When we thought that the end was here and that there was only one thing to do and that was to get a divorce, we had been told that we should counsel with our bishop. At first … we hesitated, because he was just a young man. … But he was our bishop so we went to see him. We poured out our souls to our young bishop. He sat and listened silently, and when we ran out of conversation he said, simply, ‘Well, my wife and I, we had problems, too, and we learned how to solve them.’ That is all … he said. But you know there was something that happened as a result of that young bishop’s statement. We walked out of there and we said, ‘Well, if they can solve their problems, what is the matter with us?’” (*Ensign,* Jan. 1974, p. 100.)
 
 A prominent producer recently stated:
 
@@ -68,7 +70,7 @@ Middle-age divorce is particularly distressing, as it indicates that mature peop
 
 In Malachi we read:
 
-“The Lord hath been witness between thee and the wife of thy youth, against whom thou hast dealt treacherously: yet is she thy companion, and the wife of thy covenant. …
+“The Lord hath been witness between thee and the wife of thy youth, against whom thou hast dealt treacherously: yet is she thy companion, and the wife of thy covenant. …
 
 “Therefore take heed to your spirit, and let none deal treacherously against the wife of his youth.” ([[Malachi 2.14|Mal. 2:14–15]][[Malachi 2.15|]].)
 
@@ -80,17 +82,12 @@ The ideal marriage is the faithfulness of a man and a woman to each other, a fai
 
 It is a privilege indeed to live our life with the wife of our youth, to enjoy the golden years together—neither objecting to the wrinkles nor the gray hair—but to continue acquiring a depth of love, oneness, and wisdom which can be shared with each other now and throughout all eternity.
 
-Marriage is sustained by faith and knowledge of its divine establishment, and is sustained daily by the energy of love. A wise man explained, “When the satisfaction or the security of another person becomes as significant to one as one’s own satisfaction and security then the state of love exists.” (Harry Stack Sullivan, *Concepts of Modern Psychiatry,* 2d ed., New York: W. W. Norton and Co., 1961, p. 42.)
+Marriage is sustained by faith and knowledge of its divine establishment, and is sustained daily by the energy of love. A wise man explained, “When the satisfaction or the security of another person becomes as significant to one as one’s own satisfaction and security then the state of love exists.” (Harry Stack Sullivan, *Concepts of Modern Psychiatry,* 2d ed., New York: W. W. Norton and Co., 1961, p. 42.)
 
-A strong, shared conviction that there is something eternally precious about a marriage relationship builds faith to resist evil. Marriage should be beautiful and fulfilling, with joy beyond our fondest dreams, for “neither is the man without the woman, neither the woman without the man, in the Lord.” ([[1 Corinthians 11.11|1 Cor. 11:11]].)
+A strong, shared conviction that there is something eternally precious about a marriage relationship builds faith to resist evil. Marriage should be beautiful and fulfilling, with joy beyond our fondest dreams, for “neither is the man without the woman, neither the woman without the man, in the Lord.” ([[1 Corinthians 11.11|1 Cor. 11:11]].)
 
 Latter-day Saints need not divorce—there are solutions to marriage problems. If, as husband and wife, you are having serious misunderstandings or if you feel some strain or tension building up in your marriage, you should humbly get on your knees together and ask God our Father, with a sincere heart and real intent, to lift the darkness that is over your relationship, that you may receive the needed light, see your errors, repent of your wrongs, forgive each other, and receive each unto yourselves as you did in the beginning. I solemnly assure you that God lives and will answer your humble pleas, for he has said, “Ye shall ask whatsoever you will in the name of Jesus and it shall be done.” ([[D&C 50.29|D&C 50:29]].) In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Divorce #Marriage

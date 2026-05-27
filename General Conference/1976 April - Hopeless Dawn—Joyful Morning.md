@@ -1,12 +1,14 @@
 # Hopeless Dawn—Joyful Morning
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1976/04/hopeless-dawn-joyful-morning?lang=eng)
 
-I am truly honored to follow at this pulpit the President of the Church, even the prophet of God, Spencer W. Kimball. My thoughts today have been centered on the land of his forebears, even Great Britain.
+I am truly honored to follow at this pulpit the President of the Church, even the prophet of God, Spencer W. Kimball. My thoughts today have been centered on the land of his forebears, even Great Britain.
 
 London, England, is steeped in history. Who has not heard of Trafalgar Square, Buckingham Palace, Big Ben, Westminster Abbey, or the River Thames? Of lesser renown, yet priceless in value, are the truly magnificent galleries of art situated in this city of culture.
 
@@ -34,11 +36,11 @@ In reality, every thoughtful person has asked himself the universal question, be
 
 “That they were graven with an iron pen and lead in the rock for ever!
 
-“For I know that my redeemer liveth, and that he shall stand at the latter day upon the earth. …
+“For I know that my redeemer liveth, and that he shall stand at the latter day upon the earth. …
 
 “In my flesh shall I see God.” ([[Job 19.23|Job 19:23–26]][[Job 19.24|]][[Job 19.25|]][[Job 19.26|]].)
 
-Few statements in scripture reveal so clearly a divine truth as does Paul’s epistle to the Corinthians: “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
+Few statements in scripture reveal so clearly a divine truth as does Paul’s epistle to the Corinthians: “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].)
 
 Frequently, death comes as an intruder. It is an enemy that suddenly appears in the midst of life’s feast, putting out its lights and gaiety. It visits the aged as they walk on faltering feet. Its summons is heard by those who have scarcely reached midway in life’s journey, and often it hushes the laughter of little children. Death lays its heavy hand upon those dear to us and at times leaves us baffled and wondering. In certain situations, as in great suffering and illness, death comes as an angel of mercy. But for the most part, we think of it as the enemy of human happiness.
 
@@ -50,7 +52,7 @@ But what of today? Is there comfort for the grieving heart? Does God remember st
 
 Not far from this tabernacle there lived two sisters. Each had two handsome sons. Each had a loving husband. Each lived in comfort, prosperity, and good health. Then the grim reaper visited their homes. First, each lost a son; then the husband and father. Friends visited; words brought a measure of comfort; but grief continued unrelieved.
 
-The years passed. Hearts remained broken. The two sisters sought and achieved seclusion. They shut themselves off from the world which surrounded them. Alone they remained with their remorse. Then there came to a latter-day prophet of God, who knew well these two sisters, the inspiration of the Lord which directed him to their plight. Elder Harold B. Lee left his busy office and visited the penthouse home of the lonely widows. He listened to their pleadings. He felt the sorrow of their hearts. Then he called them to the service of God and to mankind. Each looked outward into the lives of others and upward into the face of God. Peace replaced turmoil. Confidence dispelled despair. God had once again remembered the widow and, through a prophet, brought divine comfort.
+The years passed. Hearts remained broken. The two sisters sought and achieved seclusion. They shut themselves off from the world which surrounded them. Alone they remained with their remorse. Then there came to a latter-day prophet of God, who knew well these two sisters, the inspiration of the Lord which directed him to their plight. Elder Harold B. Lee left his busy office and visited the penthouse home of the lonely widows. He listened to their pleadings. He felt the sorrow of their hearts. Then he called them to the service of God and to mankind. Each looked outward into the lives of others and upward into the face of God. Peace replaced turmoil. Confidence dispelled despair. God had once again remembered the widow and, through a prophet, brought divine comfort.
 
 The darkness of death can ever be dispelled by the light of revealed truth. “I am the resurrection, and the life,” spoke the Master. “He that believeth in me, though he were dead, yet shall he live:
 
@@ -60,7 +62,7 @@ This reassurance, yes, even holy confirmation of life beyond the grave, could we
 
 “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.” ([[John 14.27|John 14:27]].)
 
-“In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you …
+“In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you …
 
 “That where I am, there ye may be also.” ([[John 14.2|John 14:2–3]][[John 14.3|]].)
 
@@ -70,17 +72,17 @@ The reality of the resurrection was voiced by the martyr Stephen as he looked up
 
 Saul, on the road to Damascus, had a vision of the risen, exalted Christ. Later, as Paul, defender of truth and fearless missionary in the service of the Master, he bore witness of the risen Lord as he declared to the saints at Corinth:
 
-“Christ died for our sins according to the scriptures. …
+“Christ died for our sins according to the scriptures. …
 
-“He was buried, and … he rose again the third day according to the scriptures. …
+“He was buried, and … he rose again the third day according to the scriptures. …
 
 “He was seen of Cephas, then of the twelve:
 
-“After that, he was seen of above five hundred brethren at once. …
+“After that, he was seen of above five hundred brethren at once. …
 
 “He was seen of James; then of all the apostles.
 
-“And last of all he was seen of me.” ([[1 Corinthians 15.3|1 Cor. 15:3–8]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]].)
+“And last of all he was seen of me.” ([[1 Corinthians 15.3|1 Cor. 15:3–8]][[1 Corinthians 15.4|]][[1 Corinthians 15.5|]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]].)
 
 In our dispensation, this same testimony was spoken boldly by the Prophet Joseph Smith, as he and Sidney Rigdon testified:
 
@@ -105,8 +107,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Death #Hope #Resurrection

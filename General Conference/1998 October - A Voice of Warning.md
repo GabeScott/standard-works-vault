@@ -1,5 +1,7 @@
 # A Voice of Warning
 
+Gordon B. Hinckley
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -36,7 +38,7 @@ Now, I don’t know how the crowds will be handled in the world to come. But I s
 
 When I think of him, and when I think of that widow I baptized and her family who will now be sealed to her and to each other, I want to do better. I want to increase my power to invite people to be taught. With that desire and with faith that God will help us, we will do better. It isn’t hard to see how.
 
-Love always comes first. A single act of kindness will seldom be enough. The Lord described the love we must feel, and that those we invite must recognize in us, with words like these: “Charity suffereth long,” and it “beareth all things, believeth all things, hopeth all things, endureth all things” ([[1 Corinthians 13.4|1 Cor. 13:4, 7]][[1 Corinthians 13.7|]]).
+Love always comes first. A single act of kindness will seldom be enough. The Lord described the love we must feel, and that those we invite must recognize in us, with words like these: “Charity suffereth long,” and it “beareth all things, believeth all things, hopeth all things, endureth all things” ([[1 Corinthians 13.4|1 Cor. 13:4, 7]][[1 Corinthians 13.7|]]).
 
 I’ve seen what “suffereth long” and “endureth all things” mean. A family moved into a house near us. The home was new, so I was part of the crew of Latter-day Saints who spent a number of nights putting in landscaping. I remember the last night, standing next to the husband of the family as we finished. He surveyed our work and said to us standing nearby, “This is the third yard you Mormons have put in for us, and I think this is the best.” And then he quietly but firmly told me of the great satisfaction he got from membership in his own church, a conversation we had often in the years he lived there.
 
@@ -66,17 +68,12 @@ That assurance was given to the first missionaries in the Church and to missiona
 
 His is the perfect example for what we are to do. You have felt His love and His caring, even when you did not respond, as those you approach with the gospel may not respond. Time after time He has invited you to be taught by His servants. You may not have recognized that in the visits of home teachers and visiting teachers or in a bishop’s phone call, but those were His invitations to be helped and taught. And the Lord has always made consequences clear and then allowed us to choose for ourselves.
 
-His servant Lehi taught his sons what has always been true for all of us: “And now, my sons, I would that ye should look to the great Mediator, and hearken unto his great commandments; and be faithful unto his words, and choose eternal life, according to the will of his Holy Spirit” ([[2 Nephi 2.28|2 Ne. 2:28]]).
+His servant Lehi taught his sons what has always been true for all of us: “And now, my sons, I would that ye should look to the great Mediator, and hearken unto his great commandments; and be faithful unto his words, and choose eternal life, according to the will of his Holy Spirit” ([[2 Nephi 2.28|2 Ne. 2:28]]).
 
-And then from Jacob this encouragement to meet your obligation to testify, as you must, that the choice to be taught by the missionaries is to enter the way toward eternal life, the greatest of all the gifts of God: “Therefore, cheer up your hearts, and remember that ye are free to act for yourselves—to choose the way of everlasting death or the way of eternal life” ([[2 Nephi 10.23|2 Ne. 10:23]]).
+And then from Jacob this encouragement to meet your obligation to testify, as you must, that the choice to be taught by the missionaries is to enter the way toward eternal life, the greatest of all the gifts of God: “Therefore, cheer up your hearts, and remember that ye are free to act for yourselves—to choose the way of everlasting death or the way of eternal life” ([[2 Nephi 10.23|2 Ne. 10:23]]).
 
 I testify that only accepting and living the restored gospel of Jesus Christ brings the peace the Lord promised in this life and the hope of eternal life in the world to come. I testify that we have been given the privilege and the obligation to offer the truth and the choices which lead to those blessings to our Heavenly Father’s children, who are our brothers and our sisters. Jesus is the Christ, He lives, and this is His work. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Book_Of_Mormon #Example #Family #Jesus_Christ #Love #Missionary_Work #Morality #Neighbors #Ordinances #Temples #Testimony

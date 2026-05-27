@@ -1,6 +1,8 @@
 # We’ll Ascend Together
 
-By Linda K. Burton - *Relief Society General President*
+Cheryl A. Esplin
+
+By Linda K. Burton - *Relief Society General President*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -10,13 +12,13 @@ By Linda K. Burton - *Relief Society General President*
 
 Next to the inspiring talks, music, and prayers that always touch our hearts during general conference, I have been told by many sisters that what they love most is watching the First Presidency and Quorum of the Twelve as they exit this podium with their eternal companions. And don’t we all enjoy hearing the Brethren tenderly express their love for them?
 
-Speaking about his wife, Donna, President Boyd K. Packer said, “Because of the office I hold, I have a solemn obligation to tell the truth: She’s perfect.”[^1]
+Speaking about his wife, Donna, President Boyd K. Packer said, “Because of the office I hold, I have a solemn obligation to tell the truth: She’s perfect.”[^1]
 
-“She is the sunshine of my life,”[^2] said President Dieter F. Uchtdorf of his wife, Harriet.
+“She is the sunshine of my life,”[^2] said President Dieter F. Uchtdorf of his wife, Harriet.
 
-President Henry B. Eyring, referring to his wife, Kathleen, said, “She \[is\] a person who has always made me want to be the very best that I can be.”[^3]
+President Henry B. Eyring, referring to his wife, Kathleen, said, “She \[is\] a person who has always made me want to be the very best that I can be.”[^3]
 
-And President Thomas S. Monson, speaking of his beloved Frances, said, “She was the love of my life, my trusted confidant, and my closest friend. To say that I miss her does not begin to convey the depth of my feelings.”[^4]
+And President Thomas S. Monson, speaking of his beloved Frances, said, “She was the love of my life, my trusted confidant, and my closest friend. To say that I miss her does not begin to convey the depth of my feelings.”[^4]
 
 I too would like to express my love for my beloved companion, Craig. He is a precious gift to me! Referring to my husband, a cherished and sacred phrase in my patriarchal blessing promises that my life and the lives of my children will “be well in his keeping.” It is clear to me that Craig is the fulfillment of that promise. Borrowing from the words of Mark Twain, I say that “life without \[Craig\] would not be life.”[^5] I love him, heart and soul!
 
@@ -36,7 +38,7 @@ Later in the funeral, the oldest son tearfully expressed that all he had ever ho
 
 President Ezra Taft Benson said:
 
-“Oh, husbands and fathers in Israel, you can do so much for the salvation and exaltation of your families! …
+“Oh, husbands and fathers in Israel, you can do so much for the salvation and exaltation of your families! …
 
 “Remember your sacred calling as a father in Israel—your most important calling in time and eternity—a calling from which you will never be released.”
 
@@ -48,11 +50,11 @@ It must be difficult, at best, for covenant men to live in a world that not only
 
 ## Lifting and Helping in Our Complementary Roles
 
-Brothers and sisters, we need each other! As covenant-keeping women and men, we need to lift each other and help each other become the people the Lord would have us become. And we need to work together to lift the rising generation and help them reach their divine potential as heirs of eternal life. We could do as Elder Robert D. Hales and his wife, Mary, have done and follow the proverb “Thee lift me and I’ll lift thee, and we’ll ascend together.”[^9]
+Brothers and sisters, we need each other! As covenant-keeping women and men, we need to lift each other and help each other become the people the Lord would have us become. And we need to work together to lift the rising generation and help them reach their divine potential as heirs of eternal life. We could do as Elder Robert D. Hales and his wife, Mary, have done and follow the proverb “Thee lift me and I’ll lift thee, and we’ll ascend together.”[^9]
 
 We know from the scriptures that “it is not good that … man should be alone.” That is why our Heavenly Father made “an help meet for him.”[^10] The phrase *help meet* means “a helper suited to, worthy of, or corresponding to him.”[^11] For example, our two hands are similar to each other but not exactly the same. In fact, they are exact opposites, but they complement each other and are suited to each other. Working together, they are stronger.[^12]
 
-In a chapter about families, the Church handbook contains this statement: “The nature of male and female spirits is such that they complete each other.”[^13] Please note that it does not say “compete with each other” but “complete each other”! We are here to help, lift, and rejoice with each other as we try to become our very best selves. Sister Barbara B. Smith wisely taught, “There is so much more of happiness to be had when we can rejoice in another’s successes and not just in our own.”[^14] When we seek to “complete” rather than “compete,” it is so much easier to cheer each other on!
+In a chapter about families, the Church handbook contains this statement: “The nature of male and female spirits is such that they complete each other.”[^13] Please note that it does not say “compete with each other” but “complete each other”! We are here to help, lift, and rejoice with each other as we try to become our very best selves. Sister Barbara B. Smith wisely taught, “There is so much more of happiness to be had when we can rejoice in another’s successes and not just in our own.”[^14] When we seek to “complete” rather than “compete,” it is so much easier to cheer each other on!
 
 When I was a young mother of several small children, at the end of days filled with diapering, dish washing, and disciplining, no one sang more emphatically the Primary song “I’m so glad when daddy comes home.”[^15] I’m sad to admit, however, I was not always cheerful when Craig seemed to bounce through the door after a hard day of work. He always greeted each of us with a hug and kiss and turned many difficult and sometimes disastrous days into delightful daddy times. I wish I had been a little less preoccupied with the endless list of to-dos still to be done and had more wisely focused, like he did, on things that mattered most. I would have stopped more often and enjoyed sacred family time and would have thanked him more often for blessing our lives!
 
@@ -74,9 +76,9 @@ We might test ourselves by asking a few questions. With a little adaptation, the
 
 5. When was the last time I chose to be happy rather than demanding to be “right”?
 
-Now, if any of these questions lead you to squirm or feel a tinge of guilt, remember that Elder David A. Bednar has taught that “guilt is to our spirit what pain is to our body—a warning of danger and a protection from additional damage.”[^17]
+Now, if any of these questions lead you to squirm or feel a tinge of guilt, remember that Elder David A. Bednar has taught that “guilt is to our spirit what pain is to our body—a warning of danger and a protection from additional damage.”[^17]
 
-I invite each of us to heed Elder Jeffrey R. Holland’s heartfelt plea: “Brothers and sisters, in this long eternal quest to be more like our Savior, may we try to be ‘perfect’ men and women in at least this one way now—by offending not in word, or more positively put, by speaking with a new tongue, the tongue of angels.”[^18]
+I invite each of us to heed Elder Jeffrey R. Holland’s heartfelt plea: “Brothers and sisters, in this long eternal quest to be more like our Savior, may we try to be ‘perfect’ men and women in at least this one way now—by offending not in word, or more positively put, by speaking with a new tongue, the tongue of angels.”[^18]
 
 As I have prepared for this opportunity today, the Spirit has taught me, and I have committed to speak words of kindness more often to my cherished companion and about him, to lift the men in my family and express gratitude for the ways they fulfill their divine and complementary roles. And I have committed to follow the proverb “Thee lift me and I’ll lift thee, and we’ll ascend together.”
 
@@ -87,41 +89,45 @@ I know that through the enabling power of the Atonement of Jesus Christ and our 
 
 
 
-[^1]: Boyd K. Packer, in “Donna Smith Packer Receives Family History Certificate from BYU,”  
+[^1]: Boyd K. Packer, in “Donna Smith Packer Receives Family History Certificate from BYU,” 
 
 
 
-news.byu.edu/archive12-jun-packer.aspx  
+
+news.byu.edu/archive12-jun-packer.aspx 
+
 
 
 
 .
 
-[^2]: Dieter F. Uchtdorf, in Jeffrey R. Holland, “Elder Dieter F. Uchtdorf: On to New Horizons,” *Ensign,* Mar. 2005, 12; *Liahona,* Mar. 2005, 10.
+[^2]: Dieter F. Uchtdorf, in Jeffrey R. Holland, “Elder Dieter F. Uchtdorf: On to New Horizons,” *Ensign,* Mar. 2005, 12; *Liahona,* Mar. 2005, 10.
 
-[^3]: Henry B. Eyring, in Gerald N. Lund, “Elder Henry B. Eyring: Molded by ‘Defining Influences,’” *Ensign,* Sept. 1995, 14; *Liahona,* Apr. 1996, 31.
+[^3]: Henry B. Eyring, in Gerald N. Lund, “Elder Henry B. Eyring: Molded by ‘Defining Influences,’” *Ensign,* Sept. 1995, 14; *Liahona,* Apr. 1996, 31.
 
-[^4]: Thomas S. Monson, “I Will Not Fail Thee, nor Forsake Thee,” *Ensign* or *Liahona,* Nov. 2013, 85.
+[^4]: Thomas S. Monson, “I Will Not Fail Thee, nor Forsake Thee,” *Ensign* or *Liahona,* Nov. 2013, 85.
 
 [^5]: Mark Twain, *Eve’s Diary* (1905), 107.
 
-[^6]: Boyd K. Packer, “The Power of the Priesthood,” *Ensign* or *Liahona,* May 2010, 9.
+[^6]: Boyd K. Packer, “The Power of the Priesthood,” *Ensign* or *Liahona,* May 2010, 9.
 
 [^7]: Ezra Taft Benson, “To the Fathers in Israel,” *Ensign,* Nov. 1987, 51, 50.
 
-[^8]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^8]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^9]: See Robert D. Hales, [“Strengthening Families: Our Sacred Duty,”](https://churchofjesuschrist.org/study/ensign/1999/05/strengthening-families-our-sacred-duty?lang=eng) *Ensign,* May 1999, 34; *Liahona,* July 1999, 40; see also LaRene Gaunt, [“Elder Robert D. Hales: ‘Return with Honor,’”](https://churchofjesuschrist.org/study/ensign/1994/07/elder-robert-d-hales-return-with-honor?lang=eng) *Ensign,* July 1994, 51; *Liahona,* Apr. 1995, 31.
+[^9]: See Robert D. Hales, “[Strengthening Families: Our Sacred Duty](https://www.churchofjesuschrist.org/study/ensign/1999/05/strengthening-families-our-sacred-duty?lang=eng),” *Ensign,* May 1999, 34; *Liahona,* July 1999, 40; see also LaRene Gaunt, “[Elder Robert D. Hales: ‘Return with Honor,’](https://www.churchofjesuschrist.org/study/ensign/1994/07/elder-robert-d-hales-return-with-honor?lang=eng)” *Ensign,* July 1994, 51; *Liahona,* Apr. 1995, 31.
 
 [^10]: [[Genesis 2.18|Genesis 2:18]].
 
 [^11]: [[Genesis 2.18|Genesis 2:18]], footnote *b.*
 
-[^12]: See Bruce K. Satterfield, “The Family under Siege: The Role of Man and Woman” (presentation given at Ricks College Education Week, June 7, 2001), 4;  
+[^12]: See Bruce K. Satterfield, “The Family under Siege: The Role of Man and Woman” (presentation given at Ricks College Education Week, June 7, 2001), 4; 
 
 
 
-emp.byui.edu/SATTERFIELDB/PDF/RoleManWoman2.pdf  
+
+emp.byui.edu/SATTERFIELDB/PDF/RoleManWoman2.pdf 
+
 
 
 
@@ -129,18 +135,13 @@ emp.byui.edu/SATTERFIELDB/PDF/RoleManWoman2.pdf
 
 [^13]: *Handbook 2: Administering the Church* (2010), 1.3.1.
 
-[^14]: Barbara B. Smith, “Hearts So Similar,” *Ensign,* May 1982, 97.
+[^14]: Barbara B. Smith, “Hearts So Similar,” *Ensign,* May 1982, 97.
 
 [^15]: “Daddy’s Homecoming,” *Children’s Songbook,* 210.
 
 [^16]: “Let Us Oft Speak Kind Words,” *Hymns,* no. 232.
 
-[^17]: David A. Bednar, “We Believe in Being Chaste,” *Ensign* or *Liahona,* May 2013, 44.
+[^17]: David A. Bednar, “We Believe in Being Chaste,” *Ensign* or *Liahona,* May 2013, 44.
 
-[^18]: Jeffrey R. Holland, “The Tongue of Angels,” *Ensign* or *Liahona,* May 2007, 18.
+[^18]: Jeffrey R. Holland, “The Tongue of Angels,” *Ensign* or *Liahona,* May 2007, 18.
 
-
-
-
-
-#Communication #Fatherhood #Kindness #Love #Marriage #Safety

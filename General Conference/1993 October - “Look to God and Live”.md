@@ -1,5 +1,7 @@
 # “Look to God and Live”
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -14,13 +16,13 @@ We know that some of the world’s most painful suffering is done in silence, in
 
 There is an increasing feeling that time is out of joint, that no one seems wise enough or strong enough to set it right. In many cases, governments are in office but not in power, community values and neighborhood pride are often superficial or nonexistent, and too frequently the home is an alarming failure.
 
-Furthermore, many of the social and political medicines of our day regularly miss the mark, so those would-be physicians stand by the bedside of “feverish and delirious humanity, outwitted, discredited, dumbfounded … , not knowing in which direction deliverance must be sought” (Charles Edward Jefferson, *The Character of Jesus* \[Salt Lake City: Parliament Publishers, 1968\], p. 17).
+Furthermore, many of the social and political medicines of our day regularly miss the mark, so those would-be physicians stand by the bedside of “feverish and delirious humanity, outwitted, discredited, dumbfounded … , not knowing in which direction deliverance must be sought” (Charles Edward Jefferson, *The Character of Jesus* \[Salt Lake City: Parliament Publishers, 1968\], p. 17).
 
 If I may be so bold this morning, may I suggest “direction for deliverance”? In words of one syllable, we need to turn to God. We need to reaffirm our faith, and we need to reassert our hope. Where necessary we need to repent, and certainly we need to pray. It is the absence of spiritual fidelity that has led us to moral disarray in the twilight of the twentieth century. We have sown the wind of religious skepticism, and we are reaping the whirlwind of existential despair.
 
 Without our religious faith, without recognizing the reality and necessity of spiritual life, the world makes no sense, and a nonsense world is a place of horror. Only if the world has meaning at a spiritual level is it possible for human beings to keep going, to keep trying. As Hamlet so wisely implored, so should we: “Angels and ministers of grace defend us!” (act 1, scene 4, line 39).
 
-My testimony today is of the angels and ministers of grace who will always defend us if, as the prophet Alma commanded us, we “take care of … sacred things,” we “look to God and live” ([[Alma 37.47|Alma 37:47]]). More prayer and humility, more faith and forgiveness, more repentance and revelation and reinforcement from heaven—these are where we seek remedy and deliverance for “feverish and delirious humanity” (*The Character of Jesus,* p. 17).
+My testimony today is of the angels and ministers of grace who will always defend us if, as the prophet Alma commanded us, we “take care of … sacred things,” we “look to God and live” ([[Alma 37.47|Alma 37:47]]). More prayer and humility, more faith and forgiveness, more repentance and revelation and reinforcement from heaven—these are where we seek remedy and deliverance for “feverish and delirious humanity” (*The Character of Jesus,* p. 17).
 
 I testify this morning of God’s limitless love for his children, of his unquenchable desire to help us heal our wounds, individually and collectively. He *is* our Father, and Wordsworth wrote more than he knew when he said we came to earth “trailing clouds of glory … from God, who is our home” (“Ode: Intimations of Immortality,” lines 64–65). But in far too many cases we find no modern belief in a Heavenly Father, and when there is a belief, it is too often an erroneous one. God is not dead, and he is not an absentee landlord. God is not uncaring, or capricious, or cantankerous. Above all, he is not some sort of divine umpire trying to call us out at third base.
 
@@ -36,11 +38,11 @@ So much of what so many think about God (if they think about him at all) must ma
 
 “And unto \[them\] have I … given commandment, that they should love one another, and that they should choose me, their Father; but behold, they are without affection, and they hate their own blood; …
 
-“… The whole heavens … weep over them … ; wherefore should not the heavens weep, seeing these \[who\] suffer?” ([[Moses 7.28|Moses 7:28, 29, 32–33, 37]][[Moses 7.29|]][[Moses 7.32|]][[Moses 7.33|]][[Moses 7.37|]]).
+“… The whole heavens … weep over them … ; wherefore should not the heavens weep, seeing these \[who\] suffer?” ([[Moses 7.28|Moses 7:28, 29, 32–33, 37]][[Moses 7.29|]][[Moses 7.32|]][[Moses 7.33|]][[Moses 7.37|]]).
 
 Angels and ministers of grace to defend us? They are all about us, and their holy sovereign, the Father of us all, is divinely anxious to bless us this very moment. Mercy is his mission, and love is his only labor. John Donne said once: “We ask … our daily bread, and God never says, ‘You should have come yesterday.’ \[No, he says,\] ‘Today if you will hear \[my\] voice, today \[I\] will hear \[yours\].’ \[If\] thou hast been benighted till now, wintered and frozen, clouded and eclipsed, damp and benumbed, smothered and stupefied till now, … God \[yet\] comes to thee, not as in the dawning of the day, … but as the sun at \[full\] noon, to \[banish\] all shadows” (in *The Sermons of John Donne,* ed. Evelyn M. Simpson and George R. Potter, 10 vols. \[Berkeley: University of California Press, 1953\], 6:172; spelling and punctuation modernized).
 
-Alma taught that truth to his son Helaman, entreating him to put his trust in God. He said that God was “quick to hear the cries of his people, and \[quick\] to answer their prayers.” Out of very personal experience, Alma testified, “I have been supported \[in\] trials and troubles \[and afflictions\] of every kind … ; God has delivered me I do put my trust in him, and he will still deliver me” ([[Alma 9.26|Alma 9:26]]; [[Alma 36.27|36:27]]).
+Alma taught that truth to his son Helaman, entreating him to put his trust in God. He said that God was “quick to hear the cries of his people, and \[quick\] to answer their prayers.” Out of very personal experience, Alma testified, “I have been supported \[in\] trials and troubles \[and afflictions\] of every kind … ; God has delivered me I do put my trust in him, and he will still deliver me” ([[Alma 9.26|Alma 9:26]]; [[Alma 36.27|36:27]]).
 
 My witness this morning is that he will deliver all the rest of us too, that he will deliver the entire human family if we will but “take care of sacred things,” if we will “look to God and live” ([[Alma 37.47|Alma 37:47]]).
 
@@ -77,8 +79,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Faith #Jesus_Christ #Love #Testimony

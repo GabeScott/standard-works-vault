@@ -1,10 +1,12 @@
 # Temple Worship: The Source of Strength and Power in Times of Need
 
+Thomas S. Monson
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
 
->*When we keep the temple covenants we have made and when we live righteously … , we have no reason to worry or to feel despondent.*
+>*When we keep the temple covenants we have made and when we live righteously … , we have no reason to worry or to feel despondent.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/04/temple-worship-the-source-of-strength-and-power-in-times-of-need?lang=eng)
 
@@ -85,8 +87,3 @@ This is the work of the Lord. Jesus Christ lives. This is His Church. I am a wit
 
 [^2]: Sarah DeArmon Pea Rich, “Autobiography, 1885–93,” Church History Library, Salt Lake City, Utah, 66; spelling, punctuation, and capitalization standardized.
 
-
-
-
-
-#Family #Preparation #Temples

@@ -1,5 +1,7 @@
 # A 12-Year-Old Deacon
 
+Dieter F. Uchtdorf
+
 By Elder John M. Madsen - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -8,9 +10,9 @@ By Elder John M. Madsen - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2008/04/a-12-year-old-deacon?lang=eng)
 
-My beloved brethren of the priesthood, as I begin, I would like to direct my remarks to each 12-year-old deacon attending this general priesthood session. Wherever you are, I want to acknowledge your presence and to tell or remind you of the experience that President Gordon B. Hinckley had when he was, like you are, a 12-year-old deacon.
+My beloved brethren of the priesthood, as I begin, I would like to direct my remarks to each 12-year-old deacon attending this general priesthood session. Wherever you are, I want to acknowledge your presence and to tell or remind you of the experience that President Gordon B. Hinckley had when he was, like you are, a 12-year-old deacon.
 
-From his biography we read: “Not long after he was ordained a deacon, he attended his first stake priesthood meeting with his father. … He felt a little out of place as he found a seat on the back row of the Tenth Ward chapel while \[his father\] (who was serving in the stake presidency) took his place on the stand. To open the meeting, the three or four hundred men present stood and sang William W. Phelps’s triumphant anthem … ‘Praise to the man who communed with Jehovah! / Jesus anointed that Prophet and Seer. / Blessed to open the last dispensation, / Kings shall extol him, and nations revere.’”
+From his biography we read: “Not long after he was ordained a deacon, he attended his first stake priesthood meeting with his father. … He felt a little out of place as he found a seat on the back row of the Tenth Ward chapel while \[his father\] (who was serving in the stake presidency) took his place on the stand. To open the meeting, the three or four hundred men present stood and sang William W. Phelps’s triumphant anthem … ‘Praise to the man who communed with Jehovah! / Jesus anointed that Prophet and Seer. / Blessed to open the last dispensation, / Kings shall extol him, and nations revere.’”
 
 Reflecting back on that experience, President Hinckley said: “Something happened within me as I heard those men of faith sing. It touched my heart. It gave me a feeling that was difficult to describe. I felt a great moving power, both emotional and spiritual. I had never had it previously in terms of any Church experience. There came into my heart a conviction that the man of whom they sang was really a prophet of God. I knew then, by the power of the Holy Ghost, that Joseph Smith was indeed a prophet of God.”[^1]
 
@@ -22,7 +24,7 @@ As you look at these five deacons, what do you see? Now, as I read statements by
 
 President Joseph Fielding Smith declared: “Our young people … are the nobility of heaven, a choice and chosen generation who have a divine destiny. Their spirits have been reserved to come forth in this day when the gospel is on earth, and when the Lord needs valiant servants to carry on his great latter-day work.”[^3]
 
-President Spencer W. Kimball declared, “We are rearing a royal generation … who have special things to do.”[^4]
+President Spencer W. Kimball declared, “We are rearing a royal generation … who have special things to do.”[^4]
 
 In light of these prophetic declarations, if we expand our vision beyond five deacons on a bench to include all of the young men of the Aaronic Priesthood, then what can you see?
 
@@ -42,18 +44,18 @@ Now, as to how He was able to fulfill His mission and destiny, consider these wo
 
 That each one of us, as sons of God,[^22] can fulfill our mission and destiny is made plain by these words of the Lord to the Prophet Joseph Smith: “Verily, thus saith the Lord: It shall come to pass that every soul who forsaketh his sins and cometh unto me, and calleth on my name, and obeyeth my voice, and keepeth my commandments … may come unto the Father in my name, and in due time receive of his fulness.”[^23]
 
-I so testify, as I also bear my witness that President Thomas S. Monson is indeed a prophet of God and that he and his counselors in the First Presidency and the Quorum of the Twelve Apostles are prophets, seers, and revelators, in the sacred name of Jesus Christ, amen.
+I so testify, as I also bear my witness that President Thomas S. Monson is indeed a prophet of God and that he and his counselors in the First Presidency and the Quorum of the Twelve Apostles are prophets, seers, and revelators, in the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: In Sheri Dew, *Go Forward with Faith: The Biography of Gordon B. Hinckley* (1996), 35–36.
+[^1]: In Sheri Dew, *Go Forward with Faith: The Biography of Gordon B. Hinckley* (1996), 35–36.
 
-[^2]: “President Gordon B. Hinckley,” *In Memoriam: President Gordon B. Hinckley, 1910–2008* (a supplement to the *Liahona,* Apr. 2008, 3; a supplement to the *Ensign,* Mar. 2008, 3).
+[^2]: “President Gordon B. Hinckley,” *In Memoriam: President Gordon B. Hinckley, 1910–2008* (a supplement to the *Liahona,* Apr. 2008, 3; a supplement to the *Ensign,* Mar. 2008, 3).
 
 [^3]: Joseph Fielding Smith, in Conference Report, Apr. 1970, 6.
 
-[^4]: Spencer W. Kimball, in Conference Report, Apr. 1976, 69; or *Ensign,* May 1976, 45.
+[^4]: Spencer W. Kimball, in Conference Report, Apr. 1976, [[1976 April - Boys Need Heroes Close By.md|69]]; or *Ensign,* May 1976, 45.
 
 [^5]: [[Revelation 14.6|Revelation 14:6]]; [[D&C 68.1|D&C 68:1]]; see also [[D&C 133.7|D&C 133:7–8]][[D&C 133.8|]].
 
@@ -63,7 +65,7 @@ I so testify, as I also bear my witness that President Thomas S. Monson is inde
 
 [^8]: See [[Luke 2.41|Luke 2:41–42]][[Luke 2.42|]].
 
-[^9]: See [[Matthew 16.16|Matthew 16:16]]; [[2 Nephi 25.19|2 Nephi 25:19–20]][[2 Nephi 25.20|]]; [[Mosiah 3.8|Mosiah 3:8]]; [[Mosiah 4.2|4:2]]; [[Alma 5.48|Alma 5:48]]; [[Helaman 5.9|Helaman 5:9]]; [[3 Nephi 5.13|3 Nephi 5:13]]; [[3 Nephi 11.10|11:10–11]][[3 Nephi 11.11|]]; [[3 Nephi 20.31|20:31]]; [[D&C 14.9|D&C 14:9]]; [[D&C 68.6|68:6]].
+[^9]: See [[Matthew 16.16|Matthew 16:16]]; [[2 Nephi 25.19|2 Nephi 25:19–20]][[2 Nephi 25.20|]]; [[Mosiah 3.8|Mosiah 3:8]]; [[Mosiah 4.2|4:2]]; [[Alma 5.48|Alma 5:48]]; [[Helaman 5.9|Helaman 5:9]]; [[3 Nephi 5.13|3 Nephi 5:13]]; [[3 Nephi 11.10|11:10–11]][[3 Nephi 11.11|]]; [[3 Nephi 20.31|20:31]]; [[D&C 14.9|D&C 14:9]]; [[D&C 68.6|68:6]].
 
 [^10]: [[D&C 76.41|D&C 76:41]].
 
@@ -79,7 +81,7 @@ I so testify, as I also bear my witness that President Thomas S. Monson is inde
 
 [^16]: [[D&C 20.22|D&C 20:22]].
 
-[^17]: [[2 Nephi 2.18|2 Nephi 2:18]]; [[Ether 8.25|Ether 8:25]]; [[Moses 4.4|Moses 4:4]].
+[^17]: [[2 Nephi 2.18|2 Nephi 2:18]]; [[Ether 8.25|Ether 8:25]]; [[Moses 4.4|Moses 4:4]].
 
 [^18]: [[Helaman 6.30|Helaman 6:30]]; see also [[Mosiah 4.14|Mosiah 4:14]].
 
@@ -91,10 +93,5 @@ I so testify, as I also bear my witness that President Thomas S. Monson is inde
 
 [^22]: See [[Psalms 82.6|Psalm 82:6]]; [[Hosea 1.10|Hosea 1:10]]; [[Romans 8.16|Romans 8:16–17]][[Romans 8.17|]]; [[Hebrews 12.9|Hebrews 12:9]]; [[D&C 11.30|D&C 11:30]]; [[D&C 35.2|35:2]]; [[Moses 6.68|Moses 6:68]].
 
-[^23]: [[D&C 93.1|D&C 93:1, 19]][[D&C 93.19|]]; see also [[John 14.6|John 14:6]]; [[2 Nephi 31.7|2 Nephi 31:7–16]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]]; [[3 Nephi 12.48|3 Nephi 12:48]]; [[3 Nephi 27.27|27:27]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]]; [[D&C 76.92|D&C 76:92–95]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]].
+[^23]: [[D&C 93.1|D&C 93:1, 19]][[D&C 93.19|]]; see also [[John 14.6|John 14:6]]; [[2 Nephi 31.7|2 Nephi 31:7–16]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]]; [[3 Nephi 12.48|3 Nephi 12:48]]; [[3 Nephi 27.27|27:27]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]]; [[D&C 76.92|D&C 76:92–95]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]].
 
-
-
-
-
-#Individual_Worth #Jesus_Christ #Priesthood

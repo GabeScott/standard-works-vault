@@ -1,5 +1,7 @@
 # For I Was Blind, but Now I See
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -26,7 +28,7 @@ The storm abated, the lights returned, but I shall never forget the trek down th
 
 Long ago and at a place far distant, as Jesus passed by He saw a man who was blind from birth. His disciples questioned the Master as to why this person was blind. Had he sinned or had his parents sinned, causing him to have this affliction?
 
-“Jesus answered, Neither hath this man sinned, nor his parents: but that the works of God should be made manifest in him. …
+“Jesus answered, Neither hath this man sinned, nor his parents: but that the works of God should be made manifest in him. …
 
 “As long as I am in the world, I am the light of the world.
 
@@ -78,7 +80,7 @@ When the Prophet Joseph Smith went into a grove of trees made sacred by what occ
 
 After enduring a harrowing experience from an unseen power, Joseph continued:
 
-“I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me. …
+“I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me. …
 
 “… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^12]
 
@@ -146,14 +148,9 @@ That we may ever walk in the footsteps of Jesus Christ is my humble prayer, in H
 
 [^14]: In Conference Report, Oct. 1916, 6.
 
-[^15]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^15]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^16]: [[James 1.22|James 1:22]].
 
 [^17]: From “The Gate of the Year,” in James Dalton Morrison, ed., *Masterpieces of Religious Verse* (1948), 92.
 
-
-
-
-
-#Conversion #Jesus_Christ #Service #Temples

@@ -1,5 +1,7 @@
 # The Eternal Principle of Love
 
+Dallin H. Oaks
+
 By Elder Hugo Montoya - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
@@ -20,7 +22,7 @@ With a smile I said, “Yes, thank you.”
 
 We are willing to help each other because we love each other, and my brother’s needs become my needs, and mine become his. No matter what language my brother speaks or what country he comes from, we love each other because we are brothers, children of the same Father.
 
-When ministering was announced, President Russell M. Nelson said, “We will implement a newer, holier approach to caring for and ministering to others.”[^2] To me, *holier* means more personal, deeper, more like the Savior’s way: “Have love one to another,”[^3] one by one.
+When ministering was announced, President Russell M. Nelson said, “We will implement a newer, holier approach to caring for and ministering to others.”[^2] To me, *holier* means more personal, deeper, more like the Savior’s way: “Have love one to another,”[^3] one by one.
 
 It is not enough to avoid being a stumbling block for others; it is not enough to notice the needy on the road and pass by. Let us take advantage of every opportunity to help our neighbor, even if it is the first and only time we meet him or her in this life.
 
@@ -62,7 +64,7 @@ My wife and I always try to be there for our children at any time, under any con
 
 When I received this call as a General Authority, on the last day before our travel to Salt Lake, all my children and their families were together in our home for a family home evening, where we expressed our love and gratitude. After the lesson, I gave a priesthood blessing to each one of my children. Everyone was in tears. After the blessings, my oldest son expressed words of gratitude on behalf of everyone for the great love that we had given them from the day they were born until then.
 
-Bless your children, whether they are 5 or 50 years old. Be with them; be for them. Although providing is a responsibility established by divine design, we must not forget to share joyful time with our children.
+Bless your children, whether they are 5 or 50 years old. Be with them; be for them. Although providing is a responsibility established by divine design, we must not forget to share joyful time with our children.
 
 Our Heavenly Father’s love for each of His children is real. He is there for each one. I don’t know how He does it, but He does. He and His Firstborn are one in doing the work and glory of the Father “to bring to pass the immortality and eternal life of man.”[^10] They have sent us the Holy Ghost to guide us, to warn us, and to comfort us if necessary.
 
@@ -85,19 +87,19 @@ Jesus is the Christ, the Son of the living God. He lives, and because He lives, 
 
 [^1]: See [[Luke 10.27|Luke 10:27]].
 
-[^2]: Russell M. Nelson, “[[2018 April - Ministering as the Savior Does.md|Ministering]],” *Ensign* or *Liahona*, May 2018, 100.
+[^2]: Russell M. Nelson, “[[2018 April - Ministering.md|Ministering]],” *Ensign* or *Liahona*, May 2018, 100.
 
 [^3]: [[John 13.35|John 13:35]].
 
-[^4]: See [[1 Kings 17.7|1 Kings 17:7]].
+[^4]: See [[1 Kings 17.7|1 Kings 17:7]].
 
-[^5]: See [[1 Nephi 16.18|1 Nephi 16:18]].
+[^5]: See [[1 Nephi 16.18|1 Nephi 16:18]].
 
-[^6]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^6]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^7]: See [[1 Kings 17.10|1 Kings 17:10]].
+[^7]: See [[1 Kings 17.10|1 Kings 17:10]].
 
-[^8]: See [[1 Nephi 16.23|1 Nephi 16:23]].
+[^8]: See [[1 Nephi 16.23|1 Nephi 16:23]].
 
 [^9]: “A Child’s Prayer,” *Children’s Songbook*, 12–13.
 
@@ -105,7 +107,5 @@ Jesus is the Christ, the Son of the living God. He lives, and because He lives, 
 
 [^11]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
+[^12]: [[Matthew 26.39|Matthew 26:39]].
 
-
-
-#Adversity #Jesus_Christ #Love

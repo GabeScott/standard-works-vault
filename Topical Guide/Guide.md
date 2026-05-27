@@ -1,7 +1,6 @@
 # Guide
 
-
-*See also* [[Direct, Direction.md|Direct]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Lead, Led.md|Lead]]; [[Order.md|Order]]
+*See also* [[Direct.md|Direct]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Lead.md|Lead]]; [[Order.md|Order]]
 
 *guiding* his hands wittingly; for Manasseh, [[Genesis 48.14|Genesis 48:14]].
 
@@ -25,10 +24,10 @@ a *guide* of the blind, [[Romans 2.19|Romans 2:19]].
 
 marry, bear children, *guide* the house, [[1 Timothy 5.14|1 Timothy 5:14]].
 
-*guide* you in wisdom's paths, [[Mosiah 2.36|Mosiah 2:36]].
+*guide* you in wisdom’s paths, [[Mosiah 2.36|Mosiah 2:36]].
 
-suffer yourselves to be led by ... blind *guides*, [[Helaman 13.29|Helaman 13:29]].
+suffer yourselves to be led by … blind *guides*, [[Helaman 13.29|Helaman 13:29]].
 
 have taken the Holy Spirit for their *guide*, [[D&C 45.57|D&C 45:57]].
 
-conduct all meetings as they are ... *guided* by the Holy Spirit, [[D&C 46.2|D&C 46:2]].
+conduct all meetings as they are … *guided* by the Holy Spirit, [[D&C 46.2|D&C 46:2]].

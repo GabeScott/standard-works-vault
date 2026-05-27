@@ -1,5 +1,7 @@
 # Keep the Change
 
+Russell M. Nelson
+
 By Becky Craven - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2020 General Conference*
@@ -18,7 +20,7 @@ He gives us much, much more than the value of what we can ever return to Him. So
 
 After hearing the words spoken by King Benjamin, his people cried out, declaring that their hearts had changed, saying, “Because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, … we have no more disposition to do evil, but to do good continually.”[^3] The scriptures do not say that they immediately became perfect; rather, their desire to change compelled them to action. Their change of heart meant putting off the natural man or woman and yielding to the Spirit as they strove to become more like Jesus Christ.
 
-President Henry B. Eyring teaches: “True conversion depends on seeking freely in faith, with great effort and some pain. Then it is the Lord who can grant … the miracle of cleansing and change.”[^4] Combining our effort with the Savior’s ability to change us, we become new creatures.
+President Henry B. Eyring teaches: “True conversion depends on seeking freely in faith, with great effort and some pain. Then it is the Lord who can grant … the miracle of cleansing and change.”[^4] Combining our effort with the Savior’s ability to change us, we become new creatures.
 
 When I was younger, I visualized myself walking along an upward, vertical path toward my goal of eternal life. Each time I did or said something wrong, I felt myself sliding down the path, only to start my journey all over again. It was like landing on that one square in the children’s game Chutes and Ladders that slides you down from the top of the board back to the beginning of the game! It was discouraging! But as I began to understand the doctrine of Christ[^5] and how to apply it daily in my life, I found hope.
 
@@ -55,16 +57,11 @@ I testify that because of Jesus Christ, we *can* change. We can adjust our habit
 
 [^3]: [[Mosiah 5.2|Mosiah 5:2]].
 
-[^4]: Henry B. Eyring, “[We Must Raise Our Sights](https://churchofjesuschrist.org/study/ensign/2004/09/we-must-raise-our-sights?lang=eng&id=p41#p41),” *Ensign,* Sept. 2004, 18.
+[^4]: Henry B. Eyring, “[We Must Raise Our Sights](https://www.churchofjesuschrist.org/study/ensign/2004/09/we-must-raise-our-sights?lang=eng&id=p41#p41),” *Ensign,* Sept. 2004, 18.
 
-[^5]: See [[2 Nephi 31.21|2 Nephi 31:21]]; [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
+[^5]: See [[2 Nephi 31.21|2 Nephi 31:21]]; [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
 
 [^6]: [[Helaman 15.7|Helaman 15:7]].
 
-[^7]: [Young Women theme](https://churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng&id=p4#p4), ChurchofJesusChrist.org.
+[^7]: [Young Women theme](https://www.churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng&id=p4#p4), ChurchofJesusChrist.org.
 
-
-
-
-
-#Repentance

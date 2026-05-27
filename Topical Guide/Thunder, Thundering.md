@@ -1,6 +1,5 @@
 # Thunder, Thundering
 
-
 *See also* [[Lightning.md|Lightning]]
 
 Lord sent *thunder* and hail, [[Exodus 9.23|Exodus 9:23]].
@@ -23,7 +22,7 @@ out of the throne proceeded lightnings and *thunderings*, [[Revelation 4.5|Revel
 
 seven *thunders* uttered their voices, [[Revelation 10.3|Revelation 10:3]].
 
-voice from heaven ... as the voice of a great *thunder*, [[Revelation 14.2|Revelation 14:2]].
+voice from heaven … as the voice of a great *thunder*, [[Revelation 14.2|Revelation 14:2]].
 
 as the voice of mighty *thunderings*, [[Revelation 19.6|Revelation 19:6]].
 
@@ -37,8 +36,8 @@ that he shall yield up the ghost there shall be *thunderings*, [[Helaman 14.21|H
 
 there was terrible *thunder*, [[3 Nephi 8.6|3 Nephi 8:6]].
 
-I called upon you ... by the voice of *thunderings*, [[D&C 43.25|D&C 43:25]].
+I called upon you … by the voice of *thunderings*, [[D&C 43.25|D&C 43:25]].
 
-*thunder* of heaven ... inhabitants of the earth be made to feel the wrath, [[D&C 87.6|D&C 87:6]].
+*thunder* of heaven … inhabitants of the earth be made to feel the wrath, [[D&C 87.6|D&C 87:6]].
 
 cometh the testimony of the voice of *thunderings*, [[D&C 88.90|D&C 88:90]].

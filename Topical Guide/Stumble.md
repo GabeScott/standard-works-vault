@@ -1,11 +1,10 @@
 # Stumble
 
-
 *See also* [[Stumblingblock.md|Stumblingblock]]; [[Stumblingstone.md|Stumblingstone]]
 
 they know not at what they *stumble*, [[Proverbs 4.19|Proverbs 4:19]].
 
-he shall be ... for a stone of *stumbling*, [[Isaiah 8.14|Isaiah 8:14]] ([[1 Peter 2.8|1 Peter 2:8]]).
+he shall be … for a stone of *stumbling*, [[Isaiah 8.14|Isaiah 8:14]] ([[1 Peter 2.8|1 Peter 2:8]]).
 
 they *stumble* in judgment, [[Isaiah 28.7|Isaiah 28:7]].
 
@@ -21,11 +20,11 @@ they *stumbled* at that stumblingstone, [[Romans 9.32|Romans 9:32]].
 
 nor any thing whereby thy brother *stumbleth*, [[Romans 14.21|Romans 14:21]].
 
-stone of *stumbling* ... even to them which *stumble* at the word, [[1 Peter 2.8|1 Peter 2:8]].
+stone of *stumbling* … even to them which *stumble* at the word, [[1 Peter 2.8|1 Peter 2:8]].
 
 none occasion of *stumbling* in him, [[1 John 2.10|1 John 2:10]].
 
-Gentiles are lifted up in the pride ... and have *stumbled*, [[2 Nephi 26.20|2 Nephi 26:20]].
+Gentiles are lifted up in the pride … and have *stumbled*, [[2 Nephi 26.20|2 Nephi 26:20]].
 
 God hath done it, that they may *stumble*, [[Jacob 4.14|Jacob 4:14]].
 

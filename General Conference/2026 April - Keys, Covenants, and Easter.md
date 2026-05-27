@@ -1,5 +1,7 @@
 # Keys, Covenants, and Easter
 
+Dallin H. Oaks
+
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -46,7 +48,7 @@ One of the many special spiritual experiences I had with my dear friend and belo
 
 Starting in 2009, Elder Holland and I had the privilege of escorting various groups of people—including Reform, Conservative, and Orthodox Rabbi leaders, as well as secular Jewish leaders—through open-house tours in temples here in Utah.
 
-At the baptismal font, I had the opportunity to explain to them the doctrine of baptism for our deceased ancestors.[^22] This relates directly to Malachi’s promises of turning the hearts of children to their deceased fathers. I read to them from [[1 Kings 7.25|1 Kings 7:25]], where Solomon’s temple is described. The baptismal font sits on top of the hinder parts of twelve oxen representing the twelve tribes of Israel.[^23] This brought both recognition and tears to some. They realized that they were essentially looking at certain aspects of Solomon’s temple, which has sacred significance to both Jews and Muslims.
+At the baptismal font, I had the opportunity to explain to them the doctrine of baptism for our deceased ancestors.[^22] This relates directly to Malachi’s promises of turning the hearts of children to their deceased fathers. I read to them from [[1 Kings 7.25|1 Kings 7:25]], where Solomon’s temple is described. The baptismal font sits on top of the hinder parts of twelve oxen representing the twelve tribes of Israel.[^23] This brought both recognition and tears to some. They realized that they were essentially looking at certain aspects of Solomon’s temple, which has sacred significance to both Jews and Muslims.
 
 When we entered the sealing room, Elder Holland was overcome with emotion and, with tears in his eyes, explained to them that he did not want to offend them but felt compelled to share something. Then, in a very spiritually powerful way, he explained that Elijah indeed had come and restored the sacred keys that allow the eternal sealing of husbands and wives and their families. He explained that the sealing room, where we were assembled, is a place where the restored keys are exercised. Our Jewish friends appreciated the fact that Old Testament scriptural accounts of prophets are featured so prominently in our temples and doctrine.
 
@@ -73,9 +75,9 @@ As an Apostle, I bear my sure and certain witness of Jesus Christ, the Savior of
 
 
 
-[^1]: The Bible records numerous appearances of the resurrected Savior Jesus Christ. He appeared to Mary Magdalene, as recorded in [[John 20.15|John 20:15–18]][[John 20.16|]][[John 20.17|]][[John 20.18|]]. The Apostle John recounts His appearance to individuals (see [[John 20.19|John 20:19–20]][[John 20.20|]]), and Paul recorded that He was seen by “above five hundred brethren at once” (see [[1 Corinthians 15.5|1 Corinthians 15:5–8]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]]). Following His Resurrection, He ministered to people as recorded in the Book of Mormon (see [[3 Nephi 11.1|3 Nephi 11–26]]).
+[^1]: The Bible records numerous appearances of the resurrected Savior Jesus Christ. He appeared to Mary Magdalene, as recorded in [[John 20.15|John 20:15–18]][[John 20.16|]][[John 20.17|]][[John 20.18|]]. The Apostle John recounts His appearance to individuals (see [[John 20.19|John 20:19–20]][[John 20.20|]]), and Paul recorded that He was seen by “above five hundred brethren at once” (see [[1 Corinthians 15.5|1 Corinthians 15:5–8]][[1 Corinthians 15.6|]][[1 Corinthians 15.7|]][[1 Corinthians 15.8|]]). Following His Resurrection, He ministered to people as recorded in the Book of Mormon (see [[3 Nephi 11.1|3 Nephi 11–26]]).
 
-[^2]: See [[1 Corinthians 15.3|1 Corinthians 15:3–4]][[1 Corinthians 15.4|]]; [[2 Nephi 9.5|2 Nephi 9:5–7]][[2 Nephi 9.6|]][[2 Nephi 9.7|]]; [[D&C 138.2|Doctrine and Covenants 138:2–4, 19]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.19|]].
+[^2]: See [[1 Corinthians 15.3|1 Corinthians 15:3–4]][[1 Corinthians 15.4|]]; [[2 Nephi 9.5|2 Nephi 9:5–7]][[2 Nephi 9.6|]][[2 Nephi 9.7|]]; [[D&C 138.2|Doctrine and Covenants 138:2–4, 19]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.19|]].
 
 [^3]: See [[Helaman 14.2|Helaman 14:2]]; [[Articles of Faith 1.2|Articles of Faith 1:2–3]][[Articles of Faith 1.3|]].
 
@@ -85,7 +87,7 @@ As an Apostle, I bear my sure and certain witness of Jesus Christ, the Savior of
 
 [^6]: It is inspiring that all three of the ancient prophets, Moses, Elias, and Elijah, who provided keys to the Prophet Joseph in the Kirtland Temple are revered as prophets by Christians, Jews, and Muslims.
 
-[^7]: Priesthood keys are essential to the work that occurs in temples of The Church of Jesus Christ of Latter-day Saints. President Howard W. Hunter taught: “The great family of God will be united through the saving ordinances of the gospel. Vicarious work for the dead and ordinances for the living are the purposes of temples” (*[Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-14-hastening-family-history-and-temple-work?lang=eng&id=p10#p10)* \[2015\], 190).
+[^7]: Priesthood keys are essential to the work that occurs in temples of The Church of Jesus Christ of Latter-day Saints. President Howard W. Hunter taught: “The great family of God will be united through the saving ordinances of the gospel. Vicarious work for the dead and ordinances for the living are the purposes of temples” (*[Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-14-hastening-family-history-and-temple-work?lang=eng&id=p10#p10)* \[2015\], 190).
 
 [^8]: See [[Joseph Smith History 1.27|Joseph Smith—History 1:27–54]][[Joseph Smith History 1.28|]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.43|]][[Joseph Smith History 1.44|]][[Joseph Smith History 1.45|]][[Joseph Smith History 1.46|]][[Joseph Smith History 1.47|]][[Joseph Smith History 1.48|]][[Joseph Smith History 1.49|]][[Joseph Smith History 1.50|]][[Joseph Smith History 1.51|]][[Joseph Smith History 1.52|]][[Joseph Smith History 1.53|]][[Joseph Smith History 1.54|]].
 
@@ -93,7 +95,7 @@ As an Apostle, I bear my sure and certain witness of Jesus Christ, the Savior of
 
 [^10]: [[D&C 2.1|Doctrine and Covenants 2:1–3]][[D&C 2.2|]][[D&C 2.3|]]; see also [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]]; [[D&C 27.9|Doctrine and Covenants 27:9]]; [[D&C 110.13|110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-[^11]: The ministry of Elijah is covered in the Bible, beginning in [[1 Kings 17.1|1 Kings 17:1]] and continuing through part of [[2 Kings 2.1|2 Kings 2]][[2 Kings 2.2|]][[2 Kings 2.3|]][[2 Kings 2.4|]][[2 Kings 2.5|]][[2 Kings 2.6|]][[2 Kings 2.7|]][[2 Kings 2.8|]][[2 Kings 2.9|]][[2 Kings 2.10|]][[2 Kings 2.11|]][[2 Kings 2.12|]][[2 Kings 2.13|]][[2 Kings 2.14|]][[2 Kings 2.15|]][[2 Kings 2.16|]][[2 Kings 2.17|]][[2 Kings 2.18|]][[2 Kings 2.19|]][[2 Kings 2.20|]][[2 Kings 2.21|]][[2 Kings 2.22|]][[2 Kings 2.23|]][[2 Kings 2.24|]][[2 Kings 2.25|]]. President Henry B. Eyring described the power Elijah held as “the greatest power God gives to His children” (“[[2005 April - Hearts Bound Together.md|Hearts Bound Together]],” *Liahona*, May 2005, 78). See also David A. Bednar, “[[2011 October - The Hearts of the Children Shall Turn.md|The Hearts of the Children Shall Turn]],” *Liahona*, Nov. 2011, 24–25.
+[^11]: The ministry of Elijah is covered in the Bible, beginning in [[1 Kings 17.1|1 Kings 17:1]] and continuing through part of [[2 Kings 2.1|2 Kings 2]][[2 Kings 2.2|]][[2 Kings 2.3|]][[2 Kings 2.4|]][[2 Kings 2.5|]][[2 Kings 2.6|]][[2 Kings 2.7|]][[2 Kings 2.8|]][[2 Kings 2.9|]][[2 Kings 2.10|]][[2 Kings 2.11|]][[2 Kings 2.12|]][[2 Kings 2.13|]][[2 Kings 2.14|]][[2 Kings 2.15|]][[2 Kings 2.16|]][[2 Kings 2.17|]][[2 Kings 2.18|]][[2 Kings 2.19|]][[2 Kings 2.20|]][[2 Kings 2.21|]][[2 Kings 2.22|]][[2 Kings 2.23|]][[2 Kings 2.24|]][[2 Kings 2.25|]]. President Henry B. Eyring described the power Elijah held as “the greatest power God gives to His children” (“[[2005 April - Hearts Bound Together.md|Hearts Bound Together]],” *Liahona*, May 2005, 78). See also David A. Bednar, “[[2011 October - The Hearts of the Children Shall Turn.md|The Hearts of the Children Shall Turn]],” *Liahona*, Nov. 2011, 24–25.
 
 [^12]: This is especially true for those of the Islamic faith.
 
@@ -101,25 +103,23 @@ As an Apostle, I bear my sure and certain witness of Jesus Christ, the Savior of
 
 [^14]: To this day, at their annual Passover seders, or dinners, they set a place for Elijah and go to the door hoping he has arrived to herald the coming of the Messiah.
 
-[^15]: See [[1 Kings 17.1|1 Kings 17:1]]; [[D&C 128.8|Doctrine and Covenants 128:8–9]][[D&C 128.9|]].
+[^15]: See [[1 Kings 17.1|1 Kings 17:1]]; [[D&C 128.8|Doctrine and Covenants 128:8–9]][[D&C 128.9|]].
 
 [^16]: See [[Luke 9.28|Luke 9:28–36]][[Luke 9.29|]][[Luke 9.30|]][[Luke 9.31|]][[Luke 9.32|]][[Luke 9.33|]][[Luke 9.34|]][[Luke 9.35|]][[Luke 9.36|]].
 
 [^17]: See David A. Bednar, “[[2011 October - The Hearts of the Children Shall Turn.md|The Hearts of the Children Shall Turn]],” 24.
 
-[^18]: See [[3 Nephi 25.5|3 Nephi 25:5]].
+[^18]: See [[3 Nephi 25.5|3 Nephi 25:5]].
 
 [^19]: See [[D&C 138.47|Doctrine and Covenants 138:47]].
 
 [^20]: See [[D&C 110.14|Doctrine and Covenants 110:14–16]][[D&C 110.15|]][[D&C 110.16|]]; [[D&C 138.48|138:48]].
 
-[^21]: Latter-day temple work requires the keys Elijah committed to Joseph Smith and Oliver Cowdery on April 3, 1836, and which have been held by those who have succeeded Joseph since that time. These keys are mentioned or alluded to in [[Matthew 16.19|Matthew 16:19]]; [[Malachi 4.5|Malachi 4:5]]; [[3 Nephi 25.5|3 Nephi 25:5]]; [[D&C 2.1|Doctrine and Covenants 2:1]]; [[D&C 27.9|27:9]]; [[D&C 110.13|110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]; [[D&C 128.17|128:17]]; [[D&C 138.48|138:48]].
+[^21]: Latter-day temple work requires the keys Elijah committed to Joseph Smith and Oliver Cowdery on April 3, 1836, and which have been held by those who have succeeded Joseph since that time. These keys are mentioned or alluded to in [[Matthew 16.19|Matthew 16:19]]; [[Malachi 4.5|Malachi 4:5]]; [[3 Nephi 25.5|3 Nephi 25:5]]; [[D&C 2.1|Doctrine and Covenants 2:1]]; [[D&C 27.9|27:9]]; [[D&C 110.13|110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]; [[D&C 128.17|128:17]]; [[D&C 138.48|138:48]].
 
-[^22]: See [[1 Corinthians 15.29|1 Corinthians 15:29]].
+[^22]: See [[1 Corinthians 15.29|1 Corinthians 15:29]].
 
-[^23]: In modern temples, the font is used for baptisms for the deceased. In Solomon’s temple, the “molten sea” on the backs of twelve oxen was used for other purposes (see [[1 Kings 7.23|1 Kings 7:23–25]][[1 Kings 7.24|]][[1 Kings 7.25|]]).
+[^23]: In modern temples, the font is used for baptisms for the deceased. In Solomon’s temple, the “molten sea” on the backs of twelve oxen was used for other purposes (see [[1 Kings 7.23|1 Kings 7:23–25]][[1 Kings 7.24|]][[1 Kings 7.25|]]).
 
 [^24]: The Jewish delegation was led by former US Senator Joseph Lieberman; former New York Attorney General Robert Abrams; Rabbi Joseph Potasnik, executive vice president of the New York Board of Rabbis; Rabbi Meir Soloveichik of Congregation Shearith Israel in New York City; and other exceptional leaders (see “[Latter-day Saint and Jewish Delegation Gathers at Historic Jerusalem Site](https://newsroom.churchofjesuschrist.org/article/mormon-jewish-delegation-jerusalem),” Oct. 28, 2016, newsroom.ChurchofJesusChrist.org).
 
-
-#Covenants #Easter #Ordinances #Priesthood_Keys #Restoration #Temples

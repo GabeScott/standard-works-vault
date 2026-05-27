@@ -1,6 +1,8 @@
 # Wounded
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/wounded?lang=eng)
 
-On March 22, 2016, just before eight o’clock in the morning, two terrorist bombs exploded in the Brussels Airport. Elder Richard Norby, Elder Mason Wells, and Elder Joseph Empey had taken Sister Fanny Clain to the airport for a flight to her mission in Cleveland, Ohio. Thirty-two people lost their lives, and all of the missionaries were wounded.
+On March 22, 2016, just before eight o’clock in the morning, two terrorist bombs exploded in the Brussels Airport. Elder Richard Norby, Elder Mason Wells, and Elder Joseph Empey had taken Sister Fanny Clain to the airport for a flight to her mission in Cleveland, Ohio. Thirty-two people lost their lives, and all of the missionaries were wounded.
 
 The most seriously wounded was Elder Richard Norby, age 66, serving with his wife, Sister Pam Norby.
 
@@ -60,7 +62,11 @@ The Savior is our Good Samaritan,[^11] sent “to heal the brokenhearted.”[^12
 
 “And \[Jesus\] shall … \[suffer\] pains and afflictions and temptations of every kind; … that … he \[might\] take upon him the pains and the sicknesses of his people … \[taking upon Himself our\] infirmities, \[being\] filled with mercy.”[^14]
 
-Come, ye disconsolate, where’er ye languish;Come to the mercy seat, fervently kneel.Here bring your wounded hearts; here tell your anguish.Earth has no sorrow that heav’n cannot heal.[^15]
+>Come, ye disconsolate, where’er ye languish;
+>Come to the mercy seat, fervently kneel.
+>Here bring your wounded hearts; here tell your anguish.
+>Earth has no sorrow that heav’n cannot heal.[^15]
+>
 
 At a time of enormous suffering, the Lord told the Prophet Joseph, “All these things shall give thee experience, and shall be for thy good.”[^16] How can painful wounds be for our good? In the crucible of earthly trials, patiently move forward, and the Savior’s healing power will bring you light, understanding, peace, and hope.[^17]
 
@@ -80,7 +86,7 @@ The Norbys told me, “Disappointment comes to visit on occasion but is never al
 
 Even with your own painful wounds, you will instinctively reach out to others, trusting in the Savior’s promise: “Whosoever will lose his life for my sake shall find it.”[^27] The wounded who nurse the wounds of others are God’s angels on earth.
 
-In just a few moments, we will listen to our beloved prophet, President Russell M. Nelson, a man of undaunted faith in Jesus Christ, a man of hope and peace, loved by God but not spared from the wounds of the soul.
+In just a few moments, we will listen to our beloved prophet, President Russell M. Nelson, a man of undaunted faith in Jesus Christ, a man of hope and peace, loved by God but not spared from the wounds of the soul.
 
 In 1995 his daughter Emily, while expecting a child, was diagnosed with cancer. There were days of hope and happiness as her healthy baby was delivered. But the cancer returned, and their beloved Emily would pass from this life just two weeks after her 37th birthday, leaving her loving husband and five young children.
 
@@ -101,19 +107,19 @@ My brothers and sisters, it is my promise to you that increasing your faith in t
 
 
 
-[^1]: Personal conversation, Jan. 26, 2018.
+[^1]: Personal conversation, Jan. 26, 2018.
 
 [^2]: In a conversation earlier this year, Richard Norby said to me, “We answer to what has been given us.” He shared this from his journal: “The tests and trials that come to each of us give the opportunity and privilege to better know the Savior and understand in deeper detail his atoning sacrifice. It is he we lean on. It is he we seek out. It is he we depend on. It is he we have confidence in. It is he that we love with all our heart, without any reservations. The Savior has covered all the physical and emotional pains that are part of mortality. He takes the pain from us. He absorbs our sorrows.”
 
 [^3]: See [[D&C 29.39|Doctrine and Covenants 29:39]].
 
-[^4]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^4]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^5]: [[Matthew 5.45|Matthew 5:45]].
 
 [^6]: “Lord, I Would Follow Thee,” *Hymns,* no. 220.
 
-[^7]: [[1 Peter 4.12|1 Peter 4:12]].
+[^7]: [[1 Peter 4.12|1 Peter 4:12]].
 
 [^8]: “We will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them” ([[Abraham 3.25|Abraham 3:25]]; see also [[D&C 101.4|Doctrine and Covenants 101:4–5]][[D&C 101.5|]]).
 
@@ -125,7 +131,7 @@ My brothers and sisters, it is my promise to you that increasing your faith in t
 
 [^12]: [[Luke 4.18|Luke 4:18]]; see also [[Isaiah 61.1|Isaiah 61:1]].
 
-[^13]: [[3 Nephi 18.32|3 Nephi 18:32]].
+[^13]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
 [^14]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]]. “He descended below all things, in that he comprehended all things” ([[D&C 88.6|Doctrine and Covenants 88:6]]).
 
@@ -133,41 +139,39 @@ My brothers and sisters, it is my promise to you that increasing your faith in t
 
 [^16]: [[D&C 122.7|Doctrine and Covenants 122:7]].
 
-[^17]: “Thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.2|2 Nephi 2:2]]). “I do know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day” ([[Alma 36.3|Alma 36:3]]).
+[^17]: “Thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.2|2 Nephi 2:2]]). “I do know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day” ([[Alma 36.3|Alma 36:3]]).
 
-[^18]: [[2 Corinthians 12.9|2 Corinthians 12:9]].
+[^18]: [[2 Corinthians 12.9|2 Corinthians 12:9]].
 
-[^19]: See Neil L. Andersen, “[The Joy of Becoming Clean](https://churchofjesuschrist.org/study/ensign/1995/04/the-joy-of-becoming-clean?lang=eng),” *Ensign,* Apr. 1995, 50–53.
+[^19]: See Neil L. Andersen, “[The Joy of Becoming Clean](https://www.churchofjesuschrist.org/study/ensign/1995/04/the-joy-of-becoming-clean?lang=eng),” *Ensign,* Apr. 1995, 50–53.
 
 [^20]: [[John 14.18|John 14:18]].
 
-[^21]: “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Corinthians 15:19]]).
+[^21]: “If in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Corinthians 15:19]]).
 
-[^22]: In the first verse of the Book of Mormon, Nephi explained that he had “seen many afflictions in the course of \[his\] days” ([[1 Nephi 1.1|1 Nephi 1:1]]). Later, Nephi said, “Nevertheless, I did look unto my God, and I did praise him all the day long; and I did not murmur against the Lord because of mine afflictions” ([[1 Nephi 18.16|1 Nephi 18:16]]).
+[^22]: In the first verse of the Book of Mormon, Nephi explained that he had “seen many afflictions in the course of \[his\] days” ([[1 Nephi 1.1|1 Nephi 1:1]]). Later, Nephi said, “Nevertheless, I did look unto my God, and I did praise him all the day long; and I did not murmur against the Lord because of mine afflictions” ([[1 Nephi 18.16|1 Nephi 18:16]]).
 
-[^23]: [[3 Nephi 25.2|3 Nephi 25:2]].
+[^23]: [[3 Nephi 25.2|3 Nephi 25:2]].
 
-[^24]: Personal conversation, Jan. 26, 2018.
+[^24]: Personal conversation, Jan. 26, 2018.
 
-[^25]: [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
+[^25]: [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
 
-[^26]: President Hugh B. Brown, while visiting Israel, was asked why Abraham was commanded to sacrifice his son. He responded, “Abraham needed to learn something about Abraham” (in Truman G. Madsen, *Joseph Smith the Prophet* \[1989\], 93).
+[^26]: President Hugh B. Brown, while visiting Israel, was asked why Abraham was commanded to sacrifice his son. He responded, “Abraham needed to learn something about Abraham” (in Truman G. Madsen, *Joseph Smith the Prophet* \[1989\], 93).
 
 [^27]: [[Matthew 16.25|Matthew 16:25]].
 
-[^28]: Russell M. Nelson, “[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign,* May 1995, 32.
+[^28]: Russell M. Nelson, “[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign,* May 1995, 32.
 
-[^29]: Russell M. Nelson, in Jason Swensen, “Better Days Are Ahead for the People of Puerto Rico,” *Church News,* Sept. 9, 2018, 4.
+[^29]: Russell M. Nelson, in Jason Swensen, “Better Days Are Ahead for the People of Puerto Rico,” *Church News,* Sept. 9, 2018, 4.
 
-[^30]: Russell M. Nelson, in Swensen, “Better Days Are Ahead,” 3.
+[^30]: Russell M. Nelson, in Swensen, “Better Days Are Ahead,” 3.
 
-[^31]: Russell M. Nelson, in Swensen, “Better Days Are Ahead,” 4.
+[^31]: Russell M. Nelson, in Swensen, “Better Days Are Ahead,” 4.
 
-[^32]: See Russell M. Nelson, “[[2005 October - Jesus Christ—the Master Healer.md|Jesus Christ—the Master Healer]],” *Ensign* or *Liahona,* Nov. 2005, 85–88.
+[^32]: See Russell M. Nelson, “[[2005 October - Jesus Christ—the Master Healer.md|Jesus Christ—the Master Healer]],” *Ensign* or *Liahona,* Nov. 2005, 85–88.
 
 [^33]: [[Revelation 7.14|Revelation 7:14]].
 
+[^34]: See [[Revelation 7.13|Revelation 7:13, 15, 17]][[Revelation 7.15|]][[Revelation 7.17|]].
 
-
-
-#Adversity #Healing #Jesus_Christ

@@ -1,6 +1,8 @@
 # The Strength of the Kingdom Is Within
 
-By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
+Gordon B. Hinckley
+
+By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -36,7 +38,7 @@ While acknowledging that The Church of Jesus Christ of Latter-day Saints is “t
 
 At another time he warned those of his church:
 
-“Behold,” he said, “vengeance cometh speedily upon the inhabitants of the earth. …
+“Behold,” he said, “vengeance cometh speedily upon the inhabitants of the earth. …
 
 “And upon my house shall it begin, and from my house shall it go forth, saith the Lord;
 
@@ -59,8 +61,3 @@ It is a time for us to assess our own spiritual vital signs in those essential a
 
 
 
-
-
-
-
-#Spirituality

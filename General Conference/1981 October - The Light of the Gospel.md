@@ -1,6 +1,8 @@
 # The Light of the Gospel
 
-By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
+Gordon B. Hinckley
+
+By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -18,7 +20,7 @@ One by one the speakers spoke—in the dark. The choir sang beautiful anthems—
 
 It brought to mind the words of the prophet Moroni:
 
-“And now, I, Moroni, would speak somewhat concerning these things; I would show unto the world that faith is things which are hoped for and not seen; wherefore, dispute not because ye see not, for ye receive no witness until after the trial of your faith. …
+“And now, I, Moroni, would speak somewhat concerning these things; I would show unto the world that faith is things which are hoped for and not seen; wherefore, dispute not because ye see not, for ye receive no witness until after the trial of your faith. …
 
 “For if there be no faith among the children of men God can do no miracle among them; wherefore, he showed not himself until after their faith.” ([[Ether 12.6|Ether 12:6, 12]][[Ether 12.12|]].)
 
@@ -30,7 +32,7 @@ As he prepared to leave prison after serving his term, there to greet him at the
 
 What great force changed the life of this young man from one of spiritual darkness to one of truth and light? It was the pure love of Christ, which the bishop portrayed as he worked with him. And this pure love of Christ is charity. (See [[Moroni 7.47|Moro. 7:47]].)
 
-The prophet Nephi said: “Wherefore, the Lord God hath given a commandment that all men should have charity, which charity is love. And except they should have charity they were nothing. Wherefore, if they should have charity they would not suffer the laborer in Zion to perish.” ([[2 Nephi 26.30|2 Ne. 26:30]].)
+The prophet Nephi said: “Wherefore, the Lord God hath given a commandment that all men should have charity, which charity is love. And except they should have charity they were nothing. Wherefore, if they should have charity they would not suffer the laborer in Zion to perish.” ([[2 Nephi 26.30|2 Ne. 26:30]].)
 
 We must also remember the faith and courage of this young man’s family as they endured many trials and heartaches and then greeted him with open arms at the end of the ordeal. The prophet Moroni reminds us:
 
@@ -38,19 +40,19 @@ We must also remember the faith and courage of this young man’s family as they
 
 “Behold, it was the faith of Ammon and his brethren which wrought so great a miracle among the Lamanites.
 
-“Yea, and even all they who wrought miracles wrought them by faith, even those who were before Christ and also those who were after. …
+“Yea, and even all they who wrought miracles wrought them by faith, even those who were before Christ and also those who were after. …
 
 “And neither at any time hath any wrought miracles until after their faith; wherefore they first believed in the Son of God.” ([[Ether 12.14|Ether 12:14–16, 18]][[Ether 12.15|]][[Ether 12.16|]][[Ether 12.18|]].)
 
-The prophet Mormon also preached that “it is by faith that miracles are wrought. …
+The prophet Mormon also preached that “it is by faith that miracles are wrought. …
 
-“For no man can be saved, according to the words of Christ, save they shall have faith in his name. …
+“For no man can be saved, according to the words of Christ, save they shall have faith in his name. …
 
 “Wherefore, if a man have faith he must needs have hope; for without faith there cannot be any hope.
 
 “And again, behold I say unto you that he cannot have faith and hope, save he shall be meek, and lowly of heart.
 
-“… and if a man be meek and lowly in heart, and confesses by the power of the Holy Ghost that Jesus is the Christ, he must needs have charity.” ([[Moroni 7.37|Moro. 7:37–38, 42–44]][[Moroni 7.38|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]].)
+“… and if a man be meek and lowly in heart, and confesses by the power of the Holy Ghost that Jesus is the Christ, he must needs have charity.” ([[Moroni 7.37|Moro. 7:37–38, 42–44]][[Moroni 7.38|]][[Moroni 7.42|]][[Moroni 7.43|]][[Moroni 7.44|]].)
 
 We are reminded today of the importance of charity through the Apostle Paul’s epistle to the Corinthians:
 
@@ -68,7 +70,7 @@ We are reminded today of the importance of charity through the Apostle Paul’s 
 
 “Beareth all things, believeth all things, hopeth all things, endureth all things.
 
-“Charity never faileth.” ([[1 Corinthians 13.1|1 Cor. 13:1–8]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]].)
+“Charity never faileth.” ([[1 Corinthians 13.1|1 Cor. 13:1–8]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]][[1 Corinthians 13.4|]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]][[1 Corinthians 13.8|]].)
 
 In the Church we have many opportunities to perform charitable acts. Some of the greatest acts of charity begin with an outstretched hand of friendship. One great example was related by an elderly brother in a ward conference meeting.
 
@@ -108,8 +110,3 @@ My dear brothers and sisters, I bear humble testimony that I know that Jesus is 
 
 
 
-
-
-
-
-#Charity #Faith

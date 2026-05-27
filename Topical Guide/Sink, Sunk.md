@@ -1,6 +1,5 @@
 # Sink, Sunk
 
-
 heathen are *sunk* down in the pit that they made, [[Psalms 9.15|Psalms 9:15]].
 
 beginning to *sink*, he cried, saying, Lord, save me, [[Matthew 14.30|Matthew 14:30]].

@@ -1,5 +1,7 @@
 # “Set in Order Thy House”
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -62,7 +64,7 @@ These interrelationships are evident as we study the early history of the Church
 
 “But verily I say unto you, …
 
-“You have not taught your children light and truth, according to the commandments. …
+“You have not taught your children light and truth, according to the commandments. …
 
 “And now a commandment I give unto you \[that\] you shall set in order your own house, for there are many things that are not right in your house. … First set in order thy house.”[^18]
 
@@ -101,29 +103,29 @@ These priceless blessings can be ours if we set our houses in order now and fait
 
 [^3]: See [[D&C 138.47|D&C 138:47–48]][[D&C 138.48|]].
 
-[^4]: See [[1 Timothy 5.8|1 Tim. 5:8]].
+[^4]: See [[1 Timothy 5.8|1 Tim. 5:8]].
 
-[^5]: [[D&C 93.44|D&C 93:44]]; see also [[2 Kings 20.1|2 Kgs. 20:1]]; [[Isaiah 38.1|Isa. 38:1]].
+[^5]: [[D&C 93.44|D&C 93:44]]; see also [[2 Kings 20.1|2 Kgs. 20:1]]; [[Isaiah 38.1|Isa. 38:1]].
 
-[^6]: [[1 Timothy 6.11|1 Tim. 6:11]].
+[^6]: [[1 Timothy 6.11|1 Tim. 6:11]].
 
 [^7]: [[D&C 121.41|D&C 121:41]].
 
 [^8]: [[D&C 121.42|D&C 121:42]].
 
-[^9]: See [[1 Peter 2.1|1 Pet. 2:1]].
+[^9]: See [[1 Peter 2.1|1 Pet. 2:1]].
 
 [^10]: [[Job 27.6|Job 27:6]].
 
-[^11]: [[1 Nephi 15.24|1 Ne. 15:24]].
+[^11]: [[1 Nephi 15.24|1 Ne. 15:24]].
 
 [^12]: [[Proverbs 4.13|Prov. 4:13]].
 
-[^13]: [[2 Thessalonians 2.15|2 Thes. 2:15]]. Other related scriptures include “Hold fast the … sound words, which thou hast heard of me, in faith and love which is in Christ Jesus” ([[2 Timothy 1.13|2 Tim. 1:13]]), and “Let us hold fast the profession of our faith without wavering” ([[Hebrews 10.23|Heb. 10:23]]).
+[^13]: [[2 Thessalonians 2.15|2 Thes. 2:15]]. Other related scriptures include “Hold fast the … sound words, which thou hast heard of me, in faith and love which is in Christ Jesus” ([[2 Timothy 1.13|2 Tim. 1:13]]), and “Let us hold fast the profession of our faith without wavering” ([[Hebrews 10.23|Heb. 10:23]]).
 
-[^14]: [[1 Nephi 8.30|1 Ne. 8:30]].
+[^14]: [[1 Nephi 8.30|1 Ne. 8:30]].
 
-[^15]: [[1 Nephi 11.25|1 Ne. 11:25]].
+[^15]: [[1 Nephi 11.25|1 Ne. 11:25]].
 
 [^16]: [[D&C 68.25|D&C 68:25]]; emphasis added.
 
@@ -135,13 +137,13 @@ These priceless blessings can be ours if we set our houses in order now and fait
 
 [^20]: That letter, dated February 11, 1999, and signed by Presidents Gordon B. Hinckley, Thomas S. Monson, and James E. Faust, also described what parents might do: “We counsel parents and children to give highest priority to family prayer, family home evening, gospel study and instruction, and wholesome family activities. However worthy and appropriate other demands or activities may be, they must not be permitted to displace the divinely appointed duties that only parents and families can adequately perform” (also in “Policies, Announcements, and Appointments,” *Ensign,* June 1999, 80).
 
-[^21]: See [[Moroni 8.10|Moro. 8:10]]; [[D&C 19.31|D&C 19:31]]; [[D&C 68.25|D&C 68:25–34]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]][[D&C 68.29|]][[D&C 68.30|]][[D&C 68.31|]][[D&C 68.32|]][[D&C 68.33|]][[D&C 68.34|]]; [[D&C 138.33|D&C 138:33]]; [[Articles of Faith 1.4|A of F 1:4]].
+[^21]: See [[Moroni 8.10|Moro. 8:10]]; [[D&C 19.31|D&C 19:31]]; [[D&C 68.25|D&C 68:25–34]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]][[D&C 68.29|]][[D&C 68.30|]][[D&C 68.31|]][[D&C 68.32|]][[D&C 68.33|]][[D&C 68.34|]]; [[D&C 138.33|D&C 138:33]]; [[Articles of Faith 1.4|A of F 1:4]].
 
 [^22]: See [[Moses 6.58|Moses 6:58–62]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
 
 [^23]: See [[Leviticus 10.11|Lev. 10:11]]; [[Deuteronomy 6.7|Deut. 6:7]]; [[Mosiah 4.14|Mosiah 4:14]].
 
-[^24]: See [[2 Nephi 2.26|2 Ne. 2:26]]; [[Mosiah 1.3|Mosiah 1:3]]; [[Mosiah 5.8|5:8]]; [[D&C 98.8|D&C 98:8]].
+[^24]: See [[2 Nephi 2.26|2 Ne. 2:26]]; [[Mosiah 1.3|Mosiah 1:3]]; [[Mosiah 5.8|5:8]]; [[D&C 98.8|D&C 98:8]].
 
 [^25]: See [[Mosiah 4.21|Mosiah 4:21–26]][[Mosiah 4.22|]][[Mosiah 4.23|]][[Mosiah 4.24|]][[Mosiah 4.25|]][[Mosiah 4.26|]]; [[Mosiah 18.27|18:27]]; [[Alma 1.27|Alma 1:27]].
 
@@ -153,16 +155,11 @@ These priceless blessings can be ours if we set our houses in order now and fait
 
 [^29]: See [[Moses 1.39|Moses 1:39]].
 
-[^30]: [[1 Thessalonians 5.21|1 Thes. 5:21]].
+[^30]: [[1 Thessalonians 5.21|1 Thes. 5:21]].
 
-[^31]: See [[2 Nephi 2.17|2 Ne. 2:17–18, 27]][[2 Nephi 2.18|]][[2 Nephi 2.27|]].
+[^31]: See [[2 Nephi 2.17|2 Ne. 2:17–18, 27]][[2 Nephi 2.18|]][[2 Nephi 2.27|]].
 
-[^32]: [[1 Corinthians 15.19|1 Cor. 15:19]].
+[^32]: [[1 Corinthians 15.19|1 Cor. 15:19]].
 
 [^33]: [[D&C 132.19|D&C 132:19]].
 
-
-
-
-
-#Children #Commandments #Example #Family #Home #Jesus_Christ #Marriage #Media #Parenthood #Plan_Of_Salvation #Sacrifice #Satan #Sin #Teaching #Temples #Truth #Worldliness

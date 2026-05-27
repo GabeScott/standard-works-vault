@@ -1,6 +1,8 @@
 # Abide the Day in Christ
 
-By Sister Amy A. Wright - *First Counselor in the Primary General Presidency*
+David A. Bednar
+
+By Sister Amy A. Wright - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -36,7 +38,7 @@ It was a day filled with pointed and direct parables, complex questions, and pro
 
 “Watch therefore, for ye know neither the day nor the hour wherein the Son of man cometh.”[^4]
 
-President Dallin H. Oaks posed the following thought-provoking questions in relation to the coming of the Bridegroom:[^5] “What if the day of His coming were tomorrow? If we knew that we would meet the Lord tomorrow—through our premature death or through His unexpected coming—what would we do today?”[^6]
+President Dallin H. Oaks posed the following thought-provoking questions in relation to the coming of the Bridegroom:[^5] “What if the day of His coming were tomorrow? If we knew that we would meet the Lord tomorrow—through our premature death or through His unexpected coming—what would we do today?”[^6]
 
 I have learned from personal experience that spiritual preparation for the coming of the Lord is not only essential but the only way to find true peace and happiness.
 
@@ -121,9 +123,9 @@ Look to Jesus Christ and live[^29] is my testimony in the sacred and holy name o
 
 [^4]: [[Matthew 25.13|Matthew 25:13]].
 
-[^5]: Elder James E. Talmage taught: “The Bridegroom is the Lord Jesus; the marriage feast symbolizes His coming in glory, to receive unto Himself the Church on earth as His bride. The virgins typify those who profess a belief in Christ, and who, therefore, confidently expect to be included among the blessed participants at the feast. The lighted lamp, which each of the maidens carried, is the outward profession of Christian belief and practise; and in the oil reserves of the wiser ones we may see the spiritual strength and abundance which diligence and devotion in God’s service alone can insure” (*Jesus the Christ* \[1916\], 578–79).
+[^5]: Elder James E. Talmage taught: “The Bridegroom is the Lord Jesus; the marriage feast symbolizes His coming in glory, to receive unto Himself the Church on earth as His bride. The virgins typify those who profess a belief in Christ, and who, therefore, confidently expect to be included among the blessed participants at the feast. The lighted lamp, which each of the maidens carried, is the outward profession of Christian belief and practise; and in the oil reserves of the wiser ones we may see the spiritual strength and abundance which diligence and devotion in God’s service alone can insure” (*Jesus the Christ* \[1916\], 578–79).
 
-[^6]: Dallin H. Oaks, “[[2004 April - Preparation for the Second Coming.md|Preparation for the Second Coming]],” *Ensign* or *Liahona*, May 2004, 9.
+[^6]: Dallin H. Oaks, “[[2004 April - Preparation for the Second Coming.md|Preparation for the Second Coming]],” *Ensign* or *Liahona*, May 2004, 9.
 
 [^7]: [[D&C 45.56|Doctrine and Covenants 45:56–57]][[D&C 45.57|]]; emphasis added.
 
@@ -149,7 +151,7 @@ Look to Jesus Christ and live[^29] is my testimony in the sacred and holy name o
 
 [^18]: [[Alma 15.6|Alma 15:6]].
 
-[^19]: [[2 Nephi 26.28|2 Nephi 26:28]].
+[^19]: [[2 Nephi 26.28|2 Nephi 26:28]].
 
 [^20]: [[Matthew 9.28|Matthew 9:28]].
 
@@ -163,15 +165,13 @@ Look to Jesus Christ and live[^29] is my testimony in the sacred and holy name o
 
 [^25]: [[Jeremiah 31.16|Jeremiah 31:16–17]][[Jeremiah 31.17|]]; emphasis added.
 
-[^26]: See Camille N. Johnson, “[[2021 October - Invite Christ to Author Your Story.md|Invite Christ to Author Your Story]],” *Liahona*, Nov. 2021, 82: “Let the adversity and affliction that are part of every good story be a means by which you draw closer to, and become more like, Jesus Christ.”
+[^26]: See Camille N. Johnson, “[[2021 October - Invite Christ to Author Your Story.md|Invite Christ to Author Your Story]],” *Liahona*, Nov. 2021, 82: “Let the adversity and affliction that are part of every good story be a means by which you draw closer to, and become more like, Jesus Christ.”
 
-[^27]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^27]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^28]: See [[D&C 84.38|Doctrine and Covenants 84:38]].
 
 [^29]: See [[Alma 37.47|Alma 37:47]].
 
+[^30]: [[1 Peter 2.25|1 Peter 2:25]].
 
-
-
-#Adversity #Hope #Jesus_Christ #Parables #Second_Coming

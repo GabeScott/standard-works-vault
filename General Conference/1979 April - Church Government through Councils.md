@@ -1,5 +1,7 @@
 # Church Government through Councils
 
+Spencer W. Kimball
+
 By President Ezra Taft Benson - *Of the Quorum of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -18,7 +20,7 @@ You are all, of course, familiar with the traditional administrative channel of 
 
 More recently, because of the need to carefully manage temporal matters in the field, approval was given to have a Presiding Bishopric area supervisor in certain countries of the world. He has worked in close cooperation with the General Authority Area Supervisor and has reported his responsibilities on temporal matters to the Presiding Bishopric, who in turn report to the First Presidency.
 
-The principle we desire to reemphasize was well expressed by President Stephen L Richards, first counselor to President David O. McKay, in these words:
+The principle we desire to reemphasize was well expressed by President Stephen L Richards, first counselor to President David O. McKay, in these words:
 
 “As I conceive it, the genius of our Church government is government through *councils.* The Council of the Presidency, the Council of the Twelve, the Council of the Stake Presidency … the Council of the Bishopric. … I have had enough experience to know the value of councils. … I see the wisdom, God’s wisdom, in creating councils: to govern his Kingdom. In the spirit under which we labor, men can get together with seemingly divergent views and far different backgrounds, and under the operation of that spirit, by counseling together, they can arrive at an accord.” (In Conference Report, Oct. 1953, p. 86.)
 
@@ -134,7 +136,7 @@ Now a concluding word.
 
 There is a principle cited in the Doctrine and Covenants which, though directed specifically to the leading quorums of the Church, applies to all councils in Church government. I quote from section 107:
 
-“And every decision made by either of these quorums \[and for our purposes we could substitute the word *council*\] must be by the unanimous voice of the same; that is, every member in each quorum \[council\] must be agreed to its decisions. …
+“And every decision made by either of these quorums \[and for our purposes we could substitute the word *council*\] must be by the unanimous voice of the same; that is, every member in each quorum \[council\] must be agreed to its decisions. …
 
 “The decisions of these quorums \[or councils\] … are to be made in all righteousness, in holiness, and lowliness of heart, meekness and long suffering, and in faith, and virtue, and knowledge, temperance, patience, godliness, brotherly kindness and charity;
 
@@ -147,8 +149,3 @@ Brethren and sisters, we want you to know that our whole interest has been to do
 
 
 
-
-
-
-
-#Councils

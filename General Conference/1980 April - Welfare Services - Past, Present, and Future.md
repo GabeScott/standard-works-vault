@@ -1,6 +1,8 @@
 # Welfare Services: Past, Present, and Future
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Spencer W. Kimball
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -16,7 +18,7 @@ After providing for our own, the Lord explained that our next duty is to the poo
 
 “Behold, I say unto you, that ye must visit the poor and the needy and administer to their relief” ([[D&C 44.6|D&C 44:6]]).
 
-Administering to the relief of our neighbor is born of pure love or charity. In his memorable letter to the Corinthians, Paul explained, “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal” ([[1 Corinthians 13.1|1 Cor. 13:1]]).
+Administering to the relief of our neighbor is born of pure love or charity. In his memorable letter to the Corinthians, Paul explained, “Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal” ([[1 Corinthians 13.1|1 Cor. 13:1]]).
 
 Moroni further explained: “Charity is the pure love of Christ, and it endureth forever; and whoso is found possessed of it at the last day, it shall be well with him” ([[Moroni 7.47|Moro. 7:47]]).
 
@@ -77,8 +79,3 @@ May we be blessed to provide the leadership throughout the Church that will caus
 
 
 
-
-
-
-
-#Charity #Welfare

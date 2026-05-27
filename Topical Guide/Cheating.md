@@ -1,4 +1,3 @@
 # Cheating
 
-
-*See* [[Deceit, Deceive.md|Deceit]]; [[Fraud.md|Fraud]]; [[Stealing, Stolen.md|Stealing]]
+*See also* [[Deceit.md|Deceit]]; [[Fraud.md|Fraud]]; [[Stealing.md|Stealing]]

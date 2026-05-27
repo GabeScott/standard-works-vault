@@ -1,7 +1,6 @@
 # Captivity
 
-
-*See also* [[Bondage, Physical.md|Bondage, Physical]]; [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Captive.md|Captive]]; [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Israel, Scattering of.md|Israel, Scattering of]]; [[Slavery, Slave.md|Slavery]]
+*See also* [[Bondage, Physical.md|Bondage, Physical]]; [[Bondage, Spiritual.md|Bondage, Spiritual]]; [[Captive.md|Captive]]; [[Israel, Bondage of, in Egypt.md|Israel, Bondage of, in Egypt]]; [[Israel, Bondage of, in Other Lands.md|Israel, Bondage of, in Other Lands]]; [[Israel, Scattering of.md|Israel, Scattering of]]; [[Slavery.md|Slavery]]
 
 God will turn thy *captivity*, [[Deuteronomy 30.3|Deuteronomy 30:3]].
 
@@ -39,4 +38,4 @@ He that leadeth into *captivity* shall go into *captivity*, [[Revelation 13.10|R
 
 to choose *captivity* and death, [[2 Nephi 2.27|2 Nephi 2:27]].
 
-will of the flesh ... giveth ... devil power to *captivate*, [[2 Nephi 2.29|2 Nephi 2:29]].
+will of the flesh … giveth … devil power to *captivate*, [[2 Nephi 2.29|2 Nephi 2:29]].

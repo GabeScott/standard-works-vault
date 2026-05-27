@@ -1,6 +1,8 @@
 # The Sifting
 
-By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -16,17 +18,17 @@ The Lord speaks of a time when “the love of men shall wax cold, and iniquity s
 
 It is most disturbing to learn of the degradation that exists today. Crime and contention are a daily diet to the reader and the listener of news. Crises and violence the world over are arising one after another, and they come to no satisfactory conclusion.
 
-Now the scriptures tell us that the devil is “the foundation of all these things; yea, the foundation of murder, and works of darkness …” ([[2 Nephi 26.22|2 Ne. 26:22]]), and that he has “great power, unto the stirring up of the people to do all manner of iniquity, and to the puffing them up with pride, tempting them to seek for power, and authority, and riches, and the vain things of the world.” ([[3 Nephi 6.15|3 Ne. 6:15]].)
+Now the scriptures tell us that the devil is “the foundation of all these things; yea, the foundation of murder, and works of darkness …” ([[2 Nephi 26.22|2 Ne. 26:22]]), and that he has “great power, unto the stirring up of the people to do all manner of iniquity, and to the puffing them up with pride, tempting them to seek for power, and authority, and riches, and the vain things of the world.” ([[3 Nephi 6.15|3 Ne. 6:15]].)
 
-Such people “seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world. …” ([[D&C 1.16|D&C 1:16]].)
+Such people “seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world. …” ([[D&C 1.16|D&C 1:16]].)
 
-“And they deny the power of God, the Holy One of Israel; and they say unto the people: Hearken unto us, and hear ye our precept; for behold there is no God today, for the Lord and the Redeemer hath done his work, and he hath given his power unto men.” ([[2 Nephi 28.5|2 Ne. 28:5]].)
+“And they deny the power of God, the Holy One of Israel; and they say unto the people: Hearken unto us, and hear ye our precept; for behold there is no God today, for the Lord and the Redeemer hath done his work, and he hath given his power unto men.” ([[2 Nephi 28.5|2 Ne. 28:5]].)
 
-So spoke the prophet Nephi long ago, looking to our day. However, Dr. James E. Talmage gives needed assurance in these words:
+So spoke the prophet Nephi long ago, looking to our day. However, Dr. James E. Talmage gives needed assurance in these words:
 
 “Yet in all these malignant doings, … \[let us remember that the adversary\] can go no farther than the transgressions of the victim may enable him, or the wisdom of God may permit; and at any time he may be checked by the superior power.” (*Articles of Faith,* p. 63.)
 
-Some may ask: “Why, then, does not God, with that superior power, put an end to all evil doings?” The reason is, of course, as has been decreed by God, that “it must needs be, that there is an opposition in all things. …” ([[2 Nephi 2.11|2 Ne. 2:11]].)
+Some may ask: “Why, then, does not God, with that superior power, put an end to all evil doings?” The reason is, of course, as has been decreed by God, that “it must needs be, that there is an opposition in all things. …” ([[2 Nephi 2.11|2 Ne. 2:11]].)
 
 The reason for such opposition is to enable us to evaluate the right against the wrong. All men have the right to direct the course of their own lives, and the Lord will not deny that right.
 
@@ -42,7 +44,7 @@ As I noted that, I jotted down, as I remembered them, the words of that good old
 
 All of us have the God-given right to accept the good or to reject it.
 
-As Paul said: “… God … will not suffer you to be tempted above that \[which\] ye are able \[to overcome\]; but \[he\] will with the temptation also make a way to escape, that ye may be able to bear it.” ([[1 Corinthians 10.13|1 Cor. 10:13]].)
+As Paul said: “… God … will not suffer you to be tempted above that \[which\] ye are able \[to overcome\]; but \[he\] will with the temptation also make a way to escape, that ye may be able to bear it.” ([[1 Corinthians 10.13|1 Cor. 10:13]].)
 
 This is a time of sifting, a time when, more than ever in the history of the modern world, the adversary and his followers have shown themselves to be enemies of God. Yet as we heard our prophet and president say this morning, we need not fear the fiery darts of the adversary, because each of us has the power to avoid becoming entangled in sin more definitely than ever before. The time has come for each member of the Church to keep close to the Lord, to be steadfast by sustaining and upholding and following the counsel of his divinely appointed servants, avoiding, as the Book of Mormon says, the vainness, the frailties, and the foolishness of men. We must purify our lives and sanctify our homes.
 
@@ -50,7 +52,7 @@ We must teach our children to be loyal, obedient, honest, to respect the law (an
 
 “Submit yourselves therefore to God. Resist the devil, and he will flee from you.
 
-“Draw nigh unto God, and he will draw nigh unto you. …” ([[James 4.7|James 4:7–8]][[James 4.8|]].)
+“Draw nigh unto God, and he will draw nigh unto you. …” ([[James 4.7|James 4:7–8]][[James 4.8|]].)
 
 The safe thing is still “Come, follow me.”
 
@@ -77,8 +79,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Adversity #Agency #Sin #Temptation

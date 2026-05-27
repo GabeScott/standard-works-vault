@@ -1,6 +1,8 @@
 # The Lord’s Support System
 
-By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -24,7 +26,7 @@ We offer very little thanks to our teachers throughout the Church. Each good tea
 
 In one of Carol Lynn Pearson’s poems, she likens eternity to a school play. Reference is made to the unlikely persons who frequently receive the starring role and how they seem to invariably rise to the occasion and develop beyond expectation because of the confidence that someone has placed in them. I think Heavenly Father is a lot like that. Ours is a church of involvement. On a continuing basis, we are witnesses to those who have responded to a divine calling as we mumble to ourselves, “Why him? Why her?” A short time later, it is all too obvious, as we note the personal growth taking place—as hidden talents begin to develop. Were it not for the inspiration connected with a Church calling—if we were forced to use the yardstick of the world in measuring the potential of an individual—our progress would be greatly impaired, for it is true: “Where there is no vision, the people perish.” ([[Proverbs 29.18|Prov. 29:18]].)
 
-In the work of the Lord we don’t seek positions, nor should we refuse the opportunity to serve when called. The story is told of one good brother, obviously quite new in the Church. He was most eager to serve in the *front* ranks. Between conference sessions, he had the good fortune of shaking hands with President Hugh B. Brown and immediately asked, “President Brown, how does someone get to be a bishop in the Church?”
+In the work of the Lord we don’t seek positions, nor should we refuse the opportunity to serve when called. The story is told of one good brother, obviously quite new in the Church. He was most eager to serve in the *front* ranks. Between conference sessions, he had the good fortune of shaking hands with President Hugh B. Brown and immediately asked, “President Brown, how does someone get to be a bishop in the Church?”
 
 “Well,” answered President Brown, “the process is very simple. You just have to be invited by the Lord.” What a tremendous goal for every Latter-day Saint—to qualify in every way to be worthy of an invitation from the Lord, no matter what that calling may be.
 
@@ -47,8 +49,3 @@ That we may all go forth willingly, effectively, full of faith, with an eye sing
 
 
 
-
-
-
-
-#Church_Callings #Service

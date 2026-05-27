@@ -1,5 +1,7 @@
 # Your Eternal Home
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2000 General Conference*
@@ -134,7 +136,7 @@ That each of us may do so is my humble prayer, in the name of Jesus Christ, amen
 
 [^6]: [[D&C 88.119|D&C 88:119]].
 
-[^7]: [[1 Corinthians 3.16|1 Cor. 3:16]].
+[^7]: [[1 Corinthians 3.16|1 Cor. 3:16]].
 
 [^8]: [[D&C 18.10|D&C 18:10]].
 
@@ -146,7 +148,7 @@ That each of us may do so is my humble prayer, in the name of Jesus Christ, amen
 
 [^12]: [[Acts 8.31|Acts 8:31]].
 
-[^13]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^13]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^14]: [[D&C 136.24|D&C 136:24]].
 
@@ -154,9 +156,9 @@ That each of us may do so is my humble prayer, in the name of Jesus Christ, amen
 
 [^16]: Quoted in “Lives of Service,” *Church News,* 21 Sept. 1996, 10.
 
-[^17]: In Conference Report, Oct. 1987, 57–58; or *Ensign,* Nov. 1987, 47.
+[^17]: In Conference Report, Oct. 1987, [[1987 October - Take Not the Name of God in Vain.md|57–58]]; or *Ensign,* Nov. 1987, 47.
 
-[^18]: [[1 Corinthians 13.8|1 Cor. 13:8]].
+[^18]: [[1 Corinthians 13.8|1 Cor. 13:8]].
 
 [^19]: [[Moroni 7.47|Moro. 7:47]].
 
@@ -170,12 +172,7 @@ That each of us may do so is my humble prayer, in the name of Jesus Christ, amen
 
 [^24]: In Conference Report, Apr. 1909, 66.
 
-[^25]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^25]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^26]: “True to the Faith,” *Hymns,* no. 254.
 
-
-
-
-
-#Charity #Communication #Faith #Home #Jesus_Christ #Morality #Prayer #Profanity

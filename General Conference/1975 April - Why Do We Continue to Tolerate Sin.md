@@ -1,6 +1,8 @@
 # Why Do We Continue to Tolerate Sin?
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -58,7 +60,7 @@ The commandment came to the leaders in this day as it came direct from the Lord 
 
 “Dearly beloved,” he said, “I beseech you as strangers and pilgrims, abstain from fleshly lusts, which war against the soul;
 
-“Having your conversation \[or your conduct\] honest among the Gentiles: that whereas they speak against you as evildoers, they may by your good works, which they shall behold, glorify God in the day of visitation.” ([[1 Peter 2.11|1 Pet. 2:11–12]][[1 Peter 2.12|]].)
+“Having your conversation \[or your conduct\] honest among the Gentiles: that whereas they speak against you as evildoers, they may by your good works, which they shall behold, glorify God in the day of visitation.” ([[1 Peter 2.11|1 Pet. 2:11–12]][[1 Peter 2.12|]].)
 
 I read of the common practice of the associations of men and women not marriage partners; and they are claiming long and loudly that marriage is no longer necessary. And apparently almost without shame do they live together in a sexual partnership without marriage. Has God changed his laws? Or has puny, irresponsible, presumptuous man dared to change the laws of God? Was sin yesterday? Did the devil reign in the hearts of men only in the far-away past?
 
@@ -93,8 +95,3 @@ And I bear this witness to you in the name of Jesus Christ, our Master. Amen.
 
 
 
-
-
-
-
-#Morality #Repentance

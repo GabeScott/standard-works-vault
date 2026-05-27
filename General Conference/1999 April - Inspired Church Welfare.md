@@ -1,5 +1,7 @@
 # Inspired Church Welfare
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -74,7 +76,7 @@ If in honesty we answer “no” to any of these questions, we may wish to impro
 
 First, one of today’s evils is the sin of covetousness. Inordinate desire for material possessions can become an obsession that consumes our thoughts, drains our resources, and leads to unhappiness. Some members of the Church are increasingly burdened with unnecessary debt because of this sin. President Heber J. Grant said: “If there is any one thing that will bring peace and contentment into the human heart, and into the family, it is to live within our means. And if there is any one thing that is grinding and discouraging and disheartening, it is to have debts and obligations that one cannot meet.”[^8]
 
-“Industry, thrift, self-reliance continue as guiding principles of this effort,” President Thomas S. Monson, chairman of the Welfare Executive Committee of the Church, has admonished. “As a people, we should avoid unreasonable debt. … ‘Pay thy debt, and live.’ ([[2 Kings 4.7|2 Kgs. 4:7]].) What wise counsel for us today!”[^9]
+“Industry, thrift, self-reliance continue as guiding principles of this effort,” President Thomas S. Monson, chairman of the Welfare Executive Committee of the Church, has admonished. “As a people, we should avoid unreasonable debt. … ‘Pay thy debt, and live.’ ([[2 Kings 4.7|2 Kgs. 4:7]].) What wise counsel for us today!”[^9]
 
 Second, from the beginning God has commanded us to work[^10] and has warned us against idleness.[^11] Sadly, many in our world today encourage idleness, especially in the form of mindless, inane entertainment that is on the Internet, on television, and in computer games.
 
@@ -92,7 +94,12 @@ When the welfare program emerged from its humble beginnings in the midst of the 
 
 The beautiful hymn “Because I Have Been Given Much” touches on an inspired lesson in giving.
 
-Because I have been sheltered, fed by thy good care,I cannot see another’s lack and I not shareMy glowing fire, my loaf of bread,My roof’s safe shelter overhead,That he too may be comforted.[^14]
+>Because I have been sheltered, fed by thy good care,
+>I cannot see another’s lack and I not share
+>My glowing fire, my loaf of bread,
+>My roof’s safe shelter overhead,
+>That he too may be comforted.[^14]
+>
 
 Brothers and sisters, the Savior, who set the pattern for us, is pleased with those who “remember in all things the poor and the needy, the sick and the afflicted.”[^15] He is pleased with those who hearken to His admonition to “succor the weak, lift up the hands which hang down, and strengthen the feeble knees.”[^16]
 
@@ -117,7 +124,7 @@ May we follow His example is my prayer. In the name of Jesus Christ, amen.
 
 [^8]: *Gospel Standards,* comp. G. Homer Durham (1941), 111.
 
-[^9]: In Conference Report, Oct. 1988, 57; or *Ensign,* Nov. 1988, 46.
+[^9]: In Conference Report, Oct. 1988, [[1988 October - Goal beyond Victory.md|57]]; or *Ensign,* Nov. 1988, 46.
 
 [^10]: See [[Genesis 3.19|Gen. 3:19]].
 
@@ -125,7 +132,7 @@ May we follow His example is my prayer. In the name of Jesus Christ, amen.
 
 [^12]: *Teachings of Gordon B. Hinckley* (1997), 172.
 
-[^13]: In Conference Report, Oct. 1977, 123–24; or *Ensign,* Nov. 1977, 77.
+[^13]: In Conference Report, Oct. 1977, [[1977 October - Welfare Services - The Gospel in Action.md|123–24]]; or *Ensign,* Nov. 1977, 77.
 
 [^14]: *Hymns,* no. 219.
 
@@ -133,8 +140,3 @@ May we follow His example is my prayer. In the name of Jesus Christ, amen.
 
 [^16]: [[D&C 81.5|D&C 81:5]].
 
-
-
-
-
-#Bishops #Covetousness #Education #Financial_Management #Generosity #Jesus_Christ #Preparation #Sacrifice #Self-Reliance #Welfare #Work

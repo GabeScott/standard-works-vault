@@ -1,6 +1,8 @@
 # Latter-day Samaritans
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -93,8 +95,3 @@ I leave with you my testimony of the truthfulness of this most important work. I
 
 
 
-
-
-
-
-#Good_Samaritan #Welfare

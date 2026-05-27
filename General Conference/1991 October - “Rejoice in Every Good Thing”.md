@@ -1,5 +1,7 @@
 # “Rejoice in Every Good Thing”
 
+Gordon B. Hinckley
+
 By Chieko N. Okazaki - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -14,7 +16,7 @@ First, let us rejoice in our sisterhood. Look around the room you are in. How ma
 
 “Sisterhood \[is\] the bonding among women on both personal and public levels, from simple friendships to massive organizations. In this sense Mormon women have a complex and vital heritage of sisterhood.
 
-“Within the Church of Jesus Christ of Latter-day Saints, women have been a crucial part of one another’s lives—spiritually, emotionally, intellectually, socially.” (Jill Mulvay Derr, “Strength in Our Union: The Making of Mormon Sisterhood,” in *Sisters in Spirit: Mormon Women in Historical and Cultural Perspective,* Urbana: University of Illinois Press, 1987, pp. 154-55.) Let us rejoice in the unified sisterhood we share.
+“Within the Church of Jesus Christ of Latter-day Saints, women have been a crucial part of one another’s lives—spiritually, emotionally, intellectually, socially.” (Jill Mulvay Derr, “Strength in Our Union: The Making of Mormon Sisterhood,” in *Sisters in Spirit: Mormon Women in Historical and Cultural Perspective,* Urbana: University of Illinois Press, 1987, pp. 154-55.) Let us rejoice in the unified sisterhood we share.
 
 Second, let us rejoice in our diversity. I grew up a Buddhist, the daughter of a Japanese plantation laborer in Mahukona, a tiny village which no longer exists, on the big island of Hawaii. My first exposure to Christianity came during the annual Christmas pageant organized by Captain Beck, who was in charge of the plantation. Every year, there was a little nativity play, the singing of Christmas carols, and wonderful presents from a mysterious fat man in a red suit and a white beard.
 
@@ -38,7 +40,7 @@ When I was on the Primary General Board, Patricia Kelsey Graham, a friend and a 
 >I love you, and you love me.
 >We reach together for the best we can be.
 >I love you, and you love me,
->(*Children’s Songbook,* p. 263.)
+>(*Children’s Songbook,* p. 263.)
 >
 
 Did you get that message? Being different—but still knowing, helping, and loving—is the way it’s supposed to be!
@@ -49,7 +51,7 @@ Third, let us rejoice in the great gift of charity that we have been given. I do
 
 Remember, our real calling to be a compassionate Christian came when we stepped out of the waters of baptism. The gift of the Holy Ghost is ours by right of confirmation. We don’t need to check it out of the meetinghouse library. We don’t need a bishop’s assignment to be kind. We don’t need to sign up to be thoughtful. We don’t need to be sustained by our wards to be sensitive. Rejoice in the power you have within you from Christ to be a nucleus of love, forgiveness, and compassion.
 
-Do not feel that your gift is insignificant. Mother Teresa says, “I’m a little pencil in the hands of God. He does the thinking. He does the writing. He does everything—and it’s really hard—sometimes it’s a broken pencil. He has to sharpen it a little more. But be a little instrument in His hands so that He can use you anytime, anywhere. … We have only to say Yes to Him.” (“Love: A Fruit Always in Season,” *Daily Meditations,* San Francisco: Ignatius Press, 1987, p. 243.)
+Do not feel that your gift is insignificant. Mother Teresa says, “I’m a little pencil in the hands of God. He does the thinking. He does the writing. He does everything—and it’s really hard—sometimes it’s a broken pencil. He has to sharpen it a little more. But be a little instrument in His hands so that He can use you anytime, anywhere. … We have only to say Yes to Him.” (“Love: A Fruit Always in Season,” *Daily Meditations,* San Francisco: Ignatius Press, 1987, p. 243.)
 
 Sisters, we are mighty together. There is consolation in our caring. There is strength in our sharing. There is power in our commitment to righteousness. I invoke upon us all the blessing of the Apostle Paul to the Ephesians, because it captures the desires that we, as a presidency, have for you, the sisters of the Church:
 
@@ -64,8 +66,3 @@ Let us come unto Christ. Let us rejoice in him, the giver of all good things, an
 
 
 
-
-
-
-
-#Faith #Joy #Love #Unity

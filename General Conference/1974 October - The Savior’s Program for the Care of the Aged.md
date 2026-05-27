@@ -1,6 +1,8 @@
 # The Savior’s Program for the Care of the Aged
 
-By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -16,9 +18,9 @@ Shabby apartments attract the elderly due to their meager incomes.
 
 Most of these people live alone “as do five million of the total U.S. population over 65. Coupled with their sense of uselessness, their solitude breeds despair.” (Nov. 15, 1972, p. 1.)
 
-“So, many of the elderly eat what they can get, or afford, not what is good for them. …
+“So, many of the elderly eat what they can get, or afford, not what is good for them. …
 
-“Some live mainly on what they can buy from the vending machines in their hotel or apartment lobbies. …
+“Some live mainly on what they can buy from the vending machines in their hotel or apartment lobbies. …
 
 “Others eat dog food. ‘They can get two meals out of a can,’ says Robert Forst.” (Nov. 15, 1972, p. 16.)
 
@@ -33,7 +35,7 @@ A popular song says:
 >Old friends,
 >Old friends
 >Sat on their park bench
->Like bookends, …
+>Like bookends, …
 >How terribly strange
 >To be seventy.
 >
@@ -102,7 +104,7 @@ When I was stake president, we wanted the lonely, the heartsick, the despairing,
 
 I have a great friend who, when he was called to be a stake president, canceled the high council Christmas party and had a special Christmas party for the senior Saints in the stake. And then on Christmas morning he would call all of the widows in his stake who had no one who cared.
 
-Edgar A. Guest, in a great understanding of life, wrote many verses about home. Let me just extract a few from his great poem on home:
+Edgar A. Guest, in a great understanding of life, wrote many verses about home. Let me just extract a few from his great poem on home:
 
 >Ye’ve got t’ weep t’ make it home, ye’ve got t’ sit an’ sigh.
 >An’ watch beside a loved one’s bed, an’ know that Death is nigh;
@@ -127,8 +129,3 @@ Life can be so full and rich for our beloved senior Saints with snowy crowns. We
 
 
 
-
-
-
-
-#Elderly #Welfare

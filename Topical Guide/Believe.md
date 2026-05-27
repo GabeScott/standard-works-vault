@@ -1,15 +1,14 @@
 # Believe
 
-
-*See also* [[Assurance.md|Assurance]]; [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Confidence.md|Confidence]]; [[Faith.md|Faith]]; [[Trust.md|Trust]]; [[Trust in God.md|Trust in God]]; [[Unbelief, Unbelievers.md|Unbelief]]
+*See also* [[Assurance.md|Assurance]]; [[Baptism, Qualifications for.md|Baptism, Qualifications for]]; [[Confidence.md|Confidence]]; [[Faith.md|Faith]]; [[Trust.md|Trust]]; [[Trust in God.md|Trust in God]]; [[Unbelief.md|Unbelief]]
 
 he *believed* in the Lord, [[Genesis 15.6|Genesis 15:6]].
 
-Moses answered ... they will not *believe* me, nor hearken, [[Exodus 4.1|Exodus 4:1]].
+Moses answered … they will not *believe* me, nor hearken, [[Exodus 4.1|Exodus 4:1]].
 
-people *believed* ... and worshipped, [[Exodus 4.31|Exodus 4:31]].
+people *believed* … and worshipped, [[Exodus 4.31|Exodus 4:31]].
 
-people ... *believed* the Lord, and his servant Moses, [[Exodus 14.31|Exodus 14:31]].
+people … *believed* the Lord, and his servant Moses, [[Exodus 14.31|Exodus 14:31]].
 
 how long will it be ere they *believe* me, [[Numbers 14.11|Numbers 14:11]].
 
@@ -19,7 +18,7 @@ Yet in this thing ye did not *believe* the Lord, [[Deuteronomy 1.32|Deuteronomy 
 
 their fathers, that did not *believe* in the Lord, [[2 Kings 17.14|2 Kings 17:14]].
 
-*Believe* in the Lord your God ... *believe* his prophets, [[2 Chronicles 20.20|2 Chronicles 20:20]].
+*Believe* in the Lord your God … *believe* his prophets, [[2 Chronicles 20.20|2 Chronicles 20:20]].
 
 I had fainted, unless I had *believed*, [[Psalms 27.13|Psalms 27:13]].
 
@@ -37,11 +36,11 @@ Who hath *believed* our report, [[Isaiah 53.1|Isaiah 53:1]] ([[John 12.38|John 1
 
 *believe* them not, though they speak fair words, [[Jeremiah 12.6|Jeremiah 12:6]].
 
-no ... hurt ... because he *believed* in his God, [[Daniel 6.23|Daniel 6:23]].
+no … hurt … because he *believed* in his God, [[Daniel 6.23|Daniel 6:23]].
 
 people of Nineveh *believed* God, [[Jonah 3.5|Jonah 3:5]].
 
-work ... which ye will not *believe*, [[Habakkuk 1.5|Habakkuk 1:5]] ([[Acts 13.41|Acts 13:41]]).
+work … which ye will not *believe*, [[Habakkuk 1.5|Habakkuk 1:5]] ([[Acts 13.41|Acts 13:41]]).
 
 as thou hast *believed*, so be it done, [[Matthew 8.13|Matthew 8:13]].
 
@@ -51,7 +50,7 @@ ask in prayer, *believing*, ye shall receive, [[Matthew 21.22|Matthew 21:22]] ([
 
 Why did ye not then *believe* him, [[Matthew 21.25|Matthew 21:25]] ([[Mark 11.31|Mark 11:31]]; [[Luke 20.5|Luke 20:5]]).
 
-ye *believed* him not: but the publicans ... *believed* him, [[Matthew 21.32|Matthew 21:32]].
+ye *believed* him not: but the publicans … *believed* him, [[Matthew 21.32|Matthew 21:32]].
 
 here is Christ, or there; *believe* it not, [[Matthew 24.23|Matthew 24:23]] ([[Mark 13.21|Mark 13:21]]; [[Joseph Smith Matthew 1.21|Joseph Smith Matthew 1:21]]).
 
@@ -71,7 +70,7 @@ He that *believeth* and is baptized shall be saved, [[Mark 16.16|Mark 16:16]].
 
 things which are most surely *believed* among us, [[Luke 1.1|Luke 1:1]].
 
-shalt be dumb ... because thou *believest* not my words, [[Luke 1.20|Luke 1:20]].
+shalt be dumb … because thou *believest* not my words, [[Luke 1.20|Luke 1:20]].
 
 lest they should *believe* and be saved, [[Luke 8.12|Luke 8:12]].
 
@@ -93,7 +92,7 @@ they *believed* the scripture, and the word, [[John 2.22|John 2:22]].
 
 many *believed* in his name, [[John 2.23|John 2:23]].
 
-earthly things ... ye *believe* not, how shall ye *believe*, if I tell you of heavenly things, [[John 3.12|John 3:12]].
+earthly things … ye *believe* not, how shall ye *believe*, if I tell you of heavenly things, [[John 3.12|John 3:12]].
 
 whosoever *believeth* in him should not perish, [[John 3.16|John 3:16]].
 
@@ -121,7 +120,7 @@ neither did his brethren *believe* in him, [[John 7.5|John 7:5]].
 
 many of the people *believed* on him, [[John 7.31|John 7:31]].
 
-Have any of the rulers or ... Pharisees *believed* on him, [[John 7.48|John 7:48]].
+Have any of the rulers or … Pharisees *believed* on him, [[John 7.48|John 7:48]].
 
 if ye *believe* not that I am he, ye shall die in your sins, [[John 8.24|John 8:24]].
 
@@ -137,13 +136,13 @@ ye *believe* not, because ye are not of my sheep, [[John 10.26|John 10:26]].
 
 though ye *believe* not me, *believe* the works, [[John 10.38|John 10:38]].
 
-glad ... I was not there, to the intent ye may *believe*, [[John 11.15|John 11:15]].
+glad … I was not there, to the intent ye may *believe*, [[John 11.15|John 11:15]].
 
 he that *believeth* in me, though he were dead, [[John 11.25|John 11:25]].
 
 I *believe* that thou art the Christ, [[John 11.27|John 11:27]].
 
-many of the Jews which came to Mary ... *believed* on him, [[John 11.45|John 11:45]].
+many of the Jews which came to Mary … *believed* on him, [[John 11.45|John 11:45]].
 
 If we let him thus alone, all men will *believe*, [[John 11.48|John 11:48]].
 
@@ -151,13 +150,13 @@ many of the Jews went away, and *believed* on Jesus, [[John 12.11|John 12:11]].
 
 While ye have light, *believe* in the light, [[John 12.36|John 12:36]].
 
-had done so many miracles ... yet they *believed* not, [[John 12.37|John 12:37]].
+had done so many miracles … yet they *believed* not, [[John 12.37|John 12:37]].
 
 among the chief rulers also many *believed* on him, [[John 12.42|John 12:42]].
 
 He that *believeth* on me, *believeth* not on me, but on him that sent me, [[John 12.44|John 12:44]].
 
-if any man ... *believe* not, I judge him not, [[John 12.47|John 12:47]].
+if any man … *believe* not, I judge him not, [[John 12.47|John 12:47]].
 
 when it is come to pass, ye may *believe* that I am he, [[John 13.19|John 13:19]].
 
@@ -171,15 +170,15 @@ have *believed* that I came out from God, [[John 16.27|John 16:27]].
 
 they have *believed* that thou didst send me, [[John 17.8|John 17:8]].
 
-pray ... for them also which shall *believe* on me, [[John 17.20|John 17:20]].
+pray … for them also which shall *believe* on me, [[John 17.20|John 17:20]].
 
 that the world may *believe* that thou hast sent me, [[John 17.21|John 17:21]].
 
 he saith true, that ye might *believe*, [[John 19.35|John 19:35]].
 
-that other disciple ... saw, and *believed*, [[John 20.8|John 20:8]].
+that other disciple … saw, and *believed*, [[John 20.8|John 20:8]].
 
-Except I shall see ... I will not *believe*, [[John 20.25|John 20:25]].
+Except I shall see … I will not *believe*, [[John 20.25|John 20:25]].
 
 be not faithless, but *believing*, [[John 20.27|John 20:27]].
 
@@ -197,13 +196,13 @@ by him all that *believe* are justified, [[Acts 13.39|Acts 13:39]].
 
 as many as were ordained to eternal life *believed*, [[Acts 13.48|Acts 13:48]].
 
-multitude ... of the Jews and ... Greeks *believed*, [[Acts 14.1|Acts 14:1]].
+multitude … of the Jews and … Greeks *believed*, [[Acts 14.1|Acts 14:1]].
 
-rose up certain ... Pharisees which *believed*, [[Acts 15.5|Acts 15:5]].
+rose up certain … Pharisees which *believed*, [[Acts 15.5|Acts 15:5]].
 
 certain woman, which was a Jewess, and *believed*, [[Acts 16.1|Acts 16:1]].
 
-Crispus ... *believed* on the Lord with all his house, [[Acts 18.8|Acts 18:8]].
+Crispus … *believed* on the Lord with all his house, [[Acts 18.8|Acts 18:8]].
 
 many thousands of Jews there are which *believe*, [[Acts 21.20|Acts 21:20]].
 
@@ -223,7 +222,7 @@ Who against hope *believed* in hope, [[Romans 4.18|Romans 4:18]].
 
 *believeth* on him shall not be ashamed, [[Romans 9.33|Romans 9:33]] ([[Romans 10.11|Romans 10:11]]).
 
-*believe* in thine heart that God ... raised him, [[Romans 10.9|Romans 10:9]].
+*believe* in thine heart that God … raised him, [[Romans 10.9|Romans 10:9]].
 
 call on him in whom they have not *believed*, [[Romans 10.14|Romans 10:14]].
 
@@ -239,7 +238,7 @@ god of this world hath blinded the minds of them which *believe* not, [[2 Corint
 
 what part hath he that *believeth* with an infidel, [[2 Corinthians 6.15|2 Corinthians 6:15]].
 
-promise ... might be given to them that *believe*, [[Galatians 3.22|Galatians 3:22]].
+promise … might be given to them that *believe*, [[Galatians 3.22|Galatians 3:22]].
 
 after that ye *believed*, ye were sealed, [[Ephesians 1.13|Ephesians 1:13]].
 
@@ -249,7 +248,7 @@ not only to *believe* on him, but also to suffer, [[Philippians 1.29|Philippians
 
 all might be damned who *believed* not the truth, [[2 Thessalonians 2.12|2 Thessalonians 2:12]].
 
-God was manifest in the flesh ... *believed* on in the world, [[1 Timothy 3.16|1 Timothy 3:16]].
+God was manifest in the flesh … *believed* on in the world, [[1 Timothy 3.16|1 Timothy 3:16]].
 
 Saviour of all men, specially of those that *believe*, [[1 Timothy 4.10|1 Timothy 4:10]].
 
@@ -259,7 +258,7 @@ we which have *believed* do enter into rest, [[Hebrews 4.3|Hebrews 4:3]].
 
 he that cometh to God must *believe*, [[Hebrews 11.6|Hebrews 11:6]].
 
-*believest* that there is one God ... devils also *believe*, [[James 2.19|James 2:19]].
+*believest* that there is one God … devils also *believe*, [[James 2.19|James 2:19]].
 
 ye see him not, yet *believing*, [[1 Peter 1.8|1 Peter 1:8]].
 
@@ -275,15 +274,15 @@ that *believeth* on the Son of God hath the witness, [[1 John 5.10|1 John 5:10]]
 
 unto you that *believe* on the name of the Son, [[1 John 5.13|1 John 5:13]].
 
-Lord ... afterward destroyed them that *believed* not, [[Jude 1.5|Jude 1:5]].
+Lord … afterward destroyed them that *believed* not, [[Jude 1.5|Jude 1:5]].
 
-Neither did they *believe* that Jerusalem ... could be destroyed, [[1 Nephi 2.13|1 Nephi 2:13]].
+Neither did they *believe* that Jerusalem … could be destroyed, [[1 Nephi 2.13|1 Nephi 2:13]].
 
 if ye shall *believe* in Christ ye will *believe* in these words, [[2 Nephi 33.10|2 Nephi 33:10]].
 
 if you *believe* all these things see that ye do them, [[Mosiah 4.10|Mosiah 4:10]].
 
-whosoever is baptized ... shall *believe* in my name, [[Mosiah 26.22|Mosiah 26:22]].
+whosoever is baptized … shall *believe* in my name, [[Mosiah 26.22|Mosiah 26:22]].
 
 began to persecute those that did not *believe*, [[Alma 4.8|Alma 4:8]].
 
@@ -293,9 +292,9 @@ lead them to *believe* in my words, [[Alma 17.29|Alma 17:29]].
 
 as many as did *believe* were baptized, [[Alma 19.35|Alma 19:35]].
 
-Lamanites were brought to *believe* ... were firm, [[Alma 24.19|Alma 24:19]].
+Lamanites were brought to *believe* … were firm, [[Alma 24.19|Alma 24:19]].
 
-there was no law against a man's *belief*, [[Alma 30.7|Alma 30:7]].
+there was no law against a man’s *belief*, [[Alma 30.7|Alma 30:7]].
 
 thou *believest*, but thou art possessed, [[Alma 30.42|Alma 30:42]].
 
@@ -327,9 +326,9 @@ in faith *believing*, you shall receive the Holy Ghost, [[D&C 14.8|D&C 14:8]].
 
 all men must repent and *believe* on the name of Jesus Christ, [[D&C 20.29|D&C 20:29]].
 
-show ... wonders, unto all those who *believe*, [[D&C 35.8|D&C 35:8]].
+show … wonders, unto all those who *believe*, [[D&C 35.8|D&C 35:8]].
 
-unto them that *believed* ... gave I power, [[D&C 45.8|D&C 45:8]].
+unto them that *believed* … gave I power, [[D&C 45.8|D&C 45:8]].
 
 To others it is given to *believe* on their words, [[D&C 46.14|D&C 46:14]].
 
@@ -339,10 +338,10 @@ ye *believed* not my servants, [[D&C 133.71|D&C 133:71]].
 
 in the free exercise of their religious *belief*, [[D&C 134.7|D&C 134:7]].
 
-Satan ... commanded ... *Believe* it not; and they *believed* it not, [[Moses 5.13|Moses 5:13]].
+Satan … commanded … *Believe* it not; and they *believed* it not, [[Moses 5.13|Moses 5:13]].
 
-*believed* ... should be saved; ... *believed* not ... damned, [[Moses 5.15|Moses 5:15]].
+*believed* … should be saved; … *believed* not … damned, [[Moses 5.15|Moses 5:15]].
 
-they would not hearken ... nor *believe*, [[Moses 5.57|Moses 5:57]].
+they would not hearken … nor *believe*, [[Moses 5.57|Moses 5:57]].
 
-*Believe* and repent ... and be baptized, [[Moses 8.24|Moses 8:24]].
+*Believe* and repent … and be baptized, [[Moses 8.24|Moses 8:24]].

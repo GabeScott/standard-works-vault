@@ -1,6 +1,8 @@
 # Gathering the Family of God
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Bonnie H. Cordon
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -34,9 +36,9 @@ But you and I know, because of the truths restored through the Prophet Joseph Sm
 
 Centuries ago, the prophet Malachi said that in a coming day, God would send Elijah to “turn the heart of the fathers to the children, and the heart of the children to their fathers” ([[Malachi 4.6|Malachi 4:6]]).
 
-This prophecy was so important the Savior quoted it when He visited the Americas after His Resurrection (see [[3 Nephi 25.5|3 Nephi 25:5–6]][[3 Nephi 25.6|]]). And when the angel Moroni visited the Prophet Joseph Smith, he too quoted the prophecy about Elijah and hearts, fathers, and children (see [[Joseph Smith History 1.36|Joseph Smith—History 1:36–39]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]]).
+This prophecy was so important the Savior quoted it when He visited the Americas after His Resurrection (see [[3 Nephi 25.5|3 Nephi 25:5–6]][[3 Nephi 25.6|]]). And when the angel Moroni visited the Prophet Joseph Smith, he too quoted the prophecy about Elijah and hearts, fathers, and children (see [[Joseph Smith History 1.36|Joseph Smith—History 1:36–39]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]]).
 
-Today is April 1. Two days from now, April 3, marks 181 years from the day when Malachi’s prophecy was fulfilled. On that day, Elijah did come, and he gave to Joseph Smith the priesthood power to seal families eternally (see [[D&C 110.13|D&C 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]).
+Today is April 1. Two days from now, April 3, marks 181 years from the day when Malachi’s prophecy was fulfilled. On that day, Elijah did come, and he gave to Joseph Smith the priesthood power to seal families eternally (see [[D&C 110.13|D&C 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]).
 
 From that day to this, interest in exploring one’s family history has grown exponentially. At ever-increasing rates, people seem drawn to their ancestry with more than just casual curiosity. Genealogical libraries, associations, and technologies have emerged around the world to support this interest. The internet’s power to enhance communications has enabled families to work together to do family history research with a speed and thoroughness never before possible.
 
@@ -46,7 +48,7 @@ For example, as you follow the promptings to learn about your family history, yo
 
 Many of your ancestors did not receive those ordinances. But in the providence of God, you did. And God knew that you would feel drawn to your ancestors in love and that you would have the technology necessary to identify them. He also knew that you would live in a time when access to holy temples, where the ordinances can be performed, would be greater than ever in history. And He knew that He could trust you to accomplish this work in behalf of your ancestors.
 
-Of course, all of us have many pressing and important responsibilities that need our attention and time. All of us find parts of what the Lord expects us to do beyond our abilities. Fortunately, the Lord provides a way for each of us to gain confidence and satisfaction in all our service, including family history service. We gain strength to do what He asks through our faith that the Savior gives no commandment “save he shall prepare a way for \[us\] that \[we\] may accomplish the thing which he commandeth” ([[1 Nephi 3.7|1 Nephi 3:7]]).
+Of course, all of us have many pressing and important responsibilities that need our attention and time. All of us find parts of what the Lord expects us to do beyond our abilities. Fortunately, the Lord provides a way for each of us to gain confidence and satisfaction in all our service, including family history service. We gain strength to do what He asks through our faith that the Savior gives no commandment “save he shall prepare a way for \[us\] that \[we\] may accomplish the thing which he commandeth” ([[1 Nephi 3.7|1 Nephi 3:7]]).
 
 I know this is true from experience. Many years ago, as a university student, I met a man who worked for one of the largest computer companies in the world. This was in the early days of computing, and it just so happened that his company had sent him to sell computers to The Church of Jesus Christ of Latter-day Saints.
 
@@ -75,8 +77,3 @@ I testify that God the Father wants His children home again, in families and in 
 
 
 
-
-
-
-
-#Family #Family_History #Holy_Ghost #Jesus_Christ #Ordinances #Plan_Of_Salvation #Temple_Work #Youth

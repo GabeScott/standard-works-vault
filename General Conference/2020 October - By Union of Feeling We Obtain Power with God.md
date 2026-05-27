@@ -1,5 +1,7 @@
 # By Union of Feeling We Obtain Power with God
 
+Russell M. Nelson
+
 By Sharon Eubank - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2020 General Conference*
@@ -32,7 +34,7 @@ My own Relief Society president recently said: “The thing I … promise … yo
 
 Joseph Smith told the sisters on that June day in 1842:
 
-“When persons manifest the least kindness and love to me, O what pow’r it has over my mind. …
+“When persons manifest the least kindness and love to me, O what pow’r it has over my mind. …
 
 “… The nearer we get to our heavenly Father, the more are we dispos’d to look with compassion on perishing souls—\[we feel that we want\] to take them upon our shoulders and cast their sins behind our back. \[My talk is intended for\] all this Society—if you would have God have mercy on you, have mercy on one another.”[^2]
 
@@ -52,7 +54,7 @@ Against towering obstacles, this team found perfect swing and won. The Olympic g
 
 ## Clear Away the Bad as Fast as the Good Can Grow
 
-In the exquisite allegory in [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]], the Lord of the vineyard planted a good tree in good ground, but it became corrupted over time and brought forth wild fruit. The Lord of the vineyard says eight times: “It grieveth me \[to\] lose this tree.”
+In the exquisite allegory in [[Jacob 5.1|Jacob 5]], the Lord of the vineyard planted a good tree in good ground, but it became corrupted over time and brought forth wild fruit. The Lord of the vineyard says eight times: “It grieveth me \[to\] lose this tree.”
 
 The servant says to the Lord of the vineyard: “Spare \[the tree\] a little longer. And the Lord said: Yea, I will spare it a little longer.”[^5]
 
@@ -60,7 +62,7 @@ And then comes instruction that can be applied to all of us trying to dig about 
 
 Unity doesn’t magically happen; it takes work. It’s messy, sometimes uncomfortable, and happens gradually when we clear away the bad as fast as the good can grow.
 
-We are never alone in our efforts to create unity. [[Jacob 5.1|Jacob 5]][[Jacob 5.2|]][[Jacob 5.3|]][[Jacob 5.4|]][[Jacob 5.5|]][[Jacob 5.6|]][[Jacob 5.7|]][[Jacob 5.8|]][[Jacob 5.9|]][[Jacob 5.10|]][[Jacob 5.11|]][[Jacob 5.12|]][[Jacob 5.13|]][[Jacob 5.14|]][[Jacob 5.15|]][[Jacob 5.16|]][[Jacob 5.17|]][[Jacob 5.18|]][[Jacob 5.19|]][[Jacob 5.20|]][[Jacob 5.21|]][[Jacob 5.22|]][[Jacob 5.23|]][[Jacob 5.24|]][[Jacob 5.25|]][[Jacob 5.26|]][[Jacob 5.27|]][[Jacob 5.28|]][[Jacob 5.29|]][[Jacob 5.30|]][[Jacob 5.31|]][[Jacob 5.32|]][[Jacob 5.33|]][[Jacob 5.34|]][[Jacob 5.35|]][[Jacob 5.36|]][[Jacob 5.37|]][[Jacob 5.38|]][[Jacob 5.39|]][[Jacob 5.40|]][[Jacob 5.41|]][[Jacob 5.42|]][[Jacob 5.43|]][[Jacob 5.44|]][[Jacob 5.45|]][[Jacob 5.46|]][[Jacob 5.47|]][[Jacob 5.48|]][[Jacob 5.49|]][[Jacob 5.50|]][[Jacob 5.51|]][[Jacob 5.52|]][[Jacob 5.53|]][[Jacob 5.54|]][[Jacob 5.55|]][[Jacob 5.56|]][[Jacob 5.57|]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]][[Jacob 5.69|]][[Jacob 5.70|]][[Jacob 5.71|]][[Jacob 5.72|]][[Jacob 5.73|]][[Jacob 5.74|]][[Jacob 5.75|]][[Jacob 5.76|]][[Jacob 5.77|]] continues, “The servants did go and labor with their mights; and the Lord of the vineyard labored also with them.”[^7]
+We are never alone in our efforts to create unity. [[Jacob 5.1|Jacob 5]] continues, “The servants did go and labor with their mights; and the Lord of the vineyard labored also with them.”[^7]
 
 Each of us is going to have deeply wounding experiences, things that should never happen. Each of us will also, at various times, allow pride and loftiness to corrupt the fruit we bear. But Jesus Christ is our Savior in all things. His power reaches to the very bottom and is reliably there for us when we call on Him. We all beg for mercy for our sins and failures. He freely gives it. And He asks us if we can give that same mercy and understanding to each other.
 
@@ -74,16 +76,16 @@ As covenant women, we have broad influence. That influence is applied in everyda
 
 Relief Society and Young Women are not simply classes. They can also be unforgettable experiences where very different women all get into the same boat and row until we find our *swing.* I offer this invitation: be part of a collective force that changes the world for good. Our covenantal assignment is to minister, to lift up the hands that hang down, to put struggling people on our backs or in our arms and carry them. It isn’t complicated to know what to do, but it often goes against our selfish interests, and we have to try. The women of this Church have unlimited potential to change society. I have full spiritual confidence that, as we seek union of feeling, we will call down the power of God to make our efforts whole.
 
-When the Church commemorated the 1978 revelation on priesthood, President Russell M. Nelson extended a powerful prophetic blessing: “It is my prayer *and blessing* that I leave upon all who are listening that we may overcome any burdens of prejudice and walk uprightly with God—and with one another—in perfect peace and harmony.”[^10]
+When the Church commemorated the 1978 revelation on priesthood, President Russell M. Nelson extended a powerful prophetic blessing: “It is my prayer *and blessing* that I leave upon all who are listening that we may overcome any burdens of prejudice and walk uprightly with God—and with one another—in perfect peace and harmony.”[^10]
 
 May we draw on this prophetic blessing and use our individual and collective efforts to increase unity in the world. I leave my testimony in the words of the Lord Jesus Christ’s humble, timeless prayer: “That they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us.”[^11] In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: “[Minutes and Discourse, 9 June 1842](https://www.josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/1),” 61, Joseph Smith Papers, josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/1.
+[^1]: “[Minutes and Discourse, 9 June 1842](https://www.josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/1),” 61, Joseph Smith Papers, josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/1.
 
-[^2]: “[Minutes and Discourse, 9 June 1842](https://www.josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/2),” 62, Joseph Smith Papers, josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/2.
+[^2]: “[Minutes and Discourse, 9 June 1842](https://www.josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/2),” 62, Joseph Smith Papers, josephsmithpapers.org/paper-summary/minutes-and-discourse-9-june-1842/2.
 
 [^3]: See Cree-L Kofford, “[[1999 April - Your Name Is Safe in Our Home.md|Your Name Is Safe in Our Home]],” *Ensign,* May 1999, 81–83; *Liahona,* July 1999, 96–98.
 
@@ -99,12 +101,7 @@ May we draw on this prophetic blessing and use our individual and collective eff
 
 [^9]: [[Moses 7.18|Moses 7:18]].
 
-[^10]: Russell M. Nelson, “[Building Bridges](https://churchofjesuschrist.org/study/new-era/2018/08/be-one/building-bridges?lang=eng&id=p14#p14),” *New Era,* Aug. 2018, 6; *Liahona,* Dec. 2018, 51; emphasis added.
+[^10]: Russell M. Nelson, “[Building Bridges](https://www.churchofjesuschrist.org/study/new-era/2018/08/be-one/building-bridges?lang=eng&id=p14#p14),” *New Era,* Aug. 2018, 6; *Liahona,* Dec. 2018, 51; emphasis added.
 
 [^11]: [[John 17.21|John 17:21]].
 
-
-
-
-
-#Diversity #Mercy #Prejudice #Unity

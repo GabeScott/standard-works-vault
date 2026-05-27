@@ -1,12 +1,14 @@
 # The Joy of Living the Great Plan of Happiness
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1996/10/the-joy-of-living-the-great-plan-of-happiness?lang=eng)
 
-The scriptures record, “And I, God, created man … ; male and female created I them.”[^1] This was done spiritually in your premortal existence when you lived in the presence of your Father in Heaven. Your gender existed before you came to earth. You elected to have this earth experience as part of His plan for you. The prophets call it “the plan of mercy,”[^2] the “eternal plan of deliverance,”[^3] “the plan of salvation,”[^4] and, yes, “the great plan of happiness.”[^5] You were taught this plan before you came to earth and there rejoiced in the privilege of participating in it.
+The scriptures record, “And I, God, created man … ; male and female created I them.”[^1] This was done spiritually in your premortal existence when you lived in the presence of your Father in Heaven. Your gender existed before you came to earth. You elected to have this earth experience as part of His plan for you. The prophets call it “the plan of mercy,”[^2] the “eternal plan of deliverance,”[^3] “the plan of salvation,”[^4] and, yes, “the great plan of happiness.”[^5] You were taught this plan before you came to earth and there rejoiced in the privilege of participating in it.
 
 Obedience to the plan is a requisite for full happiness in this life and a continuation of eternal joy beyond the veil. Essential to His plan of happiness is agency—the right of personal choice. Also fundamental is the holy privilege of procreation to be exercised within the commitment of legal marriage. Marriage between man and woman is essential to His eternal plan. The family is ordained of God.[^6] As husband and wife, you have the responsibility to bear children and to nurture and train them spiritually, emotionally, and physically.[^7]
 
@@ -61,7 +63,7 @@ I obviously don’t know what it feels like to be a woman, but I do know what it
 
 [^2]: [[Alma 42.15|Alma 42:15]].
 
-[^3]: [[2 Nephi 11.5|2 Ne. 11:5]].
+[^3]: [[2 Nephi 11.5|2 Ne. 11:5]].
 
 [^4]: [[Moses 6.62|Moses 6:62]].
 
@@ -71,7 +73,7 @@ I obviously don’t know what it feels like to be a woman, but I do know what it
 
 [^7]: See “Proclamation,” *Ensign,* Nov. 1995, 102.
 
-[^8]: See [[2 Nephi 9.8|2 Ne. 9:8–9]][[2 Nephi 9.9|]]; [[Alma 12.4|Alma 12:4–5]][[Alma 12.5|]]; [[Helaman 2.8|Hel. 2:8]]; [[3 Nephi 1.16|3 Ne. 1:16]]; [[D&C 10.12|D&C 10:12, 23]][[D&C 10.23|]].
+[^8]: See [[2 Nephi 9.8|2 Ne. 9:8–9]][[2 Nephi 9.9|]]; [[Alma 12.4|Alma 12:4–5]][[Alma 12.5|]]; [[Helaman 2.8|Hel. 2:8]]; [[3 Nephi 1.16|3 Ne. 1:16]]; [[D&C 10.12|D&C 10:12, 23]][[D&C 10.23|]].
 
 [^9]: [[Moses 4.17|Moses 4:17]].
 
@@ -97,13 +99,13 @@ I obviously don’t know what it feels like to be a woman, but I do know what it
 
 [^20]: [[Moses 5.16|Moses 5:16]].
 
-[^21]: [[2 Nephi 9.13|2 Ne. 9:13]].
+[^21]: [[2 Nephi 9.13|2 Ne. 9:13]].
 
 [^22]: See Spencer W. Kimball, San Antonio fireside, 3 Dec. 1977, 32.
 
-[^23]: See Gordon B. Hinckley, in Conference Report, Apr. 1991, 94; or *Ensign,* May 1991, 71.
+[^23]: See Gordon B. Hinckley, in Conference Report, Apr. 1991, [[1991 April - What God Hath Joined Together.md|94]]; or *Ensign,* May 1991, 71.
 
-[^24]: See [[2 Nephi 9.13|2 Ne. 9:13]].
+[^24]: See [[2 Nephi 9.13|2 Ne. 9:13]].
 
 [^25]: See Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 2:76.
 
@@ -111,8 +113,3 @@ I obviously don’t know what it feels like to be a woman, but I do know what it
 
 [^27]: Jeanene W. Scott, BYU Women’s Conference, 6 Apr. 1989, 1.
 
-
-
-
-
-#Blessings #Example #Holy_Ghost #Home #Joy #Marriage #Motherhood #Parenthood #Pioneers #Plan_Of_Salvation #Sacrifice

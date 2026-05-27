@@ -1,5 +1,7 @@
 # As a Child
 
+Robert D. Hales
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -22,7 +24,7 @@ He started in his discourse where we must all begin to help people escape spirit
 
 Here is how he described the consequences which follow our choice either to follow the prompting of the Spirit of Christ or to follow the evil messages which come from Satan, whose purpose is to tempt us and trap us into sin:
 
-“For behold, there is a wo pronounced upon him who listeth to obey that \[evil\] spirit; for if he listeth to obey him, and remaineth and dieth in his sins, the same drinketh damnation to his own soul; for he receiveth for his wages an everlasting punishment, having transgressed the law of God contrary to his own knowledge. …
+“For behold, there is a wo pronounced upon him who listeth to obey that \[evil\] spirit; for if he listeth to obey him, and remaineth and dieth in his sins, the same drinketh damnation to his own soul; for he receiveth for his wages an everlasting punishment, having transgressed the law of God contrary to his own knowledge. …
 
 “Therefore if that man repenteth not, and remaineth and dieth an enemy to God, the demands of divine justice do awaken his immortal soul to a lively sense of his own guilt, which doth cause him to shrink from the presence of the Lord, and doth fill his breast with guilt, and pain, and anguish, which is like an unquenchable fire, whose flame ascendeth up forever and ever.”
 
@@ -95,7 +97,7 @@ In the name of Jesus Christ, amen.
 
 
 
-[^1]: [[2 Timothy 3.1|2 Timothy 3:1]].
+[^1]: [[2 Timothy 3.1|2 Timothy 3:1]].
 
 [^2]: [[Helaman 5.12|Helaman 5:12]].
 
@@ -103,7 +105,7 @@ In the name of Jesus Christ, amen.
 
 [^4]: See [[Matthew 25.21|Matthew 25:21]].
 
-[^5]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
+[^5]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
 
 [^6]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -121,8 +123,3 @@ In the name of Jesus Christ, amen.
 
 [^13]: See [[D&C 62.1|D&C 62:1]].
 
-
-
-
-
-#Children #Faith #Holy_Ghost #Safety

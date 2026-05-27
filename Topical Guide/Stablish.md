@@ -1,6 +1,5 @@
 # Stablish
 
-
 *See also* [[Establish.md|Establish]]
 
 I will *stablish* the throne of his kingdom, [[2 Samuel 7.13|2 Samuel 7:13]] ([[1 Chronicles 17.12|1 Chronicles 17:12]]).

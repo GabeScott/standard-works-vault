@@ -1,13 +1,12 @@
 # Understanding
 
-
-*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Edification, Edify.md|Edification]]; [[Education.md|Education]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Intelligence.md|Intelligence]]; [[Knowledge.md|Knowledge]]; [[Learn, Learning.md|Learn]]; [[Prudence, Prudent.md|Prudence]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Truth.md|Truth]]; [[Understand, Understood.md|Understand]]; [[Wisdom.md|Wisdom]]
+*See also* [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Edification.md|Edification]]; [[Education.md|Education]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[Intelligence.md|Intelligence]]; [[Knowledge.md|Knowledge]]; [[Learn.md|Learn]]; [[Prudence.md|Prudence]]; [[Scriptures, Value of.md|Scriptures, Value of]]; [[Study.md|Study]]; [[Truth.md|Truth]]; [[Understand.md|Understand]]; [[Wisdom.md|Wisdom]]
 
 this is your wisdom and your *understanding*, [[Deuteronomy 4.6|Deuteronomy 4:6]].
 
 neither is there any *understanding* in them, [[Deuteronomy 32.28|Deuteronomy 32:28]].
 
-Give ... thy servant an *understanding* heart, [[1 Kings 3.9|1 Kings 3:9]].
+Give … thy servant an *understanding* heart, [[1 Kings 3.9|1 Kings 3:9]].
 
 God gave Solomon wisdom and *understanding*, [[1 Kings 4.29|1 Kings 4:29]].
 
@@ -19,23 +18,23 @@ inspiration of the Almighty giveth them *understanding*, [[Job 32.8|Job 32:8]].
 
 who hath given *understanding* to the heart, [[Job 38.36|Job 38:36]].
 
-Be ye not ... as the mule, which have no *understanding*, [[Psalms 32.9|Psalms 32:9]].
+Be ye not … as the mule, which have no *understanding*, [[Psalms 32.9|Psalms 32:9]].
 
 meditation of my heart shall be of *understanding*, [[Psalms 49.3|Psalms 49:3]].
 
 good *understanding* have all they that do his commandments, [[Psalms 111.10|Psalms 111:10]].
 
-thy words ... giveth *understanding*, [[Psalms 119.130|Psalms 119:130]].
+thy words … giveth *understanding*, [[Psalms 119.130|Psalms 119:130]].
 
-Lord ... his *understanding* is infinite, [[Psalms 147.5|Psalms 147:5]] ([[Alma 26.35|Alma 26:35]]).
+Lord … his *understanding* is infinite, [[Psalms 147.5|Psalms 147:5]] ([[Alma 26.35|Alma 26:35]]).
 
 apply thine heart to *understanding*, [[Proverbs 2.2|Proverbs 2:2]].
 
-out of his mouth cometh ... *understanding*, [[Proverbs 2.6|Proverbs 2:6]].
+out of his mouth cometh … *understanding*, [[Proverbs 2.6|Proverbs 2:6]].
 
 lean not unto thine own *understanding*, [[Proverbs 3.5|Proverbs 3:5]].
 
-Happy is the man ... that getteth *understanding*, [[Proverbs 3.13|Proverbs 3:13]].
+Happy is the man … that getteth *understanding*, [[Proverbs 3.13|Proverbs 3:13]].
 
 by *understanding* hath he established the heavens, [[Proverbs 3.19|Proverbs 3:19]].
 
@@ -69,7 +68,7 @@ fool hath no delight in *understanding*, [[Proverbs 18.2|Proverbs 18:2]].
 
 he that keepeth *understanding* shall find good, [[Proverbs 19.8|Proverbs 19:8]].
 
-There is no ... *understanding* ... against the Lord, [[Proverbs 21.30|Proverbs 21:30]].
+There is no … *understanding* … against the Lord, [[Proverbs 21.30|Proverbs 21:30]].
 
 prince that wanteth *understanding* is also a great oppressor, [[Proverbs 28.16|Proverbs 28:16]].
 
@@ -79,9 +78,9 @@ people of no *understanding*, [[Isaiah 27.11|Isaiah 27:11]].
 
 *understanding* of their prudent men shall be hid, [[Isaiah 29.14|Isaiah 29:14]] ([[1 Corinthians 1.19|1 Corinthians 1:19]]; [[2 Nephi 27.26|2 Nephi 27:26]]).
 
-who ... shewed to him the way of *understanding*, [[Isaiah 40.14|Isaiah 40:14]].
+who … shewed to him the way of *understanding*, [[Isaiah 40.14|Isaiah 40:14]].
 
-Hear ... O foolish people, and without *understanding*, [[Jeremiah 5.21|Jeremiah 5:21]].
+Hear … O foolish people, and without *understanding*, [[Jeremiah 5.21|Jeremiah 5:21]].
 
 stretched out the heaven by his *understanding*, [[Jeremiah 51.15|Jeremiah 51:15]].
 
@@ -89,7 +88,7 @@ Daniel had *understanding* in all visions, [[Daniel 1.17|Daniel 1:17]].
 
 some of them of *understanding* shall fall, [[Daniel 11.35|Daniel 11:35]].
 
-love him ... with all the *understanding*, [[Mark 12.33|Mark 12:33]].
+love him … with all the *understanding*, [[Mark 12.33|Mark 12:33]].
 
 astonished at his *understanding* and answers, [[Luke 2.47|Luke 2:47]].
 
@@ -117,13 +116,13 @@ Lord give thee *understanding* in all things, [[2 Timothy 2.7|2 Timothy 2:7]].
 
 plain unto the *understanding*, [[1 Nephi 13.29|1 Nephi 13:29]] ([[1 Nephi 14.23|1 Nephi 14:23]]).
 
-new writing ... which did give us *understanding*, [[1 Nephi 16.29|1 Nephi 16:29]].
+new writing … which did give us *understanding*, [[1 Nephi 16.29|1 Nephi 16:29]].
 
 Spirit of the Lord shall rest upon him, the spirit of wisdom and *understanding*, [[2 Nephi 21.2|2 Nephi 21:2]].
 
 God giveth light unto the *understanding*, [[2 Nephi 31.3|2 Nephi 31:3]].
 
-finish out my record ... according to ... *understanding* which God has given me, [[Words of Mormon 1.9|Words of Mormon 1:9]].
+finish out my record … according to … *understanding* which God has given me, [[Words of Mormon 1.9|Words of Mormon 1:9]].
 
 become men of *understanding*, [[Mosiah 1.2|Mosiah 1:2]].
 
@@ -133,13 +132,13 @@ they were men of a sound *understanding*, [[Alma 17.2|Alma 17:2]].
 
 beginneth to enlighten my *understanding*, [[Alma 32.28|Alma 32:28]].
 
-Moroni ... was a man of a perfect *understanding*, [[Alma 48.11|Alma 48:11]].
+Moroni … was a man of a perfect *understanding*, [[Alma 48.11|Alma 48:11]].
 
 great power, which looks small unto the *understanding* of men, [[Ether 3.5|Ether 3:5]].
 
-commandments ... given ... that they might come to *understanding*, [[D&C 1.24|D&C 1:24]].
+commandments … given … that they might come to *understanding*, [[D&C 1.24|D&C 1:24]].
 
-expound all things ... to their *understanding*, [[D&C 20.68|D&C 20:68]].
+expound all things … to their *understanding*, [[D&C 20.68|D&C 20:68]].
 
 he that hath no *understanding*, it remaineth in me, [[D&C 29.50|D&C 29:50]].
 

@@ -1,7 +1,6 @@
 # Debt
 
-
-*See also* [[Lend, Lent.md|Lend]]; [[Usury.md|Usury]]
+*See also* [[Lend.md|Lend]]; [[Usury.md|Usury]]
 
 If thou *lend* money to any of my people that is poor, [[Exodus 22.25|Exodus 22:25]].
 
@@ -27,12 +26,10 @@ lives, for which ye are *indebted* unto him, [[Mosiah 2.23|Mosiah 2:23]].
 
 ye are eternally *indebted* to your heavenly Father, [[Mosiah 2.34|Mosiah 2:34]].
 
-whosoever ... *borroweth* of his neighbor should return, [[Mosiah 4.28|Mosiah 4:28]] ([[D&C 136.25|D&C 136:25]]).
+whosoever … *borroweth* of his neighbor should return, [[Mosiah 4.28|Mosiah 4:28]] ([[D&C 136.25|D&C 136:25]]).
 
-Pay the *debt* ... Release thyself from bondage, [[D&C 19.35|D&C 19:35]].
+Pay the *debt* … Release thyself from bondage, [[D&C 19.35|D&C 19:35]].
 
 forbidden, to get in *debt* to thine enemies, [[D&C 64.27|D&C 64:27]].
 
 it is my will that you shall pay all your *debts*, [[D&C 104.78|D&C 104:78]].
-
-*See also* [[Luke 7.41|Luke 7:41]]; [[Luke 16.5|Luke 16:5]]; [[Romans 8.12|Romans 8:12]]; [[Galatians 5.3|Galatians 5:3]].

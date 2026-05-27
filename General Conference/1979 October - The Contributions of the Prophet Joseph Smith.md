@@ -1,6 +1,8 @@
 # The Contributions of the Prophet Joseph Smith
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -22,7 +24,7 @@ As repaired shoes were returned there was always a new tract, and her curiosity 
 
 “At length, on 1 April 1881, a little more than two years after she first heard of the Gospel, she was baptized into the Church. … Thin ice still lay over the edges of the fjord, which had to be broken to permit the \[baptism\]. The water was icy cold yet she declared to her dying day that never before in all her life had she felt warmer or more comfortable than when she came out of the baptismal waters of old Trondheim’s fjord. The fire within was kindled, never to be extinguished.”
 
-This account is taken from a book titled *In the Gospel Net* (Salt Lake City: *Improvement Era,* 1942, pp. 47, 53–57), written by Elder John A. Widtsoe, Anna’s eldest son, who later became an Apostle and member of the Council of the Twelve in The Church of Jesus Christ of Latter-day Saints.
+This account is taken from a book titled *In the Gospel Net* (Salt Lake City: *Improvement Era,* 1942, pp. 47, 53–57), written by Elder John A. Widtsoe, Anna’s eldest son, who later became an Apostle and member of the Council of the Twelve in The Church of Jesus Christ of Latter-day Saints.
 
 What remarkable coincidence has brought about a repetition of similar episodes in the lives of people all over the world since the year 1830?
 
@@ -60,7 +62,7 @@ A writer in the *New York Sun* of 4 September 1843 stated:
 
 “‘This Joe Smith must be set down as an extraordinary character, a prophet-hero, as Carlyle might call him. He is one of the great men of this age, and in future history will rank with those who, in one way or another, have stamped their impress strongly on society’” (*History of the Church,* 6:3).
 
-In a book entitled *Joseph Smith, An American Prophet,* we read the following, written by John Henry Evans: “This man became mayor of the biggest town in Illinois and the state’s most prominent citizen, the commander of the largest body of trained soldiers in the nation outside the Federal army, the founder of cities and of a university. …
+In a book entitled *Joseph Smith, An American Prophet,* we read the following, written by John Henry Evans: “This man became mayor of the biggest town in Illinois and the state’s most prominent citizen, the commander of the largest body of trained soldiers in the nation outside the Federal army, the founder of cities and of a university. …
 
 “He wrote a book \[the Book of Mormon\] which has baffled the literary critics for a hundred years and which is today more widely read than any other volume save the Bible. On the threshold of an organizing age he established the most nearly perfect social mechanism in the modern world, and developed a religious philosophy that challenges anything of the kind in history, for completeness and cohesion. And he set up the machinery for an economic system that would take the brood of Fears out of the heart of man—the fear of want through sickness, old age, unemployment, and poverty” (New York: MacMillan, 1946, p. 4).
 
@@ -74,9 +76,9 @@ Following the revelations he received, Joseph Smith taught with authority many t
 
 Another teaching closely related with the fatherhood of God and the sonship of man is the actuality of Satan, the devil. He is real and is determined to lead as many as he can away from the presence of God and into his captivity.
 
-Joseph taught the doctrine of free agency—that we are free to choose for ourselves good or evil, with the resulting blessings or penalties. We read in 2 Corinthians:
+Joseph taught the doctrine of free agency—that we are free to choose for ourselves good or evil, with the resulting blessings or penalties. We read in 2 Corinthians:
 
-“For we must all appear before the judgment seat of Christ; that every one may receive the things done in his body, according to that he hath done, whether it be good or bad” ([[2 Corinthians 5.10|2 Cor. 5:10]]).
+“For we must all appear before the judgment seat of Christ; that every one may receive the things done in his body, according to that he hath done, whether it be good or bad” ([[2 Corinthians 5.10|2 Cor. 5:10]]).
 
 He gave the world a new concept of the priesthood—that it is the authority given by God for man to act in his name. Through revelation he defined clearly all the offices and duties of the priesthood from the deacon to the high priest; and they are so well described in section 107 of the Doctrine and Covenants that 144 years later we are still following those instructions for the organization and administration of Church affairs.
 
@@ -110,17 +112,12 @@ God still answers the prayers of the righteous and still reveals his will throug
 
 Our missionaries, over 28,000 of them, are preaching the same simple truths that were taught by Christ while he was on the earth, the first and great commandment being: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy strength, and with all thy mind; and thy neighbour as thyself” ([[Luke 10.27|Luke 10:27]]).
 
-We teach that the first principles and ordinances of the gospel are: “first, Faith in the Lord Jesus Christ; second, Repentance; third, Baptism by immersion for the remission of sins; fourth, Laying on of hands for the gift of the Holy Ghost” ([[Articles of Faith 1.4|A of F 1:4]]).
+We teach that the first principles and ordinances of the gospel are: “first, Faith in the Lord Jesus Christ; second, Repentance; third, Baptism by immersion for the remission of sins; fourth, Laying on of hands for the gift of the Holy Ghost” ([[Articles of Faith 1.4|A of F 1:4]]).
 
-We believe that God still speaks to his people on the earth today, and that the Church is being led by a prophet of God—even Spencer W. Kimball—through whom the Lord speaks. The gospel message is sweet, it is a message of peace and goodwill, it is the one and only thing that will bring peace to the world, and it offers salvation and exaltation to all who will accept it.
+We believe that God still speaks to his people on the earth today, and that the Church is being led by a prophet of God—even Spencer W. Kimball—through whom the Lord speaks. The gospel message is sweet, it is a message of peace and goodwill, it is the one and only thing that will bring peace to the world, and it offers salvation and exaltation to all who will accept it.
 
 May this testimony come to everyone who is seeking for the truth is my prayer, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Joseph_Smith #Restoration

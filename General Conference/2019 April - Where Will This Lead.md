@@ -1,6 +1,8 @@
 # Where Will This Lead?
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Ulisses Soares
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -50,19 +52,14 @@ What impressed me in her talk was this sister’s statement that she was gratefu
 
 In the years since I heard that testimony, I have wondered how different that young couple’s life would have been if they had made another choice—forgoing the sacrifice necessary to be married in the temple.
 
-Brethren, we make countless choices in life, some large and some seemingly small. Looking back, we can see what a great difference some of our choices made in our lives. We make better choices and decisions if we look at the alternatives and ponder where they will lead. As we do, we will be following President Russell M. Nelson’s counsel to begin with the end in mind.[^2] For us, the end is always on the covenant path through the temple to eternal life, the greatest of all the gifts of God.
+Brethren, we make countless choices in life, some large and some seemingly small. Looking back, we can see what a great difference some of our choices made in our lives. We make better choices and decisions if we look at the alternatives and ponder where they will lead. As we do, we will be following President Russell M. Nelson’s counsel to begin with the end in mind.[^2] For us, the end is always on the covenant path through the temple to eternal life, the greatest of all the gifts of God.
 
 I testify of Jesus Christ and of the effects of His Atonement and the other truths of His everlasting gospel in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Dallin H. Oaks, “[[2007 October - Good, Better, Best.md|Good, Better, Best]],” *Ensign* or *Liahona,* Nov. 2007, 104, 107.
+[^1]: Dallin H. Oaks, “[[2007 October - Good, Better, Best.md|Good, Better, Best]],” *Ensign* or *Liahona,* Nov. 2007, 104, 107.
 
-[^2]: See Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
+[^2]: See Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona,* Apr. 2018, 7.
 
-
-
-
-
-#Agency #Plan_Of_Salvation #Sacrifice

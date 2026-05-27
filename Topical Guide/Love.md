@@ -1,13 +1,12 @@
 # Love
 
-
-*See also* [[Affection.md|Affection]]; [[Benevolence.md|Benevolence]]; [[Brotherhood and Sisterhood.md|Brotherhood and Sisterhood]]; [[Charity.md|Charity]]; [[Family, Love within.md|Family, Love within]]; [[Fellowshipping.md|Fellowshipping]]; [[Friendship, Friend.md|Friendship]]; [[God, Love of.md|God, Love of]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]; [[Marriage, Continuing Courtship in.md|Marriage, Continuing Courtship in]]; [[Neighbor.md|Neighbor]]
+*See also* [[Affection.md|Affection]]; [[Benevolence.md|Benevolence]]; [[Brotherhood and Sisterhood.md|Brotherhood and Sisterhood]]; [[Charity.md|Charity]]; [[Family, Love within.md|Family, Love within]]; [[Fellowshipping.md|Fellowshipping]]; [[Friendship.md|Friendship]]; [[God, Love of.md|God, Love of]]; [[Grace.md|Grace]]; [[Kindness.md|Kindness]]; [[Marriage, Continuing Courtship in.md|Marriage, Continuing Courtship in]]; [[Neighbor.md|Neighbor]]
 
 thine only son Isaac, whom thou *lovest*, [[Genesis 22.2|Genesis 22:2]].
 
 Isaac *loved* Esau, [[Genesis 25.28|Genesis 25:28]].
 
-seven years ... seemed unto him but a few days, for the *love* he had, [[Genesis 29.20|Genesis 29:20]].
+seven years … seemed unto him but a few days, for the *love* he had, [[Genesis 29.20|Genesis 29:20]].
 
 he *loved* also Rachel more than Leah, [[Genesis 29.30|Genesis 29:30]].
 
@@ -17,19 +16,19 @@ shewing mercy unto thousands of them that *love* me, [[Exodus 20.6|Exodus 20:6]]
 
 thou shalt *love* thy neighbour as thyself, [[Leviticus 19.18|Leviticus 19:18]] ([[Matthew 5.43|Matthew 5:43]]; [[Matthew 19.19|Matthew 19:19]]; [[Matthew 22.39|Matthew 22:39]]; [[Mark 12.31|Mark 12:31]]; [[Luke 10.27|Luke 10:27]]; [[Romans 13.9|Romans 13:9]]; [[Galatians 5.14|Galatians 5:14]]; [[James 2.8|James 2:8]]; [[Mosiah 23.15|Mosiah 23:15]]; [[D&C 59.6|D&C 59:6]]).
 
-stranger that dwelleth with you ... *love* him as thyself, [[Leviticus 19.34|Leviticus 19:34]].
+stranger that dwelleth with you … *love* him as thyself, [[Leviticus 19.34|Leviticus 19:34]].
 
 thou shalt *love* the Lord thy God with all thine heart, [[Deuteronomy 6.5|Deuteronomy 6:5]] ([[Deuteronomy 30.6|Deuteronomy 30:6]]; [[Matthew 22.37|Matthew 22:37]]; [[D&C 59.5|D&C 59:5]]).
 
-because the Lord *loved* you ... redeemed you out of the house of bondmen, [[Deuteronomy 7.8|Deuteronomy 7:8]].
+because the Lord *loved* you … redeemed you out of the house of bondmen, [[Deuteronomy 7.8|Deuteronomy 7:8]].
 
-*Love* ye ... the stranger, [[Deuteronomy 10.19|Deuteronomy 10:19]].
+*Love* ye … the stranger, [[Deuteronomy 10.19|Deuteronomy 10:19]].
 
 proveth you, to know whether ye *love* the Lord, [[Deuteronomy 13.3|Deuteronomy 13:3]].
 
 *love* the Lord thy God, to walk in his ways, [[Deuteronomy 30.16|Deuteronomy 30:16]].
 
-Jonathan ... thy *love* to me was wonderful, passing the *love* of women, [[2 Samuel 1.26|2 Samuel 1:26]].
+Jonathan … thy *love* to me was wonderful, passing the *love* of women, [[2 Samuel 1.26|2 Samuel 1:26]].
 
 king Solomon *loved* many strange women, [[1 Kings 11.1|1 Kings 11:1]].
 
@@ -61,7 +60,7 @@ I have *loved* thee with an everlasting *love*, [[Jeremiah 31.3|Jeremiah 31:3]].
 
 thy time was the time of *love*, [[Ezekiel 16.8|Ezekiel 16:8]].
 
-I drew them ... with bands of *love*, [[Hosea 11.4|Hosea 11:4]].
+I drew them … with bands of *love*, [[Hosea 11.4|Hosea 11:4]].
 
 I will *love* them freely, [[Hosea 14.4|Hosea 14:4]].
 
@@ -71,11 +70,11 @@ to do justly, and to *love* mercy, [[Micah 6.8|Micah 6:8]].
 
 I have *loved* you, saith the Lord, [[Malachi 1.2|Malachi 1:2]].
 
-*Love* your enemies, [[Matthew 5.44|Matthew 5:44]] ([[Luke 6.27|Luke 6:27]], [[Luke 6.35|Luke 6:35]]; [[3 Nephi 12.44|3 Nephi 12:44]]).
+*Love* your enemies, [[Matthew 5.44|Matthew 5:44]] ([[Luke 6.27|Luke 6:27]]; [[Luke 6.35|Luke 6:35]]; [[3 Nephi 12.44|3 Nephi 12:44]]).
 
 if ye *love* them which *love* you, what reward have ye, [[Matthew 5.46|Matthew 5:46]].
 
-serve two masters ... he will hate the one, and *love* the other, [[Matthew 6.24|Matthew 6:24]] ([[Luke 16.13|Luke 16:13]]).
+serve two masters … he will hate the one, and *love* the other, [[Matthew 6.24|Matthew 6:24]] ([[Luke 16.13|Luke 16:13]]).
 
 He that *loveth* father or mother more than me, [[Matthew 10.37|Matthew 10:37]].
 
@@ -83,7 +82,7 @@ He that *loveth* father or mother more than me, [[Matthew 10.37|Matthew 10:37]].
 
 which of them will *love* him most, [[Luke 7.42|Luke 7:42]].
 
-ye tithe mint ... and pass over ... the *love* of God, [[Luke 11.42|Luke 11:42]].
+ye tithe mint … and pass over … the *love* of God, [[Luke 11.42|Luke 11:42]].
 
 God so *loved* the world, that he gave his only begotten Son, [[John 3.16|John 3:16]].
 
@@ -101,9 +100,9 @@ my Father *love* me, because I lay down my life, [[John 10.17|John 10:17]].
 
 He that *loveth* his life shall lose it, [[John 12.25|John 12:25]].
 
-having *loved* his own ... he *loved* them unto the end, [[John 13.1|John 13:1]].
+having *loved* his own … he *loved* them unto the end, [[John 13.1|John 13:1]].
 
-new commandment ... That ye *love* one another, [[John 13.34|John 13:34]] ([[John 15.12|John 15:12]], [[John 15.17|John 15:17]]; [[2 John 1.5|2 John 1:5]]; [[D&C 88.123|D&C 88:123]]; [[Moses 7.33|Moses 7:33]]).
+new commandment … That ye *love* one another, [[John 13.34|John 13:34]] ([[John 15.12|John 15:12]]; [[John 15.17|John 15:17]]; [[2 John 1.5|2 John 1:5]]; [[D&C 88.123|D&C 88:123]]; [[Moses 7.33|Moses 7:33]]).
 
 ye are my disciples, if ye have *love* one to another, [[John 13.35|John 13:35]].
 
@@ -119,7 +118,7 @@ hast *loved* them, as thou hast *loved* me, [[John 17.23|John 17:23]].
 
 *love* wherewith thou hast *loved* me may be in them, [[John 17.26|John 17:26]].
 
-Peter ... *lovest* thou me more than these, [[John 21.15|John 21:15]].
+Peter … *lovest* thou me more than these, [[John 21.15|John 21:15]].
 
 *love* of God is shed abroad in our hearts, [[Romans 5.5|Romans 5:5]].
 
@@ -135,9 +134,9 @@ kindly affectioned one to another with brotherly *love*, [[Romans 12.10|Romans 1
 
 *love* one another: for he that *loveth* another hath fulfilled the law, [[Romans 13.8|Romans 13:8]].
 
-*Love* worketh no ill ... *love* is the fulfilling of the law, [[Romans 13.10|Romans 13:10]].
+*Love* worketh no ill … *love* is the fulfilling of the law, [[Romans 13.10|Romans 13:10]].
 
-Eye hath not seen ... the things which God hath prepared for them that *love* him, [[1 Corinthians 2.9|1 Corinthians 2:9]].
+Eye hath not seen … the things which God hath prepared for them that *love* him, [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 if any man *love* God, the same is known of him, [[1 Corinthians 8.3|1 Corinthians 8:3]].
 
@@ -155,7 +154,7 @@ faith which worketh by *love*, [[Galatians 5.6|Galatians 5:6]].
 
 by *love* serve one another, [[Galatians 5.13|Galatians 5:13]].
 
-the law is fulfilled in ... this ... *love* thy neighbour, [[Galatians 5.14|Galatians 5:14]].
+the law is fulfilled in … this … *love* thy neighbour, [[Galatians 5.14|Galatians 5:14]].
 
 fruit of the Spirit is *love*, [[Galatians 5.22|Galatians 5:22]].
 
@@ -171,7 +170,7 @@ ye be likeminded, having the same *love*, [[Philippians 2.2|Philippians 2:2]].
 
 be comforted, being knit together in *love*, [[Colossians 2.2|Colossians 2:2]].
 
-Remembering without ceasing your ... labour of *love*, [[1 Thessalonians 1.3|1 Thessalonians 1:3]].
+Remembering without ceasing your … labour of *love*, [[1 Thessalonians 1.3|1 Thessalonians 1:3]].
 
 abound in *love* one toward another, [[1 Thessalonians 3.12|1 Thessalonians 3:12]].
 
@@ -185,9 +184,9 @@ direct your hearts into the *love* of God, [[2 Thessalonians 3.5|2 Thessalonians
 
 unto all them also that *love* his appearing, [[2 Timothy 4.8|2 Timothy 4:8]].
 
-teach the young women ... to *love* their husbands, to *love* their children, [[Titus 2.4|Titus 2:4]].
+teach the young women … to *love* their husbands, to *love* their children, [[Titus 2.4|Titus 2:4]].
 
-labour of *love* ... ye have ministered to the saints, [[Hebrews 6.10|Hebrews 6:10]].
+labour of *love* … ye have ministered to the saints, [[Hebrews 6.10|Hebrews 6:10]].
 
 Let brotherly *love* continue, [[Hebrews 13.1|Hebrews 13:1]].
 
@@ -255,13 +254,13 @@ bridle all your passions, that ye may be filled with *love*, [[Alma 38.12|Alma 3
 
 no contention in the land, because of the *love* of God, [[4 Nephi 1.15|4 Nephi 1:15]].
 
-ye do *love* money ... more than ye *love* the poor, [[Mormon 8.37|Mormon 8:37]].
+ye do *love* money … more than ye *love* the poor, [[Mormon 8.37|Mormon 8:37]].
 
 *love* which thou hast had for the children of men is charity, [[Ether 12.34|Ether 12:34]].
 
 charity is the pure *love* of Christ, [[Moroni 7.47|Moroni 7:47]].
 
-pray ... that ye may be filled with this *love*, [[Moroni 7.48|Moroni 7:48]].
+pray … that ye may be filled with this *love*, [[Moroni 7.48|Moroni 7:48]].
 
 charity, which is everlasting *love*, [[Moroni 8.17|Moroni 8:17]].
 
@@ -269,13 +268,13 @@ perfect *love*, which *love* endureth by diligence, [[Moroni 8.26|Moroni 8:26]].
 
 *love* God with all your might, mind and strength, [[Moroni 10.32|Moroni 10:32]].
 
-faith, hope, charity and *love* ... qualify him, [[D&C 4.5|D&C 4:5]].
+faith, hope, charity and *love* … qualify him, [[D&C 4.5|D&C 4:5]].
 
 no one can assist in this work except he shall be humble and full of *love*, [[D&C 12.8|D&C 12:8]].
 
 they should *love* and serve him, [[D&C 20.19|D&C 20:19]].
 
-sanctification ... to all those who *love* and serve God, [[D&C 20.31|D&C 20:31]].
+sanctification … to all those who *love* and serve God, [[D&C 20.31|D&C 20:31]].
 
 so *loved* the world that he gave his own life, [[D&C 34.3|D&C 34:3]].
 
@@ -291,6 +290,6 @@ virtue *loveth* virtue, [[D&C 88.40|D&C 88:40]].
 
 let thy *love* be for them as for thyself, [[D&C 112.11|D&C 112:11]].
 
-Reproving betimes with sharpness ... showing forth afterwards an increase of *love*, [[D&C 121.43|D&C 121:43]].
+Reproving betimes with sharpness … showing forth afterwards an increase of *love*, [[D&C 121.43|D&C 121:43]].
 
 wonderful *love* made manifest by the Father and the Son, [[D&C 138.3|D&C 138:3]].

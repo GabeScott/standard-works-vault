@@ -1,6 +1,5 @@
 # Stay
 
-
 *See also* [[Abide.md|Abide]]; [[Dwell.md|Dwell]]; [[Lodge.md|Lodge]]; [[Remain.md|Remain]]
 
 neither *stay* thou in all the plain, [[Genesis 19.17|Genesis 19:17]].
@@ -15,7 +14,7 @@ Lord was my *stay*, [[2 Samuel 22.19|2 Samuel 22:19]] ([[Psalms 18.18|Psalms 18:
 
 the oil *stayed*, [[2 Kings 4.6|2 Kings 4:6]].
 
-take away ... from Judah the *stay* and the staff, [[Isaiah 3.1|Isaiah 3:1]] ([[2 Nephi 13.1|2 Nephi 13:1]]).
+take away … from Judah the *stay* and the staff, [[Isaiah 3.1|Isaiah 3:1]] ([[2 Nephi 13.1|2 Nephi 13:1]]).
 
 they that are the *stay* of the tribes, [[Isaiah 19.13|Isaiah 19:13]].
 
@@ -23,7 +22,7 @@ they that are the *stay* of the tribes, [[Isaiah 19.13|Isaiah 19:13]].
 
 trust in the name of the Lord, and *stay* upon his God, [[Isaiah 50.10|Isaiah 50:10]].
 
-weary ... I could not *stay*, [[Jeremiah 20.9|Jeremiah 20:9]].
+weary … I could not *stay*, [[Jeremiah 20.9|Jeremiah 20:9]].
 
 none can *stay* his hand, [[Daniel 4.35|Daniel 4:35]].
 
@@ -41,6 +40,6 @@ it shall not be *stayed* until the Lord come, [[D&C 97.23|D&C 97:23]].
 
 What power shall *stay* the heavens, [[D&C 121.33|D&C 121:33]].
 
-prophets ... shall no longer *stay* themselves, [[D&C 133.26|D&C 133:26]].
+prophets … shall no longer *stay* themselves, [[D&C 133.26|D&C 133:26]].
 
-Lord ... sware ... that he would *stay* the floods, [[Moses 7.51|Moses 7:51]].
+Lord … sware … that he would *stay* the floods, [[Moses 7.51|Moses 7:51]].

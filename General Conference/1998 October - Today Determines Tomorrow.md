@@ -1,5 +1,7 @@
 # Today Determines Tomorrow
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1998 General Conference*
@@ -88,7 +90,7 @@ Thirty years ago I had responsibility for much of the work in the South Pacific.
 
 Later, in a letter to me, he reported: “We are most grateful for the progress being made, and I would especially like to mention the goodwill and wonderful relations that have developed with the representatives of government and the business community toward us and the Church.
 
-“One thing climaxed the development of this public acceptance,” he wrote. “It was in having our nephew and niece, Dr. and Mrs. Odeen Manning, render an outstanding service here in the Cook Islands. Dr. Manning is an ophthalmologist, and I wrote to him outlining a proposal whereby he might render service to the people of Rarotonga. My proposal included the following: (1) no remuneration; (2) he must pay his own expenses; (3) that he turn his practice over to the other doctors to handle for the three months he would be away; (4) we would furnish them free board and room while in Rarotonga; and (5) that he bring his own surgical instruments, as none would be available in Rarotonga.”
+“One thing climaxed the development of this public acceptance,” he wrote. “It was in having our nephew and niece, Dr. and Mrs. Odeen Manning, render an outstanding service here in the Cook Islands. Dr. Manning is an ophthalmologist, and I wrote to him outlining a proposal whereby he might render service to the people of Rarotonga. My proposal included the following: (1) no remuneration; (2) he must pay his own expenses; (3) that he turn his practice over to the other doctors to handle for the three months he would be away; (4) we would furnish them free board and room while in Rarotonga; and (5) that he bring his own surgical instruments, as none would be available in Rarotonga.”
 
 Brother Vernon Monson’s letter to me continued: “The Mannings airmailed their reply in two words: ‘Offer accepted.’ As preparations began, the government of the Cook Islands assigned competent doctors to assist Dr. Manning and to learn from him. In all, 284 patients were examined, with most being fitted for glasses. Fifty-three patients had serious eye operations, such as cataract surgery.
 
@@ -129,14 +131,9 @@ By so doing we can become like Him. Of this truth I solemnly bear witness in the
 
 [^4]: See *Aaronic Priesthood Leadership Handbook* (1991), 6.
 
-[^5]: [[3 Nephi 5.13|3 Ne. 5:13]].
+[^5]: [[3 Nephi 5.13|3 Ne. 5:13]].
 
-[^6]: [[2 Nephi 10.21|2 Ne. 10:21]].
+[^6]: [[2 Nephi 10.21|2 Ne. 10:21]].
 
 [^7]: [[D&C 110.4|D&C 110:4]].
 
-
-
-
-
-#Agency #Missionary_Work #Priesthood

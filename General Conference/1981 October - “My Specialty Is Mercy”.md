@@ -1,6 +1,8 @@
 # “My Specialty Is Mercy”
 
-By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
+Gordon B. Hinckley
+
+By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -58,7 +60,7 @@ To his people in Isaiah’s time, he gave stern counsel and warning. They were, 
 
 He spoke of their perverseness, their iniquity, their rejection of him and their reliance upon temporal power. Notwithstanding all this, the holy record then announces: “And therefore will the Lord wait, that he may be gracious unto you, and therefore will he be exalted, that he may have mercy upon you.” ([[Isaiah 30.18|Isa. 30:18]].)
 
-He waits to be gracious! He loves to be merciful! The prophets call him “the Father of mercies.” ([[2 Corinthians 1.3|2 Cor. 1:3]].) They speak of his “abundant mercy,” ([[1 Peter 1.3|1 Pet. 1:3]]), and declare that “whosoever repenteth, and hardeneth not his heart, he shall have claim on mercy” ([[Alma 12.34|Alma 12:34]]). They declare his “wisdom … mercy, and grace.” ([[2 Nephi 9.8|2 Ne. 9:8]].) And crowning all of this is the testimony that our Father “delighteth in mercy.” ([[Micah 7.18|Micah 7:18]].)
+He waits to be gracious! He loves to be merciful! The prophets call him “the Father of mercies.” ([[2 Corinthians 1.3|2 Cor. 1:3]].) They speak of his “abundant mercy,” ([[1 Peter 1.3|1 Pet. 1:3]]), and declare that “whosoever repenteth, and hardeneth not his heart, he shall have claim on mercy” ([[Alma 12.34|Alma 12:34]]). They declare his “wisdom … mercy, and grace.” ([[2 Nephi 9.8|2 Ne. 9:8]].) And crowning all of this is the testimony that our Father “delighteth in mercy.” ([[Micah 7.18|Micah 7:18]].)
 
 *The specialty of the Savior is mercy.*
 
@@ -99,8 +101,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Mercy

@@ -1,5 +1,7 @@
 # Simplicity in Christ
 
+Dallin H. Oaks
+
 By Elder Michael Cziesla - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -16,7 +18,7 @@ However, I was deeply impressed by the devotion and discipleship of many of the 
 
 However, the Lord had different plans. On my first Sunday at home, my wise bishop called me to serve as the Young Men president in our ward. Serving this wonderful group of young men, I quickly learned that the joy that comes from being a disciple of Christ has very little to do with the size of Church meetings or the scale of programs.
 
-So when I married my beautiful wife, Margret, we joyfully decided to stay in Europe and raise our family in our home country of Germany. Together we witnessed what President Russell M. Nelson taught many years ago: “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.”[^3] When the focus of our life is on Christ and His gospel message, we can experience the full blessings of discipleship wherever we live.
+So when I married my beautiful wife, Margret, we joyfully decided to stay in Europe and raise our family in our home country of Germany. Together we witnessed what President Russell M. Nelson taught many years ago: “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.”[^3] When the focus of our life is on Christ and His gospel message, we can experience the full blessings of discipleship wherever we live.
 
 ## 2. The Simplicity That Is in Christ
 
@@ -30,13 +32,13 @@ But how can we practically implement this simplicity in our lifelong journey as 
 
 As we choose to follow His example and move forward with faith in Christ, embrace the power of His Atonement, and remember our covenants, love fills our hearts, hope and healing raise our spirits, and bitterness and sorrow are replaced by gratitude and the patience to wait for promised blessings. At times, we may need to distance ourselves from an unhealthy situation or seek professional help. But in every case, applying simple gospel principles will help us navigate through life’s challenges in the Lord’s way.
 
-We sometimes underestimate the strength we receive from simple acts like prayer, fasting, scripture study, daily repentance, partaking of the sacrament weekly, and regular worship in the house of the Lord. But when we recognize that we don’t need to “do some great thing”[^19] and we center ourselves on applying pure and simple doctrine, we start to see how the gospel “works wonderfully”[^20] for us, even in the most challenging circumstances. We find strength and “confidence before God,”[^21] even when we experience heartache. Elder M. Russell Ballard has reminded us many times, “It is in that simplicity that \[we\] will find … peace, joy, and happiness.”[^22]
+We sometimes underestimate the strength we receive from simple acts like prayer, fasting, scripture study, daily repentance, partaking of the sacrament weekly, and regular worship in the house of the Lord. But when we recognize that we don’t need to “do some great thing”[^19] and we center ourselves on applying pure and simple doctrine, we start to see how the gospel “works wonderfully”[^20] for us, even in the most challenging circumstances. We find strength and “confidence before God,”[^21] even when we experience heartache. Elder M. Russell Ballard has reminded us many times, “It is in that simplicity that \[we\] will find … peace, joy, and happiness.”[^22]
 
 Applying the simplicity that is in Christ makes us prioritize people over processes and eternal relationships over short-term behaviors.[^23] We focus on “the things that matter most”[^24] in God’s work of salvation and exaltation instead of getting caught up in managing our ministering. We make ourselves free to prioritize the things we *can* do rather than being weighed down by the things we *cannot* do. The Lord reminded us: “Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work. And out of small things proceedeth that which is great.”[^25] What powerful encouragement to act in simplicity and humility, whatever our circumstances are.
 
 ## 3. Oma Cziesla
 
-My grandmother Marta Cziesla was a wonderful example of doing “small and simple things” to bring great things to pass.[^26] We lovingly called her Oma Cziesla. Oma embraced the gospel in the small village of Selbongen in East Prussia together with my great-grandmother on May 30, 1926.
+My grandmother Marta Cziesla was a wonderful example of doing “small and simple things” to bring great things to pass.[^26] We lovingly called her Oma Cziesla. Oma embraced the gospel in the small village of Selbongen in East Prussia together with my great-grandmother on May 30, 1926.
 
 She loved the Lord and His gospel and was determined to keep the covenants she had made. In 1930 she married my grandfather, who was not a member of the Church. At this point it became impossible for Oma to attend Church meetings because my grandfather’s farm was far away from the nearest congregation. But she focused on what she could do. Oma continued to pray, read the scriptures, and sing the songs of Zion.
 
@@ -50,40 +52,40 @@ You can imagine how she must have felt after almost 25 years of no contact with 
 
 When the sacrament meeting started, my dad sat down in the last row, hoping it would be over soon. This was Oma’s church and not his. What he saw was not very encouraging: only a few older women in attendance and two young missionaries who effectively ran everything in the meeting. But then they started to sing, and they sang the songs of Zion that my dad had heard since he was a little boy: “Come, Come, Ye Saints,”[^28] “O My Father,”[^29] “Praise to the Man.”[^30] Hearing this little flock sing the songs of Zion he’d known since childhood pierced his heart, and he knew immediately and without a doubt that the Church was true.
 
-The first sacrament meeting my grandmother attended after 25 years was the meeting where my father received a personal confirmation of the truthfulness of the restored gospel of Jesus Christ. He was baptized three weeks later, on September 25, 1955, together with my grandfather and my aunt.
+The first sacrament meeting my grandmother attended after 25 years was the meeting where my father received a personal confirmation of the truthfulness of the restored gospel of Jesus Christ. He was baptized three weeks later, on September 25, 1955, together with my grandfather and my aunt.
 
 It has been more than 70 years since that tiny sacrament meeting in Rendsburg. I often think about Oma, how she must have felt in those lonely nights, doing the small and simple things she was able to do, like praying, reading, and singing. As I stand here today in general conference and talk about my Oma, her determination to keep her covenants and trust in the Lord notwithstanding her struggles fills my heart with humility and gratitude—not only for her but for so many of our wonderful Saints throughout the world who focus on the simplicity in Christ in their challenging circumstances, perhaps seeing little change now but trusting that great things will come to pass some day in the future.
 
 ## 4. Small and Simple Things
 
-I have learned through my own experience that the small and simple things of the gospel and faithfully focusing on Christ lead us to true joy, bring about mighty miracles, and grant us confidence that all promised blessings will come to pass. This is as true for you as it is true for me. In the words of Elder Jeffrey R. Holland, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come*.”[^31] Of this I also testify in the name of Jesus Christ, amen.
+I have learned through my own experience that the small and simple things of the gospel and faithfully focusing on Christ lead us to true joy, bring about mighty miracles, and grant us confidence that all promised blessings will come to pass. This is as true for you as it is true for me. In the words of Elder Jeffrey R. Holland, “Some blessings come soon, some come late, and some don’t come until heaven; but for those who embrace the gospel of Jesus Christ, *they come*.”[^31] Of this I also testify in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Green Jell-O with carrots is a local Utah dish, where shredded carrots are added to the cooling Jell-O; for funeral potatoes, cornflakes are spread on top of a potato dish (see Rachel E. Teixeira, “Utah Food Lore,” *Y Magazine* \[Summer 2022\], magazine.byu.edu).
+[^1]: Green Jell-O with carrots is a local Utah dish, where shredded carrots are added to the cooling Jell-O; for funeral potatoes, cornflakes are spread on top of a potato dish (see Rachel E. Teixeira, “Utah Food Lore,” *Y Magazine* \[Summer 2022\], magazine.byu.edu).
 
-[^2]: Reference to the famous last sentence from *Music & the Spoken Word*, first introduced by Richard L. Evans: “Again we leave you from within the shadows of the everlasting hills. May peace be with you this day and always.”
+[^2]: Reference to the famous last sentence from *Music & the Spoken Word*, first introduced by Richard L. Evans: “Again we leave you from within the shadows of the everlasting hills. May peace be with you this day and always.”
 
-[^3]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^3]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
-[^4]: [[1 Nephi 13.28|1 Nephi 13:28]]; see also [[1 Nephi 13.26|verses 26–27, 29]][[1 Nephi 13.27|]][[1 Nephi 13.28|]][[1 Nephi 13.29|]].
+[^4]: [[1 Nephi 13.28|1 Nephi 13:28]]; see also [[1 Nephi 13.26|verses 26–27, 29]][[1 Nephi 13.27|]][[1 Nephi 13.28|]][[1 Nephi 13.29|]].
 
-[^5]: [[2 Corinthians 11.3|2 Corinthians 11:3]].
+[^5]: [[2 Corinthians 11.3|2 Corinthians 11:3]].
 
-[^6]: See *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 61; [[Articles of Faith 1.4|Articles of Faith 1:4]]. With respect to the law of the gospel, see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [27.2](https://churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11), Gospel Library.
+[^6]: See *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/10-chapter-3-lesson-3?lang=eng)* (2023), 61; [[Articles of Faith 1.4|Articles of Faith 1:4]]. With respect to the law of the gospel, see also *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [27.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11), Gospel Library.
 
-[^7]: “Keep on the covenant path” was President Russell M. Nelson’s message to every member of the Church during his first address as President of The Church of Jesus Christ of Latter-day Saints (see “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng&id=title3#title3),” *Ensign* or *Liahona,* Apr. 2018, 7). See also Russell M. Nelson, “[[2019 April - “Come, Follow Me”.md|Come, Follow Me]],” *Ensign* or *Liahona*, May 2019, 88–91.
+[^7]: “Keep on the covenant path” was President Russell M. Nelson’s message to every member of the Church during his first address as President of The Church of Jesus Christ of Latter-day Saints (see “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng&id=title3#title3),” *Ensign* or *Liahona,* Apr. 2018, 7). See also Russell M. Nelson, “[[2019 April - “Come, Follow Me”.md|Come, Follow Me]],” *Ensign* or *Liahona*, May 2019, 88–91.
 
-[^8]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 122.
+[^8]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 122.
 
 [^9]: [[Mosiah 3.19|Mosiah 3:19]].
 
 [^10]: [[Proverbs 3.5|Proverbs 3:5]].
 
-[^11]: See Elder Patrick Kearon’s remarks during a recent visit in the Philippines (video in “[Elder Patrick Kearon Concludes His Ministry to the Philippines](https://newsroom.churchofjesuschrist.org/article/elder-patrick-kearon-concludes-philippines-ministry-humanitarian-interfaith-devotional),” Newsroom, July 20, 2025, newsroom.ChurchofJesusChrist.org).
+[^11]: See Elder Patrick Kearon’s remarks during a recent visit in the Philippines (video in “[Elder Patrick Kearon Concludes His Ministry to the Philippines](https://newsroom.churchofjesuschrist.org/article/elder-patrick-kearon-concludes-philippines-ministry-humanitarian-interfaith-devotional),” Newsroom, July 20, 2025, newsroom.ChurchofJesusChrist.org).
 
-[^12]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6.
+[^12]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6.
 
 [^13]: See [[Proverbs 3.6|Proverbs 3:6]].
 
@@ -97,23 +99,23 @@ I have learned through my own experience that the small and simple things of the
 
 [^18]: See [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; [[John 14.15|John 14:15]]; see also Gary E. Stevenson, “[[2024 April - Bridging the Two Great Commandments.md|Bridging the Two Great Commandments]],” *Liahona*, May 2024, 104–7.
 
-[^19]: [[2 Kings 5.13|2 Kings 5:13]].
+[^19]: [[2 Kings 5.13|2 Kings 5:13]].
 
-[^20]: Dieter F. Uchtdorf, “[[2015 October - It Works Wonderfully!.md|It Works Wonderfully!]],” *Ensign* or *Liahona*, Nov. 2015, 23.
+[^20]: Dieter F. Uchtdorf, “[[2015 October - It Works Wonderfully!.md|It Works Wonderfully!]],” *Ensign* or *Liahona*, Nov. 2015, 23.
 
-[^21]: Russell M. Nelson, “[[2025 April - Confidence in the Presence of God.md|Confidence in the Presence of God]],” *Liahona*, May 2025, 127.
+[^21]: Russell M. Nelson, “[[2025 April - Confidence in the Presence of God.md|Confidence in the Presence of God]],” *Liahona*, May 2025, 127.
 
-[^22]: M. Russell Ballard, “[[2019 April - The True, Pure, and Simple Gospel of Jesus Christ.md|The True, Pure, and Simple Gospel of Jesus Christ]],” *Ensign* or *Liahona*, May 2019, 30.
+[^22]: M. Russell Ballard, “[[2019 April - The True, Pure, and Simple Gospel of Jesus Christ.md|The True, Pure, and Simple Gospel of Jesus Christ]],” *Ensign* or *Liahona*, May 2019, 30.
 
-[^23]: President Thomas S. Monson reminded us to “never let a problem to be solved become more important than a person to be loved” (“[[2008 October - Finding Joy in the Journey.md|Finding Joy in the Journey]],” *Ensign* or *Liahona*, Nov. 2008, 86).
+[^23]: President Thomas S. Monson reminded us to “never let a problem to be solved become more important than a person to be loved” (“[[2008 October - Finding Joy in the Journey.md|Finding Joy in the Journey]],” *Ensign* or *Liahona*, Nov. 2008, 86).
 
-[^24]: M. Russell Ballard, “[[2023 April - Remember What Matters Most.md|Remember What Matters Most]],” *Liahona*, May 2023, 107; Dieter F. Uchtdorf, “[[2010 October - Of Things That Matter Most.md|Of Things That Matter Most]],” *Ensign* or *Liahona*, Nov. 2010, 20, 21.
+[^24]: M. Russell Ballard, “[[2023 April - Remember What Matters Most.md|Remember What Matters Most]],” *Liahona*, May 2023, 107; Dieter F. Uchtdorf, “[[2010 October - Of Things That Matter Most.md|Of Things That Matter Most]],” *Ensign* or *Liahona*, Nov. 2010, 20, 21.
 
 [^25]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
 [^26]: [[Alma 37.6|Alma 37:6]].
 
-[^27]: [[D&C 68.28|Doctrine and Covenants 68:28]]. For the full story, see Armin L. Cziesla, *Meine Lebensgeschichte* (*My History*) (2021).
+[^27]: [[D&C 68.28|Doctrine and Covenants 68:28]]. For the full story, see Armin L. Cziesla, *Meine Lebensgeschichte* (*My History*) (2021).
 
 [^28]: “Come, Come, Ye Saints,” *Hymns*, no. 30.
 
@@ -121,7 +123,5 @@ I have learned through my own experience that the small and simple things of the
 
 [^30]: “Praise to the Man,” *Hymns*, no. 27.
 
+[^31]: Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign*, Nov. 1999, 38; *Liahona*, Jan. 2000, 45.
 
-
-
-#Adversity #Discipleship #Jesus_Christ

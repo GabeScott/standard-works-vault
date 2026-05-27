@@ -1,5 +1,7 @@
 # Ministering to Needs through the Lord’s Storehouse System
 
+Spencer W. Kimball
+
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -26,7 +28,7 @@ Our bishops storehouses are not intended to stock enough commodities to care for
 
 The local bishop is the Lord’s designated administrator in providing for the poor and needy. The bishop has “the sole discretion in caring for, the poor of the Church. … It is his duty and his only to determine to whom, when, how, and how much shall be given to any member of his ward from Church funds and as ward help.
 
-“This is a high and solemn obligation, imposed by the Lord himself. The bishop cannot escape this duty; he cannot shirk it; he cannot pass it on to someone else, and so relieve himself. Whatever help he calls in, he is still responsible.” (J. Reuben Clark, Jr., unpublished article, 9 July 1941, as cited in *Ensign,* Nov. 1976, p. 112.)
+“This is a high and solemn obligation, imposed by the Lord himself. The bishop cannot escape this duty; he cannot shirk it; he cannot pass it on to someone else, and so relieve himself. Whatever help he calls in, he is still responsible.” (J. Reuben Clark, Jr., unpublished article, 9 July 1941, as cited in *Ensign,* Nov. 1976, p. 112.)
 
 By revelation, the Lord has instructed bishops to search actively “after the poor to administer to their wants.” ([[D&C 84.112|D&C 84:112]].) Storehouses were divinely established to assist bishops in performing this duty.
 
@@ -42,7 +44,7 @@ I repeat, a bishops storehouse should be made available to every bishop. At the 
 
 May I give this caution to stake presidents and bishops. Before you begin any fund-raising for a storehouse, seek counsel. Establish carefully planned goals. Know where you are going and why before you start. In the work of the Lord there should be no serious mistakes. The most important point of your planning should be on your knees. As we expand the storehouse system, there should be nothing done to damage the image of the Church.
 
-As we administer any aspect of the welfare program, the primary purpose for which it was established must be kept before us. That stated purpose is “to set up, insofar as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift, and self-respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (President Heber J. Grant, as quoted in *Welfare Services Handbook,* 1973, p. 1.)
+As we administer any aspect of the welfare program, the primary purpose for which it was established must be kept before us. That stated purpose is “to set up, insofar as it might be possible, a system under which the curse of idleness would be done away with, the evils of a dole abolished, and independence, industry, thrift, and self-respect be once more established amongst our people. The aim of the Church is to help the people to help themselves. Work is to be re-enthroned as the ruling principle of the lives of our Church membership.” (President Heber J. Grant, as quoted in *Welfare Services Handbook,* 1973, p. 1.)
 
 Welfare recipients should work to the extent of their ability to earn commodity or fast offering assistance. When meaningful jobs are not provided, when people are not encouraged to work, a demoralizing Church dole would develop, and the purpose for which the welfare program was established would be undermined. It is a law of heaven, and one we haven’t learned fully here on earth, that you cannot help people permanently by doing for them what they can do, and should do, for themselves.
 
@@ -75,8 +77,3 @@ May we through the proper use and expansion of modern storehouses wisely provide
 
 
 
-
-
-
-
-#Welfare

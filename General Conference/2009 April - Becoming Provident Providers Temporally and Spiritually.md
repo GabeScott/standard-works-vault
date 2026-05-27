@@ -1,5 +1,7 @@
 # Becoming Provident Providers Temporally and Spiritually
 
+Thomas S. Monson
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -8,13 +10,13 @@ By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2009/04/becoming-provident-providers-temporally-and-spiritually?lang=eng)
 
-How blessed we are to be led by a living prophet! Growing up during the Great Depression, President Thomas S. Monson learned how to serve others. Often his mother asked him to deliver food to needy neighbors, and she would give homeless men odd jobs in exchange for home-cooked meals. Later as a young bishop, he was taught by President J. Reuben Clark, “Be kind to the widow and look after the poor” (see Thomas S. Monson, in Conference Report, Apr. 1986, 79; or *Ensign,* May 1986, 62). President Monson looked after 84 widows and cared for them until they passed away. Through the years, his service to members and neighbors throughout the world has become the hallmark of his ministry. We are grateful to have his example. Thank you, President Monson.
+How blessed we are to be led by a living prophet! Growing up during the Great Depression, President Thomas S. Monson learned how to serve others. Often his mother asked him to deliver food to needy neighbors, and she would give homeless men odd jobs in exchange for home-cooked meals. Later as a young bishop, he was taught by President J. Reuben Clark, “Be kind to the widow and look after the poor” (see Thomas S. Monson, in Conference Report, Apr. 1986, [[1986 April - A Provident Plan—A Precious Promise.md|79]]; or *Ensign,* May 1986, 62). President Monson looked after 84 widows and cared for them until they passed away. Through the years, his service to members and neighbors throughout the world has become the hallmark of his ministry. We are grateful to have his example. Thank you, President Monson.
 
 Brothers and sisters, as did President Monson, our children are growing up in times of economic uncertainty. Just as our grandparents and great-grandparents learned vital lessons through economic adversity, what we learn now, in our present circumstances, can bless us and our posterity for generations to come.
 
 Today I speak to all whose freedom to choose has been diminished by the effects of ill-advised choices of the past. I speak specifically of choices that have led to excessive debt and addictions to food, drugs, pornography, and other patterns of thought and action that diminish one’s sense of self-worth. All of these excesses affect us individually and undermine our family relationships. Of course some debt incurred for education, a modest home, or a basic automobile may be necessary to provide for a family. Unfortunately, however, additional debt is incurred when we cannot control our wants and addictive impulses. And for both debt and addiction, the hopeful solution is the same—we must turn to the Lord and follow His commandments. We must want more than anything else to change our lives so that we can break the cycle of debt and our uncontrolled wants. I pray that in the next few minutes, and throughout this conference, you will be filled with hope in our Savior, Jesus Christ, and find hope in the doctrines of His restored gospel.
 
-Our challenges, including those we create by our own decisions, are part of our test in mortality. Let me assure you that your situation is not beyond the reach of our Savior. Through Him, every struggle can be for our experience and our good (see [[D&C 122.7|D&C 122:7]]). Each temptation we overcome is to strengthen us, not destroy us. The Lord will never allow us to suffer beyond what we can endure (see [[1 Corinthians 10.13|1 Corinthians 10:13]]).
+Our challenges, including those we create by our own decisions, are part of our test in mortality. Let me assure you that your situation is not beyond the reach of our Savior. Through Him, every struggle can be for our experience and our good (see [[D&C 122.7|D&C 122:7]]). Each temptation we overcome is to strengthen us, not destroy us. The Lord will never allow us to suffer beyond what we can endure (see [[1 Corinthians 10.13|1 Corinthians 10:13]]).
 
 We must remember that the adversary knows us extremely well. He knows where, when, and *how* to tempt us. If we are obedient to the promptings of the Holy Ghost, we can learn to recognize the adversary’s enticements. Before we yield to temptation, we must learn to say with unflinching resolve, “Get thee behind me, Satan” ([[Matthew 16.23|Matthew 16:23]]).
 
@@ -54,7 +56,7 @@ In seeking to overcome debt and addictive behaviors, we should remember that add
 
 We must want, more than anything else, to do our Heavenly Father’s will and providently provide for ourselves and others. We must say, as did King Lamoni’s father, “I will give away all my sins to know thee” ([[Alma 22.18|Alma 22:18]]). Then we can go to Him with steadfast determination and promise Him, “I will do whatever it takes.” Through prayer, fasting, obedience to the commandments, priesthood blessings, and His atoning sacrifice, we will feel His love and power in our lives. We will receive His spiritual guidance and strength through the promptings of the Holy Ghost. Only through our Lord’s Atonement can we obtain a mighty change of heart (see [[Mosiah 5.2|Mosiah 5:2]]; [[Alma 5.14|Alma 5:14]]) and experience a mighty change in our addictive behavior.
 
-With all the love I have in me and with the Savior’s love through me, I invite you to come unto Him and hear His words: “Wherefore, do not spend money for that which is of no worth, nor your labor for that which cannot satisfy. Hearken diligently unto me, and remember the words which I have spoken; and come unto the Holy One of Israel, and feast upon that which perisheth not, neither can be corrupted” ([[2 Nephi 9.51|2 Nephi 9:51]]).
+With all the love I have in me and with the Savior’s love through me, I invite you to come unto Him and hear His words: “Wherefore, do not spend money for that which is of no worth, nor your labor for that which cannot satisfy. Hearken diligently unto me, and remember the words which I have spoken; and come unto the Holy One of Israel, and feast upon that which perisheth not, neither can be corrupted” ([[2 Nephi 9.51|2 Nephi 9:51]]).
 
 I testify that the appetite to possess worldly things can only be overcome by turning to the Lord. The hunger of addiction can only be replaced by our love for Him. He stands ready to help each one of us. “Fear not,” He said, “for you are mine, and I have overcome the world” ([[D&C 50.41|D&C 50:41]]).
 
@@ -63,5 +65,3 @@ I bear my special witness that through the Atonement He has overcome all things.
 
 
 
-
-#Addiction #Financial_Management #Self-Reliance

@@ -1,6 +1,8 @@
 # Let Your Faith Show
 
-By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -36,7 +38,7 @@ Spiritual truth cannot be ignored—especially divine commandments. Keeping divi
 
 Problems abound in this world because it is populated by imperfect people. Their objectives and desires are heavily influenced by their faith or lack of it. Many put other priorities ahead of God. Some challenge the relevance of religion in modern life. As in every age, so today there are those who mock or decry the free exercise of religion. Some even blame religion for any number of the world’s ills. Admittedly, there have been times when atrocities have been committed in the name of religion. But living the Lord’s pure religion, which means striving to become a true disciple of Jesus Christ, is a way of life and a daily commitment that will provide divine guidance. As you practice your religion, you are exercising your faith. You are letting your faith show.
 
-The Lord knew that His children would need to learn how to find Him. “For strait is the gate,” He said, “and narrow the way that leadeth unto … exaltation … , and few there be that find it.”[^6]
+The Lord knew that His children would need to learn how to find Him. “For strait is the gate,” He said, “and narrow the way that leadeth unto … exaltation … , and few there be that find it.”[^6]
 
 The scriptures provide one of the best ways to find our course and stay on it. Scriptural knowledge also provides precious protection. For example, throughout history, infections like “childbirth fever” claimed the lives of many innocent mothers and babies. Yet the Old Testament had the correct principles for the handling of infected patients, written more than 3,000 years ago![^7] Many people perished because man’s quest for knowledge had failed to heed the word of the Lord!
 
@@ -54,7 +56,7 @@ Contrast the fear and faithlessness so prevalent in the world today with the fai
 
 This beautiful young mother of five had full faith in her Heavenly Father, in His plan, and in the eternal welfare of her family. She was securely tied back to God. She was totally faithful to covenants made with the Lord and with her husband. She loved her children but was at peace, despite her impending separation from them. She had faith in her future, and theirs too, because she had faith in our Heavenly Father and His Son.
 
-In 1986, President Thomas S. Monson said: “Of course we will face fear, experience ridicule, and meet opposition. Let us have the courage to defy the consensus, the courage to stand for principle. Courage, not compromise, brings the smile of God’s approval. … Remember that all men have their fears, but those who face their fears with \[faith\] have courage as well.”[^12]
+In 1986, President Thomas S. Monson said: “Of course we will face fear, experience ridicule, and meet opposition. Let us have the courage to defy the consensus, the courage to stand for principle. Courage, not compromise, brings the smile of God’s approval. … Remember that all men have their fears, but those who face their fears with \[faith\] have courage as well.”[^12]
 
 President Monson’s counsel is timeless! So I plead with you, my dear brothers and sisters: Day after day, on your path toward your eternal destiny, increase your faith. Proclaim your faith! Let your faith show![^13]
 
@@ -69,7 +71,7 @@ I pray that you will be securely tied back to God, that His eternal truths will 
 
 [^3]: [[D&C 6.36|Doctrine and Covenants 6:36]].
 
-[^4]: See Spencer W. Kimball, *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 391.
+[^4]: See Spencer W. Kimball, *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 391.
 
 [^5]: See [[Mosiah 2.41|Mosiah 2:41]]; [[D&C 58.30|Doctrine and Covenants 58:30–33]][[D&C 58.31|]][[D&C 58.32|]][[D&C 58.33|]]; [[D&C 82.10|82:10]]. This principle is true for everyone, for “God is no respecter of persons” ([[Acts 10.34|Acts 10:34]]; see also [[Moroni 8.12|Moroni 8:12]]).
 
@@ -77,20 +79,15 @@ I pray that you will be securely tied back to God, that His eternal truths will 
 
 [^7]: See [[Leviticus 15.13|Leviticus 15:13]].
 
-[^8]: [[2 Timothy 3.7|2 Timothy 3:7]].
+[^8]: [[2 Timothy 3.7|2 Timothy 3:7]].
 
-[^9]: [[1 Nephi 19.23|1 Nephi 19:23]].
+[^9]: [[1 Nephi 19.23|1 Nephi 19:23]].
 
 [^10]: [[Isaiah 5.20|Isaiah 5:20]].
 
-[^11]: Scripture teaches: “Come unto the Lord, the Holy One. Remember that his paths are righteous. Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name” ([[2 Nephi 9.41|2 Nephi 9:41]]).
+[^11]: Scripture teaches: “Come unto the Lord, the Holy One. Remember that his paths are righteous. Behold, the way for man is narrow, but it lieth in a straight course before him, and the keeper of the gate is the Holy One of Israel; and he employeth no servant there; and there is none other way save it be by the gate; for he cannot be deceived, for the Lord God is his name” ([[2 Nephi 9.41|2 Nephi 9:41]]).
 
-[^12]: Thomas S. Monson, “Courage Counts,” *Ensign,* Nov. 1986, 41. On another occasion, President Monson gave this inspiring admonition: “To live greatly, we must develop the capacity to face trouble with courage, disappointment with cheerfulness, and triumph with humility. … We are sons and daughters of a living God, in whose image we have been created. … We cannot sincerely hold this conviction without experiencing a profound new sense of strength and power, even the strength to live the commandments of God, the power to resist the temptations of Satan” (“Yellow Canaries with Gray on Their Wings,” *Ensign,* July 1973, 43).
+[^12]: Thomas S. Monson, “Courage Counts,” *Ensign,* Nov. 1986, 41. On another occasion, President Monson gave this inspiring admonition: “To live greatly, we must develop the capacity to face trouble with courage, disappointment with cheerfulness, and triumph with humility. … We are sons and daughters of a living God, in whose image we have been created. … We cannot sincerely hold this conviction without experiencing a profound new sense of strength and power, even the strength to live the commandments of God, the power to resist the temptations of Satan” (“Yellow Canaries with Gray on Their Wings,” *Ensign,* July 1973, 43).
 
 [^13]: “Deny yourselves of all ungodliness” ([[Moroni 10.32|Moroni 10:32]]). Do not fear man more than God (see [[D&C 3.7|Doctrine and Covenants 3:7]]; [[D&C 59.5|59:5]]).
 
-
-
-
-
-#Faith #Jesus_Christ #Scriptures

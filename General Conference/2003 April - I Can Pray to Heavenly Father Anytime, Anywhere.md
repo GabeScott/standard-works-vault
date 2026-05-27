@@ -1,5 +1,7 @@
 # I Can Pray to Heavenly Father Anytime, Anywhere
 
+Gordon B. Hinckley
+
 By Sydney S. Reynolds - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -37,8 +39,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Children #Prayer #Testimony

@@ -1,4 +1,3 @@
 # Organ
 
-
-*See* [[Musical Instruments.md|Musical Instruments]]
+*See also* [[Musical Instruments.md|Musical Instruments]]

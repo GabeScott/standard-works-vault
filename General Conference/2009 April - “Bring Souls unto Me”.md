@@ -1,5 +1,7 @@
 # “Bring Souls unto Me”
 
+Thomas S. Monson
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2009 General Conference*
@@ -71,8 +73,3 @@ As the scripture also teaches, such shepherds experience inexpressible joy. I be
 
 
 
-
-
-
-
-#Missionary_Work #Responsibility

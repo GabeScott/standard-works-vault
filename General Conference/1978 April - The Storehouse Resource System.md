@@ -1,6 +1,8 @@
 # The Storehouse Resource System
 
-By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -24,7 +26,7 @@ Each bishop knows that ministering to the temporal needs of stricken members awa
 
 It has always been the disposition of the true disciples of Christ, as they reached higher degrees of spirituality, to look after the needy. During Alma’s day,
 
-“They did impart of their substance, every man according to that which he had, to the poor, and the needy, and the sick, and the afflicted; …
+“They did impart of their substance, every man according to that which he had, to the poor, and the needy, and the sick, and the afflicted; …
 
 “And thus, in their prosperous circumstances, they did not send away any who were naked, or that were hungry, or that were athirst, or that were sick, or that had not been nourished.” ([[Alma 1.27|Alma 1:27, 30]][[Alma 1.30|]].)
 
@@ -64,11 +66,11 @@ Surely the “founding fathers” of the Welfare Plan must be thrilled to see th
 
 President Romney then concludes: “We have … visions of the welfare program. We have great visions of the redemption of Zion and the building of the new Jerusalem, the inauguration of the United Order, the coming of the Millennium. But before these visions materialize, we must travel some rough roads.” (Addresses delivered at the special Welfare Meeting, 5 Apr. 1949, p. 13.)
 
-Could this have been the day envisioned by President J. Reuben Clark, who said in 1942: “We have all said that the Welfare Plan is not the United Order and was not intended to be. However, I should like to suggest to you that perhaps, after all, when the Welfare Plan gets thoroughly into operation—it is not so yet—we shall not be so very far from carrying out the great *fundamentals* of the United Order.” (In *Conference Report,* Oct. 1942, p. 57; italics added.)
+Could this have been the day envisioned by President J. Reuben Clark, who said in 1942: “We have all said that the Welfare Plan is not the United Order and was not intended to be. However, I should like to suggest to you that perhaps, after all, when the Welfare Plan gets thoroughly into operation—it is not so yet—we shall not be so very far from carrying out the great *fundamentals* of the United Order.” (In *Conference Report,* Oct. 1942, p. 57; italics added.)
 
 I am persuaded that in the ensuing thirty-six years since President Clark made this statement the Welfare Plan has more *thoroughly been put into operation.* Last October Conference President Kimball stirred our imaginations with this challenge:
 
-“As I considered my remarks for this Welfare session, I was struck by the thought that … a generation has passed since the reestablishment of this great welfare work. … In my mind’s eye the great leaders of this effort passed in review. …
+“As I considered my remarks for this Welfare session, I was struck by the thought that … a generation has passed since the reestablishment of this great welfare work. … In my mind’s eye the great leaders of this effort passed in review. …
 
 “As I recounted their contributions and the Church’s splendid growth in Welfare Services, I encountered this question: Do our people today and more particularly do our regional, stake, and ward leaders today *have the same grasp of welfare principles and the same commitment to Welfare Services work* as did those of this previous generation?” (*Ensign,* Nov. 1977, p. 76.)
 
@@ -84,19 +86,14 @@ Next, *higher levels of commitment and consecration to the kingdom.* Our quorum 
 
 Finally, *increased spirituality,* which implies a closer communion with the Savior and more sensitivity to the Spirit in our daily lives. Our prophet has counseled us to “emulate the Savior in your life by serving and consecrating, by overcoming temporally so that you might more fully achieve spiritually.” (*Ensign,* Nov. 1977, p. 79.)
 
-My brothers and sisters, it is my sincere belief that this new era of Welfare Services implementation by our generation is proceeding as the Lord has ordained it. It goes forth to meet a perceived but not a completely defined need. President Harold B. Lee, in his last public reference to Welfare Services, stated:
+My brothers and sisters, it is my sincere belief that this new era of Welfare Services implementation by our generation is proceeding as the Lord has ordained it. It goes forth to meet a perceived but not a completely defined need. President Harold B. Lee, in his last public reference to Welfare Services, stated:
 
 “There is no person who knows the purpose for which this Welfare Program is being instituted, but hardly before sufficient preparation has been made the real purpose will be revealed, and when that time comes, it will challenge every resource of the Church to meet it.” (Church Employees Christmas Program, 1973.)
 
-Perilous times await us. Judgments will be poured out upon the wicked. Saints must live in obedience to righteous principles to be safe from the calamities declared by holy prophets. There is much work to be done before the return of our Lord and Savior. It is true that we do not know precisely the *day* of the Lord’s second coming. As Elder Bruce R. McConkie says, “Deliberately and advisedly the actual time of his coming has been left uncertain and unspecified, so that men of each succeeding age shall be led to prepare for it as though it would be in their mortal lives.” (*Doctrinal New Testament Commentary,* vol. I, Salt Lake City: Bookcraft, 1973, p. 675.) Now there is always some risk in speaking of prophetic events in connection with welfare planning because there are those who jump to speculative conclusions. But the Lord gives us prophecy that we might prepare ourselves: for he said, “If ye are prepared ye shall not fear.” ([[D&C 38.30|D&C 38:30]].)
+Perilous times await us. Judgments will be poured out upon the wicked. Saints must live in obedience to righteous principles to be safe from the calamities declared by holy prophets. There is much work to be done before the return of our Lord and Savior. It is true that we do not know precisely the *day* of the Lord’s second coming. As Elder Bruce R. McConkie says, “Deliberately and advisedly the actual time of his coming has been left uncertain and unspecified, so that men of each succeeding age shall be led to prepare for it as though it would be in their mortal lives.” (*Doctrinal New Testament Commentary,* vol. I, Salt Lake City: Bookcraft, 1973, p. 675.) Now there is always some risk in speaking of prophetic events in connection with welfare planning because there are those who jump to speculative conclusions. But the Lord gives us prophecy that we might prepare ourselves: for he said, “If ye are prepared ye shall not fear.” ([[D&C 38.30|D&C 38:30]].)
 
 The Storehouse Resource System enables us to apply the principles of preparation, love, service, sacrifice, and consecration. It is only upon these principles and these works that Zion is ever established. I bear witness that while we now face and will always face difficult challenges, this is God’s kingdom; this is his work; we are his people; and our ultimate triumph through the Lord is assured, to which I testify in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Welfare

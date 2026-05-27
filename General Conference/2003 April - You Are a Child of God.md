@@ -1,5 +1,7 @@
 # You Are a Child of God
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2003 General Conference*
@@ -24,7 +26,7 @@ How fortunate you are, my dear young friends, to have wonderful teachers. They l
 
 Brother Artel Ricks tells an interesting story of an inspired Primary teacher. Artel was a little boy five or six years old. One night his family sat around the dinner table and talked about tithing. They told him “that tithing is one-tenth of all we earn and that it is paid to the Lord by those who love Him.”
 
-He loved the Lord, and so he wanted to give the Lord his tithing. He went and got his savings and took one-tenth of his small savings. He says: “I … went to the only room in the house with a lock on the door—the bathroom—and there knelt by the bathtub. Holding the three or four coins in my upturned hands, I asked the Lord to accept them. \[I was certain He would appear and take them from me.\] I pleaded with the Lord for some time, but \[nothing happened. Why would He not accept my tithing?\]. As I rose from my knees, I felt so unworthy that I could not tell anyone what had happened. …
+He loved the Lord, and so he wanted to give the Lord his tithing. He went and got his savings and took one-tenth of his small savings. He says: “I … went to the only room in the house with a lock on the door—the bathroom—and there knelt by the bathtub. Holding the three or four coins in my upturned hands, I asked the Lord to accept them. \[I was certain He would appear and take them from me.\] I pleaded with the Lord for some time, but \[nothing happened. Why would He not accept my tithing?\]. As I rose from my knees, I felt so unworthy that I could not tell anyone what had happened. …
 
 “A few days later at Primary, the teacher said she felt impressed to talk about something that was not in the lesson. I sat amazed as she then taught us how to pay tithing \[to the bishop, the Lord’s servant\]. But what I learned was far more important than how to pay tithing. I learned that the Lord had heard and answered my prayer, that He loved me, and that I was important to Him. In later years I came to appreciate still another lesson my Primary teacher had taught me that day—to teach as prompted by the Spirit.
 
@@ -84,8 +86,3 @@ Never forget that you are a member of The Church of Jesus Christ of Latter-day S
 
 
 
-
-
-
-
-#Children #Church_History #Family #God_The_Father #Music #Obedience #Prayer #Primary

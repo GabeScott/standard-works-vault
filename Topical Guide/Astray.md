@@ -1,6 +1,5 @@
 # Astray
 
-
 Whoso causeth the righteous to go *astray*, [[Proverbs 28.10|Proverbs 28:10]].
 
 All we like sheep have gone *astray*, [[Isaiah 53.6|Isaiah 53:6]] ([[Mosiah 14.6|Mosiah 14:6]]).

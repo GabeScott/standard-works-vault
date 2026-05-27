@@ -1,5 +1,7 @@
 # Stay on the Path
 
+Thomas S. Monson
+
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -20,13 +22,13 @@ Virtue encompasses modesty—in thought, language, dress, and demeanor. And mode
 
 We are counseled in Doctrine and Covenants section 25 that we must *cleave* to our covenants (see [[D&C 25.13|v. 13]]). *Cleaving,* to me, means to stick to, to adhere, and to really hold on tight to the promises we make with the Lord. Our covenants will strengthen us to resist temptation. Keeping our covenants will steady us on the path of virtue. As we keep the covenants we have made at baptism, we will remain in the center of the path. Elder Jeffrey R. Holland reminds us:
 
-“Beginning with our baptism, we make covenants as we follow this path to eternal life, and we stay on the path by keeping them. …
+“Beginning with our baptism, we make covenants as we follow this path to eternal life, and we stay on the path by keeping them. …
 
-“… The promptings of the Holy Ghost will always be sufficient for our needs if we keep to the covenant path. Our path is uphill most days, but the help we receive for the climb is literally divine. We have three members of the Godhead—the Father, the Son, and the Holy Ghost—helping us because of the covenants we have made.
+“… The promptings of the Holy Ghost will always be sufficient for our needs if we keep to the covenant path. Our path is uphill most days, but the help we receive for the climb is literally divine. We have three members of the Godhead—the Father, the Son, and the Holy Ghost—helping us because of the covenants we have made.
 
 “To remind us of those covenants, we partake of the sacrament each week. In the prayer offered on the bread, we ‘witness unto thee, O God, the Eternal Father, that \[we\] are willing to take upon \[us\] the name of thy Son, and always remember him and keep his commandments which he has given \[us\]; that \[we\] may always have his Spirit to be with \[us\]’ \[[[D&C 20.77|D&C 20:77]]\]” (“What I Wish Every New Member Knew—and Every Longtime Member Remembered,” *Liahona* and *Ensign,* Oct. 2006, 11–12).
 
-Guided by His Spirit, you will be confident and happy, and virtue will garnish your thoughts unceasingly. The Book of Mormon describes what happened when a whole society kept their covenants and lived clean and virtuous lives: “And surely there could not be a happier people among all the people who had been created by the hand of God” ([[4 Nephi 1.16|4 Nephi 1:16]]). Guided by the Holy Ghost, you will also be a righteous influence on others.
+Guided by His Spirit, you will be confident and happy, and virtue will garnish your thoughts unceasingly. The Book of Mormon describes what happened when a whole society kept their covenants and lived clean and virtuous lives: “And surely there could not be a happier people among all the people who had been created by the hand of God” ([[4 Nephi 1.16|4 Nephi 1:16]]). Guided by the Holy Ghost, you will also be a righteous influence on others.
 
 I have in my office the pictures of the generations of women in my family—my great-grandmother, my grandmother, my mother, and my daughter, Emi. Their lives of commitment and faith in the plan have helped me climb higher and journey further. Looking at that picture now, I can see very clearly the importance of living a virtuous life. Today I not only have one daughter, but five daughters-in-law and five little granddaughters to add to that picture. I feel a deep sense of responsibility to live an exemplary life of virtue and holiness before them. Even if you are the first in the line of generations to come, you too have a responsibility to those that will follow you.
 
@@ -41,8 +43,3 @@ I testify that this is true. He has not only marked the way, but He has even led
 
 
 
-
-
-
-
-#Covenants #Morality #Standards

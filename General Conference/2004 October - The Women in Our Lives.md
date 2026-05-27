@@ -1,5 +1,7 @@
 # The Women in Our Lives
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2004 General Conference*
@@ -42,13 +44,13 @@ And so Eve became God’s final creation, the grand summation of all of the marv
 
 Notwithstanding this preeminence given the creation of woman, she has so frequently through the ages been relegated to a secondary position. She has been put down. She has been denigrated. She has been enslaved. She has been abused. And yet some few of the greatest characters of scripture have been women of integrity, accomplishment, and faith.
 
-We have Esther, Naomi, and Ruth of the Old Testament. We have Sariah of the Book of Mormon. We have Mary, the very mother of the Redeemer of the world. We have her as the chosen of God, described by Nephi as “a virgin, most beautiful and fair above all other virgins” ([[1 Nephi 11.15|1 Nephi 11:15]]).
+We have Esther, Naomi, and Ruth of the Old Testament. We have Sariah of the Book of Mormon. We have Mary, the very mother of the Redeemer of the world. We have her as the chosen of God, described by Nephi as “a virgin, most beautiful and fair above all other virgins” ([[1 Nephi 11.15|1 Nephi 11:15]]).
 
 She it was who carried the child Jesus into Egypt to save His life from the wrath of Herod. She it was who nurtured Him in His boyhood and young manhood. She stood before Him when His pain-wracked body hung upon the cross on Calvary’s hill. In His suffering He said to her, “Woman, behold thy son!” And to His disciple in a plea that he care for her, He said, “Behold thy mother!” ([[John 19.26|John 19:26–27]][[John 19.27|]]).
 
 Crossing through His life we have Mary and Martha, and Mary of Magdala. She it was who came to the tomb that first Easter morning. And to her, a woman, He first appeared as the resurrected Lord. Why is it that even though Jesus placed woman in a position of preeminence, so many men who profess His name fail to do so?
 
-In His grand design, when God first created man, He created a duality of the sexes. The ennobling expression of that duality is found in marriage. One individual is complementary to the other. As Paul stated, “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Corinthians 11:11]]).
+In His grand design, when God first created man, He created a duality of the sexes. The ennobling expression of that duality is found in marriage. One individual is complementary to the other. As Paul stated, “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Corinthians 11:11]]).
 
 There is no other arrangement that meets the divine purposes of the Almighty. Man and woman are His creations. Their duality is His design. Their complementary relationships and functions are fundamental to His purposes. One is incomplete without the other.
 
@@ -110,8 +112,3 @@ How thankful I am, how thankful we all must be, for the women in our lives. God 
 
 
 
-
-
-
-
-#Divorce #Love #Marriage #Service #Women

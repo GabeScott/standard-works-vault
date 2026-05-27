@@ -1,6 +1,8 @@
 # Church Welfare Services’ Basic Principles
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -16,7 +18,7 @@ Free agency was operative in the spirit world. The gospel plan, as there propose
 
 In the Garden of Eden, God endowed Adam and his posterity with free agency. Satan and his followers have, from then until now, sought directly and in every conceivable indirect manner to substitute the principle of force for the principle of free agency.
 
-In the book of First Samuel, we have an instructive example of the results of making wrong decisions. In the first chapter we are told that Israel objected to being governed by judges. They wanted a king. The prophet told them that a king would make them servants. But they hearkened not, and persisted in demanding a king. This grieved Samuel, and the Lord said to him, “Hearken unto the voice of the people … for they have not rejected thee, but they have rejected me.” ([[1 Samuel 8.7|1 Sam. 8:7]].)
+In the book of First Samuel, we have an instructive example of the results of making wrong decisions. In the first chapter we are told that Israel objected to being governed by judges. They wanted a king. The prophet told them that a king would make them servants. But they hearkened not, and persisted in demanding a king. This grieved Samuel, and the Lord said to him, “Hearken unto the voice of the people … for they have not rejected thee, but they have rejected me.” ([[1 Samuel 8.7|1 Sam. 8:7]].)
 
 Israel thus surrendered the form of free government God had given them. They got their king all right, and a few decades later they were taken captive into slavery. Slavery entered into by one’s own choice is no less slavery than that imposed upon him by external force.
 
@@ -34,13 +36,13 @@ Now as to the principle of love. In the operation of our Church Welfare Services
 
 “He that loveth not knoweth not God; for God is love.
 
-“In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. …
+“In this was manifested the love of God toward us, because that God sent his only begotten Son into the world, that we might live through him. …
 
-“Beloved, if God so loved us, we ought also to love one another.” ([[1 John 4.7|1 Jn. 4:7–9, 11]][[1 John 4.8|]][[1 John 4.9|]][[1 John 4.11|]].)
+“Beloved, if God so loved us, we ought also to love one another.” ([[1 John 4.7|1 Jn. 4:7–9, 11]][[1 John 4.8|]][[1 John 4.9|]][[1 John 4.11|]].)
 
-*“Whoso hath this world’s good, and seeth his brother have need, and shutteth up his bowels of compassion from him, how dwelleth the love of God in him?”* ([[1 John 3.17|1 Jn. 3:17]]; italics added.)
+*“Whoso hath this world’s good, and seeth his brother have need, and shutteth up his bowels of compassion from him, how dwelleth the love of God in him?”* ([[1 John 3.17|1 Jn. 3:17]]; italics added.)
 
-“If thou lovest me,” said Jesus, “… thou wilt remember the poor, and consecrate of thy properties for their support. …
+“If thou lovest me,” said Jesus, “… thou wilt remember the poor, and consecrate of thy properties for their support. …
 
 “And inasmuch as ye impart of your substance unto the poor, ye will do it unto me.” ([[D&C 42.29|D&C 42:29–31]][[D&C 42.30|]][[D&C 42.31|]].)
 
@@ -92,7 +94,7 @@ A year before this statement was made, on October 7, 1935, President Clark, in a
 
 In his conference address of April 1938, President Clark said this:
 
-“I honor and respect old age. I would not see it suffer from want, not from disease that can be helped. It is entitled to every care, to every act of kindness, to every loving caress which a grateful community and a devoted family can give. “I have every sympathy with age. I know the difficulties which age has in fitting into modern, economic life. …
+“I honor and respect old age. I would not see it suffer from want, not from disease that can be helped. It is entitled to every care, to every act of kindness, to every loving caress which a grateful community and a devoted family can give. “I have every sympathy with age. I know the difficulties which age has in fitting into modern, economic life. …
 
 “Some plan must be devised that shall make certain that no aged person shall be cold or go hungry or unclad. But the prime responsibility for supporting an aged parent rests upon his family, not upon society. Ours is not a socialistic or communistic state, where the people are mere vassals to be driven about as animals from one corral to another. We are freemen. So still with us the family has its place and its responsibilities and duties, which are God-given. The family which refuses to keep its own is not meeting its duties. When an aged parent has no family or when the family is itself without means, then society must, as a matter of merest humanity, come to the rescue. This is perfectly clear.
 
@@ -126,9 +128,9 @@ Later He said:
 
 And again:
 
-“Behold, I say unto you that it is my will that you should go forth and not tarry, neither be idle but labor with your might. …
+“Behold, I say unto you that it is my will that you should go forth and not tarry, neither be idle but labor with your might. …
 
-“And again, verily I say unto you, that every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown; and let him labor. …
+“And again, verily I say unto you, that every man who is obliged to provide for his own family, let him provide, and he shall in nowise lose his crown; and let him labor. …
 
 “Let every man be diligent in all things. And the idler shall not have place in the church, except he repent and mend his ways.” ([[D&C 75.3|D&C 75:3, 28–29]][[D&C 75.28|]][[D&C 75.29|]].)
 
@@ -152,31 +154,31 @@ The foregoing scriptures were revealed by the Lord through the Prophet Joseph Sm
 
 The succeeding presidents of the Church have vigorously emphasized these teachings. Here is an example from President Brigham Young’s teachings:
 
-“We will have to go to work and get the gold out of the mountains to lay down, if we ever walk in streets paved with gold. The angels that now walk in their golden streets … had to obtain that gold and put it there. When we have streets paved with gold, we will have placed it there ourselves. When we enjoy a Zion in its beauty and glory \[which we’re looking forward to\], it will be when we have built it. If we enjoy the Zion that we now anticipate, it will be after we redeem and prepare it. If we live in the city of the New Jerusalem, it will be because we lay the foundation and build it. … If we are to be saved in an ark, as Noah and his family were, it will be because we build it. …
+“We will have to go to work and get the gold out of the mountains to lay down, if we ever walk in streets paved with gold. The angels that now walk in their golden streets … had to obtain that gold and put it there. When we have streets paved with gold, we will have placed it there ourselves. When we enjoy a Zion in its beauty and glory \[which we’re looking forward to\], it will be when we have built it. If we enjoy the Zion that we now anticipate, it will be after we redeem and prepare it. If we live in the city of the New Jerusalem, it will be because we lay the foundation and build it. … If we are to be saved in an ark, as Noah and his family were, it will be because we build it. …
 
 “My faith does not lead me,” President Young continued, “to think the Lord will provide us with roast pigs, bread already buttered, etc.; he will give us the ability to raise the grain, to obtain the fruits of the earth, to make habitations, to procure a few boards to make a box, and when harvest comes, giving us the grain, it is for us to preserve it—to save the wheat until we have one, two, five, or seven years’ provisions on hand, until there is enough of the staff of life saved by the people to bread themselves and those who will come here seeking for safety. … \[The fulfillment of that prophecy is yet in the future.\]
 
-“Ye Latter-day Saints, learn to sustain yourselves. …
+“Ye Latter-day Saints, learn to sustain yourselves. …
 
-“Implied faith and confidence in God is for you and me to do everything we can to sustain and preserve ourselves. …
+“Implied faith and confidence in God is for you and me to do everything we can to sustain and preserve ourselves. …
 
-“You have learned a good deal, it is true; but learn more; learn to sustain yourselves; lay up grain and flour, and save it against a day of scarcity. …
+“You have learned a good deal, it is true; but learn more; learn to sustain yourselves; lay up grain and flour, and save it against a day of scarcity. …
 
 “Instead of searching after what the Lord is going to do for us, let us inquire what we can do for ourselves.” (*Discourses of Brigham Young,* Deseret Book, 1966 ed., pp. 291–93.)
 
-“To be Latter-day Saints men and women must be thinkers and workers,” said President Joseph F. Smith. “They must be men and women who weigh matters in their minds; men and women who consider carefully their course of life and the principles that they have espoused.” (*Gospel Doctrine,* Deseret Book, 1939 ed., p. 114.)
+“To be Latter-day Saints men and women must be thinkers and workers,” said President Joseph F. Smith. “They must be men and women who weigh matters in their minds; men and women who consider carefully their course of life and the principles that they have espoused.” (*Gospel Doctrine,* Deseret Book, 1939 ed., p. 114.)
 
 President Grant declared:
 
-“I am a firm believer that work does not kill anyone. …
+“I am a firm believer that work does not kill anyone. …
 
-“I have never seen the day when I was not willing to do the meanest work … rather than be idle. …
+“I have never seen the day when I was not willing to do the meanest work … rather than be idle. …
 
-“Men should have a pride in doing their full share and never want to be paid for that which they have not earned. …
+“Men should have a pride in doing their full share and never want to be paid for that which they have not earned. …
 
-“I assert with confidence that the law of success, here and hereafter, is to have a humble and a prayerful heart, and to work, *work,* WORK. …
+“I assert with confidence that the law of success, here and hereafter, is to have a humble and a prayerful heart, and to work, *work,* WORK. …
 
-“I do not ask any man or child in this Church, although I am more than eighty years of age,” he continued, “to work any more hours than I do. I have worked more than one day from half past three in the morning until nine o’clock at night. I do not know of anything that destroys a person’s health more quickly than not working. It seems to me that lazy people die young while those who are ready and willing to labor and who ask the Lord day by day to help them to do more in the future than they have ever done in the past, are the people whom the Lord loves, and who live to a good old age. …
+“I do not ask any man or child in this Church, although I am more than eighty years of age,” he continued, “to work any more hours than I do. I have worked more than one day from half past three in the morning until nine o’clock at night. I do not know of anything that destroys a person’s health more quickly than not working. It seems to me that lazy people die young while those who are ready and willing to labor and who ask the Lord day by day to help them to do more in the future than they have ever done in the past, are the people whom the Lord loves, and who live to a good old age. …
 
 “I have been impressed with the fact that there is a spirit growing in the world today to avoid giving service, an unwillingness to give value received, to try to see how little we can do and how much we can get for doing it. This is all wrong. Our spirit and aim should be to do all we possibly can, in a given length of time, for the benefit of those who employ us and for the benefit of those with whom we are associated.
 
@@ -184,9 +186,9 @@ President Grant declared:
 
 A statement which focuses upon and gives real meaning to what we have been talking about here is the following “Editorial on Labor,” written and published by John Taylor in Nauvoo, October 15, 1844. I just found this recently, and I think it’s a marvelous statement. This was way back there just after the Prophet had been martyred. It reads:
 
-“*Labor is the manufacturer of wealth. It was ordained of God, as the medium to be used by man to obtain his living* \[italics added\]: hence it is the universal condition of this great bond *to live.* …
+“*Labor is the manufacturer of wealth. It was ordained of God, as the medium to be used by man to obtain his living* \[italics added\]: hence it is the universal condition of this great bond *to live.* …
 
-“God never meant to bemean his creation, especially his own *image,* because they had to labor:—no; never; God himself according to the good old book labored on this world, six days; and when Adam was animated from clay to life, by his spirit’s making use of him for a dwelling, we read that God put him into the garden *to dress it:*—Therefore, in connection with the samples of all holy men, we are bound to honor the laboring man: and despise the idler. …
+“God never meant to bemean his creation, especially his own *image,* because they had to labor:—no; never; God himself according to the good old book labored on this world, six days; and when Adam was animated from clay to life, by his spirit’s making use of him for a dwelling, we read that God put him into the garden *to dress it:*—Therefore, in connection with the samples of all holy men, we are bound to honor the laboring man: and despise the idler. …
 
 “Let them labor like men, prepare for that august hour; when Babylon and all her worldly wisdom; her various delicacies; and delusive fashions, shall fall with her to rise and trouble the earth no more!” Then he said, “What a glorious prospect, to think that drunken Babylon, the great city of sin, will soon cease, and the kingdom of God rise in holy splendor, upon her ashes, and the people serve God in a perpetual union!” (*Times and Seasons* 5:679, Oct. 15, 1844.)
 
@@ -207,8 +209,3 @@ This is my witness, which I bear to you in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Love #Welfare #Work

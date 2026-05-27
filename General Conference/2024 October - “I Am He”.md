@@ -1,6 +1,8 @@
 # “I Am He”
 
-By President Jeffrey R. Holland - *Acting President of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By President Jeffrey R. Holland - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -24,7 +26,7 @@ From that teaching in the temple to His triumphant entry into Jerusalem and this
 
 Yet down through history many have simplified, even trivialized our image of Him and His witness of who He was. They have reduced His righteousness to mere prudishness, His justice to mere anger, His mercy to mere permissiveness. We must not be guilty of such simplistic versions of Him that conveniently ignore teachings we find uncomfortable. This “dumbing down” has been true even regarding His ultimate defining virtue, His love.
 
-During His mortal mission, Jesus taught that there were two great commandments. They have been taught in this conference and will forever be taught: “Love the Lord thy God \[and\] love thy neighbour as thyself.”[^6] If we are to follow the Savior faithfully in these two crucial and inextricably linked rules, we ought to hold firmly to what He *actually* said. And what He *actually* said was, “If ye love me, keep my commandments.”[^7] On that same evening, He said we were to “love one another; as I have loved you.”[^8]
+During His mortal mission, Jesus taught that there were two great commandments. They have been taught in this conference and will forever be taught: “Love the Lord thy God \[and\] love thy neighbour as thyself.”[^6] If we are to follow the Savior faithfully in these two crucial and inextricably linked rules, we ought to hold firmly to what He *actually* said. And what He *actually* said was, “If ye love me, keep my commandments.”[^7] On that same evening, He said we were to “love one another; as I have loved you.”[^8]
 
 In those scriptures, those qualifying phrases defining true, Christlike love—sometimes referred to as charity—are absolutely essential.
 
@@ -46,7 +48,7 @@ So, through abundance as well as poverty, through private acclaim as well as pub
 
 “Whom seek ye?” With all our hearts we answer, “Jesus of Nazareth.” When He says, “I am he,”[^18] we bow our knee and confess with our tongue that He is the living Christ, that He alone atoned for our sins, that He was carrying us even when we thought He had abandoned us. When we stand before Him and see the wounds in His hands and feet, we will begin to comprehend what it meant for Him *to bear our sins and be acquainted with grief, to be completely obedient to the will of His Father*—all out of pure love for us. To introduce others to faith, repentance, baptism, the gift of the Holy Ghost, and receiving our blessings in the house of the Lord—these are the fundamental “principles and ordinances”[^19] that ultimately reveal our love of God and neighbor and joyfully characterize the true Church of Christ.
 
-Brothers and sisters, I testify that The Church of Jesus Christ of Latter-day Saints is the vehicle God has provided for our exaltation. The gospel it teaches is true, and the priesthood legitimizing it is not derivative. I testify that Russell M. Nelson is a prophet of our God, as His predecessors were and as His successors will be. And one day that prophetic guidance will lead a generation to see our Messenger of Salvation descend like “lightning … out of the east,”[^20] and we will exclaim, “Jesus of Nazareth.” With arms forever outstretched and love unfeigned, He will reply, “I am he.”[^21] I so promise with the apostolic power and authority of His holy name, even Jesus Christ, amen.
+Brothers and sisters, I testify that The Church of Jesus Christ of Latter-day Saints is the vehicle God has provided for our exaltation. The gospel it teaches is true, and the priesthood legitimizing it is not derivative. I testify that Russell M. Nelson is a prophet of our God, as His predecessors were and as His successors will be. And one day that prophetic guidance will lead a generation to see our Messenger of Salvation descend like “lightning … out of the east,”[^20] and we will exclaim, “Jesus of Nazareth.” With arms forever outstretched and love unfeigned, He will reply, “I am he.”[^21] I so promise with the apostolic power and authority of His holy name, even Jesus Christ, amen.
 
 
 
@@ -61,7 +63,7 @@ Brothers and sisters, I testify that The Church of Jesus Christ of Latter-day Sa
 
 [^5]: [[Matthew 7.29|Matthew 7:29]]; see also [[John 7.15|John 7:15]].
 
-[^6]: [[Matthew 22.37|Matthew 22:37, 39]][[Matthew 22.39|]].
+[^6]: [[Matthew 22.37|Matthew 22:37, 39]][[Matthew 22.39|]].
 
 [^7]: [[John 14.15|John 14:15]].
 
@@ -69,15 +71,15 @@ Brothers and sisters, I testify that The Church of Jesus Christ of Latter-day Sa
 
 [^9]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
-[^10]: See [[JST John 1.4|Joseph Smith Translation, John 1:4, 14]][[JST John 1.14|]]; [[Moses 1.6|Moses 1:6]].
+[^10]: See [[JST John 1.4|Joseph Smith Translation, John 1:4, 14]][[JST John 1.14|]]; [[Moses 1.6|Moses 1:6]].
 
-[^11]: [[2 Nephi 2.6|2 Nephi 2:6]].
+[^11]: [[2 Nephi 2.6|2 Nephi 2:6]].
 
 [^12]: See [[D&C 84.44|Doctrine and Covenants 84:44]].
 
-[^13]: See [[Mosiah 15.7|Mosiah 15:7]]; [[3 Nephi 27.13|3 Nephi 27:13–15]][[3 Nephi 27.14|]][[3 Nephi 27.15|]]. And Jesus reminds us to do the same in [[Matthew 7.21|Matthew 7:21]]: “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.”
+[^13]: See [[Mosiah 15.7|Mosiah 15:7]]; [[3 Nephi 27.13|3 Nephi 27:13–15]][[3 Nephi 27.14|]][[3 Nephi 27.15|]]. And Jesus reminds us to do the same in [[Matthew 7.21|Matthew 7:21]]: “Not every one that saith unto me, Lord, Lord, shall enter into the kingdom of heaven; but he that doeth the will of my Father which is in heaven.”
 
-[^14]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
+[^14]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
 [^15]: See [[Matthew 27.46|Matthew 27:46]].
 
@@ -93,8 +95,3 @@ Brothers and sisters, I testify that The Church of Jesus Christ of Latter-day Sa
 
 [^21]: [[John 18.5|John 18:5]].
 
-
-
-
-
-#Jesus_Christ #Love #Obedience

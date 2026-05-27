@@ -1,5 +1,7 @@
 # Winning the War against Evil
 
+Thomas S. Monson
+
 By Elder James J. Hamula - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -36,7 +38,7 @@ Now, my young friends of the Aaronic Priesthood, you are these valiant and noble
 
 With God’s kingdom restored to the earth and your entry into the world, Satan knows that “he hath but a short time.”[^14] Therefore, Satan is marshalling every resource at his disposal to entice you into transgression. He knows that if he can draw you into transgression, he may prevent you from serving a full-time mission, marrying in the temple, and securing your future children in the faith, all of which weakens not only you but the Church. He knows that nothing can overthrow God’s kingdom “save it \[be\] the transgression of \[his\] people.”[^15] Make no mistake about it—the focus of his war is now on you—you who seek to “keep the commandments of God, and have the testimony of Jesus Christ.”[^16]
 
-Now, my young friends, you need to appreciate that our days now and the days that lie ahead are “perilous.”[^17] In this regard, President Boyd K. Packer has observed:
+Now, my young friends, you need to appreciate that our days now and the days that lie ahead are “perilous.”[^17] In this regard, President Boyd K. Packer has observed:
 
 “I know of nothing in the history of the Church or in the history of the world to compare with our present circumstances. Nothing happened in Sodom and Gomorrah which exceeds in wickedness and depravity that which surrounds us now.”[^18]
 
@@ -46,7 +48,7 @@ So, as we enter the final climactic stages of the war against Satan, be sober, m
 
 Understand, my young friends, that there is only one way to win the war against Satan, and that is to win it in the same way it was won in the beginning. When victory was finally achieved in the War in Heaven, a loud voice was heard to declare:
 
-“Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ. …
+“Now is come salvation, and strength, and the kingdom of our God, and the power of his Christ. …
 
 “For they \[referring to Michael and his angels\] have overcome him \[referring to the devil\] by the blood of the Lamb, and by the word of their testimony; for they loved not their own lives, but kept the testimony even unto death.”[^24] Do not miss the significance of this declaration. Satan was overcome in the beginning by (1) *faith* in the Lord Jesus Christ and His atoning sacrifice, (2) *testimony* of Him that was steadfastly kept to the very end, and (3) *consecration* of oneself to the Lord and His work. If this was the means for defeating him in the beginning, you can be sure that this is the one sure way to defeat him now.[^25]
 
@@ -63,7 +65,7 @@ My dear brethren of the Aaronic Priesthood, these are your days! Do not squander
 
 
 
-[^1]: See [[1 Nephi 14.10|1 Nephi 14:10, 13]][[1 Nephi 14.13|]] (“There are save two churches only; the one is the church of the Lamb of God, and the other is the church of the devil … \[which\] gather\[s\] together multitudes upon the face of all the earth … to fight against the Lamb of God”).
+[^1]: See [[1 Nephi 14.10|1 Nephi 14:10, 13]][[1 Nephi 14.13|]] (“There are save two churches only; the one is the church of the Lamb of God, and the other is the church of the devil … \[which\] gather\[s\] together multitudes upon the face of all the earth … to fight against the Lamb of God”).
 
 [^2]: [[Revelation 12.7|Revelation 12:7–9]][[Revelation 12.8|]][[Revelation 12.9|]].
 
@@ -79,7 +81,7 @@ My dear brethren of the Aaronic Priesthood, these are your days! Do not squander
 
 [^8]: See [[D&C 88.110|D&C 88:110]]; [[Moses 7.64|Moses 7:64]].
 
-[^9]: See Bruce R. McConkie, in Conference Report, Oct. 1984, 104; or *Ensign,* Nov. 1984, 84.
+[^9]: See Bruce R. McConkie, in Conference Report, Oct. 1984, [[1984 October - The Caravan Moves On.md|104]]; or *Ensign,* Nov. 1984, 84.
 
 [^10]: See [[Daniel 2.44|Daniel 2:44–45]][[Daniel 2.45|]]; [[D&C 38.9|D&C 38:9–15]][[D&C 38.10|]][[D&C 38.11|]][[D&C 38.12|]][[D&C 38.13|]][[D&C 38.14|]][[D&C 38.15|]]; [[D&C 82.24|82:24]].
 
@@ -95,11 +97,11 @@ My dear brethren of the Aaronic Priesthood, these are your days! Do not squander
 
 [^16]: [[Revelation 12.17|Revelation 12:17]].
 
-[^17]: [[2 Timothy 3.1|2 Timothy 3:1]].
+[^17]: [[2 Timothy 3.1|2 Timothy 3:1]].
 
-[^18]: Boyd K. Packer, “The One Pure Defense” (address to CES religious educators, Feb. 6, 2004), 4.
+[^18]: Boyd K. Packer, “The One Pure Defense” (address to CES religious educators, Feb. 6, 2004), 4.
 
-[^19]: Alma counseled each of his sons—Helaman, Shiblon, and Corianton—to “be sober” (see [[Alma 37.47|Alma 37:47]]; [[Alma 38.15|38:15]]; [[Alma 42.31|42:31]]). Paul also exhorted young men to be “sober minded” ([[Titus 2.6|Titus 2:6]]). In addition, Paul counseled others to be sober, particularly bishops (see [[Romans 12.3|Romans 12:3]]; [[1 Thessalonians 5.6|1 Thessalonians 5:6, 8]][[1 Thessalonians 5.8|]]; [[1 Timothy 3.2|1 Timothy 3:2, 11]][[1 Timothy 3.11|]]; [[Titus 1.8|Titus 1:8]]; [[Titus 2.2|2:2, 4, 12]][[Titus 2.4|]][[Titus 2.12|]]).
+[^19]: Alma counseled each of his sons—Helaman, Shiblon, and Corianton—to “be sober” (see [[Alma 37.47|Alma 37:47]]; [[Alma 38.15|38:15]]; [[Alma 42.31|42:31]]). Paul also exhorted young men to be “sober minded” ([[Titus 2.6|Titus 2:6]]). In addition, Paul counseled others to be sober, particularly bishops (see [[Romans 12.3|Romans 12:3]]; [[1 Thessalonians 5.6|1 Thessalonians 5:6, 8]][[1 Thessalonians 5.8|]]; [[1 Timothy 3.2|1 Timothy 3:2, 11]][[1 Timothy 3.11|]]; [[Titus 1.8|Titus 1:8]]; [[Titus 2.2|2:2, 4, 12]][[Titus 2.4|]][[Titus 2.12|]]).
 
 [^20]: See [[Alma 53.20|Alma 53:20–21]][[Alma 53.21|]].
 
@@ -107,17 +109,17 @@ My dear brethren of the Aaronic Priesthood, these are your days! Do not squander
 
 [^22]: [[Mormon 1.15|Mormon 1:15]].
 
-[^23]: See Gordon B. Hinckley, “An Unending Conflict, a Victory Assured,” *Liahona,* June 2007, 2–7; *Ensign,* June 2007, 4–9.
+[^23]: See Gordon B. Hinckley, “An Unending Conflict, a Victory Assured,” *Liahona,* June 2007, 2–7; *Ensign,* June 2007, 4–9.
 
 [^24]: [[JST Revelation 12.9|Joseph Smith Translation, Revelation 12:9, 11]][[JST Revelation 12.11|]].
 
-[^25]: See [[D&C 76.53|D&C 76:53]] (those who inherit the celestial kingdom “overcome by faith”); [[1 John 5.4|1 John 5:4–5]][[1 John 5.5|]] (“this is the victory that overcometh the world, even our faith,” and “he that overcometh the world” is “he that believeth that Jesus is the Son of God”).
+[^25]: See [[D&C 76.53|D&C 76:53]] (those who inherit the celestial kingdom “overcome by faith”); [[1 John 5.4|1 John 5:4–5]][[1 John 5.5|]] (“this is the victory that overcometh the world, even our faith,” and “he that overcometh the world” is “he that believeth that Jesus is the Son of God”).
 
 [^26]: See [[Joseph Smith History 1.11|Joseph Smith—History 1:11–15]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]].
 
 [^27]: See [[Hebrews 11.1|Hebrews 11:1]]; [[Alma 32.21|Alma 32:21]]; [[Ether 12.6|Ether 12:6]].
 
-[^28]: The voice of the Spirit is described as a still, small voice of perfect mildness, as if it were a whisper. See [[1 Kings 19.12|1 Kings 19:12]]; [[Helaman 5.30|Helaman 5:30]]; [[D&C 85.6|D&C 85:6]].
+[^28]: The voice of the Spirit is described as a still, small voice of perfect mildness, as if it were a whisper. See [[1 Kings 19.12|1 Kings 19:12]]; [[Helaman 5.30|Helaman 5:30]]; [[D&C 85.6|D&C 85:6]].
 
 [^29]: See [[D&C 88.69|D&C 88:69, 121]][[D&C 88.121|]].
 
@@ -125,14 +127,9 @@ My dear brethren of the Aaronic Priesthood, these are your days! Do not squander
 
 [^31]: [[Ephesians 6.16|Ephesians 6:16]].
 
-[^32]: [[1 Timothy 6.12|1 Timothy 6:12]].
+[^32]: [[1 Timothy 6.12|1 Timothy 6:12]].
 
 [^33]: See [[Malachi 3.2|Malachi 3:2]]. “Who shall be able to stand?” ([[Revelation 6.17|Revelation 6:17]]). Those who have taken the “whole armour of God” and have “done all” ([[Ephesians 6.13|Ephesians 6:13]]).
 
 [^34]: [[Exodus 14.13|Exodus 14:13]].
 
-
-
-
-
-#Dedication #Holy_Ghost #Last_Days #Obedience #Prayer

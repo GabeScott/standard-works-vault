@@ -1,15 +1,14 @@
 # Vineyard
 
-
 *See also* [[Vineyard of the Lord.md|Vineyard of the Lord]]
 
-Noah ... planted a *vineyard*, [[Genesis 9.20|Genesis 9:20]].
+Noah … planted a *vineyard*, [[Genesis 9.20|Genesis 9:20]].
 
 thou shalt not glean thy *vineyard*, [[Leviticus 19.10|Leviticus 19:10]].
 
-When thou comest into thy neighbour's *vineyard*, [[Deuteronomy 23.24|Deuteronomy 23:24]].
+When thou comest into thy neighbour’s *vineyard*, [[Deuteronomy 23.24|Deuteronomy 23:24]].
 
-Samson ... came to the *vineyards* of Timnath, [[Judges 14.5|Judges 14:5]].
+Samson … came to the *vineyards* of Timnath, [[Judges 14.5|Judges 14:5]].
 
 Ahab spake unto Naboth, saying, Give me thy *vineyard*, [[1 Kings 21.2|1 Kings 21:2]].
 

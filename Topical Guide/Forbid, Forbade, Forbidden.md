@@ -1,15 +1,14 @@
 # Forbid, Forbade, Forbidden
 
-
 commit any of these things which are *forbidden*, [[Leviticus 5.17|Leviticus 5:17]].
 
 John *forbad* him, [[Matthew 3.14|Matthew 3:14]].
 
-Suffer the little children ... and *forbid* them not, [[Mark 10.14|Mark 10:14]] ([[Luke 18.16|Luke 18:16]]).
+Suffer the little children … and *forbid* them not, [[Mark 10.14|Mark 10:14]] ([[Luke 18.16|Luke 18:16]]).
 
 *forbid* not to take thy coat, [[Luke 6.29|Luke 6:29]].
 
-We found this fellow ... *forbidding* to give tribute to Cæsar, [[Luke 23.2|Luke 23:2]].
+We found this fellow … *forbidding* to give tribute to Cæsar, [[Luke 23.2|Luke 23:2]].
 
 Can any man *forbid* water, [[Acts 10.47|Acts 10:47]].
 
@@ -21,7 +20,7 @@ were *forbidden* of the Holy Ghost to preach the word in Asia, [[Acts 16.6|Acts 
 
 *Forbidding* to marry, [[1 Timothy 4.3|1 Timothy 4:3]] ([[D&C 49.15|D&C 49:15]]).
 
-dumb ass ... *forbad* the madness of the prophet, [[2 Peter 2.16|2 Peter 2:16]].
+dumb ass … *forbad* the madness of the prophet, [[2 Peter 2.16|2 Peter 2:16]].
 
 they fell away into *forbidden* paths, [[1 Nephi 8.28|1 Nephi 8:28]].
 

@@ -1,5 +1,7 @@
 # Welcome to Conference
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2009 General Conference*
@@ -16,7 +18,7 @@ Since last we met in April of this year, we have dedicated the beautiful Oquirrh
 
 We continue to build temples. We desire that as many members as possible have an opportunity to attend the temple without having to travel inordinate distances. Worldwide, 83 percent of our members live within 200 miles (320 km) of a temple. That percentage will continue to increase as we construct new temples around the world. Currently there are 130 temples in operation, with 16 announced or under construction. This morning I am pleased to announce 5 additional temples for which sites are being acquired and which, in coming months and years, will be built in the following locations: Brigham City, Utah; Concepción, Chile; Fortaleza, Brazil; Fort Lauderdale, Florida; and Sapporo, Japan.
 
-Millions of ordinances are performed in the temples each year in behalf of our deceased loved ones. May we continue to be faithful in performing such ordinances for those who are unable to do so for themselves. I love the words of President Joseph F. Smith as he spoke of temple service and of the spirit world beyond mortality. Said he, “Through our efforts in their behalf their chains of bondage will fall from them, and the darkness surrounding them will clear away, that light may shine upon them and they shall hear in the spirit world of the work that has been done for them by their \[people\] here, and will rejoice with you in your performance of these duties.”[^1]
+Millions of ordinances are performed in the temples each year in behalf of our deceased loved ones. May we continue to be faithful in performing such ordinances for those who are unable to do so for themselves. I love the words of President Joseph F. Smith as he spoke of temple service and of the spirit world beyond mortality. Said he, “Through our efforts in their behalf their chains of bondage will fall from them, and the darkness surrounding them will clear away, that light may shine upon them and they shall hear in the spirit world of the work that has been done for them by their \[people\] here, and will rejoice with you in your performance of these duties.”[^1]
 
 Brothers and sisters, the Church continues to grow, as it has since being organized over 179 years ago. It is changing the lives of more and more people every year and is spreading far and wide over the earth as our missionary force seeks out those who are looking for the truths which are found in the gospel of Jesus Christ. We call upon all members of the Church to befriend the new converts, to reach out to them, to surround them with love, and to help them feel at home.
 
@@ -27,10 +29,5 @@ Now, my brothers and sisters, we are anxious to listen to the messages which wil
 
 
 
-[^1]: Joseph F. Smith, in Conference Report, Oct. 1916, 6.
+[^1]: Joseph F. Smith, in Conference Report, Oct. 1916, 6.
 
-
-
-
-
-#Missionary_Work #Temples

@@ -1,13 +1,12 @@
 # Exaltation
 
-
 *See also* [[Eternal Life.md|Eternal Life]]; [[Family, Eternal.md|Family, Eternal]]; [[Jesus Christ, Mission of.md|Jesus Christ, Mission of]]; [[Man, Potential to Become like Heavenly Father.md|Man, Potential to Become like Heavenly Father]]
 
 in thy presence is *fulness* of joy, [[Psalms 16.11|Psalms 16:11]].
 
 *inherit* the kingdom prepared for you, [[Matthew 25.34|Matthew 25:34]].
 
-Abraham ... in the *kingdom* of God, [[Luke 13.28|Luke 13:28]].
+Abraham … in the *kingdom* of God, [[Luke 13.28|Luke 13:28]].
 
 *heirs* of God, and *joint-heirs* with Christ, [[Romans 8.17|Romans 8:17]].
 
@@ -39,7 +38,7 @@ dead which died in me, to receive a *crown*, [[D&C 29.13|D&C 29:13]].
 
 *crown* the faithful with joy, [[D&C 52.43|D&C 52:43]].
 
-after much tribulation ... *crowned* with much glory, [[D&C 58.4|D&C 58:4]].
+after much tribulation … *crowned* with much glory, [[D&C 58.4|D&C 58:4]].
 
 they shall receive a *crown* in the mansions, [[D&C 59.2|D&C 59:2]].
 
@@ -51,7 +50,7 @@ come up unto the *crown* prepared for you, [[D&C 78.15|D&C 78:15]].
 
 thou shalt have a *crown* of immortality, [[D&C 81.6|D&C 81:6]].
 
-receiveth my Father's *kingdom*, [[D&C 84.38|D&C 84:38]].
+receiveth my Father’s *kingdom*, [[D&C 84.38|D&C 84:38]].
 
 *crowned* with glory, even with the presence of God, [[D&C 88.19|D&C 88:19]].
 
@@ -69,8 +68,8 @@ I seal upon you your *exaltation*, [[D&C 132.49|D&C 132:49]].
 
 *crowned* with glory, even in Zion, [[D&C 133.32|D&C 133:32]].
 
-saints shall ... stand on the *right* hand of the Lamb, [[D&C 133.56|D&C 133:56]].
+saints shall … stand on the *right* hand of the Lamb, [[D&C 133.56|D&C 133:56]].
 
-who would have received it ... shall be *heirs*, [[D&C 137.7|D&C 137:7]].
+who would have received it … shall be *heirs*, [[D&C 137.7|D&C 137:7]].
 
 saints arose, and were *crowned* at the right hand, [[Moses 7.56|Moses 7:56]].

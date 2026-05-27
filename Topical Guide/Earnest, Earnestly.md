@@ -1,7 +1,6 @@
 # Earnest, Earnestly
 
-
-*earnest* expectation ... waiteth for the manifestation of the sons of God, [[Romans 8.19|Romans 8:19]].
+*earnest* expectation … waiteth for the manifestation of the sons of God, [[Romans 8.19|Romans 8:19]].
 
 given the *earnest* of the Spirit in our hearts, [[2 Corinthians 1.22|2 Corinthians 1:22]] ([[2 Corinthians 5.5|2 Corinthians 5:5]]).
 

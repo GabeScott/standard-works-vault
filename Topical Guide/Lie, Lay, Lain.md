@@ -1,13 +1,12 @@
 # Lie, Lay, Lain
 
-
-*See also* [[Lying, Liar, Lie.md|Lying]]
+*See also* [[Lying.md|Lying]]
 
 we will *lie* with him, that we may preserve seed, [[Genesis 19.32|Genesis 19:32]].
 
 man force her, and *lie* with her, [[Deuteronomy 22.25|Deuteronomy 22:25]].
 
-as a lion ... he *lieth* in wait to catch the poor, [[Psalms 10.9|Psalms 10:9]].
+as a lion … he *lieth* in wait to catch the poor, [[Psalms 10.9|Psalms 10:9]].
 
 He maketh me to *lie* down in green pastures, [[Psalms 23.2|Psalms 23:2]].
 

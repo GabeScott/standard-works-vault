@@ -1,6 +1,8 @@
 # Enduring Power
 
-By Elder Kelly R. Johnson - *Of the Seventy*
+Russell M. Nelson
+
+By Elder Kelly R. Johnson - *Of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Kelly R. Johnson - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/10/56johnson?lang=eng)
 
-In reviewing the teachings of our dear prophet, President Russell M. Nelson, I found a word that he has frequently used in many talks. This word is *power.*
+In reviewing the teachings of our dear prophet, President Russell M. Nelson, I found a word that he has frequently used in many talks. This word is *power.*
 
 In the first general conference after he was sustained as an Apostle, President Nelson talked about power.[^1] He has continued teaching about power over the years. Since we have sustained President Nelson as our prophet, he has taught about the principle of power—specifically, God’s power—and how we can access it. He has taught how we can draw upon God’s power as we minister to others,[^2] how repentance invites the power of Jesus Christ and His Atonement into our lives,[^3] and how priesthood—the power and authority of God—blesses all who make and keep covenants with Him.[^4] President Nelson has testified that God’s power flows to all who are endowed in the temple as they keep their covenants.[^5]
 
@@ -16,7 +18,7 @@ I was particularly moved by a challenge President Nelson gave in the April 2020 
 
 In response to this challenge, I have studied and prayed and have learned some beneficial things about the power and knowledge with which I have been endowed—or with which I will yet be endowed.
 
-Understanding what we must do to access God’s power in our lives is not easy, but I have found it is doable by studying it out in our minds and praying for the Holy Ghost to enlighten us.[^7] Elder Richard G. Scott offered a clear definition of what the power of God is: it is the “power to do more than we can do by ourselves.”[^8]
+Understanding what we must do to access God’s power in our lives is not easy, but I have found it is doable by studying it out in our minds and praying for the Holy Ghost to enlighten us.[^7] Elder Richard G. Scott offered a clear definition of what the power of God is: it is the “power to do more than we can do by ourselves.”[^8]
 
 Filling our heart and even our soul with the word of God and the foundation of faith in Jesus Christ is crucial to drawing upon the power of God to help us in these challenging times. Without getting the word of God and faith in Jesus Christ deep into our hearts, our testimonies and faith may fail, and we may lose access to the power God wants to give us. Superficial faith is insufficient. Only faith and the word of God that fill our inner soul are sufficient to sustain us—and to allow us to access His power.
 
@@ -53,27 +55,27 @@ I testify that because Heavenly Father loves you and me, He sent His Beloved Son
 
 
 
-[^1]: See Russell M. Nelson, “[[1984 October - Protect the Spiritual Power Line.md|Protect the Spiritual Power Line]],” *Ensign,* Nov. 1984, 30–32.
+[^1]: See Russell M. Nelson, “[[1984 October - Protect the Spiritual Power Line.md|Protect the Spiritual Power Line]],” *Ensign,* Nov. 1984, 30–32.
 
-[^2]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 68–75.
+[^2]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” *Ensign* or *Liahona,* May 2018, 68–75.
 
-[^3]: See Russell M. Nelson, “[[2019 April - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona,* May 2019, 112.
+[^3]: See Russell M. Nelson, “[[2019 April - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona,* May 2019, 112.
 
-[^4]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” 68–69.
+[^4]: See Russell M. Nelson, “[[2018 April - Ministering with the Power and Authority of God.md|Ministering with the Power and Authority of God]],” 68–69.
 
-[^5]: See Russell M. Nelson, “[[2020 April - Go Forward in Faith.md|Go Forward in Faith]],” *Ensign* or *Liahona,* May 2020, 115.
+[^5]: See Russell M. Nelson, “[[2020 April - Go Forward in Faith.md|Go Forward in Faith]],” *Ensign* or *Liahona,* May 2020, 115.
 
-[^6]: Russell M. Nelson, “[[2020 April - Go Forward in Faith.md|Go Forward in Faith]],” 115.
+[^6]: Russell M. Nelson, “[[2020 April - Go Forward in Faith.md|Go Forward in Faith]],” 115.
 
 [^7]: See [[D&C 9.7|Doctrine and Covenants 9:7–9]][[D&C 9.8|]][[D&C 9.9|]].
 
-[^8]: Richard G. Scott, “[[2013 April - For Peace at Home.md|For Peace at Home]],” *Ensign* or *Liahona,* May 2013, 30.
+[^8]: Richard G. Scott, “[[2013 April - For Peace at Home.md|For Peace at Home]],” *Ensign* or *Liahona,* May 2013, 30.
 
-[^9]: “Microwaves use microwave sound energy waves to heat up food or liquids. There has to be something inside the microwave to absorb these waves. Otherwise, the microwave will absorb the waves instead. The waves will heat up the microwave’s cooking chamber, trying to find something to be absorbed by. The waves will eventually reach the microwave’s magnetron, which is the source for the microwaves. The magnetron cannot handle a huge amount of power, so it continues to send it to other parts of the microwave. Running a microwave with nothing in it will damage the magnetron and other parts of the microwave as well. In a worst case scenario, the microwave parts will overheat and possibly catch fire” (Abacus Appliance Service Corporation, “Will I Destroy My Microwave If It Runs Empty?” Aug. 16, 2012, abacusappliance.com; see also Julie R. Thomson, “13 Things You Should Never Put in the Microwave,” June 13, 2014, huffpost.com).
+[^9]: “Microwaves use microwave sound energy waves to heat up food or liquids. There has to be something inside the microwave to absorb these waves. Otherwise, the microwave will absorb the waves instead. The waves will heat up the microwave’s cooking chamber, trying to find something to be absorbed by. The waves will eventually reach the microwave’s magnetron, which is the source for the microwaves. The magnetron cannot handle a huge amount of power, so it continues to send it to other parts of the microwave. Running a microwave with nothing in it will damage the magnetron and other parts of the microwave as well. In a worst case scenario, the microwave parts will overheat and possibly catch fire” (Abacus Appliance Service Corporation, “Will I Destroy My Microwave If It Runs Empty?” Aug. 16, 2012, abacusappliance.com; see also Julie R. Thomson, “13 Things You Should Never Put in the Microwave,” June 13, 2014, huffpost.com).
 
-[^10]: See [[1 Nephi 15.24|1 Nephi 15:24]].
+[^10]: See [[1 Nephi 15.24|1 Nephi 15:24]].
 
-[^11]: [[2 Timothy 1.7|2 Timothy 1:7]].
+[^11]: [[2 Timothy 1.7|2 Timothy 1:7]].
 
 [^12]: [[Luke 2.40|Luke 2:40]].
 
@@ -91,8 +93,3 @@ I testify that because Heavenly Father loves you and me, He sent His Beloved Son
 
 [^19]: See [[Matthew 28.18|Matthew 28:18]].
 
-
-
-
-
-#Covenants #Faith #Spirituality

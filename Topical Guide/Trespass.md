@@ -1,7 +1,6 @@
 # Trespass
 
-
-*See also* [[Offense, Offend, Offender.md|Offense]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress]]
+*See also* [[Offense.md|Offense]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]
 
 he shall bring his *trespass* offering unto the Lord, [[Leviticus 5.6|Leviticus 5:6]].
 
@@ -9,7 +8,7 @@ If a soul commit a *trespass*, and sin through ignorance, [[Leviticus 5.15|Levit
 
 this is the law of the *trespass* offering, [[Leviticus 7.1|Leviticus 7:1]].
 
-confess ... their *trespass* which they *trespassed* against me, [[Leviticus 26.40|Leviticus 26:40]].
+confess … their *trespass* which they *trespassed* against me, [[Leviticus 26.40|Leviticus 26:40]].
 
 counsel of Balaam, to commit *trespass*, [[Numbers 31.16|Numbers 31:16]].
 
@@ -21,7 +20,7 @@ if ye forgive men their *trespasses*, [[Matthew 6.14|Matthew 6:14]] ([[3 Nephi 1
 
 if thy brother shall *trespass* against thee, [[Matthew 18.15|Matthew 18:15]] ([[Luke 17.3|Luke 17:3]]).
 
-if ye ... forgive not every one his brother their *trespasses*, [[Matthew 18.35|Matthew 18:35]].
+if ye … forgive not every one his brother their *trespasses*, [[Matthew 18.35|Matthew 18:35]].
 
 not imputing their *trespasses* unto them, [[2 Corinthians 5.19|2 Corinthians 5:19]].
 

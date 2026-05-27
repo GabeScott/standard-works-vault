@@ -1,5 +1,7 @@
 # “Like a Watered Garden”
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -38,7 +40,7 @@ President Spencer W. Kimball once spoke of a man who prided himself on his vast 
 
 Fourth, pay your tithes and offerings out of honesty and integrity because they are God’s rightful due. Surely one of the most piercing lines in all of scripture is Jehovah’s thundering inquiry, “Will a man rob God?” And we ask, “Wherein have we robbed thee?” He answers, “In tithes and offerings.”[^10]
 
-Paying tithing is *not* a token gift we are somehow charitably bestowing upon God. Paying tithing is discharging a debt. Elder James E. Talmage once described this as a contract between us and the Lord. He imagined the Lord saying: “‘You have need of many things in this world—food, clothing, and shelter for your family … , the common comforts of life. … You shall have the means of acquiring these things; but remember they are mine, and I require of you the payment of a rental upon that which I give into your hands. However, your life will not be one of uniform increase … , \[so\] instead of doing as mortal landlords do—requir\[ing\] you to … pay in advance, whatever your fortunes or … prospects may be—you shall pay me … \[only\] when you have received; and you shall pay me in accordance with what you receive. If it so be that in one year your income is abundant, then … \[your 10 percent will be a\] little more; and if it be so that the next year is one of distress and your income is not what it was, then … \[your 10 percent will be\] less. … \[Whatever your circumstance, the tithe will be fair.\]’
+Paying tithing is *not* a token gift we are somehow charitably bestowing upon God. Paying tithing is discharging a debt. Elder James E. Talmage once described this as a contract between us and the Lord. He imagined the Lord saying: “‘You have need of many things in this world—food, clothing, and shelter for your family … , the common comforts of life. … You shall have the means of acquiring these things; but remember they are mine, and I require of you the payment of a rental upon that which I give into your hands. However, your life will not be one of uniform increase … , \[so\] instead of doing as mortal landlords do—requir\[ing\] you to … pay in advance, whatever your fortunes or … prospects may be—you shall pay me … \[only\] when you have received; and you shall pay me in accordance with what you receive. If it so be that in one year your income is abundant, then … \[your 10 percent will be a\] little more; and if it be so that the next year is one of distress and your income is not what it was, then … \[your 10 percent will be\] less. … \[Whatever your circumstance, the tithe will be fair.\]’
 
 “Have you ever found a landlord on earth who was willing to make that kind of \[equitable\] contract with you?” Elder Talmage asks. “When I consider the liberality of it all,” he says, “I feel in my heart that I could scarcely raise my countenance to … Heaven … if I tried to defraud \[God\] out of that \[which is rightfully His\].”[^11]
 
@@ -55,7 +57,7 @@ I testify that the principle of tithing is of God, taught to us in such scriptur
 
 [^2]: [[Isaiah 29.14|Isa. 29:14]].
 
-[^3]: Quoted by David B. Haight in Conference Report, Apr. 1981, 57; or *Ensign,* May 1981, 42.
+[^3]: Quoted by David B. Haight in Conference Report, Apr. 1981, [[1981 April - The Responsibility of Young Aaronic Priesthood Bearers.md|57]]; or *Ensign,* May 1981, 42.
 
 [^4]: [[Malachi 3.10|Mal. 3:10]].
 
@@ -75,10 +77,5 @@ I testify that the principle of tithing is of God, taught to us in such scriptur
 
 [^12]: [[Isaiah 58.11|Isa. 58:11]]; see also [[Isaiah 58.6|Isa. 58:6–10]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]].
 
-[^13]: [[2 Samuel 24.24|2 Sam. 24:24]].
+[^13]: [[2 Samuel 24.24|2 Sam. 24:24]].
 
-
-
-
-
-#Blessings #Children #Education #Financial_Management #Gratitude #Restoration #Tithing

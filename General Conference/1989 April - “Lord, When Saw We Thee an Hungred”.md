@@ -1,5 +1,7 @@
 # “Lord, When Saw We Thee an Hungred?”
 
+Ezra Taft Benson
+
 By Joy F. Evans - *First Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -12,13 +14,13 @@ We read in the book of Matthew that when the Son of Man shall come in his glory,
 
 “Naked, and ye clothed me: I was sick, and ye visited me: I was in prison, and ye came unto me.
 
-“Then shall the righteous answer … , Lord, when saw we thee an hungred, and fed thee? or thirsty, and gave thee drink?
+“Then shall the righteous answer … , Lord, when saw we thee an hungred, and fed thee? or thirsty, and gave thee drink?
 
 “When saw we thee a stranger, and took thee in? or naked, and clothed thee?
 
 “Or when saw we thee sick, or in prison, and came unto thee?
 
-“And the King shall answer … , Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.35|Matt. 25:35–40]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].)
+“And the King shall answer … , Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.35|Matt. 25:35–40]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].)
 
 Almost every day we have the opportunity to feed the hungry, to visit the sick, to help bear one another’s burdens, even as the Savior taught. Sometimes the service is given to our family, our children, our husbands or wives, our parents, our loved ones. Sometimes it is a neighbor or a friend in need, sometimes a stranger.
 
@@ -26,7 +28,7 @@ Having compassion on those who are hurting for whatever reason and then translat
 
 At the time of the organization of the Relief Society, the Prophet Joseph Smith told the sisters that they were now in a position to act according to those sympathies which God had placed in their bosoms. (See *History of the Church,* 4:605.)
 
-Today, countless women in the Church reach out to others through visiting teaching and compassionate service, which are still the heart of Relief Society. They bless the lives of others and buoy up those who may be discouraged or homesick, frightened or disheartened. They remember the counsel given us by a prophet that “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other in the kingdom.” (Spencer W. Kimball, “Small Acts of Service,” *Ensign,* Dec. 1974, p. 5.) The book of Proverbs admonishes us to “withhold not good from them to whom it is due, when it is in the power of thine hand to do it.” ([[Proverbs 3.27|Prov. 3:27]].)
+Today, countless women in the Church reach out to others through visiting teaching and compassionate service, which are still the heart of Relief Society. They bless the lives of others and buoy up those who may be discouraged or homesick, frightened or disheartened. They remember the counsel given us by a prophet that “God does notice us, and he watches over us. But it is usually through another person that he meets our needs. Therefore, it is vital that we serve each other in the kingdom.” (Spencer W. Kimball, “Small Acts of Service,” *Ensign,* Dec. 1974, p. 5.) The book of Proverbs admonishes us to “withhold not good from them to whom it is due, when it is in the power of thine hand to do it.” ([[Proverbs 3.27|Prov. 3:27]].)
 
 Perhaps a personal experience will help to illustrate this loving, watchful care that we are to extend to one another.
 
@@ -50,7 +52,7 @@ One woman tells the story of a tragedy she experienced when five of her close fa
 
 He knelt on their kitchen floor with a pan of soapy water, a sponge, shoe polish, and a brush and soon had everyday shoes and Sunday shoes gleaming and spotless. He quietly slipped away when he finished, leaving the shoes ready to pack; even the soles were washed.
 
-The mother says, “Now whenever I hear of an acquaintance who has lost a loved one, I no longer call with the vague offer, ‘If there’s anything I can do …’ Now I try to think of one specific task that suits that person’s need—such as washing the family car, taking the dog to the boarding kennel, or house-sitting during the funeral. And if the person says to me, ‘How did you know I needed that done?’ I reply, ‘It’s because a man once cleaned my shoes.’” (Madge Harrah, “I’ve Come to Clean Your Shoes,” *Reader’s Digest,* Dec. 1983, pp. 21–24.)
+The mother says, “Now whenever I hear of an acquaintance who has lost a loved one, I no longer call with the vague offer, ‘If there’s anything I can do …’ Now I try to think of one specific task that suits that person’s need—such as washing the family car, taking the dog to the boarding kennel, or house-sitting during the funeral. And if the person says to me, ‘How did you know I needed that done?’ I reply, ‘It’s because a man once cleaned my shoes.’” (Madge Harrah, “I’ve Come to Clean Your Shoes,” *Reader’s Digest,* Dec. 1983, pp. 21–24.)
 
 Total care of a patient with serious chronic or terminal illness is not an easy, short-term project. It is most often a profound emotional and physical experience. The sick person and the family usually welcome regular emotional and spiritual support.
 
@@ -68,7 +70,7 @@ It is said that love is tested and proved in the fire of suffering and adversity
 
 What we do or say is not as important as that we do or say something—“I care about you,” or “Let me help.” Where love is, heart will respond to heart and burdens will be lightened.
 
-We must never feel that we have done our share or had our turn. I love something Dag Hammarskjold once said when he was secretary general of the United Nations: “You have not done enough, you have never done enough as long as there is something more that you can contribute.” (In Richard L. Evans, Jr., *Richard L. Evans—The Man and the Message,* Salt Lake City: Bookcraft, 1973, p. 256.)
+We must never feel that we have done our share or had our turn. I love something Dag Hammarskjold once said when he was secretary general of the United Nations: “You have not done enough, you have never done enough as long as there is something more that you can contribute.” (In Richard L. Evans, Jr., *Richard L. Evans—The Man and the Message,* Salt Lake City: Bookcraft, 1973, p. 256.)
 
 For those among us who, for some reason, such as age or health, cannot give the kind of service we’ve been discussing, we would say, as someone said: “Among the people whom we know, it is not necessarily those who, meteor-like, are ever on the rush after some visible charge and work to whom we owe the most. It is often the lives, like the stars, which simply pour down on us the calm light of their bright and faithful being, up to which we look and out of which we gather the deepest calm and courage. It is good to know that even when we can no longer do something for our fellowmen, we can still be something for them; to know, and this surely, that no man or woman of the humblest sort can really be strong, gentle, and good without the world’s being better for that goodness.”
 
@@ -86,15 +88,10 @@ We must recognize that life is a precious gift (Florence Nightingale called it a
 
 “Lord, when saw we thee an hungred, and fed thee? or thirsty, and gave thee drink? When saw we thee a stranger, and took thee in? or naked, and clothed thee?
 
-“And the King shall answer … , Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.37|Matt. 25:37–40]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].)
+“And the King shall answer … , Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.37|Matt. 25:37–40]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].)
 
 That we may do so, brothers and sisters, each of us, as we have the opportunity, I pray, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Adversity #Charity #Relief_Society #Service

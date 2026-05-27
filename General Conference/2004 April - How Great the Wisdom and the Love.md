@@ -1,5 +1,7 @@
 # How Great the Wisdom and the Love
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -34,8 +36,3 @@ The gospel is true. I know it; I’m a witness of it. In the name of our Lord an
 
 
 
-
-
-
-
-#Faith #Jesus_Christ #Prayer #Testimony

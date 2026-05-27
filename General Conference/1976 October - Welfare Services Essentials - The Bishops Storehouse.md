@@ -1,6 +1,8 @@
 # Welfare Services Essentials: The Bishops Storehouse
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Spencer W. Kimball
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -8,15 +10,15 @@ By Bishop Victor L. Brown - *Presiding Bishop*
 
 My dear brothers and sisters, I would like to discuss with you this morning some of the essentials in Church welfare services, giving particular attention to the bishop’s responsibilities and the role of the storehouse in carrying out these responsibilities.
 
-May I begin by referring to a significant and very basic statement made by President J. Reuben Clark, Jr., in which he summarized the purposes of welfare services:
+May I begin by referring to a significant and very basic statement made by President J. Reuben Clark, Jr., in which he summarized the purposes of welfare services:
 
-“The welfare plan is a permanent plan for the purpose of extending temporary assistance to the individual, so far as his temporal needs are concerned, but permanent benefits so far as his spiritual welfare is involved.” (President J. Reuben Clark, Jr., April 5, 1949.)
+“The welfare plan is a permanent plan for the purpose of extending temporary assistance to the individual, so far as his temporal needs are concerned, but permanent benefits so far as his spiritual welfare is involved.” (President J. Reuben Clark, Jr., April 5, 1949.)
 
 I fear that the welfare services effort often appears to many to be temporal only in nature; it is in fact also spiritual. If this were not so, it would be merely an organization of men and would have all the weaknesses of man-made organizations. The spiritual nature of the work sets it apart from the world. The Lord said it must needs be done in mine own way. The spiritual nature of our work is absolutely essential to its success.
 
-President Clark goes on to define the bishop’s duty in both the temporal and spiritual aspects of his welfare services responsibility: “The bishop is to ‘administer to the wants of the elders’, to ‘visit the poor and the needy and administer to their relief’, …
+President Clark goes on to define the bishop’s duty in both the temporal and spiritual aspects of his welfare services responsibility: “The bishop is to ‘administer to the wants of the elders’, to ‘visit the poor and the needy and administer to their relief’, …
 
-“For temporal needs he is to draw from the storehouse; spiritually he is to see that they are or become the pure in heart, that their spirits are contrite, that their ‘hearts are broken.’” (Unpublished article by President J. Reuben Clark, Jr., July 9, 1941.)
+“For temporal needs he is to draw from the storehouse; spiritually he is to see that they are or become the pure in heart, that their spirits are contrite, that their ‘hearts are broken.’” (Unpublished article by President J. Reuben Clark, Jr., July 9, 1941.)
 
 Let us next consider what the Lord says about this subject as recorded in the Doctrine and Covenants:
 
@@ -56,7 +58,7 @@ With the storehouse and fast offerings, every bishop has two hands with which to
 
 The bishops storehouse is a vital link in the welfare services system of production and distribution. We realize that many of the wards of the Church do not have access to a physical bishops storehouse. This is of great concern to us. At the beginning of this dispensation in 1831 the Lord instructed as follows:
 
-“And again, let the bishop appoint a storehouse unto this church; and let all things both in money and in meat, which are more than is needful for the wants of this people, be kept in the hands of the bishop. …
+“And again, let the bishop appoint a storehouse unto this church; and let all things both in money and in meat, which are more than is needful for the wants of this people, be kept in the hands of the bishop. …
 
 “Behold, this shall be an example unto my servant Edward Partridge, in other places, in all churches.” ([[D&C 51.13|D&C 51:13, 18]][[D&C 51.18|]].)
 
@@ -68,7 +70,7 @@ With these things in mind we are undertaking a vigorous effort to expand the bis
 
 We each need to recognize that the Lord’s storehouse system blesses both giver and receiver. The storehouse blesses the recipient not only with material goods, but as a place of work and skill development, creating dignity and generating self-esteem. Through storehouses we not only teach true Christian charity, but we exemplify it in action.
 
-Storehouses bless the members of the Church by helping them live their covenants of sacrifice and consecration. Indeed, the Lord states in the eighty-third section of the Doctrine and Covenants that “the storehouse shall be kept by the consecrations of the church.” ([[D&C 83.6|D&C 83:6]].) President Clark reminds us: “Our storehouses today under the welfare plan are kept, in fact, by the consecrations of the Church, that is, of the membership of the Church. The storehouses we have now are … stocked by the produce raised and materials fabricated for the purpose by the Church members. These contributions are truly consecrations, for they are freely and gratuitously given, with no claim back by the donor either as to the contributions themselves or to compensations therefor.” (President J. Reuben Clark, Jr., address at bishops’ meeting, Oct. 6, 1944.)
+Storehouses bless the members of the Church by helping them live their covenants of sacrifice and consecration. Indeed, the Lord states in the eighty-third section of the Doctrine and Covenants that “the storehouse shall be kept by the consecrations of the church.” ([[D&C 83.6|D&C 83:6]].) President Clark reminds us: “Our storehouses today under the welfare plan are kept, in fact, by the consecrations of the Church, that is, of the membership of the Church. The storehouses we have now are … stocked by the produce raised and materials fabricated for the purpose by the Church members. These contributions are truly consecrations, for they are freely and gratuitously given, with no claim back by the donor either as to the contributions themselves or to compensations therefor.” (President J. Reuben Clark, Jr., address at bishops’ meeting, Oct. 6, 1944.)
 
 If the bishops and stake presidents are to move the Church forward to maturity, they will accept this challenge: each will become involved in a welfare services production project at the earliest possible time. This will lead naturally to the establishment of a bishops storehouse, resulting in the implementation of the full program so that our people can literally be “independent above all other creatures beneath the celestial world.”
 
@@ -77,8 +79,3 @@ That this may be our goal, and that we may accomplish it, is my prayer in the na
 
 
 
-
-
-
-
-#Bishops #Welfare

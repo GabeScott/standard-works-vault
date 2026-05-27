@@ -1,5 +1,7 @@
 # Press Forward and Be Steadfast
 
+Gordon B. Hinckley
+
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -10,7 +12,7 @@ By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 On a pier in Copenhagen, Denmark, is a bronze statue of a young woman named Kristina. Kristina stands looking out to sea toward her goal to join the Saints in Zion. The wind is blowing against her fiercely, but she does not look back. She is steadfast as she presses forward doing a very hard thing, but one she knows to be right. I love that statue, for to me Kristina represents my own Danish great-great-grandmother who chose to join the Church amid great resistance. I am grateful for her courage and testimony. On her choice that day rested not only my eternal destiny but also the destiny of generations.
 
-In the Book of Mormon, Nephi tells us that we can “press forward” ([[2 Nephi 31.20|2 Nephi 31:20]]). He says we not only can but *must.* Perhaps Nephi, like Kristina, could see that the steadfast choices of one individual affect generations. When Nephi’s father sent him back to Jerusalem to obtain the plates of Laban, Nephi said, “Behold, it is wisdom in God that we should obtain these records, that we may preserve unto *our children* the language of our fathers” ([[1 Nephi 3.19|1 Nephi 3:19]]; emphasis added). Nephi was thinking of his future family, even though he had no prospect for marriage. Remember, his family was *alone* in the wilderness! Nephi not only had a vision of how to return to his heavenly home, but he also had a vision of what he wanted in his earthly home.
+In the Book of Mormon, Nephi tells us that we can “press forward” ([[2 Nephi 31.20|2 Nephi 31:20]]). He says we not only can but *must.* Perhaps Nephi, like Kristina, could see that the steadfast choices of one individual affect generations. When Nephi’s father sent him back to Jerusalem to obtain the plates of Laban, Nephi said, “Behold, it is wisdom in God that we should obtain these records, that we may preserve unto *our children* the language of our fathers” ([[1 Nephi 3.19|1 Nephi 3:19]]; emphasis added). Nephi was thinking of his future family, even though he had no prospect for marriage. Remember, his family was *alone* in the wilderness! Nephi not only had a vision of how to return to his heavenly home, but he also had a vision of what he wanted in his earthly home.
 
 The Savior will help you see and understand the vision He has for you. You are His beloved daughters. He knows you personally and has a plan for your life. He has promised that as you live worthily, His Spirit will always be with you.
 
@@ -22,9 +24,9 @@ Your vision of your future will help you press forward. Take a few minutes to en
 
 Seminary helped Melissa envision the kind of young woman she wanted to become. She was not a member of our Church, but she enrolled in seminary with her friends. When she turned 18, she was taught by the missionaries. She knew the things they taught her were true! The spirit was so sweet at her baptism. It felt as if not only all her friends and family were present but also her future family. The bishop remarked that he could almost hear her future family saying, “Thanks, Mom!”
 
-Like Melissa, you have made baptismal covenants. Keeping your covenants will enable you to be guided by the Holy Ghost. The Holy Ghost will protect and strengthen you and tell you “all things \[that\] you should do” ([[2 Nephi 32.5|2 Nephi 32:5]]). This gift sets you apart from the world.
+Like Melissa, you have made baptismal covenants. Keeping your covenants will enable you to be guided by the Holy Ghost. The Holy Ghost will protect and strengthen you and tell you “all things \[that\] you should do” ([[2 Nephi 32.5|2 Nephi 32:5]]). This gift sets you apart from the world.
 
-We know you receive a lot of resistance to your standards. Young women in Tennessee and Arkansas told me they face resistance at school because of their beliefs. The young women I met in Haiti also face daily pressure to participate in things that are not appropriate for a young woman of covenant. Yet their eyes shine brightly with the hope of the gospel. They remain steadfast because they listen to the “still small voice” ([[1 Kings 19.12|1 Kings 19:12]]) of the Holy Ghost and obey its promptings.
+We know you receive a lot of resistance to your standards. Young women in Tennessee and Arkansas told me they face resistance at school because of their beliefs. The young women I met in Haiti also face daily pressure to participate in things that are not appropriate for a young woman of covenant. Yet their eyes shine brightly with the hope of the gospel. They remain steadfast because they listen to the “still small voice” ([[1 Kings 19.12|1 Kings 19:12]]) of the Holy Ghost and obey its promptings.
 
 The Holy Ghost will also guide you as you make decisions regarding your future. Another young woman I know was dating a tall, handsome young man—the star of the school basketball team and senior class president. While discussing their future plans, she explained that she had made a decision a long time ago to marry a returned missionary in the temple. A mission was not part of his plans, and nothing more was said. The following Christmas, he gave her a small gift. As she opened it, she realized that it was a letter from a prophet of God calling her friend to serve a mission. Her righteous influence helped him make that important decision.
 
@@ -40,13 +42,8 @@ Now you may not have to stand on a pier and make difficult choices like Kristina
 
 There may be some steep hills ahead, but our Lord and Savior, Jesus Christ, has promised to climb with you every step of the way. There has never been a more important time to press forward and be steadfast.
 
-And so I say with Nephi: “Wherefore, ye *must* press forward with a steadfastness in Christ, having a perfect brightness of hope. … Wherefore, if ye shall press forward, … and endure to the end, … thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added). In the name of Jesus Christ, amen.
+And so I say with Nephi: “Wherefore, ye *must* press forward with a steadfastness in Christ, having a perfect brightness of hope. … Wherefore, if ye shall press forward, … and endure to the end, … thus saith the Father: Ye shall have eternal life” ([[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added). In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Endurance #Holy_Ghost #Hope

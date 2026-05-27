@@ -1,5 +1,7 @@
 # “Hope Ya Know, We Had a Hard Time”
 
+Thomas S. Monson
+
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -30,9 +32,9 @@ The Lord’s answer is reassuring:
 
 “And then, if thou endure it well, God shall exalt thee on high.”[^1]
 
-One of the essential doctrines illuminated by the Restoration is that there must be opposition in all things for righteousness to be brought to pass.[^2] This life is not always easy, nor was it meant to be; it is a time of testing and proving. As we read in Abraham, “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.”[^3] Elder Harold B. Lee taught, “Sometimes the things that are best for us and the things that bring eternal rewards seem at the moment to be the most bitter, and the things forbidden are ofttimes the things which seem to be the more desirable.”[^4]
+One of the essential doctrines illuminated by the Restoration is that there must be opposition in all things for righteousness to be brought to pass.[^2] This life is not always easy, nor was it meant to be; it is a time of testing and proving. As we read in Abraham, “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.”[^3] Elder Harold B. Lee taught, “Sometimes the things that are best for us and the things that bring eternal rewards seem at the moment to be the most bitter, and the things forbidden are ofttimes the things which seem to be the more desirable.”[^4]
 
-The novel *A Tale of Two Cities* opens with the oft-quoted line “It was the best of times, it was the worst of times.”[^5] The scriptures make it clear that each generation has its own version of best and worst of times. We are all subject to the conflict between good and evil[^6] and the contrast between light and dark, hope and despair. As Elder Neal A. Maxwell explained, “The sharp, side-by-side contrast of the sweet and the bitter is essential until the very end of this brief, mortal experience.”[^7] We know from our doctrine that good will overcome evil,[^8] and those who repent and are sanctified shall be given eternal life.[^9]
+The novel *A Tale of Two Cities* opens with the oft-quoted line “It was the best of times, it was the worst of times.”[^5] The scriptures make it clear that each generation has its own version of best and worst of times. We are all subject to the conflict between good and evil[^6] and the contrast between light and dark, hope and despair. As Elder Neal A. Maxwell explained, “The sharp, side-by-side contrast of the sweet and the bitter is essential until the very end of this brief, mortal experience.”[^7] We know from our doctrine that good will overcome evil,[^8] and those who repent and are sanctified shall be given eternal life.[^9]
 
 Near the time Dickens was writing his novel, the heroic efforts of the early Saints who settled the Intermountain West were occurring.
 
@@ -40,11 +42,11 @@ Even with their common faith, the Saints had experienced much hardship and appro
 
 Sister Whitney recorded her expectations upon leaving Nauvoo: “I will pack away all my little ribbons, collars and laces, etc., for we are going where we cannot purchase them. We are going out from the world to live beyond the Rocky Mountains where none others will wish to go. … There will be neither rich nor poor among us, and we will have none but the honest and virtuous.”[^10] Sister Whitney’s words resonate with an idealistic optimism.
 
-Sister Bathsheba Smith’s recorded feelings are also full of faith but evidence some trepidation. She had seen the mobs arrayed against the Saints in Missouri and was present at the death of the Apostle David W. Patten.
+Sister Bathsheba Smith’s recorded feelings are also full of faith but evidence some trepidation. She had seen the mobs arrayed against the Saints in Missouri and was present at the death of the Apostle David W. Patten.
 
 Recalling the evacuation of Nauvoo, she wrote: “My last act in that precious spot was to tidy the rooms, sweep up the floor and set the broom in its accustomed place behind the door. Then with emotions in my heart … I gently closed the door and faced an unknown future, … faced it with faith in God and with no less assurance of the ultimate establishment of the Gospel in the West and of its true enduring principles, than I had felt in those trying scenes in Missouri.”[^11]
 
-Both of these LDS pioneer women remained strong in the gospel throughout their lives and provided wonderful service in building Zion, but they faced many additional trials and hardships, which they both faithfully endured.[^12] Despite Sister Whitney’s optimism, her first three children died at or near birth—two of them during her extended exodus from Nauvoo to Salt Lake.[^13] Sister Whitney has blessed us with her writings in defense of our faith and was the mother of the Apostle Orson F. Whitney.
+Both of these LDS pioneer women remained strong in the gospel throughout their lives and provided wonderful service in building Zion, but they faced many additional trials and hardships, which they both faithfully endured.[^12] Despite Sister Whitney’s optimism, her first three children died at or near birth—two of them during her extended exodus from Nauvoo to Salt Lake.[^13] Sister Whitney has blessed us with her writings in defense of our faith and was the mother of the Apostle Orson F. Whitney.
 
 Sister Smith recorded the poverty, sickness, and privation that the Saints suffered as they made their way west.[^14] In March of 1847 her mother passed away, and the next month her second son, John, was born. Her record of that is brief: “He was my last child, and \[he\] lived only four hours.”[^15] Later in her life she was the matron of the Salt Lake Temple and the fourth general president of the Relief Society.
 
@@ -76,7 +78,7 @@ Each October, Sister Yates and Sister Willmore (both of whom are here together i
 
 Think of the Savior in the Garden of Gethsemane during the Atonement process, suffering agony so great that He bled from every pore.[^27] His cry to His Father included the word *Abba.*[^28] This might be interpreted as the cry of a son who is in distress to his father: “O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt.”[^29] I testify that the Atonement of Jesus Christ covers all of the trials and hardships that any of us will encounter in this life. At times when we may feel to say, “Hope you know, I had a hard time,” we can be assured that He is there and we are safe in His loving arms.
 
-When our beloved prophet, President Thomas S. Monson, was asked on his birthday this past August what would be the ideal gift that members worldwide could give him, he said without a moment’s hesitation, “Find someone who is having a hard time, … and do something for them.”[^30]
+When our beloved prophet, President Thomas S. Monson, was asked on his birthday this past August what would be the ideal gift that members worldwide could give him, he said without a moment’s hesitation, “Find someone who is having a hard time, … and do something for them.”[^30]
 
 I, with you, am eternally grateful to Jesus Christ, the rescuer of mankind. I bear witness that He is the Savior and Redeemer of the world. In the name of Jesus Christ, amen.
 
@@ -85,17 +87,17 @@ I, with you, am eternally grateful to Jesus Christ, the rescuer of mankind. I be
 
 [^1]: [[D&C 121.1|D&C 121:1, 7–8]][[D&C 121.7|]][[D&C 121.8|]].
 
-[^2]: See [[2 Nephi 2.11|2 Nephi 2:11]].
+[^2]: See [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^3]: [[Abraham 3.25|Abraham 3:25]].
 
-[^4]: Harold B. Lee, *The Fall of Man* (address delivered at a meeting for seminary and institute teachers, June 23, 1954).
+[^4]: Harold B. Lee, *The Fall of Man* (address delivered at a meeting for seminary and institute teachers, June 23, 1954).
 
 [^5]: Charles Dickens, *A Tale of Two Cities* (Signet Classic, 1997), 13.
 
-[^6]: See [[2 Nephi 2.15|2 Nephi 2:15–16]][[2 Nephi 2.16|]].
+[^6]: See [[2 Nephi 2.15|2 Nephi 2:15–16]][[2 Nephi 2.16|]].
 
-[^7]: Neal A. Maxwell, “Enduring Well,” *Liahona,* Apr. 1999, 12; *Ensign,* Apr. 1997, 7.
+[^7]: Neal A. Maxwell, “Enduring Well,” *Liahona,* Apr. 1999, 12; *Ensign,* Apr. 1997, 7.
 
 [^8]: See [[D&C 19.2|D&C 19:2–3]][[D&C 19.3|]]; [[D&C 133.64|133:64]].
 
@@ -103,15 +105,15 @@ I, with you, am eternally grateful to Jesus Christ, the rescuer of mankind. I be
 
 [^10]: *A Woman’s View: Helen Mar Whitney’s Reminiscences of Early Church History,* ed. Jeni Broberg Holzapfel and Richard Neitzel Holzapfel (1997), 329–30.
 
-[^11]: Bathsheba W. Smith, *Autobiography,* ed. Alice Merrill Horne, typescript, 15, as quoted in Maurine Jensen Proctor and Scot Facer Proctor, photo essay, “Joseph, Joseph, Joseph: The Temple Has Returned to Nauvoo, Part 4, ‘Lift Up Thine Eyes,’” *Meridian Magazine,* 2002, http://www.meridianmagazine.com/photoessay/020522nauvoo/020522nauvoo3.html.
+[^11]: Bathsheba W. Smith, *Autobiography,* ed. Alice Merrill Horne, typescript, 15, as quoted in Maurine Jensen Proctor and Scot Facer Proctor, photo essay, “Joseph, Joseph, Joseph: The Temple Has Returned to Nauvoo, Part 4, ‘Lift Up Thine Eyes,’” *Meridian Magazine,* 2002, http://www.meridianmagazine.com/photoessay/020522nauvoo/020522nauvoo3.html.
 
 [^12]: See [[Ether 12.6|Ether 12:6]].
 
 [^13]: See *A Woman’s View,* 491.
 
-[^14]: See Heidi Swinton, “I Gently Closed the Door,” in *Heroines of the Restoration,* ed. Barbara B. Smith and Blythe Darlyn Thatcher (1997), 134.
+[^14]: See Heidi Swinton, “I Gently Closed the Door,” in *Heroines of the Restoration,* ed. Barbara B. Smith and Blythe Darlyn Thatcher (1997), 134.
 
-[^15]: Bathsheba W. Smith, in *Heroines of the Restoration,* 134.
+[^15]: Bathsheba W. Smith, in *Heroines of the Restoration,* 134.
 
 [^16]: *Teachings of Presidents of the Church: Brigham Young* (Melchizedek Priesthood and Relief Society course of study, 1997), 177.
 
@@ -121,11 +123,11 @@ I, with you, am eternally grateful to Jesus Christ, the rescuer of mankind. I be
 
 [^19]: [[Alma 7.12|Alma 7:12]].
 
-[^20]: See [[Genesis 41.29|Genesis 41:29–31]][[Genesis 41.30|]][[Genesis 41.31|]]; Gordon B. Hinckley, in Conference Report, Oct. 1998, 70; or *Ensign,* Nov. 1998, 53.
+[^20]: See [[Genesis 41.29|Genesis 41:29–31]][[Genesis 41.30|]][[Genesis 41.31|]]; Gordon B. Hinckley, in Conference Report, Oct. 1998, [[1998 October - To the Boys and to the Men.md|70]]; or *Ensign,* Nov. 1998, 53.
 
 [^21]: [[D&C 38.30|D&C 38:30]].
 
-[^22]: See [[2 Nephi 4.4|2 Nephi 4:4]].
+[^22]: See [[2 Nephi 4.4|2 Nephi 4:4]].
 
 [^23]: See [[Alma 36.30|Alma 36:30]].
 
@@ -141,7 +143,5 @@ I, with you, am eternally grateful to Jesus Christ, the rescuer of mankind. I be
 
 [^29]: [[Matthew 26.39|Matthew 26:39]].
 
+[^30]: Thomas S. Monson, quoted in Gerry Avant, “Prophet’s Birthday: Milestone of 81,” *Church News,* Aug. 23, 2008, 4.
 
-
-
-#Adversity #Attitude #Faith #Obedience #Peace

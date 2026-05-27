@@ -1,5 +1,7 @@
 # “Honour Thy Father and Thy Mother”
 
+Thomas S. Monson
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -32,7 +34,7 @@ To young people, honoring parents is appropriately understood to focus on obedie
 
 President Spencer W. Kimball combined the ideas of obedience and emulation in these words:
 
-“If we truly honor \[our parents\], we will seek to emulate their best characteristics and to fulfill their highest aspirations for us. No gift purchased from a store can begin to match in value to parents some simple, sincere words of appreciation. Nothing we could give them would be more prized than righteous living for each youngster” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 348).
+“If we truly honor \[our parents\], we will seek to emulate their best characteristics and to fulfill their highest aspirations for us. No gift purchased from a store can begin to match in value to parents some simple, sincere words of appreciation. Nothing we could give them would be more prized than righteous living for each youngster” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 348).
 
 Young people, if you honor your parents, you will love them, respect them, confide in them, be considerate of them, express appreciation for them, and demonstrate all of these things by following their counsel in righteousness and by obeying the commandments of God.
 
@@ -40,7 +42,7 @@ To persons whose parents are dead, honoring parents is likely to involve thought
 
 Middle-aged persons are likely to think of the commandment to honor our fathers and our mothers in terms of caring for aged parents. In a message given a year and a half ago, President Ezra Taft Benson encouraged families “to give their elderly parents and grandparents the love, care, and attention they deserve.” He said:
 
-“Remember, parents and grandparents are our responsibility, and we are to care for them to the very best of our ability. When the elderly have no families to care for them, priesthood and Relief Society leaders should make every effort to meet their needs in the same loving way” (in Conference Report, Oct. 1989, p. 6; or *Ensign,* Nov. 1989, p. 6).
+“Remember, parents and grandparents are our responsibility, and we are to care for them to the very best of our ability. When the elderly have no families to care for them, priesthood and Relief Society leaders should make every effort to meet their needs in the same loving way” (in Conference Report, Oct. 1989, [[1989 October - To the Elderly in the Church.md|p. 6]]; or *Ensign,* Nov. 1989, p. 6).
 
 Recent years have seen great increases in the numbers and percentage of older people in our population. A recent study estimated that in another ten years, one-seventh of the population of the United States, about 35 million people, will be at least 65 years old. At that time, about five million citizens will be age 85 or older (see “Consumer Issues and the Elderly,” *Deseret News,* 7 May 1990, p. C1).
 
@@ -50,7 +52,7 @@ The best way to care for the aged is to preserve their independence as long as p
 
 “Even when parents become elderly, we ought to honor them by allowing them freedom of choice and the opportunity for independence as long as possible. Let us not take away from them choices which they can still make. Some parents are able to live and care for themselves well into their advancing years and would prefer to do so. Where they can, let them.
 
-“If they become less able to live independently, then family, Church, and community resources may be needed to help them. When the elderly become unable to care for themselves, even with supplemental aid, care can be provided in the home of a family member when possible. Church and community resources may also be needed in this situation” (in Conference Report, Oct. 1989, pp. 6–7; or *Ensign,* Nov. 1989, p. 7).
+“If they become less able to live independently, then family, Church, and community resources may be needed to help them. When the elderly become unable to care for themselves, even with supplemental aid, care can be provided in the home of a family member when possible. Church and community resources may also be needed in this situation” (in Conference Report, Oct. 1989, [[1989 October - To the Elderly in the Church.md|pp. 6–7]]; or *Ensign,* Nov. 1989, p. 7).
 
 When aged parents who are not able to live alone are invited to live with their children, this keeps them in the family circle and allows them to continue their close ties with all members of the family. When a parent lives with one child, the other children should make arrangements to share the burdens and blessings of this arrangement.
 
@@ -64,7 +66,7 @@ When I was a young boy in a small Utah town, I remember seeing my grandmother ov
 
 Most of you have never heard of Old Folks Day. It was a unique Utah Mormon institution. It began in 1875, when Charles R. Savage, the pioneer photographer, persuaded Presiding Bishop Edward Hunter to declare a day for honoring what we now call senior citizens. The first Old Folks Day transported guests by rail to an outing at Saltair, west of Salt Lake City. A monument honoring that celebration and its founder stands on the southeast corner of Temple Square.
 
-The annual Old Folks Day celebrations were held in nearly every community in Utah. Travel, refreshments, and entertainment were given to all citizens seventy years of age and older. Although this holiday was conducted by the leaders and members of this Church, it was stipulated that “there are none to be excluded because of their religion, and the oldest guest present is the special guest of the occasion whether they be white or black or whatever the complexion of their religious belief” (quoted in Joseph Heinerman, “The Old Folks Day: A Unique Utah Tradition,” *Utah Historical Quarterly,* Spring 1985, p. 158).
+The annual Old Folks Day celebrations were held in nearly every community in Utah. Travel, refreshments, and entertainment were given to all citizens seventy years of age and older. Although this holiday was conducted by the leaders and members of this Church, it was stipulated that “there are none to be excluded because of their religion, and the oldest guest present is the special guest of the occasion whether they be white or black or whatever the complexion of their religious belief” (quoted in Joseph Heinerman, “The Old Folks Day: A Unique Utah Tradition,” *Utah Historical Quarterly,* Spring 1985, p. 158).
 
 The committee directing these celebrations was dissolved in 1970, and the responsibility for honoring those who had come to be called senior citizens was passed to the stake presidents of the Church. Since that time we have had further increases in the number of senior citizens in our midst, but perhaps not significant increases in the amount of honor accorded them. Fortunately, the advances in medical science that have produced increased longevity have also increased our senior citizens’ effective participation in church, community, business, and social events. But the need for honor, especially for our fathers and our mothers, is undiminished.
 
@@ -85,8 +87,3 @@ In time to come, each of us will be judged by the Lord God of Israel, who comman
 
 
 
-
-
-
-
-#Elderly #Example #Family

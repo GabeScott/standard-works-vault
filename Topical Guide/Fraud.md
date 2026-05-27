@@ -1,13 +1,12 @@
 # Fraud
 
-
-*See also* [[Deceit, Deceive.md|Deceit]]; [[Guile.md|Guile]]; [[Stealing, Stolen.md|Stealing]]
+*See also* [[Deceit.md|Deceit]]; [[Guile.md|Guile]]; [[Stealing.md|Stealing]]
 
 Thou shalt not *defraud* thy neighbour, [[Leviticus 19.13|Leviticus 19:13]].
 
 whom have I *defrauded*, [[1 Samuel 12.3|1 Samuel 12:3]].
 
-His mouth is full of cursing ... and *fraud*, [[Psalms 10.7|Psalms 10:7]].
+His mouth is full of cursing … and *fraud*, [[Psalms 10.7|Psalms 10:7]].
 
 *Defraud* not, [[Mark 10.19|Mark 10:19]].
 

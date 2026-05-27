@@ -1,5 +1,7 @@
 # Healing the Tragic Scars of Abuse
 
+Thomas S. Monson
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -20,7 +22,7 @@ You may feel threatened by one who is in a position of power or control over you
 
 ## Seek Help
 
-If you are now or have in the past been abused, seek help now. Perhaps you distrust others and feel that there is no reliable help anywhere. Begin with your Eternal Father and his beloved Son, your Savior. Strive to comprehend their commandments and follow them. They will lead you to others who will strengthen and encourage you. There is available to you a priesthood leader, normally a bishop, at times a member of the stake presidency. They can build a bridge to greater understanding and healing. Joseph Smith taught, “A man can do nothing for himself unless God direct him in the right way; and the Priesthood is for that purpose.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 364).
+If you are now or have in the past been abused, seek help now. Perhaps you distrust others and feel that there is no reliable help anywhere. Begin with your Eternal Father and his beloved Son, your Savior. Strive to comprehend their commandments and follow them. They will lead you to others who will strengthen and encourage you. There is available to you a priesthood leader, normally a bishop, at times a member of the stake presidency. They can build a bridge to greater understanding and healing. Joseph Smith taught, “A man can do nothing for himself unless God direct him in the right way; and the Priesthood is for that purpose.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 364).
 
 Talk to your bishop in confidence. His calling allows him to act as an instrument of the Lord in your behalf. He can provide a doctrinal foundation to guide you to recovery. An understanding and application of eternal law will provide the healing you require. He has the right to be inspired of the Lord in your behalf. He can use the priesthood to bless you.
 
@@ -32,11 +34,11 @@ These are some of the principles of healing you will come to understand more ful
 
 Recognize that you are a beloved child of your Heavenly Father. He loves you perfectly and can help you as no earthly parent, spouse, or devoted friend can. His Son gave his life so that by faith in him and obedience to his teachings you can be made whole. He is the consummate healer.
 
-Gain trust in the love and compassion of your elder brother, Jesus Christ, by pondering the scriptures. As with the Nephites, he tells *you:* “I have compassion upon you; my bowels are filled with mercy. … I see that your faith is sufficient that I should heal you” ([[3 Nephi 17.7|3 Ne. 17:7–8]][[3 Nephi 17.8|]]).
+Gain trust in the love and compassion of your elder brother, Jesus Christ, by pondering the scriptures. As with the Nephites, he tells *you:* “I have compassion upon you; my bowels are filled with mercy. … I see that your faith is sufficient that I should heal you” ([[3 Nephi 17.7|3 Ne. 17:7–8]][[3 Nephi 17.8|]]).
 
 Healing best begins with your sincere prayer asking your Father in Heaven for help. That use of your agency allows divine intervention. When you permit it, the love of the Savior will soften your heart and break the cycle of abuse that can transform a victim into an aggressor. Adversity, even when caused willfully by others’ unrestrained appetite, can be a source of growth when viewed from the perspective of eternal principle (see [[D&C 122.7|D&C 122:7]]).
 
-The victim must do all in his or her power to stop the abuse. Most often, the victim is innocent because of being disabled by fear or the power or authority of the offender. At some point in time, however, the Lord may prompt a victim to recognize a degree of responsibility for abuse. Your priesthood leader will help assess your responsibility so that, if needed, it can be addressed. Otherwise the seeds of guilt will remain and sprout into bitter fruit. Yet no matter what degree of responsibility, from absolutely none to increasing consent, the healing power of the atonement of Jesus Christ can provide a complete cure (see [[D&C 138.1|D&C 138:1–4]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]]). Forgiveness can be obtained for all involved in abuse (see [[Articles of Faith 1.3|A of F 1:3]]). Then comes a restoration of self-respect, self-worth, and a renewal of life.
+The victim must do all in his or her power to stop the abuse. Most often, the victim is innocent because of being disabled by fear or the power or authority of the offender. At some point in time, however, the Lord may prompt a victim to recognize a degree of responsibility for abuse. Your priesthood leader will help assess your responsibility so that, if needed, it can be addressed. Otherwise the seeds of guilt will remain and sprout into bitter fruit. Yet no matter what degree of responsibility, from absolutely none to increasing consent, the healing power of the atonement of Jesus Christ can provide a complete cure (see [[D&C 138.1|D&C 138:1–4]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]]). Forgiveness can be obtained for all involved in abuse (see [[Articles of Faith 1.3|A of F 1:3]]). Then comes a restoration of self-respect, self-worth, and a renewal of life.
 
 As a victim, do not waste effort in revenge or retribution against your aggressor. Focus on your responsibility to do what is in your power to correct. Leave the handling of the offender to civil and Church authorities. Whatever they do, eventually the guilty will face the Perfect Judge. Ultimately the unrepentant abuser will be punished by a just God. The purveyors of filth and harmful substances who knowingly incite others to acts of violence and depravation and those who promote a climate of permissiveness and corruption will be sentenced. Predators who victimize the innocent and justify their own corrupted life by enticing others to adopt their depraved ways will be held accountable. Of such the Master warned:
 
@@ -50,7 +52,7 @@ During prolonged recovery from massive surgery, a patient anticipates complete h
 
 You cannot erase what has been done, but you can forgive (see [[D&C 64.10|D&C 64:10]]). Forgiveness heals terrible, tragic wounds, for it allows the love of God to purge your heart and mind of the poison of hate. It cleanses your consciousness of the desire for revenge. It makes place for the purifying, healing, restoring love of the Lord.
 
-The Master counseled, “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them *who despitefully use you and persecute you*” ([[3 Nephi 12.44|3 Ne. 12:44]]; italics added).
+The Master counseled, “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them *who despitefully use you and persecute you*” ([[3 Nephi 12.44|3 Ne. 12:44]]; italics added).
 
 Bitterness and hatred are harmful. They produce much that is destructive. They postpone the relief and healing you yearn for. Through rationalization and self-pity, they can transform a victim into an abuser. Let God be the judge—you cannot do it as well as he can.
 
@@ -79,5 +81,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-#Abuse #Forgiveness #Healing

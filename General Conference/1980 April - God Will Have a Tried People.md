@@ -1,6 +1,8 @@
 # God Will Have a Tried People
 
-By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Howard W. Hunter - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -16,9 +18,9 @@ The cheering of the crowd reached a crescendo when the first long-boat crossed t
 
 Friction, or resistance, is an interesting phenomenon. Without this force, a person or vehicle could not move about, or if already in motion, could not be stopped except by collision. Simple things like nails, screws, and bolts would not stay in place; a cork would not stay in a bottle; a light globe would drop from its socket; a lid would not stay on a jar.
 
-The law of friction or resistance that we think of as only applying to science seems to find application in our personal lives. This is probably what Lehi was referring to when he spoke to his son Jacob. He reminded Jacob of the afflictions and sorrows that had come to him because of the rudeness of his brethren, and told him how these afflictions would ultimately result in good. These are the words of Jacob to his son: “Thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.2|2 Ne. 2:2]]).
+The law of friction or resistance that we think of as only applying to science seems to find application in our personal lives. This is probably what Lehi was referring to when he spoke to his son Jacob. He reminded Jacob of the afflictions and sorrows that had come to him because of the rudeness of his brethren, and told him how these afflictions would ultimately result in good. These are the words of Jacob to his son: “Thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.2|2 Ne. 2:2]]).
 
-In other words, the afflictions that had come to him in the form of opposition or resistance would be for his good. Then Lehi added these words that have become classic: “For it must needs be, that there is an opposition in all things. If not so, … righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad” ([[2 Nephi 2.11|2 Ne. 2:11]]).
+In other words, the afflictions that had come to him in the form of opposition or resistance would be for his good. Then Lehi added these words that have become classic: “For it must needs be, that there is an opposition in all things. If not so, … righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad” ([[2 Nephi 2.11|2 Ne. 2:11]]).
 
 We came to mortal life to encounter resistance. It was part of the plan for our eternal progress. Without temptation, sickness, pain, and sorrow, there could be no goodness, virtue, appreciation for well-being, or joy. The law of opposition makes freedom of choice possible; therefore, our Heavenly Father has commanded his children, “Choose ye this day, to serve the Lord God who made you” ([[Moses 6.33|Moses 6:33]]). He has counseled us to yield to his spirit and resist temptation. Free agency, of course, permits us to oppose his directions; thus, we see many who resist the truth and yield to temptation.
 
@@ -44,15 +46,15 @@ To the early Saints of this dispensation, the Lord said, “I, the Lord, have su
 
 Abraham’s grandson, Jacob, was also no stranger to adversity. As a young man he was estranged from his twin brother and didn’t return home to see his father, mother, or brother for many years. He lived a life of mourning for a favorite son, whom he thought dead, but who had been sold into slavery. He buried his beloved Rachel after she gave birth to his last-born son, Benjamin. He knew the personal sorrow of sons who were not valiant, but still he blessed their days and posterity so that their descendants are honored to be called the House of Jacob, the House of Israel.
 
-The New Testament records the life of one Paul of Tarsus. From the day of his dramatic conversion, he experienced great trial and personal affliction. He was imprisoned for his faith, beaten, stoned, and in his own words, buffeted by Satan. Yet he wrote: “Most gladly … will I … glory in my infirmities, that the power of Christ may rest upon me” ([[2 Corinthians 12.9|2 Cor. 12:9]]). Comparing his own adversity to that of Paul, the Prophet Joseph once wrote, “I feel, like Paul, to glory in tribulation; for to this day has the God of my fathers delivered me” ([[D&C 127.2|D&C 127:2]]).
+The New Testament records the life of one Paul of Tarsus. From the day of his dramatic conversion, he experienced great trial and personal affliction. He was imprisoned for his faith, beaten, stoned, and in his own words, buffeted by Satan. Yet he wrote: “Most gladly … will I … glory in my infirmities, that the power of Christ may rest upon me” ([[2 Corinthians 12.9|2 Cor. 12:9]]). Comparing his own adversity to that of Paul, the Prophet Joseph once wrote, “I feel, like Paul, to glory in tribulation; for to this day has the God of my fathers delivered me” ([[D&C 127.2|D&C 127:2]]).
 
-Last, I refer to the life of Nephi from the Book of Mormon as an example of faithful endurance. With his parents, he left prosperous circumstances in Jerusalem and then for eight years, in great affliction, journeyed in the wilderness. The family then crossed uncharted seas to a new land. During this period, Nephi was assailed, ridiculed, and persecuted by members of his household. Following the death of his father, Nephi and other family members had to separate themselves from his older brothers because they sought his life. Out of his despair, he declared, “My God hath been my support; he hath led me through mine afflictions in the wilderness; and he hath preserved me upon the waters of the great deep” ([[2 Nephi 4.20|2 Ne. 4:20]]).
+Last, I refer to the life of Nephi from the Book of Mormon as an example of faithful endurance. With his parents, he left prosperous circumstances in Jerusalem and then for eight years, in great affliction, journeyed in the wilderness. The family then crossed uncharted seas to a new land. During this period, Nephi was assailed, ridiculed, and persecuted by members of his household. Following the death of his father, Nephi and other family members had to separate themselves from his older brothers because they sought his life. Out of his despair, he declared, “My God hath been my support; he hath led me through mine afflictions in the wilderness; and he hath preserved me upon the waters of the great deep” ([[2 Nephi 4.20|2 Ne. 4:20]]).
 
 These are biographies of faith—men whom God has honored because they relied on him in times of their extremity. They learned the truth that God chose them “in the furnace of affliction” ([[Isaiah 48.10|Isa. 48:10]]).
 
 Today other biographies of faith are being written—Saints who, like Job, suffer physical pain, emotional sorrow, and even disloyalty from friends—yet remain faithful; Saints who, like Jacob, see sons and daughters not so valiant as they should be, but who bless them for their potential; Saints who, like Paul, endure great ridicule and endure to the end; Saints who, like Nephi, must separate themselves from family because of their commitment to the gospel. There are those who know pain and sorrow because of loss of loved ones; who know spiritual sorrow because children go astray; who experience loss of health, financial reverses, and emotional distress, and yet, like Job, resolve, “When he hath tried me, I shall come forth as gold” ([[Job 23.10|Job 23:10]]).
 
-We recently celebrated the birthday of President Spencer W. Kimball. Most of us are familiar with the fact that great adversity has been his companion for a great portion of his eighty-five years. He spoke from experience when he wrote these words: “Being human, we would expel from our lives physical pain and mental anguish and assure ourselves of continual ease and comfort, but if we were to close the doors upon sorrow and distress, we might be excluding our greatest friends and benefactors. Suffering can make saints of people as they learn patience, long-suffering, and self-mastery” (*Faith Precedes the Miracle,* Salt Lake City: Deseret Book Company, 1972, p. 98).
+We recently celebrated the birthday of President Spencer W. Kimball. Most of us are familiar with the fact that great adversity has been his companion for a great portion of his eighty-five years. He spoke from experience when he wrote these words: “Being human, we would expel from our lives physical pain and mental anguish and assure ourselves of continual ease and comfort, but if we were to close the doors upon sorrow and distress, we might be excluding our greatest friends and benefactors. Suffering can make saints of people as they learn patience, long-suffering, and self-mastery” (*Faith Precedes the Miracle,* Salt Lake City: Deseret Book Company, 1972, p. 98).
 
 We stand on the summit of 150 years of Church history; yet there are other summits to climb before the work of God is crowned with victory. There will be tribulations collectively and hardships personally—that resistance so essential to the eternal plan.
 
@@ -71,8 +73,3 @@ May God bless us to endure well the purpose for which we were sent, I pray in th
 
 
 
-
-
-
-
-#Adversity #Endurance

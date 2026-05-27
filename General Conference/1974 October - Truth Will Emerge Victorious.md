@@ -1,6 +1,8 @@
 # Truth Will Emerge Victorious
 
-By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder John H. Vandenberg - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -22,17 +24,17 @@ This thought comes to mind and I quote: “Faith is a belief in testimony. It is
 
 Where do we find those testimonies? Our Father in heaven has brought down through the ages the Holy Bible, and in this dispensation of the fulness of times, he has caused other scriptures to be brought forth. One such scripture is the volume known as the Book of Mormon. Its origin begins with the establishment of a new nation spun off from Israel 600 years before Christ, just before the impending destruction of Jerusalem. In the introductory pages of that scripture, the importance of the exercise of faith is highlighted.
 
-Lehi, a religious leader, being warned in a dream of the coming destruction of Jerusalem because of the wickedness of the people, was directed to take his family into the wilderness. This he did, and while there, received further instruction from the Lord to direct his four sons to return to Jerusalem to obtain a record from one known as Laban. Two attempts to obtain the record were thwarted. Then Nephi, the more spiritual and faithful of the sons, under the power and conviction of his commitment to his Heavenly Father, which was, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]), proceeded to venture again, alone, into the night to obtain the record.
+Lehi, a religious leader, being warned in a dream of the coming destruction of Jerusalem because of the wickedness of the people, was directed to take his family into the wilderness. This he did, and while there, received further instruction from the Lord to direct his four sons to return to Jerusalem to obtain a record from one known as Laban. Two attempts to obtain the record were thwarted. Then Nephi, the more spiritual and faithful of the sons, under the power and conviction of his commitment to his Heavenly Father, which was, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]), proceeded to venture again, alone, into the night to obtain the record.
 
 The scriptures state, “I, Nephi, crept into the city and went forth towards the house of Laban. And I was led by the Spirit, not knowing beforehand the things which I should do. … And as I came near unto the house of Laban I beheld a man, and he had fallen to the earth before me, for he was drunken with wine. And … I found that it was Laban.
 
 “I beheld his sword, and I drew it forth from the sheath thereof. … And it came to pass that I was constrained by the Spirit that I should kill Laban; … and I shrunk and would that I might not slay him. … And … the Spirit said unto me again: Slay him, for the Lord hath delivered him into thy hands; behold the Lord slayeth the wicked to bring forth his righteous purposes. It is better that one man should perish than that a nation should dwindle and perish in unbelief.
 
-“I remembered the words of the Lord … unto me … Inasmuch as thy seed shall keep my commandments, they shall prosper in the land of promise. … And I also thought that they could not keep the commandments of the Lord according to the law of Moses, save they should have the law. …
+“I remembered the words of the Lord … unto me … Inasmuch as thy seed shall keep my commandments, they shall prosper in the land of promise. … And I also thought that they could not keep the commandments of the Lord according to the law of Moses, save they should have the law. …
 
-“I knew that the Lord had delivered Laban into my hands for this cause.” (See [[1 Nephi 4.5|1 Ne. 4:5–17]][[1 Nephi 4.6|]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]].) Nephi obtained the records and in due course brought them to his father, Lehi.
+“I knew that the Lord had delivered Laban into my hands for this cause.” (See [[1 Nephi 4.5|1 Ne. 4:5–17]][[1 Nephi 4.6|]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]].) Nephi obtained the records and in due course brought them to his father, Lehi.
 
-Lehi and his wife Sariah rejoiced at the return of their sons and gave thanks unto God. Then “Lehi, took the records … and he did search them from the beginning. … They did contain the five books of Moses, … also a record of the Jews from the beginning, even down to … the reign of Zedekiah, king of Judah; … prophecies of the holy prophets, from the beginning, even down to the commencement of the reign of Zedekiah; … a genealogy of his \[Lehi’s\] fathers; wherefore he knew that he was a descendant of … that Joseph who was the son of Jacob.” (See [[1 Nephi 5.10|1 Ne. 5:10–14]][[1 Nephi 5.11|]][[1 Nephi 5.12|]][[1 Nephi 5.13|]][[1 Nephi 5.14|]].)
+Lehi and his wife Sariah rejoiced at the return of their sons and gave thanks unto God. Then “Lehi, took the records … and he did search them from the beginning. … They did contain the five books of Moses, … also a record of the Jews from the beginning, even down to … the reign of Zedekiah, king of Judah; … prophecies of the holy prophets, from the beginning, even down to the commencement of the reign of Zedekiah; … a genealogy of his \[Lehi’s\] fathers; wherefore he knew that he was a descendant of … that Joseph who was the son of Jacob.” (See [[1 Nephi 5.10|1 Ne. 5:10–14]][[1 Nephi 5.11|]][[1 Nephi 5.12|]][[1 Nephi 5.13|]][[1 Nephi 5.14|]].)
 
 Perhaps Lehi read the blessing of Joseph, received under the hand of Jacob. “Joseph is a fruitful bough, even a fruitful bough by a well; whose branches run over the wall” ([[Genesis 49.22|Gen. 49:22]]), and he knew that he was in the process of fulfilling that blessing in establishing a new nation which would “run over the wall” to a new promised land and would bring them to the continents now known as America.
 
@@ -58,13 +60,13 @@ Then he went to the king and made the dream known, reciting in detail what the k
 
 “And the fourth kingdom shall be strong as iron; forasmuch as iron breaketh in pieces and subdueth all things: and as iron that breaketh all these, shall it break in pieces and bruise.
 
-“And whereas thou sawest the feet and toes, part of potters’ clay, and part of iron, the kingdom shall be divided; …
+“And whereas thou sawest the feet and toes, part of potters’ clay, and part of iron, the kingdom shall be divided; …
 
 “So the kingdom shall be partly strong, and partly broken.
 
 “They shall mingle themselves with the seed of men: but they shall not cleave one to another, even as iron is not mixed with clay.
 
-“And in the days of these kings shall the God of heaven set up a kingdom which shall never be destroyed: and the kingdom shall not be left to other people, but it shall break in pieces and consume all these kingdoms, and it shall stand for ever. …
+“And in the days of these kings shall the God of heaven set up a kingdom which shall never be destroyed: and the kingdom shall not be left to other people, but it shall break in pieces and consume all these kingdoms, and it shall stand for ever. …
 
 “The dream is certain, and the interpretation thereof sure.” (See [[Daniel 2.1|Dan. 2:1–45]][[Daniel 2.2|]][[Daniel 2.3|]][[Daniel 2.4|]][[Daniel 2.5|]][[Daniel 2.6|]][[Daniel 2.7|]][[Daniel 2.8|]][[Daniel 2.9|]][[Daniel 2.10|]][[Daniel 2.11|]][[Daniel 2.12|]][[Daniel 2.13|]][[Daniel 2.14|]][[Daniel 2.15|]][[Daniel 2.16|]][[Daniel 2.17|]][[Daniel 2.18|]][[Daniel 2.19|]][[Daniel 2.20|]][[Daniel 2.21|]][[Daniel 2.22|]][[Daniel 2.23|]][[Daniel 2.24|]][[Daniel 2.25|]][[Daniel 2.26|]][[Daniel 2.27|]][[Daniel 2.28|]][[Daniel 2.29|]][[Daniel 2.30|]][[Daniel 2.31|]][[Daniel 2.32|]][[Daniel 2.33|]][[Daniel 2.34|]][[Daniel 2.35|]][[Daniel 2.36|]][[Daniel 2.37|]][[Daniel 2.38|]][[Daniel 2.39|]][[Daniel 2.40|]][[Daniel 2.41|]][[Daniel 2.42|]][[Daniel 2.43|]][[Daniel 2.44|]][[Daniel 2.45|]].)
 
@@ -83,8 +85,3 @@ After reading that passage of scripture Joseph Smith sought a grove of trees in 
 
 
 
-
-
-
-
-#Prophecy #Scriptures #Testimony

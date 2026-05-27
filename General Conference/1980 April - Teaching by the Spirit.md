@@ -1,6 +1,8 @@
 # Teaching by the Spirit
 
-By Elder W. Grant Bangerter - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder W. Grant Bangerter - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -51,5 +53,3 @@ That’s the process. Alma did the same thing when he had explained to the peopl
 
 
 
-
-#Activation #Holy_Ghost

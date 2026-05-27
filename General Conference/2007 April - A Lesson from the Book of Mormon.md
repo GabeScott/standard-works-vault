@@ -1,5 +1,7 @@
 # A Lesson from the Book of Mormon
 
+Thomas S. Monson
+
 By Vicki F. Matsumori - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -22,7 +24,7 @@ So the strength of the army of Helaman really began with their parents, who were
 
 Aaron, who was a great missionary, used the scriptures to teach the Lamanite king and the people of Ammon about faith and repentance and about Jesus Christ and the plan of happiness (see [[Alma 22.12|Alma 22:12–14]][[Alma 22.13|]][[Alma 22.14|]]; [[Alma 23.4|23:4–5]][[Alma 23.5|]]). Today, reading and studying the scriptures continues to build our faith, helps us resist temptation, and allows us to grow closer to Heavenly Father and His Son, Jesus Christ.
 
-However, reading scriptures can present a challenge for everyone. President Boyd K. Packer shares his first attempts as a teenager at reading the Book of Mormon. He says: “I opened it and read, ‘I, Nephi, having been born of goodly parents’ ([[1 Nephi 1.1|1 Nephi 1:1]]). … It was interesting, and I could follow it until I got over to the Isaiah chapters. … So a few months later I decided to try again to read the Book of Mormon. I read, ‘I, Nephi, having been born of goodly parents,’ but every time I’d hit the barrier of those Isaiah chapters. … Finally I decided I was even going to read them.”[^2]
+However, reading scriptures can present a challenge for everyone. President Boyd K. Packer shares his first attempts as a teenager at reading the Book of Mormon. He says: “I opened it and read, ‘I, Nephi, having been born of goodly parents’ ([[1 Nephi 1.1|1 Nephi 1:1]]). … It was interesting, and I could follow it until I got over to the Isaiah chapters. … So a few months later I decided to try again to read the Book of Mormon. I read, ‘I, Nephi, having been born of goodly parents,’ but every time I’d hit the barrier of those Isaiah chapters. … Finally I decided I was even going to read them.”[^2]
 
 And of course President Packer did read them. Persistence is the key. With every reading of the scriptures, unfamiliar words will take on meaning. You can read about heroes and great acts of courage. You can learn of the tender mercies of the Lord. And above all, you can feel the love of God and know that Jesus Christ is our Savior.
 
@@ -48,7 +50,11 @@ It was left to Primary teachers, Young Women leaders, and priesthood leaders to 
 
 The people of Ammon lived the gospel, and “they were firm in the faith of Christ, even unto the end” ([[Alma 27.27|Alma 27:27]]). It began with them. And it begins with us. As first-generation members who have gained testimonies, we now have a responsibility to teach the children of today. We must teach them in our homes and in our classes. We must teach them the word of God from the scriptures. We must teach them the power of prayer, and we must teach them the blessings that come from making and keeping covenants. And if we teach them, they will be able to say:
 
-We are as the army of Helaman.We have been taught in our youth.And we will be the Lord’s missionariesTo bring the world his truth.[^5]
+>We are as the army of Helaman.
+>We have been taught in our youth.
+>And we will be the Lord’s missionaries
+>To bring the world his truth.[^5]
+>
 
 In the name of Jesus Christ, amen.
 
@@ -65,8 +71,3 @@ In the name of Jesus Christ, amen.
 
 [^5]: *Children’s Songbook,* 173.
 
-
-
-
-
-#Covenants #Faith #Family #Honesty #Prayer #Scriptures

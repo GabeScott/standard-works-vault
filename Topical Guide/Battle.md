@@ -1,19 +1,18 @@
 # Battle
 
-
-*See also* [[Fight, Fought.md|Fight]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]; [[Strife.md|Strife]]; [[War.md|War]]
+*See also* [[Fight.md|Fight]]; [[God to Fight Our Battles.md|God to Fight Our Battles]]; [[Strife.md|Strife]]; [[War.md|War]]
 
 goest out to *battle* against thine enemies, [[Deuteronomy 20.1|Deuteronomy 20:1]].
 
 Israel went out against the Philistines to *battle*, [[1 Samuel 4.1|1 Samuel 4:1]].
 
-*battle* is the Lord's, [[1 Samuel 17.47|1 Samuel 17:47]].
+*battle* is the Lord’s, [[1 Samuel 17.47|1 Samuel 17:47]].
 
-be thou valiant ... and fight the Lord's *battles*, [[1 Samuel 18.17|1 Samuel 18:17]].
+be thou valiant … and fight the Lord’s *battles*, [[1 Samuel 18.17|1 Samuel 18:17]].
 
 time when kings go forth to *battle*, [[2 Samuel 11.1|2 Samuel 11:1]] ([[1 Chronicles 20.1|1 Chronicles 20:1]]).
 
-*battle* is not yours, but God's, [[2 Chronicles 20.15|2 Chronicles 20:15]].
+*battle* is not yours, but God’s, [[2 Chronicles 20.15|2 Chronicles 20:15]].
 
 race is not to the swift, nor the *battle* to the strong, [[Ecclesiastes 9.11|Ecclesiastes 9:11]].
 
@@ -27,4 +26,4 @@ gather them to the *battle* of that great day, [[Revelation 16.14|Revelation 16:
 
 Gog and Magog, to gather them together to *battle*, [[Revelation 20.8|Revelation 20:8]].
 
-Satan ... went again to *battle*, [[Ether 15.19|Ether 15:19]].
+Satan … went again to *battle*, [[Ether 15.19|Ether 15:19]].

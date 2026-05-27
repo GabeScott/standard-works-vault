@@ -1,6 +1,8 @@
 # Be Fruitful, Multiply, and Subdue the Earth
 
-By Elder Joseph W. Sitati - *Of the Seventy*
+Cheryl A. Esplin
+
+By Elder Joseph W. Sitati - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -18,7 +20,7 @@ Brothers and sisters, this afternoon I invite your faith and prayers as I share 
 
 An important part of being fruitful that is sometimes overlooked is that of bringing forth the kingdom of God upon the earth. The Savior taught:
 
-“I am the vine, ye are the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing. …
+“I am the vine, ye are the branches: He that abideth in me, and I in him, the same bringeth forth much fruit: for without me ye can do nothing. …
 
 “If ye abide in me, and my words abide in you, ye shall ask what ye will, and it shall be done unto you.
 
@@ -64,7 +66,7 @@ However, God invites *all* His children to obtain His help to overcome and endur
 
 “I am God; I made the world, and men before they were in the flesh.
 
-“… If thou wilt turn unto me, and hearken unto my voice, and believe, and repent of all thy transgressions, and be baptized, even in water, in the name of mine Only Begotten Son, … ye shall receive the gift of the Holy Ghost, asking all things in his name, and whatsoever ye shall ask, it shall be given you.”[^17]
+“… If thou wilt turn unto me, and hearken unto my voice, and believe, and repent of all thy transgressions, and be baptized, even in water, in the name of mine Only Begotten Son, … ye shall receive the gift of the Holy Ghost, asking all things in his name, and whatsoever ye shall ask, it shall be given you.”[^17]
 
 Faithful Latter-day Saints who understand their divine potential and rely wholeheartedly on the power available through the Atonement of the Lord Jesus Christ are strengthened in their natural weakness and “can do all things.”[^18] They are enabled to overcome the enticings of evil that have put many under bondage to the adversary. Paul taught that:
 
@@ -74,7 +76,7 @@ Faithful Latter-day Saints who understand their divine potential and rely wholeh
 
 Heavenly Father has charged and blessed us to be fruitful, to multiply, and to subdue the earth that we might become like Him. He has made help available that we may each, according to our individual choosing, actually grow to become like Him. I pray that we might all live our lives such that we will be guided by the vision of our divine nature, claim all our divine privileges, and fulfill our divine destiny.
 
-I testify of the living reality of God the Father and of His Beloved Son, our Savior Jesus Christ; of His glorious plan of happiness; and of the keys He has caused to be bestowed upon a living prophet on earth today, even Thomas S. Monson, whom we love and sustain. I pray that we may have power to enjoy the fulness of His blessings in the name of Jesus Christ, amen.
+I testify of the living reality of God the Father and of His Beloved Son, our Savior Jesus Christ; of His glorious plan of happiness; and of the keys He has caused to be bestowed upon a living prophet on earth today, even Thomas S. Monson, whom we love and sustain. I pray that we may have power to enjoy the fulness of His blessings in the name of Jesus Christ, amen.
 
 
 
@@ -97,17 +99,17 @@ I testify of the living reality of God the Father and of His Beloved Son, our Sa
 
 [^9]: See [[Moses 5.10|Moses 5:10–11]][[Moses 5.11|]].
 
-[^10]: See *Handbook 2: Administering the Church* (2010), 1.3.3; Ezra Taft Benson, “To the Single Adult Sisters of the Church,” *Ensign,* Nov. 1988, 96–97.
+[^10]: See *Handbook 2: Administering the Church* (2010), 1.3.3; Ezra Taft Benson, “To the Single Adult Sisters of the Church,” *Ensign,* Nov. 1988, 96–97.
 
 [^11]: See [[Jacob 2.18|Jacob 2:18–19]][[Jacob 2.19|]].
 
-[^12]: See [[1 Corinthians 6.19|1 Corinthians 6:19–20]][[1 Corinthians 6.20|]]; [[Galatians 5.16|Galatians 5:16–25]][[Galatians 5.17|]][[Galatians 5.18|]][[Galatians 5.19|]][[Galatians 5.20|]][[Galatians 5.21|]][[Galatians 5.22|]][[Galatians 5.23|]][[Galatians 5.24|]][[Galatians 5.25|]]; [[1 Thessalonians 4.3|1 Thessalonians 4:3–7]][[1 Thessalonians 4.4|]][[1 Thessalonians 4.5|]][[1 Thessalonians 4.6|]][[1 Thessalonians 4.7|]]; [[2 Timothy 2.22|2 Timothy 2:22]].
+[^12]: See [[1 Corinthians 6.19|1 Corinthians 6:19–20]][[1 Corinthians 6.20|]]; [[Galatians 5.16|Galatians 5:16–25]][[Galatians 5.17|]][[Galatians 5.18|]][[Galatians 5.19|]][[Galatians 5.20|]][[Galatians 5.21|]][[Galatians 5.22|]][[Galatians 5.23|]][[Galatians 5.24|]][[Galatians 5.25|]]; [[1 Thessalonians 4.3|1 Thessalonians 4:3–7]][[1 Thessalonians 4.4|]][[1 Thessalonians 4.5|]][[1 Thessalonians 4.6|]][[1 Thessalonians 4.7|]]; [[2 Timothy 2.22|2 Timothy 2:22]].
 
 [^13]: See [[Jacob 2.12|Jacob 2:12–16, 20–21]][[Jacob 2.13|]][[Jacob 2.14|]][[Jacob 2.15|]][[Jacob 2.16|]][[Jacob 2.20|]][[Jacob 2.21|]].
 
 [^14]: [[Moroni 7.33|Moroni 7:33]].
 
-[^15]: [[2 Nephi 10.24|2 Nephi 10:24]].
+[^15]: [[2 Nephi 10.24|2 Nephi 10:24]].
 
 [^16]: [[D&C 1.16|Doctrine and Covenants 1:16]].
 
@@ -115,12 +117,7 @@ I testify of the living reality of God the Father and of His Beloved Son, our Sa
 
 [^18]: [[Alma 26.12|Alma 26:12]].
 
-[^19]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^19]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 [^20]: [[Hebrews 2.18|Hebrews 2:18]].
 
-
-
-
-
-#Children #Divine_Nature #Family #Marriage #Plan_Of_Salvation #Service

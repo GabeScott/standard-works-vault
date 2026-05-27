@@ -1,6 +1,8 @@
 # The Royal Law of Love
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -46,15 +48,10 @@ I believe we are coming to under stand the royal law, “Thou shalt love thy nei
 
 “And the King shall answer and say unto them, Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.31|Matt. 25:31–40]][[Matthew 25.32|]][[Matthew 25.33|]][[Matthew 25.34|]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].)
 
-I know this gospel is true. I have no doubt about that at all. I never remember a time when I questioned a principle of the gospel. I know that the welfare program that was outlined in the 1930s was inspired of the Lord. He gave President Grant the inspiration and gave him help through his great counselor, J. Reuben Clark, Jr., and others, to set up the program. It is our duty now to follow it and take care of His kingdom in the spirit of loving our neighbors as ourselves.
+I know this gospel is true. I have no doubt about that at all. I never remember a time when I questioned a principle of the gospel. I know that the welfare program that was outlined in the 1930s was inspired of the Lord. He gave President Grant the inspiration and gave him help through his great counselor, J. Reuben Clark, Jr., and others, to set up the program. It is our duty now to follow it and take care of His kingdom in the spirit of loving our neighbors as ourselves.
 
 If we do so, we shall be able to meet the trying days ahead, which are coming faster than we think. The peoples of the earth will be in such trouble and distress that they will be unable to solve their problems in any other way than to turn to the Lord’s program. I bear you this testimony in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Love

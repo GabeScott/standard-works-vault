@@ -1,4 +1,3 @@
 # Judas
 
-
-*See* [BD Judas](https://www.churchofjesuschrist.org/study/scriptures/bd/judas?lang=eng)
+*See also* [[BD Judas.md|BD Judas]]

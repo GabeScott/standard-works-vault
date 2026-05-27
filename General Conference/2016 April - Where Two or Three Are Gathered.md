@@ -1,6 +1,8 @@
 # Where Two or Three Are Gathered
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Cheryl A. Esplin
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -96,13 +98,8 @@ You can sense that I am coming to the moment when I will cap the message I have 
 
 I leave you my sure witness that our Heavenly Father, the great Elohim, loves and knows us, every one. Under His direction, His Son, Jehovah, was the Creator. I testify that Jesus of Nazareth was born the Son of God. He healed the sick, gave sight to the blind, and raised the dead. He paid the price of all the sins of each of Heavenly Father’s children born into mortality. He broke the bands of death for all as He rose from the tomb that first Easter Sunday. He lives today, a God—resurrected and glorious.
 
-This is the only true Church, and He is its chief cornerstone. Thomas S. Monson is His prophet to all the world. The prophets and apostles you will hear in this conference speak for the Lord. They are His servants, authorized to act for Him. He goes before His servants in the world. This I know. And I so witness in His name, even the sacred name of Jesus Christ, amen.
+This is the only true Church, and He is its chief cornerstone. Thomas S. Monson is His prophet to all the world. The prophets and apostles you will hear in this conference speak for the Lord. They are His servants, authorized to act for Him. He goes before His servants in the world. This I know. And I so witness in His name, even the sacred name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Faith #General_Conference #Holy_Ghost #Prayer #Testimony

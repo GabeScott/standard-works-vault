@@ -1,5 +1,7 @@
 # The Kingdom Rolls Forth in South America
 
+Ezra Taft Benson
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1986 General Conference*
@@ -22,9 +24,9 @@ Twelve days ago I returned from South America, where I had visited the people of
 
 Elder Parley P. Pratt visited South America in 1851. The work was attempted again in 1925. On Christmas Day of 1925, in the park of Tres de Febrero in Buenos Aires, Argentina, my grandfather, Elder Melvin J. Ballard, dedicated South America for the preaching of the gospel. I quote from the dedicatory prayer:
 
-“Bless the presidents, governors, and the leading officials of these South American countries, that they may kindly receive us and give us permission to open the doors of salvation to the people of these lands. …
+“Bless the presidents, governors, and the leading officials of these South American countries, that they may kindly receive us and give us permission to open the doors of salvation to the people of these lands. …
 
-“And now, oh, Father, by authority of the blessing and appointment by the President of the Church, and *by the authority of the holy apostleship* which I have, I turn the key, unlock, and open the door for the preaching of the Gospel in all these South American nations, and do rebuke and command to be stayed every power that would oppose the preaching of the Gospel in these lands; and we do bless and dedicate these nations of this land for the preaching of thy Gospel. And we do all this that salvation may come to all men, and that thy name may be honored and glorified in this part of the land of Zion.” (*Melvin J. Ballard, Crusader for Righteousness,* Salt Lake City: Bookcraft, 1966, p. 81; italics added.)
+“And now, oh, Father, by authority of the blessing and appointment by the President of the Church, and *by the authority of the holy apostleship* which I have, I turn the key, unlock, and open the door for the preaching of the Gospel in all these South American nations, and do rebuke and command to be stayed every power that would oppose the preaching of the Gospel in these lands; and we do bless and dedicate these nations of this land for the preaching of thy Gospel. And we do all this that salvation may come to all men, and that thy name may be honored and glorified in this part of the land of Zion.” (*Melvin J. Ballard, Crusader for Righteousness,* Salt Lake City: Bookcraft, 1966, p. 81; italics added.)
 
 The words “by the authority of the holy apostleship” have special meaning to me now as my ministry bears that same authority to accomplish the purposes of our Heavenly Father.
 
@@ -38,7 +40,7 @@ My brothers and sisters, it is difficult to express my feelings as I read of the
 
 The work among the native Argentines was very difficult. Only one was baptized during the first eight months. On 4 July 1926, Grandfather said:
 
-“The work of the Lord will grow slowly for a time here just as an oak grows slowly from an acorn. It will not shoot up in a day as does the sunflower that grows quickly and then dies. But thousands will join the Church here. It will be divided into more than one mission and will be one of the strongest in the Church. The work here is the smallest that it will ever be. The day will come when the Lamanites in this land will be given a chance. The South American Mission will be a power in the Church.” (Vernon Sharp diary, in *Melvin J. Ballard,* p. 84.)
+“The work of the Lord will grow slowly for a time here just as an oak grows slowly from an acorn. It will not shoot up in a day as does the sunflower that grows quickly and then dies. But thousands will join the Church here. It will be divided into more than one mission and will be one of the strongest in the Church. The work here is the smallest that it will ever be. The day will come when the Lamanites in this land will be given a chance. The South American Mission will be a power in the Church.” (Vernon Sharp diary, in *Melvin J. Ballard,* p. 84.)
 
 Sixty years later, the Church in South America has 30 missions, with 5,140 full-time missionaries, of which approximately 60 percent are natives of South America. One hundred eighty-six stakes cover the land, with 2,148 wards and branches dotting the countryside. Approximately 776,000 members of the Church are an evidence of the fulfillment of the dedicatory prayer.
 
@@ -48,7 +50,7 @@ The effective work of the General Authorities of the past and of those of today 
 
 My brothers and sisters, as I visited with the Saints in South America, the words of Nephi came to mind:
 
-“He doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him. Wherefore, he commandeth none that they shall not partake of his salvation.” ([[2 Nephi 26.24|2 Ne. 26:24]].)
+“He doeth not anything save it be for the benefit of the world; for he loveth the world, even that he layeth down his own life that he may draw all men unto him. Wherefore, he commandeth none that they shall not partake of his salvation.” ([[2 Nephi 26.24|2 Ne. 26:24]].)
 
 The gospel of Jesus Christ radiates in the faces of the Saints. They express faith and commitment and love for the Lord. They are seeking to be worthy of the full blessings of the gospel. Several Aaronic Priesthood boys dressed in their Scout uniforms greeted me in Bogota. Without hesitation they all told me they will serve as missionaries as soon as they are old enough. With such a spirit, the future of the Church in South America will be in good hands.
 
@@ -85,8 +87,3 @@ May the Lord bless us, my brothers and sisters, in doing his work, is my prayer 
 
 
 
-
-
-
-
-#Missionary_Work #Quorum_Of_The_Twelve_Apostles

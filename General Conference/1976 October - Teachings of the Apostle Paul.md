@@ -1,6 +1,8 @@
 # Teachings of the Apostle Paul
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -28,7 +30,7 @@ He stated his principal theme when he courageously declared to the Romans: “Fo
 
 “For I neither received it of man, neither was I taught it, but by the revelation of Jesus Christ.” ([[Galatians 1.11|Gal. 1:11–12]][[Galatians 1.12|]].)
 
-He said to Timothy: “Be not *thou* therefore ashamed of the testimony of our Lord.” ([[2 Timothy 1.8|2 Tim. 1:8]]; italics added.)
+He said to Timothy: “Be not *thou* therefore ashamed of the testimony of our Lord.” ([[2 Timothy 1.8|2 Tim. 1:8]]; italics added.)
 
 Paul also taught that there is “One Lord, one faith, one baptism,
 
@@ -36,23 +38,23 @@ Paul also taught that there is “One Lord, one faith, one baptism,
 
 This doctrine is still true. No man can enter into heaven on his own terms. God’s plan is the only way to achieve this goal, and Christ is our teacher and exemplar.
 
-Paul declared: “For as many as are led by the Spirit of God, they are the sons of God. …
+Paul declared: “For as many as are led by the Spirit of God, they are the sons of God. …
 
 “We are the children of God:
 
-“And if children, then heirs; heirs of God, and joint-heirs with Christ; …
+“And if children, then heirs; heirs of God, and joint-heirs with Christ; …
 
 “And we know that all things work together for good to them that love God.” ([[Romans 8.14|Rom. 8:14, 16–17, 28]][[Romans 8.16|]][[Romans 8.17|]][[Romans 8.28|]].)
 
-Paul admonished Timothy: “Wherefore I put thee in remembrance that thou stir up the gift of God, which is in thee. …
+Paul admonished Timothy: “Wherefore I put thee in remembrance that thou stir up the gift of God, which is in thee. …
 
-“For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.6|2 Tim. 1:6–7]][[2 Timothy 1.7|]].)
+“For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.” ([[2 Timothy 1.6|2 Tim. 1:6–7]][[2 Timothy 1.7|]].)
 
 Paul also taught explicitly about the resurrection: “Know ye not,” he asked, “that so many of us were baptized into Jesus Christ were baptized into his death?
 
 “For if we have been planted together in the likeness of his death, we shall be also in the likeness of his resurrection.” ([[Romans 6.3|Rom. 6:3, 5]][[Romans 6.5|]].)
 
-Concerning his preaching, Paul said: “For though I preach the gospel, I have nothing to glory of: for necessity is laid upon me; yea, woe is unto me, if I preach not the gospel!” ([[1 Corinthians 9.16|1 Cor. 9:16]].)
+Concerning his preaching, Paul said: “For though I preach the gospel, I have nothing to glory of: for necessity is laid upon me; yea, woe is unto me, if I preach not the gospel!” ([[1 Corinthians 9.16|1 Cor. 9:16]].)
 
 His counsel for others who desired to preach includes these words:
 
@@ -60,27 +62,27 @@ His counsel for others who desired to preach includes these words:
 
 “And no man taketh this honour unto himself, but he that is called of God, as was Aaron.” ([[Hebrews 5.4|Heb. 5:4]].) Aaron was called of God by revelation.
 
-Paul emphasized unity of faith: “Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.” ([[1 Corinthians 1.10|1 Cor. 1:10]].)
+Paul emphasized unity of faith: “Now I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment.” ([[1 Corinthians 1.10|1 Cor. 1:10]].)
 
-“For God is not the author of confusion, but of peace.” ([[1 Corinthians 14.33|1 Cor. 14:33]].)
+“For God is not the author of confusion, but of peace.” ([[1 Corinthians 14.33|1 Cor. 14:33]].)
 
-Then he asked, “Is Christ divided? was Paul crucified for you? or were ye baptized in the name of Paul?” ([[1 Corinthians 1.13|1 Cor. 1:13]].)
+Then he asked, “Is Christ divided? was Paul crucified for you? or were ye baptized in the name of Paul?” ([[1 Corinthians 1.13|1 Cor. 1:13]].)
 
 “As we said before, so say I now again, If any man preach any other gospel unto you than that ye have received, let him be accursed.” ([[Galatians 1.9|Gal. 1:9]].)
 
 The apostle Paul outlined explicit ways for the saints to live as true Christians, preparing themselves for exaltation. He reminded the leaders:
 
-“Even so hath the Lord ordained that they which preach the gospel should live of the gospel.” ([[1 Corinthians 9.14|1 Cor. 9:14]].)
+“Even so hath the Lord ordained that they which preach the gospel should live of the gospel.” ([[1 Corinthians 9.14|1 Cor. 9:14]].)
 
 In teaching faith, he first defined it as: “the substance of things hoped for, the evidence of things not seen.” ([[Hebrews 11.1|Heb. 11:1]].)
 
 Then he gave the promise: “Know ye therefore that they which are of faith, the same are the children of Abraham.” ([[Galatians 3.7|Gal. 3:7]].)
 
-And he instructed, “Fight the good fight of faith.” ([[1 Timothy 6.12|1 Tim. 6:12]].)
+And he instructed, “Fight the good fight of faith.” ([[1 Timothy 6.12|1 Tim. 6:12]].)
 
 Stressing the importance of prayer, Paul advised: “I exhort therefore, that, first of all, supplications, prayers, intercessions, and giving of thanks, be made for all men;
 
-“For kings, and for all that are in authority; that we may lead a quiet and peaceable life in all godliness and honesty.” ([[1 Timothy 2.1|1 Tim. 2:1–2]][[1 Timothy 2.2|]].)
+“For kings, and for all that are in authority; that we may lead a quiet and peaceable life in all godliness and honesty.” ([[1 Timothy 2.1|1 Tim. 2:1–2]][[1 Timothy 2.2|]].)
 
 “And the peace of God, which passeth all understanding, shall keep your hearts and minds through Christ Jesus.” ([[Philippians 4.7|Philip. 4:7]].)
 
@@ -90,7 +92,7 @@ Paul kept the saints in remembrance of the necessity to read and study the scrip
 
 “All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness:
 
-“That the man of God may be perfect, throughly furnished unto all good works.” ([[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]].)
+“That the man of God may be perfect, throughly furnished unto all good works.” ([[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]].)
 
 Family members were instructed: “Husbands, love your wives, even as Christ also loved the church, and gave himself for it.” ([[Ephesians 5.25|Eph. 5:25]].)
 
@@ -118,13 +120,13 @@ Then to all he taught: “Be ye therefore followers of God, as dear children;
 
 Other important teachings included: “Prove all things; hold fast that which is good.
 
-“Abstain from all appearance of evil.” ([[1 Thessalonians 5.21|1 Thes. 5:21–22]][[1 Thessalonians 5.22|]].)
+“Abstain from all appearance of evil.” ([[1 Thessalonians 5.21|1 Thes. 5:21–22]][[1 Thessalonians 5.22|]].)
 
 “Let us walk honestly, as in the day.” ([[Romans 13.13|Rom. 13:13]].)
 
 “Remember the poor.” ([[Galatians 2.10|Gal. 2:10]].)
 
-“Give; not grudgingly, or of necessity: for God loveth a cheerful giver.” ([[2 Corinthians 9.7|2 Cor. 9:7]].)
+“Give; not grudgingly, or of necessity: for God loveth a cheerful giver.” ([[2 Corinthians 9.7|2 Cor. 9:7]].)
 
 “Bear ye one another’s burdens.” ([[Galatians 6.2|Gal. 6:2]].)
 
@@ -140,7 +142,7 @@ Other important teachings included: “Prove all things; hold fast that which is
 
 Paul further counseled: “Quench not the Spirit.
 
-“Despise not prophesyings.” ([[1 Thessalonians 5.19|1 Thes. 5:19–20]][[1 Thessalonians 5.20|]].)
+“Despise not prophesyings.” ([[1 Thessalonians 5.19|1 Thes. 5:19–20]][[1 Thessalonians 5.20|]].)
 
 “Let us not therefore judge one another any more: but judge this rather, that no man put a stumblingblock or an occasion to fall in his brother’s way.” ([[Romans 14.13|Rom. 14:13]].)
 
@@ -150,23 +152,23 @@ Paul further counseled: “Quench not the Spirit.
 
 “And … put on the new man, which after God is created in righteousness and true holiness.” ([[Ephesians 4.24|Eph. 4:24]].)
 
-“Be perfect, be of good comfort, be of one mind, live in peace; and the God of love and peace shall be with you.” ([[2 Corinthians 13.11|2 Cor. 13:11]].)
+“Be perfect, be of good comfort, be of one mind, live in peace; and the God of love and peace shall be with you.” ([[2 Corinthians 13.11|2 Cor. 13:11]].)
 
 The dangers of riches were pointed out, and Paul stressed the necessity of their being put to proper usage. Wisely he reminded:
 
 “For we brought nothing into this world, and it is certain we can carry nothing out.
 
-“For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows.” ([[1 Timothy 6.7|1 Tim. 6:7, 10]][[1 Timothy 6.10|]].)
+“For the love of money is the root of all evil: which while some coveted after, they have erred from the faith, and pierced themselves through with many sorrows.” ([[1 Timothy 6.7|1 Tim. 6:7, 10]][[1 Timothy 6.10|]].)
 
 “Charge them that are rich in this world, that they be not high-minded, nor trust in uncertain riches, but in the living God, who giveth us richly all things to enjoy;
 
-“That they do good, that they be rich in good works.” ([[1 Timothy 6.17|1 Tim. 6:17–18]][[1 Timothy 6.18|]].)
+“That they do good, that they be rich in good works.” ([[1 Timothy 6.17|1 Tim. 6:17–18]][[1 Timothy 6.18|]].)
 
 Paul also pronounced these significant warnings:
 
-“Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness?” ([[2 Corinthians 6.14|2 Cor. 6:14]].)
+“Be ye not unequally yoked together with unbelievers: for what fellowship hath righteousness with unrighteousness? and what communion hath light with darkness?” ([[2 Corinthians 6.14|2 Cor. 6:14]].)
 
-“Ye cannot drink the cup of the Lord, and the cup of devils.” ([[1 Corinthians 10.21|1 Cor. 10:21]].)
+“Ye cannot drink the cup of the Lord, and the cup of devils.” ([[1 Corinthians 10.21|1 Cor. 10:21]].)
 
 “Be not deceived; God is not mocked: for whatsoever a man soweth, that shall he also reap.
 
@@ -178,7 +180,7 @@ As we read Paul’s predictions of the wickedness to come, we find many similari
 
 “For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-“And they shall turn away their ears from the truth, and shall be turned into fables.” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]].)
+“And they shall turn away their ears from the truth, and shall be turned into fables.” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]].)
 
 “This know also, that in the last days perilous times shall come.
 
@@ -188,15 +190,15 @@ As we read Paul’s predictions of the wickedness to come, we find many similari
 
 “Traitors, heady, highminded, lovers of pleasures more than lovers of God;
 
-“Having a form of godliness, but denying the power thereof: …
+“Having a form of godliness, but denying the power thereof: …
 
-“Ever learning, and never able to come to the knowledge of the truth.” ([[2 Timothy 3.1|2 Tim. 3:1–5, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.7|]].)
+“Ever learning, and never able to come to the knowledge of the truth.” ([[2 Timothy 3.1|2 Tim. 3:1–5, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.7|]].)
 
 “They profess that they know God; but in works they deny him, being abominable, and disobedient, and unto every good work reprobate.” ([[Titus 1.16|Titus 1:16]].)
 
 The ungodliness of which Paul warned is present in our world today, and becoming increasingly prevalent. But just as he gave us warning, he also gave us guidance, and counseled:
 
-“Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, …
+“Wherefore take unto you the whole armour of God, that ye may be able to withstand in the evil day, …
 
 “Having your loins girt about with truth, and having on the breastplate of righteousness;
 
@@ -216,15 +218,10 @@ Then he gave this promise, that we can “do all things through Christ which str
 
 Paul impressively taught the importance of patterning our lives after the Lord Jesus Christ, striving constantly toward perfection. The writings of the apostle Paul can give *us* answers, direction, and strength, just as they aided the saints in the early church. If we prayerfully ponder not only the words of Paul, but all the scriptures now available to us, our lives can be strengthened and enriched.
 
-How beautifully and completely Paul encompassed all that would enable us to gain the greatest happiness in this life and exaltation in the life to come! Paul proclaimed the truth boldly and frankly just as our beloved prophet Spencer W. Kimball does today. If we follow our prophet’s counsel and that given by the apostle Paul we cannot go astray.
+How beautifully and completely Paul encompassed all that would enable us to gain the greatest happiness in this life and exaltation in the life to come! Paul proclaimed the truth boldly and frankly just as our beloved prophet Spencer W. Kimball does today. If we follow our prophet’s counsel and that given by the apostle Paul we cannot go astray.
 
 I bear solemn witness to the sacredness of the apostle Paul’s teachings. To accept and live them will bring peace and happiness to all who are sincerely searching for light and truth. This I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#New_Testament

@@ -1,6 +1,8 @@
 # Repentance: A Joyful Choice
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+Jean B. Bingham
+
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/repentance-a-joyful-choice?lang=eng)
 
-My dear brothers and sisters, when I was 12 years old, my family lived in Göteborg, a coastal city in southern Sweden. By way of reference, it is the hometown of our dear associate Elder Per G. Malm,[^1] who passed away this summer. We miss him. We’re grateful for his nobility and his noble service and for the example of his absolutely adorable family. And we certainly pray God’s richest blessings to be theirs.
+My dear brothers and sisters, when I was 12 years old, my family lived in Göteborg, a coastal city in southern Sweden. By way of reference, it is the hometown of our dear associate Elder Per G. Malm,[^1] who passed away this summer. We miss him. We’re grateful for his nobility and his noble service and for the example of his absolutely adorable family. And we certainly pray God’s richest blessings to be theirs.
 
 Fifty years ago, we attended church in a large remodeled home. One Sunday, my friend Steffan,[^2] the only other deacon in the branch, greeted me at church with some excitement. We went to the chapel’s adjacent overflow area, and he pulled from his pocket a large firecracker and some matches. In an act of youthful bravado, I took the firecracker and lit the long gray fuse. I intended to snuff out the fuse before it blew up. But when I burned my fingers trying to do so, I dropped the firecracker. Steffan and I watched in horror as the fuse continued to burn.
 
@@ -26,17 +28,17 @@ President Lindberg opened a well-worn copy of the Doctrine and Covenants and ask
 
 I will never forget President Lindberg’s compassionate smile when I looked up after I had finished reading. With some emotion, he told me that he felt it would be fine for me to resume partaking of the sacrament. As I left his office, I felt indescribable joy.
 
-Such joy is one of the inherent results of repentance. The word *repent* connotes “to perceive afterwards” and implies “change.”[^4] In Swedish, the word is *omvänd,* which simply means “to turn around.”[^5] The Christian writer C. S. Lewis wrote about the need and the method for change. He noted that repentance involves “being put back on the right road. A wrong sum can be put right,” he said, “but only by going back till you find the error and working it afresh from that point, never by simply *going on.*”[^6] Changing our behavior and returning to the “right road” are part of repentance, but only part. Real repentance also includes a turning of our heart and will to God and a renunciation of sin.[^7] As explained in Ezekiel, to repent is to “turn from … sin, … do that which is lawful and right; … restore the pledge, … \[and\] walk in the statutes of life, without committing iniquity.”[^8]
+Such joy is one of the inherent results of repentance. The word *repent* connotes “to perceive afterwards” and implies “change.”[^4] In Swedish, the word is *omvänd,* which simply means “to turn around.”[^5] The Christian writer C. S. Lewis wrote about the need and the method for change. He noted that repentance involves “being put back on the right road. A wrong sum can be put right,” he said, “but only by going back till you find the error and working it afresh from that point, never by simply *going on.*”[^6] Changing our behavior and returning to the “right road” are part of repentance, but only part. Real repentance also includes a turning of our heart and will to God and a renunciation of sin.[^7] As explained in Ezekiel, to repent is to “turn from … sin, … do that which is lawful and right; … restore the pledge, … \[and\] walk in the statutes of life, without committing iniquity.”[^8]
 
 Yet even this is an incomplete description. It does not properly identify the power that makes repentance possible, the atoning sacrifice of our Savior. Real repentance must involve faith in the Lord Jesus Christ, faith that He can change us, faith that He can forgive us, and faith that He will help us avoid more mistakes. This kind of faith makes His Atonement effective in our lives. When we “perceive afterwards” and “turn around” with the Savior’s help, we can feel hope in His promises and the joy of forgiveness. Without the Redeemer, the inherent hope and joy evaporate, and repentance becomes simply miserable behavior modification. But by exercising faith in Him, we become converted to His ability and willingness to forgive sin.
 
-President Boyd K. Packer affirmed the hopeful promises of repentance in April 2015 at his last general conference. He described the power of the Savior’s Atonement to heal in what I consider the distillation of the wisdom gained in half a century of apostolic service. President Packer said: “The Atonement leaves no tracks, no traces. What it fixes is fixed. … It just heals, and what it heals stays healed.”[^9]
+President Boyd K. Packer affirmed the hopeful promises of repentance in April 2015 at his last general conference. He described the power of the Savior’s Atonement to heal in what I consider the distillation of the wisdom gained in half a century of apostolic service. President Packer said: “The Atonement leaves no tracks, no traces. What it fixes is fixed. … It just heals, and what it heals stays healed.”[^9]
 
 He continued:
 
 “The Atonement, which can reclaim each one of us, bears no scars. That means that no matter what we have done or where we have been or how something happened, if we truly repent, \[the Savior\] has promised that He would atone. And when He atoned, that settled that. …
 
-“… The Atonement … can wash clean every stain no matter how difficult or how long or how many times repeated.”[^10]
+“… The Atonement … can wash clean every stain no matter how difficult or how long or how many times repeated.”[^10]
 
 The reach of the Savior’s Atonement is infinite in breadth and depth, for you and for me. But it will never be imposed on us. As the prophet Lehi explained, after we “are instructed sufficiently” to “know good from evil,”[^11] we “are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death.”[^12] In other words, repentance is a choice.
 
@@ -85,25 +87,25 @@ Brothers and sisters, as we conclude this conference, I invite you to feel more 
 
 [^5]: My translation of *omvänd*. *Om* can be translated as “around.” *Vänd* can be translated as “to turn.”
 
-[^6]: C. S. Lewis, *The Great Divorce* (1946), 6. In the preface to the book, Lewis wrote that some try to unify heaven and hell instead of choosing one or the other. He says that some of us think that “development or adjustment or refinement will somehow turn evil into good. … This belief I take to be a disastrous error. … We are not living in a world where all roads are radii of a circle and where all, if followed long enough, will therefore draw gradually nearer and finally meet at the centre. …
+[^6]: C. S. Lewis, *The Great Divorce* (1946), 6. In the preface to the book, Lewis wrote that some try to unify heaven and hell instead of choosing one or the other. He says that some of us think that “development or adjustment or refinement will somehow turn evil into good. … This belief I take to be a disastrous error. … We are not living in a world where all roads are radii of a circle and where all, if followed long enough, will therefore draw gradually nearer and finally meet at the centre. …
 
-[^7]: See Bible Dictionary, “[Repentance](https://churchofjesuschrist.org/study/scriptures/bd/repentance?lang=eng).”
+[^7]: See Bible Dictionary, “[[BD Repentance|Repentance]].”
 
 [^8]: [[Ezekiel 33.14|Ezekiel 33:14–15]][[Ezekiel 33.15|]].
 
-[^9]: President Boyd K. Packer’s testimony in the leadership meeting associated with April 2015 general conference is not published in full. These remarks are from my private notes, taken at the time.
+[^9]: President Boyd K. Packer’s testimony in the leadership meeting associated with April 2015 general conference is not published in full. These remarks are from my private notes, taken at the time.
 
-[^10]: Boyd K. Packer, “[[2015 April - The Plan of Happiness.md|The Plan of Happiness]],” *Ensign* or *Liahona,* May 2015, 28.
+[^10]: Boyd K. Packer, “[[2015 April - The Plan of Happiness.md|The Plan of Happiness]],” *Ensign* or *Liahona,* May 2015, 28.
 
-[^11]: [[2 Nephi 2.5|2 Nephi 2:5]].
+[^11]: [[2 Nephi 2.5|2 Nephi 2:5]].
 
-[^12]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^12]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-[^13]: See [[2 Nephi 2.26|2 Nephi 2:26]].
+[^13]: See [[2 Nephi 2.26|2 Nephi 2:26]].
 
 [^14]: [[Alma 1.4|Alma 1:4]]. Nehor and his followers did not believe in repentance (see [[Alma 15.15|Alma 15:15]]).
 
-[^15]: See Russell M. Nelson, “[Divine Love](https://churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng),” *Ensign,* Feb. 2003, 20–25; *Liahona,* Feb. 2003, 12–17.
+[^15]: See Russell M. Nelson, “[Divine Love](https://www.churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng),” *Ensign,* Feb. 2003, 20–25; *Liahona,* Feb. 2003, 12–17.
 
 [^16]: See [[Luke 15.17|Luke 15:17]]; see also [[Luke 15.11|verses 11–24]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]].
 
@@ -115,11 +117,11 @@ Brothers and sisters, as we conclude this conference, I invite you to feel more 
 
 [^20]: See [[Luke 15.4|Luke 15:4–7]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]]; [[D&C 18.10|Doctrine and Covenants 18:10–13]][[D&C 18.11|]][[D&C 18.12|]][[D&C 18.13|]].
 
-[^21]: True repentance includes “godly sorrow” ([[2 Corinthians 7.10|2 Corinthians 7:10]]). Elder M. Russell Ballard has taught: “For those who have strayed, the Savior has provided a way back. But it is not without pain. Repentance is not easy; it takes time—painful time!” (“[[1993 April - Keeping Covenants.md|Keeping Covenants]],” *Ensign,* May 1993, 7). Elder Richard G. Scott also taught, “Sometimes the steps of repentance are initially difficult and painful” (“[[1995 April - Finding Forgiveness.md|Finding Forgiveness]],” *Ensign,* May 1995, 77). While godly sorrow and pain are involved in the process of repentance, the eventual outcome is joyful when forgiveness of sin is felt.
+[^21]: True repentance includes “godly sorrow” ([[2 Corinthians 7.10|2 Corinthians 7:10]]). Elder M. Russell Ballard has taught: “For those who have strayed, the Savior has provided a way back. But it is not without pain. Repentance is not easy; it takes time—painful time!” (“[[1993 April - Keeping Covenants.md|Keeping Covenants]],” *Ensign,* May 1993, 7). Elder Richard G. Scott also taught, “Sometimes the steps of repentance are initially difficult and painful” (“[[1995 April - Finding Forgiveness.md|Finding Forgiveness]],” *Ensign,* May 1995, 77). While godly sorrow and pain are involved in the process of repentance, the eventual outcome is joyful when forgiveness of sin is felt.
 
 [^22]: [[Alma 34.31|Alma 34:31]]; emphasis added.
 
-[^23]: See Bible Dictionary, “[Gospels](https://churchofjesuschrist.org/study/scriptures/bd/gospels?lang=eng).”
+[^23]: See Bible Dictionary, “[[BD Gospels|Gospels]].”
 
 [^24]: [[Enos 1.6|Enos 1:6]].
 
@@ -129,10 +131,5 @@ Brothers and sisters, as we conclude this conference, I invite you to feel more 
 
 [^27]: [[Isaiah 12.3|Isaiah 12:3]].
 
-[^28]: See [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]]. While God promises to freely forgive, willfully sinning and counting on the Savior’s mercy to allow easy repentance is abhorrent to God (see [[Hebrews 6.4|Hebrews 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]]; [[Hebrews 10.26|10:26–27]][[Hebrews 10.27|]]). Elder Richard G. Scott said: “The joyful news for anyone who desires to be rid of the consequences of past poor choices is that the Lord sees weaknesses differently than He does rebellion. Whereas the Lord warns that unrepented rebellion will bring punishment, when the Lord speaks of weaknesses, it is always with mercy” (“[[2013 October - Personal Strength through the Atonement of Jesus Christ.md|Personal Strength through the Atonement of Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2013, 83).
+[^28]: See [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]]. While God promises to freely forgive, willfully sinning and counting on the Savior’s mercy to allow easy repentance is abhorrent to God (see [[Hebrews 6.4|Hebrews 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]]; [[Hebrews 10.26|10:26–27]][[Hebrews 10.27|]]). Elder Richard G. Scott said: “The joyful news for anyone who desires to be rid of the consequences of past poor choices is that the Lord sees weaknesses differently than He does rebellion. Whereas the Lord warns that unrepented rebellion will bring punishment, when the Lord speaks of weaknesses, it is always with mercy” (“[[2013 October - Personal Strength through the Atonement of Jesus Christ.md|Personal Strength through the Atonement of Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2013, 83).
 
-
-
-
-
-#Atonement #Jesus_Christ #Joy #Repentance

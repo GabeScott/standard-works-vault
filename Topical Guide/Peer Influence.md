@@ -1,11 +1,10 @@
 # Peer Influence
 
-
 *See also* [[Motivations.md|Motivations]]; [[Objectives.md|Objectives]]
 
 Thou shalt not *follow* a multitude to do evil, [[Exodus 23.2|Exodus 23:2]].
 
-If thy brother ... or thy friend ... *entice* thee, [[Deuteronomy 13.6|Deuteronomy 13:6]].
+If thy brother … or thy friend … *entice* thee, [[Deuteronomy 13.6|Deuteronomy 13:6]].
 
 I *feared* the people, and obeyed their voice, [[1 Samuel 15.24|1 Samuel 15:24]].
 
@@ -33,11 +32,11 @@ he *led* many of the people to do after the manner of his iniquities, [[Mosiah 2
 
 Command thy children to do good, lest they *lead* away the hearts, [[Alma 39.12|Alma 39:12]].
 
-dissenters ... drinking in with the *traditions* of the Lamanites, [[Alma 47.36|Alma 47:36]].
+dissenters … drinking in with the *traditions* of the Lamanites, [[Alma 47.36|Alma 47:36]].
 
 they have *led* away the hearts of many people, [[Alma 61.4|Alma 61:4]].
 
-it is to ... be *praised* of men, [[Helaman 7.21|Helaman 7:21]].
+it is to … be *praised* of men, [[Helaman 7.21|Helaman 7:21]].
 
 if a man shall come *among* you and shall say: Do this, [[Helaman 13.27|Helaman 13:27]].
 
@@ -49,8 +48,6 @@ the man in whom you have *trusted* has sought to destroy you, [[D&C 10.6|D&C 10:
 
 you have *feared* man and have not relied on me, [[D&C 30.1|D&C 30:1]].
 
-hide the talent ... because of the *fear* of man, [[D&C 60.2|D&C 60:2]].
+hide the talent … because of the *fear* of man, [[D&C 60.2|D&C 60:2]].
 
 *fear* not what man can do, for God shall be with you, [[D&C 122.9|D&C 122:9]].
-
-*See also* [[Matthew 14.9|Matthew 14:9]].

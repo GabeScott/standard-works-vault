@@ -1,5 +1,7 @@
 # Our Commission to Take the Gospel to All the World
 
+Gordon B. Hinckley
+
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -123,8 +125,3 @@ God bless, my brothers, that we may respond to this great need. It *is* the Lord
 
 
 
-
-
-
-
-#Missionary_Work

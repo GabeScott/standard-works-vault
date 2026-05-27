@@ -1,6 +1,5 @@
 # Prepare
 
-
 *See also* [[Preparation.md|Preparation]]; [[Preparatory.md|Preparatory]]
 
 my God, and I will *prepare* him an habitation, [[Exodus 15.2|Exodus 15:2]].
@@ -15,7 +14,7 @@ thou wilt *prepare* their heart, [[Psalms 10.17|Psalms 10:17]].
 
 Thou *preparest* a table before me in the presence of mine enemies, [[Psalms 23.5|Psalms 23:5]].
 
-*Prepare* ye the way of the Lord, [[Isaiah 40.3|Isaiah 40:3]] ([[Matthew 3.3|Matthew 3:3]]; [[Mark 1.3|Mark 1:3]]; [[Luke 3.4|Luke 3:4]]; [[1 Nephi 10.8|1 Nephi 10:8]]; [[Alma 7.9|Alma 7:9]]; [[D&C 45.9|D&C 45:9]]; [[D&C 65.1|D&C 65:1]], [[D&C 65.3|D&C 65:3]]).
+*Prepare* ye the way of the Lord, [[Isaiah 40.3|Isaiah 40:3]] ([[Matthew 3.3|Matthew 3:3]]; [[Mark 1.3|Mark 1:3]]; [[Luke 3.4|Luke 3:4]]; [[1 Nephi 10.8|1 Nephi 10:8]]; [[Alma 7.9|Alma 7:9]]; [[D&C 45.9|D&C 45:9]]; [[D&C 65.1|D&C 65:1]]; [[D&C 65.3|D&C 65:3]]).
 
 *prepare* the way, take up the stumblingblock, [[Isaiah 57.14|Isaiah 57:14]].
 
@@ -41,19 +40,19 @@ make ready a people *prepared* for the Lord, [[Luke 1.17|Luke 1:17]].
 
 go before the face of the Lord to *prepare* his ways, [[Luke 1.76|Luke 1:76]].
 
-servant ... *prepared* not himself ... shall be beaten with many stripes, [[Luke 12.47|Luke 12:47]].
+servant … *prepared* not himself … shall be beaten with many stripes, [[Luke 12.47|Luke 12:47]].
 
 I go to *prepare* a place for you, [[John 14.2|John 14:2]].
 
 vessels of mercy, which he had afore *prepared*, [[Romans 9.23|Romans 9:23]].
 
-Eye hath not seen ... things which God hath *prepared* for them that love him, [[1 Corinthians 2.9|1 Corinthians 2:9]].
+Eye hath not seen … things which God hath *prepared* for them that love him, [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 uncertain sound, who shall *prepare* himself to the battle, [[1 Corinthians 14.8|1 Corinthians 14:8]].
 
 a body hast thou *prepared* me, [[Hebrews 10.5|Hebrews 10:5]].
 
-Noah ... *prepared* an ark to the saving of his house, [[Hebrews 11.7|Hebrews 11:7]].
+Noah … *prepared* an ark to the saving of his house, [[Hebrews 11.7|Hebrews 11:7]].
 
 he hath *prepared* for them a city, [[Hebrews 11.16|Hebrews 11:16]].
 
@@ -63,17 +62,17 @@ way is *prepared* for all men, [[1 Nephi 10.18|1 Nephi 10:18]].
 
 Lord will surely *prepare* a way for his people, [[1 Nephi 22.20|1 Nephi 22:20]].
 
-labor ... that we may *prepare* the way, [[Jacob 5.61|Jacob 5:61]].
+labor … that we may *prepare* the way, [[Jacob 5.61|Jacob 5:61]].
 
 atonement which has been *prepared* from the foundation of the world, [[Mosiah 4.6|Mosiah 4:6]].
 
-stripped of pride ... if ye are not ye are not *prepared* to meet God, [[Alma 5.28|Alma 5:28]].
+stripped of pride … if ye are not ye are not *prepared* to meet God, [[Alma 5.28|Alma 5:28]].
 
-life ... a time to *prepare* to meet God, [[Alma 12.24|Alma 12:24]] ([[Alma 34.32|Alma 34:32]]).
+life … a time to *prepare* to meet God, [[Alma 12.24|Alma 12:24]] ([[Alma 34.32|Alma 34:32]]).
 
 this holy calling being *prepared* from the foundation of the world, [[Alma 13.5|Alma 13:5]].
 
-pour out his Spirit ... to *prepare* the minds of the children of men, [[Alma 16.16|Alma 16:16]].
+pour out his Spirit … to *prepare* the minds of the children of men, [[Alma 16.16|Alma 16:16]].
 
 spoken somewhat unto you to *prepare* your minds, [[Alma 34.3|Alma 34:3]].
 
@@ -85,7 +84,7 @@ he who was *prepared* from the foundation of the world, [[Ether 3.14|Ether 3:14]
 
 *prepare* ye for that which is to come, [[D&C 1.12|D&C 1:12]].
 
-*prepare* their hearts ... in all things, [[D&C 29.8|D&C 29:8]].
+*prepare* their hearts … in all things, [[D&C 29.8|D&C 29:8]].
 
 *preparing* the way of the Lord for his second coming, [[D&C 34.6|D&C 34:6]] ([[D&C 77.12|D&C 77:12]]).
 

@@ -1,6 +1,8 @@
 # We Are His Children
 
-By Elder Christophe G. Giraud-Carrier - *Of the Seventy*
+David A. Bednar
+
+By Elder Christophe G. Giraud-Carrier - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -18,7 +20,7 @@ When the scribes and the Pharisees saw the woman taken in adultery, what did the
 
 In every case, the Lord saw these individuals for who they were and accordingly ministered to each one. As Nephi and his brother Jacob declared:
 
-“He inviteth them all to come unto him … , black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God.”[^3]
+“He inviteth them all to come unto him … , black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God.”[^3]
 
 “The one being is as precious in his sight as the other.”[^4]
 
@@ -30,7 +32,7 @@ Some time later, this good sister had surgery on her feet, which required her ba
 
 Over the years, I and countless others have been blessed by Isabelle’s gift to see as the Lord sees. Whether you are the stake president or the ward greeter, whether you are the king of England or live in a shack, whether you speak her language or a different one, whether you keep all the commandments or struggle with some, she will serve you her very best meal on her very best plates. Economic status, skin color, cultural background, nationality, degree of righteousness, social standing, or any other identifier or label is of no consequence to her. She sees with her heart; she sees the child of God in everyone.
 
-President Russell M. Nelson has taught:
+President Russell M. Nelson has taught:
 
 “The adversary rejoices in labels because they divide us and restrict the way we think about ourselves and each other. How sad it is when we honor labels more than we honor each other.
 
@@ -42,11 +44,11 @@ French is not who I am; it is where I was born. White is not who I am; it is the
 
 We may have been raised in different cultures; we may come from different socioeconomic circumstances; our mortal heritage, including our nationality, skin color, food preferences, political orientation, etc., may vary greatly. But we are His children, all of us, without exception. We have the same divine origin and the same limitless potential through the grace of Jesus Christ.
 
-C. S. Lewis put it this way: “It is a serious thing to live in a society of possible gods and goddesses, to remember that the dullest most uninteresting person you can talk to may one day be a creature which, if you saw it now, you would be strongly tempted to worship. … There are no *ordinary* people. You have never talked to a mere mortal. Nations, cultures, arts, civilization—these are mortal, and their life is to ours as the life of a gnat. But it is immortals whom we joke with, work with, marry, snub, and exploit.”[^7]
+C. S. Lewis put it this way: “It is a serious thing to live in a society of possible gods and goddesses, to remember that the dullest most uninteresting person you can talk to may one day be a creature which, if you saw it now, you would be strongly tempted to worship. … There are no *ordinary* people. You have never talked to a mere mortal. Nations, cultures, arts, civilization—these are mortal, and their life is to ours as the life of a gnat. But it is immortals whom we joke with, work with, marry, snub, and exploit.”[^7]
 
 Our family has been privileged to live in different countries and cultures; our children have been blessed to marry within different ethnicities. I have come to realize that the gospel of Jesus Christ is the great equalizer. As we truly embrace it, “the Spirit itself beareth witness with our spirit, that we are the children of God.”[^8] This amazing truth frees us, and all labels and distinctions that may otherwise afflict us and our relationships to each other are simply “swallowed up in … Christ.”[^9] It soon becomes clear that we, as well as others, “are no more strangers and foreigners, but fellowcitizens with the saints, and of the household of God.”[^10] 
 
-I recently heard the branch president of one of our multicultural language units refer to this, as Elder Gerrit W. Gong has done, as *covenant belonging*.[^11] What a beautiful concept! We belong to a group of people who all try to place the Savior and their covenants at the center of their lives and to live the gospel joyfully. Hence, rather than our seeing each other through the distorted lens of mortality, the gospel raises our sights and allows us to see each other through the flawless, unchanging lens of our sacred covenants. In so doing, we begin to eliminate our own natural prejudices and biases toward others, which in turn helps them minimize their prejudices and biases toward us,[^12] in a wonderful virtuous cycle. Indeed, we follow our dear prophet’s invitation: “My dear brothers and sisters, how we treat each other really matters! How we speak to and about others at home, at church, at work, and online really matters. Today, I am asking us to interact with others in a higher, holier way.”[^13] 
+I recently heard the branch president of one of our multicultural language units refer to this, as Elder Gerrit W. Gong has done, as *covenant belonging*.[^11] What a beautiful concept! We belong to a group of people who all try to place the Savior and their covenants at the center of their lives and to live the gospel joyfully. Hence, rather than our seeing each other through the distorted lens of mortality, the gospel raises our sights and allows us to see each other through the flawless, unchanging lens of our sacred covenants. In so doing, we begin to eliminate our own natural prejudices and biases toward others, which in turn helps them minimize their prejudices and biases toward us,[^12] in a wonderful virtuous cycle. Indeed, we follow our dear prophet’s invitation: “My dear brothers and sisters, how we treat each other really matters! How we speak to and about others at home, at church, at work, and online really matters. Today, I am asking us to interact with others in a higher, holier way.”[^13] 
 
 This afternoon, in the spirit of that invitation, I wish to add my pledge to that of our wonderful Primary children:
 
@@ -67,19 +69,19 @@ I testify that He whom we address as our Father in Heaven is indeed our Father, 
 
 
 
-[^1]: [[1 Samuel 16.7|1 Samuel 16:7]].
+[^1]: [[1 Samuel 16.7|1 Samuel 16:7]].
 
 [^2]: [[Acts 9.15|Acts 9:15]].
 
-[^3]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^3]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^4]: [[Jacob 2.21|Jacob 2:21]].
 
-[^5]: Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p45-p46#p45)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
+[^5]: Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p45-p46#p45)” (worldwide devotional for young adults, May 15, 2022), Gospel Library.
 
-[^6]: Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p37#p37).”
+[^6]: Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p37#p37).”
 
-[^7]: C. S. Lewis, *The Weight of Glory and Other Addresses* (1949), 14–15.
+[^7]: C. S. Lewis, *The Weight of Glory and Other Addresses* (1949), 14–15.
 
 [^8]: [[Romans 8.16|Romans 8:16]].
 
@@ -87,16 +89,11 @@ I testify that He whom we address as our Father in Heaven is indeed our Father, 
 
 [^10]: [[Ephesians 2.19|Ephesians 2:19]].
 
-[^11]: See Gerrit W. Gong, “[[2019 October - Covenant Belonging.md|Covenant Belonging]],“ *Ensign* or *Liahona*, Nov. 2019, 80–83.
+[^11]: See Gerrit W. Gong, “[[2019 October - Covenant Belonging.md|Covenant Belonging]],“ *Ensign* or *Liahona*, Nov. 2019, 80–83.
 
-[^12]: See Dale G. and Ruth L. Renlund, *The Melchizedek Priesthood: Understanding the Doctrine, Living the Principles* (2018), 112.
+[^12]: See Dale G. and Ruth L. Renlund, *The Melchizedek Priesthood: Understanding the Doctrine, Living the Principles* (2018), 112.
 
-[^13]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],“ *Liahona*, May 2023, 99.
+[^13]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],“ *Liahona*, May 2023, 99.
 
-[^14]: “[I’ll Walk with You](https://churchofjesuschrist.org/study/manual/childrens-songbook/ill-walk-with-you?lang=eng),” *Children’s Songbook*, 140–41.
+[^14]: “[I’ll Walk with You](https://www.churchofjesuschrist.org/study/manual/childrens-songbook/ill-walk-with-you?lang=eng),” *Children’s Songbook*, 140–41.
 
-
-
-
-
-#Belonging #Divine_Nature #Love #Ministering #Perspective #Prejudice

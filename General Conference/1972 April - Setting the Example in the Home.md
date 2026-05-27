@@ -1,6 +1,8 @@
 # Setting the Example in the Home
 
-By Bishop H. Burke Peterson - *Of the Presiding Bishopric*
+Wilford G. Edling
+
+By Bishop H. Burke Peterson - *Of the Presiding Bishopric*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -39,8 +41,3 @@ I know these things are true, and I testify of them in the name of Jesus Christ.
 
 
 
-
-
-
-
-#Example #Home #Parents #Service

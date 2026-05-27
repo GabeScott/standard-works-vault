@@ -1,5 +1,7 @@
 # Nurturing Marriage
 
+Robert D. Hales
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -64,7 +66,21 @@ President Harold B. Lee said “that the most important of the Lord’s work you
 
 When you as husband and wife recognize the divine design in your union—when you feel deeply that God has brought you to each other—your vision will be expanded and your understanding enhanced. Such feelings are expressed in words of a song that has long been a favorite of mine:
 
-Because you come to me with naught save love,And hold my hand and lift mine eyes above,A wider world of hope and joy I see,Because you come to me.Because you speak to me in accents sweet,I find the roses waking round my feet,And I am led through tears and joy to thee,Because you speak to me.Because God made thee mine, I’ll cherish theeThrough light and darkness, through all time to be,And pray His love may make our love divine,Because God made thee mine.[^20]
+>Because you come to me with naught save love,
+>And hold my hand and lift mine eyes above,
+>A wider world of hope and joy I see,
+>Because you come to me.
+>
+>Because you speak to me in accents sweet,
+>I find the roses waking round my feet,
+>And I am led through tears and joy to thee,
+>Because you speak to me.
+>
+>Because God made thee mine, I’ll cherish thee
+>Through light and darkness, through all time to be,
+>And pray His love may make our love divine,
+>Because God made thee mine.[^20]
+>
 
 That each marriage may be so nurtured is my prayer, in the name of Jesus Christ, amen.
 
@@ -81,7 +97,7 @@ That each marriage may be so nurtured is my prayer, in the name of Jesus Christ,
 
 [^5]: [[Matthew 19.5|Matthew 19:5]]; see also [[Mark 10.7|Mark 10:7–8]][[Mark 10.8|]].
 
-[^6]: [[1 Corinthians 11.11|1 Corinthians 11:11]].
+[^6]: [[1 Corinthians 11.11|1 Corinthians 11:11]].
 
 [^7]: See [[D&C 132.19|D&C 132:19]].
 
@@ -97,13 +113,13 @@ That each marriage may be so nurtured is my prayer, in the name of Jesus Christ,
 
 [^13]: See [[Alma 41.10|Alma 41:10]].
 
-[^14]: [[D&C 38.42|D&C 38:42]]; see also [[Isaiah 52.11|Isaiah 52:11]]; [[3 Nephi 20.41|3 Nephi 20:41]]; [[D&C 133.5|D&C 133:5]].
+[^14]: [[D&C 38.42|D&C 38:42]]; see also [[Isaiah 52.11|Isaiah 52:11]]; [[3 Nephi 20.41|3 Nephi 20:41]]; [[D&C 133.5|D&C 133:5]].
 
 [^15]: See [[D&C 128.15|D&C 128:15–18]][[D&C 128.16|]][[D&C 128.17|]][[D&C 128.18|]].
 
 [^16]: See [[D&C 23.3|D&C 23:3]].
 
-[^17]: [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]] (see [[Matthew 6.note33a|Matthew 6:33, footnote a]]).
+[^17]: [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]] (see [Matthew 6:33, footnote a](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a)).
 
 [^18]: *Stand Ye in Holy Places* (1974), 255.
 
@@ -111,8 +127,3 @@ That each marriage may be so nurtured is my prayer, in the name of Jesus Christ,
 
 [^20]: “Because,” words by Edward Teschemacher (1902).
 
-
-
-
-
-#Communication #Family #Marriage #Temples

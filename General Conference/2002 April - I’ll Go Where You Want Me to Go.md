@@ -1,5 +1,7 @@
 # I’ll Go Where You Want Me to Go
 
+Gordon B. Hinckley
+
 By Elder William R. Walker - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -17,8 +19,3 @@ I love the Lord. I love this Church. I love the wonderful, faithful Saints throu
 
 
 
-
-
-
-
-#Commitment #Testimony

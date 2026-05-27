@@ -1,6 +1,5 @@
 # Quickly
 
-
 turned aside *quickly* out of the way, [[Exodus 32.8|Exodus 32:8]] ([[Deuteronomy 9.12|Deuteronomy 9:12]]; [[Judges 2.17|Judges 2:17]]).
 
 Agree with thine adversary *quickly*, [[Matthew 5.25|Matthew 5:25]] ([[3 Nephi 12.25|3 Nephi 12:25]]).

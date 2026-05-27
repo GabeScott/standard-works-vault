@@ -1,6 +1,8 @@
 # To My Grandchildren
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -68,7 +70,7 @@ We know that Heavenly Father has spirit children in this world who sometimes cho
 
 Life in families will test us. That is one of God’s purposes in giving us the gift of mortality—to strengthen us by passing through tests. That will be especially true in family life, where we will find great joy and great sorrow and challenges which may at times seem beyond our power to endure them.
 
-President George Q. Cannon said this about how God has prepared you and me and our children for the tests we will face: “There is not one of us but what God’s love has been expended upon. There is not one of us that He has not cared for and caressed. There is not one of us that He has not desired to save, and that He has not devised means to save. There is not one of us that He has not given His angels charge concerning. We may be insignificant and contemptible in our own eyes, and in the eyes of others, but the truth remains that we are the children of God, and that He has actually given His angels—invisible beings of power and might—charge concerning us, and they watch over us and have us in their keeping.”[^2]
+President George Q. Cannon said this about how God has prepared you and me and our children for the tests we will face: “There is not one of us but what God’s love has been expended upon. There is not one of us that He has not cared for and caressed. There is not one of us that He has not desired to save, and that He has not devised means to save. There is not one of us that He has not given His angels charge concerning. We may be insignificant and contemptible in our own eyes, and in the eyes of others, but the truth remains that we are the children of God, and that He has actually given His angels—invisible beings of power and might—charge concerning us, and they watch over us and have us in their keeping.”[^2]
 
 What President Cannon taught is true. You will need that assurance, as I have needed it and depended on it.
 
@@ -97,12 +99,7 @@ With the help of the Holy Ghost, all truths will be brought to our remembrance. 
 
 [^1]: [[Matthew 22.35|Matthew 22:35–40]][[Matthew 22.36|]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-[^2]: George Q. Cannon, “Our Pre-existence and Present Probation,” *Contributor,* Oct. 1890, 476.
+[^2]: George Q. Cannon, “Our Pre-existence and Present Probation,” *Contributor,* Oct. 1890, 476.
 
 [^3]: [[Alma 42.13|Alma 42:13]].
 
-
-
-
-
-#Atonement #Church_Callings #Family #Joy #Obedience

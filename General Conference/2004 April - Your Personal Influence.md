@@ -1,5 +1,7 @@
 # Your Personal Influence
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -131,13 +133,11 @@ As His witness, I testify to you that He lives! In His holy name—even Jesus Ch
 
 [^3]: First Presidency letter, Feb. 11, 1999; quoted in *Liahona,* Dec. 1999, 1; *Ensign,* June 1999, 80.
 
-[^4]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^4]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^5]: [[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]].
 
-[^6]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
+[^6]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
+[^7]: [[D&C 110.4|D&C 110:4]].
 
-
-
-#Activation #Home #Jesus_Christ #Leadership #Responsibility

@@ -1,7 +1,6 @@
 # Acceptable
 
-
-hath a blemish ... shall not be *acceptable*, [[Leviticus 22.20|Leviticus 22:20]].
+hath a blemish … shall not be *acceptable*, [[Leviticus 22.20|Leviticus 22:20]].
 
 meditation of my heart, be *acceptable* in thy sight, [[Psalms 19.14|Psalms 19:14]].
 

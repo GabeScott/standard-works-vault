@@ -1,6 +1,5 @@
 # Ancient
 
-
 *See also* [[Old.md|Old]]; [[Old Age.md|Old Age]]
 
 *ancient* men, that had seen the first house, [[Ezra 3.12|Ezra 3:12]].

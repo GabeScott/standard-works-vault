@@ -1,6 +1,5 @@
 # Penny, Pence
 
-
 one of his fellowservants, which owed him an hundred *pence*, [[Matthew 18.28|Matthew 18:28]].
 
 agreed with the labourers for a *penny* a day, [[Matthew 20.2|Matthew 20:2]].

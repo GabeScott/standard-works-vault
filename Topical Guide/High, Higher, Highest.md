@@ -1,7 +1,6 @@
 # High, Higher, Highest
 
-
-*See also* [BD High places](https://www.churchofjesuschrist.org/study/scriptures/bd/high-places?lang=eng)
+*See also* [[BD High places.md|BD High places]]
 
 children of Israel went out with an *high* hand, [[Exodus 14.8|Exodus 14:8]].
 
@@ -77,7 +76,7 @@ against spiritual wickedness in *high* places, [[Ephesians 6.12|Ephesians 6:12]]
 
 for the prize of the *high* calling of God, [[Philippians 3.14|Philippians 3:14]].
 
-such an high priest ... made *higher* than the heavens, [[Hebrews 7.26|Hebrews 7:26]].
+such an high priest … made *higher* than the heavens, [[Hebrews 7.26|Hebrews 7:26]].
 
 Hosanna to the Lord, the most *high* God, [[1 Nephi 11.6|1 Nephi 11:6]].
 
@@ -93,7 +92,7 @@ they shall be servants of the Most *High*, [[D&C 76.112|D&C 76:112]].
 
 Presidency of the *High* Priesthood, [[D&C 81.2|D&C 81:2]] ([[D&C 107.9|D&C 107:9]]).
 
-organize the *high* council of the church, [[D&C 102.1|D&C 102:1]] ([[D&C 102.1|102:1-30]][[D&C 102.2|]][[D&C 102.3|]][[D&C 102.4|]][[D&C 102.5|]][[D&C 102.6|]][[D&C 102.7|]][[D&C 102.8|]][[D&C 102.9|]][[D&C 102.10|]][[D&C 102.11|]][[D&C 102.12|]][[D&C 102.13|]][[D&C 102.14|]][[D&C 102.15|]][[D&C 102.16|]][[D&C 102.17|]][[D&C 102.18|]][[D&C 102.19|]][[D&C 102.20|]][[D&C 102.21|]][[D&C 102.22|]][[D&C 102.23|]][[D&C 102.24|]][[D&C 102.25|]][[D&C 102.26|]][[D&C 102.27|]][[D&C 102.28|]][[D&C 102.29|]][[D&C 102.30|]]).
+organize the *high* council of the church, [[D&C 102.1|D&C 102:1]].
 
 things pertaining to a *higher* order of kingdoms, [[D&C 130.10|D&C 130:10]].
 

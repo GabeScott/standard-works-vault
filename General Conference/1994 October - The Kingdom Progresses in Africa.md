@@ -1,5 +1,7 @@
 # The Kingdom Progresses in Africa
 
+Gordon B. Hinckley
+
 By Elder James O. Mason - *Of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -18,7 +20,7 @@ We sang with conviction the opening hymn of the conference:
 >Go forth with hope and courage strong
 >To spread the word abroad
 >That people of all nations
->Are children of our God. …
+>Are children of our God. …
 >
 >Go forth with pow’r to tell the world
 >The gospel is restored,
@@ -36,7 +38,7 @@ Missionary work is concentrated geographically around existing chapels. Building
 
 Nearly half of the 960 full-time missionaries serving in Africa are Africans, and the number is growing. Retired couples from the United States and Canada play a significant role. Unselfishly leaving behind home, children, and grandchildren, these devoted couples are ministering angels to grateful, loving people. Finding, testifying, baptizing, and, above all else, loving are duties eagerly assumed by the missionary couples who truly comprehend what retirement can be. These couples also provide deeply appreciated gifts of literacy, better health, and humanitarian service to members and nonmembers.
 
-Rich and eternal are the rewards as these couples nourish and carry “in their arms, and … upon their shoulders” the truth-seeking people they are called to bless (see [[1 Nephi 21.22|1 Ne. 21:22]]). Sacrifice may be required—discipleship is not always easy—but life is never the same for a couple who have tasted the sweetness and joy of missionary service. Otherwise, why do so many return for second and even third missions? More couples are urgently needed in Africa and elsewhere. My brothers and sisters who are retired or approaching retirement, please prayerfully consider the rich blessings that flow from missionary service. If you should “bring, save it be one soul unto me, how great shall be your joy … in the kingdom of my Father” ([[D&C 18.15|D&C 18:15]]).
+Rich and eternal are the rewards as these couples nourish and carry “in their arms, and … upon their shoulders” the truth-seeking people they are called to bless (see [[1 Nephi 21.22|1 Ne. 21:22]]). Sacrifice may be required—discipleship is not always easy—but life is never the same for a couple who have tasted the sweetness and joy of missionary service. Otherwise, why do so many return for second and even third missions? More couples are urgently needed in Africa and elsewhere. My brothers and sisters who are retired or approaching retirement, please prayerfully consider the rich blessings that flow from missionary service. If you should “bring, save it be one soul unto me, how great shall be your joy … in the kingdom of my Father” ([[D&C 18.15|D&C 18:15]]).
 
 When the Church was still in its infancy, the Prophet Joseph Smith stated: “Our missionaries are going forth to different nations; … the Standard of Truth has been erected; no unhallowed hand can stop the work from progressing; … but the truth of God will go forth boldly, nobly, and independent, till it has penetrated every continent, visited every clime, swept every country, and sounded in every ear, till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done” (*History of the Church,* 4:540).
 
@@ -47,8 +49,3 @@ Brothers and sisters, I know that my Redeemer lives and is the Savior of the wor
 
 
 
-
-
-
-
-#Church_Growth #Couple_Missionaries #Missionary_Work

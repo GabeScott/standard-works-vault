@@ -1,5 +1,7 @@
 # Missionary Service
 
+Gordon B. Hinckley
+
 By Elder Earl C. Tingey - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1998 General Conference*
@@ -12,7 +14,7 @@ Tonight I speak to all young men of the Aaronic Priesthood preparing to serve mi
 
 Several months ago I visited Far West, Missouri. At one time it was the home and place of refuge for three to four thousand members of the Church. Today the homes are gone and only fields of grass remain. In July 1838 the Prophet Joseph Smith received a revelation that the Twelve were to depart Far West on April 26, 1839, to commence missionary work in Great Britain.[^1]
 
-In the *Discourses of Wilford Woodruff,* we read: “When that revelation was given, all was peace and quietude, comparatively, in that land. But when the time came for the twelve apostles to fulfil that revelation, the Saints had all been driven out. …
+In the *Discourses of Wilford Woodruff,* we read: “When that revelation was given, all was peace and quietude, comparatively, in that land. But when the time came for the twelve apostles to fulfil that revelation, the Saints had all been driven out. …
 
 “President Young asked the twelve who were with him—‘What shall we do with regard to the fulfilment of this revelation?’”[^2] Some of the Brethren said that the Lord would accept the intent of the Twelve and that the Lord would not require their lives to fulfill the revelation.
 
@@ -91,8 +93,3 @@ I bear witness of this great privilege we all have in the Church—to be mission
 
 [^8]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 328.
 
-
-
-
-
-#Jesus_Christ #Missionary_Work #Priesthood

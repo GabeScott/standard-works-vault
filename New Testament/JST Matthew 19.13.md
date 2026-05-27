@@ -4,6 +4,3 @@
 
 [JST Matthew 19:13](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/19?lang=eng)
 
-
-
-

@@ -1,6 +1,8 @@
 # Our Campfire of Faith
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,19 +10,19 @@ By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/our-campfire-of-faith?lang=eng)
 
-Dear brothers and sisters, isn’t it marvelous to receive continuing revelation from heaven through President Russell M. Nelson and our Church leaders that invites us to live in new and holier ways,[^1] at home and at church, with all our heart, mind, and strength?
+Dear brothers and sisters, isn’t it marvelous to receive continuing revelation from heaven through President Russell M. Nelson and our Church leaders that invites us to live in new and holier ways,[^1] at home and at church, with all our heart, mind, and strength?
 
 Have you ever had opportunity to do something for which you felt unprepared or inadequate but that you were blessed for trying?
 
 I have. Here’s one example.
 
-Some years ago, Elder Richard G. Scott, a member of the Quorum of the Twelve Apostles, kindly invited, “Gerrit, would you like to watercolor with me?”
+Some years ago, Elder Richard G. Scott, a member of the Quorum of the Twelve Apostles, kindly invited, “Gerrit, would you like to watercolor with me?”
 
 Elder Scott said painting helped him observe and create. He has written: “Attempt to be creative, even if the results are modest. … Creativity can engender a spirit of gratitude for life and for what the Lord has woven into your being. … If you choose wisely, it doesn’t have to absorb a lot of time.”[^2]
 
-President Henry B. Eyring describes his artistic meditations as motivated by “a feeling of love,” including “the love of a Creator who expects His children to become like Him—to create and to build.”[^3] President Eyring’s creative works provide a “unique, spiritual perspective on testimony and faith.”[^4]
+President Henry B. Eyring describes his artistic meditations as motivated by “a feeling of love,” including “the love of a Creator who expects His children to become like Him—to create and to build.”[^3] President Eyring’s creative works provide a “unique, spiritual perspective on testimony and faith.”[^4]
 
-President Boyd K. Packer’s artwork illustrates a fundamental gospel message: “God is the Creator of the heavens and the earth and all things that are in them, that all nature bears testimony of that divinely directed creation, and that there is \[a\] complete harmony between nature, science, and the gospel of Jesus Christ.”[^5]
+President Boyd K. Packer’s artwork illustrates a fundamental gospel message: “God is the Creator of the heavens and the earth and all things that are in them, that all nature bears testimony of that divinely directed creation, and that there is \[a\] complete harmony between nature, science, and the gospel of Jesus Christ.”[^5]
 
 Alma testifies, “All things denote there is a God.”[^6] Our Primary children sing, “Whenever I hear the song of a bird or look at the blue, blue sky, … I’m glad that I live in this beautiful world Heav’nly Father created for me.”[^7] Author Victor Hugo celebrates the “miraculous relationships between beings and things; in this inexhaustible whole, from sun to aphid. … All the birds that fly hold the thread of eternity in their claws. … A nebula is an anthill of stars.”[^8]
 
@@ -88,28 +90,28 @@ In various times and ways, we all feel inadequate, uncertain, perhaps unworthy. 
 
 With compassion, our Savior encourages and promises we can “press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men.”[^23] The doctrine of Christ, our Savior’s Atonement, and our whole-souled following of His covenant path can help us know His truths and make us free.[^24]
 
-I testify the fulness of His gospel and His plan of happiness are restored and taught in The Church of Jesus Christ of Latter-day Saints, in holy scripture, and by prophets from the Prophet Joseph Smith to President Russell M. Nelson today. I testify His covenant path leads to the greatest gift our loving Heavenly Father promises: “Ye shall have eternal life.”[^25]
+I testify the fulness of His gospel and His plan of happiness are restored and taught in The Church of Jesus Christ of Latter-day Saints, in holy scripture, and by prophets from the Prophet Joseph Smith to President Russell M. Nelson today. I testify His covenant path leads to the greatest gift our loving Heavenly Father promises: “Ye shall have eternal life.”[^25]
 
 May His blessings and enduring joy be ours as we warm our hearts and hopes and commitment at our campfire of faith, I pray in the sacred and holy name of Jesus Christ, amen.
 
 
 
 
-[^1]: See Russell M. Nelson, “[[2018 April - Ministering as the Savior Does.md|Ministering]],” *Ensign* or *Liahona,* May 2018, 100.
+[^1]: See Russell M. Nelson, “[[2018 April - Ministering.md|Ministering]],” *Ensign* or *Liahona,* May 2018, 100.
 
-[^2]: Richard G. Scott, *Finding Peace, Happiness, and Joy* (2007), 162–63; quoted in *Elder Richard G. Scott Art Exhibit: A Self-Guided Tour* (pamphlet, 2010).
+[^2]: Richard G. Scott, *Finding Peace, Happiness, and Joy* (2007), 162–63; quoted in *Elder Richard G. Scott Art Exhibit: A Self-Guided Tour* (pamphlet, 2010).
 
-[^3]: *A Visual Journal: Artwork of Henry B. Eyring* (booklet, 2017), 2.
+[^3]: *A Visual Journal: Artwork of Henry B. Eyring* (booklet, 2017), 2.
 
 [^4]: *A Visual Journal,* 28.
 
-[^5]: Boyd K. Packer, *The Earth Shall Teach Thee: The Lifework of an Amateur Artist* (2012), ix.
+[^5]: Boyd K. Packer, *The Earth Shall Teach Thee: The Lifework of an Amateur Artist* (2012), ix.
 
 [^6]: [[Alma 30.44|Alma 30:44]].
 
 [^7]: “My Heavenly Father Loves Me,” *Children’s Songbook,* 228–29.
 
-[^8]: Victor Hugo, *Les Misérables,* trans. Julie Rose (New York: Random House, 2008), 728.
+[^8]: Victor Hugo, *Les Misérables,* trans. Julie Rose (New York: Random House, 2008), 728.
 
 [^9]: See [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
@@ -139,14 +141,9 @@ May His blessings and enduring joy be ours as we warm our hearts and hopes and c
 
 [^22]: [[Moroni 10.32|Moroni 10:32]].
 
-[^23]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^23]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^24]: See [[John 8.32|John 8:32]].
 
-[^25]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^25]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-
-#Creativity #Faith #Grace #Jesus_Christ #Joy #Love #Ministering #Service

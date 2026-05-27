@@ -1,7 +1,6 @@
 # Proclaim
 
-
-*See also* [[Declare.md|Declare]]; [[Preaching, Preach.md|Preaching]]; [[Publish.md|Publish]]
+*See also* [[Declare.md|Declare]]; [[Preaching.md|Preaching]]; [[Publish.md|Publish]]
 
 I will *proclaim* the name of the Lord, [[Exodus 33.19|Exodus 33:19]].
 
@@ -13,13 +12,13 @@ Most men will *proclaim* every one his own goodness, [[Proverbs 20.6|Proverbs 20
 
 *proclaim* liberty to the captives, [[Isaiah 61.1|Isaiah 61:1]].
 
-Lord hath *proclaimed* ... thy salvation cometh, [[Isaiah 62.11|Isaiah 62:11]].
+Lord hath *proclaimed* … thy salvation cometh, [[Isaiah 62.11|Isaiah 62:11]].
 
 *proclaim* these words toward the north, [[Jeremiah 3.12|Jeremiah 3:12]].
 
 *Proclaim* ye this among the Gentiles, [[Joel 3.9|Joel 3:9]].
 
-spoken ... in closets shall be *proclaimed* upon the housetops, [[Luke 12.3|Luke 12:3]].
+spoken … in closets shall be *proclaimed* upon the housetops, [[Luke 12.3|Luke 12:3]].
 
 I saw a strong angel *proclaiming* with a loud voice, [[Revelation 5.2|Revelation 5:2]].
 

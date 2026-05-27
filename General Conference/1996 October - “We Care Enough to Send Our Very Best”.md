@@ -1,5 +1,7 @@
 # “We Care Enough to Send Our Very Best”
 
+Gordon B. Hinckley
+
 By Bishop Richard C. Edgley - *Of the Presiding Bishopric*
 
 *Given in the October session of the 1996 General Conference*
@@ -49,8 +51,3 @@ I add my solemn testimony to that of our missionaries, their parents, and millio
 
 [^1]: Hallmark Cards, Inc.
 
-
-
-
-
-#Love #Missionary_Work #Service

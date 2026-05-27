@@ -1,5 +1,7 @@
 # Mother Told Me
 
+Thomas S. Monson
+
 By Elder Bradley D. Foster - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -32,7 +34,7 @@ Brother Pearson beamed at his son. What an exceptional answer! “How did you kn
 
 Eric quickly responded, “Mother told me.”
 
-As President James E. Faust said: “There is no greater good in all the world than motherhood. The influence of a mother in the lives of her children is beyond calculation” (“Fathers, Mothers, Marriage,” *Liahona* and *Ensign,* Aug. 2004, 3).
+As President James E. Faust said: “There is no greater good in all the world than motherhood. The influence of a mother in the lives of her children is beyond calculation” (“Fathers, Mothers, Marriage,” *Liahona* and *Ensign,* Aug. 2004, 3).
 
 By divine design, nurturing seems to be part of the spiritual heritage given to women. I’ve seen it in my daughters, and now I see it in my granddaughters—even before they could walk, they wanted to carry and care for their little baby dolls.
 
@@ -48,16 +50,16 @@ As soon as we got the herd into the corral, we noticed that three of the cows we
 
 Sure enough, just as I had suspected, we found our lost calves taking a nap in the shade. Our approach startled them, and they resisted our efforts to round them up. They were frightened because we were *not* their mothers! The more we tried to push them toward the corral, the more stubborn they became. Finally I said to the cowboys, “I’m sorry. I know better than this. Let’s ride back and let their mothers out of the corral. The cows will come and get their calves, and the calves will follow their mothers.” I was right. The mother cows knew exactly where to go to find their calves, and they led them back to the corral, as I had expected.
 
-Brothers and sisters, in a world where everyone is granted agency, some of our loved ones may stray for a season. But we can never give up. We must always go back for them—we must never stop trying. Our prophet, President Thomas S. Monson, has issued a plea for us to go rescue those of our loved ones who may be lost (see, for example, Conference Report, Apr. 2003, 58–62; or *Ensign,* May 2003, 54–57). With the help of priesthood leaders, parents must continue to go back and find their lost ones, assuring them there will always be a “home” within the family and the Church, waiting for their return. We never know when a heart may be turned. We never know when a soul may be weary and worn out by the world. When that happens, it seems our children almost always turn first toward Mother, with emotions like those expressed in a poem by Elizabeth Akers Allen:
+Brothers and sisters, in a world where everyone is granted agency, some of our loved ones may stray for a season. But we can never give up. We must always go back for them—we must never stop trying. Our prophet, President Thomas S. Monson, has issued a plea for us to go rescue those of our loved ones who may be lost (see, for example, Conference Report, Apr. 2003, [[2003 April - Stand in Your Appointed Place.md|58–62]]; or *Ensign,* May 2003, 54–57). With the help of priesthood leaders, parents must continue to go back and find their lost ones, assuring them there will always be a “home” within the family and the Church, waiting for their return. We never know when a heart may be turned. We never know when a soul may be weary and worn out by the world. When that happens, it seems our children almost always turn first toward Mother, with emotions like those expressed in a poem by Elizabeth Akers Allen:
 
 >Backward, flow backward, O tide of the years!
->I am so weary of toil and of tears, …
+>I am so weary of toil and of tears, …
 >
 >Tired of the hollow, the base, the untrue,
->Mother, O mother, my heart calls for you! …
+>Mother, O mother, my heart calls for you! …
 >
 >Over my heart, in the days that are flown,
->No love like mother-love ever has shone; …
+>No love like mother-love ever has shone; …
 >
 >None like a mother can charm away pain
 >From the sick soul and the world-weary brain.
@@ -65,7 +67,7 @@ Brothers and sisters, in a world where everyone is granted agency, some of our l
 >Rock me to sleep, mother, rock me to sleep!
 >
 
-Perhaps the reason we respond so universally to our mothers’ love is because it typifies the love of our Savior. As President Joseph F. Smith said, “The love of a true mother comes nearer \[to\] being like the love of God than any other kind of love” (*Teachings of Presidents of the Church: Joseph F. Smith* \[1998\], 36).
+Perhaps the reason we respond so universally to our mothers’ love is because it typifies the love of our Savior. As President Joseph F. Smith said, “The love of a true mother comes nearer \[to\] being like the love of God than any other kind of love” (*Teachings of Presidents of the Church: Joseph F. Smith* \[1998\], 36).
 
 As in all things, the Savior set the perfect example in the love He showed for His earthly mother. In the final, most pivotal moment of His mortal life—after the anguish of Gethsemane, the mock trial, the crown of thorns, the heavy cross to which He was brutally nailed—Jesus looked down from the cross and saw His mother, Mary, who had come to be with her Son. His final act of love before He died was to ensure that His mother would be cared for, saying to His disciple, “Behold thy mother!” And from that point on the disciple took her unto his home. As the scriptures say, then Jesus knew that “all things were now accomplished,” and He bowed His head and died (see [[John 19.27|John 19:27–28, 30]][[John 19.28|]][[John 19.30|]]).
 
@@ -74,8 +76,3 @@ Today I stand before you to bear my witness that Jesus Christ is the very Savior
 
 
 
-
-
-
-
-#Jesus_Christ #Love #Motherhood #Teaching

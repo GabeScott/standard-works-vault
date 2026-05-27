@@ -1,4 +1,3 @@
 # Life, Mortal
 
-
-*See* [[Mortality.md|Mortality]]
+*See also* [[Mortality.md|Mortality]]

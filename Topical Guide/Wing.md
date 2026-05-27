@@ -1,9 +1,8 @@
 # Wing
 
-
 cherubims shall stretch forth their *wings*, [[Exodus 25.20|Exodus 25:20]].
 
-As an eagle ... spreadeth abroad her *wings*, [[Deuteronomy 32.11|Deuteronomy 32:11]].
+As an eagle … spreadeth abroad her *wings*, [[Deuteronomy 32.11|Deuteronomy 32:11]].
 
 God of Israel, under whose *wings* thou art come to trust, [[Ruth 2.12|Ruth 2:12]].
 
@@ -25,7 +24,7 @@ every one had four *wings*, [[Ezekiel 1.6|Ezekiel 1:6]].
 
 shall the Sun of righteousness arise with healing in his *wings*, [[Malachi 4.2|Malachi 4:2]] ([[3 Nephi 25.2|3 Nephi 25:2]]).
 
-as a hen gathereth her chickens under her *wings*, [[Matthew 23.37|Matthew 23:37]] ([[Luke 13.34|Luke 13:34]]; [[3 Nephi 10.4|3 Ne. 10:4-6]][[3 Nephi 10.5|]][[3 Nephi 10.6|]]; [[D&C 10.65|D&C 10:65]]; [[D&C 29.2|D&C 29:2]]; [[D&C 43.24|D&C 43:24]]).
+as a hen gathereth her chickens under her *wings*, [[Matthew 23.37|Matthew 23:37]] ([[Luke 13.34|Luke 13:34]]; [[D&C 10.65|D&C 10:65]]; [[D&C 29.2|D&C 29:2]]; [[D&C 43.24|D&C 43:24]]).
 
 four beasts had each of them six *wings*, [[Revelation 4.8|Revelation 4:8]] ([[D&C 77.4|D&C 77:4]]).
 
@@ -37,6 +36,6 @@ their *wings* are a representation of power, [[D&C 77.4|D&C 77:4]].
 
 earth rolls upon her *wings*, [[D&C 88.45|D&C 88:45]].
 
-I will bear him up as on eagles' *wings*, [[D&C 124.18|D&C 124:18]].
+I will bear him up as on eagles’ *wings*, [[D&C 124.18|D&C 124:18]].
 
-mount up in the imagination of his thoughts as upon eagles' *wings*, [[D&C 124.99|D&C 124:99]].
+mount up in the imagination of his thoughts as upon eagles’ *wings*, [[D&C 124.99|D&C 124:99]].

@@ -1,6 +1,5 @@
 # Peace of God
 
-
 *See also* [[Peace.md|Peace]]; [[Rest.md|Rest]]
 
 Lord lift up his countenance upon thee, and give thee *peace*, [[Numbers 6.26|Numbers 6:26]].
@@ -13,7 +12,7 @@ long life, and *peace*, shall they add to thee, [[Proverbs 3.2|Proverbs 3:2]].
 
 keep him in perfect *peace*, [[Isaiah 26.3|Isaiah 26:3]].
 
-beautiful ... are the feet of him ... that publisheth *peace*, [[Isaiah 52.7|Isaiah 52:7]] ([[Mosiah 12.21|Mosiah 12:21]]; [[Mosiah 27.37|Mosiah 27:37]]; [[3 Nephi 20.40|3 Nephi 20:40]]).
+beautiful … are the feet of him … that publisheth *peace*, [[Isaiah 52.7|Isaiah 52:7]] ([[Mosiah 12.21|Mosiah 12:21]]; [[Mosiah 27.37|Mosiah 27:37]]; [[3 Nephi 20.40|3 Nephi 20:40]]).
 
 way of *peace* they know not, [[Isaiah 59.8|Isaiah 59:8]] ([[Romans 3.17|Romans 3:17]]).
 
@@ -51,7 +50,7 @@ feet shod with the preparation of the gospel of *peace*, [[Ephesians 6.15|Ephesi
 
 let the *peace of God* rule in your hearts, [[Colossians 3.15|Colossians 3:15]].
 
-Follow *peace* ... without which no man shall see the Lord, [[Hebrews 12.14|Hebrews 12:14]].
+Follow *peace* … without which no man shall see the Lord, [[Hebrews 12.14|Hebrews 12:14]].
 
 wisdom that is from above is first pure, then *peaceable*, [[James 3.17|James 3:17]].
 
@@ -83,7 +82,7 @@ if ye have slept in *peace* blessed are you, [[D&C 45.46|D&C 45:46]].
 
 even *peace* in this world, and eternal life in the world to come, [[D&C 59.23|D&C 59:23]].
 
-he is full of mercy ... and *peace*, [[D&C 84.102|D&C 84:102]].
+he is full of mercy … and *peace*, [[D&C 84.102|D&C 84:102]].
 
 by the *peace* and power of my Spirit, [[D&C 111.8|D&C 111:8]].
 
@@ -92,5 +91,3 @@ by the *peace* and power of my Spirit, [[D&C 111.8|D&C 111:8]].
 among the righteous there was *peace*, [[D&C 138.22|D&C 138:22]].
 
 *peaceable* things of immortal glory, [[Moses 6.61|Moses 6:61]].
-
-*See also* [[Revelation 7.13|Rev. 7:13-17]][[Revelation 7.14|]][[Revelation 7.15|]][[Revelation 7.16|]][[Revelation 7.17|]]; [[Alma 41.10|Alma 41:10]].

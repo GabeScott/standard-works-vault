@@ -1,6 +1,6 @@
 # A Mighty Change of Heart: “I Have Nothing More to Give You”
 
-“I Have Nothing More to Give You”
+Russell M. Nelson
 
 By Elder Eduardo Gavarret - *Of the Seventy*
 
@@ -22,7 +22,7 @@ The ship capsized. One of the castaways struggling to survive wore a gold ring g
 
 When I read this story, it made a deep impression on me, and I thought of the request made by the Savior: “And ye shall offer for a sacrifice unto me a broken heart and a contrite spirit.”[^3]
 
-I also thought of the people’s reaction to King Benjamin’s words: “Yea, we believe all the words which thou hast spoken unto us … , which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually.”[^4]
+I also thought of the people’s reaction to King Benjamin’s words: “Yea, we believe all the words which thou hast spoken unto us … , which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually.”[^4]
 
 ## Personal Connection
 
@@ -74,7 +74,7 @@ Sunday came, and I woke up healthier than ever. I had no excuse—no escape.
 
 It was the first time I would teach a lesson, but Brother Espinoza was there by my side, and that was the day of a mighty change of heart for me.
 
-From that moment on, I began to keep the Sabbath day holy, and over time, in the words of President Russell M. Nelson, the Sabbath day has become a delight.[^6]
+From that moment on, I began to keep the Sabbath day holy, and over time, in the words of President Russell M. Nelson, the Sabbath day has become a delight.[^6]
 
 “Lord, I give You everything; I have nothing more to give You.”
 
@@ -104,8 +104,6 @@ How do we know that our heart is changing?[^10]
 
 When we listen carefully to our leaders’ advice and cheerfully decide to follow it, have we not experienced a mighty change of heart?
 
-“Lord, I give You everything; I have nothing more to give You.”
-
 ## Maintenance and Benefits
 
 How do we maintain the mighty change?
@@ -124,7 +122,7 @@ This change of heart is not an event; it takes faith, repentance, and constant s
 
 That individual action has a positive effect both on us and on the people around us.
 
-In the words of President Russell M. Nelson, “Imagine how quickly the devastating conflicts throughout the world—and those in our individual lives—would be resolved if we all chose to follow Jesus Christ and heed His teachings.”[^21] This action of following the Savior’s teachings leads to a mighty change of heart.
+In the words of President Russell M. Nelson, “Imagine how quickly the devastating conflicts throughout the world—and those in our individual lives—would be resolved if we all chose to follow Jesus Christ and heed His teachings.”[^21] This action of following the Savior’s teachings leads to a mighty change of heart.
 
 Dear brothers and sisters, young people, and children, as we participate in the conference this weekend, let the words of our prophets, which will come from the Lord, enter our hearts to experience a mighty change.
 
@@ -141,15 +139,15 @@ Just as the ring was recovered from that shipwreck, when we give our hearts to G
 
 [^2]: Ring in Ulster Museum, Belfast, Northern Ireland.
 
-[^3]: [[3 Nephi 9.20|3 Nephi 9:20]].
+[^3]: [[3 Nephi 9.20|3 Nephi 9:20]].
 
 [^4]: [[Mosiah 5.2|Mosiah 5:2]].
 
 [^5]: Félix Espinoza was a national champion of Basque *pelota*. He participated in local and worldwide championships. He passed away on March 5, 2022.
 
-[^6]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 129–32.
+[^6]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 129–32.
 
-[^7]: See [[2 Timothy 3.15|2 Timothy 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]].
+[^7]: See [[2 Timothy 3.15|2 Timothy 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]].
 
 [^8]: See [[Alma 17.3|Alma 17:3]].
 
@@ -161,11 +159,11 @@ Just as the ring was recovered from that shipwreck, when we give our hearts to G
 
 [^12]: See [[Leviticus 19.18|Leviticus 19:18]]; [[Matthew 22.39|Matthew 22:39]].
 
-[^13]: See *Preach My Gospel: A Guide to Missionary Service* (2019), chapter 6, “[How Do I Develop Christlike Attributes?](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng),” 121–32.
+[^13]: See *Preach My Gospel: A Guide to Missionary Service* (2019), chapter 6, “[How Do I Develop Christlike Attributes?](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng),” 121–32.
 
 [^14]: See [[D&C 11.12|Doctrine and Covenants 11:12–13]][[D&C 11.13|]].
 
-[^15]: See [[Proverbs 4.4|Proverbs 4:4]]; [[1 Timothy 1.5|1 Timothy 1:5]].
+[^15]: See [[Proverbs 4.4|Proverbs 4:4]]; [[1 Timothy 1.5|1 Timothy 1:5]].
 
 [^16]: See [[D&C 20.77|Doctrine and Covenants 20:77–79]][[D&C 20.78|]][[D&C 20.79|]].
 
@@ -175,16 +173,11 @@ Just as the ring was recovered from that shipwreck, when we give our hearts to G
 
 [^19]: See [[Ether 12.4|Ether 12:4]].
 
-[^20]: See [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
+[^20]: See [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
 
-[^21]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, Pure Revelation]],” *Liahona*, Nov. 2021, 6.
+[^21]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, Pure Revelation]],” *Liahona*, Nov. 2021, 6.
 
 [^22]: See [[Jeremiah 29.12|Jeremiah 29:12–13]][[Jeremiah 29.13|]]; [[Mosiah 18.10|Mosiah 18:10]]; [[D&C 20.37|Doctrine and Covenants 20:37]].
 
 [^23]: [[Mosiah 5.7|Mosiah 5:7]].
 
-
-
-
-
-#Conversion #Covenants #Sabbath

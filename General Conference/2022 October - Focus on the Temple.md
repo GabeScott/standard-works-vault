@@ -1,6 +1,8 @@
 # Focus on the Temple
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Dallin H. Oaks
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -10,7 +12,7 @@ By President Russell M. Nelson - *President of The Church of Jesus Christ of La
 
 Dear brothers and sisters, during these five magnificent sessions of general conference, we have once again experienced that the heavens are open! I pray that you have recorded your impressions and will follow through with them. Our Heavenly Father and His Beloved Son, Jesus Christ, stand ready to help you. I urge you to increase your efforts to seek Their help.
 
-Recently, Sister Nelson and I had the opportunity to preview the new season 4 of the ** series.[^1] We were inspired by them! May I show you a brief excerpt from the scene depicting the Savior’s appearance to the Nephites.
+Recently, Sister Nelson and I had the opportunity to preview the new season 4 of the *[Book of Mormon Videos](https://www.churchofjesuschrist.org/study/videos-and-images/book-of-mormon-videos?lang=eng)* series.[^1] We were inspired by them! May I show you a brief excerpt from the scene depicting the Savior’s appearance to the Nephites.
 
 It is significant that the Savior chose to appear to the people at the temple. It is His house. It is filled with His power. Let us never lose sight of what the Lord is doing for us now. He is making His temples more accessible. He is accelerating the pace at which we are building temples. He is increasing our ability to help gather Israel. He is also making it easier for each of us to become spiritually refined. I promise that increased time in the temple will bless your life in ways nothing else can.
 
@@ -25,10 +27,5 @@ My dear brothers and sisters, may you focus on the temple in ways you never have
 
 [^1]: These new videos will be available in many languages on Gospel Library and other channels. Episodes will be published on a weekly basis beginning today after conference.
 
-[^2]: As of October 1, 2022, four more temples are being renovated (St. George Utah, Manti Utah, Salt Lake, and Columbus Ohio), and three are awaiting dedication (Hamilton New Zealand, Quito Ecuador, and Belém Brazil).
+[^2]: As of October 1, 2022, four more temples are being renovated (St. George Utah, Manti Utah, Salt Lake, and Columbus Ohio), and three are awaiting dedication (Hamilton New Zealand, Quito Ecuador, and Belém Brazil).
 
-
-
-
-
-#Jesus_Christ #Temples

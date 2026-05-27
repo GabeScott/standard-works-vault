@@ -1,5 +1,7 @@
 # Faith and Good Works
 
+Thomas S. Monson
+
 By Elder Stephen D. Nadauld - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -16,7 +18,7 @@ Recently we moved and found ourselves in new surroundings. Several days later I 
 
 Life provides for each of us a full-length, wide-screen panorama of opportunities to run into ourselves. The eminent philosopher Pogo expressed it this way: “We have met the enemy, and he is us!” (Walt Kelly).
 
-In more eloquent terms, Moroni was told by the Lord: “And if men come unto me I will show unto them their weakness … ; for if they humble themselves before me, and have faith in me, then will I make weak things become strong unto them” ([[Ether 12.27|Ether 12:27]]).
+In more eloquent terms, Moroni was told by the Lord: “And if men come unto me I will show unto them their weakness … ; for if they humble themselves before me, and have faith in me, then will I make weak things become strong unto them” ([[Ether 12.27|Ether 12:27]]).
 
 As we look into the mirror at the accumulation of bumps and bruises that evidence our weaknesses, may we be reminded that there are two great stabilizing forces that can anchor our souls.
 
@@ -45,8 +47,3 @@ I add my witness to the many that have been borne from this pulpit: I know God l
 
 
 
-
-
-
-
-#Example #Faith #Service

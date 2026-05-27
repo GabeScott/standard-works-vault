@@ -1,6 +1,8 @@
 # The Strength of the Priesthood
 
-By President Harold B. Lee - *First Counselor in the First Presidency*
+Wilford G. Edling
+
+By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -50,15 +52,10 @@ Now finally, just one more thought. President Smith’s talk tonight has impress
 
 Now I want to impress this upon you. Someone has said it this way, and I believe it to be absolutely true: “That person is not truly converted until he sees the power of God resting upon the leaders of this church, and until it goes down into his heart like fire.” Until the members of this church have that conviction that they are being led in the right way, and they have a conviction that these men of God are men who are inspired and have been properly appointed by the hand of God, they are not truly converted.
 
-So I bear you my witness that I know with all my soul, as I knew on that occasion, that those whom the Lord chooses are the ones he needs for a particular time. I heard Elder Orson F. Whitney, a member of the Twelve, say from this pulpit that he didn’t believe that these men are necessarily the best living men in the Church, but that there may be many others who live just as righteous lives, or maybe more so, but one thing he did know: that when there is a vacancy and the Lord has need for a person, he looks around and finds the person who is best qualified to fill the position at a given time.
+So I bear you my witness that I know with all my soul, as I knew on that occasion, that those whom the Lord chooses are the ones he needs for a particular time. I heard Elder Orson F. Whitney, a member of the Twelve, say from this pulpit that he didn’t believe that these men are necessarily the best living men in the Church, but that there may be many others who live just as righteous lives, or maybe more so, but one thing he did know: that when there is a vacancy and the Lord has need for a person, he looks around and finds the person who is best qualified to fill the position at a given time.
 
 I have lived long enough now in these thirty-one years as a member of the General Authorities to know that is true; and I bear witness that the Lord is guiding this church, and we see daily and constantly in the councils of this church that there is divine guidance. I bear that humble witness in the name of the Lord Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Agency #Family #Fatherhood #Morality #Priesthood #Testimony

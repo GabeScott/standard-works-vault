@@ -1,6 +1,8 @@
 # A Tribute to the Rank and File of the Church
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -14,7 +16,7 @@ Only a few, and they of most humble prospect, were party to it. It was as Paul h
 
 “Not many wise men after the flesh, not many mighty, not many noble, are called:
 
-“But God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty” ([[1 Corinthians 1.26|1 Cor. 1:26–27]][[1 Corinthians 1.27|]]).
+“But God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty” ([[1 Corinthians 1.26|1 Cor. 1:26–27]][[1 Corinthians 1.27|]]).
 
 This sacred event, witnessed by those few, had been preceded by marvelous spiritual manifestations.
 
@@ -50,19 +52,19 @@ The rank and file of The Church of Jesus Christ of Latter-day Saints, present an
 
 Lives are shaped through the influence of obscure, faithful members who carry the spirit of the gospel.
 
-When once I tried to thank a great teacher and patriarch, William E. Berrett, he quickly passed the credit back to one who had taught him. An old convert from Norway was called to teach a group of mischievous Aaronic Priesthood boys. They were greatly amused by his broken English, but somehow the Spirit polished his words and soon the boys responded.
+When once I tried to thank a great teacher and patriarch, William E. Berrett, he quickly passed the credit back to one who had taught him. An old convert from Norway was called to teach a group of mischievous Aaronic Priesthood boys. They were greatly amused by his broken English, but somehow the Spirit polished his words and soon the boys responded.
 
 I have heard Brother Berrett testify on more than one occasion, “We could warm our hands by the fire of his faith.”
 
-President Heber J. Grant once heard Bishop Millen Atwood preach a sermon in the Thirteenth Ward, “I was studying grammar at the time,” he said, “and he made some grammatical errors in his talk.
+President Heber J. Grant once heard Bishop Millen Atwood preach a sermon in the Thirteenth Ward, “I was studying grammar at the time,” he said, “and he made some grammatical errors in his talk.
 
 “I wrote down his first sentence, smiled to myself, and said: ‘I am going to get … enough material to last me for the entire winter in my night school grammar class.’ We had to take … four sentences a week, that were not grammatically correct, together with our corrections.
 
-“… But I did not write anything more after that first sentence—not a word; and when Millen Atwood stopped preaching, tears were rolling down my cheeks, tears of gratitude and thanksgiving that welled up into my eyes because of the marvelous testimony which that man bore of the divine mission of Joseph Smith, the Prophet of God. …”
+“… But I did not write anything more after that first sentence—not a word; and when Millen Atwood stopped preaching, tears were rolling down my cheeks, tears of gratitude and thanksgiving that welled up into my eyes because of the marvelous testimony which that man bore of the divine mission of Joseph Smith, the Prophet of God. …”
 
-He continued: “Although it is now more than sixty-five years since I listened to that sermon, it is just as vivid today, and the sensations and feelings that I had are just as fixed with me, as they were the day I heard it. …
+He continued: “Although it is now more than sixty-five years since I listened to that sermon, it is just as vivid today, and the sensations and feelings that I had are just as fixed with me, as they were the day I heard it. …
 
-“… the one thing above all others that has impressed me has been the spirit, the inspiration of the living God that an individual had, when proclaiming the Gospel, and not the language. … I have endeavored, from that day to this … to judge men and women by the spirit they have; for I have learned absolutely, that it is the spirit that giveth life and understanding, and not the letter—the letter killeth” (*Improvement Era,* Apr. 1939, p. 201).
+“… the one thing above all others that has impressed me has been the spirit, the inspiration of the living God that an individual had, when proclaiming the Gospel, and not the language. … I have endeavored, from that day to this … to judge men and women by the spirit they have; for I have learned absolutely, that it is the spirit that giveth life and understanding, and not the letter—the letter killeth” (*Improvement Era,* Apr. 1939, p. 201).
 
 Whenever we seek for true testimony we come, finally, to ordinary men and women and children.
 
@@ -110,17 +112,17 @@ His answer seemed to be a shock, as he said without hesitation, “Why, yes … 
 
 He then told of an experience in the temple where he had performed a marriage:
 
-“As the subdued congratulations were extended, a happy father … offered his hand and said, ‘Brother Kimball, my wife and I are common people and have never been successful, but we *are* immensely proud of our family. … This is the last of our eight children to come into this holy house for temple marriage. They, with their companions, are here to participate in the marriage of this, the youngest.’ …
+“As the subdued congratulations were extended, a happy father … offered his hand and said, ‘Brother Kimball, my wife and I are common people and have never been successful, but we *are* immensely proud of our family. … This is the last of our eight children to come into this holy house for temple marriage. They, with their companions, are here to participate in the marriage of this, the youngest.’ …
 
-“I looked at his calloused hands, his rough exterior, and thought to myself, ‘Here is a real son of God fulfilling his destiny’” (*Ensign,* Dec. 1971, p. 36; also in Conference Report, Oct. 1971, pp. 152–53).
+“I looked at his calloused hands, his rough exterior, and thought to myself, ‘Here is a real son of God fulfilling his destiny’” (*Ensign,* Dec. 1971, p. 36; also in Conference Report, Oct. 1971, [[1971 October - Glimpses of Heaven.md|pp. 152–53]]).
 
-President J. Reuben Clark told of pioneer members of the Church in these words:
+President J. Reuben Clark told of pioneer members of the Church in these words:
 
 “Day after day, they of the last wagon pressed forward, worn and tired, footsore, sometimes almost disheartened, borne up by their faith that God loved them, that the restored gospel was true, and that the Lord led and directed the Brethren out in front.
 
 He then told of the morning:
 
-“… when from out that last wagon floated the \[cry\] of the newborn babe, and mother love made a shrine, and Father bowed in reverence before it. But the train must move on. So out into the dust and dirt the last wagon moved again. …
+“… when from out that last wagon floated the \[cry\] of the newborn babe, and mother love made a shrine, and Father bowed in reverence before it. But the train must move on. So out into the dust and dirt the last wagon moved again. …
 
 “Who will dare to say that angels did not cluster round and guard her and ease her rude bed, for she had given another choice spirit its mortal body” (*Improvement Era,* Nov. 1947, p. 705).
 
@@ -187,8 +189,3 @@ I know that He directs this Church now, as He established it then, through a pro
 
 
 
-
-
-
-
-#Spirituality #Testimony

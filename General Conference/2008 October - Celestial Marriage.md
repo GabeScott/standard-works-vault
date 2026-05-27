@@ -1,5 +1,7 @@
 # Celestial Marriage
 
+Thomas S. Monson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2008 General Conference*
@@ -52,7 +54,7 @@ But what of the many mature members of the Church who are not married? Through n
 
 Meanwhile, mortal misunderstandings can make mischief in a marriage. In fact, each marriage starts with two built-in handicaps. It involves two imperfect people. Happiness can come to them only through their earnest effort. Just as harmony comes from an orchestra only when its members make a concerted effort, so harmony in marriage also requires a concerted effort. That effort will succeed if each partner will minimize personal demands and maximize actions of loving selflessness.
 
-President Thomas S. Monson has said: “To find real happiness, we must seek for it in a focus outside ourselves. No one has learned the meaning of living until he has surrendered his ego to the service of his fellow man. Service to others is akin to duty—the fulfillment of which brings true joy.”[^34]
+President Thomas S. Monson has said: “To find real happiness, we must seek for it in a focus outside ourselves. No one has learned the meaning of living until he has surrendered his ego to the service of his fellow man. Service to others is akin to duty—the fulfillment of which brings true joy.”[^34]
 
 Harmony in marriage comes only when one esteems the welfare of his or her spouse among the highest of priorities. When that really happens, a celestial marriage becomes a reality, bringing great joy in this life and in the life to come.
 
@@ -67,15 +69,15 @@ Celestial marriage is a pivotal part of preparation for eternal life. It require
 
 
 
-[^1]: [[Alma 42.8|Alma 42:8]]. It is also known as the “plan of … God” (see [[2 Nephi 9.13|2 Nephi 9:13]]; [[Alma 34.9|Alma 34:9]]), the “plan of redemption” (see [[Jacob 6.8|Jacob 6:8]]; [[Alma 12.26|Alma 12:26, 30, 32–33]][[Alma 12.30|]][[Alma 12.32|]][[Alma 12.33|]]; [[Alma 29.2|29:2]]; [[Alma 42.13|42:13]]), the “plan of salvation” (see [[Alma 24.14|Alma 24:14]]; [[Alma 42.5|42:5]]), and the “plan of mercy” (see [[Alma 42.15|Alma 42:15, 31]][[Alma 42.31|]]).
+[^1]: [[Alma 42.8|Alma 42:8]]. It is also known as the “plan of … God” (see [[2 Nephi 9.13|2 Nephi 9:13]]; [[Alma 34.9|Alma 34:9]]), the “plan of redemption” (see [[Jacob 6.8|Jacob 6:8]]; [[Alma 12.26|Alma 12:26, 30, 32–33]][[Alma 12.30|]][[Alma 12.32|]][[Alma 12.33|]]; [[Alma 29.2|29:2]]; [[Alma 42.13|42:13]]), the “plan of salvation” (see [[Alma 24.14|Alma 24:14]]; [[Alma 42.5|42:5]]), and the “plan of mercy” (see [[Alma 42.15|Alma 42:15, 31]][[Alma 42.31|]]).
 
-[^2]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^2]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^3]: See [[D&C 107.35|D&C 107:35]].
 
 [^4]: See [[D&C 49.15|D&C 49:15–17]][[D&C 49.16|]][[D&C 49.17|]].
 
-[^5]: See Russell M. Nelson, in Conference Report, Apr. 2008, 5–8; or *Ensign,* May 2008, 7–10.
+[^5]: See Russell M. Nelson, in Conference Report, Apr. 2008, [[2008 April - Salvation and Exaltation.md|5–8]]; or *Ensign,* May 2008, 7–10.
 
 [^6]: See [[D&C 76.53|D&C 76:53]]; [[D&C 132.7|132:7]].
 
@@ -91,23 +93,23 @@ Celestial marriage is a pivotal part of preparation for eternal life. It require
 
 [^12]: See [[D&C 128.8|D&C 128:8, 18]][[D&C 128.18|]]; [[D&C 132.45|132:45–46]][[D&C 132.46|]].
 
-[^13]: See [[2 Nephi 10.2|2 Nephi 10:2]]; [[2 Nephi 30.8|30:8]].
+[^13]: See [[2 Nephi 10.2|2 Nephi 10:2]]; [[2 Nephi 30.8|30:8]].
 
 [^14]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
 [^15]: *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
-[^16]: Previously I have stated that “marriage is the foundry for social order, the fountain of virtue, and the foundation for eternal exaltation” (in Conference Report, Apr. 2006, 37; or *Ensign,* May 2006, 36).
+[^16]: Previously I have stated that “marriage is the foundry for social order, the fountain of virtue, and the foundation for eternal exaltation” (in Conference Report, Apr. 2006, [[2006 April - Nurturing Marriage.md|37]]; or *Ensign,* May 2006, 36).
 
 [^17]: Whenever scriptures warn that the “earth would be utterly wasted,” the warning is connected to the need for priesthood authority to seal families together in holy temples (see [[D&C 2.1|D&C 2:1–3]][[D&C 2.2|]][[D&C 2.3|]]; [[D&C 138.48|138:48]]; [[Joseph Smith History 1.38|Joseph Smith—History 1:38–39]][[Joseph Smith History 1.39|]]).
 
 [^18]: [[D&C 49.16|D&C 49:16]]; see also [[Genesis 2.24|Genesis 2:24]]; [[Matthew 19.5|Matthew 19:5]]; [[Mark 10.7|Mark 10:7–9]][[Mark 10.8|]][[Mark 10.9|]]; [[D&C 42.22|D&C 42:22]]; [[Moses 3.24|Moses 3:24]]; [[Abraham 5.18|Abraham 5:18]].
 
-[^19]: [[1 Corinthians 11.11|1 Corinthians 11:11]].
+[^19]: [[1 Corinthians 11.11|1 Corinthians 11:11]].
 
 [^20]: [[Moses 1.39|Moses 1:39]].
 
-[^21]: See [[2 Nephi 9.22|2 Nephi 9:22]]; [[Alma 12.8|Alma 12:8]]; [[Alma 33.22|33:22]]; [[Helaman 14.17|Helaman 14:17]]; [[Mormon 9.13|Mormon 9:13]]; [[Moses 7.62|Moses 7:62]]; Joseph Smith Translation, Genesis 7:69.
+[^21]: See [[2 Nephi 9.22|2 Nephi 9:22]]; [[Alma 12.8|Alma 12:8]]; [[Alma 33.22|33:22]]; [[Helaman 14.17|Helaman 14:17]]; [[Mormon 9.13|Mormon 9:13]]; [[Moses 7.62|Moses 7:62]]; Joseph Smith Translation, Genesis 7:69.
 
 [^22]: [[D&C 14.7|D&C 14:7]].
 
@@ -125,19 +127,19 @@ Celestial marriage is a pivotal part of preparation for eternal life. It require
 
 [^29]: [[D&C 132.7|D&C 132:7]]; emphasis added.
 
-[^30]: Jesus taught this concept to the people of ancient America (see [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]). See also [[2 Nephi 33.4|2 Nephi 33:4]]; [[D&C 42.61|D&C 42:61]]; Joseph Smith Translation, 1 John 5:13 (The Holy Scriptures: Inspired Version).
+[^30]: Jesus taught this concept to the people of ancient America (see [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]). See also [[2 Nephi 33.4|2 Nephi 33:4]]; [[D&C 42.61|D&C 42:61]]; Joseph Smith Translation, 1 John 5:13 (The Holy Scriptures: Inspired Version).
 
 [^31]: See [[D&C 128.1|D&C 128:1–18]][[D&C 128.2|]][[D&C 128.3|]][[D&C 128.4|]][[D&C 128.5|]][[D&C 128.6|]][[D&C 128.7|]][[D&C 128.8|]][[D&C 128.9|]][[D&C 128.10|]][[D&C 128.11|]][[D&C 128.12|]][[D&C 128.13|]][[D&C 128.14|]][[D&C 128.15|]][[D&C 128.16|]][[D&C 128.17|]][[D&C 128.18|]]; [[D&C 137.7|137:7–8]][[D&C 137.8|]].
 
-[^32]: See Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 2:76–77.
+[^32]: See Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (1954–56), 2:76–77.
 
 [^33]: See [[Alma 41.3|Alma 41:3]]; [[D&C 137.9|D&C 137:9]].
 
 [^34]: “Messages of Inspiration from President Monson,” *Church News,* July 5, 2008, 2.
 
-[^35]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Jacob 6.8|Jacob 6:8]].
+[^35]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Jacob 6.8|Jacob 6:8]].
 
-[^36]: Satan wants us to be miserable, as he is (see [[Revelation 12.9|Revelation 12:9]]; [[2 Nephi 2.18|2 Nephi 2:18]]; [[D&C 10.22|D&C 10:22–27]][[D&C 10.23|]][[D&C 10.24|]][[D&C 10.25|]][[D&C 10.26|]][[D&C 10.27|]]; [[Moses 4.6|Moses 4:6]]).
+[^36]: Satan wants us to be miserable, as he is (see [[Revelation 12.9|Revelation 12:9]]; [[2 Nephi 2.18|2 Nephi 2:18]]; [[D&C 10.22|D&C 10:22–27]][[D&C 10.23|]][[D&C 10.24|]][[D&C 10.25|]][[D&C 10.26|]][[D&C 10.27|]]; [[Moses 4.6|Moses 4:6]]).
 
 [^37]: See [[Alma 5.12|Alma 5:12–14]][[Alma 5.13|]][[Alma 5.14|]]. Such a mighty change includes repentance, forgiveness, and a renewed determination to “come unto Christ, and be perfected in him” ([[Moroni 10.32|Moroni 10:32]]).
 
@@ -151,10 +153,5 @@ Celestial marriage is a pivotal part of preparation for eternal life. It require
 
 [^42]: [[D&C 93.19|D&C 93:19]]; see also [[D&C 66.2|D&C 66:2]]; [[D&C 132.5|132:5–6]][[D&C 132.6|]].
 
-[^43]: See Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (1966), 118.
+[^43]: See Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (1966), 118.
 
-
-
-
-
-#Family #Joy #Marriage #Plan_Of_Salvation #Temples

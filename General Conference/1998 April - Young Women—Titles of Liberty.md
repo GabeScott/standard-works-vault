@@ -1,5 +1,7 @@
 # Young Women—Titles of Liberty
 
+Gordon B. Hinckley
+
 By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -45,8 +47,3 @@ Young women, your life is the banner that can help to protect your families from
 
 
 
-
-
-
-
-#Family #Love #Service #Young_Women

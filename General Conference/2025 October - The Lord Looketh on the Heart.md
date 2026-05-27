@@ -1,6 +1,8 @@
 # The Lord Looketh on the Heart
 
-By Elder Ronald M. Barcellos - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Ronald M. Barcellos - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -58,7 +60,7 @@ As we continue to nourish the seed of faith by our righteous desires and actions
 
 The Savior taught, “If ye love me, keep my commandments⁠.”[^25] He invites us to demonstrate our love by making and keeping covenants with Him. As we strive daily to keep His commandments, sincerely repent from our sins, and persevere in taking His name upon us and aligning our will with His will, we can be blessed with the constant companionship of the Holy Ghost.
 
-Nephi testified, “I know that if ye shall follow the Son, with full purpose of heart, acting no hypocrisy and no deception before God, but with real intent, repenting of your sins, witnessing unto the Father that ye are willing to take upon you the name of Christ, by baptism … , then shall ye receive the Holy Ghost.”[^26] The Holy Ghost will guide you and help you know the will of the Lord and make good choices.
+Nephi testified, “I know that if ye shall follow the Son, with full purpose of heart, acting no hypocrisy and no deception before God, but with real intent, repenting of your sins, witnessing unto the Father that ye are willing to take upon you the name of Christ, by baptism … , then shall ye receive the Holy Ghost.”[^26] The Holy Ghost will guide you and help you know the will of the Lord and make good choices.
 
 ### Last, Serve God and Others with All Your Heart
 
@@ -73,13 +75,13 @@ I know Jesus Christ lives. He is our Redeemer. And He loves you and me with all 
 
 
 
-[^1]: [[1 Samuel 16.6|1 Samuel 16:6–7]][[1 Samuel 16.7|]].
+[^1]: [[1 Samuel 16.6|1 Samuel 16:6–7]][[1 Samuel 16.7|]].
 
 [^2]: [[Matthew 22.37|Matthew 22:37]].
 
 [^3]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 
-[^4]: [[3 Nephi 9.20|3 Nephi 9:20]].
+[^4]: [[3 Nephi 9.20|3 Nephi 9:20]].
 
 [^5]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
@@ -93,13 +95,13 @@ I know Jesus Christ lives. He is our Redeemer. And He loves you and me with all 
 
 [^10]: [[D&C 137.9|Doctrine and Covenants 137:9]].
 
-[^11]: “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives” (Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82).
+[^11]: “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives” (Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82).
 
 [^12]: [[Matthew 6.21|Matthew 6:21]].
 
 [^13]: [[D&C 121.35|Doctrine and Covenants 121:35]].
 
-[^14]: [[1 Nephi 15.10|1 Nephi 15:10]].
+[^14]: [[1 Nephi 15.10|1 Nephi 15:10]].
 
 [^15]: [[D&C 58.29|Doctrine and Covenants 58:29]].
 
@@ -111,30 +113,25 @@ I know Jesus Christ lives. He is our Redeemer. And He loves you and me with all 
 
 [^19]: [[Matthew 12.34|Matthew 12:34]].
 
-[^20]: “Contention prevents the Holy Ghost from being our constant companion. … Brothers and sisters, as the world grows more wicked, we need to grow increasingly pure. Our thoughts, words, and actions need to be unfailingly virtuous and filled with the pure love of Jesus Christ towards all men” (Russell M. Nelson, “[[2025 April - Confidence in the Presence of God.md|Confidence in the Presence of God]],” *Liahona*, May 2025, 128).
+[^20]: “Contention prevents the Holy Ghost from being our constant companion. … Brothers and sisters, as the world grows more wicked, we need to grow increasingly pure. Our thoughts, words, and actions need to be unfailingly virtuous and filled with the pure love of Jesus Christ towards all men” (Russell M. Nelson, “[[2025 April - Confidence in the Presence of God.md|Confidence in the Presence of God]],” *Liahona*, May 2025, 128).
 
 [^21]: See [[Ezekiel 36.26|Ezekiel 36:26]].
 
 [^22]: See [[Alma 5.11|Alma 5:11–13]][[Alma 5.12|]][[Alma 5.13|]].
 
-[^23]: [[1 Nephi 2.16|1 Nephi 2:16]].
+[^23]: [[1 Nephi 2.16|1 Nephi 2:16]].
 
 [^24]: [[Helaman 3.35|Helaman 3:35]].
 
 [^25]: [[John 14.15|John 14:15]].
 
-[^26]: [[2 Nephi 31.13|2 Nephi 31:13]].
+[^26]: [[2 Nephi 31.13|2 Nephi 31:13]].
 
 [^27]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
 [^28]: [[Alma 5.14|Alma 5:14]].
 
-[^29]: See [[2 Nephi 1.15|2 Nephi 1:15]]; [[Alma 5.33|Alma 5:33]]; [[D&C 6.20|Doctrine and Covenants 6:20]].
+[^29]: See [[2 Nephi 1.15|2 Nephi 1:15]]; [[Alma 5.33|Alma 5:33]]; [[D&C 6.20|Doctrine and Covenants 6:20]].
 
 [^30]: See [[D&C 4.5|Doctrine and Covenants 4:5]]; [[D&C 25.10|25:10]].
 
-
-
-
-
-#Commandments #Discipleship #Jesus_Christ #Obedience #Scripture_Study #Service

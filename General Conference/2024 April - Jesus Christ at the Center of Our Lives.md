@@ -1,6 +1,8 @@
 # Jesus Christ at the Center of Our Lives
 
-By Elder Jose L. Alonso - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Jose L. Alonso - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -24,7 +26,7 @@ The clarity of His invitation “come unto me” and “take my yoke” affirms 
 
 As we diligently seek spiritual guidance,[^9] we embark on a deeply transformative odyssey that strengthens our testimonies. As we comprehend the vastness of our Heavenly Father’s and Jesus Christ’s perfect love,[^10] our hearts are filled with gratitude, humility,[^11] and a renewed desire to pursue the path of discipleship.[^12]
 
-President Russell M. Nelson taught that “when the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him.”[^13]
+President Russell M. Nelson taught that “when the focus of our lives is on God’s plan of salvation … and Jesus Christ and His gospel, we can feel joy regardless of what is happening—or not happening—in our lives. Joy comes from and because of Him.”[^13]
 
 Alma, speaking to his son Helaman, declared: “And now, O my son Helaman, behold, thou art in thy youth, and therefore, I beseech of thee that thou wilt hear my words and learn of me; for I do know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day.”[^14]
 
@@ -46,14 +48,14 @@ In his darkest hour, tormented by guilt and desperate to find a way out of his s
 
 Jesus Christ is our hope and the answer to life’s greatest pains. Through His sacrifice, He paid for our sins and took upon Himself all of our suffering—pain, injustice, sorrow, and fear—and He forgives and heals us when we trust in Him and seek to change our lives for the better. He is our Healer,[^22] comforting and repairing our hearts through His love and power, just like He healed many during His time on earth.[^23] He is the living water, fulfilling the deepest needs of our souls with His constant love and kindness. This is like the promise He made to the Samaritan woman at the well, offering “a well of water springing up into everlasting life.”[^24]
 
-I bear solemn witness that Jesus Christ lives, that He presides over this, His sacred Church, The Church of Jesus Christ of Latter-day Saints.[^25] I testify that He is the Savior of the world, the Prince of Peace,[^26] the King of kings, the Lord of lords,[^27] the Redeemer of the world. I affirm with certainty that we are ever present in His mind and heart. As a testament to this, He has restored His Church in these latter days and has called President Russell M. Nelson as His prophet and the President of the Church at this time.[^28] I know that Jesus Christ gave His life so that we might have eternal life.
+I bear solemn witness that Jesus Christ lives, that He presides over this, His sacred Church, The Church of Jesus Christ of Latter-day Saints.[^25] I testify that He is the Savior of the world, the Prince of Peace,[^26] the King of kings, the Lord of lords,[^27] the Redeemer of the world. I affirm with certainty that we are ever present in His mind and heart. As a testament to this, He has restored His Church in these latter days and has called President Russell M. Nelson as His prophet and the President of the Church at this time.[^28] I know that Jesus Christ gave His life so that we might have eternal life.
 
 As we strive to place Him at the center of our lives, revelations unfold to us, His profound peace envelops us, and His infinite Atonement brings about our forgiveness and healing.[^29] It is in Him that we discover the strength to overcome, the courage to persevere, and the peace that surpasses all understanding. May we strive each day to draw nearer to Him, the source of all that is good,[^30] the beacon of hope in our journey back to the presence of our Heavenly Father. In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: See [[Psalms 23.4|Psalm 23:4]]; [[2 Corinthians 1.3|2 Corinthians 1:3–4]][[2 Corinthians 1.4|]].
+[^1]: See [[Psalms 23.4|Psalm 23:4]]; [[2 Corinthians 1.3|2 Corinthians 1:3–4]][[2 Corinthians 1.4|]].
 
 [^2]: See [[Psalms 46.1|Psalm 46:1]].
 
@@ -63,7 +65,7 @@ As we strive to place Him at the center of our lives, revelations unfold to us, 
 
 [^5]: See [[John 3.16|John 3:16]]; [[Romans 8.38|Romans 8:38–39]][[Romans 8.39|]].
 
-[^6]: See [[Acts 3.20|Acts 3:20–21]][[Acts 3.21|]]; [[3 Nephi 20.29|3 Nephi 20:29–31]][[3 Nephi 20.30|]][[3 Nephi 20.31|]].
+[^6]: See [[Acts 3.20|Acts 3:20–21]][[Acts 3.21|]]; [[3 Nephi 20.29|3 Nephi 20:29–31]][[3 Nephi 20.30|]][[3 Nephi 20.31|]].
 
 [^7]: See [[Isaiah 53.5|Isaiah 53:5]]; [[Alma 34.10|Alma 34:10–14]][[Alma 34.11|]][[Alma 34.12|]][[Alma 34.13|]][[Alma 34.14|]].
 
@@ -71,13 +73,13 @@ As we strive to place Him at the center of our lives, revelations unfold to us, 
 
 [^9]: See [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]]; [[James 1.5|James 1:5]].
 
-[^10]: See [[Romans 8.39|Romans 8:39]]; [[1 John 4.16|1 John 4:16]].
+[^10]: See [[Romans 8.39|Romans 8:39]]; [[1 John 4.16|1 John 4:16]].
 
-[^11]: See [[1 Thessalonians 5.18|1 Thessalonians 5:18]]; [[Mosiah 4.11|Mosiah 4:11]].
+[^11]: See [[1 Thessalonians 5.18|1 Thessalonians 5:18]]; [[Mosiah 4.11|Mosiah 4:11]].
 
-[^12]: See [[Matthew 16.24|Matthew 16:24]]; [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
+[^12]: See [[Matthew 16.24|Matthew 16:24]]; [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
 
-[^13]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^13]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
 [^14]: [[Alma 36.3|Alma 36:3]].
 
@@ -87,15 +89,15 @@ As we strive to place Him at the center of our lives, revelations unfold to us, 
 
 [^17]: See [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]]; [[Philippians 4.6|Philippians 4:6–7]][[Philippians 4.7|]].
 
-[^18]: See [[2 Corinthians 12.9|2 Corinthians 12:9–10]][[2 Corinthians 12.10|]].
+[^18]: See [[2 Corinthians 12.9|2 Corinthians 12:9–10]][[2 Corinthians 12.10|]].
 
 [^19]: See [[Psalms 32.8|Psalm 32:8]]; [[Ether 12.27|Ether 12:27]].
 
-[^20]: See [[Romans 8.28|Romans 8:28]]; [[1 Nephi 3.7|1 Nephi 3:7]].
+[^20]: See [[Romans 8.28|Romans 8:28]]; [[1 Nephi 3.7|1 Nephi 3:7]].
 
 [^21]: See [[Alma 36.5|Alma 36:5–20]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]].
 
-[^22]: See [[Psalms 147.3|Psalm 147:3]]; [[1 Peter 2.24|1 Peter 2:24]].
+[^22]: See [[Psalms 147.3|Psalm 147:3]]; [[1 Peter 2.24|1 Peter 2:24]].
 
 [^23]: See [[Isaiah 53.4|Isaiah 53:4–5]][[Isaiah 53.5|]].
 
@@ -105,13 +107,11 @@ As we strive to place Him at the center of our lives, revelations unfold to us, 
 
 [^26]: See [[Isaiah 9.6|Isaiah 9:6]].
 
-[^27]: See [[1 Timothy 6.15|1 Timothy 6:15]].
+[^27]: See [[1 Timothy 6.15|1 Timothy 6:15]].
 
 [^28]: See [[Amos 3.7|Amos 3:7]]; [[D&C 1.38|Doctrine and Covenants 1:38]].
 
 [^29]: See [[John 3.16|John 3:16]]; [[Alma 34.14|Alma 34:14]].
 
+[^30]: See [[Deuteronomy 31.6|Deuteronomy 31:6]]; [[Philippians 4.13|Philippians 4:13]]; [[Moroni 10.32|Moroni 10:32]].
 
-
-
-#Adversity #Atonement #Discipleship #Hope #Jesus_Christ

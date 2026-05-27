@@ -1,5 +1,7 @@
 # Come and Partake
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1986 General Conference*
@@ -12,7 +14,7 @@ Those original six have now become approximately six million. The growth of this
 
 Five months ago a solemn gathering was held in this great Tabernacle to mourn the passing of a beloved leader. I speak a few words of personal testimony of President Spencer W. Kimball. For forty-two years he served as Apostle and prophet. His moving example of sincere humility, his outreaching love for people, his quiet and earnest declarations of faith have touched all of us. The majesty of his life was found in its simplicity. There was never any of the ostentatious, the boastful, the proud evident in his character. Yet there was an excellence that shone like gold. He was a man from whose life the husk of mediocrity had been winnowed by the hand of God. I loved him with that love which men in the service of the Lord come to feel and know.
 
-Now there is another, and during this conference we shall be constituted as a Solemn Assembly to sustain as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, the man who, under the plan of the Lord, has been chosen, ordained, and set apart to this most high and sacred office.
+Now there is another, and during this conference we shall be constituted as a solemn assembly to sustain as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, the man who, under the plan of the Lord, has been chosen, ordained, and set apart to this most high and sacred office.
 
 This transition of authority, in which I have participated a number of times, is beautiful in its simplicity. It is indicative of the way the Lord does things. Under His procedure a man is selected by the prophet to become a member of the Council of the Twelve Apostles. He does not choose this as a career. He is called, as were the Apostles in Jesus’ time, to whom the Lord said, “Ye have not chosen me, but I have chosen you, and ordained you.” ([[John 15.16|John 15:16]].) The years pass. He is schooled and disciplined in the duties of his office. He travels over the earth in fulfilling his apostolic calling. It is a long course of preparation, in which he comes to know the Latter-day Saints wherever they may be, and they come to know him. The Lord tests his heart and his substance. In the natural course of events, vacancies occur in that council and new appointments are made. Under this process a particular man becomes the senior Apostle. Residing latent in him, and in his associate Brethren, given to each at the time of ordination, are all of the keys of the priesthood. But authority to exercise those keys is restricted to the President of the Church. At his passing, that authority becomes operative in the senior Apostle, who is then named, set apart, and ordained a prophet and President by his associates of the Council of the Twelve.
 
@@ -38,7 +40,7 @@ This gospel, when accepted and obeyed, meets the needs of men and women everywhe
 
 In His great intercessory prayer, Jesus declared: “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].)
 
-Such knowledge is the very foundation of spiritual strength. This is the great basic purpose of the restoration of the gospel in this, the dispensation of the fulness of times—to declare the living reality of God the Eternal Father and of His Beloved Son, the resurrected Lord Jesus Christ. To know them, to love them, to obey them is to have life eternal. It is our mission to declare with words of soberness and truth that God is our Eternal Father, the God of the universe, the Almighty One; and that Jesus Christ is his firstborn, the Only Begotten in the flesh, who condescended to come to earth; who was born in a stable in Bethlehem of Judea, lived the perfect life, and taught the way of salvation; who offered Himself a sacrifice for all, enduring pain and death on the cross; and who then came forth in a glorious resurrection, the firstfruits of them that slept. (See [[1 Corinthians 15.20|1 Cor. 15:20]].) Through Him, and by Him, and of Him, all are assured salvation from death and are offered the opportunity of eternal life.
+Such knowledge is the very foundation of spiritual strength. This is the great basic purpose of the restoration of the gospel in this, the dispensation of the fulness of times—to declare the living reality of God the Eternal Father and of His Beloved Son, the resurrected Lord Jesus Christ. To know them, to love them, to obey them is to have life eternal. It is our mission to declare with words of soberness and truth that God is our Eternal Father, the God of the universe, the Almighty One; and that Jesus Christ is his firstborn, the Only Begotten in the flesh, who condescended to come to earth; who was born in a stable in Bethlehem of Judea, lived the perfect life, and taught the way of salvation; who offered Himself a sacrifice for all, enduring pain and death on the cross; and who then came forth in a glorious resurrection, the firstfruits of them that slept. (See [[1 Corinthians 15.20|1 Cor. 15:20]].) Through Him, and by Him, and of Him, all are assured salvation from death and are offered the opportunity of eternal life.
 
 This is the great undergirding truth of our faith. It is the overarching canopy under which we find our spiritual strength. With this knowledge we grow spiritually, our spirits in kinship with the Spirit of God. It is the way out of darkness. It affords the strength needed to rise above sin.
 
@@ -58,7 +60,7 @@ His encyclopedic knowledge has given him tremendous and well-deserved status amo
 
 This Church spends a very substantial part of its resources to train the minds and hands of its young people, whatever their choice of discipline, be it science, commerce, various of the professions, or the arts.
 
-A declaration of our faith reads: “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.” ([[Articles of Faith 1.13|A of F 1:13]].) This embraces the truth of science, the truth of philosophy, the truth of history, the truth of art. I emphasize the word *truth.* It is a principle set forth in our scripture that “the glory of God is intelligence, or, in other words, light and truth.” ([[D&C 93.36|D&C 93:36]].)
+A declaration of our faith reads: “If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.” ([[Articles of Faith 1.13|A of F 1:13]].) This embraces the truth of science, the truth of philosophy, the truth of history, the truth of art. I emphasize the word *truth.* It is a principle set forth in our scripture that “the glory of God is intelligence, or, in other words, light and truth.” ([[D&C 93.36|D&C 93:36]].)
 
 The mind of man is the crowning creation of God, in whose express image man was made. The development of the mind is a companion responsibility to the cultivation of the spirit, as set forth in the revealed principles of the restored gospel of Jesus Christ.
 
@@ -74,7 +76,7 @@ The Church is the guardian and teacher of moral values. Regrettably, there are s
 
 In too many cases wives and children become their victims. I have previously spoken from this pulpit concerning child and spouse abuse. I repeat for emphasis an earlier statement:
 
-“Abuse of children on the part of fathers or anyone else has long been a cause for excommunication from the Church. No man who has been ordained to the priesthood of God can with impunity indulge in either spouse or child abuse. Such activity becomes an immediate repudiation of his right to hold and exercise the priesthood and to retain membership in the Church.” (*Ensign,* Nov. 1985, p. 51.)
+“Abuse of children on the part of fathers or anyone else has long been a cause for excommunication from the Church. No man who has been ordained to the priesthood of God can with impunity indulge in either spouse or child abuse. Such activity becomes an immediate repudiation of his right to hold and exercise the priesthood and to retain membership in the Church.” (In Conference Report, Oct. 1985, [[1985 October - Questions and Answers.md|p. 66]]; or *Ensign,* Nov. 1985, p. 51.)
 
 If there be any within the sound of my voice who may be guilty of such practices, let him or her repent, and as a part of that process go to his bishop or her bishop and confess, seeking help to do the right thing to remedy the evil.
 
@@ -103,8 +105,3 @@ God be thanked for this glorious work, for this day of restored truth and light,
 
 
 
-
-
-
-
-#Atonement #Education #Prophets

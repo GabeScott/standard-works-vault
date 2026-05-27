@@ -1,6 +1,8 @@
 # The Need to Teach Personal and Family Preparedness
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+Marion G. Romney
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -24,7 +26,7 @@ It is time to ask ourselves, What has created the problem of placing such a heav
 
 I like the story of the old man in nineteenth-century New Hampshire who treasured his independence and self-reliance above all else in his life. He accounted it true Christianity that he cared for his own and helped others, and fiercely resisted the notion that he ought to accept help from any other mortal. When his aged wife died, he buried her himself, then dug his own grave and laid in it his open, homemade coffin. “When my time is coming,” he said, “I’ll climb in the box and fold my arms over my chest. Won’t be no bother to no one. They can just nail down the lid and push in the dirt.”
 
-President Marion G. Romney has said so often: “No self-respecting Church member will voluntarily shift the responsibility for his own maintenance to another. Furthermore, a man not only has the responsibility to care for himself; he also has the responsibility to care for his family.” (*The Basics of Church Welfare,* address to the Priesthood Board, 6 Mar. 1974, p. 2.)
+President Marion G. Romney has said so often: “No self-respecting Church member will voluntarily shift the responsibility for his own maintenance to another. Furthermore, a man not only has the responsibility to care for himself; he also has the responsibility to care for his family.” (*The Basics of Church Welfare,* address to the Priesthood Board, 6 Mar. 1974, p. 2.)
 
 The home must be the heart of the welfare program. We must focus our training of personal and family preparedness to reach the family organization. We must teach that every family should be headed by an executive committee comprised of a husband and wife who will set aside sufficient time to plan for their family needs. If it is a single-parent family or an individual living alone, there is still need to organize time and thought to establish goals for meeting needs.
 
@@ -32,7 +34,7 @@ It must start here. Every family has different needs. I notice the difference in
 
 Personal and family preparedness planning must begin with the family executive committee. Planning must be tailored to fit the circumstances of each family. Consideration must be given to their unique requirements in career development, financial and resource management, education, physical health, home production and storage, and social, emotional, and spiritual strength.
 
-Each family organization should include a family council comprised of all members of the family unit. Here the basic responsibilities of the family organization can be taught to the children. They can learn how to make decisions and act upon those decisions. Too many are growing to marriageable age unprepared for this responsibility. Work ethics and self-preparedness can be taught in a most effective way in a family council. President J. Reuben Clark, Jr., has paraphrased an old statement. “‘All work and no play makes Jack a dull boy,’” he would say. “But all play and no work makes Jack a useless boy.” (As quoted by Harold B. Lee, “Administering True Charity,” address delivered at the welfare agricultural meeting, 5 Oct. 1968.)
+Each family organization should include a family council comprised of all members of the family unit. Here the basic responsibilities of the family organization can be taught to the children. They can learn how to make decisions and act upon those decisions. Too many are growing to marriageable age unprepared for this responsibility. Work ethics and self-preparedness can be taught in a most effective way in a family council. President J. Reuben Clark, Jr., has paraphrased an old statement. “‘All work and no play makes Jack a dull boy,’” he would say. “But all play and no work makes Jack a useless boy.” (As quoted by Harold B. Lee, “Administering True Charity,” address delivered at the welfare agricultural meeting, 5 Oct. 1968.)
 
 How grateful I am for a father who had the patience to teach me the art of gardening. How frustrating it must have been in this teaching process to find a neat row of weeds still in the ground and a pile of dead carrots on the ground after I’d completed one of my assignments. Our family was taught not only the art of stacking and rotating cans and bottles on shelves, but also how to grow and replace the fruits and vegetables necessary to fill the empty cans and bottles again.
 
@@ -71,8 +73,3 @@ God grant us to see what must be done in our own wards and stakes, I humbly pray
 
 
 
-
-
-
-
-#Preparation #Self-Reliance

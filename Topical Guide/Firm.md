@@ -1,6 +1,5 @@
 # Firm
 
-
 rejoicing of the hope *firm* unto the end, [[Hebrews 3.6|Hebrews 3:6]].
 
 like unto this valley, *firm* and steadfast, [[1 Nephi 2.10|1 Nephi 2:10]].

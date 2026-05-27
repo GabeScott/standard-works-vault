@@ -1,9 +1,8 @@
 # Priesthood, Melchizedek
 
+*See also* [[Elder, Melchizedek Priesthood.md|Elder, Melchizedek Priesthood]]; [[High Priest, Melchizedek Priesthood.md|High Priest, Melchizedek Priesthood]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Seventy.md|Seventy]]; [[BD Melchizedek Priesthood.md|BD Melchizedek Priesthood]]
 
-*See also* [[Elder, Melchizedek Priesthood.md|Elder, Melchizedek Priesthood]]; [[High Priest, Melchizedek Priesthood.md|High Priest, Melchizedek Priesthood]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Seventy.md|Seventy]]; [BD Melchizedek Priesthood](https://www.churchofjesuschrist.org/study/scriptures/bd/melchizedek-priesthood?lang=eng)
-
-Melchizedek ... was the *priest* of the most high God, [[Genesis 14.18|Genesis 14:18]] ([[Hebrews 7.1|Hebrews 7:1]]).
+Melchizedek … was the *priest* of the most high God, [[Genesis 14.18|Genesis 14:18]] ([[Hebrews 7.1|Hebrews 7:1]]).
 
 *Jethro*, the priest of Midian, [[Exodus 18.1|Exodus 18:1]].
 
@@ -51,22 +50,20 @@ unto whom rightly belongs the *priesthood*, [[D&C 113.6|D&C 113:6]].
 
 They shall not have right to the *priesthood*, [[D&C 121.21|D&C 121:21]].
 
-restore again ... the fulness of the *priesthood*, [[D&C 124.28|D&C 124:28]].
+restore again … the fulness of the *priesthood*, [[D&C 124.28|D&C 124:28]].
 
-about to restore ... pertaining to the *priesthood*, [[D&C 127.8|D&C 127:8]].
+about to restore … pertaining to the *priesthood*, [[D&C 127.8|D&C 127:8]].
 
-Peter, James, and John ... possessing the *keys* of the kingdom, [[D&C 128.20|D&C 128:20]].
+Peter, James, and John … possessing the *keys* of the kingdom, [[D&C 128.20|D&C 128:20]].
 
 a man must enter into this order of the *priesthood*, [[D&C 131.2|D&C 131:2]].
 
 Shem, the great *high* priest, [[D&C 138.41|D&C 138:41]].
 
-same *Priesthood* ... in the beginning, shall be in the end, [[Moses 6.7|Moses 6:7]].
+same *Priesthood* … in the beginning, shall be in the end, [[Moses 6.7|Moses 6:7]].
 
 a High *Priest*, holding the right belonging to the fathers, [[Abraham 1.2|Abraham 1:2]].
 
 this *right* shall continue in thee, and in thy seed, [[Abraham 2.11|Abraham 2:11]].
 
 I will reveal unto you the *Priesthood*, [[Joseph Smith History 1.38|Joseph Smith History 1:38]].
-
-*See also* [[Jeremiah 31.31|Jer. 31:31-32]][[Jeremiah 31.32|]]; [[John 15.16|John 15:16]]; [[Revelation 1.6|Revelation 1:6]].

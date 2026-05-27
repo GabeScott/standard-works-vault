@@ -1,6 +1,8 @@
 # Prepared to Obtain Every Needful Thing
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Ulisses Soares
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -8,13 +10,13 @@ By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/54bednar?lang=eng)
 
-The programs and activities of The Church of Jesus Christ of Latter-day Saints are becoming ever more home centered and Church supported, as evidenced by the series of adjustments announced in recent general conferences. President Russell M. Nelson has counseled us: “There is much more to come. … Eat your vitamin pills. Get your rest. It’s going to be exciting.”[^1]
+The programs and activities of The Church of Jesus Christ of Latter-day Saints are becoming ever more home centered and Church supported, as evidenced by the series of adjustments announced in recent general conferences. President Russell M. Nelson has counseled us: “There is much more to come. … Eat your vitamin pills. Get your rest. It’s going to be exciting.”[^1]
 
 I pray for and invite the help of the Holy Ghost as we consider together several basic implications of these ongoing adjustments in the Lord’s restored Church.
 
 ## Home-Centered and Church-Supported Gospel Learning
 
-Elder Craig C. Christensen and I were companions recently in a priesthood leadership conference, and he used two simple questions to emphasize the principle of becoming home centered and Church supported. He suggested that instead of returning to our homes after Church meetings on Sunday and asking, “What did you learn about the Savior and His gospel today at church?” we should ask in our Church meetings, “What did you learn about the Savior and His gospel this week in your home?” Proper Sabbath-day observance, the new curriculum, and the adjusted meeting schedule all help us to learn the gospel both in our homes and at church.
+Elder Craig C. Christensen and I were companions recently in a priesthood leadership conference, and he used two simple questions to emphasize the principle of becoming home centered and Church supported. He suggested that instead of returning to our homes after Church meetings on Sunday and asking, “What did you learn about the Savior and His gospel today at church?” we should ask in our Church meetings, “What did you learn about the Savior and His gospel this week in your home?” Proper Sabbath-day observance, the new curriculum, and the adjusted meeting schedule all help us to learn the gospel both in our homes and at church.
 
 Each member of The Church of Jesus Christ of Latter-day Saints has an individual responsibility to learn and live the Lord’s teachings and to receive by proper authority the ordinances of salvation and exaltation. We should not expect the Church as an organization to teach or tell us everything we need to know and do to become devoted disciples and endure valiantly to the end.[^2] Rather, our personal responsibility is to learn what we should learn, to live as we know we should live, and to become who the Master would have us become. And our homes are the ultimate setting for learning, living, and becoming.
 
@@ -66,13 +68,13 @@ Guideline #1. *Because we love the Lord, we always should speak about His holy h
 
 Guideline #2. *The temple is the house of the Lord. Everything in the temple points us to our Savior, Jesus Christ. We may discuss the basic purposes of and the doctrine and principles associated with temple ordinances and covenants*.
 
-President Howard W. Hunter counseled: “Let us share with our children the spiritual feelings we have in the temple. And let us teach them more earnestly and more comfortably the things we can appropriately say about the purposes of the house of the Lord.”[^13]
+President Howard W. Hunter counseled: “Let us share with our children the spiritual feelings we have in the temple. And let us teach them more earnestly and more comfortably the things we can appropriately say about the purposes of the house of the Lord.”[^13]
 
-Across the generations, from the Prophet Joseph Smith to President Russell M. Nelson, the doctrinal purposes of temple ordinances and covenants have been taught extensively by Church leaders.[^14] A rich reservoir of resources exists in print, audio, video, and other formats to help us learn about initiatory ordinances, endowments, marriages, and other sealing ordinances.[^15] Information also is available about following the Savior by receiving and honoring covenants to keep the law of obedience, the law of sacrifice, the law of the gospel, the law of chastity, and the law of consecration.[^16] All Church members should become familiar with the excellent materials available at .
+Across the generations, from the Prophet Joseph Smith to President Russell M. Nelson, the doctrinal purposes of temple ordinances and covenants have been taught extensively by Church leaders.[^14] A rich reservoir of resources exists in print, audio, video, and other formats to help us learn about initiatory ordinances, endowments, marriages, and other sealing ordinances.[^15] Information also is available about following the Savior by receiving and honoring covenants to keep the law of obedience, the law of sacrifice, the law of the gospel, the law of chastity, and the law of consecration.[^16] All Church members should become familiar with the excellent materials available at [temples.ChurchofJesusChrist.org](https://www.lds.org/temples).
 
-President Russell M. Nelson emphasized the vital balance between the sacred nature of temple ceremonies and the valuable information about temples published by the Church that is accurate, appropriate, and available publicly. He explained: “I recommend that members … read entries in the Bible Dictionary that are related to the temple, such as ‘[Anoint](https://churchofjesuschrist.org/study/scriptures/bd/anoint?lang=eng),’ ‘[Covenant](https://churchofjesuschrist.org/study/scriptures/bd/covenant?lang=eng),’ ‘[Sacrifices](https://churchofjesuschrist.org/study/scriptures/bd/sacrifices?lang=eng),’ and ‘[Temple](https://churchofjesuschrist.org/study/scriptures/bd/temple?lang=eng).’ One may also wish to read [[Exodus 26.1|Exodus, chapters 26–29]][[Exodus 26.2|]][[Exodus 26.3|]][[Exodus 26.4|]][[Exodus 26.5|]][[Exodus 26.6|]][[Exodus 26.7|]][[Exodus 26.8|]][[Exodus 26.9|]][[Exodus 26.10|]][[Exodus 26.11|]][[Exodus 26.12|]][[Exodus 26.13|]][[Exodus 26.14|]][[Exodus 26.15|]][[Exodus 26.16|]][[Exodus 26.17|]][[Exodus 26.18|]][[Exodus 26.19|]][[Exodus 26.20|]][[Exodus 26.21|]][[Exodus 26.22|]][[Exodus 26.23|]][[Exodus 26.24|]][[Exodus 26.25|]][[Exodus 26.26|]][[Exodus 26.27|]][[Exodus 26.28|]][[Exodus 26.29|]][[Exodus 26.30|]][[Exodus 26.31|]][[Exodus 26.32|]][[Exodus 26.33|]][[Exodus 26.34|]][[Exodus 26.35|]][[Exodus 26.36|]][[Exodus 26.37|]], and [[Leviticus 8.1|Leviticus, chapter 8]][[Leviticus 8.2|]][[Leviticus 8.3|]][[Leviticus 8.4|]][[Leviticus 8.5|]][[Leviticus 8.6|]][[Leviticus 8.7|]][[Leviticus 8.8|]][[Leviticus 8.9|]][[Leviticus 8.10|]][[Leviticus 8.11|]][[Leviticus 8.12|]][[Leviticus 8.13|]][[Leviticus 8.14|]][[Leviticus 8.15|]][[Leviticus 8.16|]][[Leviticus 8.17|]][[Leviticus 8.18|]][[Leviticus 8.19|]][[Leviticus 8.20|]][[Leviticus 8.21|]][[Leviticus 8.22|]][[Leviticus 8.23|]][[Leviticus 8.24|]][[Leviticus 8.25|]][[Leviticus 8.26|]][[Leviticus 8.27|]][[Leviticus 8.28|]][[Leviticus 8.29|]][[Leviticus 8.30|]][[Leviticus 8.31|]][[Leviticus 8.32|]][[Leviticus 8.33|]][[Leviticus 8.34|]][[Leviticus 8.35|]][[Leviticus 8.36|]]. The Old Testament, as well as the books of [Moses](https://churchofjesuschrist.org/study/scriptures/pgp/moses?lang=eng) and [Abraham](https://churchofjesuschrist.org/study/scriptures/pgp/abr?lang=eng) in the Pearl of Great Price, underscores the antiquity of temple work and the enduring nature of its ordinances.”[^17]
+President Russell M. Nelson emphasized the vital balance between the sacred nature of temple ceremonies and the valuable information about temples published by the Church that is accurate, appropriate, and available publicly. He explained: “I recommend that members … read entries in the Bible Dictionary that are related to the temple, such as ‘[[BD Anoint|Anoint]],’ ‘[[BD Covenant|Covenant]],’ ‘[[BD Sacrifices|Sacrifices]],’ and ‘[[BD Temple|Temple]].’ One may also wish to read [[Exodus 26.1|Exodus, chapters 26–29]][[Exodus 26.2|]][[Exodus 26.3|]][[Exodus 26.4|]][[Exodus 26.5|]][[Exodus 26.6|]][[Exodus 26.7|]][[Exodus 26.8|]][[Exodus 26.9|]][[Exodus 26.10|]][[Exodus 26.11|]][[Exodus 26.12|]][[Exodus 26.13|]][[Exodus 26.14|]][[Exodus 26.15|]][[Exodus 26.16|]][[Exodus 26.17|]][[Exodus 26.18|]][[Exodus 26.19|]][[Exodus 26.20|]][[Exodus 26.21|]][[Exodus 26.22|]][[Exodus 26.23|]][[Exodus 26.24|]][[Exodus 26.25|]][[Exodus 26.26|]][[Exodus 26.27|]][[Exodus 26.28|]][[Exodus 26.29|]][[Exodus 26.30|]][[Exodus 26.31|]][[Exodus 26.32|]][[Exodus 26.33|]][[Exodus 26.34|]][[Exodus 26.35|]][[Exodus 26.36|]][[Exodus 26.37|]], and [[Leviticus 8.1|Leviticus, chapter 8]][[Leviticus 8.2|]][[Leviticus 8.3|]][[Leviticus 8.4|]][[Leviticus 8.5|]][[Leviticus 8.6|]][[Leviticus 8.7|]][[Leviticus 8.8|]][[Leviticus 8.9|]][[Leviticus 8.10|]][[Leviticus 8.11|]][[Leviticus 8.12|]][[Leviticus 8.13|]][[Leviticus 8.14|]][[Leviticus 8.15|]][[Leviticus 8.16|]][[Leviticus 8.17|]][[Leviticus 8.18|]][[Leviticus 8.19|]][[Leviticus 8.20|]][[Leviticus 8.21|]][[Leviticus 8.22|]][[Leviticus 8.23|]][[Leviticus 8.24|]][[Leviticus 8.25|]][[Leviticus 8.26|]][[Leviticus 8.27|]][[Leviticus 8.28|]][[Leviticus 8.29|]][[Leviticus 8.30|]][[Leviticus 8.31|]][[Leviticus 8.32|]][[Leviticus 8.33|]][[Leviticus 8.34|]][[Leviticus 8.35|]][[Leviticus 8.36|]]. The Old Testament, as well as the books of [Moses](https://www.churchofjesuschrist.org/study/scriptures/pgp/moses?lang=eng) and [Abraham](https://www.churchofjesuschrist.org/study/scriptures/pgp/abr?lang=eng) in the Pearl of Great Price, underscores the antiquity of temple work and the enduring nature of its ordinances.”[^17]
 
-So, imagine that your son or daughter asks, “Someone at school told me that strange clothing is worn in the temple. Is that right?” A short video is available on temples.ChurchofJesusChrist.org entitled “.” This excellent resource explains how from ancient times men and women have embraced sacred music, different forms of prayer, symbolic religious clothing, gestures, and rituals to express their innermost feelings of devotion to God. Thus, the Church supports home-centered preparation for the glorious blessings of the temple through basic instruction and remarkable resources such as this video. Much useful information is available to you.[^18]
+So, imagine that your son or daughter asks, “Someone at school told me that strange clothing is worn in the temple. Is that right?” A short video is available on temples.ChurchofJesusChrist.org entitled “[Sacred Temple Clothing](https://www.lds.org/temples/sacred-temple-clothing).” This excellent resource explains how from ancient times men and women have embraced sacred music, different forms of prayer, symbolic religious clothing, gestures, and rituals to express their innermost feelings of devotion to God. Thus, the Church supports home-centered preparation for the glorious blessings of the temple through basic instruction and remarkable resources such as this video. Much useful information is available to you.[^18]
 
 As we strive to walk in the meekness of the Lord’s Spirit,[^19] we will be blessed to understand and achieve in our homes the necessary balance between what is and what is not appropriate to discuss about sacred temple ordinances and covenants.
 
@@ -87,7 +89,7 @@ I joyfully witness that compensating blessings will come as we strive to fulfill
 
 
 
-[^1]: Russell M. Nelson, in “[Latter-day Saint Prophet, Wife and Apostle Share Insights of Global Ministry](https://www.mormonnewsroom.org/article/latter-day-saint-prophet-wife-apostle-share-insights-global-ministry),” Newsroom, Oct. 30, 2018, newsroom.ChurchofJesusChrist.org.
+[^1]: Russell M. Nelson, in “[Latter-day Saint Prophet, Wife and Apostle Share Insights of Global Ministry](https://www.mormonnewsroom.org/article/latter-day-saint-prophet-wife-apostle-share-insights-global-ministry),” Newsroom, Oct. 30, 2018, newsroom.ChurchofJesusChrist.org.
 
 [^2]: See [[D&C 121.29|Doctrine and Covenants 121:29]].
 
@@ -97,29 +99,29 @@ I joyfully witness that compensating blessings will come as we strive to fulfill
 
 [^5]: [[Ephesians 6.13|Ephesians 6:13]].
 
-[^6]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
+[^6]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145.
 
-[^7]: [[1 Nephi 1.1|1 Nephi 1:1]].
+[^7]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
-[^8]: See [[Matthew 7.24|Matthew 7:24–27]][[Matthew 7.25|]][[Matthew 7.26|]][[Matthew 7.27|]]; [[3 Nephi 14.24|3 Nephi 14:24–27]][[3 Nephi 14.25|]][[3 Nephi 14.26|]][[3 Nephi 14.27|]]; [[3 Nephi 18.13|18:13]].
+[^8]: See [[Matthew 7.24|Matthew 7:24–27]][[Matthew 7.25|]][[Matthew 7.26|]][[Matthew 7.27|]]; [[3 Nephi 14.24|3 Nephi 14:24–27]][[3 Nephi 14.25|]][[3 Nephi 14.26|]][[3 Nephi 14.27|]]; [[3 Nephi 18.13|18:13]].
 
-[^9]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 211.
+[^9]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-17?lang=eng)* (2007), 211.
 
-[^10]: *Teachings: Joseph Smith,* 419; emphasis added.
+[^10]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-36?lang=eng),* 419; emphasis added.
 
 [^11]: [[D&C 101.22|Doctrine and Covenants 101:22]].
 
-[^12]: *Teachings of Presidents of the Church: Ezra Taft Benson* (2014), 174; emphasis added; see also Ezra Taft Benson, “[What I Hope You Will Teach Your Children about the Temple](https://churchofjesuschrist.org/study/ensign/1985/08/what-i-hope-you-will-teach-your-children-about-the-temple?lang=eng),” *Ensign,* Aug. 1985, 8.
+[^12]: *[Teachings of Presidents of the Church: Ezra Taft Benson](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-ezra-taft-benson/chapter-13-priceless-blessings-of-the-house-of-the-lord?lang=eng)* (2014), 174; emphasis added; see also Ezra Taft Benson, “[What I Hope You Will Teach Your Children about the Temple](https://www.churchofjesuschrist.org/study/ensign/1985/08/what-i-hope-you-will-teach-your-children-about-the-temple?lang=eng),” *Ensign,* Aug. 1985, 8.
 
-[^13]: *Teachings of Presidents of the Church: Howard W. Hunter* (2015), 184.
+[^13]: *[Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-13-the-temple-the-great-symbol-of-our-membership?lang=eng)* (2015), 184.
 
-[^14]: See, for example, James E. Talmage, *The House of the Lord* (1912), 99–101.
+[^14]: See, for example, James E. Talmage, *The House of the Lord* (1912), 99–101.
 
-[^15]: See James E. Talmage, *The House of the Lord,* 89–109; Russell M. Nelson, “[[2001 April - Personal Preparation for Temple Blessings.md|Personal Preparation for Temple Blessings]],” *Ensign,* May 2001, 32–34; *Liahona,* July 2001, 37–39; Boyd K. Packer, *The Holy Temple* (1980), 153–55.
+[^15]: See James E. Talmage, *The House of the Lord,* 89–109; Russell M. Nelson, “[[2001 April - Personal Preparation for Temple Blessings.md|Personal Preparation for Temple Blessings]],” *Ensign,* May 2001, 32–34; *Liahona,* July 2001, 37–39; Boyd K. Packer, *The Holy Temple* (1980), 153–55.
 
-[^16]: See *The Teachings of Ezra Taft Benson* (1988), 121; James E. Talmage, *The House of the Lord,* 100; *Preparing to Enter the Holy Temple *(pamphlet, 2002).
+[^16]: See *The Teachings of Ezra Taft Benson* (1988), 121; James E. Talmage, *The House of the Lord,* 100; *Preparing to Enter the Holy Temple *(pamphlet, 2002).
 
-[^17]: Russell M. Nelson, “[Prepare for the Blessings of the Temple](https://churchofjesuschrist.org/study/liahona/2010/10/prepare-for-the-blessings-of-the-temple?lang=eng),” *Ensign* or *Liahona,* Oct. 2010, 47.
+[^17]: Russell M. Nelson, “[Prepare for the Blessings of the Temple](https://www.churchofjesuschrist.org/study/liahona/2010/10/prepare-for-the-blessings-of-the-temple?lang=eng),” *Ensign* or *Liahona,* Oct. 2010, 47.
 
 [^18]: For example, watch a video tour of the Rome Italy Temple, or study prophetic teachings on temples (see [temples.ChurchofJesusChrist.org](https://www.lds.org/temples)).
 
@@ -127,8 +129,3 @@ I joyfully witness that compensating blessings will come as we strive to fulfill
 
 [^20]: [[D&C 109.15|Doctrine and Covenants 109:15]].
 
-
-
-
-
-#Home #Learning #Preparation #Temples

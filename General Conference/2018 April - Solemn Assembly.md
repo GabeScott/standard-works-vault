@@ -1,6 +1,8 @@
 # Solemn Assembly
 
-By Presented by President Henry B. Eyring - *Second Counselor in the First Presidency*
+Henry B. Eyring
+
+By Presented by President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -10,7 +12,7 @@ Brothers and sisters, President Nelson has asked that I handle the business of t
 
 This is an occasion of great significance for members of The Church of Jesus Christ of Latter-day Saints throughout the world.
 
-Dating from October 10, 1880, when John Taylor was sustained to succeed Brigham Young as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, each of these occasions has been designated as a formal solemn assembly of the body of the Church to express the voice of the Church.
+Dating from October 10, 1880, when John Taylor was sustained to succeed Brigham Young as prophet, seer, and revelator and President of The Church of Jesus Christ of Latter-day Saints, each of these occasions has been designated as a formal solemn assembly of the body of the Church to express the voice of the Church.
 
 We will vote by quorums and groups. Wherever you are, you are invited to stand only when requested and express by your uplifted hand that you choose to sustain those whose names will be presented. You should vote only when asked to stand.
 
@@ -32,7 +34,7 @@ It is proposed that the First Presidency sustain Dallin Harris Oaks as President
 
 Members of the First Presidency in favor may manifest it.
 
-It is proposed that the First Presidency sustain as members of the Quorum of the Twelve Apostles: M. Russell Ballard, Jeffrey R. Holland, Dieter F. Uchtdorf, David A. Bednar, Quentin L. Cook, D. Todd Christofferson, Neil L. Andersen, Ronald A. Rasband, Gary E. Stevenson, Dale G. Renlund, Gerrit Walter Gong, and Ulisses Soares.
+It is proposed that the First Presidency sustain as members of the Quorum of the Twelve Apostles: M. Russell Ballard, Jeffrey R. Holland, Dieter F. Uchtdorf, David A. Bednar, Quentin L. Cook, D. Todd Christofferson, Neil L. Andersen, Ronald A. Rasband, Gary E. Stevenson, Dale G. Renlund, Gerrit Walter Gong, and Ulisses Soares.
 
 Members of the First Presidency, please manifest it.
 
@@ -89,8 +91,3 @@ Thank you, brothers and sisters, for your love and support.
 
 
 
-
-
-
-
-#Church_Organization #Prophets

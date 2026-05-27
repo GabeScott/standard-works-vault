@@ -1,5 +1,7 @@
 # Your Patriarchal Blessing: A Liahona of Light
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1986 General Conference*
@@ -12,7 +14,7 @@ Featured in the magazine was an account of a once proud airplane, a mighty bombe
 
 Centuries earlier, a righteous and loving father by the name of Lehi took his beloved family into a desert wasteland. He journeyed in response to the voice of the Lord. But the Lord did not decree that such a “flight” be undertaken without heavenly help. The words of Nephi describe the gift provided on the morning of the historic trek:
 
-“And it came to pass that as my father arose in the morning, and went forth to the tent door, to his great astonishment he beheld upon the ground a round ball of curious workmanship; and it was of fine brass. And within the ball were two spindles; and the one pointed the way whither we should go into the wilderness” ([[1 Nephi 16.10|1 Ne. 16:10]]).
+“And it came to pass that as my father arose in the morning, and went forth to the tent door, to his great astonishment he beheld upon the ground a round ball of curious workmanship; and it was of fine brass. And within the ball were two spindles; and the one pointed the way whither we should go into the wilderness” ([[1 Nephi 16.10|1 Ne. 16:10]]).
 
 War and man-made means of destruction could not confuse or destroy this curious compass. Neither could the sudden desert sandstorms render useless its guiding powers. The prophet Alma explained that this “Liahona,” as it was called, was a compass prepared by the Lord. It worked for them according to their faith and pointed the way they should go (see [[Alma 37.38|Alma 37:38–40]][[Alma 37.39|]][[Alma 37.40|]]).
 
@@ -36,7 +38,7 @@ Your patriarchal blessing is yours and yours alone. It may be brief or lengthy, 
 
 In Lewis Carroll’s classic, *Alice’s Adventures in Wonderland,* Alice finds herself coming to a crossroads with two paths before her, each stretching onward but in opposite directions. She is confronted by the Cheshire Cat, of whom Alice asks, “Which path shall I take?”
 
-The cat answers, “That depends where you want to go. If you do not know where you want to go, it doesn’t really matter which path you take” (see *Alice’s Adventures in Wonderland,* London: J.M. Dent, 1954, p. 54).
+The cat answers, “That depends where you want to go. If you do not know where you want to go, it doesn’t really matter which path you take” (see *Alice’s Adventures in Wonderland,* London: J.M. Dent, 1954, p. 54).
 
 Unlike Alice, each of us knows where he or she wants to go. It does matter which way we go, for the path we follow in this life surely leads to the path we shall follow in the next.
 

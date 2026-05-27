@@ -1,5 +1,7 @@
 # Commitment
 
+James E. Faust
+
 By Elder F. Burton Howard - *Of the Seventy*
 
 *Given in the April session of the 1996 General Conference*
@@ -55,8 +57,3 @@ May we do so is my prayer in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Commitment #Endurance

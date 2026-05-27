@@ -1,30 +1,32 @@
 # Becoming Self-Reliant
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1991/10/becoming-self-reliant?lang=eng)
 
-Lehi and his family, after wandering in the wilderness for eight years, came to a land they called Bountiful because it was a place of much fruit and wild honey. They came to a great sea, and they rejoiced unto the Lord because He had preserved them. After they had been in the land Bountiful for a space of many days, the Lord spoke to Nephi and said, “Arise, and get thee into the mountain” ([[1 Nephi 17.7|1 Ne. 17:7]]).
+Lehi and his family, after wandering in the wilderness for eight years, came to a land they called Bountiful because it was a place of much fruit and wild honey. They came to a great sea, and they rejoiced unto the Lord because He had preserved them. After they had been in the land Bountiful for a space of many days, the Lord spoke to Nephi and said, “Arise, and get thee into the mountain” ([[1 Nephi 17.7|1 Ne. 17:7]]).
 
-Nephi obeyed the Lord; he went into the mountain and prayed. And the Lord commanded Nephi, “Thou shalt construct a ship, after the manner which I shall show thee, that I may carry thy people across these waters” ([[1 Nephi 17.8|1 Ne. 17:8]]).
+Nephi obeyed the Lord; he went into the mountain and prayed. And the Lord commanded Nephi, “Thou shalt construct a ship, after the manner which I shall show thee, that I may carry thy people across these waters” ([[1 Nephi 17.8|1 Ne. 17:8]]).
 
-Then Nephi asked the Lord, “Whither shall I go that I may find ore to molten, that I may make tools to construct the ship after the manner which thou hast shown unto me?” ([[1 Nephi 17.9|1 Ne. 17:9]]).
+Then Nephi asked the Lord, “Whither shall I go that I may find ore to molten, that I may make tools to construct the ship after the manner which thou hast shown unto me?” ([[1 Nephi 17.9|1 Ne. 17:9]]).
 
-The Lord instructed Nephi where he could find ore, but then Nephi was on his own. In 1 Nephi, chapter 17, we read:
+The Lord instructed Nephi where he could find ore, but then Nephi was on his own. In 1 Nephi, chapter 17, we read:
 
-“And it came to pass that I, Nephi, did make a bellows wherewith to blow the fire, of the skins of beasts; and after I had made a bellows, that I might have wherewith to blow the fire, I did smite two stones together that I might make fire. …
+“And it came to pass that I, Nephi, did make a bellows wherewith to blow the fire, of the skins of beasts; and after I had made a bellows, that I might have wherewith to blow the fire, I did smite two stones together that I might make fire. …
 
-“And it came to pass that I did make tools of the ore which I did molten out of the rock” ([[1 Nephi 17.11|1 Ne. 17:11, 16]][[1 Nephi 17.16|]]).
+“And it came to pass that I did make tools of the ore which I did molten out of the rock” ([[1 Nephi 17.11|1 Ne. 17:11, 16]][[1 Nephi 17.16|]]).
 
 This is one of the more interesting stories we have in the scriptures because it tells of an instance in which the Lord provided help but then stepped aside to allow one of His sons to exercise his own initiative. I have sometimes wondered what would have happened if Nephi had asked the Lord for tools instead of a place to find the ore to make the tools. I doubt the Lord would have honored Nephi’s request. You see, the Lord knew that Nephi could make the tools, and it is seldom the Lord will do something for us that we can do for ourselves.
 
 The Lord does help when we go to Him in times of need, especially when we are committed to His work and respond to His will. But the Lord only helps those who are willing to help themselves. He expects His children to be self-reliant to the degree they can be.
 
-Brigham Young instructed the Saints, “Instead of searching after what the Lord is going to do for us, let us inquire what we can do for ourselves” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], p. 293).
+Brigham Young instructed the Saints, “Instead of searching after what the Lord is going to do for us, let us inquire what we can do for ourselves” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], p. 293).
 
-Independence and self-reliance are critical to our spiritual and temporal growth. Whenever we get into situations which threaten our self-reliance, we will find our freedoms threatened as well. If we increase our dependence on anything or anyone except the Lord, we will find an immediate decrease in our freedom to act. As President Heber J. Grant declared, “Nothing destroys the individuality of a man, a woman, or a child as much as the failure to be self-reliant” (“Address,” *Relief Society Magazine,* Oct. 1937, p. 627).
+Independence and self-reliance are critical to our spiritual and temporal growth. Whenever we get into situations which threaten our self-reliance, we will find our freedoms threatened as well. If we increase our dependence on anything or anyone except the Lord, we will find an immediate decrease in our freedom to act. As President Heber J. Grant declared, “Nothing destroys the individuality of a man, a woman, or a child as much as the failure to be self-reliant” (“Address,” *Relief Society Magazine,* Oct. 1937, p. 627).
 
 Never before in my life has the doctrine of self-reliance been more needed to be preached and encouraged for the benefit of the Saints. We live in a time of rapid change. Governments are rising and falling. Industries are blooming and then all too soon becoming obsolete. New discoveries in science are soon overshadowed by new findings. Unless we are continuously expanding our understanding and vision, we, too, will become out-of-date. Research tells us that individuals entering the labor market today will be forced to find three to five different career paths during their productive years.
 
@@ -36,7 +38,7 @@ I was told that I selected the bank and went into finance as my profession. I wa
 
 Now I propose to you that in this entertaining family activity we can find the most fundamental principles of self-reliance. First, the scriptures represent our need for spiritual nourishment. In the scriptures, the Lord reveals His will to His children. From the very beginning of time, He has instructed His prophets to record His communications with them for the benefit of His children. The holy scriptures declare eternal values; they are the firm foundation on which we can build a successful mortal experience. We become more self-reliant when we study the holy scriptures, which teach the principles that provide a divine center to our lives here in mortality.
 
-We should be comforted by the fact that we have the best text which has ever been written, or ever will be written, as our guide. We can turn to [[2 Kings 5.1|2 Kings, the fifth chapter]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]][[2 Kings 5.16|]][[2 Kings 5.17|]][[2 Kings 5.18|]][[2 Kings 5.19|]][[2 Kings 5.20|]][[2 Kings 5.21|]][[2 Kings 5.22|]][[2 Kings 5.23|]][[2 Kings 5.24|]][[2 Kings 5.25|]][[2 Kings 5.26|]][[2 Kings 5.27|]], and learn about obedience. We can study the life of Job and learn integrity. King Benjamin’s address in Mosiah teaches industry. The life of Joseph, as told in [[Genesis 39.1|Genesis 39]][[Genesis 39.2|]][[Genesis 39.3|]][[Genesis 39.4|]][[Genesis 39.5|]][[Genesis 39.6|]][[Genesis 39.7|]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]][[Genesis 39.13|]][[Genesis 39.14|]][[Genesis 39.15|]][[Genesis 39.16|]][[Genesis 39.17|]][[Genesis 39.18|]][[Genesis 39.19|]][[Genesis 39.20|]][[Genesis 39.21|]][[Genesis 39.22|]][[Genesis 39.23|]], tells us what we should do when our standard of morality is being tested.
+We should be comforted by the fact that we have the best text which has ever been written, or ever will be written, as our guide. We can turn to [[2 Kings 5.1|2 Kings, the fifth chapter]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]][[2 Kings 5.16|]][[2 Kings 5.17|]][[2 Kings 5.18|]][[2 Kings 5.19|]][[2 Kings 5.20|]][[2 Kings 5.21|]][[2 Kings 5.22|]][[2 Kings 5.23|]][[2 Kings 5.24|]][[2 Kings 5.25|]][[2 Kings 5.26|]][[2 Kings 5.27|]], and learn about obedience. We can study the life of Job and learn integrity. King Benjamin’s address in Mosiah teaches industry. The life of Joseph, as told in [[Genesis 39.1|Genesis 39]][[Genesis 39.2|]][[Genesis 39.3|]][[Genesis 39.4|]][[Genesis 39.5|]][[Genesis 39.6|]][[Genesis 39.7|]][[Genesis 39.8|]][[Genesis 39.9|]][[Genesis 39.10|]][[Genesis 39.11|]][[Genesis 39.12|]][[Genesis 39.13|]][[Genesis 39.14|]][[Genesis 39.15|]][[Genesis 39.16|]][[Genesis 39.17|]][[Genesis 39.18|]][[Genesis 39.19|]][[Genesis 39.20|]][[Genesis 39.21|]][[Genesis 39.22|]][[Genesis 39.23|]], tells us what we should do when our standard of morality is being tested.
 
 These are just a few examples of the lessons we could learn from the holy scriptures. They are lessons which have stood the test of time. Our challenge is to make them come alive in the hearts and minds of our families as we assume the responsibility to teach them.
 
@@ -67,8 +69,3 @@ The principle of self-reliance is spiritual as well as temporal. It is not a doo
 
 
 
-
-
-
-
-#Obedience #Preparation #Scriptures #Self-Reliance #Welfare #Work

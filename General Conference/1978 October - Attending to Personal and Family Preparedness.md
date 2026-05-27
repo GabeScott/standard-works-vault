@@ -1,6 +1,8 @@
 # Attending to Personal and Family Preparedness
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -23,8 +25,3 @@ My message, then, is this: We cannot progress without attending to our own perso
 
 
 
-
-
-
-
-#Self-Reliance

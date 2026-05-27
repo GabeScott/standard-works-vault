@@ -1,6 +1,8 @@
 # Young Women in the Work
 
-By Bonnie L. Oscarson - *Recently Released Young Women General President*
+Henry B. Eyring
+
+By Bonnie L. Oscarson - *Recently Released Young Women General President*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -28,7 +30,7 @@ Do those who sit on ward councils, or hold any calling in the ward, see the youn
 
 As we consider the roles that our young women will be expected to assume in the near future, we might ask ourselves what kind of experiences we could provide for them now that will help with their preparation to be missionaries, gospel scholars, leaders in the Church auxiliaries, temple workers, wives, mothers, mentors, examples, and friends. They can actually begin now to fill many of those roles. Youth are often asked to help teach lessons on Sunday in their classes. Opportunities are now available for our young women to perform service in the temple previously completed by ordinance workers or volunteers when they attend with their youth groups to perform baptisms for the dead. Our Primary-age girls are now invited to attend Temple and Priesthood Preparation meetings, which will help them understand that they too are important participants in priesthood-directed work. They are learning that men, women, youth, and children are all recipients of priesthood blessings and all can take an active role in moving forward the Lord’s work.
 
-Bishops, we know your duties are often heavy, but just as one of your highest priorities is to preside over the Aaronic Priesthood quorums, *Handbook 2* explains that “the bishop and his counselors provide priesthood leadership for the Young Women organization. They watch over and strengthen individual young women, working closely with parents and Young Women leaders in this effort.” It also states that “the bishop and his counselors regularly participate in Young Women meetings, service, and activities.”[^4] We are grateful for bishops who take the time to visit Young Women classes and who provide opportunities for young women to be more than mere spectators of the work. Thank you for making sure your young women are valued participants in meeting the needs of ward members! These opportunities to serve in meaningful ways bless them much more than activities in which they are just entertained.
+Bishops, we know your duties are often heavy, but just as one of your highest priorities is to preside over the Aaronic Priesthood quorums, *Handbook 2* explains that “the bishop and his counselors provide priesthood leadership for the Young Women organization. They watch over and strengthen individual young women, working closely with parents and Young Women leaders in this effort.” It also states that “the bishop and his counselors regularly participate in Young Women meetings, service, and activities.”[^4] We are grateful for bishops who take the time to visit Young Women classes and who provide opportunities for young women to be more than mere spectators of the work. Thank you for making sure your young women are valued participants in meeting the needs of ward members! These opportunities to serve in meaningful ways bless them much more than activities in which they are just entertained.
 
 To you, the young women of the Church, your teenage years can be busy and often challenging. We have noticed that many more of you are struggling with issues of self-worth, anxiety, high levels of stress, and perhaps even depression. Turning your thoughts outward, instead of dwelling on your own problems, may not resolve all of these issues, but service can often lighten your burdens and make your challenges seem less hard. One of the best ways to increase feelings of self-worth is to show, through our concern and service to others, that we have much of worth to contribute.[^5] I encourage you young women to raise your hands to volunteer and to put those hands to work when you see needs around you. As you fulfill your covenant responsibilities and participate in building the kingdom of God, blessings will flow into your life and you’ll discover the deep and lasting joy of discipleship.
 
@@ -51,8 +53,3 @@ I testify that the work of our Heavenly Father is to bring about the immortality
 
 [^6]: See [[Moses 1.39|Moses 1:39]].
 
-
-
-
-
-#Covenants #Discipleship #Kingdom_Of_God #Responsibility #Service #Young_Women

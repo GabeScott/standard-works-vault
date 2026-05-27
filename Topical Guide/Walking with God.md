@@ -1,6 +1,5 @@
 # Walking with God
 
-
 *See also* [[God, Presence of.md|God, Presence of]]; [[Guidance, Divine.md|Guidance, Divine]]; [[Path.md|Path]]; [[Walk.md|Walk]]
 
 God *walking* in the garden, [[Genesis 3.8|Genesis 3:8]] ([[Moses 4.14|Moses 4:14]]).
@@ -9,11 +8,11 @@ Enoch *walked with God*, [[Genesis 5.24|Genesis 5:24]] ([[Moses 7.69|Moses 7:69]
 
 Noah *walked with God*, [[Genesis 6.9|Genesis 6:9]] ([[Moses 8.27|Moses 8:27]]).
 
-Abram ... *walk* before me, [[Genesis 17.1|Genesis 17:1]].
+Abram … *walk* before me, [[Genesis 17.1|Genesis 17:1]].
 
 Lord, before whom I *walk*, will send his angel, [[Genesis 24.40|Genesis 24:40]].
 
-God, before whom ... Abraham and Isaac did *walk*, [[Genesis 48.15|Genesis 48:15]].
+God, before whom … Abraham and Isaac did *walk*, [[Genesis 48.15|Genesis 48:15]].
 
 prove them, whether they will *walk* in my law, [[Exodus 16.4|Exodus 16:4]].
 
@@ -25,11 +24,11 @@ If ye *walk* in my statutes, and keep my commandments, [[Leviticus 26.3|Leviticu
 
 I will *walk* among you, and will be your God, [[Leviticus 26.12|Leviticus 26:12]] ([[2 Corinthians 6.16|2 Corinthians 6:16]]).
 
-*walk* in all the ways which the Lord ... commanded, [[Deuteronomy 5.33|Deuteronomy 5:33]] ([[Joshua 22.5|Joshua 22:5]]; [[Jeremiah 7.23|Jeremiah 7:23]]).
+*walk* in all the ways which the Lord … commanded, [[Deuteronomy 5.33|Deuteronomy 5:33]] ([[Joshua 22.5|Joshua 22:5]]; [[Jeremiah 7.23|Jeremiah 7:23]]).
 
-keep the commandments of ... God, to *walk* in his ways, [[Deuteronomy 8.6|Deuteronomy 8:6]].
+keep the commandments of … God, to *walk* in his ways, [[Deuteronomy 8.6|Deuteronomy 8:6]].
 
-fear the Lord ... to *walk* in all his ways, [[Deuteronomy 10.12|Deuteronomy 10:12]].
+fear the Lord … to *walk* in all his ways, [[Deuteronomy 10.12|Deuteronomy 10:12]].
 
 love the Lord your God, to *walk* in all his ways, [[Deuteronomy 11.22|Deuteronomy 11:22]] ([[Deuteronomy 19.9|Deuteronomy 19:9]]; [[Mosiah 6.6|Mosiah 6:6]]; [[Mosiah 23.14|Mosiah 23:14]]; [[Mosiah 29.43|Mosiah 29:43]]; [[Alma 25.14|Alma 25:14]]; [[Ether 10.2|Ether 10:2]]).
 
@@ -39,9 +38,9 @@ God *walketh* in the midst of thy camp, [[Deuteronomy 23.14|Deuteronomy 23:14]].
 
 keep the way of the Lord to *walk* therein, [[Judges 2.22|Judges 2:22]].
 
-thy house ... should *walk* before me for ever, [[1 Samuel 2.30|1 Samuel 2:30]].
+thy house … should *walk* before me for ever, [[1 Samuel 2.30|1 Samuel 2:30]].
 
-I have *walked* with all ... Israel, [[2 Samuel 7.7|2 Samuel 7:7]] ([[1 Chronicles 17.6|1 Chronicles 17:6]]).
+I have *walked* with all … Israel, [[2 Samuel 7.7|2 Samuel 7:7]] ([[1 Chronicles 17.6|1 Chronicles 17:6]]).
 
 charge of the Lord thy God, to *walk* in his ways, [[1 Kings 2.3|1 Kings 2:3]] ([[1 Kings 3.14|1 Kings 3:14]]; [[1 Kings 9.4|1 Kings 9:4]]).
 
@@ -49,7 +48,7 @@ thy servants that *walk* before thee with all their heart, [[1 Kings 8.23|1 King
 
 *walk* in my ways, and do that is right, [[1 Kings 11.38|1 Kings 11:38]].
 
-made a covenant ... to *walk* after the Lord, [[2 Kings 23.3|2 Kings 23:3]] ([[2 Chronicles 34.31|2 Chronicles 34:31]]).
+made a covenant … to *walk* after the Lord, [[2 Kings 23.3|2 Kings 23:3]] ([[2 Chronicles 34.31|2 Chronicles 34:31]]).
 
 *walk* before me, as David thy father, [[2 Chronicles 7.17|2 Chronicles 7:17]].
 
@@ -63,13 +62,13 @@ no good thing will he withhold from them that *walk* uprightly, [[Psalms 84.11|P
 
 I will *walk* in thy truth, [[Psalms 86.11|Psalms 86:11]].
 
-shall *walk* ... in the light of thy countenance, [[Psalms 89.15|Psalms 89:15]].
+shall *walk* … in the light of thy countenance, [[Psalms 89.15|Psalms 89:15]].
 
 he that *walketh* in a perfect way, he shall serve me, [[Psalms 101.6|Psalms 101:6]].
 
 I will *walk* before the Lord, [[Psalms 116.9|Psalms 116:9]].
 
-Blessed are the undefiled ... who *walk* in the law of the Lord, [[Psalms 119.1|Psalms 119:1]].
+Blessed are the undefiled … who *walk* in the law of the Lord, [[Psalms 119.1|Psalms 119:1]].
 
 he is a buckler to them that *walk* uprightly, [[Proverbs 2.7|Proverbs 2:7]].
 
@@ -81,13 +80,13 @@ just man *walketh* in his integrity, [[Proverbs 20.7|Proverbs 20:7]].
 
 Whoso *walketh* uprightly shall be saved, [[Proverbs 28.18|Proverbs 28:18]].
 
-come ... *walk* in the light of the Lord, [[Isaiah 2.5|Isaiah 2:5]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.5|2 Nephi 12:5]]).
+come … *walk* in the light of the Lord, [[Isaiah 2.5|Isaiah 2:5]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.5|2 Nephi 12:5]]).
 
 This is the way, *walk* ye in it, [[Isaiah 30.21|Isaiah 30:21]].
 
 He that *walketh* righteously, and speaketh uprightly, [[Isaiah 33.15|Isaiah 33:15]].
 
-giveth ... spirit to them that *walk* therein, [[Isaiah 42.5|Isaiah 42:5]].
+giveth … spirit to them that *walk* therein, [[Isaiah 42.5|Isaiah 42:5]].
 
 each one *walking* in his uprightness, [[Isaiah 57.2|Isaiah 57:2]].
 
@@ -95,9 +94,9 @@ where is the good way, and *walk* therein, [[Jeremiah 6.16|Jeremiah 6:16]].
 
 *walk* in my law, which I have set before you, [[Jeremiah 26.4|Jeremiah 26:4]] ([[Daniel 9.10|Daniel 9:10]]).
 
-ways of the Lord ... the just shall *walk* in them, [[Hosea 14.9|Hosea 14:9]].
+ways of the Lord … the just shall *walk* in them, [[Hosea 14.9|Hosea 14:9]].
 
-Lord require ... to *walk* humbly with thy God, [[Micah 6.8|Micah 6:8]] ([[D&C 11.12|D&C 11:12]]).
+Lord require … to *walk* humbly with thy God, [[Micah 6.8|Micah 6:8]] ([[D&C 11.12|D&C 11:12]]).
 
 If thou wilt *walk* in my ways, [[Zechariah 3.7|Zechariah 3:7]].
 
@@ -115,7 +114,7 @@ we *walk* by faith, [[2 Corinthians 5.7|2 Corinthians 5:7]].
 
 *Walk* in the Spirit, and ye shall not fulfil the lust, [[Galatians 5.16|Galatians 5:16]] ([[Galatians 5.25|Galatians 5:25]]).
 
-good works ... ordained that we should *walk* in them, [[Ephesians 2.10|Ephesians 2:10]].
+good works … ordained that we should *walk* in them, [[Ephesians 2.10|Ephesians 2:10]].
 
 *walk* worthy of the vocation, [[Ephesians 4.1|Ephesians 4:1]].
 
@@ -123,7 +122,7 @@ good works ... ordained that we should *walk* in them, [[Ephesians 2.10|Ephesian
 
 *walk* worthy of the Lord unto all pleasing, [[Colossians 1.10|Colossians 1:10]] ([[1 Thessalonians 2.12|1 Thessalonians 2:12]]).
 
-received Christ ... so *walk* ye in him, [[Colossians 2.6|Colossians 2:6]].
+received Christ … so *walk* ye in him, [[Colossians 2.6|Colossians 2:6]].
 
 *Walk* in wisdom toward them that are without, [[Colossians 4.5|Colossians 4:5]].
 
@@ -161,7 +160,7 @@ humble themselves and do *walk* after the holy order of God, [[Alma 5.54|Alma 5:
 
 whosoever will may *walk* therein and be saved, [[Alma 41.8|Alma 41:8]].
 
-Lamanites ... *walk* in truth and uprightness, [[Helaman 6.34|Helaman 6:34]].
+Lamanites … *walk* in truth and uprightness, [[Helaman 6.34|Helaman 6:34]].
 
 *walk* circumspectly before God, [[Helaman 15.5|Helaman 15:5]].
 
@@ -185,4 +184,4 @@ he saw the Lord, and he *walked* with him, [[D&C 107.49|D&C 107:49]].
 
 abide in me, and I in you; therefore *walk* with me, [[Moses 6.34|Moses 6:34]].
 
-no man laid hands on him ... for he *walked with God*, [[Moses 6.39|Moses 6:39]].
+no man laid hands on him … for he *walked with God*, [[Moses 6.39|Moses 6:39]].

@@ -1,5 +1,7 @@
 # Missionary Work Is the Lifeblood of the Church
 
+Ezra Taft Benson
+
 By Elder H. Verlan Andersen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -14,7 +16,7 @@ The history of the Lamanites just prior to the Lord’s first appearance on this
 
 There is an aspect of missionary work upon which I would like to comment briefly, and that is the joy which comes to those who engage in it.
 
-The Book of Mormon sums up the whole purpose of existence in this short sentence: “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]).
+The Book of Mormon sums up the whole purpose of existence in this short sentence: “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]).
 
 If joy is the supreme goal of life, then everyone should be intensely interested in how it may be obtained. We should be equally concerned about how we may avoid its opposite, misery. These vital topics are discussed and illustrated in the Book of Mormon, and the information concerning them is directly related to missionary work. The book tells us that those who completely devote their lives to the task of spreading the gospel experience exquisite joy, while those who oppose it and seek to promulgate falsehood suffer a misery equally intense.
 
@@ -41,8 +43,3 @@ Such is the message of my dear wife, with whom I am in total agreement. And now 
 
 
 
-
-
-
-
-#Joy #Missionary_Work

@@ -1,6 +1,8 @@
 # The Book of Mormon
 
-By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -32,13 +34,13 @@ The Book of Mormon was given to the world with the admonition that man should te
 
 *What a powerful challenge!*
 
-Brother William E. Berrett gives an account of an interesting gathering in New York City in 1938. It was the New York City Book Club. Their speaker was the Honorable Henry A. Wallace, then Secretary of Agriculture. His subject was “Good Books of the Nineteenth Century.” In the course of his remarks he said, “The greatest book published in the nineteenth century in the field of religion was the Book of Mormon. Although this book was read by less than one percent of Americans, it affected that one percent so powerfully as to change the history of the nation.”
+Brother William E. Berrett gives an account of an interesting gathering in New York City in 1938. It was the New York City Book Club. Their speaker was the Honorable Henry A. Wallace, then Secretary of Agriculture. His subject was “Good Books of the Nineteenth Century.” In the course of his remarks he said, “The greatest book published in the nineteenth century in the field of religion was the Book of Mormon. Although this book was read by less than one percent of Americans, it affected that one percent so powerfully as to change the history of the nation.”
 
-Brother Berrett states further, “It is a book that has aroused a storm of protest. It has done what the Prophet Joseph said it would do. It has divided men into two camps—those who are for it and those who are against it. There have \[possibly\] been more books written against it than against any book ever published in America. … On the shelves of the Church Library in the Church Office Building there are more than 1,500 \[anti-Mormon\] books, each of which, in a portion of its pages, makes an attack on the Book of Mormon. Fifteen hundred volumes by fifteen hundred separate authors. Of those fifteen hundred probably only two ever reached a second edition. …” (William E. Berrett, “What Is the Book of Mormon?” in *Know Your Religion Series 1953–54,* 21 Oct. 1953, pp. 1–2.)
+Brother Berrett states further, “It is a book that has aroused a storm of protest. It has done what the Prophet Joseph said it would do. It has divided men into two camps—those who are for it and those who are against it. There have \[possibly\] been more books written against it than against any book ever published in America. … On the shelves of the Church Library in the Church Office Building there are more than 1,500 \[anti-Mormon\] books, each of which, in a portion of its pages, makes an attack on the Book of Mormon. Fifteen hundred volumes by fifteen hundred separate authors. Of those fifteen hundred probably only two ever reached a second edition. …” (William E. Berrett, “What Is the Book of Mormon?” in *Know Your Religion Series 1953–54,* 21 Oct. 1953, pp. 1–2.)
 
 Critics of the Church today seldom claim the Book of Mormon to be a fraud. It has proven itself.
 
-Robert B. Downs wrote a book entitled *Books That Changed America.* He listed the Book of Mormon as one of twenty-five such books. In his comments he said, “Throughout the history of Mormonism, the Church’s most powerful and effective weapon has been the Book of Mormon.” (Robert B. Downs, *Books That Changed America,* New York: MacMillan Co., 1970, p. 35.)
+Robert B. Downs wrote a book entitled *Books That Changed America.* He listed the Book of Mormon as one of twenty-five such books. In his comments he said, “Throughout the history of Mormonism, the Church’s most powerful and effective weapon has been the Book of Mormon.” (Robert B. Downs, *Books That Changed America,* New York: MacMillan Co., 1970, p. 35.)
 
 *It is a powerful book!*
 
@@ -52,7 +54,7 @@ If the Book of Mormon is not true, then Joseph Smith was not a prophet of God. I
 
 There is a special power about the Book of Mormon. It bears a strong, silent witness of its truth as one reads it.
 
-Parley P. Pratt stated, “The Spirit of the Lord came upon me, while I read \[The Book of Mormon\], and enlightened my mind, convinced my judgment, and rivetted the truth upon my understanding, so that I knew that the book was true, just as well as a man knows the daylight from the dark night.” (*Journal of Discourses,* 5:194.)
+Parley P. Pratt stated, “The Spirit of the Lord came upon me, while I read \[The Book of Mormon\], and enlightened my mind, convinced my judgment, and rivetted the truth upon my understanding, so that I knew that the book was true, just as well as a man knows the daylight from the dark night.” (*Journal of Discourses,* 5:194.)
 
 Brigham Young said as he read the book, “I knew it was true, as well as I knew that I could see with my eyes, or feel by the touch of my fingers, or be sensible of the demonstration of any sense.” (*JD,* 3:91.)
 
@@ -72,11 +74,11 @@ The Lord said to Joseph Smith, “This generation shall have my word through you
 
 “And it speaketh harshly against sin, according to the plainness of the truth; wherefore, no man will be angry at the words which I have written save he shall be of the spirit of the devil.
 
-“… If ye shall believe in Christ ye will believe in these words, for they are the words of Christ, and he hath given them unto me; and they teach all men that they should do good.” ([[2 Nephi 33.4|2 Ne. 33:4–5, 10]][[2 Nephi 33.5|]][[2 Nephi 33.10|]].)
+“… If ye shall believe in Christ ye will believe in these words, for they are the words of Christ, and he hath given them unto me; and they teach all men that they should do good.” ([[2 Nephi 33.4|2 Ne. 33:4–5, 10]][[2 Nephi 33.5|]][[2 Nephi 33.10|]].)
 
-The Nephites were individual witnesses of the risen Lord. When he visited them, he invited them to see for themselves. He said, “Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world. …
+The Nephites were individual witnesses of the risen Lord. When he visited them, he invited them to see for themselves. He said, “Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world. …
 
-“And the multitude did see and hear and bear record; and … all of them did see and hear, every man for himself.” ([[3 Nephi 11.14|3 Ne. 11:14]]; [[3 Nephi 17.25|17:25]].)
+“And the multitude did see and hear and bear record; and … all of them did see and hear, every man for himself.” ([[3 Nephi 11.14|3 Ne. 11:14]]; [[3 Nephi 17.25|17:25]].)
 
 The Book of Mormon testifies of Joseph Smith. The prophet Lehi in his words to Joseph, his youngest son, referred to the covenant made by God to his ancestor, the great Joseph who was sold into Egypt. This unusual seer, Joseph of Egypt, received from the Lord the promise that from the fruit of his loins a righteous branch should be raised up and also the promise that the Messiah should be manifest to his descendants in the latter days. The Lord would raise up a choice seer, like unto Moses, to the remnants of Joseph:
 
@@ -86,7 +88,7 @@ The Book of Mormon testifies of Joseph Smith. The prophet Lehi in his words to J
 
 “And he shall be great like unto Moses.
 
-“And his name shall be called after me; and it shall be after the name of his father. And he shall be like unto me; for the thing, which the Lord shall bring forth by his hand, by the power of the Lord shall bring my people unto salvation.” ([[2 Nephi 3.6|2 Ne. 3:6, 8–9, 15]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.15|]].)
+“And his name shall be called after me; and it shall be after the name of his father. And he shall be like unto me; for the thing, which the Lord shall bring forth by his hand, by the power of the Lord shall bring my people unto salvation.” ([[2 Nephi 3.6|2 Ne. 3:6, 8–9, 15]][[2 Nephi 3.8|]][[2 Nephi 3.9|]][[2 Nephi 3.15|]].)
 
 Joseph Smith, the Latter-day prophet, fulfilled this prophecy.
 
@@ -97,8 +99,3 @@ I leave you my witness of the truth of this gospel and of the Book of Mormon, in
 
 
 
-
-
-
-
-#Book_Of_Mormon

@@ -1,6 +1,8 @@
 # The Faith to Ask and Then to Act
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -8,7 +10,7 @@ By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/10/38eyring?lang=eng)
 
-My beloved brothers and sisters, I am grateful for the opportunity to speak with you in this Saturday evening session of general conference. In his introduction to the conference this morning, President Russell M. Nelson said that “pure revelation for the questions in your heart will make this conference rewarding and unforgettable. If you have not yet sought for the ministering of the Holy Ghost to help you hear what the Lord would have you hear during these two days, I invite you to do so now.”[^1] I have sought for that blessing as I have prepared to receive revelation for this visit with you. My earnest prayer is that you may receive revelation from God.
+My beloved brothers and sisters, I am grateful for the opportunity to speak with you in this Saturday evening session of general conference. In his introduction to the conference this morning, President Russell M. Nelson said that “pure revelation for the questions in your heart will make this conference rewarding and unforgettable. If you have not yet sought for the ministering of the Holy Ghost to help you hear what the Lord would have you hear during these two days, I invite you to do so now.”[^1] I have sought for that blessing as I have prepared to receive revelation for this visit with you. My earnest prayer is that you may receive revelation from God.
 
 The way to receive revelation from God has not changed from the days of Adam and Eve. It has been the same for all called servants of the Lord from the beginning to the present day. It is the same for you and me. It is always done by exercising faith.[^2]
 
@@ -50,9 +52,9 @@ With increasing faith that this is the Lord’s Church and kingdom on earth, mor
 
 Opposition and trials have long been a seedbed for the growth of faith. That has always been true, especially since the beginning of the Restoration and the founding of the Lord’s Church.[^14]
 
-What President George Q. Cannon said long ago is true today and will be until the Savior comes personally to lead His Church and His people: “Obedience to the Gospel brings \[people\] into very close and intimate relationship with the Lord. It establishes a close connection between men on the earth and our Great Creator in the heavens. It brings to the human mind a feeling of perfect confidence in the Almighty and in His willingness to listen to and answer the supplications of those who trust in Him. In times of trial and difficulty this confidence is beyond price. Trouble may come upon the individual or upon the people, disaster may threaten and every human hope may seem to be overthrown, yet, where \[people\] have availed themselves of the privileges which obedience to the Gospel brings, they have a sure standing place; their feet are upon a rock that cannot be moved.”[^15]
+What President George Q. Cannon said long ago is true today and will be until the Savior comes personally to lead His Church and His people: “Obedience to the Gospel brings \[people\] into very close and intimate relationship with the Lord. It establishes a close connection between men on the earth and our Great Creator in the heavens. It brings to the human mind a feeling of perfect confidence in the Almighty and in His willingness to listen to and answer the supplications of those who trust in Him. In times of trial and difficulty this confidence is beyond price. Trouble may come upon the individual or upon the people, disaster may threaten and every human hope may seem to be overthrown, yet, where \[people\] have availed themselves of the privileges which obedience to the Gospel brings, they have a sure standing place; their feet are upon a rock that cannot be moved.”[^15]
 
-It is my testimony that the rock upon which we stand is our witness that Jesus is the Christ; that this is His Church, which He leads personally; and that President Russell M. Nelson is His living prophet today.
+It is my testimony that the rock upon which we stand is our witness that Jesus is the Christ; that this is His Church, which He leads personally; and that President Russell M. Nelson is His living prophet today.
 
 President Nelson seeks and receives direction from the Lord. He is for me an example of seeking that direction with the determination to follow it. That same determination to be obedient to the Lord’s direction is in the hearts of all those who have spoken or will speak, pray, or sing in this general conference of His Church.
 
@@ -65,7 +67,7 @@ I pray that you may have that same witness. I pray that you will ask Heavenly Fa
 
 
 
-[^1]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6–7.
+[^1]: Russell M. Nelson, “[[2021 October - Pure Truth, Pure Doctrine, and Pure Revelation.md|Pure Truth, Pure Doctrine, and Pure Revelation]],” *Liahona*, Nov. 2021, 6–7.
 
 [^2]: See [[Matthew 7.7|Matthew 7:7–8]][[Matthew 7.8|]]; [[Alma 32.26|Alma 32:26–43]][[Alma 32.27|]][[Alma 32.28|]][[Alma 32.29|]][[Alma 32.30|]][[Alma 32.31|]][[Alma 32.32|]][[Alma 32.33|]][[Alma 32.34|]][[Alma 32.35|]][[Alma 32.36|]][[Alma 32.37|]][[Alma 32.38|]][[Alma 32.39|]][[Alma 32.40|]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
@@ -77,28 +79,23 @@ I pray that you may have that same witness. I pray that you will ask Heavenly Fa
 
 [^6]: [[Luke 22.42|Luke 22:42]].
 
-[^7]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 11.31|3 Nephi 11:31–39]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
+[^7]: See [[2 Nephi 31.1|2 Nephi 31]]; [[3 Nephi 11.31|3 Nephi 11:31–39]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
 
-[^8]: [[2 Nephi 32.3|2 Nephi 32:3–6]][[2 Nephi 32.4|]][[2 Nephi 32.5|]][[2 Nephi 32.6|]].
+[^8]: [[2 Nephi 32.3|2 Nephi 32:3–6]][[2 Nephi 32.4|]][[2 Nephi 32.5|]][[2 Nephi 32.6|]].
 
 [^9]: See [[D&C 1.38|Doctrine and Covenants 1:38]].
 
-[^10]: [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]]; see also [[D&C 85.6|Doctrine and Covenants 85:6]].
+[^10]: [[1 Kings 19.11|1 Kings 19:11–12]][[1 Kings 19.12|]]; see also [[D&C 85.6|Doctrine and Covenants 85:6]].
 
-[^11]: See [[1 Nephi 3.7|1 Nephi 3:7]]; [[1 Nephi 4.6|4:6]].
+[^11]: See [[1 Nephi 3.7|1 Nephi 3:7]]; [[1 Nephi 4.6|4:6]].
 
 [^12]: “Sweet Is the Work,” *Hymns*, no. 147.
 
 [^13]: See [[Isaiah 5.20|Isaiah 5:20]]; [[Moroni 7.12|Moroni 7:12–19]][[Moroni 7.13|]][[Moroni 7.14|]][[Moroni 7.15|]][[Moroni 7.16|]][[Moroni 7.17|]][[Moroni 7.18|]][[Moroni 7.19|]].
 
-[^14]: See [[2 Nephi 2.1|2 Nephi 2:1–2, 11]][[2 Nephi 2.2|]][[2 Nephi 2.11|]].
+[^14]: See [[2 Nephi 2.1|2 Nephi 2:1–2, 11]][[2 Nephi 2.2|]][[2 Nephi 2.11|]].
 
-[^15]: *Gospel Truth: Discourses and Writings of George Q. Cannon*, sel. Jerreld L. Newquist (1987), 116.
+[^15]: *Gospel Truth: Discourses and Writings of George Q. Cannon*, sel. Jerreld L. Newquist (1987), 116.
 
 [^16]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17, 30–42, 68–72]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.68|]][[Joseph Smith History 1.69|]][[Joseph Smith History 1.70|]][[Joseph Smith History 1.71|]][[Joseph Smith History 1.72|]]; see also [[D&C 27.12|Doctrine and Covenants 27:12–13]][[D&C 27.13|]]; [[D&C 110.1|110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-
-
-
-
-#Commandments #Faith #Holy_Ghost #Jesus_Christ #Obedience #Prophets #Revelation

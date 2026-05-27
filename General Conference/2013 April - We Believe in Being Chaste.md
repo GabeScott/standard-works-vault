@@ -1,6 +1,8 @@
 # We Believe in Being Chaste
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -16,19 +18,19 @@ The eternal importance of chastity can only be understood within the overarching
 
 ## The Importance of a Physical Body
 
-Our physical bodies make possible a breadth, a depth, and an intensity of experience that simply could not be obtained in our premortal existence. Thus, our relationships with other people, our capacity to recognize and act in accordance with truth, and our ability to obey the principles and ordinances of the gospel of Jesus Christ are amplified through our physical bodies. In the school of mortality, we experience tenderness, love, kindness, happiness, sorrow, disappointment, pain, and even the challenges of physical limitations in ways that prepare us for eternity. Simply stated, there are lessons we must learn and experiences we must have, as the scriptures describe, “according to the flesh” ([[1 Nephi 19.6|1 Nephi 19:6]]; [[Alma 7.12|Alma 7:12–13]][[Alma 7.13|]]).
+Our physical bodies make possible a breadth, a depth, and an intensity of experience that simply could not be obtained in our premortal existence. Thus, our relationships with other people, our capacity to recognize and act in accordance with truth, and our ability to obey the principles and ordinances of the gospel of Jesus Christ are amplified through our physical bodies. In the school of mortality, we experience tenderness, love, kindness, happiness, sorrow, disappointment, pain, and even the challenges of physical limitations in ways that prepare us for eternity. Simply stated, there are lessons we must learn and experiences we must have, as the scriptures describe, “according to the flesh” ([[1 Nephi 19.6|1 Nephi 19:6]]; [[Alma 7.12|Alma 7:12–13]][[Alma 7.13|]]).
 
 ## The Power of Procreation
 
-After the earth was created, Adam was placed in the Garden of Eden. Importantly, however, God said “it was not good that the man should be alone” ([[Moses 3.18|Moses 3:18]]; see also [[Genesis 2.18|Genesis 2:18]]), and Eve became Adam’s wife and helpmeet. The unique combination of spiritual, physical, mental, and emotional capacities of both males and females was needed to enact the plan of happiness. “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Corinthians 11:11]]). The man and the woman are intended to learn from, strengthen, bless, and complete each other.
+After the earth was created, Adam was placed in the Garden of Eden. Importantly, however, God said “it was not good that the man should be alone” ([[Moses 3.18|Moses 3:18]]; see also [[Genesis 2.18|Genesis 2:18]]), and Eve became Adam’s wife and helpmeet. The unique combination of spiritual, physical, mental, and emotional capacities of both males and females was needed to enact the plan of happiness. “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Corinthians 11:11]]). The man and the woman are intended to learn from, strengthen, bless, and complete each other.
 
 The means by which mortal life is created is divinely appointed. “The first commandment … God gave to Adam and Eve pertained to their potential for parenthood as husband and wife” (*Ensign* or *Liahona,* Nov. 2010, 129). The commandment to multiply and replenish the earth remains in force today. Thus, marriage between a man and a woman is the authorized channel through which premortal spirits enter mortality. Complete sexual abstinence before marriage and total fidelity within marriage protect the sanctity of this sacred channel.
 
 The power of procreation is spiritually significant. Misuse of this power subverts the purposes of the Father’s plan and of our mortal existence. Our Heavenly Father and His Beloved Son are creators and have entrusted each of us with a portion of Their creative power. Specific guidelines for the proper use of the ability to create life are vital elements in the Father’s plan. How we feel about and use that supernal power will determine in large measure our happiness in mortality and our destiny in eternity.
 
-Elder Dallin H. Oaks explained:
+Elder Dallin H. Oaks explained:
 
-“The power to create mortal life is the most exalted power God has given his children. Its use was mandated in the first commandment, but another important commandment was given to forbid its misuse. The emphasis we place on the law of chastity is explained by our understanding of the purpose of our procreative powers in the accomplishment of God’s plan. …
+“The power to create mortal life is the most exalted power God has given his children. Its use was mandated in the first commandment, but another important commandment was given to forbid its misuse. The emphasis we place on the law of chastity is explained by our understanding of the purpose of our procreative powers in the accomplishment of God’s plan. …
 
 “Outside the bonds of marriage, all uses of the procreative power are to one degree or another a sinful degrading and perversion of the most divine attribute of men and women” (“The Great Plan of Happiness,” *Ensign,* Nov. 1993, 74).
 
@@ -38,7 +40,7 @@ The Church of Jesus Christ of Latter-day Saints has a single, undeviating standa
 
 ## The Natural Man
 
-To some degree, the natural man described by King Benjamin is alive and well in each of us (see [[Mosiah 3.19|Mosiah 3:19]]). The natural man or woman is unrepentant, is carnal and sensual (see [[Mosiah 16.5|Mosiah 16:5]]; [[Alma 42.10|Alma 42:10]]; [[Moses 5.13|Moses 5:13]]), is indulgent and excessive, and is prideful and selfish. As President Spencer W. Kimball taught, “The ‘natural man’ is the ‘earthy man’ who has allowed rude animal passions to overshadow his spiritual inclinations” (“Ocean Currents and Family Influences,” *Ensign,* Nov. 1974, 112).
+To some degree, the natural man described by King Benjamin is alive and well in each of us (see [[Mosiah 3.19|Mosiah 3:19]]). The natural man or woman is unrepentant, is carnal and sensual (see [[Mosiah 16.5|Mosiah 16:5]]; [[Alma 42.10|Alma 42:10]]; [[Moses 5.13|Moses 5:13]]), is indulgent and excessive, and is prideful and selfish. As President Spencer W. Kimball taught, “The ‘natural man’ is the ‘earthy man’ who has allowed rude animal passions to overshadow his spiritual inclinations” (“Ocean Currents and Family Influences,” *Ensign,* Nov. 1974, 112).
 
 In contrast, the “man \[or woman\] of Christ” ([[Helaman 3.29|Helaman 3:29]]) is spiritual and bridles all passions (see [[Alma 38.12|Alma 38:12]]), is temperate and restrained, and is benevolent and selfless. Men and women of Christ lay hold upon the word of God, deny themselves and take up His cross (see [[Matthew 16.24|Matthew 16:24]]; [[Mark 8.34|Mark 8:34]]; [[Luke 9.23|Luke 9:23]]; [[D&C 56.2|D&C 56:2]]), and press forward along a strait and narrow course of faithfulness, obedience, and devotion to the Savior and His gospel.
 
@@ -48,7 +50,7 @@ The precise nature of the test of mortality, then, can be summarized in the foll
 
 ## The Intent of the Adversary
 
-The Father’s plan is designed to provide direction for His children, to help them become happy, and to bring them safely home to Him with resurrected, exalted bodies. Heavenly Father desires us to be together in the light and filled with hope. In contrast, Lucifer labors to make the sons and daughters of God confused and unhappy and to hinder their eternal progression. The overarching intent of the father of lies is that all of us would become “miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]). Lucifer wants us ultimately to be alone in the dark and without hope.
+The Father’s plan is designed to provide direction for His children, to help them become happy, and to bring them safely home to Him with resurrected, exalted bodies. Heavenly Father desires us to be together in the light and filled with hope. In contrast, Lucifer labors to make the sons and daughters of God confused and unhappy and to hinder their eternal progression. The overarching intent of the father of lies is that all of us would become “miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]). Lucifer wants us ultimately to be alone in the dark and without hope.
 
 Satan relentlessly works to distort the most important elements of the Father’s plan. He does not have a body, and his eternal progress has been halted. Just as water flowing in a riverbed is stopped by a dam, so the adversary’s eternal progress is thwarted because he does not have a physical body. Because of his rebellion, Lucifer has denied himself all of the mortal blessings and experiences made possible through a body of flesh and bones. He cannot learn the lessons that only an embodied spirit can learn. He resents the reality of a literal and universal resurrection of all mankind. One of the potent scriptural meanings of the word *damned* is illustrated in his inability to continue developing and becoming like our Heavenly Father.
 
@@ -60,7 +62,7 @@ Violating the law of chastity is a grievous sin and a misuse of our physical tab
 
 Alma counseled his son Shiblon to “bridle all \[of his\] passions, that \[he\] may be filled with love” ([[Alma 38.12|Alma 38:12]]). Significantly, disciplining the natural man in each of us makes possible a richer, a deeper, and a more enduring love of God and of His children. Love increases through righteous restraint and decreases through impulsive indulgence.
 
-President Marion G. Romney declared:
+President Marion G. Romney declared:
 
 “I can think of no blessings to be more fervently desired than those promised to the pure and the virtuous. Jesus spoke of specific rewards for different virtues but reserved the greatest, so it seems to me, for the pure in heart, ‘for they,’ said he, ‘shall see God’ ([[Matthew 5.8|Matt. 5:8]]). And not only shall they see the Lord, but they shall feel at home in his presence.
 
@@ -81,8 +83,3 @@ The doctrine I have described will seem to be archaic and outdated to many peopl
 
 
 
-
-
-
-
-#Morality #Plan_Of_Salvation #Repentance

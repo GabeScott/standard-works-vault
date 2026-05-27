@@ -1,5 +1,7 @@
 # Concluding Remarks
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2004 General Conference*
@@ -44,8 +46,3 @@ Every man, woman, and child, boy and girl, should leave this conference a better
 
 
 
-
-
-
-
-#Home #Prayer #Repentance

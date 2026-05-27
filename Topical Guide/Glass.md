@@ -1,7 +1,6 @@
 # Glass
 
-
-*See also* [BD Glass](https://www.churchofjesuschrist.org/study/scriptures/bd/glass?lang=eng)
+*See also* [[BD Glass.md|BD Glass]]
 
 now we see through a *glass*, darkly, [[1 Corinthians 13.12|1 Corinthians 13:12]].
 
@@ -17,7 +16,7 @@ city was pure gold, like unto clear *glass*, [[Revelation 21.18|Revelation 21:18
 
 street of the city was pure gold, as it were transparent *glass*, [[Revelation 21.21|Revelation 21:21]].
 
-small stones ... as transparent *glass*, [[Ether 3.1|Ether 3:1]].
+small stones … as transparent *glass*, [[Ether 3.1|Ether 3:1]].
 
 What is the sea of *glass*, [[D&C 77.1|D&C 77:1]].
 

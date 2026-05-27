@@ -1,5 +1,7 @@
 # The State of the Church
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2003 General Conference*
@@ -18,7 +20,7 @@ In the opening of this work the Lord declared:
 
 “Hearken, O ye people of my church, saith the voice of him who dwells on high, and whose eyes are upon all men; yea, verily I say: Hearken ye people from afar; and ye that are upon the islands of the sea, listen together.
 
-“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated. …
+“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated. …
 
 “And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.
 
@@ -42,7 +44,7 @@ A California newspaper recently commented: “The white shirts, backpacks and bi
 
 “Contact with their loved ones is limited to letters and two calls a year.
 
-“They live frugally, in private homes and apartments with companion missionaries, rising at 6 a.m. to study and pray for guidance in the work they will do until long after the sun sets. …
+“They live frugally, in private homes and apartments with companion missionaries, rising at 6 a.m. to study and pray for guidance in the work they will do until long after the sun sets. …
 
 “This life, they say, is a sacrifice—and the most ‘fun’ they can imagine” (Pricilla Nordyke Roden, “Answering the Call,” *San Bernardino County Sun,* 26 Aug. 2003, p. B1).
 
@@ -94,21 +96,16 @@ May the blessings of heaven attend you. May you be faithful and true to the grea
 
 Now we have a special treat. I would like to ask Brother David B. Haight to come to the pulpit. Here is a grand old warrior. He is 97 years of age. He has lived longer than any other Apostle in the history of this dispensation. He recently became ill and has had a little difficulty. But he wanted to come this morning and just wave to you with a feeling of gratitude and appreciation for you and the great love which he feels for you. And to him, dear friend, we say, God bless you and heal you. We love you; we sustain you; we pray for you. May heaven’s blessings rest upon you, dear Brother Haight. Thank you.
 
-**Elder Haight:** Thank you.
+***Elder Haight:*** Thank you.
 
-**President Hinckley:** Do you want to wave to these people?
+***President Hinckley:*** Do you want to wave to these people?
 
-**Elder Haight:** Yes, I must. I am waving. Thank you, thank you. Nice to be with you.
+***Elder Haight:*** Yes, I must. I am waving. Thank you, thank you. Nice to be with you.
 
-**President Hinckley:** Thank you.
+***President Hinckley:*** Thank you.
 
-**President Hinckley:** We will excuse him now. He will be watching on television. What a great soldier he has been in the army of the Lord. Thank you so much, Brother Haight.
-
-
+***President Hinckley:*** We will excuse him now. He will be watching on television. What a great soldier he has been in the army of the Lord. Thank you so much, Brother Haight.
 
 
 
 
-
-
-#Church_Growth #Missionary_Work #Service

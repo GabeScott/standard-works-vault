@@ -1,5 +1,7 @@
 # Patterns of Prayer
 
+Gordon B. Hinckley
+
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -127,8 +129,3 @@ And such is my prayer for myself and my family and for all Israel. In the name o
 
 
 
-
-
-
-
-#Prayer

@@ -1,5 +1,7 @@
 # “Exceeding Great and Precious Promises”
 
+Gordon B. Hinckley
+
 By President Howard W. Hunter - *President of the Church*
 
 *Given in the October session of the 1994 General Conference*
@@ -32,7 +34,7 @@ President Smith then continued:
 
 “If at any time my brethren of the Apostleship shall see in me a disposition to depart from this principle or a forgetfulness on my part of this covenant that I make today before this body of Priesthood, I ask them in the name of my Father, that they will come to me, as my brethren, as counselors in the Priesthood, as watchmen on the towers of Zion, and remind me of this covenant and promise which I make to the body of the Church in general conference assembled at this time.
 
-“The Lord never did intend that one man should have all power, and for that reason He has placed in His Church Presidents, Apostles, High Priests, Seventies, Elders and the various offices of the Lesser Priesthood, all of which are essential in their order and place according to the authority bestowed on them” (in Conference Report, Oct.–Nov. 1901, p. 82).
+“The Lord never did intend that one man should have all power, and for that reason He has placed in His Church Presidents, Apostles, High Priests, Seventies, Elders and the various offices of the Lesser Priesthood, all of which are essential in their order and place according to the authority bestowed on them” (in Conference Report, Oct.–Nov. 1901, p. 82).
 
 Those words of President Joseph F. Smith represent my feelings today.
 
@@ -48,7 +50,7 @@ To those who are hurt or are struggling and afraid, we say, let us stand with yo
 
 We will, as you would expect us to do, continue to hold to the high standards of conduct which define a Latter-day Saint. It is the Lord who established those standards, and we are not free to set them aside.
 
-Let us study the Master’s every teaching and devote ourselves more fully to his example. He has given us “all things that pertain unto life and godliness.” He has “called us to glory and virtue” and has “given unto us exceeding great and precious promises: that by these \[we\] might be partakers of the divine nature” ([[2 Peter 1.3|2 Pet. 1:3–4]][[2 Peter 1.4|]]).
+Let us study the Master’s every teaching and devote ourselves more fully to his example. He has given us “all things that pertain unto life and godliness.” He has “called us to glory and virtue” and has “given unto us exceeding great and precious promises: that by these \[we\] might be partakers of the divine nature” ([[2 Peter 1.3|2 Pet. 1:3–4]][[2 Peter 1.4|]]).
 
 I believe in those “exceeding great and precious promises,” and I invite all within the sound of my voice to claim them. We should strive to “be partakers of the divine nature.” Only then may we truly hope for “peace in this world, and eternal life in the world to come” ([[D&C 59.23|D&C 59:23]]).
 
@@ -77,8 +79,3 @@ I pledge my life, my strength, and the full measure of my soul to serving him. M
 
 
 
-
-
-
-
-#Church_Leaders #Family #Family_History #Jesus_Christ #Prophets #Temples

@@ -1,6 +1,8 @@
 # Go Forward in Faith
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -16,7 +18,7 @@ We commemorated the Restoration with the Hosanna Shout.
 
 We unveiled a new symbol signifying our faith in the Lord Jesus Christ and for visual recognition of official Church information and materials.
 
-We have called for a global day of fasting and prayer, that the present pandemic may be controlled, caregivers protected, the economy strengthened, and life normalized. This fast will be held on Good Friday, April 10. What a great Friday that will be!
+We have called for a global day of fasting and prayer, that the present pandemic may be controlled, caregivers protected, the economy strengthened, and life normalized. This fast will be held on Good Friday, April 10. What a great Friday that will be!
 
 Next Sunday is Easter Sunday, when we will again commemorate the Atonement and Resurrection of our Lord Jesus Christ. Because of His Atonement, His gift of resurrection will come to all who have ever lived. And His gift of eternal life will come to all who qualify by fidelity to ordinances and covenants made in His holy temples.
 
@@ -73,7 +75,7 @@ I so bless you, adding once more my expression of love for each of you, in the s
 
 [^2]: See [[John 10.27|John 10:27]]; [[Revelation 3.20|Revelation 3:20]]; [[Mosiah 26.21|Mosiah 26:21, 28]][[Mosiah 26.28|]]; [[D&C 29.7|Doctrine and Covenants 29:7]].
 
-[^3]: Wilford Woodruff, [dedicatory prayer of the Salt Lake Temple](https://www.churchofjesuschrist.org/temples/details/salt-lake-temple/prayer/1893-04-06?lang=eng), Apr. 6, 1893, ChurchofJesusChrist.org; emphasis added.
+[^3]: Wilford Woodruff, [dedicatory prayer of the Salt Lake Temple](https://www.churchofjesuschrist.org/temples/details/salt-lake-temple/prayer/1893-04-06?lang=eng), Apr. 6, 1893, ChurchofJesusChrist.org; emphasis added.
 
 [^4]: For thousands of years, the Chinese people have kept clan histories and genealogies. Traditional Chinese ceremonies show respect for their ancestors, such as the Qingming Festival (清明节). This year’s Qingming Festival (清明节) was calendared for April 4–5.
 
@@ -83,10 +85,5 @@ I so bless you, adding once more my expression of love for each of you, in the s
 
 [^7]: See [[John 14.27|John 14:27]].
 
-[^8]: See [[3 Nephi 27.27|3 Nephi 27:27]].
+[^8]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
-
-
-
-
-#Covenants #Faith #Jesus_Christ #Peace #Restoration #Temples

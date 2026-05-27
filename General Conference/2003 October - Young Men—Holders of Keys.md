@@ -1,5 +1,7 @@
 # Young Men—Holders of Keys
 
+Gordon B. Hinckley
+
 By Elder Monte J. Brough - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -28,7 +30,7 @@ First, the prophet Jeremiah:
 
 “Then said I, Ah, Lord God! behold, I cannot speak: for I am a child.
 
-“But the Lord said unto me, Say not, I am a child: for thou shalt go to all that I shall send thee, and whatsoever I command thee thou shalt speak. …
+“But the Lord said unto me, Say not, I am a child: for thou shalt go to all that I shall send thee, and whatsoever I command thee thou shalt speak. …
 
 “Then the Lord put forth his hand, and touched my mouth. And the Lord said unto me, Behold, I have put my words in thy mouth.”[^2]
 
@@ -36,7 +38,7 @@ If the Lord desired, couldn’t He also put words in the mouth of a 13-year-old 
 
 Another young man, Timothy, was a missionary companion to the Apostle Paul. The epistles from Paul to Timothy are tributes to the faith and testimony of this very young man. Let me read a few extracts from those epistles:
 
-“Wherefore … stir up the gift of God, which is in thee by the putting on of my hands. …
+“Wherefore … stir up the gift of God, which is in thee by the putting on of my hands. …
 
 “\[Christ\] hath saved us, and called us with an holy calling.”[^3]
 
@@ -48,7 +50,7 @@ One of the greatest examples of a very young man making a contribution of monume
 
 “And now I, Mormon, make a record of the things which I have both seen and heard, and call it the Book of Mormon.
 
-“And about the time that Ammaron hid up the records unto the Lord, he came unto me, (I being about ten years of age, and I began to be learned somewhat after the manner of the learning of my people) and Ammaron said unto me: I perceive that thou art a sober child, and art quick to observe. …
+“And about the time that Ammaron hid up the records unto the Lord, he came unto me, (I being about ten years of age, and I began to be learned somewhat after the manner of the learning of my people) and Ammaron said unto me: I perceive that thou art a sober child, and art quick to observe. …
 
 “And behold, \[one day\] ye shall take the plates of Nephi unto yourself, and the remainder shall ye leave in the place where they are; and ye shall engrave on the plates of Nephi all the things that ye have observed concerning this people.”[^5]
 
@@ -87,16 +89,11 @@ I testify that these Aaronic Priesthood quorums hold the holy priesthood of God.
 
 [^2]: [[Jeremiah 1.4|Jeremiah 1:4–7, 9]][[Jeremiah 1.5|]][[Jeremiah 1.6|]][[Jeremiah 1.7|]][[Jeremiah 1.9|]].
 
-[^3]: [[2 Timothy 1.6|2 Timothy 1:6, 9]][[2 Timothy 1.9|]].
+[^3]: [[2 Timothy 1.6|2 Timothy 1:6, 9]][[2 Timothy 1.9|]].
 
-[^4]: [[2 Timothy 3.15|2 Timothy 3:15]].
+[^4]: [[2 Timothy 3.15|2 Timothy 3:15]].
 
 [^5]: [[Mormon 1.1|Mormon 1:1–2, 4]][[Mormon 1.2|]][[Mormon 1.4|]].
 
 [^6]: [[Mormon 2.1|Mormon 2:1–2]][[Mormon 2.2|]].
 
-
-
-
-
-#Missionary_Work #Priesthood #Service #Youth

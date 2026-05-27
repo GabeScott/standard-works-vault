@@ -1,5 +1,7 @@
 # Focus and Priorities
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -38,13 +40,13 @@ Available information wisely used is far more valuable than multiplied informati
 
 Over 45 years ago, I was introduced to a law library with hundreds of thousands of law books. (Today such a library would include millions of additional pages available by electronic data retrieval.) When I began to prepare an assigned paper, I spent many days searching in hundreds of books for the needed material. I soon learned the obvious truth (already familiar to experienced researchers) that I could never complete my assigned task within the available time unless I focused my research in the beginning and stopped that research soon enough to have time to analyze my findings and compose my conclusions.
 
-Faced with an excess of information in the marvelous resources we have been given, we must begin with focus or we are likely to become like those in the well-known prophecy about people in the last days—“ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.7|2 Tim. 3:7]]). We also need quiet time and prayerful pondering as we seek to develop information into knowledge and mature knowledge into wisdom.
+Faced with an excess of information in the marvelous resources we have been given, we must begin with focus or we are likely to become like those in the well-known prophecy about people in the last days—“ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.7|2 Tim. 3:7]]). We also need quiet time and prayerful pondering as we seek to develop information into knowledge and mature knowledge into wisdom.
 
 We also need focus to avoid what is harmful. The abundant information and images accessible on the Internet call for sharp focus and control to avoid accessing the pornography that is an increasing scourge in our society. As the *Deseret News* noted in a recent editorial, “Images that used to be hidden in out-of-the-way store counters now are as close as a mouse click” (“Staying ahead of Pornography,” 21–22 Feb. 2001, A12). The Internet has made pornography accessible almost without effort and often without leaving the privacy of one’s home or room. The Internet has also facilitated the predatory activities of adults who use its anonymity and accessibility to stalk children for evil purposes. Parents and youth, beware!
 
 There are many gospel implications of this easily accessible flood of information. For example, our Church Web site now provides access to all of the general conference addresses and other contents of Church magazines for the past 30 years. Teachers can download bales of information on any subject. When highly focused, a handout can enrich. But a bale of handouts can detract from our attempt to teach gospel principles with clarity and testimony. Stacks of supplementary material can impoverish rather than enrich, because they can blur students’ focus on the assigned principles and draw them away from prayerfully seeking to apply those principles in their own lives.
 
-Nephi taught, “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Ne. 32:3]]). That is focus. Nephi also said that as he taught from the scriptures, “I did liken all scriptures unto us, that it might be for our profit and learning” ([[1 Nephi 19.23|1 Ne. 19:23]]). That is personal application.
+Nephi taught, “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Ne. 32:3]]). That is focus. Nephi also said that as he taught from the scriptures, “I did liken all scriptures unto us, that it might be for our profit and learning” ([[1 Nephi 19.23|1 Ne. 19:23]]). That is personal application.
 
 As a further illustration of the need for focus in using and teaching from the great information resources of the past, consider the comparative value today of the advice Brigham Young gave to an audience 140 years ago with what President Hinckley and other servants of the Lord are saying to each of us right now, in this conference. Or compare the value to each of us of some other facts or advice from the distant past with what our stake president said at our last stake conference or what our bishop counseled us last Sunday.
 
@@ -58,7 +60,7 @@ I hope that these cautions on the need for focus will not be understood as hosti
 
 We also need priorities. Our priorities determine what we seek in life. Most of what has been taught in this conference concerns priorities. I hope we will heed these teachings.
 
-Jesus taught about priorities when He said, “Seek not the things of this world but seek ye first to build up the kingdom of God, and to establish his righteousness, and all these things shall be added unto you” ([[JST Matthew 6.38|JST, Matt. 6:38]]; in [[Matthew 6.note33a|Matt. 6:33, footnote a]]). “Seek … first to build up the kingdom of God” means to assign first priority to God and to His work. The work of God is to bring to pass the eternal life of His children (see [[Moses 1.39|Moses 1:39]]), and all that this entails in the birth, nurturing, teaching, and sealing of our Heavenly Father’s children. Everything else is lower in priority. Think about that reality as we consider some teachings and some examples on priorities. As someone has said, if we do not choose the kingdom of God first, it will make little difference in the long run what we have chosen instead of it.
+Jesus taught about priorities when He said, “Seek not the things of this world but seek ye first to build up the kingdom of God, and to establish his righteousness, and all these things shall be added unto you” ([[JST Matthew 6.38|JST, Matt. 6:38]]; in [Matt. 6:33, footnote a](https://www.churchofjesuschrist.org/study/scriptures/nt/matt/6?lang=eng&id=note33a#note33a)). “Seek … first to build up the kingdom of God” means to assign first priority to God and to His work. The work of God is to bring to pass the eternal life of His children (see [[Moses 1.39|Moses 1:39]]), and all that this entails in the birth, nurturing, teaching, and sealing of our Heavenly Father’s children. Everything else is lower in priority. Think about that reality as we consider some teachings and some examples on priorities. As someone has said, if we do not choose the kingdom of God first, it will make little difference in the long run what we have chosen instead of it.
 
 As regards knowledge, the highest priority religious knowledge is what we receive in the temple. That knowledge is obtained from the explicit and symbolic teachings of the endowment and from the whisperings of the Spirit that come as we are desirous to seek and receptive to hear the revelation available to us in that sacred place.
 
@@ -85,5 +87,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-#Accountability #Family #Holy_Ghost #Kingdom_Of_God #Media #Obedience #Perspective #Prayer #Priorities #Scripture_Study #Spirituality #Teaching #Temples #Time_Management #Wisdom

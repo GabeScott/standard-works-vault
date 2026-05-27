@@ -1,9 +1,8 @@
 # Valiant
 
+*See also* [[Courage.md|Courage]]; [[Valiantly.md|Valiantly]]
 
-*See also* [[Courage, Courageous.md|Courage]]; [[Valiantly.md|Valiantly]]
-
-Jesse ... a mighty *valiant* man, [[1 Samuel 16.18|1 Samuel 16:18]].
+Jesse … a mighty *valiant* man, [[1 Samuel 16.18|1 Samuel 16:18]].
 
 they are not *valiant* for the truth, [[Jeremiah 9.3|Jeremiah 9:3]].
 

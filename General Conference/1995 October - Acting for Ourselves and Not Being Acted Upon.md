@@ -1,5 +1,7 @@
 # Acting for Ourselves and Not Being Acted Upon
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -79,15 +81,15 @@ May you be equal to it, I pray humbly in the name of Jesus Christ, amen.
 
 
 
-[^1]: Story adapted from “Questions for the Iconoclast,” *Improvement Era,* June 1957, pp. 446–48.
+[^1]: Story adapted from “Questions for the Iconoclast,” *Improvement Era,* June 1957, pp. 446–48.
 
 [^2]: [[Jacob 4.14|Jacob 4:14]].
 
-[^3]: [[2 Nephi 2.26|2 Ne. 2:26]].
+[^3]: [[2 Nephi 2.26|2 Ne. 2:26]].
 
-[^4]: “Courageous Mormon Boy,” *Friend,* Aug. 1995, p. 43.
+[^4]: “Courageous Mormon Boy,” *Friend,* Aug. 1995, p. 43.
 
-[^5]: *Gospel Ideals* (Salt Lake City: Improvement Era, 1953), p. 295; emphasis added.
+[^5]: *Gospel Ideals* (Salt Lake City: Improvement Era, 1953), p. 295; emphasis added.
 
 [^6]: [[Judges 6.15|Judg. 6:15]].
 
@@ -97,8 +99,3 @@ May you be equal to it, I pray humbly in the name of Jesus Christ, amen.
 
 [^9]: [[Abraham 3.22|Abr. 3:22–23]][[Abraham 3.23|]].
 
-
-
-
-
-#Agency #Church_Leaders #Evil #God_The_Father #Jesus_Christ #Priesthood #Responsibility #Word_Of_Wisdom

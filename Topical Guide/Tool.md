@@ -1,6 +1,5 @@
 # Tool
 
-
 if thou lift up thy *tool* upon it, thou hast polluted it, [[Exodus 20.25|Exodus 20:25]] ([[Deuteronomy 27.5|Deuteronomy 27:5]]).
 
 nor any *tool* of iron heard in the house, [[1 Kings 6.7|1 Kings 6:7]].

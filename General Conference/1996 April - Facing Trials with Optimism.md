@@ -1,5 +1,7 @@
 # Facing Trials with Optimism
 
+James E. Faust
+
 By Anne Marie Rose - *Oak Hills Ninth Ward, Provo Utah Oak Hills Stake*
 
 *Given in the April session of the 1996 General Conference*
@@ -29,8 +31,3 @@ I am grateful for a living prophet who taught me to let go of feeling sorry for 
 
 
 
-
-
-
-
-#Adversity #Attitude #Church_Leaders #Prophets

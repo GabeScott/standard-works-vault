@@ -1,6 +1,8 @@
 # The Things That Matter Most
 
-By President A. Theodore Tuttle - *Of the First Council of the Seventy*
+Joseph Fielding Smith
+
+By President A. Theodore Tuttle - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -10,7 +12,7 @@ Some years ago, I read an editorial in the *Deseret News* entitled “The Mechan
 
 “Most of our readers must have smiled the other day when they read of the greyhounds in Britain *who don’t know a rabbit when they see one.* So long had they chased a mechanical rabbit around the racetrack, that when a *real rabbit* bounded across the track, the dogs didn’t give it a second look.
 
-“Stupid, eh? But sad too, this perverting of the natural instincts. …
+“Stupid, eh? But sad too, this perverting of the natural instincts. …
 
 “We chase mechanical rabbits, too.
 
@@ -20,7 +22,7 @@ Some years ago, I read an editorial in the *Deseret News* entitled “The Mechan
 
 “We chase *social pleasures* on a glittering, noisy treadmill—and ignore the privilege of a quiet hour telling bedtime stories to an innocent-eyed child.
 
-“We chase *prestige* and *wealth,* and don’t recognize the real opportunities for joy that cross our paths. …”
+“We chase *prestige* and *wealth,* and don’t recognize the real opportunities for joy that cross our paths. …”
 
 Wordsworth said words appropriate to this condition:
 
@@ -40,7 +42,7 @@ In modern revelation the Lord said:
 
 “Behold, there are many called, but few are chosen. And why are they not chosen?
 
-“Because their hearts are set so much upon the things of this world, and aspire to the honors of men. …” ([[D&C 121.34|D&C 121:34–35]][[D&C 121.35|]].)
+“Because their hearts are set so much upon the things of this world, and aspire to the honors of men. …” ([[D&C 121.34|D&C 121:34–35]][[D&C 121.35|]].)
 
 Here is instruction to straighten out our values.
 
@@ -80,15 +82,10 @@ Dr. \[Paul\] Popenoe said, “Our youth are not products of their own lives, but
 
 The Lord said: “Train up a child in the way he should go: and when he is old, he will not depart from it.” ([[Proverbs 22.6|Prov. 22:6]].)
 
-We must learn, before it is too late, the truth spoken by Elder Richard L. Evans: “There never was a tonic that would cure more social ailments than a healthy, happy home. There never was a greater source of social stability than an affectionate and understanding family. There never was a better way of helping children to happiness than the close confidence of wise and loving and responsible parents.” (*From Within These Walls* \[New York: Harper & Bros., 1959\], p. 191.)
+We must learn, before it is too late, the truth spoken by Elder Richard L. Evans: “There never was a tonic that would cure more social ailments than a healthy, happy home. There never was a greater source of social stability than an affectionate and understanding family. There never was a better way of helping children to happiness than the close confidence of wise and loving and responsible parents.” (*From Within These Walls* \[New York: Harper & Bros., 1959\], p. 191.)
 
 I was reared in a home of wise, loving, and responsible parents. I was reared in a home where a sweet mother was always awake when I came home, like Brother Dunn’s parents. There was always an opportunity to report and to talk. These sessions are some of my choicest memories. In that home was nurtured the testimony that I bear you today. I know that God lives; that Jesus is the Christ, our Savior and our Redeemer. I know that Joseph Smith was a prophet of God. I know that President Joseph Fielding Smith is a living prophet today, with the keys of the kingdom. I know that if we will follow the counsel we have been given in this conference, our homes will be better, our service more effective, and our joy more full. In the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Home #Parenthood

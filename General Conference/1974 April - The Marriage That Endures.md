@@ -1,6 +1,8 @@
 # The Marriage That Endures
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -76,7 +78,7 @@ And I remember hearing in New Zealand the testimony of a man from the far side o
 
 How shortsighted so many of us are, how prone to look only at today without thought for the morrow. But the morrow will surely come, as will also come death and separation. How sweet is the assurance, how comforting is the peace that come from the knowledge that if we marry right and live right, our relationship will continue, notwithstanding the certainty of death and the passage of time. Men may write love songs and sing them. They may yearn and hope and dream. But all of this will be only a romantic longing unless there is an exercise of authority that transcends the powers of time and death.
 
-Speaking from this pulpit many years ago, President Joseph F. Smith said, “The house of the Lord is a house of order and not a house of confusion; and that means … that there is no union for time and eternity that can be perfected outside of the law of God and the order of His house. Men may desire it, they may go through the form of it in this life, but it will be of no effect except it be done and sanctioned by divine authority, in the name of the Father and of the Son and of the Holy Ghost.” (*Gospel Doctrine,* 1971–72 Melchizedek Priesthood course of study, vol. 2, p. 1.)
+Speaking from this pulpit many years ago, President Joseph F. Smith said, “The house of the Lord is a house of order and not a house of confusion; and that means … that there is no union for time and eternity that can be perfected outside of the law of God and the order of His house. Men may desire it, they may go through the form of it in this life, but it will be of no effect except it be done and sanctioned by divine authority, in the name of the Father and of the Son and of the Holy Ghost.” (*Gospel Doctrine,* 1971–72 Melchizedek Priesthood course of study, vol. 2, p. 1.)
 
 In conclusion may I leave you a story. It is fiction, but in principle it is true. Can you imagine two young people at a time when the moon is full and the roses are in bloom and a sacred love has matured between them? Johnny says to Mary, “Mary, I love you. I want you for my wife and the mother of our children. But I don’t want you or them forever. Just for a season and then goodbye.” And she, looking at him through tears in the moonlight, says, “Johnny, you’re wonderful. There’s nobody else in all the world like you. I love you, and I want you for my husband and the father of our children, but only for a time, and then farewell.”
 
@@ -91,8 +93,3 @@ I bear witness of the living reality of the Lord Jesus Christ through whom this 
 
 
 
-
-
-
-
-#Love #Marriage

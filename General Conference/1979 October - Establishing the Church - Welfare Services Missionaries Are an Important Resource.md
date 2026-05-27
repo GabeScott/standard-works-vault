@@ -1,6 +1,8 @@
 # Establishing the Church: Welfare Services Missionaries Are an Important Resource
 
-By Elder James E. Faust - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder James E. Faust - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -20,19 +22,19 @@ We recognize that the process of establishing the Lord’s church encompasses mu
 
 Let us take note of this process:
 
-First, the doctrines are taught (see [[Alma 1.26|v. 26]]).
+First, the doctrines are taught (see [[Alma 1.26|v. 26]]).
 
-Second, members esteem each other as themselves (see [[Alma 1.26|v. 26]]).
+Second, members esteem each other as themselves (see [[Alma 1.26|v. 26]]).
 
-Third, they all labor; they work and earn that which they receive (see [[Alma 1.26|v. 26]]).
+Third, they all labor; they work and earn that which they receive (see [[Alma 1.26|v. 26]]).
 
-Fourth, they impart of their substance to the less fortunate; they serve one another (see [[Alma 1.27|v. 27]]).
+Fourth, they impart of their substance to the less fortunate; they serve one another (see [[Alma 1.27|v. 27]]).
 
-Fifth, they discipline their own appetites while at the same time caring appropriately for their own needs (see [[Alma 1.27|v. 27]]).
+Fifth, they discipline their own appetites while at the same time caring appropriately for their own needs (see [[Alma 1.27|v. 27]]).
 
 Now, listen to the declaration of the prophet:
 
-“And thus they did establish the affairs of the church. …
+“And thus they did establish the affairs of the church. …
 
 “And now, because of the steadiness of the church they began to be exceeding rich, having abundance of all things whatsoever they stood in need” ([[Alma 1.28|Alma 1:28–29]][[Alma 1.29|]]).
 
@@ -50,9 +52,9 @@ Welfare services missionaries serve under the direction of their mission preside
 
 Welfare services missionaries are, therefore, not just teaching and following welfare principles; they are an important part of the process of establishing the Church.
 
-Elder L. Tom Perry last month returned from Tonga and reported as follows:
+Elder L. Tom Perry last month returned from Tonga and reported as follows:
 
-“I was also extremely impressed with the welfare services missionary couples in Tonga. I am enclosing a picture of Brother and Sister Duane C. Thorn standing behind some sheet-metal ovens he has constructed. Brother Thorn has made over a hundred of these, and his wife has been teaching the women how to use them over a regular bonfire to bake bread. It’s the first time many of these families have had a facility to do any baking. He has also made large tubs for them to do their washing in to improve their sanitation.
+“I was also extremely impressed with the welfare services missionary couples in Tonga. I am enclosing a picture of Brother and Sister Duane C. Thorn standing behind some sheet-metal ovens he has constructed. Brother Thorn has made over a hundred of these, and his wife has been teaching the women how to use them over a regular bonfire to bake bread. It’s the first time many of these families have had a facility to do any baking. He has also made large tubs for them to do their washing in to improve their sanitation.
 
 “Another couple, by the name of Spencer, has done an outstanding job in improving the harvest of the agricultural farms of Tonga. Brother Spencer invented and taught the local people how to use several machines, including a tapa-cloth machine which has saved them many hours of difficult labor. This machine also caught the eye of the king. He has become a very close personal friend of the king. In fact, for the next month he traveled with the king and his party to all of the islands on an agricultural fair where he was a guest of the king.
 
@@ -106,13 +108,8 @@ Be aware of the valuable resource we have in welfare services missionaries.
 
 Identify those temporal challenges blocking the spiritual prosperity of your members, and systematically proceed to help them find ways in which they can overcome such deterrents and enjoy a full and Christlike life.
 
-May the Lord bless us all as we seek to establish his church. May we learn how to sing the Lord’s song in strange lands and help the less fortunate “open their eyes to a vision of eternity and show them how to reach up to the stars” (Spencer W. Kimball, Dec. 1974), I pray in the name of Jesus Christ, amen.
+May the Lord bless us all as we seek to establish his church. May we learn how to sing the Lord’s song in strange lands and help the less fortunate “open their eyes to a vision of eternity and show them how to reach up to the stars” (Spencer W. Kimball, Dec. 1974), I pray in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Welfare

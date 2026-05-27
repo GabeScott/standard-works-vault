@@ -1,6 +1,8 @@
 # Learn Obedience and Service
 
-By Elder M. Russell Ballard, Jr. - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder M. Russell Ballard, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -21,8 +23,3 @@ I have a great testimony of the gospel, for I know that it is true. I bring the 
 
 
 
-
-
-
-
-#Church_Callings

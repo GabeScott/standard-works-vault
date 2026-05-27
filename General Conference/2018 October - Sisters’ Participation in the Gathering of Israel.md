@@ -1,6 +1,8 @@
 # Sisters’ Participation in the Gathering of Israel
 
-By President Russell M. Nelson - *President of the Church*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of the Church*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -77,16 +79,11 @@ Jesus is the Christ. This is His Church. Of this I testify in the name of Jesus 
 
 
 
-[^1]: Russell M. Nelson, “[Hope of Israel](https://www.lds.org/languages/eng/content/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.lds.org.
+[^1]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018)
 
-[^2]: See [[2 Nephi 25.26|2 Nephi 25:26]].
+[^2]: See [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^3]: These documents are available online. For the Relief Society purpose statement, see [lds.org/callings/relief-society](https://www.lds.org/callings/relief-society/purposes). For the Relief Society declaration, see Mary Ellen Smoot, “[Rejoice, Daughters of Zion](https://churchofjesuschrist.org/study/liahona/2000/01/rejoice-daughters-of-zion?lang=eng),” *Ensign,* Nov. 1999, 92–94; *Liahona,* Jan. 2000, 111–14.
+[^3]: These documents are available online. For the Relief Society purpose statement, see [lds.org/callings/relief-society](https://www.lds.org/callings/relief-society/purposes). For the Relief Society declaration, see Mary Ellen Smoot, “[Rejoice, Daughters of Zion](https://www.churchofjesuschrist.org/study/liahona/2000/01/rejoice-daughters-of-zion?lang=eng),” *Ensign,* Nov. 1999, 92–94; *Liahona,* Jan. 2000, 111–14.
 
-[^4]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96; emphasis added.
+[^4]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96; emphasis added.
 
-
-
-
-
-#Book_Of_Mormon #Divine_Nature #Gathering #Media #Ministering #Motherhood #Teaching #Temple_Work

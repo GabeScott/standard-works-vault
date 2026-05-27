@@ -1,9 +1,8 @@
 # Wander, Wanderer
 
-
 *See also* [[Astray.md|Astray]]
 
-when God caused me to *wander* from my father's house, [[Genesis 20.13|Genesis 20:13]].
+when God caused me to *wander* from my father’s house, [[Genesis 20.13|Genesis 20:13]].
 
 children shall *wander* in the wilderness, [[Numbers 14.33|Numbers 14:33]].
 
@@ -33,4 +32,4 @@ they *wandered* about in sheepskins, [[Hebrews 11.37|Hebrews 11:37]].
 
 they shall *wander* in the flesh, [[1 Nephi 19.14|1 Nephi 19:14]].
 
-foolish traditions ... lead their hearts to *wander*, [[Alma 31.17|Alma 31:17]].
+foolish traditions … lead their hearts to *wander*, [[Alma 31.17|Alma 31:17]].

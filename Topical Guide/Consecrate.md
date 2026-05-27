@@ -1,9 +1,8 @@
 # Consecrate
 
+*See also* [[Consecration.md|Consecration]]; [[Dedication.md|Dedication]]; [[Hallow.md|Hallow]]; [[Present [verb].md|Present [verb]]]; [[Purification.md|Purification]]; [[Sanctification.md|Sanctification]]
 
-*See also* [[Consecration.md|Consecration]]; [[Dedication, Dedicate.md|Dedication]]; [[Hallow, Hallowed.md|Hallow]]; [[Present [verb].md|Present [verb]]]; [[Purification, Purify, Purifying.md|Purification]]; [[Sanctification, Sanctify.md|Sanctification]]
-
-*consecrate* them ... that they may minister, [[Exodus 28.41|Exodus 28:41]].
+*consecrate* them … that they may minister, [[Exodus 28.41|Exodus 28:41]].
 
 thou shalt *consecrate* Aaron and his sons, [[Exodus 29.9|Exodus 29:9]].
 
@@ -11,7 +10,7 @@ thou shalt *consecrate* Aaron and his sons, [[Exodus 29.9|Exodus 29:9]].
 
 for seven days shall he *consecrate* you, [[Leviticus 8.33|Leviticus 8:33]].
 
-priest ... whom he shall *consecrate* to minister, [[Leviticus 16.32|Leviticus 16:32]].
+priest … whom he shall *consecrate* to minister, [[Leviticus 16.32|Leviticus 16:32]].
 
 *consecrate* unto the Lord the days of his separation, [[Numbers 6.12|Numbers 6:12]].
 
@@ -27,9 +26,9 @@ maketh the Son, who is *consecrated* for evermore, [[Hebrews 7.28|Hebrews 7:28]]
 
 new and living way, which he hath *consecrated* for us, [[Hebrews 10.20|Hebrews 10:20]].
 
-*consecrate* Jacob and Joseph ... priests, [[2 Nephi 5.26|2 Nephi 5:26]].
+*consecrate* Jacob and Joseph … priests, [[2 Nephi 5.26|2 Nephi 5:26]].
 
-he will *consecrate* thy performance ... for the welfare of thy soul, [[2 Nephi 32.9|2 Nephi 32:9]].
+he will *consecrate* thy performance … for the welfare of thy soul, [[2 Nephi 32.9|2 Nephi 32:9]].
 
 had been *consecrated* priests and teachers, [[Jacob 1.18|Jacob 1:18]].
 

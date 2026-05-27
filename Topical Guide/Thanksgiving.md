@@ -1,7 +1,6 @@
 # Thanksgiving
 
-
-*See also* [[Ingratitude.md|Ingratitude]]; [[Praise.md|Praise]]; [[Prayer, Pray.md|Prayer]]; [[Rejoice.md|Rejoice]]; [[Thank.md|Thank]]; [[Thankful.md|Thankful]]; [[Thanks.md|Thanks]]
+*See also* [[Ingratitude.md|Ingratitude]]; [[Praise.md|Praise]]; [[Prayer.md|Prayer]]; [[Rejoice.md|Rejoice]]; [[Thank.md|Thank]]; [[Thankful.md|Thankful]]; [[Thanks.md|Thanks]]
 
 offer it for a *thanksgiving*, then he shall offer with the sacrifice of *thanksgiving*, [[Leviticus 7.12|Leviticus 7:12]].
 
@@ -25,13 +24,13 @@ with *thanksgiving* let your requests be made known, [[Philippians 4.6|Philippia
 
 abounding therein with *thanksgiving*, [[Colossians 2.7|Colossians 2:7]].
 
-nothing ... refused, if it be received with *thanksgiving*, [[1 Timothy 4.4|1 Timothy 4:4]] ([[D&C 78.19|D&C 78:19]]).
+nothing … refused, if it be received with *thanksgiving*, [[1 Timothy 4.4|1 Timothy 4:4]] ([[D&C 78.19|D&C 78:19]]).
 
-*thanksgiving* ... be unto our God, [[Revelation 7.12|Revelation 7:12]].
+*thanksgiving* … be unto our God, [[Revelation 7.12|Revelation 7:12]].
 
 live in *thanksgiving* daily, [[Alma 34.38|Alma 34:38]].
 
-mourning was turned into ... *thanksgiving* unto the Lord, [[3 Nephi 10.10|3 Nephi 10:10]].
+mourning was turned into … *thanksgiving* unto the Lord, [[3 Nephi 10.10|3 Nephi 10:10]].
 
 doing all things with prayer and *thanksgiving*, [[D&C 46.7|D&C 46:7]] ([[D&C 136.28|D&C 136:28]]).
 
@@ -43,4 +42,4 @@ to be used with prudence and *thanksgiving*, [[D&C 89.11|D&C 89:11]].
 
 place of *thanksgiving* for all saints, [[D&C 97.13|D&C 97:13]].
 
-praise the Lord with ... prayer of praise and *thanksgiving*, [[D&C 136.28|D&C 136:28]].
+praise the Lord with … prayer of praise and *thanksgiving*, [[D&C 136.28|D&C 136:28]].

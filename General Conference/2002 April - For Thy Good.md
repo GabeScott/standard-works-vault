@@ -1,5 +1,7 @@
 # For Thy Good
 
+Gordon B. Hinckley
+
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2002 General Conference*
@@ -45,8 +47,3 @@ I believe in prayer. I believe in faith. I believe in repentance. I believe in t
 
 
 
-
-
-
-
-#Adversity #Atonement #Faith #Plan_Of_Salvation

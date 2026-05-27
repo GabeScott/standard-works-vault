@@ -1,5 +1,7 @@
 # Heed the Prophet’s Voice
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -24,7 +26,7 @@ First, the title of seer. Moses, Samuel, Isaiah, Ezekiel, and many others were s
 
 Perhaps the best description we have of a seer is in the Book of Mormon when Ammon finds the land of Lehi-Nephi. There was much rejoicing in the land at the arrival of Ammon. King Limhi addressed his people and called on Ammon to rehearse what had happened to their brethren since they had been separated. Then King Limhi sent his people to their homes and requested that the plates containing a record of his people from the time they had left Zarahemla be brought before Ammon that he might read them. As soon as Ammon had read the record, the king inquired of him if he could interpret languages from other records he had in his possession, and Ammon told him he could not. Then Ammon said:
 
-“I can assuredly tell thee, O king, of a man that can translate the records; for he has wherewith that he can look, and translate all records that are of ancient date; and it is a gift from God. …
+“I can assuredly tell thee, O king, of a man that can translate the records; for he has wherewith that he can look, and translate all records that are of ancient date; and it is a gift from God. …
 
 “And the king said that a seer is greater than a prophet.
 
@@ -34,7 +36,7 @@ Perhaps the best description we have of a seer is in the Book of Mormon when Amm
 
 What does it mean to be a prophet? The word *prophet* in the Greek language means “inspired teacher” (*Encyclopedia of Mormonism,* ed. Daniel H. Ludlow, 5 vols. \[New York: Macmillan Publishing Co., 1992\], 3:1164). In Hebrew, the word *prophet* means “one who announces or brings a message from God.” According to Elder John A. Widtsoe:
 
-“A prophet is a teacher. That is the essential meaning of the word. He teaches the body of truth, the gospel, revealed by the Lord to man; and under inspiration explains it to the understanding of the people. He is an expounder of truth. Moreover, he shows that the way to human happiness is through obedience to God’s law. He calls to repentance those who wander away from the truth. He becomes a warrior for the consummation of the Lord’s purposes with respect to the human family. The purpose of his life is to uphold the Lord’s plan of salvation. All this he does by close communion with the Lord until he is ‘full of power by the spirit of the Lord’” (*Evidences and Reconciliations,* comp. G. Homer Durham \[Salt Lake City: Bookcraft, 1960\], p. 257).
+“A prophet is a teacher. That is the essential meaning of the word. He teaches the body of truth, the gospel, revealed by the Lord to man; and under inspiration explains it to the understanding of the people. He is an expounder of truth. Moreover, he shows that the way to human happiness is through obedience to God’s law. He calls to repentance those who wander away from the truth. He becomes a warrior for the consummation of the Lord’s purposes with respect to the human family. The purpose of his life is to uphold the Lord’s plan of salvation. All this he does by close communion with the Lord until he is ‘full of power by the spirit of the Lord’” (*Evidences and Reconciliations,* comp. G. Homer Durham \[Salt Lake City: Bookcraft, 1960\], p. 257).
 
 While my father attended LDS High School, he worked and lived in the home of President Joseph F. Smith. He wrote in his life history about President Smith:
 
@@ -73,8 +75,3 @@ May God bless us that we may follow him who has been called to be our prophet, s
 
 
 
-
-
-
-
-#Church_Leaders #Church_Organization #Howard_W._Hunter #Prophets

@@ -1,5 +1,7 @@
 # Truth Is the Issue
 
+Gordon B. Hinckley
+
 By Elder F. Enzio Busche - *Of the Seventy*
 
 *Given in the October session of the 1993 General Conference*
@@ -12,7 +14,7 @@ This message of warning reminds us that we human beings are spiritual children o
 
 In the message of the Restoration, we learn that during our mortal life our agency is tested through the inseparable connection of our spirit with the elements of this earth—“the flesh,” or the “natural man” (see [[D&C 88.15|D&C 88:15]]). By this revelation we not only understand the cause of mankind’s misery, but we also receive the keys and power that enable us to end this misery once and for all. As our minds are opened through our study of the plan of salvation, each of us comes to see that our life means that the “real me,” or the “spiritual child of God,” created in innocence and beauty, is engaged in a fight for life or death with the elements of the earth, the “flesh,” which, in its present unredeemed state, is enticed and influenced by the enemy of God.
 
-From the revelations of the Book of Mormon, we know that this enemy fights with all fury and cunningness to make all men miserable like unto himself (see [[2 Nephi 2.27|2 Ne. 2:27]]). But Jesus Christ, through His light, is searching and finding each individual child of God who is yearning and fighting for righteousness and truth and who is crying for help. Without Christ, this war within us is lost. Without Christ’s plan of redemption and His atoning sacrifice, we all would have been lost. We knew that before we came to this earth, and we can sense it again, when through the Light of Christ our minds are quickened with understanding (see [[D&C 88.11|D&C 88:11]]).
+From the revelations of the Book of Mormon, we know that this enemy fights with all fury and cunningness to make all men miserable like unto himself (see [[2 Nephi 2.27|2 Ne. 2:27]]). But Jesus Christ, through His light, is searching and finding each individual child of God who is yearning and fighting for righteousness and truth and who is crying for help. Without Christ, this war within us is lost. Without Christ’s plan of redemption and His atoning sacrifice, we all would have been lost. We knew that before we came to this earth, and we can sense it again, when through the Light of Christ our minds are quickened with understanding (see [[D&C 88.11|D&C 88:11]]).
 
 The issue is *truth,* my dear brothers and sisters, and the only way to find *truth* is through uncompromising self-education toward self-honesty to see the original “real me,” the child of God in its innocence and potential, in contrast to the influence from the other part of me, the “flesh,” with its selfish desires and foolishness. Only in that state of pure honesty are we able to see truth in its complete dimension. Honesty may not be everything, but everything is *nothing* without honesty. In its final state, honesty is a gift of the Spirit through which the true disciples of Christ feel the force to bear testimony of the truth in such a powerful way that it penetrates the very core of our existence.
 
@@ -32,11 +34,11 @@ Of such, the Apostle Paul wrote: “For men shall be lovers of their own selves,
 
 “Having a form of godliness, but denying the power thereof: …
 
-“Ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.2|2 Tim. 3:2, 5, 7]][[2 Timothy 3.5|]][[2 Timothy 3.7|]]).
+“Ever learning, and never able to come to the knowledge of the truth” ([[2 Timothy 3.2|2 Tim. 3:2, 5, 7]][[2 Timothy 3.5|]][[2 Timothy 3.7|]]).
 
 All learning leads to nothing unless it is centered on finding the roots of truth, which cannot be received without first becoming honest. In such striving, we suddenly know how to pray. Paul says, “For we know not what we should pray for as we ought: but the Spirit itself maketh intercession for us” ([[Romans 8.26|Rom. 8:26]]).
 
-Enlightened by the Spirit of truth, we will then be able to pray for the increased ability to endure truth and not to be made angry by it (see [[2 Nephi 28.28|2 Ne. 28:28]]). In the depth of such a prayer, we may finally be led to that lonesome place where we suddenly see ourselves naked in all soberness. Gone are all the little lies of self-defense. We see ourselves in our vanities and false hopes for carnal security. We are shocked to see our many deficiencies, our lack of gratitude for the smallest things. We are now at that sacred place that seemingly only a few have courage to enter, because this is that horrible place of unquenchable pain in fire and burning.
+Enlightened by the Spirit of truth, we will then be able to pray for the increased ability to endure truth and not to be made angry by it (see [[2 Nephi 28.28|2 Ne. 28:28]]). In the depth of such a prayer, we may finally be led to that lonesome place where we suddenly see ourselves naked in all soberness. Gone are all the little lies of self-defense. We see ourselves in our vanities and false hopes for carnal security. We are shocked to see our many deficiencies, our lack of gratitude for the smallest things. We are now at that sacred place that seemingly only a few have courage to enter, because this is that horrible place of unquenchable pain in fire and burning.
 
 This is that place where true repentance is born. This is that place where the conversion and the rebirth of the soul are happening. This is the place where the prophets were before they were called to serve. This is the place where converts find themselves before they can have the desire to be baptized for the remission of their sins. This is the place where sanctifications and rededications and renewal of covenants are happening. This is the place where suddenly the atonement of Christ is understood and embraced. This is the place where suddenly, when commitments have solemnly been established, the soul begins to “sing the song of redeeming love” and indestructible faith in Christ is born ([[Alma 5.26|Alma 5:26]]). This is the place where we suddenly see the heavens open as we feel the full impact of the love of our Heavenly Father, which fills us with indescribable joy.
 
@@ -47,8 +49,3 @@ Let us therefore listen, my dear brothers and sisters, to the voice of warning. 
 
 
 
-
-
-
-
-#Plan_Of_Salvation #Repentance #Truth

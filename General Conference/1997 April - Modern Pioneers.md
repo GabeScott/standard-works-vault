@@ -1,5 +1,7 @@
 # Modern Pioneers
 
+Gordon B. Hinckley
+
 By Janette Hales Beckham - *Young Women General President*
 
 *Given in the April session of the 1997 General Conference*
@@ -10,7 +12,7 @@ By Janette Hales Beckham - *Young Women General President*
 
 Tonight I pay tribute to these three young pioneers and to each of you—the pioneers of this generation. You pioneers must have the same faith in every footstep as the pioneers of the past. I am so proud of you as I see young women leading the way through acts of courage and righteousness. Your faith in the Lord helps to strengthen others who look to you as an example.
 
-The Apostle Paul counseled a youth in his time to be a pioneer. He said, “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]). That is the theme for my remarks to you tonight.
+The Apostle Paul counseled a youth in his time to be a pioneer. He said, “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]). That is the theme for my remarks to you tonight.
 
 Whether you are a Beehive, a Mia Maid, or a Laurel, you can be an example to others—an example of the believers. Gospel principles are the same yesterday, today, and tomorrow. The commitment to keep the commandments is the same in every generation.
 
@@ -56,13 +58,8 @@ I have tremendous faith in you young women. I see you struggle to overcome diffi
 
 Many years ago when I was attending a Young Women camp, I met with the young women and their leaders early one morning in a wooded area they called their sacred grove. As I looked into their faces, I realized I had been given a wonderful blessing that has remained with me. I can see divine nature. I look into your faces and see what Heavenly Father sees—your divine potential. Be an example of the believers. Stand as a witness of God as you move forward in faith.
 
-Listen again to the words of the Apostle Paul: “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]). As the pioneers of this generation, may our faith keep us on the path of eternal life, I pray in the name of Jesus Christ, amen.
+Listen again to the words of the Apostle Paul: “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Tim. 4:12]]). As the pioneers of this generation, may our faith keep us on the path of eternal life, I pray in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Commandments #Faith #Jesus_Christ #Pioneers #Plan_Of_Salvation #Prophets #Temples #Young_Women

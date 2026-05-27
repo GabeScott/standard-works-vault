@@ -1,7 +1,6 @@
 # Talk
 
-
-*See also* [[Speak, Spake, Spoken.md|Speak]]; [[Utter.md|Utter]]
+*See also* [[Speak.md|Speak]]; [[Utter.md|Utter]]
 
 I have *talked* with you from heaven, [[Exodus 20.22|Exodus 20:22]].
 
@@ -15,7 +14,7 @@ God doth *talk* with man, [[Deuteronomy 5.24|Deuteronomy 5:24]].
 
 *talk* of them when thou sittest in thine house, [[Deuteronomy 6.7|Deuteronomy 6:7]].
 
-*talk* not with us in the Jews' language, [[2 Kings 18.26|2 Kings 18:26]].
+*talk* not with us in the Jews’ language, [[2 Kings 18.26|2 Kings 18:26]].
 
 *talk* of the lips tendeth only to penury, [[Proverbs 14.23|Proverbs 14:23]].
 
@@ -43,6 +42,6 @@ brother of Jared upon the mount, when he *talked* with the Lord, [[D&C 17.1|D&C 
 
 saw God face to face, and he *talked* with him, [[Moses 1.2|Moses 1:2]].
 
-Lord ... *talked* with me, even as a man *talketh*, [[Moses 7.4|Moses 7:4]].
+Lord … *talked* with me, even as a man *talketh*, [[Moses 7.4|Moses 7:4]].
 
 Abraham, *talked* with the Lord, face to face, [[Abraham 3.11|Abraham 3:11]].

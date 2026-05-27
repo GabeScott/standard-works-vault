@@ -1,5 +1,7 @@
 # What God Hath Joined Together
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -12,15 +14,15 @@ Mothers often shed tears at a wedding ceremony. Sisters also, and sometimes fath
 
 How wonderful a thing is marriage under the plan of our Eternal Father, a plan provided in His divine wisdom for the happiness and security of His children and the continuity of the race.
 
-He is our Creator, and He designed marriage from the beginning. At the time of Eve’s creation, “Adam said, This is now bone of my bones, and flesh of my flesh: …
+He is our Creator, and He designed marriage from the beginning. At the time of Eve’s creation, “Adam said, This is now bone of my bones, and flesh of my flesh: …
 
 “Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh” ([[Genesis 2.23|Gen. 2:23–24]][[Genesis 2.24|]]).
 
-Paul wrote to the Corinthian Saints, “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]).
+Paul wrote to the Corinthian Saints, “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]).
 
 In modern revelation, the Lord has said, “And again, verily I say unto you, that whoso forbiddeth to marry is not ordained of God, for marriage is ordained of God unto man” ([[D&C 49.15|D&C 49:15]]).
 
-President Joseph F. Smith once declared “that no man can be saved and exalted in the kingdom of God without the woman, and no woman can reach perfection and exaltation in the kingdom of God, alone. … God instituted marriage in the beginning. He made man in His own image and likeness, male and female, and in their creation it was designed that they should be united together in sacred bonds of marriage, and one is not perfect without the other” (in Conference Report, April 1913, p. 118).
+President Joseph F. Smith once declared “that no man can be saved and exalted in the kingdom of God without the woman, and no woman can reach perfection and exaltation in the kingdom of God, alone. … God instituted marriage in the beginning. He made man in His own image and likeness, male and female, and in their creation it was designed that they should be united together in sacred bonds of marriage, and one is not perfect without the other” (in Conference Report, April 1913, p. 118).
 
 Surely no one reading the scriptures, both ancient and modern, can doubt the divine concept of marriage. The sweetest feelings of life, the most generous and satisfying impulses of the human heart, find expression in a marriage that stands pure and unsullied above the evil of the world.
 
@@ -34,7 +36,7 @@ Marriage usually means children and family. Can a young mother, having given bir
 
 Of course, all in marriage is not bliss. Years ago I clipped these words from a column written by Jenkins Lloyd Jones:
 
-“There seems to be a superstition among many thousands of our young who hold hands and smooch in the drive-ins that marriage is a cottage surrounded by perpetual hollyhocks to which a perpetually young and handsome husband comes home to a perpetually young and ravishing wife. When the hollyhocks wither and boredom and bills appear the divorce courts are jammed. …
+“There seems to be a superstition among many thousands of our young who hold hands and smooch in the drive-ins that marriage is a cottage surrounded by perpetual hollyhocks to which a perpetually young and handsome husband comes home to a perpetually young and ravishing wife. When the hollyhocks wither and boredom and bills appear the divorce courts are jammed. …
 
 “Anyone who imagines that bliss is normal is going to waste a lot of time running around shouting that he has been robbed” (“Big Rock Candy Mountains,” *Deseret News,* 12 June 1973, p. A4).
 
@@ -44,13 +46,13 @@ But all of this seems to be part of the processes of family life. Few indeed are
 
 Absalom was the third son of David, a son favored and loved. David had given him a name which meant “father of peace.” But he brought not peace—rather, anger and ambition and sorrow. He killed his brother and conspired against his father. In the midst of his evil actions, in his wicked pursuit for his father’s throne, while Absalom rode a mule, his head caught in the branches of an oak tree, and he was left hanging helpless. Joab, nephew of David and captain of the king’s army, seizing the opportunity to get rid of this rebellious and traitorous son, pierced his heart with darts. He apparently felt he was doing a favor to the king.
 
-But when David heard of his son’s death, even though that son had conspired to destroy him, “the king was much moved, and went up to the chamber over the gate, and wept: and as he went, thus he said, O my son Absalom, my son, my son Absalom! would God I had died for thee, O Absalom, my son, my son! … \[And\] the king covered his face, and … cried” ([[2 Samuel 18.33|2 Sam. 18:33]]; [[2 Samuel 19.4|19:4]]).
+But when David heard of his son’s death, even though that son had conspired to destroy him, “the king was much moved, and went up to the chamber over the gate, and wept: and as he went, thus he said, O my son Absalom, my son, my son Absalom! would God I had died for thee, O Absalom, my son, my son! … \[And\] the king covered his face, and … cried” ([[2 Samuel 18.33|2 Sam. 18:33]]; [[2 Samuel 19.4|19:4]]).
 
 Through the history of the generations of man, the actions of rebellious children have been ladened with sorrow and heartbreak, but even when there has been rebellion, the strong cords of family life have reached out to encircle the rebellious one.
 
 I know of no more beautiful story in all of literature than that told by the Master as recorded in the fifteenth chapter of Luke. It is the story of a heady and greedy son who demanded his inheritance, which he wasted until none was left. Penitent, he returned to his father, and his father, seeing him afar off, ran to him and embraced him and fell upon his neck and kissed him.
 
-Some of you within the sound of my voice could recount family sorrows in your own experience. But among the greatest of tragedies, and I think the most common, is divorce. It has become as a great scourge. The most recent issue of the *World Almanac* says that in the United States during the twelve months ending with March 1990, an estimated 2,423,000 couples married. During this same period, an estimated 1,177,000 couples divorced. (See *The World Almanac and Book of Facts, 1991* \[New York: World Almanac, 1990\], p. 834).
+Some of you within the sound of my voice could recount family sorrows in your own experience. But among the greatest of tragedies, and I think the most common, is divorce. It has become as a great scourge. The most recent issue of the *World Almanac* says that in the United States during the twelve months ending with March 1990, an estimated 2,423,000 couples married. During this same period, an estimated 1,177,000 couples divorced. (See *The World Almanac and Book of Facts, 1991* \[New York: World Almanac, 1990\], p. 834).
 
 This means that in the United States almost one divorce occurred for every two marriages.
 
@@ -82,7 +84,7 @@ There are so many, so very, very many, like that young mother. She recognizes a 
 
 There is a remedy for all of this. It is not found in divorce. It is found in the gospel of the Son of God. He it was who said, “What therefore God hath joined together, let not man put asunder” ([[Matthew 19.6|Matt. 19:6]]). The remedy for most marriage stress is not in divorce. It is in repentance. It is not in separation. It is in simple integrity that leads a man to square up his shoulders and meet his obligations. It is found in the Golden Rule.
 
-Marriage is beautiful when beauty is looked for and cultivated. It can be ugly and uncomfortable when one is looking for faults and is blinded to virtue. As Edgar A. Guest once remarked, “It takes a heap o’ livin’ in a house t’ make it home” (“Home,” in *Collected Verse of Edgar A. Guest* \[Chicago: Reilly and Lee Co., 1934\], p. 12). That is true. I can show you throughout this church hundreds of thousands of families who make it work with love and peace, discipline and honesty, concern and unselfishness.
+Marriage is beautiful when beauty is looked for and cultivated. It can be ugly and uncomfortable when one is looking for faults and is blinded to virtue. As Edgar A. Guest once remarked, “It takes a heap o’ livin’ in a house t’ make it home” (“Home,” in *Collected Verse of Edgar A. Guest* \[Chicago: Reilly and Lee Co., 1934\], p. 12). That is true. I can show you throughout this church hundreds of thousands of families who make it work with love and peace, discipline and honesty, concern and unselfishness.
 
 There must be recognition on the part of both husband and wife of the solemnity and sanctity of marriage and of the God-given design behind it.
 
@@ -105,8 +107,3 @@ God bless the homes of our people. May He bless those homes that there may be lo
 
 
 
-
-
-
-
-#Divorce #Marriage

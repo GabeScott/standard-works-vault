@@ -1,5 +1,7 @@
 # Standing Tall
 
+Gordon B. Hinckley
+
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the October session of the 2001 General Conference*
@@ -41,8 +43,3 @@ May we all stand tall on the side of righteousness, I pray in the sacred name of
 
 
 
-
-
-
-
-#Courage #Family #Jesus_Christ #Joy #Motherhood #Neighbors #Profanity #Satan #Sin #Spirituality #Worldliness #Youth

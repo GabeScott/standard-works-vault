@@ -1,5 +1,7 @@
 # “Here Am I, Send Me”
 
+Dallin H. Oaks
+
 By President Susan H. Porter - *Primary General President*
 
 *Given in the April session of the 2026 General Conference*
@@ -69,11 +71,9 @@ I bear my witness that God, our Heavenly Father, and His Son, Jesus Christ, love
 
 [^13]: See [[Alma 37.6|Alma 37:6]].
 
-[^14]: See [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^14]: See [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 [^15]: See [[D&C 130.18|Doctrine and Covenants 130:18]].
 
 [^16]: “[Holding Hands Around the World](https://www.churchofjesuschrist.org/study/music/hymns-for-home-and-church/holding-hands-around-the-world?lang=eng),” *Hymns for Home and Church*, Gospel Library.
 
-
-#Children #Example #Jesus_Christ #Joy #Plan_Of_Salvation

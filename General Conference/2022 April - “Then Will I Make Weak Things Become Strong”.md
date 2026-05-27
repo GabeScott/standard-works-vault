@@ -1,6 +1,8 @@
 # “Then Will I Make Weak Things Become Strong”
 
-By Elder Kevin S. Hamilton - *Of the Seventy*
+Russell M. Nelson
+
+By Elder Kevin S. Hamilton - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Kevin S. Hamilton - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/04/28hamilton?lang=eng)
 
-President Thomas S. Monson once shared the story of prison warden Clinton Duffy. “During the 1940s and 1950s, \[Warden Duffy\] was well known for his efforts to rehabilitate the men in his prison. Said one critic, ‘You should know that leopards don’t change their spots!’
+President Thomas S. Monson once shared the story of prison warden Clinton Duffy. “During the 1940s and 1950s, \[Warden Duffy\] was well known for his efforts to rehabilitate the men in his prison. Said one critic, ‘You should know that leopards don’t change their spots!’
 
 “Replied Warden Duffy, ‘You should know I don’t work with leopards. I work with men, and men change every day.’”[^1]
 
@@ -16,7 +18,7 @@ One of Satan’s greatest lies is that men and women cannot change. This untruth
 
 ## We Can Change
 
-While it is indeed good to be authentic, we should be authentic to our real, true selves as sons and daughters of God with a divine nature and destiny to become like Him.[^2] If our goal is to be authentic to this divine nature and destiny, then we will all need to change. The scriptural word for change is *repentance*. “Too many people,” President Russell M. Nelson teaches, “consider repentance as punishment—something to be avoided except in the most serious circumstances. … When Jesus asks you and me to ‘repent,’ He is inviting us to change.”[^3]
+While it is indeed good to be authentic, we should be authentic to our real, true selves as sons and daughters of God with a divine nature and destiny to become like Him.[^2] If our goal is to be authentic to this divine nature and destiny, then we will all need to change. The scriptural word for change is *repentance*. “Too many people,” President Russell M. Nelson teaches, “consider repentance as punishment—something to be avoided except in the most serious circumstances. … When Jesus asks you and me to ‘repent,’ He is inviting us to change.”[^3]
 
 ## God’s Conditions
 
@@ -32,7 +34,7 @@ Even God’s love, although infinite and perfect, is also subject to conditions.
 
 “*If* ye keep my commandments, \[*then*\] ye shall abide in my love; even as I have kept my Father’s commandments, and abide in his love.”[^7]
 
-Elder D. Todd Christofferson further expounded on this gospel truth when he taught: “Some are wont to say, ‘The Savior loves me just as I am,’ and that is certainly true. But He cannot take any of us into His kingdom just as we are, ‘for no unclean thing can dwell there, or dwell in his presence’ \[[[Moses 6.57|Moses 6:57]]\]. Our sins must first be resolved.”[^8]
+Elder D. Todd Christofferson further expounded on this gospel truth when he taught: “Some are wont to say, ‘The Savior loves me just as I am,’ and that is certainly true. But He cannot take any of us into His kingdom just as we are, ‘for no unclean thing can dwell there, or dwell in his presence’ \[[[Moses 6.57|Moses 6:57]]\]. Our sins must first be resolved.”[^8]
 
 ## Weak Things Can Become Strong
 
@@ -74,15 +76,15 @@ His son Alma spent his youth seeking to destroy the Church. He was among “the 
 
 Moses was adopted into Pharaoh’s family and raised in luxury as an Egyptian prince. But when he came to understand who he really was and learned of his divine destiny, he changed and became the great lawgiving prophet of the Old Testament.[^21]
 
-My wife’s grandfather James B. Keysor has always impressed me with his own mighty change of heart.[^22] Born of faithful Latter-day Saint pioneer ancestors in the Salt Lake Valley in 1906, he lost his mother at a young age and struggled throughout his youth. His teenage and young adult years were spent away from the Church, during which time he acquired a number of bad habits. Nevertheless, he met and married a faithful woman, and together they raised five children.
+My wife’s grandfather James B. Keysor has always impressed me with his own mighty change of heart.[^22] Born of faithful Latter-day Saint pioneer ancestors in the Salt Lake Valley in 1906, he lost his mother at a young age and struggled throughout his youth. His teenage and young adult years were spent away from the Church, during which time he acquired a number of bad habits. Nevertheless, he met and married a faithful woman, and together they raised five children.
 
-In 1943, following the difficult years of the Great Depression and during World War II, Bud, as he was called by friends and family, left Utah and moved to Los Angeles, California, to look for employment. During this time away from home, he lived with his sister and her husband, who was serving as the bishop of their ward.
+In 1943, following the difficult years of the Great Depression and during World War II, Bud, as he was called by friends and family, left Utah and moved to Los Angeles, California, to look for employment. During this time away from home, he lived with his sister and her husband, who was serving as the bishop of their ward.
 
 With the love and influence of his sister and brother-in-law, he started to revive his interest in the Church and began to read the Book of Mormon each night before going to sleep.
 
-One night, while he was reading in [[Alma 34.1|Alma chapter 34]][[Alma 34.2|]][[Alma 34.3|]][[Alma 34.4|]][[Alma 34.5|]][[Alma 34.6|]][[Alma 34.7|]][[Alma 34.8|]][[Alma 34.9|]][[Alma 34.10|]][[Alma 34.11|]][[Alma 34.12|]][[Alma 34.13|]][[Alma 34.14|]][[Alma 34.15|]][[Alma 34.16|]][[Alma 34.17|]][[Alma 34.18|]][[Alma 34.19|]][[Alma 34.20|]][[Alma 34.21|]][[Alma 34.22|]][[Alma 34.23|]][[Alma 34.24|]][[Alma 34.25|]][[Alma 34.26|]][[Alma 34.27|]][[Alma 34.28|]][[Alma 34.29|]][[Alma 34.30|]][[Alma 34.31|]][[Alma 34.32|]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]][[Alma 34.36|]][[Alma 34.37|]][[Alma 34.38|]][[Alma 34.39|]][[Alma 34.40|]][[Alma 34.41|]], his heart was touched as he read the following words:
+One night, while he was reading in [[Alma 34.1|Alma chapter 34]], his heart was touched as he read the following words:
 
-“Yea, I would that ye would come forth and harden not your hearts any longer. …
+“Yea, I would that ye would come forth and harden not your hearts any longer. …
 
 “For behold, this life is the time for men to prepare to meet God; yea, behold the day of this life is the day for men to perform their labors.”[^23]
 
@@ -97,21 +99,21 @@ I witness and testify that Jesus Christ is in reality our Savior and Redeemer. H
 
 
 
-[^1]: Thomas S. Monson, “[[2012 October - See Others as They May Become.md|See Others as They May Become]],” *Ensign* or *Liahona*, Nov. 2012, 69.
+[^1]: Thomas S. Monson, “[[2012 October - See Others as They May Become.md|See Others as They May Become]],” *Ensign* or *Liahona*, Nov. 2012, 69.
 
 [^2]: “The Family: A Proclamation to the World” states that “all human beings—male and female—are created in the image of God. Each is a beloved spirit son or daughter of heavenly parents, and, as such, each has a divine nature and destiny” (ChurchofJesusChrist.org).
 
-[^3]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
+[^3]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
 
 [^4]: [[D&C 14.7|Doctrine and Covenants 14:7]]; emphasis added.
 
 [^5]: [[Moroni 10.4|Moroni 10:4]]; emphasis added.
 
-[^6]: President Russell M. Nelson has taught: “While divine love can be called perfect, infinite, enduring, and universal, it cannot correctly be characterized as *unconditional*. The word does not appear in the scriptures. On the other hand, many verses affirm that the higher levels of love the Father and the Son feel for each of us—and certain divine blessings stemming from that love—are *conditional*” (“[Divine Love](https://churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng&id=p7#p7),” *Ensign*, Feb. 2003, 20–22; *Liahona*, Feb. 2003, 12–14).
+[^6]: President Russell M. Nelson has taught: “While divine love can be called perfect, infinite, enduring, and universal, it cannot correctly be characterized as *unconditional*. The word does not appear in the scriptures. On the other hand, many verses affirm that the higher levels of love the Father and the Son feel for each of us—and certain divine blessings stemming from that love—are *conditional*” (“[Divine Love](https://www.churchofjesuschrist.org/study/liahona/2003/02/divine-love?lang=eng&id=p7#p7),” *Ensign*, Feb. 2003, 20–22; *Liahona*, Feb. 2003, 12–14).
 
 [^7]: [[John 15.10|John 15:10]]; emphasis added.
 
-[^8]: D. Todd Christofferson, “[[2021 October - The Love of God.md|The Love of God]],” *Liahona*, Nov. 2021, 16.
+[^8]: D. Todd Christofferson, “[[2021 October - The Love of God.md|The Love of God]],” *Liahona*, Nov. 2021, 16.
 
 [^9]: [[Ether 12.27|Ether 12:27]].
 
@@ -123,11 +125,11 @@ I witness and testify that Jesus Christ is in reality our Savior and Redeemer. H
 
 [^13]: [[Ether 12.27|Ether 12:27]]; emphasis added.
 
-[^14]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 102.
+[^14]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 102.
 
 [^15]: [[Ether 12.27|Ether 12:27]].
 
-[^16]: See [[Mosiah 27.24|Mosiah 27:24–26]][[Mosiah 27.25|]][[Mosiah 27.26|]]; see also [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^16]: See [[Mosiah 27.24|Mosiah 27:24–26]][[Mosiah 27.25|]][[Mosiah 27.26|]]; see also [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
 [^17]: [[Ether 12.27|Ether 12:27]].
 
@@ -147,8 +149,3 @@ I witness and testify that Jesus Christ is in reality our Savior and Redeemer. H
 
 [^25]: [[John 14.6|John 14:6]].
 
-
-
-
-
-#Atonement #Faith #Grace #Humility #Jesus_Christ #Repentance

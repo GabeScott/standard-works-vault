@@ -1,7 +1,6 @@
 # Rashness
 
-
-*See also* [[Haste, Hasten, Hasty.md|Haste]]
+*See also* [[Haste.md|Haste]]
 
 must we *fetch* you water out of this rock, [[Numbers 20.10|Numbers 20:10]].
 
@@ -27,9 +26,9 @@ make *haste* to shed innocent blood, [[Isaiah 59.7|Isaiah 59:7]].
 
 Why is the decree so *hasty* from the king, [[Daniel 2.15|Daniel 2:15]].
 
-whosoever is *angry* ... without a cause, [[Matthew 5.22|Matthew 5:22]].
+whosoever is *angry* … without a cause, [[Matthew 5.22|Matthew 5:22]].
 
-Peter ... *cut* off his right ear, [[John 18.10|John 18:10]].
+Peter … *cut* off his right ear, [[John 18.10|John 18:10]].
 
 do nothing *rashly*, [[Acts 19.36|Acts 19:36]].
 
@@ -43,4 +42,4 @@ same that judgeth *rashly* shall be judged *rashly*, [[Mormon 8.19|Mormon 8:19]]
 
 he *rebelled* against me, saying, Give me thine honor, [[D&C 29.36|D&C 29:36]].
 
-proclaiming my word ... not in *haste*, [[D&C 60.14|D&C 60:14]].
+proclaiming my word … not in *haste*, [[D&C 60.14|D&C 60:14]].

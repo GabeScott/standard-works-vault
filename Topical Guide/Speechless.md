@@ -1,6 +1,5 @@
 # Speechless
 
-
 *See also* [[Dumb.md|Dumb]]
 
 he beckoned unto them, and remained *speechless*, [[Luke 1.22|Luke 1:22]].

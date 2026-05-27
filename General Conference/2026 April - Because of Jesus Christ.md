@@ -1,5 +1,7 @@
 # Because of Jesus Christ
 
+Dallin H. Oaks
+
 By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -57,7 +59,7 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^5]: [[Matthew 28.18|Matthew 28:18]].
 
-[^6]: See [[2 Nephi 2.8|2 Nephi 2:8]].
+[^6]: See [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^7]: [[John 14.6|John 14:6]].
 
@@ -93,11 +95,11 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^23]: See M. Russell Ballard, “[Suicide: Some Things We Know, and Some We Do Not](https://www.churchofjesuschrist.org/study/ensign/1987/10/suicide-some-things-we-know-and-some-we-do-not?lang=eng&id=p24#p24),” *Ensign*, Oct. 1987, 8.
 
-[^24]: [[D&C 137.9|Doctrine and Covenants 137:9]]; see also [[2 Nephi 9.41|2 Nephi 9:41]].
+[^24]: [[D&C 137.9|Doctrine and Covenants 137:9]]; see also [[2 Nephi 9.41|2 Nephi 9:41]].
 
 [^25]: See “Heavenly Father’s Plan of Salvation,” in *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/09-chapter-3-lesson-2?lang=eng&id=p27#p27)* (2023), 48.
 
-[^26]: See [[2 Nephi 2.1|2 Nephi 2:1–2]][[2 Nephi 2.2|]].
+[^26]: See [[2 Nephi 2.1|2 Nephi 2:1–2]][[2 Nephi 2.2|]].
 
 [^27]: See “How Firm a Foundation,” *Hymns*, no. 85.
 
@@ -129,5 +131,3 @@ On this Easter morning, I add my witness of “the great and wonderful love made
 
 [^41]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
-
-#Atonement_Of_Jesus_Christ #Easter #Forgiveness #Jesus_Christ #Joy #Repentance

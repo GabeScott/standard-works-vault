@@ -1,5 +1,7 @@
 # Obtaining Help from the Lord
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -16,9 +18,9 @@ It is evident that He intends that we do our part. But what specifically are we 
 
 The Savior declared, “I, the Lord, am bound *when ye do what I say;* but when ye do not what I say, ye have no promise” ([[D&C 82.10|D&C 82:10]]; italics added).
 
-John taught, “And whatsoever we ask, we receive of him, *because we keep his commandments,* and do those things that are pleasing in his sight” ([[1 John 3.22|1 Jn. 3:22]]; italics added).
+John taught, “And whatsoever we ask, we receive of him, *because we keep his commandments,* and do those things that are pleasing in his sight” ([[1 John 3.22|1 Jn. 3:22]]; italics added).
 
-Nephi counseled, “Do ye not remember the things which the Lord hath said?—If ye will *not harden your hearts,* and *ask me in faith,* believing that ye shall receive, *with diligence in keeping my commandments,* surely these things shall be made known unto you” ([[1 Nephi 15.11|1 Ne. 15:11]]; italics added).
+Nephi counseled, “Do ye not remember the things which the Lord hath said?—If ye will *not harden your hearts,* and *ask me in faith,* believing that ye shall receive, *with diligence in keeping my commandments,* surely these things shall be made known unto you” ([[1 Nephi 15.11|1 Ne. 15:11]]; italics added).
 
 The Lord has the power to bless us at any time. Yet we see that to count on His help, we must consistently obey His commandments.
 
@@ -30,7 +32,7 @@ The Savior taught:
 
 “Remember that without faith you can do nothing; therefore *ask in faith. Trifle not* with these things; do not ask for that which you ought not” ([[D&C 8.10|D&C 8:10]]; italics added).
 
-“And whatsoever ye shall ask the Father in my name, *which is right,* believing that ye shall receive, behold it shall be given unto you” ([[3 Nephi 18.20|3 Ne. 18:20]]; italics added).
+“And whatsoever ye shall ask the Father in my name, *which is right,* believing that ye shall receive, behold it shall be given unto you” ([[3 Nephi 18.20|3 Ne. 18:20]]; italics added).
 
 “Whatsoever ye ask the Father in my name it shall be given unto you, *that is expedient for you*” ([[D&C 88.64|D&C 88:64]]; italics added).
 
@@ -91,8 +93,3 @@ If you are despondent, racked by transgression, are ill, alone, or desperately i
 
 
 
-
-
-
-
-#Adversity #Faith #Obedience #Prayer #Spirituality

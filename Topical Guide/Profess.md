@@ -1,6 +1,5 @@
 # Profess
 
-
 I *profess* this day unto the Lord, [[Deuteronomy 26.3|Deuteronomy 26:3]].
 
 then will I *profess* unto them, I never knew you, [[Matthew 7.23|Matthew 7:23]] ([[3 Nephi 14.23|3 Nephi 14:23]]).

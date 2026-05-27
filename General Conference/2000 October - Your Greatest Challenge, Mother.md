@@ -1,5 +1,7 @@
 # Your Greatest Challenge, Mother
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2000 General Conference*
@@ -74,9 +76,9 @@ They lived in a modest home. They observed modest ways. But they nurtured their 
 
 “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
+“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
 
-It is sad and regrettable that some young men and women have their bodies tattooed. What do they hope to gain by this painful process? Is there “anything virtuous, lovely, or of good report or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]) in having unseemly so-called art impregnated into the skin to be carried throughout life, all the way down to old age and death? They must be counseled to shun it. They must be warned to avoid it. The time will come that they will regret it but will have no escape from the constant reminder of their foolishness except through another costly and painful procedure.
+It is sad and regrettable that some young men and women have their bodies tattooed. What do they hope to gain by this painful process? Is there “anything virtuous, lovely, or of good report or praiseworthy” ([[Articles of Faith 1.13|A of F 1:13]]) in having unseemly so-called art impregnated into the skin to be carried throughout life, all the way down to old age and death? They must be counseled to shun it. They must be warned to avoid it. The time will come that they will regret it but will have no escape from the constant reminder of their foolishness except through another costly and painful procedure.
 
 I submit that it is an uncomely thing, and yet a common thing, to see young men with ears pierced for earrings, not for one pair only, but for several.
 
@@ -106,13 +108,8 @@ Lest you think I am putting all of this responsibility on you, I may say that I 
 
 May the blessings of heaven rest upon you, my dear sisters. May you not trade a present thing of transient value for the greater good of sons and daughters, boys and girls, young men and women for whose upbringing you have an inescapable responsibility.
 
-May the virtue of your children’s lives sanctify and hallow your old age. May you be led to exclaim with gratitude as did John, “I have no greater joy than to hear that my children walk in truth” ([[3 John 1.4|3 Jn. 1:4]]). For this I pray, and pray most earnestly, in the sacred name of Jesus Christ, amen.
+May the virtue of your children’s lives sanctify and hallow your old age. May you be led to exclaim with gratitude as did John, “I have no greater joy than to hear that my children walk in truth” ([[3 John 1.4|3 Jn. 1:4]]). For this I pray, and pray most earnestly, in the sacred name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Children #Education #Family #Friendship #Home #Honesty #Loneliness #Motherhood #Prayer #Respect #Single_Members #Standards #Teaching #Tolerance #Women #Word_Of_Wisdom

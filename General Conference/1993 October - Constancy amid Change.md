@@ -1,5 +1,7 @@
 # Constancy amid Change
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1993 General Conference*
@@ -30,7 +32,7 @@ Another personage is the Holy Ghost, whose enduring influence transcends time. S
 
 Brothers and sisters, these Heavenly Beings love you. Their love is as constant as is the greatest love of earthly parents.
 
-But there is another personage about whom you should be reminded. Satan also exists and seeks “that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).[^7]
+But there is another personage about whom you should be reminded. Satan also exists and seeks “that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).[^7]
 
 ## II. Plans
 
@@ -50,9 +52,9 @@ If that state had persisted, you and I would still be stranded among the heavenl
 
 That leads us to the fall of Adam. To bring the plan of happiness to fruition, God issued to Adam and Eve the first commandment ever given to mankind. It was a commandment to beget children.[^23] A law was explained to them. Should they eat from “the tree of the knowledge of good and evil” ([[Genesis 2.17|Gen. 2:17]]), their bodies would change; mortality and eventual death would come upon them.[^24] But partaking of that fruit was prerequisite to their parenthood.[^25]
 
-While I do not fully understand all the biochemistry involved, I do know that their physical bodies did change; blood began to circulate in their bodies. Adam and Eve thereby became mortal. Happily for us, they could also beget children and fulfill the purposes for which the world was created. Happily for them, “the Lord said unto Adam \[and Eve[^26]\]: Behold I have forgiven thee thy transgression in the Garden of Eden” ([[Moses 6.53|Moses 6:53]]). We and all mankind are forever blessed because of Eve’s great courage and wisdom. By partaking of the fruit first, she did what needed to be done. Adam was wise enough to do likewise. Accordingly, we could speak of the fall of Adam in terms of a *mortal* creation, because “Adam fell that men might be” ([[2 Nephi 2.25|2 Ne. 2:25]]).[^27]
+While I do not fully understand all the biochemistry involved, I do know that their physical bodies did change; blood began to circulate in their bodies. Adam and Eve thereby became mortal. Happily for us, they could also beget children and fulfill the purposes for which the world was created. Happily for them, “the Lord said unto Adam \[and Eve[^26]\]: Behold I have forgiven thee thy transgression in the Garden of Eden” ([[Moses 6.53|Moses 6:53]]). We and all mankind are forever blessed because of Eve’s great courage and wisdom. By partaking of the fruit first, she did what needed to be done. Adam was wise enough to do likewise. Accordingly, we could speak of the fall of Adam in terms of a *mortal* creation, because “Adam fell that men might be” ([[2 Nephi 2.25|2 Ne. 2:25]]).[^27]
 
-Other blessings came to us through the Fall. It activated two closely coupled additional gifts from God, nearly as precious as life itself—agency and accountability. We became “free to choose liberty and eternal life … or to choose captivity and death” ([[2 Nephi 2.27|2 Ne. 2:27]]). Freedom of choice cannot be exercised without accountability for choices made.[^28]
+Other blessings came to us through the Fall. It activated two closely coupled additional gifts from God, nearly as precious as life itself—agency and accountability. We became “free to choose liberty and eternal life … or to choose captivity and death” ([[2 Nephi 2.27|2 Ne. 2:27]]). Freedom of choice cannot be exercised without accountability for choices made.[^28]
 
 ### The Atonement
 
@@ -68,7 +70,7 @@ According to eternal law, that atonement required a personal sacrifice by an imm
 
 The Lord declared that “this is my work and my glory—to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]). He who had created the earth came into mortality to fulfill the will of His Father[^30] and all prophecies of His atonement.[^31] And His atonement redeems every soul from penalties of personal transgression, on the condition of repentance.[^32]
 
-Thus, we might speak of the Atonement in terms of the *immortal* creation. “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
+Thus, we might speak of the Atonement in terms of the *immortal* creation. “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
 
 I have recounted the importance of the Creation, the Fall, and the Atonement, knowing that parents are accountable to teach these precepts of God’s plan to their children.[^33]
 
@@ -82,9 +84,9 @@ Unchanging principles are so because they come from our unchanging Heavenly Fath
 
 ### Priesthood
 
-One of them is that of the priesthood. The Prophet Joseph Smith taught that “the Priesthood is an everlasting principle, and existed with God from eternity, and will to eternity, without beginning of days or end of years” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 157).[^35]
+One of them is that of the priesthood. The Prophet Joseph Smith taught that “the Priesthood is an everlasting principle, and existed with God from eternity, and will to eternity, without beginning of days or end of years” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 157).[^35]
 
-We know that “the Priesthood was first given to Adam; he obtained the First Presidency, and held the keys of it from generation to generation. He obtained it in the Creation, before the world was formed” (*Teachings of the Prophet Joseph Smith,* p. 157).
+We know that “the Priesthood was first given to Adam; he obtained the First Presidency, and held the keys of it from generation to generation. He obtained it in the Creation, before the world was formed” (*Teachings of the Prophet Joseph Smith,* p. 157).
 
 Scriptures certify that the priesthood has continued and will continue “through the lineage of \[the\] fathers” ([[D&C 86.8|D&C 86:8]]).[^36] Ordination to its offices has timeless implication as well. Tenure in priesthood office may extend into postmortal realms. For example, scriptures declare that one ordained as a high priest may be a high priest forever.[^37] Promised *blessings* of the priesthood extend to men, women, and children throughout the world and may endure forever.[^38]
 
@@ -133,7 +135,7 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 
 
 
-[^1]: For example, see Albert E. Bowen, *Constancy amid Change* (Salt Lake City: Deseret News Press, 1944); N. Eldon Tanner, in Conference Report, Oct. 1979, pp. 117–21; or *Ensign,* Nov. 1979, pp. 80–82.
+[^1]: For example, see Albert E. Bowen, *Constancy amid Change* (Salt Lake City: Deseret News Press, 1944); N. Eldon Tanner, in Conference Report, Oct. 1979, [[1979 October - Constancy amid Change.md|pp. 117–21]]; or *Ensign,* Nov. 1979, pp. 80–82.
 
 [^2]: See [[D&C 93.33|D&C 93:33]]; [[D&C 130.22|130:22]].
 
@@ -141,15 +143,15 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 
 [^4]: See [[Ephesians 2.20|Eph. 2:20]].
 
-[^5]: See also [[Mosiah 16.9|Mosiah 16:9]]; [[3 Nephi 9.18|3 Ne. 9:18]]; [[3 Nephi 11.11|11:11]]; [[Ether 4.12|Ether 4:12]]; [[D&C 10.70|D&C 10:70]]; [[D&C 11.28|11:28]]; [[D&C 12.9|12:9]]; [[D&C 34.2|34:2]]; [[D&C 39.2|39:2]]; [[D&C 45.7|45:7]].
+[^5]: See also [[Mosiah 16.9|Mosiah 16:9]]; [[3 Nephi 9.18|3 Ne. 9:18]]; [[3 Nephi 11.11|11:11]]; [[Ether 4.12|Ether 4:12]]; [[D&C 10.70|D&C 10:70]]; [[D&C 11.28|11:28]]; [[D&C 12.9|12:9]]; [[D&C 34.2|34:2]]; [[D&C 39.2|39:2]]; [[D&C 45.7|45:7]].
 
-[^6]: See also [[Acts 4.12|Acts 4:12]]; [[2 Nephi 25.20|2 Ne. 25:20]]; [[Mosiah 5.8|Mosiah 5:8]]; [[Alma 38.9|Alma 38:9]]; [[Helaman 5.9|Hel. 5:9]]; [[D&C 18.23|D&C 18:23]].
+[^6]: See also [[Acts 4.12|Acts 4:12]]; [[2 Nephi 25.20|2 Ne. 25:20]]; [[Mosiah 5.8|Mosiah 5:8]]; [[Alma 38.9|Alma 38:9]]; [[Helaman 5.9|Hel. 5:9]]; [[D&C 18.23|D&C 18:23]].
 
-[^7]: See also [[2 Nephi 2.18|2 Ne. 2:18]]; [[Alma 41.4|Alma 41:4]].
+[^7]: See also [[2 Nephi 2.18|2 Ne. 2:18]]; [[Alma 41.4|Alma 41:4]].
 
-[^8]: See *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), pp. 348–49, 365.
+[^8]: See *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), pp. 348–49, 365.
 
-[^9]: See [[2 Nephi 9.13|2 Ne. 9:13]]; [[Alma 34.9|Alma 34:9]].
+[^9]: See [[2 Nephi 9.13|2 Ne. 9:13]]; [[Alma 34.9|Alma 34:9]].
 
 [^10]: See [[Alma 42.8|Alma 42:8, 16]][[Alma 42.16|]].
 
@@ -159,19 +161,19 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 
 [^13]: See [[Alma 41.2|Alma 41:2]].
 
-[^14]: See [[Alma 42.15|Alma 42:15, 31]][[Alma 42.31|]]; [[2 Nephi 9.6|2 Ne. 9:6]].
+[^14]: See [[Alma 42.15|Alma 42:15, 31]][[Alma 42.31|]]; [[2 Nephi 9.6|2 Ne. 9:6]].
 
-[^15]: See [[2 Nephi 11.5|2 Ne. 11:5]].
+[^15]: See [[2 Nephi 11.5|2 Ne. 11:5]].
 
 [^16]: See [[Revelation 14.6|Rev. 14:6]]; [[D&C 27.5|D&C 27:5]]; [[D&C 36.5|36:5]]; [[D&C 68.1|68:1]]; [[D&C 77.8|77:8, 9, 11]][[D&C 77.9|]][[D&C 77.11|]]; [[D&C 79.1|79:1]]; [[D&C 84.103|84:103]]; [[D&C 88.103|88:103]]; [[D&C 99.1|99:1]]; [[D&C 101.22|101:22, 39]][[D&C 101.39|]]; [[D&C 106.2|106:2]]; [[D&C 109.29|109:29, 65]][[D&C 109.65|]]; [[D&C 124.88|124:88]]; [[D&C 128.17|128:17]]; [[D&C 133.36|133:36]]; [[D&C 135.3|135:3, 7]][[D&C 135.7|]]; [[D&C 138.19|138:19, 25]][[D&C 138.25|]]; [[Joseph Smith History 1.34|JS—H 1:34]].
 
-[^17]: See *Teachings of the Prophet Joseph Smith,* p. 121.
+[^17]: See *Teachings of the Prophet Joseph Smith,* p. 121.
 
-[^18]: See [[Genesis 3.20|Gen. 3:20]]; [[1 Nephi 5.11|1 Ne. 5:11]]; [[Moses 4.26|Moses 4:26]].
+[^18]: See [[Genesis 3.20|Gen. 3:20]]; [[1 Nephi 5.11|1 Ne. 5:11]]; [[Moses 4.26|Moses 4:26]].
 
-[^19]: See [[2 Nephi 2.23|2 Ne. 2:23]]; [[Moses 5.11|Moses 5:11]].
+[^19]: See [[2 Nephi 2.23|2 Ne. 2:23]]; [[Moses 5.11|Moses 5:11]].
 
-[^20]: See [[2 Nephi 2.22|2 Ne. 2:22]].
+[^20]: See [[2 Nephi 2.22|2 Ne. 2:22]].
 
 [^21]: See [[D&C 38.1|D&C 38:1]]; [[Abraham 3.22|Abr. 3:22–23]][[Abraham 3.23|]].
 
@@ -189,17 +191,17 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 
 [^28]: See [[D&C 101.78|D&C 101:78]]; [[D&C 134.1|134:1]].
 
-[^29]: See [[1 Corinthians 15.51|1 Cor. 15:51–53]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]]; [[3 Nephi 28.8|3 Ne. 28:8]].
+[^29]: See [[1 Corinthians 15.51|1 Cor. 15:51–53]][[1 Corinthians 15.52|]][[1 Corinthians 15.53|]]; [[3 Nephi 28.8|3 Ne. 28:8]].
 
-[^30]: See [[3 Nephi 27.13|3 Ne. 27:13]].
+[^30]: See [[3 Nephi 27.13|3 Ne. 27:13]].
 
-[^31]: See [[Romans 5.11|Rom. 5:11]]; [[2 Nephi 25.16|2 Ne. 25:16]]; [[Jacob 4.11|Jacob 4:11, 12]][[Jacob 4.12|]]; [[Mosiah 3.5|Mosiah 3:5–11, 16, 18–19]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]][[Mosiah 3.16|]][[Mosiah 3.18|]][[Mosiah 3.19|]]; [[Mosiah 4.2|4:2]]; [[Alma 21.9|Alma 21:9]]; [[Alma 22.14|22:14]]; [[Alma 34.8|34:8]]; [[Alma 36.17|36:17]]; [[Helaman 5.9|Hel. 5:9]]; [[Moroni 7.41|Moro. 7:41]]; [[Moses 7.45|Moses 7:45]].
+[^31]: See [[Romans 5.11|Rom. 5:11]]; [[2 Nephi 25.16|2 Ne. 25:16]]; [[Jacob 4.11|Jacob 4:11, 12]][[Jacob 4.12|]]; [[Mosiah 3.5|Mosiah 3:5–11, 16, 18–19]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]][[Mosiah 3.16|]][[Mosiah 3.18|]][[Mosiah 3.19|]]; [[Mosiah 4.2|4:2]]; [[Alma 21.9|Alma 21:9]]; [[Alma 22.14|22:14]]; [[Alma 34.8|34:8]]; [[Alma 36.17|36:17]]; [[Helaman 5.9|Hel. 5:9]]; [[Moroni 7.41|Moro. 7:41]]; [[Moses 7.45|Moses 7:45]].
 
 [^32]: See [[D&C 138.19|D&C 138:19]].
 
 [^33]: See [[Moses 6.57|Moses 6:57–62]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
 
-[^34]: See [[2 Nephi 9.28|2 Ne. 9:28]].
+[^34]: See [[2 Nephi 9.28|2 Ne. 9:28]].
 
 [^35]: See also [[Exodus 40.15|Ex. 40:15]]; [[Numbers 25.13|Num. 25:13]]; [[Alma 13.7|Alma 13:7]].
 
@@ -207,19 +209,19 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 
 [^37]: See [[Alma 13.9|Alma 13:9, 14]][[Alma 13.14|]].
 
-[^38]: See [[Genesis 17.1|Gen. 17:1–7]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]]; [[Genesis 22.16|22:16–18]][[Genesis 22.17|]][[Genesis 22.18|]]; [[Genesis 26.3|26:3–4]][[Genesis 26.4|]]; [[Genesis 28.13|28:13–14]][[Genesis 28.14|]]; [[Isaiah 2.2|Isa. 2:2–3]][[Isaiah 2.3|]]; [[1 Nephi 15.18|1 Ne. 15:18]]; [[Alma 29.8|Alma 29:8]]; [[D&C 124.58|D&C 124:58]]; [[D&C 132.47|132:47]]; [[Abraham 2.11|Abr. 2:11]].
+[^38]: See [[Genesis 17.1|Gen. 17:1–7]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]]; [[Genesis 22.16|22:16–18]][[Genesis 22.17|]][[Genesis 22.18|]]; [[Genesis 26.3|26:3–4]][[Genesis 26.4|]]; [[Genesis 28.13|28:13–14]][[Genesis 28.14|]]; [[Isaiah 2.2|Isa. 2:2–3]][[Isaiah 2.3|]]; [[1 Nephi 15.18|1 Ne. 15:18]]; [[Alma 29.8|Alma 29:8]]; [[D&C 124.58|D&C 124:58]]; [[D&C 132.47|132:47]]; [[Abraham 2.11|Abr. 2:11]].
 
 [^39]: See [[D&C 130.20|D&C 130:20–21]][[D&C 130.21|]].
 
-[^40]: See [[2 Nephi 2.25|2 Ne. 2:25]].
+[^40]: See [[2 Nephi 2.25|2 Ne. 2:25]].
 
 [^41]: See [[D&C 1.38|D&C 1:38]].
 
-[^42]: For examples, see [[1 Samuel 8.4|1 Sam. 8:4–7]][[1 Samuel 8.5|]][[1 Samuel 8.6|]][[1 Samuel 8.7|]]; [[Matthew 7.21|Matt. 7:21]]; [[Luke 6.46|Luke 6:46]]; [[3 Nephi 14.21|3 Ne. 14:21]].
+[^42]: For examples, see [[1 Samuel 8.4|1 Sam. 8:4–7]][[1 Samuel 8.5|]][[1 Samuel 8.6|]][[1 Samuel 8.7|]]; [[Matthew 7.21|Matt. 7:21]]; [[Luke 6.46|Luke 6:46]]; [[3 Nephi 14.21|3 Ne. 14:21]].
 
 [^43]: See [[D&C 137.9|D&C 137:9]].
 
-[^44]: See [[John 14.2|John 14:2]]; [[1 Corinthians 15.40|1 Cor. 15:40–41]][[1 Corinthians 15.41|]]; [[D&C 76.50|D&C 76:50–119]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]][[D&C 76.60|]][[D&C 76.61|]][[D&C 76.62|]][[D&C 76.63|]][[D&C 76.64|]][[D&C 76.65|]][[D&C 76.66|]][[D&C 76.67|]][[D&C 76.68|]][[D&C 76.69|]][[D&C 76.70|]][[D&C 76.71|]][[D&C 76.72|]][[D&C 76.73|]][[D&C 76.74|]][[D&C 76.75|]][[D&C 76.76|]][[D&C 76.77|]][[D&C 76.78|]][[D&C 76.79|]][[D&C 76.80|]][[D&C 76.81|]][[D&C 76.82|]][[D&C 76.83|]][[D&C 76.84|]][[D&C 76.85|]][[D&C 76.86|]][[D&C 76.87|]][[D&C 76.88|]][[D&C 76.89|]][[D&C 76.90|]][[D&C 76.91|]][[D&C 76.92|]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]][[D&C 76.96|]][[D&C 76.97|]][[D&C 76.98|]][[D&C 76.99|]][[D&C 76.100|]][[D&C 76.101|]][[D&C 76.102|]][[D&C 76.103|]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]][[D&C 76.107|]][[D&C 76.108|]][[D&C 76.109|]][[D&C 76.110|]][[D&C 76.111|]][[D&C 76.112|]][[D&C 76.113|]][[D&C 76.114|]][[D&C 76.115|]][[D&C 76.116|]][[D&C 76.117|]][[D&C 76.118|]][[D&C 76.119|]]; [[D&C 98.18|98:18]].
+[^44]: See [[John 14.2|John 14:2]]; [[1 Corinthians 15.40|1 Cor. 15:40–41]][[1 Corinthians 15.41|]]; [[D&C 76.50|D&C 76:50–119]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]][[D&C 76.60|]][[D&C 76.61|]][[D&C 76.62|]][[D&C 76.63|]][[D&C 76.64|]][[D&C 76.65|]][[D&C 76.66|]][[D&C 76.67|]][[D&C 76.68|]][[D&C 76.69|]][[D&C 76.70|]][[D&C 76.71|]][[D&C 76.72|]][[D&C 76.73|]][[D&C 76.74|]][[D&C 76.75|]][[D&C 76.76|]][[D&C 76.77|]][[D&C 76.78|]][[D&C 76.79|]][[D&C 76.80|]][[D&C 76.81|]][[D&C 76.82|]][[D&C 76.83|]][[D&C 76.84|]][[D&C 76.85|]][[D&C 76.86|]][[D&C 76.87|]][[D&C 76.88|]][[D&C 76.89|]][[D&C 76.90|]][[D&C 76.91|]][[D&C 76.92|]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]][[D&C 76.96|]][[D&C 76.97|]][[D&C 76.98|]][[D&C 76.99|]][[D&C 76.100|]][[D&C 76.101|]][[D&C 76.102|]][[D&C 76.103|]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]][[D&C 76.107|]][[D&C 76.108|]][[D&C 76.109|]][[D&C 76.110|]][[D&C 76.111|]][[D&C 76.112|]][[D&C 76.113|]][[D&C 76.114|]][[D&C 76.115|]][[D&C 76.116|]][[D&C 76.117|]][[D&C 76.118|]][[D&C 76.119|]]; [[D&C 98.18|98:18]].
 
 [^45]: See [[D&C 64.23|D&C 64:23]]; [[D&C 85.3|85:3]].
 
@@ -227,8 +229,3 @@ Constancy amid change is assured by heavenly personages, plans, and principles. 
 
 [^47]: See also [[D&C 126.3|D&C 126:3]].
 
-
-
-
-
-#Atonement #Plan_Of_Salvation #Priesthood

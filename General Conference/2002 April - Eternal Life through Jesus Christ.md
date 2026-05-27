@@ -1,5 +1,7 @@
 # Eternal Life through Jesus Christ
 
+Gordon B. Hinckley
+
 By Elder John M. Madsen - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -24,19 +26,19 @@ I testify that the only way we and all mankind can come unto our Heavenly Father
 
 But who *is* Jesus Christ that we should come unto Him and *know* Him? I know of no more wonderful summary of the identity and role of the Lord Jesus Christ than the declaration of the First Presidency and the Quorum of the Twelve entitled “The Living Christ: The Testimony of the Apostles,” from which I quote:
 
-“\[Jesus Christ\] was the Great Jehovah of the Old Testament, the Messiah of the New. Under the direction of His Father, He was the creator of the earth. …
+“\[Jesus Christ\] was the Great Jehovah of the Old Testament, the Messiah of the New. Under the direction of His Father, He was the creator of the earth. …
 
-“… He gave His life to atone for the sins of all mankind. …
+“… He gave His life to atone for the sins of all mankind. …
 
-“… He was the Firstborn of the Father, the Only Begotten Son in the flesh, the Redeemer of the world.
+“… He was the Firstborn of the Father, the Only Begotten Son in the flesh, the Redeemer of the world.
 
-“He rose from the grave to ‘become the firstfruits of them that slept’ ([[1 Corinthians 15.20|1 Corinthians 15:20]]). As Risen Lord, He … ministered among His ‘other sheep’ ([[John 10.16|John 10:16]]) in ancient America. … He and His Father appeared to the boy Joseph Smith, ushering in the long-promised ‘dispensation of the fulness of times’ ([[Ephesians 1.10|Ephesians 1:10]]). …
+“He rose from the grave to ‘become the firstfruits of them that slept’ ([[1 Corinthians 15.20|1 Corinthians 15:20]]). As Risen Lord, He … ministered among His ‘other sheep’ ([[John 10.16|John 10:16]]) in ancient America. … He and His Father appeared to the boy Joseph Smith, ushering in the long-promised ‘dispensation of the fulness of times’ ([[Ephesians 1.10|Ephesians 1:10]]). …
 
-“… His priesthood and His Church have been restored upon the earth—‘built upon the foundation of … apostles and prophets, Jesus Christ himself being the chief corner stone’ ([[Ephesians 2.20|Ephesians 2:20]]).
+“… His priesthood and His Church have been restored upon the earth—‘built upon the foundation of … apostles and prophets, Jesus Christ himself being the chief corner stone’ ([[Ephesians 2.20|Ephesians 2:20]]).
 
-“… He will someday return to earth … \[and\] rule as King of Kings and reign as Lord of Lords. … Each of us will stand to be judged of Him. …
+“… He will someday return to earth … \[and\] rule as King of Kings and reign as Lord of Lords. … Each of us will stand to be judged of Him. …
 
-“… His duly ordained Apostles \[bear testimony\] that Jesus is the Living Christ, the immortal Son of God. He is the great King Immanuel. … He is the light, the life, and the hope of the world” (*Ensign,* Apr. 2000, 2–3).
+“… His duly ordained Apostles \[bear testimony\] that Jesus is the Living Christ, the immortal Son of God. He is the great King Immanuel. … He is the light, the life, and the hope of the world” (*Ensign,* Apr. 2000, 2–3).
 
 It is wonderful, and absolutely essential, to know who the Lord Jesus Christ is.
 
@@ -46,7 +48,7 @@ What does it mean to know the Lord Jesus Christ, and how can we come to know Him
 
 The Savior answers: “Strait is the gate, and narrow the way that leadeth unto the exaltation and continuation of the lives, and few there be that find it, because ye receive me not in the world neither do ye know me. But if ye receive me in the world, then shall ye know me” ([[D&C 132.22|D&C 132:22–23]][[D&C 132.23|]]).
 
-Can we truly and fully comprehend His words? “If ye receive me”—the Great Jehovah, the Messiah, the Creator of the earth, the Savior and Redeemer of the world, the immortal Son of God—*“If ye receive me … , then shall ye know me”* ([[D&C 132.23|D&C 132:23]]; emphasis added).
+Can we truly and fully comprehend His words? “If ye receive me”—the Great Jehovah, the Messiah, the Creator of the earth, the Savior and Redeemer of the world, the immortal Son of God—*“If ye receive me … , then shall ye know me”* ([[D&C 132.23|D&C 132:23]]; emphasis added).
 
 To know the Lord Jesus Christ, we and all mankind must receive Him. And to receive Him, we must receive His servants (see [[Matthew 10.40|Matt. 10:40]]; [[D&C 1.38|D&C 1:38]]; [[D&C 68.8|68:8–9]][[D&C 68.9|]]; [[D&C 84.36|84:36]]; [[D&C 112.20|112:20]]).
 
@@ -54,17 +56,12 @@ To receive Him, we must receive the fulness of His gospel, His everlasting coven
 
 To receive Him, faithful sons of God must receive His priesthood, and magnify their callings (see [[D&C 84.33|D&C 84:33–35]][[D&C 84.34|]][[D&C 84.35|]]).
 
-But ultimately, to receive Him and know Him, we and all mankind must, as Moroni exhorts, *“come unto Christ, and be perfected in him”* ([[Moroni 10.32|Moro. 10:32]]; emphasis added). In other words, we must come unto Christ and strive to “become” like Him (see Dallin H. Oaks, in Conference Report, Oct. 2000, 40–44; or *Ensign,* Nov. 2000, 32–34).
+But ultimately, to receive Him and know Him, we and all mankind must, as Moroni exhorts, *“come unto Christ, and be perfected in him”* ([[Moroni 10.32|Moro. 10:32]]; emphasis added). In other words, we must come unto Christ and strive to “become” like Him (see Dallin H. Oaks, in Conference Report, Oct. 2000, [[2000 October - The Challenge to Become.md|40–44]]; or *Ensign,* Nov. 2000, 32–34).
 
-Said the risen Lord: “What manner of men ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]). The meaning of the word *ought,* as used in His question “What manner of men ought ye to be?” is crucial to understanding His answer, “Even as I am.” The word *ought* means “to be necessary” or “to be held or bound in duty or moral obligation” (*Noah Webster’s First Edition of an American Dictionary of the English Language,* 7th ed. \[1993\], “ought”; see also [[Luke 24.26|Luke 24:26]]), suggesting—and the holy scriptures, ancient and modern, confirm—that it is “necessary,” and that we are “bound,” as by covenant, “to be,” as He declared, “even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]; see also [[3 Nephi 12.48|3 Ne. 12:48]]; [[Matthew 5.48|Matt. 5:48]]; [[1 John 3.2|1 Jn. 3:2]]; [[Moroni 7.48|Moro. 7:48]]).
+Said the risen Lord: “What manner of men ought ye to be? Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]). The meaning of the word *ought,* as used in His question “What manner of men ought ye to be?” is crucial to understanding His answer, “Even as I am.” The word *ought* means “to be necessary” or “to be held or bound in duty or moral obligation” (*Noah Webster’s First Edition of an American Dictionary of the English Language,* 7th ed. \[1993\], “ought”; see also [[Luke 24.26|Luke 24:26]]), suggesting—and the holy scriptures, ancient and modern, confirm—that it is “necessary,” and that we are “bound,” as by covenant, “to be,” as He declared, “even as I am” ([[3 Nephi 27.27|3 Ne. 27:27]]; see also [[3 Nephi 12.48|3 Ne. 12:48]]; [[Matthew 5.48|Matt. 5:48]]; [[1 John 3.2|1 Jn. 3:2]]; [[Moroni 7.48|Moro. 7:48]]).
 
 It is my prayer that the time may soon come “when the knowledge of a Savior shall spread throughout every nation, kindred, tongue, and people” ([[Mosiah 3.20|Mosiah 3:20]]; see also [[Moses 7.62|Moses 7:62]]; [[Isaiah 11.9|Isa. 11:9]]), that all who will may receive Him, even the Lord Jesus Christ, and know Him, that they may come unto our Heavenly Father, and know Him, and thus obtain eternal life, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Jesus_Christ #Plan_Of_Salvation #Testimony

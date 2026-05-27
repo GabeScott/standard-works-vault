@@ -1,5 +1,7 @@
 # It Is All about People
 
+Henry B. Eyring
+
 By Bishop Gérald Caussé - *Presiding Bishop*
 
 *Given in the April session of the 2018 General Conference*
@@ -20,7 +22,7 @@ The definition of *the Church* might be derived from a passage in the Book of Mo
 
 In other words, the Church is all about people. It is all about you, the Lord’s disciples—those who love and follow Him and who have taken His name upon them by covenant.
 
-President Russell M. Nelson once likened the Church to a nice automobile. We all love it when our vehicle is clean and shiny. But the car’s purpose is not to stand out as an attractive machine; it is to move the *people* in the car.[^2] In the same manner, we, as members of the Church, appreciate having beautiful places of worship that are clean and well maintained, and we also enjoy having well-functioning programs. But these are merely support systems. Our sole aim is to invite each son and daughter of God to come unto Christ and to guide him or her along the covenant path. Nothing is more important. Our work is all about people and covenants.
+President Russell M. Nelson once likened the Church to a nice automobile. We all love it when our vehicle is clean and shiny. But the car’s purpose is not to stand out as an attractive machine; it is to move the *people* in the car.[^2] In the same manner, we, as members of the Church, appreciate having beautiful places of worship that are clean and well maintained, and we also enjoy having well-functioning programs. But these are merely support systems. Our sole aim is to invite each son and daughter of God to come unto Christ and to guide him or her along the covenant path. Nothing is more important. Our work is all about people and covenants.
 
 Isn’t it wonderful that the name given by revelation to the restored Church binds together the two most important elements in each gospel covenant? First is the name *Jesus Christ.* This Church belongs to Him, and His sanctifying Atonement and covenants are the only pathway to salvation and exaltation. The second name refers to *us:* the Saints, or in other words, His witnesses and His disciples.
 
@@ -30,7 +32,7 @@ As I sat on the stand on the day of my release, I was overwhelmed by a profound 
 
 There were those brothers and sisters who had entered the waters of baptism, those for whom I had signed their first recommends so they could receive the sacred ordinances of the temple, and those young people and couples I had set apart or released as full-time missionaries. There were many others to whom I had ministered as they were going through trials and adversity in their lives. I felt intense brotherly love for each of them. I had found pure joy in serving them and rejoiced in their increased loyalty to and faith in the Savior.
 
-President M. Russell Ballard taught, “What is most important in our Church responsibilities is not the statistics that are reported or the meetings that are held but whether or not individual people—ministered to one at a time just as the Savior did—have been lifted and encouraged and ultimately changed.”[^3]
+President M. Russell Ballard taught, “What is most important in our Church responsibilities is not the statistics that are reported or the meetings that are held but whether or not individual people—ministered to one at a time just as the Savior did—have been lifted and encouraged and ultimately changed.”[^3]
 
 My dear brothers and sisters, are we active in the gospel, or are we merely busy in the Church? The key is to follow the example of the Savior in all things. If we do that, we will naturally focus on saving individuals rather than performing tasks and implementing programs.
 
@@ -54,23 +56,18 @@ Intrigued by his question, I felt inspired to reply, “I agree with you. I don�
 
 Ours is not just a Sunday church. Our worship continues each day of the week, wherever we are and in whatever we do. Our homes in particular are “the primary sanctuaries of our faith.”[^5] It is most often in our homes that we pray, we bless, we study, we teach the word of God, and we serve with pure love. I can testify from personal experience that our homes are sacred places where the Spirit can abound—as much as, and sometimes even more than, in our formal places of worship.
 
-I bear witness that this Church is the Church of Jesus Christ. Its strength and vitality come from the daily actions of millions of His disciples who strive each day to follow His supreme example by caring for others. Christ lives and He directs this Church. President Russell M. Nelson is the prophet whom He has chosen to lead and guide us in our days. Of these things I testify in the name of Jesus Christ, amen.
+I bear witness that this Church is the Church of Jesus Christ. Its strength and vitality come from the daily actions of millions of His disciples who strive each day to follow His supreme example by caring for others. Christ lives and He directs this Church. President Russell M. Nelson is the prophet whom He has chosen to lead and guide us in our days. Of these things I testify in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[3 Nephi 26.20|3 Nephi 26:21]][[3 Nephi 26.21|]].
+[^1]: [[3 Nephi 26.20|3 Nephi 26:21]][[3 Nephi 26.21|]].
 
-[^2]: See Russell M. Nelson, general conference leadership meeting, Apr. 2012.
+[^2]: See Russell M. Nelson, general conference leadership meeting, Apr. 2012.
 
-[^3]: M. Russell Ballard, “[[2006 October - O Be Wise.md|O Be Wise]],” *Ensign* or *Liahona,* Nov. 2006, 20.
+[^3]: M. Russell Ballard, “[[2006 October - O Be Wise.md|O Be Wise]],” *Ensign* or *Liahona,* Nov. 2006, 20.
 
 [^4]: [[Matthew 18.20|Matthew 18:20]].
 
-[^5]: Russell M. Nelson, “[The Doctrinal Importance of Marriage and Children](https://www.lds.org/broadcasts/article/worldwide-leadership-training/2012/01/the-doctrinal-importance-of-marriage-and-children)” (worldwide leadership training meeting, Feb. 2012), broadcasts.lds.org.
+[^5]: Russell M. Nelson, “[The Doctrinal Importance of Marriage and Children](https://www.lds.org/broadcasts/article/worldwide-leadership-training/2012/01/the-doctrinal-importance-of-marriage-and-children)” (worldwide leadership training meeting, Feb. 2012), broadcasts.lds.org.
 
-
-
-
-
-#Covenants #Discipleship #Home

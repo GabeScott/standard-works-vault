@@ -1,13 +1,12 @@
 # Stand, Stood
 
-
 *stand* still, and see the salvation of the Lord, [[Exodus 14.13|Exodus 14:13]].
 
 thou shalt *stand* upon a rock, [[Exodus 33.21|Exodus 33:21]].
 
 no man be able to *stand* before you, [[Deuteronomy 11.25|Deuteronomy 11:25]].
 
-waters ... *stood* and rose up, [[Joshua 3.16|Joshua 3:16]].
+waters … *stood* and rose up, [[Joshua 3.16|Joshua 3:16]].
 
 sun *stood* still, [[Joshua 10.13|Joshua 10:13]].
 
@@ -15,7 +14,7 @@ Who is able to *stand* before this holy Lord, [[1 Samuel 6.20|1 Samuel 6:20]].
 
 *stand* in the holy place according to the divisions, [[2 Chronicles 35.5|2 Chronicles 35:5]].
 
-redeemer ... shall *stand* at the latter day, [[Job 19.25|Job 19:25]].
+redeemer … shall *stand* at the latter day, [[Job 19.25|Job 19:25]].
 
 ungodly shall not *stand* in the judgment, [[Psalms 1.5|Psalms 1:5]].
 
@@ -23,7 +22,7 @@ who shall *stand* in his holy place, [[Psalms 24.3|Psalms 24:3]].
 
 he made the waters to *stand* as an heap, [[Psalms 78.13|Psalms 78:13]].
 
-had not Moses ... *stood* before him, [[Psalms 106.23|Psalms 106:23]].
+had not Moses … *stood* before him, [[Psalms 106.23|Psalms 106:23]].
 
 he shall *stand* at the right hand of the poor, [[Psalms 109.31|Psalms 109:31]].
 
@@ -43,7 +42,7 @@ who shall *stand* when he appeareth, [[Malachi 3.2|Malachi 3:2]] ([[3 Nephi 24.2
 
 house divided against itself shall not *stand*, [[Matthew 12.25|Matthew 12:25]] ([[Mark 3.25|Mark 3:25]]).
 
-accounted worthy ... to *stand* before the Son, [[Luke 21.36|Luke 21:36]].
+accounted worthy … to *stand* before the Son, [[Luke 21.36|Luke 21:36]].
 
 Jesus himself *stood* in the midst of them, [[Luke 24.36|Luke 24:36]].
 
@@ -65,7 +64,7 @@ him that thinketh he *standeth* take heed lest he fall, [[1 Corinthians 10.12|1 
 
 *Stand* fast therefore in the liberty, [[Galatians 5.1|Galatians 5:1]] ([[Alma 58.40|Alma 58:40]]).
 
-able to withstand ... and having done all, to *stand*, [[Ephesians 6.13|Ephesians 6:13]].
+able to withstand … and having done all, to *stand*, [[Ephesians 6.13|Ephesians 6:13]].
 
 *stand* fast in one spirit, [[Philippians 1.27|Philippians 1:27]].
 
@@ -83,7 +82,7 @@ wrath is come; and who shall be able to *stand*, [[Revelation 6.17|Revelation 6:
 
 I saw the dead, small and great, *stand* before God, [[Revelation 20.12|Revelation 20:12]].
 
-spacious building ... *stood* as it were in the air, [[1 Nephi 8.26|1 Nephi 8:26]].
+spacious building … *stood* as it were in the air, [[1 Nephi 8.26|1 Nephi 8:26]].
 
 must be brought to *stand* before God, [[1 Nephi 15.33|1 Nephi 15:33]] ([[Alma 11.43|Alma 11:43]]).
 
@@ -117,7 +116,7 @@ Jesus, who *stood* with open arms to receive you, [[Mormon 6.17|Mormon 6:17]].
 
 we shall *stand* before God at the last day, [[Ether 5.6|Ether 5:6]].
 
-so long as ... the earth shall *stand*, [[Moroni 7.36|Moroni 7:36]] ([[D&C 38.20|D&C 38:20]]).
+so long as … the earth shall *stand*, [[Moroni 7.36|Moroni 7:36]] ([[D&C 38.20|D&C 38:20]]).
 
 that ye may *stand* blameless before God, [[D&C 4.2|D&C 4:2]].
 
@@ -133,7 +132,7 @@ men *standing* in that generation, [[D&C 45.31|D&C 45:31]].
 
 land upon which the Zion of God shall *stand*, [[D&C 58.7|D&C 58:7]].
 
-blessed are they whose feet *stand* upon ... Zion, [[D&C 59.3|D&C 59:3]].
+blessed are they whose feet *stand* upon … Zion, [[D&C 59.3|D&C 59:3]].
 
 that the church may *stand* independent, [[D&C 78.14|D&C 78:14]].
 
@@ -141,7 +140,7 @@ gathering of his saints to *stand* upon Mount Zion, [[D&C 84.2|D&C 84:2]].
 
 he *stands* in the midst of his people, [[D&C 84.101|D&C 84:101]] ([[D&C 133.25|D&C 133:25]]).
 
-men shall fall ... and shall not be able to *stand*, [[D&C 88.89|D&C 88:89]].
+men shall fall … and shall not be able to *stand*, [[D&C 88.89|D&C 88:89]].
 
 he shall *stand* forth upon the land, [[D&C 88.110|D&C 88:110]].
 
@@ -153,8 +152,8 @@ they shall come forth and *stand* on the right hand of the Lamb, [[D&C 133.56|D&
 
 speak unto thee concerning this earth upon which thou *standest*, [[Moses 1.40|Moses 1:40]] ([[Abraham 3.5|Abraham 3:5]]).
 
-spirits ... came forth, and *stood* on the right hand of God, [[Moses 7.57|Moses 7:57]].
+spirits … came forth, and *stood* on the right hand of God, [[Moses 7.57|Moses 7:57]].
 
-souls ... he *stood* in the midst of them, [[Abraham 3.23|Abraham 3:23]].
+souls … he *stood* in the midst of them, [[Abraham 3.23|Abraham 3:23]].
 
-two Personages ... *standing* above me in the air, [[Joseph Smith History 1.17|Joseph Smith History 1:17]] ([[Joseph Smith History 1.30|Joseph Smith History 1:30]], [[Joseph Smith History 1.49|Joseph Smith History 1:49]]).
+two Personages … *standing* above me in the air, [[Joseph Smith History 1.17|Joseph Smith History 1:17]] ([[Joseph Smith History 1.30|Joseph Smith History 1:30]]; [[Joseph Smith History 1.49|Joseph Smith History 1:49]]).

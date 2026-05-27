@@ -1,13 +1,12 @@
 # Horn
 
-
-ram caught ... by his *horns*, [[Genesis 22.13|Genesis 22:13]].
+ram caught … by his *horns*, [[Genesis 22.13|Genesis 22:13]].
 
 make the *horns* of it upon the four corners, [[Exodus 27.2|Exodus 27:2]].
 
 upon the *horns* of the altar, [[Exodus 29.12|Exodus 29:12]] ([[Leviticus 4.7|Leviticus 4:7]]; [[Leviticus 8.15|Leviticus 8:15]]).
 
-before the ark seven trumpets of rams' *horns*, [[Joshua 6.4|Joshua 6:4]].
+before the ark seven trumpets of rams’ *horns*, [[Joshua 6.4|Joshua 6:4]].
 
 mine *horn* is exalted in the Lord, [[1 Samuel 2.1|1 Samuel 2:1]].
 
@@ -19,11 +18,11 @@ will I make the *horn* of David to bud, [[Psalms 132.17|Psalms 132:17]].
 
 *horn* of the house of Israel to bud forth, [[Ezekiel 29.21|Ezekiel 29:21]].
 
-fourth beast ... had ten *horns*, [[Daniel 7.7|Daniel 7:7]] ([[Daniel 7.20|Daniel 7:20]]).
+fourth beast … had ten *horns*, [[Daniel 7.7|Daniel 7:7]] ([[Daniel 7.20|Daniel 7:20]]).
 
-considered the *horns*, and ... another little *horn*, [[Daniel 7.8|Daniel 7:8]].
+considered the *horns*, and … another little *horn*, [[Daniel 7.8|Daniel 7:8]].
 
-ten *horns* ... are ten kings, [[Daniel 7.24|Daniel 7:24]] ([[Revelation 17.12|Revelation 17:12]]).
+ten *horns* … are ten kings, [[Daniel 7.24|Daniel 7:24]] ([[Revelation 17.12|Revelation 17:12]]).
 
 ram which had two *horns*: and the two *horns* were high, [[Daniel 8.3|Daniel 8:3]].
 

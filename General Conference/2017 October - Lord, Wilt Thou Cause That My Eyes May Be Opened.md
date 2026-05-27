@@ -1,6 +1,8 @@
 # Lord, Wilt Thou Cause That My Eyes May Be Opened
 
-By Elder W. Craig Zwick - *Emeritus Member of the Seventy*
+Sharon Eubank
+
+By Elder W. Craig Zwick - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -16,9 +18,9 @@ I had my eyes opened to “looking beyond what I could see” while serving as a
 
 I just wasn’t going to let that happen. I began teaching him about the sacred nature of his call. I encouraged him to “forget \[himself\] and go to work.”[^2] But no matter what formula I offered, his mind did not change. It finally occurred to me that I might not have the whole picture. It was then that I felt a prompting to ask him the question: “Elder, what is hard for you?” What he said pierced my heart: “President, I can’t read.”
 
-The wise counsel which I thought was so important for him to hear was not at all relevant to his needs. What he needed most was for me to look beyond my hasty assessment and allow the Spirit to help me understand what was really on this elder’s mind. He needed me to see him correctly and offer a reason to hope. Instead, I acted like a giant demolition wrecking ball. This valiant elder did learn to read and became a very pure disciple of Jesus Christ. He opened my eyes to the Lord’s words: “For man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Samuel 16:7]]).
+The wise counsel which I thought was so important for him to hear was not at all relevant to his needs. What he needed most was for me to look beyond my hasty assessment and allow the Spirit to help me understand what was really on this elder’s mind. He needed me to see him correctly and offer a reason to hope. Instead, I acted like a giant demolition wrecking ball. This valiant elder did learn to read and became a very pure disciple of Jesus Christ. He opened my eyes to the Lord’s words: “For man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Samuel 16:7]]).
 
-What a blessing it is when the Spirit of the Lord widens our view. Remember the prophet Elisha, who woke up to find the Syrian army surrounding his city with their horses and chariots? His manservant was frightened and asked Elisha what they were going to do against such odds. Elisha told him not to worry, with the memorable words: “Fear not: for they that be with us are more than they that be with them” ([[2 Kings 6.16|2 Kings 6:16]]). The manservant had no idea what the prophet was talking about. He could not look beyond what he could see. However, Elisha saw battalions of angels prepared to do battle for the prophet’s people. So Elisha prayed to the Lord to open the eyes of the young man, “and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” ([[2 Kings 6.17|2 Kings 6:17]]).
+What a blessing it is when the Spirit of the Lord widens our view. Remember the prophet Elisha, who woke up to find the Syrian army surrounding his city with their horses and chariots? His manservant was frightened and asked Elisha what they were going to do against such odds. Elisha told him not to worry, with the memorable words: “Fear not: for they that be with us are more than they that be with them” ([[2 Kings 6.16|2 Kings 6:16]]). The manservant had no idea what the prophet was talking about. He could not look beyond what he could see. However, Elisha saw battalions of angels prepared to do battle for the prophet’s people. So Elisha prayed to the Lord to open the eyes of the young man, “and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” ([[2 Kings 6.17|2 Kings 6:17]]).
 
 We often separate ourselves from others by the differences in what we see. We feel comfortable around those who think, talk, dress, and act like we do and uncomfortable with those who come from different circumstances or backgrounds. In reality, don’t we all come from different countries and speak different languages? Don’t we all see the world through the enormous limitations of our own life experience? For some see and speak with spiritual eyes, as the prophet Elisha, and some see and communicate with literal sight, as I experienced with my illiterate missionary.
 
@@ -26,7 +28,7 @@ We live in a world that feeds on comparisons, labeling, and criticism. Instead o
 
 To accept and love others does not mean we must embrace their ideas. Obviously, truth mandates our highest allegiance, though it should never be a barrier to kindness. Truly loving others requires the ongoing practice of accepting the best efforts of people whose life experiences and limitations we may never fully know. Looking beyond what we can see requires conscious focus on the Savior.
 
-On May 28, 2016, 16-year-old Beau Richey and his friend Austin were at a family ranch in Colorado. Beau and Austin climbed into their all-terrain vehicles with great anticipation for a day of adventure. They had not gone far when they encountered precarious conditions, at which point tragedy struck. The vehicle Beau was driving flipped over suddenly, pinning Beau under 400 pounds (180 kg) of steel. When Beau’s friend Austin got to him, he saw Beau struggling for his life. With every bit of his strength, he tried to pull the vehicle off his friend. It wouldn’t budge. He prayed for Beau and then frantically went for help. Emergency personnel finally arrived, but a few hours later Beau died. He was released from this mortal life.
+On May 28, 2016, 16-year-old Beau Richey and his friend Austin were at a family ranch in Colorado. Beau and Austin climbed into their all-terrain vehicles with great anticipation for a day of adventure. They had not gone far when they encountered precarious conditions, at which point tragedy struck. The vehicle Beau was driving flipped over suddenly, pinning Beau under 400 pounds (180 kg) of steel. When Beau’s friend Austin got to him, he saw Beau struggling for his life. With every bit of his strength, he tried to pull the vehicle off his friend. It wouldn’t budge. He prayed for Beau and then frantically went for help. Emergency personnel finally arrived, but a few hours later Beau died. He was released from this mortal life.
 
 His heartbroken parents arrived. As they stood in the small hospital with Beau’s dearest friend and family members, a police officer entered the room and handed Beau’s cell phone to his mother. As she took the phone, an audible alarm sounded. She opened the phone and saw Beau’s daily alarm. She read aloud the message her fun-loving, highly adventurous teenage son had set to read every day. It said, “Remember to put Jesus Christ at the center of your life today.”
 
@@ -45,9 +47,7 @@ I witness that through the power of Jesus Christ, we become able to look spiritu
 
 
 
-[^1]: From *The Lion King 1½* (2004); outside North America, known as *The Lion King 3: Hakuna Matata.*
+[^1]: From *The Lion King 1½* (2004); outside North America, known as *The Lion King 3: Hakuna Matata.*
 
+[^2]: *[Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-14-losing-ourselves-in-the-service-of-others?lang=eng)* (2016), 201.
 
-
-
-#Adversity #Criticism #Healing #Jesus_Christ #Perspective #Sacrament

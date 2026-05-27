@@ -1,5 +1,7 @@
 # “Choose You This Day”
 
+Thomas S. Monson
+
 By Elder Hans B. Ringger - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -65,8 +67,3 @@ I testify to you that we can only be in the service of our God if we are in the 
 
 
 
-
-
-
-
-#Agency #Example #Jesus_Christ #Love #Service

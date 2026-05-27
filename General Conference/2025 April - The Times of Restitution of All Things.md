@@ -1,8 +1,8 @@
 # The Times of Restitution of All Things
 
-([[Acts 3.21|Acts 3:21]])
+Dallin H. Oaks
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -10,7 +10,7 @@ By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/04/41bednar?lang=eng)
 
-The Church of Jesus Christ of Latter-day Saints was organized 195 years ago today, on April 6, 1830.
+The Church of Jesus Christ of Latter-day Saints was organized 195 years ago today, on April 6, 1830.
 
 A small congregation of believers and friends gathered for this momentous and joyous occasion. A great outpouring of the Spirit blessed all in attendance as the ordinance of the sacrament was administered, the gift of the Holy Ghost was conferred, priesthood ordinations were performed, and truths of the gospel of Jesus Christ were preached.
 
@@ -64,7 +64,7 @@ Elijah committed the keys of the sealing power, providing the authority that all
 
 As Joseph Smith translated the Book of Mormon, he received revelations indicating that the Church of Jesus Christ would be reestablished. But the Lord instructed Joseph not to organize His Church immediately. Rather, “by the spirit of prophecy and revelation,” the Lord revealed to Joseph “the precise day … \[he\] should proceed to organize His Church once \[again\] upon the earth.”[^23]
 
-The Church was organized in proper sequence only after the restoration of the priesthood and the publication of the Book of Mormon. The first copies of the Book of Mormon became available on March 26, 1830, and the Church was formally organized on April 6.
+The Church was organized in proper sequence only after the restoration of the priesthood and the publication of the Book of Mormon. The first copies of the Book of Mormon became available on March 26, 1830, and the Church was formally organized on April 6.
 
 “The Church of Jesus Christ of Latter-day Saints … is Christ’s New Testament Church restored. This Church is anchored in the perfect life of its chief cornerstone, Jesus Christ, and in His infinite Atonement and literal Resurrection. Jesus Christ has once again called Apostles and has given them priesthood authority. He invites all of us to come unto Him and His Church, to receive the Holy Ghost, the ordinances of salvation, and to gain enduring joy.”[^24]
 
@@ -95,35 +95,35 @@ And I joyfully witness that the Father and the Son appeared to the boy Joseph Sm
 
 
 
-[^1]: [[D&C 21.1|Doctrine and Covenants 21:1]]; see also *Teachings of Presidents of the Church: Joseph Smith* (2007), 8–9.
+[^1]: [[D&C 21.1|Doctrine and Covenants 21:1]]; see also *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/the-life-and-ministry-of-joseph-smith?lang=eng&id=p21#p21)* (2007), 8–9.
 
-[^2]: In preparing this message, I have relied extensively on the teachings set forth in the 1980 and 2020 proclamations issued by the First Presidency and Quorum of the Twelve Apostles: “[[1980 April - Proclamation.md|Proclamation]],” *Ensign*, May 1980, 52–53; “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
+[^2]: In preparing this message, I have relied extensively on the teachings set forth in the 1980 and 2020 proclamations issued by the First Presidency and Quorum of the Twelve Apostles: “[[1980 April - Proclamation.md|Proclamation]],” *Ensign*, May 1980, 52–53; “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
 
 [^3]: [[Joseph Smith History 1.18|Joseph Smith—History 1:18]].
 
-[^4]: See “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
+[^4]: See “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p2#p2),” Gospel Library.
 
-[^5]: See [[Joseph Smith History 1.11|Joseph Smith—History 1:11–13]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]]; David A. Bednar, “[[2008 April - Ask in Faith.md|Ask in Faith]],” *Ensign* or *Liahona*, May 2008, 94–97.
+[^5]: See [[Joseph Smith History 1.11|Joseph Smith—History 1:11–13]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]]; David A. Bednar, “[[2008 April - Ask in Faith.md|Ask in Faith]],” *Ensign* or *Liahona*, May 2008, 94–97.
 
-[^6]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p3#p3),” Gospel Library.
+[^6]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p3#p3),” Gospel Library.
 
 [^7]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-[^8]: See [[1 Nephi 11.18|1 Nephi 11:18–21]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]]; [[D&C 93.11|Doctrine and Covenants 93:11–14, 21]][[D&C 93.12|]][[D&C 93.13|]][[D&C 93.14|]][[D&C 93.21|]].
+[^8]: See [[1 Nephi 11.18|1 Nephi 11:18–21]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]]; [[D&C 93.11|Doctrine and Covenants 93:11–14, 21]][[D&C 93.12|]][[D&C 93.13|]][[D&C 93.14|]][[D&C 93.21|]].
 
 [^9]: [[D&C 130.22|Doctrine and Covenants 130:22]].
 
 [^10]: [[D&C 27.6|Doctrine and Covenants 27:6]].
 
-[^11]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p5#p5),” Gospel Library.
+[^11]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p5#p5),” Gospel Library.
 
 [^12]: [[Articles of Faith 1.8|Articles of Faith 1:8]].
 
-[^13]: See [[1 Nephi 13.40|1 Nephi 13:40]].
+[^13]: See [[1 Nephi 13.40|1 Nephi 13:40]].
 
-[^14]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [3.4](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p27#p27), Gospel Library.
+[^14]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [3.4](https://www.churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p27#p27), Gospel Library.
 
-[^15]: *General Handbook*, [3.4.1](https://churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p29#p29).
+[^15]: *General Handbook*, [3.4.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/3-priesthood-principles?lang=eng&id=p29#p29).
 
 [^16]: See [[D&C 13.1|Doctrine and Covenants 13:1]].
 
@@ -139,9 +139,9 @@ And I joyfully witness that the Father and the Son appeared to the boy Joseph Sm
 
 [^22]: See [[D&C 128.9|Doctrine and Covenants 128:9–10]][[D&C 128.10|]].
 
-[^23]: [Doctrine and Covenants 20, section heading](https://churchofjesuschrist.org/study/scriptures/dc-testament/dc/20?lang=eng&id=study_intro1#study_intro1).
+[^23]: [Doctrine and Covenants 20, section heading](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/dc/20?lang=eng&id=study_intro1#study_intro1).
 
-[^24]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p6#p6),” Gospel Library.
+[^24]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p6#p6),” Gospel Library.
 
 [^25]: See [[Daniel 2.28|Daniel 2:28, 35, 44]][[Daniel 2.35|]][[Daniel 2.44|]]; see also [[Daniel 2.1|verses 1–45]][[Daniel 2.2|]][[Daniel 2.3|]][[Daniel 2.4|]][[Daniel 2.5|]][[Daniel 2.6|]][[Daniel 2.7|]][[Daniel 2.8|]][[Daniel 2.9|]][[Daniel 2.10|]][[Daniel 2.11|]][[Daniel 2.12|]][[Daniel 2.13|]][[Daniel 2.14|]][[Daniel 2.15|]][[Daniel 2.16|]][[Daniel 2.17|]][[Daniel 2.18|]][[Daniel 2.19|]][[Daniel 2.20|]][[Daniel 2.21|]][[Daniel 2.22|]][[Daniel 2.23|]][[Daniel 2.24|]][[Daniel 2.25|]][[Daniel 2.26|]][[Daniel 2.27|]][[Daniel 2.28|]][[Daniel 2.29|]][[Daniel 2.30|]][[Daniel 2.31|]][[Daniel 2.32|]][[Daniel 2.33|]][[Daniel 2.34|]][[Daniel 2.35|]][[Daniel 2.36|]][[Daniel 2.37|]][[Daniel 2.38|]][[Daniel 2.39|]][[Daniel 2.40|]][[Daniel 2.41|]][[Daniel 2.42|]][[Daniel 2.43|]][[Daniel 2.44|]][[Daniel 2.45|]].
 
@@ -149,18 +149,13 @@ And I joyfully witness that the Father and the Son appeared to the boy Joseph Sm
 
 [^27]: [[Ephesians 1.10|Ephesians 1:10]].
 
-[^28]: *Teachings: Joseph Smith*, 186.
+[^28]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-15?lang=eng&id=p8#p8)*, 186.
 
 [^29]: [[D&C 128.18|Doctrine and Covenants 128:18]].
 
-[^30]: *Teachings: Joseph Smith*, 511.
+[^30]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-44?lang=eng&id=p13#p13)*, 511.
 
-[^31]: Bible Dictionary, “[Gospels](https://churchofjesuschrist.org/study/scriptures/bd/gospels?lang=eng).”
+[^31]: Bible Dictionary, “[[BD Gospels|Gospels]].”
 
-[^32]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p9#p9),” Gospel Library.
+[^32]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p9#p9),” Gospel Library.
 
-
-
-
-
-#Book_Of_Mormon #Dispensations #First_Vision #Joseph_Smith #Priesthood #Restoration

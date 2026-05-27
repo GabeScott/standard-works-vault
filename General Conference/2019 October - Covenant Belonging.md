@@ -1,6 +1,8 @@
 # Covenant Belonging
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+Jeffrey R. Holland
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -69,7 +71,7 @@ With us at the beginning, He is with us, in all our covenant belonging, to the e
 
 
 
-[^1]: See Isaac Watts, “[My Shepherd Will Supply My Need](https://churchofjesuschrist.org/study/ensign/2015/09/my-shepherd-will-supply-my-need?lang=eng),” *Ensign,* Sept. 2015, 73.
+[^1]: See Isaac Watts, “[My Shepherd Will Supply My Need](https://www.churchofjesuschrist.org/study/ensign/2015/09/my-shepherd-will-supply-my-need?lang=eng),” *Ensign,* Sept. 2015, 73.
 
 [^2]: See [[Matthew 10.39|Matthew 10:39.]]
 
@@ -97,23 +99,23 @@ With us at the beginning, He is with us, in all our covenant belonging, to the e
 
 [^14]: [[Luke 15.20|Luke 15:20]].
 
-[^15]: See [title page of the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng); [[D&C 84.57|Doctrine and Covenants 84:57]].
+[^15]: See [title page of the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng); [[D&C 84.57|Doctrine and Covenants 84:57]].
 
 [^16]: [[Moroni 10.4|Moroni 10:4]].
 
-[^17]: See [[3 Nephi 27.7|3 Nephi 27:7–8]][[3 Nephi 27.8|]]; [[D&C 115.3|Doctrine and Covenants 115:3]].
+[^17]: See [[3 Nephi 27.7|3 Nephi 27:7–8]][[3 Nephi 27.8|]]; [[D&C 115.3|Doctrine and Covenants 115:3]].
 
-[^18]: [[3 Nephi 20.25|3 Nephi 20:25]].
+[^18]: [[3 Nephi 20.25|3 Nephi 20:25]].
 
-[^19]: See [[2 Nephi 26.16|2 Nephi 26:16]]; [[2 Nephi 33.13|33:13]].
+[^19]: See [[2 Nephi 26.16|2 Nephi 26:16]]; [[2 Nephi 33.13|33:13]].
 
-[^20]: [[3 Nephi 20.26|3 Nephi 20:26]].
+[^20]: [[3 Nephi 20.26|3 Nephi 20:26]].
 
 [^21]: [[Mosiah 18.10|Mosiah 18:10]].
 
-[^22]: See [[2 Nephi 31.2|2 Nephi 31:2, 12–13]][[2 Nephi 31.12|]][[2 Nephi 31.13|]].
+[^22]: See [[2 Nephi 31.2|2 Nephi 31:2, 12–13]][[2 Nephi 31.12|]][[2 Nephi 31.13|]].
 
-[^23]: See [[D&C 13.1|Doctrine and Covenants 13]]; [[D&C 27.12|27:12]]; see also [introduction to the Doctrine and Covenants.](https://churchofjesuschrist.org/study/scriptures/dc-testament/introduction?lang=eng)
+[^23]: See [[D&C 13.1|Doctrine and Covenants 13]]; [[D&C 27.12|27:12]]; see also [introduction to the Doctrine and Covenants.](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/introduction?lang=eng)
 
 [^24]: See [[D&C 128.8|Doctrine and Covenants 128:8]]; see also [[Exodus 19.5|Exodus 19:5–6]][[Exodus 19.6|]]; [[D&C 84.40|Doctrine and Covenants 84:40]]. Those who worthily keep covenants become a precious treasure, a kingdom of priests, a holy nation. Covenants sanctify. Those who keep covenants become sanctified to the Lord.
 
@@ -121,12 +123,7 @@ With us at the beginning, He is with us, in all our covenant belonging, to the e
 
 [^26]: Generations can learn from each other, even as each generation learns for itself. The Christian writer Søren Kierkegaard intriguingly suggests, “Whatever the one generation may learn from the other, the genuinely humane no generation learns from the foregoing” (*Fear and Trembling,* trans. Vigilius Haufniensi \[2018\], 117).
 
-[^27]: See [title page of the Book of Mormon.](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng)
+[^27]: See [title page of the Book of Mormon.](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng)
 
 [^28]: [[D&C 19.1|Doctrine and Covenants 19:1]].
 
-
-
-
-
-#Covenants #Ordinances

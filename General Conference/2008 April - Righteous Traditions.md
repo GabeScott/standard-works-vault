@@ -1,5 +1,7 @@
 # Righteous Traditions
 
+Dieter F. Uchtdorf
+
 By Cheryl C. Lant - *Primary General President*
 
 *Given in the April session of the 2008 General Conference*
@@ -16,7 +18,7 @@ What kinds of traditions do we have? Some of them may have come from our fathers
 
 How should we determine what our traditions will be? The scriptures give us a great pattern. In [[Mosiah 5.15|Mosiah 5:15]] it states, “Therefore, I would that ye should be steadfast and immovable, always abounding in good works.”
 
-I love this because we know that traditions are formed over time as we repeat the same actions over and over again. As we are steady and unchanging in doing that which is good, our traditions become firmly rooted in righteousness. But I have a question. How do we determine what is good or, more importantly, what is good enough? Another scripture that gives us a little more information is found in [[3 Nephi 6.14|3 Nephi 6:14]]. It speaks of people “who were converted unto the true faith; and they would not depart from it, for they were firm, and steadfast, and immovable, willing with all diligence to keep the commandments of the Lord.”
+I love this because we know that traditions are formed over time as we repeat the same actions over and over again. As we are steady and unchanging in doing that which is good, our traditions become firmly rooted in righteousness. But I have a question. How do we determine what is good or, more importantly, what is good enough? Another scripture that gives us a little more information is found in [[3 Nephi 6.14|3 Nephi 6:14]]. It speaks of people “who were converted unto the true faith; and they would not depart from it, for they were firm, and steadfast, and immovable, willing with all diligence to keep the commandments of the Lord.”
 
 We learn that our conversion to the “true faith” precedes our ability to remain firm, steadfast, and immovable in keeping the commandments. This conversion is a firm belief in Jesus Christ as our Redeemer. A witness of this is found in the Book of Mormon, which is another witness of Jesus Christ. It goes hand in hand with the Bible in proclaiming the divinity and mission of Jesus Christ as well as the reality of a living Father in Heaven. Every prophet recorded in these sacred books gives his personal witness of these things, as well as teachings on how we need to live our lives in order to partake of the Atonement and find personal peace and happiness.
 
@@ -30,7 +32,7 @@ At the end of my father’s life, he passed much more on to us, his children, th
 
 Can we do this for our children? What is the legacy we are giving them today? What will it be tomorrow? It can start with us. Will their hearts and lives be full of traditions that make it easy for them to accept and follow the Lord and the latter-day prophets? Will we as families be able to claim the blessings promised, “that Christ, the Lord God Omnipotent, may seal you his, that you may be brought to heaven, that ye may have everlasting salvation and eternal life”? ([[Mosiah 5.15|Mosiah 5:15]]).
 
-Brothers and sisters, I know that we can! I know that God loves us and is waiting to help us come unto Him. Each of us can know that these things are true. I know that they are! I know that God lives; Jesus Christ is His Son and our Redeemer. The gospel of Jesus Christ is true; the scriptures contain it and testify of it. And we have a true and living prophet today—President Thomas S. Monson. He has been prepared and brought forth in this day to lead the Lord’s Church.
+Brothers and sisters, I know that we can! I know that God loves us and is waiting to help us come unto Him. Each of us can know that these things are true. I know that they are! I know that God lives; Jesus Christ is His Son and our Redeemer. The gospel of Jesus Christ is true; the scriptures contain it and testify of it. And we have a true and living prophet today—President Thomas S. Monson. He has been prepared and brought forth in this day to lead the Lord’s Church.
 
 As we become “steadfast and immovable” in keeping the commandments of the Lord, we will secure the blessings of heaven for ourselves and for our families.
 
@@ -39,8 +41,3 @@ I pray that we will feel this deep in our hearts and in our lives, in the name o
 
 
 
-
-
-
-
-#Conversion #Family #Home

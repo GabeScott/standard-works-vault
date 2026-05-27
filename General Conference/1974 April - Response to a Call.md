@@ -1,6 +1,8 @@
 # Response to a Call
 
-By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Neal A. Maxwell - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -20,11 +22,11 @@ Appreciation for a missionary son in Germany and three daughters and a son-in-la
 
 Appreciation to President Kimball for his example not only as a bold prophet but for his and Sister Kimball’s tireless practicing of “pure religion, undefiled.” ([[James 1.27|James 1:27]].) The President’s greatness is the kind which is not conscious of itself. He truly desires not our adulation but our affirmation by how we live.
 
-Appreciation for the tender tutoring of President Harold B. Lee.
+Appreciation for the tender tutoring of President Harold B. Lee.
 
 Appreciation for Presidents Tanner and Romney and Benson and the Twelve, whom I hope to assist, and each of whose lives reflects divine design that prepared them for their appointed place, for God is never surprised.
 
-Appreciation to all the General Authorities who travel so tirelessly to teach us all, leaving their families without complaint. This reality was summarized well by the wit that was also wisdom of Richard L. Evans; who, one day on the way to another plane and another weekend of conferences, said gently, “Have you ever gotten homesick on the way to the airport?”
+Appreciation to all the General Authorities who travel so tirelessly to teach us all, leaving their families without complaint. This reality was summarized well by the wit that was also wisdom of Richard L. Evans; who, one day on the way to another plane and another weekend of conferences, said gently, “Have you ever gotten homesick on the way to the airport?”
 
 Appreciation to the members of the Church who have helped me in the Tremonton, Ogden, and Reno regions, and to my sweet colleagues, the Regional Representatives of the Twelve, especially those whom the Lord has raised up in other nations of the world.
 
@@ -41,8 +43,3 @@ Finally I testify that what a wise man wrote is true: “If you have not chosen 
 
 
 
-
-
-
-
-#Gratitude #Testimony

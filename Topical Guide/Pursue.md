@@ -1,7 +1,6 @@
 # Pursue
 
-
-Pharaoh ... *pursued* after the children of Israel, [[Exodus 14.8|Exodus 14:8]].
+Pharaoh … *pursued* after the children of Israel, [[Exodus 14.8|Exodus 14:8]].
 
 ye shall flee when none *pursueth* you, [[Leviticus 26.17|Leviticus 26:17]].
 

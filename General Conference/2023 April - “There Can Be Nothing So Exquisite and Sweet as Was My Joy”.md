@@ -1,6 +1,8 @@
 # “There Can Be Nothing So Exquisite and Sweet as Was My Joy”
 
-By Elder Craig C. Christensen - *Of the Seventy*
+Gary E. Stevenson
+
+By Elder Craig C. Christensen - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -22,7 +24,7 @@ The gospel message is a message of hope, of “good tidings of great joy,”[^6]
 
 The joy we speak of is a gift for the faithful, yet it comes with a price. Joy is not cheap or casually given. Rather, it is bought “with the precious blood of \[Jesus\] Christ.”[^8] If we really understood the value of true, godly joy, we would not hesitate to sacrifice any worldly possession or make any necessary life changes to receive it.
 
-A powerful but humble king in the Book of Mormon understood this. “What shall I do,” he asked, “that I may be born of God, having this wicked spirit rooted out of my breast, and receive his Spirit, that I may be filled with joy … ? Behold, said he, I will give up all that I possess, yea, I will forsake my kingdom, that I may receive this great joy.”[^9]
+A powerful but humble king in the Book of Mormon understood this. “What shall I do,” he asked, “that I may be born of God, having this wicked spirit rooted out of my breast, and receive his Spirit, that I may be filled with joy … ? Behold, said he, I will give up all that I possess, yea, I will forsake my kingdom, that I may receive this great joy.”[^9]
 
 In response to the king’s question, the missionary Aaron said, “If thou desirest this thing, … bow down before God … \[and\] repent of all thy sins.”[^10] Repentance is the pathway to joy[^11] because it is the pathway that leads to the Savior Jesus Christ.[^12]
 
@@ -38,9 +40,9 @@ Consider the experience of Alma in the Book of Mormon. He was “racked with ete
 
 “And oh, what joy,” he declared, “and what marvelous light I did behold; yea, … there can be nothing so exquisite and sweet as was my joy.”[^15]
 
-This is the kind of joy available to those who come unto Jesus Christ through repentance.[^16] As President Russell M. Nelson has taught:
+This is the kind of joy available to those who come unto Jesus Christ through repentance.[^16] As President Russell M. Nelson has taught:
 
-“Repentance opens our access to the power of the Atonement of Jesus Christ. …
+“Repentance opens our access to the power of the Atonement of Jesus Christ. …
 
 “When we choose to repent, we choose to change! We allow the Savior to transform us into the best version of ourselves. We choose to grow spiritually and receive joy—the joy of redemption in Him. When we choose to repent, we choose to become more like Jesus Christ!”[^17]
 
@@ -58,7 +60,7 @@ Helping others repent is a natural expression of our gratitude toward the Savior
 
 “If it so be that you should … bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!
 
-“And now, if your joy will be great with one soul that you have brought unto me … , how great will be your joy if you should bring many souls unto me!”[^22]
+“And now, if your joy will be great with one soul that you have brought unto me … , how great will be your joy if you should bring many souls unto me!”[^22]
 
 ## How Great Is His Joy in the Soul That Repenteth
 
@@ -66,9 +68,9 @@ I find it helpful to try to imagine the joy the Savior must feel each time we re
 
 After teaching the people in ancient America, the Savior expressed His great love for them by saying:
 
-“Now, behold, my joy is great, even unto fulness, because of you … ; yea, and even the Father rejoiceth, and also all the holy angels. …
+“Now, behold, my joy is great, even unto fulness, because of you … ; yea, and even the Father rejoiceth, and also all the holy angels. …
 
-“… In \[you\] I have \[a\] fulness of joy.”[^26]
+“… In \[you\] I have \[a\] fulness of joy.”[^26]
 
 ## Come unto Christ and Receive His Joy
 
@@ -77,39 +79,39 @@ Brothers and sisters, I conclude by sharing my personal witness, which I conside
 
 
 
-[^1]: See [[Luke 15.1|Luke 15]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]][[Luke 15.8|]][[Luke 15.9|]][[Luke 15.10|]][[Luke 15.11|]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]].
+[^1]: See [[Luke 15.1|Luke 15]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]][[Luke 15.8|]][[Luke 15.9|]][[Luke 15.10|]][[Luke 15.11|]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]].
 
 [^2]: [[Luke 15.7|Luke 15:7]].
 
 [^3]: See [[Psalms 16.11|Psalm 16:11]].
 
-[^4]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^4]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
-[^5]: [[2 Nephi 2.26|2 Nephi 2:26]].
+[^5]: [[2 Nephi 2.26|2 Nephi 2:26]].
 
 [^6]: [[Luke 2.10|Luke 2:10]].
 
 [^7]: See [[Mosiah 3.13|Mosiah 3:13–19]][[Mosiah 3.14|]][[Mosiah 3.15|]][[Mosiah 3.16|]][[Mosiah 3.17|]][[Mosiah 3.18|]][[Mosiah 3.19|]].
 
-[^8]: [[1 Peter 1.19|1 Peter 1:19]].
+[^8]: [[1 Peter 1.19|1 Peter 1:19]].
 
 [^9]: [[Alma 22.15|Alma 22:15]].
 
 [^10]: [[Alma 22.16|Alma 22:16]].
 
-[^11]: In recent years, several prophets and apostles have emphasized the joy of repentance. See, for example, Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67–69; Dallin H. Oaks, “[[2019 April - Cleansed by Repentance.md|Cleansed by Repentance]],” *Ensign* or *Liahona*, May 2019, 91–94; Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 121–24; D. Todd Christofferson, “[[2011 October - The Divine Gift of Repentance.md|The Divine Gift of Repentance]],” *Ensign* or *Liahona*, Nov. 2011, 38–41.
+[^11]: In recent years, several prophets and apostles have emphasized the joy of repentance. See, for example, Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67–69; Dallin H. Oaks, “[[2019 April - Cleansed by Repentance.md|Cleansed by Repentance]],” *Ensign* or *Liahona*, May 2019, 91–94; Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona*, Nov. 2016, 121–24; D. Todd Christofferson, “[[2011 October - The Divine Gift of Repentance.md|The Divine Gift of Repentance]],” *Ensign* or *Liahona*, Nov. 2011, 38–41.
 
-[^12]: President Nelson taught: “Joy comes from and because of \[Jesus Christ\]. He is the source of all joy. … For Latter-day Saints, Jesus Christ is joy!” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82).
+[^12]: President Nelson taught: “Joy comes from and because of \[Jesus Christ\]. He is the source of all joy. … For Latter-day Saints, Jesus Christ is joy!” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82).
 
 [^13]: [[Psalms 30.5|Psalm 30:5]].
 
-[^14]: [[Alma 36.12|Alma 36:12, 19]][[Alma 36.19|]].
+[^14]: [[Alma 36.12|Alma 36:12, 19]][[Alma 36.19|]].
 
 [^15]: [[Alma 36.20|Alma 36:20–21]][[Alma 36.21|]]; see also [[Alma 36.12|verses 12–19]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]].
 
 [^16]: See [[Alma 27.18|Alma 27:18]].
 
-[^17]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” 67.
+[^17]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” 67.
 
 [^18]: See [[Acts 13.52|Acts 13:52]]; [[Mosiah 4.3|Mosiah 4:3]].
 
@@ -123,22 +125,17 @@ Brothers and sisters, I conclude by sharing my personal witness, which I conside
 
 [^23]: See [[D&C 18.13|Doctrine and Covenants 18:13]].
 
-[^24]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 83.
+[^24]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 83.
 
 [^25]: [[Hebrews 12.1|Hebrews 12:1–2]][[Hebrews 12.2|]]; emphasis added.
 
-[^26]: [[3 Nephi 27.30|3 Nephi 27:30–31]][[3 Nephi 27.31|]]. Three of the Savior’s Nephite disciples desired to remain in mortality with the sole purpose of bringing souls to Him. To these loyal disciples, Jesus said, “For this cause ye shall have fulness of joy; and ye shall sit down in the kingdom of my Father; yea, your joy shall be full, even as the Father hath given me fulness of joy; and ye shall be even as I am” ([[3 Nephi 28.10|3 Nephi 28:10]]).
+[^26]: [[3 Nephi 27.30|3 Nephi 27:30–31]][[3 Nephi 27.31|]]. Three of the Savior’s Nephite disciples desired to remain in mortality with the sole purpose of bringing souls to Him. To these loyal disciples, Jesus said, “For this cause ye shall have fulness of joy; and ye shall sit down in the kingdom of my Father; yea, your joy shall be full, even as the Father hath given me fulness of joy; and ye shall be even as I am” ([[3 Nephi 28.10|3 Nephi 28:10]]).
 
 [^27]: [[Moses 1.39|Moses 1:39]].
 
-[^28]: “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him” ([[1 Corinthians 2.9|1 Corinthians 2:9]]).
+[^28]: “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him” ([[1 Corinthians 2.9|1 Corinthians 2:9]]).
 
 [^29]: [[John 14.6|John 14:6]].
 
-[^30]: [[2 Nephi 31.21|2 Nephi 31:21]].
+[^30]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
-
-
-
-
-#Atonement #Jesus_Christ #Joy #Repentance #Sin

@@ -5,7 +5,7 @@
 [Joseph Smith History 1:16](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.16?lang=eng#p16)
 
 
-[^a]: [[Moses 1.20|Moses 1:20.]]
-[^b]: [[Isaiah 6.5|Isa. 6:5 (1-7)]]. TG [[Despair]].
-[^c]: [[Acts 26.13|Acts 26:13.]]
-[^d]: [[Revelation 1.16|Rev. 1:16.]]
+[^a]: [[Moses 1.20|Moses 1:20]].  
+[^b]: [[Isaiah 6.1|Isa. 6:5 (1–7)]][[Isaiah 6.2|]][[Isaiah 6.3|]][[Isaiah 6.4|]][[Isaiah 6.5|]][[Isaiah 6.6|]][[Isaiah 6.7|]]. [[Despair|TG Despair]].  
+[^c]: [[Acts 26.13|Acts 26:13]].  
+[^d]: [[Revelation 1.16|Rev. 1:16]].  

@@ -1,13 +1,12 @@
 # Mourning, Mourn
 
+*See also* [[Despair.md|Despair]]; [[Grief.md|Grief]]; [[Lamentation.md|Lamentation]]; [[Sorrow.md|Sorrow]]; [[Weep.md|Weep]]
 
-*See also* [[Despair.md|Despair]]; [[Grief.md|Grief]]; [[Lamentation.md|Lamentation]]; [[Sorrow.md|Sorrow]]; [[Weep, Wept.md|Weep]]
+go down into the grave … *mourning*, [[Genesis 37.35|Genesis 37:35]].
 
-go down into the grave ... *mourning*, [[Genesis 37.35|Genesis 37:35]].
+Moses told these sayings … and the people *mourned* greatly, [[Numbers 14.39|Numbers 14:39]].
 
-Moses told these sayings ... and the people *mourned* greatly, [[Numbers 14.39|Numbers 14:39]].
-
-days of ... *mourning* for Moses were ended, [[Deuteronomy 34.8|Deuteronomy 34:8]].
+days of … *mourning* for Moses were ended, [[Deuteronomy 34.8|Deuteronomy 34:8]].
 
 those which *mourn* may be exalted, [[Job 5.11|Job 5:11]].
 
@@ -29,7 +28,7 @@ I will turn their *mourning* into joy, [[Jeremiah 31.13|Jeremiah 31:13]].
 
 *mourning*, every one for his iniquity, [[Ezekiel 7.16|Ezekiel 7:16]].
 
-priests, the Lord's ministers, *mourn*, [[Joel 1.9|Joel 1:9]].
+priests, the Lord’s ministers, *mourn*, [[Joel 1.9|Joel 1:9]].
 
 In that day shall there be a great *mourning*, [[Zechariah 12.11|Zechariah 12:11]].
 
@@ -47,7 +46,7 @@ we have *mourned* to you, and ye have not wept, [[Luke 7.32|Luke 7:32]].
 
 let your laughter be turned to *mourning*, [[James 4.9|James 4:9]].
 
-merchants of the earth shall ... *mourn*, [[Revelation 18.11|Revelation 18:11]].
+merchants of the earth shall … *mourn*, [[Revelation 18.11|Revelation 18:11]].
 
 sorrow and *mourning* shall flee away, [[2 Nephi 8.11|2 Nephi 8:11]].
 
@@ -71,7 +70,7 @@ to *mourn* and to fast, at the burial, [[Helaman 9.10|Helaman 9:10]].
 
 there was great *mourning* and howling, [[3 Nephi 8.23|3 Nephi 8:23]].
 
-the *mourning*, and the weeping ... did cease, [[3 Nephi 10.10|3 Nephi 10:10]].
+the *mourning*, and the weeping … did cease, [[3 Nephi 10.10|3 Nephi 10:10]].
 
 saw their lamentation and their *mourning*, [[Mormon 2.12|Mormon 2:12]].
 
@@ -81,7 +80,7 @@ Fools mock, but they shall *mourn*, [[Ether 12.26|Ether 12:26]].
 
 his soul *mourned* and refused to be comforted, [[Ether 15.3|Ether 15:3]].
 
-Lord shall utter his voice, and ... the earth shall *mourn*, [[D&C 45.49|D&C 45:49]].
+Lord shall utter his voice, and … the earth shall *mourn*, [[D&C 45.49|D&C 45:49]].
 
 inhabitants of the earth shall *mourn*, [[D&C 87.6|D&C 87:6]].
 
@@ -96,5 +95,3 @@ day of desolation, of weeping, of *mourning*, [[D&C 112.24|D&C 112:24]].
 Adam and his wife *mourned* before the Lord, [[Moses 5.27|Moses 5:27]].
 
 when Enoch heard the earth *mourn*, he wept, [[Moses 7.49|Moses 7:49]].
-
-*See also* [[Leviticus 19.28|Leviticus 19:28]]; [[Isaiah 22.4|Isaiah 22:4]]; [[Jeremiah 9.1|Jeremiah 9:1]]; [[Lamentations 3.48|Lamentations 3:48]]; [[Ezekiel 7.11|Ezekiel 7:11]]; [[2 Corinthians 5.4|2 Corinthians 5:4]]; [[James 5.1|James 5:1]]; [[Mormon 6.16|Mormon 6:16]]; [[D&C 42.45|D&C 42:45]].

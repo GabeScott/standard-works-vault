@@ -1,6 +1,8 @@
 # Revelation for the Church, Revelation for Our Lives
 
-By President Russell M. Nelson - *President of the Church*
+Henry B. Eyring
+
+By President Russell M. Nelson - *President of the Church*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -12,11 +14,11 @@ What a glorious privilege it has been to celebrate Easter with you on this Sunda
 
 Without our Redeemer’s infinite Atonement, not one of us would have hope of ever returning to our Heavenly Father. Without His Resurrection, death would be the end. Our Savior’s Atonement made eternal life a possibility and immortality a reality for all.
 
-It is because of His transcendent mission and the peace He grants His followers that my wife, Wendy, and I felt comfort late on January 2, 2018, when we were awakened by a phone call telling us that President Thomas S. Monson had stepped through the veil.
+It is because of His transcendent mission and the peace He grants His followers that my wife, Wendy, and I felt comfort late on January 2, 2018, when we were awakened by a phone call telling us that President Thomas S. Monson had stepped through the veil.
 
 How we miss President Monson! We honor his life and his legacy. A spiritual giant, he left an indelible imprint upon all who knew him and upon the Church that he loved.
 
-On Sunday, January 14, 2018, in the upper room of the Salt Lake Temple, the First Presidency was reorganized in the simple yet sacred pattern established by the Lord. Then, at yesterday morning’s solemn assembly, members of the Church throughout the world raised their hands to confirm the earlier action taken by the Apostles. I am humbly grateful for your sustaining support.
+On Sunday, January 14, 2018, in the upper room of the Salt Lake Temple, the First Presidency was reorganized in the simple yet sacred pattern established by the Lord. Then, at yesterday morning’s solemn assembly, members of the Church throughout the world raised their hands to confirm the earlier action taken by the Apostles. I am humbly grateful for your sustaining support.
 
 I am also grateful for those upon whose shoulders I stand. It has been my privilege to serve in the Quorum of the Twelve Apostles for 34 years and to know personally 10 of the 16 previous Presidents of the Church. I learned much from each of them.
 
@@ -32,7 +34,7 @@ In 1945, while I was in medical school, I married Dantzel White in the Salt Lake
 
 In 2005, after nearly 60 years of marriage, my dear Dantzel was unexpectedly called home. For a season, my grief was almost immobilizing. But the message of Easter and the promise of resurrection sustained me.
 
-Then the Lord brought Wendy Watson to my side. We were sealed in the Salt Lake Temple on April 6, 2006. How I love her! She is an extraordinary woman—a great blessing to me, to our family, and to the entire Church.
+Then the Lord brought Wendy Watson to my side. We were sealed in the Salt Lake Temple on April 6, 2006. How I love her! She is an extraordinary woman—a great blessing to me, to our family, and to the entire Church.
 
 Each of these blessings has come as a result of seeking and heeding the promptings of the Holy Ghost. Said President Lorenzo Snow, “This is the grand privilege of every Latter-day Saint … that it is our right to have the manifestations of the Spirit every day of our lives.”[^4]
 
@@ -48,7 +50,7 @@ Imagine the miracle of it! Whatever our Church calling, we can pray to our Heave
 
 When I recently faced the daunting task of choosing two counselors, I wondered how I could possibly choose just two from twelve men whom I love and respect.
 
-Because I know that good inspiration is based upon good information, I prayerfully met one-on-one with each Apostle.[^6] I then sequestered myself in a private room in the temple and sought the Lord’s will. I testify that the Lord instructed me to select President Dallin H. Oaks and President Henry B. Eyring to serve as my counselors in the First Presidency.
+Because I know that good inspiration is based upon good information, I prayerfully met one-on-one with each Apostle.[^6] I then sequestered myself in a private room in the temple and sought the Lord’s will. I testify that the Lord instructed me to select President Dallin H. Oaks and President Henry B. Eyring to serve as my counselors in the First Presidency.
 
 In like manner, I testify that the Lord inspired the call of Elder Gerrit W. Gong and Elder Ulisses Soares to be ordained as His Apostles. I and we welcome them to this unique brotherhood of service.
 
@@ -70,7 +72,7 @@ You don’t have to wonder about what is true.[^11] You do not have to wonder wh
 
 I urge you to stretch beyond your current spiritual ability to receive personal revelation, for the Lord has promised that “if thou shalt \[seek\], thou shalt receive revelation upon revelation, knowledge upon knowledge, that thou mayest know the mysteries and peaceable things—that which bringeth joy, that which bringeth life eternal.”[^12]
 
-Oh, there is so much more that your Father in Heaven wants you to know. As Elder Neal A. Maxwell taught, “To those who have eyes to see and ears to hear, it is clear that the Father and the Son are giving away the secrets of the universe!”[^13]
+Oh, there is so much more that your Father in Heaven wants you to know. As Elder Neal A. Maxwell taught, “To those who have eyes to see and ears to hear, it is clear that the Father and the Son are giving away the secrets of the universe!”[^13]
 
 Nothing opens the heavens quite like the combination of increased purity, exact obedience, earnest seeking, daily feasting on the words of Christ in the Book of Mormon,[^14] and regular time committed to temple and family history work.
 
@@ -97,17 +99,17 @@ This is His Church, restored through the Prophet Joseph Smith. I so testify, wit
 
 [^3]: See [[Alma 26.16|Alma 26:16]].
 
-[^4]: [Teachings of Presidents of the Church: Lorenzo Snow](https://churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-lorenzo-snow/chapter-4-strengthened-by-the-power-of-the-holy-ghost?lang=eng) (2012), 76.
+[^4]: [Teachings of Presidents of the Church: Lorenzo Snow](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-lorenzo-snow/chapter-4-strengthened-by-the-power-of-the-holy-ghost?lang=eng) (2012), 76.
 
-[^5]: See Russell M. Nelson, “[[2003 April - Sweet Power of Prayer.md|Sweet Power of Prayer]],” *Ensign* or *Liahona,* May 2003, 7–8.
+[^5]: See Russell M. Nelson, “[[2003 April - Sweet Power of Prayer.md|Sweet Power of Prayer]],” *Ensign* or *Liahona,* May 2003, 7–8.
 
-[^6]: See [[3 Nephi 28.1|3 Nephi 28:1]].
+[^6]: See [[3 Nephi 28.1|3 Nephi 28:1]].
 
-[^7]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-34?lang=eng) (2007), 393–94.
+[^7]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-34?lang=eng) (2007), 393–94.
 
 [^8]: See [[James 1.5|James 1:5]].
 
-[^9]: [Teachings: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-10?lang=eng), 132.
+[^9]: [Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-10?lang=eng), 132.
 
 [^10]: [[D&C 121.33|Doctrine and Covenants 121:33]].
 
@@ -115,14 +117,9 @@ This is His Church, restored through the Prophet Joseph Smith. I so testify, wit
 
 [^12]: [[D&C 42.61|Doctrine and Covenants 42:61]].
 
-[^13]: Neal A. Maxwell, “[Meek and Lowly](https://speeches.byu.edu/talks/neal-a-maxwell_meek-lowly)” (Brigham Young University devotional, Oct. 21, 1986), 9, speeches.byu.edu.
+[^13]: Neal A. Maxwell, “[Meek and Lowly](https://speeches.byu.edu/talks/neal-a-maxwell_meek-lowly)” (Brigham Young University devotional, Oct. 21, 1986), 9, speeches.byu.edu.
 
-[^14]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^14]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
 [^15]: [[Moroni 10.30|Moroni 10:30]].
 
-
-
-
-
-#Church_Callings #Holy_Ghost #Jesus_Christ #Joseph_Smith #Prayer #Prophets #Revelation

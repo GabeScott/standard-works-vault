@@ -1,6 +1,8 @@
 # Let Doing Good Be Our Normal
 
-By Elder Rafael E. Pino - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Rafael E. Pino - *Of the Seventy*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -22,7 +24,7 @@ What is normal for some may be odd for others, depending on their customs and tr
 
 Which customs and traditions are normal in our lives?
 
-President Russell M. Nelson has said: “Today we often hear about ‘a new normal.’ If you really want to embrace a new normal, I invite you to turn your heart, mind, and soul increasingly to our Heavenly Father and His Son, Jesus Christ. Let that be *your* new normal” (“[[2020 October - A New Normal.md|A New Normal]],” *Ensign* or *Liahona*, Nov. 2020, 118).
+President Russell M. Nelson has said: “Today we often hear about ‘a new normal.’ If you really want to embrace a new normal, I invite you to turn your heart, mind, and soul increasingly to our Heavenly Father and His Son, Jesus Christ. Let that be *your* new normal” (“[[2020 October - A New Normal.md|A New Normal]],” *Ensign* or *Liahona*, Nov. 2020, 118).
 
 This invitation is for all. It does not matter whether we are poor or rich, educated or uneducated, old or young, sick or healthy. He invites us to let the normal things in our lives be those which help keep us on the covenant path.
 
@@ -42,7 +44,7 @@ Among the marvelous habits that should be normal for members of the Church are t
 
 2. Personal and family prayer. The Savior commands us to pray always (see [[D&C 19.38|Doctrine and Covenants 19:38]]). Prayer allows us to communicate personally with our Heavenly Father in the name of His Son, Jesus Christ.
 
-3. Weekly sacrament meeting attendance (see [[3 Nephi 18.1|3 Nephi 18:1–12]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]]; [[Moroni 6.5|Moroni 6:5–6]][[Moroni 6.6|]]). We do so to remember Jesus Christ as we take the sacrament. In this ordinance the members of the Church renew their covenant of taking upon themselves the name of the Savior, of always remembering Him, and of keeping His commandments (see [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]).
+3. Weekly sacrament meeting attendance (see [[3 Nephi 18.1|3 Nephi 18:1–12]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]]; [[Moroni 6.5|Moroni 6:5–6]][[Moroni 6.6|]]). We do so to remember Jesus Christ as we take the sacrament. In this ordinance the members of the Church renew their covenant of taking upon themselves the name of the Savior, of always remembering Him, and of keeping His commandments (see [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]).
 
 4. Frequent participation in temple and family history work. This work is the means of uniting and sealing families for eternity (see [[D&C 128.15|Doctrine and Covenants 128:15]]).
 
@@ -58,15 +60,10 @@ President Nelson has also counseled: “Embrace your new normal by repenting dai
 
 Now it is not odd for either my wife, Patricia, or for me to eat coconut with chili and avocado with sugar—in fact, we like it. However, exaltation is something much more transcendent than a sense of taste; it is a topic related to eternity.
 
-I pray that our normality may allow us to experience that state of “never-ending happiness” ([[Mosiah 2.41|Mosiah 2:41]]) that is promised to those who keep the commandments of God and that, while doing so, we may be able to say, “And it came to pass that we lived after the manner of happiness” ([[2 Nephi 5.27|2 Nephi 5:27]]).
+I pray that our normality may allow us to experience that state of “never-ending happiness” ([[Mosiah 2.41|Mosiah 2:41]]) that is promised to those who keep the commandments of God and that, while doing so, we may be able to say, “And it came to pass that we lived after the manner of happiness” ([[2 Nephi 5.27|2 Nephi 5:27]]).
 
-My brothers and sisters, I testify of the 15 men whom we sustain as prophets, seers, and revelators, including our beloved prophet, President Russell M. Nelson. I testify that The Church of Jesus Christ of Latter-day Saints is true. I especially testify of Jesus Christ, our Savior and Redeemer, in the name of Jesus Christ, amen.
-
-
+My brothers and sisters, I testify of the 15 men whom we sustain as prophets, seers, and revelators, including our beloved prophet, President Russell M. Nelson. I testify that The Church of Jesus Christ of Latter-day Saints is true. I especially testify of Jesus Christ, our Savior and Redeemer, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-#Discipleship #Family_History #Prayer #Sacrament #Scripture_Study #Temple_Work #Traditions

@@ -1,6 +1,8 @@
 # The Joy of Our Redemption
 
-By Sister Kristin M. Yee - *Second Counselor in the Relief Society General Presidency*
+Henry B. Eyring
+
+By Sister Kristin M. Yee - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -8,7 +10,7 @@ By Sister Kristin M. Yee - *Second Counselor in the Relief Society General Pres
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/10/32yee?lang=eng)
 
-About 10 years ago I felt impressed to paint a portrait of the Savior. Though I am an artist, this felt a bit overwhelming. How was *I* to paint a portrait of Jesus Christ that captured His Spirit? Where was I to begin? And where would I find the time?
+About 10 years ago I felt impressed to paint a portrait of the Savior. Though I am an artist, this felt a bit overwhelming. How was *I* to paint a portrait of Jesus Christ that captured His Spirit? Where was I to begin? And where would I find the time?
 
 Even with my questions, I decided to move forward and trust that the Lord would help me. But I had to keep moving and leave the *possibilities* to Him.[^1] I prayed, pondered, researched, and sketched and was blessed to find help and resources. And what was a white canvas started to become something more.
 
@@ -24,7 +26,7 @@ Just as the depth of my gratitude for the Savior grew as He mercifully helped me
 
 Repenting allows us to feel God’s love and to know and love Him in ways we would never otherwise know.[^5] Of the woman who anointed the Savior’s feet, He said, “Her sins, which are many, are forgiven; for she loved much: but to whom little is forgiven, the same loveth little.”[^6] She loved Jesus much, for He had forgiven her much.
 
-There is such relief and hope in knowing that we *can* try again—that, as Elder David A. Bednar taught, we can receive an ongoing remission of our sins through the sanctifying power of the Holy Ghost as we truly and sincerely repent.[^7]
+There is such relief and hope in knowing that we *can* try again—that, as Elder David A. Bednar taught, we can receive an ongoing remission of our sins through the sanctifying power of the Holy Ghost as we truly and sincerely repent.[^7]
 
 The redeeming power of Jesus Christ is one of the greatest promised blessings of our covenants. Ponder this as you participate in sacred ordinances.[^8] Without it, we could not return home to the presence of our Father in Heaven and those we love.
 
@@ -34,13 +36,13 @@ He has said, “Will ye not now return unto me, and repent of your sins, and be 
 
 Just as we cannot comprehend the agony and depth of Christ’s suffering in Gethsemane and on the cross, so we “cannot measure the bounds nor fathom the depths of \[His\] divine forgiveness,”[^16] mercy, and love.[^17]
 
-You may feel at times that it’s not possible to be redeemed, that perhaps you are an exception to God’s love and the Savior’s atoning power because of what you are struggling with or because of what you’ve done. But I testify that you are not beneath the Master’s reach. The Savior “descended below all things”[^18] and is in a divine position to lift you and claim you from the darkest abyss and bring you into “his marvellous light.”[^19] Through His sufferings, He has made a way for each of us to overcome our personal weaknesses and sins. “He has* all* power to save *every *man that believeth on his name and bringeth forth fruit meet for repentance.”[^20]
+You may feel at times that it’s not possible to be redeemed, that perhaps you are an exception to God’s love and the Savior’s atoning power because of what you are struggling with or because of what you’ve done. But I testify that you are not beneath the Master’s reach. The Savior “descended below all things”[^18] and is in a divine position to lift you and claim you from the darkest abyss and bring you into “his marvellous light.”[^19] Through His sufferings, He has made a way for each of us to overcome our personal weaknesses and sins. “He has* all* power to save *every* man that believeth on his name and bringeth forth fruit meet for repentance.”[^20]
 
 Just as it required work and pleading for heaven’s help to repair the painting, it takes work, sincerity of heart, and humility to bring “forth fruit meet for repentance.” These fruits include exercising our faith and trust in Jesus Christ and His atoning sacrifice,[^21] offering to God a broken heart and a contrite spirit,[^22] confessing and forsaking sin,[^23] restoring that which has been damaged to the best of our ability,[^24] and striving to live righteously.[^25]
 
 To truly repent and change, we must first be “convinced of our sins.”[^26] A person does not see the need to take medicine unless they understand that they are ill.[^27] There may be times we may not be willing to look inside ourselves and see that which really needs healing and repair.
 
-In C. S. Lewis’s writings, Aslan poses these words to a man who has entangled himself in his own devices: “Oh \[humankind\], how cleverly you defend yourselves \[from\] all that might do you good!”[^28]
+In C. S. Lewis’s writings, Aslan poses these words to a man who has entangled himself in his own devices: “Oh \[humankind\], how cleverly you defend yourselves \[from\] all that might do you good!”[^28]
 
 Where might you and I be defending ourselves from those things that might do us good?
 
@@ -70,7 +72,7 @@ If you are struggling with a situation you think you should have overcome by now
 
 There have been difficult and complex relationships in my life that I have struggled with and sincerely sought to improve. At times I felt like I was failing more often than not. I wondered, “Did I not fix things the last time? Did I not truly overcome my weakness?” I’ve learned over time that I am not necessarily defective; rather, there is often more to work on and more healing that is needed.[^43]
 
-Elder D. Todd Christofferson taught: “Surely the Lord smiles upon one who desires to come to judgment worthily, who resolutely labors day by day to replace weakness with strength. Real repentance, real change may require repeated attempts, but there is something refining and holy in such striving. Divine forgiveness and healing flow quite naturally to such a soul.”[^44]
+Elder D. Todd Christofferson taught: “Surely the Lord smiles upon one who desires to come to judgment worthily, who resolutely labors day by day to replace weakness with strength. Real repentance, real change may require repeated attempts, but there is something refining and holy in such striving. Divine forgiveness and healing flow quite naturally to such a soul.”[^44]
 
 Each day is a new day filled with hope and possibilities because of Jesus Christ. Each day you and I can come to know, as Mother Eve proclaimed, “the joy of our redemption,”[^45] the joy of being made whole, the joy of feeling God’s unfailing love for you.
 
@@ -81,9 +83,9 @@ I know that our Father in Heaven and Savior love you. Jesus Christ is the Savior
 
 [^1]: See [[Matthew 19.26|Matthew 19:26]].
 
-[^2]: “Once we make a covenant with God, we leave neutral ground forever. God will not abandon His relationship with those who have forged such a bond with Him. In fact, all those who have made a covenant with God have access to a special kind of love and mercy. In the Hebrew language, that covenantal love is called *hesed* (חֶסֶד)” (Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p9#p9),” *Liahona*, Oct. 2022, 5).
+[^2]: “Once we make a covenant with God, we leave neutral ground forever. God will not abandon His relationship with those who have forged such a bond with Him. In fact, all those who have made a covenant with God have access to a special kind of love and mercy. In the Hebrew language, that covenantal love is called *hesed* (חֶסֶד)” (Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p9#p9),” *Liahona*, Oct. 2022, 5).
 
-[^3]: “When you and I also enter that path, we have a new way of life. We thereby create a relationship with God that allows Him to bless and change us. The covenant path leads us back to Him. If we let God prevail in our lives, that covenant will lead us closer and closer to Him. All covenants are intended to be binding. They create a relationship with everlasting ties” (Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p8#p8),” 5).
+[^3]: “When you and I also enter that path, we have a new way of life. We thereby create a relationship with God that allows Him to bless and change us. The covenant path leads us back to Him. If we let God prevail in our lives, that covenant will lead us closer and closer to Him. All covenants are intended to be binding. They create a relationship with everlasting ties” (Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p8#p8),” 5).
 
 [^4]: See [[Alma 26.35|Alma 26:35–36]][[Alma 26.36|]].
 
@@ -91,11 +93,11 @@ I know that our Father in Heaven and Savior love you. Jesus Christ is the Savior
 
 [^6]: [[Luke 7.47|Luke 7:47]]; see also [[Luke 7.37|verses 37–50]][[Luke 7.38|]][[Luke 7.39|]][[Luke 7.40|]][[Luke 7.41|]][[Luke 7.42|]][[Luke 7.43|]][[Luke 7.44|]][[Luke 7.45|]][[Luke 7.46|]][[Luke 7.47|]][[Luke 7.48|]][[Luke 7.49|]][[Luke 7.50|]].
 
-[^7]: Speaking of the sacrament, Elder David A. Bednar said:
+[^7]: Speaking of the sacrament, Elder David A. Bednar said:
 
-[^8]: “The Prophet Joseph Smith summarized succinctly the essential role of priesthood ordinances in the gospel of Jesus Christ: ‘Being born again, comes by the Spirit of God through ordinances’ \[[Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-7?lang=eng&id=p23#p23) (2007), 95\]. This penetrating statement emphasizes the roles of both the Holy Ghost and sacred ordinances in the process of spiritual rebirth. …
+[^8]: “The Prophet Joseph Smith summarized succinctly the essential role of priesthood ordinances in the gospel of Jesus Christ: ‘Being born again, comes by the Spirit of God through ordinances’ \[[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-7?lang=eng&id=p23#p23) (2007), 95\]. This penetrating statement emphasizes the roles of both the Holy Ghost and sacred ordinances in the process of spiritual rebirth. …
 
-[^9]: See [[John 10.17|John 10:17–18]][[John 10.18|]]; [[3 Nephi 9.22|3 Nephi 9:22]].
+[^9]: See [[John 10.17|John 10:17–18]][[John 10.18|]]; [[3 Nephi 9.22|3 Nephi 9:22]].
 
 [^10]: See [[JST John 1.16|Joseph Smith Translation, John 1:16]]; [[Jacob 6.9|Jacob 6:9]]; [[Moses 1.39|Moses 1:39]].
 
@@ -103,25 +105,25 @@ I know that our Father in Heaven and Savior love you. Jesus Christ is the Savior
 
 [^12]: See [[John 3.16|John 3:16]].
 
-[^13]: [[3 Nephi 9.13|3 Nephi 9:13]].
+[^13]: [[3 Nephi 9.13|3 Nephi 9:13]].
 
-[^14]: “I plead with you to come unto Him so that He can … heal you from sin as you repent. He will heal you from sadness and fear. He will heal you from the wounds of this world” (Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127).
+[^14]: “I plead with you to come unto Him so that He can … heal you from sin as you repent. He will heal you from sadness and fear. He will heal you from the wounds of this world” (Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” *Liahona*, May 2023, 127).
 
 [^15]: [[Isaiah 51.3|Isaiah 51:3]]; see also [[Isaiah 58.10|Isaiah 58:10–12]][[Isaiah 58.11|]][[Isaiah 58.12|]]; [[Ezekiel 36.33|Ezekiel 36:33–36]][[Ezekiel 36.34|]][[Ezekiel 36.35|]][[Ezekiel 36.36|]].
 
-[^16]: James E. Talmage, *Jesus the Christ* (1916), 265.
+[^16]: James E. Talmage, *Jesus the Christ* (1916), 265.
 
-[^17]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” 5–7; see also endnotes 2 and 3 in this message.
+[^17]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng),” 5–7; see also endnotes 2 and 3 in this message.
 
 [^18]: [[D&C 88.6|Doctrine and Covenants 88:6]]; see also [[D&C 122.7|Doctrine and Covenants 122:7–9]][[D&C 122.8|]][[D&C 122.9|]].
 
-[^19]: [[1 Peter 2.9|1 Peter 2:9]]; see also [[Alma 26.16|Alma 26:16–17]][[Alma 26.17|]].
+[^19]: [[1 Peter 2.9|1 Peter 2:9]]; see also [[Alma 26.16|Alma 26:16–17]][[Alma 26.17|]].
 
 [^20]: [[Alma 12.15|Alma 12:15]]; emphasis added.
 
 [^21]: See [[Alma 34.17|Alma 34:17]].
 
-[^22]: See [[2 Corinthians 7.10|2 Corinthians 7:10]]; [[3 Nephi 9.19|3 Nephi 9:15–22]][[3 Nephi 9.20|]][[3 Nephi 9.15|]][[3 Nephi 9.16|]][[3 Nephi 9.17|]][[3 Nephi 9.18|]][[3 Nephi 9.19|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]][[3 Nephi 9.22|]].
+[^22]: See [[2 Corinthians 7.10|2 Corinthians 7:10]]; [[3 Nephi 9.19|3 Nephi 9:15–22]][[3 Nephi 9.20|]][[3 Nephi 9.15|]][[3 Nephi 9.16|]][[3 Nephi 9.17|]][[3 Nephi 9.18|]][[3 Nephi 9.19|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]][[3 Nephi 9.22|]].
 
 [^23]: See [[D&C 58.43|Doctrine and Covenants 58:43]]; [[D&C 64.7|64:7]].
 
@@ -131,48 +133,43 @@ I know that our Father in Heaven and Savior love you. Jesus Christ is the Savior
 
 [^26]: See [[Alma 24.8|Alma 24:8–10]][[Alma 24.9|]][[Alma 24.10|]].
 
-[^27]: See Robert L. Millet, *Becoming New: A Doctrinal Commentary on the Writings of Paul* (2022), 26.
+[^27]: See Robert L. Millet, *Becoming New: A Doctrinal Commentary on the Writings of Paul* (2022), 26.
 
-[^28]: C. S. Lewis, *The Magician’s Nephew* (1955), 185.
+[^28]: C. S. Lewis, *The Magician’s Nephew* (1955), 185.
 
 [^29]: See [[Mosiah 4.6|Mosiah 4:6–9]][[Mosiah 4.7|]][[Mosiah 4.8|]][[Mosiah 4.9|]].
 
-[^30]: See [[Alma 12.9|Alma 12:9–10]][[Alma 12.10|]]; [[Alma 26.22|26:22]]; [[3 Nephi 26.9|3 Nephi 26:9]].
+[^30]: See [[Alma 12.9|Alma 12:9–10]][[Alma 12.10|]]; [[Alma 26.22|26:22]]; [[3 Nephi 26.9|3 Nephi 26:9]].
 
-[^31]: “The covenant path is all about our relationship with God” (Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p57#p57),” 11; see also endnotes 2 and 3 in this message).
+[^31]: “The covenant path is all about our relationship with God” (Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p57#p57),” 11; see also endnotes 2 and 3 in this message).
 
 [^32]: See [[Alma 24.17|Alma 24:17–19]][[Alma 24.18|]][[Alma 24.19|]].
 
 [^33]: See [[D&C 67.10|Doctrine and Covenants 67:10]].
 
-[^34]: See [[Jacob 4.13|Jacob 4:13]]. “Those who do not see their weaknesses do not progress. Your awareness of your weakness is a blessing as it helps you remain humble and keeps you turning to the Savior. The Spirit not only comforts you, but He is also the agent by which the Atonement works a change in your very nature. Then weak things become strong” (Henry B. Eyring, “[[2017 April - “My Peace I Leave with You”.md|My Peace I Leave with You]],” *Ensign* or *Liahona*, May 2017, 16).
+[^34]: See [[Jacob 4.13|Jacob 4:13]]. “Those who do not see their weaknesses do not progress. Your awareness of your weakness is a blessing as it helps you remain humble and keeps you turning to the Savior. The Spirit not only comforts you, but He is also the agent by which the Atonement works a change in your very nature. Then weak things become strong” (Henry B. Eyring, “[[2017 April - “My Peace I Leave with You”.md|My Peace I Leave with You]],” *Ensign* or *Liahona*, May 2017, 16).
 
-[^35]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 68.
+[^35]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 68.
 
-[^36]: “Everything taught in the temple, through instruction and through the Spirit, increases our understanding of Jesus Christ. His essential ordinances bind us to Him through sacred priesthood covenants. Then, as we keep our covenants, He endows us with *His* healing, strengthening power. And oh, how we will need His power in the days ahead” (Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94).
+[^36]: “Everything taught in the temple, through instruction and through the Spirit, increases our understanding of Jesus Christ. His essential ordinances bind us to Him through sacred priesthood covenants. Then, as we keep our covenants, He endows us with *His* healing, strengthening power. And oh, how we will need His power in the days ahead” (Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94).
 
-[^37]: [[3 Nephi 9.21|3 Nephi 9:21]].
+[^37]: [[3 Nephi 9.21|3 Nephi 9:21]].
 
-[^38]: [[3 Nephi 9.14|3 Nephi 9:14]].
+[^38]: [[3 Nephi 9.14|3 Nephi 9:14]].
 
 [^39]: See Erik Dewar, “Come Find His Rest” (song, 2024); see also [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-[^40]: See [[Deuteronomy 30.20|Deuteronomy 30:20]]; [[John 11.25|John 11:25]]; [[Ether 3.14|Ether 3:14]]; [[D&C 88.6|Doctrine and Covenants 88:6, 13]][[D&C 88.13|]].
+[^40]: See [[Deuteronomy 30.20|Deuteronomy 30:20]]; [[John 11.25|John 11:25]]; [[Ether 3.14|Ether 3:14]]; [[D&C 88.6|Doctrine and Covenants 88:6, 13]][[D&C 88.13|]].
 
-[^41]: “My dear brothers and sisters, here is my promise. Nothing will help you *more* to hold fast to the iron rod than worshipping in the temple as regularly as your circumstances permit. Nothing will protect you *more* as you encounter the world’s mists of darkness. Nothing will bolster your testimony of the Lord Jesus Christ and His Atonement or help you understand God’s magnificent plan *more*. Nothing will soothe your spirit *more* during times of pain. Nothing will open the heavens *more*. Nothing!” (Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 122).
+[^41]: “My dear brothers and sisters, here is my promise. Nothing will help you *more* to hold fast to the iron rod than worshipping in the temple as regularly as your circumstances permit. Nothing will protect you *more* as you encounter the world’s mists of darkness. Nothing will bolster your testimony of the Lord Jesus Christ and His Atonement or help you understand God’s magnificent plan *more*. Nothing will soothe your spirit *more* during times of pain. Nothing will open the heavens *more*. Nothing!” (Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 122).
 
-[^42]: See Russell M. Nelson, “[The Everlasting Covenant](https://churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p8#p8),” 5.
+[^42]: See Russell M. Nelson, “[The Everlasting Covenant](https://www.churchofjesuschrist.org/study/liahona/2022/10/04-the-everlasting-covenant?lang=eng&id=p8#p8),” 5.
 
-[^43]: See Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” 127; see also endnote 14 in this message.
+[^43]: See Russell M. Nelson, “[[2023 April - The Answer Is Always Jesus Christ.md|The Answer Is Always Jesus Christ]],” 127; see also endnote 14 in this message.
 
-[^44]: D. Todd Christofferson, “[[2011 October - The Divine Gift of Repentance.md|The Divine Gift of Repentance]],” *Ensign* or *Liahona*, Nov. 2011, 39.
+[^44]: D. Todd Christofferson, “[[2011 October - The Divine Gift of Repentance.md|The Divine Gift of Repentance]],” *Ensign* or *Liahona*, Nov. 2011, 39.
 
 [^45]: [[Moses 5.11|Moses 5:11]].
 
-[^46]: See [[2 Nephi 2.26|2 Nephi 2:26–28]][[2 Nephi 2.27|]][[2 Nephi 2.28|]].
+[^46]: See [[2 Nephi 2.26|2 Nephi 2:26–28]][[2 Nephi 2.27|]][[2 Nephi 2.28|]].
 
-
-
-
-
-#Atonement #Covenants #Forgiveness #Jesus_Christ #Redemption #Repentance

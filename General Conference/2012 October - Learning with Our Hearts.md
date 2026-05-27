@@ -1,6 +1,8 @@
 # Learning with Our Hearts
 
-By Elder Walter F. González - *Of the Presidency of the Seventy*
+Thomas S. Monson
+
+By Elder Walter F. González - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -14,7 +16,7 @@ One way to come unto Christ is by seeking to learn essential truths with our hea
 
 The prophet Abinadi explained the role of the feelings that come from God to our hearts. He taught that we cannot understand the scriptures completely unless we apply our heart to understanding.[^4]
 
-This truth was well stated in a children’s book, *The Little Prince* by Antoine de Saint-Exupéry. In the story, the little prince became friends with a fox. Upon parting, the fox shared a secret with the little prince. He said, “Here is my secret … : It is only with the heart that one can see rightly; what is essential is invisible to the eye.”[^5]
+This truth was well stated in a children’s book, *The Little Prince* by Antoine de Saint-Exupéry. In the story, the little prince became friends with a fox. Upon parting, the fox shared a secret with the little prince. He said, “Here is my secret … : It is only with the heart that one can see rightly; what is essential is invisible to the eye.”[^5]
 
 Eighty-eight-year-old Brother Thomas Coelho is a good example of one who saw with his heart essential things. He was a faithful member of our high council in Paysandú, Uruguay. Prior to joining the Church, he had an accident while riding his motorcycle. While he was lying on the ground unable to stand, two of our missionaries helped him stand up and return to his home. He said that he felt something special when the missionaries came to his rescue. Later he experienced strong feelings again when the missionaries taught him. The impact of those feelings was such that he read the Book of Mormon from cover to cover in just a few days. He was baptized and served tirelessly from that day forward. I remember him riding his motorcycle up and down the streets of our city, even in the cold and rainy winters, to bring others to church so they could feel, see, and know of a surety as he did.
 
@@ -41,9 +43,9 @@ I know of a surety that all of this is true. For this reason I join my voice wit
 
 
 
-[^1]: [[3 Nephi 18.25|3 Nephi 18:25]].
+[^1]: [[3 Nephi 18.25|3 Nephi 18:25]].
 
-[^2]: [[3 Nephi 11.15|3 Nephi 11:15]].
+[^2]: [[3 Nephi 11.15|3 Nephi 11:15]].
 
 [^3]: See [[Matthew 16.16|Matthew 16:16–17]][[Matthew 16.17|]].
 
@@ -59,7 +61,7 @@ I know of a surety that all of this is true. For this reason I join my voice wit
 
 [^9]: See [[Moroni 10.3|Moroni 10:3–5]][[Moroni 10.4|]][[Moroni 10.5|]].
 
-[^10]: [[1 Nephi 17.45|1 Nephi 17:45]].
+[^10]: [[1 Nephi 17.45|1 Nephi 17:45]].
 
 [^11]: [[Moroni 7.48|Moroni 7:48]].
 
@@ -69,20 +71,15 @@ I know of a surety that all of this is true. For this reason I join my voice wit
 
 [^14]: [[Mosiah 4.30|Mosiah 4:30]].
 
-[^15]: See [[3 Nephi 9.13|3 Nephi 9:13]].
+[^15]: See [[3 Nephi 9.13|3 Nephi 9:13]].
 
 [^16]: See [[D&C 19.16|Doctrine and Covenants 19:16]].
 
 [^17]: [[Alma 7.12|Alma 7:12]].
 
-[^18]: [[2 Nephi 25.13|2 Nephi 25:13]]; see also [[3 Nephi 25.2|3 Nephi 25:2]].
+[^18]: [[2 Nephi 25.13|2 Nephi 25:13]]; see also [[3 Nephi 25.2|3 Nephi 25:2]].
 
-[^19]: See [[2 Nephi 16.10|2 Nephi 16:10]]; [[3 Nephi 9.13|3 Nephi 9:13]].
+[^19]: See [[2 Nephi 16.10|2 Nephi 16:10]]; [[3 Nephi 9.13|3 Nephi 9:13]].
 
-[^20]: See [[3 Nephi 11.15|3 Nephi 11:15–17]][[3 Nephi 11.16|]][[3 Nephi 11.17|]].
+[^20]: See [[3 Nephi 11.15|3 Nephi 11:15–17]][[3 Nephi 11.16|]][[3 Nephi 11.17|]].
 
-
-
-
-
-#Conversion #Healing #Holy_Ghost

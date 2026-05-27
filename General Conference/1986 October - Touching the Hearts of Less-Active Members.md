@@ -1,5 +1,7 @@
 # Touching the Hearts of Less-Active Members
 
+Ezra Taft Benson
+
 By Elder Gardner H. Russell - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -14,9 +16,9 @@ What a wonderful experience of love came to me just a few weeks ago when, at my 
 
 Fathers everywhere, consider the gift of love you can give your children when you are worthy and you lay your hands upon their heads to pronounce inspired father’s blessings as the family patriarch. They will feel a continuing outpouring of your love, which will keep them close to you and to the Lord. You will not have to “seek them out” later.
 
-How impressed we were by the caring and outpouring of love evident in last December’s message from the First Presidency. This inspired invitation to return has reached tens of thousands of the Lord’s people. It is far more than a Christmas message; it is a clarion call for all to return to the Lord’s church (see *Ensign,* Mar. 1986, p. 88).
+How impressed we were by the caring and outpouring of love evident in last December’s message from the First Presidency. This inspired invitation to return has reached tens of thousands of the Lord’s people. It is far more than a Christmas message; it is a clarion call for all to return to the Lord’s church (see *Ensign,* Mar. 1986, p. 88).
 
-Then, in last April general conference, that wonderful message in a spirit of deep love, “Please come back!” rings in our ears and has reached many hearts (see *Ensign,* May 1986, p. 10).
+Then, in last April general conference, that wonderful message in a spirit of deep love, “Please come back!” rings in our ears and has reached many hearts (see *Ensign,* May 1986, p. 10).
 
 The Lord requires us—yes, you and me—to locate the less-active members and help them to return to the fold.
 
@@ -51,5 +53,3 @@ I bear my humble witness that our leaders are inspired and receive revelation fo
 
 
 
-
-#Activation #Forgiveness #Love #Missionary_Work #Repentance

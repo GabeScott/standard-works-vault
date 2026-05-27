@@ -1,5 +1,7 @@
 # The Power of Preach My Gospel
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -14,7 +16,7 @@ May I share with you why I am so enthusiastic about *Preach My Gospel?* It has f
 
 The former missionary materials were effective for their time, but the world has changed dramatically. The values which form the bedrock foundation of society are being assaulted by Satan and his allies. There has been an urgent need for an improved way to share the fulness of the truth that God has placed on earth again. This includes an understanding of God’s plan of happiness and of how it has been returned to earth through His singular prophet, Joseph Smith; also that the Church of Jesus Christ with the priesthood authority to act in His name is once again on earth in its fulness.
 
-Well did President Hinckley teach: “For many years now we have had a standard set of missionary lessons. Great good has come of this. … But unfortunately this method, in all too many cases, has resulted in a memorized presentation, lacking in Spirit and in personal conviction. …
+Well did President Hinckley teach: “For many years now we have had a standard set of missionary lessons. Great good has come of this. … But unfortunately this method, in all too many cases, has resulted in a memorized presentation, lacking in Spirit and in personal conviction. …
 
 “\[Missionaries\] should master the concepts of the lessons. But they should … teach the concepts in their own words under the guiding influence of the Holy Spirit.”[^1]
 
@@ -55,8 +57,3 @@ On behalf of our missionaries worldwide, we express profound gratitude to all wh
 
 [^2]: *Preach My Gospel* (2004), v.
 
-
-
-
-
-#Missionary_Work #Plan_Of_Salvation #Scripture_Study #Teaching

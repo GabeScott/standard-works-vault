@@ -1,5 +1,7 @@
 # “I Will Go and Do …”
 
+Ezra Taft Benson
+
 By Elder Lynn A. Sorensen - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -12,7 +14,7 @@ It was a great thrill for me to see President Heber J. Grant for the first time.
 
 I have been so humbled by this unexpected calling, and I do not have the vocabulary to express how I felt when President Thomas S. Monson issued my call. Certainly the words of Nephi took on a significance for me that I had never before felt:
 
-“I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]).
+“I, Nephi, said unto my father: I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]).
 
 I feel that scripture has great significance for everyone in the Church, no matter what his calling might be. Experience has taught me that the Lord does prepare the way if we are diligent and faithful in doing our part.
 
@@ -37,8 +39,3 @@ If I am to be remembered at all by the membership of the Church, I hope it will 
 
 
 
-
-
-
-
-#Testimony

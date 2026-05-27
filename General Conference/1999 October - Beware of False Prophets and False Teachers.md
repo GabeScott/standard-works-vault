@@ -1,5 +1,7 @@
 # Beware of False Prophets and False Teachers
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -16,7 +18,7 @@ Jesus responded: “Take heed that no man deceive you.
 
 The Apostle Paul warned of these days: “For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-“And they shall turn away their ears from the truth” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]]).
+“And they shall turn away their ears from the truth” ([[2 Timothy 4.3|2 Tim. 4:3–4]][[2 Timothy 4.4|]]).
 
 Paul also taught that the Lord “gave some, apostles; and some, prophets …
 
@@ -40,11 +42,11 @@ In plainness and power President Hinckley teaches the eternal plan of salvation,
 
 President Spencer W. Kimball reminded us that the prophets “constantly cry out against that which is intolerable in the sight of the Lord; against pollution of mind, body, and our surroundings; against vulgarity, stealing, lying, pride, and blasphemy; against fornication, adultery, homosexuality, and all other abuses of the sacred power to create; against murder and all that is like unto it; against all manner of desecration.” He continued: “That such things should be found even among the Saints to some degree is scarcely believable. … Sadly, however, we find that to be shown the way is not necessarily to walk in it” (“The False Gods We Worship,” *Ensign,* June 1976, 4).
 
-Therefore, let us beware of false prophets and false teachers, both men and women, who are self-appointed declarers of the doctrines of the Church and who seek to spread their false gospel and attract followers by sponsoring symposia, books, and journals whose contents challenge fundamental doctrines of the Church. Beware of those who speak and publish in opposition to God’s true prophets and who actively proselyte others with reckless disregard for the eternal well-being of those whom they seduce. Like Nehor and Korihor in the Book of Mormon, they rely on sophistry to deceive and entice others to their views. They “set themselves up for a light unto the world, that they may get gain and praise of the world; but they seek not the welfare of Zion” ([[2 Nephi 26.29|2 Ne. 26:29]]).
+Therefore, let us beware of false prophets and false teachers, both men and women, who are self-appointed declarers of the doctrines of the Church and who seek to spread their false gospel and attract followers by sponsoring symposia, books, and journals whose contents challenge fundamental doctrines of the Church. Beware of those who speak and publish in opposition to God’s true prophets and who actively proselyte others with reckless disregard for the eternal well-being of those whom they seduce. Like Nehor and Korihor in the Book of Mormon, they rely on sophistry to deceive and entice others to their views. They “set themselves up for a light unto the world, that they may get gain and praise of the world; but they seek not the welfare of Zion” ([[2 Nephi 26.29|2 Ne. 26:29]]).
 
 Of such President Joseph F. Smith warned when he spoke of the “proud and self-vaunting ones, who read by the lamps of their own conceit; who interpret by rules of their own contriving; who have become a law unto themselves, and so pose as the sole judges of their own doings” (*Gospel Doctrine,* 381).
 
-Now let me give you a few examples of the false teachings of those who read by the lamps of their own conceit, who, though “ever learning,” are “never able to come to the knowledge of the truth” ([[2 Timothy 3.7|2 Tim. 3:7]]).
+Now let me give you a few examples of the false teachings of those who read by the lamps of their own conceit, who, though “ever learning,” are “never able to come to the knowledge of the truth” ([[2 Timothy 3.7|2 Tim. 3:7]]).
 
 False prophets and false teachers are those who declare that the Prophet Joseph Smith was a duplicitous deceiver; they challenge the First Vision as an authentic experience. They declare that the Book of Mormon and other canonical works are not ancient records of scripture. They also attempt to redefine the nature of the Godhead, and they deny that God has given and continues to give revelation today to His ordained and sustained prophets.
 
@@ -62,17 +64,17 @@ However, in the Lord’s Church there is no such thing as a “loyal opposition.
 
 “Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself.
 
-“And now, my sons, I would that ye should look to the great Mediator, and hearken unto his great commandments; and be faithful unto his words, and choose eternal life, according to the will of his Holy Spirit” ([[2 Nephi 2.26|2 Ne. 2:26–28]][[2 Nephi 2.27|]][[2 Nephi 2.28|]]).
+“And now, my sons, I would that ye should look to the great Mediator, and hearken unto his great commandments; and be faithful unto his words, and choose eternal life, according to the will of his Holy Spirit” ([[2 Nephi 2.26|2 Ne. 2:26–28]][[2 Nephi 2.27|]][[2 Nephi 2.28|]]).
 
 Brothers and sisters, let us be anxiously engaged in good causes. Let us love the Father and His Son, Jesus Christ. Let us sustain and live by the revelations of the restored gospel. Let us love our fellow beings and fill our hearts and souls with the light of the gospel of Jesus Christ. Then we will sing with Isaiah:
 
-“Behold, God is my salvation; I will trust, and not be afraid: …
+“Behold, God is my salvation; I will trust, and not be afraid: …
 
 “Therefore with joy shall \[I\] draw water out of the wells of salvation” ([[Isaiah 12.2|Isa. 12:2–3]][[Isaiah 12.3|]]).
 
 We also know from Paul’s inspired words to the Galatian Saints that “the fruit of the Spirit is love, joy, peace, longsuffering, gentleness, goodness, faith,
 
-“Meekness, temperance: against such there is no law. …
+“Meekness, temperance: against such there is no law. …
 
 “If we live in the Spirit, let us also walk in the Spirit” ([[Galatians 5.22|Gal. 5:22–23, 25]][[Galatians 5.23|]][[Galatians 5.25|]]).
 
@@ -87,8 +89,3 @@ I know that God lives. Jesus is the Christ. The restored gospel is true, and the
 
 
 
-
-
-
-
-#False_Doctrines #Friendship #Jesus_Christ #Joy #Morality #Pride #Priesthood #Prophets #Satan #Truth

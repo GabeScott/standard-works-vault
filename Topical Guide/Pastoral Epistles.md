@@ -1,4 +1,3 @@
 # Pastoral Epistles
 
-
-*See* [BD Pastoral Epistles](https://www.churchofjesuschrist.org/study/scriptures/bd/pastoral-epistles?lang=eng)
+*See also* [[BD Pastoral Epistles.md|BD Pastoral Epistles]]

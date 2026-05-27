@@ -1,6 +1,8 @@
 # Be Reconciled to God
 
-By Elder Kelly R. Johnson - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Kelly R. Johnson - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -10,7 +12,7 @@ By Elder Kelly R. Johnson - *Of the Seventy*
 
 As I study the scriptures, I come across words that really catch my attention, primarily because they have special meaning as a result of experiences I have had during my life. I spent my career working as a forensic accountant. With that background, the word *reconcile* has caught my attention as I read the scriptures. My job was to reconcile reported amounts with financial records by applying accounting, auditing, and investigative skills. In other words, my goal was to align financial reports with the underlying financial documents to ensure accuracy and validity. I made diligent efforts to resolve discrepancies, and it was common that significant time was dedicated to resolving even very small discrepancies.
 
-The Apostle Paul pled with the Corinthians to be “reconciled to God.”[^1] To be reconciled to God means to be brought back into harmony with God or to restore a relationship with God that has been strained or broken because of our sins or actions. Simply put, being reconciled to God means aligning our will and actions with God’s will, or as taught by President Russell M. Nelson, letting God prevail in our lives.[^2]
+The Apostle Paul pled with the Corinthians to be “reconciled to God.”[^1] To be reconciled to God means to be brought back into harmony with God or to restore a relationship with God that has been strained or broken because of our sins or actions. Simply put, being reconciled to God means aligning our will and actions with God’s will, or as taught by President Russell M. Nelson, letting God prevail in our lives.[^2]
 
 As taught in the scriptures, we are free to act for ourselves, “to choose the way of everlasting death or the way of eternal life.”[^3] But if we are not diligent, this freedom to act for ourselves may lead to a loss of alignment with the will of God.
 
@@ -49,17 +51,17 @@ I know Heavenly Father loves you and me, and He sent His Beloved Son, Jesus Chri
 
 
 
-[^1]: [[2 Corinthians 5.20|2 Corinthians 5:20]].
+[^1]: [[2 Corinthians 5.20|2 Corinthians 5:20]].
 
-[^2]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
+[^2]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
 
-[^3]: [[2 Nephi 10.23|2 Nephi 10:23]].
+[^3]: [[2 Nephi 10.23|2 Nephi 10:23]].
 
 [^4]: [[Jacob 4.11|Jacob 4:11]].
 
 [^5]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
-[^6]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98–99.
+[^6]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98–99.
 
 [^7]: See [[Enos 1.1|Enos 1:1–4]][[Enos 1.2|]][[Enos 1.3|]][[Enos 1.4|]].
 
@@ -77,14 +79,9 @@ I know Heavenly Father loves you and me, and He sent His Beloved Son, Jesus Chri
 
 [^14]: See [[Helaman 11.37|Helaman 11:37]].
 
-[^15]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
+[^15]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
 
 [^16]: See [[Jacob 7.5|Jacob 7:5]].
 
 [^17]: [[Jacob 4.6|Jacob 4:6]].
 
-
-
-
-
-#Atonement #Jesus_Christ #Repentance

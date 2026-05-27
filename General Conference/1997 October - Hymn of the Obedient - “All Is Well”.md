@@ -1,5 +1,7 @@
 # Hymn of the Obedient: “All Is Well”
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -51,8 +53,3 @@ I leave you my love, my witness, that this work is true. As Latter-day Saints we
 
 
 
-
-
-
-
-#Jesus_Christ #Obedience #Pioneers #Testimony

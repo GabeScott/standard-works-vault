@@ -1,5 +1,7 @@
 # Exercising Our Spiritual Muscles
 
+Ulisses Soares
+
 By Elder Juan Pablo Villar - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
@@ -40,7 +42,7 @@ It will probably not be easy at the beginning, and it might even become a big ch
 
 I am grateful for my brother Ivan, who not only shared the gospel with me but also indirectly invited me to live it and recognize my weaknesses. He helped me to accept the invitation of the Master: “Come, follow me”[^6]—to walk as the Savior walked, seek as the Savior sought, and love as the Savior loves us. Months later, after my missionary experience, I decided to get baptized and to serve my own mission.
 
-Let’s accept the invitation of President Russell M. Nelson and intently come unto the Savior[^7] by identifying those muscles that need more spiritual activity and starting to exercise them. This is a long-distance race, a marathon, rather than a sprint, so do not forget those small but constant spiritual activities that will strengthen those important spiritual muscles. If we want to increase our faith, then let’s do things that require faith.
+Let’s accept the invitation of President Russell M. Nelson and intently come unto the Savior[^7] by identifying those muscles that need more spiritual activity and starting to exercise them. This is a long-distance race, a marathon, rather than a sprint, so do not forget those small but constant spiritual activities that will strengthen those important spiritual muscles. If we want to increase our faith, then let’s do things that require faith.
 
 I bear my witness that we are children of a loving Heavenly Father. His Son, Jesus Christ, loves us. He came to this world to show us the way and then gave His life voluntarily to give us hope. The Savior invites us to follow His perfect example, to exercise our faith in Him and His Atonement, and to expand all the spiritual gifts that we have been blessed with. He is the way. This is my testimony in the name of Jesus Christ, amen.
 
@@ -59,10 +61,5 @@ I bear my witness that we are children of a loving Heavenly Father. His Son, Jes
 
 [^6]: [[Luke 18.22|Luke 18:22]].
 
-[^7]: See Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118–19.
+[^7]: See Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118–19.
 
-
-
-
-
-#Faith #Spiritual_Gifts

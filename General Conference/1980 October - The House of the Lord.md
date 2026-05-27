@@ -1,6 +1,8 @@
 # The House of the Lord
 
-By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -28,7 +30,7 @@ The temple is a house of eternal relationships, a place where families can come 
 
 The temple is a house of God where all of those declared worthy are extended the privilege of performing the sacred ordinances of the temple on behalf of their forebears, that in very deed the hearts of the children might be turned to their fathers, as foretold in the holy scriptures (see [[Malachi 4.6|Mal. 4:6]]). Like all of Heavenly Father’s blessings for his children, the eventual realization is always on condition of faithfulness and conformity to priesthood principles.
 
-The ultimate blessings of the temple are centered in the love and devotion between husband and wife. They must set the example—they are the core. The scriptures say it best of all: “Nevertheless neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]). Everything in this world that is counter to a tender and loyal husband-wife relationship is a tool of the adversary. Everything that promotes and perpetuates family unity—mother, father, and children properly endowed with and motivated by the light and truth of Christ—is in harmony with the Lord’s plan for mortal man.
+The ultimate blessings of the temple are centered in the love and devotion between husband and wife. They must set the example—they are the core. The scriptures say it best of all: “Nevertheless neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]). Everything in this world that is counter to a tender and loyal husband-wife relationship is a tool of the adversary. Everything that promotes and perpetuates family unity—mother, father, and children properly endowed with and motivated by the light and truth of Christ—is in harmony with the Lord’s plan for mortal man.
 
 Husbands, love your wives; wives, honor your husbands. Look to the gospel for all solutions to your problems; be a proper example to your children. That is where it all starts. The poet Longfellow expressed it well in these words:
 
@@ -55,7 +57,7 @@ Now, let me introduce you to a group of twenty-five teenagers who have come to t
 
 These teenagers come in a spirit of reverence with the desire to do something for others who have lived before. One teenage girl made this comment: “Being baptized by immersion for one of my ancestors, who lived in the 1700s, made me very proud. I felt that she was right there with me. I know she was pleased and accepted the work that I did for her.”
 
-These teenagers were performing an ordinance that was practiced during Paul’s ministry, for he wrote to the Saints of Corinth: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
+These teenagers were performing an ordinance that was practiced during Paul’s ministry, for he wrote to the Saints of Corinth: “Else what shall they do which are baptized for the dead, if the dead rise not at all? why are they then baptized for the dead?” ([[1 Corinthians 15.29|1 Cor. 15:29]].)
 
 This vicarious work for the dead, which was obviously practiced during New Testament times as attested by Paul, was obviously an important ordinance taught by the Apostles of the Lord Jesus Christ following his crucifixion. Proof of this is found in Paul’s own words as he bears testimony to the Galatians: “But I certify you, brethren, that the gospel which was preached of me is not after man. For I neither received it of man, neither was I taught it, but by the revelation of Jesus Christ.” ([[Galatians 1.11|Gal. 1:11–12]][[Galatians 1.12|]].)
 
@@ -72,8 +74,3 @@ There is no foundation more secure than the temple. The work accomplished there 
 
 
 
-
-
-
-
-#Temples

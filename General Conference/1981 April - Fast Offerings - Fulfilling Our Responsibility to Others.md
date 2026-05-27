@@ -1,6 +1,8 @@
 # Fast Offerings: Fulfilling Our Responsibility to Others
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Marion G. Romney
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -22,15 +24,15 @@ Four wonderful blessings are promised by the Lord to those who obey the law of t
 
 “And the Lord shall guide thee continually, and satisfy thy soul in drought, and make fat thy bones: and thou shalt be like a watered garden, and like a spring of water, whose waters fail not.” ([[Isaiah 58.6|Isa. 58:6–11]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]].)
 
-Regarding this scripture, President Harold B. Lee had this to say:
+Regarding this scripture, President Harold B. Lee had this to say:
 
 “The tremendous blessings that come \[from fasting\] have been spelled out in every dispensation. … If you analyze … the [[Isaiah 58.1|58th chapter of the book of Isaiah]][[Isaiah 58.2|]][[Isaiah 58.3|]][[Isaiah 58.4|]][[Isaiah 58.5|]][[Isaiah 58.6|]][[Isaiah 58.7|]][[Isaiah 58.8|]][[Isaiah 58.9|]][[Isaiah 58.10|]][[Isaiah 58.11|]][[Isaiah 58.12|]][[Isaiah 58.13|]][[Isaiah 58.14|]] you will find unraveled why the Lord wants us to pay fast offerings, why he wants us to fast. It’s because by qualifying thus we can call and the Lord can answer. We can cry and the Lord will say, ‘Here I am.’ Do we ever want to be in a condition where we can call and he won’t answer? We will cry in our distress and he won’t be with us? I think it is time we are thinking about these fundamentals because these are the days that lie ahead, when we are going to need more and more the blessings of the Lord, when the judgments are poured out without mixture upon the whole earth.” (“Listen and Obey,” Welfare Agricultural Meeting, 3 April 1971, copy of typescript, p. 14; Church Historical Library.)
 
-President J. Reuben Clark, Jr., had this to say: “The fundamental principle of all Church relief work is that it must be carried on by fast offerings and other voluntary donations and contributions. This is the order established by the Lord. Tithing is not primarily designed for that purpose and must not be used except in the last extremity.” (As quoted by Marion G. Romney, “Our Primary Purpose,” Welfare Agricultural Meeting, 3 April 1971, copy of typescript, p. 8; Church Historical Library.)
+President J. Reuben Clark, Jr., had this to say: “The fundamental principle of all Church relief work is that it must be carried on by fast offerings and other voluntary donations and contributions. This is the order established by the Lord. Tithing is not primarily designed for that purpose and must not be used except in the last extremity.” (As quoted by Marion G. Romney, “Our Primary Purpose,” Welfare Agricultural Meeting, 3 April 1971, copy of typescript, p. 8; Church Historical Library.)
 
 Fast offering is the Lord’s financial law given for the blessing of the poor. For many years it was understood that fast offerings should represent the cost of the two meals not eaten. This understanding came into being because, in the early days, members were generally asked to give the actual food saved by fasting. Conditions were so desperate that money would have been of little use. Later, the understanding seemed to be that $1 per capita would be adequate.
 
-However, in recent years, President Kimball has said of the fast offering: “I think we should be very generous and give, instead of the amount we saved by our two meals of fasting, perhaps much, much more—ten times more where we are in a position to do it.” (In Conference Report, Apr. 1974, p. 184.)
+However, in recent years, President Kimball has said of the fast offering: “I think we should be very generous and give, instead of the amount we saved by our two meals of fasting, perhaps much, much more—ten times more where we are in a position to do it.” (In Conference Report, Apr. 1974, [[1974 April - Address Given by President Spencer W. Kimball at the Welfare Services Meeting Saturday, April 6, 1974.md|p. 184]].)
 
 It is important to recognize that the fast offering is a freewill offering, the amount of which each individual is responsible to determine. It is not the same as tithing, which is 10 percent of our interest annually. The amount is left up to each individual, and yet a living prophet has said we should be very generous. Wouldn’t it be wonderful if our faithfulness would generate fast offering funds sufficient to operate the entire storehouse system?
 
@@ -40,7 +42,7 @@ First, from the Doctrine and Covenants, section 42, beginning with verse 30. Thi
 
 “And behold, thou wilt remember the poor, and consecrate of thy properties for their support that which thou hast to impart unto them, with a covenant and a deed which cannot be broken.
 
-“And inasmuch as ye impart of your substance unto the poor, ye will do it unto me; and they shall be laid before the bishop of my church and his counselors. …
+“And inasmuch as ye impart of your substance unto the poor, ye will do it unto me; and they shall be laid before the bishop of my church and his counselors. …
 
 “Therefore, the residue shall be kept in my storehouse, to administer to the poor and the needy.” ([[D&C 42.30|D&C 42:30–31, 34]][[D&C 42.31|]][[D&C 42.34|]].)
 
@@ -74,11 +76,11 @@ Again, from the Doctrine and Covenants, we learn:
 
 “Therefore, if any man shall take of the abundance which I have made, and impart not his portion, according to the law of my gospel, unto the poor and the needy, he shall, with the wicked, lift up his eyes in hell, being in torment.” ([[D&C 104.13|D&C 104:13–14, 16–18]][[D&C 104.14|]][[D&C 104.16|]][[D&C 104.17|]][[D&C 104.18|]].)
 
-May I conclude my remarks on fast offerings with portions of a letter I received several years ago from Elder John H. Groberg, who at that time was president of the Tongan Mission.
+May I conclude my remarks on fast offerings with portions of a letter I received several years ago from Elder John H. Groberg, who at that time was president of the Tongan Mission.
 
 “Enclosed find a check for $1,000 for excess fast offerings from the Tongan Mission. Normally this letter would end here, but because of an experience I recently had I would like to add a little more.
 
-“As you may or may not be aware, Tonga is one of the poorest countries financially in the world. The average wage rate is only around 12¢ per hour if you are lucky enough to have a job. …
+“As you may or may not be aware, Tonga is one of the poorest countries financially in the world. The average wage rate is only around 12¢ per hour if you are lucky enough to have a job. …
 
 “Recently, while visiting one of the far distant islands that is very difficult to get to, I went late in the day to the home of one of the good widow sisters there.
 
@@ -112,7 +114,7 @@ It is all too easy for leaders to assume that others have discretionary income s
 
 “I’m sure I need not go on and on with this word picture. But still there is more you should know about: Coming up is a ‘slave auction,’ a car wash, a doughnut sale, a singing telegram project, lawn raking every Saturday morning until summer to raise money for a super activity in Idaho. There’s an Aaronic Priesthood outing for both the boys and girls in May, two Scout overnights besides Beehive camp and Scout camp.”
 
-We are sufficiently concerned, that Elder Gordon B. Hinckley addressed this subject last evening in a special joint meeting with Regional Representatives and stake presidents. May I quote just a sentence or two from his remarks: “I should like to say that sacrifice, where needed, is an important aspect of the gospel. It is of the very essence of true worship. But unnecessary sacrifice, that requested because of extravagance or poor management, is evil.” You bishops should expect that your stake president will meet with you almost immediately upon returning from conference to evaluate both stake and ward budgets. The stake budget, of course, has an important impact on the ward budget.
+We are sufficiently concerned, that Elder Gordon B. Hinckley addressed this subject last evening in a special joint meeting with Regional Representatives and stake presidents. May I quote just a sentence or two from his remarks: “I should like to say that sacrifice, where needed, is an important aspect of the gospel. It is of the very essence of true worship. But unnecessary sacrifice, that requested because of extravagance or poor management, is evil.” You bishops should expect that your stake president will meet with you almost immediately upon returning from conference to evaluate both stake and ward budgets. The stake budget, of course, has an important impact on the ward budget.
 
 There are some very specific areas which you should carefully evaluate.
 
@@ -135,8 +137,3 @@ May the Lord bless us to be wise and sound stewards in blessing the people with 
 
 
 
-
-
-
-
-#Fasting

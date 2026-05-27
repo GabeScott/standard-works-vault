@@ -1,6 +1,8 @@
 # Bishops—Shepherds over the Lord’s Flock
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -40,7 +42,7 @@ In his role as presiding high priest, the bishop is the ward’s “spiritual le
 
 In addition, “the bishop coordinates the work of salvation and exaltation in the ward.”[^15] The bishop should assign the day-to-day responsibility for sharing the gospel, strengthening new and returning members, ministering, and temple and family history work to the elders quorum and Relief Society presidencies.[^16] The bishop coordinates this work in the ward council and ward youth council.
 
-The bishop has a paramount role in serving as a shepherd to guide the rising generation, including young single adults, to Jesus Christ.[^17] President Russell M. Nelson has emphasized the seminal role of the bishop and his counselors. He has taught that their “first and foremost responsibility is to care for the young men and young women of \[their\] ward.”[^18] The bishopric supports parents in watching over and nurturing children and youth in the ward. The bishop and ward Young Women president counsel together. They strive to help the youth live the standards in *For the Strength of Youth*, qualify to receive ordinances, and make and keep sacred covenants.
+The bishop has a paramount role in serving as a shepherd to guide the rising generation, including young single adults, to Jesus Christ.[^17] President Russell M. Nelson has emphasized the seminal role of the bishop and his counselors. He has taught that their “first and foremost responsibility is to care for the young men and young women of \[their\] ward.”[^18] The bishopric supports parents in watching over and nurturing children and youth in the ward. The bishop and ward Young Women president counsel together. They strive to help the youth live the standards in *For the Strength of Youth*, qualify to receive ordinances, and make and keep sacred covenants.
 
 You might ask, “Why is the bishop directed to spend so much time with the youth?” The Lord has organized His Church to accomplish crucial priorities. Accordingly, the organization of His Church has a structure in which the bishop has a dual responsibility. He has doctrinal responsibility for the ward as a whole, but he also has specific doctrinal responsibility for the priests quorum.[^19]
 
@@ -79,19 +81,19 @@ Bishops, we sustain you! Bishops, we love you! You are truly the Lord’s shephe
 
 
 
-[^1]: “True to the Faith,” *Hymns*, no. 254.
+[^1]: “True to the Faith,” *Hymns*, no. 254.
 
 [^2]: Youth leaders, quorum and class presidencies, and other Church leaders share this responsibility.
 
-[^3]: The bishop is president of the priests quorum. His first counselor has responsibility for the teachers quorum, and his second counselor has responsibility for the deacons quorum. (See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [10.3](https://churchofjesuschrist.org/study/manual/general-handbook/10-aaronic-priesthood?lang=eng&id=title21#title21), ChurchofJesusChrist.org.)
+[^3]: The bishop is president of the priests quorum. His first counselor has responsibility for the teachers quorum, and his second counselor has responsibility for the deacons quorum. (See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [10.3](https://www.churchofjesuschrist.org/study/manual/general-handbook/10-aaronic-priesthood?lang=eng&id=title21#title21), ChurchofJesusChrist.org.)
 
 [^4]: See [[D&C 68.25|Doctrine and Covenants 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]].
 
-[^5]: See Quentin L. Cook, “[[2019 October - Adjustments to Strengthen Youth.md|Adjustments to Strengthen Youth]],” *Ensign* or *Liahona*, Nov. 2019, 40–43.
+[^5]: See Quentin L. Cook, “[[2019 October - Adjustments to Strengthen Youth.md|Adjustments to Strengthen Youth]],” *Ensign* or *Liahona*, Nov. 2019, 40–43.
 
 [^6]: The use of the word *bishop* applies with equal force to our faithful branch presidents.
 
-[^7]: [[1 Peter 2.25|1 Peter 2:25]].
+[^7]: [[1 Peter 2.25|1 Peter 2:25]].
 
 [^8]: See *General Handbook*, 6.1.1.
 
@@ -109,17 +111,17 @@ Bishops, we sustain you! Bishops, we love you! You are truly the Lord’s shephe
 
 [^15]: *General Handbook*, 6.1.4.
 
-[^16]: See *General Handbook*, [21.2](https://churchofjesuschrist.org/study/manual/general-handbook/21-ministering?lang=eng&id=title3#title3); [23.5](https://churchofjesuschrist.org/study/manual/general-handbook/23?lang=eng&id=title14#title14); [25.2](https://churchofjesuschrist.org/study/manual/general-handbook/25-temple-and-family-history-work?lang=eng&id=title6#title6).
+[^16]: See *General Handbook*, [21.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/21-ministering?lang=eng&id=title3#title3); [23.5](https://www.churchofjesuschrist.org/study/manual/general-handbook/23?lang=eng&id=title14#title14); [25.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/25-temple-and-family-history-work?lang=eng&id=title6#title6).
 
-[^17]: See *General Handbook*, 6.1; [14.3.3.1](https://churchofjesuschrist.org/study/manual/general-handbook/14-single-members?lang=eng&id=title13#title13); see also Quentin L. Cook, “[[2019 October - Adjustments to Strengthen Youth.md|Adjustments to Strengthen Youth]],” 40–43. The bishop has also been encouraged to spend more time with his wife and family. Such focus is made possible as capable adult advisers and specialists are called to assist the Aaronic Priesthood quorum presidencies and the bishopric in their duties.
+[^17]: See *General Handbook*, 6.1; [14.3.3.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/14-single-members?lang=eng&id=title13#title13); see also Quentin L. Cook, “[[2019 October - Adjustments to Strengthen Youth.md|Adjustments to Strengthen Youth]],” 40–43. The bishop has also been encouraged to spend more time with his wife and family. Such focus is made possible as capable adult advisers and specialists are called to assist the Aaronic Priesthood quorum presidencies and the bishopric in their duties.
 
-[^18]: Russell M. Nelson, “[[2019 October - Witnesses, Aaronic Priesthood Quorums, and Young Women Classes.md|Witnesses, Aaronic Priesthood Quorums, and Young Women Classes]],” *Ensign* or *Liahona*, Nov. 2019, 39.
+[^18]: Russell M. Nelson, “[[2019 October - Witnesses, Aaronic Priesthood Quorums, and Young Women Classes.md|Witnesses, Aaronic Priesthood Quorums, and Young Women Classes]],” *Ensign* or *Liahona*, Nov. 2019, 39.
 
 [^19]: See [[D&C 107.87|Doctrine and Covenants 107:87–88]][[D&C 107.88|]].
 
-[^20]: “The Lord expects each able young man to prepare to serve \[a mission\] (see [[D&C 36.1|Doctrine and Covenants 36:1, 4–7]][[D&C 36.4|]][[D&C 36.5|]][[D&C 36.6|]][[D&C 36.7|]]). Young women and senior members who desire to serve should also prepare. An essential part of preparation is striving to become converted to Jesus Christ and His restored gospel. Those who desire to serve also prepare physically, mentally, emotionally, and financially” (*General Handbook*, [24.0](https://churchofjesuschrist.org/study/manual/general-handbook/24?lang=eng&id=p3#p3)).
+[^20]: “The Lord expects each able young man to prepare to serve \[a mission\] (see [[D&C 36.1|Doctrine and Covenants 36:1, 4–7]][[D&C 36.4|]][[D&C 36.5|]][[D&C 36.6|]][[D&C 36.7|]]). Young women and senior members who desire to serve should also prepare. An essential part of preparation is striving to become converted to Jesus Christ and His restored gospel. Those who desire to serve also prepare physically, mentally, emotionally, and financially” (*General Handbook*, [24.0](https://www.churchofjesuschrist.org/study/manual/general-handbook/24?lang=eng&id=p3#p3)).
 
-[^21]: The ward was organized on December 17, 1980. Elder John H. Groberg of the First Quorum of the Seventy helped organize this Tongan-language ward. (See Gordon Ashby, chairman, and Donna Osgood, ed., *The San Francisco California Stake: The First 60 Years, 1927–1987* \[1987\], 49–52.)
+[^21]: The ward was organized on December 17, 1980. Elder John H. Groberg of the First Quorum of the Seventy helped organize this Tongan-language ward. (See Gordon Ashby, chairman, and Donna Osgood, ed., *The San Francisco California Stake: The First 60 Years, 1927–1987* \[1987\], 49–52.)
 
 [^22]: Bishop Mahe had advanced to a management position with Pan American Airways at the San Francisco, California, international airport.
 
@@ -127,20 +129,15 @@ Bishops, we sustain you! Bishops, we love you! You are truly the Lord’s shephe
 
 [^24]: They may also be rebelling against things that are eternally significant.
 
-[^25]: See *General Handbook*, [21.2.1](https://churchofjesuschrist.org/study/manual/general-handbook/21-ministering?lang=eng&id=title7#title7).
+[^25]: See *General Handbook*, [21.2.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/21-ministering?lang=eng&id=title7#title7).
 
 [^26]: The bishop will coordinate with the elders quorum and Relief Society presidencies with respect to who should be assigned and how loving and caring follow-up should be achieved.
 
 [^27]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-[^28]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
+[^28]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.ChurchofJesusChrist.org.
 
-[^29]: As of February 19, 2021, there were 24,035 bishops and 6,865 branch presidents serving throughout the world.
+[^29]: As of February 19, 2021, there were 24,035 bishops and 6,865 branch presidents serving throughout the world.
 
-[^30]: I was called as the bishop of the Burlingame Ward in California in 1974 by President David B. Barlow and set apart on September 15, 1974, by Elder Neal A. Maxwell, who had recently been called as an Assistant to the Quorum of the Twelve Apostles.
+[^30]: I was called as the bishop of the Burlingame Ward in California in 1974 by President David B. Barlow and set apart on September 15, 1974, by Elder Neal A. Maxwell, who had recently been called as an Assistant to the Quorum of the Twelve Apostles.
 
-
-
-
-
-#Bishops #Children #Ministering #Young_Adults #Youth

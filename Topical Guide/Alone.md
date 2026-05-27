@@ -1,6 +1,5 @@
 # Alone
 
-
 not good that the man should be *alone*, [[Genesis 2.18|Genesis 2:18]] ([[Moses 3.18|Moses 3:18]]; [[Abraham 5.14|Abraham 5:14]]).
 
 not able to perform it thyself *alone*, [[Exodus 18.18|Exodus 18:18]].

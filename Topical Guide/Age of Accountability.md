@@ -1,4 +1,3 @@
 # Age of Accountability
 
-
-*See* [[Accountability, Age of.md|Accountability, Age of]]
+*See also* [[Accountability, Age of.md|Accountability, Age of]]

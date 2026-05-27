@@ -1,6 +1,8 @@
 # The Joy of the Saints
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Jeffrey R. Holland
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -12,7 +14,7 @@ The Book of Mormon prophet Enos, Lehi’s grandson, wrote of a singular experien
 
 There is much to be learned from Enos’s experience, but today what stands out in my mind is Enos’s memory of his father speaking often of “the joy of the saints.”
 
-In this conference three years ago, President Russell M. Nelson spoke of joy.[^2] Among other things, he said:
+In this conference three years ago, President Russell M. Nelson spoke of joy.[^2] Among other things, he said:
 
 “The joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.
 
@@ -62,7 +64,7 @@ In the Garden of Eden, Adam and Eve were “in a state of innocence, having no j
 
 ## The Joy of Serving as Christ Serves
 
-The Savior finds joy in bringing to pass our immortality and eternal life.[^23] In speaking of the Savior’s Atonement, President Russell M. Nelson said:
+The Savior finds joy in bringing to pass our immortality and eternal life.[^23] In speaking of the Savior’s Atonement, President Russell M. Nelson said:
 
 “As in all things, Jesus Christ is our ultimate exemplar, ‘who for the joy that was set before him endured the cross’ \[[[Hebrews 12.2|Hebrews 12:2]]\]. Think of that! In order for Him to endure the most excruciating experience ever endured on earth, our Savior focused on *joy*!
 
@@ -74,9 +76,9 @@ The words of Alma come to mind:
 
 “This is my glory, that perhaps I may be an instrument in the hands of God to bring some soul to repentance; and this is my joy.
 
-“And behold, when I see many of my brethren truly penitent, and coming to the Lord their God, then is my soul filled with joy. …
+“And behold, when I see many of my brethren truly penitent, and coming to the Lord their God, then is my soul filled with joy. …
 
-“But I do not joy in my own success alone, but my joy is more full because of the success of my brethren, who have been up to the land of Nephi. …
+“But I do not joy in my own success alone, but my joy is more full because of the success of my brethren, who have been up to the land of Nephi. …
 
 “Now, when I think of the success of these my brethren my soul is carried away, even to the separation of it from the body, as it were, so great is my joy.”[^27]
 
@@ -84,50 +86,50 @@ The fruits of our service to one another in the Church are part of the joy “se
 
 When in Haiti last month for the dedication of the Port-au-Prince Temple, Elder David and Sister Susan Bednar met with a young sister whose husband had been killed a few days earlier in a tragic accident. They wept together with her. Yet on Sunday this dear woman was in her place as an usher at the dedication services, with a soft, welcoming smile for all who entered the temple.
 
-I believe that the ultimate “joy of the saints” comes in knowing that the Savior pleads their cause,[^28] “and no one can conceive of the joy which \[will fill\] our souls \[as\] we \[hear Jesus\] pray for us unto the Father.”[^29] With President Russell M. Nelson, I testify that joy is a gift for faithful Saints “who have endured the crosses of the world”[^30] and who are “intentionally trying to live a righteous life, as taught by Jesus Christ.”[^31] May your joy be full, I pray in the name of Jesus Christ, amen.
+I believe that the ultimate “joy of the saints” comes in knowing that the Savior pleads their cause,[^28] “and no one can conceive of the joy which \[will fill\] our souls \[as\] we \[hear Jesus\] pray for us unto the Father.”[^29] With President Russell M. Nelson, I testify that joy is a gift for faithful Saints “who have endured the crosses of the world”[^30] and who are “intentionally trying to live a righteous life, as taught by Jesus Christ.”[^31] May your joy be full, I pray in the name of Jesus Christ, amen.
 
 
 
 
 [^1]: [[Enos 1.3|Enos 1:3]].
 
-[^2]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 81–84.
+[^2]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona,* Nov. 2016, 81–84.
 
-[^3]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82.
+[^3]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82.
 
-[^4]: See Bible Dictionary, “[Saint](https://churchofjesuschrist.org/study/scriptures/bd/saint?lang=eng).”
+[^4]: See Bible Dictionary, “[[BD Saint|Saint]].”
 
 [^5]: [[Malachi 3.14|Malachi 3:14–15]][[Malachi 3.15|]].
 
 [^6]: [[Malachi 3.17|Malachi 3:17–18]][[Malachi 3.18|]].
 
-[^7]: The Savior declared that if a church (or a life) “be not built upon my gospel, and is built upon the works of men, or upon the works of the devil, verily I say unto you they have joy in their works for a season, and by and by the end cometh, and they are hewn down and cast into the fire, from whence there is no return” ([[3 Nephi 27.11|3 Nephi 27:11]]).
+[^7]: The Savior declared that if a church (or a life) “be not built upon my gospel, and is built upon the works of men, or upon the works of the devil, verily I say unto you they have joy in their works for a season, and by and by the end cometh, and they are hewn down and cast into the fire, from whence there is no return” ([[3 Nephi 27.11|3 Nephi 27:11]]).
 
-[^8]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-41?lang=eng&id=p25#p25) (2007), 475.
+[^8]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-41?lang=eng&id=p25#p25) (2007), 475.
 
 [^9]: Personal correspondence.
 
-[^10]: [[1 Nephi 11.22|1 Nephi 11:22]]; see also [[1 Nephi 8.11|1 Nephi 8:11]].
+[^10]: [[1 Nephi 11.22|1 Nephi 11:22]]; see also [[1 Nephi 8.11|1 Nephi 8:11]].
 
-[^11]: [[1 Nephi 8.12|1 Nephi 8:12]].
+[^11]: [[1 Nephi 8.12|1 Nephi 8:12]].
 
 [^12]: [[John 15.10|John 15:10–11]][[John 15.11|]]; emphasis added.
 
 [^13]: [[John 16.33|John 16:33]].
 
-[^14]: Jack Rushton, in “Faith in Adversity: Jack Rushton and the Power of Faith,” SmallandSimpleTV, Sept. 2, 2009, YouTube.com.
+[^14]: Jack Rushton, in “Faith in Adversity: Jack Rushton and the Power of Faith,” SmallandSimpleTV, Sept. 2, 2009, YouTube.com.
 
-[^15]: See Allison M. Hawes, “[It’s Good to Be Alive](https://churchofjesuschrist.org/study/ensign/1994/04/its-good-to-be-alive?lang=eng),” *Ensign,* Apr. 1994, 42.
+[^15]: See Allison M. Hawes, “[It’s Good to Be Alive](https://www.churchofjesuschrist.org/study/ensign/1994/04/its-good-to-be-alive?lang=eng),” *Ensign,* Apr. 1994, 42.
 
 [^16]: See [[Mosiah 24.14|Mosiah 24:14]].
 
-[^17]: Jo Anne Rushton, in Hawes, “[It’s Good to Be Alive](https://churchofjesuschrist.org/study/ensign/1994/04/its-good-to-be-alive?lang=eng),” 43.
+[^17]: Jo Anne Rushton, in Hawes, “[It’s Good to Be Alive](https://www.churchofjesuschrist.org/study/ensign/1994/04/its-good-to-be-alive?lang=eng),” 43.
 
 [^18]: Jack Rushton, in “Faith in Adversity: Jack Rushton and the Power of Faith.”
 
-[^19]: [[1 Peter 4.14|1 Peter 4:14]]. Remember also the promises cited in [[2 Nephi 9.18|2 Nephi 9:18]] and [[3 Nephi 12.12|3 Nephi 12:12]].
+[^19]: [[1 Peter 4.14|1 Peter 4:14]]. Remember also the promises cited in [[2 Nephi 9.18|2 Nephi 9:18]] and [[3 Nephi 12.12|3 Nephi 12:12]].
 
-[^20]: [[2 Nephi 2.23|2 Nephi 2:23]]; see also [[Moses 5.10|Moses 5:10–11]][[Moses 5.11|]].
+[^20]: [[2 Nephi 2.23|2 Nephi 2:23]]; see also [[Moses 5.10|Moses 5:10–11]][[Moses 5.11|]].
 
 [^21]: [[Mosiah 4.3|Mosiah 4:3]].
 
@@ -135,21 +137,19 @@ I believe that the ultimate “joy of the saints” comes in knowing that the Sa
 
 [^23]: See [[Moses 1.39|Moses 1:39]].
 
-[^24]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82–83; emphasis in original.
+[^24]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 82–83; emphasis in original.
 
-[^25]: “And if ye be Christ’s, then are ye Abraham’s seed, and heirs according to the promise” ([[Galatians 3.29|Galatians 3:29]]; see also [[Genesis 22.18|Genesis 22:18]]; [[Genesis 26.4|26:4]]; [[Genesis 28.14|28:14]]; [[Acts 3.25|Acts 3:25]]; [[1 Nephi 15.18|1 Nephi 15:18]]; [[1 Nephi 22.9|22:9]]; [[D&C 124.58|Doctrine and Covenants 124:58]]).
+[^25]: “And if ye be Christ’s, then are ye Abraham’s seed, and heirs according to the promise” ([[Galatians 3.29|Galatians 3:29]]; see also [[Genesis 22.18|Genesis 22:18]]; [[Genesis 26.4|26:4]]; [[Genesis 28.14|28:14]]; [[Acts 3.25|Acts 3:25]]; [[1 Nephi 15.18|1 Nephi 15:18]]; [[1 Nephi 22.9|22:9]]; [[D&C 124.58|Doctrine and Covenants 124:58]]).
 
 [^26]: [[Abraham 2.11|Abraham 2:11]].
 
-[^27]: [[Alma 29.9|Alma 29:9–10, 14, 16]][[Alma 29.10|]][[Alma 29.14|]][[Alma 29.16|]]. Likewise, the Lord says to us, “If your joy will be great with one soul that you \[bring\] unto me into the kingdom of my Father, how great will be your joy if you should bring many souls unto me!” ([[D&C 18.16|Doctrine and Covenants 18:16]]). The Three Nephites were promised a fulness of joy because they desired to bring souls unto Christ “while the world shall stand” ([[3 Nephi 28.9|3 Nephi 28:9]]; see also [[3 Nephi 28.10|3 Nephi 28:10]]).
+[^27]: [[Alma 29.9|Alma 29:9–10, 14, 16]][[Alma 29.10|]][[Alma 29.14|]][[Alma 29.16|]]. Likewise, the Lord says to us, “If your joy will be great with one soul that you \[bring\] unto me into the kingdom of my Father, how great will be your joy if you should bring many souls unto me!” ([[D&C 18.16|Doctrine and Covenants 18:16]]). The Three Nephites were promised a fulness of joy because they desired to bring souls unto Christ “while the world shall stand” ([[3 Nephi 28.9|3 Nephi 28:9]]; see also [[3 Nephi 28.10|3 Nephi 28:10]]).
 
 [^28]: See [[D&C 45.3|Doctrine and Covenants 45:3–5]][[D&C 45.4|]][[D&C 45.5|]].
 
-[^29]: [[3 Nephi 17.17|3 Nephi 17:17]].
+[^29]: [[3 Nephi 17.17|3 Nephi 17:17]].
 
-[^30]: [[2 Nephi 9.18|2 Nephi 9:18]].
+[^30]: [[2 Nephi 9.18|2 Nephi 9:18]].
 
+[^31]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” 84.
 
-
-
-#Adversity #Commandments #Jesus_Christ #Joy #Service

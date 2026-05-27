@@ -4,6 +4,3 @@
 
 [JST Matthew 6:25](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/6?lang=eng)
 
-
-
-

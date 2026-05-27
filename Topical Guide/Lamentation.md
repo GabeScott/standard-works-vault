@@ -1,7 +1,6 @@
 # Lamentation
 
-
-*See also* [[Lament.md|Lament]]; [[Mourning, Mourn.md|Mourning]]; [[Wail, Wailing.md|Wail]]; [[Weep, Wept.md|Weep]]
+*See also* [[Lament.md|Lament]]; [[Mourning.md|Mourning]]; [[Wail.md|Wail]]; [[Weep.md|Weep]]
 
 David lamented with this *lamentation* over Saul, [[2 Samuel 1.17|2 Samuel 1:17]].
 
@@ -19,4 +18,4 @@ howling and a *lamentation* for the loss, [[Ether 15.16|Ether 15:16]].
 
 be your *lamentation* in the day of visitation, [[D&C 56.16|D&C 56:16]].
 
-vengeance cometh speedily ... a day of ... *lamentation*, [[D&C 112.24|D&C 112:24]].
+vengeance cometh speedily … a day of … *lamentation*, [[D&C 112.24|D&C 112:24]].

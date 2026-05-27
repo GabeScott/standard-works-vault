@@ -1,5 +1,7 @@
 # Value of the Holy Scriptures
 
+Spencer W. Kimball
+
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
@@ -32,7 +34,7 @@ I like the statement of Peter of old when he said, “We have also a more sure w
 
 “Knowing this first, that no prophecy of the scripture is of any private interpretation.
 
-“For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.19|2 Pet. 1:19–21]][[2 Peter 1.20|]][[2 Peter 1.21|]].)
+“For the prophecy came not in old time by the will of man: but holy men of God spake as they were moved by the Holy Ghost.” ([[2 Peter 1.19|2 Pet. 1:19–21]][[2 Peter 1.20|]][[2 Peter 1.21|]].)
 
 The scriptures come to us through the Holy Ghost and are not to be understood by man alone; they are not of any private interpretation. Then if we can believe the scriptures as they are written, we have many truths to present to the world that no one else in the world can understand.
 
@@ -44,7 +46,7 @@ Now I would like to discuss with you today a little about the twenty-ninth chapt
 
 I would like to read a little portion, commencing with the first part of the twenty-ninth chapter:
 
-“Woe to Ariel, to Ariel, the city where David dwelt!” (Now that was Jerusalem, another name for it.) “… Add ye year to year; let them kill sacrifices.” (In other words, in coming generations.)
+“Woe to Ariel, to Ariel, the city where David dwelt!” (Now that was Jerusalem, another name for it.) “… Add ye year to year; let them kill sacrifices.” (In other words, in coming generations.)
 
 “Yet I will distress Ariel, and there shall be heaviness and sorrow.” ([[Isaiah 29.1|Isa. 29:1–2]][[Isaiah 29.2|]].) That is all he had to say about the destruction of Jerusalem, but you remember what Jesus said to his twelve. He told them the temple would be destroyed, there wouldn’t be one stone left upon another, and it would be ploughed as an acre. (See [[Luke 21.5|Luke 21:5–6]][[Luke 21.6|]].)
 
@@ -68,7 +70,7 @@ All you have to do is to read Third Nephi to see how literally that was fulfille
 
 “And the earth was carried up upon the city of Moronihah, that in the place of the city there became a great mountain.
 
-“And there was a great and terrible destruction in the land southward.” ([[3 Nephi 8.5|3 Ne. 8:5–11]][[3 Nephi 8.6|]][[3 Nephi 8.7|]][[3 Nephi 8.8|]][[3 Nephi 8.9|]][[3 Nephi 8.10|]][[3 Nephi 8.11|]].)
+“And there was a great and terrible destruction in the land southward.” ([[3 Nephi 8.5|3 Ne. 8:5–11]][[3 Nephi 8.6|]][[3 Nephi 8.7|]][[3 Nephi 8.8|]][[3 Nephi 8.9|]][[3 Nephi 8.10|]][[3 Nephi 8.11|]].)
 
 Then it goes on describing the destruction in that land. No wonder they can find ruins of cities and cement highways as they delve into the depths of the earth down in that land of South and Central America where these people settled.
 
@@ -97,8 +99,3 @@ May God help us to share the marvelous truths that have come to us in this dispe
 
 
 
-
-
-
-
-#Prophecy #Restoration #Scriptures

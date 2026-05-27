@@ -1,6 +1,5 @@
 # Lord, Spirit of
 
-
 *See also* [[God, Spirit of.md|God, Spirit of]]; [[Holy Ghost.md|Holy Ghost]]; [[Jesus Christ, Spirit of.md|Jesus Christ, Spirit of]]; [[Light of Christ.md|Light of Christ]]
 
 *Spirit of the Lord* came upon him, [[Judges 3.10|Judges 3:10]].

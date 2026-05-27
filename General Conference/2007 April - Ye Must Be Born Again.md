@@ -1,5 +1,7 @@
 # Ye Must Be Born Again
 
+Thomas S. Monson
+
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -34,11 +36,11 @@ The Lord’s authorized servants repeatedly teach that one of the principal purp
 
 “And thus they become new creatures; and unless they do this, they can in nowise inherit the kingdom of God” ([[Mosiah 27.25|Mosiah 27:25–26]][[Mosiah 27.26|]]).
 
-We are instructed to “come unto Christ, and be perfected in him, and deny \[ourselves\] of all ungodliness” ([[Moroni 10.32|Moroni 10:32]]), to become “new creature\[s\]” in Christ (see [[2 Corinthians 5.17|2 Corinthians 5:17]]), to put off “the natural man” ([[Mosiah 3.19|Mosiah 3:19]]), and to experience “a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually” ([[Mosiah 5.2|Mosiah 5:2]]). Please note that the conversion described in these verses is mighty, not minor—a spiritual rebirth and fundamental change of what we feel and desire, what we think and do, and what we are. Indeed, the essence of the gospel of Jesus Christ entails a fundamental and permanent change in our very nature made possible through our reliance upon “the merits, and mercy, and grace of the Holy Messiah” ([[2 Nephi 2.8|2 Nephi 2:8]]). As we choose to follow the Master, we choose to be changed—to be spiritually reborn.
+We are instructed to “come unto Christ, and be perfected in him, and deny \[ourselves\] of all ungodliness” ([[Moroni 10.32|Moroni 10:32]]), to become “new creature\[s\]” in Christ (see [[2 Corinthians 5.17|2 Corinthians 5:17]]), to put off “the natural man” ([[Mosiah 3.19|Mosiah 3:19]]), and to experience “a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually” ([[Mosiah 5.2|Mosiah 5:2]]). Please note that the conversion described in these verses is mighty, not minor—a spiritual rebirth and fundamental change of what we feel and desire, what we think and do, and what we are. Indeed, the essence of the gospel of Jesus Christ entails a fundamental and permanent change in our very nature made possible through our reliance upon “the merits, and mercy, and grace of the Holy Messiah” ([[2 Nephi 2.8|2 Nephi 2:8]]). As we choose to follow the Master, we choose to be changed—to be spiritually reborn.
 
 ## Preparing and Cleaning
 
-Just as a cucumber must be prepared and cleaned before it can be changed into a pickle, so you and I can be prepared with “the words of faith and of good doctrine” ([[1 Timothy 4.6|1 Timothy 4:6]]) and initially cleansed through the ordinances and covenants administered by the authority of the Aaronic Priesthood.
+Just as a cucumber must be prepared and cleaned before it can be changed into a pickle, so you and I can be prepared with “the words of faith and of good doctrine” ([[1 Timothy 4.6|1 Timothy 4:6]]) and initially cleansed through the ordinances and covenants administered by the authority of the Aaronic Priesthood.
 
 “And the lesser priesthood continued, which priesthood holdeth the key of the ministering of angels and the preparatory gospel;
 
@@ -52,7 +54,7 @@ Proper preparing and cleaning are the first basic steps in the process of being 
 
 ## Immersing and Saturating
 
-Just as a cucumber is transformed into a pickle as it is immersed in and saturated with salt brine, so you and I are born again as we are absorbed by and in the gospel of Jesus Christ. As we honor and “observe the covenants” ([[D&C 42.13|D&C 42:13]]) into which we have entered, as we “feast upon the words of Christ” ([[2 Nephi 32.3|2 Nephi 32:3]]), as we “pray unto the Father with all the energy of heart” ([[Moroni 7.48|Moroni 7:48]]), and as we “serve \[God\] with all \[of our\] heart, might, mind and strength” ([[D&C 4.2|D&C 4:2]]), then:
+Just as a cucumber is transformed into a pickle as it is immersed in and saturated with salt brine, so you and I are born again as we are absorbed by and in the gospel of Jesus Christ. As we honor and “observe the covenants” ([[D&C 42.13|D&C 42:13]]) into which we have entered, as we “feast upon the words of Christ” ([[2 Nephi 32.3|2 Nephi 32:3]]), as we “pray unto the Father with all the energy of heart” ([[Moroni 7.48|Moroni 7:48]]), and as we “serve \[God\] with all \[of our\] heart, might, mind and strength” ([[D&C 4.2|D&C 4:2]]), then:
 
 “Because of the covenant which ye have made ye shall be called the children of Christ, his sons, and his daughters; for behold, this day he hath spiritually begotten you; for ye say that your hearts are changed through faith on his name; therefore, ye are born of him and have become his sons and his daughters” ([[Mosiah 5.7|Mosiah 5:7]]).
 
@@ -101,8 +103,3 @@ I witness the reality and divinity of a living Savior who invites us to come unt
 
 
 
-
-
-
-
-#Conversion #Covenants #Spirituality

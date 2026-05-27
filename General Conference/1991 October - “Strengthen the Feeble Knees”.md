@@ -1,5 +1,7 @@
 # “Strengthen the Feeble Knees”
 
+Gordon B. Hinckley
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -64,7 +66,7 @@ A coach of the East St. Louis, Illinois, High School took a group of young men a
 
 The coach told his players, “Life isn’t always fair, but we can still expect excellence from ourselves.”
 
-He insisted on hard work from all of his players, the stars included. His team won more than many championships. (See Eugene H. Methrin, “The Stuff of Champions,” *Reader’s Digest,* Oct. 1991, p. 83.)
+He insisted on hard work from all of his players, the stars included. His team won more than many championships. (See Eugene H. Methrin, “The Stuff of Champions,” *Reader’s Digest,* Oct. 1991, p. 83.)
 
 On our last trip to Great Britain, I had a chance to visit with an eighteen-year-old young man who has had close association with many missionaries in the field. As I was going to speak to a large number of missionaries in the next few days, I asked this friend what he thought was the most important trait missionaries needed in order to be successful. His answer was simple. “They must know how to work. Many come on a mission never knowing how to work.” It has been my experience over the years that feeble knees are not a by-product of work and commitment to goals.
 
@@ -109,8 +111,3 @@ May God help us to strengthen the feeble knees of ourselves and those about us b
 
 
 
-
-
-
-
-#Adversity #Faith #Love #Sabbath

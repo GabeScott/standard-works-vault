@@ -1,6 +1,8 @@
 # Look to God and Live
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Dallin H. Oaks
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -28,7 +30,7 @@ Alma asked:
 
 Of course, the counsel “look to God and live” not only has meaning for us in eternity but also makes all the difference in the character and quality of our mortal lives. Remember the words of young Sister Selebeli in Lesotho already mentioned—“Jesus Christ loves us and is with us, even though our hearts hurt.”
 
-It is in the nature of a fallen world—where the devil rages and where everyone is imperfect—that there will be disappointments and offenses, suffering and sorrow, failure and loss, persecution and injustice. It is only by looking to God that individuals, families, and even nations can flourish. President Russell M. Nelson taught, “Because the Savior, through His infinite Atonement, redeemed each of us from weakness, mistakes, and sin, and because He experienced every pain, worry, and burden you have ever had \[see [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]]\], then as you truly repent and seek His help, you can rise above this present precarious world.”[^10]
+It is in the nature of a fallen world—where the devil rages and where everyone is imperfect—that there will be disappointments and offenses, suffering and sorrow, failure and loss, persecution and injustice. It is only by looking to God that individuals, families, and even nations can flourish. President Russell M. Nelson taught, “Because the Savior, through His infinite Atonement, redeemed each of us from weakness, mistakes, and sin, and because He experienced every pain, worry, and burden you have ever had \[see [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]]\], then as you truly repent and seek His help, you can rise above this present precarious world.”[^10]
 
 No promise is repeated more often in Book of Mormon scripture than this: “Inasmuch as ye shall keep my commandments ye shall prosper in the land; but inasmuch as ye will not keep my commandments ye shall be cut off from my presence.”[^11] The lived experience of the Book of Mormon peoples over centuries demonstrates the truth of these words. “Prosper” meant enjoying the guidance and blessings of heaven in their lives. “Prosper” meant achieving levels of economic well-being that enabled them to marry, raise families, and minister to the needs of others. “Prospering” included the capacity to rise above hardship and trial. Through the grace of Christ, “all things work\[ed\] together for \[their\] good,”[^12] refined them, and deepened their relationship with Him.[^13]
 
@@ -61,7 +63,7 @@ I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of wor
 
 
 
-[^1]: See Ryan Jensen, “Survivors of Deadly Bus Crash in Lesotho Share Grief—and Faith—in Wake of Tragedy,” *Church News*, July 18, 2025, thechurchnews.com; Ryan Jensen, “‘God Is Still God’—Remembering the Lives Lost in Lesotho Bus Accident,” *Church News*, July 19, 2025, thechurchnews.com.
+[^1]: See Ryan Jensen, “Survivors of Deadly Bus Crash in Lesotho Share Grief—and Faith—in Wake of Tragedy,” *Church News*, July 18, 2025, thechurchnews.com; Ryan Jensen, “‘God Is Still God’—Remembering the Lives Lost in Lesotho Bus Accident,” *Church News*, July 19, 2025, thechurchnews.com.
 
 [^2]: [[Alma 37.47|Alma 37:47]].
 
@@ -79,13 +81,13 @@ I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of wor
 
 [^9]: [[Alma 33.21|Alma 33:21–22]][[Alma 33.22|]]. Alma’s grandson Nephi, in bearing record of the Savior, added, “And as many as should look upon that serpent should live, even so as many as should look upon the Son of God with faith, having a contrite spirit, might live, even unto that life which is eternal” ([[Helaman 8.15|Helaman 8:15]]).
 
-[^10]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96.
+[^10]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96.
 
-[^11]: [[2 Nephi 1.20|2 Nephi 1:20]].
+[^11]: [[2 Nephi 1.20|2 Nephi 1:20]].
 
 [^12]: [[Romans 8.28|Romans 8:28]].
 
-[^13]: We can see around us the fruits of looking to God and having His Spirit to be with us. For example, research has found that “spiritual development is associated with protection against depression and substance abuse, and with setting young adults up for healthier relationships, more purposeful work, and greater emotional resilience” (Cornelia Powers, “The New Spiritual Leader on Campus,” *Atlantic*, May 18, 2025, theatlantic.com).
+[^13]: We can see around us the fruits of looking to God and having His Spirit to be with us. For example, research has found that “spiritual development is associated with protection against depression and substance abuse, and with setting young adults up for healthier relationships, more purposeful work, and greater emotional resilience” (Cornelia Powers, “The New Spiritual Leader on Campus,” *Atlantic*, May 18, 2025, theatlantic.com).
 
 [^14]: See [[Alma 37.35|Alma 37:35–37]][[Alma 37.36|]][[Alma 37.37|]].
 
@@ -95,7 +97,7 @@ I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of wor
 
 [^17]: *For the Strength of Youth: A Guide for Making Choices* (2022), 24, 25.
 
-[^18]: Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 118; emphasis in original.
+[^18]: Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 118; emphasis in original.
 
 [^19]: See [[John 1.9|John 1:9]]; [[Moroni 7.16|Moroni 7:16]]; [[D&C 84.45|Doctrine and Covenants 84:45–46]][[D&C 84.46|]]; [[D&C 93.2|93:2]].
 
@@ -107,9 +109,7 @@ I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of wor
 
 [^23]: Mapule Joyce Takane, in Jensen, “Survivors of Deadly Bus Crash in Lesotho Share Grief—and Faith—in Wake of Tragedy,” thechurchnews.com.
 
-[^24]: See [[1 John 5.7|1 John 5:7]]; [[3 Nephi 11.36|3 Nephi 11:36]]; [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[God, Godhead](https://churchofjesuschrist.org/study/scriptures/gs/god-godhead?lang=eng),” Gospel Library.
+[^24]: See [[1 John 5.7|1 John 5:7]]; [[3 Nephi 11.36|3 Nephi 11:36]]; [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[God, Godhead](https://www.churchofjesuschrist.org/study/scriptures/gs/god-godhead?lang=eng),” Gospel Library.
 
+[^25]: [[3 Nephi 15.9|3 Nephi 15:9]].
 
-
-
-#Adversity #Commandments #Healing #Jesus_Christ

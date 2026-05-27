@@ -1,6 +1,8 @@
 # Taking upon Ourselves the Name of Jesus Christ
 
-By Elder Robert C. Gay - *Of the Presidency of the Seventy*
+Russell M. Nelson
+
+By Elder Robert C. Gay - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -32,7 +34,7 @@ From the Spirit’s rebuke at my sister’s bedside, I learned a great lesson: t
 
 God will work wonders among us as we sanctify ourselves.[^13] We sanctify ourselves by purifying our hearts.[^14] We purify our hearts as we hear Him,[^15] repent of our sins,[^16] become converted,[^17] and love as He loves.[^18] The Savior asked us, “For if ye love them which love you, what reward have ye?”[^19]
 
-I recently learned about an experience in the life of Elder James E. Talmage that caused me to pause and consider how I love and serve those around me. As a young professor, before he became an Apostle, in the height of the deadly diphtheria epidemic of 1892, Elder Talmage discovered a family of strangers, not members of the Church, who lived near him and who were stricken by the disease. No one wanted to put themselves at risk by going inside the infected home. Elder Talmage, however, immediately proceeded to the home. He found four children: a two-and-a-half-year-old dead on the bed, a five-year-old and ten-year-old in great pain, and a weakened thirteen-year-old. The parents were suffering with grief and fatigue.
+I recently learned about an experience in the life of Elder James E. Talmage that caused me to pause and consider how I love and serve those around me. As a young professor, before he became an Apostle, in the height of the deadly diphtheria epidemic of 1892, Elder Talmage discovered a family of strangers, not members of the Church, who lived near him and who were stricken by the disease. No one wanted to put themselves at risk by going inside the infected home. Elder Talmage, however, immediately proceeded to the home. He found four children: a two-and-a-half-year-old dead on the bed, a five-year-old and ten-year-old in great pain, and a weakened thirteen-year-old. The parents were suffering with grief and fatigue.
 
 Elder Talmage dressed the dead and the living, swept the rooms, carried out the soiled clothing, and burned filthy rags covered with the disease. He worked all day and then returned the next morning. The ten-year-old died during the night. He lifted and held the five-year-old. She coughed bloody mucus all over his face and clothes. He wrote, “I could not put her from me,” and he held her until she died in his arms. He helped bury all three children and arranged for food and clean clothing for the grieving family. Upon returning home, Brother Talmage disposed of his clothes, bathed in a zinc solution, quarantined himself from his family, and suffered through a mild attack of the disease.[^20]
 
@@ -57,27 +59,27 @@ From the very depths of my soul, I bear testimony that The Church of Jesus Chris
 
 
 
-[^1]: See [[3 Nephi 27.3|3 Nephi 27:3–8]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]].
+[^1]: See [[3 Nephi 27.3|3 Nephi 27:3–8]][[3 Nephi 27.4|]][[3 Nephi 27.5|]][[3 Nephi 27.6|]][[3 Nephi 27.7|]][[3 Nephi 27.8|]].
 
-[^2]: See [[3 Nephi 27.5|3 Nephi 27:5–6]][[3 Nephi 27.6|]]; see also [[D&C 20.77|Doctrine and Covenants 20:77]] and the covenant of the sacrament.
+[^2]: See [[3 Nephi 27.5|3 Nephi 27:5–6]][[3 Nephi 27.6|]]; see also [[D&C 20.77|Doctrine and Covenants 20:77]] and the covenant of the sacrament.
 
-[^3]: See Dallin H. Oaks, *His Holy Name* (1998) for a comprehensive study about taking upon ourselves and being a witness of the name of Jesus Christ.
+[^3]: See Dallin H. Oaks, *His Holy Name* (1998) for a comprehensive study about taking upon ourselves and being a witness of the name of Jesus Christ.
 
 [^4]: See [[Mosiah 5.2|Mosiah 5:2–3]][[Mosiah 5.3|]]. Part of the mighty change of heart among the people of King Benjamin who took upon themselves the name of Christ was that their eyes were opened to “great views.” Those who inherit the celestial kingdom are individuals who “see as they are seen” ([[D&C 76.94|Doctrine and Covenants 76:94]]).
 
-[^5]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 39.
+[^5]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-35?lang=eng)* (2007), 39.
 
 [^6]: Brigham Young, in *Journal of Discourses,* 8:37.
 
-[^7]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 278.
+[^7]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 278.
 
-[^8]: See [[3 Nephi 17.7|3 Nephi 17:7]].
+[^8]: See [[3 Nephi 17.7|3 Nephi 17:7]].
 
-[^9]: See [[John 3.14|John 3:14–17]][[John 3.15|]][[John 3.16|]][[John 3.17|]]; [[Acts 10.34|Acts 10:34]]; [[1 Nephi 17.35|1 Nephi 17:35]]; [[2 Nephi 26.33|2 Nephi 26:33]]; [[D&C 50.41|Doctrine and Covenants 50:41–42]][[D&C 50.42|]]; [[Moses 1.39|Moses 1:39]]. Elder D. Todd Christofferson also taught: “With confidence we testify that the Atonement of Jesus Christ has anticipated and, in the end, will compensate all deprivation and loss for those who turn to Him. No one is predestined to receive less than all that the Father has for His children” (“[[2015 April - Why Marriage, Why Family.md|Why Marriage, Why Family]],” *Ensign* or *Liahona,* May 2015, 52).
+[^9]: See [[John 3.14|John 3:14–17]][[John 3.15|]][[John 3.16|]][[John 3.17|]]; [[Acts 10.34|Acts 10:34]]; [[1 Nephi 17.35|1 Nephi 17:35]]; [[2 Nephi 26.33|2 Nephi 26:33]]; [[D&C 50.41|Doctrine and Covenants 50:41–42]][[D&C 50.42|]]; [[Moses 1.39|Moses 1:39]]. Elder D. Todd Christofferson also taught: “With confidence we testify that the Atonement of Jesus Christ has anticipated and, in the end, will compensate all deprivation and loss for those who turn to Him. No one is predestined to receive less than all that the Father has for His children” (“[[2015 April - Why Marriage, Why Family.md|Why Marriage, Why Family]],” *Ensign* or *Liahona,* May 2015, 52).
 
-[^10]: See [[Matthew 5.14|Matthew 5:14–16]][[Matthew 5.15|]][[Matthew 5.16|]]; [[Matthew 22.35|22:35–40]][[Matthew 22.36|]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; [[Mosiah 3.19|Mosiah 3:19]]; [[D&C 50.13|Doctrine and Covenants 50:13–14]][[D&C 50.14|]]; [[D&C 133.5|133:5]]; see also Russell M. Nelson, “[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona,* Nov. 2006, 79–81.
+[^10]: See [[Matthew 5.14|Matthew 5:14–16]][[Matthew 5.15|]][[Matthew 5.16|]]; [[Matthew 22.35|22:35–40]][[Matthew 22.36|]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; [[Mosiah 3.19|Mosiah 3:19]]; [[D&C 50.13|Doctrine and Covenants 50:13–14]][[D&C 50.14|]]; [[D&C 133.5|133:5]]; see also Russell M. Nelson, “[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona,* Nov. 2006, 79–81.
 
-[^11]: See [[Leviticus 18.4|Leviticus 18:4]]; [[2 Nephi 31.5|2 Nephi 31:5–12]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]]; [[D&C 1.12|Doctrine and Covenants 1:12–16]][[D&C 1.13|]][[D&C 1.14|]][[D&C 1.15|]][[D&C 1.16|]]; [[D&C 136.4|136:4]]; [[Articles of Faith 1.3|Articles of Faith 1:3–4]][[Articles of Faith 1.4|]].
+[^11]: See [[Leviticus 18.4|Leviticus 18:4]]; [[2 Nephi 31.5|2 Nephi 31:5–12]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]]; [[D&C 1.12|Doctrine and Covenants 1:12–16]][[D&C 1.13|]][[D&C 1.14|]][[D&C 1.15|]][[D&C 1.16|]]; [[D&C 136.4|136:4]]; [[Articles of Faith 1.3|Articles of Faith 1:3–4]][[Articles of Faith 1.4|]].
 
 [^12]: See [[D&C 84.20|Doctrine and Covenants 84:20–21]][[D&C 84.21|]]; [[D&C 110.9|110:9]].
 
@@ -85,23 +87,23 @@ From the very depths of my soul, I bear testimony that The Church of Jesus Chris
 
 [^14]: See [[Helaman 3.35|Helaman 3:35]]; [[D&C 12.6|Doctrine and Covenants 12:6–9]][[D&C 12.7|]][[D&C 12.8|]][[D&C 12.9|]]; [[D&C 88.74|88:74]].
 
-[^15]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17]], the first command given by God in vision to the Prophet Joseph Smith; see also [[2 Nephi 9.29|2 Nephi 9:29]]; [[3 Nephi 28.34|3 Nephi 28:34]].
+[^15]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17]], the first command given by God in vision to the Prophet Joseph Smith; see also [[2 Nephi 9.29|2 Nephi 9:29]]; [[3 Nephi 28.34|3 Nephi 28:34]].
 
-[^16]: See [[Mark 1.15|Mark 1:15]]; [[Acts 3.19|Acts 3:19]]; [[Alma 5.33|Alma 5:33]]; [[Alma 42.22|42:22–23]][[Alma 42.23|]]; [[D&C 19.4|Doctrine and Covenants 19:4–20]][[D&C 19.5|]][[D&C 19.6|]][[D&C 19.7|]][[D&C 19.8|]][[D&C 19.9|]][[D&C 19.10|]][[D&C 19.11|]][[D&C 19.12|]][[D&C 19.13|]][[D&C 19.14|]][[D&C 19.15|]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]][[D&C 19.20|]]. Also ponder these two meditations on sin. First, Hugh Nibley writes: “Sin is waste. It is doing one thing when you should be doing other and better things for which you have the capacity” (*Approaching Zion,* ed. Don E. Norton \[1989\], 66). Mother of John Wesley, Susanna Wesley, wrote her son: “Take this rule. Whatever weakens your reason, impairs the tenderness of your conscience, obscures your sense of God, or takes off your relish of spiritual things; … whatever increases the … authority of your body over your mind; that thing is sin to you, however innocent it may be in itself” (*Susanna Wesley: The Complete Writings,* ed. Charles Wallace Jr. \[1997\], 109).
+[^16]: See [[Mark 1.15|Mark 1:15]]; [[Acts 3.19|Acts 3:19]]; [[Alma 5.33|Alma 5:33]]; [[Alma 42.22|42:22–23]][[Alma 42.23|]]; [[D&C 19.4|Doctrine and Covenants 19:4–20]][[D&C 19.5|]][[D&C 19.6|]][[D&C 19.7|]][[D&C 19.8|]][[D&C 19.9|]][[D&C 19.10|]][[D&C 19.11|]][[D&C 19.12|]][[D&C 19.13|]][[D&C 19.14|]][[D&C 19.15|]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]][[D&C 19.20|]]. Also ponder these two meditations on sin. First, Hugh Nibley writes: “Sin is waste. It is doing one thing when you should be doing other and better things for which you have the capacity” (*Approaching Zion,* ed. Don E. Norton \[1989\], 66). Mother of John Wesley, Susanna Wesley, wrote her son: “Take this rule. Whatever weakens your reason, impairs the tenderness of your conscience, obscures your sense of God, or takes off your relish of spiritual things; … whatever increases the … authority of your body over your mind; that thing is sin to you, however innocent it may be in itself” (*Susanna Wesley: The Complete Writings,* ed. Charles Wallace Jr. \[1997\], 109).
 
-[^17]: See [[Luke 22.32|Luke 22:32]]; [[3 Nephi 9.11|3 Nephi 9:11, 20]][[3 Nephi 9.20|]].
+[^17]: See [[Luke 22.32|Luke 22:32]]; [[3 Nephi 9.11|3 Nephi 9:11, 20]][[3 Nephi 9.20|]].
 
 [^18]: See [[John 13.2|John 13:2–15, 34]][[John 13.3|]][[John 13.4|]][[John 13.5|]][[John 13.6|]][[John 13.7|]][[John 13.8|]][[John 13.9|]][[John 13.10|]][[John 13.11|]][[John 13.12|]][[John 13.13|]][[John 13.14|]][[John 13.15|]][[John 13.34|]]. On the eve of His Atonement, the Savior washed the feet of one who betrayed Him, of another who denied Him, and of still others who fell asleep in His most needed hour. He then taught, “A new commandment I give unto you, That ye love one another; as I have loved you.”
 
 [^19]: [[Matthew 5.46|Matthew 5:46]].
 
-[^20]: See John R. Talmage, *The Talmage Story: Life of James E. Talmage—Educator, Scientist, Apostle* (1972), 112–14.
+[^20]: See John R. Talmage, *The Talmage Story: Life of James E. Talmage—Educator, Scientist, Apostle* (1972), 112–14.
 
 [^21]: See [[Alma 10.22|Alma 10:22–23]][[Alma 10.23|]]; [[Alma 62.40|62:40]].
 
-[^22]: [[3 Nephi 27.11|3 Nephi 27:11]].
+[^22]: [[3 Nephi 27.11|3 Nephi 27:11]].
 
-[^23]: In [[Matthew 11.28|Matthew 11:28, 30]][[Matthew 11.30|]], the Lord says: “Come unto me, all ye that labour and are heavy laden, and I will give you rest. … For my yoke is easy, and my burden is light.” Also consider [[2 Corinthians 12.7|2 Corinthians 12:7–9]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]]: Paul describes suffering a very powerful “thorn in the flesh,” which he prayed to have removed. Christ said to him, “My grace is sufficient for thee: for my strength is made perfect in weakness.” See also [[Ether 12.27|Ether 12:27]].
+[^23]: In [[Matthew 11.28|Matthew 11:28, 30]][[Matthew 11.30|]], the Lord says: “Come unto me, all ye that labour and are heavy laden, and I will give you rest. … For my yoke is easy, and my burden is light.” Also consider [[2 Corinthians 12.7|2 Corinthians 12:7–9]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]]: Paul describes suffering a very powerful “thorn in the flesh,” which he prayed to have removed. Christ said to him, “My grace is sufficient for thee: for my strength is made perfect in weakness.” See also [[Ether 12.27|Ether 12:27]].
 
 [^24]: See [[Mosiah 7.33|Mosiah 7:33]]; [[Mosiah 29.20|29:20]]; [[Helaman 12.1|Helaman 12:1]]; [[D&C 124.87|Doctrine and Covenants 124:87]].
 
@@ -109,18 +111,13 @@ From the very depths of my soul, I bear testimony that The Church of Jesus Chris
 
 [^26]: See [[Luke 4.21|Luke 4:21]]; [[John 4.6|John 4:6–26]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]]. Luke, not John, records that early in Jesus’s ministry, He went to His own synagogue in Nazareth, read a passage from Isaiah prophesying of the Messiah, and then declared, “This day is this scripture fulfilled in your ears.” This is the first recorded time the Savior speaks of Himself as the Messiah. However, at Jacob’s well, John records the first time that Jesus declares His Messiahship in an open forum. In this setting, since the Samaritans were considered non-Jews, Jesus also taught that His gospel was for all, both Jew and Gentile. This declaration occurs at the “sixth hour,” or at noon, when the earth receives its fullest light from the sun. Jacob’s well is also in the valley near the exact spot where ancient Israel ceremonially covenanted with the Lord after entering into the land of promise. Interestingly, on one side of the valley is a dry mountain and on the other side is a mountain full of springs of life-giving water.
 
-[^27]: Elder Neal A. Maxwell taught: “When in situations of stress we wonder if there is any more in us to give, we can be comforted to know that God, who knows our capacity perfectly, placed us here to succeed. No one was foreordained to fail or to be wicked. … When we feel overwhelmed, let us recall the assurance that God will not overprogram us” (“[Meeting the Challenges of Today](https://speeches.byu.edu/talks/neal-a-maxwell_meeting-challenges-today)” \[Brigham Young University devotional, Oct. 10, 1978\], 9, speeches.byu.edu).
+[^27]: Elder Neal A. Maxwell taught: “When in situations of stress we wonder if there is any more in us to give, we can be comforted to know that God, who knows our capacity perfectly, placed us here to succeed. No one was foreordained to fail or to be wicked. … When we feel overwhelmed, let us recall the assurance that God will not overprogram us” (“[Meeting the Challenges of Today](https://speeches.byu.edu/talks/neal-a-maxwell_meeting-challenges-today)” \[Brigham Young University devotional, Oct. 10, 1978\], 9, speeches.byu.edu).
 
-[^28]: President Russell M. Nelson has taught:
+[^28]: President Russell M. Nelson has taught:
 
 [^29]: See [[Isaiah 53.3|Isaiah 53:3–5]][[Isaiah 53.4|]][[Isaiah 53.5|]]; [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]]; [[D&C 122.5|Doctrine and Covenants 122:5–9]][[D&C 122.6|]][[D&C 122.7|]][[D&C 122.8|]][[D&C 122.9|]].
 
-[^30]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17]]; Elaine S. Dalton, “[[2005 April - He Knows You by Name.md|He Knows You by Name]],” *Ensign* or *Liahona,* May 2005, 109–11.
+[^30]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17]]; Elaine S. Dalton, “[[2005 April - He Knows You by Name.md|He Knows You by Name]],” *Ensign* or *Liahona,* May 2005, 109–11.
 
 [^31]: [[John 4.14|John 4:14]].
 
-
-
-
-
-#Healing #Individual_Worth #Jesus_Christ #Love #Service #Trust

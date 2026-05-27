@@ -1,6 +1,8 @@
 # Grieve Not the Holy Spirit, Lest We Lose It
 
-By Elder James A. Cullimore - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder James A. Cullimore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -16,7 +18,7 @@ It’s a pleasure to serve in this area. As I visit the stakes each weekend, I o
 
 “And now, my beloved brethren, after ye have gotten into this straight and narrow path, I would ask if all is done? Behold, I say unto you, Nay; for ye have not come thus far save it were by the word of Christ with unshaken faith in him, relying wholly upon the merits of him who is mighty to save.
 
-“Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.15|2 Ne. 31:15, 19–20]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].)
+“Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.15|2 Ne. 31:15, 19–20]][[2 Nephi 31.19|]][[2 Nephi 31.20|]].)
 
 How very important it is to have the light of the Holy Ghost to give us direction. The Holy Ghost functioning through the priesthood can greatly enrich our lives.
 
@@ -24,7 +26,7 @@ How very important it is to have the light of the Holy Ghost to give us directio
 
 “Which light proceedeth forth from the presence of God to fill the immensity of space.” ([[D&C 88.11|D&C 88:11–12]][[D&C 88.12|]].)
 
-The Lord said to Frederick G. Williams:
+The Lord said to Frederick G. Williams:
 
 “Wherefore, be faithful; stand in the office which I have appointed unto you; succor the weak, lift up the hands which hang down, and strengthen the feeble knees.
 
@@ -34,11 +36,11 @@ God gives to each of his children his Spirit to help them keep the commandments 
 
 “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.
 
-“But God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God. …
+“But God hath revealed them unto us by his Spirit: for the Spirit searcheth all things, yea, the deep things of God. …
 
 “Now we have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God.
 
-“Which things also we speak, not in the words which man’s wisdom teacheth, but which the Holy Ghost teacheth.” ([[1 Corinthians 2.9|1 Cor. 2:9–10, 12–13]][[1 Corinthians 2.10|]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]].)
+“Which things also we speak, not in the words which man’s wisdom teacheth, but which the Holy Ghost teacheth.” ([[1 Corinthians 2.9|1 Cor. 2:9–10, 12–13]][[1 Corinthians 2.10|]][[1 Corinthians 2.12|]][[1 Corinthians 2.13|]].)
 
 From President Lorenzo Snow we learn the benefits of seeking the Spirit:
 
@@ -52,7 +54,7 @@ The apostle Paul admonished us about grieving the Holy Spirit lest we lose it. H
 
 “And be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ’s sake hath forgiven you.” ([[Ephesians 4.30|Eph. 4:30–32]][[Ephesians 4.31|]][[Ephesians 4.32|]].)
 
-President Harold B. Lee has said:
+President Harold B. Lee has said:
 
 “I have learned something of what the Spirit has taught, and I know now that the place of safety in this world is not in any given place; it doesn’t make so much difference where we live; but the all-important thing is how we live, and I have found that security can come to Israel only when they keep the commandments, when they live so that they can enjoy the companionship, the direction, the comfort and the guidance of the Holy Spirit of the Lord, when they are willing to listen to these men whom God has set here to preside as His mouthpieces, and when we obey the counsels of the Church.” (In *Conference Report,* Apr. 1943, p. 129.)
 
@@ -90,8 +92,3 @@ May I leave with you my witness, my brothers and sisters, of the truth of this g
 
 
 
-
-
-
-
-#Holy_Ghost #Spirituality

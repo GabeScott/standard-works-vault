@@ -1,5 +1,7 @@
 # Ignorance Is Expensive
 
+Joseph Fielding Smith
+
 By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
@@ -8,7 +10,7 @@ By President Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 Some years ago while I was serving in the navy and was away from home, a very prominent and well-to-do farmer died in my home neighborhood. Upon my return I was talking with my cousin about the estate of the deceased, and I asked the inevitable question, “How much did he leave?” My cousin said, “He left it all; he didn’t take any of it with him.”
 
-That struck me as being a great truth that very, very few men seem ever to comprehend. Certainly many of us act as though we are going to take it all with us when we go; of course, we are not. In terms of material things, *each of us* leaves it all. In the words of Paul to Timothy, “For we brought nothing into this world, and it is certain we can carry nothing out.” ([[1 Timothy 6.7|1 Tim. 6:7]].)
+That struck me as being a great truth that very, very few men seem ever to comprehend. Certainly many of us act as though we are going to take it all with us when we go; of course, we are not. In terms of material things, *each of us* leaves it all. In the words of Paul to Timothy, “For we brought nothing into this world, and it is certain we can carry nothing out.” ([[1 Timothy 6.7|1 Tim. 6:7]].)
 
 Well, isn’t there anything good we can take with us when we go, we may ask? The Prophet Joseph Smith taught that the knowledge and intelligence gained here in this life would go with us when we leave.
 
@@ -20,11 +22,11 @@ Well, isn’t there anything good we can take with us when we go, we may ask? Th
 
 This being true, then it would seem that we all should place the pursuit of light and truth, or intelligence, uppermost in our selection of goals, since we may have them eternally. We must seek after enlightenment. Since “the glory of God is intelligence” ([[D&C 93.36|D&C 93:36]]), if we would be like our Heavenly Father, our course is fixed.
 
-Ignorance is expensive; in fact, it is the most expensive commodity we know anything about. Certainly we make many mistakes through ignorance. If it is a violation of a commandment of God which we have never received and thus do not know, then the Lord does not hold us guilty of the sin. “… to him that knoweth to do good, and doeth it not, to him it is sin.” ([[James 4.17|James 4:17]].) And in Paul’s words, “… where no law is, there is no transgression.” ([[Romans 4.15|Rom. 4:15]].) But even though we may not be guilty of the sin because of our ignorance, neither can we receive the blessing, which is predicated on obedience, without rendering obedience to that law. Therefore, we are denied the blessing through our ignorance. If it is a traffic law we have violated through ignorance, the penalty assessed us is exactly the same as if we had known. Also, if we stick a finger in an electric light socket, we will receive the same shock, irrespective of our knowledge of electricity. I repeat, ignorance is expensive. Particularly is this true since the Lord has decreed, “It is impossible for a man to be saved in ignorance.” ([[D&C 131.6|D&C 131:6]].) For surely no man is truly enlightened unless he knows the Lord.
+Ignorance is expensive; in fact, it is the most expensive commodity we know anything about. Certainly we make many mistakes through ignorance. If it is a violation of a commandment of God which we have never received and thus do not know, then the Lord does not hold us guilty of the sin. “… to him that knoweth to do good, and doeth it not, to him it is sin.” ([[James 4.17|James 4:17]].) And in Paul’s words, “… where no law is, there is no transgression.” ([[Romans 4.15|Rom. 4:15]].) But even though we may not be guilty of the sin because of our ignorance, neither can we receive the blessing, which is predicated on obedience, without rendering obedience to that law. Therefore, we are denied the blessing through our ignorance. If it is a traffic law we have violated through ignorance, the penalty assessed us is exactly the same as if we had known. Also, if we stick a finger in an electric light socket, we will receive the same shock, irrespective of our knowledge of electricity. I repeat, ignorance is expensive. Particularly is this true since the Lord has decreed, “It is impossible for a man to be saved in ignorance.” ([[D&C 131.6|D&C 131:6]].) For surely no man is truly enlightened unless he knows the Lord.
 
-Why is it we are so slow to learn, to receive the light? Is it because the Lord is slow to speak or doesn’t want to be bothered? Not according to his word to James wherein he says he “giveth to all men liberally, and upbraideth not. …” ([[James 1.5|James 1:5]].)
+Why is it we are so slow to learn, to receive the light? Is it because the Lord is slow to speak or doesn’t want to be bothered? Not according to his word to James wherein he says he “giveth to all men liberally, and upbraideth not. …” ([[James 1.5|James 1:5]].)
 
-Then the real problem is in that we receive not the light! “… and here is the condemnation of man,” saith the Lord; “because that which was from the beginning is plainly manifest unto them, and they receive not the light.
+Then the real problem is in that we receive not the light! “… and here is the condemnation of man,” saith the Lord; “because that which was from the beginning is plainly manifest unto them, and they receive not the light.
 
 “And every man whose spirit receiveth not the light is under condemnation.” ([[D&C 93.31|D&C 93:31–32]][[D&C 93.32|]].)
 
@@ -40,7 +42,7 @@ We are prone to say that we are waiting on the Lord to receive light and truth w
 
 The Lord has well stated our plight. “And this is the condemnation, that light is come into the world, and men \[love\] darkness rather than light, because their deeds \[are\] evil.” ([[John 3.19|John 3:19]].) I repeat: “because their deeds \[are\] evil.”
 
-Revelation, light, and knowledge come through the power of the Holy Ghost. The words of the Master as recorded in John are expressive. “But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.” ([[John 14.26|John 14:26]].) And again, “… he \[the Holy Ghost\] will guide you into all truth … and \[shall show\] you things to come.” ([[John 16.13|John 16:13]].) In fact, we can neither teach nor learn gospel truths without the Holy Ghost. In this day the Lord has reconfirmed this great truth in these words:
+Revelation, light, and knowledge come through the power of the Holy Ghost. The words of the Master as recorded in John are expressive. “But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.” ([[John 14.26|John 14:26]].) And again, “… he \[the Holy Ghost\] will guide you into all truth … and \[shall show\] you things to come.” ([[John 16.13|John 16:13]].) In fact, we can neither teach nor learn gospel truths without the Holy Ghost. In this day the Lord has reconfirmed this great truth in these words:
 
 “Therefore, why is it that ye cannot understand and know, that he that receiveth the word by the Spirit of truth receiveth it as it is preached by the Spirit of truth?
 
@@ -67,8 +69,3 @@ May I bear witness to you, my brethren and sisters, that what you have heard fro
 
 
 
-
-
-
-
-#Education

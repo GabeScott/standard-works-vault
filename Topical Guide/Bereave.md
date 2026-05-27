@@ -1,7 +1,6 @@
 # Bereave
 
-
-*See also* [[Death.md|Death]]; [[Mourning, Mourn.md|Mourning]]; [[Sorrow.md|Sorrow]]
+*See also* [[Death.md|Death]]; [[Mourning.md|Mourning]]; [[Sorrow.md|Sorrow]]
 
 Me have ye *bereaved* of my children, [[Genesis 42.36|Genesis 42:36]].
 

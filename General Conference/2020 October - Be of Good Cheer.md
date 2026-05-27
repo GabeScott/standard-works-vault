@@ -1,6 +1,8 @@
 # Be of Good Cheer
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -10,7 +12,7 @@ By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 In the final days of His mortal life, Jesus Christ told His Apostles of the persecutions and hardships they would suffer.[^1] He concluded with this great assurance: “In the world ye shall have tribulation: but be of good cheer; I have overcome the world” ([[John 16.33|John 16:33]]). That is the Savior’s message to all of our Heavenly Father’s children. That is the ultimate good news for each of us in our mortal lives.
 
-“Be of good cheer” was also a needed assurance in the world into which the resurrected Christ sent His Apostles. “We are troubled on every side,” the Apostle Paul later told the Corinthians, “yet not distressed; we are perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed” ([[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]]).
+“Be of good cheer” was also a needed assurance in the world into which the resurrected Christ sent His Apostles. “We are troubled on every side,” the Apostle Paul later told the Corinthians, “yet not distressed; we are perplexed, but not in despair; persecuted, but not forsaken; cast down, but not destroyed” ([[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]]).
 
 Two thousand years later we are also “troubled on every side,” and we also need that same message not to despair but to be of good cheer. The Lord has special love and concern for His precious daughters. He knows of your wants, your needs, and your fears. The Lord is all powerful. Trust Him.
 
@@ -52,13 +54,13 @@ Even though the Saints were not settled in their new homes, at October 1849 gene
 
 Sisters, the First Presidency is concerned about your challenges. We love you and pray for you. At the same time, we often give thanks that our physical challenges—apart from earthquakes, fires, floods, and hurricanes—are usually less than our predecessors faced.
 
-In the midst of hardships, the divine assurance is always “be of good cheer, for I will lead you along. The kingdom is yours and the blessings thereof are yours, and the riches of eternity are yours” ([[D&C 78.18|Doctrine and Covenants 78:18]]). How does this happen? How did it happen for the pioneers? How will it happen to women of God today? By our following prophetic guidance, “the gates of hell shall not prevail against \[us\],” the Lord said by revelation in April 1830. “Yea,” He said, “… the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory” ([[D&C 21.6|Doctrine and Covenants 21:6]]). “Fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail” ([[D&C 6.34|Doctrine and Covenants 6:34]]).
+In the midst of hardships, the divine assurance is always “be of good cheer, for I will lead you along. The kingdom is yours and the blessings thereof are yours, and the riches of eternity are yours” ([[D&C 78.18|Doctrine and Covenants 78:18]]). How does this happen? How did it happen for the pioneers? How will it happen to women of God today? By our following prophetic guidance, “the gates of hell shall not prevail against \[us\],” the Lord said by revelation in April 1830. “Yea,” He said, “… the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory” ([[D&C 21.6|Doctrine and Covenants 21:6]]). “Fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail” ([[D&C 6.34|Doctrine and Covenants 6:34]]).
 
 With the Lord’s promises, we “lift up \[our\] heart\[s\] and rejoice” ([[D&C 25.13|Doctrine and Covenants 25:13]]), and “with a glad heart and a cheerful countenance” ([[D&C 59.15|Doctrine and Covenants 59:15]]), we go forward on the covenant path. Most of us do not face decisions of giant proportions, like leaving our homes to pioneer an unknown land. Our decisions are mostly in the daily routines of life, but as the Lord has told us, “Be not weary in well-doing, for ye are laying the foundation of a great work. And out of small things proceedeth that which is great” ([[D&C 64.33|Doctrine and Covenants 64:33]]).
 
 There is boundless power in the doctrine of the restored gospel of Jesus Christ. Our unshakable faith in that doctrine guides our steps and gives us joy. It enlightens our minds and gives strength and confidence to our actions. This guidance and enlightenment and power are promised gifts we have received from our Heavenly Father. By understanding and conforming our lives to that doctrine, including the divine gift of repentance, we can be of good cheer as we keep ourselves on the path toward our eternal destiny—reunion and exaltation with our loving heavenly parents.
 
-“You may be facing overwhelming challenges,” Elder Richard G. Scott taught. “Sometimes they are so concentrated, so unrelenting, that you may feel they are beyond your capacity to control. Don’t face the world alone. ‘Trust in the Lord with all thine heart; and lean not unto thine own understanding’ \[[[Proverbs 3.5|Proverbs 3:5]]\]. … It was intended that life be a challenge, not so that you would fail, but that you might succeed through overcoming.”[^8]
+“You may be facing overwhelming challenges,” Elder Richard G. Scott taught. “Sometimes they are so concentrated, so unrelenting, that you may feel they are beyond your capacity to control. Don’t face the world alone. ‘Trust in the Lord with all thine heart; and lean not unto thine own understanding’ \[[[Proverbs 3.5|Proverbs 3:5]]\]. … It was intended that life be a challenge, not so that you would fail, but that you might succeed through overcoming.”[^8]
 
 It is all part of the plan of God the Father and His Son, Jesus Christ, of which I testify, as I pray that we will all persist to our heavenly destination, in the name of Jesus Christ, amen.
 
@@ -67,19 +69,17 @@ It is all part of the plan of God the Father and His Son, Jesus Christ, of which
 
 [^1]: See [[John 13.1|John 13–16]][[John 13.2|]][[John 13.3|]][[John 13.4|]][[John 13.5|]][[John 13.6|]][[John 13.7|]][[John 13.8|]][[John 13.9|]][[John 13.10|]][[John 13.11|]][[John 13.12|]][[John 13.13|]][[John 13.14|]][[John 13.15|]][[John 13.16|]][[John 13.17|]][[John 13.18|]][[John 13.19|]][[John 13.20|]][[John 13.21|]][[John 13.22|]][[John 13.23|]][[John 13.24|]][[John 13.25|]][[John 13.26|]][[John 13.27|]][[John 13.28|]][[John 13.29|]][[John 13.30|]][[John 13.31|]][[John 13.32|]][[John 13.33|]][[John 13.34|]][[John 13.35|]][[John 13.36|]][[John 13.37|]][[John 13.38|]].
 
-[^2]: See [[2 Nephi 2.11|2 Nephi 2:11]].
+[^2]: See [[2 Nephi 2.11|2 Nephi 2:11]].
 
-[^3]: Abraham Lincoln, address to the Wisconsin State Agricultural Society, Milwaukee, Sept. 30, 1859, in John Bartlett, *Bartlett’s Familiar Quotations,* 18th ed. (2012), 444.
+[^3]: Abraham Lincoln, address to the Wisconsin State Agricultural Society, Milwaukee, Sept. 30, 1859, in John Bartlett, *Bartlett’s Familiar Quotations,* 18th ed. (2012), 444.
 
 [^4]: See [[D&C 6.31|Doctrine and Covenants 6:31]].
 
-[^5]: See Lawrence E. Corbridge, “[Surviving and Thriving like the Pioneers](https://churchofjesuschrist.org/study/ensign/2020/07/surviving-and-thriving-like-the-pioneers?lang=eng),” *Ensign,* July 2020, 23–24.
+[^5]: See Lawrence E. Corbridge, “[Surviving and Thriving like the Pioneers](https://www.churchofjesuschrist.org/study/ensign/2020/07/surviving-and-thriving-like-the-pioneers?lang=eng),” *Ensign,* July 2020, 23–24.
 
-[^6]: See “Minutes of the General Conference of 6 October 1849,” General Church Minutes Collection, Church History Library, Salt Lake City.
+[^6]: See “Minutes of the General Conference of 6 October 1849,” General Church Minutes Collection, Church History Library, Salt Lake City.
 
-[^7]: George A. Smith, in Journal History of The Church of Jesus Christ of Latter-day Saints, Aug. 28, 1852, 1, Church History Library, Salt Lake City.
+[^7]: George A. Smith, in Journal History of The Church of Jesus Christ of Latter-day Saints, Aug. 28, 1852, 1, Church History Library, Salt Lake City.
 
+[^8]: Richard G. Scott, *Finding Peace, Happiness, and Joy* (2007), 248–49.
 
-
-
-#Adversity #Faith

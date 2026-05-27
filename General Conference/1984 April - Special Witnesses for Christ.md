@@ -1,5 +1,7 @@
 # Special Witnesses for Christ
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1984 General Conference*
@@ -8,7 +10,7 @@ By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 This is a glorious occasion. It is April, the season of spring in this hemisphere, when there is a new stirring of life in all of nature. Soon it will be Easter, the time when the Christian world commemorates the resurrection from the dead of the Son of God.
 
-We who are assembled in this great general conference of The Church of Jesus Christ of Latter-day Saints give our testimony to all the world that Jesus is the Christ, the living Son of the living God; that he came to earth in the meridian of time, the offspring of Deity; that he walked the roads of Palestine, declaring the truths of the eternal gospel, healing the sick, raising the dead, causing the blind to see, and bringing the transcendent messianic message of hope to all who would hear; that he was taken by evil men, condemned, and crucified on Calvary’s Hill; that he rose the third day, the firstfruits of them that slept, the conqueror of death, the master of eternal life; that “as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]); that he and his Father, the great Elohim, appeared to the boy Joseph Smith in the spring of 1820, ushering in this, the dispensation of the fulness of times; that he stands at the head of this church which bears his name; that in fulfillment of Isaiah’s prophecy, the government of the kingdom of God is upon his shoulder, and his name is “called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].)
+We who are assembled in this great general conference of The Church of Jesus Christ of Latter-day Saints give our testimony to all the world that Jesus is the Christ, the living Son of the living God; that he came to earth in the meridian of time, the offspring of Deity; that he walked the roads of Palestine, declaring the truths of the eternal gospel, healing the sick, raising the dead, causing the blind to see, and bringing the transcendent messianic message of hope to all who would hear; that he was taken by evil men, condemned, and crucified on Calvary’s Hill; that he rose the third day, the firstfruits of them that slept, the conqueror of death, the master of eternal life; that “as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]); that he and his Father, the great Elohim, appeared to the boy Joseph Smith in the spring of 1820, ushering in this, the dispensation of the fulness of times; that he stands at the head of this church which bears his name; that in fulfillment of Isaiah’s prophecy, the government of the kingdom of God is upon his shoulder, and his name is “called Wonderful, Counsellor, The mighty God, The everlasting Father, The Prince of Peace.” ([[Isaiah 9.6|Isa. 9:6]].)
 
 I bear solemn witness of him and of his unique and singular place in the plan of eternal salvation of God our Eternal Father. I bear witness of these things by the power and authority of the holy apostleship in me vested.
 
@@ -40,13 +42,13 @@ It is significant to me that the Lord chose those who should walk next to him on
 
 Matthew records:
 
-“And when he had called unto him his twelve disciples, he gave them power against unclean spirits, to cast them out, and to heal all manner of sickness and all manner of disease. …
+“And when he had called unto him his twelve disciples, he gave them power against unclean spirits, to cast them out, and to heal all manner of sickness and all manner of disease. …
 
 “These twelve Jesus sent forth, and commanded them: …
 
 “As ye go, preach, saying, The kingdom of heaven is at hand.
 
-“Heal the sick, cleanse the lepers, raise the dead, cast out devils: freely ye have received, freely give. …
+“Heal the sick, cleanse the lepers, raise the dead, cast out devils: freely ye have received, freely give. …
 
 “For it is not ye that speak, but the Spirit of your Father which speaketh in you.” ([[Matthew 10.1|Matt. 10:1, 5, 7, 8, 20]][[Matthew 10.5|]][[Matthew 10.7|]][[Matthew 10.8|]][[Matthew 10.20|]].)
 
@@ -64,7 +66,7 @@ The Three Witnesses to the Book of Mormon—Oliver Cowdery, David Whitmer, and M
 
 “After the question was discussed, … President Joseph Smith, Jun. gave the following decision:
 
-“They are the Twelve Apostles, who are called to the office of the Traveling High Council, who are to preside over the churches of the Saints, among the Gentiles, where there is no presidency established; and they are to travel and preach among the Gentiles, until the Lord shall command them to go to the Jews. They are to hold the keys of this ministry, to unlock the door of the Kingdom of heaven unto all nations, and to preach the Gospel to every creature. This is the power, authority, and virtue in their apostleship.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 74.)
+“They are the Twelve Apostles, who are called to the office of the Traveling High Council, who are to preside over the churches of the Saints, among the Gentiles, where there is no presidency established; and they are to travel and preach among the Gentiles, until the Lord shall command them to go to the Jews. They are to hold the keys of this ministry, to unlock the door of the Kingdom of heaven unto all nations, and to preach the Gospel to every creature. This is the power, authority, and virtue in their apostleship.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 74.)
 
 As set forth in the further revelations, they are to work under the direction of the First Presidency and to go forth as “special witnesses of the name of Christ in all the world.” ([[D&C 107.23|D&C 107:23]].)
 
@@ -89,8 +91,3 @@ May God bless each of you wherever you may be. May your faith strengthen as you 
 
 
 
-
-
-
-
-#Priesthood #Quorum_Of_The_Twelve_Apostles

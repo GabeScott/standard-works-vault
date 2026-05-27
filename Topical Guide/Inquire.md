@@ -1,7 +1,6 @@
 # Inquire
 
-
-*See also* [[Ask.md|Ask]]; [[Entreat.md|Entreat]]; [[Prayer, Pray.md|Prayer]]; [[Question.md|Question]]; [[Seek, Sought.md|Seek]]
+*See also* [[Ask.md|Ask]]; [[Entreat.md|Entreat]]; [[Prayer.md|Prayer]]; [[Question.md|Question]]; [[Seek.md|Seek]]
 
 We will call the damsel, and *inquire* at her mouth, [[Genesis 24.57|Genesis 24:57]].
 
@@ -15,7 +14,7 @@ beauty of the Lord, and to *inquire* in his temple, [[Psalms 27.4|Psalms 27:4]].
 
 they returned and *inquired* early after God, [[Psalms 78.34|Psalms 78:34]].
 
-I will yet ... be *inquired* of by the house of Israel, [[Ezekiel 36.37|Ezekiel 36:37]].
+I will yet … be *inquired* of by the house of Israel, [[Ezekiel 36.37|Ezekiel 36:37]].
 
 have not sought the Lord, nor *inquired* for him, [[Zephaniah 1.6|Zephaniah 1:6]].
 
@@ -43,6 +42,6 @@ if thou wilt *inquire*, thou shalt know mysteries, [[D&C 6.11|D&C 6:11]].
 
 as often as thou hast *inquired* thou hast received, [[D&C 6.14|D&C 6:14]].
 
-case of difficulty ... the president may *inquire*, [[D&C 102.23|D&C 102:23]].
+case of difficulty … the president may *inquire*, [[D&C 102.23|D&C 102:23]].
 
 ends of the earth shall *inquire* after thy name, [[D&C 122.1|D&C 122:1]].

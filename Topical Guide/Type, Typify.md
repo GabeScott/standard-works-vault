@@ -1,9 +1,8 @@
 # Type, Typify
 
-
 *See also* [[Jesus Christ, Types of, in Anticipation.md|Jesus Christ, Types of, in Anticipation]]; [[Jesus Christ, Types of, in Memory.md|Jesus Christ, Types of, in Memory]]; [[Symbolism.md|Symbolism]]
 
-this end hath the law of Moses ... the *typifying* of him, [[2 Nephi 11.4|2 Nephi 11:4]].
+this end hath the law of Moses … the *typifying* of him, [[2 Nephi 11.4|2 Nephi 11:4]].
 
 *types*, and shadows showed he unto them, [[Mosiah 3.15|Mosiah 3:15]].
 

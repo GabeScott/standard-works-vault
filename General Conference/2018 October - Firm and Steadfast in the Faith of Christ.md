@@ -1,6 +1,8 @@
 # Firm and Steadfast in the Faith of Christ
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -14,7 +16,7 @@ The reign of Ahab was one of the periods of apostasy in the northern kingdom of 
 
 You will recall that the priests of Baal clamored to their nonexistent god for hours to send down fire, but “there was neither voice, nor any to answer, nor any that regarded.”[^5] When it was Elijah’s turn, he repaired the broken-down altar of the Lord, laid the wood and the offering upon it, and then ordered that it all be doused with water, not once but three times. There was no doubt that neither he nor any other human power could light the fire.
 
-“And it came to pass at the time of the offering of the evening sacrifice, that Elijah the prophet came near, and said, Lord God of Abraham, Isaac, and of Israel, let it be known this day that thou art God in Israel, and that I am thy servant, and that I have done all these things at thy word. …
+“And it came to pass at the time of the offering of the evening sacrifice, that Elijah the prophet came near, and said, Lord God of Abraham, Isaac, and of Israel, let it be known this day that thou art God in Israel, and that I am thy servant, and that I have done all these things at thy word. …
 
 “Then the fire of the Lord fell, and consumed the burnt sacrifice, and the wood, and the stones, and the dust, and licked up the water that was in the trench.
 
@@ -30,7 +32,7 @@ Today Elijah might say:
 
 - Either Joseph Smith saw and conversed with the Father and the Son that spring day of 1820, or he did not, but if he did, then follow the prophetic mantle, including the keys of sealing that I, Elijah, bestowed upon him.
 
-In the most recent general conference, President Russell M. Nelson declared: “You don’t have to wonder about what is true \[see [[Moroni 10.5|Moroni 10:5]]]. You do not have to wonder whom you can safely trust. Through personal revelation, you can receive your own witness that the Book of Mormon is the word of God, that Joseph Smith is a prophet, and that this is the Lord’s Church. Regardless of what others may say or do, no one can ever take away a witness borne to your heart and mind about what is true.”[^8]
+In the most recent general conference, President Russell M. Nelson declared: “You don’t have to wonder about what is true \[see [[Moroni 10.5|Moroni 10:5)]]. You do not have to wonder whom you can safely trust. Through personal revelation, you can receive your own witness that the Book of Mormon is the word of God, that Joseph Smith is a prophet, and that this is the Lord’s Church. Regardless of what others may say or do, no one can ever take away a witness borne to your heart and mind about what is true.”[^8]
 
 When James promised that God “giveth to all men liberally” who seek His wisdom,[^9] he also cautioned:
 
@@ -58,7 +60,7 @@ To persevere firm and steadfast in the faith of Christ requires that the gospel 
 
 “And … ye shall be my people, and I will be your God.”[^16]
 
-This is the covenant we make by our baptism and in temple ordinances. But some have not yet fully received the gospel of Jesus Christ into their lives. Although, as Paul says, they were “buried with \[Christ\] by baptism,” they are still missing the part that “like as Christ was raised up from the dead … , even so we … should walk in \[a\] newness of life.”[^17] The gospel does not yet define them. They are not yet centered in Christ. They are selective about the doctrines and commandments they will follow and where and when they will serve in the Church. By contrast, it is in keeping their covenants with exactness that those “who are the elect according to the covenant”[^18] avoid deception and remain firm in the faith of Christ.
+This is the covenant we make by our baptism and in temple ordinances. But some have not yet fully received the gospel of Jesus Christ into their lives. Although, as Paul says, they were “buried with \[Christ\] by baptism,” they are still missing the part that “like as Christ was raised up from the dead … , even so we … should walk in \[a\] newness of life.”[^17] The gospel does not yet define them. They are not yet centered in Christ. They are selective about the doctrines and commandments they will follow and where and when they will serve in the Church. By contrast, it is in keeping their covenants with exactness that those “who are the elect according to the covenant”[^18] avoid deception and remain firm in the faith of Christ.
 
 Most of us find ourselves at this moment on a continuum between a socially motivated participation in gospel rituals on the one hand and a fully developed, Christlike commitment to the will of God on the other. Somewhere along that continuum, the good news of the gospel of Jesus Christ enters into our heart and takes possession of our soul. It may not happen in an instant, but we should all be moving toward that blessed state.
 
@@ -72,7 +74,7 @@ A man who grew up in the Church, served as a full-time missionary, and married a
 
 A husband and wife who have consistently and happily followed the counsel of the Brethren in their lives were grieved by the difficulty they experienced in having children. They expended substantial funds working with competent medical professionals, and, after a time, they were blessed with a son. Tragically, however, after only about a year, the baby was the victim of an accident that was no one’s fault but that left him semicomatose, with significant brain damage. He has received the best of care, but doctors cannot predict how things will unfold going forward. The child this couple worked and prayed so hard to bring into the world has in a sense been taken away, and they don’t know if he will be returned to them. They struggle now to care for their baby’s critical needs while meeting their other responsibilities. In this supremely difficult moment, they have turned to the Lord. They rely on the “daily bread” they receive from Him. They are aided by compassionate friends and family and strengthened by priesthood blessings. They have drawn closer to one another, their union perhaps now deeper and more complete than might otherwise have been possible.
 
-On July 23, 1837, the Lord directed a revelation to the then-President of the Quorum of the Twelve Apostles, Thomas B. Marsh. It included the following:
+On July 23, 1837, the Lord directed a revelation to the then-President of the Quorum of the Twelve Apostles, Thomas B. Marsh. It included the following:
 
 “And pray for thy brethren of the Twelve. Admonish them sharply for my name’s sake, and let them be admonished for all their sins, and be ye faithful before me unto my name.
 
@@ -87,21 +89,21 @@ Always remember the promise of good things to come, both now and hereafter, for 
 
 
 
-[^1]: See Bible Dictionary, “[Baal](https://churchofjesuschrist.org/study/scriptures/bd/baal?lang=eng).”
+[^1]: See Bible Dictionary, “[[BD Baal|Baal]].”
 
-[^2]: [[1 Kings 18.21|1 Kings 18:21]].
+[^2]: [[1 Kings 18.21|1 Kings 18:21]].
 
-[^3]: [[1 Kings 18.23|1 Kings 18:23]].
+[^3]: [[1 Kings 18.23|1 Kings 18:23]].
 
-[^4]: [[1 Kings 18.24|1 Kings 18:24]].
+[^4]: [[1 Kings 18.24|1 Kings 18:24]].
 
-[^5]: [[1 Kings 18.29|1 Kings 18:29]].
+[^5]: [[1 Kings 18.29|1 Kings 18:29]].
 
-[^6]: [[1 Kings 18.36|1 Kings 18:36, 38–39]][[1 Kings 18.38|]][[1 Kings 18.39|]].
+[^6]: [[1 Kings 18.36|1 Kings 18:36, 38–39]][[1 Kings 18.38|]][[1 Kings 18.39|]].
 
 [^7]: Introduction to the Book of Mormon.
 
-[^8]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95.
+[^8]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 95.
 
 [^9]: See [[James 1.5|James 1:5]].
 
@@ -109,7 +111,7 @@ Always remember the promise of good things to come, both now and hereafter, for 
 
 [^11]: [[John 8.29|John 8:29]]; emphasis added.
 
-[^12]: [[3 Nephi 6.14|3 Nephi 6:14]]; see also [[Alma 27.27|Alma 27:27]].
+[^12]: [[3 Nephi 6.14|3 Nephi 6:14]]; see also [[Alma 27.27|Alma 27:27]].
 
 [^13]: [[Alma 57.27|Alma 57:27]].
 
@@ -117,13 +119,13 @@ Always remember the promise of good things to come, both now and hereafter, for 
 
 [^15]: [[Acts 2.42|Acts 2:42]].
 
-[^16]: [[Ezekiel 36.26|Ezekiel 36:26–28]][[Ezekiel 36.27|]][[Ezekiel 36.28|]]; see also [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^16]: [[Ezekiel 36.26|Ezekiel 36:26–28]][[Ezekiel 36.27|]][[Ezekiel 36.28|]]; see also [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
 [^17]: [[Romans 6.4|Romans 6:4]].
 
 [^18]: See [[Joseph Smith Matthew 1.22|Joseph Smith—Matthew 1:22–23]][[Joseph Smith Matthew 1.23|]]; see also [[Matthew 24.24|Matthew 24:24–25]][[Matthew 24.25|]].
 
-[^19]: [[1 Nephi 20.10|1 Nephi 20:10]]; see also [[Isaiah 48.10|Isaiah 48:10]].
+[^19]: [[1 Nephi 20.10|1 Nephi 20:10]]; see also [[Isaiah 48.10|Isaiah 48:10]].
 
 [^20]: As the Lord said to a 22-year-old Joseph Smith following the loss of part of the Book of Mormon translation: “You should not have feared man more than God. … He would have extended his arm and supported you against all the fiery darts of the adversary; and he would have been with you in every time of trouble” ([[D&C 3.7|Doctrine and Covenants 3:7–8]][[D&C 3.8|]]). Alma testified that after his conversion, “I have been supported under trials and troubles of every kind, yea, and in all manner of afflictions; yea, God has delivered me from prison, and from bonds, and from death; yea, and I do put my trust in him, and he will still deliver me. And I know that he will raise me up at the last day, to dwell with him in glory” ([[Alma 36.27|Alma 36:27–28]][[Alma 36.28|]]).
 
@@ -133,11 +135,9 @@ Always remember the promise of good things to come, both now and hereafter, for 
 
 [^23]: [[Luke 22.32|Luke 22:32]].
 
-[^24]: See [[Luke 9.23|Luke 9:23]]. President Russell M. Nelson reminds us, “Nothing opens the heavens quite like the combination of increased purity, exact obedience, earnest seeking, daily feasting on the words of Christ in the Book of Mormon \[see [[2 Nephi 32.3|2 Nephi 32:3]]\], and regular time committed to temple and family history work” (“[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 95).
+[^24]: See [[Luke 9.23|Luke 9:23]]. President Russell M. Nelson reminds us, “Nothing opens the heavens quite like the combination of increased purity, exact obedience, earnest seeking, daily feasting on the words of Christ in the Book of Mormon \[see [[2 Nephi 32.3|2 Nephi 32:3]]\], and regular time committed to temple and family history work” (“[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 95).
 
 [^25]: [[Enos 1.3|Enos 1:3]].
 
+[^26]: [[Jacob 3.2|Jacob 3:2]].
 
-
-
-#Adversity #Conversion #Covenants #Faith #Jesus_Christ

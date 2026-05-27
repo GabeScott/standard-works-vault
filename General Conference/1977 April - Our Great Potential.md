@@ -1,6 +1,8 @@
 # Our Great Potential
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -16,7 +18,7 @@ I have been called to speak in numerous funerals for people whom I have known, p
 
 We remember when the Lord Jesus was in the hinder part of the ship and was sleeping on a pillow, and his disciples awakened him and said unto him, “Master, carest thou not that we perish?
 
-“And he arose, and rebuked the wind, and said unto the sea, Peace, be still. And the wind ceased, and there was a great calm. …
+“And he arose, and rebuked the wind, and said unto the sea, Peace, be still. And the wind ceased, and there was a great calm. …
 
 “And they … said \[to themselves\], What manner of man is this, that even the wind and the sea obey him?” ([[Mark 4.38|Mark 4:38–39, 41]][[Mark 4.39|]][[Mark 4.41|]].)
 
@@ -52,7 +54,7 @@ Could you produce a spirit? Has anyone whom you know ever produced a spirit? Thi
 
 Let me mention one more thing. While we are in the mortal body we cannot “fashion kingdoms \[or\] organize matter, for \[that is\] beyond our capacity and calling, beyond this world. In the resurrection, men who have been faithful and diligent in all things in the flesh, \[who\] have kept their first and second estate, and \[are\] worthy to be crowned Gods, even the sons of God, will be ordained to organize matter. How much matter do you suppose there is between here and some of the fixed stars which we can see? Enough to frame many, very many millions of such earths as this, yet it is now so diffused, clear and pure, that we look through it and behold the stars. Yet the matter is there. Can you form any conception of this? Can you form any idea of the minuteness of matter?” (*JD,* 15:137).
 
-Can you realize even slightly how relatively little we know? As Paul said, “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].)
+Can you realize even slightly how relatively little we know? As Paul said, “Eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[1 Corinthians 2.9|1 Cor. 2:9]].)
 
 We talk about the gospel in its fulness; yet we realize that a large part is still available to us as we prepare, as we perfect our lives, and as we become more like our God. Are we ready for it? In the Doctrine and Covenants we read of Abraham, who has already attained godhood. He has received many powers, undoubtedly, that we would like to have and will eventually get if we continue faithful and perfect our lives.
 
@@ -102,8 +104,3 @@ I ask the Lord to bless us as we go to our homes, as we train our children, as w
 
 
 
-
-
-
-
-#Ordinances #Priesthood #Resurrection

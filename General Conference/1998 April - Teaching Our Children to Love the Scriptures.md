@@ -1,5 +1,7 @@
 # Teaching Our Children to Love the Scriptures
 
+Gordon B. Hinckley
+
 By Anne G. Wirthlin - *First Counselor in the Primary General Presidency*
 
 *Given in the April session of the 1998 General Conference*
@@ -8,11 +10,11 @@ By Anne G. Wirthlin - *First Counselor in the Primary General Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/04/teaching-our-children-to-love-the-scriptures?lang=eng)
 
-While teaching the Nephite people, the Savior affirmed the words of the prophet Isaiah, who prophesied of Israel in the latter days: “For a small moment have I forsaken thee, but with great mercies will I gather thee. …
+While teaching the Nephite people, the Savior affirmed the words of the prophet Isaiah, who prophesied of Israel in the latter days: “For a small moment have I forsaken thee, but with great mercies will I gather thee. …
 
-“… For the mountains shall depart and the hills be removed, but my kindness shall not depart from thee, neither shall the covenant of my peace be removed, saith the Lord” ([[3 Nephi 22.7|3 Ne. 22:7, 10]][[3 Nephi 22.10|]]).
+“… For the mountains shall depart and the hills be removed, but my kindness shall not depart from thee, neither shall the covenant of my peace be removed, saith the Lord” ([[3 Nephi 22.7|3 Ne. 22:7, 10]][[3 Nephi 22.10|]]).
 
-The Savior then revealed one of the ways in which His covenant of peace would be preserved for the righteous in the last days: “And all thy children shall be taught of the Lord; and great shall be the peace of thy children” ([[3 Nephi 22.13|3 Ne. 22:13]]).
+The Savior then revealed one of the ways in which His covenant of peace would be preserved for the righteous in the last days: “And all thy children shall be taught of the Lord; and great shall be the peace of thy children” ([[3 Nephi 22.13|3 Ne. 22:13]]).
 
 These words of the Savior are the theme for Primary and are fulfilled in the stated purpose of Primary: to teach children the gospel of Jesus Christ and help them learn to live it.
 
@@ -32,13 +34,13 @@ One Primary leader shared how grateful she was for this focus in Primary. She sa
 
 A very young child’s potential for learning and understanding is far greater than we tend to believe. The exciting possibility is that while children are learning new words daily, they can learn the language of the scriptures. In time, through the guidance of parents and teachers, they will grow in their understanding that Heavenly Father is speaking to them through the scriptures, that the scriptures can help them find answers to their problems.
 
-A friend shared an experience she had with her son, Alex, when their family moved to another location. The move was not easy for Alex. It was difficult for him to go to a new school. He was worried about being away from his home and family, so much so that he didn’t want to go to school. One day his mother read to him the scripture found in [[2 Timothy 1.7|2 Timothy 1:7]]: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.”
+A friend shared an experience she had with her son, Alex, when their family moved to another location. The move was not easy for Alex. It was difficult for him to go to a new school. He was worried about being away from his home and family, so much so that he didn’t want to go to school. One day his mother read to him the scripture found in [[2 Timothy 1.7|2 Timothy 1:7]]: “For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind.”
 
 She said, “I told Alex how this scripture had helped me many times when I felt afraid.” Through her love and by sharing her personal experience with the scripture, she helped Alex overcome his fear, but more important, she made it possible for him to have an experience with the scriptures and to understand how they can be a power in his life.
 
-Nephi said, “For my soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children” ([[2 Nephi 4.15|2 Ne. 4:15]]). How can we engage our children in learning from the scriptures so that the testimonies of the prophets will make a difference in their lives? We have been counseled to read the scriptures together as families. When scripture reading and sharing is a tradition in our families, then our children are more likely to make it a habit in their personal lives.
+Nephi said, “For my soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children” ([[2 Nephi 4.15|2 Ne. 4:15]]). How can we engage our children in learning from the scriptures so that the testimonies of the prophets will make a difference in their lives? We have been counseled to read the scriptures together as families. When scripture reading and sharing is a tradition in our families, then our children are more likely to make it a habit in their personal lives.
 
-When our children were young, we felt it was important to establish this tradition in our family. We decided to read the Book of Mormon with the goal to complete the book by the end of the school year. Each morning we read a chapter before breakfast, and we reached our goal. While I would not wish to take anything away from the good things that came from that experience for all of us, we reflected in the end that perhaps our focus was more on our goal than on what we were learning in the process. In the early-morning rush hour that ended at the breakfast table, we had little time to share ideas or ponder on the meaning of God’s word in our lives. When the Savior taught the Nephites, He said, “Go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand, and prepare your minds for the morrow, and I come unto you again” ([[3 Nephi 17.3|3 Ne. 17:3]]).
+When our children were young, we felt it was important to establish this tradition in our family. We decided to read the Book of Mormon with the goal to complete the book by the end of the school year. Each morning we read a chapter before breakfast, and we reached our goal. While I would not wish to take anything away from the good things that came from that experience for all of us, we reflected in the end that perhaps our focus was more on our goal than on what we were learning in the process. In the early-morning rush hour that ended at the breakfast table, we had little time to share ideas or ponder on the meaning of God’s word in our lives. When the Savior taught the Nephites, He said, “Go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand, and prepare your minds for the morrow, and I come unto you again” ([[3 Nephi 17.3|3 Ne. 17:3]]).
 
 The Savior has given us a pattern to follow as we study the scriptures. We hear the word, we ponder upon its meaning, we ask our Heavenly Father to help us understand, and then our minds and hearts are prepared to receive the promised blessings. Pondering is more than reading words; it is searching for meanings that will help us as we relate to one another and as we make choices in our lives. It is allowing the word to move from our minds to our hearts. The Spirit bears witness to our hearts as we prayerfully seek to know the things of our Heavenly Father. When we have that witness and knowledge, we think and live and relate to each other in more Christlike ways.
 
@@ -48,15 +50,10 @@ The Prophet Joseph was prepared for the work he was to do through devoted, wise 
 
 President Hinckley has counseled parents: “Read to your children. Read the story of the Son of God. Read to them from the New Testament. Read to them from the Book of Mormon. It will take time, and you are very busy, but it will prove to be a great blessing in your lives as well as in their lives. And there will grow in their hearts a great love for the Savior of the world, the only perfect man who walked the earth. He will become to them a very real living being, and His great atoning sacrifice, as they grow to manhood and womanhood, will take on a new and more glorious meaning in their lives” (quoted in *Church News,* 6 Dec. 1997, 2). Brothers and sisters, that glorious promise from our prophet can be ours if we read to our children from the scriptures.
 
-There can be no greater joy than to know that our children love the Lord, no greater peace than that which comes when we feel of His love and understand the meaning of His atoning sacrifice. That spirit which comes when we share sacred things of the heart will bond us together as families. John expressed it well: “I have no greater joy than to hear that my children walk in truth” ([[3 John 1.4|3 Jn. 1:4]]).
+There can be no greater joy than to know that our children love the Lord, no greater peace than that which comes when we feel of His love and understand the meaning of His atoning sacrifice. That spirit which comes when we share sacred things of the heart will bond us together as families. John expressed it well: “I have no greater joy than to hear that my children walk in truth” ([[3 John 1.4|3 Jn. 1:4]]).
 
 It is my testimony that this will be our blessing as we follow the counsel of our prophet, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Children #Family #Joseph_Smith #Peace #Primary #Scripture_Study #Scriptures

@@ -1,19 +1,18 @@
 # Jesus Christ, Types of, in Anticipation
 
-
 *See also* [[Passover.md|Passover]]; [[Sacrifice.md|Sacrifice]]; [[Symbolism.md|Symbolism]]
 
-Abel ... brought of the *firstlings* of his flock, [[Genesis 4.4|Genesis 4:4]] ([[Moses 5.20|Moses 5:20]]).
+Abel … brought of the *firstlings* of his flock, [[Genesis 4.4|Genesis 4:4]] ([[Moses 5.20|Moses 5:20]]).
 
 God will provide himself a *lamb* for a burnt offering, [[Genesis 22.8|Genesis 22:8]].
 
 *lamb* shall be without blemish, a male, [[Exodus 12.5|Exodus 12:5]] ([[1 Peter 1.19|1 Peter 1:19]]).
 
-take you a lamb ... and kill the *passover*, [[Exodus 12.21|Exodus 12:21]] ([[Revelation 5.6|Revelation 5:6]]).
+take you a lamb … and kill the *passover*, [[Exodus 12.21|Exodus 12:21]] ([[Revelation 5.6|Revelation 5:6]]).
 
-*manna* ... the bread which the Lord hath given, [[Exodus 16.15|Exodus 16:15]] ([[Exodus 16.4|Exodus 16:4]]; [[John 6.51|John 6:51]]).
+*manna* … the bread which the Lord hath given, [[Exodus 16.15|Exodus 16:15]] ([[Exodus 16.4|Exodus 16:4]]; [[John 6.51|John 6:51]]).
 
-smite the rock ... come *water* out of it, [[Exodus 17.6|Exodus 17:6]] ([[1 Corinthians 10.4|1 Corinthians 10:4]]).
+smite the rock … come *water* out of it, [[Exodus 17.6|Exodus 17:6]] ([[1 Corinthians 10.4|1 Corinthians 10:4]]).
 
 Behold the *blood* of the covenant, [[Exodus 24.8|Exodus 24:8]].
 
@@ -43,13 +42,13 @@ Who serve unto the example and *shadow* of heavenly things, [[Hebrews 8.5|Hebrew
 
 a *figure* for the time then present, [[Hebrews 9.9|Hebrews 9:9]].
 
-sanctified through the *offering* ... of Jesus Christ, [[Hebrews 10.10|Hebrews 10:10]].
+sanctified through the *offering* … of Jesus Christ, [[Hebrews 10.10|Hebrews 10:10]].
 
 offereth himself a *sacrifice* for sin, [[2 Nephi 2.7|2 Nephi 2:7]].
 
-this end hath the law of Moses ... the *typifying* of him, [[2 Nephi 11.4|2 Nephi 11:4]] ([[Galatians 3.24|Galatians 3:24]]; [[Hebrews 10.1|Hebrews 10:1]]; [[Mosiah 16.14|Mosiah 16:14]]; [[Alma 25.15|Alma 25:15]]; [[Alma 34.14|Alma 34:14]]).
+this end hath the law of Moses … the *typifying* of him, [[2 Nephi 11.4|2 Nephi 11:4]] ([[Galatians 3.24|Galatians 3:24]]; [[Hebrews 10.1|Hebrews 10:1]]; [[Mosiah 16.14|Mosiah 16:14]]; [[Alma 25.15|Alma 25:15]]; [[Alma 34.14|Alma 34:14]]).
 
-Abraham ... offering up his son Isaac, which is a *similitude* of God, [[Jacob 4.5|Jacob 4:5]].
+Abraham … offering up his son Isaac, which is a *similitude* of God, [[Jacob 4.5|Jacob 4:5]].
 
 *types*, and shadows showed he unto them, [[Mosiah 3.15|Mosiah 3:15]].
 

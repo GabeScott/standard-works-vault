@@ -1,6 +1,8 @@
 # “We Believe in Being Honest”
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -32,7 +34,7 @@ Christ is our all, and without Him we are nothing.
 
 We also believe in the Holy Ghost, the third member of the Godhead. As we come into the Church we are blessed with the gift of the Holy Ghost, which will guide us all our lives if we will but follow its promptings.
 
-I am very grateful indeed for the marvelous expression we’ve just received from Brother Ashton about honesty. It is so basic to our religion. I am grateful because we also have as one of our Articles of Faith a declaration that we believe in honesty, truth, kindness, and virtue. That article, you remember, reads in part, “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men.” ([[Articles of Faith 1.13|A of F 1:13]].)
+I am very grateful indeed for the marvelous expression we’ve just received from Brother Ashton about honesty. It is so basic to our religion. I am grateful because we also have as one of our Articles of Faith a declaration that we believe in honesty, truth, kindness, and virtue. That article, you remember, reads in part, “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men.” ([[Articles of Faith 1.13|A of F 1:13]].)
 
 Here we come to the point where faith and works meet each other. Here we ask ourselves: Do our works verify our faith, or do they belie our professions? Do we really do good to all men as the article of faith says?
 
@@ -92,7 +94,7 @@ The gospel is a way of life.
 
 Its purpose is to help us become like Christ.
 
-Did He not ask, “What manner of men ought ye to be?” And did He not reply “Even as I am”? ([[3 Nephi 27.27|3 Ne. 27:27]].)
+Did He not ask, “What manner of men ought ye to be?” And did He not reply “Even as I am”? ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 Did He not command us to seek perfection, even as our Father which is in heaven is perfect? (See [[Matthew 5.48|Matt. 5:48]].) He means it. These are His laws. They are not mental exercises. They are commandments, and He will hold us personally accountable for our obedience or disobedience.
 
@@ -118,7 +120,7 @@ Jesus is gracious—that is, He is kind, merciful, compassionate. It is out of H
 
 But to reject His truth is to reject His grace, His mercy, His kindness, His compassion. It is to say that we want none of it. And of one thing we may be sure: if such is our attitude, we most certainly shall have none of it.
 
-Obedience is the thing. What did Samuel say to Saul when he tried to serve two masters? “To obey is better than sacrifice, and to hearken than the fat of rams.” ([[1 Samuel 15.22|1 Sam. 15:22]].)
+Obedience is the thing. What did Samuel say to Saul when he tried to serve two masters? “To obey is better than sacrifice, and to hearken than the fat of rams.” ([[1 Samuel 15.22|1 Sam. 15:22]].)
 
 If we try to serve two masters, are we any better than Saul? If we try to deceive the brethren by professions of piety, hiding our sins from them, are we any better than Ananias and Sapphira, who were stricken at the feet of the Apostle Peter when they lied to him? (See [[Acts 5.1|Acts 5:1–10]][[Acts 5.2|]][[Acts 5.3|]][[Acts 5.4|]][[Acts 5.5|]][[Acts 5.6|]][[Acts 5.7|]][[Acts 5.8|]][[Acts 5.9|]][[Acts 5.10|]].)
 
@@ -142,15 +144,10 @@ What shall we do with the covenants we have made, promising to serve Him—this 
 
 What shall we do with the sacrament of the Lord’s Supper wherein we pledge to high heaven, by the very crucifixion of the Christ, that we will always remember Him and keep His commandments which He has given us? (See [[D&C 20.77|D&C 20:77]].) Shall we repudiate it by our sins—or shall we bow our heads in humility and say, “Not as I will, but as thou wilt”?
 
-Though I speak with the tongues of men and of angels and have not grace, mercy, honesty, kindness, and the charity of Christ, I am as sounding brass or a tinkling cymbal. (See [[1 Corinthians 13.1|1 Cor. 13:1]].)
+Though I speak with the tongues of men and of angels and have not grace, mercy, honesty, kindness, and the charity of Christ, I am as sounding brass or a tinkling cymbal. (See [[1 Corinthians 13.1|1 Cor. 13:1]].)
 
 Humble obedience is the thing. It alone can save us. To this I testify, in the sacred name of the Lord Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Honesty #Obedience

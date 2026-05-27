@@ -1,7 +1,6 @@
 # Fear of God
 
-
-*See also* [[Dread.md|Dread]]; [[Honor.md|Honor]]; [[Obedience, Obedient, Obey.md|Obedience]]; [[Respect.md|Respect]]; [[Reverence.md|Reverence]]; [[Worship.md|Worship]]
+*See also* [[Dread.md|Dread]]; [[Honor.md|Honor]]; [[Obedience.md|Obedience]]; [[Respect.md|Respect]]; [[Reverence.md|Reverence]]; [[Worship.md|Worship]]
 
 *Fear* not, Abram: I am thy shield, [[Genesis 15.1|Genesis 15:1]].
 
@@ -15,13 +14,13 @@ midwives *feared* God, [[Exodus 1.17|Exodus 1:17]].
 
 He that *feared* the word of the Lord, [[Exodus 9.20|Exodus 9:20]].
 
-shalt provide ... able men, such as *fear* God, [[Exodus 18.21|Exodus 18:21]].
+shalt provide … able men, such as *fear* God, [[Exodus 18.21|Exodus 18:21]].
 
 hear my words, that they may learn to *fear* me, [[Deuteronomy 4.10|Deuteronomy 4:10]].
 
 Thou shalt *fear* the Lord thy God, [[Deuteronomy 6.13|Deuteronomy 6:13]] ([[Joshua 24.14|Joshua 24:14]]; [[1 Samuel 12.24|1 Samuel 12:24]]).
 
-*fear* the Lord ... for our good always, [[Deuteronomy 6.24|Deuteronomy 6:24]].
+*fear* the Lord … for our good always, [[Deuteronomy 6.24|Deuteronomy 6:24]].
 
 God require of thee, but to *fear* the Lord, [[Deuteronomy 10.12|Deuteronomy 10:12]] ([[Micah 6.8|Micah 6:8]]).
 
@@ -79,7 +78,7 @@ it shall be well with them that *fear* God, [[Ecclesiastes 8.12|Ecclesiastes 8:1
 
 *Fear* God, and keep his commandments, [[Ecclesiastes 12.13|Ecclesiastes 12:13]].
 
-shall go ... into the caves of the earth, for *fear* of the Lord, [[Isaiah 2.19|Isaiah 2:19]].
+shall go … into the caves of the earth, for *fear* of the Lord, [[Isaiah 2.19|Isaiah 2:19]].
 
 let him be your *fear*, [[Isaiah 8.13|Isaiah 8:13]].
 
@@ -97,7 +96,7 @@ Dost not thou *fear* God, [[Luke 23.40|Luke 23:40]].
 
 edified; and walking in the *fear* of the Lord, [[Acts 9.31|Acts 9:31]].
 
-he that *feareth* him ... is accepted, [[Acts 10.35|Acts 10:35]].
+he that *feareth* him … is accepted, [[Acts 10.35|Acts 10:35]].
 
 ye that *fear* God, give audience, [[Acts 13.16|Acts 13:16]].
 
@@ -105,15 +104,15 @@ work out your own salvation with *fear*, [[Philippians 2.12|Philippians 2:12]] (
 
 in singleness of heart, *fearing* God, [[Colossians 3.22|Colossians 3:22]].
 
-serve God ... with reverence and godly *fear*, [[Hebrews 12.28|Hebrews 12:28]].
+serve God … with reverence and godly *fear*, [[Hebrews 12.28|Hebrews 12:28]].
 
 *Fear* God, and give glory to him, [[Revelation 14.7|Revelation 14:7]] ([[D&C 88.104|D&C 88:104]]).
 
 *fear* of the Lord had come upon them, [[Mosiah 4.1|Mosiah 4:1]].
 
-Nephites ... did *fear* their God, [[3 Nephi 4.10|3 Nephi 4:10]].
+Nephites … did *fear* their God, [[3 Nephi 4.10|3 Nephi 4:10]].
 
-brother of Jared fell down ... struck with *fear*, [[Ether 3.6|Ether 3:6]].
+brother of Jared fell down … struck with *fear*, [[Ether 3.6|Ether 3:6]].
 
 they who do not *fear* me, neither keep my commandments, [[D&C 10.56|D&C 10:56]].
 

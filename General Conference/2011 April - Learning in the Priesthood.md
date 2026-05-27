@@ -1,6 +1,8 @@
 # Learning in the Priesthood
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -36,7 +38,7 @@ The second key to increased learning is to have love for each other that comes f
 
 In the early days of the Church in this dispensation, he received a command from God to build strength in the priesthood. He was directed to create schools for priesthood holders. The Lord set the requirement that there be love for each other among those who were to teach and to be taught. Here are the words of the Lord about creating a place of priesthood learning and what it was like for those who were to learn in it:
 
-“Organize yourselves; … establish a house … of learning, … a house of order. …
+“Organize yourselves; … establish a house … of learning, … a house of order. …
 
 “Appoint among yourselves a teacher, and let not all be spokesmen at once; but let one speak at a time and let all listen unto his sayings, that when all have spoken that all may be edified of all, and that every man may have an equal privilege.”[^2]
 
@@ -100,7 +102,7 @@ You may have thought at one time how much better your life would have been if on
 
 If you will be diligent and obedient in the priesthood, treasures of spiritual knowledge will be poured out upon you. You will grow in your power to resist evil and to proclaim the truth that leads to salvation. You will find joy in the happiness of those you lead toward exaltation. Your family will become a place of learning.
 
-I testify that the keys of the priesthood have been restored. President Thomas S. Monson holds and exercises those keys. God lives and knows you perfectly. Jesus Christ lives. You were chosen for the honor of holding the sacred priesthood. In the name of Jesus Christ, amen.
+I testify that the keys of the priesthood have been restored. President Thomas S. Monson holds and exercises those keys. God lives and knows you perfectly. Jesus Christ lives. You were chosen for the honor of holding the sacred priesthood. In the name of Jesus Christ, amen.
 
 
 
@@ -115,8 +117,3 @@ I testify that the keys of the priesthood have been restored. President Thomas 
 
 [^5]: [[D&C 138.56|Doctrine and Covenants 138:56]].
 
-
-
-
-
-#Duty #Leadership #Priesthood #Service

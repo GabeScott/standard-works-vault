@@ -1,4 +1,3 @@
 # Credit
 
-
-*See* [[Debt.md|Debt]]
+*See also* [[Debt.md|Debt]]

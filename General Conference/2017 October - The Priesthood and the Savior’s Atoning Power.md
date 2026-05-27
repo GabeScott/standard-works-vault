@@ -1,6 +1,8 @@
 # The Priesthood and the Savior’s Atoning Power
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+Sharon Eubank
+
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/10/the-priesthood-and-the-saviors-atoning-power?lang=eng)
 
-Picture with me a rocket being maneuvered to a launchpad so it can be readied for liftoff. Now visualize the ignition. Fuel, in a controlled burn, is converted into hot gas that spews out, providing the necessary thrust to propel the rocket into space. Finally, envision the payload, or cargo, that sits atop the rocket. The payload’s worth is fully realized only when it gets where it needs to be and functions as it should. You don’t need to be a rocket scientist to appreciate that an expensive global communications satellite is of little value sitting in a warehouse. The rocket’s mission is simply to deliver a payload.
+Picture with me a rocket being maneuvered to a launchpad so it can be readied for liftoff. Now visualize the ignition. Fuel, in a controlled burn, is converted into hot gas that spews out, providing the necessary thrust to propel the rocket into space. Finally, envision the payload, or cargo, that sits atop the rocket. The payload’s worth is fully realized only when it gets where it needs to be and functions as it should. You don’t need to be a rocket scientist to appreciate that an expensive global communications satellite is of little value sitting in a warehouse. The rocket’s mission is simply to deliver a payload.
 
 This evening I would like to compare *the priesthood that we hold* to a rocket and *the opportunity to benefit from the Savior’s atoning power* to the payload that a rocket delivers.
 
@@ -40,7 +42,7 @@ I came to understand more fully the relationship between the “priesthood” ro
 
 Later, he applied to have his priesthood and temple blessings restored. We set an appointment for Saturday at 10:00 a.m. at the meetinghouse. When I arrived for the earlier interviews, he was already there. He was so anxious to have the priesthood once again, he just could not wait.
 
-During our interview, I showed him the letter explaining that President Thomas S. Monson had personally reviewed his application and authorized the interview. This otherwise stoic young man wept. I then told him that the date of our interview would have no official meaning in his life. He looked puzzled. I informed him that after I restored his blessings, his membership record would show only his original baptism, confirmation, priesthood ordination, and endowment dates. He choked up again.
+During our interview, I showed him the letter explaining that President Thomas S. Monson had personally reviewed his application and authorized the interview. This otherwise stoic young man wept. I then told him that the date of our interview would have no official meaning in his life. He looked puzzled. I informed him that after I restored his blessings, his membership record would show only his original baptism, confirmation, priesthood ordination, and endowment dates. He choked up again.
 
 I asked him to read from the Doctrine and Covenants:
 
@@ -61,15 +63,15 @@ In addition to obeying the laws and ordinances of the gospel yourself, I invite 
 
 
 
-[^1]: See [[1 Nephi 11.31|1 Nephi 11:31]]; [[2 Nephi 2.8|2 Nephi 2:8]].
+[^1]: See [[1 Nephi 11.31|1 Nephi 11:31]]; [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^2]: See [[D&C 121.36|Doctrine and Covenants 121:36]].
 
-[^3]: See [[D&C 42.11|Doctrine and Covenants 42:11]]; see also Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52.
+[^3]: See [[D&C 42.11|Doctrine and Covenants 42:11]]; see also Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52.
 
 [^4]: See [[D&C 124.95|Doctrine and Covenants 124:95, 130, 132]][[D&C 124.130|]][[D&C 124.132|]]. The priesthood a man receives is no more independent of him than Christ’s atoning power is independent of Christ.
 
-[^5]: References to a covenant related to the lesser priesthood are found in [[Numbers 25.10|Numbers 25:10–13]][[Numbers 25.11|]][[Numbers 25.12|]][[Numbers 25.13|]]; [[Nehemiah 13.29|Nehemiah 13:29]]; and [[Malachi 2.2|Malachi 2:2–8]][[Malachi 2.3|]][[Malachi 2.4|]][[Malachi 2.5|]][[Malachi 2.6|]][[Malachi 2.7|]][[Malachi 2.8|]]. References to a covenant related to the Melchizedek Priesthood are found in Joseph Smith Translation, Genesis 14:26–37 (in the Bible appendix); [[Psalms 110.1|Psalm 110:1, 4]][[Psalms 110.4|]]; and [[D&C 84.39|Doctrine and Covenants 84:39–42]][[D&C 84.40|]][[D&C 84.41|]][[D&C 84.42|]]. See also Bruce R. McConkie, “[[1982 April - The Doctrine of the Priesthood.md|The Doctrine of the Priesthood]],” *Ensign,* May 1982, 32–34.
+[^5]: References to a covenant related to the lesser priesthood are found in [[Numbers 25.10|Numbers 25:10–13]][[Numbers 25.11|]][[Numbers 25.12|]][[Numbers 25.13|]]; [[Nehemiah 13.29|Nehemiah 13:29]]; and [[Malachi 2.2|Malachi 2:2–8]][[Malachi 2.3|]][[Malachi 2.4|]][[Malachi 2.5|]][[Malachi 2.6|]][[Malachi 2.7|]][[Malachi 2.8|]]. References to a covenant related to the Melchizedek Priesthood are found in Joseph Smith Translation, Genesis 14:26–37 (in the Bible appendix); [[Psalms 110.1|Psalm 110:1, 4]][[Psalms 110.4|]]; and [[D&C 84.39|Doctrine and Covenants 84:39–42]][[D&C 84.40|]][[D&C 84.41|]][[D&C 84.42|]]. See also Bruce R. McConkie, “[[1982 April - The Doctrine of the Priesthood.md|The Doctrine of the Priesthood]],” *Ensign,* May 1982, 32–34.
 
 [^6]: [[D&C 84.48|Doctrine and Covenants 84:48, 50]][[D&C 84.50|]].
 
@@ -93,21 +95,19 @@ In addition to obeying the laws and ordinances of the gospel yourself, I invite 
 
 [^16]: See Joseph Smith Translation, Genesis 14:26–37 (in the Bible appendix); [[Hebrews 7.11|Hebrews 7:11]]; [[D&C 84.19|Doctrine and Covenants 84:19, 33–34, 38, 42, 77–88]][[D&C 84.33|]][[D&C 84.34|]][[D&C 84.38|]][[D&C 84.42|]][[D&C 84.77|]][[D&C 84.78|]][[D&C 84.79|]][[D&C 84.80|]][[D&C 84.81|]][[D&C 84.82|]][[D&C 84.83|]][[D&C 84.84|]][[D&C 84.85|]][[D&C 84.86|]][[D&C 84.87|]][[D&C 84.88|]].
 
-[^17]: [[2 Peter 1.4|2 Peter 1:4]].
+[^17]: [[2 Peter 1.4|2 Peter 1:4]].
 
 [^18]: See Joseph Smith Translation, Genesis 14:27–31 (in the Bible appendix); [[Psalms 110.1|Psalm 110:1, 4]][[Psalms 110.4|]]; Joseph Smith Translation, Hebrews 7:19–21 (in the Bible appendix); [[D&C 84.33|Doctrine and Covenants 84:33–40, 48]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]][[D&C 84.40|]][[D&C 84.48|]].
 
 [^19]: See *The Teachings of Ezra Taft Benson* (1988), 223; Joseph Fielding Smith, in Conference Report, Apr. 1970, 59; *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 323.
 
-[^20]: There is no scriptural reference or account of the recipient swearing an oath as he makes the Melchizedek Priesthood covenant. Instead, in Joseph Smith Translation, Genesis 14:27–31 (in the Bible appendix); [[Psalms 110.1|Psalm 110:1, 4]][[Psalms 110.4|]]; [[Hebrews 7.21|Hebrews 7:21]]; and [[D&C 84.40|Doctrine and Covenants 84:40]], it is God who swears an oath as He makes the covenant with the recipient. Elder Bruce R. McConkie said: “The Lord swears with an oath in his own name … that everyone who keeps the covenant made in connection with the Melchizedek Priesthood shall inherit, receive, and possess all things in his everlasting kingdom. … God swore with an oath that Christ would be exalted, and he swears anew, at the time each of us receives the Melchizedek Priesthood, that we will have a like exaltation if we are true and faithful in all things” (“[[1982 April - The Doctrine of the Priesthood.md|The Doctrine of the Priesthood]],” 33).
+[^20]: There is no scriptural reference or account of the recipient swearing an oath as he makes the Melchizedek Priesthood covenant. Instead, in Joseph Smith Translation, Genesis 14:27–31 (in the Bible appendix); [[Psalms 110.1|Psalm 110:1, 4]][[Psalms 110.4|]]; [[Hebrews 7.21|Hebrews 7:21]]; and [[D&C 84.40|Doctrine and Covenants 84:40]], it is God who swears an oath as He makes the covenant with the recipient. Elder Bruce R. McConkie said: “The Lord swears with an oath in his own name … that everyone who keeps the covenant made in connection with the Melchizedek Priesthood shall inherit, receive, and possess all things in his everlasting kingdom. … God swore with an oath that Christ would be exalted, and he swears anew, at the time each of us receives the Melchizedek Priesthood, that we will have a like exaltation if we are true and faithful in all things” (“[[1982 April - The Doctrine of the Priesthood.md|The Doctrine of the Priesthood]],” 33).
 
-[^21]: See [[D&C 84.41|Doctrine and Covenants 84:41–42]][[D&C 84.42|]]. Repentance is always possible for those willing to change. See, for instance, Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona,* Nov. 2016, 121–24.
+[^21]: See [[D&C 84.41|Doctrine and Covenants 84:41–42]][[D&C 84.42|]]. Repentance is always possible for those willing to change. See, for instance, Dale G. Renlund, “[[2016 October - Repentance - A Joyful Choice.md|Repentance: A Joyful Choice]],” *Ensign* or *Liahona,* Nov. 2016, 121–24.
 
 [^22]: [[Luke 15.17|Luke 15:17]].
 
 [^23]: [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]].
 
+[^24]: [[Mosiah 4.2|Mosiah 4:2]].
 
-
-
-#Aaronic_Priesthood #Atonement #Covenants #Jesus_Christ #Melchizedek_Priesthood #Priesthood

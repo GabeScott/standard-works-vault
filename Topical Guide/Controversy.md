@@ -1,13 +1,12 @@
 # Controversy
 
-
-*See also* [[Disputations, Dispute.md|Disputations]]
+*See also* [[Disputations.md|Disputations]]
 
 matters of *controversy* within thy gates, [[Deuteronomy 17.8|Deuteronomy 17:8]].
 
 both the men, between whom the *controversy* is, [[Deuteronomy 19.17|Deuteronomy 19:17]].
 
-by their word shall every *controversy* ... be tried, [[Deuteronomy 21.5|Deuteronomy 21:5]].
+by their word shall every *controversy* … be tried, [[Deuteronomy 21.5|Deuteronomy 21:5]].
 
 If there be a *controversy* between men, [[Deuteronomy 25.1|Deuteronomy 25:1]].
 

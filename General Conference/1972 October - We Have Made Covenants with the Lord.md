@@ -1,6 +1,8 @@
 # We Have Made Covenants with the Lord
 
-By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
+N. Eldon Tanner
+
+By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -34,7 +36,7 @@ It provides the way to eternal life and even exaltation to all who accept the go
 
 It is here, then, in its fullness with all its powers as a guide, a standard for us and for all men who will heed it.
 
-Since the love of God is extended to all mankind, he has said: “… O \[ye\] inhabitants of the earth: I the Lord am willing to make these things known unto all flesh; For I am no respecter of persons. …” ([[D&C 1.34|D&C 1:34–35]][[D&C 1.35|]].)
+Since the love of God is extended to all mankind, he has said: “… O \[ye\] inhabitants of the earth: I the Lord am willing to make these things known unto all flesh; For I am no respecter of persons. …” ([[D&C 1.34|D&C 1:34–35]][[D&C 1.35|]].)
 
 And because of this we send missionaries by the thousands into all the world where it is permissible to teach the gospel of Jesus Christ and to baptize those who believe.
 
@@ -52,7 +54,7 @@ Every member of the Church has made covenants with the Lord. These commandments 
 
 Our first covenant is entered into when we are baptized and confirmed members of the Church. Both the conditions under which one becomes a candidate for baptism and the obligations of membership after baptism should be understood and impressed upon all, both young and old. The Lord makes these requirements and expectations rather definite and clear in these enlightening words:
 
-“… All those who humble themselves before God, and desire to be baptized, and come forth with broken hearts and contrite spirits, and witness before the church that they have truly repented of all their sins, and are willing to take upon them the name of Jesus Christ, having a determination to serve him to the end, and truly manifest by their works that they have received of the Spirit of Christ unto the remission of their sins, shall be received by baptism into his church.” ([[D&C 20.37|D&C 20:37]].)
+“… All those who humble themselves before God, and desire to be baptized, and come forth with broken hearts and contrite spirits, and witness before the church that they have truly repented of all their sins, and are willing to take upon them the name of Jesus Christ, having a determination to serve him to the end, and truly manifest by their works that they have received of the Spirit of Christ unto the remission of their sins, shall be received by baptism into his church.” ([[D&C 20.37|D&C 20:37]].)
 
 So, as one prepares himself for baptism, he must recognize that there are specific obligations and covenants associated with the receiving of this sacred ordinance.
 
@@ -62,11 +64,11 @@ Again, when we agree to have the priesthood conferred upon us, we thereby covena
 
 Now, if we keep the covenant of baptism and honor the priesthood and its covenants and in other ways live in conformity with the principles of the gospel, we may then have the great privilege of entering a holy temple where we receive the higher ordinances of the priesthood and, in due time, enter into that order of the priesthood known as the “new and everlasting covenant of marriage,” with the promise given that if we remain faithful to the covenants made, we shall come forth with the just in the morning of the first resurrection and, with our companions, our children, our posterity, be permitted to live in a state of never-ending happiness, provided, of course, that they too keep the covenants that it will be necessary for them to make.
 
-What hope, what comfort, what assurance and joy this promise should bring to the hearts of all who love their families! Surely it is true that “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[2 Corinthians 2.9|2 Cor. 2:9]].)
+What hope, what comfort, what assurance and joy this promise should bring to the hearts of all who love their families! Surely it is true that “eye hath not seen, nor ear heard, neither have entered into the heart of man, the things which God hath prepared for them that love him.” ([[2 Corinthians 2.9|2 Cor. 2:9]].)
 
 And, of course, he has said that they who love him keep his commandments and covenants.
 
-President Joseph F. Smith reminded us that “we cannot neglect, slight, or depart from the spirit, meaning, intent and purpose, of these covenants … that we have entered into with our Father in heaven without shearing \[or depriving\] ourselves of our glory, strength, right and title to his blessings, and to the gifts and manifestations of his Spirit.” (*Improvement Era,* vol. 9 \[August 1906\], p. 813.)
+President Joseph F. Smith reminded us that “we cannot neglect, slight, or depart from the spirit, meaning, intent and purpose, of these covenants … that we have entered into with our Father in heaven without shearing \[or depriving\] ourselves of our glory, strength, right and title to his blessings, and to the gifts and manifestations of his Spirit.” (*Improvement Era,* vol. 9 \[August 1906\], p. 813.)
 
 For God surely will not be mocked!
 
@@ -79,8 +81,3 @@ My brothers and sisters, we are a covenant-making people. Let us also be a coven
 
 
 
-
-
-
-
-#Commandments #Covenants

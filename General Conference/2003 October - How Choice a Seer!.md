@@ -1,5 +1,7 @@
 # How Choice a Seer!
 
+Gordon B. Hinckley
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -10,17 +12,17 @@ By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 From 1820 on, Joseph Smith was steadily attacked in a pattern of accusations—followed by eventual vindications. The pattern continues.
 
-Just as prophesied, fools deride him, hell rages against him, and his name is “both good and evil spoken of” ([[Joseph Smith History 1.33|Joseph Smith—History 1:33]]). This swirl needlessly preoccupies a few who seem to prefer chewing on old bones in the outer courtyard instead of coming inside to the resplendent, revelatory banquet, thus diverting them from giving due attention to Joseph’s mission as “a choice seer” (see [[2 Nephi 3.6|2 Nephi 3:6–7]][[2 Nephi 3.7|]]).
+Just as prophesied, fools deride him, hell rages against him, and his name is “both good and evil spoken of” ([[Joseph Smith History 1.33|Joseph Smith—History 1:33]]). This swirl needlessly preoccupies a few who seem to prefer chewing on old bones in the outer courtyard instead of coming inside to the resplendent, revelatory banquet, thus diverting them from giving due attention to Joseph’s mission as “a choice seer” (see [[2 Nephi 3.6|2 Nephi 3:6–7]][[2 Nephi 3.7|]]).
 
 As Ammon’s experience taught, a seer has the power to translate ancient records, and “a seer is greater than a prophet.” But, said Ammon, “a seer is … a prophet also” (see [[Mosiah 8.11|Mosiah 8:11–16]][[Mosiah 8.12|]][[Mosiah 8.13|]][[Mosiah 8.14|]][[Mosiah 8.15|]][[Mosiah 8.16|]]). Thus called, Joseph has become “a great benefit to his fellow beings” ([[Mosiah 8.18|Mosiah 8:18]]).
 
 The “choice” translator brought forth—“by the gift and power of God” ([[D&C 135.3|D&C 135:3]])—the Book of Mormon, something tangible and verifiable. For all who heed it, the Book of Mormon is like the flinging open of long-closed doors on what was assumed to be a complete canon of scripture.
 
-Noted on the very title page is the book’s special role in “convincing” mortals “that Jesus is the Christ” (see also [[2 Nephi 25.18|2 Nephi 25:18]]). In a day of disbelief and equivocation regarding this preeminent fact, this “convincing” effect is so needed! How sharp-edged that promise!
+Noted on the very title page is the book’s special role in “convincing” mortals “that Jesus is the Christ” (see also [[2 Nephi 25.18|2 Nephi 25:18]]). In a day of disbelief and equivocation regarding this preeminent fact, this “convincing” effect is so needed! How sharp-edged that promise!
 
-The Book of Mormon will be “read upon the housetops” ([[2 Nephi 27.11|2 Nephi 27:11]]). Even if neglected, it will constitute a lingering invitation for “as long as the earth shall stand” ([[2 Nephi 25.22|2 Nephi 25:22]]).
+The Book of Mormon will be “read upon the housetops” ([[2 Nephi 27.11|2 Nephi 27:11]]). Even if neglected, it will constitute a lingering invitation for “as long as the earth shall stand” ([[2 Nephi 25.22|2 Nephi 25:22]]).
 
-No wonder “the ends of the earth shall inquire after \[Joseph’s\] name” ([[D&C 122.1|D&C 122:1]]). Reassuring prophecies further declare that Joseph’s enemies “shall be confounded” and that the Prophet’s people will not be “turned against \[him\]” by the testimony of traitors (see [[2 Nephi 3.14|2 Nephi 3:14]]; [[D&C 122.3|D&C 122:3]]).
+No wonder “the ends of the earth shall inquire after \[Joseph’s\] name” ([[D&C 122.1|D&C 122:1]]). Reassuring prophecies further declare that Joseph’s enemies “shall be confounded” and that the Prophet’s people will not be “turned against \[him\]” by the testimony of traitors (see [[2 Nephi 3.14|2 Nephi 3:14]]; [[D&C 122.3|D&C 122:3]]).
 
 As President Faust reminded us yesterday, of his own imperfections, Joseph said, “I never told you I was perfect—but there is no error in the revelations which I have taught” (Andrew F. Ehat and Lyndon W. Cook, *The Words of Joseph Smith* \[1980\], 369).
 
@@ -40,7 +42,7 @@ God has no distracting hobbies off somewhere in the universe. We are at the very
 
 Revelations likewise came about our longevity as God’s spirit children, since “man was also in the beginning with God”—a declaration accompanied by even further glimmers about man’s eternal nature ([[D&C 93.29|D&C 93:29]]). These enunciations with their profound implications are major—challenging, for instance, the teaching that man was created in an instant “out of nothing.”
 
-A further reality of our being with God “in the beginning” means that you have been you for a long time. Hence, the Apostle John correctly wrote that “\[God\] first loved us” ([[1 John 4.19|1 John 4:19]]). Likewise, amid the mortal turbulence, we learn who other mortals really are—our spiritual brothers and sisters, not functions, rivals, or enemies. Moreover, we should have a special sanctity and regard for human life.
+A further reality of our being with God “in the beginning” means that you have been you for a long time. Hence, the Apostle John correctly wrote that “\[God\] first loved us” ([[1 John 4.19|1 John 4:19]]). Likewise, amid the mortal turbulence, we learn who other mortals really are—our spiritual brothers and sisters, not functions, rivals, or enemies. Moreover, we should have a special sanctity and regard for human life.
 
 “Stunners” all, these three revelations and translations are especially responsive to the deepest human yearnings and puzzlements. They restructure our understanding of the nature of God, of the universe, and likewise of our personal identity and of life’s meaning! What could be more personal than these brief but encompassing declarations?
 
@@ -60,23 +62,18 @@ I have saved for last the preeminent revelation that truly ranks first: the theo
 
 Alas, in a secular world Jesus is regarded by many, at best, as a distant figure; He is even denigrated. How transcendingly special, therefore, that the revelations of the Restoration confirm this cosmic fact: “God so loved the world, that he gave his only begotten Son” ([[John 3.16|John 3:16]]).
 
-Jesus, who performed the “infinite atonement,” thereby suffered infinitely and is a fully comprehending Savior, having “descended below all things” and “comprehended all things” ([[2 Nephi 9.7|2 Nephi 9:7]]; [[D&C 88.6|D&C 88:6]]). Yes, as in the lyrics of the moving spiritual of yesteryear, “Nobody knows the trouble I’ve seen; nobody knows but Jesus.”
+Jesus, who performed the “infinite atonement,” thereby suffered infinitely and is a fully comprehending Savior, having “descended below all things” and “comprehended all things” ([[2 Nephi 9.7|2 Nephi 9:7]]; [[D&C 88.6|D&C 88:6]]). Yes, as in the lyrics of the moving spiritual of yesteryear, “Nobody knows the trouble I’ve seen; nobody knows but Jesus.”
 
-Brothers and sisters, the cast of players on this planet for whom the revelations and translations are so pertinent includes those who, in that familiar phrase, are living “lives of quiet desperation” (Henry David Thoreau, *Walden* \[1965\], 7). They have now been joined by those living lives of noisy, slurping indulgence, wrongly celebrating their capacity to feel so that they finally lose their capacity to feel and become “past feeling” (see [[Moroni 9.20|Moroni 9:20]]; [[Ephesians 4.19|Ephesians 4:19]]; [[1 Nephi 17.45|1 Nephi 17:45]]). Hence they lick their particular platters in a desperate search for more sensations. Such individuals, however, are still not a majority but a “lesser part” of the people (see [[Mosiah 29.26|Mosiah 29:26–27]][[Mosiah 29.27|]]).
+Brothers and sisters, the cast of players on this planet for whom the revelations and translations are so pertinent includes those who, in that familiar phrase, are living “lives of quiet desperation” (Henry David Thoreau, *Walden* \[1965\], 7). They have now been joined by those living lives of noisy, slurping indulgence, wrongly celebrating their capacity to feel so that they finally lose their capacity to feel and become “past feeling” (see [[Moroni 9.20|Moroni 9:20]]; [[Ephesians 4.19|Ephesians 4:19]]; [[1 Nephi 17.45|1 Nephi 17:45]]). Hence they lick their particular platters in a desperate search for more sensations. Such individuals, however, are still not a majority but a “lesser part” of the people (see [[Mosiah 29.26|Mosiah 29:26–27]][[Mosiah 29.27|]]).
 
-Notably, at the last day the adversary “will not support” those who followed him anyway ([[Alma 30.60|Alma 30:60]]). He cannot. Jesus will triumph majestically, and the adversary’s clever constructs, “pleasing \[to\] the carnal mind,” will also collapse, and “the fall thereof \[will be\] exceedingly great” (see [[Alma 30.53|Alma 30:53]]; [[1 Nephi 11.36|1 Nephi 11:36]]). Even now, one can see in the lives of those prodigals who come to themselves the devil’s doctrines dripping in early meltdown (see [[Luke 15.17|Luke 15:17]]). Many, having experienced the utter emptiness of the lower ways, are “in a preparation to hear the word” and now await being informed of the rescuing revelations and translations ([[Alma 32.6|Alma 32:6]]).
+Notably, at the last day the adversary “will not support” those who followed him anyway ([[Alma 30.60|Alma 30:60]]). He cannot. Jesus will triumph majestically, and the adversary’s clever constructs, “pleasing \[to\] the carnal mind,” will also collapse, and “the fall thereof \[will be\] exceedingly great” (see [[Alma 30.53|Alma 30:53]]; [[1 Nephi 11.36|1 Nephi 11:36]]). Even now, one can see in the lives of those prodigals who come to themselves the devil’s doctrines dripping in early meltdown (see [[Luke 15.17|Luke 15:17]]). Many, having experienced the utter emptiness of the lower ways, are “in a preparation to hear the word” and now await being informed of the rescuing revelations and translations ([[Alma 32.6|Alma 32:6]]).
 
 Brothers and sisters, we dare not hold back the restored gospel’s declaratives! We dare not hold back the reassuring revelations and truth-telling translations about “things as they really are, and … things as they really will be” ([[Jacob 4.13|Jacob 4:13]]). These are so needed by those whose weary hands hang down because they suffer from doctrinal anemia, which can best be treated by the red blood cells of the Restoration. To hold back would be to restrain repentance and to obscure the beckoning spiritual alternative, which will become “fair as the sun, and clear as the moon” ([[D&C 105.31|D&C 105:31]]).
 
-Meanwhile, let us expect that many will regard us indifferently. Others will see us as quaint or misled. Let us bear the pointing fingers which, ironically, belong to those finally who, being bored, find the “great and spacious building” to be a stale and cramped third-class hotel (see [[1 Nephi 8.31|1 Nephi 8:31–33]][[1 Nephi 8.32|]][[1 Nephi 8.33|]]). Let us revile not the revilers and heed them not (see [[D&C 31.9|D&C 31:9]]). Instead, let us use our energy to hold up the shield of faith to quench the incoming fiery darts—aided perhaps by a touch of spiritual Teflon (see [[1 Nephi 15.24|1 Nephi 15:24]]).
+Meanwhile, let us expect that many will regard us indifferently. Others will see us as quaint or misled. Let us bear the pointing fingers which, ironically, belong to those finally who, being bored, find the “great and spacious building” to be a stale and cramped third-class hotel (see [[1 Nephi 8.31|1 Nephi 8:31–33]][[1 Nephi 8.32|]][[1 Nephi 8.33|]]). Let us revile not the revilers and heed them not (see [[D&C 31.9|D&C 31:9]]). Instead, let us use our energy to hold up the shield of faith to quench the incoming fiery darts—aided perhaps by a touch of spiritual Teflon (see [[1 Nephi 15.24|1 Nephi 15:24]]).
 
 Brothers and sisters, given all of the foregoing, “what can I say more” except “Praise to the man who communed with Jehovah!” ([[Jacob 6.12|Jacob 6:12]]; “Praise to the Man,” *Hymns,* no. 27). In the name of Jesus Christ, amen!
 
 
 
 
-
-
-
-
-#Atonement #Book_Of_Mormon #Jesus_Christ #Joseph_Smith #Restoration

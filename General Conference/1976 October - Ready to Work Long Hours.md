@@ -1,12 +1,14 @@
 # Ready to Work Long Hours
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1976 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1976/10/ready-to-work-long-hours?lang=eng)
 
-Brethren, it is a great and glorious sight to see all these priesthood holders gathered here in this historic Tabernacle and to realize that thousands and thousands have gathered in other buildings throughout the Church—men who hold the priesthood of God with power and authority to act in his name. All of us want to be actively engaged in helping to build the kingdom of God and be prepared to answer the clarion call of our president, Spencer W. Kimball, a prophet of God, through whom the Lord speaks and directs his work here upon the earth.
+Brethren, it is a great and glorious sight to see all these priesthood holders gathered here in this historic Tabernacle and to realize that thousands and thousands have gathered in other buildings throughout the Church—men who hold the priesthood of God with power and authority to act in his name. All of us want to be actively engaged in helping to build the kingdom of God and be prepared to answer the clarion call of our president, Spencer W. Kimball, a prophet of God, through whom the Lord speaks and directs his work here upon the earth.
 
 Whenever I stand before a body of priesthood holders, I feel a very heavy responsibility and do hope and humbly pray that the Spirit and blessings of the Lord will attend us and guide our thinking while I speak to you.
 
@@ -16,7 +18,7 @@ We must never forget that this privilege carries with it a heavy responsibility 
 
 We have heard, are hearing, and will continue to hear much about the evils in the world today. They are real and very serious. In fact, they have almost engulfed the world. I am sure many of you are tired of hearing about it, as I am, and feel that we are listening to a broken record.
 
-Let me read some excerpts from a talk given by Dr. John A. Howard, president of Rockford College in Rockford, Illinois, as he spoke to the graduates of Brigham Young University last April. He referred to the problems and sacrifices made by our early pioneers who crossed the plains to the Salt Lake Valley and said:
+Let me read some excerpts from a talk given by Dr. John A. Howard, president of Rockford College in Rockford, Illinois, as he spoke to the graduates of Brigham Young University last April. He referred to the problems and sacrifices made by our early pioneers who crossed the plains to the Salt Lake Valley and said:
 
 “The work that faces your generation is no less arduous. The deserts you must bring to blossom are no less arid, but your mission may demand even more of you, for unlike the early pioneers of this state you are confronted by a wilderness which is subtle and fluid and elusive. Indeed the wilderness which you must conquer is *disguised as a civilization* so that there is the *double necessity* to *unmask the deceit,* to *distinguish between what is authentic* and *what is counterfeit,* and to *labor to support* the one and *oppose* the *other.*
 
@@ -44,7 +46,7 @@ If what Dr. Howard said about the responsibility of BYU students is true—and i
 
 It is evident that we must put forth greater effort as a church and as individuals if we are to withstand the evils of the world. The First Presidency and General Authorities are greatly concerned about the fact that evil and temptation are reaching into the Church and affecting the lives of many of our youth and even adult members. It nearly breaks our hearts to see how many and how seriously they are being affected. We realize that the worth of a soul is great in the sight of the Lord, and we want to do all in our power through love and kindness and warning to help strengthen and guide all members in the paths of truth and righteousness. We feel as Nephi did when “iniquity had come upon the Nephites … and … his heart was swollen with sorrow within his breast; and he did exclaim in the agony of his soul.” ([[Helaman 7.6|Hel. 7:6]].) Our concern is—and it should be the concern of every family, every father, every adult, and every priesthood holder—how can we best guard and protect ourselves and our children and others against the evils of the world?
 
-Let me refer to and sort of paraphrase “The Parable of the Defective Battery,” written by Elder James E. Talmage. (See Albert L. Zobell, Jr., *The Parable of James E. Talmage,* Deseret Book Company, 1973, pp. 7–12.) He said that in order to carry out a certain laboratory experiment he needed a powerful primary electric current. He asked his assistant to prepare a battery consisting of a dozen cells of simple type. His assistant followed the usual procedure. He prepared twelve jars containing acid solution, in which were immersed a pair of plates, one of carbon and one of zinc. The cells were then connected “in series.” This should have resulted in the series giving out strength equal to the total force. It was discovered, however, that he had not given sufficient attention to details—those *seeming trifles* that *make* or *mar* perfection.
+Let me refer to and sort of paraphrase “The Parable of the Defective Battery,” written by Elder James E. Talmage. (See Albert L. Zobell, Jr., *The Parable of James E. Talmage,* Deseret Book Company, 1973, pp. 7–12.) He said that in order to carry out a certain laboratory experiment he needed a powerful primary electric current. He asked his assistant to prepare a battery consisting of a dozen cells of simple type. His assistant followed the usual procedure. He prepared twelve jars containing acid solution, in which were immersed a pair of plates, one of carbon and one of zinc. The cells were then connected “in series.” This should have resulted in the series giving out strength equal to the total force. It was discovered, however, that he had not given sufficient attention to details—those *seeming trifles* that *make* or *mar* perfection.
 
 Elder Talmage said he was disappointed when he tried to use the battery because it was not functioning as it should. As he inspected it he found that the cells were not all working alike; some of them were intensely active, and the liquid seemed to be like boiling water because of the escaping gases. Its current was very weak. The energy from it was practically used up in overcoming its own internal resistance, and it had no power.
 
@@ -64,7 +66,7 @@ Members of the Church today are probably in a better financial position than eve
 
 “For behold, at that day shall he rage in the hearts of the children of men, and stir them up to anger against that which is good.
 
-“And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]].)
+“And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]].)
 
 Let us consider three things which today particularly are leading the people away. First, failure to keep the Sabbath day holy; second, breaking the Word of Wisdom: third, unchastity. There are many others.
 
@@ -91,8 +93,3 @@ May we meet there when we have finished our work here I humbly pray in the name 
 
 
 
-
-
-
-
-#Priesthood #Temptation #Work

@@ -1,6 +1,5 @@
 # Old Age
 
-
 *See also* [[Mortality.md|Mortality]]
 
 buried in a good *old age*, [[Genesis 15.15|Genesis 15:15]].
@@ -31,23 +30,23 @@ even to your *old age* I am he, [[Isaiah 46.4|Isaiah 46:4]].
 
 *old* men shall dream dreams, [[Joel 2.28|Joel 2:28]] ([[Acts 2.17|Acts 2:17]]).
 
-There shall yet *old* men and *old* women dwell in ... Jerusalem, [[Zechariah 8.4|Zechariah 8:4]].
+There shall yet *old* men and *old* women dwell in … Jerusalem, [[Zechariah 8.4|Zechariah 8:4]].
 
-Zacharias said ... I am an *old* man, [[Luke 1.18|Luke 1:18]].
+Zacharias said … I am an *old* man, [[Luke 1.18|Luke 1:18]].
 
-Elisabeth ... conceived a son in her *old age*, [[Luke 1.36|Luke 1:36]].
+Elisabeth … conceived a son in her *old age*, [[Luke 1.36|Luke 1:36]].
 
-when thou shalt be *old* ... stretch forth thy hands, [[John 21.18|John 21:18]].
+when thou shalt be *old* … stretch forth thy hands, [[John 21.18|John 21:18]].
 
-brought with them one ... *old* disciple, [[Acts 21.16|Acts 21:16]].
+brought with them one … *old* disciple, [[Acts 21.16|Acts 21:16]].
 
 when he was about an hundred years *old*, [[Romans 4.19|Romans 4:19]].
 
-widow ... under threescore years *old*, [[1 Timothy 5.9|1 Timothy 5:9]].
+widow … under threescore years *old*, [[1 Timothy 5.9|1 Timothy 5:9]].
 
 *aged* men be sober, grave, [[Titus 2.2|Titus 2:2]].
 
-Lehi ... waxed *old*, [[2 Nephi 4.12|2 Nephi 4:12]] ([[Mosiah 1.9|Mosiah 1:9]]).
+Lehi … waxed *old*, [[2 Nephi 4.12|2 Nephi 4:12]] ([[Mosiah 1.9|Mosiah 1:9]]).
 
 O, all ye *old* men, [[Mosiah 2.40|Mosiah 2:40]].
 

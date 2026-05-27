@@ -1,12 +1,14 @@
 # Upon Judea’s Plains
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Harold B. Lee
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1973/04/upon-judeas-plains?lang=eng)
 
-Peter said, “If any man speak, let him speak as the oracles of God” ([[1 Peter 4.11|1 Pet. 4:11]]), which means he must be guided by the power of the Holy Ghost; and this is the thing, above all else, that I desire at this time.
+Peter said, “If any man speak, let him speak as the oracles of God” ([[1 Peter 4.11|1 Pet. 4:11]]), which means he must be guided by the power of the Holy Ghost; and this is the thing, above all else, that I desire at this time.
 
 This morning we heard the chief officer, the chief oracle of the kingdom of God on earth, give the mind and will and voice of the Lord to the Latter-day Saints and to the world. I can think of nothing more important at this time than to follow in that pattern, and speak as President Lee speaks, unless it is at all times to live as he lives so that I can have the association, eternally, of the kind of people with whom he will associate.
 
@@ -43,13 +45,13 @@ And he has given us the same commission that he gave to people in ancient days w
 
 There are some eternal principles involved here, and what we do in our day is not only the same in principle, but is exactly and precisely what the prophets and righteous men have done in all ages past.
 
-In the early days of this dispensation the Lord said, “… the elders, priests and teachers of this church shall teach the principles of my gospel, which are in the Bible and the Book of Mormon, in the which is the fulness of the gospel.” ([[D&C 42.12|D&C 42:12]].) Then he said on another occasion that we were sent out “to testify and warn the people. …” ([[D&C 88.81|D&C 88:81]].)
+In the early days of this dispensation the Lord said, “… the elders, priests and teachers of this church shall teach the principles of my gospel, which are in the Bible and the Book of Mormon, in the which is the fulness of the gospel.” ([[D&C 42.12|D&C 42:12]].) Then he said on another occasion that we were sent out “to testify and warn the people. …” ([[D&C 88.81|D&C 88:81]].)
 
 I suppose these two commissions—on the one hand to teach the doctrines of the gospel, and on the other hand to testify by personal knowledge that we know that the things that we are proclaiming are true—I suppose these are perfectly illustrated in the ministry of the sons of Mosiah. The record says that “they were men of a sound understanding,” who “had searched the scriptures diligently, that they might know the word of God. But this is not all; they had given themselves to much prayer, and fasting; therefore they had the spirit of prophecy, and the spirit of revelation, and when they taught, they taught with power and authority of God.” ([[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]].)
 
 Now this gives us two premises. On the one hand we are obligated and required to know the doctrines of the Church. We are to treasure up the words of eternal life. We are to reason as intelligently as we are able. We are to use every faculty and capacity with which we are endowed to proclaim the message of salvation and to make it intelligent to ourselves and to our Father’s other children. But after we have done that, and also in the process of doing it, we are obligated to bear testimony—to let the world know and our associate members of the Church know—that in our hearts, by the revelation of the Holy Spirit to our souls, we know of the truth and divinity of the work and of the doctrines that we teach.
 
-Now let me, if I may, take a classical illustration from the ancient records of how this is done. Peter and his associates had the same obligation for their day that we have for ours: to carry the message of salvation to the ends of the earth. I suppose Peter read and taught the revelations that Isaiah and the prophets gave about Christ and his gospel. He reasoned with the people about them. He followed the divine counsel, “Come now, and let us reason together. …” ([[Isaiah 1.18|Isa. 1:18]].) He obeyed the divine decree, “… bring forth your strong reasons.” ([[Isaiah 41.21|Isa. 41:21]].)
+Now let me, if I may, take a classical illustration from the ancient records of how this is done. Peter and his associates had the same obligation for their day that we have for ours: to carry the message of salvation to the ends of the earth. I suppose Peter read and taught the revelations that Isaiah and the prophets gave about Christ and his gospel. He reasoned with the people about them. He followed the divine counsel, “Come now, and let us reason together. …” ([[Isaiah 1.18|Isa. 1:18]].) He obeyed the divine decree, “… bring forth your strong reasons.” ([[Isaiah 41.21|Isa. 41:21]].)
 
 But he did something more than that. After he had taught the doctrines and after he had reasoned, he bore a personal witness of the truth and divinity of what he was presenting to his fellowmen; and the Lord prepared him to do just that by giving him spiritual experiences, by letting the power of the Holy Spirit rest upon him.
 
@@ -81,9 +83,9 @@ Let me read one other testimony that Peter bore:
 
 “For he received from God the Father honour and glory, when there came such a voice to him from the excellent glory, This is my beloved Son, in whom I am well pleased.
 
-“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.16|2 Pet. 1:16–18]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
+“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.16|2 Pet. 1:16–18]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
 
-Now I do not minimize in any degree or to any extent the obligation that rests upon us to be gospel scholars, to search the revelations, to learn how to reason and analyze, to present the message of salvation among ourselves and to the world with all the power and ability we have; but that standing alone does not suffice. When that is all over, we have to comply with the command the Lord gave for us in this day: “… ye are my witnesses, saith the Lord, that I am God.” ([[Isaiah 43.12|Isa. 43:12]].) We have to put an approving, divine seal on the doctrine that we teach, and that seal is the seal of testimony, the seal of a personal knowledge borne of the Holy Ghost.
+Now I do not minimize in any degree or to any extent the obligation that rests upon us to be gospel scholars, to search the revelations, to learn how to reason and analyze, to present the message of salvation among ourselves and to the world with all the power and ability we have; but that standing alone does not suffice. When that is all over, we have to comply with the command the Lord gave for us in this day: “… ye are my witnesses, saith the Lord, that I am God.” ([[Isaiah 43.12|Isa. 43:12]].) We have to put an approving, divine seal on the doctrine that we teach, and that seal is the seal of testimony, the seal of a personal knowledge borne of the Holy Ghost.
 
 Now Peter could have reasoned at great length, and after having so done people could have argued with him and said, “You don’t understand the scriptures. Your interpretations are in error. This or that is wrong.” But you can’t argue with a testimony, and so after Peter had reasoned, if he then said to them, as he must have done in substance and in thought content on many occasions, if he said to them, “I was in an upper room. The Lord Jesus came through the wall. He appeared to us. I recognized him. He was the same person with whom I had labored and traveled for three and a half years. He is the person who lived in my home in Capernaum. I then felt the nail marks in his hands and in his feet. I thrust my hand into his side. I was there when he ate food and drank before us. I know he is the Son of God. The Holy Spirit of God has borne this witness to my soul”—if he said this to them, there was nothing left to debate. You can’t argue with that kind of a presentation. You can say, as Festus said to Paul: “Thou art beside thyself; much learning doth make thee mad” ([[Acts 26.24|Acts 26:24]]), but in the final analysis all you can do is accept or reject the witness that is borne. It is either true or it is false. There is no middle ground.
 
@@ -119,8 +121,3 @@ And of this I testify, in solemnity and sobriety, with full knowledge of what I 
 
 
 
-
-
-
-
-#Plan_Of_Salvation #Teaching

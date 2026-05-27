@@ -1,6 +1,8 @@
 # What We Are Learning and Will Never Forget
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -30,7 +32,7 @@ Often when the Lord warns us about the perils of the last days, He counsels thus
 
 Brethren, you bear the priesthood of God. “The rights of the priesthood are inseparably connected with the powers of heaven.”[^3] You and your family have received priesthood ordinances. It is “in the ordinances \[of the priesthood that\] the power of godliness is manifest.”[^4] That power is available to you and your family *in your own home* as you keep the covenants you have made.[^5]
 
-Just 185 years ago, this very day, April 3, 1836, Elijah restored the keys of the priesthood that allow our families to be sealed together forever. That is why it felt so good to administer the sacrament in your home. How do you think it affected your family members to see you—their father, grandfather, husband, son, or brother—administer this holy ordinance? What will you do to retain that sacred feeling in your family?
+Just 185 years ago, this very day, April 3, 1836, Elijah restored the keys of the priesthood that allow our families to be sealed together forever. That is why it felt so good to administer the sacrament in your home. How do you think it affected your family members to see you—their father, grandfather, husband, son, or brother—administer this holy ordinance? What will you do to retain that sacred feeling in your family?
 
 You may feel that there is still more you need to do to make your home truly a sanctuary of faith. If so, please do it! If you are married, counsel with your wife as your equal partner in this crucial work. There are few pursuits more important than this. Between now and the time the Lord comes again, we all need our homes to be places of serenity and security.[^6]
 
@@ -87,7 +89,7 @@ The future is bright for God’s covenant-keeping people.[^16] The Lord will inc
 
 [^9]: See [[John 17.15|John 17:15–16]][[John 17.16|]].
 
-[^10]: As an example, in 2020, the Church made donations to support more than 1,000 COVID-19 relief efforts around the globe. These efforts were made far more effective because we partnered with other humanitarian organizations, including Convoy of Hope, Feeding America, Partnership with Native Americans, the Salvation Army, the United Way, and the World Food Programme (see “[2020 Year in Review](https://newsroom.churchofjesuschrist.org/article/2020-year-in-review),” Newsroom, Dec. 21, 2020, newsroom.ChurchofJesusChrist.org). We extend our reach and our influence for good by working together.
+[^10]: As an example, in 2020, the Church made donations to support more than 1,000 COVID-19 relief efforts around the globe. These efforts were made far more effective because we partnered with other humanitarian organizations, including Convoy of Hope, Feeding America, Partnership with Native Americans, the Salvation Army, the United Way, and the World Food Programme (see “[2020 Year in Review](https://newsroom.churchofjesuschrist.org/article/2020-year-in-review),” Newsroom, Dec. 21, 2020, newsroom.ChurchofJesusChrist.org). We extend our reach and our influence for good by working together.
 
 [^11]: See [[Mark 12.30|Mark 12:30–31]][[Mark 12.31|]].
 
@@ -95,11 +97,9 @@ The future is bright for God’s covenant-keeping people.[^16] The Lord will inc
 
 [^13]: [[D&C 88.91|Doctrine and Covenants 88:91]].
 
-[^14]: [[Helaman 5.30|Helaman 5:30]]; see also [[1 Kings 19.12|1 Kings 19:12]]; [[3 Nephi 11.3|3 Nephi 11:3]].
+[^14]: [[Helaman 5.30|Helaman 5:30]]; see also [[1 Kings 19.12|1 Kings 19:12]]; [[3 Nephi 11.3|3 Nephi 11:3]].
 
 [^15]: See [[Psalms 46.10|Psalm 46:10]]; [[D&C 101.16|Doctrine and Covenants 101:16]].
 
+[^16]: See [[D&C 82.14|Doctrine and Covenants 82:14]].
 
-
-
-#Adversity #Faith #Home #Love #Priesthood_Quorums #Revelation #Unity

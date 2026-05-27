@@ -1,6 +1,8 @@
 # Purify Our Minds and Spirits
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -32,7 +34,7 @@ There are two things we must do. First, we must stop the flow into our minds of 
 
 Vulgarity appears in many ways. We live in a society where profanity and vulgarity are accepted means of conduct and expression—even a way of life for some. I remember being in a business meeting some years ago with a group of men who were well educated, competent in their professions, and friendly to all—but their language was a dialogue in profanity.
 
-Brother Boyd K. Packer has said, “The reality of profanity does not argue for the toleration of it” (*New Era,* Jan. 1976, p. 5). We are the victims of a vile habit. I would suggest that some are misled who think vulgarity occurs only now and then when a person utters obviously crude or offensive words. Vulgarity is not so rare as it should be. It is sustained by constant exposure to a steady diet of vulgar and filthy experiences. We might consider vulgarity in a couple of ways: first, *as an expression of* personal weakness, and second, *as a contribution to* personal weakness.
+Brother Boyd K. Packer has said, “The reality of profanity does not argue for the toleration of it” (*New Era,* Jan. 1976, p. 5). We are the victims of a vile habit. I would suggest that some are misled who think vulgarity occurs only now and then when a person utters obviously crude or offensive words. Vulgarity is not so rare as it should be. It is sustained by constant exposure to a steady diet of vulgar and filthy experiences. We might consider vulgarity in a couple of ways: first, *as an expression of* personal weakness, and second, *as a contribution to* personal weakness.
 
 Some demonstrate or express a personal weakness when they tell jokes or stories about the body and its functions, when they joke about or make suggestive comments concerning women or girls, when they are casual about sacred things. There is vulgarity when some speak crudely of body parts or sexual matters. Too often, common slang, even gutter terms, are used by brethren of the priesthood—ofttimes anger is used as an excuse for such utterance. This is wrong. No one need swear or be vulgar at any time.
 
@@ -65,8 +67,3 @@ My brethren, as your friend and brother, I plead with you to prepare as you have
 
 
 
-
-
-
-
-#Morality

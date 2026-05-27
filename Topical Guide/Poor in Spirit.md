@@ -1,7 +1,6 @@
 # Poor in Spirit
 
-
-*See also* [[Meek, Meekness.md|Meek]]
+*See also* [[Meek.md|Meek]]
 
 Blessed are the *poor in spirit*, [[Matthew 5.3|Matthew 5:3]] ([[Luke 6.20|Luke 6:20]]).
 
@@ -14,5 +13,3 @@ also they were *poor* in heart, [[Alma 32.3|Alma 32:3]].
 blessed are the *poor in spirit* who come unto me, [[3 Nephi 12.3|3 Nephi 12:3]].
 
 Wo unto you poor men, whose hearts are not broken, whose *spirits* are not contrite, [[D&C 56.17|D&C 56:17]].
-
-*See also* [[Helaman 6.5|Helaman 6:5]]; [[Moroni 6.2|Moroni 6:2]].

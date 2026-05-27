@@ -1,5 +1,7 @@
 # Pillars and Rays
 
+Dallin H. Oaks
+
 By Elder Alexander Dushku - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
@@ -20,19 +22,19 @@ And with that overwhelming burst of light and truth, the Restoration has begun. 
 
 All that, and much more, began with a boy’s desperate prayer and a pillar of light.
 
-We too have our own desperate needs. We too need freedom from spiritual confusion and worldly darkness. We too need to know for ourselves.[^5] That is one reason President Russell M. Nelson has invited us to “immerse \[ourselves\] in the glorious light of the Restoration.”[^6]
+We too have our own desperate needs. We too need freedom from spiritual confusion and worldly darkness. We too need to know for ourselves.[^5] That is one reason President Russell M. Nelson has invited us to “immerse \[ourselves\] in the glorious light of the Restoration.”[^6]
 
 One of the great truths of the Restoration is that the heavens are open—that we too can receive light and knowledge from on high. I testify that is true.
 
-But we must be wary of a spiritual trap. Sometimes faithful Church members become discouraged and even drift away because they haven’t had overwhelming spiritual experiences—because they haven’t experienced their own pillar of light. President Spencer W. Kimball warned, “Always expecting the spectacular, many will miss entirely the constant flow of revealed communication.”[^7]
+But we must be wary of a spiritual trap. Sometimes faithful Church members become discouraged and even drift away because they haven’t had overwhelming spiritual experiences—because they haven’t experienced their own pillar of light. President Spencer W. Kimball warned, “Always expecting the spectacular, many will miss entirely the constant flow of revealed communication.”[^7]
 
-President Joseph F. Smith likewise recalled, “The Lord withheld marvels from me \[when I was young\], and showed me the truth, line upon line, precept upon precept, here a little and there a little.”[^8]
+President Joseph F. Smith likewise recalled, “The Lord withheld marvels from me \[when I was young\], and showed me the truth, line upon line, precept upon precept, here a little and there a little.”[^8]
 
 That is the Lord’s typical pattern, brothers and sisters. Rather than sending us a pillar of light, the Lord sends us a ray of light, and then another, and another.
 
 Those rays of light are continuously being poured down upon us. The scriptures teach that Jesus Christ “is the light and … life of the world,”[^9] that His “Spirit giveth light to every man \[and woman\] that cometh into the world,”[^10] and that His light “fill\[s\] the immensity of space,” giving “life to all things.”[^11] The Light of Christ is literally all around us.
 
-If we have received the gift of the Holy Ghost and are striving to exercise faith, repent, and honor our covenants, then we are worthy to receive these divine rays constantly. In Elder David A. Bednar’s memorable phrase, “we are ‘living in revelation.’”[^12]
+If we have received the gift of the Holy Ghost and are striving to exercise faith, repent, and honor our covenants, then we are worthy to receive these divine rays constantly. In Elder David A. Bednar’s memorable phrase, “we are ‘living in revelation.’”[^12]
 
 And yet, every one of us is different. No two people experience God’s light and truth in exactly the same way. Take some time to think about how you experience the light and Spirit of the Lord.
 
@@ -95,11 +97,11 @@ May we recognize and receive His glorious light and then choose Him over the dar
 
 [^5]: See [[Joseph Smith History 1.20|Joseph Smith—History 1:20]]. When Joseph Smith returned home after the First Vision, his mother asked if he was OK. He replied, “I am well enough off. … *I have learned for myself* that Presbyterianism is not true” (emphasis added).
 
-[^6]: Russell M. Nelson, “Closing Remarks,” *Ensign* or *Liahona*, Nov. 2019, 122.
+[^6]: Russell M. Nelson, “Closing Remarks,” *Ensign* or *Liahona*, Nov. 2019, 122.
 
-[^7]: Spencer W. Kimball, in Conference Report, Munich Germany Area Conference, 1973, 77; quoted in Graham W. Doxey, “[[1991 October - The Voice Is Still Small.md|The Voice Is Still Small]],” *Ensign*, Nov. 1991, 25.
+[^7]: Spencer W. Kimball, in Conference Report, Munich Germany Area Conference, 1973, 77; quoted in Graham W. Doxey, “[[1991 October - The Voice Is Still Small.md|The Voice Is Still Small]],” *Ensign*, Nov. 1991, 25.
 
-[^8]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 201: “When I as a boy first started out in the ministry, I would frequently go out and ask the Lord to show me some marvelous thing, in order that I might receive a testimony. But the Lord withheld marvels from me, and showed me the truth, line upon line, precept upon precept, here a little and there a little, until he made me to know the truth from the crown of my head to the soles of my feet, and until doubt and fear had been absolutely purged from me. He did not have to send an angel from the heavens to do this, nor did he have to speak with the trump of an archangel. By the whisperings of the still small voice of the Spirit of the living God, he gave to me the testimony I possess. And by this principle and power he will give to all the children of men a knowledge of the truth that will stay with them, and it will make them to know the truth, as God knows it, and to do the will of the Father as Christ does it.”
+[^8]: *[Teachings of Presidents of the Church: Joseph F. Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-f-smith/chapter-23?lang=eng&id=p2#p2)* (1998), 201: “When I as a boy first started out in the ministry, I would frequently go out and ask the Lord to show me some marvelous thing, in order that I might receive a testimony. But the Lord withheld marvels from me, and showed me the truth, line upon line, precept upon precept, here a little and there a little, until he made me to know the truth from the crown of my head to the soles of my feet, and until doubt and fear had been absolutely purged from me. He did not have to send an angel from the heavens to do this, nor did he have to speak with the trump of an archangel. By the whisperings of the still small voice of the Spirit of the living God, he gave to me the testimony I possess. And by this principle and power he will give to all the children of men a knowledge of the truth that will stay with them, and it will make them to know the truth, as God knows it, and to do the will of the Father as Christ does it.”
 
 [^9]: [[Mosiah 16.9|Mosiah 16:9]].
 
@@ -107,7 +109,7 @@ May we recognize and receive His glorious light and then choose Him over the dar
 
 [^11]: [[D&C 88.12|Doctrine and Covenants 88:12–13]][[D&C 88.13|]].
 
-[^12]: David A. Bednar, *The Spirit of Revelation* (2021), 7.
+[^12]: David A. Bednar, *The Spirit of Revelation* (2021), 7.
 
 [^13]: [[D&C 6.23|Doctrine and Covenants 6:23]].
 
@@ -115,7 +117,7 @@ May we recognize and receive His glorious light and then choose Him over the dar
 
 [^15]: See [[Mosiah 5.2|Mosiah 5:2]]; [[D&C 11.12|Doctrine and Covenants 11:12]].
 
-[^16]: See [[2 Nephi 4.21|2 Nephi 4:21]]; [[Helaman 5.44|Helaman 5:44]].
+[^16]: See [[2 Nephi 4.21|2 Nephi 4:21]]; [[Helaman 5.44|Helaman 5:44]].
 
 [^17]: The Lord has identified the ability to believe on the testimony of others as a spiritual gift (see [[D&C 46.13|Doctrine and Covenants 46:13–14]][[D&C 46.14|]]).
 
@@ -123,9 +125,9 @@ May we recognize and receive His glorious light and then choose Him over the dar
 
 [^19]: See [[Mosiah 2.17|Mosiah 2:17]]; [[Moroni 7.45|Moroni 7:45–48]][[Moroni 7.46|]][[Moroni 7.47|]][[Moroni 7.48|]].
 
-[^20]: [[1 Nephi 1.20|1 Nephi 1:20]]. Elder Gerrit W. Gong has spoken of “look\[ing\] with eyes to see and rejoic\[ing\] in the Lord’s many tender mercies in our lives” (“[[2023 April - Ministering.md|Ministering]],” *Liahona*, May 2023, 18) and of how “the Lord’s hand in our lives is often clearest in hindsight” (“[[2016 April - Always Remember Him.md|Always Remember Him]],” *Ensign* or *Liahona*, May 2016, 108). The gift of gratefully recognizing and acknowledging the hand of the Lord in our lives, even if we didn’t recognize it or feel it in the moment, is powerful. The scriptures speak often of the spiritual power of remembering (see [[Helaman 5.9|Helaman 5:9–12]][[Helaman 5.10|]][[Helaman 5.11|]][[Helaman 5.12|]]; [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]), which can be a precursor to revelation (see [[Moroni 10.3|Moroni 10:3–4]][[Moroni 10.4|]]).
+[^20]: [[1 Nephi 1.20|1 Nephi 1:20]]. Elder Gerrit W. Gong has spoken of “look\[ing\] with eyes to see and rejoic\[ing\] in the Lord’s many tender mercies in our lives” (“[[2023 April - Ministering.md|Ministering]],” *Liahona*, May 2023, 18) and of how “the Lord’s hand in our lives is often clearest in hindsight” (“[[2016 April - Always Remember Him.md|Always Remember Him]],” *Ensign* or *Liahona*, May 2016, 108). The gift of gratefully recognizing and acknowledging the hand of the Lord in our lives, even if we didn’t recognize it or feel it in the moment, is powerful. The scriptures speak often of the spiritual power of remembering (see [[Helaman 5.9|Helaman 5:9–12]][[Helaman 5.10|]][[Helaman 5.11|]][[Helaman 5.12|]]; [[D&C 20.77|Doctrine and Covenants 20:77, 79]][[D&C 20.79|]]), which can be a precursor to revelation (see [[Moroni 10.3|Moroni 10:3–4]][[Moroni 10.4|]]).
 
-[^21]: Joseph Smith taught, “A person may profit by noticing the first intimation of the spirit of revelation; for instance, when you feel pure intelligence flowing into you, it may give you sudden strokes of ideas, so that by noticing it, you may find it fulfilled the same day or soon; (i.e.) those things that were presented unto your minds by the Spirit of God, will come to pass; and thus by learning the Spirit of God and understanding it, you may grow into the principle of revelation, until you become perfect in Christ Jesus” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 132).
+[^21]: Joseph Smith taught, “A person may profit by noticing the first intimation of the spirit of revelation; for instance, when you feel pure intelligence flowing into you, it may give you sudden strokes of ideas, so that by noticing it, you may find it fulfilled the same day or soon; (i.e.) those things that were presented unto your minds by the Spirit of God, will come to pass; and thus by learning the Spirit of God and understanding it, you may grow into the principle of revelation, until you become perfect in Christ Jesus” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-10?lang=eng&id=p24#p24)* \[2007\], 132).
 
 [^22]: [[Ephesians 1.10|Ephesians 1:10]].
 
@@ -137,8 +139,3 @@ May we recognize and receive His glorious light and then choose Him over the dar
 
 [^26]: [[Alma 32.41|Alma 32:41]].
 
-
-
-
-
-#First_Vision #Light_Of_Christ #Restoration #Revelation #Testimony

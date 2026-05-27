@@ -1,6 +1,8 @@
 # Stay by the Tree
 
-By Elder Kevin W. Pearson - *Of the Seventy*
+Cheryl A. Esplin
+
+By Elder Kevin W. Pearson - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Kevin W. Pearson - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/stay-by-the-tree?lang=eng)
 
-Shortly before President Heber J. Grant passed away, one of the Brethren visited his home. Before he left, President Grant prayed, “O God, bless me that I shall not lose my testimony and keep faithful to the end!”[^1] After nearly 27 years as President of the Church, this was his fervent prayer. His example is a striking reminder that no one, at any age, is immune from Satan’s influence. Two of Satan’s most powerful tools are distraction and deception.
+Shortly before President Heber J. Grant passed away, one of the Brethren visited his home. Before he left, President Grant prayed, “O God, bless me that I shall not lose my testimony and keep faithful to the end!”[^1] After nearly 27 years as President of the Church, this was his fervent prayer. His example is a striking reminder that no one, at any age, is immune from Satan’s influence. Two of Satan’s most powerful tools are distraction and deception.
 
 Enduring to the end is a hallmark of true discipleship and is essential to eternal life. But when trials and challenges come our way, we are often told to simply “hang in there.” Let me be clear: to “hang in there” is not a principle of the gospel. Enduring to the end means constantly coming unto Christ and being perfected in Him.
 
@@ -18,7 +20,7 @@ Lehi’s vision of the tree of life is a powerful parable on enduring to the end
 
 ## 1. Don’t Forget to Pray
 
-We begin with Lehi alone “in a dark and dreary waste.”[^2] Each of us experiences periods of darkness and loneliness. “When life gets dark and dreary, don’t forget to pray.”[^3] Follow President Heber J. Grant’s example. Pray for strength to endure to the end. Ask Heavenly Father, “What more would You have me do?”
+We begin with Lehi alone “in a dark and dreary waste.”[^2] Each of us experiences periods of darkness and loneliness. “When life gets dark and dreary, don’t forget to pray.”[^3] Follow President Heber J. Grant’s example. Pray for strength to endure to the end. Ask Heavenly Father, “What more would You have me do?”
 
 ## 2. Come unto Christ and Be Perfected in Him
 
@@ -38,7 +40,7 @@ Life’s journey is challenging. It’s easy to be distracted, wander off the pa
 
 ## 5. Don’t Be Distracted and Deceived
 
-To heed is to give careful attention. Heeding those who do not believe in Christ will not help you find Him. Searching \#spaciousbuilding for knowledge will not lead you to truth. It’s not posted there. Only the Savior has “the words of eternal life.”[^8] Everything else is just words. The large and spacious building symbolizes the “vain imaginations and the pride”[^9] of the world—in other words, distraction and deception. It’s filled with well-dressed people who seem to have everything. But they mock the Savior and those who follow Him. They are “ever learning, and never able to come to the knowledge of the truth.”[^10] They may be politically correct, but they are spiritually lost.
+To heed is to give careful attention. Heeding those who do not believe in Christ will not help you find Him. Searching #spaciousbuilding for knowledge will not lead you to truth. It’s not posted there. Only the Savior has “the words of eternal life.”[^8] Everything else is just words. The large and spacious building symbolizes the “vain imaginations and the pride”[^9] of the world—in other words, distraction and deception. It’s filled with well-dressed people who seem to have everything. But they mock the Savior and those who follow Him. They are “ever learning, and never able to come to the knowledge of the truth.”[^10] They may be politically correct, but they are spiritually lost.
 
 ## 6. Stay by the Tree
 
@@ -69,7 +71,7 @@ I bear witness of the resurrected, living Christ. I know that He lives. My great
 
 [^1]: Quoted by John Longden, in Conference Report, Oct. 1958, 70.
 
-[^2]: [[1 Nephi 8.7|1 Nephi 8:7]].
+[^2]: [[1 Nephi 8.7|1 Nephi 8:7]].
 
 [^3]: “Did You Think to Pray?” *Hymns,* no. 140.
 
@@ -77,24 +79,19 @@ I bear witness of the resurrected, living Christ. I know that He lives. My great
 
 [^5]: [[John 14.6|John 14:6]].
 
-[^6]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^6]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^7]: [[1 Nephi 8.30|1 Nephi 8:30]].
+[^7]: [[1 Nephi 8.30|1 Nephi 8:30]].
 
 [^8]: [[John 6.68|John 6:68]].
 
-[^9]: [[1 Nephi 12.18|1 Nephi 12:18]].
+[^9]: [[1 Nephi 12.18|1 Nephi 12:18]].
 
-[^10]: [[2 Timothy 3.7|2 Timothy 3:7]].
+[^10]: [[2 Timothy 3.7|2 Timothy 3:7]].
 
 [^11]: [[Alma 5.7|Alma 5:7]].
 
 [^12]: [[Jacob 4.13|Jacob 4:13]].
 
-[^13]: [[1 Nephi 15.24|1 Nephi 15:24–25]][[1 Nephi 15.25|]].
+[^13]: [[1 Nephi 15.24|1 Nephi 15:24–25]][[1 Nephi 15.25|]].
 
-
-
-
-
-#Book_Of_Mormon #Conversion #Covenants #Discipleship #Endurance #Jesus_Christ

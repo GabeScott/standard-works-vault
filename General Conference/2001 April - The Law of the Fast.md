@@ -1,5 +1,7 @@
 # The Law of the Fast
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -111,7 +113,7 @@ I raise my voice in testimony and promise, along with the great Apostles who hav
 
 [^13]: See Conference Report, Oct. 1977, 10; or *Ensign,* Nov. 1977, 8.
 
-[^14]: In Conference Report, Apr. 1991, 73; or *Ensign,* May 1991, 52–53.
+[^14]: In Conference Report, Apr. 1991, [[1991 April - The State of the Church.md|73]]; or *Ensign,* May 1991, 52–53.
 
 [^15]: [[Isaiah 58.9|Isa. 58:9, 11]][[Isaiah 58.11|]].
 
@@ -121,8 +123,3 @@ I raise my voice in testimony and promise, along with the great Apostles who hav
 
 [^18]: [[D&C 81.5|D&C 81:5]].
 
-
-
-
-
-#Compassion #Family #Fasting #Forgiveness #Generosity #Love #Peace #Poverty #Prayer #Priesthood #Service #Spirituality #Welfare

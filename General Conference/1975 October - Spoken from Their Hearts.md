@@ -1,6 +1,8 @@
 # Spoken from Their Hearts
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -14,7 +16,7 @@ While sitting here, I have made up my mind that when I go home from this confere
 
 You have heard the Brethren speak with great strength of the principles of the gospel. You heard Brother Benson in his inspired sermon tell us that the immutable laws of God remain steadfast in the heavens above; when men and nations refuse to abide by them, the penalty must follow. They will be wasted away. Sin demands punishment. He said further, “Therefore, as humble servants of the Lord, we call upon the leaders of nations to be humble and humble themselves before God, to seek his inspiration and his guidance.” That is a bold statement, but very much in order.
 
-You heard Elder Thomas S. Monson speak of how the President of the Council of the Twelve is guided to make changes through the inspiration of the Lord, so that Elder Monson happened to be in the right place to give a blessing to a dying child. He told us how the program unraveled so that he went to this conference, drove eighty miles out of his way, and met the family that was soon to bury this little one.
+You heard Elder Thomas S. Monson speak of how the President of the Council of the Twelve is guided to make changes through the inspiration of the Lord, so that Elder Monson happened to be in the right place to give a blessing to a dying child. He told us how the program unraveled so that he went to this conference, drove eighty miles out of his way, and met the family that was soon to bury this little one.
 
 Did you hear Elder Sill telling of the examples of great and powerful people who lost their power when they lost their controls and yielded to the demands of lustful lives? He told also the story in *Pilgrim’s Progress* where a man refused a crown because he had given his life to raking muck.
 
@@ -59,8 +61,3 @@ And God bless all you who are here. May he go with you to your homes as you retu
 
 
 
-
-
-
-
-#General_Conference

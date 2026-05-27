@@ -1,5 +1,7 @@
 # This Is the Work of the Master
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1995 General Conference*
@@ -18,27 +20,27 @@ With President Hunter’s passing, the First Presidency was dissolved. Brother M
 
 Three weeks ago today all of the living ordained Apostles gathered in a spirit of fasting and prayer in the upper room of the temple. Here we sang a sacred hymn and prayed together. We partook of the sacrament of the Lord’s supper, renewing in that sacred, symbolic testament our covenants and our relationship with Him who is our divine Redeemer.
 
-The presidency was then reorganized, following a precedent well established through generations of the past.
+The Presidency was then reorganized, following a precedent well established through generations of the past.
 
 There was no campaigning, no contest, no ambition for office. It was quiet, peaceful, simple, and sacred. It was done after the pattern which the Lord Himself had put in place.
 
-We have received from many people expressions of congratulations and confidence. These have come from members of the Church and from those not of our faith. To one and all I express my deep appreciation. I know full well that it is not the man whom they compliment, but, rather, the office.
+We have received from many people expressions of congratulations and confidence. These have come from members of the Church and from those not of our faith. To one and all I express my deep appreciation. I know full well that it is not the man whom they compliment but, rather, the office.
 
 Yesterday morning members of the Church across the world met together in a solemn assembly. You raised your hands, without compulsion and of your own free will, to confirm the action taken by the Apostles three weeks ago and to sustain those called to serve.
 
-As you know, mine has been the special privilege to serve as a counselor to three great Presidents. I think I know something of the meaning of heavy responsibility. But with all of that, I have, during these past few days, been overwhelmed with feelings of inadequacy and total dependency upon the Lord, who is my head and whose church this is, and upon the strength of these good men who are my counselors, my dear Brethren of the Twelve, of the Seventy, and of the Presiding Bishopric, and of the membership of the Church throughout the world. I search for words to express the depth of my gratitude and my appreciation and my love.
+As you know, mine has been the special privilege to serve as a counselor to three great Presidents. I think I know something of the meaning of heavy responsibility. But with all of that, I have, during these past few days, been overwhelmed with feelings of inadequacy and total dependency upon the Lord, who is my head and whose church this is; upon the strength of these good men who are my counselors; upon my dear Brethren of the Twelve, of the Seventy, and of the Presiding Bishopric; and upon the membership of the Church throughout the world. I search for words to express the depth of my gratitude and my appreciation and my love.
 
 Years ago I gave a talk on the loneliness of leadership. Now for the first time I realize the full import of that loneliness. I do not know why this mantle has fallen upon my shoulders. I suppose some of you may also wonder. But we are here.
 
-In circumstances such as these one’s searching thoughts go back over all of the years of one’s life, and even beyond. I am of only the third generation in the Church. My grandfather as a boy was baptized in the summer of 1836 in Ontario, Canada. His widowed mother eventually brought her two boys to Springfield, Illinois. From there, my grandfather walked to Nauvoo where he listened to the Prophet Joseph Smith. When the exodus of our people occurred in 1846, he was an eighteen-year-old youth of strength and capacity and faith. He was a skilled builder of wagons and a blacksmith. He was among those whom President Young requested remain for a time in Iowa to assist those still on the westward trail. He married in 1848, and set out for this valley in the spring of 1850.
+In circumstances such as these, one’s searching thoughts go back over all of the years of one’s life and even beyond. I am of only the third generation in the Church. My grandfather as a boy was baptized in the summer of 1836 in Ontario, Canada. His widowed mother eventually brought her two boys to Springfield, Illinois. From there my grandfather walked to Nauvoo, where he listened to the Prophet Joseph Smith. When the exodus of our people occurred in 1846, he was an eighteen-year-old youth of strength and capacity and faith. He was a skilled builder of wagons and a blacksmith. He was among those whom President Young requested remain for a time in Iowa to assist those still on the westward trail. He married in 1848 and set out for this valley in the spring of 1850.
 
 Somewhere along that wearisome trail, his young wife sickened and died. With his own hands he dug a grave, split logs to make a coffin, lovingly buried her, then tearfully took their eleven-month-old child in his arms and marched on to this valley.
 
-He was among those who repeatedly was called by President Young to undertake a variety of difficult assignments incident to the establishment of our people in these mountain valleys. He served as president of the Millard Stake of Zion when there were only a handful of stakes, and when it included a vast area of central Utah, traveling thousands of miles by horse and buggy in the discharge of his ministry. He gave so generously of his substance in the establishment of schools that his once substantial estate was small at the time of his death.
+He was among those who repeatedly were called by President Young to undertake a variety of difficult assignments incident to the establishment of our people in these mountain valleys. He served as president of the Millard Stake of Zion when there were only a handful of stakes, and when it included a vast area of central Utah, traveling thousands of miles by horse and buggy in the discharge of his ministry. He gave so generously of his substance in the establishment of schools that his once substantial estate was small at the time of his death.
 
-My father was similarly a man of great faith, who served the Church without reservation in many trusted capacities. For a number of years he presided over what was then the largest stake in the Church, with more than fifteen thousand members. My mother and grandmothers were likewise women of great faith, whose lives were not always easy because of requirements made upon them by the Church. But they did not complain. They met their responsibilities with cheerfulness and devotion.
+My father was similarly a man of great faith who served the Church without reservation in many trusted capacities. For a number of years he presided over what was then the largest stake in the Church, with more than fifteen thousand members. My mother and grandmothers were likewise women of great faith whose lives were not always easy because of requirements made upon them by the Church. But they did not complain. They met their responsibilities with cheerfulness and devotion.
 
-For these forebears I feel a great sense of gratitude and love, and an almost overwhelming obligation to keep the trust which they have passed. To my beloved wife of fifty-eight years later this month, I express appreciation. How empty our lives would be without these, our wonderful companions. How grateful I am for this precious woman, who has walked at my side through sunshine and storm. We do not stand as tall as we once did. But there has been no shrinkage in our love one for another.
+For these forebears I feel a great sense of gratitude and love and an almost overwhelming obligation to keep the trust which they have passed. To my beloved wife of fifty-eight years later this month, I express appreciation. How empty our lives would be without these, our wonderful companions. How grateful I am for this precious woman, who has walked at my side through sunshine and storm. We do not stand as tall as we once did. But there has been no shrinkage in our love one for another.
 
 I likewise speak with gratitude for my children and my grandchildren and great-grandchildren, who have honored us with the goodness of their lives.
 
@@ -66,7 +68,7 @@ Further, “And if thou art faithful unto the end thou shalt have a crown of imm
 
 All of us in this great cause are of one mind, of one belief, of one faith.
 
-You have as great an opportunity for satisfaction in the performance of your duty as I do in mine. The progress of this work will be determined by our joint efforts. Whatever your calling, it is as fraught with the same kind of opportunity to accomplish good as is mine. What is really important is that this is the work of the Master. Our work is to go about doing good as did He.
+You have as great an opportunity for satisfaction in the performance of your duty as I do in mine. The progress of this work will be determined by our joint efforts. Whatever your calling, it is as fraught with the same kind of opportunity to accomplish good as is mine. What is really important is that this is the work of the Master. Our work is to go about doing good, as did He.
 
 If in my service I have offended anyone, I offer my apology. To those who for any reason find yourselves outside the embrace of the Church you once enjoyed, I invite you to return and partake of the happiness you once knew. You will find many with outstretched arms to warmly welcome you and assist you.
 
@@ -76,13 +78,13 @@ I call attention to these striking words of Joseph Smith spoken in 1843:
 
 “If it has been demonstrated that I have been willing to die for a ‘Mormon,’ I am bold to declare before Heaven that I am just as ready to die in defending the rights of a Presbyterian, a Baptist, or a good man of any other denomination; for the same principle which would trample upon the rights of the Latter-day Saints would trample upon the rights of the Roman Catholics, or of any other denomination” (*History of the Church,* 5:498).
 
-Now, my brethren and sisters, the time has come for us to stand a little taller, to lift our eyes and stretch our minds to a greater comprehension and understanding of the grand millennial mission of this The Church of Jesus Christ of Latter-day Saints. This is a season to be strong. It is a time to move forward without hesitation, knowing well the meaning, the breadth, and the importance of our mission. It is a time to do what is right regardless of the consequences that might follow. It is a time to be found keeping the commandments. It is a season to reach out with kindness and love to those in distress and to those who are wandering in darkness and pain. It is a time to be considerate and good, decent and courteous toward one another in all of our relationships. In other words, to become more Christlike.
+Now, my brethren and sisters, the time has come for us to stand a little taller, to lift our eyes and stretch our minds to a greater comprehension and understanding of the grand millennial mission of this, The Church of Jesus Christ of Latter-day Saints. This is a season to be strong. It is a time to move forward without hesitation, knowing well the meaning, the breadth, and the importance of our mission. It is a time to do what is right regardless of the consequences that might follow. It is a time to be found keeping the commandments. It is a season to reach out with kindness and love to those in distress and to those who are wandering in darkness and pain. It is a time to be considerate and good, decent and courteous toward one another in all of our relationships—in other words, to become more Christlike.
 
 We have nothing to fear. God is at the helm. He will overrule for the good of this work. He will shower down blessings upon those who walk in obedience to His commandments. Such has been His promise. Of His ability to keep that promise none of us can doubt.
 
 The little stone which was cut out of the mountain without hands as seen in Daniel’s vision is rolling forth to fill the whole earth (see [[Daniel 2.44|Dan. 2:44–45]][[Daniel 2.45|]]). No force under the heavens can stop it if we will walk in righteousness and be faithful and true. The Almighty Himself is at our head. Our Savior, who is our Redeemer, the Great Jehovah, the mighty Messiah, has promised: “I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|D&C 84:88]]).
 
-“Therefore,” said He, “fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. …
+“Therefore,” said He, “fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. …
 
 “Look unto me in every thought; doubt not, fear not.
 
@@ -95,8 +97,3 @@ I repeat, this, my brethren and sisters, is the work of the Almighty. He lives, 
 
 
 
-
-
-
-
-#Children #Elderly #Howard_W._Hunter #Jesus_Christ #Parenthood #Respect #Tolerance #Unity #Youth

@@ -1,5 +1,7 @@
 # Redemption of the Dead
 
+Thomas S. Monson
+
 By Elder Earl C. Tingey - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -56,7 +58,7 @@ The promises relate to the covenant of the Lord that He is no respecter of perso
 
 To plant these promises in the hearts of the children, and to turn the hearts of the children to their fathers, was defined by Elder Mark E. Petersen in the October 1971 general conference, as follows:
 
-“Malachi plainly outlines the mission of Elijah—to establish a bond of interest between present and past generations … to create in the hearts of living men and women an interest in their ancestors” (“Why Mormons Build Temples,” *Ensign,* Jan. 1972, p. 49).
+“Malachi plainly outlines the mission of Elijah—to establish a bond of interest between present and past generations … to create in the hearts of living men and women an interest in their ancestors” (“Why Mormons Build Temples,” *Ensign,* Jan. 1972, p. 49).
 
 The seed planted by the Lord, through Elijah’s appearance to Joseph Smith in 1836, was not a full-grown tree, but only a seed. At that time there were no genealogical societies in existence. History confirms that family research in America generally commenced with the forming of the New England Historical Genealogical Society in Boston in 1844.
 
@@ -69,8 +71,3 @@ I bear humble testimony that this work of the redemption is true. Jesus Christ p
 
 
 
-
-
-
-
-#Family_History #Temple_Work

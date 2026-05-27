@@ -1,6 +1,8 @@
 # Priesthood Administration of Welfare Services
 
-By Elder J. Thomas Fyans - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder J. Thomas Fyans - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -77,8 +79,3 @@ I bear my witness of the divinity of this, and I do so in the name of Jesus Chri
 
 
 
-
-
-
-
-#Priesthood #Welfare

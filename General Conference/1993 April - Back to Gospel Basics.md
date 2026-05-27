@@ -1,5 +1,7 @@
 # Back to Gospel Basics
 
+Thomas S. Monson
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -68,19 +70,19 @@ Among the Peruvian Saints, who live in this nation racked with heartache and des
 
 A special maturing in the gospel has developed among the members of the Church in Peru because they added to their daily family prayers the practice of having daily family scripture study. When the revealed words of the prophets found their way into the hearts of the Saints, they brought about a mighty change in the way they lived and believed. Questions, personal problems, and important concerns were answered for them by the inspired counsel of the scriptures.
 
-All the standard works of the Church instruct us to read and ponder their sayings. From the Old Testament we read, “Seek ye out of the book of the Lord, and read” ([[Isaiah 34.16|Isa. 34:16]]). From the New Testament, “Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me” ([[John 5.39|John 5:39]]). Nephi, in the Book of Mormon, observes, “My soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children” ([[2 Nephi 4.15|2 Ne. 4:15]]). Counsel from the Pearl of Great Price promises, “And whoso treasureth up my word, shall not be deceived” ([[Joseph Smith Matthew 1.37|JS—M 1:37]]). And finally, in the Doctrine and Covenants we read: “First seek to obtain my word. … Study my word which hath gone forth among the children of men” ([[D&C 11.21|D&C 11:21–22]][[D&C 11.22|]]).
+All the standard works of the Church instruct us to read and ponder their sayings. From the Old Testament we read, “Seek ye out of the book of the Lord, and read” ([[Isaiah 34.16|Isa. 34:16]]). From the New Testament, “Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me” ([[John 5.39|John 5:39]]). Nephi, in the Book of Mormon, observes, “My soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children” ([[2 Nephi 4.15|2 Ne. 4:15]]). Counsel from the Pearl of Great Price promises, “And whoso treasureth up my word, shall not be deceived” ([[Joseph Smith Matthew 1.37|JS—M 1:37]]). And finally, in the Doctrine and Covenants we read: “First seek to obtain my word. … Study my word which hath gone forth among the children of men” ([[D&C 11.21|D&C 11:21–22]][[D&C 11.22|]]).
 
 The scriptures are one of our greatest treasures. They contain God’s instructions to His people from the beginning of time. In a world so full of the doctrines of men, how grateful we are to have a sure anchor on which to build our faith! Of the Book of Mormon, Elder Marion G. Romney said:
 
 “If our young folks are traditioned in the teachings of the Book of Mormon, they will not only be inspired with righteous courage to choose the right by … example, … they will also be so schooled in the principles of the gospel of Jesus Christ that they will know what is right.
 
-“From almost every page of the book, there will come to them a moving testimony that Jesus is indeed the Christ, the Son of the Living God, our Redeemer and Savior. This witness alone will be a sustaining anchor in every storm” (in Conference Report, Apr. 1960, p. 112).
+“From almost every page of the book, there will come to them a moving testimony that Jesus is indeed the Christ, the Son of the Living God, our Redeemer and Savior. This witness alone will be a sustaining anchor in every storm” (in Conference Report, Apr. 1960, p. 112).
 
 In the Lord’s instructions to His children, we find sublime consistency. What the Lord has declared to be right will always be right. What He has declared to be true will always be true. What He has declared to be sinful will always be sinful. Rest assured that when the so-called enlightened doctrines of men contradict the holy scriptures, they will only bring heartache, disappointment, and destruction to the souls of mankind.
 
 President Benson has counseled us concerning searching the scriptures:
 
-“Let us not treat lightly the great things we have received from the … Lord! His word is one of the most valuable gifts He has given us. … Recommit yourselves to a study of the scriptures. Immerse yourselves in them daily. … Read them in your families and teach your children to love and treasure them. Then prayerfully and in counsel with others, seek every way possible to encourage the members of the Church to follow your example” (“The Power of the Word,” *Ensign,* May 1986, p. 82).
+“Let us not treat lightly the great things we have received from the … Lord! His word is one of the most valuable gifts He has given us. … Recommit yourselves to a study of the scriptures. Immerse yourselves in them daily. … Read them in your families and teach your children to love and treasure them. Then prayerfully and in counsel with others, seek every way possible to encourage the members of the Church to follow your example” (“The Power of the Word,” *Ensign,* May 1986, p. 82).
 
 My sincere counsel to you today is to recommit yourselves to these two basic practices that have been the source of so many blessings for the Saints in Peru. Never let a day go by without holding family prayer and family scripture study. Put this, the Lord’s program, to the test and see if it does not bless your home with greater peace, hope, love, and faith.
 
@@ -93,8 +95,3 @@ God lives! Jesus is the Christ, the Savior of the world. This is my solemn witne
 
 
 
-
-
-
-
-#Prayer #Scripture_Study

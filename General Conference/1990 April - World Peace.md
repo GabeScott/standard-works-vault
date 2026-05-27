@@ -1,5 +1,7 @@
 # World Peace
 
+Thomas S. Monson
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -22,23 +24,23 @@ The peace the gospel brings is not just the *absence* of war. It is the *opposit
 
 In the midst of World War I, President Joseph F. Smith declared:
 
-“For years it has been held that peace comes only by preparation for war; the present conflict should prove that peace comes only by preparing for peace, through training the people in righteousness and justice, and selecting rulers who respect the righteous will of the people. …
+“For years it has been held that peace comes only by preparation for war; the present conflict should prove that peace comes only by preparing for peace, through training the people in righteousness and justice, and selecting rulers who respect the righteous will of the people. …
 
-“There is only one thing that can bring peace into the world. It is the adoption of the gospel of Jesus Christ, rightly understood, obeyed and practiced by rulers and people alike” (*Improvement Era,* Sept. 1914, pp. 1074–75).
+“There is only one thing that can bring peace into the world. It is the adoption of the gospel of Jesus Christ, rightly understood, obeyed and practiced by rulers and people alike” (*Improvement Era,* Sept. 1914, pp. 1074–75).
 
 A generation later, during the savage hostilities of World War II, President David O. McKay declared:
 
-“Peace will come and be maintained only through the triumph of the principles of peace, and by the consequent subjection of the enemies of peace, which are hatred, envy, ill-gotten gain, the exercise of unrighteous dominion of men. Yielding to these evils brings misery to the individual, unhappiness to the home, war among nations” (*Gospel Ideals* \[Salt Lake City: Deseret Book Co., 1953\], p. 280).
+“Peace will come and be maintained only through the triumph of the principles of peace, and by the consequent subjection of the enemies of peace, which are hatred, envy, ill-gotten gain, the exercise of unrighteous dominion of men. Yielding to these evils brings misery to the individual, unhappiness to the home, war among nations” (*Gospel Ideals* \[Salt Lake City: Deseret Book Co., 1953\], p. 280).
 
 Such has been the message of the prophets in all ages. Referring to the first families of the earth, Moses wrote, “And in those days Satan had great dominion among men, and raged in their hearts; and from thenceforth came wars and bloodshed” ([[Moses 6.15|Moses 6:15]]).
 
 In his own day, Moses gave the Lord’s promise to the children of Israel: “If ye walk in my statutes, and keep my commandments, … I will give peace in the land, … neither shall the sword go through your land” ([[Leviticus 26.3|Lev. 26:3, 6]][[Leviticus 26.6|]]).
 
-Throughout the Book of Mormon, the Lord declares, “Inasmuch as ye shall keep my commandments ye shall prosper in the land” ([[2 Nephi 1.20|2 Ne. 1:20]]).
+Throughout the Book of Mormon, the Lord declares, “Inasmuch as ye shall keep my commandments ye shall prosper in the land” ([[2 Nephi 1.20|2 Ne. 1:20]]).
 
 As we seek to understand the causes of wars, persecutions, and civil strife, we can see that they are almost always rooted in wickedness.
 
-The mass-murders of the twentieth century are among the bloodiest crimes ever committed against humanity. We can hardly comprehend the magnitude of the Nazi holocaust murders of over five million Jews in Europe, Stalin’s purges and labor camps that killed five to ten million in the Soviet Union, and the two to three million noncombatants who were killed or who died of hunger in the Biafran War (see Isidor Walliman and Michael N. Dobkowski, eds., *Genocide and the Modern Age* \[New York: Greenwood Press, 1987\], p. 46; *The Nation,* 6 Mar. 1989, p. 294, 7/14 Aug. 1989, p. 154).
+The mass-murders of the twentieth century are among the bloodiest crimes ever committed against humanity. We can hardly comprehend the magnitude of the Nazi holocaust murders of over five million Jews in Europe, Stalin’s purges and labor camps that killed five to ten million in the Soviet Union, and the two to three million noncombatants who were killed or who died of hunger in the Biafran War (see Isidor Walliman and Michael N. Dobkowski, eds., *Genocide and the Modern Age* \[New York: Greenwood Press, 1987\], p. 46; *The Nation,* 6 Mar. 1989, p. 294, 7/14 Aug. 1989, p. 154).
 
 All of these slaughters, and others like them, were rooted in the ancient wickedness Satan taught—that a man could murder to get gain (see [[Moses 5.30|Moses 5:30–31]][[Moses 5.31|]]). The mass-murderers of this century killed to acquire property and to secure power over others.
 
@@ -50,7 +52,7 @@ Through the prophet Moses, the Lord God of Israel commanded:
 
 “Thou shalt not steal.
 
-“Thou shalt not bear false witness. …
+“Thou shalt not bear false witness. …
 
 “Thou shalt not covet” ([[Exodus 20.13|Ex. 20:13–17]][[Exodus 20.14|]][[Exodus 20.15|]][[Exodus 20.16|]][[Exodus 20.17|]]).
 
@@ -58,9 +60,9 @@ Obedience to these commandments, which are the bedrock moral foundation for all 
 
 We still live in a time of turmoil. There are wars between some nations, armed conflicts within others, and violent controversies in most. People are killed every day in some places, and hatred is practiced in many more. Peace is a victim everywhere.
 
-If only we could heed the call of the Lord God of Israel, “Come unto me all ye ends of the earth” ([[2 Nephi 26.25|2 Ne. 26:25]]). As the Book of Mormon teaches, he has created all flesh, “and the one being is as precious in his sight as the other” ([[Jacob 2.21|Jacob 2:21]]). He has given salvation “free for all men” ([[2 Nephi 26.27|2 Ne. 26:27]]), and “all men are privileged the one like unto the other, and none are forbidden” ([[2 Nephi 26.28|v. 28]]).
+If only we could heed the call of the Lord God of Israel, “Come unto me all ye ends of the earth” ([[2 Nephi 26.25|2 Ne. 26:25]]). As the Book of Mormon teaches, he has created all flesh, “and the one being is as precious in his sight as the other” ([[Jacob 2.21|Jacob 2:21]]). He has given salvation “free for all men” ([[2 Nephi 26.27|2 Ne. 26:27]]), and “all men are privileged the one like unto the other, and none are forbidden” ([[2 Nephi 26.28|v. 28]]).
 
-“And he inviteth \[all men\] to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God” ([[2 Nephi 26.33|2 Ne. 26:33]]).
+“And he inviteth \[all men\] to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; and he remembereth the heathen; and all are alike unto God” ([[2 Nephi 26.33|2 Ne. 26:33]]).
 
 The blessings of the gospel are universal, and so is the formula for peace: keep the commandments of God. War and conflict are the result of wickedness; peace is the product of righteousness.
 
@@ -80,7 +82,7 @@ Just across the borders of some nations are the wretched camps of refugees whose
 
 The moral climate in some nations is reminiscent of the prophet Ezekiel’s description of “the bloody city” of Jerusalem:
 
-“Her princes in the midst thereof are like wolves ravening the prey, to shed blood, and to destroy souls, to get dishonest gain. …
+“Her princes in the midst thereof are like wolves ravening the prey, to shed blood, and to destroy souls, to get dishonest gain. …
 
 “The people of the land have used oppression, and exercised robbery, and have vexed the poor and needy” ([[Ezekiel 22.27|Ezek. 22:27, 29]][[Ezekiel 22.29|]]).
 
@@ -90,7 +92,7 @@ We cannot have peace among nations without achieving general righteousness among
 
 “The only way to build a peaceful community is to build men and women who are lovers and makers of peace. Each individual, by that doctrine of Christ and His Church, holds in his own hands the peace of the world.
 
-“That makes me responsible for the peace of the world, and makes you individually responsible for the peace of the world. The responsibility cannot be shifted to someone else. It cannot be placed upon the shoulders of Congress or Parliament, or any other organization of men with governing authority” (in Conference Report, Oct. 1943, p. 113).
+“That makes me responsible for the peace of the world, and makes you individually responsible for the peace of the world. The responsibility cannot be shifted to someone else. It cannot be placed upon the shoulders of Congress or Parliament, or any other organization of men with governing authority” (in Conference Report, Oct. 1943, p. 113).
 
 If citizens do not have a basic goodness to govern their actions toward one another, we can never achieve peace in the world. One nation’s greed, hatred, or desire for power over another is simply a reflection of the greeds, hatreds, and selfish desires of individuals within that nation.
 
@@ -102,9 +104,9 @@ Recent history reminds us that people who continue to hate one another after a w
 
 Our Church members demonstrated the healing and pacifying power of love in their shipment of food and clothing to relieve the suffering of the German Saints just after World War II. U.S. President Harry S. Truman was amazed when President George Albert Smith told him the supplies would not be sold. “You don’t mean you are going to give it to them?” he exclaimed.
 
-President Smith replied simply, “They are our brothers and sisters and are in distress” (in Edward L. Kimball and Andrew E. Kimball, Jr., *Spencer W. Kimball* \[Salt Lake City: Bookcraft, 1977\], p. 222).
+President Smith replied simply, “They are our brothers and sisters and are in distress” (in Edward L. Kimball and Andrew E. Kimball, Jr., *Spencer W. Kimball* \[Salt Lake City: Bookcraft, 1977\], p. 222).
 
-A few months later, Elder Ezra Taft Benson saw a German member in tears as he ran his fingers through a container of cracked wheat and whispered, “Brother Benson, it is hard for me to believe that people who have never seen us could do so much for us” (in Sheri L. Dew, *Ezra Taft Benson* \[Salt Lake City: Deseret Book Co., 1987\], p. 219).
+A few months later, Elder Ezra Taft Benson saw a German member in tears as he ran his fingers through a container of cracked wheat and whispered, “Brother Benson, it is hard for me to believe that people who have never seen us could do so much for us” (in Sheri L. Dew, *Ezra Taft Benson* \[Salt Lake City: Deseret Book Co., 1987\], p. 219).
 
 What can one person do to promote world peace? The answer is simple: keep God’s commandments and serve his children.
 
@@ -137,8 +139,3 @@ May God bless all of us in that great effort, I pray, in the name of Jesus Chris
 
 
 
-
-
-
-
-#Faith #Peace #Spirituality

@@ -1,6 +1,5 @@
 # Pit
 
-
 *See also* [[Death.md|Death]]; [[Grave [noun].md|Grave [noun]]]; [[Hell.md|Hell]]; [[Spirits in Prison.md|Spirits in Prison]]
 
 let us slay him, and cast him into some *pit*, [[Genesis 37.20|Genesis 37:20]].
@@ -9,7 +8,7 @@ if a man shall open a *pit*, or if a man shall dig a *pit*, [[Exodus 21.33|Exodu
 
 they go down quick into the *pit*, [[Numbers 16.30|Numbers 16:30]].
 
-They ... went down alive into the *pit*, [[Numbers 16.33|Numbers 16:33]].
+They … went down alive into the *pit*, [[Numbers 16.33|Numbers 16:33]].
 
 ye dig a *pit* for your friend, [[Job 6.27|Job 6:27]].
 
@@ -47,11 +46,11 @@ having the key of the bottomless *pit*, [[Revelation 20.1|Revelation 20:1]].
 
 cast him into the bottomless *pit*, [[Revelation 20.3|Revelation 20:3]].
 
-that great *pit* ... digged for them by that great and abominable church, [[1 Nephi 14.3|1 Nephi 14:3]].
+that great *pit* … digged for them by that great and abominable church, [[1 Nephi 14.3|1 Nephi 14:3]].
 
 shall fall into the *pit* which they digged to ensnare, [[1 Nephi 22.14|1 Nephi 22:14]].
 
-Look ... to the hole of the *pit*, [[2 Nephi 8.1|2 Nephi 8:1]].
+Look … to the hole of the *pit*, [[2 Nephi 8.1|2 Nephi 8:1]].
 
 brought down to hell, to the sides of the *pit*, [[2 Nephi 24.15|2 Nephi 24:15]].
 

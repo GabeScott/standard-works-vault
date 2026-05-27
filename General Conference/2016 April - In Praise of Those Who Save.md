@@ -1,6 +1,8 @@
 # In Praise of Those Who Save
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Cheryl A. Esplin
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -139,21 +141,19 @@ May the Lord bless you in your untiring and righteous efforts to be numbered amo
 
 
 
-[^1]: See [[1 Corinthians 13.4|1 Corinthians 13:4–7]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]]; see also [[Moroni 7.47|Moroni 7:47]].
+[^1]: See [[1 Corinthians 13.4|1 Corinthians 13:4–7]][[1 Corinthians 13.5|]][[1 Corinthians 13.6|]][[1 Corinthians 13.7|]]; see also [[Moroni 7.47|Moroni 7:47]].
 
 [^2]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
-[^3]: [[Matthew 7.7|Matthew 7:7]]; [[Luke 11.9|Luke 11:9]]; [[3 Nephi 14.7|3 Nephi 14:7]].
+[^3]: [[Matthew 7.7|Matthew 7:7]]; [[Luke 11.9|Luke 11:9]]; [[3 Nephi 14.7|3 Nephi 14:7]].
 
-[^4]: See [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
+[^4]: See [[4 Nephi 1.15|4 Nephi 1:15–16]][[4 Nephi 1.16|]].
 
-[^5]: [[1 Corinthians 13.8|1 Corinthians 13:8]]; see also [[Moroni 7.46|Moroni 7:46]].
+[^5]: [[1 Corinthians 13.8|1 Corinthians 13:8]]; see also [[Moroni 7.46|Moroni 7:46]].
 
 [^6]: [[James 2.13|James 2:13]], English Standard Version.
 
 [^7]: [[James 2.13|James 2:13]], English Standard Version.
 
+[^8]: “O God, the Eternal Father,” *Hymns,* no. 175.
 
-
-
-#Adversity #Charity #Family #Happiness #Jesus_Christ #Joy #Love #Marriage #Pride

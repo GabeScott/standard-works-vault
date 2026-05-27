@@ -1,6 +1,8 @@
 # A Self-Inflicted Purging
 
-By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -32,7 +34,7 @@ I know of a great man who held his dead son in his arms, and said, “In the nam
 
 This great brother could not have possibly done that had he been looking at a pornographic piece of material a few nights before or if he had been involved in any other transgression of that kind. The priesthood has to have a pure conduit to operate.
 
-President J. Reuben Clark gave me great light many years ago on a great tremendous subject. He said (and these are my words, not his) that the sex urge does not have to be satisfied, that Satan’s old lie is that it *does* have to be satisfied.
+President J. Reuben Clark gave me great light many years ago on a great tremendous subject. He said (and these are my words, not his) that the sex urge does not have to be satisfied, that Satan’s old lie is that it *does* have to be satisfied.
 
 I am sorry to tell you that there are men in high places who have some fairly major moral problems, even as youth have the same problems.
 
@@ -58,7 +60,7 @@ I was over in England a while back and a bishop asked me, “What is the Church�
 
 He said, “Well, I have read the *Priesthood Bulletin,* but that isn’t what it says to me.”
 
-And I said, “Would you get your *Priesthood Bulletin?* Let’s read it together.” And so we found under the heading “Cola Drinks”: “… the leaders of the Church have advised, and we do now specifically advise, against use of any drink containing harmful habit-forming drugs. …” (*The Priesthood Bulletin,* Feb. 1972, p. 4.)
+And I said, “Would you get your *Priesthood Bulletin?* Let’s read it together.” And so we found under the heading “Cola Drinks”: “… the leaders of the Church have advised, and we do now specifically advise, against use of any drink containing harmful habit-forming drugs. …” (*The Priesthood Bulletin,* Feb. 1972, p. 4.)
 
 He said, “Well, you see, that doesn’t mean cola.”
 
@@ -81,8 +83,3 @@ Now, the Lord bless you. This is the greatest group of men collected on the face
 
 
 
-
-
-
-
-#Morality

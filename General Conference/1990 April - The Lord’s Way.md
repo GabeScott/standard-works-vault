@@ -1,5 +1,7 @@
 # The Lord’s Way
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -10,11 +12,11 @@ As a foundation for my remarks this evening, I turn to the scriptures, that we m
 
 In the book of Malachi, the Lord instructs: “Even from the days of your fathers ye are gone away from mine ordinances, and have not kept them. Return unto me, and I will return unto you, saith the Lord of hosts. But ye said, Wherein shall we return?
 
-“Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
+“Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
 
 “Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.
 
-“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts. …
+“And I will rebuke the devourer for your sakes, and he shall not destroy the fruits of your ground; neither shall your vine cast her fruit before the time in the field, saith the Lord of hosts. …
 
 “For ye shall be a delightsome land, saith the Lord of hosts.” ([[Malachi 3.7|Mal. 3:7–8, 10–12]][[Malachi 3.8|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]].)
 
@@ -107,8 +109,3 @@ That we may, as a people, merit the blessings of God, I pray in the name of Jesu
 
 
 
-
-
-
-
-#Financial_Management #Tithing #Youth

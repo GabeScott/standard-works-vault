@@ -1,6 +1,8 @@
 # Seek Out Your Spiritual Leader
 
-By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Gene R. Cook - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -45,8 +47,3 @@ I pray that each of us might be more humble and desirous of receiving and obeyin
 
 
 
-
-
-
-
-#Leadership #Obedience

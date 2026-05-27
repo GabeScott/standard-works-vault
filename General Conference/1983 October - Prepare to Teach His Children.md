@@ -1,6 +1,8 @@
 # Prepare to Teach His Children
 
-By Dwan J. Young - *General Primary President*
+Gordon B. Hinckley
+
+By Dwan J. Young - *General Primary President*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -24,7 +26,7 @@ The scriptures tell us to “train up a child in the way he should go, and … h
 
 This plan outlined by the Lord is designed to impress us with the worth of human life and the profound importance of the individual. He has revealed that there is purpose in living. That purpose is for each of us to learn those Christlike attributes which will make us worthy of eternal life.
 
-Mortality is the time to learn to walk by faith. (See [[2 Corinthians 5.7|2 Cor. 5:7]].) It is the time to learn to be doers of the word, not hearers only. (See [[James 1.22|James 1:22]].) It is the time to gain knowledge and master some wisdom. It is the time to realize that it is not enough to know; we must also act on knowledge with wisdom. And finally, by the Lord’s definition, it is the time to learn how to love one another.
+Mortality is the time to learn to walk by faith. (See [[2 Corinthians 5.7|2 Cor. 5:7]].) It is the time to learn to be doers of the word, not hearers only. (See [[James 1.22|James 1:22]].) It is the time to gain knowledge and master some wisdom. It is the time to realize that it is not enough to know; we must also act on knowledge with wisdom. And finally, by the Lord’s definition, it is the time to learn how to love one another.
 
 President Kimball says the Lord sends us on his errands (see *Ensign,* May 1981, p. 78), for it is the best way we learn about charity—that perfect love of Christ—the love which nurtures and renews. Charity is the power which changes human life. It is the power which soothes the aching heart and restores the soul. Charity comes to us from the Lord and from those who see our needs. It comes into our lives when we give loving service to someone else in need.
 
@@ -49,8 +51,3 @@ Now is the time for each of us to prepare—to gain the strength necessary to me
 
 
 
-
-
-
-
-#Primary

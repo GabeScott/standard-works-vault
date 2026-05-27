@@ -1,12 +1,14 @@
 # The Temple, the Priesthood
 
+Thomas S. Monson
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1993/04/the-temple-the-priesthood?lang=eng)
 
-Just before the dedication of the Salt Lake Temple, President Wilford Woodruff and his Counselors issued an epistle to the Saints. While a hundred years have passed, it might have been issued today. They said: “During the past eighteen months … political campaigns have been conducted, elections have been held. … We feel now that … before entering into the Temple to present ourselves before the Lord … , we shall divest ourselves of every harsh and unkind feeling. …
+Just before the dedication of the Salt Lake Temple, President Wilford Woodruff and his Counselors issued an epistle to the Saints. While a hundred years have passed, it might have been issued today. They said: “During the past eighteen months … political campaigns have been conducted, elections have been held. … We feel now that … before entering into the Temple to present ourselves before the Lord … , we shall divest ourselves of every harsh and unkind feeling. …
 
 “Thus shall our supplications, undisturbed by a thought of discord, unitedly mount into the ears of Jehovah and draw down the choice blessings of the God of Heaven!”[^1]
 
@@ -26,7 +28,7 @@ Colonel Thomas L. Kane wrote: “They succeeded in parrying the last sword-thrus
 
 “Holiness to the Lord!
 
-“… It was this day,” he wrote, that “saw the departure of the last elders, and the largest band that moved in one company together. The people of Iowa have told me, that from morning to night they passed westward like an endless procession. They did not seem greatly out of heart, they said; but, at the top of every hill before they disappeared, were to be seen looking back … on their abandoned homes, and the far-seen Temple and its glittering spire.”[^4]
+“… It was this day,” he wrote, that “saw the departure of the last elders, and the largest band that moved in one company together. The people of Iowa have told me, that from morning to night they passed westward like an endless procession. They did not seem greatly out of heart, they said; but, at the top of every hill before they disappeared, were to be seen looking back … on their abandoned homes, and the far-seen Temple and its glittering spire.”[^4]
 
 The Saints disappeared beyond the western horizon, beyond Far West, where the cornerstones set seven years earlier were still in place—led by prophets and Apostles who held the keys of the priesthood and who carried in their minds the ordinances of the temple and the authority to administer the new and everlasting covenant.
 
@@ -52,7 +54,7 @@ The wicked spirit, which had inspired Governor Boggs of Missouri to issue the or
 
 President Young had said when they entered the Valley, “If they let us alone ten years we would ask no odds of them.”[^10] Ten years to the day a messenger arrived with word that Johnston’s army was marching west with orders to “settle the Mormon question.”
 
-President Young told the Saints: “\[We\] have been driven from place to place; … we have been scattered and peeled. …
+President Young told the Saints: “\[We\] have been driven from place to place; … we have been scattered and peeled. …
 
 “… We have transgressed no law, … neither do we intend to; but as for any nation’s coming to destroy this people, God Almighty being my helper, they cannot come here.”[^11]
 
@@ -131,23 +133,23 @@ May God grant that we may be worthy to enter there and receive the fulness of th
 
 
 
-[^1]: Wilford Woodruff, George Q. Cannon, and Joseph F. Smith, in James H. Anderson, “The Salt Lake Temple,” *Contributor,* Apr. 1893, pp. 284–85.
+[^1]: Wilford Woodruff, George Q. Cannon, and Joseph F. Smith, in James H. Anderson, “The Salt Lake Temple,” *Contributor,* Apr. 1893, pp. 284–85.
 
 [^2]: [[D&C 124.32|D&C 124:32]].
 
 [^3]: See Don F. Colvin, “A Historical Study of the Mormon Temple at Nauvoo, Illinois” (master’s thesis, Brigham Young University, 1962).
 
-[^4]: *The Mormons: A Discourse* (pamphlet, discourse delivered before The Historical Society of Pennsylvania, 26 Mar. 1850), pp. 20–21; Archives Division, Church Historical Department, The Church of Jesus Christ of Latter-day Saints, Salt Lake City, Utah; hereafter cited as Church Archives.
+[^4]: *The Mormons: A Discourse* (pamphlet, discourse delivered before The Historical Society of Pennsylvania, 26 Mar. 1850), pp. 20–21; Archives Division, Church Historical Department, The Church of Jesus Christ of Latter-day Saints, Salt Lake City, Utah; hereafter cited as Church Archives.
 
 [^5]: See Thomas Bullock Journals, 1844–1850, 8 July 1848; Church Archives.
 
 [^6]: Truman O. Angell Journal, 1857–1868, 28 May 1867; Church Archives.
 
-[^7]: David O. McKay, Salt Lake Temple dedication services, 21 May 1963, pp. 7–8.
+[^7]: David O. McKay, Salt Lake Temple dedication services, 21 May 1963, pp. 7–8.
 
 [^8]: See Journal of Wilford Woodruff, 4 July 1889; Church Archives.
 
-[^9]: David O. McKay, Salt Lake Temple dedication services, 21 May 1963, pp. 7–8.
+[^9]: David O. McKay, Salt Lake Temple dedication services, 21 May 1963, pp. 7–8.
 
 [^10]: In *Journal of Discourses,* 14:108; see also 5:226.
 
@@ -159,7 +161,7 @@ May God grant that we may be worthy to enter there and receive the fulness of th
 
 [^14]: John Fairbanks Diary; BYU Library.
 
-[^15]: *Discourses of Brigham Young,* sel. John A. Widtsoe (Salt Lake City: Deseret Book Co., 1941), pp. 415–16.
+[^15]: *Discourses of Brigham Young,* sel. John A. Widtsoe (Salt Lake City: Deseret Book Co., 1941), pp. 415–16.
 
 [^16]: [[D&C 124.28|D&C 124:28]]; emphasis added.
 
@@ -167,7 +169,7 @@ May God grant that we may be worthy to enter there and receive the fulness of th
 
 [^18]: [[D&C 124.34|D&C 124:34]].
 
-[^19]: [[Articles of Faith 1.5|A of F 1:5]].
+[^19]: [[Articles of Faith 1.5|A of F 1:5]].
 
 [^20]: [[D&C 42.11|D&C 42:11]].
 
@@ -179,18 +181,13 @@ May God grant that we may be worthy to enter there and receive the fulness of th
 
 [^24]: [[Acts 26.16|Acts 26:16]].
 
-[^25]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 265.
+[^25]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 265.
 
 [^26]: [[D&C 132.5|D&C 132:5]], emphasis added; see also [[D&C 124.33|D&C 124:33]].
 
 [^27]: [[D&C 121.12|D&C 121:12]].
 
-[^28]: “The Salt Lake Temple,” p. 284.
+[^28]: “The Salt Lake Temple,” p. 284.
 
 [^29]: [[D&C 124.44|D&C 124:44–46]][[D&C 124.45|]][[D&C 124.46|]]; emphasis added.
 
-
-
-
-
-#Authority #Priesthood #Temples

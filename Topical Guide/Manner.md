@@ -1,6 +1,5 @@
 # Manner
 
-
 After this *manner* therefore pray ye, [[Matthew 6.9|Matthew 6:9]] ([[3 Nephi 13.9|3 Nephi 13:9]]).
 
 shall so come in like *manner* as ye have seen him go, [[Acts 1.11|Acts 1:11]].
@@ -17,8 +16,8 @@ they know not concerning the *manner* of prophesying among the Jews, [[2 Nephi 2
 
 they did not reckon after the *manner* of the Jews, [[Alma 11.4|Alma 11:4]].
 
-commandments ... given unto my servants ... after the *manner* of their language, [[D&C 1.24|D&C 1:24]].
+commandments … given unto my servants … after the *manner* of their language, [[D&C 1.24|D&C 1:24]].
 
-first government of Egypt ... was after the *manner* of the government of Ham, [[Abraham 1.25|Abraham 1:25]].
+first government of Egypt … was after the *manner* of the government of Ham, [[Abraham 1.25|Abraham 1:25]].
 
 Kolob was after the *manner* of the Lord, [[Abraham 3.4|Abraham 3:4]].

@@ -1,6 +1,8 @@
 # The Dead Who Die in the Lord
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -14,7 +16,7 @@ Manifestly, we must all be guided and enlightened by the power of the Holy Spiri
 
 I pray that my words, spoken by the power of the Holy Ghost, shall sink deeply into your hearts by the power of that same Spirit, so that you will know of their truth and verity.
 
-For a text I take these sweet and consoling words of biblical origin: “Precious in the sight of the Lord is the death of his saints.” ([[Psalms 116.15|Ps. 116:15]].) To them I append Paul’s pointed and painful pronouncement: “The sting of death is sin.” ([[1 Corinthians 15.56|1 Cor. 15:56]].)
+For a text I take these sweet and consoling words of biblical origin: “Precious in the sight of the Lord is the death of his saints.” ([[Psalms 116.15|Ps. 116:15]].) To them I append Paul’s pointed and painful pronouncement: “The sting of death is sin.” ([[1 Corinthians 15.56|1 Cor. 15:56]].)
 
 Death can be comforting and sweet and precious or it can thrust upon us all the agonies and sulphurous burnings of an endless hell. And we—each of us individually—make the choice as to which it shall be.
 
@@ -44,7 +46,7 @@ As to the individual trials and problems that befall any of us, all we need say 
 
 Now, what of death? of the passing of loved ones? of our life beyond the grave?
 
-Our scriptures say: “Death hath passed upon all men, to fulfil the merciful plan of the great Creator.” ([[2 Nephi 9.6|2 Ne. 9:6]].) Where the true Saints are concerned there is no sorrow in death except that which attends a temporary separation from loved ones. Birth and death are both essential steps in the unfolding drama of eternity.
+Our scriptures say: “Death hath passed upon all men, to fulfil the merciful plan of the great Creator.” ([[2 Nephi 9.6|2 Ne. 9:6]].) Where the true Saints are concerned there is no sorrow in death except that which attends a temporary separation from loved ones. Birth and death are both essential steps in the unfolding drama of eternity.
 
 We shouted for joy at the privilege of becoming mortal because without the tests of mortality there could be no eternal life. We now sing praises to the great Redeemer for the privilege of passing from this life because without death and the resurrection we could not be raised in immortal glory and gain eternal life.
 
@@ -52,7 +54,7 @@ When the faithful saints depart from this life they “are received into a state
 
 When the wicked and ungodly depart from this life they continue in their wickedness and rebellion. “That same spirit which doth possess your bodies at the time ye go out of this life,” the scripture says, “that same spirit will have power to possess your body in that eternal world.” ([[Alma 34.34|Alma 34:34]].)
 
-“Ye must press forward with a steadfastness in Christ,” Nephi said to members of the Church, “having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.20|2 Ne. 31:20]].) That is to say—all the faithful Saints, all of those who have endured to the end, depart this life with the absolute guarantee of eternal life.
+“Ye must press forward with a steadfastness in Christ,” Nephi said to members of the Church, “having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, thus saith the Father: Ye shall have eternal life.” ([[2 Nephi 31.20|2 Ne. 31:20]].) That is to say—all the faithful Saints, all of those who have endured to the end, depart this life with the absolute guarantee of eternal life.
 
 There is no equivocation, no doubt, no uncertainty in our minds. Those who have been true and faithful in this life will not fall by the wayside in the life to come. If they keep their covenants here and now and depart this life firm and true in the testimony of our blessed Lord, they shall come forth with an inheritance of eternal life.
 
@@ -94,15 +96,10 @@ O that it might be with each of us as it was with that valiant apostle of old wh
 
 “I have fought a good fight, I have finished my course, I have kept the faith:
 
-“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.” ([[2 Timothy 4.6|2 Tim. 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].)
+“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.” ([[2 Timothy 4.6|2 Tim. 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].)
 
 In the name of the Lord Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Death #Plan_Of_Salvation

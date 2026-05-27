@@ -1,5 +1,7 @@
 # Latter-day Saints in Very Deed
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1997 General Conference*
@@ -28,7 +30,7 @@ Thank you for your prayers, your trust, your confidence. I am deeply grateful fo
 
 In closing, I would like to read a word or two from Mormon—great words:
 
-“But behold, that which is of God inviteth and enticeth to do good continually; wherefore, every thing which inviteth and enticeth to do good, and to love God, and to serve him, is inspired of God. …
+“But behold, that which is of God inviteth and enticeth to do good continually; wherefore, every thing which inviteth and enticeth to do good, and to love God, and to serve him, is inspired of God. …
 
 “For behold, the Spirit of Christ is given to every man, that he may know good from evil; wherefore, I show unto you the way to judge; for every thing which inviteth to do good, and to persuade to believe in Christ, is sent forth by the power and gift of Christ; wherefore ye may know with a perfect knowledge it is of God” ([[Moroni 7.13|Moro. 7:13, 16]][[Moroni 7.16|]]).
 
@@ -41,8 +43,3 @@ We are proud to be one with you in moving forward this mighty work. We are all i
 
 
 
-
-
-
-
-#Faith #General_Conference #Spirituality #Testimony #Tithing

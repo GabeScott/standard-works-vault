@@ -1,5 +1,7 @@
 # Faith through Tribulation Brings Peace and Joy
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -64,11 +66,11 @@ In His darkest hour, the light of peace and joy did not fade. It grew brighter! 
 
 But this was not all. In vision, President Joseph F. Smith—a prophet, seer, and revelator—saw the Savior’s visit to the spirit world:
 
-“There were gathered together in one place an innumerable company of the spirits of the just, who had been faithful in the testimony of Jesus while they lived in mortality. …
+“There were gathered together in one place an innumerable company of the spirits of the just, who had been faithful in the testimony of Jesus while they lived in mortality. …
 
 “All these had departed the mortal life, firm in the hope of a glorious resurrection, …
 
-“… \[And\] they were filled with joy and gladness, and were rejoicing together because the day of their deliverance was at hand.
+“… \[And\] they were filled with joy and gladness, and were rejoicing together because the day of their deliverance was at hand.
 
 “They were assembled awaiting the advent of the Son of God into the spirit world, to declare their redemption from the bands of death.”
 
@@ -95,13 +97,13 @@ I so testify, in the name of Jesus Christ, amen.
 
 [^5]: [[Mark 4.41|Mark 4:41]].
 
-[^6]: [[2 Timothy 3.1|2 Timothy 3:1–2, 5]][[2 Timothy 3.2|]][[2 Timothy 3.5|]].
+[^6]: [[2 Timothy 3.1|2 Timothy 3:1–2, 5]][[2 Timothy 3.2|]][[2 Timothy 3.5|]].
 
 [^7]: [[Mark 13.7|Mark 13:7]].
 
 [^8]: [[D&C 38.30|D&C 38:30]].
 
-[^9]: See [[1 Kings 19.11|1 Kings 19:11–15]][[1 Kings 19.12|]][[1 Kings 19.13|]][[1 Kings 19.14|]][[1 Kings 19.15|]].
+[^9]: See [[1 Kings 19.11|1 Kings 19:11–15]][[1 Kings 19.12|]][[1 Kings 19.13|]][[1 Kings 19.14|]][[1 Kings 19.15|]].
 
 [^10]: [[Ether 6.7|Ether 6:7, 10]][[Ether 6.10|]].
 
@@ -135,12 +137,7 @@ I so testify, in the name of Jesus Christ, amen.
 
 [^25]: [[Moses 7.61|Moses 7:61, 67]][[Moses 7.67|]].
 
-[^26]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^26]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^27]: [[Mark 4.39|Mark 4:39]].
 
-
-
-
-
-#Adversity #Faith #Jesus_Christ #Peace

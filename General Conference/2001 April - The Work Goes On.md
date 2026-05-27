@@ -1,5 +1,7 @@
 # The Work Goes On
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2001 General Conference*
@@ -49,8 +51,3 @@ God bless you, my beloved associates, I pray in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Church_Growth #Education #Faith #Gratitude #Missionary_Work #Obedience #Temples #Tolerance #Welfare

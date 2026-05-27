@@ -1,6 +1,8 @@
 # Becoming a True Disciple
 
-By Elder Daniel L. Johnson - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Daniel L. Johnson - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -24,13 +26,13 @@ If you understand what it means to be a disciple of Jesus Christ, then you will 
 
 Making the covenant to be a disciple of Christ is the beginning of a lifelong process, and the path is not always easy. As we repent of our sins and strive to do what He would have us do and serve our fellowmen as He would serve them, we will inevitably become more like Him. Becoming like Him and being one with Him is the ultimate goal and objective—and essentially the very definition of true discipleship.
 
-As the Savior asked His disciples when He visited the American continent, “Therefore, what manner of men ought ye to be?” And then, answering His own question, He said, “Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Nephi 27:27]]).
+As the Savior asked His disciples when He visited the American continent, “Therefore, what manner of men ought ye to be?” And then, answering His own question, He said, “Verily I say unto you, even as I am” ([[3 Nephi 27.27|3 Nephi 27:27]]).
 
-Becoming as the Savior is not an easy task, especially in the world in which we live. We face obstacles and adversity virtually every day of our lives. There is a reason for this, and it is one of the primary purposes of mortality. As we read in [[Abraham 3.25|Abraham 3:25]], “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.”
+Becoming as the Savior is not an easy task, especially in the world in which we live. We face obstacles and adversity virtually every day of our lives. There is a reason for this, and it is one of the primary purposes of mortality. As we read in [[Abraham 3.25|Abraham 3:25]], “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them.”
 
 These tests or trials vary in nature and intensity. But no one will leave this mortal existence without passing through them. Mostly, we picture trials as the loss of a crop or a job; the death of a loved one; illness; physical, mental, or emotional incapacitation; poverty; or loss of friends. However, even the attainment of seemingly worthwhile objectives can bring their own dangers of unhelpful pride, where we aspire more to the honors of men than the approbation of heaven. These may include worldly popularity, public recognition, physical prowess, artistic or athletic talent, prosperity, and riches. Regarding these latter trials, some of us may have feelings similar to those expressed by Tevye in *Fiddler on the Roof:* If riches are a curse, “may \[God\] smite me with it. And may I never recover!”[^1]
 
-But these latter types of trials may be even more daunting and dangerous and more difficult to overcome than the former. Our discipleship will be developed and proven not by the type of trials that we are faced with but how we endure them. As we have been taught by President Henry B. Eyring: “So, the great test of life is to see whether we will hearken to and obey God’s commands in the midst of the storms of life. It is not to endure storms, but to choose the right while they rage. And the tragedy of life is to fail in that test and so fail to qualify to return in glory to our heavenly home” (“Spiritual Preparedness: Start Early and Be Steady,” *Liahona* and *Ensign,* Nov. 2005, 38).
+But these latter types of trials may be even more daunting and dangerous and more difficult to overcome than the former. Our discipleship will be developed and proven not by the type of trials that we are faced with but how we endure them. As we have been taught by President Henry B. Eyring: “So, the great test of life is to see whether we will hearken to and obey God’s commands in the midst of the storms of life. It is not to endure storms, but to choose the right while they rage. And the tragedy of life is to fail in that test and so fail to qualify to return in glory to our heavenly home” (“Spiritual Preparedness: Start Early and Be Steady,” *Liahona* and *Ensign,* Nov. 2005, 38).
 
 I am the proud grandfather of 23 grandchildren. They never cease to amaze me with their grasp of eternal truths, even in their very early and tender years. As I was preparing for this talk, I asked each of them to send me a very brief definition of what it meant to them to be a disciple or a follower of Jesus Christ. I received wonderful answers from all of them. But I would like to share with you this response from eight-year-old Benjamin: “Being a disciple of Jesus Christ means being an example. It means being a missionary and preparing to be a missionary. It means to serve others. It means you read the scriptures and say your prayers. It means you keep the Sabbath day holy. It means you listen to the promptings of the Holy Ghost. It means going to church and going to the temple.”
 
@@ -45,8 +47,3 @@ I testify that as we obey His commandments, serve others, and submit our will to
 
 [^1]: See Joseph Stein, Jerry Bock, Sheldon Harnick, *Fiddler on the Roof* (1964), 61.
 
-
-
-
-
-#Discipleship #Obedience #Service

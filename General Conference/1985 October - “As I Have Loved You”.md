@@ -1,5 +1,7 @@
 # “As I Have Loved You”
 
+Gordon B. Hinckley
+
 By Elder Robert L. Backman - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -62,15 +64,15 @@ Consider the happiness generated in both the giver and the receiver by these exa
 
 4. With the knowledge that her little brother had leukemia, Michelle went to Bear River High School sad and despondent. She struggled through the school day, grateful when the dismissal bell rang. As she collected her books, a friend approached, “Michelle, come into the music room with me.” Half-heartedly, Michelle accompanied her. Entering the music room, she was surprised to find the entire a cappella choir. In the straightforward manner of youth, they told Michelle they had been fasting for her little brother and wanted her to join them as they prayed together to end their fast.
 
-Emerson said it well: “Serve, and thou shalt be served. If you love and serve men, you cannot, by any hiding or stratagem, escape the remuneration.” (“The Sovereignty of Ethics,” in *The Complete Writings of Ralph Waldo Emerson,* New York: Wm. H. Wise & Co., 1929, p. 1004.)
+Emerson said it well: “Serve, and thou shalt be served. If you love and serve men, you cannot, by any hiding or stratagem, escape the remuneration.” (“The Sovereignty of Ethics,” in *The Complete Writings of Ralph Waldo Emerson,* New York: Wm. H. Wise & Co., 1929, p. 1004.)
 
 Those we serve, we love. We discover that loving someone else deeply is one of the most joyous feelings we can know, and we begin to understand the bounteous love our Father in Heaven has for us.
 
 D. Brent Collette told a stirring story:
 
-“Ronny was not just shy; he was downright backward. As a 17-year-old high school senior, Ronny had never really had a close friend or done anything that included other people. He was famous for his shyness. He never said anything to anybody, not even a teacher. One look at him told you a great deal of the story—inferiority complex. He slumped over as if to hide his face and seemed to be always looking at his feet. He always sat in the back of the class and would never participate. …
+“Ronny was not just shy; he was downright backward. As a 17-year-old high school senior, Ronny had never really had a close friend or done anything that included other people. He was famous for his shyness. He never said anything to anybody, not even a teacher. One look at him told you a great deal of the story—inferiority complex. He slumped over as if to hide his face and seemed to be always looking at his feet. He always sat in the back of the class and would never participate. …
 
-“It was because of Ronny’s shyness that I was so astonished when he started coming to my Sunday School class. …
+“It was because of Ronny’s shyness that I was so astonished when he started coming to my Sunday School class. …
 
 “His attendance in my class was the result of the personal efforts of a classmate, Brandon Craig, who had recently befriended Ronny. Boy, if there had ever been a mismatch, this was it. Brandon was ‘Mr. Social.’ A good head taller than Ronny, he was undisputedly the number one star of our high school athletics program. Brandon was involved in everything and successful at everything. … He was just a neat boy.
 
@@ -88,7 +90,7 @@ D. Brent Collette told a stirring story:
 
 “Brandon, who still had his arm around him, responded, ‘I love you too, Ronny. And that was fun.’
 
-“And it was, for all of us.” (*New Era,* May 1983, p. 18.)
+“And it was, for all of us.” (*New Era,* May 1983, p. 18.)
 
 Our Primary children sing that glorious song:
 
@@ -103,8 +105,3 @@ And therein lies happiness. In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Charity #Love #Service

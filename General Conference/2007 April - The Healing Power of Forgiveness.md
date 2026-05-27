@@ -1,5 +1,7 @@
 # The Healing Power of Forgiveness
 
+Thomas S. Monson
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2007 General Conference*
@@ -77,7 +79,7 @@ Let us remember that we need to forgive to be forgiven. In the words of one of m
 
 [^6]: Marjorie Cortez, “Amish Response to Tragedy Is Lesson in Faith, Forgiveness,” *Deseret Morning News,* Jan. 2, 2007, p. A13.
 
-[^7]: In Conference Report, Oct. 1987, 71; or *Ensign,* Nov. 1987, 60.
+[^7]: In Conference Report, Oct. 1987, [[1987 October - The Opening and Closing of Doors.md|71]]; or *Ensign,* Nov. 1987, 60.
 
 [^8]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 345.
 
@@ -107,8 +109,3 @@ Let us remember that we need to forgive to be forgiven. In the words of one of m
 
 [^21]: [[D&C 64.10|D&C 64:10]].
 
-
-
-
-
-#Faith #Forgiveness #Healing #Humility

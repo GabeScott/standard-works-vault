@@ -1,5 +1,7 @@
 # The Great Commandment
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2007 General Conference*
@@ -123,11 +125,11 @@ I pray that our hearts may be filled with that love and that we may reach out to
 
 
 
-[^1]: [[1 Corinthians 12.31|1 Corinthians 12:31]].
+[^1]: [[1 Corinthians 12.31|1 Corinthians 12:31]].
 
-[^2]: [[1 Corinthians 13.1|1 Corinthians 13:1]].
+[^2]: [[1 Corinthians 13.1|1 Corinthians 13:1]].
 
-[^3]: See [[1 Corinthians 13.1|1 Corinthians 13:1–2]][[1 Corinthians 13.2|]].
+[^3]: See [[1 Corinthians 13.1|1 Corinthians 13:1–2]][[1 Corinthians 13.2|]].
 
 [^4]: [[Moroni 7.47|Moroni 7:47]].
 
@@ -137,7 +139,7 @@ I pray that our hearts may be filled with that love and that we may reach out to
 
 [^7]: [[Matthew 22.37|Matthew 22:37–40]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-[^8]: [[1 Corinthians 8.3|1 Corinthians 8:3]].
+[^8]: [[1 Corinthians 8.3|1 Corinthians 8:3]].
 
 [^9]: *History of the Church,* 4:227.
 
@@ -153,7 +155,7 @@ I pray that our hearts may be filled with that love and that we may reach out to
 
 [^15]: *Oedipus at Colonus,* in *The Oedipus Cycle,* trans. Dudley Fitts and Robert Fitzgerald (1949), 161–62.
 
-[^16]: [[1 John 5.3|1 John 5:3]].
+[^16]: [[1 John 5.3|1 John 5:3]].
 
 [^17]: [[Mosiah 5.2|Mosiah 5:2]].
 
@@ -169,12 +171,7 @@ I pray that our hearts may be filled with that love and that we may reach out to
 
 [^23]: See [[John 15.13|John 15:13]].
 
-[^24]: [[1 Corinthians 2.9|1 Corinthians 2:9]]; see also [[Isaiah 64.4|Isaiah 64:4]].
+[^24]: [[1 Corinthians 2.9|1 Corinthians 2:9]]; see also [[Isaiah 64.4|Isaiah 64:4]].
 
 [^25]: [[John 13.34|John 13:34]].
 
-
-
-
-
-#Charity #Compassion #Love

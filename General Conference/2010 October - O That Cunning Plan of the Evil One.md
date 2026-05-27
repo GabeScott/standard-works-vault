@@ -1,5 +1,7 @@
 # O That Cunning Plan of the Evil One
 
+Thomas S. Monson
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -20,9 +22,9 @@ The use of artificial lures to fool and catch a fish is an example of the way Lu
 
 Like the fly fisherman who knows that trout are driven by hunger, Lucifer knows our “hunger,” or weaknesses, and tempts us with counterfeit lures which, if taken, can cause us to be yanked from the stream of life into his unmerciful influence. And unlike a fly fisherman who catches and releases the fish unharmed back into the water, Lucifer will not voluntarily let go. His goal is to make his victims as miserable as he is.
 
-Lehi said, “And because he \[Lucifer\] had fallen from heaven, and had become miserable forever, he sought also the misery of all mankind” ([[2 Nephi 2.18|2 Nephi 2:18]]).
+Lehi said, “And because he \[Lucifer\] had fallen from heaven, and had become miserable forever, he sought also the misery of all mankind” ([[2 Nephi 2.18|2 Nephi 2:18]]).
 
-I add my voice today to the voices of my Brethren that Lucifer is a clever and cunning intelligence. One of the main methods he uses against us is his ability to lie and deceive to convince us that evil is good and good is evil. Right from the very beginning in the great Council in Heaven, Satan “sought to destroy the agency of man, which I, the Lord God, had given him. …
+I add my voice today to the voices of my Brethren that Lucifer is a clever and cunning intelligence. One of the main methods he uses against us is his ability to lie and deceive to convince us that evil is good and good is evil. Right from the very beginning in the great Council in Heaven, Satan “sought to destroy the agency of man, which I, the Lord God, had given him. …
 
 “And he became Satan, yea, even the devil, the father of all lies, to deceive and to blind men, and to lead them captive at his will” ([[Moses 4.3|Moses 4:3–4]][[Moses 4.4|]]).
 
@@ -34,7 +36,7 @@ Satan knows how to exploit and ensnare us with artificial substances and behavio
 
 Some of the most addictive drugs that, if abused, can hijack the brain and take away one’s agency include nicotine; opiates (heroin, morphine, and other painkillers); tranquilizers; cocaine; alcohol; marijuana; and methamphetamines.
 
-I am grateful for doctors who are trained to prescribe proper medications to relieve pain and suffering. Unfortunately, too many in our communities today, including some of our own members, become addicted to and then abuse prescription medications. Lucifer, the father of all lies, knows this and uses his influence to steal away one’s agency and capture the abuser with his awful chains (see [[2 Nephi 28.22|2 Nephi 28:22]]).
+I am grateful for doctors who are trained to prescribe proper medications to relieve pain and suffering. Unfortunately, too many in our communities today, including some of our own members, become addicted to and then abuse prescription medications. Lucifer, the father of all lies, knows this and uses his influence to steal away one’s agency and capture the abuser with his awful chains (see [[2 Nephi 28.22|2 Nephi 28:22]]).
 
 Recently I talked to a sister who was in the psychiatric unit of a local hospital. She shared with me her sorrowful journey from complete mental and physical health, a wonderful marriage and family, into mental illness, debilitating health, and the breakup of her family—all of which started with the abuse of prescription painkillers.
 
@@ -46,11 +48,11 @@ Now, brothers and sisters, please don’t misunderstand what I am saying. I’m 
 
 There is also great concern about some of the pernicious, addictive behaviors like gambling and evil pornography that are so personally destructive and so rampant in our society. Remember, brothers and sisters, any kind of addiction is to surrender to something, thus relinquishing agency and becoming dependent. Thus, video-gaming and texting on cell phones need to be added to the list. Some gamers claim to spend up to 18 hours a day going through level after level of video games, neglecting all other aspects of their lives. Texting on cell phones can become an addiction, causing the important interpersonal human communication to become lost. Not long ago a bishop told me two of his youth were standing side by side texting one another rather than talking to each other.
 
-Medical research describes addiction as “a disease of the brain.”[^4] This is true, but I believe that once Satan has someone in his grasp, it also becomes a disease of the spirit. But no matter what addictive cycle one is caught in, there is always hope. The prophet Lehi taught his sons this eternal truth: “Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil” ([[2 Nephi 2.27|2 Nephi 2:27]]).
+Medical research describes addiction as “a disease of the brain.”[^4] This is true, but I believe that once Satan has someone in his grasp, it also becomes a disease of the spirit. But no matter what addictive cycle one is caught in, there is always hope. The prophet Lehi taught his sons this eternal truth: “Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil” ([[2 Nephi 2.27|2 Nephi 2:27]]).
 
 If anyone who is addicted has a desire to overcome, then there is a way to spiritual freedom—a way to escape from bondage—a way that is proven. It begins with prayer—sincere, fervent, and constant communication with the Creator of our spirits and bodies, our Heavenly Father. It is the same principle in breaking a bad habit or repenting from sin of any kind. The formula for having our heart, our body, our mind, and our spirit transformed is found in the scriptures.
 
-The prophet Mormon counseled us: “Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love … ; that ye may become the sons of God; … that we may be purified even as he is pure” ([[Moroni 7.48|Moroni 7:48]]).
+The prophet Mormon counseled us: “Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love … ; that ye may become the sons of God; … that we may be purified even as he is pure” ([[Moroni 7.48|Moroni 7:48]]).
 
 This and many other scriptures testify to us there is hope for the addicted, and this hope comes through the Atonement of the Lord Jesus Christ and by humbling oneself before God, pleading to be freed of the bondage of addiction and offering our whole soul to Him in fervent prayer.
 
@@ -75,7 +77,5 @@ I have seen the marvelous blessing of recovery that can set one free from the ch
 
 [^3]: See Erika Potter, “Drug Deaths Overtake Auto Deaths in Utah,” *Universe,* Nov. 29, 2009, universe.byu.edu/node/4477.
 
+[^4]: See National Institute on Drug Abuse, “The Neurobiology of Drug Addiction,” section IV, no. 30, drugabuse.gov/pubs/teaching/teaching2/teaching5.html; see also drugabuse.gov/funding/budget08.html.
 
-
-
-#Addiction #Atonement #Prayer #Word_Of_Wisdom

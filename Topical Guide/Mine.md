@@ -1,6 +1,5 @@
 # Mine
 
-
 severed you from other people, that ye should be *mine*, [[Leviticus 20.26|Leviticus 20:26]].
 
 they shall be *mine*, saith the Lord, [[Malachi 3.17|Malachi 3:17]] ([[3 Nephi 24.17|3 Nephi 24:17]]).

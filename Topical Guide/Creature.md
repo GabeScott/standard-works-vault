@@ -1,6 +1,5 @@
 # Creature
 
-
 bring forth abundantly the moving *creature*, [[Genesis 1.20|Genesis 1:20]].
 
 preach the gospel to every *creature*, [[Mark 16.15|Mark 16:15]].

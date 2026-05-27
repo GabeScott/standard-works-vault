@@ -1,6 +1,8 @@
 # The Seven Christs
 
-By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -96,7 +98,15 @@ There is no language to extol the wonders of his works and all that he has done 
 
 Can we not hear his voice say to us:
 
-“Reverently and meekly nowLet thy head most humbly bow.Think of me, thou ransomed one;Think what I for thee have doneWith my blood that dripped like rain,Sweat in agony of pain.With my body on the treeI have ransomed even thee.”(*Hymns,* no. 280.)
+>“Reverently and meekly now
+>Let thy head most humbly bow.
+>Think of me, thou ransomed one;
+>Think what I for thee have done
+>With my blood that dripped like rain,
+>Sweat in agony of pain.
+>With my body on the tree
+>I have ransomed even thee.”
+>
 
 ## 6. Christ—Today’s Messiah
 
@@ -149,8 +159,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Jesus_Christ

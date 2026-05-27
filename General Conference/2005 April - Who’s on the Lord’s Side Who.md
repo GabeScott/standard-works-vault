@@ -1,5 +1,7 @@
 # Who’s on the Lord’s Side? Who?
 
+Gordon B. Hinckley
+
 By Elder Robert C. Oaks - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -64,7 +66,7 @@ He went on to say, “They and their wicked inhabitants were annihilated. We see
 
 I do not know how much more our prophet has to say for us to consider ourselves warned.
 
-In a recent conference talk, Elder Dallin H. Oaks stated: “These signs of the Second Coming are all around us and seem to be increasing in frequency and intensity. … While we are powerless to alter the fact of the Second Coming and unable to know its exact time, we can accelerate our own preparation and try to influence the preparation of those around us. … We need to make both temporal and spiritual preparation for the events prophesied at the time of the Second Coming” (in Conference Report, Apr. 2004, 5–7; or *Ensign,* May 2004, 7–9).
+In a recent conference talk, Elder Dallin H. Oaks stated: “These signs of the Second Coming are all around us and seem to be increasing in frequency and intensity. … While we are powerless to alter the fact of the Second Coming and unable to know its exact time, we can accelerate our own preparation and try to influence the preparation of those around us. … We need to make both temporal and spiritual preparation for the events prophesied at the time of the Second Coming” (in Conference Report, Apr. 2004, [[2004 April - Preparation for the Second Coming.md|5–7]]; or *Ensign,* May 2004, 7–9).
 
 And these statements of warning came well before a season of unprecedented hurricane destruction in the Caribbean area and the tsunami devastation in East Asia.
 
@@ -81,8 +83,3 @@ Brethren, this is His work. The gospel of Jesus Christ has been restored in its 
 
 
 
-
-
-
-
-#Covenants #Morality #Obedience #Priesthood

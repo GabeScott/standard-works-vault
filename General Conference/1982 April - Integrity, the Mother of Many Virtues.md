@@ -1,6 +1,8 @@
 # Integrity, the Mother of Many Virtues
 
-By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -12,7 +14,7 @@ The dictionary defines *integrity* as a firm adherence to a code of moral values
 
 Walter Spat, the first stake president in South America, for many years has owned a furniture factory in Sao Paulo, Brazil. The delicately hand-carved roses, figures, and designs in the beautiful woods make his furniture as lovely as I have ever seen. Every piece is exquisite. Every creation is a masterpiece. One day my Ruth and I were in the entrance of his factory when a beautiful, newly made piece of furniture was carried in from the factory for showing. The grain of the wood flowed beautifully, and the finish was perfection. But to President Spat the hardware did not seem up to standard. Without hesitation, he took a screwdriver and a pair of pliers and pulled off all the hardware. His only remark was, “That is not my work.” President Spat seems incapable of making a piece of furniture which is not as near perfect as it can be. His work reflects his honor and integrity.
 
-Ralph Waldo Emerson stated: “Every man takes care that his neighbor shall not cheat him. But a day comes when he begins to care that he do\[es\] not cheat his neighbor. Then all goes well. He has changed his market-cart into a chariot of the sun.” (*Conduct of Life,* in *The Complete Writings of Ralph Waldo Emerson,* New York: William H. Wise and Co., 1929, p. 585.)
+Ralph Waldo Emerson stated: “Every man takes care that his neighbor shall not cheat him. But a day comes when he begins to care that he do\[es\] not cheat his neighbor. Then all goes well. He has changed his market-cart into a chariot of the sun.” (*Conduct of Life,* in *The Complete Writings of Ralph Waldo Emerson,* New York: William H. Wise and Co., 1929, p. 585.)
 
 Integrity is the value we set on ourselves. It is a fulfillment of the duty we owe ourselves. An honorable man or woman will personally commit to live up to certain self-imposed expectations. They need no outside check or control. They are honorable in their inner core.
 
@@ -22,9 +24,9 @@ Integrity is the light that shines from a disciplined conscience. It is the stre
 
 The power of keeping an oath was manifested by Nephi, who held Zoram, the frightened servant of Laban, to keep him from fleeing. Dr. Hugh Nibley has written:
 
-“Nephi, a powerful fellow, held the terrified Zoram in a vise-like grip long enough to swear a solemn oath in his ear, ‘as the Lord liveth, and as I live’ ([[1 Nephi 4.32|1 Ne. 4:32]]), that he would not harm him if he would listen. Zoram immediately relaxed, and Nephi swore another oath to him that he would be a free man if he would join the party. …
+“Nephi, a powerful fellow, held the terrified Zoram in a vise-like grip long enough to swear a solemn oath in his ear, ‘as the Lord liveth, and as I live’ ([[1 Nephi 4.32|1 Ne. 4:32]]), that he would not harm him if he would listen. Zoram immediately relaxed, and Nephi swore another oath to him that he would be a free man if he would join the party. …
 
-“… As soon as Zoram ‘made an oath unto us that he would tarry with us from that time forth … our fears did cease concerning him.’ ([[1 Nephi 4.35|1 Ne. 4:35, 37]][[1 Nephi 4.37|]]).” (*An Approach to the Book of Mormon,* 2nd ed., Salt Lake City: Deseret Book Co., 1976, pp. 103–4.)
+“… As soon as Zoram ‘made an oath unto us that he would tarry with us from that time forth … our fears did cease concerning him.’ ([[1 Nephi 4.35|1 Ne. 4:35, 37]][[1 Nephi 4.37|]]).” (*An Approach to the Book of Mormon,* 2nd ed., Salt Lake City: Deseret Book Co., 1976, pp. 103–4.)
 
 Being true to oneself at times requires extraordinary strength and courage. For instance, in the early days of the Church it was very unpopular, even dangerous, to uphold Joseph Smith as a prophet of God. Lyman Wight was one of those imprisoned by the leaders of a mob in 1839.
 
@@ -46,7 +48,7 @@ Brother Wight answered, “Shoot, and be damned.”
 
 The decree of execution of the prisoners was revoked the next morning. (See *History of the Church,* 3:446–47.)
 
-Dealing justly with oneself lays a foundation for dealing justly with others. During World War II, I came home on leave early one September. It was time to put peaches in bottles to preserve them for winter. My beloved mother-in-law called an old friend, George B. Andrus, of Holladay in this valley. The conversation on the telephone was brief: “George, do you have any peaches for sale?” mother asked.
+Dealing justly with oneself lays a foundation for dealing justly with others. During World War II, I came home on leave early one September. It was time to put peaches in bottles to preserve them for winter. My beloved mother-in-law called an old friend, George B. Andrus, of Holladay in this valley. The conversation on the telephone was brief: “George, do you have any peaches for sale?” mother asked.
 
 Patriarch Andrus answered, “I have a few, but they are not very good.”
 
@@ -64,11 +66,11 @@ Natural, inherent integrity is manifested almost every hour of every day of our 
 
 Those who have children and are involved in doing something less than they should may be involved in a double evil, for in addition to the inherent wrong they commit, they also teach another generation to do wrong. There seems to be an immutable law that children may take license from what their parents do and expand upon it, confirming the old adage that the chickens not only come home to roost, but they bring their chicks with them.
 
-Performance of duty, regardless of the sacrifice involved, is a part of dealing justly with oneself and others. Early in the history of this valley Joseph W. McMurrin was placed in charge of guarding some of the leaders of the Church. At a meeting in Social Hall in Salt Lake City, an intruder under a claim of authority tried to enter the hall; and Joseph W. McMurrin, being true to his trust to guard the servants of the Lord, restrained him from going through the door. President Heber J. Grant relates that the intruder “finally got his hand loose and took his pistol and, pressing it against Brother McMurrin’s body, fired two bullets … through his vitals. Those bullets lodged just under the skin in his back. He was attended by Dr. Joseph Benedict who told Joseph W. McMurrin that no man could live after two bullets had passed through his vitals, and then added: ‘If you wish to make a dying statement you should do so immediately.’
+Performance of duty, regardless of the sacrifice involved, is a part of dealing justly with oneself and others. Early in the history of this valley Joseph W. McMurrin was placed in charge of guarding some of the leaders of the Church. At a meeting in Social Hall in Salt Lake City, an intruder under a claim of authority tried to enter the hall; and Joseph W. McMurrin, being true to his trust to guard the servants of the Lord, restrained him from going through the door. President Heber J. Grant relates that the intruder “finally got his hand loose and took his pistol and, pressing it against Brother McMurrin’s body, fired two bullets … through his vitals. Those bullets lodged just under the skin in his back. He was attended by Dr. Joseph Benedict who told Joseph W. McMurrin that no man could live after two bullets had passed through his vitals, and then added: ‘If you wish to make a dying statement you should do so immediately.’
 
 “I went with John Henry Smith to Brother McMurrin’s home and saw where the flesh was burned away around those terrible gaping wounds. I saw where the bullets had gone clear through him. I heard John Henry Smith say, ‘By the authority of the Priesthood of the living God which we hold, and in the name of the Lord, Jesus Christ, we say that you shall be made absolutely whole, and that there shall be no physical weakness left upon your body because of these terrible wounds that you have received while guarding the servants of the living God.’”
 
-On November 21, 1931, President Grant concluded, “Joseph W. McMurrin is alive and well, and has never had any physical weakness because of those terrible wounds.” (*Gospel Standards,* Salt Lake City: Improvement Era, 1969, pp. 310–11.)
+On November 21, 1931, President Grant concluded, “Joseph W. McMurrin is alive and well, and has never had any physical weakness because of those terrible wounds.” (*Gospel Standards,* Salt Lake City: Improvement Era, 1969, pp. 310–11.)
 
 It is difficult to be just with oneself and others unless we recognize the law of the harvest. We reap that which we sow. Latter-day Saints have long been taught to live by the virtues of independence, industry, thrift, and self-reliance. Working for what we receive is a cardinal, timeless principle of self-respect. The whole world admires success. But how each of us defines success and how we seek it is crucial to our happiness.
 
@@ -78,19 +80,19 @@ Brigham Young said, “If the Lord ever revealed anything to me, he has shown me
 
 In our time President Nathan Eldon Tanner has said:
 
-“Investment debt should be fully secured so as not to encumber a family’s security. Don’t invest in speculative ventures. The spirit of speculation can become intoxicating. Many fortunes have been wiped out by the uncontrolled appetite to accumulate more and more. Let us learn from the sorrows of the past and avoid enslaving our time, energy, and general health to a gluttonous appetite to acquire increased material goods.” (In Conference Report, Oct. 1979, p. 120; also in *Ensign,* Nov. 1979, p. 82.)
+“Investment debt should be fully secured so as not to encumber a family’s security. Don’t invest in speculative ventures. The spirit of speculation can become intoxicating. Many fortunes have been wiped out by the uncontrolled appetite to accumulate more and more. Let us learn from the sorrows of the past and avoid enslaving our time, energy, and general health to a gluttonous appetite to acquire increased material goods.” (In Conference Report, Oct. 1979, [[1979 October - Constancy amid Change.md|p. 120]]; also in *Ensign,* Nov. 1979, p. 82.)
 
 What is success? Is it money? Is it achievement? Is it fame? Is it position? Is it dominion? The prophet Micah defined success as follows: “He hath shewed thee, O man, what is good; and what doth the Lord require of thee, but to do justly, and to love mercy, and to walk humbly with thy God?” ([[Micah 6.8|Micah 6:8]].)
 
 The prophet Ezekiel also gave a formula for success:
 
-“But if a man be just, and do that which is lawful and right, …
+“But if a man be just, and do that which is lawful and right, …
 
-“And hath not oppressed any, but hath restored to the debtor his pledge, hath spoiled none by violence, hath given his bread to the hungry, and hath covered the naked with a garment; …
+“And hath not oppressed any, but hath restored to the debtor his pledge, hath spoiled none by violence, hath given his bread to the hungry, and hath covered the naked with a garment; …
 
 “Hath walked in my statutes, and hath kept my judgments, to deal truly; he is just, he shall surely live, saith the Lord God.” ([[Ezekiel 18.5|Ezek. 18:5, 7, 9]][[Ezekiel 18.7|]][[Ezekiel 18.9|]].)
 
-The Lord appeared to the great Solomon in a dream and said, “Ask what I shall give thee.” ([[1 Kings 3.5|1 Kgs. 3:5]].) Solomon replied, “Give therefore thy servant an understanding heart to judge thy people, that I may discern between good and bad.” ([[1 Kings 3.9|1 Kgs. 3:9]].) The Lord was pleased because Solomon had not asked for success as the world defines it.
+The Lord appeared to the great Solomon in a dream and said, “Ask what I shall give thee.” ([[1 Kings 3.5|1 Kgs. 3:5]].) Solomon replied, “Give therefore thy servant an understanding heart to judge thy people, that I may discern between good and bad.” ([[1 Kings 3.9|1 Kgs. 3:9]].) The Lord was pleased because Solomon had not asked for success as the world defines it.
 
 Complete and constant integrity is a great law of human conduct. There need to be some absolutes in life. There are some things that should not ever be done, some lines that should never be crossed, vows that should never be broken, words that should never be spoken, and thoughts that should never be entertained.
 
@@ -123,8 +125,3 @@ I leave my testimony that dealing justly with oneself and others, and observing 
 
 
 
-
-
-
-
-#Honesty

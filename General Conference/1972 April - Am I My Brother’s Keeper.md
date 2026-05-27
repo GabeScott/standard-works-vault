@@ -1,6 +1,8 @@
 # Am I My Brother’s Keeper?
 
-By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
+Wilford G. Edling
+
+By Elder Henry D. Taylor - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -61,8 +63,3 @@ The choice is ours to make. May the Lord bless us that our decisions will be cor
 
 
 
-
-
-
-
-#Brotherhood #Service

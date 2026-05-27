@@ -1,5 +1,7 @@
 # Good-bye to This Wonderful Old Tabernacle
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1999 General Conference*
@@ -55,8 +57,3 @@ And we are partakers of these precious gifts. And so, as we might say to an old 
 
 
 
-
-
-
-
-#Brigham_Young #General_Conference #Pioneers #Temple_Square

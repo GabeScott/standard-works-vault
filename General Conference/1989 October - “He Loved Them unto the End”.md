@@ -1,12 +1,14 @@
 # “He Loved Them unto the End”
 
+Ezra Taft Benson
+
 By Elder Jeffrey R. Holland - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1989/10/he-loved-them-unto-the-end?lang=eng)
 
-I join with Elder Hansen and all of my brethren newly called to the quorums of the Seventy in expressing gratitude to the Lord for the privilege of this holy calling and opportunity to serve. There is no sufficient way to express either the sense of responsibility or feelings of inadequacy one has in being called to such a ministry. In these many weeks of self-examination, I have repeatedly felt, as Paul once wrote, “pressed out of measure, \[and stretched\] above strength.” ([[2 Corinthians 1.8|2 Cor. 1:8]].)
+I join with Elder Hansen and all of my brethren newly called to the quorums of the Seventy in expressing gratitude to the Lord for the privilege of this holy calling and opportunity to serve. There is no sufficient way to express either the sense of responsibility or feelings of inadequacy one has in being called to such a ministry. In these many weeks of self-examination, I have repeatedly felt, as Paul once wrote, “pressed out of measure, \[and stretched\] above strength.” ([[2 Corinthians 1.8|2 Cor. 1:8]].)
 
 I also wish to express appreciation to my family, who have loved me, prayed for me, comforted and sustained me all of my life—as only a family can. They alone know how deeply I love them. I alone know how much they will mean to me forever.
 
@@ -40,7 +42,7 @@ Life has its share of some fear and some failure. Sometimes things fall short, d
 
 But when such difficult moments come to us, I testify that there is one thing which will never, ever fail us. One thing alone will stand the test of all time, of all tribulation, all trouble, and all transgression. One thing only never faileth—and that is the pure love of Christ.
 
-“I remember,” Moroni cries to the Savior of the world, “that thou hast said that thou hast loved the world, even unto the laying down of thy life for the world. …
+“I remember,” Moroni cries to the Savior of the world, “that thou hast said that thou hast loved the world, even unto the laying down of thy life for the world. …
 
 “Now I know,” he writes, “that this love which thou hast had for the children of men is charity.” ([[Ether 12.33|Ether 12:33–34]][[Ether 12.34|]].)
 
@@ -59,8 +61,3 @@ Of that divine sustaining vote for all of us I testify in this, his true and liv
 
 
 
-
-
-
-
-#Charity #Endurance #Jesus_Christ #Leadership #Love #Sacrifice

@@ -1,12 +1,14 @@
 # Faith and Works in the Far East
 
-By Elder Adney Y. Komatsu - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Adney Y. Komatsu - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/faith-and-works-in-the-far-east?lang=eng)
 
-My dear brothers and sisters, and friends: In humility I stand before you and thank my Father in heaven for this opportunity and blessing of being in attendance at this semiannual conference. I have enjoyed the wonderful spirit of the conference and the many instructions and the advice given by our prophet, President Spencer W. Kimball and all the General Authorities of the Church. I hope and pray that the Spirit of the Lord may guide and direct me to say those things that will add to the spirit of this conference.
+My dear brothers and sisters, and friends: In humility I stand before you and thank my Father in heaven for this opportunity and blessing of being in attendance at this semiannual conference. I have enjoyed the wonderful spirit of the conference and the many instructions and the advice given by our prophet, President Spencer W. Kimball and all the General Authorities of the Church. I hope and pray that the Spirit of the Lord may guide and direct me to say those things that will add to the spirit of this conference.
 
 In the New Testament we read the words of John: “For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him should not perish, but have everlasting life.” ([[John 3.16|John 3:16]].)
 
@@ -22,7 +24,7 @@ Yet, in the Far East among the many Asian countries today where we find the grea
 
 However, the work of the Lord is progressing among the Asian people. Ten years ago there were three missions in the Far East; today there are fifteen missions and five stakes.
 
-In the recent area general conferences held in Japan, the Philippines, Taiwan, Hong Kong, and Korea, it was a great and wonderful experience to see the tears of joy of the members of the Church as they listened to President Spencer W. Kimball, our prophet, and other General Authorities.
+In the recent area general conferences held in Japan, the Philippines, Taiwan, Hong Kong, and Korea, it was a great and wonderful experience to see the tears of joy of the members of the Church as they listened to President Spencer W. Kimball, our prophet, and other General Authorities.
 
 It was reported that approximately 45,000 members and nonmembers attended the area general conferences in these countries. For many members and nonmembers of the Church, this was their first experience of hearing a living prophet of God.
 
@@ -38,9 +40,9 @@ For many members of the Church, the area general conferences were miracles, for 
 
 I am reminded of a statement made by a Book of Mormon prophet when he said:
 
-“And now, I, Moroni, would speak somewhat concerning these things; I would show unto the world that faith is things which are hoped for and not seen; wherefore, dispute not because ye see not, for ye receive no witness until after the trial of your faith. …
+“And now, I, Moroni, would speak somewhat concerning these things; I would show unto the world that faith is things which are hoped for and not seen; wherefore, dispute not because ye see not, for ye receive no witness until after the trial of your faith. …
 
-“For if there be no faith among the children of men God can do no miracle among them; wherefore, he showed not himself until after their faith. …
+“For if there be no faith among the children of men God can do no miracle among them; wherefore, he showed not himself until after their faith. …
 
 “And neither at any time hath any wrought miracles until after their faith; wherefore they first believed in the Son of God.” ([[Ether 12.6|Ether 12:6, 12, 18]][[Ether 12.12|]][[Ether 12.18|]].)
 
@@ -70,13 +72,8 @@ When we actively participate in Church activities, and give of ourselves in home
 
 I bear you my testimony, brothers and sisters, that I know that the gospel is true. I know that God lives and that he hears and answers our prayers, and that Jesus is the Christ, the Only Begotten of the Father, the Son of the living God, and the Savior of the world. Joseph Smith was the prophet called by God in these last days to restore the gospel in its fulness.
 
-And I bear you this humble testimony that I know that President Spencer W. Kimball today is a prophet of God on this earth, guiding and directing the Lord’s work here upon this earth. I bear you this testimony humbly, in the name of Jesus Christ. Amen.
+And I bear you this humble testimony that I know that President Spencer W. Kimball today is a prophet of God on this earth, guiding and directing the Lord’s work here upon this earth. I bear you this testimony humbly, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Church_Growth

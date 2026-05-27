@@ -1,6 +1,8 @@
 # The Administration of the Church
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -30,13 +32,13 @@ The priesthood is the greatest power on earth. It is by the power of the priesth
 
 We know that God the Father and his Son, Jesus Christ, appeared to a young boy, Joseph Smith, and from then on he was continually guided by revelation. Regarding the establishment of the Church we read this:
 
-“The rise of the Church of Christ in these last days … by the will and commandments of God. …
+“The rise of the Church of Christ in these last days … by the will and commandments of God. …
 
 “Which commandments were given to Joseph Smith, Jun., who was called of God, and ordained an apostle of Jesus Christ, to be the first elder of this church” ([[D&C 20.1|D&C 20:1–2]][[D&C 20.2|]]).
 
 We read further: “Behold, there shall be a record kept among you; and in it thou shalt be called a seer, a translator, a prophet, an apostle of Jesus Christ, an elder of the church through the will of God the Father, and the grace of your Lord Jesus Christ” ([[D&C 21.1|D&C 21:1]]).
 
-Let me assure you brethren that you belong to the Church of Jesus Christ, and that the Church is directed by Jesus Christ through a prophet of God, even our beloved President Spencer W. Kimball.
+Let me assure you brethren that you belong to the Church of Jesus Christ, and that the Church is directed by Jesus Christ through a prophet of God, even our beloved President Spencer W. Kimball.
 
 I would like to tell you something about the way the Church operates from headquarters. We often hear the Church referred to as a democracy, when in reality, instead of being a church where the body is governed by officers elected by the members, the Church is a theocracy, where God directs his church through representatives chosen by him.
 
@@ -46,13 +48,13 @@ Now, this is the way in which Joseph Smith was chosen by the Lord as President o
 
 It has always been a testimony to me, as I read section 107 of the Doctrine and Covenants, to see how all offices of the priesthood were listed and the duties of each given to Joseph Smith. We read:
 
-“Of the Melchizedek Priesthood, three Presiding High Priests, chosen by the body, appointed and ordained to that office, and upheld by the confidence, faith, and prayer of the church, form a quorum of the Presidency of the Church. …
+“Of the Melchizedek Priesthood, three Presiding High Priests, chosen by the body, appointed and ordained to that office, and upheld by the confidence, faith, and prayer of the church, form a quorum of the Presidency of the Church. …
 
 “And again, the duty of the President of the office of the High Priesthood is to preside over the whole church, and to be like unto Moses—
 
-“… yea, to be a seer, a revelator, a translator, and a prophet, having all the gifts of God which he bestows upon the head of the church” ([[D&C 107.22|D&C 107:22, 91–92]][[D&C 107.91|]][[D&C 107.92|]]).
+“… yea, to be a seer, a revelator, a translator, and a prophet, having all the gifts of God which he bestows upon the head of the church” ([[D&C 107.22|D&C 107:22, 91–92]][[D&C 107.91|]][[D&C 107.92|]]).
 
-And again: “The twelve traveling councilors are called to be the Twelve Apostles, or special witnesses of the name of Christ in all the world. …
+And again: “The twelve traveling councilors are called to be the Twelve Apostles, or special witnesses of the name of Christ in all the world. …
 
 “And they form a quorum \[this is important\], equal in authority and power to the three presidents” ([[D&C 107.23|D&C 107:23–24]][[D&C 107.24|]]).
 
@@ -60,9 +62,9 @@ The following is recorded in *Teachings of the Prophet Joseph Smith:* “Preside
 
 At the death of Joseph Smith, the Twelve became the presiding authority of the Church, with Brigham Young as president of the Twelve, and administered the affairs of the Church for three and a half years. Then Brigham Young was chosen as President of the Church, and he chose and ordained and set apart his counselors. Then there were three years and two months between his death and the installation of John Taylor as President of the Church. Following John Taylor’s death it was one year and nine months before Wilford Woodruff was chosen, set apart, and ordained as President of the Church. Since then, just a few days have passed between the death of the President and the setting apart of the next President—and the Twelve continues to preside at the death of each President until the new First Presidency is organized.
 
-I would like to explain to you exactly what took place following the unexpected death of President Harold B. Lee on 26 December 1973. I was in Phoenix, Arizona, to spend Christmas with my daughter and her family, when a call came to me from Arthur Haycock, secretary to President Lee. He said that President Lee was seriously ill, and he thought that I should plan to return home as soon as possible. A half-hour later he called and said: “The Lord has spoken. President Lee has been called home.”
+I would like to explain to you exactly what took place following the unexpected death of President Harold B. Lee on 26 December 1973. I was in Phoenix, Arizona, to spend Christmas with my daughter and her family, when a call came to me from Arthur Haycock, secretary to President Lee. He said that President Lee was seriously ill, and he thought that I should plan to return home as soon as possible. A half-hour later he called and said: “The Lord has spoken. President Lee has been called home.”
 
-President Romney, Second Counselor, in my absence was directing the affairs of the Church, and was at the hospital with Spencer W. Kimball, President of the Council of the Twelve. Immediately upon the death of President Lee, President Romney turned to President Kimball and said, “You are in charge.” Remember, the Prophet Joseph Smith had said that without the President there was no First Presidency over the Twelve.
+President Romney, Second Counselor, in my absence was directing the affairs of the Church, and was at the hospital with Spencer W. Kimball, President of the Council of the Twelve. Immediately upon the death of President Lee, President Romney turned to President Kimball and said, “You are in charge.” Remember, the Prophet Joseph Smith had said that without the President there was no First Presidency over the Twelve.
 
 Not one minute passed between the time President Lee died and the Twelve took over as the presiding authority of the Church.
 
@@ -70,15 +72,15 @@ Following President Lee’s funeral, President Kimball called a meeting of all o
 
 Following a song, and prayer by President Romney, President Kimball, in deep humility, expressed his feelings to us. He said that he had spent Friday in the temple talking to the Lord, and had shed many tears as he prayed for guidance in assuming his new responsibilities and in choosing his counselors.
 
-Dressed in the robes of the holy priesthood, we held a prayer circle; President Kimball asked me to conduct it and Elder Thomas S. Monson to offer the prayer. Following this, President Kimball explained the purpose of the meeting and called on each member of the quorum in order of seniority, starting with Elder Ezra Taft Benson, to express his feelings as to whether the First Presidency should be organized that day or whether we should carry on as the Council of the Twelve. Each said, “We should organize now,” and many complimentary things were spoken about President Kimball and his work with the Twelve.
+Dressed in the robes of the holy priesthood, we held a prayer circle; President Kimball asked me to conduct it and Elder Thomas S. Monson to offer the prayer. Following this, President Kimball explained the purpose of the meeting and called on each member of the quorum in order of seniority, starting with Elder Ezra Taft Benson, to express his feelings as to whether the First Presidency should be organized that day or whether we should carry on as the Council of the Twelve. Each said, “We should organize now,” and many complimentary things were spoken about President Kimball and his work with the Twelve.
 
-Then Elder Ezra Taft Benson nominated Spencer W. Kimball to be the President of the Church. This was seconded by Elder Mark E. Petersen and unanimously approved. President Kimball then nominated N. Eldon Tanner as First Counselor and Marion G. Romney as Second Counselor, each of whom expressed a willingness to accept the position and devote his whole time and energy in serving in that capacity.
+Then Elder Ezra Taft Benson nominated Spencer W. Kimball to be the President of the Church. This was seconded by Elder Mark E. Petersen and unanimously approved. President Kimball then nominated N. Eldon Tanner as First Counselor and Marion G. Romney as Second Counselor, each of whom expressed a willingness to accept the position and devote his whole time and energy in serving in that capacity.
 
-They were unanimously approved. Then Elder Mark E. Petersen, second in seniority in the Twelve, nominated Ezra Taft Benson, the senior member of the Twelve, as President of the Quorum of the Twelve. This was unanimously approved.
+They were unanimously approved. Then Elder Mark E. Petersen, second in seniority in the Twelve, nominated Ezra Taft Benson, the senior member of the Twelve, as President of the Quorum of the Twelve. This was unanimously approved.
 
-At this point all the members present laid their hands upon the head of Spencer W. Kimball, and President Ezra Taft Benson was voice in blessing, ordaining, and setting apart Spencer W. Kimball as the twelfth President of The Church of Jesus Christ of Latter-day Saints.
+At this point all the members present laid their hands upon the head of Spencer W. Kimball, and President Ezra Taft Benson was voice in blessing, ordaining, and setting apart Spencer W. Kimball as the twelfth President of The Church of Jesus Christ of Latter-day Saints.
 
-Then, with President Kimball as voice, N. Eldon Tanner was set apart as First Counselor and Marion G. Romney as Second Counselor in the First Presidency of the Church. Following the same procedure, he pronounced the blessing and setting apart of Ezra Taft Benson as President of the Quorum of the Twelve.
+Then, with President Kimball as voice, N. Eldon Tanner was set apart as First Counselor and Marion G. Romney as Second Counselor in the First Presidency of the Church. Following the same procedure, he pronounced the blessing and setting apart of Ezra Taft Benson as President of the Quorum of the Twelve.
 
 There were then eleven members of the Twelve, and this would necessitate calling a new man to fill the vacancy in the quorum. You may be interested to learn how the General Authorities are called.
 
@@ -86,17 +88,17 @@ They are chosen by the President through inspiration and revelation as he consid
 
 Because of the inspiration and revelation involved, a General Authority is actually divinely appointed and is approved by the Council of the Twelve before being called and set apart, and later sustained by the general conference.
 
-To give you an example of how this works, let me share with you an experience of President Heber J. Grant. While he was a member of the Council of the Twelve, when asked by the President of the Church to submit names, he repeatedly submitted that of a very good friend of his for consideration to fill existing vacancies among the Twelve.
+To give you an example of how this works, let me share with you an experience of President Heber J. Grant. While he was a member of the Council of the Twelve, when asked by the President of the Church to submit names, he repeatedly submitted that of a very good friend of his for consideration to fill existing vacancies among the Twelve.
 
 The man was never chosen, and President Grant is reported to have said at one time that if he ever became President of the Church, and there was a vacancy to fill, he would call that man, because he was so well qualified.
 
-After he became President and it was necessary to fill a vacancy, he told the Lord that he knew whom he wanted, but that he wanted to select the man that the Lord wanted. The name of Melvin J. Ballard, whom President Grant knew slightly, but not too well, came into his mind and kept recurring to let him know that he was the man who should be called. He was nominated by President Grant and approved by the Twelve. He was ordained and set apart by the First Presidency and Council of the Twelve and at the following general conference was presented to those in attendance for their sustaining vote.
+After he became President and it was necessary to fill a vacancy, he told the Lord that he knew whom he wanted, but that he wanted to select the man that the Lord wanted. The name of Melvin J. Ballard, whom President Grant knew slightly, but not too well, came into his mind and kept recurring to let him know that he was the man who should be called. He was nominated by President Grant and approved by the Twelve. He was ordained and set apart by the First Presidency and Council of the Twelve and at the following general conference was presented to those in attendance for their sustaining vote.
 
 Let me give you my own experience. While serving as president of the Calgary Stake in Alberta, Canada, I was attending the general conference in Salt Lake City in October, 1960. On Friday evening I received a call at the Hotel Utah, where I was staying, advising me that President McKay wanted to see me Saturday morning—the next morning. Naturally, not knowing what he wanted, I slept very little that night. I met him in his office at the appointed hour. As I sat in a chair facing him, he looked me in the eye, put his hand on my knee, and said, “President Tanner, the Lord would like you to accept a call as a General Authority, as an Assistant to the Twelve.” Then he asked how I felt about it.
 
 I do not know exactly what I said. I tried to assure him that I felt highly honored and very inadequate, but ready and willing to accept a call and to give my whole time and effort in the service of the Lord.
 
-That morning my name was read, along with the names of Elders Franklin D. Richards and Theodore M. Burton, to be sustained as Assistants to the Twelve, with the other general officers of the Church. We were approved by the conference. Officers throughout the Church are selected in much the same way at their particular level.
+That morning my name was read, along with the names of Elders Franklin D. Richards and Theodore M. Burton, to be sustained as Assistants to the Twelve, with the other general officers of the Church. We were approved by the conference. Officers throughout the Church are selected in much the same way at their particular level.
 
 At this point I might answer the question of how we deal with a dissenting vote. We had one at the October 1977 conference. Some of you heard the proceedings and will remember that the dissenter wanted his vote recorded. This is the way we deal with a dissenting vote: all the people other than this one voted to sustain those who were presented, so I asked him to see a member of the Twelve. The purpose of asking him to see somebody is so that he can report why he was not prepared to support the slate of officers. That gives him an opportunity, if he knows some good reason why a person should not be or is not qualified to be sustained, to tell the person assigned to see him; this person can then advise the First Presidency.
 
@@ -193,8 +195,3 @@ We hope and pray always—every day—that the Church is being properly administ
 
 
 
-
-
-
-
-#Church_Organization #Leadership #Priesthood

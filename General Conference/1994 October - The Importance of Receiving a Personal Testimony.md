@@ -1,5 +1,7 @@
 # The Importance of Receiving a Personal Testimony
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -14,7 +16,7 @@ Our testimony comes by the gift and power of the Holy Ghost. The testimony recei
 
 A testimony is the spirit of prophecy (see [[Revelation 19.10|Rev. 19:10]]). It is a personal revelation from God, revealing the truthfulness of the gospel of Jesus Christ. A testimony comes through the Holy Ghost; it makes a deep and lasting impression on the soul.
 
-Individual testimonies are the foundation and strength of the Church. Our testimony provides a guiding light that leads to a commitment which directs our conduct and our way of life. Our testimony is true north on a spiritual compass. It is a moving force that cannot be seen but can truly be felt. It is a burning within that tells us what is right. It is when “your heart tells you things your mind doesn’t know” (Harold B. Lee, “Be Loyal to the Royal within You,” in *Speeches of the Year, 1972–73* \[Provo: Brigham Young University Press, 1973\], p. 101).
+Individual testimonies are the foundation and strength of the Church. Our testimony provides a guiding light that leads to a commitment which directs our conduct and our way of life. Our testimony is true north on a spiritual compass. It is a moving force that cannot be seen but can truly be felt. It is a burning within that tells us what is right. It is when “your heart tells you things your mind doesn’t know” (Harold B. Lee, “Be Loyal to the Royal within You,” in *Speeches of the Year, 1972–73* \[Provo: Brigham Young University Press, 1973\], p. 101).
 
 Our testimony is the fruit of obedience in the form of peace, joy, and understanding in our hearts of gospel principles. A testimony is a shield of faith “wherewith ye shall be able to quench all the fiery darts of the wicked” ([[D&C 27.17|D&C 27:17]]).
 
@@ -24,7 +26,7 @@ Our testimony is a knowledge of who we are—a child of God, where we came from�
 
 Today we rejoice in sustaining a new President of the Church. President Hunter declared:
 
-“My greatest strength through these past hours and recent days has been my abiding testimony that this is the work of God and not men, that Jesus Christ is the authorized and living head of this church and He leads it in word and deed” (quoted in *Ensign,* July 1994, p. 4).
+“My greatest strength through these past hours and recent days has been my abiding testimony that this is the work of God and not men, that Jesus Christ is the authorized and living head of this church and He leads it in word and deed” (quoted in *Ensign,* July 1994, p. 4).
 
 What do we learn about testimony from the lives and teachings of the prophets of God? We learn that a testimony is very personal. We can each gain a testimony of the truth through the Holy Ghost.
 
@@ -40,11 +42,11 @@ The prophets who followed Joseph Smith in this dispensation each obtained their 
 
 President David O. McKay was the ninth President of the Church. In his boyhood he desired to know, as Joseph Smith had known, of the reality of God the Father and his Son, Jesus Christ. One day while herding cattle in the foothills near his home, he sought a testimony through prayer. He said:
 
-“I dismounted, threw my reins over my horse’s head, and there under a serviceberry bush I prayed that God would declare to me the truth of his revelation to Joseph Smith” (quoted in *New Era,* Jan. 1972, p. 56).
+“I dismounted, threw my reins over my horse’s head, and there under a serviceberry bush I prayed that God would declare to me the truth of his revelation to Joseph Smith” (quoted in *New Era,* Jan. 1972, p. 56).
 
-He prayed fervently and sincerely with as much faith as he could find within him. When he finished his prayer, he waited for an answer. Nothing seemed to happen. Disappointed, he rode slowly on, saying to himself at the time, “No spiritual manifestation has come to me. If I am true to myself, I must say I am just the same ‘old boy’ that I was before I prayed” (p. 56).
+He prayed fervently and sincerely with as much faith as he could find within him. When he finished his prayer, he waited for an answer. Nothing seemed to happen. Disappointed, he rode slowly on, saying to himself at the time, “No spiritual manifestation has come to me. If I am true to myself, I must say I am just the same ‘old boy’ that I was before I prayed” (p. 56).
 
-A direct answer to this prayer was many years in coming. While serving a mission in Scotland, Elder McKay received a powerful spiritual manifestation. He later commented: “Never before had I experienced such an emotion. … It was a manifestation for which as a doubting youth I had secretly prayed most earnestly on hillside and in meadow. It was an assurance to me that sincere prayer is answered ‘sometime, somewhere’” (quoted in Francis M. Gibbons, *David O. McKay* \[Salt Lake City: Deseret Book Co., 1986\], p. 50).
+A direct answer to this prayer was many years in coming. While serving a mission in Scotland, Elder McKay received a powerful spiritual manifestation. He later commented: “Never before had I experienced such an emotion. … It was a manifestation for which as a doubting youth I had secretly prayed most earnestly on hillside and in meadow. It was an assurance to me that sincere prayer is answered ‘sometime, somewhere’” (quoted in Francis M. Gibbons, *David O. McKay* \[Salt Lake City: Deseret Book Co., 1986\], p. 50).
 
 Each of the prophets has testified of the personal revelation by which they have come to know the truthfulness of the gospel and of the spiritual strength of such revelation.
 
@@ -76,7 +78,7 @@ Doubts about matters of religion that arise from a lack of knowledge can be cons
 
 Years ago, Elder Howard W. Hunter spoke to the youth regarding their testimony:
 
-“I have sympathy for young men and young women when honest doubts enter their minds and they engage in the great conflict of resolving doubts. These doubts can be resolved, if \[youth\] have an honest desire to know the truth, by exercising moral, spiritual, and mental effort. They will emerge from the conflict into a firmer, stronger, larger faith because of the struggle. They have gone from a simple, trusting faith, through doubt and conflict, into a solid substantial faith which ripens into testimony” (in Conference Report, Oct. 1960, p. 108).
+“I have sympathy for young men and young women when honest doubts enter their minds and they engage in the great conflict of resolving doubts. These doubts can be resolved, if \[youth\] have an honest desire to know the truth, by exercising moral, spiritual, and mental effort. They will emerge from the conflict into a firmer, stronger, larger faith because of the struggle. They have gone from a simple, trusting faith, through doubt and conflict, into a solid substantial faith which ripens into testimony” (in Conference Report, Oct. 1960, p. 108).
 
 The fruits of testimony may be observed in the lives of the faithful. Those lifted by the power of testimony can find greater happiness and fidelity in marriage. Their testimonies are an antidote to the plague of divorce. They enjoy greater freedom, seldom enslaved to alcohol, tobacco, drugs, abuse, and other forms of self-indulgence. They find strength to deal with the problems of life.
 
@@ -89,8 +91,3 @@ To the other testimonies borne this day, I wish to add my own testimony in the s
 
 
 
-
-
-
-
-#Faith #Joseph_Smith #Obedience #Prayer #Prophets #Service #Testimony

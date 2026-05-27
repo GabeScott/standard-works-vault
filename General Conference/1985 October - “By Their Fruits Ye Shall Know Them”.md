@@ -1,5 +1,7 @@
 # “By Their Fruits Ye Shall Know Them”
 
+Gordon B. Hinckley
+
 By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -18,7 +20,7 @@ The Savior acknowledged that there would be imposters who would attempt to pass 
 
 “Even so every good tree bringeth forth good fruits; but a corrupt tree bringeth forth evil fruit.
 
-“A good tree cannot bring forth evil fruit; neither can a corrupt tree bring forth good fruit. …
+“A good tree cannot bring forth evil fruit; neither can a corrupt tree bring forth good fruit. …
 
 “Wherefore by their fruits ye shall know them.” ([[Matthew 7.15|Matt. 7:15–20]][[Matthew 7.16|]][[Matthew 7.17|]][[Matthew 7.18|]][[Matthew 7.19|]][[Matthew 7.20|]].)
 
@@ -34,7 +36,7 @@ In a similar fashion we have the Lord’s own testimony as to the divine calling
 
 Also: “I, the Lord, am God, and have given these things unto you, my servant Joseph Smith, Jun., and have commanded you that you should stand as a witness of these things; …
 
-“For hereafter you shall be ordained and go forth and deliver my words unto the children of men. …
+“For hereafter you shall be ordained and go forth and deliver my words unto the children of men. …
 
 “But this generation shall have my word through you.” ([[D&C 5.2|D&C 5:2, 6, 10]][[D&C 5.6|]][[D&C 5.10|]].)
 
@@ -60,7 +62,7 @@ Within the context of the Savior’s prescribed testing of the fruit lies an imp
 
 “Ye are the salt of the earth: …
 
-“Ye are the light of the world. …
+“Ye are the light of the world. …
 
 “Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.” ([[Matthew 5.13|Matt. 5:13–16]][[Matthew 5.14|]][[Matthew 5.15|]][[Matthew 5.16|]].)
 
@@ -78,7 +80,7 @@ It is, perhaps, well in these times, when so many of the fundamental truths of t
 
 Let me repeat again that those who do the Lord’s work demonstrate it by the fruits of their labors. Analyzing and criticizing others, either from a historical perspective or from what we may view of a contemporary life, will be of little consequence unless it balances with the Lord’s assessment. The Apostle Paul said:
 
-“But why dost thou judge thy brother? or why dost thou set at nought thy brother? for we shall all stand before the judgment seat of Christ. …
+“But why dost thou judge thy brother? or why dost thou set at nought thy brother? for we shall all stand before the judgment seat of Christ. …
 
 “So then every one of us shall give account of himself to God.
 
@@ -93,8 +95,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Criticism #Example #Jesus_Christ

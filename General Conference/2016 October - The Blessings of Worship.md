@@ -1,6 +1,8 @@
 # The Blessings of Worship
 
-By Bishop Dean M. Davies - *First Counselor in the Presiding Bishopric*
+Jean B. Bingham
+
+By Bishop Dean M. Davies - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -18,7 +20,7 @@ When the Savior descended from heaven, the people twice fell at His feet. The fi
 
 “And behold, I am the light and the life of the world.”[^3]
 
-He then invited those present to “arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world. …
+He then invited those present to “arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world. …
 
 “And when they had all gone forth and had witnessed for themselves, they did cry out with one accord, saying:
 
@@ -96,7 +98,7 @@ When we worship in spirit, we invite light and truth into our souls, which stren
 
 ## Discipleship and Charity
 
-In the Book of Mormon we learn that from the moment Alma the Younger was delivered from suffering the consequences of his own rebelliousness, he was never the same. He boldly “traveled throughout all the land … and among all the people … , zealously striving to repair all the injuries which \[he\] had done to the church.”[^8]
+In the Book of Mormon we learn that from the moment Alma the Younger was delivered from suffering the consequences of his own rebelliousness, he was never the same. He boldly “traveled throughout all the land … and among all the people … , zealously striving to repair all the injuries which \[he\] had done to the church.”[^8]
 
 His constant worship of the Almighty God took the form of energetic discipleship.
 
@@ -139,15 +141,15 @@ That is the blessing of worship in our lives. Of this I humbly testify in the sa
 
 
 
-[^1]: [[3 Nephi 8.17|3 Nephi 8:17]].
+[^1]: [[3 Nephi 8.17|3 Nephi 8:17]].
 
-[^2]: See [[3 Nephi 8.23|3 Nephi 8:23]].
+[^2]: See [[3 Nephi 8.23|3 Nephi 8:23]].
 
-[^3]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
+[^3]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
-[^4]: [[3 Nephi 11.14|3 Nephi 11:14, 16–17]][[3 Nephi 11.16|]][[3 Nephi 11.17|]].
+[^4]: [[3 Nephi 11.14|3 Nephi 11:14, 16–17]][[3 Nephi 11.16|]][[3 Nephi 11.17|]].
 
-[^5]: [[3 Nephi 11.17|3 Nephi 11:17]].
+[^5]: [[3 Nephi 11.17|3 Nephi 11:17]].
 
 [^6]: [[D&C 133.39|Doctrine and Covenants 133:39–40]][[D&C 133.40|]].
 
@@ -155,14 +157,9 @@ That is the blessing of worship in our lives. Of this I humbly testify in the sa
 
 [^8]: [[Mosiah 27.35|Mosiah 27:35]].
 
-[^9]: See [[1 John 4.20|1 John 4:20]].
+[^9]: See [[1 John 4.20|1 John 4:20]].
 
-[^10]: See [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^10]: See [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^11]: [[Psalms 100.4|Psalm 100:4–5]][[Psalms 100.5|]].
 
-
-
-
-
-#Charity #Discipleship #Faith #Hope #Sabbath #Worship

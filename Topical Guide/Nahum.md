@@ -1,4 +1,3 @@
 # Nahum
 
-
-*See* [BD Nahum](https://www.churchofjesuschrist.org/study/scriptures/bd/nahum?lang=eng)
+*See also* [[BD Nahum.md|BD Nahum]]

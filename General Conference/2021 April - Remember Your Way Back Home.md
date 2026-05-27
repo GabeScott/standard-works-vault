@@ -1,6 +1,8 @@
 # Remember Your Way Back Home
 
-By Elder José A. Teixeira - *Of the Presidency of the Seventy*
+Russell M. Nelson
+
+By Elder José A. Teixeira - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -75,20 +77,15 @@ Dear brothers and sisters, on this Easter Sunday, I bear testimony that Jesus Ch
 
 
 
-[^1]: Arthur Davis Hasler, in Gene E. Likens, “Arthur Davis Hasler: January 5, 1908–March 23, 2001,” in National Academy of Sciences, *Biographical Memoirs*, vol. 82 (2003), 174–75.
+[^1]: Arthur Davis Hasler, in Gene E. Likens, “Arthur Davis Hasler: January 5, 1908–March 23, 2001,” in National Academy of Sciences, *Biographical Memoirs*, vol. 82 (2003), 174–75.
 
-[^2]: See [Book of Mormon Student Manual](https://churchofjesuschrist.org/study/manual/book-of-mormon-student-manual/chapter-36-helaman-5-9?lang=eng&id=title_number1#title_number1) (2009), 268–73.
+[^2]: See [Book of Mormon Student Manual](https://www.churchofjesuschrist.org/study/manual/book-of-mormon-student-manual/chapter-36-helaman-5-9?lang=eng&id=title_number1#title_number1) (2009), 268–73.
 
 [^3]: See [[Helaman 5.6|Helaman 5:6–12]][[Helaman 5.7|]][[Helaman 5.8|]][[Helaman 5.9|]][[Helaman 5.10|]][[Helaman 5.11|]][[Helaman 5.12|]].
 
 [^4]: [[D&C 19.38|Doctrine and Covenants 19:38]].
 
-[^5]: See Don L. Searle, “[Discovering Gospel Riches in Portugal](https://churchofjesuschrist.org/study/ensign/1987/10/discovering-gospel-riches-in-portugal?lang=eng&id=p40#p40),” *Ensign*, Oct. 1987, 15.
+[^5]: See Don L. Searle, “[Discovering Gospel Riches in Portugal](https://www.churchofjesuschrist.org/study/ensign/1987/10/discovering-gospel-riches-in-portugal?lang=eng&id=p40#p40),” *Ensign*, Oct. 1987, 15.
 
 [^6]: See [[John 3.16|John 3:16]].
 
-
-
-
-
-#Divine_Nature #Jesus_Christ #Prayer #Service

@@ -1,5 +1,7 @@
 # The Spirit of the Tabernacle
 
+Thomas S. Monson
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -24,19 +26,19 @@ As the children sang quietly, the organist, who understood that excellence does 
 
 I felt perhaps that which Elijah the prophet had felt. He sealed the heavens against the wicked king Ahab and fled to a cave to seek the Lord:
 
-“A great and strong wind rent the mountains, and brake in pieces the rocks … ; but the Lord was not in the wind: and after the wind an earthquake; but the Lord was not in the earthquake:
+“A great and strong wind rent the mountains, and brake in pieces the rocks … ; but the Lord was not in the wind: and after the wind an earthquake; but the Lord was not in the earthquake:
 
 “And after the earthquake a fire; but the Lord was not in the fire: and after the fire \[came\] a still small voice.
 
-“And it was so,” the record says, “when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entering in of the cave” to speak to the Lord ([[1 Kings 19.11|1 Kings 19:11–13]][[1 Kings 19.12|]][[1 Kings 19.13|]]).
+“And it was so,” the record says, “when Elijah heard it, that he wrapped his face in his mantle, and went out, and stood in the entering in of the cave” to speak to the Lord ([[1 Kings 19.11|1 Kings 19:11–13]][[1 Kings 19.12|]][[1 Kings 19.13|]]).
 
-I felt something of what the Nephites must have felt when the Lord appeared to them: “They heard a voice as if it came out of heaven; and they cast their eyes round about, for they understood not the voice which they heard; and it was not a harsh voice, neither was it a loud voice; nevertheless, and notwithstanding it being a small voice it did pierce them that did hear to the center, insomuch that there was no part of their frame that it did not cause to quake; yea, it did pierce them to the very soul, and did cause their hearts to burn” ([[3 Nephi 11.3|3 Nephi 11:3]]).
+I felt something of what the Nephites must have felt when the Lord appeared to them: “They heard a voice as if it came out of heaven; and they cast their eyes round about, for they understood not the voice which they heard; and it was not a harsh voice, neither was it a loud voice; nevertheless, and notwithstanding it being a small voice it did pierce them that did hear to the center, insomuch that there was no part of their frame that it did not cause to quake; yea, it did pierce them to the very soul, and did cause their hearts to burn” ([[3 Nephi 11.3|3 Nephi 11:3]]).
 
 It is this still, small voice which Elijah and the Nephites heard that the Prophet Joseph Smith understood when he wrote, “Thus saith the still small voice, which whispereth through and pierceth all things” ([[D&C 85.6|D&C 85:6]]).
 
 In that defining moment, I understood that the still, small voice is felt more than heard. If I hearkened to it, I would be all right in my ministry.
 
-After that, I had the assurance that the Comforter, the Holy Ghost, is there for everyone who will respond to the invitation to ask, to seek, and to knock (see [[Matthew 7.7|Matthew 7:7–8]][[Matthew 7.8|]]; [[Luke 11.9|Luke 11:9–10]][[Luke 11.10|]]; [[3 Nephi 14.7|3 Nephi 14:7–8]][[3 Nephi 14.8|]]; [[D&C 88.63|D&C 88:63]]). I knew I would be all right. As the years have unfolded, so it has been.
+After that, I had the assurance that the Comforter, the Holy Ghost, is there for everyone who will respond to the invitation to ask, to seek, and to knock (see [[Matthew 7.7|Matthew 7:7–8]][[Matthew 7.8|]]; [[Luke 11.9|Luke 11:9–10]][[Luke 11.10|]]; [[3 Nephi 14.7|3 Nephi 14:7–8]][[3 Nephi 14.8|]]; [[D&C 88.63|D&C 88:63]]). I knew I would be all right. As the years have unfolded, so it has been.
 
 I learned too what power there can be in music. When music is reverently presented, it can be akin to revelation. At times, I think, it cannot be separated from the voice of the Lord, the quiet, still voice of the Spirit.
 
@@ -87,11 +89,11 @@ Here the Book of Mormon was given the subtitle “Another Testament of Jesus Chr
 
 The teachings, the sermons, the music, and the feelings and Spirit in this sacred building transfer without being diminished to the great Conference Center nearby, where they are heard by tens of thousands, translated into dozens of languages, and sent to congregations across the world.
 
-Even more, that Spirit enters into the homes of millions upon millions of Latter-day Saints. In the homes, parents pray for the well-being of their children. Men and women and, as the Book of Mormon promised, even little children can receive the testimony of Jesus Christ (see [[Mosiah 24.22|Mosiah 24:22]]; [[Alma 32.23|Alma 32:23]]; [[3 Nephi 17.25|3 Nephi 17:25]]) and of the Restoration of His gospel.
+Even more, that Spirit enters into the homes of millions upon millions of Latter-day Saints. In the homes, parents pray for the well-being of their children. Men and women and, as the Book of Mormon promised, even little children can receive the testimony of Jesus Christ (see [[Mosiah 24.22|Mosiah 24:22]]; [[Alma 32.23|Alma 32:23]]; [[3 Nephi 17.25|3 Nephi 17:25]]) and of the Restoration of His gospel.
 
 This Tabernacle on Temple Square is “a house of prayer, a house of fasting, a house of faith, a house of glory and of God, even \[His\] house” ([[D&C 109.16|D&C 109:16]]). Those called to speak or to perform words, music, and culture are obligated to present that which is worthy.
 
-To seek after the praise of men, the scriptures caution us, is to be led carefully away from the only safe path to follow in life (see [[John 12.43|John 12:43]]; [[1 Nephi 13.9|1 Nephi 13:9]]; [[2 Nephi 26.29|2 Nephi 26:29]]; [[Helaman 7.21|Helaman 7:21]]; [[Mormon 8.38|Mormon 8:38]]; [[D&C 58.39|D&C 58:39]]). And the scriptures warn us plainly what follows when we “aspire to the honors of men” ([[D&C 121.35|D&C 121:35]]).
+To seek after the praise of men, the scriptures caution us, is to be led carefully away from the only safe path to follow in life (see [[John 12.43|John 12:43]]; [[1 Nephi 13.9|1 Nephi 13:9]]; [[2 Nephi 26.29|2 Nephi 26:29]]; [[Helaman 7.21|Helaman 7:21]]; [[Mormon 8.38|Mormon 8:38]]; [[D&C 58.39|D&C 58:39]]). And the scriptures warn us plainly what follows when we “aspire to the honors of men” ([[D&C 121.35|D&C 121:35]]).
 
 It is not so much what is heard in the sermons but what is felt. The Holy Ghost can confirm to all who come within that influence that the messages are true, that this is The Church of Jesus Christ of Latter-day Saints.
 
@@ -137,8 +139,3 @@ I add my testimony that Jesus is the Christ, that this is His house, on this sac
 
 
 
-
-
-
-
-#Holy_Ghost #Music #Spirituality #Temple_Square

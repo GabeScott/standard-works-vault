@@ -1,5 +1,7 @@
 # Walking towards the Light of His Love
 
+Gordon B. Hinckley
+
 By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -16,7 +18,7 @@ In the beginning, our conversations were lighthearted chatter about our husbands
 
 I learned two unforgettable lessons from my journey with Jan that continue to enlighten my mind and fill my soul with joy. The first is that whatever the circumstances in your life, if you are spiritually prepared, there is no need to fear (see [[D&C 38.30|D&C 38:30]]).
 
-Long after we began our walks together, I discovered that years earlier Jan had made choices which took her step-by-step away from the Church and down a path she now regretted. About the time our lives intersected, she had determined to put her life in order. The longing in her heart was to prepare herself so that she could be sealed to her husband and children in the temple. Hers was a single-minded yearning, as Nephi phrased it, “\[to\] be reconciled unto Christ, and enter into the narrow gate, and walk in the strait path which leads to life, and continue in the path until the end of the day of probation” ([[2 Nephi 33.9|2 Nephi 33:9]]).
+Long after we began our walks together, I discovered that years earlier Jan had made choices which took her step-by-step away from the Church and down a path she now regretted. About the time our lives intersected, she had determined to put her life in order. The longing in her heart was to prepare herself so that she could be sealed to her husband and children in the temple. Hers was a single-minded yearning, as Nephi phrased it, “\[to\] be reconciled unto Christ, and enter into the narrow gate, and walk in the strait path which leads to life, and continue in the path until the end of the day of probation” ([[2 Nephi 33.9|2 Nephi 33:9]]).
 
 You might expect that once Jan had determined as earnestly as Lamoni’s father in the Book of Mormon to “give away all \[her\] sins to know \[the Lord\]” ([[Alma 22.18|Alma 22:18]]), her journey would be smoothed. Such was not the case. She was faced with some of life’s most soul-wrenching trials. Jan was diagnosed with a brain tumor, her husband lost his job, then the family lost their home and their car.
 
@@ -49,8 +51,3 @@ I bear testimony of our Savior, who said of Himself: “Behold, I am Jesus Chris
 
 
 
-
-
-
-
-#Faith #Peace #Preparation #Relief_Society #Testimony

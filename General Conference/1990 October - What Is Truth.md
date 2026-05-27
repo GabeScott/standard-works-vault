@@ -1,5 +1,7 @@
 # What Is Truth?
 
+Gordon B. Hinckley
+
 By Elder Lynn A. Mickelsen - *Of the Seventy*
 
 *Given in the October session of the 1990 General Conference*
@@ -22,7 +24,7 @@ If we do not receive the truth by His spirit, it is not His word. In a latter-da
 
 “… And they love darkness rather than light, … therefore they will not ask of me” ([[D&C 10.20|D&C 10:20–21]][[D&C 10.21|]]).
 
-A few months ago, a friend came to our home under the pretext that he had some questions about the Church he needed help in answering. He said he had discovered the Book of Mormon was not the word of God and that Joseph Smith was not a prophet of God. He then proceeded to quote articles and books which were written by enemies of the Church. As he listed his sources, I replied that I also had read them and others, and they had only served to confirm my faith in the Book of Mormon and the Prophet Joseph Smith. He was surprised that I could have read the same things he had read and not believe as he believed. I suggested that he devote at least equal time to the right side of the issue, but he had come with a decision, not a question. His mind was made up. He did not want to know. His heart was closed. I thought of the children of Israel and their reaction to the Lord after he had guided them out of bondage: “And notwithstanding they being led, the Lord their God, their Redeemer, going before them, leading them by day and giving light unto them by night, and doing all things for them which were expedient for man to receive, they hardened their hearts and blinded their minds, and reviled against Moses and against the true and living God” ([[1 Nephi 17.30|1 Ne. 17:30]]).
+A few months ago, a friend came to our home under the pretext that he had some questions about the Church he needed help in answering. He said he had discovered the Book of Mormon was not the word of God and that Joseph Smith was not a prophet of God. He then proceeded to quote articles and books which were written by enemies of the Church. As he listed his sources, I replied that I also had read them and others, and they had only served to confirm my faith in the Book of Mormon and the Prophet Joseph Smith. He was surprised that I could have read the same things he had read and not believe as he believed. I suggested that he devote at least equal time to the right side of the issue, but he had come with a decision, not a question. His mind was made up. He did not want to know. His heart was closed. I thought of the children of Israel and their reaction to the Lord after he had guided them out of bondage: “And notwithstanding they being led, the Lord their God, their Redeemer, going before them, leading them by day and giving light unto them by night, and doing all things for them which were expedient for man to receive, they hardened their hearts and blinded their minds, and reviled against Moses and against the true and living God” ([[1 Nephi 17.30|1 Ne. 17:30]]).
 
 The promise of the Lord with regard to his word and his works is very explicit: “If any man will do his will, he shall know of the doctrine, whether it be of God” ([[John 7.17|John 7:17]]). This was His constant rejoinder to those who rejected Him.
 
@@ -57,8 +59,3 @@ Yes, for me it is as clear as the night from the day. Their witness of the Savio
 
 
 
-
-
-
-
-#Education #Testimony #Truth

@@ -1,5 +1,7 @@
 # The Relief Society
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -26,9 +28,9 @@ There were in attendance 12 sisters. We sang the hymns of Zion from songbooks—
 
 I told those sisters that they belonged to the largest and by all measure the greatest women’s organization on earth. I quoted the Prophet Joseph Smith when he and the Brethren organized the Relief Society: “I now turn the key in … behalf \[of all women\].”
 
-This society is organized “according to your natures. … You are now placed in a situation in which you can act according to those sympathies \[within you\]. …
+This society is organized “according to your natures. … You are now placed in a situation in which you can act according to those sympathies \[within you\]. …
 
-“If you live up to \[these\] privileges, the angels cannot be restrained from being your associates. …
+“If you live up to \[these\] privileges, the angels cannot be restrained from being your associates. …
 
 “If this Society listen\[s\] to the counsel of the Almighty, through the heads of the Church, they shall have power to command queens in their midst.”[^3]
 
@@ -109,7 +111,7 @@ I conclude where I began—it is my purpose to endorse the Relief Society, to be
 
 
 
-[^1]: [[Articles of Faith 1.13|A of F 1:13]].
+[^1]: [[Articles of Faith 1.13|A of F 1:13]].
 
 [^2]: Heber J. Grant, J. Reuben Clark Jr., and David O. McKay, in *A Centenary of Relief Society* (1942), 7.
 
@@ -123,8 +125,3 @@ I conclude where I began—it is my purpose to endorse the Relief Society, to be
 
 [^7]: “As Sisters in Zion,” *Hymns,* no. 309.
 
-
-
-
-
-#Church_Callings #Councils #Family #Home #Marriage #Priesthood #Relief_Society #Temples #Women

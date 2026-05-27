@@ -1,5 +1,7 @@
 # What Matters Most Is What Lasts Longest
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -89,8 +91,3 @@ Brothers and sisters, as we hold up like a banner the proclamation to the world 
 
 
 
-
-
-
-
-#Children #Family #Joy #Marriage #Morality #Scripture_Study

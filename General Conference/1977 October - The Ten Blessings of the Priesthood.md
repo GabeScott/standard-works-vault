@@ -1,6 +1,8 @@
 # The Ten Blessings of the Priesthood
 
-By Elder Bruce R. McConkie - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bruce R. McConkie - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -126,7 +128,7 @@ In this connection, these words from holy writ are appropriate:
 
 “It being after the order of the Son of God; which order came, not by man, nor the will of man; neither by father nor mother; neither by beginning of days nor end of years; but of God;
 
-“And it was delivered unto men by the calling of his own voice, according to his own will, unto as many as believed on his name. …
+“And it was delivered unto men by the calling of his own voice, according to his own will, unto as many as believed on his name. …
 
 “And now, Melchizedek was a priest of this order; therefore he obtained peace in Salem, and was called the Prince of peace.
 
@@ -136,7 +138,7 @@ In this connection, these words from holy writ are appropriate:
 
 “And this Melchizedek, having thus established righteousness, was called the king of heaven by his people, or, in other words, the King of peace.
 
-“And he lifted up his voice, and he blessed Abram. …
+“And he lifted up his voice, and he blessed Abram. …
 
 “And it came to pass, that God blessed Abram, and gave unto him riches, and honor, and lands for an everlasting possession; according to the covenant which he had made, and according to the blessing wherewith Melchizedek had blessed him.” ([[JST Genesis 14.26|JST, Gen. 14:26–29, 33–37, 40]][[JST Genesis 14.27|]][[JST Genesis 14.28|]][[JST Genesis 14.29|]][[JST Genesis 14.33|]][[JST Genesis 14.34|]][[JST Genesis 14.35|]][[JST Genesis 14.36|]][[JST Genesis 14.37|]][[JST Genesis 14.40|]].)
 
@@ -149,8 +151,3 @@ God grant that we may keep the commandments and be inheritors of all that a grac
 
 
 
-
-
-
-
-#Blessings #Priesthood

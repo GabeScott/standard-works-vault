@@ -1,5 +1,7 @@
 # “Are You Still Here?”
 
+Gordon B. Hinckley
+
 By Elder Gary J. Coleman - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -63,9 +65,9 @@ Before I was a member of this Church, I asked God, the Eternal Father, in ferven
 
 [^4]: See [[Alma 12.24|Alma 12:24]].
 
-[^5]: [[2 Nephi 9.13|2 Ne. 9:13]].
+[^5]: [[2 Nephi 9.13|2 Ne. 9:13]].
 
-[^6]: [[2 Nephi 25.20|2 Ne. 25:20]].
+[^6]: [[2 Nephi 25.20|2 Ne. 25:20]].
 
 [^7]: See [[Joseph Smith History 1.5|JS—H 1:5–16]][[Joseph Smith History 1.6|]][[Joseph Smith History 1.7|]][[Joseph Smith History 1.8|]][[Joseph Smith History 1.9|]][[Joseph Smith History 1.10|]][[Joseph Smith History 1.11|]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]][[Joseph Smith History 1.14|]][[Joseph Smith History 1.15|]][[Joseph Smith History 1.16|]].
 
@@ -73,7 +75,7 @@ Before I was a member of this Church, I asked God, the Eternal Father, in ferven
 
 [^9]: See [[D&C 28.2|D&C 28:2]].
 
-[^10]: See [[3 Nephi 11.1|3 Ne. 11]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
+[^10]: See [[3 Nephi 11.1|3 Ne. 11]].
 
 [^11]: See [[Moroni 10.5|Moro. 10:5]].
 
@@ -85,8 +87,3 @@ Before I was a member of this Church, I asked God, the Eternal Father, in ferven
 
 [^15]: “Now Let Us Rejoice,” *Hymns,* no. 3.
 
-
-
-
-
-#Atonement #Authority #Book_Of_Mormon #Faith #God_The_Father #Holy_Ghost #Jesus_Christ #Joseph_Smith #Plan_Of_Salvation #Premortal_Existence #Prophets #Resurrection #Scriptures #Spirituality #Testimony #Truth

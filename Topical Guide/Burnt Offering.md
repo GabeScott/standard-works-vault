@@ -1,4 +1,3 @@
 # Burnt Offering
 
-
-*See* [[Sacrifice.md|Sacrifice]]
+*See also* [[Sacrifice.md|Sacrifice]]

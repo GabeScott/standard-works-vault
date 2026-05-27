@@ -1,6 +1,8 @@
 # The Gift of Grace
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Cheryl A. Esplin
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -32,7 +34,7 @@ In Jacob’s words, “Why not speak of the atonement of Christ, and attain to a
 
 The Savior’s Atonement cannot become commonplace in our teaching, in our conversation, or in our hearts. It is sacred and holy, for it was through this “great and last sacrifice” that Jesus the Christ brought “salvation to all those who shall believe on his name.”[^6]
 
-I marvel to think that the Son of God would condescend to save us, as imperfect, impure, mistake-prone, and ungrateful as we often are. I have tried to understand the Savior’s Atonement with my finite mind, and the only explanation I can come up with is this: God loves us deeply, perfectly, and everlastingly. I cannot even begin to estimate “the breadth, and length, and depth, and height … \[of\] the love of Christ.”[^7]
+I marvel to think that the Son of God would condescend to save us, as imperfect, impure, mistake-prone, and ungrateful as we often are. I have tried to understand the Savior’s Atonement with my finite mind, and the only explanation I can come up with is this: God loves us deeply, perfectly, and everlastingly. I cannot even begin to estimate “the breadth, and length, and depth, and height … \[of\] the love of Christ.”[^7]
 
 A powerful expression of that love is what the scriptures often call the *grace of God—*the divine assistance and endowment of strength by which we grow from the flawed and limited beings we are now into exalted beings of “truth and light, until \[we are\] glorified in truth and \[know\] all things.”[^8]
 
@@ -149,15 +151,15 @@ I pray that we will see with new eyes and a new heart the eternal significance o
 
 
 
-[^1]: See [[1 Corinthians 15.55|1 Corinthians 15:55]]; [[Mosiah 16.8|Mosiah 16:8]].
+[^1]: See [[1 Corinthians 15.55|1 Corinthians 15:55]]; [[Mosiah 16.8|Mosiah 16:8]].
 
-[^2]: [[1 Peter 1.3|1 Peter 1:3]]; emphasis added.
+[^2]: [[1 Peter 1.3|1 Peter 1:3]]; emphasis added.
 
-[^3]: [[1 Thessalonians 4.18|1 Thessalonians 4:18]]; see also [[1 Thessalonians 4.13|verses 13–17]][[1 Thessalonians 4.14|]][[1 Thessalonians 4.15|]][[1 Thessalonians 4.16|]][[1 Thessalonians 4.17|]].
+[^3]: [[1 Thessalonians 4.18|1 Thessalonians 4:18]]; see also [[1 Thessalonians 4.13|verses 13–17]][[1 Thessalonians 4.14|]][[1 Thessalonians 4.15|]][[1 Thessalonians 4.16|]][[1 Thessalonians 4.17|]].
 
 [^4]: [[Jacob 4.12|Jacob 4:12]].
 
-[^5]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^5]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^6]: [[Alma 34.10|Alma 34:10, 15]][[Alma 34.15|]].
 
@@ -169,7 +171,7 @@ I pray that we will see with new eyes and a new heart the eternal significance o
 
 [^10]: [[Romans 3.23|Romans 3:23]].
 
-[^11]: [[1 Nephi 15.34|1 Nephi 15:34]]; see also [[1 Nephi 10.21|1 Nephi 10:21]]; [[Moses 6.57|Moses 6:57]].
+[^11]: [[1 Nephi 15.34|1 Nephi 15:34]]; see also [[1 Nephi 10.21|1 Nephi 10:21]]; [[Moses 6.57|Moses 6:57]].
 
 [^12]: [[Mosiah 2.21|Mosiah 2:21]].
 
@@ -179,9 +181,9 @@ I pray that we will see with new eyes and a new heart the eternal significance o
 
 [^15]: See [[Isaiah 1.18|Isaiah 1:18]].
 
-[^16]: [[1 Timothy 2.6|1 Timothy 2:6]].
+[^16]: [[1 Timothy 2.6|1 Timothy 2:6]].
 
-[^17]: See [[2 Peter 1.11|2 Peter 1:11]].
+[^17]: See [[2 Peter 1.11|2 Peter 1:11]].
 
 [^18]: [[D&C 76.56|Doctrine and Covenants 76:56]].
 
@@ -209,24 +211,19 @@ I pray that we will see with new eyes and a new heart the eternal significance o
 
 [^30]: See [[John 7.17|John 7:17]].
 
-[^31]: [[2 Nephi 25.23|2 Nephi 25:23]]; emphasis added.
+[^31]: [[2 Nephi 25.23|2 Nephi 25:23]]; emphasis added.
 
 [^32]: [[Matthew 26.41|Matthew 26:41]]; see also [[Romans 7.19|Romans 7:19]].
 
-[^33]: [[2 Nephi 4.17|2 Nephi 4:17]].
+[^33]: [[2 Nephi 4.17|2 Nephi 4:17]].
 
-[^34]: See [[2 Nephi 4.19|2 Nephi 4:19–35]][[2 Nephi 4.20|]][[2 Nephi 4.21|]][[2 Nephi 4.22|]][[2 Nephi 4.23|]][[2 Nephi 4.24|]][[2 Nephi 4.25|]][[2 Nephi 4.26|]][[2 Nephi 4.27|]][[2 Nephi 4.28|]][[2 Nephi 4.29|]][[2 Nephi 4.30|]][[2 Nephi 4.31|]][[2 Nephi 4.32|]][[2 Nephi 4.33|]][[2 Nephi 4.34|]][[2 Nephi 4.35|]]; [[Alma 34.31|Alma 34:31]].
+[^34]: See [[2 Nephi 4.19|2 Nephi 4:19–35]][[2 Nephi 4.20|]][[2 Nephi 4.21|]][[2 Nephi 4.22|]][[2 Nephi 4.23|]][[2 Nephi 4.24|]][[2 Nephi 4.25|]][[2 Nephi 4.26|]][[2 Nephi 4.27|]][[2 Nephi 4.28|]][[2 Nephi 4.29|]][[2 Nephi 4.30|]][[2 Nephi 4.31|]][[2 Nephi 4.32|]][[2 Nephi 4.33|]][[2 Nephi 4.34|]][[2 Nephi 4.35|]]; [[Alma 34.31|Alma 34:31]].
 
-[^35]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^35]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
-[^36]: See [[3 Nephi 9.19|3 Nephi 9:19–20]][[3 Nephi 9.20|]].
+[^36]: See [[3 Nephi 9.19|3 Nephi 9:19–20]][[3 Nephi 9.20|]].
 
-[^37]: See [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^37]: See [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
 [^38]: [[Romans 6.4|Romans 6:4]].
 
-
-
-
-
-#Atonement #Grace #Jesus_Christ #Obedience #Repentance #Resurrection

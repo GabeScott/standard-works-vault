@@ -1,6 +1,5 @@
 # Brimstone
 
-
 rained upon Sodom and upon Gomorrah *brimstone*, [[Genesis 19.24|Genesis 19:24]].
 
 whole land thereof is *brimstone*, and salt, [[Deuteronomy 29.23|Deuteronomy 29:23]].

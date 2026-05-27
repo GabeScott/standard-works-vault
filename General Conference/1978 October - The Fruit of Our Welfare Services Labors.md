@@ -1,6 +1,8 @@
 # The Fruit of Our Welfare Services Labors
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -22,7 +24,7 @@ May I suggest that the “fruit of our welfare labors” may best be understood 
 
 ## Individual Fruits
 
-The fruits experienced by the individual include dignity, self-respect, strengthened testimony, selflessness, and increased personal spirituality. Explaining the intended outcomes of the welfare plan, President J. Reuben Clark had this to say to a special meeting of stake presidents held here in the Tabernacle on 2 October 1936:
+The fruits experienced by the individual include dignity, self-respect, strengthened testimony, selflessness, and increased personal spirituality. Explaining the intended outcomes of the welfare plan, President J. Reuben Clark had this to say to a special meeting of stake presidents held here in the Tabernacle on 2 October 1936:
 
 “Thus it is seen that from the beginning the real long term objective of the welfare plan *is the building of character* in the members of the Church, givers and receivers, rescuing all that is finest down deep in the inside of them, and *bringing to flower and fruitage the latent richness of the spirit,* which after all is the mission and purpose and reason for being of this Church.”
 
@@ -70,9 +72,9 @@ It is my plea that we may keep our houses in order, individually and collectivel
 
 I want now to introduce Sister Barbara Smith. I would like to ask Sister Smith to come forward and share with you the background on an action approved by the First Presidency relative to Church wheat reserves.
 
-## Sister Barbara B. Smith:
+## Sister Barbara B. Smith:
 
-Thank you, President Kimball. On an autumn day in 1876, President Brigham Young called to his office one of my predecessors, Sister Emmeline B. Wells, then the associate editor of the *Woman’s Exponent.* He told her he wanted the women of Zion to begin to save grain against a day of need and that he wanted her to lead out in this mission. (See *History of Relief Society, 1842–1966,* Salt Lake City: General Board of Relief Society of The Church of Jesus Christ of Latter-day Saints, 1966, p. 109.)
+Thank you, President Kimball. On an autumn day in 1876, President Brigham Young called to his office one of my predecessors, Sister Emmeline B. Wells, then the associate editor of the *Woman’s Exponent.* He told her he wanted the women of Zion to begin to save grain against a day of need and that he wanted her to lead out in this mission. (See *History of Relief Society, 1842–1966,* Salt Lake City: General Board of Relief Society of The Church of Jesus Christ of Latter-day Saints, 1966, p. 109.)
 
 Sister Wells said, “We began that very year, and though we were laughed at, we did buy grain” (*Relief Society Magazine,* Feb. 1915, p. 48). “Sisters be in earnest,” she admonished, and the women responded in spirit and deed (*Woman’s Exponent,* 15 Oct. 1876, p. 76).
 
@@ -104,7 +106,7 @@ In an early Relief Society publication, a sister wrote her feelings on wheat sav
 
 “If anyone doubts … let her look about her, behold the myriads of little children in the land, and recollect that the women who are now called upon to save the grain, are their MOTHERS.
 
-“… Could I imagine those pure, baby lips … asking for BREAD when I had none to give!” (*Woman’s Exponent,* 1 Nov. 1876, p. 81.)
+“… Could I imagine those pure, baby lips … asking for BREAD when I had none to give!” (*Woman’s Exponent,* 1 Nov. 1876, p. 81.)
 
 As women, we know that even though we give nourishment to children in infancy and childhood, part of our challenge as mothers is to help them mature and take their place in the great plan of life and salvation. In the past, Relief Society women have nourished numerous beginning programs to meet needs, including education and career development programs, hospitals, maternity care, adoption, and other social services and welfare projects. When the projects have matured, Relief Society has been proud to see them move into the larger sphere of Church stewardship.
 
@@ -131,8 +133,3 @@ May the Lord bless us in this great and divinely inspired welfare work, I humbly
 
 
 
-
-
-
-
-#Preparation #Relief_Society #Welfare

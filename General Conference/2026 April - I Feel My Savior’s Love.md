@@ -1,5 +1,7 @@
 # I Feel My Savior’s Love
 
+Dallin H. Oaks
+
 By Elder Pedro X. Larreal - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -16,13 +18,13 @@ We can renew that influence of the Holy Ghost each week by personally preparing 
 
 The resurrected Lord emphasized the importance of the sacrament when He visited the Americas and instituted this ordinance among the faithful Nephites and Lamanites. He blessed the emblems of the sacrament. He gave them to His disciples and then the multitude, and at the same time, He commanded them, saying: “And this shall ye always do to those who repent and are baptized in my name; and ye shall do it in remembrance of my blood, which I have shed for you, that ye may witness unto the Father that ye do always remember me. And if ye do always remember me ye shall have my Spirit to be with you.”[^2]
 
-The sacrament is the ordinance that replaces the sacrifices of blood and burnt offerings of the Mosaic law.[^3] As we partake of this ordinance, we can receive the promise given by the Savior. In [[3 Nephi 9.20|3 Nephi 9:20]] we read, “And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost.”
+The sacrament is the ordinance that replaces the sacrifices of blood and burnt offerings of the Mosaic law.[^3] As we partake of this ordinance, we can receive the promise given by the Savior. In [[3 Nephi 9.20|3 Nephi 9:20]] we read, “And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost.”
 
 As we partake of this ordinance with a broken heart, the Lord promises us the blessing of having the companionship and constant guidance of the Holy Ghost.
 
 The sacrament represents the Atonement of Jesus Christ. During that sacred moment, when we give our full attention to Him and focus on His atoning sacrifice, how can we not feel His great love for us? How can we not feel important when we remember that He willingly volunteered to be the Advocate between us and the Father?
 
-In [[Luke 22.19|Luke 22:19–20]][[Luke 22.20|]] we read:
+In [[Luke 22.19|Luke 22:19–20]][[Luke 22.20|]] we read:
 
 “And he took bread, and gave thanks, and brake it, and gave unto them, saying, This is my body which is given for you: \[do this\] in remembrance of me.
 
@@ -49,7 +51,7 @@ I testify of the sacred mantle of our prophet, President Dallin H. Oaks, as a pr
 
 [^1]: Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), 2, speeches.byu.edu; quoting Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Liahona*, May 2018, 96.
 
-[^2]: [[3 Nephi 18.11|3 Nephi 18:11]].
+[^2]: [[3 Nephi 18.11|3 Nephi 18:11]].
 
 [^3]: See Dallin H. Oaks, “[[2008 October - Sacrament Meeting and the Sacrament.md|Sacrament Meeting and the Sacrament]],” *Liahona*, Nov. 2008, 19.
 
@@ -57,5 +59,3 @@ I testify of the sacred mantle of our prophet, President Dallin H. Oaks, as a pr
 
 [^5]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96.
 
-
-#Atonement_Of_Jesus_Christ #Holy_Ghost #Jesus_Christ #Love #Sacrament

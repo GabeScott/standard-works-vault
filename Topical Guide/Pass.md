@@ -1,15 +1,14 @@
 # Pass
 
-
 Lord will *pass* through to smite the Egyptians, [[Exodus 12.23|Exodus 12:23]].
 
-Let us *pass* ... through thy country, [[Numbers 20.17|Numbers 20:17]].
+Let us *pass* … through thy country, [[Numbers 20.17|Numbers 20:17]].
 
 *passed* over on dry ground, [[Joshua 3.17|Joshua 3:17]].
 
 the Lord *passed* by, [[1 Kings 19.11|1 Kings 19:11]].
 
-Solomon *passed* all the kings ... in riches, [[2 Chronicles 9.22|2 Chronicles 9:22]].
+Solomon *passed* all the kings … in riches, [[2 Chronicles 9.22|2 Chronicles 9:22]].
 
 I will not again *pass* by them, [[Amos 7.8|Amos 7:8]].
 
@@ -21,7 +20,7 @@ let this cup *pass* from me, [[Matthew 26.39|Matthew 26:39]] ([[Mark 14.35|Mark 
 
 he *passing* through the midst of them, [[Luke 4.30|Luke 4:30]].
 
-a certain priest ... *passed* by on the other side, [[Luke 10.31|Luke 10:31]].
+a certain priest … *passed* by on the other side, [[Luke 10.31|Luke 10:31]].
 
 easier for heaven and earth to *pass*, [[Luke 16.17|Luke 16:17]].
 
@@ -49,9 +48,9 @@ that he may bring to *pass* the resurrection, [[2 Nephi 2.8|2 Nephi 2:8]].
 
 that the resurrection might *pass* upon all men, [[2 Nephi 9.22|2 Nephi 9:22]].
 
-although he should preach ... that the earth should *pass* away, [[Alma 9.2|Alma 9:2]].
+although he should preach … that the earth should *pass* away, [[Alma 9.2|Alma 9:2]].
 
-no more be confounded, until ... the earth shall *pass* away, [[Ether 13.8|Ether 13:8]].
+no more be confounded, until … the earth shall *pass* away, [[Ether 13.8|Ether 13:8]].
 
 after this manner bringeth to *pass* the Father, the covenants, [[Moroni 7.32|Moroni 7:32]].
 
@@ -63,10 +62,10 @@ this generation shall not all *pass* away until an house shall be built unto the
 
 destroying angel shall *pass* by them, [[D&C 89.21|D&C 89:21]].
 
-Lord's scourge shall *pass* over by night and by day, [[D&C 97.23|D&C 97:23]].
+Lord’s scourge shall *pass* over by night and by day, [[D&C 97.23|D&C 97:23]].
 
 many worlds that have *passed* away, [[Moses 1.35|Moses 1:35]].
 
-as one earth shall *pass* away ... so shall another come, [[Moses 1.38|Moses 1:38]].
+as one earth shall *pass* away … so shall another come, [[Moses 1.38|Moses 1:38]].
 
 my work and my glory—to bring to *pass* the immortality and eternal life of man, [[Moses 1.39|Moses 1:39]].

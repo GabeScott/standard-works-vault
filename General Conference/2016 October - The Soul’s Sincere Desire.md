@@ -1,6 +1,8 @@
 # The Soul’s Sincere Desire
 
-By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
+Jean B. Bingham
+
+By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -8,11 +10,11 @@ By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/10/the-souls-sincere-desire?lang=eng)
 
-In the struggles of mortality, we are never left alone to accomplish our work, to fight our battles, to face adversity or unanswered questions. Jesus Christ taught with a parable “that men ought always to pray, and not to faint.” He told of a judge who did not honor God and did not have any regard for mankind. Repeatedly, a widow came before him, pleading to be avenged of her adversary. For a while, the judge would offer her no relief. But as a result of her faithful, consistent pleading, the judge finally thought, “Because this widow troubleth me, I will avenge her, lest by her continual coming she weary me.”
+In the struggles of mortality, we are never left alone to accomplish our work, to fight our battles, to face adversity or unanswered questions. Jesus Christ taught with a parable “that men ought always to pray, and not to faint.” He told of a judge who did not honor God and did not have any regard for mankind. Repeatedly, a widow came before him, pleading to be avenged of her adversary. For a while, the judge would offer her no relief. But as a result of her faithful, consistent pleading, the judge finally thought, “Because this widow troubleth me, I will avenge her, lest by her continual coming she weary me.”
 
 Then Jesus explained:
 
-“Shall not God avenge his own elect, which cry day and night unto him … ?
+“Shall not God avenge his own elect, which cry day and night unto him … ?
 
 “I tell you that he will avenge them speedily.”
 
@@ -30,9 +32,9 @@ If we expect to receive, we must ask, seek, and knock. In his search for truth, 
 
 We pray to our Father in the name of Jesus Christ, by the power of the Holy Ghost, thus engaging all three members of the Godhead in our utterances.
 
-**We pray to our Heavenly Father** and Him only because He is “God in heaven, who is infinite and eternal, from everlasting to everlasting … , the framer of heaven and earth, and all things which are in them.” As our Creator, He gave commandments that we “should love and serve him, the only living and true God, and that he should be the only being whom \[we\] should worship.”[^8]
+**We pray to our Heavenly Father** and Him only because He is “God in heaven, who is infinite and eternal, from everlasting to everlasting … , the framer of heaven and earth, and all things which are in them.” As our Creator, He gave commandments that we “should love and serve him, the only living and true God, and that he should be the only being whom \[we\] should worship.”[^8]
 
-As you pray to Heavenly Father in faith, “he will console you in your afflictions, … \[and ye may\] feast upon his love.”[^9] President Henry B. Eyring shared that his father’s prayers during a losing battle with cancer taught him the deeply personal relationship between God and His children:
+As you pray to Heavenly Father in faith, “he will console you in your afflictions, … \[and ye may\] feast upon his love.”[^9] President Henry B. Eyring shared that his father’s prayers during a losing battle with cancer taught him the deeply personal relationship between God and His children:
 
 “When the pain became intense, we found him in the morning on his knees by the bed. He had been too weak to get back into bed. He told us he had been praying to ask his Heavenly Father why he had to suffer so much when he had always tried to be good. He said a kindly answer came: ‘God needs brave sons.’
 
@@ -48,7 +50,7 @@ President Eyring shared: “I have had prayers answered. Those answers were most
 
 As the Savior entered the Garden of Gethsemane, His soul was exceedingly sorrowful, even unto death. In His agony, the only one He could turn to was His Father. He pleaded, “If it be possible, let this cup pass from me.” But He added, “Nevertheless not as I will, but as thou wilt.”[^18] Though sinless, the Savior was called upon to “\[suffer\] pains and afflictions and temptations of every kind,” including the sicknesses and infirmities of His people. “\[He\] suffereth according to the flesh that he might take upon him the sins of his people, that he might blot out their transgressions according to the power of his deliverance.”[^19] Three times He prayed, “Father, thy will be done.”[^20] The cup was not removed. In humble, faithful prayer He was strengthened to go forward and fulfill His divine mission to prepare for our salvation, that we might repent, believe, obey, and obtain the blessings of eternity.
 
-The answers we receive in prayer may not be what we would desire. But in times of trouble, our prayers become a lifeline of love and tender mercy. In our pleading, we may be strengthened to go forward and fulfill all that we have been ordained to do. To His Saints living in perilous times, the Lord says, “Let your hearts be comforted … ; for all flesh is in mine hands; be still and know that I am God.”[^21]
+The answers we receive in prayer may not be what we would desire. But in times of trouble, our prayers become a lifeline of love and tender mercy. In our pleading, we may be strengthened to go forward and fulfill all that we have been ordained to do. To His Saints living in perilous times, the Lord says, “Let your hearts be comforted … ; for all flesh is in mine hands; be still and know that I am God.”[^21]
 
 Whether we pray privately, with our families, at church, in the temple, or wherever we are; whether we pray with broken hearts and contrite spirits seeking forgiveness, heavenly wisdom, or simply the strength to endure, we pray *always* with full hearts, drawn out unto God continually for our welfare and the welfare of those around us. Sincere desires offered in a spirit of gratitude for abundant blessings and gratitude for the lessons of life instill in our hearts steadfast faith in Christ, a “brightness of hope, and a love of God and of all men.”[^22]
 
@@ -57,7 +59,7 @@ Prayer is a gift from God. We need never feel lost or alone. I testify that ever
 
 
 
-[^1]: See [[Luke 18.1|Luke 18:1–8]][[Luke 18.2|]][[Luke 18.3|]][[Luke 18.4|]][[Luke 18.5|]][[Luke 18.6|]][[Luke 18.7|]][[Luke 18.8|]]; see also Joseph Smith Translation, Luke 18:8 (in [[Luke 18.8|Luke 18:8]], footnote *a*).
+[^1]: See [[Luke 18.1|Luke 18:1–8]][[Luke 18.2|]][[Luke 18.3|]][[Luke 18.4|]][[Luke 18.5|]][[Luke 18.6|]][[Luke 18.7|]][[Luke 18.8|]]; see also Joseph Smith Translation, Luke 18:8 (in [[Luke 18.8|Luke 18:8]], footnote *a*).
 
 [^2]: [[Romans 10.13|Romans 10:13]].
 
@@ -75,7 +77,7 @@ Prayer is a gift from God. We need never feel lost or alone. I testify that ever
 
 [^9]: [[Jacob 3.1|Jacob 3:1–2]][[Jacob 3.2|]].
 
-[^10]: Henry B. Eyring, “[Families and Prayer](https://churchofjesuschrist.org/study/liahona/2015/09/families-and-prayer?lang=eng),” *Ensign* or *Liahona,* Sept. 2015, 4.
+[^10]: Henry B. Eyring, “[Families and Prayer](https://www.churchofjesuschrist.org/study/liahona/2015/09/families-and-prayer?lang=eng),” *Ensign* or *Liahona,* Sept. 2015, 4.
 
 [^11]: [[Acts 4.12|Acts 4:12]].
 
@@ -87,9 +89,9 @@ Prayer is a gift from God. We need never feel lost or alone. I testify that ever
 
 [^15]: [[Mormon 9.28|Mormon 9:28]].
 
-[^16]: Melvin J. Ballard, “Our Channels of Power and Strength,” *Improvement Era,* Sept. 1923, 992; quoted in M. Russell Ballard, *Yesterday, Today, and Forever* (2015), 133.
+[^16]: Melvin J. Ballard, “Our Channels of Power and Strength,” *Improvement Era,* Sept. 1923, 992; quoted in M. Russell Ballard, *Yesterday, Today, and Forever* (2015), 133.
 
-[^17]: Henry B. Eyring, “[[2000 October - “Write upon My Heart”.md|Write upon My Heart]],” *Ensign,* Nov. 2000, 86; *Liahona,* Jan. 2001, 100.
+[^17]: Henry B. Eyring, “[[2000 October - “Write upon My Heart”.md|Write upon My Heart]],” *Ensign,* Nov. 2000, 86; *Liahona,* Jan. 2001, 100.
 
 [^18]: [[Matthew 26.39|Matthew 26:39]]; see also [[Matthew 26.38|verse 38]].
 
@@ -99,10 +101,5 @@ Prayer is a gift from God. We need never feel lost or alone. I testify that ever
 
 [^21]: [[D&C 101.16|Doctrine and Covenants 101:16]].
 
-[^22]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^22]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-
-
-
-
-#Prayer

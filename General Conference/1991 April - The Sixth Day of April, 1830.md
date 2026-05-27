@@ -1,5 +1,7 @@
 # The Sixth Day of April, 1830
 
+Thomas S. Monson
+
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -22,7 +24,7 @@ When men heard that young Joseph Smith was claiming God had manifested Himself t
 
 “And they took him, and brought him unto Areopagus, saying, May we know what this new doctrine, whereof thou speakest, is?
 
-“For thou bringest certain strange things to our ears: we would know therefore what these things mean. …
+“For thou bringest certain strange things to our ears: we would know therefore what these things mean. …
 
 “Then Paul stood in the midst of Mars’ hill, and said, Ye men of Athens, I perceive that in all things ye are too superstitious.
 
@@ -53,8 +55,3 @@ I testify that the boy prophet, who in so many ways remains the central miracle 
 
 
 
-
-
-
-
-#Joseph_Smith #Restoration

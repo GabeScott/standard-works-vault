@@ -1,6 +1,8 @@
 # Stand in Holy Places
 
-By President Thomas S. Monson - *President of the Church*
+Richard G. Scott
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -8,7 +10,7 @@ By President Thomas S. Monson - *President of the Church*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/10/stand-in-holy-places?lang=eng)
 
-My beloved brothers and sisters, we have heard fine messages this morning, and I commend each who has participated. We’re particularly delighted to have Elder Robert D. Hales with us once again and feeling improved. We love you, Bob.
+My beloved brothers and sisters, we have heard fine messages this morning, and I commend each who has participated. We’re particularly delighted to have Elder Robert D. Hales with us once again and feeling improved. We love you, Bob.
 
 As I pondered what I would like to say to you this morning, I have felt impressed to share certain thoughts and feelings which I consider to be pertinent and timely. I pray that I may be guided in my remarks.
 
@@ -20,7 +22,7 @@ I recently read in the *Wall Street Journal* an article by Jonathan Sacks, Brita
 
 Rabbi Sacks goes on to lament:
 
-“We have been spending our moral capital with the same reckless abandon that we have been spending our financial capital. …
+“We have been spending our moral capital with the same reckless abandon that we have been spending our financial capital. …
 
 “There are large parts of \[the world\] where religion is a thing of the past and there is no counter-voice to the culture of buy it, spend it, wear it, flaunt it, because you’re worth it. The message is that morality is passé, conscience is for wimps, and the single overriding command is ‘Thou shalt not be found out.’”[^1]
 
@@ -30,13 +32,13 @@ Although the world has changed, the laws of God remain constant. They have not c
 
 “Thou shalt have no other gods before me.
 
-“Thou shalt not make unto thee any graven image. …
+“Thou shalt not make unto thee any graven image. …
 
-“Thou shalt not take the name of the Lord thy God in vain. …
+“Thou shalt not take the name of the Lord thy God in vain. …
 
-“Remember the sabbath day, to keep it holy. …
+“Remember the sabbath day, to keep it holy. …
 
-“Honour thy father and thy mother. …
+“Honour thy father and thy mother. …
 
 “Thou shalt not kill.
 
@@ -44,7 +46,7 @@ Although the world has changed, the laws of God remain constant. They have not c
 
 “Thou shalt not steal.
 
-“Thou shalt not bear false witness. …
+“Thou shalt not bear false witness. …
 
 “Thou shalt not covet.”[^2]
 
@@ -56,7 +58,7 @@ It may appear to you at times that those out in the world are having much more f
 
 We must be vigilant in a world which has moved so far from that which is spiritual. It is essential that we reject anything that does not conform to our standards, refusing in the process to surrender that which we desire most: eternal life in the kingdom of God. The storms will still beat at our doors from time to time, for they are an inescapable part of our existence in mortality. We, however, will be far better equipped to deal with them, to learn from them, and to overcome them if we have the gospel at our core and the love of the Savior in our hearts. The prophet Isaiah declared, “The work of righteousness shall be peace; and the effect of righteousness quietness and assurance for ever.”[^5]
 
-As a means of being *in* the world but not being *of* the world, it is necessary that we communicate with our Heavenly Father through prayer. He wants us to do so; He’ll answer our prayers. The Savior admonished us, as recorded in [[3 Nephi 18.1|3 Nephi 18]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]][[3 Nephi 18.15|]][[3 Nephi 18.16|]][[3 Nephi 18.17|]][[3 Nephi 18.18|]][[3 Nephi 18.19|]][[3 Nephi 18.20|]][[3 Nephi 18.21|]][[3 Nephi 18.22|]][[3 Nephi 18.23|]][[3 Nephi 18.24|]][[3 Nephi 18.25|]][[3 Nephi 18.26|]][[3 Nephi 18.27|]][[3 Nephi 18.28|]][[3 Nephi 18.29|]][[3 Nephi 18.30|]][[3 Nephi 18.31|]][[3 Nephi 18.32|]][[3 Nephi 18.33|]][[3 Nephi 18.34|]][[3 Nephi 18.35|]][[3 Nephi 18.36|]][[3 Nephi 18.37|]][[3 Nephi 18.38|]][[3 Nephi 18.39|]], to “watch and pray always lest ye enter into temptation; for Satan desireth to have you. …
+As a means of being *in* the world but not being *of* the world, it is necessary that we communicate with our Heavenly Father through prayer. He wants us to do so; He’ll answer our prayers. The Savior admonished us, as recorded in [[3 Nephi 18.1|3 Nephi 18]], to “watch and pray always lest ye enter into temptation; for Satan desireth to have you. …
 
 “Therefore ye must always pray unto the Father in my name;
 
@@ -76,13 +78,13 @@ Since that time of long ago, I have had countless prayers answered. Not a day ha
 
 I am always humbled and grateful when my Heavenly Father communicates with me through His inspiration. I have learned to recognize it, to trust it, and to follow it. Time and time again I have been the recipient of such inspiration. One rather dramatic experience took place in August of 1987 during the dedication of the Frankfurt Germany Temple. President Ezra Taft Benson had been with us for the first day or two of the dedication but had returned home, and so it became my opportunity to conduct the remaining sessions.
 
-On Saturday we had a session for our Dutch members who were in the Frankfurt Temple district. I was well acquainted with one of our outstanding leaders from the Netherlands, Brother Peter Mourik. Just prior to the session, I had the distinct impression that Brother Mourik should be called upon to speak to his fellow Dutch members during the session and that, in fact, he should be the first speaker. Not having seen him in the temple that morning, I passed a note to Elder Carlos E. Asay, our Area President, asking whether Peter Mourik was in attendance at the session. Just prior to standing up to begin the session, I received a note back from Elder Asay indicating that Brother Mourik was actually *not* in attendance, that he was involved elsewhere, and that he was planning to attend the dedicatory session in the temple the following day with the servicemen stakes.
+On Saturday we had a session for our Dutch members who were in the Frankfurt Temple district. I was well acquainted with one of our outstanding leaders from the Netherlands, Brother Peter Mourik. Just prior to the session, I had the distinct impression that Brother Mourik should be called upon to speak to his fellow Dutch members during the session and that, in fact, he should be the first speaker. Not having seen him in the temple that morning, I passed a note to Elder Carlos E. Asay, our Area President, asking whether Peter Mourik was in attendance at the session. Just prior to standing up to begin the session, I received a note back from Elder Asay indicating that Brother Mourik was actually *not* in attendance, that he was involved elsewhere, and that he was planning to attend the dedicatory session in the temple the following day with the servicemen stakes.
 
 As I stood at the pulpit to welcome the people and to outline the program, I received unmistakable inspiration once again that I was to announce Peter Mourik as the first speaker. This was counter to all my instincts, for I had just heard from Elder Asay that Brother Mourik was definitely *not* in the temple. Trusting in the inspiration, however, I announced the choir presentation and the prayer and then indicated that our first speaker would be Brother Peter Mourik.
 
 As I returned to my seat, I glanced toward Elder Asay; I saw on his face a look of alarm. He later told me that when I had announced Brother Mourik as the first speaker, he couldn’t believe his ears. He said he knew that I had received his note and that I indeed had read it, and he couldn’t fathom why I would then announce Brother Mourik as a speaker, knowing he wasn’t anywhere in the temple.
 
-During the time all of this was taking place, Peter Mourik was in a meeting at the area offices in Porthstrasse. As his meeting was going forward, he suddenly turned to Elder Thomas A. Hawkes Jr., who was then the regional representative, and asked, “How fast can you get me to the temple?”
+During the time all of this was taking place, Peter Mourik was in a meeting at the area offices in Porthstrasse. As his meeting was going forward, he suddenly turned to Elder Thomas A. Hawkes Jr., who was then the regional representative, and asked, “How fast can you get me to the temple?”
 
 Elder Hawkes, who was known to drive rather rapidly in his small sports car, answered, “I can have you there in 10 minutes! But why do you need to go to the temple?”
 
@@ -111,11 +113,11 @@ What a promise! May such be our blessing, I sincerely pray in the sacred name of
 
 [^3]: [[Moroni 8.18|Moroni 8:18]].
 
-[^4]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^4]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^5]: [[Isaiah 32.17|Isaiah 32:17]].
 
-[^6]: [[3 Nephi 18.18|3 Nephi 18:18–20]][[3 Nephi 18.19|]][[3 Nephi 18.20|]].
+[^6]: [[3 Nephi 18.18|3 Nephi 18:18–20]][[3 Nephi 18.19|]][[3 Nephi 18.20|]].
 
 [^7]: [[D&C 88.63|Doctrine and Covenants 88:63]].
 
@@ -123,8 +125,3 @@ What a promise! May such be our blessing, I sincerely pray in the sacred name of
 
 [^9]: [[Isaiah 41.10|Isaiah 41:10]].
 
-
-
-
-
-#Commandments #Prayer #Spirituality

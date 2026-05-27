@@ -1,5 +1,7 @@
 # This Peaceful House of God
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1993 General Conference*
@@ -80,9 +82,9 @@ And from further revelation received in the days of Nauvoo:
 
 “For a baptismal font there is not upon the earth, that they, my saints, may be baptized for those who are dead—
 
-“For this ordinance belongeth to my house. …
+“For this ordinance belongeth to my house. …
 
-“… I command you, all ye my saints, to build a house unto me. …
+“… I command you, all ye my saints, to build a house unto me. …
 
 “And verily I say unto you, let this house be built unto my name, that I may reveal mine ordinances therein unto my people;
 
@@ -123,8 +125,3 @@ I hope that as we do so, there will be stirred within each of us a flaming testi
 
 
 
-
-
-
-
-#Faith #Temples

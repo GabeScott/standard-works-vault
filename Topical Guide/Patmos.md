@@ -1,4 +1,3 @@
 # Patmos
 
-
-*See* [BD Patmos](https://www.churchofjesuschrist.org/study/scriptures/bd/patmos?lang=eng)
+*See also* [[BD Patmos.md|BD Patmos]]

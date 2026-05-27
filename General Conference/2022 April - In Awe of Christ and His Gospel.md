@@ -1,5 +1,7 @@
 # In Awe of Christ and His Gospel
 
+Russell M. Nelson
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
@@ -45,7 +47,7 @@ Jesus is the Redeemer of the world, and this is His Church. I bear witness of th
 
 
 
-[^1]: See Guide to the Scriptures, “[Doctrine of Christ](https://churchofjesuschrist.org/study/scriptures/gs/doctrine-of-christ?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^1]: See Guide to the Scriptures, “[Doctrine of Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/doctrine-of-christ?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^2]: See [[Isaiah 61.10|Isaiah 61:10]].
 
@@ -53,47 +55,47 @@ Jesus is the Redeemer of the world, and this is His Church. I bear witness of th
 
 [^4]: See [[Joseph Smith History 1.11|Joseph Smith—History 1:11–13]][[Joseph Smith History 1.12|]][[Joseph Smith History 1.13|]].
 
-[^5]: See Guide to the Scriptures, “[Holy Ghost](https://churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^5]: See Guide to the Scriptures, “[Holy Ghost](https://www.churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^6]: See [[Galatians 2.20|Galatians 2:20]].
 
 [^7]: [[Colossians 2.7|Colossians 2:7]]; see [[Colossians 2.6|verses 6–8]][[Colossians 2.7|]][[Colossians 2.8|]].
 
-[^8]: See [[Matthew 14.23|Matthew 14:23]]; [[1 Nephi 19.23|1 Nephi 19:23]]; [[Helaman 3.35|Helaman 3:35]]; [[4 Nephi 1.12|4 Nephi 1:12]]; Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 113–14.
+[^8]: See [[Matthew 14.23|Matthew 14:23]]; [[1 Nephi 19.23|1 Nephi 19:23]]; [[Helaman 3.35|Helaman 3:35]]; [[4 Nephi 1.12|4 Nephi 1:12]]; Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 113–14.
 
-[^9]: See [[Matthew 17.5|Matthew 17:5]]; [[Luke 9.35|Luke 9:35]]; [[3 Nephi 11.7|3 Nephi 11:7]].
+[^9]: See [[Matthew 17.5|Matthew 17:5]]; [[Luke 9.35|Luke 9:35]]; [[3 Nephi 11.7|3 Nephi 11:7]].
 
-[^10]: See [[1 Peter 5.8|1 Peter 5:8]].
+[^10]: See [[1 Peter 5.8|1 Peter 5:8]].
 
-[^11]: A. W. Tozer, *The Pursuit of God* (2015), 23.
+[^11]: A. W. Tozer, *The Pursuit of God* (2015), 23.
 
-[^12]: [[3 Nephi 2.1|3 Nephi 2:1–2]][[3 Nephi 2.2|]].
+[^12]: [[3 Nephi 2.1|3 Nephi 2:1–2]][[3 Nephi 2.2|]].
 
-[^13]: See Guide to the Scriptures, “[Natural Man](https://churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^13]: See Guide to the Scriptures, “[Natural Man](https://www.churchofjesuschrist.org/study/scriptures/gs/natural-man?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^14]: [[D&C 19.23|Doctrine and Covenants 19:23]].
 
-[^15]: See Guide to the Scriptures, “[Humble, Humility](https://churchofjesuschrist.org/study/scriptures/gs/humble-humility?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^15]: See Guide to the Scriptures, “[Humble, Humility](https://www.churchofjesuschrist.org/study/scriptures/gs/humble-humility?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^16]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
 [^17]: See [[Matthew 22.36|Matthew 22:36–40]][[Matthew 22.37|]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
-[^18]: See Guide to the Scriptures, “[Jesus Christ](https://churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^18]: See Guide to the Scriptures, “[Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/gs/jesus-christ?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^19]: See [[D&C 6.36|Doctrine and Covenants 6:36]].
 
 [^20]: See [[Luke 2.52|Luke 2:52]].
 
-[^21]: See Guide to the Scriptures, “[Righteous, Righteousness](https://churchofjesuschrist.org/study/scriptures/gs/righteous-righteousness?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^21]: See Guide to the Scriptures, “[Righteous, Righteousness](https://www.churchofjesuschrist.org/study/scriptures/gs/righteous-righteousness?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
-[^22]: See Guide to the Scriptures, “[Thankful, Thanks, Thanksgiving](https://churchofjesuschrist.org/study/scriptures/gs/thankful-thanks-thanksgiving?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^22]: See Guide to the Scriptures, “[Thankful, Thanks, Thanksgiving](https://www.churchofjesuschrist.org/study/scriptures/gs/thankful-thanks-thanksgiving?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
-[^23]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^23]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^24]: See [Preach My Gospel: A Guide to Missionary Service](https://churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng) (2019), 121–32.
+[^24]: See [Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/how-do-i-develop-christlike-attributes?lang=eng) (2019), 121–32.
 
-[^25]: See Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67–69.
+[^25]: See Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67–69.
 
 [^26]: See [[D&C 11.12|Doctrine and Covenants 11:12–14]][[D&C 11.13|]][[D&C 11.14|]]; see also [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
@@ -103,14 +105,9 @@ Jesus is the Redeemer of the world, and this is His Church. I bear witness of th
 
 [^29]: [[Mosiah 5.7|Mosiah 5:7]].
 
-[^30]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^30]: See [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
-[^31]: See Guide to the Scriptures, “[Walk, Walk with God](https://churchofjesuschrist.org/study/scriptures/gs/walk-walk-with-god?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^31]: See Guide to the Scriptures, “[Walk, Walk with God](https://www.churchofjesuschrist.org/study/scriptures/gs/walk-walk-with-god?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^32]: [[D&C 78.18|Doctrine and Covenants 78:18–19]][[D&C 78.19|]].
 
-
-
-
-
-#Apathy #Diligence #Jesus_Christ #Learning #Love #Peace #Spirituality

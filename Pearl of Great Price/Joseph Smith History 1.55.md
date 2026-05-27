@@ -5,5 +5,5 @@
 [Joseph Smith History 1:55](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.55?lang=eng#p55)
 
 
-[^a]: TG [[Industry, Industrious]].
-[^b]: TG [[Work, Value of]].
+[^a]: [[Industry, Industrious|TG Industry]].  
+[^b]: [[Work, Value of|TG Work, Value of]].  

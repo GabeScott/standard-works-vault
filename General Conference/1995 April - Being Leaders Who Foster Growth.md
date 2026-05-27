@@ -1,5 +1,7 @@
 # Being Leaders Who Foster Growth
 
+Thomas S. Monson
+
 By Karen Maxwell - *Monument Park Second Ward, Salt Lake Monument Park North Stake*
 
 *Given in the April session of the 1995 General Conference*
@@ -22,12 +24,12 @@ Finally, we must have faith that Jesus can and will touch young women’s hearts
 
 And surely our faith must involve prayers for and with our young women in their efforts. My father composed a piece which includes this prayer for all of us:
 
->*Oh Lord, I would hear Thy word, which Thou sendest me in Thy mercy.*
->*Unseal my heart that I may lift it unto Thee.*
->*Unlock my searching spirit that I may seek Thee.*
->*Heal Thou my deafened ears; touch Thou my blinded eyes.*
->*Increase my joy in Thee, that I may rejoice in Thee,*
->*Thou Holy One of Israel, that I may sanctify Thy name.*
+>Oh Lord, I would hear Thy word, which Thou sendest me in Thy mercy.
+>Unseal my heart that I may lift it unto Thee.
+>Unlock my searching spirit that I may seek Thee.
+>Heal Thou my deafened ears; touch Thou my blinded eyes.
+>Increase my joy in Thee, that I may rejoice in Thee,
+>Thou Holy One of Israel, that I may sanctify Thy name.
 >
 
 In the name of Jesus Christ, amen.
@@ -35,8 +37,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Dedication #Faith #Leadership #Prayer #Scriptures #Young_Women

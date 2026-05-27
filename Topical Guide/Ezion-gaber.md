@@ -1,4 +1,3 @@
 # Ezion-gaber
 
-
-*See* [BD Ezion-gaber](https://www.churchofjesuschrist.org/study/scriptures/bd/ezion-gaber?lang=eng)
+*See also* [[BD Ezion-gaber.md|BD Ezion-gaber]]

@@ -1,5 +1,7 @@
 # Faith—the Choice Is Yours
 
+Thomas S. Monson
+
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2010 General Conference*
@@ -44,13 +46,8 @@ When the disciples asked Jesus why they could not cast a devil out as they had j
 
 - And because of my faith—even in the seemingly worst of times—I recognize with peace and gratitude that in reality it is the best of times.
 
-And when we choose faith and then nurture that faith to a perfect knowledge of the things of the Lord, then we use the words “I testify” or “I know.” I have personally planted the seed in my own heart, and throughout my life I have attempted to nurture that seed to a perfect knowledge. And today, as I stand behind this pulpit, I testify that Jesus is the Christ, the Redeemer of the world. I further testify that Joseph Smith was a prophet of God and the living instrument the Lord used to bring back to the earth the complete and true gospel of Jesus Christ. I testify that President Thomas S. Monson is the Lord’s prophet today. Likewise, the choice of faith is yours; it is mine. Let us choose faith. In the name of Jesus Christ, amen.
+And when we choose faith and then nurture that faith to a perfect knowledge of the things of the Lord, then we use the words “I testify” or “I know.” I have personally planted the seed in my own heart, and throughout my life I have attempted to nurture that seed to a perfect knowledge. And today, as I stand behind this pulpit, I testify that Jesus is the Christ, the Redeemer of the world. I further testify that Joseph Smith was a prophet of God and the living instrument the Lord used to bring back to the earth the complete and true gospel of Jesus Christ. I testify that President Thomas S. Monson is the Lord’s prophet today. Likewise, the choice of faith is yours; it is mine. Let us choose faith. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Agency #Faith #Jesus_Christ #Testimony

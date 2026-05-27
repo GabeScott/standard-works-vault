@@ -1,6 +1,8 @@
 # It Is Better to Look Up
 
-By Elder Carl B. Cook - *Of the Seventy*
+Richard G. Scott
+
+By Elder Carl B. Cook - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -10,13 +12,13 @@ By Elder Carl B. Cook - *Of the Seventy*
 
 At the end of a particularly tiring day toward the end of my first week as a General Authority, my briefcase was overloaded and my mind was preoccupied with the question “How can I possibly do this?” I left the office of the Seventy and entered the elevator of the Church Administration Building. As the elevator descended, my head was down and I stared blankly at the floor.
 
-The door opened and someone entered, but I didn’t look up. As the door closed, I heard someone ask, “What are you looking at down there?” I recognized that voice—it was President Thomas S. Monson.
+The door opened and someone entered, but I didn’t look up. As the door closed, I heard someone ask, “What are you looking at down there?” I recognized that voice—it was President Thomas S. Monson.
 
 I quickly looked up and responded, “Oh, nothing.” (I’m sure that clever response inspired confidence in my abilities!)
 
 But he had seen my subdued countenance and my heavy briefcase. He smiled and lovingly suggested, while pointing heavenward, “It is better to look up!” As we traveled down one more level, he cheerfully explained that he was on his way to the temple. When he bid me farewell, his parting glance spoke again to my heart, “Now, remember, it is better to look up.”
 
-As we parted, the words of a scripture came to mind: “Believe in God; believe that he is … ; believe that he has all wisdom, and all power, both in heaven and in earth.”[^1] As I thought of Heavenly Father and Jesus Christ’s power, my heart found the comfort I had sought in vain from the floor of that descending elevator.
+As we parted, the words of a scripture came to mind: “Believe in God; believe that he is … ; believe that he has all wisdom, and all power, both in heaven and in earth.”[^1] As I thought of Heavenly Father and Jesus Christ’s power, my heart found the comfort I had sought in vain from the floor of that descending elevator.
 
 Since then I have pondered this experience and the role of prophets. I was burdened and my head was down. As the prophet spoke, I looked to him. He redirected my focus to look up to God, where I could be healed and strengthened through Christ’s Atonement. That is what prophets do for us. They lead us to God.[^2]
 
@@ -28,7 +30,7 @@ Why is it a challenge to consistently look up in our lives? Perhaps we lack the 
 
 Alma agreed that the reason the Israelites did not look to the serpent was that they did not believe doing so would heal them. Alma’s words are relevant to us today:
 
-“O my brethren, if ye could be healed by merely casting about your eyes that ye might be healed, would ye not behold quickly, or would ye rather harden your hearts in unbelief, and be slothful … ?
+“O my brethren, if ye could be healed by merely casting about your eyes that ye might be healed, would ye not behold quickly, or would ye rather harden your hearts in unbelief, and be slothful … ?
 
 “If so, wo shall come upon you; but if not so, then cast about your eyes and begin to believe in the Son of God, that he will come to redeem his people, and that he shall suffer and die to atone for \[our\] sins; and that he shall rise again from the dead.”[^6]
 
@@ -47,7 +49,7 @@ In order to be guided in life’s journey and have the constant companionship of
 We are Heavenly Father’s children. He wants to be a part of our lives, to bless us, and to help us. He will heal our wounds, dry our tears, and help us along our path to return to His presence. As we look to Him, He will lead us.
 
 >The Lord is my light; then why should I fear?
->By day and by night his presence is near. …
+>By day and by night his presence is near. …
 >He is my joy and my song.
 >By day and by night
 >He leads … me along.[^12]
@@ -62,32 +64,27 @@ I testify that Jesus is our Savior and Redeemer in the name of Jesus Christ, ame
 
 [^1]: [[Mosiah 4.9|Mosiah 4:9]].
 
-[^2]: See [[2 Nephi 25.23|2 Nephi 25:23, 26]][[2 Nephi 25.26|]].
+[^2]: See [[2 Nephi 25.23|2 Nephi 25:23, 26]][[2 Nephi 25.26|]].
 
 [^3]: See [[Mosiah 24.15|Mosiah 24:15]].
 
 [^4]: See [[Numbers 21.8|Numbers 21:8–9]][[Numbers 21.9|]].
 
-[^5]: See [[1 Nephi 17.41|1 Nephi 17:41]].
+[^5]: See [[1 Nephi 17.41|1 Nephi 17:41]].
 
 [^6]: [[Alma 33.21|Alma 33:21–22]][[Alma 33.22|]]; see also [[Alma 33.19|verses 19–20]][[Alma 33.20|]].
 
-[^7]: See [[Alma 36.3|Alma 36:3, 17–21]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]]; [[3 Nephi 9.13|3 Nephi 9:13]].
+[^7]: See [[Alma 36.3|Alma 36:3, 17–21]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]]; [[3 Nephi 9.13|3 Nephi 9:13]].
 
 [^8]: See [[D&C 20.77|Doctrine and Covenants 20:77]].
 
 [^9]: [[Exodus 13.21|Exodus 13:21]].
 
-[^10]: See [[2 Nephi 9.52|2 Nephi 9:52]]; [[2 Nephi 31.13|31:13]]; [[D&C 121.46|Doctrine and Covenants 121:46]].
+[^10]: See [[2 Nephi 9.52|2 Nephi 9:52]]; [[2 Nephi 31.13|31:13]]; [[D&C 121.46|Doctrine and Covenants 121:46]].
 
 [^11]: [[Proverbs 20.12|Proverbs 20:12]].
 
-[^12]: “The Lord Is My Light,” *Hymns,* no. 89.
+[^12]: “The Lord Is My Light,” *Hymns,* no. 89.
 
-[^13]: [[2 Nephi 10.20|2 Nephi 10:20]].
+[^13]: [[2 Nephi 10.20|2 Nephi 10:20]].
 
-
-
-
-
-#Atonement #Attitude #Faith #Obedience #Trust

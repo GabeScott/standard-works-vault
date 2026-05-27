@@ -1,5 +1,7 @@
 # Spiritually Strong Homes and Families
 
+Thomas S. Monson
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -44,13 +46,13 @@ Our families should gather for family prayer morning and night. In addition, we 
 
 We can make each home a house of faith by believing in the goodness of God and believing that we *can* live gospel principles and live in peace and security. We need to have the faith to be obedient, to keep trying, and to keep a positive outlook. Sometimes we get discouraged and feel like giving up. But as an old cowboy once said, “If I get bucked off, I must get back up on the horse and ride on.” We can never give up.
 
-When I think of faith, I think of the two great Book of Mormon prophets Nephi and Alma as models. In faith, Nephi returned to Jerusalem for the plates of brass, “not knowing beforehand the things which \[he\] should do” ([[1 Nephi 4.6|1 Ne. 4:6]]). Alma prayed in faith for the repentance of his wayward son, who had become “a very wicked and an idolatrous man” and “was going about to destroy the church of God” ([[Mosiah 27.8|Mosiah 27:8, 10]][[Mosiah 27.10|]]; see [[Mosiah 27.8|Mosiah 27:8–37]][[Mosiah 27.9|]][[Mosiah 27.10|]][[Mosiah 27.11|]][[Mosiah 27.12|]][[Mosiah 27.13|]][[Mosiah 27.14|]][[Mosiah 27.15|]][[Mosiah 27.16|]][[Mosiah 27.17|]][[Mosiah 27.18|]][[Mosiah 27.19|]][[Mosiah 27.20|]][[Mosiah 27.21|]][[Mosiah 27.22|]][[Mosiah 27.23|]][[Mosiah 27.24|]][[Mosiah 27.25|]][[Mosiah 27.26|]][[Mosiah 27.27|]][[Mosiah 27.28|]][[Mosiah 27.29|]][[Mosiah 27.30|]][[Mosiah 27.31|]][[Mosiah 27.32|]][[Mosiah 27.33|]][[Mosiah 27.34|]][[Mosiah 27.35|]][[Mosiah 27.36|]][[Mosiah 27.37|]]).
+When I think of faith, I think of the two great Book of Mormon prophets Nephi and Alma as models. In faith, Nephi returned to Jerusalem for the plates of brass, “not knowing beforehand the things which \[he\] should do” ([[1 Nephi 4.6|1 Ne. 4:6]]). Alma prayed in faith for the repentance of his wayward son, who had become “a very wicked and an idolatrous man” and “was going about to destroy the church of God” ([[Mosiah 27.8|Mosiah 27:8, 10]][[Mosiah 27.10|]]; see [[Mosiah 27.8|Mosiah 27:8–37]][[Mosiah 27.9|]][[Mosiah 27.10|]][[Mosiah 27.11|]][[Mosiah 27.12|]][[Mosiah 27.13|]][[Mosiah 27.14|]][[Mosiah 27.15|]][[Mosiah 27.16|]][[Mosiah 27.17|]][[Mosiah 27.18|]][[Mosiah 27.19|]][[Mosiah 27.20|]][[Mosiah 27.21|]][[Mosiah 27.22|]][[Mosiah 27.23|]][[Mosiah 27.24|]][[Mosiah 27.25|]][[Mosiah 27.26|]][[Mosiah 27.27|]][[Mosiah 27.28|]][[Mosiah 27.29|]][[Mosiah 27.30|]][[Mosiah 27.31|]][[Mosiah 27.32|]][[Mosiah 27.33|]][[Mosiah 27.34|]][[Mosiah 27.35|]][[Mosiah 27.36|]][[Mosiah 27.37|]]).
 
 *A House of Learning and Glory*
 
 Every home is a house of learning, either for good or otherwise. Family members may learn to be obedient, honest, industrious, self-reliant, and faithful in living gospel principles, or they may learn something else. Learning the gospel in the homes of Church members should be centered on the scriptures and on the words of latter-day prophets.
 
-The Lord has commanded parents to teach their children. King Benjamin instructed parents: “Ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God, and fight and quarrel one with another, and serve the devil. …
+The Lord has commanded parents to teach their children. King Benjamin instructed parents: “Ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God, and fight and quarrel one with another, and serve the devil. …
 
 “But ye will teach them to walk in the ways of truth and soberness; ye will teach them to love one another, and to serve one another” ([[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]]).
 
@@ -58,7 +60,7 @@ Emphasizing this duty, the Lord cautioned that if parents do not teach their chi
 
 A personal word of counsel to parents: Teach your children to pray, to rely on the Lord for guidance, and to express appreciation for their blessings. Children learn from you to distinguish between right and wrong. They learn that lying, cheating, stealing, or coveting possessions of others is wrong. Help them to learn to keep the Sabbath day holy and to pay their tithing. Teach them to learn and obey the commandments of God. Teach your young children to work, and teach them that honest labor develops dignity and self-respect. Help them to find pleasure in work and to feel the satisfaction that comes from a job well done.
 
-In 1904, President Joseph F. Smith said to parents: “Do not let your children out to specialists … , but teach them by your own precept and example, by your own fireside. Be a specialist yourself in the truth. … Not one child in a hundred would go astray, if the home environment, example and training, were in harmony with the truth in the gospel of Christ, as revealed and taught to the Latter-day Saints.”[^3]
+In 1904, President Joseph F. Smith said to parents: “Do not let your children out to specialists … , but teach them by your own precept and example, by your own fireside. Be a specialist yourself in the truth. … Not one child in a hundred would go astray, if the home environment, example and training, were in harmony with the truth in the gospel of Christ, as revealed and taught to the Latter-day Saints.”[^3]
 
 The ideal way to transform your home into a house of learning is to hold family home evening faithfully. The Church has reserved Monday evening for that purpose. In 1915, the First Presidency instructed local leaders and parents to inaugurate a home evening, a time when parents should teach their families the principles of the gospel. The Presidency wrote: “If the Saints obey this counsel, we promise that great blessings will result. Love at home and obedience to parents will increase. Faith will be developed in the hearts of the youth of Israel, and they will gain power to combat the evil influence and temptations which beset them.”[^4]
 
@@ -68,11 +70,11 @@ Considering these glorious promises, we would expect every faithful member to be
 
 I am grateful that my parents and grandparents provided such traditions of learning for our family. My father wrote this account of how his parents taught their children:
 
-“\[The\] musical, cheerful voice \[of my mother\] called, ‘Come, children, it is the singing and story hour.’ … She seated herself in a well-used rocking chair, admonished us to listen carefully, to sing well, and to ask questions. …
+“\[The\] musical, cheerful voice \[of my mother\] called, ‘Come, children, it is the singing and story hour.’ … She seated herself in a well-used rocking chair, admonished us to listen carefully, to sing well, and to ask questions. …
 
-“… We learned the words of the song by rote, and the meaning or story of each song was made clear to us. ‘Joseph Smith’s First Prayer’ brought to us the story of the restoration of the gospel and the story of his life was made most impressive. ‘Come, Come, Ye Saints’ opened the door to the richness of pioneer achievement, faith, and loyalty. …
+“… We learned the words of the song by rote, and the meaning or story of each song was made clear to us. ‘Joseph Smith’s First Prayer’ brought to us the story of the restoration of the gospel and the story of his life was made most impressive. ‘Come, Come, Ye Saints’ opened the door to the richness of pioneer achievement, faith, and loyalty. …
 
-“… A testimony of Joseph Smith’s divine calling, of the authenticity of the Book of Mormon, and above all, the reality of our Heavenly Father and his Son, Jesus Christ, were the blessings derived from the family song and story hour.” My father further wrote: “My heart is filled with gratitude to my angel mother for … teaching me the doctrines of repentance, faith, baptism, and the gift of the Holy Ghost. She taught me the power and blessing of prayer, of the actual existence of the Father and the Son, and that Joseph Smith saw and talked to them when a boy fourteen years of age. We knew from her teaching that our Prophet saw other heavenly messengers … , and that through them the Church of Jesus Christ was restored to the earth.”[^7]
+“… A testimony of Joseph Smith’s divine calling, of the authenticity of the Book of Mormon, and above all, the reality of our Heavenly Father and his Son, Jesus Christ, were the blessings derived from the family song and story hour.” My father further wrote: “My heart is filled with gratitude to my angel mother for … teaching me the doctrines of repentance, faith, baptism, and the gift of the Holy Ghost. She taught me the power and blessing of prayer, of the actual existence of the Father and the Son, and that Joseph Smith saw and talked to them when a boy fourteen years of age. We knew from her teaching that our Prophet saw other heavenly messengers … , and that through them the Church of Jesus Christ was restored to the earth.”[^7]
 
 When I was a boy, our family home evening took place at the dinner table. It was most pleasant and enjoyable. It was a time when our father would reminisce and tell us about his life. He often told us of his inspirational and exciting experiences while preaching the gospel as a missionary in Germany. Each story seemed to improve the more often it was related. I grew up never doubting that I would become a missionary, and I never lost the zeal that he instilled in my heart. Our mother taught us about the nobility of her pioneer parents and their great faith in the gospel.
 
@@ -95,20 +97,15 @@ I testify of the divinity of the Savior, Jesus Christ, the Son of God. We are th
 
 [^1]: Address delivered at the Winnipeg Manitoba Stake conference, 27 Oct. 1990.
 
-[^2]: Louis S. Richman, “Struggling to Save Our Kids,” *Fortune,* 10 Aug. 1992, pp. 34–35.
+[^2]: Louis S. Richman, “Struggling to Save Our Kids,” *Fortune,* 10 Aug. 1992, pp. 34–35.
 
-[^3]: *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), p. 302.
+[^3]: *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), p. 302.
 
 [^4]: In James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (Salt Lake City: Bookcraft, 1965–75), 4:339.
 
-[^5]: *Family Home Evening Manual* (1965), p. iii.
+[^5]: *Family Home Evening Manual* (1965), p. iii.
 
-[^6]: *Family Home Evening: Happiness through Faith in Jesus Christ* (manual, 1976), p. 3.
+[^6]: *Family Home Evening: Happiness through Faith in Jesus Christ* (manual, 1976), p. 3.
 
-[^7]: Joseph L. Wirthlin, *A Heritage of Faith,* comp. Richard B. Wirthlin (Salt Lake City: Deseret Book Co., 1964), pp. 41–43.
+[^7]: Joseph L. Wirthlin, *A Heritage of Faith,* comp. Richard B. Wirthlin (Salt Lake City: Deseret Book Co., 1964), pp. 41–43.
 
-
-
-
-
-#Family #Family_Home_Evening #Home

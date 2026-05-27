@@ -1,5 +1,7 @@
 # The Power of Correct Principles
 
+Thomas S. Monson
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -68,7 +70,7 @@ There are many thousands of youth like those I have just described, and more jus
 
 How grateful you mothers of youth like these must feel as you see some of the fruits of your sacrifice. You have a vision of the power of obediently, patiently teaching truth because you look beyond the peanut butter sandwiches, soiled clothing, tedious hours of routine, struggles with homework, and long hours by a sickbed.
 
-President Benson has taught that a mother with children should be in the home. He also said, “We realize … that some of our choice sisters are widowed and divorced and that others find themselves in unusual circumstances where, out of necessity, they are required to work for a period of time. But these instances are the exception, not the rule” (Ezra Taft Benson, *To the Mothers in Zion* \[pamphlet, 1987\], pp. 5–6). You in these unusual circumstances qualify for additional inspiration and strength from the Lord. Those who leave the home for lesser reasons will not.
+President Benson has taught that a mother with children should be in the home. He also said, “We realize … that some of our choice sisters are widowed and divorced and that others find themselves in unusual circumstances where, out of necessity, they are required to work for a period of time. But these instances are the exception, not the rule” (Ezra Taft Benson, *To the Mothers in Zion* \[pamphlet, 1987\], pp. 5–6). You in these unusual circumstances qualify for additional inspiration and strength from the Lord. Those who leave the home for lesser reasons will not.
 
 Parents, don’t make the mistake of purposefully intervening to soften or eliminate the natural consequences of your child’s deliberate decisions to violate the commandments. Such acts reinforce false principles, open the door for more serious sin, and lessen the likelihood of repentance.
 
@@ -78,7 +80,7 @@ As a mother or father, are you in trouble because the pressures of the world lea
 
 You may not have the blessing of being raised in an understanding family, yet your use of correct principles will mold, strengthen, and give purpose to your lives.
 
-Joseph Smith’s inspired statement, “I teach them correct principles, and they govern themselves,” still applies (quoted by John Taylor, in *Millennial Star,* 15 Nov. 1851, p. 339). The Lord uses that pattern with us. You will find correct principles in the teachings of the Savior, His prophets, and the scriptures—especially the Book of Mormon. While easy to find, true principles are not easy to live until they become an established pattern of life. They will require you to dislodge false ideas. They can cause you wrenching battles within the secret chambers of your heart and decisive encounters to overcome temptation, peer pressure, and the false allure of the “easy way out.” Yet as you resolutely follow correct principles, you will forge strength of character available to you in times of urgent need. Your consistent adherence to principle overcomes the alluring yet false lifestyles that surround you. Your faithful compliance to correct principles will generate criticism and ridicule from others, yet the results are so eternally worthwhile that they warrant your every sacrifice.
+Joseph Smith’s inspired statement, “I teach them correct principles, and they govern themselves,” still applies (quoted by John Taylor, in *Millennial Star,* 15 Nov. 1851, p. 339). The Lord uses that pattern with us. You will find correct principles in the teachings of the Savior, His prophets, and the scriptures—especially the Book of Mormon. While easy to find, true principles are not easy to live until they become an established pattern of life. They will require you to dislodge false ideas. They can cause you wrenching battles within the secret chambers of your heart and decisive encounters to overcome temptation, peer pressure, and the false allure of the “easy way out.” Yet as you resolutely follow correct principles, you will forge strength of character available to you in times of urgent need. Your consistent adherence to principle overcomes the alluring yet false lifestyles that surround you. Your faithful compliance to correct principles will generate criticism and ridicule from others, yet the results are so eternally worthwhile that they warrant your every sacrifice.
 
 Now, the most important principle I can share: Anchor your life in Jesus Christ, your Redeemer. Make your Eternal Father and His Beloved Son the most important priority in your life—more important than life itself, more important than a beloved companion or children or anyone on earth. Make their will your central desire. Then all that you need for happiness will come to you.
 
@@ -87,8 +89,3 @@ I solemnly testify that your Heavenly Father and His Beloved Son live, that they
 
 
 
-
-
-
-
-#Children #Missionary_Work #Obedience #Parenthood

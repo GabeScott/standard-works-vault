@@ -1,6 +1,8 @@
 # On Accepting the Call
 
-By Elder John H. Groberg - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -33,8 +35,3 @@ I know that Joseph Smith is a prophet of God, that President Kimball is a prophe
 
 
 
-
-
-
-
-#Gratitude

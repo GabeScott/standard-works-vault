@@ -1,6 +1,8 @@
 # Lest Thou Forget
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+Jean B. Bingham
+
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -48,11 +50,11 @@ Also, in the Book of Mormon, Helaman named his sons after their “first fathers
 
 Many today have the same tradition of naming their children after scriptural heroes or faithful ancestors as a way of encouraging them not to forget their heritage.
 
-When I was born, I was given the name of Ronald A. Rasband. My last name honors my father’s ancestral line. The middle initial *A* was given to me to remind me to honor my mother’s Danish Anderson ancestry.
+When I was born, I was given the name of Ronald A. Rasband. My last name honors my father’s ancestral line. The middle initial *A* was given to me to remind me to honor my mother’s Danish Anderson ancestry.
 
 My great-great-grandfather Jens Anderson was from Denmark. And in 1861 the Lord led two Mormon missionaries to the Jens and Ane Cathrine Anderson home, where the missionaries introduced them and their 16-year-old son, Andrew, to the restored gospel. Thus began a legacy of faith of which my family and I are the beneficiaries. The Andersons read the Book of Mormon and were baptized a short time later. The following year, the Anderson family heeded the call of a prophet to cross the Atlantic to join the Saints in North America.
 
-Sadly, Jens died on the ocean voyage, but his wife and son continued to the Salt Lake Valley, arriving on September 3, 1862. Despite their hardships and their heartaches, their faith never wavered, and neither has the faith of many of their descendants.
+Sadly, Jens died on the ocean voyage, but his wife and son continued to the Salt Lake Valley, arriving on September 3, 1862. Despite their hardships and their heartaches, their faith never wavered, and neither has the faith of many of their descendants.
 
 In my office hangs a painting[^6] that captures so beautifully a symbolic reminder of that first meeting between my ancestors and those dedicated early missionaries. I am determined not to forget my heritage, and because of my name I will forever remember their legacy of faithfulness and sacrifice.
 
@@ -87,7 +89,7 @@ I bear my solemn witness of the Lord Jesus Christ. He lives; I know He lives and
 
 [^2]: [[Helaman 5.12|Helaman 5:12]].
 
-[^3]: [[2 Nephi 9.29|2 Nephi 9:29]]; emphasis added.
+[^3]: [[2 Nephi 9.29|2 Nephi 9:29]]; emphasis added.
 
 [^4]: [[Deuteronomy 4.9|Deuteronomy 4:9]]; emphasis added.
 
@@ -101,8 +103,3 @@ I bear my solemn witness of the Lord Jesus Christ. He lives; I know He lives and
 
 [^9]: [[Alma 5.26|Alma 5:26]].
 
-
-
-
-
-#Faith #Testimony

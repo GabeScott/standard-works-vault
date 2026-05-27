@@ -1,6 +1,8 @@
 # “Because I Live, Ye Shall Live Also”
 
-By Elder Shayne M. Bowen - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Shayne M. Bowen - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -48,7 +50,7 @@ It is impossible to describe the mixture of feelings that I had at that point in
 
 Feelings of guilt racked my soul. I felt so guilty. I felt dirty. I was his father; I should have done more to protect him. If only I would have done this or that. Sometimes even today, 22 years later, those feelings begin to creep into my heart, and I need to get rid of them quickly because they can be destructive.
 
-About a month after Tyson died, I had an interview with Elder Dean L. Larsen. He took the time to listen to me, and I will always be grateful for his counsel and love. He said, “I don’t think the Lord would want you to punish yourself for the death of your little boy.” I felt the love of my Heavenly Father through one of his chosen vessels.
+About a month after Tyson died, I had an interview with Elder Dean L. Larsen. He took the time to listen to me, and I will always be grateful for his counsel and love. He said, “I don’t think the Lord would want you to punish yourself for the death of your little boy.” I felt the love of my Heavenly Father through one of his chosen vessels.
 
 However, tormenting thoughts continued to plague me, and I soon began to feel anger. “This isn’t fair! How could God do this to me? Why me? What did I do to deserve this?” I even felt myself get angry with people who were just trying to comfort us. I remember friends saying, “I know how you feel.” I would think to myself, “You have no idea how I feel. Just leave me alone.” I soon found that self-pity can also be very debilitating. I was ashamed of myself for having unkind thoughts about dear friends who were only trying to help.
 
@@ -97,8 +99,3 @@ I testify that on that bright, glorious morning of the First Resurrection, your 
 
 [^6]: *Preach My Gospel: A Guide to Missionary Service* (2004), 52.
 
-
-
-
-
-#Children #Death #Hope #Jesus_Christ #Resurrection

@@ -1,11 +1,10 @@
 # Body
 
-
 *See also* [[Body, Sanctity of.md|Body, Sanctity of]]; [[Flesh.md|Flesh]]; [[Spirit Body.md|Spirit Body]]
 
 *body* shall not remain all night upon the tree, [[Deuteronomy 21.23|Deuteronomy 21:23]] ([[John 19.31|John 19:31]]).
 
-though ... worms destroy this *body*, [[Job 19.26|Job 19:26]].
+though … worms destroy this *body*, [[Job 19.26|Job 19:26]].
 
 Of the fruit of thy *body* will I set upon thy throne, [[Psalms 132.11|Psalms 132:11]].
 
@@ -15,7 +14,7 @@ His *body* also was like the beryl, [[Daniel 10.6|Daniel 10:6]].
 
 that thy whole *body* should be cast into hell, [[Matthew 5.29|Matthew 5:29]].
 
-Take no thought ... for your *body*, what ye shall put on, [[Matthew 6.25|Matthew 6:25]] ([[Luke 12.22|Luke 12:22]]).
+Take no thought … for your *body*, what ye shall put on, [[Matthew 6.25|Matthew 6:25]] ([[Luke 12.22|Luke 12:22]]).
 
 fear not them which kill the *body*, [[Matthew 10.28|Matthew 10:28]] ([[Luke 12.4|Luke 12:4]]).
 
@@ -33,9 +32,9 @@ he spake of the temple of his *body*, [[John 2.21|John 2:21]].
 
 that the *bodies* should not remain upon the cross, [[John 19.31|John 19:31]].
 
-Peter ... turning him to the *body* said, Tabitha, [[Acts 9.40|Acts 9:40]].
+Peter … turning him to the *body* said, Tabitha, [[Acts 9.40|Acts 9:40]].
 
-gave them up ... to dishonour their own *bodies*, [[Romans 1.24|Romans 1:24]].
+gave them up … to dishonour their own *bodies*, [[Romans 1.24|Romans 1:24]].
 
 become dead to the law by the *body* of Christ, [[Romans 7.4|Romans 7:4]].
 
@@ -65,7 +64,7 @@ ye are the *body* of Christ, [[1 Corinthians 12.27|1 Corinthians 12:27]].
 
 raised up? and with what *body* do they come, [[1 Corinthians 15.35|1 Corinthians 15:35]].
 
-also celestial *bodies*, and *bodies* terrestrial, [[1 Corinthians 15.40|1 Corinthians 15:40]] ([[D&C 76.70|D&C 76:70]], [[D&C 76.78|D&C 76:78]]).
+also celestial *bodies*, and *bodies* terrestrial, [[1 Corinthians 15.40|1 Corinthians 15:40]] ([[D&C 76.70|D&C 76:70]]; [[D&C 76.78|D&C 76:78]]).
 
 sown a natural *body*; it is raised a spiritual *body*, [[1 Corinthians 15.44|1 Corinthians 15:44]].
 
@@ -81,7 +80,7 @@ he is the saviour of the *body*, [[Ephesians 5.23|Ephesians 5:23]].
 
 men to love their wives as their own *bodies*, [[Ephesians 5.28|Ephesians 5:28]].
 
-change our vile *body* ... like unto his glorious *body*, [[Philippians 3.21|Philippians 3:21]].
+change our vile *body* … like unto his glorious *body*, [[Philippians 3.21|Philippians 3:21]].
 
 he is the head of the *body*, [[Colossians 1.18|Colossians 1:18]].
 
@@ -101,4 +100,4 @@ dead *bodies* shall lie in the street, [[Revelation 11.8|Revelation 11:8]].
 
 in remembrance of my *body*, [[3 Nephi 18.7|3 Nephi 18:7]].
 
-In the image of his own *body* ... created, [[Moses 6.9|Moses 6:9]].
+In the image of his own *body* … created, [[Moses 6.9|Moses 6:9]].

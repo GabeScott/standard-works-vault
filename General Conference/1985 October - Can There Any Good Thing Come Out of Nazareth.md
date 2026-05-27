@@ -1,5 +1,7 @@
 # Can There Any Good Thing Come Out of Nazareth?
 
+Gordon B. Hinckley
+
 By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1985 General Conference*
@@ -16,7 +18,7 @@ It is a source of consolation and encouragement that we do not stand alone in th
 
 The Lord Jesus said, “Woe unto you, when all men shall speak well of you!” ([[Luke 6.26|Luke 6:26]].) He warned His disciples of the danger when their names were honored and when all men spoke well of them. In a real sense, we as Latter-day Saints are also being warned. When our names are being honored in connection with all men speaking well of us, we need to renew our humility, dedication, and commitment.
 
-My beloved Saints of God, let us remember the warning from our prophets: “Others will he pacify and lull them away into carnal security, that they will say: All is well in Zion.” ([[2 Nephi 28.21|2 Ne. 28:21]].) If anyone finds himself in that position, it is time for renewed humility, commitment, and dedication.
+My beloved Saints of God, let us remember the warning from our prophets: “Others will he pacify and lull them away into carnal security, that they will say: All is well in Zion.” ([[2 Nephi 28.21|2 Ne. 28:21]].) If anyone finds himself in that position, it is time for renewed humility, commitment, and dedication.
 
 When the Lord came to Jerusalem, He was rejected and despised by many from the day of His birth until His Golgothic death. He spoke and taught as none had ever done before. He worked as none had ever done. He performed miracles and wonderful works among men. But what kind of treatment did He receive? He was rejected by those who were supposed to have loved Him. He was buffeted, scourged, mobbed, and led like a lamb to the slaughter. Jesus, a being in whom there was no guile, bore a rough-hewn cross—that cruel instrument of death which tore at His back as He hung in agony. The scribes, Sadducees, and Pharisees did not welcome Him with open arms. Nor did the learned, the wise, and the noble hail Him. Then need we expect the world to embrace and welcome us with open arms?
 
@@ -73,8 +75,3 @@ May the Lord bless all the Saints of God throughout the world. May He bless all 
 
 
 
-
-
-
-
-#Adversity #Jesus_Christ

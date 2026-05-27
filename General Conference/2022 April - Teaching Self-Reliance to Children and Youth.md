@@ -1,6 +1,8 @@
 # Teaching Self-Reliance to Children and Youth
 
-By Elder Hugo E. Martinez - *Of the Seventy*
+Russell M. Nelson
+
+By Elder Hugo E. Martinez - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -34,7 +36,7 @@ I’ve mentioned that in the Children and Youth program, children choose differe
 
 For example, our granddaughter Miranda is very motivated to grow spiritually by participating in daily early-morning seminary classes. She became interested by hearing positive comments from other seminary students in her ward. Her mother does not have to wake her up for class. On her own, she is up and connected by videoconference at the appointed time of 6:20 in the morning because she has developed good habits that help her to do so. My own parents told me recently that Miranda now talks more when she visits them, as she has grown in self-confidence. These are lessons for life and growth with noticeable outcomes.
 
-Parents, grandparents, leaders, and friends assist in the growth and development of the children. Fully engaged ministering brothers and sisters, together with priesthood and organization leaders of the ward, provide support. “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng)” says: “By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families. Mothers are primarily responsible for the nurture of their children. In these sacred responsibilities, fathers and mothers are obligated to help one another as equal partners. … Extended families should lend support when needed.”[^4] That last line refers to grandparents, among others.
+Parents, grandparents, leaders, and friends assist in the growth and development of the children. Fully engaged ministering brothers and sisters, together with priesthood and organization leaders of the ward, provide support. “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng)” says: “By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families. Mothers are primarily responsible for the nurture of their children. In these sacred responsibilities, fathers and mothers are obligated to help one another as equal partners. … Extended families should lend support when needed.”[^4] That last line refers to grandparents, among others.
 
 As we serve in West Africa, my wife, Nuria, has done a remarkable job ministering to and remaining connected with our family and grandchildren across the ocean. She does this by using technology. She reads books to the younger grandchildren. She teaches the older granddaughters topics like the story of our family, science, the history of Puerto Rico, the Articles of Faith, and the gospel of Jesus Christ. Distances nowadays do not limit connecting, belonging, and ministering to and teaching the rising generation of our families. I also join in with Nuria when I can to teach our precious grandchildren, to love them, and to spoil them and make them laugh.
 
@@ -59,16 +61,11 @@ This is the Church of Jesus Christ. His gospel blesses families here on earth an
 
 
 
-[^1]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [22.0](https://churchofjesuschrist.org/study/manual/general-handbook/22-providing-for-temporal-needs?lang=eng), ChurchofJesusChrist.org.
+[^1]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [22.0](https://www.churchofjesuschrist.org/study/manual/general-handbook/22-providing-for-temporal-needs?lang=eng), ChurchofJesusChrist.org.
 
-[^2]: See *General Handbook*, [22.1](https://churchofjesuschrist.org/study/manual/general-handbook/22-providing-for-temporal-needs?lang=eng&id=title_number2#title_number2).
+[^2]: See *General Handbook*, [22.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/22-providing-for-temporal-needs?lang=eng&id=title_number2#title_number2).
 
-[^3]: [Personal Development: Children’s Guidebook](https://churchofjesuschrist.org/study/manual/personal-development-childrens-guidebook/how-can-you-follow-jesus?lang=eng&id=p1#p1) (2019), 4.
+[^3]: [Personal Development: Children’s Guidebook](https://www.churchofjesuschrist.org/study/manual/personal-development-childrens-guidebook/how-can-you-follow-jesus?lang=eng&id=p1#p1) (2019), 4.
 
-[^4]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
+[^4]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
 
-
-
-
-
-#Children #Goals #Self-Reliance #Youth

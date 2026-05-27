@@ -1,5 +1,7 @@
 # Duty Calls
 
+James E. Faust
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -25,7 +27,7 @@ Brethren, when we contemplate the wonderful world in which we live and then real
 
 Our Captain, even the Lord Jesus Christ, declared:
 
-“Remember the worth of souls is great in the sight of God. …
+“Remember the worth of souls is great in the sight of God. …
 
 “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!
 
@@ -95,7 +97,7 @@ In 1987 President Ezra Taft Benson counseled the brethren attending the general 
 
 “Watch over the church always, and be with and strengthen them;
 
-“And see that there is no iniquity in the church … ;
+“And see that there is no iniquity in the church … ;
 
 “And see that the church meet together often, and also see that all the members do their duty.”[^15]
 
@@ -148,7 +150,7 @@ Brethren of the priesthood, may all of us remember our duty to prepare and our d
 
 
 
-[^1]: [[1 Peter 2.9|1 Pet. 2:9]].
+[^1]: [[1 Peter 2.9|1 Pet. 2:9]].
 
 [^2]: “We Are All Enlisted,” *Hymns,* no. 250.
 
@@ -174,7 +176,7 @@ Brethren of the priesthood, may all of us remember our duty to prepare and our d
 
 [^13]: [[James 1.27|James 1:27]].
 
-[^14]: In Conference Report, Apr. 1987, 60; or *Ensign,* May 1987, 48.
+[^14]: In Conference Report, Apr. 1987, [[1987 April - To the Home Teachers of the Church.md|60]]; or *Ensign,* May 1987, 48.
 
 [^15]: [[D&C 20.53|D&C 20:53–55]][[D&C 20.54|]][[D&C 20.55|]].
 
@@ -186,8 +188,3 @@ Brethren of the priesthood, may all of us remember our duty to prepare and our d
 
 [^19]: [[Matthew 25.21|Matt. 25:21]].
 
-
-
-
-
-#Church_Callings #Duty #Evil #Home_Teaching #Jesus_Christ #Priesthood #Teaching #Worldliness

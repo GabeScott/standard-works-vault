@@ -1,6 +1,8 @@
 # Consider the Goodness and Greatness of God
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -28,21 +30,21 @@ Much like Tom, each of us has received gifts that we could not provide for ourse
 
 Every time we use, benefit from, or even think of these gifts, we ought to consider the sacrifice, generosity, and compassion of the givers. Reverence for the givers does more than just make us grateful. Reflecting on Their gifts can and should transform us.
 
-One remarkable transformation was that of Alma the Younger. As Alma was “going about rebelling against God,”[^6] an angel appeared. With “a voice of thunder,”[^7] the angel chastised Alma for persecuting the Church and “stealing away the hearts of the people.”[^8] The angel added this admonition: “Go, and remember the captivity of thy fathers … ; and remember how great things \[God\] has done for them.”[^9] Of all possible exhortations, that was what the angel emphasized.
+One remarkable transformation was that of Alma the Younger. As Alma was “going about rebelling against God,”[^6] an angel appeared. With “a voice of thunder,”[^7] the angel chastised Alma for persecuting the Church and “stealing away the hearts of the people.”[^8] The angel added this admonition: “Go, and remember the captivity of thy fathers … ; and remember how great things \[God\] has done for them.”[^9] Of all possible exhortations, that was what the angel emphasized.
 
 Alma repented and remembered. He later shared the angel’s admonition with his son Helaman. Alma counseled, “I would that ye should do as I have done, in remembering the captivity of our fathers; for they were in bondage, and none could deliver them except it was the God of Abraham, … Isaac, and … Jacob; and he surely did deliver them in their afflictions.”[^10] Alma said simply, “I do put my trust in him.”[^11] Alma understood that by remembering deliverance from bondage and support during “trials and troubles of every kind,” we come to know God and the surety of His promises.[^12]
 
 Few of us have an experience as dramatic as Alma’s, yet our transformation can be equally profound. The Savior pledged anciently:
 
-“A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart … , and I will give you an heart of flesh.
+“A new heart also will I give you, and a new spirit will I put within you: and I will take away the stony heart … , and I will give you an heart of flesh.
 
-“And I will put my spirit within you. …
+“And I will put my spirit within you. …
 
-“… And ye shall be my people, and I will be your God.”[^13]
+“… And ye shall be my people, and I will be your God.”[^13]
 
 The resurrected Savior told the Nephites how this transformation begins. He identified a pivotal feature in Heavenly Father’s plan when He said:
 
-“And my Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might *draw* all men unto me. …
+“And my Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might *draw* all men unto me. …
 
 “And for this cause have I been lifted up; therefore, according to the power of the Father I will *draw* all men unto me.”[^14]
 
@@ -69,13 +71,13 @@ As I have reflected on gifts from our Heavenly Father and from Jesus Christ, I h
 
 
 
-[^1]: See, for instance, [[Abraham 2.16|Abraham 2:16]]; [[Exodus 13.3|Exodus 13:3]]; [[Joshua 4.6|Joshua 4:6–9]][[Joshua 4.7|]][[Joshua 4.8|]][[Joshua 4.9|]]; [[1 Samuel 7.11|1 Samuel 7:11–12]][[1 Samuel 7.12|]].
+[^1]: See, for instance, [[Abraham 2.16|Abraham 2:16]]; [[Exodus 13.3|Exodus 13:3]]; [[Joshua 4.6|Joshua 4:6–9]][[Joshua 4.7|]][[Joshua 4.8|]][[Joshua 4.9|]]; [[1 Samuel 7.11|1 Samuel 7:11–12]][[1 Samuel 7.12|]].
 
-[^2]: [Title page](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) of the Book of Mormon.
+[^2]: [Title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) of the Book of Mormon.
 
 [^3]: [[Moroni 10.3|Moroni 10:3]].
 
-[^4]: See, for example, [[Deuteronomy 6.12|Deuteronomy 6:12]]; [[Deuteronomy 11.18|11:18]]; [[Joshua 4.21|Joshua 4:21–24]][[Joshua 4.22|]][[Joshua 4.23|]][[Joshua 4.24|]]; [[1 Samuel 7.12|1 Samuel 7:12]]; [[Romans 2.4|Romans 2:4]]; [[Romans 11.22|11:22]]; [[2 Nephi 9.10|2 Nephi 9:10]]; [[2 Nephi 33.14|33:14]]; [[Jacob 1.7|Jacob 1:7]]; [[Mosiah 5.3|Mosiah 5:3]]; [[Mosiah 25.10|25:10]]; [[Mosiah 27.22|27:22]]; [[Alma 34.4|Alma 34:4]]; [[Helaman 12.2|Helaman 12:2]]; [[3 Nephi 4.33|3 Nephi 4:33]]; [[3 Nephi 18.11|18:11–12]][[3 Nephi 18.12|]]; [[Mormon 2.13|Mormon 2:13]]; [[D&C 133.52|Doctrine and Covenants 133:52]]; [[D&C 138.2|138:2]].
+[^4]: See, for example, [[Deuteronomy 6.12|Deuteronomy 6:12]]; [[Deuteronomy 11.18|11:18]]; [[Joshua 4.21|Joshua 4:21–24]][[Joshua 4.22|]][[Joshua 4.23|]][[Joshua 4.24|]]; [[1 Samuel 7.12|1 Samuel 7:12]]; [[Romans 2.4|Romans 2:4]]; [[Romans 11.22|11:22]]; [[2 Nephi 9.10|2 Nephi 9:10]]; [[2 Nephi 33.14|33:14]]; [[Jacob 1.7|Jacob 1:7]]; [[Mosiah 5.3|Mosiah 5:3]]; [[Mosiah 25.10|25:10]]; [[Mosiah 27.22|27:22]]; [[Alma 34.4|Alma 34:4]]; [[Helaman 12.2|Helaman 12:2]]; [[3 Nephi 4.33|3 Nephi 4:33]]; [[3 Nephi 18.11|18:11–12]][[3 Nephi 18.12|]]; [[Mormon 2.13|Mormon 2:13]]; [[D&C 133.52|Doctrine and Covenants 133:52]]; [[D&C 138.2|138:2]].
 
 [^5]: See [[Isaiah 53.3|Isaiah 53:3–12]][[Isaiah 53.4|]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]][[Isaiah 53.10|]][[Isaiah 53.11|]][[Isaiah 53.12|]]; [[Luke 22.44|Luke 22:44]]; [[John 3.16|John 3:16]]; [[Galatians 2.20|Galatians 2:20]]; [[Mosiah 3.5|Mosiah 3:5–11]][[Mosiah 3.6|]][[Mosiah 3.7|]][[Mosiah 3.8|]][[Mosiah 3.9|]][[Mosiah 3.10|]][[Mosiah 3.11|]]; [[Alma 7.10|Alma 7:10–13]][[Alma 7.11|]][[Alma 7.12|]][[Alma 7.13|]]; [[D&C 19.16|Doctrine and Covenants 19:16–19]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]].
 
@@ -95,19 +97,19 @@ As I have reflected on gifts from our Heavenly Father and from Jesus Christ, I h
 
 [^13]: [[Ezekiel 36.26|Ezekiel 36:26–28]][[Ezekiel 36.27|]][[Ezekiel 36.28|]].
 
-[^14]: [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]]; emphasis added. See also [[John 12.32|John 12:32]]; [[2 Nephi 26.24|2 Nephi 26:24]].
+[^14]: [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]]; emphasis added. See also [[John 12.32|John 12:32]]; [[2 Nephi 26.24|2 Nephi 26:24]].
 
 [^15]: See [[Mosiah 15.7|Mosiah 15:7–9]][[Mosiah 15.8|]][[Mosiah 15.9|]]; [[Revelation 21.4|Revelation 21:4]].
 
-[^16]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67.
+[^16]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67.
 
-[^17]: “Come, Thou Fount of Every Blessing,” *Hymns* (1948), no. 70.
+[^17]: “Come, Thou Fount of Every Blessing,” *Hymns* (1948), no. 70.
 
 [^18]: [[Mosiah 4.11|Mosiah 4:11]]; see also [[Alma 36.2|Alma 36:2, 28–29]][[Alma 36.28|]][[Alma 36.29|]]; [[Ether 7.27|Ether 7:27]]; [[Ether 10.2|10:2]]; [[Moroni 9.25|Moroni 9:25]].
 
 [^19]: See [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].
 
-[^20]: See [title page](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) and [introduction](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng) to the Book of Mormon.
+[^20]: See [title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng) and [introduction](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng) to the Book of Mormon.
 
 [^21]: See [[D&C 19.18|Doctrine and Covenants 19:18–19]][[D&C 19.19|]].
 
@@ -115,13 +117,13 @@ As I have reflected on gifts from our Heavenly Father and from Jesus Christ, I h
 
 [^23]: [[Moses 6.59|Moses 6:59]]; see also [[Alma 36.28|Alma 36:28]].
 
-[^24]: See Bible Dictionary, “[Prayer](https://churchofjesuschrist.org/study/scriptures/bd/prayer?lang=eng).”
+[^24]: See Bible Dictionary, “[[BD Prayer|Prayer]].”
 
-[^25]: See “More Holiness Give Me,” *Hymns,* no. 131.
+[^25]: See “More Holiness Give Me,” *Hymns,* no. 131.
 
 [^26]: See [[Philemon 1.6|Philemon 1:6]].
 
-[^27]: See [[1 Samuel 17.37|1 Samuel 17:37]]; [[1 Nephi 4.2|1 Nephi 4:2]].
+[^27]: See [[1 Samuel 17.37|1 Samuel 17:37]]; [[1 Nephi 4.2|1 Nephi 4:2]].
 
 [^28]: See [[Alma 5.6|Alma 5:6, 13, 26–28]][[Alma 5.13|]][[Alma 5.26|]][[Alma 5.27|]][[Alma 5.28|]].
 
@@ -135,18 +137,13 @@ As I have reflected on gifts from our Heavenly Father and from Jesus Christ, I h
 
 [^33]: [[Mosiah 2.41|Mosiah 2:41]].
 
-[^34]: See [[Matthew 17.5|Matthew 17:5]]; [[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]]; [[3 Nephi 11.7|3 Nephi 11:7]]; [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
+[^34]: See [[Matthew 17.5|Matthew 17:5]]; [[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]]; [[3 Nephi 11.7|3 Nephi 11:7]]; [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-[^35]: See Boyd K. Packer, “[[1995 October - The Brilliant Morning of Forgiveness.md|The Brilliant Morning of Forgiveness]],” *Ensign,* Nov. 1995, 19–20.
+[^35]: See Boyd K. Packer, “[[1995 October - The Brilliant Morning of Forgiveness.md|The Brilliant Morning of Forgiveness]],” *Ensign,* Nov. 1995, 19–20.
 
 [^36]: See [[Revelation 21.4|Revelation 21:4]].
 
 [^37]: See [[Psalms 147.3|Psalm 147:3]].
 
-[^38]: See [[2 Nephi 26.33|2 Nephi 26:33]].
+[^38]: See [[2 Nephi 26.33|2 Nephi 26:33]].
 
-
-
-
-
-#Gratitude #Spirituality

@@ -1,5 +1,7 @@
 # Alive in Christ
 
+Dallin H. Oaks
+
 By President Dallin H. Oaks - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2026 General Conference*
@@ -52,7 +54,7 @@ Each of us can strive to follow our Savior in His teachings about how to relate 
 
 This balancing is not easy. When we seek to keep all the commandments in our personal lives, we are sometimes accused of having no love for those who don’t. When we show personal love and support loving causes, we are sometimes misunderstood as implying support for results that contradict our other religious duties. But as followers of Christ, we should seek to live peaceably and lovingly with other children of God who do not share our values and do not have the covenant obligations we have assumed. In a democratic government we should seek fairness for all. In countless circumstances, strangers’ suspicions or even hostility gradually gives way to friendship when personal contacts produce mutual respect.
 
-The Prophet Joseph Smith taught that we should “pour forth love” to all people.[^3] Speaking of our Savior, the Apostle John wrote, “We love him, because he first loved us” ([[1 John 4.19|1 John 4:19]]). We can follow the example of Jesus Christ, who is our role model, by choosing to love others—even if they show little or no love toward us. He declared, “Blessed are the peacemakers: for they shall be called the children of God” ([[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]]).
+The Prophet Joseph Smith taught that we should “pour forth love” to all people.[^3] Speaking of our Savior, the Apostle John wrote, “We love him, because he first loved us” ([[1 John 4.19|1 John 4:19]]). We can follow the example of Jesus Christ, who is our role model, by choosing to love others—even if they show little or no love toward us. He declared, “Blessed are the peacemakers: for they shall be called the children of God” ([[Matthew 5.9|Matthew 5:9]]; see also [[3 Nephi 12.9|3 Nephi 12:9]]).
 
 Peacemakers! How it would change the world if followers of Christ would forgo harsh and hurtful words in all their communications.
 
@@ -73,13 +75,11 @@ My brothers and sisters, as followers of Christ, let us follow Him by forgoing c
 
 
 
-[^1]: [Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-19?lang=eng&id=p10#p10) (2003), 181.
+[^1]: [Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-19?lang=eng&id=p10#p10) (2003), 181.
 
-[^2]: [Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-20-walking-the-saviors-path-of-charity?lang=eng&id=p62#p62) (2015), 263.
+[^2]: [Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-20-walking-the-saviors-path-of-charity?lang=eng&id=p62#p62) (2015), 263.
 
 [^3]: Joseph Smith, “[Journal, December 1842–June 1844; Book 3, 15 July 1843–29 February 1844](https://www.josephsmithpapers.org/paper-summary/journal-december-1842-june-1844-book-3-15-july-1843-29-february-1844/19),” 13, josephsmithpapers.org.
 
 [^4]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
 
-
-#Easter #Jesus_Christ #Love #Peacemaking #Resurrection

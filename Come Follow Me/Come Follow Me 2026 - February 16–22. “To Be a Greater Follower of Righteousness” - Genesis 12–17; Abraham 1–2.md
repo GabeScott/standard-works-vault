@@ -52,7 +52,7 @@ What do you learn about Abraham’s attitude toward wealth from [[Genesis 14.18|
 [[Genesis 16.1|Genesis 16]][[Genesis 16.2|]][[Genesis 16.3|]][[Genesis 16.4|]][[Genesis 16.5|]][[Genesis 16.6|]][[Genesis 16.7|]][[Genesis 16.8|]][[Genesis 16.9|]][[Genesis 16.10|]][[Genesis 16.11|]][[Genesis 16.12|]][[Genesis 16.13|]][[Genesis 16.14|]][[Genesis 16.15|]][[Genesis 16.16|]]
 ### God hears me.
 
-As you read [[Genesis 16.1|Genesis 16]][[Genesis 16.2|]][[Genesis 16.3|]][[Genesis 16.4|]][[Genesis 16.5|]][[Genesis 16.6|]][[Genesis 16.7|]][[Genesis 16.8|]][[Genesis 16.9|]][[Genesis 16.10|]][[Genesis 16.11|]][[Genesis 16.12|]][[Genesis 16.13|]][[Genesis 16.14|]][[Genesis 16.15|]][[Genesis 16.16|]], you might think about a time when you felt you were being treated unfairly, as Hagar did. Note that “Ishmael” means “God hears.” How has God shown you that He has heard you?
+As you read [[Genesis 16.1|Genesis 16]][[Genesis 16.2|]][[Genesis 16.3|]][[Genesis 16.4|]][[Genesis 16.5|]][[Genesis 16.6|]][[Genesis 16.7|]][[Genesis 16.8|]][[Genesis 16.9|]][[Genesis 16.10|]][[Genesis 16.11|]][[Genesis 16.12|]][[Genesis 16.13|]][[Genesis 16.14|]][[Genesis 16.15|]][[Genesis 16.16|]], you might think about a time when you felt you were being treated unfairly, as Hagar did. Note that “Ishmael” means “God hears.” How has God shown you that He has heard you?
 
 See also “[Secret Prayer](https://churchofjesuschrist.org/study/manual/hymns/secret-prayer?lang=eng),” *Hymns*, no. 144.
 
@@ -88,7 +88,7 @@ See also “[Secret Prayer](https://churchofjesuschrist.org/study/manual/hymns/s
 
 - To teach your children about covenants, ask them to tell you about a time when they made a promise or someone made a promise to them. If it’s helpful, share some examples of your own—including covenants you’ve made with God at baptism or in the temple. How have your covenants affected your relationship with God? Choose a few phrases from [[Genesis 15.1|Genesis 15:1–6]][[Genesis 15.2|]][[Genesis 15.3|]][[Genesis 15.4|]][[Genesis 15.5|]][[Genesis 15.6|]]; [[Genesis 17.1|17:1–8]][[Genesis 17.2|]][[Genesis 17.3|]][[Genesis 17.4|]][[Genesis 17.5|]][[Genesis 17.6|]][[Genesis 17.7|]][[Genesis 17.8|]]; [[Abraham 2.9|Abraham 2:9–11]][[Abraham 2.10|]][[Abraham 2.11|]] to share some of the blessings God promised to Abraham and Sarah.
 
-- To help your children prepare to make a covenant with God when they are baptized, you could use some of the activity ideas suggested in [appendix A](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/53-appendix-a?lang=eng) or [appendix B](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/54-appendix-b?lang=eng).
+- To help your children prepare to make a covenant with God when they are baptized, you could use some of the activity ideas suggested in [appendix A](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/53-appendix-a?lang=eng) or [appendix B](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/54-appendix-b?lang=eng).
 
 [[Abraham 1.12|Abraham 1:12–17]][[Abraham 1.13|]][[Abraham 1.14|]][[Abraham 1.15|]][[Abraham 1.16|]][[Abraham 1.17|]]; [[Genesis 16.7|Genesis 16:7–11]][[Genesis 16.8|]][[Genesis 16.9|]][[Genesis 16.10|]][[Genesis 16.11|]]
 ### God hears me.

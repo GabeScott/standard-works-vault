@@ -1,5 +1,7 @@
 # “Called to Serve”
 
+Ezra Taft Benson
+
 By Elder Robert L. Backman - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -14,7 +16,7 @@ Let me share a portion of a letter he wrote to a nonmember friend who is investi
 
 As a grandfather, I exult when I see my own flesh and blood entering the Lord’s service so well prepared and pray that my other grandchildren will respond as readily to the call as he has done.
 
-In pondering what they could do to prepare to serve missions, I believe the best formula I could give them, and all the youth of the Church, is found in a single verse in the second chapter of Luke: “And Jesus increased in wisdom and stature, and in favour with God and man” ([[Luke 2.52|v. 52]]).
+In pondering what they could do to prepare to serve missions, I believe the best formula I could give them, and all the youth of the Church, is found in a single verse in the second chapter of Luke: “And Jesus increased in wisdom and stature, and in favour with God and man” ([[Luke 2.52|v. 52]]).
 
 That one verse gives us an insight into what our Savior did to prepare for his ministry.
 
@@ -54,7 +56,7 @@ Are you reading the scriptures regularly, and understanding them? They were writ
 
 President Ezra Taft Benson encouraged you to participate in a program of daily reading and pondering of the scriptures, particularly the Book of Mormon. Think on his words:
 
-“Young men, the Book of Mormon will change your life. It will fortify you against the evils of our day. It will bring a spirituality into your life that no other book will. It will be the most important book you will read in preparation for a mission and for life. A young man who knows and loves the Book of Mormon, who has read it several times, who has an abiding testimony of its truthfulness, and who applies its teachings will be able to stand against the wiles of the devil and will be a mighty tool in the hands of the Lord” (in Conference Report, Apr. 1986, p. 56; or *Ensign,* May 1986, p. 43).
+“Young men, the Book of Mormon will change your life. It will fortify you against the evils of our day. It will bring a spirituality into your life that no other book will. It will be the most important book you will read in preparation for a mission and for life. A young man who knows and loves the Book of Mormon, who has read it several times, who has an abiding testimony of its truthfulness, and who applies its teachings will be able to stand against the wiles of the devil and will be a mighty tool in the hands of the Lord” (in Conference Report, Apr. 1986, [[1986 April - To the “Youth of the Noble Birthright”.md|p. 56]]; or *Ensign,* May 1986, p. 43).
 
 What a promise from a prophet of God!
 
@@ -120,7 +122,7 @@ You will understand, as Elisha’s young servant came to understand when he disc
 
 Elisha answered: “Fear not: for they that be with us are more than they that be with them.
 
-“And Elisha prayed, and said, Lord, I pray thee, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” ([[2 Kings 6.15|2 Kgs. 6:15–17]][[2 Kings 6.16|]][[2 Kings 6.17|]]).
+“And Elisha prayed, and said, Lord, I pray thee, open his eyes, that he may see. And the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha” ([[2 Kings 6.15|2 Kgs. 6:15–17]][[2 Kings 6.16|]][[2 Kings 6.17|]]).
 
 When you are in tune with that Holy Spirit, you will be well armed to be the Lord’s representative, prepared to teach and to testify, bringing souls to our Savior, Jesus Christ.
 
@@ -128,11 +130,25 @@ In last April’s Regional Representatives’ seminar, President Gordon B. Hinck
 
 To my grandchildren, and to the youth of the Church wherever you are, I invite you to make the commitment to serve a mission. I invite you to become a part of the royal army of the Lord, to prepare yourselves physically, mentally, socially, spiritually—beginning right now.
 
-President Benson has reminded you that you can do “nothing more important. School can wait. Scholarships can be deferred. Occupational goals can be postponed. Yes, even temple marriage should wait” (in Conference Report, Apr. 1986, p. 57; or *Ensign,* May 1986, p. 44).
+President Benson has reminded you that you can do “nothing more important. School can wait. Scholarships can be deferred. Occupational goals can be postponed. Yes, even temple marriage should wait” (in Conference Report, Apr. 1986, [[1986 April - To the “Youth of the Noble Birthright”.md|p. 57]]; or *Ensign,* May 1986, p. 44).
 
 With President Benson, I invite you to show your love and commitment to the Lord by responding to His call to serve and joining your voice with thirty-four thousand other missionaries in singing:
 
-Called to serve Him, heav’nly King of glory,Chosen e’er to witness for his name,Far and wide we tell the Father’s story,Far and wide his love proclaim.Called to know the richness of his blessing—Sons and daughters, children of a King—Glad of heart, his holy name confessing,Praises unto him we bring.Onward, ever onward, as we glory in his name;Onward, ever onward, as we glory in his name;Forward, pressing forward, as a triumph song we sing.God our strength will be; Press forward ever,Called to serve our King.(“Called to Serve,” *Hymns,* 1985, no. 249)
+>Called to serve Him, heav’nly King of glory,
+>Chosen e’er to witness for his name,
+>Far and wide we tell the Father’s story,
+>Far and wide his love proclaim.
+>
+>Called to know the richness of his blessing—
+>Sons and daughters, children of a King—
+>Glad of heart, his holy name confessing,
+>Praises unto him we bring.
+>
+>Onward, ever onward, as we glory in his name;
+>Forward, pressing forward, as a triumph song we sing.
+>God our strength will be; Press forward ever,
+>Called to serve our King.
+>
 
 “And Jesus increased in wisdom and stature, and in favour with God and man” ([[Luke 2.52|Luke 2:52]]).
 
@@ -143,8 +159,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Book_Of_Mormon #Missionary_Work #Spirituality #Testimony

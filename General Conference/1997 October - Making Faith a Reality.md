@@ -1,5 +1,7 @@
 # Making Faith a Reality
 
+Gordon B. Hinckley
+
 By Janette Hales Beckham - *Recently Released Young Women General President*
 
 *Given in the October session of the 1997 General Conference*
@@ -16,9 +18,9 @@ After Primary a few weeks ago our four-year-old grandson, Michael, reported to h
 
 The prophet Alma described these feelings when he said: “For ye know that the word hath swelled your souls, … that your understanding doth begin to be enlightened. … O then, is not this real? I say unto you, Yea, because it is light; and whatsoever is light, is good, because it is discernible” ([[Alma 32.34|Alma 32:34–35]][[Alma 32.35|]]).
 
-Learning to discern the teachings of the Spirit is an important part of helping faith become a reality. My daughter Karen shared her experience. She said: “When I was just a little girl, I started reading the Book of Mormon for the first time. After many days of reading, I came one night to [[1 Nephi 3.7|1 Nephi 3:7]]: ‘I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.’” Karen continued: “I didn’t know this was a famous verse, but as I read that verse, I felt strongly impressed. I was impressed that Heavenly Father would help us keep His commandments, but the deep impression was really more of a feeling. I had seen my parents mark verses in their scriptures with red pencils. So I got up and searched through the house until I found a red pencil, and with a great sense of solemnity and importance, I marked that verse in my own Book of Mormon.” Karen continued: “Over the years as I read the scriptures, that experience was repeated time and time again—reading a verse and feeling deeply impressed. In time I came to recognize that feeling as the Holy Ghost. As a missionary I saw others read verses and feel deeply impressed to the extent that they were willing and able to change their lives and accept the gospel.”
+Learning to discern the teachings of the Spirit is an important part of helping faith become a reality. My daughter Karen shared her experience. She said: “When I was just a little girl, I started reading the Book of Mormon for the first time. After many days of reading, I came one night to [[1 Nephi 3.7|1 Nephi 3:7]]: ‘I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.’” Karen continued: “I didn’t know this was a famous verse, but as I read that verse, I felt strongly impressed. I was impressed that Heavenly Father would help us keep His commandments, but the deep impression was really more of a feeling. I had seen my parents mark verses in their scriptures with red pencils. So I got up and searched through the house until I found a red pencil, and with a great sense of solemnity and importance, I marked that verse in my own Book of Mormon.” Karen continued: “Over the years as I read the scriptures, that experience was repeated time and time again—reading a verse and feeling deeply impressed. In time I came to recognize that feeling as the Holy Ghost. As a missionary I saw others read verses and feel deeply impressed to the extent that they were willing and able to change their lives and accept the gospel.”
 
-As we are learning to discern the promptings of the Spirit, there are so many distractions. At one time President Ezra Taft Benson reminded us that “the world shouts louder than the whisperings of the Holy Ghost” (in Conference Report, Apr. 1989, 5; or *Ensign,* May 1989, 5). Each of us has to learn to be sensitive and to listen to the whisper.
+As we are learning to discern the promptings of the Spirit, there are so many distractions. At one time President Ezra Taft Benson reminded us that “the world shouts louder than the whisperings of the Holy Ghost” (in Conference Report, Apr. 1989, [[1989 April - Beware of Pride.md|5]]; or *Ensign,* May 1989, 5). Each of us has to learn to be sensitive and to listen to the whisper.
 
 Years ago a friend was feeling challenged as she saw the world shouting at her family. She said, “I wish we could lock our children in the temple until they turn 21.” That solution might have kept them innocent, but that is not the plan. Just as Adam and Eve had to leave the Garden of Eden, spiritual maturity requires that we have experience in this world. It is experience that helps us know good from evil. It is experience that helps us recognize the promptings of the Spirit.
 
@@ -30,9 +32,9 @@ As we gain experience in this demanding “real world,” we sometimes fail to s
 
 Arthur Henry King, in discussing the importance of scripture reading, wrote:
 
-“Some may think that the language of the scriptures is too difficult for children, but … \[w\]e need to remember that the Lord has given children faculties for learning language even greater than those of adults. …
+“Some may think that the language of the scriptures is too difficult for children, but … \[w\]e need to remember that the Lord has given children faculties for learning language even greater than those of adults. …
 
-“It is good for children to hear their favorite passages of scripture, and their other favorite stories, too, over and over. … We should *not* bring up our children to respond to the exciting, the thrilling. … They are a titillation of the nerves. To be *moved* is one thing; to be excited or titillated, a very different thing. If we bring up our children always to be wanting something new, … they will have to have a stronger \[and stronger\] stimulus each time until they finally \[burst\]. But if we inure our children to stability, to repetition, to normal life … , then they will live decent lives” (*The Abundance of the Heart* \[1986\], 222–23; emphasis added).
+“It is good for children to hear their favorite passages of scripture, and their other favorite stories, too, over and over. … We should *not* bring up our children to respond to the exciting, the thrilling. … They are a titillation of the nerves. To be *moved* is one thing; to be excited or titillated, a very different thing. If we bring up our children always to be wanting something new, … they will have to have a stronger \[and stronger\] stimulus each time until they finally \[burst\]. But if we inure our children to stability, to repetition, to normal life … , then they will live decent lives” (*The Abundance of the Heart* \[1986\], 222–23; emphasis added).
 
 The time we spend with children and youth in their growing years provides the experience that is preparation for the real world.
 
@@ -53,8 +55,3 @@ May I, in concluding my service, express my love and appreciation to the many wh
 
 
 
-
-
-
-
-#Atonement #Evil #Faith #Family #Holy_Ghost #Home #Repentance #Scriptures #Young_Women

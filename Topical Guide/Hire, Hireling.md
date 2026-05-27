@@ -1,6 +1,5 @@
 # Hire, Hireling
 
-
 *See also* [[Reward.md|Reward]]; [[Wages.md|Wages]]
 
 Leah said, God hath given me my *hire*, [[Genesis 30.18|Genesis 30:18]].

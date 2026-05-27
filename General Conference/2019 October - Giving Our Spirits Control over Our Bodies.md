@@ -1,6 +1,8 @@
 # Giving Our Spirits Control over Our Bodies
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+Jeffrey R. Holland
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -8,7 +10,7 @@ By President M. Russell Ballard - *Acting President of the Quorum of the Twelve
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/10/53ballard?lang=eng)
 
-My dear brothers and sisters, as October general conference approached last year, I prepared my conference talk to highlight the 100th anniversary of the vision of the spirit world given to President Joseph F. Smith on October 3, 1918.
+My dear brothers and sisters, as October general conference approached last year, I prepared my conference talk to highlight the 100th anniversary of the vision of the spirit world given to President Joseph F. Smith on October 3, 1918.
 
 A few days after I had submitted my talk for translation, my beloved eternal companion, Barbara, completed her mortal probation and passed into the spirit world.
 
@@ -32,19 +34,19 @@ That thought brings me comfort and the assurance that I will be with Barbara aga
 
 The most simple, basic certainty of life is this: We are all going to die. Whether we die old or young, easy or hard, wealthy or indigent, beloved or lonely, nobody escapes death.
 
-A few years ago, President Gordon B. Hinckley said something that is particularly meaningful about this: “How sweet is the assurance, how comforting is the peace that come from the knowledge that if we marry right and live right, our relationship will continue, notwithstanding the certainty of death and the passage of time.”[^4]
+A few years ago, President Gordon B. Hinckley said something that is particularly meaningful about this: “How sweet is the assurance, how comforting is the peace that come from the knowledge that if we marry right and live right, our relationship will continue, notwithstanding the certainty of death and the passage of time.”[^4]
 
 I certainly married right. Of that there can be no doubt. But that isn’t enough, according to President Hinckley. I also have to live right.[^5]
 
 Today, “living right” can be a pretty confusing concept, especially if you spend much time on social media, where any voice can declare real truths or false concepts about God and His plan for His children. Thankfully, members of the Church have eternally true gospel principles to know how to live so that we might be better prepared when we must die.
 
-Just a few months before I was born, my Apostle grandfather, Elder Melvin J. Ballard, gave a talk that, for some people, captured the essence of what it means to live right. Titled “Struggle for the Soul,” his talk focused on the ongoing battle between our physical bodies and our eternal spirits.
+Just a few months before I was born, my Apostle grandfather, Elder Melvin J. Ballard, gave a talk that, for some people, captured the essence of what it means to live right. Titled “Struggle for the Soul,” his talk focused on the ongoing battle between our physical bodies and our eternal spirits.
 
 He said, “The greatest conflict that any man or woman will ever have … will be the battle that is had with self,” explaining that Satan, “the enemy of our souls,” attacks us through “the lusts, the appetites, the ambitions of the flesh.”[^6] So the primary battle is between our divine and spiritual nature and the carnal natural man. Brothers and sisters, remember, we can receive spiritual help through the influence of the Holy Ghost that can “teach you all things.”[^7] Help can also come through the power and blessings of the priesthood.
 
 Now, I ask, how is this battle going with each one of you?
 
-President David O. McKay said: “Man’s earthly existence is but a test as to whether he will concentrate his efforts, his mind, his soul, upon things which contribute to the comfort and gratification of his physical nature, or whether he will make as his life’s \[purpose\] the acquisition of spiritual qualities.”[^8]
+President David O. McKay said: “Man’s earthly existence is but a test as to whether he will concentrate his efforts, his mind, his soul, upon things which contribute to the comfort and gratification of his physical nature, or whether he will make as his life’s \[purpose\] the acquisition of spiritual qualities.”[^8]
 
 This battle between our carnal and our spiritual natures isn’t a new thing. In his final sermon to his people, King Benjamin taught that “the natural man is an enemy to God, and has been from the fall of Adam, and will be, forever and ever, unless he yields to the enticings of the Holy Spirit, and putteth off the natural man and becometh a saint through the atonement of Christ the Lord.”[^9]
 
@@ -60,7 +62,7 @@ Think about that for a moment. This is who you and I really are and who you have
 
 Still, there’s no question that flesh and earthly impulses complicate the decision-making. With a veil of forgetfulness drawn between the premortal spirit world and this mortal world, we can lose sight of our relationship to God and our spiritual nature, and our carnal nature can give priority to *what we want right now.* Learning to choose the things of the Spirit over the things of the flesh is one of the primary reasons why this earthly experience is part of Heavenly Father’s plan. It’s also why the plan is built upon the solid, sure foundation of the Atonement of the Lord and Savior Jesus Christ so that our sins, including the errors we make when we yield to the flesh, can be overcome through constant repentance and we can live spiritually focused. Now is the time to control our bodily appetites to comply with the spiritual doctrine of Christ. That is why we must not procrastinate the day of our repentance.[^11]
 
-Repentance, therefore, becomes an indispensable weapon in our battle over self. Just last general conference, President Russell M. Nelson referred to this battle and reminded us that “when we choose to repent, we choose to change! We allow the Savior to transform us into the best version of ourselves. We choose to grow spiritually and receive joy—the joy of redemption in Him. When we choose to repent, we choose to become more like Jesus Christ!”[^12]
+Repentance, therefore, becomes an indispensable weapon in our battle over self. Just last general conference, President Russell M. Nelson referred to this battle and reminded us that “when we choose to repent, we choose to change! We allow the Savior to transform us into the best version of ourselves. We choose to grow spiritually and receive joy—the joy of redemption in Him. When we choose to repent, we choose to become more like Jesus Christ!”[^12]
 
 Every night as I review my day in prayer with my Father in Heaven, I ask to be forgiven if I did anything wrong and promise to try to be better tomorrow. I believe this regular daily repentance helps my spirit remind my body who is in charge of me.
 
@@ -77,15 +79,15 @@ Brothers and sisters, I encourage you to slow down a bit and think about where y
 
 [^3]: [[Jacob 6.13|Jacob 6:13]].
 
-[^4]: [Teachings of Presidents of the Church: Gordon B. Hinckley](https://churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-10-nurturing-the-eternal-partnership-of-marriage?lang=eng&id=p21#p21) (2016), 157.
+[^4]: [Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-10-nurturing-the-eternal-partnership-of-marriage?lang=eng&id=p21#p21) (2016), 157.
 
 [^5]: The Lord revealed that we must live according to our covenants in order to receive the promised blessings (see [[D&C 82.10|Doctrine and Covenants 82:10]]; [[D&C 132.5|132:5–7, 19]][[D&C 132.6|]][[D&C 132.7|]][[D&C 132.19|]]).
 
-[^6]: Melvin J. Ballard, “Struggle for the Soul” (address given at the Salt Lake Tabernacle, May 5, 1928).
+[^6]: Melvin J. Ballard, “Struggle for the Soul” (address given at the Salt Lake Tabernacle, May 5, 1928).
 
 [^7]: [[John 14.26|John 14:26]].
 
-[^8]: *Teachings of Presidents of the Church: David O. McKay* (2003), 14.
+[^8]: *[Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-2?lang=eng&id=p31#p31)* (2003), 14.
 
 [^9]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -93,10 +95,5 @@ Brothers and sisters, I encourage you to slow down a bit and think about where y
 
 [^11]: See [[Alma 34.33|Alma 34:33]].
 
-[^12]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67.
+[^12]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67.
 
-
-
-
-
-#Family #Self-Control #Spirituality

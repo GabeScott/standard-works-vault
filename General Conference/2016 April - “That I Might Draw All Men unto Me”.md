@@ -1,6 +1,8 @@
 # “That I Might Draw All Men unto Me”
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2016/04/that-i-might-draw-all-men-unto-me?lang=eng)
 
-My dear brothers and sisters, while living in Africa, I sought advice from Elder Wilford W. Andersen of the Seventy about helping Saints who live in poverty. Among the remarkable insights he shared with me was this: “The greater the distance between the giver and the receiver, the more the receiver develops a sense of entitlement.”
+My dear brothers and sisters, while living in Africa, I sought advice from Elder Wilford W. Andersen of the Seventy about helping Saints who live in poverty. Among the remarkable insights he shared with me was this: “The greater the distance between the giver and the receiver, the more the receiver develops a sense of entitlement.”
 
 This principle underlies the Church’s welfare system. When members are not able to meet their own needs, they turn first to their families. Thereafter, if necessary, they can also turn to their local Church leaders for assistance with their temporal needs.[^1] Family members and local Church leaders are closest to those in need, frequently have faced similar circumstances, and understand best how to help. Because of their proximity to the givers, recipients who receive help according to this pattern are grateful and less likely to feel entitled.
 
@@ -80,7 +82,7 @@ On the day of the Savior’s Resurrection, two disciples traveled to a village c
 
 “And they rose up the same hour, and returned to Jerusalem, and found the eleven \[Apostles\] gathered together.”
 
-And then they testified to the Apostles that “the Lord is risen indeed. …
+And then they testified to the Apostles that “the Lord is risen indeed. …
 
 “And they told what things were done in the way, and how he was known of them in breaking of bread.”[^13]
 
@@ -97,27 +99,27 @@ As you do, I promise that you will feel nearer to God. Natural tendencies to chi
 
 [^1]: See *Handbook 2: Administering the Church* (2010), 6.1.1. From page 1 of *Providing in the Lord’s Way: Summary of a Leader’s Guide to Welfare* (pamphlet, 2009), we read: “When Church members are doing all they can to provide for themselves but still cannot meet their basic needs, they should first turn to their families for help. When this is not sufficient, the Church stands ready to assist.”
 
-[^2]: [[1 Nephi 2.16|1 Nephi 2:16]].
+[^2]: [[1 Nephi 2.16|1 Nephi 2:16]].
 
-[^3]: [[1 Nephi 2.11|1 Nephi 2:11, 12]][[1 Nephi 2.12|]].
+[^3]: [[1 Nephi 2.11|1 Nephi 2:11, 12]][[1 Nephi 2.12|]].
 
-[^4]: [[1 Nephi 1.20|1 Nephi 1:20]].
+[^4]: [[1 Nephi 1.20|1 Nephi 1:20]].
 
 [^5]: [[Mosiah 10.14|Mosiah 10:14]].
 
-[^6]: See [[1 Nephi 17.23|1 Nephi 17:23–50]][[1 Nephi 17.24|]][[1 Nephi 17.25|]][[1 Nephi 17.26|]][[1 Nephi 17.27|]][[1 Nephi 17.28|]][[1 Nephi 17.29|]][[1 Nephi 17.30|]][[1 Nephi 17.31|]][[1 Nephi 17.32|]][[1 Nephi 17.33|]][[1 Nephi 17.34|]][[1 Nephi 17.35|]][[1 Nephi 17.36|]][[1 Nephi 17.37|]][[1 Nephi 17.38|]][[1 Nephi 17.39|]][[1 Nephi 17.40|]][[1 Nephi 17.41|]][[1 Nephi 17.42|]][[1 Nephi 17.43|]][[1 Nephi 17.44|]][[1 Nephi 17.45|]][[1 Nephi 17.46|]][[1 Nephi 17.47|]][[1 Nephi 17.48|]][[1 Nephi 17.49|]][[1 Nephi 17.50|]].
+[^6]: See [[1 Nephi 17.23|1 Nephi 17:23–50]][[1 Nephi 17.24|]][[1 Nephi 17.25|]][[1 Nephi 17.26|]][[1 Nephi 17.27|]][[1 Nephi 17.28|]][[1 Nephi 17.29|]][[1 Nephi 17.30|]][[1 Nephi 17.31|]][[1 Nephi 17.32|]][[1 Nephi 17.33|]][[1 Nephi 17.34|]][[1 Nephi 17.35|]][[1 Nephi 17.36|]][[1 Nephi 17.37|]][[1 Nephi 17.38|]][[1 Nephi 17.39|]][[1 Nephi 17.40|]][[1 Nephi 17.41|]][[1 Nephi 17.42|]][[1 Nephi 17.43|]][[1 Nephi 17.44|]][[1 Nephi 17.45|]][[1 Nephi 17.46|]][[1 Nephi 17.47|]][[1 Nephi 17.48|]][[1 Nephi 17.49|]][[1 Nephi 17.50|]].
 
-[^7]: [[1 Nephi 15.3|1 Nephi 15:3]].
+[^7]: [[1 Nephi 15.3|1 Nephi 15:3]].
 
-[^8]: [[1 Nephi 15.9|1 Nephi 15:9]]; see also [[1 Nephi 15.8|verse 8]].
+[^8]: [[1 Nephi 15.9|1 Nephi 15:9]]; see also [[1 Nephi 15.8|verse 8]].
 
 [^9]: See [[Luke 15.2|Luke 15:2]]; see also Joseph Smith, in *History of the Church,* 5:260–62.
 
-[^10]: The Christmas carol was penned in German by Abel Burckhardt (1805–82), who served as an archdeacon in Basel, Switzerland. The Swedish translation was made in 1851 by Betty Ehrenborg-Posse. The Swedish title is “När juldagsmorgon glimmar.” Many English translations have been given that enable the carol to be sung to the German folk tune that is typically used. The English translation given here is my sister’s (Anita M. Renlund) and mine.
+[^10]: The Christmas carol was penned in German by Abel Burckhardt (1805–82), who served as an archdeacon in Basel, Switzerland. The Swedish translation was made in 1851 by Betty Ehrenborg-Posse. The Swedish title is “När juldagsmorgon glimmar.” Many English translations have been given that enable the carol to be sung to the German folk tune that is typically used. The English translation given here is my sister’s (Anita M. Renlund) and mine.
 
-[^11]: [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
+[^11]: [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]].
 
-[^12]: [[3 Nephi 18.12|3 Nephi 18:12–13]][[3 Nephi 18.13|]].
+[^12]: [[3 Nephi 18.12|3 Nephi 18:12–13]][[3 Nephi 18.13|]].
 
 [^13]: [[Luke 24.30|Luke 24:30–35]][[Luke 24.31|]][[Luke 24.32|]][[Luke 24.33|]][[Luke 24.34|]][[Luke 24.35|]]; see also [[Luke 24.13|verses 13–29]][[Luke 24.14|]][[Luke 24.15|]][[Luke 24.16|]][[Luke 24.17|]][[Luke 24.18|]][[Luke 24.19|]][[Luke 24.20|]][[Luke 24.21|]][[Luke 24.22|]][[Luke 24.23|]][[Luke 24.24|]][[Luke 24.25|]][[Luke 24.26|]][[Luke 24.27|]][[Luke 24.28|]][[Luke 24.29|]].
 
@@ -125,8 +127,3 @@ As you do, I promise that you will feel nearer to God. Natural tendencies to chi
 
 [^15]: [[Revelation 21.4|Revelation 21:4]].
 
-
-
-
-
-#Jesus_Christ #Sacrament #Spirituality #Welfare

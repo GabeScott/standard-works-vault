@@ -1,5 +1,7 @@
 # If We Want to Go Up, We Have to Get On
 
+Spencer W. Kimball
+
 By Elaine Cannon - *Young Women General President*
 
 *Given in the October session of the 1978 General Conference*
@@ -10,7 +12,7 @@ President Kimball, brethren of the General Authorities who are here with us, tha
 
 I join with you all in the joy of being a woman, and in the privilege of being a member of The Church of Jesus Christ of Latter-day Saints in the fulness of times. For those of you who haven’t joined the Church yet, we welcome you when it’s right for you to come. Some of us have just come from a very special reception which the Young Women hosted in our building across the way. We honored lovely Sister Camilia Kimball and Sister Tanner and other wives of the General Authorities and their daughters. We paid particular tribute to Sister Funk and her counselors who have just been released as the general presidency of the Young Women. We deeply respect and affectionately appreciate all of these sisters. We commend them to you as models for your own lives. They live close to the Lord. They follow the Prophet implicitly. They contribute to society meaningfully, and in turn they have endured difficult circumstances which bring beauty into life. We include other women seated here before you—Sister Louise Lake, Sister Belle Spafford—among this distinguished group of women whom we all would do well to emulate.
 
-Now tonight, clear across the world for the first time, the Church women over twelve are meeting. We are tied together by technology but sense each other’s spirit through that tender influence of the Lord Jesus Christ. We mark this moment as the beginning—at last—of a unique unification of all the sisters of the Church, and we are focusing on proper priorities instead of personal preferences or even programs. We see it as a significant enveloping of all of us under the mantle of the mouthpiece of the Lord, President Spencer W. Kimball. Now, as he speaks to us tonight, it is as if the Lord Jesus Christ himself were addressing us sisters. Christ made this very clear when he said to others of his children a time ago, “Blessed are ye if ye shall give heed unto the words of these … whom I have chosen from among you to minister unto you” ([[3 Nephi 12.1|3 Ne. 12:1]]).
+Now tonight, clear across the world for the first time, the Church women over twelve are meeting. We are tied together by technology but sense each other’s spirit through that tender influence of the Lord Jesus Christ. We mark this moment as the beginning—at last—of a unique unification of all the sisters of the Church, and we are focusing on proper priorities instead of personal preferences or even programs. We see it as a significant enveloping of all of us under the mantle of the mouthpiece of the Lord, President Spencer W. Kimball. Now, as he speaks to us tonight, it is as if the Lord Jesus Christ himself were addressing us sisters. Christ made this very clear when he said to others of his children a time ago, “Blessed are ye if ye shall give heed unto the words of these … whom I have chosen from among you to minister unto you” ([[3 Nephi 12.1|3 Ne. 12:1]]).
 
 “And whatsoever they shall speak … shall be the word of the Lord, shall be the voice of the Lord, and the power of God unto salvation.
 
@@ -35,8 +37,3 @@ As each challenge comes to us in life, and as our timetable varies a little from
 
 
 
-
-
-
-
-#Obedience #Prophets #Women

@@ -1,5 +1,7 @@
 # Stand in Your Appointed Place
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -147,7 +149,5 @@ In the name of Jesus Christ, amen.
 
 [^15]: “I Am a Child of God,” *Hymns,* no. 301.
 
+[^16]: “A Creed,” in James Dalton, ed., *Masterpieces of Religious Verse* (1948), 464.
 
-
-
-#Activation #Home_Teaching #Missionary_Work #Priesthood

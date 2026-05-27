@@ -1,6 +1,8 @@
 # Let Every Man Learn His Duty
 
-By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Joseph B. Wirthlin - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -24,7 +26,7 @@ For a group of some eighty-five members of the Church to perform so admirably an
 
 “He that is slothful shall not be counted worthy to stand, and he that learns not his duty and shows himself not approved shall not be counted worthy to stand.” ([[D&C 107.99|D&C 107:99–100]][[D&C 107.100|]].)
 
-Inscribed beneath Robert E. Lee’s bust in the Hall of Fame are his words: “Duty is the sublimest word in our language. Do your duty in all things. You cannot do more. You should never wish to do less.” (In John Bartlett, *Familiar Quotations,* Boston: Little, Brown and Co., 1968, p. 620.)
+Inscribed beneath Robert E. Lee’s bust in the Hall of Fame are his words: “Duty is the sublimest word in our language. Do your duty in all things. You cannot do more. You should never wish to do less.” (In John Bartlett, *Familiar Quotations,* Boston: Little, Brown and Co., 1968, p. 620.)
 
 Most of us don’t mind doing what we *ought* to do when it doesn’t interfere with what we *want* to do, but it takes discipline and maturity to do what we ought to do whether we want to or not. Duty is too often what one expects from others and not what one does. What people think and believe and plan are all very important, but what they *do* is the thing that counts most. It is a call to throw out selfishness and to think of the common good of all.
 
@@ -58,7 +60,7 @@ Joseph Smith was true to his calling and fulfilled his duty even in the face of 
 
 Brigham Young also carried out his responsibilities. Over a period of many years of faithful service and duty, he brought the Saints to the valley of freedom and established a great and mighty empire. He was duty-bound and thereby achieved great things.
 
-President Spencer W. Kimball has accepted the charge to take the gospel to the ends of the earth. He faithfully pursues his duty and is a wonderful example to us in all that he does to spread the gospel of love. The result is a worldwide Church and the fulfillment of latter-day prophecy.
+President Spencer W. Kimball has accepted the charge to take the gospel to the ends of the earth. He faithfully pursues his duty and is a wonderful example to us in all that he does to spread the gospel of love. The result is a worldwide Church and the fulfillment of latter-day prophecy.
 
 These great men have all had the agency to choose. They might have chosen to follow a path easier than the one where duty led. But they did not. Certainly their duty did not always lead to personal comfort or casual convenience. Their duty frequently meant great sacrifice and personal hardship; but nevertheless, duty they chose, and duty they performed.
 
@@ -95,8 +97,3 @@ I bear you my deep and sincere testimony that this is the only way to obtain hap
 
 
 
-
-
-
-
-#Duty

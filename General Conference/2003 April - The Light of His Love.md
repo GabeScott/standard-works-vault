@@ -1,5 +1,7 @@
 # The Light of His Love
 
+Gordon B. Hinckley
+
 By Gayle M. Clegg - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2003 General Conference*
@@ -37,8 +39,3 @@ I pray that all children may feel and cherish the love of our Heavenly Father, i
 
 
 
-
-
-
-
-#Children #Love #Spirituality

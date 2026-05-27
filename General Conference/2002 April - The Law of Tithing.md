@@ -1,5 +1,7 @@
 # The Law of Tithing
 
+Gordon B. Hinckley
+
 By Elder Earl C. Tingey - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -36,7 +38,7 @@ In my day, in Primary, we learned this little poem:
 
 The doctrine of tithing is woven like a tapestry throughout the scriptures. Abraham paid tithing to Melchizedek.[^2] The children of Israel were taught to bring their tithes to the Lord.[^3] Probably the most quoted scripture on the subject of tithing in the Old Testament is found in Malachi:
 
-“Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
+“Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings. …
 
 “Bring ye all the tithes into the storehouse, that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open you the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.”[^4]
 
@@ -105,8 +107,3 @@ I am grateful that my parents taught me to pay tithing. I bear my humble testimo
 
 [^8]: *Gospel Doctrine,* 229.
 
-
-
-
-
-#Blessings #Obedience #Testimony #Tithing

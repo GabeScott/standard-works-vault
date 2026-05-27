@@ -1,6 +1,8 @@
 # Signs of the True Church
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -18,23 +20,23 @@ It was then also that he prayed so earnestly for his disciples, that they would 
 
 In the early part of still another year he said to his followers, “Be one; … if ye are not one ye are not mine” ([[D&C 38.27|D&C 38:27]]).
 
-This oneness, this unity of action and purpose, was vital to the work. There was no room for conflict among his disciples, no place for dissension, for as Paul demanded of the contending Corinthians, “Is Christ divided?” ([[1 Corinthians 1.13|1 Cor. 1:13]]).
+This oneness, this unity of action and purpose, was vital to the work. There was no room for conflict among his disciples, no place for dissension, for as Paul demanded of the contending Corinthians, “Is Christ divided?” ([[1 Corinthians 1.13|1 Cor. 1:13]]).
 
 When Jesus established his church nearly 2,000 years ago, it was in the hope that all mankind would come in a unity of faith and knowledge of the Son of God unto a state of perfection, that we might become Christlike in reality (see [[Ephesians 4.13|Eph. 4:13]]).
 
 But Christianity as we know it is not united. Among those who profess to believe in him there are wide differences, much conflict, contention, and even enmity at times, a thing which is utterly foreign to the humble prayer for unity which Jesus offered just before his crucifixion.
 
-Well might we ask with the Apostle Paul, “Is Christ divided?” It was he who pleaded with the Corinthians as they drifted apart, “I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment” ([[1 Corinthians 1.10|1 Cor. 1:10]]).
+Well might we ask with the Apostle Paul, “Is Christ divided?” It was he who pleaded with the Corinthians as they drifted apart, “I beseech you, brethren, by the name of our Lord Jesus Christ, that ye all speak the same thing, and that there be no divisions among you; but that ye be perfectly joined together in the same mind and in the same judgment” ([[1 Corinthians 1.10|1 Cor. 1:10]]).
 
-Paul named four subdivisions or separate denominations already existing in Corinth, a thing which he firmly condemned (see [[1 Corinthians 1.12|1 Cor. 1:12–15]][[1 Corinthians 1.13|]][[1 Corinthians 1.14|]][[1 Corinthians 1.15|]]). His former converts in that city actually began to alter the doctrines of Christ, even denying his resurrection (see [[1 Corinthians 15.12|1 Cor. 15:12]]).
+Paul named four subdivisions or separate denominations already existing in Corinth, a thing which he firmly condemned (see [[1 Corinthians 1.12|1 Cor. 1:12–15]][[1 Corinthians 1.13|]][[1 Corinthians 1.14|]][[1 Corinthians 1.15|]]). His former converts in that city actually began to alter the doctrines of Christ, even denying his resurrection (see [[1 Corinthians 15.12|1 Cor. 15:12]]).
 
 But this was not all. Division continued to develop throughout Christianity in that first century after Christ. Most of the epistles of the New Testament were written to combat it.
 
 Paul reprimanded not only the Corinthians for their dissension, but also the Galatians, saying to them, “I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel: Which is not another” ([[Galatians 1.6|Gal. 1:6–7]][[Galatians 1.7|]]).
 
-He predicted dissension elsewhere when he said, “I know this, that after my departing shall grievous wolves enter in among you, not sparing the flock … , speaking perverse things, to draw away disciples after them” ([[Acts 20.29|Acts 20:29–30]][[Acts 20.30|]]).
+He predicted dissension elsewhere when he said, “I know this, that after my departing shall grievous wolves enter in among you, not sparing the flock … , speaking perverse things, to draw away disciples after them” ([[Acts 20.29|Acts 20:29–30]][[Acts 20.30|]]).
 
-Peter predicted the rise of false teachers, saying that “many shall follow their pernicious ways” (see [[2 Peter 2.1|2 Pet. 2:1–2]][[2 Peter 2.2|]]).
+Peter predicted the rise of false teachers, saying that “many shall follow their pernicious ways” (see [[2 Peter 2.1|2 Pet. 2:1–2]][[2 Peter 2.2|]]).
 
 To Titus, Paul said, “There are many unruly and vain talkers and deceivers” ([[Titus 1.10|Titus 1:10]]), and Jude wrote of mockers who even then walked “after their own ungodly lusts,” separating themselves from the church of God (see [[Jude 1.18|Jude 1:18–19]][[Jude 1.19|]]).
 
@@ -78,7 +80,7 @@ When it came, how could Christ’s restored church be distinguished from all the
 
 The scriptures clearly set forth definite marks of identification so that all who wish may avoid the confusion. Let us mention just a few of them.
 
-The members of the true church anciently did not call themselves Christians, for that was but a nickname applied to them in derision by those who hated Christ. The members of the Church called themselves *saints,* as may be seen from various New Testament references (see [[Romans 16.2|Rom. 16:2]]; [[1 Corinthians 1.2|1 Cor. 1:2]]), which are confirmed by Webster’s dictionary and by the Bible scholars. This, then, is one of the identification marks of the true Church. The members are called *saints.*
+The members of the true church anciently did not call themselves Christians, for that was but a nickname applied to them in derision by those who hated Christ. The members of the Church called themselves *saints,* as may be seen from various New Testament references (see [[Romans 16.2|Rom. 16:2]]; [[1 Corinthians 1.2|1 Cor. 1:2]]), which are confirmed by Webster’s dictionary and by the Bible scholars. This, then, is one of the identification marks of the true Church. The members are called *saints.*
 
 Another important sign is that the Church would be guided by constant revelation through living prophets. Amos had said that the Lord will do nothing except through his authorized prophets (see [[Amos 3.7|Amos 3:7]]). The divine Church as restored, then, will be led by living seers and revelators receiving current direction from heaven.
 
@@ -110,7 +112,7 @@ That same pattern applied to New Testament times as well. Hence we have the Gosp
 
 Since the Lord is the same in all generations, the true church today also must provide new scripture in addition to the Bible.
 
-There are various other signs of the true church too, but they are too numerous to mention in this short time. But let us say that no one isolated point can unerringly identify the Church. All the signs must be there, fitly joined together, as the Apostle Paul told the Corinthians (see [[1 Corinthians 1.10|1 Cor. 1:10]]; see also [[Ephesians 2.19|Eph. 2:19–21]][[Ephesians 2.20|]][[Ephesians 2.21|]]; [[Ephesians 4.11|4:11–16]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]][[Ephesians 4.15|]][[Ephesians 4.16|]]).
+There are various other signs of the true church too, but they are too numerous to mention in this short time. But let us say that no one isolated point can unerringly identify the Church. All the signs must be there, fitly joined together, as the Apostle Paul told the Corinthians (see [[1 Corinthians 1.10|1 Cor. 1:10]]; see also [[Ephesians 2.19|Eph. 2:19–21]][[Ephesians 2.20|]][[Ephesians 2.21|]]; [[Ephesians 4.11|4:11–16]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]][[Ephesians 4.15|]][[Ephesians 4.16|]]).
 
 If we seek the divine church we must find in it all of these infallible marks of identification. If these signs are lacking, it is fair notice that we must look elsewhere.
 
@@ -132,7 +134,7 @@ The cold and dark winter without heavenly guidance, when the heavens were sealed
 
 New heavenly light has burst forth. A new day has dawned, a day of hope and truth which eventually will blend into a thousand years of Millennium and then on into eternal life in the kingdom of God.
 
-From this tabernacle the modern prophets speak. Our great present-day prophet, President Spencer W. Kimball, this morning gave to you God’s message for this present day, for the year 1979. He is the mouthpiece of God. He is the spokesman for God right now. So are his inspired counselors. So is the entire group of twelve inspired men, duly ordained as apostles of the Lord Jesus Christ, also for today.
+From this tabernacle the modern prophets speak. Our great present-day prophet, President Spencer W. Kimball, this morning gave to you God’s message for this present day, for the year 1979. He is the mouthpiece of God. He is the spokesman for God right now. So are his inspired counselors. So is the entire group of twelve inspired men, duly ordained as apostles of the Lord Jesus Christ, also for today.
 
 Prophets of God and apostles of the Lord Jesus Christ minister again on the earth. They are here now. They sit here before you. Unitedly and as one voice, they testify of him and for him. They testify to you and for you, and their testimony is true.
 
@@ -145,8 +147,3 @@ May we accept the invitation of the Savior to learn of him and to do so through 
 
 
 
-
-
-
-
-#Apostasy #Restoration

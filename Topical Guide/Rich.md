@@ -1,6 +1,5 @@
 # Rich
 
-
 *See also* [[Abundance.md|Abundance]]; [[Riches.md|Riches]]
 
 Abram was very *rich* in cattle, [[Genesis 13.2|Genesis 13:2]].
@@ -19,7 +18,7 @@ maketh himself *rich*, yet hath nothing, [[Proverbs 13.7|Proverbs 13:7]].
 
 *rich* hath many friends, [[Proverbs 14.20|Proverbs 14:20]].
 
-*rich* man's wealth is his strong city, [[Proverbs 18.11|Proverbs 18:11]].
+*rich* man’s wealth is his strong city, [[Proverbs 18.11|Proverbs 18:11]].
 
 *rich* and poor meet together, [[Proverbs 22.2|Proverbs 22:2]].
 
@@ -43,7 +42,7 @@ let not the *rich* man glory in his riches, [[Jeremiah 9.23|Jeremiah 9:23]].
 
 came a *rich* man of Arimathæa, [[Matthew 27.57|Matthew 27:57]].
 
-money ... many that were *rich* cast in much, [[Mark 12.41|Mark 12:41]].
+money … many that were *rich* cast in much, [[Mark 12.41|Mark 12:41]].
 
 the *rich* he hath sent empty away, [[Luke 1.53|Luke 1:53]].
 
@@ -51,11 +50,11 @@ woe unto you that are *rich*, [[Luke 6.24|Luke 6:24]].
 
 ground of a certain *rich* man brought forth plentifully, [[Luke 12.16|Luke 12:16]].
 
-he that layeth up treasure ... is not *rich* toward God, [[Luke 12.21|Luke 12:21]].
+he that layeth up treasure … is not *rich* toward God, [[Luke 12.21|Luke 12:21]].
 
 There was a certain *rich* man, which had a steward, [[Luke 16.1|Luke 16:1]].
 
-*rich* man ... clothed in purple and fine linen, [[Luke 16.19|Luke 16:19]].
+*rich* man … clothed in purple and fine linen, [[Luke 16.19|Luke 16:19]].
 
 very sorrowful: for he was very *rich*, [[Luke 18.23|Luke 18:23]].
 
@@ -67,13 +66,13 @@ Now ye are full, now ye are *rich*, [[1 Corinthians 4.8|1 Corinthians 4:8]].
 
 as poor, yet making many *rich*, [[2 Corinthians 6.10|2 Corinthians 6:10]].
 
-though he was *rich*, yet ... he became poor, [[2 Corinthians 8.9|2 Corinthians 8:9]].
+though he was *rich*, yet … he became poor, [[2 Corinthians 8.9|2 Corinthians 8:9]].
 
 God, who is *rich* in mercy, [[Ephesians 2.4|Ephesians 2:4]].
 
 *rich* fall into temptation, [[1 Timothy 6.9|1 Timothy 6:9]].
 
-Charge them that are *rich* ... that they be not highminded, [[1 Timothy 6.17|1 Timothy 6:17]].
+Charge them that are *rich* … that they be not highminded, [[1 Timothy 6.17|1 Timothy 6:17]].
 
 they be *rich* in good works, [[1 Timothy 6.18|1 Timothy 6:18]].
 
@@ -85,17 +84,17 @@ God chosen the poor of this world *rich* in faith, [[James 2.5|James 2:5]].
 
 ye *rich* men, weep and howl for your miseries, [[James 5.1|James 5:1]].
 
-I know thy ... poverty, (but thou art *rich*), [[Revelation 2.9|Revelation 2:9]].
+I know thy … poverty, (but thou art *rich*), [[Revelation 2.9|Revelation 2:9]].
 
 sayest, I am *rich*, and increased with goods, [[Revelation 3.17|Revelation 3:17]].
 
-causeth all, both ... *rich* and poor, free and bond, to receive a mark, [[Revelation 13.16|Revelation 13:16]].
+causeth all, both … *rich* and poor, free and bond, to receive a mark, [[Revelation 13.16|Revelation 13:16]].
 
 merchants of the earth are waxed *rich*, [[Revelation 18.3|Revelation 18:3]].
 
-wo unto the *rich* ... their hearts are upon their treasures, [[2 Nephi 9.30|2 Nephi 9:30]].
+wo unto the *rich* … their hearts are upon their treasures, [[2 Nephi 9.30|2 Nephi 9:30]].
 
-*rich*, that are puffed up in the pride ... thrust down to hell, [[2 Nephi 28.15|2 Nephi 28:15]].
+*rich*, that are puffed up in the pride … thrust down to hell, [[2 Nephi 28.15|2 Nephi 28:15]].
 
 say these things unto those who are *rich*, [[Mosiah 4.23|Mosiah 4:23]].
 
@@ -111,7 +110,7 @@ the *rich* have I made, [[D&C 38.16|D&C 38:16]].
 
 Wo unto you *rich* men, that will not give your substance, [[D&C 56.16|D&C 56:16]].
 
-call upon the *rich* ... to repent, [[D&C 58.47|D&C 58:47]].
+call upon the *rich* … to repent, [[D&C 58.47|D&C 58:47]].
 
 the poor to administer to their wants by humbling the *rich*, [[D&C 84.112|D&C 84:112]].
 

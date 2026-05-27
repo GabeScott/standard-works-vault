@@ -1,5 +1,7 @@
 # The Tender Mercies of the Lord
 
+Gordon B. Hinckley
+
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -14,7 +16,7 @@ This afternoon I want to describe and discuss a spiritual impression I received 
 
 Now, the music for the various conference sessions had been determined many weeks before—and obviously long before my new call to serve. If, however, I had been invited to suggest an intermediate hymn for that particular session of the conference—a hymn that would have been both edifying and spiritually soothing for me and for the congregation before my first address in this Conference Center—I would have selected my favorite hymn, “Redeemer of Israel.” Tears filled my eyes as I stood with you to sing that stirring hymn of the Restoration.
 
-Near the conclusion of the singing, to my mind came this verse from the Book of Mormon: “But behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance” ([[1 Nephi 1.20|1 Nephi 1:20]]).
+Near the conclusion of the singing, to my mind came this verse from the Book of Mormon: “But behold, I, Nephi, will show unto you that the tender mercies of the Lord are over all those whom he hath chosen, because of their faith, to make them mighty even unto the power of deliverance” ([[1 Nephi 1.20|1 Nephi 1:20]]).
 
 My mind was drawn immediately to Nephi’s phrase “the tender mercies of the Lord,” and I knew in that very moment I was experiencing just such a tender mercy. A loving Savior was sending me a most personal and timely message of comfort and reassurance through a hymn selected weeks previously. Some may count this experience as simply a nice coincidence, but I testify that the tender mercies of the Lord are real and that they do not occur randomly or merely by coincidence. Often the Lord’s timing of His tender mercies helps us to both discern and acknowledge them.
 
@@ -44,11 +46,11 @@ The priesthood leader recounted the dream and asked the young man about its mean
 
 That young man received the Lord’s tender mercies through an inspired priesthood leader. I repeat again, the Lord’s tender mercies do not occur randomly or merely by coincidence. Faithfulness and obedience enable us to receive these important gifts and, frequently, the Lord’s timing helps us to recognize them.
 
-We should not underestimate or overlook the power of the Lord’s tender mercies. The simpleness, the sweetness, and the constancy of the tender mercies of the Lord will do much to fortify and protect us in the troubled times in which we do now and will yet live. When words cannot provide the solace we need or express the joy we feel, when it is simply futile to attempt to explain that which is unexplainable, when logic and reason cannot yield adequate understanding about the injustices and inequities of life, when mortal experience and evaluation are insufficient to produce a desired outcome, and when it seems that perhaps we are so totally alone, truly we are blessed by the tender mercies of the Lord and made mighty even unto the power of deliverance (see [[1 Nephi 1.20|1 Nephi 1:20]]).
+We should not underestimate or overlook the power of the Lord’s tender mercies. The simpleness, the sweetness, and the constancy of the tender mercies of the Lord will do much to fortify and protect us in the troubled times in which we do now and will yet live. When words cannot provide the solace we need or express the joy we feel, when it is simply futile to attempt to explain that which is unexplainable, when logic and reason cannot yield adequate understanding about the injustices and inequities of life, when mortal experience and evaluation are insufficient to produce a desired outcome, and when it seems that perhaps we are so totally alone, truly we are blessed by the tender mercies of the Lord and made mighty even unto the power of deliverance (see [[1 Nephi 1.20|1 Nephi 1:20]]).
 
 ## Who Are They Whom the Lord Has Chosen to Receive His Tender Mercies?
 
-The word *chosen* in [[1 Nephi 1.20|1 Nephi 1:20]] is central to understanding the concept of the Lord’s tender mercies. The dictionary indicates that *chosen* suggests one who is selected, taken by preference, or picked out. It also can be used to refer to the elect or chosen of God (see *Oxford English Dictionary Online,* second ed. \[1989\], “Chosen”).
+The word *chosen* in [[1 Nephi 1.20|1 Nephi 1:20]] is central to understanding the concept of the Lord’s tender mercies. The dictionary indicates that *chosen* suggests one who is selected, taken by preference, or picked out. It also can be used to refer to the elect or chosen of God (see *Oxford English Dictionary Online,* second ed. \[1989\], “Chosen”).
 
 Some individuals who hear or read this message erroneously may discount or dismiss in their personal lives the availability of the tender mercies of the Lord, believing that “I certainly am not one who has been or ever will be chosen.” We may falsely think that such blessings and gifts are reserved for other people who appear to be more righteous or who serve in visible Church callings. I testify that the tender mercies of the Lord are available to all of us and that the Redeemer of Israel is eager to bestow such gifts upon us.
 
@@ -79,8 +81,3 @@ I am thankful for the Restoration of the gospel of Jesus Christ through the Prop
 
 
 
-
-
-
-
-#Attitude #Blessings #Faith #Holy_Ghost #Mercy #Obedience #Peace #Spirituality

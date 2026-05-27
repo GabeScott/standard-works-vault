@@ -1,4 +1,3 @@
 # Despotism
 
-
-*See* [[Tyranny.md|Tyranny]]
+*See also* [[Tyranny.md|Tyranny]]

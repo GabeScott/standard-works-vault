@@ -1,5 +1,7 @@
 # Becoming a Prepared People
 
+Ezra Taft Benson
+
 By Barbara W. Winder - *Relief Society General President*
 
 *Given in the October session of the 1988 General Conference*
@@ -18,7 +20,7 @@ The Lord taught us a very important lesson when he visited the home of his frien
 
 We read: “But Martha was cumbered about much serving, and came to him, and said, Lord, dost thou not care that my sister hath left me to serve alone? Bid her therefore that she help me.
 
-“And Jesus answered … , Martha, Martha, thou art careful and troubled about many things:
+“And Jesus answered … , Martha, Martha, thou art careful and troubled about many things:
 
 “But one thing is needful: and Mary hath chosen that good part, which shall not be taken away from her.” ([[Luke 10.40|Luke 10:40–42]][[Luke 10.41|]][[Luke 10.42|]].)
 
@@ -44,9 +46,9 @@ Often the advice that is given by our prophets is so simple and practical that w
 
 We are taught that we have great worth in the eyes of our Heavenly Father. The Primary children sing, “I am a child of God.” The Young Women recite their theme which begins, “We are daughters of our Heavenly Father, who loves us,” and the prophets have declared that virtuous women are more priceless than rubies.
 
-Listen to this simple direction from our prophet to the young women of the Church, which applies to all of us: “Live up to your divine potential. Remember who you are and the divine heritage that is yours—you are literally the royal daughters of our Father in Heaven.” (*Ensign,* Nov. 1986, p. 85.)
+Listen to this simple direction from our prophet to the young women of the Church, which applies to all of us: “Live up to your divine potential. Remember who you are and the divine heritage that is yours—you are literally the royal daughters of our Father in Heaven.” (*Ensign,* Nov. 1986, p. 85.)
 
-“Don’t settle for less than what the Lord wants you to be.” (*Ensign,* Nov. 1986, p. 84.)
+“Don’t settle for less than what the Lord wants you to be.” (*Ensign,* Nov. 1986, p. 84.)
 
 Unfortunately, many of us fail to recognize what the Lord wants us to be. A sister wrote to me recently, telling of some events that led her to realize how much her Heavenly Father loved her and had blessed her. She said:
 
@@ -66,11 +68,11 @@ It is according to our natures, sisters, to have feelings of charity and benevol
 
 I suppose that Emma Smith had more than her share of frustration and disappointment. Her life couldn’t have been easy as she suffered persecution along with her husband, the Prophet. It is reported that shortly before his martyrdom, Joseph sent a message to Emma in answer to her request for a blessing. He was not able to give her a blessing, but told her to write one, and when he saw her again he would sign it. I am impressed with the faith and the righteous intent revealed in her words:
 
-“I desire the Spirit of God to know and understand myself. … I desire a fruitful, active mind, that I may be able to comprehend the designs of God, when revealed through His servants … I particularly desire wisdom to bring up all the children that are, or may be committed to my charge, in such a manner that they will be useful … in the Kingdom of God … I desire … that I may wear a cheerful countenance … and be a blessing to all. …
+“I desire the Spirit of God to know and understand myself. … I desire a fruitful, active mind, that I may be able to comprehend the designs of God, when revealed through His servants … I particularly desire wisdom to bring up all the children that are, or may be committed to my charge, in such a manner that they will be useful … in the Kingdom of God … I desire … that I may wear a cheerful countenance … and be a blessing to all. …
 
 “I desire with all my heart to honor and respect my husband.” (Ms., Historical Department, The Church of Jesus Christ of Latter-day Saints.)
 
-President Ezra Taft Benson has declared, “When we put God first, all other things fall into their proper place or drop out of our lives. Our love of the Lord will govern the claims for our affection, the demands on our time, the interests we pursue, and the order of our priorities.” (*Ensign,* May 1988, p. 4.)
+President Ezra Taft Benson has declared, “When we put God first, all other things fall into their proper place or drop out of our lives. Our love of the Lord will govern the claims for our affection, the demands on our time, the interests we pursue, and the order of our priorities.” (*Ensign,* May 1988, p. 4.)
 
 We need to put God first and balance our spiritual and temporal preparations, that we might become virtuous women, righteous daughters, instruments in his hands to help prepare the way for his coming.
 
@@ -85,8 +87,3 @@ I know our Father lives and that Jesus is the Christ. We are engaged in his work
 
 
 
-
-
-
-
-#Preparation #Service #Spirituality

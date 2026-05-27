@@ -1,15 +1,14 @@
 # Separation, Separate
 
-
-*See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Consecrate.md|Consecrate]]; [[Divide.md|Divide]]; [[Marriage, Interfaith.md|Marriage, Interfaith]]; [[Part.md|Part]]; [[Peculiar People.md|Peculiar People]]; [[Portion.md|Portion]]; [[Sanctification, Sanctify.md|Sanctification]]; [[Setting Apart.md|Setting Apart]]
+*See also* [[Abrahamic Covenant.md|Abrahamic Covenant]]; [[Consecrate.md|Consecrate]]; [[Divide.md|Divide]]; [[Marriage, Interfaith.md|Marriage, Interfaith]]; [[Part.md|Part]]; [[Peculiar People.md|Peculiar People]]; [[Portion.md|Portion]]; [[Sanctification.md|Sanctification]]; [[Setting Apart.md|Setting Apart]]
 
 so shall we be *separated*, I and thy people, [[Exodus 33.16|Exodus 33:16]].
 
-Lest thou make a *covenant* with the inhabitants ... and they go ... after their gods, [[Exodus 34.15|Exodus 34:15]].
+Lest thou make a *covenant* with the inhabitants … and they go … after their gods, [[Exodus 34.15|Exodus 34:15]].
 
 not let thy cattle gender with a *diverse* kind, [[Leviticus 19.19|Leviticus 19:19]].
 
-Lord ... have *severed* you from other people, [[Leviticus 20.26|Leviticus 20:26]].
+Lord … have *severed* you from other people, [[Leviticus 20.26|Leviticus 20:26]].
 
 *separate* themselves to vow a vow of a Nazarite, [[Numbers 6.2|Numbers 6:2]].
 
@@ -43,13 +42,13 @@ iniquities have *separated* between you and your God, [[Isaiah 59.2|Isaiah 59:2]
 
 Ephraim, he hath *mixed* himself among the people, [[Hosea 7.8|Hosea 7:8]].
 
-he shall *separate* them ... as a shepherd divideth his sheep, [[Matthew 25.32|Matthew 25:32]].
+he shall *separate* them … as a shepherd divideth his sheep, [[Matthew 25.32|Matthew 25:32]].
 
-a great *gulf* fixed: so that they which would pass ... cannot, [[Luke 16.26|Luke 16:26]].
+a great *gulf* fixed: so that they which would pass … cannot, [[Luke 16.26|Luke 16:26]].
 
 *Separate* me Barnabas and Saul for the work, [[Acts 13.2|Acts 13:2]].
 
-determined the times ... and the *bounds*, [[Acts 17.26|Acts 17:26]].
+determined the times … and the *bounds*, [[Acts 17.26|Acts 17:26]].
 
 called to be an apostle, *separated* unto the gospel, [[Romans 1.1|Romans 1:1]].
 
@@ -63,7 +62,7 @@ man among the Gentiles, who was *separated* from the seed of my brethren, [[1 Ne
 
 they were a *separate* people as to their faith, [[Mosiah 26.4|Mosiah 26:4]].
 
-that their seed ... might not *mix* and believe in incorrect traditions, [[Alma 3.8|Alma 3:8]].
+that their seed … might not *mix* and believe in incorrect traditions, [[Alma 3.8|Alma 3:8]].
 
 mark on them that they and their seed may be *separated*, [[Alma 3.14|Alma 3:14]].
 
@@ -82,5 +81,3 @@ when *separated*, man cannot receive a fulness of joy, [[D&C 93.34|D&C 93:34]].
 not believe it just to *mingle* religious influence, [[D&C 134.9|D&C 134:9]].
 
 take thee away *out* of Haran, [[Abraham 2.6|Abraham 2:6]].
-
-*See also* [[Exodus 19.6|Exodus 19:6]]; [[D&C 76.102|D&C 76:102]].

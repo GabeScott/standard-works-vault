@@ -1,5 +1,7 @@
 # More Diligent and Concerned at Home
 
+Thomas S. Monson
+
 By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -22,7 +24,7 @@ As disciples of the Savior, we are not merely striving to know more; rather, we 
 
 We should remember that saying “I love you” is only a beginning. We need to say it, we need to mean it, and most importantly we need consistently to show it. We need to both express and demonstrate love.
 
-President Thomas S. Monson recently counseled: “Often we assume that \[the people around us\] *must* know how much we love them. But we should never assume; we should let them know. … We will never regret the kind words spoken or the affection shown. Rather, our regrets will come if such things are omitted from our relationships with those who mean the most to us” (in Conference Report, Oct. 2008, 85–86; or *Ensign,* Nov. 2008, 86; italics in original).
+President Thomas S. Monson recently counseled: “Often we assume that \[the people around us\] *must* know how much we love them. But we should never assume; we should let them know. … We will never regret the kind words spoken or the affection shown. Rather, our regrets will come if such things are omitted from our relationships with those who mean the most to us” (in Conference Report, Oct. 2008, [[2008 October - Finding Joy in the Journey.md|85–86]]; or *Ensign,* Nov. 2008, 86; italics in original).
 
 Sometimes in a sacrament meeting talk or testimony, we hear a statement like this: “I know I do not tell my spouse often enough how much I love her. Today I want her, my children, and all of you to know that I love her.”
 
@@ -30,7 +32,7 @@ Such an expression of love may be appropriate. But when I hear a statement like 
 
 The relationship between love and appropriate action is demonstrated repeatedly in the scriptures and is highlighted by the Savior’s instruction to His Apostles: “If ye love me, keep my commandments” ([[John 14.15|John 14:15]]). Just as our love of and for the Lord is evidenced by walking ever in His ways (see [[Deuteronomy 19.9|Deuteronomy 19:9]]), so our love for spouse, parents, and children is reflected most powerfully in our thoughts, our words, and our deeds (see [[Mosiah 4.30|Mosiah 4:30]]).
 
-Feeling the security and constancy of love from a spouse, a parent, or a child is a rich blessing. Such love nurtures and sustains faith in God. Such love is a source of strength and casts out fear (see [[1 John 4.18|1 John 4:18]]). Such love is the desire of every human soul.
+Feeling the security and constancy of love from a spouse, a parent, or a child is a rich blessing. Such love nurtures and sustains faith in God. Such love is a source of strength and casts out fear (see [[1 John 4.18|1 John 4:18]]). Such love is the desire of every human soul.
 
 We can become more diligent and concerned at home as we express love—and consistently show it.
 
@@ -41,8 +43,6 @@ We also can become more diligent and concerned at home by bearing testimony to t
 Brethren and sisters, when was the last time you bore testimony to your eternal companion? Parents, when was the last time you declared your witness to your children about the things you know to be true? And children, when was the last time you shared your testimony with your parents and family?
 
 Each of us already knows we should bear testimony to the people we love the most. But what we know is not always reflected in what we do. We may feel unsure, awkward, or even perhaps a bit embarrassed.
-
-As disciples of the Savior, we are not merely striving to know more; rather, we need to consistently do more of what we know is right and become better.
 
 We should remember that bearing a heartfelt testimony is only a beginning. We need to bear testimony, we need to mean it, and most importantly we need consistently to live it. We need to both declare and live our testimonies.
 
@@ -72,7 +72,7 @@ Being consistent in our homes is important for another reason. Many of the Savio
 
 The hypocrisy in our lives is most readily discerned and causes the greatest destruction within our own homes. And children often are the most alert and sensitive when it comes to recognizing hypocrisy.
 
-A public statement of love when the private actions of love are absent at home is hypocrisy—and weakens the foundation of a great work. Publicly declaring testimony when faithfulness and obedience are missing within our own homes is hypocrisy—and undermines the foundation of a great work. The commandment “Thou shalt not bear false witness” ([[Exodus 20.16|Exodus 20:16]]) applies most pointedly to the hypocrite in each of us. We need to be and become more consistent. “But be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Timothy 4:12]]).
+A public statement of love when the private actions of love are absent at home is hypocrisy—and weakens the foundation of a great work. Publicly declaring testimony when faithfulness and obedience are missing within our own homes is hypocrisy—and undermines the foundation of a great work. The commandment “Thou shalt not bear false witness” ([[Exodus 20.16|Exodus 20:16]]) applies most pointedly to the hypocrite in each of us. We need to be and become more consistent. “But be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Timothy 4:12]]).
 
 As we seek the Lord’s help and in His strength, we can gradually reduce the disparity between what we say and what we do, between expressing love and consistently showing it, and between bearing testimony and steadfastly living it. We can become more diligent and concerned at home as we are more faithful in learning, living, and loving the restored gospel of Jesus Christ.
 
@@ -87,8 +87,3 @@ In these important pursuits we will never be left alone. Our Heavenly Father and
 
 
 
-
-
-
-
-#Family #Home #Love #Testimony

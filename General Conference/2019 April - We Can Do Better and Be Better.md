@@ -1,6 +1,8 @@
 # We Can Do Better and Be Better
 
-By President Russell M. Nelson
+Ulisses Soares
+
+By President Russell M. Nelson
 
 *Given in the April session of the 2019 General Conference*
 
@@ -65,40 +67,35 @@ We are engaged in the work of Almighty God. Jesus is the Christ. We are Their se
 
 [^1]: [[D&C 6.9|Doctrine and Covenants 6:9]]; [[D&C 11.9|11:9]].
 
-[^2]: See [[Mark 1.4|Mark 1:4]]; [[Mosiah 18.20|Mosiah 18:20]]; [[Alma 37.33|Alma 37:33]]; [[3 Nephi 7.23|3 Nephi 7:23]]; [[Moroni 3.3|Moroni 3:3]]; [[D&C 19.21|Doctrine and Covenants 19:21]]; [[D&C 44.3|44:3]]; [[D&C 55.2|55:2]].
+[^2]: See [[Mark 1.4|Mark 1:4]]; [[Mosiah 18.20|Mosiah 18:20]]; [[Alma 37.33|Alma 37:33]]; [[3 Nephi 7.23|3 Nephi 7:23]]; [[Moroni 3.3|Moroni 3:3]]; [[D&C 19.21|Doctrine and Covenants 19:21]]; [[D&C 44.3|44:3]]; [[D&C 55.2|55:2]].
 
 [^3]: See [[D&C 6.36|Doctrine and Covenants 6:36]].
 
-[^4]: See [[Deuteronomy 26.8|Deuteronomy 26:8]]; [[2 Nephi 1.15|2 Nephi 1:15]]; [[Mormon 6.17|Mormon 6:17]]; [[D&C 6.20|Doctrine and Covenants 6:20]].
+[^4]: See [[Deuteronomy 26.8|Deuteronomy 26:8]]; [[2 Nephi 1.15|2 Nephi 1:15]]; [[Mormon 6.17|Mormon 6:17]]; [[D&C 6.20|Doctrine and Covenants 6:20]].
 
-[^5]: See Russell M. Nelson, “[[2007 April - Repentance and Conversion.md|Repentance and Conversion]],” *Ensign* or *Liahona,* May 2007, 103.
+[^5]: See Russell M. Nelson, “[[2007 April - Repentance and Conversion.md|Repentance and Conversion]],” *Ensign* or *Liahona,* May 2007, 103.
 
 [^6]: See, for example, [[Luke 13.3|Luke 13:3, 5]][[Luke 13.5|]].
 
-[^7]: See [[2 Nephi 9.23|2 Nephi 9:23]]; [[Mosiah 4.6|Mosiah 4:6]]; [[3 Nephi 9.22|3 Nephi 9:22]]; [[3 Nephi 27.19|27:19]].
+[^7]: See [[2 Nephi 9.23|2 Nephi 9:23]]; [[Mosiah 4.6|Mosiah 4:6]]; [[3 Nephi 9.22|3 Nephi 9:22]]; [[3 Nephi 27.19|27:19]].
 
-[^8]: See Russell M. Nelson, “[[2007 April - Repentance and Conversion.md|Repentance and Conversion]],” 103–4.
+[^8]: See Russell M. Nelson, “[[2007 April - Repentance and Conversion.md|Repentance and Conversion]],” 103–4.
 
-[^9]: See [[3 Nephi 27.27|3 Nephi 27:27]].
+[^9]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
-[^10]: See [[Jude 1.17|Jude 1:17–21]][[Jude 1.18|]][[Jude 1.19|]][[Jude 1.20|]][[Jude 1.21|]]; [[2 Nephi 2.25|2 Nephi 2:25, 27]][[2 Nephi 2.27|]]; [[2 Nephi 28.20|28:20]]; see also [[1 Nephi 8.10|1 Nephi 8:10–12, 21–23]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]]; [[1 Nephi 11.21|11:21–22]][[1 Nephi 11.22|]]; [[1 Nephi 12.17|12:17]]; [[D&C 10.22|Doctrine and Covenants 10:22]]; [[Moses 5.13|Moses 5:13]].
+[^10]: See [[Jude 1.17|Jude 1:17–21]][[Jude 1.18|]][[Jude 1.19|]][[Jude 1.20|]][[Jude 1.21|]]; [[2 Nephi 2.25|2 Nephi 2:25, 27]][[2 Nephi 2.27|]]; [[2 Nephi 28.20|28:20]]; see also [[1 Nephi 8.10|1 Nephi 8:10–12, 21–23]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]]; [[1 Nephi 11.21|11:21–22]][[1 Nephi 11.22|]]; [[1 Nephi 12.17|12:17]]; [[D&C 10.22|Doctrine and Covenants 10:22]]; [[Moses 5.13|Moses 5:13]].
 
 [^11]: [[D&C 121.36|Doctrine and Covenants 121:36]].
 
-[^12]: The words the Lord has inspired in the revelations and in present-day teachings—*higher, holier, accelerate, increase, strengthen, greater, transform, remodel, improve, enhance, change, deepen, stretch*—are words of spiritual growth (see Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona,* Nov. 2018, 113–14).
+[^12]: The words the Lord has inspired in the revelations and in present-day teachings—*higher, holier, accelerate, increase, strengthen, greater, transform, remodel, improve, enhance, change, deepen, stretch*—are words of spiritual growth (see Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona,* Nov. 2018, 113–14).
 
-[^13]: We know that “men are free according to the flesh. … They are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]).
+[^13]: We know that “men are free according to the flesh. … They are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Nephi 2:27]]).
 
-[^14]: See [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]; [[1 Corinthians 6.18|6:18–20]][[1 Corinthians 6.19|]][[1 Corinthians 6.20|]].
+[^14]: See [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]; [[1 Corinthians 6.18|6:18–20]][[1 Corinthians 6.19|]][[1 Corinthians 6.20|]].
 
 [^15]: See [[Jacob 2.35|Jacob 2:35]].
 
-[^16]: Letter received Feb. 4, 2019.
+[^16]: Letter received Feb. 4, 2019.
 
 [^17]: [[D&C 33.7|Doctrine and Covenants 33:7]].
 
-
-
-
-
-#Repentance

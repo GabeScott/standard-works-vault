@@ -1,6 +1,8 @@
 # The Need for a Church
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -8,7 +10,7 @@ By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/10/18oaks?lang=eng)
 
-Many years ago, Elder Mark E. Petersen, a member of the Quorum of the Twelve Apostles, began a talk with this example:
+Many years ago, Elder Mark E. Petersen, a member of the Quorum of the Twelve Apostles, began a talk with this example:
 
 “Kenneth and his wife, Lucille, are good people, honest and upright. They don’t go to church, though, and they feel they can be good enough without it. They teach their children honesty and virtue and they tell themselves that is about all the Church would do for them.
 
@@ -24,11 +26,11 @@ The scriptures God has given Christians in the Bible and in modern revelation cl
 
 Some say that attending church meetings is not helping them. Some say, “I didn’t learn anything today” or “No one was friendly to me” or “I was offended.” Personal disappointments should never keep us from the doctrine of Christ, who taught us to serve, not to be served.[^7] With this in mind, another member described the focus of his Church attendance:
 
-“Years ago, I changed my attitude about going to church. No longer do I go to church for my sake, but to think of others. I make a point of saying hello to people who sit alone, to welcome visitors, … to volunteer for an assignment. …
+“Years ago, I changed my attitude about going to church. No longer do I go to church for my sake, but to think of others. I make a point of saying hello to people who sit alone, to welcome visitors, … to volunteer for an assignment. …
 
 “In short, I go to church each week with the intent of being active, not passive, and making a positive difference in people’s lives.”[^8]
 
-President Spencer W. Kimball taught that “we do not go to Sabbath meetings to be entertained or even solely to be instructed. We go to worship the Lord. It is an individual responsibility. … If the service is a failure to you, you have failed. No one can worship for you; you must do your own waiting upon the Lord.”[^9]
+President Spencer W. Kimball taught that “we do not go to Sabbath meetings to be entertained or even solely to be instructed. We go to worship the Lord. It is an individual responsibility. … If the service is a failure to you, you have failed. No one can worship for you; you must do your own waiting upon the Lord.”[^9]
 
 Church attendance can open our hearts and sanctify our souls.
 
@@ -54,9 +56,9 @@ Most humanitarian and charitable efforts need to be accomplished by pooling and 
 
 In addition to feeling peace and joy through the companionship of the Spirit, our Church-attending members enjoy the fruits of gospel living, such as the blessings of living the Word of Wisdom and the material and spiritual prosperity promised for living the law of tithing. We also have the blessing of counsel from inspired leaders.
 
-Crowning all of this are the authoritative priesthood ordinances necessary for eternity, including the sacrament we receive each Sabbath day. The culminating ordinance in the restored Church is the everlasting covenant of marriage, which makes possible the perpetuation of glorious family relationships. President Russell M. Nelson taught this principle in a memorable way. He said: “We cannot *wish* our way into the presence of God. We are to obey the laws upon which \[that blessing is\] predicated.”[^12]
+Crowning all of this are the authoritative priesthood ordinances necessary for eternity, including the sacrament we receive each Sabbath day. The culminating ordinance in the restored Church is the everlasting covenant of marriage, which makes possible the perpetuation of glorious family relationships. President Russell M. Nelson taught this principle in a memorable way. He said: “We cannot *wish* our way into the presence of God. We are to obey the laws upon which \[that blessing is\] predicated.”[^12]
 
-One of those laws is to worship in church each Sabbath day.[^13] Our worship and application of eternal principles draw us closer to God and magnify our capacity to love. Parley P. Pratt, one of the original Apostles of this dispensation, described how he felt when the Prophet Joseph Smith explained these principles: “I felt that God was my heavenly Father indeed; that Jesus was my brother, and that the wife of my bosom was an immortal, eternal companion: a kind, ministering angel, given to me as a comfort, and a crown of glory for ever and ever. In short, I could now love with the spirit and with the understanding also.”[^14]
+One of those laws is to worship in church each Sabbath day.[^13] Our worship and application of eternal principles draw us closer to God and magnify our capacity to love. Parley P. Pratt, one of the original Apostles of this dispensation, described how he felt when the Prophet Joseph Smith explained these principles: “I felt that God was my heavenly Father indeed; that Jesus was my brother, and that the wife of my bosom was an immortal, eternal companion: a kind, ministering angel, given to me as a comfort, and a crown of glory for ever and ever. In short, I could now love with the spirit and with the understanding also.”[^14]
 
 In closing, I remind all that we do not believe that good can be accomplished only through a church. Independent of a church, we see millions of people supporting and carrying out innumerable good works. Individually, Latter-day Saints participate in many of them. We see these works as a manifestation of the eternal truth that “the Spirit giveth light to *every man* that cometh into the world.”[^15]
 
@@ -65,11 +67,11 @@ Despite the good works that can be accomplished without a church, the fulness of
 
 
 
-[^1]: Mark E. Petersen, “[[1974 October - Eternal Togetherness.md|Eternal Togetherness]],” *Ensign*, Nov. 1974, 48.
+[^1]: Mark E. Petersen, “[[1974 October - Eternal Togetherness.md|Eternal Togetherness]],” *Ensign*, Nov. 1974, 48.
 
-[^2]: See D. Todd Christofferson, “[[2015 October - Why the Church.md|Why the Church]],” *Ensign* or *Liahona*, Nov. 2015, 108–11.
+[^2]: See D. Todd Christofferson, “[[2015 October - Why the Church.md|Why the Church]],” *Ensign* or *Liahona*, Nov. 2015, 108–11.
 
-[^3]: See Jeffrey M. Jones, “U.S. Church Membership Falls below Majority for First Time,” *Gallup*, Mar. 29, 2021, news.gallup.com/poll/341963/church-membership-falls-below-majority-first-time.aspx.
+[^3]: See Jeffrey M. Jones, “U.S. Church Membership Falls below Majority for First Time,” *Gallup*, Mar. 29, 2021, news.gallup.com/poll/341963/church-membership-falls-below-majority-first-time.aspx.
 
 [^4]: [[Colossians 2.2|Colossians 2:2]].
 
@@ -79,24 +81,19 @@ Despite the good works that can be accomplished without a church, the fulness of
 
 [^7]: See [[James 1.27|James 1:27]].
 
-[^8]: Mark Skousen to Dallin H. Oaks, Feb. 15, 2009.
+[^8]: Mark Skousen to Dallin H. Oaks, Feb. 15, 2009.
 
-[^9]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 173–74.
+[^9]: *[Teachings of Presidents of the Church: Spencer W. Kimball](https://www.churchofjesuschrist.org/study/manual/teachings-spencer-w-kimball/chapter-16?lang=eng&id=p37#p37)* (2006), 173–74.
 
-[^10]: See Elizabeth Weiss Ozotak, “Social and Cognitive Influences on the Development of Religious Beliefs and Commitment in Adolescence,” *Journal for the Scientific Study of Religion*, vol. 28, no. 4 (Dec. 1989), 448–63.
+[^10]: See Elizabeth Weiss Ozotak, “Social and Cognitive Influences on the Development of Religious Beliefs and Commitment in Adolescence,” *Journal for the Scientific Study of Religion*, vol. 28, no. 4 (Dec. 1989), 448–63.
 
 [^11]: See [[John 3.5|John 3:5]].
 
-[^12]: Russell M. Nelson, “[[2005 April - Now Is the Time to Prepare.md|Now Is the Time to Prepare]],” *Ensign* or *Liahona*, May 2005, 18.
+[^12]: Russell M. Nelson, “[[2005 April - Now Is the Time to Prepare.md|Now Is the Time to Prepare]],” *Ensign* or *Liahona*, May 2005, 18.
 
 [^13]: See [[D&C 59.9|Doctrine and Covenants 59:9]].
 
-[^14]: *Autobiography of Parley P. Pratt*, ed. Parley P. Pratt Jr. (1938), 298.
+[^14]: *Autobiography of Parley P. Pratt*, ed. Parley P. Pratt Jr. (1938), 298.
 
 [^15]: [[D&C 84.46|Doctrine and Covenants 84:46]]; emphasis added; see also [[D&C 58.27|Doctrine and Covenants 58:27–28]][[D&C 58.28|]].
 
-
-
-
-
-#Church_Attendance #Church_Membership #Priesthood #Service #Unity #Worship

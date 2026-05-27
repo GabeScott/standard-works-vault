@@ -1,5 +1,7 @@
 # The Joy of a Covenant Relationship with God
 
+Dallin H. Oaks
+
 By Elder Thierry K. Mutombo - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -75,9 +77,9 @@ Christ is risen. Truly, He is risen. In the name of Jesus Christ, amen.
 
 [^1]: See [[John 3.16|John 3:16]].
 
-[^2]: See [[1 Corinthians 15.19|1 Corinthians 15:19, 22]][[1 Corinthians 15.22|]].
+[^2]: See [[1 Corinthians 15.19|1 Corinthians 15:19, 22]][[1 Corinthians 15.22|]].
 
-[^3]: [[3 Nephi 9.14|3 Nephi 9:14]]; see also [[3 Nephi 9.17|verse 17]].
+[^3]: [[3 Nephi 9.14|3 Nephi 9:14]]; see also [[3 Nephi 9.17|verse 17]].
 
 [^4]: See [[D&C 121.1|Doctrine and Covenants 121:1–2]][[D&C 121.2|]].
 
@@ -89,15 +91,13 @@ Christ is risen. Truly, He is risen. In the name of Jesus Christ, amen.
 
 [^8]: Dallin H. Oaks, “[[2013 April - Followers of Christ.md|Followers of Christ]],” *Liahona*, May 2013, 96.
 
-[^9]: See [[2 Nephi 26.13|2 Nephi 26:13]]; [[Ether 12.12|Ether 12:12]]; [[Moroni 7.27|Moroni 7:27–29, 34–38]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]].
+[^9]: See [[2 Nephi 26.13|2 Nephi 26:13]]; [[Ether 12.12|Ether 12:12]]; [[Moroni 7.27|Moroni 7:27–29, 34–38]][[Moroni 7.28|]][[Moroni 7.29|]][[Moroni 7.34|]][[Moroni 7.35|]][[Moroni 7.36|]][[Moroni 7.37|]][[Moroni 7.38|]].
 
 [^10]: See David A. Bednar, “[[2008 April - Ask in Faith.md|Ask in Faith]],” *Liahona*, May 2008, 94–97.
 
-[^11]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^11]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^12]: *[Teachings of Presidents of the Church: Ezra Taft Benson](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-ezra-taft-benson/chapter-1-the-great-commandment-love-the-lord?lang=eng&id=p6-p8#p6)* (2014), 38.
 
 [^13]: See [[Mosiah 3.19|Mosiah 3:19.]]
 
-
-#Adversity #Covenants #Discipleship #Jesus_Christ #Joy #Love

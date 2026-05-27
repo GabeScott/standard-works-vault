@@ -1,6 +1,8 @@
 # “An Instrument in the Hands of the Lord”
 
-By President Rex D. Pinegar - *Of the First Council of the Seventy*
+N. Eldon Tanner
+
+By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -17,8 +19,3 @@ That we may all remember that arm is my prayer in the name of Jesus Christ. Amen
 
 
 
-
-
-
-
-#Service

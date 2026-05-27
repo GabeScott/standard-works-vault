@@ -4,6 +4,3 @@
 
 [JST Matthew 5:21](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/5?lang=eng)
 
-
-
-

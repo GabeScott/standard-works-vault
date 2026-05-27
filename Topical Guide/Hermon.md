@@ -1,4 +1,3 @@
 # Hermon
 
-
-*See* [BD Hermon](https://www.churchofjesuschrist.org/study/scriptures/bd/hermon?lang=eng)
+*See also* [[BD Hermon.md|BD Hermon]]

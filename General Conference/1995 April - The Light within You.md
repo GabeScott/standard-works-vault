@@ -1,5 +1,7 @@
 # The Light within You
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1995 General Conference*
@@ -35,8 +37,3 @@ I thank you for the goodness of your lives, for the desire within your hearts to
 
 
 
-
-
-
-
-#God_The_Father #Individual_Worth #Love #Scripture_Study #Self-Esteem #Talents

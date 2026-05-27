@@ -1,6 +1,5 @@
 # Marriage, Temporal
 
-
 *See also* [[Marriage, Interfaith.md|Marriage, Interfaith]]
 
 *took* them wives of all which they chose, [[Genesis 6.2|Genesis 6:2]].

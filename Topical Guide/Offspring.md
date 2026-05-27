@@ -1,6 +1,5 @@
 # Offspring
 
-
 *See also* [[Heir.md|Heir]]; [[Posterity.md|Posterity]]; [[Seed.md|Seed]]
 
 poets have said, For we are also his *offspring*, [[Acts 17.28|Acts 17:28]].

@@ -1,5 +1,7 @@
 # Seeking the Spirit of God
 
+Gordon B. Hinckley
+
 By Elder Douglas L. Callister - *Of the Seventy*
 
 *Given in the October session of the 2000 General Conference*
@@ -49,7 +51,7 @@ I testify that the workings of the Spirit are real and are found in this Church.
 
 
 
-[^1]: [[2 Kings 2.9|2 Kgs. 2:9]].
+[^1]: [[2 Kings 2.9|2 Kgs. 2:9]].
 
 [^2]: “The Sin against the Holy Ghost,” *Instructor,* Oct. 1935, 431.
 
@@ -73,12 +75,7 @@ I testify that the workings of the Spirit are real and are found in this Church.
 
 [^12]: *Gospel Ideals* (1953), 390.
 
-[^13]: [[1 Thessalonians 5.19|1 Thes. 5:19]].
+[^13]: [[1 Thessalonians 5.19|1 Thes. 5:19]].
 
 [^14]: [[Ephesians 4.30|Eph. 4:30]].
 
-
-
-
-
-#God_The_Father #Holy_Ghost #Scripture_Study #Spirituality #Teaching #Truth #Worship

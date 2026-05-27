@@ -1,5 +1,7 @@
 # Commitment to the Lord
 
+Thomas S. Monson
+
 By Elder John B. Dickson - *Of the Seventy*
 
 *Given in the April session of the 2007 General Conference*
@@ -26,7 +28,7 @@ As members of the Church we have been baptized and have made a covenant to take 
 
 The Lord promises great, eternal blessings to His righteous, repentant children, but knowing there is great danger here in this life, He has commanded us, saying, “Beware concerning yourselves, to give diligent heed to the words of eternal life” ([[D&C 84.43|D&C 84:43]]). Because He loves us and wants us back, this commandment to “beware concerning \[ourselves\]” prompts us to be careful concerning everything about us—the type of social settings we enter, what we see and read, the media and entertainment we choose, the music we listen to, and more.
 
-Setting a pattern of early commitment is very important. For example, to receive the blessings promised to those who pay tithes and offerings, you should commit now to pay tithing on all earnings. Paying tithing helps us become less selfish and more like our Heavenly Father, who wants to share all that He has with His righteous children. Making that decision will be extremely important. It is interesting to note that, like tithing, every commandment is designed for your eternal happiness and to help you become more like your Father in Heaven. Decide now to be like Nephi of old, who was absolutely determined to “go and do the things which the Lord \[had\] commanded” ([[1 Nephi 3.7|1 Nephi 3:7]]).
+Setting a pattern of early commitment is very important. For example, to receive the blessings promised to those who pay tithes and offerings, you should commit now to pay tithing on all earnings. Paying tithing helps us become less selfish and more like our Heavenly Father, who wants to share all that He has with His righteous children. Making that decision will be extremely important. It is interesting to note that, like tithing, every commandment is designed for your eternal happiness and to help you become more like your Father in Heaven. Decide now to be like Nephi of old, who was absolutely determined to “go and do the things which the Lord \[had\] commanded” ([[1 Nephi 3.7|1 Nephi 3:7]]).
 
 Let us now consider other commitments that will bless your lives. Wouldn’t it be wonderful if, in spite of what others at school might be doing, from this moment forward you would be known for your absolute integrity and clean language? Decide now that you will never cheat; that your language will be pure; that as long as you live, vulgar words or jokes will never come from your lips. These are commitments you can make in the quiet of your room and upon your knees. Success will come to you as you earnestly, prayerfully, and humbly approach the Lord. The scriptures teach, “Be thou humble; and the Lord thy God shall lead thee by the hand, and give thee answer to thy prayers” ([[D&C 112.10|D&C 112:10]]).
 
@@ -41,8 +43,3 @@ As you commit now to do the will of the Lord, He will help and strengthen you. Y
 
 
 
-
-
-
-
-#Commitment #Obedience #Standards #Word_Of_Wisdom #Youth

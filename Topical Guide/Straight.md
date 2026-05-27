@@ -1,6 +1,5 @@
 # Straight
 
-
 *See also* [[Strait.md|Strait]]
 
 That which is crooked cannot be made *straight*, [[Ecclesiastes 1.15|Ecclesiastes 1:15]].
@@ -19,7 +18,7 @@ street which is called *Straight*, [[Acts 9.11|Acts 9:11]].
 
 make *straight* paths for your feet, [[Hebrews 12.13|Hebrews 12:13]].
 
-way for man ... lieth in a *straight* course, [[2 Nephi 9.41|2 Nephi 9:41]].
+way for man … lieth in a *straight* course, [[2 Nephi 9.41|2 Nephi 9:41]].
 
 walk in his paths, which are *straight*, [[Alma 7.9|Alma 7:9]].
 

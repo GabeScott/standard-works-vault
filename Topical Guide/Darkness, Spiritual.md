@@ -1,7 +1,6 @@
 # Darkness, Spiritual
 
-
-*See also* [[Blindness.md|Blindness]]; [[Evil.md|Evil]]; [[Ignorance, Ignorant.md|Ignorance]]; [[Sin.md|Sin]]; [[Walking in Darkness.md|Walking in Darkness]]
+*See also* [[Blindness.md|Blindness]]; [[Evil.md|Evil]]; [[Ignorance.md|Ignorance]]; [[Sin.md|Sin]]; [[Walking in Darkness.md|Walking in Darkness]]
 
 as the blind gropeth in *darkness*, [[Deuteronomy 28.29|Deuteronomy 28:29]].
 
@@ -15,7 +14,7 @@ by his light I walked through *darkness*, [[Job 29.3|Job 29:3]].
 
 way of the wicked is as *darkness*, [[Proverbs 4.19|Proverbs 4:19]].
 
-Woe unto them that ... put *darkness* for light, [[Isaiah 5.20|Isaiah 5:20]].
+Woe unto them that … put *darkness* for light, [[Isaiah 5.20|Isaiah 5:20]].
 
 people that walked in *darkness* have seen a great light, [[Isaiah 9.2|Isaiah 9:2]] ([[Matthew 4.16|Matthew 4:16]]).
 
@@ -83,21 +82,21 @@ scales of *darkness* shall begin to fall, [[2 Nephi 30.6|2 Nephi 30:6]].
 
 then cometh the night of *darkness*, [[Alma 34.33|Alma 34:33]].
 
-to bring it forth out of ... *darkness*, [[D&C 1.30|D&C 1:30]].
+to bring it forth out of … *darkness*, [[D&C 1.30|D&C 1:30]].
 
 the light which shineth in *darkness*, [[D&C 6.21|D&C 6:21]].
 
 they love *darkness* rather than light, [[D&C 10.21|D&C 10:21]].
 
-Jesus Christ ... a light which cannot be hid in *darkness*, [[D&C 14.9|D&C 14:9]].
+Jesus Christ … a light which cannot be hid in *darkness*, [[D&C 14.9|D&C 14:9]].
 
 delivered from the powers of Satan and from *darkness*, [[D&C 24.1|D&C 24:1]].
 
-that which doth not edify ... is *darkness*, [[D&C 50.23|D&C 50:23]].
+that which doth not edify … is *darkness*, [[D&C 50.23|D&C 50:23]].
 
 adversary spreadeth his dominions, and *darkness* reigneth, [[D&C 82.5|D&C 82:5]].
 
-world ... groaneth under *darkness*, [[D&C 84.49|D&C 84:49]].
+world … groaneth under *darkness*, [[D&C 84.49|D&C 84:49]].
 
 walking in *darkness* at noon-day, [[D&C 95.6|D&C 95:6]] ([[D&C 95.12|D&C 95:12]]).
 
@@ -110,5 +109,3 @@ Where these were, *darkness* reigned, [[D&C 138.22|D&C 138:22]].
 works of *darkness* began to prevail, [[Moses 5.55|Moses 5:55]].
 
 reserved in chains of *darkness* until the judgment, [[Moses 7.57|Moses 7:57]].
-
-*See also* [[Psalms 107.10|Psalms 107:10]]; [[Ecclesiastes 2.13|Ecclesiastes 2:13]]; [[Isaiah 5.30|Isaiah 5:30]]; [[Isaiah 8.22|Isaiah 8:22]]; [[Isaiah 29.18|Isaiah 29:18]]; [[Revelation 16.10|Revelation 16:10]].

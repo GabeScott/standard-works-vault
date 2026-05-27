@@ -1,5 +1,7 @@
 # My Son and Yours—Each a Remarkable One
 
+Ezra Taft Benson
+
 By Elder Ted E. Brewerton - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1986 General Conference*
@@ -12,7 +14,7 @@ Fathers, would you like to join me and share the same thoughts as if directed to
 
 Hi, Michael, you know how much I trust and love you, don’t you? Let me try to show you who you are and how very important you are as a literal son of our Father in Heaven.
 
-President Harold B. Lee said that this understanding of who we are is “of first importance,” and without it we lack “the basis of a solid foundation upon which to build \[our\] lives” (in Conference Report, Oct. 1973, p. 5; or *Ensign,* Jan. 1974, p. 4).
+President Harold B. Lee said that this understanding of who we are is “of first importance,” and without it we lack “the basis of a solid foundation upon which to build \[our\] lives” (in Conference Report, Oct. 1973, [[1973 October - Understanding Who We Are Brings Self-Respect.md|p. 5]]; or *Ensign,* Jan. 1974, p. 4).
 
 First, Mike, we know by reasoning, seeing, and the impressions of the Spirit that the Lord is a living perfect man. Many have seen him: for example, Adam, Enoch, the brother of Jared, Abraham, Moses, Joseph Smith, Isaac, Jacob, Seth, Nephi, Isaiah, Emer, Joshua, Manoah and his wife, Solomon, Sidney Rigdon, Alma, Moroni, Stephen, and John. Alma states, “Many, exceedingly great many” have seen him ([[Alma 13.12|Alma 13:12]]).
 
@@ -34,7 +36,7 @@ How fast does light travel, Mike? That’s right: 186,000 miles per second. Hold
 
 It takes about eight minutes for light to reach the earth, and just over one second for light to reach the moon from the earth. Imagine how far light could travel in one day of 86,400 seconds. Wow! Then in one year … it is beyond our ability to understand.
 
-The Lord said: “And worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten. …
+The Lord said: “And worlds without number have I created; and I also created them for mine own purpose; and by the Son I created them, which is mine Only Begotten. …
 
 “And the Lord God spake unto Moses, saying: The heavens, they are many, and they cannot be numbered unto man; but they are numbered unto me, for they are mine” ([[Moses 1.33|Moses 1:33, 37]][[Moses 1.37|]]).
 
@@ -44,11 +46,11 @@ He further said:
 
 Isn’t that exciting, Mike?
 
-From *The Amazing Universe* we read: “As the sum of knowledge grows, the astronomer continues to seek answers to man’s most profound questions: What is the grand design of the universe? How was it created? How did we get here? … Are we alone?” (Herbert Friedman, *The Amazing Universe* \[Washington, D.C., National Geographic Society, 1975\], p. 10).
+From *The Amazing Universe* we read: “As the sum of knowledge grows, the astronomer continues to seek answers to man’s most profound questions: What is the grand design of the universe? How was it created? How did we get here? … Are we alone?” (Herbert Friedman, *The Amazing Universe* \[Washington, D.C., National Geographic Society, 1975\], p. 10).
 
-We again read, “It is impossible to any sensitive person to look at a star-filled sky without being stirred by thoughts of creation and eternity” (Friedman, p. 166). “A super-giant elliptical \[galaxy\] may contain more than ten trillion stars and measure 300,000 light-years across.
+We again read, “It is impossible to any sensitive person to look at a star-filled sky without being stirred by thoughts of creation and eternity” (Friedman, p. 166). “A super-giant elliptical \[galaxy\] may contain more than ten trillion stars and measure 300,000 light-years across.
 
-*The sheer immensity of such systems suggest eternal qualities of stability and predictability* (Friedman, p. 134; italics added). See, Mike, the scientific world sees the evidence of a supreme being.
+*The sheer immensity of such systems suggest eternal qualities of stability and predictability* (Friedman, p. 134; italics added). See, Mike, the scientific world sees the evidence of a supreme being.
 
 With all this massive, orderly creation, are you, Michael, a single human being, important? The scriptures state:
 
@@ -84,7 +86,7 @@ The boy was about to refuse, to excuse himself by saying he was not a wrestler, 
 
 “On the instant after the word dropped from Joseph’s lips,” Philemon Merrill, “with the strength of a giant, threw the lawyer over his left shoulder, and he fell striking his head upon the earth.”
 
-Little wonder it is reported that “awe fell upon the opponents of the Prophet when they saw this, and there were no more challenges to wrestle during the journey” (George Q. Cannon, *Life of Joseph Smith the Prophet,* Salt Lake City: Deseret Book Co., 1964, pp. 450–51).
+Little wonder it is reported that “awe fell upon the opponents of the Prophet when they saw this, and there were no more challenges to wrestle during the journey” (George Q. Cannon, *Life of Joseph Smith the Prophet,* Salt Lake City: Deseret Book Co., 1964, pp. 450–51).
 
 Here’s another example of a remarkable *one,* Michael—
 
@@ -92,7 +94,7 @@ John Taylor, in his book *The Gospel Kingdom,* relates how the *one* is magnifie
 
 “Some … years ago, in Far West, a mob—one of those semi-occasional occurrences—had come against us with evil intent, placing themselves in position to give us battle. … We had one fellow who … ordered our people to retreat. As soon as Joseph heard this sound, he exclaimed, ‘Retreat! where in the name of God shall we retreat to?’ He then led us out to the prairie, facing the mob, and placed us in position. And the first thing we knew a flag of truce was seen coming towards us.
 
-“… Joseph Smith, our leader, then sent word back by this messenger. Said he, ‘Tell your general to withdraw his troops or I will send them to hell.’ *I thought that was a pretty bold stand to take, as we only numbered about two hundred to their thirty-five hundred.* But they thought we were more numerous than we really were. It may be that our numbers were magnified in their eyes. But they took the hint and left. … The Lord, through simple means, is able to take care of and deliver his people, but they must put implicit faith and confidence in him” (*Gospel Kingdom,* sel. G. Homer Durham, Salt Lake City: Bookcraft, 1964, pp. 354–355).
+“… Joseph Smith, our leader, then sent word back by this messenger. Said he, ‘Tell your general to withdraw his troops or I will send them to hell.’ *I thought that was a pretty bold stand to take, as we only numbered about two hundred to their thirty-five hundred.* But they thought we were more numerous than we really were. It may be that our numbers were magnified in their eyes. But they took the hint and left. … The Lord, through simple means, is able to take care of and deliver his people, but they must put implicit faith and confidence in him” (*Gospel Kingdom,* sel. G. Homer Durham, Salt Lake City: Bookcraft, 1964, pp. 354–355).
 
 Another example of a remarkable *one.*
 
@@ -105,8 +107,3 @@ Let me express my true feelings to you about the Church. I know, Michael, in a d
 
 
 
-
-
-
-
-#Love #Parenthood

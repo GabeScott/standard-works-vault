@@ -1,6 +1,5 @@
 # Levitical
 
-
 *See also* [[Priesthood, Aaronic.md|Priesthood, Aaronic]]
 
 If therefore perfection were by the *Levitical* priesthood, [[Hebrews 7.11|Hebrews 7:11]].

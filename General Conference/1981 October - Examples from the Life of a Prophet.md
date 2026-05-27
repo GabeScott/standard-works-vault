@@ -1,6 +1,8 @@
 # Examples from the Life of a Prophet
 
-By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
+Gordon B. Hinckley
+
+By Elder Robert D. Hales - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -18,7 +20,7 @@ President Kimball, being a righteous man like Job, has endured many trials—can
 
 President Kimball has not sinned or charged God foolishly. He has kept his integrity and his testimony, and sung the praises of his Lord throughout his many physical trials. We have never heard him complain about his trials. On the contrary, his challenge has been, “Give me this mountain” to climb. (See [[Joshua 14.12|Josh. 14:12]].)
 
-The courage and faith of President Kimball to overcome adversity are an example to all of us, to testify that we, too, can meet the challenges of life. Our aches and pains are but little hurts in comparison to his. After his throat operation, President Kimball had no voice. During a testimony meeting in the temple, President David O. McKay asked him to bear his testimony. He could not speak a word. He could only utter inaudible, breathy sounds. He wrote a note to President McKay afterwards and asked, “Why would you do that to me?” The President answered, “Spencer, you must get your voice back, for you still have a great mission to perform.” (What a moving example of the love of one prophet for another.) President Kimball was obedient. He learned how to control air in his throat and to use the scar tissue that developed in his larynx and his remaining vocal cord. He regained his voice and carried on his great work. The accomplishment of President Kimball’s prophetic mission will stand equal to any in this or any other dispensation.
+The courage and faith of President Kimball to overcome adversity are an example to all of us, to testify that we, too, can meet the challenges of life. Our aches and pains are but little hurts in comparison to his. After his throat operation, President Kimball had no voice. During a testimony meeting in the temple, President David O. McKay asked him to bear his testimony. He could not speak a word. He could only utter inaudible, breathy sounds. He wrote a note to President McKay afterwards and asked, “Why would you do that to me?” The President answered, “Spencer, you must get your voice back, for you still have a great mission to perform.” (What a moving example of the love of one prophet for another.) President Kimball was obedient. He learned how to control air in his throat and to use the scar tissue that developed in his larynx and his remaining vocal cord. He regained his voice and carried on his great work. The accomplishment of President Kimball’s prophetic mission will stand equal to any in this or any other dispensation.
 
 President Kimball’s wife, Camilla, has devotedly and lovingly followed her husband every step of the way. I remember one night in Samoa when both President and Sister Kimball had temperatures of 104 degrees. Early the next morning they were the first ones on the bus. He conducted the meetings, and they fulfilled all their busy schedule throughout the day, not just enduring, but being gracious and considerate and thinking of the needs of everyone else around them.
 
@@ -30,13 +32,13 @@ President Kimball always reaches out with love to touch the “one.”
 
 We were preparing for an area conference briefing, and as I entered President Kimball’s office, he was seated at a typewriter, his back toward the door. He finished typing and spun around in his chair to greet me. In one hand was a thirty-two-page letter from a young man who had read his book *The Miracle of Forgiveness* and, in the other, his personally typed reply to answer the special needs of a young man who wanted and needed his help to repent. The message was a clear one to me: No matter how busy you are, never forget those who need your help.
 
-He bears his missionary testimony as a special witness without the fear of man. I have observed it. At the Copenhagen Denmark Area Conference held August 3–5, 1976, President Kimball went to see Thorvaldsen’s beautiful sculpture *The Christus,* the resurrected Christ, which has been reproduced, as you know, for the visitors’ centers in Salt Lake City, Los Angeles, and New Zealand. After a few spiritual moments admiring *The Christus,* President Kimball bore his testimony to the caretaker who stood nearby. As he turned to the statue of Peter and pointed to the large set of keys in Peter’s right hand, he proclaimed: “The keys of priesthood authority which Peter held as President of the Church I now hold as President of the Church in this dispensation.” Then he stated to the caretaker, “You work every day with Apostles in stone, but today you are in the presence of living Apostles.” He then introduced President N. Eldon Tanner, Elder Thomas S. Monson, and Elder Boyd K. Packer. He presented the caretaker with a Book of Mormon in Danish, and bore his testimony of the Prophet Joseph Smith. The caretaker was moved to tears in acknowledgment of the Spirit he felt in the presence of a prophet and Apostles. He acknowledged to me as we left the church, “Today I have been in the presence of servants of God.”
+He bears his missionary testimony as a special witness without the fear of man. I have observed it. At the Copenhagen Denmark Area Conference held August 3–5, 1976, President Kimball went to see Thorvaldsen’s beautiful sculpture *The Christus,* the resurrected Christ, which has been reproduced, as you know, for the visitors’ centers in Salt Lake City, Los Angeles, and New Zealand. After a few spiritual moments admiring *The Christus,* President Kimball bore his testimony to the caretaker who stood nearby. As he turned to the statue of Peter and pointed to the large set of keys in Peter’s right hand, he proclaimed: “The keys of priesthood authority which Peter held as President of the Church I now hold as President of the Church in this dispensation.” Then he stated to the caretaker, “You work every day with Apostles in stone, but today you are in the presence of living Apostles.” He then introduced President N. Eldon Tanner, Elder Thomas S. Monson, and Elder Boyd K. Packer. He presented the caretaker with a Book of Mormon in Danish, and bore his testimony of the Prophet Joseph Smith. The caretaker was moved to tears in acknowledgment of the Spirit he felt in the presence of a prophet and Apostles. He acknowledged to me as we left the church, “Today I have been in the presence of servants of God.”
 
 President Kimball works with loving diligence with all of his heart, might, mind, and strength. He does not demand or expect those around him to work at his pace, but at their pace. He is a man of action, demonstrated by the simple sign on his desk that says, “Do It.”
 
 For those who work with him, his example eliminates phrases such as “I’ll try” or “I’ll do my best.” His example and love motivate those who follow his example to achieve higher goals and lengthen their stride toward perfection. He has that rare ability to encourage each of us to do better than our best and to keep striving until we exceed our goals.
 
-During the planning and preparation for the Mexico, Central and South America area conferences in February 1977, we were scheduled to hold meetings in La Paz, Bolivia, which is twelve thousand feet above sea level. Dr. Ernest L. Wilkinson and Dr. Russell M. Nelson advised us that President Kimball should have four to six hours’ rest to acclimate his heart and blood pressure to the high altitude. President Kimball is very tightly scheduled during area conferences, and this allows little time for rest. (In reality, the doctors accompanied the General Authorities so that we could keep up with President Kimball.)
+During the planning and preparation for the Mexico, Central and South America area conferences in February 1977, we were scheduled to hold meetings in La Paz, Bolivia, which is twelve thousand feet above sea level. Dr. Ernest L. Wilkinson and Dr. Russell M. Nelson advised us that President Kimball should have four to six hours’ rest to acclimate his heart and blood pressure to the high altitude. President Kimball is very tightly scheduled during area conferences, and this allows little time for rest. (In reality, the doctors accompanied the General Authorities so that we could keep up with President Kimball.)
 
 I talked with President Tanner and President Romney to seek their assistance in getting President Kimball to rest in La Paz before the start of the area conference. They only smiled and said, “You can try.”
 
@@ -69,8 +71,3 @@ I bear you my testimony that a prophet leads this Church today by revelation. On
 
 
 
-
-
-
-
-#Spencer_W._Kimball

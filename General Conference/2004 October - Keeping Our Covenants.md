@@ -1,5 +1,7 @@
 # Keeping Our Covenants
 
+Gordon B. Hinckley
+
 By Elder Richard J. Maynes - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -20,9 +22,9 @@ The fathers of these Ammonite families had previously made an oath to the Lord n
 
 “But behold, it came to pass they had many sons, who had not entered into a covenant that they would not take their weapons of war to defend themselves against their enemies; therefore they did assemble themselves together at this time, as many as were able to take up arms, and they called themselves Nephites.
 
-“And they entered into a covenant to fight for the liberty of the Nephites, yea, to protect the land unto the laying down of their lives; yea, even they covenanted that they never would give up their liberty. …
+“And they entered into a covenant to fight for the liberty of the Nephites, yea, to protect the land unto the laying down of their lives; yea, even they covenanted that they never would give up their liberty. …
 
-“Now behold, there were two thousand of those young men, who entered into this covenant and took their weapons of war to defend their country. …
+“Now behold, there were two thousand of those young men, who entered into this covenant and took their weapons of war to defend their country. …
 
 “And they were all young men, and they were exceedingly valiant for courage, and also for strength and activity; but behold, this was not all—they were men who were true at all times in whatsoever thing they were entrusted.
 
@@ -34,7 +36,7 @@ Helaman and his 2,000 stripling soldiers fought valiantly to protect their famil
 
 In a letter written to Moroni, Helaman describes the faith and courage these young men exhibited:
 
-“And now I say unto you, my beloved brother Moroni, that never had I seen so great courage, nay, not amongst all the Nephites. …
+“And now I say unto you, my beloved brother Moroni, that never had I seen so great courage, nay, not amongst all the Nephites. …
 
 “Now they never had fought, yet they did not fear death; and they did think more upon the liberty of their fathers than they did upon their lives; yea, they had been taught by their mothers, that if they did not doubt, God would deliver them” ([[Alma 56.45|Alma 56:45, 47]][[Alma 56.47|]]).
 
@@ -42,7 +44,7 @@ Brothers and sisters, “they did not doubt, \[and\] God \[did\] deliver them.�
 
 The second battle in which this small army was engaged was more intense than the first. In its aftermath Helaman writes:
 
-“And it came to pass that there were two hundred, out of my two thousand and sixty, who had fainted because of the loss of blood; nevertheless, according to the goodness of God, … there was not one soul of them who did perish. …
+“And it came to pass that there were two hundred, out of my two thousand and sixty, who had fainted because of the loss of blood; nevertheless, according to the goodness of God, … there was not one soul of them who did perish. …
 
 “And now, their preservation was astonishing to our whole army, yea, … and we do justly ascribe it to the miraculous power of God, because of their exceeding faith” ([[Alma 57.25|Alma 57:25–26]][[Alma 57.26|]]).
 
@@ -89,8 +91,3 @@ It is my prayer today that we might all recommit ourselves to do everything in o
 
 
 
-
-
-
-
-#Commandments #Covenants #Obedience #Reverence

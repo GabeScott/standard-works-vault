@@ -1,5 +1,7 @@
 # Models to Follow
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2002 General Conference*
@@ -12,7 +14,7 @@ Many years ago I marveled at the cover of one of our Church publications which f
 
 The son born of Elisabeth became known as John the Baptist. As with Jesus, son of Mary, so with John—precious little is recorded of their years of youth. A single sentence tells us all that we know of John’s life from his birth to his public ministry: “And the child grew, and waxed strong in spirit, and was in the deserts till the day of his shewing unto Israel.”[^1]
 
-John’s message was brief. He preached faith, repentance, baptism by immersion, and the bestowal of the Holy Ghost by an authority greater than that possessed by himself. “I am not the Christ,” he told his faithful disciples, “but … I am sent before him.”[^2] “I indeed baptize you with water; but one mightier than I cometh … : he shall baptize you with the Holy Ghost and with fire.”[^3]
+John’s message was brief. He preached faith, repentance, baptism by immersion, and the bestowal of the Holy Ghost by an authority greater than that possessed by himself. “I am not the Christ,” he told his faithful disciples, “but … I am sent before him.”[^2] “I indeed baptize you with water; but one mightier than I cometh … : he shall baptize you with the Holy Ghost and with fire.”[^3]
 
 Then occurred the baptism of Christ by John the Baptist. Later Jesus testified, “Among them that are born of women there hath not risen a greater than John the Baptist.”[^4]
 
@@ -117,13 +119,13 @@ My prayer today is that we shall do so. In the sacred name of Jesus Christ, amen
 
 [^11]: [[Genesis 6.9|Genesis 6:9]].
 
-[^12]: Bible Dictionary, “Noah,” 738–39.
+[^12]: Bible Dictionary, “[[BD Noah|Noah]],” 738–39.
 
 [^13]: In Conference Report, Oct. 1952, 48.
 
 [^14]: [[Ruth 1.16|Ruth 1:16]].
 
-[^15]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^15]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
 [^16]: *Hymns,* no. 274.
 
@@ -141,8 +143,3 @@ My prayer today is that we shall do so. In the sacred name of Jesus Christ, amen
 
 [^23]: [[Luke 5.27|Luke 5:27]].
 
-
-
-
-
-#Attitude #Courage #Dedication #Example #Faith #Humility #Loyalty #Obedience #Patience

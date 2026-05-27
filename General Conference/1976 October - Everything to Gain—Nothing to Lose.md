@@ -1,6 +1,8 @@
 # Everything to Gain—Nothing to Lose
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -14,7 +16,7 @@ First, let me read portions of a letter recently sent to Temple Square. It began
 
 “I have never believed in God or Jesus Christ. I have never understood how to love a spirit that I don’t know. When I was baptized, I accepted Christ because I have always been told that if I wasn’t saved, I would go to hell. Being ‘saved’ has always been thrown at me. I haven’t gone to church in a very long time because I was always being pushed into something I didn’t, and still don’t, quite understand.
 
-“\[Someone\] showed me a pamphlet, ‘Man’s Search for Happiness,’ and explained what it said. I opened my eyes then, because through the Mormon religion God made sense to me. …
+“\[Someone\] showed me a pamphlet, ‘Man’s Search for Happiness,’ and explained what it said. I opened my eyes then, because through the Mormon religion God made sense to me. …
 
 “A ‘small voice’ inside of me told me to search for God. Before, it didn’t make any difference to me if God was there, or not. Now it does.
 
@@ -72,7 +74,7 @@ I am not here to dwell on the reasons. I hope you will not. Put the past behind 
 
 “Wash you, make you clean; put away the evil of your doings from before mine eyes; cease to do evil;
 
-“Learn to do well. …
+“Learn to do well. …
 
 “Come now, and let us reason together, saith the Lord; though your sins be as scarlet, they shall be as white as snow; though they be red like crimson, they shall be as wool.
 
@@ -92,7 +94,7 @@ But Elisha did not even so much as go out to greet the captain. He sent a messen
 
 Naaman was insulted that he should be told to wash in Jordan when there were cleaner streams in his own land, and “he turned and went away in a rage.”
 
-But his servants pleaded with him to do as Elisha had suggested. The proud captain finally relented, and the scripture records, “Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.” (See [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].)
+But his servants pleaded with him to do as Elisha had suggested. The proud captain finally relented, and the scripture records, “Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean.” (See [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].)
 
 And so I repeat, do not let pride stand in your way. The way of the gospel is a simple way. Some of the requirements may appear to you as elementary and unnecessary. Do not spurn them. Humble yourselves and walk in obedience. I promise that the results that follow will be marvelous to behold and satisfying to experience.
 
@@ -117,5 +119,3 @@ I bear you my witness that this is the work of the Lord. It is the kingdom of Go
 
 
 
-
-#Activation #Repentance

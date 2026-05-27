@@ -1,9 +1,8 @@
 # Keeper
 
-
 Abel was a *keeper* of sheep, [[Genesis 4.2|Genesis 4:2]] ([[Moses 5.17|Moses 5:17]]).
 
-Am I my brother's *keeper*, [[Genesis 4.9|Genesis 4:9]] ([[Moses 5.34|Moses 5:34]]).
+Am I my brother’s *keeper*, [[Genesis 4.9|Genesis 4:9]] ([[Moses 5.34|Moses 5:34]]).
 
 Lord is thy *keeper*, [[Psalms 121.5|Psalms 121:5]].
 

@@ -1,4 +1,3 @@
 # Shew
 
-
-*See* [[Show, Shew.md|Show]]
+*See also* [[Show.md|Show]]

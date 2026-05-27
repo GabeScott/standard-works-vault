@@ -1,6 +1,8 @@
 # Sacrifice: Missionary-Style
 
-By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Adney Y. Komatsu - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -82,13 +84,8 @@ In closing, may I quote from the apostle Paul’s teachings to the Hebrews on th
 
 I know if we practice the principles of sacrifice daily and deny our personal desires for the happiness of others, we too will be able to receive the Holy Spirit and gain eternal salvation.
 
-I bear you my humble testimony that I know God lives and that Jesus is the Christ, the Savior of mankind. I know that Joseph Smith was called and ordained to restore the gospel of Jesus Christ in these last days. And President Spencer W. Kimball today is indeed the prophet of the Lord and is administering to the needs of the Church all over the world. In the name of Jesus Christ, amen.
+I bear you my humble testimony that I know God lives and that Jesus is the Christ, the Savior of mankind. I know that Joseph Smith was called and ordained to restore the gospel of Jesus Christ in these last days. And President Spencer W. Kimball today is indeed the prophet of the Lord and is administering to the needs of the Church all over the world. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Missionary_Work

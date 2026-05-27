@@ -1,5 +1,7 @@
 # “Hold Up Your Light”
 
+Gordon B. Hinckley
+
 By Elder J. Richard Clarke - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -12,7 +14,7 @@ Before doing so, I would like to express my love and appreciation to Bishop Brow
 
 It’s marvelous to be in the service of the Lord and now to be called as a witness for our Lord and Savior and to return to a land that I love more than I can express. It’s just about as much emotion as I can handle at one time. So I pray that I might be able to fulfill the expectations of that wonderful call.
 
-In the Pearl of Great Price we read that the Lord delivered Abraham from idolatrous sacrifice. He introduced Himself as Jehovah and declared, “\[Abraham\], I will lead thee by my hand, and I will … put upon thee my name, even the Priesthood of thy father, and my power shall be over thee. …
+In the Pearl of Great Price we read that the Lord delivered Abraham from idolatrous sacrifice. He introduced Himself as Jehovah and declared, “\[Abraham\], I will lead thee by my hand, and I will … put upon thee my name, even the Priesthood of thy father, and my power shall be over thee. …
 
 \[And\] through thy ministry my name shall be known in the earth forever, for I am thy God.” ([[Abraham 1.18|Abr. 1:18–19]][[Abraham 1.19|]].)
 
@@ -36,19 +38,19 @@ You say, “Yes, President, we will be happy to do it.” You have seven childre
 
 This actually happened to Max and Nettie Ann Nelson of Boise, Idaho, in 1983. How proud I was of this fine family as I read the reporter’s account. What a positive impression was made upon him. The question going through your mind is possibly the same one that I had: “If our family were selected, would we be ready?”
 
-To the Nephites Jesus said, “Hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up.” ([[3 Nephi 18.24|3 Ne. 18:24]].)
+To the Nephites Jesus said, “Hold up your light that it may shine unto the world. Behold I am the light which ye shall hold up.” ([[3 Nephi 18.24|3 Ne. 18:24]].)
 
-In a related admonition, Peter counseled “that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light. …
+In a related admonition, Peter counseled “that ye should shew forth the praises of him who hath called you out of darkness into his marvellous light. …
 
 “Abstain from fleshly lusts, which war against the soul;
 
-“Having your conversation honest among the Gentiles: that … they may by your good works, which they shall behold, glorify God in the day of visitation.” ([[1 Peter 2.9|1 Pet. 2:9, 11–12]][[1 Peter 2.11|]][[1 Peter 2.12|]].)
+“Having your conversation honest among the Gentiles: that … they may by your good works, which they shall behold, glorify God in the day of visitation.” ([[1 Peter 2.9|1 Pet. 2:9, 11–12]][[1 Peter 2.11|]][[1 Peter 2.12|]].)
 
 To the Israelites and again to the Nephites the Lord commanded: “Thou shalt not bear false witness.” (See [[Exodus 20.16|Ex. 20:16]]; [[Mosiah 13.23|Mosiah 13:23]].) Are we not false witnesses if we are untrue to gospel principles we profess but do not practice?
 
 Most damage to the collective reputation of the Church is done by those members who want to straddle the line, with one foot in the kingdom and the other foot in spiritual Babylon. Those who so compromise their principles want to play for both teams at once—the Lord’s and Satan’s—as if to say, “I want to wait and see which side is winning before I declare myself.”
 
-There are some members who are not concerned about their outward appearances and actions, rationalizing that they know what they really are on the inside. These individuals inevitably are judged “guilty by association.” To be judged fairly, we must avoid the very appearance of evil. We would do well to remember the words quoted by President McKay: “Whate’er thou art, act well thy part.” (See *Cherished Experiences,* comp. Claire Middlemiss, Salt Lake City: Deseret Book Co., 1955, pp. 174–75.)
+There are some members who are not concerned about their outward appearances and actions, rationalizing that they know what they really are on the inside. These individuals inevitably are judged “guilty by association.” To be judged fairly, we must avoid the very appearance of evil. We would do well to remember the words quoted by President McKay: “Whate’er thou art, act well thy part.” (See *Cherished Experiences,* comp. Claire Middlemiss, Salt Lake City: Deseret Book Co., 1955, pp. 174–75.)
 
 Character is revealed under pressure. Let me illustrate. A few years ago, Elder Gordon B. Hinckley related this inspiring story:
 
@@ -56,7 +58,7 @@ Character is revealed under pressure. Let me illustrate. A few years ago, Elder 
 
 “The men of his company laughed at him, taunted him, plastered him with a nickname that troubled him. They told him the things they reveled in. Then on one occasion when the going was rough, he faced them and quietly said, ‘Look, I know you think I’m a square. I don’t consider myself any better than any of the rest of you. … But I grew up in a different way. I grew up in a religious home and a religious town. I went to church on Sundays. We prayed together as a family. I was taught to stay away from these things. It’s just that I believe differently. With me it’s a matter of religion, and it’s kind of a way of respecting my mother and my dad. All of you together might force me toward a compromising situation, but that wouldn’t change me, and you wouldn’t feel right after you’d done it.’
 
-“One by one they turned silently away. But during the next few days each came to ask his pardon, and from his example others gained the strength and the will to change their own lives. He taught the gospel to two of them and brought them into the church.” (*Church News,* 29 Apr. 1972, p. 14.)
+“One by one they turned silently away. But during the next few days each came to ask his pardon, and from his example others gained the strength and the will to change their own lives. He taught the gospel to two of them and brought them into the church.” (*Church News,* 29 Apr. 1972, p. 14.)
 
 As Church members, we all benefit when one of us is honorable and righteous. Some years ago I made a speech at a business convention. When I concluded, a distinguished gentleman came up to me and asked, “Are you a Mormon?” I responded, “Yes.” He said, “I am associated with John Russon, a member of your church. He is the finest practicing Christian I have had the pleasure to know.” To him, and I’m sure to countless others, Brother Russon, now the president of the St. George Temple, is a reliable witness.
 
@@ -72,7 +74,7 @@ The Hawes family lived for a time in Tampa, Florida. Steve played junior high fo
 
 The coach said, “Steve made us all better people. When he joined us, most of the guys were swearing. Then they stopped swearing around Steve, and after a while, they pretty well stopped swearing altogether.”
 
-When I heard this tribute, I thought of Paul’s counsel to Timothy: “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.” ([[1 Timothy 4.12|1 Tim. 4:12]].)
+When I heard this tribute, I thought of Paul’s counsel to Timothy: “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.” ([[1 Timothy 4.12|1 Tim. 4:12]].)
 
 “Ye are my witnesses,” said the Lord through Isaiah. ([[Isaiah 43.10|Isa. 43:10]].)
 
@@ -81,8 +83,3 @@ Let us stand tall, brothers and sisters, and be not ashamed to take upon us the 
 
 
 
-
-
-
-
-#Example

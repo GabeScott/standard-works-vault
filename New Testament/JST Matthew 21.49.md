@@ -4,6 +4,3 @@
 
 [JST Matthew 21:49](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/21?lang=eng)
 
-
-
-

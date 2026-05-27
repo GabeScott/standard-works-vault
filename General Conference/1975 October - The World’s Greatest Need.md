@@ -1,5 +1,7 @@
 # The World’s Greatest Need
 
+Spencer W. Kimball
+
 By Elder Hartman Rector, Jr. - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
@@ -14,7 +16,7 @@ Man’s inhumanity to man makes daily advances, and the man-made efforts that ar
 
 The food stamp program which was initially designed to assist the poor to share in the marvelous productivity of this nation at a time of agricultural surplus is totally out of hand, a monster that threatens us all. Over $6.6 billion will be spent for this program in fiscal year 1976. That represents over one-half of the total U.S. Department of Agriculture budget. Over 19 million people—almost one American out of eleven—are now getting food stamps.
 
-Recent findings in the program reveal errors in 56.1 percent of the cases investigated: 12.2 percent of the households receiving food stamps were completely ineligible; 37.9 percent were issued too many or too few stamps, and 6 percent were incompletely registered. Of the food stamps issued, 15.2 percent went to ineligible households. Carl B. Williams, Deputy U.S. Commissioner of Welfare, says, “As it now stands, the system is in such a mess that the Government has practically abdicated its responsibility for seeing that the money gets to people who really need it. In effect,” he said, “the Government is giving away billions of dollars with virtually no controls at all.” (“Food Stamps—Out of Control?” *U.S. News and World Report,* Sept. 1, 1975, p. 12.)
+Recent findings in the program reveal errors in 56.1 percent of the cases investigated: 12.2 percent of the households receiving food stamps were completely ineligible; 37.9 percent were issued too many or too few stamps, and 6 percent were incompletely registered. Of the food stamps issued, 15.2 percent went to ineligible households. Carl B. Williams, Deputy U.S. Commissioner of Welfare, says, “As it now stands, the system is in such a mess that the Government has practically abdicated its responsibility for seeing that the money gets to people who really need it. In effect,” he said, “the Government is giving away billions of dollars with virtually no controls at all.” (“Food Stamps—Out of Control?” *U.S. News and World Report,* Sept. 1, 1975, p. 12.)
 
 Welfare lists grow daily, and we now face the startling fact that we have third and fourth generations growing up on welfare. They have known nothing else. These people even strike and picket to get more sooner. Candidates for public office seem to be trying to out-promise each other in giveaway programs.
 
@@ -28,15 +30,15 @@ And again the Lord said, “The idler shall be had in remembrance before the Lor
 
 Why are these conditions seemingly worsening by the hour? Because their solutions are not based on true principles revealed by God through his prophet. We have a living prophet of God on earth. He has spoken this morning in clear, unmistakable terms. He is not a prophet just for Latter-day Saints. He is the Lord’s oracle for the whole world. God has solutions.
 
-As the Lord said of the Prophet Joseph Smith, so he also says of the Prophet Spencer W. Kimball: “Hearken ye people from afar; and ye that are upon the islands of the sea, listen together.
+As the Lord said of the Prophet Joseph Smith, so he also says of the Prophet Spencer W. Kimball: “Hearken ye people from afar; and ye that are upon the islands of the sea, listen together.
 
 “For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated.
 
 “And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.” ([[D&C 1.1|D&C 1:1–3]][[D&C 1.2|]][[D&C 1.3|]].)
 
-God has solutions! There is only one real road to safety and that is to hearken unto the voice of the prophet of God, because man in his wisdom cannot solve the problems which he is facing today anymore than he could when Paul wrote to the Corinthians. He said, “For the wisdom of this world is foolishness with God. For it is written, He taketh the wise in their own craftiness.” ([[1 Corinthians 3.19|1 Cor. 3:19]].)
+God has solutions! There is only one real road to safety and that is to hearken unto the voice of the prophet of God, because man in his wisdom cannot solve the problems which he is facing today anymore than he could when Paul wrote to the Corinthians. He said, “For the wisdom of this world is foolishness with God. For it is written, He taketh the wise in their own craftiness.” ([[1 Corinthians 3.19|1 Cor. 3:19]].)
 
-And again, “But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned.” ([[1 Corinthians 2.14|1 Cor. 2:14]].)
+And again, “But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned.” ([[1 Corinthians 2.14|1 Cor. 2:14]].)
 
 Can man’s knowledge and intellect supplant the revealed word of God? Do we really believe we can prosper by letting this land, established by the hand of God, be run by those who know not God and acknowledge not his hand in all things? There have always been ungodly men who fancied their wisdom superior to any other. Why should we, who have testimonies of the reality of God burning within us, submit ourselves to the wisdom of men, which has always been foolishness to God?
 
@@ -52,11 +54,11 @@ The Lord has made plain that we have a solemn obligation to choose good and hone
 
 “Wherefore, honest men and wise men should be sought for diligently, and good men and wise men ye should observe to uphold; otherwise whatsoever is less than these cometh of evil.” ([[D&C 98.4|D&C 98:4, 6–10]][[D&C 98.6|]][[D&C 98.7|]][[D&C 98.8|]][[D&C 98.9|]][[D&C 98.10|]].)
 
-There are examples of the foolishness of men’s programs all around us. At the October conference of 1974, Elder Neal A. Maxwell uttered a truth upon which I have reflected much in recent weeks as successive failures of government programs have become more evident. He said, “The living of one protective principle of the gospel is better than a thousand compensatory government programs—which programs are, so often, like ‘straightening the deck chairs on the Titanic.’” (“Why Not Now?” *Ensign,* Nov. 1974, p. 12.)
+There are examples of the foolishness of men’s programs all around us. At the October conference of 1974, Elder Neal A. Maxwell uttered a truth upon which I have reflected much in recent weeks as successive failures of government programs have become more evident. He said, “The living of one protective principle of the gospel is better than a thousand compensatory government programs—which programs are, so often, like ‘straightening the deck chairs on the Titanic.’” (“Why Not Now?” *Ensign,* Nov. 1974, p. 12.)
 
 For instance, let us take one simple principle of the gospel, which we call the Word of Wisdom. This revelation is recorded in the 89th section of the Doctrine and Covenants. And we won’t even consider all of this revelation, but only a part of it, only that part where the Lord warns “that inasmuch as any man drinketh wine or strong drink among you, behold it is not good. … And, again, strong drinks are not for the belly, but for the washing of your bodies.” ([[D&C 89.5|D&C 89:5–7]][[D&C 89.6|]][[D&C 89.7|]].) This is a prohibition against drinking alcoholic beverages. If those in the United States would follow the Lord’s counsel by living this divine law, we would be able to feed the starving masses of the world. I cite an Associated Press quote of Harvard University nutritionist Dr. Jean Mayer. Said he, “Every year we convert in this nation into alcoholic liquor enough grain to feed 50 million people in the starving nations.” In the United States there are 95 million drinkers, of whom 10 million are confirmed alcoholics. These 10 million alcoholics in the United States cost this nation $10 billion a year counted in lost time, slow downs in work, illnesses, mistakes resulting in spoiled materials, domestic problems, and the rest of the attendant evils that go with alcoholism.
 
-Also, it has been proven that alcoholism shortens the life of every alcoholic from 10 to 12 years; 250,000 new alcoholics are added to this total every year. The Connecticut state mental health commissioner reports that 40 percent of the cases in the state mental health hospitals are attributed directly to alcohol. Superior Judge John A. Starbaro of Chicago has said that “75 percent of all the divorce cases I have heard resulted from alcohol.” Alcohol is responsible for one-half of the total traffic deaths in the United States. There are 25,000 persons killed every year on the highways in the U.S. It might be interesting to note that we had 57,000 American servicemen killed in the Vietnam War. This total is nearly duplicated every two years on America’s highways.
+Also, it has been proven that alcoholism shortens the life of every alcoholic from 10 to 12 years; 250,000 new alcoholics are added to this total every year. The Connecticut state mental health commissioner reports that 40 percent of the cases in the state mental health hospitals are attributed directly to alcohol. Superior Judge John A. Starbaro of Chicago has said that “75 percent of all the divorce cases I have heard resulted from alcohol.” Alcohol is responsible for one-half of the total traffic deaths in the United States. There are 25,000 persons killed every year on the highways in the U.S. It might be interesting to note that we had 57,000 American servicemen killed in the Vietnam War. This total is nearly duplicated every two years on America’s highways.
 
 There has been much said about increasing the safety of automobiles, and much has been done. No doubt there are still some improvements to expect, but no matter what we do, there is no way to make a car safe enough for a drunk to drive.
 
@@ -66,7 +68,7 @@ And so, this is man’s solution to the problem—birth control, sterilization, 
 
 “Much is being said,” said the prophet, “in the press and in the pulpit concerning abortion. This Church of Jesus Christ opposes abortion and counsels all members *not* to submit to nor participate in any abortion, in any way, for convenience or to hide sins.
 
-“Abortion must be considered one of the most revolting and sinful practices in this day. … To interfere with any of the processes in the procreation of offspring is to violate one of the most sacred of God’s commandments.” (Spencer W. Kimball, “Why Call Ye Me Lord, Lord, and Do Not the Things Which I Say?” *Ensign,* May 1975, p. 7.)
+“Abortion must be considered one of the most revolting and sinful practices in this day. … To interfere with any of the processes in the procreation of offspring is to violate one of the most sacred of God’s commandments.” (Spencer W. Kimball, “Why Call Ye Me Lord, Lord, and Do Not the Things Which I Say?” *Ensign,* May 1975, p. 7.)
 
 All of these man-made solutions remind us very much of the cartoon which appeared recently in a national magazine. It depicted a department store clerk showing a weird kind of Tinker Toy to a mother. The clerk remarked, “Madam, this toy will prepare your child for modern living. It will teach him about life. No matter how you put it together, it still won’t work.”
 
@@ -77,8 +79,3 @@ All that is needed is to hearken unto the voice of him whom the Lord has chosen 
 
 
 
-
-
-
-
-#Family #Government #Prophets #Word_Of_Wisdom #Work

@@ -1,6 +1,8 @@
 # “Choose You This Day”
 
-By President N. Eldon Tanner - *Second Counselor in the First Presidency*
+Joseph Fielding Smith
+
+By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -10,7 +12,7 @@ By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 We have heard a great deal lately about the Last Lecture Series, in which those who lecture choose their subject as though it were the last they would give. With that in mind, I chose my subject for this conference as though it were to be my last lecture—the most important message I could leave with the people.
 
-The subject I have chosen, then, is taken from Joshua: “… choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord.” ([[Joshua 24.15|Josh. 24:15]].) Shortly after saying this, Joshua, being 110 years old, died, leaving this as his parting message.
+The subject I have chosen, then, is taken from Joshua: “… choose you this day whom ye will serve; … but as for me and my house, we will serve the Lord.” ([[Joshua 24.15|Josh. 24:15]].) Shortly after saying this, Joshua, being 110 years old, died, leaving this as his parting message.
 
 As we have listened to the wonderful talks that have been given in this conference, and as we shall listen to those that will follow, I am sure we will realize that all of them emphasize the importance of serving the Lord.
 
@@ -28,11 +30,11 @@ A parallel to this is found in the story of our pioneer forefathers, who because
 
 As we read the scriptures and as we read the history of the world, we find numerous examples where individuals, communities, and even nations who chose to serve the Lord were saved and prospered—not through their human genius alone, but by the will of God—while others who refused to do so suffered his wrath, were defeated and destroyed.
 
-As recorded in the Book of Mormon: “Behold, this is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ. …” ([[Ether 2.12|Ether 2:12]].)
+As recorded in the Book of Mormon: “Behold, this is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, if they will but serve the God of the land, who is Jesus Christ. …” ([[Ether 2.12|Ether 2:12]].)
 
 What a glorious promise! But we find the same “if” restriction that Joshua warned his people about: *“If* ye forsake the Lord, and serve strange gods, then he will turn and do you hurt, and consume you.” The promise in Ether is conditional only *“if* they will but serve the God of the land, who is Jesus Christ.” Are we headed for destruction by failing to serve Jesus Christ, by failing to live according to his teachings?
 
-In his book *Civilization on Trial,* published in 1948, Arnold J. Toynbee seems to catch this message, as he refers to the rise and fall of civilizations, and recognizes the reason for their declines. He defines history and its pattern of repeating itself, and then he says:
+In his book *Civilization on Trial,* published in 1948, Arnold J. Toynbee seems to catch this message, as he refers to the rise and fall of civilizations, and recognizes the reason for their declines. He defines history and its pattern of repeating itself, and then he says:
 
 “Our present situation is formidable indeed. A survey of the historical landscape in the light of our existing knowledge shows that, up to date, history has repeated itself about twenty times in producing human societies of the species to which our Western society belongs, and it also shows that with the possible exception of our own, all these representatives of the species of society called civilizations are already dead or moribund. Moreover, when we study the histories of these dead and moribund civilizations in detail, and compare them with one another, we find indications of what looks like a recurring pattern in the process of their breakdowns, declines, and falls. We are naturally asking ourselves today whether this particular chapter of history is bound to repeat itself in our case. Is that pattern of decline and fall in store for us in our turn as a doom from which no civilization can hope to escape?”
 
@@ -100,7 +102,7 @@ In order to get full enjoyment from the blessings God has promised to those who 
 
 Realizing the importance of such training, the Church urges its members religiously to observe family home evenings, to attend seminaries, institutes, schools, colleges, and auxiliary organizations to assist in preparing ourselves and our children to serve the Lord. We must not procrastinate in this duty and obligation.
 
-I was greatly impressed as I listened to the BYU alumni president, Ernest L. Wilkinson, M.D., tell of an emergency call that took him to the Intensive Coronary Care Unit of the LDS Hospital \[in Salt Lake City\], where a close personal friend of his of several years’ duration was in critical condition with a massive coronary thrombosis. He said: “As I approached his bedside he grasped my hand and through an oxygen mask, though gripped with pain and breathing in a labored manner, he muttered, ‘Oh, Doctor, can you save me? I have so many things I have been putting off and wanting to do.’
+I was greatly impressed as I listened to the BYU alumni president, Ernest L. Wilkinson, M.D., tell of an emergency call that took him to the Intensive Coronary Care Unit of the LDS Hospital \[in Salt Lake City\], where a close personal friend of his of several years’ duration was in critical condition with a massive coronary thrombosis. He said: “As I approached his bedside he grasped my hand and through an oxygen mask, though gripped with pain and breathing in a labored manner, he muttered, ‘Oh, Doctor, can you save me? I have so many things I have been putting off and wanting to do.’
 
 “As we labored into the hours of the morning, utilizing all of the modern electronic gadgetry that medical science can provide, and as it became increasingly evident that my friend would not survive, I was haunted by his comment and its inference. Are we thinkers or are we doers? How many of us procrastinate the really important decisions in life? Will we be found wanting when we too are at the crossroads of life and death?”
 
@@ -110,15 +112,10 @@ I thank the Lord every day that I know that God the Father, whose children we ar
 
 “For God sent not his Son into the world to condemn the world; but that the world through him might be saved.” ([[John 3.16|John 3:16–17]][[John 3.17|]].)
 
-Yes, Jesus Christ gave his life for us and gave us the plan by which we can enjoy life to the full and work out our salvation. As Richard L. Evans so beautifully stated: “Our Father in heaven is not an umpire who is trying to count us out. He is not a competitor who is trying to outsmart us. He is not a prosecutor who is trying to convict us. He is a loving Father who wants our happiness and eternal progress, and who will help us all he can if we will but give him in our lives an opportunity to do so.”
+Yes, Jesus Christ gave his life for us and gave us the plan by which we can enjoy life to the full and work out our salvation. As Richard L. Evans so beautifully stated: “Our Father in heaven is not an umpire who is trying to count us out. He is not a competitor who is trying to outsmart us. He is not a prosecutor who is trying to convict us. He is a loving Father who wants our happiness and eternal progress, and who will help us all he can if we will but give him in our lives an opportunity to do so.”
 
 I sincerely pray that we will have the courage and strength to humble ourselves, accept our Savior, Jesus Christ, and serve him and thereby enjoy the blessings which he has promised. In the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Agency #Obedience #Plan_Of_Salvation #Repentance

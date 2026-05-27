@@ -1,5 +1,7 @@
 # “Come unto Me”
 
+Gordon B. Hinckley
+
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -14,7 +16,7 @@ Most of the people of his home region would not truly believe. “Is not this Jo
 
 “But I say unto you, That it shall be more tolerable for the land of Sodom in the day of judgment, than for thee” ([[Matthew 11.23|Matt. 11:23–24]][[Matthew 11.24|]]).
 
-While anguishing over the wickedness and lack of faith among so many in his home area, the Savior voiced his prayer of gratitude for the humble and plain people who did hear his teachings and did believe. These lowly learners needed him, and they needed his message. They demonstrated that the humble, the needy, and the sorrowing would hear the word of God and cherish it. With reassurance to these new believers and concern for those not choosing to follow him, Christ issued a profound invitation in what Elder James E. Talmage has appropriately called “one of the grandest outpourings of spiritual emotion known to man” (*Jesus the Christ,* 3rd ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916\], p. 258). These are the words of the Master used in making this appeal:
+While anguishing over the wickedness and lack of faith among so many in his home area, the Savior voiced his prayer of gratitude for the humble and plain people who did hear his teachings and did believe. These lowly learners needed him, and they needed his message. They demonstrated that the humble, the needy, and the sorrowing would hear the word of God and cherish it. With reassurance to these new believers and concern for those not choosing to follow him, Christ issued a profound invitation in what Elder James E. Talmage has appropriately called “one of the grandest outpourings of spiritual emotion known to man” (*Jesus the Christ,* 3rd ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916\], p. 258). These are the words of the Master used in making this appeal:
 
 “Come unto me, all ye that labour and are heavy laden, and I will give you rest.
 
@@ -24,7 +26,7 @@ While anguishing over the wickedness and lack of faith among so many in his home
 
 This invitation and promise is one of the most oft-quoted of all scripture and has been of untold comfort and reassurance to millions. Yet there were those among his hearers that day whose vision was so limited that they could see only a carpenter’s son speaking of a wooden yoke—a yoke which, from time to time, he had undoubtedly hewn and shaped from heavy wooden timbers for the oxen of these same men who were listening.
 
-Elder Talmage added, “He invited them from drudgery to pleasant service; from the well-nigh unbearable burdens of ecclesiastical exactions and traditional formalism, to the liberty of truly spiritual worship; from slavery to freedom; but they would not” (*Jesus the Christ,* p. 259).
+Elder Talmage added, “He invited them from drudgery to pleasant service; from the well-nigh unbearable burdens of ecclesiastical exactions and traditional formalism, to the liberty of truly spiritual worship; from slavery to freedom; but they would not” (*Jesus the Christ,* p. 259).
 
 Here was a prophetic appeal and magnificent promise to a troubled people facing great peril, but they could not understand it. He knew what lay ahead for them even if they did not, and he was inviting them to come unto him to find rest and safety for their troubled souls. Had he not already shown them that he could give rest to those who labored with profound illness and disease? Had he not already relieved the burden of those who were heavily laden with sin and the cares of the world? Had he not already raised one from the dead, proving that he possessed the divine power to relieve even that greatest of all universal burdens? And yet most would still not “come unto \[him\].”
 
@@ -42,7 +44,7 @@ Obviously, the personal burdens of life vary from person to person, but every on
 
 President Ezra Taft Benson has said:
 
-“That man is greatest and most blessed and joyful whose life most closely approaches the pattern of the Christ. This has nothing to do with earthly wealth, power, or prestige. The only true test of greatness, blessedness, joyfulness is how close a life can come to being like the Master, Jesus Christ. He is the right way, the full truth, and the abundant life” (“Jesus Christ—Gifts and Expectations,” *Ensign,* Dec. 1988, p. 2).
+“That man is greatest and most blessed and joyful whose life most closely approaches the pattern of the Christ. This has nothing to do with earthly wealth, power, or prestige. The only true test of greatness, blessedness, joyfulness is how close a life can come to being like the Master, Jesus Christ. He is the right way, the full truth, and the abundant life” (“Jesus Christ—Gifts and Expectations,” *Ensign,* Dec. 1988, p. 2).
 
 The call to come unto him has continued throughout time and is being renewed in our day. Modern scriptures are replete with the same invitation. It is an urgent, pleading call to everyone. Indeed, the calm but urgent appeal is still from the Son of God himself. He is, in fact, the Anointed One, who will lift the greatest of burdens from the most heavily laden. The conditions for obtaining that assistance are still precisely the same. We must come unto him and take his yoke upon us. In meekness and lowliness, we must learn of him in order to receive eternal life and exaltation.
 
@@ -51,8 +53,3 @@ May we do so in appreciation for the loving gift of eternal joy he offers us I p
 
 
 
-
-
-
-
-#Adversity #Faith #Humility #Jesus_Christ #Pride

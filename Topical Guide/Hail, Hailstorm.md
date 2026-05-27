@@ -1,6 +1,5 @@
 # Hail, Hailstorm
 
-
 I will cause it to rain a very grievous *hail*, [[Exodus 9.18|Exodus 9:18]].
 
 He destroyed their vines with *hail*, [[Psalms 78.47|Psalms 78:47]].

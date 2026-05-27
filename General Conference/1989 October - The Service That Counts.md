@@ -1,5 +1,7 @@
 # The Service That Counts
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -36,7 +38,7 @@ In a revelation to Joseph Smith the Prophet, Oliver Cowdery, and David Whitmer, 
 
 “Remember the worth of souls is great in the sight of God;
 
-“For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of all men, that all men might repent and come unto him. …
+“For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of all men, that all men might repent and come unto him. …
 
 “And how great is his joy in the soul that repenteth!
 
@@ -84,7 +86,7 @@ One of the great missionaries of pioneer times was Joseph Millett, who served a 
 
 “‘Well, Brother Hall, you needn’t bring this back if the Lord sent you for it. You don’t owe me for it.’”
 
-His journal continued, “You can’t tell how good it made me feel to know that the Lord knew that there was such a person as Joseph Millett.” (In Eugene England, “Without Purse or Scrip: A 19-year-old Missionary in 1853,” *New Era,* July 1975, p. 28.)
+His journal continued, “You can’t tell how good it made me feel to know that the Lord knew that there was such a person as Joseph Millett.” (In Eugene England, “Without Purse or Scrip: A 19-year-old Missionary in 1853,” *New Era,* July 1975, p. 28.)
 
 Brethren, the Lord knows each of us. Do you think for a moment that He who notes the sparrow’s fall would not be mindful of our needs and our service? We simply cannot afford to attribute to the Son of God the same frailties which we find in ourselves.
 
@@ -157,8 +159,3 @@ That each of us may qualify for this blessing from our Lord is my prayer, in the
 
 
 
-
-
-
-
-#Charity #Missionary_Work #Self-Esteem #Service

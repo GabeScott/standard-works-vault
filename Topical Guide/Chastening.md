@@ -1,7 +1,6 @@
 # Chastening
 
-
-*See also* [[Affliction.md|Affliction]]; [[Correct.md|Correct]]; [[Correction.md|Correction]]; [[Exhort.md|Exhort]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Punish, Punishment.md|Punish]]; [[Rebuke.md|Rebuke]]; [[Reproof, Reprove.md|Reproof]]
+*See also* [[Affliction.md|Affliction]]; [[Correct.md|Correct]]; [[Correction.md|Correction]]; [[Exhort.md|Exhort]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Punish.md|Punish]]; [[Rebuke.md|Rebuke]]; [[Reproof.md|Reproof]]
 
 I, will *chastise* you seven times for your sins, [[Leviticus 26.28|Leviticus 26:28]].
 
@@ -31,7 +30,7 @@ therefore *chastise* him, and release him, [[Luke 23.16|Luke 23:16]].
 
 we are *chastened* of the Lord, [[1 Corinthians 11.32|1 Corinthians 11:32]].
 
-All scripture is given ... for *reproof*, for correction, [[2 Timothy 3.16|2 Timothy 3:16]].
+All scripture is given … for *reproof*, for correction, [[2 Timothy 3.16|2 Timothy 3:16]].
 
 *reprove*, rebuke, exhort with all longsuffering, [[2 Timothy 4.2|2 Timothy 4:2]].
 
@@ -45,15 +44,15 @@ spoken *hard* things against the wicked, [[1 Nephi 16.2|1 Nephi 16:2]].
 
 Lord seeth fit to *chasten* his people, [[Mosiah 23.21|Mosiah 23:21]].
 
-except the Lord doth *chasten* ... they will not remember him, [[Helaman 12.3|Helaman 12:3]].
+except the Lord doth *chasten* … they will not remember him, [[Helaman 12.3|Helaman 12:3]].
 
-the people of Nephi hath he loved, and ... *chastened*, [[Helaman 15.3|Helaman 15:3]].
+the people of Nephi hath he loved, and … *chastened*, [[Helaman 15.3|Helaman 15:3]].
 
-the Lord ... *chastened* him because he remembered not to call, [[Ether 2.14|Ether 2:14]].
+the Lord … *chastened* him because he remembered not to call, [[Ether 2.14|Ether 2:14]].
 
 as they sinned they might be *chastened*, [[D&C 1.27|D&C 1:27]].
 
-offend many ... be *chastened* before many, [[D&C 42.90|D&C 42:90]].
+offend many … be *chastened* before many, [[D&C 42.90|D&C 42:90]].
 
 until he is sufficiently *chastened* for all his sins, [[D&C 58.60|D&C 58:60]].
 
@@ -63,7 +62,7 @@ for this evil they were afflicted and sorely *chastened*, [[D&C 64.8|D&C 64:8]].
 
 *chasten* him for the murmurings of his heart, [[D&C 75.7|D&C 75:7]].
 
-feel the ... *chastening* hand of an Almighty God, [[D&C 87.6|D&C 87:6]].
+feel the … *chastening* hand of an Almighty God, [[D&C 87.6|D&C 87:6]].
 
 *chasten* her until she overcomes, [[D&C 90.36|D&C 90:36]].
 
@@ -84,5 +83,3 @@ people must needs be *chastened* until they learn, [[D&C 105.6|D&C 105:6]].
 *Reproving* betimes with sharpness, when moved upon by the Holy Ghost, [[D&C 121.43|D&C 121:43]].
 
 he that will not bear *chastisement* is not worthy, [[D&C 136.31|D&C 136:31]].
-
-*See also* [[Proverbs 22.15|Proverbs 22:15]]; [[Helaman 13.5|Hel. 13:5-39]][[Helaman 13.6|]][[Helaman 13.7|]][[Helaman 13.8|]][[Helaman 13.9|]][[Helaman 13.10|]][[Helaman 13.11|]][[Helaman 13.12|]][[Helaman 13.13|]][[Helaman 13.14|]][[Helaman 13.15|]][[Helaman 13.16|]][[Helaman 13.17|]][[Helaman 13.18|]][[Helaman 13.19|]][[Helaman 13.20|]][[Helaman 13.21|]][[Helaman 13.22|]][[Helaman 13.23|]][[Helaman 13.24|]][[Helaman 13.25|]][[Helaman 13.26|]][[Helaman 13.27|]][[Helaman 13.28|]][[Helaman 13.29|]][[Helaman 13.30|]][[Helaman 13.31|]][[Helaman 13.32|]][[Helaman 13.33|]][[Helaman 13.34|]][[Helaman 13.35|]][[Helaman 13.36|]][[Helaman 13.37|]][[Helaman 13.38|]][[Helaman 13.39|]].

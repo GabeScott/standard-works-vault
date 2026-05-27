@@ -1,5 +1,7 @@
 # Helping Others Recognize the Whisperings of the Spirit
 
+Thomas S. Monson
+
 By Vicki F. Matsumori - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -22,7 +24,7 @@ Whether we are in a classroom, a missionary discussion, or a family home evening
 
 This companionship can continue to be ours if we are worthy. We are told that “the Spirit of the Lord doth not dwell in unholy temples”[^4] and that as we “let virtue garnish \[our\] thoughts unceasingly; then … the Holy Ghost shall be \[our\] constant companion.”[^5]
 
-The scriptures and the prophets teach what this constant companionship feels like. The Lord tells us, “I will tell you in your mind and in your heart, by the Holy Ghost, which shall come upon you and which shall dwell in your heart.”[^6] Enos stated, “While I was … struggling in the spirit, behold, the voice of the Lord came into my mind.”[^7] Joseph Smith said, “When you feel pure intelligence flowing into you, it may give you sudden strokes of ideas.”[^8] President Henry B. Eyring described the influence of the Holy Ghost as “peace, hope, and joy.” He added, “Almost always I have also felt a sensation of light.”[^9]
+The scriptures and the prophets teach what this constant companionship feels like. The Lord tells us, “I will tell you in your mind and in your heart, by the Holy Ghost, which shall come upon you and which shall dwell in your heart.”[^6] Enos stated, “While I was … struggling in the spirit, behold, the voice of the Lord came into my mind.”[^7] Joseph Smith said, “When you feel pure intelligence flowing into you, it may give you sudden strokes of ideas.”[^8] President Henry B. Eyring described the influence of the Holy Ghost as “peace, hope, and joy.” He added, “Almost always I have also felt a sensation of light.”[^9]
 
 My favorite description, though, comes from an eight-year-old boy who had just received the Holy Ghost. He said, “It felt like sunshine.”
 
@@ -44,7 +46,7 @@ One reason we are encouraged to pray and read the scriptures every single day is
 
 Because the Spirit is often described as a still, small voice,[^11] it is also important to have a time of quiet in our lives as well. The Lord has counseled us to “be still, and know that I am God.”[^12] If we provide a still and quiet time each day when we are not bombarded by television, computer, video games, or personal electronic devices, we allow that still, small voice an opportunity to provide personal revelation and to whisper sweet guidance, reassurance, and comfort to us.
 
-Similarly, we can provide an environment at church that allows the Spirit to give divine confirmation to what is being taught. Teachers and leaders do more than teach lessons or conduct meetings. They facilitate the whisperings of the Spirit to each member. Elder Richard G. Scott has said, “If you accomplish nothing else in your relationship with your students than to help them recognize and follow the promptings of the Spirit, you will bless their lives immeasurably and eternally.”[^13]
+Similarly, we can provide an environment at church that allows the Spirit to give divine confirmation to what is being taught. Teachers and leaders do more than teach lessons or conduct meetings. They facilitate the whisperings of the Spirit to each member. Elder Richard G. Scott has said, “If you accomplish nothing else in your relationship with your students than to help them recognize and follow the promptings of the Spirit, you will bless their lives immeasurably and eternally.”[^13]
 
 A Sunbeam teacher wrapped each of her class members one by one in a blanket to teach them how the Spirit feels like the comfort and security of that covering. A visiting mother also heard the lesson.
 
@@ -77,26 +79,21 @@ Jesus Christ is our Savior and Redeemer. He came to earth in the meridian of tim
 
 [^8]: Joseph Smith, in *History of the Church,* 3:381.
 
-[^9]: Henry B. Eyring, “Gifts of the Spirit for Hard Times,” *Ensign,* June 2007, 18.
+[^9]: Henry B. Eyring, “Gifts of the Spirit for Hard Times,” *Ensign,* June 2007, 18.
 
-[^10]: [[3 Nephi 9.20|3 Nephi 9:20]].
+[^10]: [[3 Nephi 9.20|3 Nephi 9:20]].
 
-[^11]: See [[1 Kings 19.12|1 Kings 19:12]]; [[1 Nephi 17.45|1 Nephi 17:45]]; [[D&C 85.6|D&C 85:6]].
+[^11]: See [[1 Kings 19.12|1 Kings 19:12]]; [[1 Nephi 17.45|1 Nephi 17:45]]; [[D&C 85.6|D&C 85:6]].
 
 [^12]: [[Psalms 46.10|Psalm 46:10]]; see also [[D&C 101.16|D&C 101:16]].
 
-[^13]: Richard G. Scott, “Helping Others to Be Spiritually Led” (address to religious educators, Aug. 11, 1998), 3; in *Teaching, No Greater Call* (1999), 48.
+[^13]: Richard G. Scott, “Helping Others to Be Spiritually Led” (address to religious educators, Aug. 11, 1998), 3; in *Teaching, No Greater Call* (1999), 48.
 
 [^14]: [[D&C 36.2|D&C 36:2]].
 
-[^15]: See [[2 Nephi 32.1|2 Nephi 32:1–5]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]].
+[^15]: See [[2 Nephi 32.1|2 Nephi 32:1–5]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]].
 
-[^16]: See [[2 Nephi 31.18|2 Nephi 31:18]].
+[^16]: See [[2 Nephi 31.18|2 Nephi 31:18]].
 
 [^17]: “The Spirit of God,” *Hymns,* no. 2.
 
-
-
-
-
-#Holy_Ghost #Spirituality #Testimony

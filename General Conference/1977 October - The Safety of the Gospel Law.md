@@ -1,6 +1,8 @@
 # The Safety of the Gospel Law
 
-By Elder William R. Bradford - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -83,7 +85,7 @@ Does the law of the gospel of Jesus Christ exist? Does it have effect in your li
 >Or n’er again return to God.
 >
 
-The great overriding theme contained in the Book of Mormon, which holds the law of the gospel, is summarized by the ancient prophet Moroni, who delivered it to us in this dispensation. It is: “come unto Christ, and lay hold upon every good gift, and touch not the evil gift, nor the unclean thing. …
+The great overriding theme contained in the Book of Mormon, which holds the law of the gospel, is summarized by the ancient prophet Moroni, who delivered it to us in this dispensation. It is: “come unto Christ, and lay hold upon every good gift, and touch not the evil gift, nor the unclean thing. …
 
 “That thou mayest no more be confounded, that the covenants of the Eternal Father which he hath made unto thee … may be fulfilled.
 
@@ -96,8 +98,3 @@ May God bless you in your thoughts and actions, that they may ever be in tune wi
 
 
 
-
-
-
-
-#Laws #Obedience

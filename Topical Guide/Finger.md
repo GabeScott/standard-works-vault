@@ -1,6 +1,5 @@
 # Finger
 
-
 said unto Pharaoh, This is the *finger* of God, [[Exodus 8.19|Exodus 8:19]].
 
 written with the *finger* of God, [[Exodus 31.18|Exodus 31:18]] ([[Deuteronomy 9.10|Deuteronomy 9:10]]).
@@ -9,7 +8,7 @@ consider thy heavens, the work of thy *fingers*, [[Psalms 8.3|Psalms 8:3]].
 
 Bind them upon thy *fingers*, [[Proverbs 7.3|Proverbs 7:3]].
 
-same hour came forth *fingers* of a man's hand, [[Daniel 5.5|Daniel 5:5]].
+same hour came forth *fingers* of a man’s hand, [[Daniel 5.5|Daniel 5:5]].
 
 move them with one of their *fingers*, [[Matthew 23.4|Matthew 23:4]] ([[Luke 11.46|Luke 11:46]]).
 
@@ -25,9 +24,9 @@ Reach hither thy *finger*, and behold my hands, [[John 20.27|John 20:27]].
 
 point the *finger* of scorn, [[1 Nephi 8.33|1 Nephi 8:33]].
 
-upon the wall of the temple ... written by the *finger* of God, [[Alma 10.2|Alma 10:2]].
+upon the wall of the temple … written by the *finger* of God, [[Alma 10.2|Alma 10:2]].
 
-brother of Jared ... saw the *finger* of the Lord, [[Ether 3.6|Ether 3:6]].
+brother of Jared … saw the *finger* of the Lord, [[Ether 3.6|Ether 3:6]].
 
 appointed by the *finger* of the Lord, [[D&C 84.3|D&C 84:3]].
 

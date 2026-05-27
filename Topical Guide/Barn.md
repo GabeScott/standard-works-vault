@@ -1,11 +1,10 @@
 # Barn
 
-
 So shall thy *barns* be filled with plenty, [[Proverbs 3.10|Proverbs 3:10]].
 
 the *barns* are broken down, [[Joel 1.17|Joel 1:17]].
 
-neither ... reap, nor gather into *barns*, [[Matthew 6.26|Matthew 6:26]] ([[Luke 12.24|Luke 12:24]]; [[3 Nephi 13.26|3 Nephi 13:26]]).
+neither … reap, nor gather into *barns*, [[Matthew 6.26|Matthew 6:26]] ([[Luke 12.24|Luke 12:24]]; [[3 Nephi 13.26|3 Nephi 13:26]]).
 
 gather the wheat into my *barn*, [[Matthew 13.30|Matthew 13:30]].
 

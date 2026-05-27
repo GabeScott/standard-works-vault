@@ -1,5 +1,7 @@
 # The Sacrament—and the Sacrifice
 
+Ezra Taft Benson
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -20,7 +22,7 @@ One unusual card caused me to ponder upon the majesty of it all. It is an origin
 
 “He telleth the number of the stars; he calleth them all by their names.
 
-“… His understanding is infinite.” ([[Psalms 147.1|Ps. 147:1, 3–5]][[Psalms 147.3|]][[Psalms 147.4|]][[Psalms 147.5|]].)
+“… His understanding is infinite.” ([[Psalms 147.1|Ps. 147:1, 3–5]][[Psalms 147.3|]][[Psalms 147.4|]][[Psalms 147.5|]].)
 
 As I lay in the hospital bed, I meditated on all that had happened to me and studied the contemplative painting by President Marion G. Romney’s sister and the lines from Psalms: “He telleth the number of the stars; he calleth them all by their names.” I was then—and continue to be—awed by the goodness and majesty of the Creator, who knows not only the names of the stars but knows your name and my name—each of us as His sons and daughters.
 
@@ -78,9 +80,9 @@ During those days of unconsciousness I was given, by the gift and power of the H
 
 Crucifixion—the horrible and painful death which He suffered—was chosen from the beginning. By that excruciating death, He descended below all things, as is recorded, that through His resurrection He would ascend above all things. (See [[D&C 88.6|D&C 88:6]].)
 
-Jesus Christ died in the literal sense in which we will all die. His body lay in the tomb. The immortal spirit of Jesus, chosen as the Savior of mankind, went to those myriads of spirits who had departed mortal life with varying degrees of righteousness to God’s laws. He taught them the “glorious tidings of redemption from the bondage of death, and of possible salvation, … \[which was\] part of \[our\] Savior’s foreappointed and unique service to the human family.” (James E. Talmage, *Jesus the Christ,* Salt Lake City: Deseret Book Co., 1977, p. 671.)
+Jesus Christ died in the literal sense in which we will all die. His body lay in the tomb. The immortal spirit of Jesus, chosen as the Savior of mankind, went to those myriads of spirits who had departed mortal life with varying degrees of righteousness to God’s laws. He taught them the “glorious tidings of redemption from the bondage of death, and of possible salvation, … \[which was\] part of \[our\] Savior’s foreappointed and unique service to the human family.” (James E. Talmage, *Jesus the Christ,* Salt Lake City: Deseret Book Co., 1977, p. 671.)
 
-I cannot begin to convey to you the deep impact that these scenes have confirmed upon my soul. I sense their eternal meaning and realize that “nothing in the entire plan of salvation compares in any way in importance with that most transcendent of all events, the atoning sacrifice of our Lord. It is the most important single thing that has ever occurred in the entire history of created things; it is the rock foundation upon which the gospel and all other things rest,” as has been declared. (Bruce R. McConkie, *Mormon Doctrine,* 2nd ed., Salt Lake City: Bookcraft, 1966, p. 60.)
+I cannot begin to convey to you the deep impact that these scenes have confirmed upon my soul. I sense their eternal meaning and realize that “nothing in the entire plan of salvation compares in any way in importance with that most transcendent of all events, the atoning sacrifice of our Lord. It is the most important single thing that has ever occurred in the entire history of created things; it is the rock foundation upon which the gospel and all other things rest,” as has been declared. (Bruce R. McConkie, *Mormon Doctrine,* 2nd ed., Salt Lake City: Bookcraft, 1966, p. 60.)
 
 Father Lehi taught his son Jacob and us today:
 
@@ -90,13 +92,13 @@ Father Lehi taught his son Jacob and us today:
 
 “Wherefore, how great the importance to make these things known unto the inhabitants of the earth, that they may know that there is no flesh that can dwell in the presence of God, save it be through the merits, and mercy, and grace of the Holy Messiah, who layeth down his life according to the flesh, and taketh it again by the power of the Spirit, that he may bring to pass the resurrection of the dead, being the first that should rise.
 
-“Wherefore, he is the firstfruits unto God, inasmuch as he shall make intercession for all the children of men; and they that believe in him shall be saved.” ([[2 Nephi 2.6|2 Ne. 2:6–9]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]].)
+“Wherefore, he is the firstfruits unto God, inasmuch as he shall make intercession for all the children of men; and they that believe in him shall be saved.” ([[2 Nephi 2.6|2 Ne. 2:6–9]][[2 Nephi 2.7|]][[2 Nephi 2.8|]][[2 Nephi 2.9|]].)
 
 Our most valuable worship experience in the sacrament meeting is the sacred ordinance of the sacrament, for it provides the opportunity to focus our minds and hearts upon the Savior and His sacrifice.
 
-The Apostle Paul warned the early Saints against eating this bread and drinking this cup of the Lord unworthily. (See [[1 Corinthians 11.27|1 Cor. 11:27–30]][[1 Corinthians 11.28|]][[1 Corinthians 11.29|]][[1 Corinthians 11.30|]].)
+The Apostle Paul warned the early Saints against eating this bread and drinking this cup of the Lord unworthily. (See [[1 Corinthians 11.27|1 Cor. 11:27–30]][[1 Corinthians 11.28|]][[1 Corinthians 11.29|]][[1 Corinthians 11.30|]].)
 
-Our Savior Himself instructed the Nephites, “Whoso eateth and drinketh my flesh and blood unworthily \[brings\] damnation to his soul.” ([[3 Nephi 18.29|3 Ne. 18:29]].)
+Our Savior Himself instructed the Nephites, “Whoso eateth and drinketh my flesh and blood unworthily \[brings\] damnation to his soul.” ([[3 Nephi 18.29|3 Ne. 18:29]].)
 
 Worthy partakers of the sacrament are in harmony with the Lord and put themselves under covenant with Him to always remember His sacrifice for the sins of the world, to take upon them the name of Christ and to always remember Him, and to keep His commandments. The Savior covenants that we who do so shall have His spirit to be with us and that, if faithful to the end, we may inherit eternal life.
 
@@ -109,8 +111,3 @@ I testify to all of you that our Heavenly Father does answer our righteous plead
 
 
 
-
-
-
-
-#Gratitude #Obedience #Sacrament #Sacrifice #Spirituality

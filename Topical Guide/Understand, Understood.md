@@ -1,13 +1,12 @@
 # Understand, Understood
 
-
-*See also* [[Comprehend.md|Comprehend]]; [[Know, Knew, Known.md|Know]]; [[Perceive.md|Perceive]]; [[Understanding.md|Understanding]]
+*See also* [[Comprehend.md|Comprehend]]; [[Know.md|Know]]; [[Perceive.md|Perceive]]; [[Understanding.md|Understanding]]
 
 confound their language, that they may not *understand*, [[Genesis 11.7|Genesis 11:7]].
 
-Speak ... in the Syrian language; for we *understand* it, [[2 Kings 18.26|2 Kings 18:26]] ([[Isaiah 36.11|Isaiah 36:11]]).
+Speak … in the Syrian language; for we *understand* it, [[2 Kings 18.26|2 Kings 18:26]] ([[Isaiah 36.11|Isaiah 36:11]]).
 
-Lord ... *understandeth* all the imaginations of the thoughts, [[1 Chronicles 28.9|1 Chronicles 28:9]].
+Lord … *understandeth* all the imaginations of the thoughts, [[1 Chronicles 28.9|1 Chronicles 28:9]].
 
 Levites, caused the people to *understand* the law, [[Nehemiah 8.7|Nehemiah 8:7]].
 
@@ -39,7 +38,7 @@ heart also of the rash shall *understand* knowledge, [[Isaiah 32.4|Isaiah 32:4]]
 
 have ye not *understood* from the foundations of the earth, [[Isaiah 40.21|Isaiah 40:21]].
 
-that ye may know and ... *understand* that I am he, [[Isaiah 43.10|Isaiah 43:10]].
+that ye may know and … *understand* that I am he, [[Isaiah 43.10|Isaiah 43:10]].
 
 they are shepherds that cannot *understand*, [[Isaiah 56.11|Isaiah 56:11]].
 
@@ -57,7 +56,7 @@ Who is wise, and he shall *understand* these things, [[Hosea 14.9|Hosea 14:9]].
 
 neither *understand* they his counsel, [[Micah 4.12|Micah 4:12]].
 
-When any one heareth the word ... and *understandeth* it not, [[Matthew 13.19|Matthew 13:19]].
+When any one heareth the word … and *understandeth* it not, [[Matthew 13.19|Matthew 13:19]].
 
 Jesus saith unto them, Have ye *understood* all these things, [[Matthew 13.51|Matthew 13:51]].
 
@@ -69,7 +68,7 @@ hearing they might not *understand*, [[Luke 8.10|Luke 8:10]].
 
 they *understood* not this saying, [[Luke 9.45|Luke 9:45]] ([[Luke 18.34|Luke 18:34]]; [[John 12.16|John 12:16]]).
 
-Philip ... said, *Understandest* thou what thou readest, [[Acts 8.30|Acts 8:30]].
+Philip … said, *Understandest* thou what thou readest, [[Acts 8.30|Acts 8:30]].
 
 being *understood* by the things that are made, [[Romans 1.20|Romans 1:20]].
 
@@ -77,9 +76,9 @@ There is none that *understandeth*, [[Romans 3.11|Romans 3:11]].
 
 they that have not heard shall *understand*, [[Romans 15.21|Romans 15:21]].
 
-though I ... *understand* all mysteries, [[1 Corinthians 13.2|1 Corinthians 13:2]].
+though I … *understand* all mysteries, [[1 Corinthians 13.2|1 Corinthians 13:2]].
 
-When I was a child ... I *understood* as a child, [[1 Corinthians 13.11|1 Corinthians 13:11]].
+When I was a child … I *understood* as a child, [[1 Corinthians 13.11|1 Corinthians 13:11]].
 
 utter by the tongue words easy to be *understood*, [[1 Corinthians 14.9|1 Corinthians 14:9]].
 
@@ -111,7 +110,7 @@ that we might read and *understand* of his mysteries, [[Mosiah 1.5|Mosiah 1:5]].
 
 hardened their hearts, and *understood* not that the law of Moses availeth nothing, [[Mosiah 3.15|Mosiah 3:15]].
 
-Are you priests, and pretend ... to *understand* the spirit of prophesying, [[Mosiah 12.25|Mosiah 12:25]].
+Are you priests, and pretend … to *understand* the spirit of prophesying, [[Mosiah 12.25|Mosiah 12:25]].
 
 did they *understand* the law, [[Mosiah 13.32|Mosiah 13:32]].
 
@@ -125,9 +124,9 @@ third time they did *understand* the voice, [[3 Nephi 11.6|3 Nephi 11:6]].
 
 ye cannot *understand* all my words, [[3 Nephi 17.2|3 Nephi 17:2]].
 
-ask of the Father ... that ye may *understand*, [[3 Nephi 17.3|3 Nephi 17:3]].
+ask of the Father … that ye may *understand*, [[3 Nephi 17.3|3 Nephi 17:3]].
 
-multitude ... did *understand* in their hearts the words which he prayed, [[3 Nephi 19.33|3 Nephi 19:33]].
+multitude … did *understand* in their hearts the words which he prayed, [[3 Nephi 19.33|3 Nephi 19:33]].
 
 not confound us that we may not *understand* our words, [[Ether 1.34|Ether 1:34]].
 
@@ -139,12 +138,12 @@ Lord, reason with you that you may *understand*, [[D&C 50.12|D&C 50:12]].
 
 he that preacheth and he that receiveth, *understand* one another, [[D&C 50.22|D&C 50:22]].
 
-that teach them not to *understand* ... the sin be upon the heads of the parents, [[D&C 68.25|D&C 68:25]].
+that teach them not to *understand* … the sin be upon the heads of the parents, [[D&C 68.25|D&C 68:25]].
 
 so as to see and *understand* the things of God, [[D&C 76.12|D&C 76:12]].
 
 misery thereof, they *understand* not, [[D&C 76.48|D&C 76:48]].
 
-instructed more perfectly in ... all things ... expedient for you to *understand*, [[D&C 88.78|D&C 88:78]].
+instructed more perfectly in … all things … expedient for you to *understand*, [[D&C 88.78|D&C 88:78]].
 
 that you may *understand* and know how to worship, [[D&C 93.19|D&C 93:19]].

@@ -1,5 +1,7 @@
 # “Bishop, Help!”
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -59,8 +61,3 @@ I testify of the Lord Jesus Christ, whose Church this is and whose servants they
 
 
 
-
-
-
-
-#Bishops #Church_Leaders #Home_Teaching #Jesus_Christ #Self-Reliance #Visiting_Teaching

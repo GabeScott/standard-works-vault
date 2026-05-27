@@ -1,6 +1,8 @@
 # The Priesthood: A Royal Army
 
-By President N. Eldon Tanner - *Second Counselor in the First Presidency*
+Wilford G. Edling
+
+By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -66,15 +68,10 @@ Young men, wherever we are, with whomever we are, let us remember that we are so
 
 I would like to bear my testimony to you this night that I know the gospel is true. I know it’s true as well as I know anything else in the world. I know that God lives, that Jesus is the Christ, his Son, and that they appeared to Joseph Smith; that the gospel has been restored and the Church reestablished here upon the earth. I should like to say to you young men who feel that you might not have a testimony of the gospel, accept the convincing testimonies that you have heard this night and that you hear from our leaders, while at the same time, through prayer and study and keeping the commandments, you will gain a testimony for yourselves, the greatest blessing one can enjoy.
 
-“… this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].)
+“… this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.” ([[John 17.3|John 17:3]].)
 
 May we honor our priesthood and enjoy the blessings that it affords and do our part to help in bringing to pass the immortality and eternal life of man, I humbly pray, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Example #Priesthood

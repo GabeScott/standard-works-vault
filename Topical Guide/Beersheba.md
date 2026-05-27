@@ -1,4 +1,3 @@
 # Beersheba
 
-
-*See* [BD Beersheba](https://www.churchofjesuschrist.org/study/scriptures/bd/beersheba?lang=eng)
+*See also* [[BD Beersheba.md|BD Beersheba]]

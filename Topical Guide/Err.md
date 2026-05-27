@@ -1,17 +1,16 @@
 # Err
 
-
-*See also* [[Repent, Repentance.md|Repent]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress]]; [[Wander, Wanderer.md|Wander]]
+*See also* [[Repent.md|Repent]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]; [[Wander.md|Wander]]
 
 concerning his ignorance wherein he *erred*, [[Leviticus 5.18|Leviticus 5:18]].
 
 if ye have *erred*, and not observed, [[Numbers 15.22|Numbers 15:22]].
 
-Manasseh made Judah ... to *err*, [[2 Chronicles 33.9|2 Chronicles 33:9]].
+Manasseh made Judah … to *err*, [[2 Chronicles 33.9|2 Chronicles 33:9]].
 
 people that do *err* in their heart, [[Psalms 95.10|Psalms 95:10]] ([[Hebrews 3.10|Hebrews 3:10]]).
 
-proud ... do *err* from thy commandments, [[Psalms 119.21|Psalms 119:21]].
+proud … do *err* from thy commandments, [[Psalms 119.21|Psalms 119:21]].
 
 I *erred* not from thy precepts, [[Psalms 119.110|Psalms 119:110]].
 
@@ -49,4 +48,4 @@ many instances they do *err*, [[2 Nephi 28.14|2 Nephi 28:14]].
 
 inasmuch as they *erred* it might be made known, [[D&C 1.25|D&C 1:25]].
 
-they *err* ... because of priestcrafts, [[D&C 33.4|D&C 33:4]].
+they *err* … because of priestcrafts, [[D&C 33.4|D&C 33:4]].

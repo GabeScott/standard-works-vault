@@ -1,7 +1,6 @@
 # Earth
 
-
-*See also* [[Astronomy.md|Astronomy]]; [[Creation, Create.md|Creation]]; [[Dust.md|Dust]]; [[God, Works of.md|God, Works of]]; [[Ground.md|Ground]]; [[Land.md|Land]]; [[Nature, Earth.md|Nature, Earth]]; [[World.md|World]]
+*See also* [[Astronomy.md|Astronomy]]; [[Creation.md|Creation]]; [[Dust.md|Dust]]; [[God, Works of.md|God, Works of]]; [[Ground.md|Ground]]; [[Land.md|Land]]; [[Nature, Earth.md|Nature, Earth]]; [[World.md|World]]
 
 God called the dry land *Earth*, [[Genesis 1.10|Genesis 1:10]] ([[Moses 2.10|Moses 2:10]]).
 
@@ -11,7 +10,7 @@ While the *earth* remaineth, [[Genesis 8.22|Genesis 8:22]].
 
 be declared throughout all the *earth*, [[Exodus 9.16|Exodus 9:16]] ([[Romans 9.17|Romans 9:17]]).
 
-the *earth* is the Lord's, [[Exodus 9.29|Exodus 9:29]] ([[Psalms 24.1|Psalms 24:1]]; [[1 Corinthians 10.26|1 Corinthians 10:26]]).
+the *earth* is the Lord’s, [[Exodus 9.29|Exodus 9:29]] ([[Psalms 24.1|Psalms 24:1]]; [[1 Corinthians 10.26|1 Corinthians 10:26]]).
 
 *earth* open her mouth, and swallow them up, [[Numbers 16.30|Numbers 16:30]].
 
@@ -77,15 +76,15 @@ first man is of the *earth*, earthy, [[1 Corinthians 15.47|1 Corinthians 15:47]]
 
 things in *earth*, and things under the *earth*, [[Philippians 2.10|Philippians 2:10]].
 
-Set your affection ... not on things on the *earth*, [[Colossians 3.2|Colossians 3:2]].
+Set your affection … not on things on the *earth*, [[Colossians 3.2|Colossians 3:2]].
 
-*earth* ... receiveth blessing from God, [[Hebrews 6.7|Hebrews 6:7]].
+*earth* … receiveth blessing from God, [[Hebrews 6.7|Hebrews 6:7]].
 
 three that bear witness in *earth*, [[1 John 5.8|1 John 5:8]].
 
 we shall reign on the *earth*, [[Revelation 5.10|Revelation 5:10]].
 
-power was given ... to take peace from the *earth*, [[Revelation 6.4|Revelation 6:4]].
+power was given … to take peace from the *earth*, [[Revelation 6.4|Revelation 6:4]].
 
 Hurt not the *earth*, [[Revelation 7.3|Revelation 7:3]].
 
@@ -95,15 +94,15 @@ God over all the *earth*, [[1 Nephi 11.6|1 Nephi 11:6]] ([[3 Nephi 11.14|3 Nephi
 
 I rule in the heavens above and in the *earth* beneath, [[2 Nephi 29.7|2 Nephi 29:7]].
 
-God ... able to command the *earth*, [[Jacob 4.9|Jacob 4:9]].
+God … able to command the *earth*, [[Jacob 4.9|Jacob 4:9]].
 
-if he say unto the *earth* —Thou shalt go back, [[Helaman 12.14|Helaman 12:14]].
+if he say unto the *earth*—Thou shalt go back, [[Helaman 12.14|Helaman 12:14]].
 
 *earth* that moveth and not the sun, [[Helaman 12.15|Helaman 12:15]].
 
 *earth* became deformed, because of the tempests, [[3 Nephi 8.17|3 Nephi 8:17]].
 
-I ... created the heavens and the *earth*, [[D&C 14.9|D&C 14:9]].
+I … created the heavens and the *earth*, [[D&C 14.9|D&C 14:9]].
 
 mine arm is over all the *earth*, [[D&C 15.2|D&C 15:2]].
 

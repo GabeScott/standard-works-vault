@@ -1,6 +1,5 @@
 # God, Body of, Corporeal Nature
 
-
 *See also* [[Man, a Spirit Child of Heavenly Father.md|Man, a Spirit Child of Heavenly Father]]; [[Man, Physical Creation of.md|Man, Physical Creation of]]
 
 God created man in his own *image*, [[Genesis 1.27|Genesis 1:27]] ([[Moses 2.27|Moses 2:27]]).
@@ -41,7 +40,7 @@ Christ, who is the *image* of God, [[2 Corinthians 4.4|2 Corinthians 4:4]].
 
 Who, being in the *form* of God, [[Philippians 2.6|Philippians 2:6]].
 
-our vile body ... fashioned like unto his glorious *body*, [[Philippians 3.21|Philippians 3:21]].
+our vile body … fashioned like unto his glorious *body*, [[Philippians 3.21|Philippians 3:21]].
 
 Who is the *image* of the invisible God, [[Colossians 1.15|Colossians 1:15]].
 
@@ -59,16 +58,14 @@ he created man, male and female, after his own *image*, [[D&C 20.18|D&C 20:18]].
 
 His *eyes* were as a flame of fire, [[D&C 110.3|D&C 110:3]].
 
-Savior shall appear ... see that he is a *man* like ourselves, [[D&C 130.1|D&C 130:1]].
+Savior shall appear … see that he is a *man* like ourselves, [[D&C 130.1|D&C 130:1]].
 
 Father has a *body* of flesh and bones, [[D&C 130.22|D&C 130:22]].
 
 Thou art after the *similitude* of mine Only Begotten, [[Moses 1.16|Moses 1:16]].
 
-In the image of his own *body* ... created he them, [[Moses 6.9|Moses 6:9]].
+In the image of his own *body* … created he them, [[Moses 6.9|Moses 6:9]].
 
 Abraham, talked with the Lord, face to *face*, [[Abraham 3.11|Abraham 3:11]].
 
 Gods went down to organize man in their own *image*, [[Abraham 4.27|Abraham 4:27]].
-
-*See also* [[Genesis 33.10|Genesis 33:10]]; [[Deuteronomy 4.28|Deuteronomy 4:28]]; [[Acts 17.29|Acts 17:29]]; [[Colossians 3.10|Colossians 3:10]].

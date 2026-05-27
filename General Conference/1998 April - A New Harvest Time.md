@@ -1,5 +1,7 @@
 # A New Harvest Time
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -117,7 +119,7 @@ My grandfather’s watch reminds me that our grandparents watch—and wait—for
 
 [^19]: It also served to help minimize duplication of sacred ordinances. See *Hearts Turned to the Fathers,* 304–9. The department began processing names through TempleReady™ in May 1991.
 
-[^20]: In Conference Report, Oct. 1990, 6–7; or *Ensign,* Nov. 1990, 5–7.
+[^20]: In Conference Report, Oct. 1990, [[1990 October - Redemption - The Harvest of Love.md|6–7]]; or *Ensign,* Nov. 1990, 5–7.
 
 [^21]: More than 50,000 members have sown seeds of labor in the Family Record Extraction Program (FREP). See *Hearts Turned to the Fathers,* 314–17.
 
@@ -141,8 +143,3 @@ My grandfather’s watch reminds me that our grandparents watch—and wait—for
 
 [^31]: Including smaller temples more readily available to many members.
 
-
-
-
-
-#Family #Family_History #Priesthood #Temple_Work

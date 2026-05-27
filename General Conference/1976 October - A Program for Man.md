@@ -1,6 +1,8 @@
 # A Program for Man
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -76,8 +78,3 @@ I know this is true, and I bear this testimony to you, my beloved brothers and s
 
 
 
-
-
-
-
-#Faith #Obedience

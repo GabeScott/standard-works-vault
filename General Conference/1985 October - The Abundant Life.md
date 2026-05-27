@@ -1,5 +1,7 @@
 # The Abundant Life
 
+Gordon B. Hinckley
+
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -8,11 +10,11 @@ By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 My message this morning concerns the search for the abundant life. Without wishing to give any offense, I would sincerely like to try and relate this search to everyone, including those Church members and others who consider themselves to be “loving critics” of the Church. I do so, not out of fear that any criticism or opposition might injure the Church, but rather out of a sincere spiritual concern for the critics themselves. Criticism can be helpful if it is properly motivated and if it reaches those who make the decisions, but it is often a symptom of a problem with which the critics themselves are struggling. I believe those who find fault would be surprised at how often the leadership of the Church prays for them. It is in that spirit I would like to speak today.
 
-President Gordon B. Hinckley reminded us, “As a Church, we encourage gospel scholarship and the search to understand all truth. Fundamental to our theology is belief in individual freedom of inquiry, thought, and expression. Constructive discussion is a privilege of every Latter-day Saint.” (*Ensign,* Sept. 1985, p. 5.)
+President Gordon B. Hinckley reminded us, “As a Church, we encourage gospel scholarship and the search to understand all truth. Fundamental to our theology is belief in individual freedom of inquiry, thought, and expression. Constructive discussion is a privilege of every Latter-day Saint.” (*Ensign,* Sept. 1985, p. 5.)
 
 The Savior said, “I am come that they might have life, and that they might have it more abundantly.” ([[John 10.10|John 10:10]].) How is the abundant life to be obtained? The abundant life involves an endless search for knowledge, light, and truth. President Hugh B. Brown said: “God desires that we learn and continue to learn, but this involves some unlearning. As Uncle Zeke said: ‘It ain’t my ignorance that done me up but what I know’d that wasn’t so.’ The ultimate evil is the closing of the mind or steeling it against truth, resulting in the hardening of intellectual arteries.” (Baccalaureate address, Utah State University, Logan, Utah, 4 June 1965.)
 
-We gain knowledge from two sources. One is the divine and the other is secular. Rex E. Lee has referred to them as the “rational process and the extrarational process.” (In *Brigham Young University 1981–1982 Fireside and Devotional Speeches,* Provo: Brigham Young University, 1982, p. 131.) We are all more familiar with the rational process that we learned in school and through lifelong study. The extrarational, or divine source, is less common. This source is, however, more sure. Both sources may be available to us. Fortunately, we do not have to choose one to the exclusion of the other. Brother Lee continues, “We should feel equally at home in the academy and in the temple. We should regard each as a center of learning.” (*Speeches,* p. 132.)
+We gain knowledge from two sources. One is the divine and the other is secular. Rex E. Lee has referred to them as the “rational process and the extrarational process.” (In *Brigham Young University 1981–1982 Fireside and Devotional Speeches,* Provo: Brigham Young University, 1982, p. 131.) We are all more familiar with the rational process that we learned in school and through lifelong study. The extrarational, or divine source, is less common. This source is, however, more sure. Both sources may be available to us. Fortunately, we do not have to choose one to the exclusion of the other. Brother Lee continues, “We should feel equally at home in the academy and in the temple. We should regard each as a center of learning.” (*Speeches,* p. 132.)
 
 We are apparently part of an expanding universe. Secular knowledge is expanding very rapidly. Our knowledge of gospel truth is also expanding. Prophets continue to speak. Increased understanding of the scriptures is also possible. And so the opportunities for the abundant life increase as we pursue the quest for truth and knowledge.
 
@@ -54,11 +56,11 @@ Who is to declare the doctrine of the Church? It is well established by revelati
 
 “In the exercise of their functions and delegated powers they are controlled by a constitution, a part of which is written and a part of which is not. The written part consists in authenticated scripture, ancient and modern, and in the recorded utterances of our latter-day prophets. The unwritten part is the spirit of revelation and divine inspiration which are pertinent to their calling.
 
-“In formulating their interpretations and decisions they always confer with the Council of the Twelve Apostles who by revelation are appointed to assist and act with them in the government of the Church. When, therefore, a judgment is reached and proclaimed by these officers, it becomes binding upon all members of the Church, individual views to the contrary notwithstanding. God’s Kingdom is a kingdom of law and order.” (In Conference Report, Oct. 1938, pp. 115–16.)
+“In formulating their interpretations and decisions they always confer with the Council of the Twelve Apostles who by revelation are appointed to assist and act with them in the government of the Church. When, therefore, a judgment is reached and proclaimed by these officers, it becomes binding upon all members of the Church, individual views to the contrary notwithstanding. God’s Kingdom is a kingdom of law and order.” (In Conference Report, Oct. 1938, pp. 115–16.)
 
 We do not wish any who have questions to prove that they are sincere in their feelings by leaving the Church. That is not what we want. We hope that their sincerity would be manifested rather by building upon those feelings that have kept them in the Church. Their faith can be strengthened by following their intuitive judgment and the purest and noblest feelings of their own souls. By looking to a source higher than themselves, they can receive answers to their questions from the divine source. If there have been some mistakes, there is a way back. The doors are wide open; welcoming arms are outstretched. There is a place for all; there is a contribution for each to make.
 
-In the spirit of Wilford Woodruff’s letter to Lyman Wight, an Apostle who became separated from the leadership of the Church, we say to all: “Come home to Zion, mingle in our midst, confess and forsake your sins, and do right, as … all men have to do, in order to enjoy the favor of God, and the gift of the Holy Ghost, and have fellowship with the Saints. … We all feel interested in your welfare; you have no enemies here; the longer you stay away from us, the more alienated your feelings become.” (Quoted in Ronald G. Watt, “A Dialogue between Wilford Woodruff and Lyman Wight,” *Brigham Young University Studies,* Autumn 1976, p. 113.)
+In the spirit of Wilford Woodruff’s letter to Lyman Wight, an Apostle who became separated from the leadership of the Church, we say to all: “Come home to Zion, mingle in our midst, confess and forsake your sins, and do right, as … all men have to do, in order to enjoy the favor of God, and the gift of the Holy Ghost, and have fellowship with the Saints. … We all feel interested in your welfare; you have no enemies here; the longer you stay away from us, the more alienated your feelings become.” (Quoted in Ronald G. Watt, “A Dialogue between Wilford Woodruff and Lyman Wight,” *Brigham Young University Studies,* Autumn 1976, p. 113.)
 
 The leadership of the Church will continue to pray for its critics, its enemies, and those who seek to do it harm.
 
@@ -67,8 +69,3 @@ I believe that few things in life deserve one’s complete confidence. I testify
 
 
 
-
-
-
-
-#Criticism

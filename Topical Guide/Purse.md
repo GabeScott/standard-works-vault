@@ -1,6 +1,5 @@
 # Purse
 
-
 let us all have one *purse*, [[Proverbs 1.14|Proverbs 1:14]].
 
 Provide neither gold, nor silver, nor brass in your *purses*, [[Matthew 10.9|Matthew 10:9]].

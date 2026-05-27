@@ -1,5 +1,7 @@
 # Two Principles for Any Economy
 
+Thomas S. Monson
+
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -12,7 +14,7 @@ In our travels visiting Church members throughout the world and by means of esta
 
 Brethren, we do feel very close to you. We love you, and we pray always for you. I have seen enough ups and downs throughout my life to know that winter will surely give way to the warmth and hope of a new spring. I am optimistic about the future. Brethren, for our part, we must remain steadfast in hope, work with all our strength, and trust in God.
 
-Lately I have been thinking of a time in my life when the weight of worry and concern over an uncertain future seemed ever present. I was 11 years old and living with my family in the attic of a farmhouse near Frankfurt, Germany. We were refugees for the second time in a period of only a few years, and we were struggling to establish ourselves in a new place far away from our previous home. I could say that we were poor, but that would be an understatement. We all slept in one room that was so tiny there was scarcely space to walk around the beds. In the other small room, we had a few pieces of modest furniture and a stove that Mother used to cook meals on. To get from one room to the other, we had to pass through a storage area where the farmer kept his equipment and tools, along with assorted meats and sausages hanging from the rafters. The aroma always made me very hungry. We had no bathroom, but we did have an outhouse—down the stairs and some 50 feet (15 m) away, though it seemed much farther during wintertime.
+Lately I have been thinking of a time in my life when the weight of worry and concern over an uncertain future seemed ever present. I was 11 years old and living with my family in the attic of a farmhouse near Frankfurt, Germany. We were refugees for the second time in a period of only a few years, and we were struggling to establish ourselves in a new place far away from our previous home. I could say that we were poor, but that would be an understatement. We all slept in one room that was so tiny there was scarcely space to walk around the beds. In the other small room, we had a few pieces of modest furniture and a stove that Mother used to cook meals on. To get from one room to the other, we had to pass through a storage area where the farmer kept his equipment and tools, along with assorted meats and sausages hanging from the rafters. The aroma always made me very hungry. We had no bathroom, but we did have an outhouse—down the stairs and some 50 feet (15 m) away, though it seemed much farther during wintertime.
 
 Because I was a refugee and because of my East German accent, other children often made fun of me and called me names that deeply hurt. Of all the times of my youth, I believe this may have been the most discouraging.
 
@@ -22,7 +24,7 @@ Knowing that some of you are experiencing your own periods of anxiety and despai
 
 ## The First Principle: Work
 
-To this day, I am deeply impressed by the way my family worked after having lost everything following World War II! I remember my father—a civil servant by education and experience—taking on several difficult jobs, among which were coal miner, uranium miner, mechanic, and truck driver. He left early in the morning and often returned late at night in order to support our family. My mother started a laundry and worked countless hours doing menial labor. She enlisted my sister and me in her business. With my bike I became the pickup and delivery service. It felt good to be able to help the family in a small way, and though I did not know it at the time, the physical labor turned out to be a blessing to my health as well.
+To this day, I am deeply impressed by the way my family worked after having lost everything following World War II! I remember my father—a civil servant by education and experience—taking on several difficult jobs, among which were coal miner, uranium miner, mechanic, and truck driver. He left early in the morning and often returned late at night in order to support our family. My mother started a laundry and worked countless hours doing menial labor. She enlisted my sister and me in her business. With my bike I became the pickup and delivery service. It felt good to be able to help the family in a small way, and though I did not know it at the time, the physical labor turned out to be a blessing to my health as well.
 
 It wasn’t easy, but the work kept us from dwelling too much on the difficulties of our circumstances. Although our situation didn’t change overnight, it did change. That’s the thing about work. If we simply keep at it—steady and constant—things certainly will improve.
 
@@ -32,7 +34,7 @@ The Lord doesn’t expect us to work harder than we are able. He doesn’t (nor 
 
 Work is an antidote for anxiety, an ointment for sorrow, and a doorway to possibility. Whatever our circumstances in life, my dear brethren, let us do the best we can and cultivate a reputation for excellence in all that we do. Let us set our minds and bodies to the glorious opportunity for work that each new day presents.
 
-When our wagon gets stuck in the mud, God is much more likely to assist the man who gets out to push than the man who merely raises his voice in prayer—no matter how eloquent the oration. President Thomas S. Monson put it this way: “It is not enough to *want to* make the effort and to *say* we’ll make the effort. … It’s in the *doing,* not just the *thinking,* that we accomplish our goals. If we constantly put our goals off, we will never see them fulfilled.”[^4]
+When our wagon gets stuck in the mud, God is much more likely to assist the man who gets out to push than the man who merely raises his voice in prayer—no matter how eloquent the oration. President Thomas S. Monson put it this way: “It is not enough to *want to* make the effort and to *say* we’ll make the effort. … It’s in the *doing,* not just the *thinking,* that we accomplish our goals. If we constantly put our goals off, we will never see them fulfilled.”[^4]
 
 Work can be ennobling and fulfilling, but remember Jacob’s warning not to “spend … your labor for that which cannot satisfy.”[^5] If we devote ourselves to the pursuit of worldly wealth and the glitter of public recognition at the expense of our families and our spiritual growth, we will discover soon enough that we have made a fool’s bargain. The righteous work we do within the walls of our homes is most sacred; its benefits are eternal in nature. It cannot be delegated. It is the foundation of our work as priesthood holders.
 
@@ -77,13 +79,13 @@ I pray that during the coming months and years we can fill our hours and days wi
 
 [^3]: [[D&C 31.5|D&C 31:5]].
 
-[^4]: Thomas S. Monson, in Conference Report, Oct. 2007, 63–64; or *Ensign,* Nov. 2007, 59; italics in original.
+[^4]: Thomas S. Monson, in Conference Report, Oct. 2007, [[2007 October - A Royal Priesthood.md|63–64]]; or *Ensign,* Nov. 2007, 59; italics in original.
 
-[^5]: [[2 Nephi 9.51|2 Nephi 9:51]].
+[^5]: [[2 Nephi 9.51|2 Nephi 9:51]].
 
 [^6]: See [[D&C 88.79|D&C 88:79–80]][[D&C 88.80|]].
 
-[^7]: See Dean C. Jessee, Mark Ashurst-McGee, and Richard L. Jensen, eds., *Journals, Volume 1: 1832–1839,* vol. 1 of the Journals series of *The Joseph Smith Papers,* ed. Dean C. Jessee, Ronald K. Esplin, and Richard Lyman Bushman (2008), 84, 135, 164.
+[^7]: See Dean C. Jessee, Mark Ashurst-McGee, and Richard L. Jensen, eds., *Journals, Volume 1: 1832–1839,* vol. 1 of the Journals series of *The Joseph Smith Papers,* ed. Dean C. Jessee, Ronald K. Esplin, and Richard Lyman Bushman (2008), 84, 135, 164.
 
 [^8]: Joseph Smith, in *History of the Church,* 4:588.
 
@@ -101,8 +103,3 @@ I pray that during the coming months and years we can fill our hours and days wi
 
 [^15]: See [[D&C 42.61|D&C 42:61]].
 
-
-
-
-
-#Education #Endurance #Work

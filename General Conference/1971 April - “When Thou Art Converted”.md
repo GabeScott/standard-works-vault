@@ -1,12 +1,14 @@
 # “When Thou Art Converted”
 
-By President S. Dilworth Young - *Of the First Council of the Seventy*
+Joseph Fielding Smith
+
+By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/04/when-thou-art-converted?lang=eng)
 
-“… and when thou art converted, strengthen thy brethren.” So said the Lord to Peter as he prepared himself and his apostles for his great sacrifice. This statement might have startled Peter. Certainly it pricked him, for he said, “Lord, I am ready to go with thee, both into prison, and to death.” Then the Lord told Peter that “the cock shall not crow this day, before that thou shalt thrice deny that thou knowest me.” ([[Luke 22.32|Luke 22:32–34]][[Luke 22.33|]][[Luke 22.34|]].)
+“… and when thou art converted, strengthen thy brethren.” So said the Lord to Peter as he prepared himself and his apostles for his great sacrifice. This statement might have startled Peter. Certainly it pricked him, for he said, “Lord, I am ready to go with thee, both into prison, and to death.” Then the Lord told Peter that “the cock shall not crow this day, before that thou shalt thrice deny that thou knowest me.” ([[Luke 22.32|Luke 22:32–34]][[Luke 22.33|]][[Luke 22.34|]].)
 
 Mark records that Peter’s vehement declaration of devotion was echoed by the remainder of the apostles in these words: “Likewise also said they all.” ([[Mark 14.31|Mark 14:31]].) Yet when the moment came and a maid accused Peter of being a disciple, he denied the acquaintance. The remaining ten, likewise, despite their own declarations, did not do as they had declared they would do.
 
@@ -53,8 +55,3 @@ I know, too, that Jesus Christ the Lord leads this latter-day work and that he l
 
 
 
-
-
-
-
-#Conversion #Missionary_Work #Quorums_Of_Seventy

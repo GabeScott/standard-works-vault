@@ -1,6 +1,8 @@
 # “Who Hath Believed Our Report?”
 
-By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
+Gordon B. Hinckley
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -84,7 +86,7 @@ It was Paul who said:
 
 “And how shall they preach, except they be sent?” ([[Romans 10.13|Rom. 10:13–14]][[Romans 10.14|]].)
 
-Truly “faith cometh by hearing” the word of God taught by a legal administrator who has been called of God. ([[Romans 10.17|Rom. 10:17]].) And as it was anciently, so it is today—it pleases “God by the foolishness of preaching to save them that believe.” ([[1 Corinthians 1.21|1 Cor. 1:21]].)
+Truly “faith cometh by hearing” the word of God taught by a legal administrator who has been called of God. ([[Romans 10.17|Rom. 10:17]].) And as it was anciently, so it is today—it pleases “God by the foolishness of preaching to save them that believe.” ([[1 Corinthians 1.21|1 Cor. 1:21]].)
 
 Our message is one of joy and rejoicing and glory and honor and triumph. True believers always rejoice in Christ and in his gospel.
 
@@ -120,7 +122,7 @@ We invite all men of all sects, parties, and denominations to ponder such questi
 
 Do I hunger and thirst after righteousness as did the Saints of old? (See [[Matthew 5.6|Matt. 5:6]].)
 
-Do I have an open mind and a willingness to prove all things and hold fast to that which is good? (See [[1 Thessalonians 5.21|1 Thes. 5:21]].)
+Do I have an open mind and a willingness to prove all things and hold fast to that which is good? (See [[1 Thessalonians 5.21|1 Thes. 5:21]].)
 
 Am I willing to receive new light and truth from heaven, light and truth that comes from a gracious God in whose sight a soul is just as precious now as it ever was?
 
@@ -135,8 +137,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Jesus_Christ #Restoration

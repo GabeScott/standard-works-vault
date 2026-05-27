@@ -1,5 +1,7 @@
 # Rescue in Unity
 
+Thomas S. Monson
+
 By Elder Chi Hong (Sam) Wong - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
@@ -8,7 +10,7 @@ By Elder Chi Hong (Sam) Wong - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2014/10/rescue-in-unity?lang=eng)
 
-We often hear President Thomas S. Monson say, “Reach out to rescue.”[^1] An account in the New Testament comes to my mind. It is a perfect illustration of how members and missionaries can work together in unity through ward councils to reach out and rescue. The story is found in [[Mark 2.1|Mark 2:1–5]][[Mark 2.2|]][[Mark 2.3|]][[Mark 2.4|]][[Mark 2.5|]]. I find that the experiences Jesus used to teach us certain doctrines or principles are always most inspiring and easy to understand.
+We often hear President Thomas S. Monson say, “Reach out to rescue.”[^1] An account in the New Testament comes to my mind. It is a perfect illustration of how members and missionaries can work together in unity through ward councils to reach out and rescue. The story is found in [[Mark 2.1|Mark 2:1–5]][[Mark 2.2|]][[Mark 2.3|]][[Mark 2.4|]][[Mark 2.5|]]. I find that the experiences Jesus used to teach us certain doctrines or principles are always most inspiring and easy to understand.
 
 One of the characters in this account is a man with palsy, someone who was not able to move without assistance. This man could only stay home, waiting for rescue.
 
@@ -43,7 +45,5 @@ I testify that Jesus Christ is a God of miracles. Jesus Christ loves us all and 
 
 
 
+[^1]: See, for example, Thomas S. Monson, “[Our Responsibility to Rescue](https://www.churchofjesuschrist.org/study/ensign/2013/10/our-responsibility-to-rescue?lang=eng),” *Ensign* or *Liahona,* Oct. 2013, 5.
 
-
-
-#Activation #Councils #Faith #Jesus_Christ #Unity

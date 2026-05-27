@@ -1,5 +1,7 @@
 # Finding Joy in Life
 
+James E. Faust
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1996 General Conference*
@@ -32,7 +34,7 @@ Simple, rejuvenating experiences surround us. They can be safety valves to keep 
 
 Find the compensatory blessings in your life when, in the wisdom of the Lord, He deprives you of something you very much want. To the sightless or hearing impaired, He sharpens the other senses. To the ill, He gives patience, understanding, and increased appreciation for others’ kindness. With the loss of a dear one, He deepens the bonds of love, enriches memories, and kindles hope in a future reunion. You will discover compensatory blessings when you willingly accept the will of the Lord and exercise faith in Him.[^6]
 
-To the afflicted people of Alma, the Lord said: “I will also ease the burdens … that even you cannot feel them upon your backs … ; and this will I do that ye may stand as witnesses for me hereafter, and that ye may know of a surety that I, the Lord God, do visit my people in their afflictions.
+To the afflicted people of Alma, the Lord said: “I will also ease the burdens … that even you cannot feel them upon your backs … ; and this will I do that ye may stand as witnesses for me hereafter, and that ye may know of a surety that I, the Lord God, do visit my people in their afflictions.
 
 “And … the burdens … were made light; yea, the Lord did strengthen them that they could bear up their burdens with ease, and they did submit cheerfully and with patience to all the will of the Lord.”[^7]
 
@@ -79,13 +81,13 @@ Thank your Father in Heaven and His Beloved Son for the plan of happiness and th
 
 
 
-[^1]: [[2 Nephi 2.25|2 Ne. 2:25]].
+[^1]: [[2 Nephi 2.25|2 Ne. 2:25]].
 
 [^2]: See [[Abraham 3.25|Abr. 3:25]].
 
 [^3]: See [[Mosiah 3.19|Mosiah 3:19]].
 
-[^4]: See [[1 Nephi 3.7|1 Ne. 3:7]].
+[^4]: See [[1 Nephi 3.7|1 Ne. 3:7]].
 
 [^5]: See [[D&C 58.26|D&C 58:26–32]][[D&C 58.27|]][[D&C 58.28|]][[D&C 58.29|]][[D&C 58.30|]][[D&C 58.31|]][[D&C 58.32|]].
 
@@ -101,8 +103,3 @@ Thank your Father in Heaven and His Beloved Son for the plan of happiness and th
 
 [^11]: See Joseph F. Smith, *Gospel Doctrine,* 5th ed. (1939), 177.
 
-
-
-
-
-#Adversity #Agency #Blessings #Children #Faith #Gratitude #Jesus_Christ #Joy #Prayer #Prophets #Repentance #Scriptures #Service #Talents #Temples

@@ -1,6 +1,8 @@
 # The Family-Centered Gospel of Jesus Christ
 
-By President Dallin H. Oaks - *President of the Quorum of the Twelve Apostles*
+Dallin H. Oaks
+
+By President Dallin H. Oaks - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -14,13 +16,13 @@ My loving brothers and sisters, thank you for your prayers on my behalf. I have 
 
 The doctrine of The Church of Jesus Christ of Latter-day Saints centers on the family. Essential to our doctrine on the family is the temple. The ordinances received there enable us to return as eternal families to the presence of our Heavenly Father.
 
-As of the April 2025 general conference, President Russell M. Nelson had announced the construction of 200 new temples. He loved to announce new temples at the conclusion of each general conference, and we all rejoiced with him. However, with the large number of temples now in the very earliest phases of planning and construction, it is appropriate that we slow down the announcement of new temples. Therefore, with the approval of the Quorum of the Twelve Apostles, we will not announce any new temples at this conference. We will now move forward in providing the ordinances of the temple to members of the Church throughout the world, including when and where to announce the construction of new temples.
+As of the April 2025 general conference, President Russell M. Nelson had announced the construction of 200 new temples. He loved to announce new temples at the conclusion of each general conference, and we all rejoiced with him. However, with the large number of temples now in the very earliest phases of planning and construction, it is appropriate that we slow down the announcement of new temples. Therefore, with the approval of the Quorum of the Twelve Apostles, we will not announce any new temples at this conference. We will now move forward in providing the ordinances of the temple to members of the Church throughout the world, including when and where to announce the construction of new temples.
 
-The portion of my talk that I have just delivered was written after the death of our beloved President Russell M. Nelson. What now follows was written and approved weeks before, but it still represents my teachings, inspired by the Lord.
+The portion of my talk that I have just delivered was written after the death of our beloved President Russell M. Nelson. What now follows was written and approved weeks before, but it still represents my teachings, inspired by the Lord.
 
 ## II.
 
-The [family proclamation](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng), announced 30 years ago, declares that “the family is ordained of God” and “is central to the Creator’s plan for the eternal destiny of His children.” It also declares “that God’s commandment for His children to multiply and replenish the earth remains in force.” And “we further declare that God has commanded that the sacred powers of procreation are to be employed only between man and woman, lawfully wedded as husband and wife.”[^1] As then-Elder Russell M. Nelson taught a Brigham Young University audience, the family is “pivotal to God’s plan. … In fact, a purpose of the plan is to exalt the family.”[^2]
+The [family proclamation](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng), announced 30 years ago, declares that “the family is ordained of God” and “is central to the Creator’s plan for the eternal destiny of His children.” It also declares “that God’s commandment for His children to multiply and replenish the earth remains in force.” And “we further declare that God has commanded that the sacred powers of procreation are to be employed only between man and woman, lawfully wedded as husband and wife.”[^1] As then-Elder Russell M. Nelson taught a Brigham Young University audience, the family is “pivotal to God’s plan. … In fact, a purpose of the plan is to exalt the family.”[^2]
 
 The Church of Jesus Christ is sometimes known as a family-centered church. It is! Our relationship to God and the purpose of our mortal life are explained in terms of the family. The gospel of Jesus Christ is the plan of our Heavenly Father for the benefit of His spirit children. We can truly say that the gospel plan was first taught to us in the council of an eternal family, it is implemented through our mortal families, and its intended destiny is to exalt the children of God in eternal families.
 
@@ -40,7 +42,7 @@ As parental influences diminish, Latter-day Saints still have a God-given respon
 
 My father died when I was seven years old, so my younger brother and sister and I were raised by a widowed mother. In the most difficult of situations, she pressed on. She was alone and broken, but with the Lord’s help, her powerful teaching of the doctrine of the restored Church guided us. How she prayed for heavenly assistance in raising her children, and she was blessed! We were raised in a happy home in which our deceased father was always a reality. She taught us that we had a father and she had a husband and we would always be a family because of their temple marriage. Our father was just away temporarily because the Lord had called him to a different work.
 
-I know that many other families are not so happy, but every single mother can teach of the love of a Heavenly Father and the eventual blessings of a temple marriage. You too can do this! Heavenly Father’s plan assures this possibility for everyone. We are all grateful for temple marriage and for the prospective blessings of being sealed as an eternal family. Like my mother, we love to quote Lehi’s promise to his son Jacob that God “shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.2|2 Nephi 2:2]]). That applies to every Latter-day Saint family, complete or currently incomplete. We are a family church.
+I know that many other families are not so happy, but every single mother can teach of the love of a Heavenly Father and the eventual blessings of a temple marriage. You too can do this! Heavenly Father’s plan assures this possibility for everyone. We are all grateful for temple marriage and for the prospective blessings of being sealed as an eternal family. Like my mother, we love to quote Lehi’s promise to his son Jacob that God “shall consecrate thine afflictions for thy gain” ([[2 Nephi 2.2|2 Nephi 2:2]]). That applies to every Latter-day Saint family, complete or currently incomplete. We are a family church.
 
 Our doctrine and our belief in eternal families strengthen and bond us. I will never forget the promise of my maternal Grandfather Harris, when we children were living on his farm near Payson, Utah. He gave me the tragic news that my father had died in faraway Denver, Colorado. I ran into the bedroom and knelt beside the bed, crying my heart out. Grandpa followed me and went to his knees beside me and said, “I will be your father.” That tender promise is a powerful example of what grandparents can do to fill in the gaps when families lose or are missing a member.
 
@@ -58,23 +60,18 @@ Parents should educate children in the basic skills of living, including working
 
 Some may say, “But we have no time for any of that.” To find time to do what is truly worthwhile, many parents will find that they can turn their family *on* if they all turn their technologies *off*. And parents, remember, *what those children really want for dinner is time with you*.
 
-Great blessings come to families if they pray together, kneeling night and morning to offer thanks for blessings and to pray over common concerns. Families are also blessed as they worship together in Church services and in other devotional settings. Family bonds are also strengthened by family stories, creating family traditions, and sharing sacred experiences. President Spencer W. Kimball reminded us that “stories of inspiration from our own lives and those of our forebears … are powerful teaching tools.”[^4] They are often the best sources of inspiration for us and our posterity.
+Great blessings come to families if they pray together, kneeling night and morning to offer thanks for blessings and to pray over common concerns. Families are also blessed as they worship together in Church services and in other devotional settings. Family bonds are also strengthened by family stories, creating family traditions, and sharing sacred experiences. President Spencer W. Kimball reminded us that “stories of inspiration from our own lives and those of our forebears … are powerful teaching tools.”[^4] They are often the best sources of inspiration for us and our posterity.
 
 I testify of the Lord Jesus Christ, who is the Only Begotten Son of God, our Eternal Father. He invites us to follow the covenant path that leads to a heavenly family reunion. The sealing powers of the priesthood, directed by the keys restored in the Kirtland Temple, bring families together for eternity (see [[D&C 110.13|Doctrine and Covenants 110:13–16]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]]). They are currently being exercised in a growing number of temples of the Lord throughout the world. This is real. Let us be part of it, I pray, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
+[^1]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” Gospel Library.
 
-[^2]: Russell M. Nelson, “[Faith and Families](https://speeches.byu.edu/talks/russell-m-nelson/faith-families)” (Brigham Young University fireside, Feb. 6, 2005), 3, speeches.byu.edu.
+[^2]: Russell M. Nelson, “[Faith and Families](https://speeches.byu.edu/talks/russell-m-nelson/faith-families)” (Brigham Young University fireside, Feb. 6, 2005), 3, speeches.byu.edu.
 
-[^3]: Russell M. Nelson, “[Open the Heavens Through Temple and Family History Work](https://churchofjesuschrist.org/study/liahona/2017/10/open-the-heavens-through-temple-and-family-history-work?lang=eng&id=p30#p30),” *Ensign*, Oct. 2017, 38; *Liahona*, Oct. 2017, 18.
+[^3]: Russell M. Nelson, “[Open the Heavens Through Temple and Family History Work](https://www.churchofjesuschrist.org/study/liahona/2017/10/open-the-heavens-through-temple-and-family-history-work?lang=eng&id=p30#p30),” *Ensign*, Oct. 2017, 38; *Liahona*, Oct. 2017, 18.
 
-[^4]: Spencer W. Kimball, “[Therefore I Was Taught,](https://churchofjesuschrist.org/study/ensign/1982/01/therefore-i-was-taught?lang=eng&id=p17#p17)” *Ensign*, Jan. 1982, 4.
+[^4]: Spencer W. Kimball, “[Therefore I Was Taught,](https://www.churchofjesuschrist.org/study/ensign/1982/01/therefore-i-was-taught?lang=eng&id=p17#p17)” *Ensign*, Jan. 1982, 4.
 
-
-
-
-
-#Children #Family #Marriage #Parents

@@ -1,5 +1,7 @@
 # My Neighbor—My Brother!
 
+Ezra Taft Benson
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1987 General Conference*
@@ -12,7 +14,7 @@ The Savior provided a penetrating, unexpected answer to the lawyer. He taught hi
 
 An unfortunate victim traveling to Jericho fell among thieves. He was robbed, beaten, and left for dead.
 
-A priest, on his way to the temple, saw him and passed by. Likewise, a Levite, who in that day assisted the priests, passed him by. To the Jews in Jesus’ day this unconcern for the victim in the parable was considered appropriate religious behavior. Their rabbinical teaching declared, “We are not to contrive the death of the Gentiles, but if they are in any danger of death we are not bound to deliver them, … for such a one is not thy neighbour” (in *A Commentary on the Holy Bible,* ed. J. R. Dummelow, New York: The Macmillan Co., 1936, p. 751).
+A priest, on his way to the temple, saw him and passed by. Likewise, a Levite, who in that day assisted the priests, passed him by. To the Jews in Jesus’ day this unconcern for the victim in the parable was considered appropriate religious behavior. Their rabbinical teaching declared, “We are not to contrive the death of the Gentiles, but if they are in any danger of death we are not bound to deliver them, … for such a one is not thy neighbour” (in *A Commentary on the Holy Bible,* ed. J. R. Dummelow, New York: The Macmillan Co., 1936, p. 751).
 
 The Samaritan, though despised by the Jews, saw the suffering victim and did three things: (1) he had compassion on him, (2) he went to him and bound up his wounds, and (3) he cared for him (see [[Luke 10.30|Luke 10:30–35]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]]).
 
@@ -32,7 +34,7 @@ Today, that call—in the spirit of “Box B”—has been extended to all young
 
 Eleven years ago, President Spencer W. Kimball announced:
 
-“We could use hundreds of couples, older people like some of you folks, whose families are reared, who have retired in their business, who are able to go and spend their own money, to teach the gospel. We could use hundreds of couples. You just go and talk to your bishop,” he continued, “that is all you need to do. Tell him, ‘We are ready to go, if you can use us.’ I think you will probably get a call” (Talk given at dedication of Fair Oaks California Stake Center, 9 October 1976, quoted in Edward L. Kimball, ed., *The Teachings of Spencer W. Kimball,* Salt Lake City: Bookcraft, 1982, p. 551).
+“We could use hundreds of couples, older people like some of you folks, whose families are reared, who have retired in their business, who are able to go and spend their own money, to teach the gospel. We could use hundreds of couples. You just go and talk to your bishop,” he continued, “that is all you need to do. Tell him, ‘We are ready to go, if you can use us.’ I think you will probably get a call” (Talk given at dedication of Fair Oaks California Stake Center, 9 October 1976, quoted in Edward L. Kimball, ed., *The Teachings of Spencer W. Kimball,* Salt Lake City: Bookcraft, 1982, p. 551).
 
 Since President Kimball made that plea, the demand has continued to increase, and today we could use not only hundreds but thousands of prepared couples.
 
@@ -86,7 +88,7 @@ But then they went on to say, “We saw vividly the conditions in which \[some o
 
 “We learned so much from the \[missionaries\]. It didn’t matter that they learned the language more quickly than we did. Seeing the joy … on their faces as they enjoyed a chocolate chip cookie was worth every effort. We represented a bit of home, a bit of something they missed.
 
-“It \[may\] sound like we did nothing but make cookies for the missionaries. Not so! … \[We worked\] with the \[local Church\] leaders in activation, teaching, music, … genealogy, and welfare. We had open house each week for the … missionaries and their investigators. We worked together. …
+“It \[may\] sound like we did nothing but make cookies for the missionaries. Not so! … \[We worked\] with the \[local Church\] leaders in activation, teaching, music, … genealogy, and welfare. We had open house each week for the … missionaries and their investigators. We worked together. …
 
 “On preparation day, \[the missionaries\] came and made cookies or cinnamon rolls. \[We\] … discussed the scriptures. When … discouraged, they came and talked about it. … How we loved them! …
 
@@ -108,7 +110,7 @@ The goal of every physically able couple in the Church, just as it is for every 
 
 Who are our neighbors? They are *all* of our Father’s children. What a blessing we can be to them as we, with mature wisdom and love, bring them the gospel of our Savior, with its eternal covenants and blessings.
 
-We invite bishops to prayerfully review possible calls with appropriate couples, who, after following our Savior’s promise to the Nephites to “pray unto the Father in my name; … believing that ye shall receive, \[and\] it shall be given unto you,” will know by the Spirit how to respond ([[3 Nephi 18.19|3 Ne. 18:19–20]][[3 Nephi 18.20|]]).
+We invite bishops to prayerfully review possible calls with appropriate couples, who, after following our Savior’s promise to the Nephites to “pray unto the Father in my name; … believing that ye shall receive, \[and\] it shall be given unto you,” will know by the Spirit how to respond ([[3 Nephi 18.19|3 Ne. 18:19–20]][[3 Nephi 18.20|]]).
 
 Great joy and fulfillment will come to you as you humbly serve in your newly expanded world of neighbors.
 
@@ -117,8 +119,3 @@ This work is divinely directed. God lives. Jesus is the Son of God. I so testify
 
 
 
-
-
-
-
-#Brotherhood #Missionary_Work #Service #Testimony

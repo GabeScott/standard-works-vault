@@ -1,5 +1,7 @@
 # I Will Strengthen Thee; I Will Help Thee
 
+Gordon B. Hinckley
+
 By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -101,8 +103,3 @@ I testify that our Lord and Savior lives. I testify that He will help us. He has
 
 [^10]: “Rejoicing in the Privilege to Serve,” *Worldwide Leadership Training Meeting,* June 21, 2003, 22.
 
-
-
-
-
-#Children #Family #Jesus_Christ #Motherhood

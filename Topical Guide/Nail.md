@@ -1,6 +1,5 @@
 # Nail
 
-
 smote the *nail* into his temples, [[Judges 4.21|Judges 4:21]].
 
 to give us a *nail* in his holy place, [[Ezra 9.8|Ezra 9:8]].

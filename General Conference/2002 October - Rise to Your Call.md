@@ -1,5 +1,7 @@
 # Rise to Your Call
 
+Gordon B. Hinckley
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -77,8 +79,3 @@ In the name of Jesus Christ, amen.
 
 [^4]: [[D&C 123.17|D&C 123:17]].
 
-
-
-
-
-#Church_Callings #Holy_Ghost #Service #Spirituality

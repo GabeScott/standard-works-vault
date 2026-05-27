@@ -1,5 +1,7 @@
 # Trust in the Lord
 
+Thomas S. Monson
+
 By Andrea Allen - *Forest Hills Ward, Brigham City Utah Stake*
 
 *Given in the April session of the 1995 General Conference*
@@ -25,8 +27,3 @@ I have a testimony of the scriptures. I know that if we “trust in the Lord” 
 
 
 
-
-
-
-
-#Scripture_Study #Trust #Young_Women

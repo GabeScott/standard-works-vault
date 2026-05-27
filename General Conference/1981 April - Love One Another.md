@@ -1,6 +1,8 @@
 # Love One Another
 
-By Elder James M. Paramore - *Of the First Quorum of the Seventy*
+Marion G. Romney
+
+By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -30,7 +32,7 @@ I had a very special experience a few years ago on an assignment to Oregon. Afte
 
 As man perceives this love, he begins to overlook the flaws that make up every mortal being and to “esteem his brother as himself.” ([[D&C 38.24|D&C 38:24]].) He lifts and desires to help him whenever and wherever he can. Man’s spirit reaches out to everyone, for now there is no enmity, no envy, no restricting philosophies, pride, or vanity—even language does not separate men—there is only an openness and oneness with the Spirit and will of God. The scriptures are beautiful and clear:
 
-“There \[will be\] no contention in the land,” “because the love of God is shed abroad in our hearts.” ([[4 Nephi 1.15|4 Ne. 1:15]], [[Romans 5.5|Rom. 5:5]].)
+“There \[will be\] no contention in the land,” “because the love of God is shed abroad in our hearts.” ([[4 Nephi 1.15|4 Ne. 1:15]], [[Romans 5.5|Rom. 5:5]].)
 
 Does this mean that those who embrace these things will be perfect? No, for they will forever be overcoming and growing. But it does mean that they will be striving toward perfection. The great prophet Moroni counseled us with a profound insight on this point when he said, “Condemn me not because of mine imperfection, neither my father … but rather give thanks unto God that he hath made manifest unto you our imperfections, that ye may learn to be more wise than we have been.” ([[Mormon 9.31|Morm. 9:31]].)
 
@@ -65,8 +67,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Love

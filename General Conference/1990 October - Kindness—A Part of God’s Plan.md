@@ -1,5 +1,7 @@
 # Kindness—A Part of God’s Plan
 
+Gordon B. Hinckley
+
 By Betty Jo Jepsen - *First Counselor, Primary General Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -18,7 +20,7 @@ The book of Mark in the New Testament tells us of the Savior’s kind attention 
 
 “And straightway the damsel arose, and walked; for she was of the age of twelve years. And they were astonished with a great astonishment.” ([[Mark 5.41|Mark 5:41–42]][[Mark 5.42|]].) And beyond this great miracle, he continued to show his concern by instructing that something should be given to her to eat.
 
-Our beloved prophet has taught us about being kind. President Ezra Taft Benson tells us that a person who is kind is sympathetic and gentle with others, is considerate of others’ feelings, is courteous in his or her behavior, and has a helpful nature. He goes on to say, “Kindness pardons others’ weaknesses and faults. Kindness is extended to all—to the aged and the young, to animals, to those low of station as well as the high.” (*Ensign,* Nov. 1986, p. 47.)
+Our beloved prophet has taught us about being kind. President Ezra Taft Benson tells us that a person who is kind is sympathetic and gentle with others, is considerate of others’ feelings, is courteous in his or her behavior, and has a helpful nature. He goes on to say, “Kindness pardons others’ weaknesses and faults. Kindness is extended to all—to the aged and the young, to animals, to those low of station as well as the high.” (*Ensign,* Nov. 1986, p. 47.)
 
 Now, you might ask, “What do the examples of Jesus and the words of the prophet mean in my life?” Jesus has shown us the pattern of God’s plan for us by his example. Our prophet, the head of the Church today, helps us learn how we can follow God’s plan and return to live with Jesus and Heavenly Father. I know it will be rare that any of us will witness such a miracle of kindness as I have shared from the scriptures. Seldom are we asked to sacrifice our safety or comfort as Jesus did when he was challenged by his enemies or when he was physically worn down. However, I truly believe we can, each in our own way, practice being kind within our own families, among our friends, in our schools, and in our communities.
 
@@ -50,7 +52,7 @@ We can learn from the honeybee. We can develop our own sort of “kindness insti
 
 There may be times when we excuse ourselves for unkindness because we are not feeling our best or our mood is not just right. It is easy to act kindly toward others when things are going well in our lives. But perhaps the real measure of our kindness comes if we can be so when we are tired, disappointed, or suffering because of an unkind deed done to us. Are we kind when all is *not* well?
 
-Jesus Christ has left us a memorable pattern to follow at all times in our lives. None of us will experience anything equal to the physical pain and the mental anguish of Jesus on the cross. Yet at that moment of his great suffering, a thief hanging beside him “railed on him.” ([[Luke 23.39|Luke 23:39]].) Jesus did not respond to him. The second thief rebuked the first and pleaded with the Savior to speak to the Father in his behalf. Jesus put aside his own suffering to console the thief. “Today shalt thou be with me in paradise” ([[Luke 23.43|Luke 23:43]]), he told the thief. It would soon be over, and he would have relief. “‘Twas a thief said the last kind word to Christ: Christ took the kindness and forgave the theft.” (Robert Browning, *Familiar Quotations,* comp. John Bartlett, Boston: Little, Brown and Co., 1980, p. 545.)
+Jesus Christ has left us a memorable pattern to follow at all times in our lives. None of us will experience anything equal to the physical pain and the mental anguish of Jesus on the cross. Yet at that moment of his great suffering, a thief hanging beside him “railed on him.” ([[Luke 23.39|Luke 23:39]].) Jesus did not respond to him. The second thief rebuked the first and pleaded with the Savior to speak to the Father in his behalf. Jesus put aside his own suffering to console the thief. “Today shalt thou be with me in paradise” ([[Luke 23.43|Luke 23:43]]), he told the thief. It would soon be over, and he would have relief. “‘Twas a thief said the last kind word to Christ: Christ took the kindness and forgave the theft.” (Robert Browning, *Familiar Quotations,* comp. John Bartlett, Boston: Little, Brown and Co., 1980, p. 545.)
 
 A touching example is the tender kindness Jesus showed his own Apostles. Close to the end of his earthly ministry, Jesus met with his Apostles, giving them the sacrament and final instructions. Jesus took a towel, poured water in a basin, and began to wash and dry the feet of the disciples. Peter, one of the disciples, said, “Thou shalt never wash my feet.” ([[John 13.8|John 13:8]].) Perhaps Peter resisted because he felt that Jesus should not stoop to perform an act of this nature. But Jesus insisted, washing the feet of all of the Apostles, even the feet of Judas, whom he knew would soon betray him. After the Savior had washed their feet, he said unto them, “Know ye what I have done to you?
 
@@ -58,21 +60,16 @@ A touching example is the tender kindness Jesus showed his own Apostles. Close t
 
 “If I then, your Lord and Master, have washed your feet; ye also ought to wash one another’s feet.
 
-“For I have given you an example, that ye should do as I have done to you. …
+“For I have given you an example, that ye should do as I have done to you. …
 
 “If ye know these things, happy are ye if ye do them.” ([[John 13.12|John 13:12–17]][[John 13.13|]][[John 13.14|]][[John 13.15|]][[John 13.16|]][[John 13.17|]].)
 
 He gave a commandment with a promise.
 
-The Savior promises to give us kindness eternally and unconditionally. “For the mountains shall depart and the hills be removed, but my kindness shall not depart from thee.” ([[3 Nephi 22.10|3 Ne. 22:10]]; see also [[Isaiah 54.10|Isa. 54:10]].) “With everlasting kindness will I have mercy on thee, saith the Lord thy Redeemer.” ([[3 Nephi 22.8|3 Ne. 22:8]]; see also [[Isaiah 5.8|Isa. 5:8]].)
+The Savior promises to give us kindness eternally and unconditionally. “For the mountains shall depart and the hills be removed, but my kindness shall not depart from thee.” ([[3 Nephi 22.10|3 Ne. 22:10]]; see also [[Isaiah 54.10|Isa. 54:10]].) “With everlasting kindness will I have mercy on thee, saith the Lord thy Redeemer.” ([[3 Nephi 22.8|3 Ne. 22:8]]; see also [[Isaiah 5.8|Isa. 5:8]].)
 
 The Merrie Miss motto is I Will Follow God’s Plan for Me. God’s plan for us includes our being kind. My challenge to you is to search for opportunities to be kind. The promise is: you will be happy. I pray that each of us will develop a desire to be kind to ourselves and to others and to continually act upon it, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Jesus_Christ #Kindness #Women #Youth

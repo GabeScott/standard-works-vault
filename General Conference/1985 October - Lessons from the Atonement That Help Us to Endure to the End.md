@@ -1,5 +1,7 @@
 # Lessons from the Atonement That Help Us to Endure to the End
 
+Gordon B. Hinckley
+
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the October session of the 1985 General Conference*
@@ -28,7 +30,7 @@ As we move closer to the atoning sacrifice in the Garden of Gethsemane, we find 
 
 And so with the love of God the Father, Jesus went to the Garden of Gethsemane. He dropped to His knees in prayer, even sweating great drops of blood. And then, as He departed to go out to see His disciples, He found them asleep. He asked, “What, could ye not watch with me one hour?” ([[Matthew 26.40|Matt. 26:40]].)
 
-How many of us are sleeping when those around us are hurting and are in need? How many of us give our testimonies of the Lord, but then do not listen, as in [[1 John 4.20|1 Jn. 4:20]], “For he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?”
+How many of us are sleeping when those around us are hurting and are in need? How many of us give our testimonies of the Lord, but then do not listen, as in [[1 John 4.20|1 Jn. 4:20]], “For he that loveth not his brother whom he hath seen, how can he love God whom he hath not seen?”
 
 He then returned to the Garden of Gethsemane and asked His Father to help Him through this experience which He had to endure. And for you and me, there is great solace, for “there appeared an angel unto him from heaven, strengthening him.” ([[Luke 22.43|Luke 22:43]].)
 
@@ -38,7 +40,7 @@ As a bishop, I have also learned from the atoning sacrifice a great lesson. In t
 
 Many lessons can be learned from the account of the Atonement. It is comforting to know that, though suffering, Jesus Christ was able to look down from the cross and be concerned for His mother, that she should be properly cared for, as He asked for the help of a disciple. This is one of the great messages we have heard this conference—that we turn some of our attention from our own trials and tribulations to concern and caring for others.
 
-Even in the closing moments of the life of Jesus a great lesson is to be learned. Jesus had cried with a loud voice, “Father, into thy hands I commend my spirit.” The verse goes on to say, “… and having said thus, he gave up the ghost.” ([[Luke 23.46|Luke 23:46]].) Jesus had endured to the end.
+Even in the closing moments of the life of Jesus a great lesson is to be learned. Jesus had cried with a loud voice, “Father, into thy hands I commend my spirit.” The verse goes on to say, “… and having said thus, he gave up the ghost.” ([[Luke 23.46|Luke 23:46]].) Jesus had endured to the end.
 
 On earth there was great sorrow, and those beholding the Crucifixion smote their breasts. However, in heaven a multitude awaited the advent of the Son of God into the spirit world to declare their redemption from the bands of death. Their sleeping dust was to be restored unto its perfect frame. The spirit and the body were to be united, never again to be divided, that they might receive a fulness of joy. While the vast multitude waited and commenced rejoicing in the hour of their deliverance from the chains of death, the Son of God appeared. He preached to them the everlasting gospel, the doctrine of the resurrection and redemption of mankind from the Fall and from individual sins on conditions of repentance. (See [[D&C 138.16|D&C 138:16–19]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]].)
 
@@ -54,7 +56,7 @@ There are times that we, as parents, must be able to cut our own children loose 
 
 Jesus taught us many lessons. But for me, one of the greatest lessons was taught after Jesus had died, and was resurrected, and came out of the sepulchre. There was Mary—she did not recognize Him at first—then upon recognizing Him, came toward Him. He said, “Touch me not; for I have not yet ascended to my Father” ([[John 20.17|John 20:17]]), knowing that He was going to return to His Father in Heaven and then come back to earth and show himself to many as a resurrected being.
 
-We started with a story from the Book of Mormon. Coming full circle back to 3 Nephi, I think of Jesus coming to the temple as a resurrected being after much devastation of the land, similar to what has happened in Mexico recently with earthquakes and rending of the land. In the account in 3 Nephi, the people who were there returned to the temple, and there the Lord came, introduced by His Father: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name.” ([[3 Nephi 11.7|3 Ne. 11:7]].) They were asked to listen to Him, and He descended among them. The most significant event is that the two thousand or so who were assembled at the temple each had the opportunity of thrusting his hands in the sides and in the wounds of the Savior to know of a surety that He lives. And for this they had a few centuries of peace in the land, and all were one.
+We started with a story from the Book of Mormon. Coming full circle back to 3 Nephi, I think of Jesus coming to the temple as a resurrected being after much devastation of the land, similar to what has happened in Mexico recently with earthquakes and rending of the land. In the account in 3 Nephi, the people who were there returned to the temple, and there the Lord came, introduced by His Father: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name.” ([[3 Nephi 11.7|3 Ne. 11:7]].) They were asked to listen to Him, and He descended among them. The most significant event is that the two thousand or so who were assembled at the temple each had the opportunity of thrusting his hands in the sides and in the wounds of the Savior to know of a surety that He lives. And for this they had a few centuries of peace in the land, and all were one.
 
 I ask the Lord’s blessings to be with us, that we can understand the importance of the atoning sacrifice in our lives, that it is the greatest event in all history. In fact, the Atonement was the very purpose of the Lord and Savior, Jesus Christ, coming to earth. Unfortunately, we sometimes deviate from that which we know.
 
@@ -77,8 +79,3 @@ I bear you my testimony that God lives and that Jesus is the Christ. Of this I h
 
 
 
-
-
-
-
-#Atonement #Endurance

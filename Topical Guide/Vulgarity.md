@@ -1,4 +1,3 @@
 # Vulgarity
 
-
-*See* [[Profanity.md|Profanity]]; [[Swearing, Swear, Sware, Sworn.md|Swearing]]
+*See also* [[Profanity.md|Profanity]]; [[Swearing.md|Swearing]]

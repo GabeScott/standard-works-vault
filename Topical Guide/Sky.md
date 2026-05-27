@@ -1,6 +1,5 @@
 # Sky
 
-
 *See also* [[Heaven.md|Heaven]]
 
 let the *skies* pour down righteousness, [[Isaiah 45.8|Isaiah 45:8]].

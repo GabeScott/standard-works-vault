@@ -1,6 +1,8 @@
 # “Acquaint Thyself with Him, and Be at Peace”
 
-By Elder George P. Lee - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -40,9 +42,9 @@ Man’s answer to poverty is public welfare through food stamps, loans, guarante
 
 Paul tried to teach the Ephesians how to be good Christians and good people. The lesson is also a good one for us. He said: “Finally, my brethren, be strong in the Lord, and in the power of his might.
 
-“Put on the whole armour of God. …
+“Put on the whole armour of God. …
 
-“Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness; …
+“Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness; …
 
 “And take the helmet of salvation, and the sword of the Spirit, which is the word of God.” ([[Ephesians 6.10|Eph. 6:10–11, 14, 17]][[Ephesians 6.11|]][[Ephesians 6.14|]][[Ephesians 6.17|]].)
 
@@ -59,8 +61,3 @@ My prayer, my brothers and sisters, is that we will make the worst of times the 
 
 
 
-
-
-
-
-#Government #Jesus_Christ

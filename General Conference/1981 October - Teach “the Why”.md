@@ -1,6 +1,8 @@
 # Teach “the Why”
 
-By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
+Gordon B. Hinckley
+
+By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -99,8 +101,3 @@ Let us remember that understanding “the why” in learning is what develops pr
 
 
 
-
-
-
-
-#Charity

@@ -1,5 +1,7 @@
 # Fun and Happiness
 
+Gordon B. Hinckley
+
 By Elder Claudio R. M. Costa - *Of the Seventy*
 
 *Given in the October session of the 2002 General Conference*
@@ -22,7 +24,7 @@ Many people in this world do not understand the difference between fun and happi
 
 I looked them up in the dictionary to find out what each of them meant. *Fun* is play, pleasure, gaiety, merriment, source of enjoyment, amusement, to behave playfully, playful, often a noisy activity, and teasing. *Happiness* is contentedness, joy, delight, and satisfaction.
 
-I was taught, after becoming a member of the Church, that there is indeed a big difference between fun and happiness. I learned, even before my baptism, that the Lord has a plan of salvation for all His children (see [[2 Nephi 2.9|2 Nephi 2:9]]). Through this plan, depending upon what we accomplish here on earth, we shall return to our Heavenly Father’s presence and live with Him forever in a state of eternal happiness.
+I was taught, after becoming a member of the Church, that there is indeed a big difference between fun and happiness. I learned, even before my baptism, that the Lord has a plan of salvation for all His children (see [[2 Nephi 2.9|2 Nephi 2:9]]). Through this plan, depending upon what we accomplish here on earth, we shall return to our Heavenly Father’s presence and live with Him forever in a state of eternal happiness.
 
 Both fun and happiness are fine, but certainly happiness is the most worth seeking. Happiness can encompass fun as well, but fun alone will not ensure us true happiness.
 
@@ -34,7 +36,7 @@ All who seek full happiness can find it in the gospel of Jesus Christ, taught in
 
 We are happy as we pray every morning and every night, when we can feel that the Lord hears us and is always willing to bless, forgive, and help us. We are happy as we feel the promptings of the Holy Ghost in our lives—as we feel the Spirit when we have to make important life decisions. We are happy as we go home after a stressful and tiresome day at work to the arms of our families, as they express love and appreciation for us. We are happy to talk to our children, to enjoy the family, to get together on family night. In short, we can feel happiness every day in our lives through little things we do, and we are fully happy as we keep the commandments of a loving God, who cares about us.
 
-True happiness comes from keeping the commandments of God. We are taught in [[2 Nephi 2.25|2 Nephi 2:25]] that “Adam fell that men might be; and men are, that they might have joy,” or, in other words, that they might be happy.
+True happiness comes from keeping the commandments of God. We are taught in [[2 Nephi 2.25|2 Nephi 2:25]] that “Adam fell that men might be; and men are, that they might have joy,” or, in other words, that they might be happy.
 
 I have witnessed this happiness in the lives of many members of the Church. Several weeks ago I had the assignment to preside over a stake conference in Cali, Colombia. I met a very special young man there who is a member of the Church and can well illustrate the meaning of true happiness.
 
@@ -67,8 +69,3 @@ These things are part of my testimony of the truth, and I share them with you, m
 
 
 
-
-
-
-
-#Joy #Obedience #Plan_Of_Salvation

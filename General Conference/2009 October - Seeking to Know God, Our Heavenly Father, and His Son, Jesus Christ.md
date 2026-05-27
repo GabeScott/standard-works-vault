@@ -1,5 +1,7 @@
 # Seeking to Know God, Our Heavenly Father, and His Son, Jesus Christ
 
+Thomas S. Monson
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -42,15 +44,15 @@ No testimony is more significant to us in our time than the witness of Joseph Sm
 
 As a 14-year-old boy, he sought to know which church he should join. Then, after pondering on the matter, he turned to the Bible, where he read:
 
-“If any of you lack wisdom, let him \[or her\] ask of God, that giveth to all men liberally … ; and it shall be given him.
+“If any of you lack wisdom, let him \[or her\] ask of God, that giveth to all men liberally … ; and it shall be given him.
 
 “But let him ask in faith, nothing wavering.”[^14]
 
 Believing those prophetic words and with unwavering, childlike faith, Joseph went to a grove of trees near his home and there knelt and prayed. Later he recorded:
 
-“I saw a pillar of light exactly over my head. …
+“I saw a pillar of light exactly over my head. …
 
-“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air.”[^15]
+“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air.”[^15]
 
 Looking up at these two beings, even Joseph could not have known who They were—for he had not yet witnessed and learned the true nature of God and Christ. But then, he records, “one of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*”[^16]
 
@@ -133,11 +135,11 @@ As a special witness of the Only Begotten Son of our loving Heavenly Father, eve
 
 [^20]: [[John 14.26|John 14:26]].
 
-[^21]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^21]: [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^22]: [[Mosiah 3.19|Mosiah 3:19]].
 
-[^23]: See [[Alma 30.1|Alma 30]][[Alma 30.2|]][[Alma 30.3|]][[Alma 30.4|]][[Alma 30.5|]][[Alma 30.6|]][[Alma 30.7|]][[Alma 30.8|]][[Alma 30.9|]][[Alma 30.10|]][[Alma 30.11|]][[Alma 30.12|]][[Alma 30.13|]][[Alma 30.14|]][[Alma 30.15|]][[Alma 30.16|]][[Alma 30.17|]][[Alma 30.18|]][[Alma 30.19|]][[Alma 30.20|]][[Alma 30.21|]][[Alma 30.22|]][[Alma 30.23|]][[Alma 30.24|]][[Alma 30.25|]][[Alma 30.26|]][[Alma 30.27|]][[Alma 30.28|]][[Alma 30.29|]][[Alma 30.30|]][[Alma 30.31|]][[Alma 30.32|]][[Alma 30.33|]][[Alma 30.34|]][[Alma 30.35|]][[Alma 30.36|]][[Alma 30.37|]][[Alma 30.38|]][[Alma 30.39|]][[Alma 30.40|]][[Alma 30.41|]][[Alma 30.42|]][[Alma 30.43|]][[Alma 30.44|]][[Alma 30.45|]][[Alma 30.46|]][[Alma 30.47|]][[Alma 30.48|]][[Alma 30.49|]][[Alma 30.50|]][[Alma 30.51|]][[Alma 30.52|]][[Alma 30.53|]][[Alma 30.54|]][[Alma 30.55|]][[Alma 30.56|]][[Alma 30.57|]][[Alma 30.58|]][[Alma 30.59|]][[Alma 30.60|]].
+[^23]: See [[Alma 30.1|Alma 30]].
 
 [^24]: [[Alma 30.44|Alma 30:44]].
 
@@ -145,8 +147,3 @@ As a special witness of the Only Begotten Son of our loving Heavenly Father, eve
 
 [^26]: [[John 5.39|John 5:39]].
 
-
-
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Prophets #Testimony

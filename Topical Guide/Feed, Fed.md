@@ -1,6 +1,5 @@
 # Feed, Fed
 
-
 Esau said to Jacob, *Feed* me, [[Genesis 25.30|Genesis 25:30]].
 
 God which *fed* me all my life long, [[Genesis 48.15|Genesis 48:15]].
@@ -13,7 +12,7 @@ I have *fed* you in the wilderness, [[Exodus 16.32|Exodus 16:32]].
 
 commanded the ravens to *feed* thee, [[1 Kings 17.4|1 Kings 17:4]].
 
-Trust in the Lord ... thou shalt be *fed*, [[Psalms 37.3|Psalms 37:3]].
+Trust in the Lord … thou shalt be *fed*, [[Psalms 37.3|Psalms 37:3]].
 
 lips of the righteous *feed* many, [[Proverbs 10.21|Proverbs 10:21]].
 
@@ -21,7 +20,7 @@ cow and the bear shall *feed*, [[Isaiah 11.7|Isaiah 11:7]] ([[2 Nephi 21.7|2 Nep
 
 wolf and the lamb shall *feed* together, [[Isaiah 65.25|Isaiah 65:25]].
 
-pastors ... shall *feed* you with knowledge, [[Jeremiah 3.15|Jeremiah 3:15]].
+pastors … shall *feed* you with knowledge, [[Jeremiah 3.15|Jeremiah 3:15]].
 
 should not the shepherds *feed* the flocks, [[Ezekiel 34.2|Ezekiel 34:2]].
 
@@ -49,12 +48,12 @@ I have *fed* you with milk, and not with meat, [[1 Corinthians 3.2|1 Corinthians
 
 *feeding* themselves without fear, [[Jude 1.12|Jude 1:12]].
 
-Lamb ... shall *feed* them, [[Revelation 7.17|Revelation 7:17]].
+Lamb … shall *feed* them, [[Revelation 7.17|Revelation 7:17]].
 
 *fed* with manna, [[1 Nephi 17.28|1 Nephi 17:28]].
 
-obtain riches ... to *feed* the hungry, [[Jacob 2.19|Jacob 2:19]].
+obtain riches … to *feed* the hungry, [[Jacob 2.19|Jacob 2:19]].
 
-*impart* of your substance to the poor ... *feeding* the hungry, [[Mosiah 4.26|Mosiah 4:26]].
+*impart* of your substance to the poor … *feeding* the hungry, [[Mosiah 4.26|Mosiah 4:26]].
 
 they *feed* the women upon the flesh of their husbands, [[Moroni 9.8|Moroni 9:8]].

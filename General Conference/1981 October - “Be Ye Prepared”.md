@@ -1,5 +1,7 @@
 # “Be Ye Prepared”
 
+Gordon B. Hinckley
+
 By Elder LeGrand Richards - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -64,7 +66,7 @@ Then the rich man’s thoughts turned to earth where he had five brothers, and h
 
 “For I have five brethren; … lest they also come into this place of torment.
 
-“Abraham saith unto him, They have Moses and the prophets; let them hear them. …
+“Abraham saith unto him, They have Moses and the prophets; let them hear them. …
 
 “And he said unto him, If they hear not Moses and the prophets, neither will they be persuaded, though one rose from the dead.” ([[Luke 16.27|Luke 16:27–31]][[Luke 16.28|]][[Luke 16.29|]][[Luke 16.30|]][[Luke 16.31|]].)
 
@@ -76,11 +78,11 @@ How would one feel to see his associate taken, and to be left for a thousand yea
 
 Now Jesus didn’t give us all of those beautiful parables for nothing. He said: “Whosoever heareth these sayings of mine, and doeth them, I will liken him unto a wise man, which built his house upon a rock:
 
-“… And the floods came, and the winds blew, and beat upon that house; and it fell not: for it was founded upon a rock.
+“… And the floods came, and the winds blew, and beat upon that house; and it fell not: for it was founded upon a rock.
 
 “And everyone that heareth these sayings of mine, and doeth them not, shall be likened unto a foolish man, which built his house upon the sand:
 
-“… And the floods came, and the winds blew, and beat upon that house; and it fell: and great was the fall of it.” ([[Matthew 7.24|Matt. 7:24–27]][[Matthew 7.25|]][[Matthew 7.26|]][[Matthew 7.27|]].)
+“… And the floods came, and the winds blew, and beat upon that house; and it fell: and great was the fall of it.” ([[Matthew 7.24|Matt. 7:24–27]][[Matthew 7.25|]][[Matthew 7.26|]][[Matthew 7.27|]].)
 
 Who would want to build their house upon the sand, so that it would not withstand the storms of adversity?
 
@@ -101,5 +103,3 @@ Now, that is my testimony to you, and I pray God to keep you and your families w
 
 
 
-
-#Activation

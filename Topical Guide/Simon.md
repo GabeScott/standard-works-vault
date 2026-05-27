@@ -1,4 +1,3 @@
 # Simon
 
-
-*See* [BD Simon](https://www.churchofjesuschrist.org/study/scriptures/bd/simon?lang=eng)
+*See also* [[BD Simon.md|BD Simon]]

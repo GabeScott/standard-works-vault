@@ -1,7 +1,6 @@
 # Vow
 
-
-*See also* [[Covenants.md|Covenants]]; [[Oath.md|Oath]]; [[Pledge.md|Pledge]]; [[Promise.md|Promise]]; [[Swearing, Swear, Sware, Sworn.md|Swearing]]; [BD Vows](https://www.churchofjesuschrist.org/study/scriptures/bd/vows?lang=eng)
+*See also* [[Covenants.md|Covenants]]; [[Oath.md|Oath]]; [[Pledge.md|Pledge]]; [[Promise.md|Promise]]; [[Swearing.md|Swearing]]; [[BD Vows.md|BD Vows]]
 
 Jacob *vowed* a *vow*, [[Genesis 28.20|Genesis 28:20]].
 
@@ -13,7 +12,7 @@ man or woman shall separate themselves to *vow* a *vow*, [[Numbers 6.2|Numbers 6
 
 Israel *vowed* a *vow* unto the Lord, [[Numbers 21.2|Numbers 21:2]] ([[Deuteronomy 23.21|Deuteronomy 23:21]]).
 
-*vow* a *vow* unto the Lord ... he shall not break his word, [[Numbers 30.2|Numbers 30:2]] ([[Isaiah 19.21|Isaiah 19:21]]).
+*vow* a *vow* unto the Lord … he shall not break his word, [[Numbers 30.2|Numbers 30:2]] ([[Isaiah 19.21|Isaiah 19:21]]).
 
 Jephthah *vowed* a *vow* unto the Lord, [[Judges 11.30|Judges 11:30]].
 
@@ -39,7 +38,7 @@ I will pay that that I have *vowed*, [[Jonah 2.9|Jonah 2:9]].
 
 keep thy solemn feasts, perform thy *vows*, [[Nahum 1.15|Nahum 1:15]].
 
-Paul ... having shorn his head ... for he had a *vow*, [[Acts 18.18|Acts 18:18]].
+Paul … having shorn his head … for he had a *vow*, [[Acts 18.18|Acts 18:18]].
 
 four men which have a *vow*, [[Acts 21.23|Acts 21:23]].
 
@@ -47,4 +46,4 @@ four men which have a *vow*, [[Acts 21.23|Acts 21:23]].
 
 careful henceforth in observing your *vows*, [[D&C 108.3|D&C 108:3]].
 
-All covenants ... oaths, *vows* ... not made and entered, [[D&C 132.7|D&C 132:7]].
+All covenants … oaths, *vows* … not made and entered, [[D&C 132.7|D&C 132:7]].

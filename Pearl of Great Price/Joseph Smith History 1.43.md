@@ -5,4 +5,4 @@
 [Joseph Smith History 1:43](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.43?lang=eng#p43)
 
 
-[^a]: [[Acts 1.9|Acts 1:9.]]
+[^a]: [[Acts 1.9|Acts 1:9]].  

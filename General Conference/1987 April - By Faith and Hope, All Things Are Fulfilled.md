@@ -1,5 +1,7 @@
 # By Faith and Hope, All Things Are Fulfilled
 
+Ezra Taft Benson
+
 By Elder Paul H. Dunn - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -76,7 +78,7 @@ His grandmother, still standing there, scolded him, “Of course you can’t. I 
 
 The little boy was trying to tell her something. She bent down to listen. Then, with tears showing on her thin, wrinkled face, the grandmother asked, “Could he please have another balloon? You see, his little sister died a few months ago, and he wanted her to have a balloon to play with, too!”
 
-As critical and judgmental as we often must be, as much as we will have to correct, as truly as we must face unpleasant realities all of our days, let us recognize and praise the thousands of beauties of life around us; the many wonderful examples of virtuous living; the strengths and the courage of so many souls; the exceptional talents and achievements of our family members, neighbors, and associates; the countless blessings that we have been given. As has been quoted by so many, but seems to fit well here, “Two men look out through the same bars: One sees the mud, and one the stars” (Frederick Langbridge, *A Cluster of Quiet Thoughts,* cited in *The Oxford Dictionary of Quotations,* 2nd ed., London: Oxford University Press, 1966, p. 310).
+As critical and judgmental as we often must be, as much as we will have to correct, as truly as we must face unpleasant realities all of our days, let us recognize and praise the thousands of beauties of life around us; the many wonderful examples of virtuous living; the strengths and the courage of so many souls; the exceptional talents and achievements of our family members, neighbors, and associates; the countless blessings that we have been given. As has been quoted by so many, but seems to fit well here, “Two men look out through the same bars: One sees the mud, and one the stars” (Frederick Langbridge, *A Cluster of Quiet Thoughts,* cited in *The Oxford Dictionary of Quotations,* 2nd ed., London: Oxford University Press, 1966, p. 310).
 
 And as the prophet Mormon taught us:
 
@@ -89,8 +91,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Adversity #Attitude #Love #Parenthood

@@ -1,6 +1,8 @@
 # A Blessing for the Saints
 
-By President Harold B. Lee - *President of the Church*
+N. Eldon Tanner
+
+By President Harold B. Lee - *President of the Church*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -16,7 +18,7 @@ In the midst of similar circumstances the Prophet Joseph Smith was in the Libert
 
 “Therefore, that we should waste and wear out our lives in bringing to light all the hidden things of darkness, wherein we know them; and they are truly manifest from heaven—
 
-“These should then be attended to with great earnestness. …
+“These should then be attended to with great earnestness. …
 
 “You know, brethren,” he wrote, “that a very large ship is benefited very much by a very small helm in the time of a storm, by being kept workways with the wind and the waves.
 
@@ -53,8 +55,3 @@ I bear you my witness to these things and leave you my blessing in the name of t
 
 
 
-
-
-
-
-#Blessings

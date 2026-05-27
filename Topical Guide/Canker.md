@@ -1,6 +1,5 @@
 # Canker
 
-
 their word will eat as doth a *canker*, [[2 Timothy 2.17|2 Timothy 2:17]].
 
 Your gold and silver is *cankered*, [[James 5.3|James 5:3]].

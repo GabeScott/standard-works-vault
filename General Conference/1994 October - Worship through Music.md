@@ -1,5 +1,7 @@
 # Worship through Music
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -13,7 +15,7 @@ Our hearts have united with the Mormon Youth Chorus’s spirited singing of Char
 Last spring I made my first visit to Brasília, Brazil. Over three thousand Saints gathered for a regional conference. The printed program listed the musical numbers, but the Portuguese words meant nothing to me. But when their beautiful choir began to sing, the music crossed all barriers of language and spoke to my soul:
 
 >The morning breaks, the shadows flee;
->Lo, Zion’s standard is unfurled! …
+>Lo, Zion’s standard is unfurled! …
 >The dawning of a brighter day
 >Majestic rises on the world.
 >
@@ -95,9 +97,9 @@ Our hymns have been chosen because they have been proven effective to invite the
 
 Soloists should remember that music in our worship services is not for demonstration but for worship. Vocal or instrumental numbers should be chosen to facilitate worship, not to provide performance opportunity for artists, no matter how accomplished.
 
-Our sacred music prepares us to be taught the truths of the gospel. This is why we are selective in the kinds of music and the kinds of instruments we use in our worship services. This is why we encourage our choirs to use the hymnbook as their basic resource. We can make selective use of other music that is in harmony with the spirit of our hymns, such as Charles Gounod’s marvelous “O Divine Redeemer,” sung at the funeral of President Ezra Taft Benson. But a hymnbook’s hymn is often the most inspiring and appropriate musical selection for a choir, a vocalist, or an instrumentalist (see Michael F. Moody, “Conversation: Learning and Singing Hymns,” *Ensign,* Aug. 1994, p. 79).
+Our sacred music prepares us to be taught the truths of the gospel. This is why we are selective in the kinds of music and the kinds of instruments we use in our worship services. This is why we encourage our choirs to use the hymnbook as their basic resource. We can make selective use of other music that is in harmony with the spirit of our hymns, such as Charles Gounod’s marvelous “O Divine Redeemer,” sung at the funeral of President Ezra Taft Benson. But a hymnbook’s hymn is often the most inspiring and appropriate musical selection for a choir, a vocalist, or an instrumentalist (see Michael F. Moody, “Conversation: Learning and Singing Hymns,” *Ensign,* Aug. 1994, p. 79).
 
-Sacred music can help us even where there is no formal performance. For example, when temptation comes, we can neutralize its effect by humming or repeating the words of a favorite hymn (see Boyd K. Packer, in Conference Report, Oct. 1973, pp. 21–26; or *Ensign,* Jan. 1974, pp. 25–28).
+Sacred music can help us even where there is no formal performance. For example, when temptation comes, we can neutralize its effect by humming or repeating the words of a favorite hymn (see Boyd K. Packer, in Conference Report, Oct. 1973, [[1973 October - Inspiring Music—Worthy Thoughts.md|pp. 21–26]]; or *Ensign,* Jan. 1974, pp. 25–28).
 
 Our hymns can work their miraculous effect even when the chorus of voices is few and even when hardly a sound can be heard. I felt this a few months ago as I participated in a musical performance that was unique in my church experience. I had been invited to speak at the Great Basin LDS Deaf Conference, hosted by the Salt Lake Valley (Deaf) Ward of the Salt Lake Park Stake. Over three hundred deaf brothers and sisters were in attendance. The members of the stake presidency and I were almost the only adults in the congregation who could hear and who attempted to sing audibly. The rest of that large assembly sang with their hands. Hardly a lip moved, and hardly a sound was heard except the organ and four faint voices from the stand. In the audience, all hands moved in unison with the leader as the audience signed, “The Spirit of God like a fire is burning!” (*Hymns,* 1985, no. 2). As we sang together, the Spirit of the Lord descended upon us, and we were made ready for prayer. Our sacred music is a powerful preparation for prayer and gospel teaching.
 
@@ -108,8 +110,3 @@ We who have “felt to sing the song of redeeming love” ([[Alma 5.26|Alma 5:26
 
 
 
-
-
-
-
-#Children #Disabilities #Music #Reverence #Scriptures #Temples #Worship

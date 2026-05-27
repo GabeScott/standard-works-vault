@@ -1,5 +1,7 @@
 # The Character of Christ
 
+Dallin H. Oaks
+
 By President D. Todd Christofferson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2026 General Conference*
@@ -69,19 +71,19 @@ On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus 
 
 
 
-[^1]: [[2 Peter 3.3|2 Peter 3:3–4]][[2 Peter 3.4|]].
+[^1]: [[2 Peter 3.3|2 Peter 3:3–4]][[2 Peter 3.4|]].
 
-[^2]: See [[2 Peter 3.9|2 Peter 3:9]].
+[^2]: See [[2 Peter 3.9|2 Peter 3:9]].
 
 [^3]: [[Malachi 4.5|Malachi 4:5]]; see also [[D&C 2.1|Doctrine and Covenants 2:1]]; [[D&C 110.14|110:14]].
 
-[^4]: [[2 Peter 3.10|2 Peter 3:10]].
+[^4]: [[2 Peter 3.10|2 Peter 3:10]].
 
-[^5]: See [[2 Peter 3.13|2 Peter 3:13]].
+[^5]: See [[2 Peter 3.13|2 Peter 3:13]].
 
-[^6]: [[2 Peter 3.11|2 Peter 3:11]].
+[^6]: [[2 Peter 3.11|2 Peter 3:11]].
 
-[^7]: [[2 Peter 3.14|2 Peter 3:14]]; see also [[2 Peter 3.11|verse 11]]. This calls to mind the Savior’s own words declaring what manner of people we ought to be: “I would that ye should be perfect even as I, or your Father who is in heaven is perfect” ([[3 Nephi 12.48|3 Nephi 12:48]]; see also [[Matthew 5.48|Matthew 5:48]]). The perfection, or finished state, He speaks of is not to be fully realized in mortality. The invitation for the present is to strive to incorporate the character of Jesus Christ in ourselves. In this way, we may look forward to His appearing not with dread but with joyful anticipation.
+[^7]: [[2 Peter 3.14|2 Peter 3:14]]; see also [[2 Peter 3.11|verse 11]]. This calls to mind the Savior’s own words declaring what manner of people we ought to be: “I would that ye should be perfect even as I, or your Father who is in heaven is perfect” ([[3 Nephi 12.48|3 Nephi 12:48]]; see also [[Matthew 5.48|Matthew 5:48]]). The perfection, or finished state, He speaks of is not to be fully realized in mortality. The invitation for the present is to strive to incorporate the character of Jesus Christ in ourselves. In this way, we may look forward to His appearing not with dread but with joyful anticipation.
 
 [^8]: See [[Mosiah 5.2|Mosiah 5:2, 7]][[Mosiah 5.7|]]; [[Alma 5.12|Alma 5:12, 14, 26]][[Alma 5.14|]][[Alma 5.26|]]; [[Alma 19.33|19:33]]; [[Helaman 15.7|Helaman 15:7]].
 
@@ -89,7 +91,7 @@ On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus 
 
 [^10]: [[Mosiah 5.7|Mosiah 5:7]]. The same happened with Alma the son of Alma (see [[Mosiah 27.23|Mosiah 27:23–31]][[Mosiah 27.24|]][[Mosiah 27.25|]][[Mosiah 27.26|]][[Mosiah 27.27|]][[Mosiah 27.28|]][[Mosiah 27.29|]][[Mosiah 27.30|]][[Mosiah 27.31|]]) and many of the people of the Lamanite king Lamoni (see [[Alma 19.33|Alma 19:33]]).
 
-[^11]: See [[3 Nephi 11.31|3 Nephi 11:31–39]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
+[^11]: See [[3 Nephi 11.31|3 Nephi 11:31–39]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
 
 [^12]: [[D&C 84.20|Doctrine and Covenants 84:20]].
 
@@ -125,7 +127,5 @@ On this joyful Easter Sunday, I bear testimony of the resurrected, living Jesus 
 
 [^28]: In the words of Alexander Balmain Bruce, “The mirrors must be finely polished that are designed to reflect the image of Christ!” (*The Training of the Twelve*, 2nd ed. \[1877\], 13).
 
-[^29]: [[Moroni 7.48|Moroni 7:48]]; see also [[1 John 3.2|1 John 3:2–3]][[1 John 3.3|]].
+[^29]: [[Moroni 7.48|Moroni 7:48]]; see also [[1 John 3.2|1 John 3:2–3]][[1 John 3.3|]].
 
-
-#Character #Jesus_Christ #Ministering #Repentance #Second_Coming

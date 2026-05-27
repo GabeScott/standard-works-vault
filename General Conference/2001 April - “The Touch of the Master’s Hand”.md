@@ -1,5 +1,7 @@
 # “The Touch of the Master’s Hand”
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -10,7 +12,7 @@ By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apos
 
 This matter of sustaining the officers is a great protection to the Church. The Lord commanded “that it shall not be given to any one to go forth to preach my gospel, or to build up my church, except he be ordained by some one who has authority, and it is known to the church that he has authority and has been \[duly\] ordained by the heads of the church.”[^1] In this way members of the Church in every organization all over the world know who the true messengers are.
 
-It is my purpose to ease the pain of those who suffer from the very unpleasant feeling of guilt. I feel like the doctor who begins his treatment by saying, “Now, this may hurt a little …”
+It is my purpose to ease the pain of those who suffer from the very unpleasant feeling of guilt. I feel like the doctor who begins his treatment by saying, “Now, this may hurt a little …”
 
 Every one of us has at least tasted the pain of conscience which follows our mistakes.
 
@@ -56,7 +58,7 @@ In contrast to the hard words condemning sin, listen to the calming, healing wor
 
 Alma said: “My soul hath been redeemed from the gall of bitterness and bonds of iniquity. I was in the darkest abyss; but now I behold the marvelous light of God. My soul was racked with eternal torment; but … my soul is pained no more.”[^16]
 
-“I did remember all my sins and iniquities, for which I was tormented with the pains of hell. …
+“I did remember all my sins and iniquities, for which I was tormented with the pains of hell. …
 
 “And … as I was thus racked with torment, while I was harrowed up by the memory of my many sins, behold, I remembered also to have heard my father prophesy unto the people concerning the coming of one Jesus Christ, a Son of God, to atone for the sins of the world.
 
@@ -155,15 +157,15 @@ In the name of Jesus Christ, amen.
 
 [^1]: [[D&C 42.11|D&C 42:11]].
 
-[^2]: [[1 John 1.8|1 Jn. 1:8]].
+[^2]: [[1 John 1.8|1 Jn. 1:8]].
 
-[^3]: [[1 John 1.10|1 Jn. 1:10]].
+[^3]: [[1 John 1.10|1 Jn. 1:10]].
 
 [^4]: [[Alma 36.12|Alma 36:12]]; emphasis added.
 
 [^5]: See [[Mosiah 27.29|Mosiah 27:29]]; [[Alma 36.12|Alma 36:12, 16–17]][[Alma 36.16|]][[Alma 36.17|]]; [[Mormon 9.3|Morm. 9:3]].
 
-[^6]: See [[2 Nephi 9.47|2 Ne. 9:47]]; [[Alma 14.6|Alma 14:6]]; [[Alma 15.3|15:3]]; [[Alma 36.12|36:12, 17, 19]][[Alma 36.17|]][[Alma 36.19|]]; [[Alma 39.7|39:7]].
+[^6]: See [[2 Nephi 9.47|2 Ne. 9:47]]; [[Alma 14.6|Alma 14:6]]; [[Alma 15.3|15:3]]; [[Alma 36.12|36:12, 17, 19]][[Alma 36.17|]][[Alma 36.19|]]; [[Alma 39.7|39:7]].
 
 [^7]: See [[Mosiah 2.39|Mosiah 2:39]]; [[Mosiah 3.25|3:25]]; [[Mosiah 5.5|5:5]]; [[Moroni 8.21|Moro. 8:21]].
 
@@ -173,9 +175,9 @@ In the name of Jesus Christ, amen.
 
 [^10]: *Deseret News,* 8 July 1857, 138; see also *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 357.
 
-[^11]: See [[Revelation 20.10|Rev. 20:10]]; [[Revelation 21.8|21:8]]; [[2 Nephi 9.16|2 Ne. 9:16, 19, 26]][[2 Nephi 9.19|]][[2 Nephi 9.26|]]; [[2 Nephi 28.23|28:23]]; [[Jacob 3.11|Jacob 3:11]]; [[Jacob 6.10|6:10]]; [[Mosiah 3.27|Mosiah 3:27]]; [[Alma 12.17|Alma 12:17]]; [[Alma 14.14|14:14]]; [[D&C 63.17|D&C 63:17]]; [[D&C 76.36|76:36]].
+[^11]: See [[Revelation 20.10|Rev. 20:10]]; [[Revelation 21.8|21:8]]; [[2 Nephi 9.16|2 Ne. 9:16, 19, 26]][[2 Nephi 9.19|]][[2 Nephi 9.26|]]; [[2 Nephi 28.23|28:23]]; [[Jacob 3.11|Jacob 3:11]]; [[Jacob 6.10|6:10]]; [[Mosiah 3.27|Mosiah 3:27]]; [[Alma 12.17|Alma 12:17]]; [[Alma 14.14|14:14]]; [[D&C 63.17|D&C 63:17]]; [[D&C 76.36|76:36]].
 
-[^12]: [[2 Nephi 2.11|2 Ne. 2:11]].
+[^12]: [[2 Nephi 2.11|2 Ne. 2:11]].
 
 [^13]: [[Philippians 4.7|Philip. 4:7]].
 
@@ -193,7 +195,7 @@ In the name of Jesus Christ, amen.
 
 [^20]: [[Ezekiel 33.15|Ezek. 33:15–16]][[Ezekiel 33.16|]].
 
-[^21]: [[Mosiah 4.12|Mosiah 4:12]]; see also [[2 Nephi 25.26|2 Ne. 25:26]]; [[2 Nephi 31.17|31:17]]; [[Mosiah 3.13|Mosiah 3:13]]; [[Mosiah 4.11|4:11]]; [[Mosiah 15.11|15:11]]; [[Alma 4.14|Alma 4:14]]; [[Alma 7.6|7:6]]; [[Alma 12.34|12:34]]; [[Alma 13.16|13:16]]; [[Helaman 14.13|Hel. 14:13]]; [[3 Nephi 12.2|3 Ne. 12:2]]; [[3 Nephi 30.2|30:2]]; [[Moroni 8.25|Moro. 8:25]]; [[Moroni 10.33|10:33]].
+[^21]: [[Mosiah 4.12|Mosiah 4:12]]; see also [[2 Nephi 25.26|2 Ne. 25:26]]; [[2 Nephi 31.17|31:17]]; [[Mosiah 3.13|Mosiah 3:13]]; [[Mosiah 4.11|4:11]]; [[Mosiah 15.11|15:11]]; [[Alma 4.14|Alma 4:14]]; [[Alma 7.6|7:6]]; [[Alma 12.34|12:34]]; [[Alma 13.16|13:16]]; [[Helaman 14.13|Hel. 14:13]]; [[3 Nephi 12.2|3 Ne. 12:2]]; [[3 Nephi 30.2|30:2]]; [[Moroni 8.25|Moro. 8:25]]; [[Moroni 10.33|10:33]].
 
 [^22]: See [[D&C 27.2|D&C 27:2]].
 
@@ -211,8 +213,3 @@ In the name of Jesus Christ, amen.
 
 [^29]: Myra Brooks Welch, “The Touch of the Master’s Hand,” *The Gospel Messenger,* Brethren Press, 26 Feb. 1921; see also *Best-Loved Poems of the LDS People,* comp. Jack Lyon, et al. \[1996\], 182–83.
 
-
-
-
-
-#Atonement #Attitude #Conscience #Evil #Joy #Justice #Ordinances #Peace #Repentance

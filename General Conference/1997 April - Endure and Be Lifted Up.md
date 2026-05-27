@@ -1,5 +1,7 @@
 # Endure and Be Lifted Up
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -14,7 +16,7 @@ Quickly we caught her and explained, “No, dear, it’s not time to get out; we
 
 Children are prone to do such dangerous things simply because they have not acquired the wisdom their parents have. Similarly, we as children of our Heavenly Father may foolishly want to get “out of the boat” before we arrive at destinations He would like us to reach. The Lord teaches over and over that we are to endure[^1] to the end.[^2] This is a dominant theme of the scriptures. One example may serve to represent many passages that convey a similar message:
 
-“Blessed are they who shall seek to bring forth my Zion … , for they shall have the gift and the power of the Holy Ghost; and if they endure unto the end they shall be lifted up at the last day, and shall be saved in the everlasting kingdom of the Lamb.”[^3]
+“Blessed are they who shall seek to bring forth my Zion … , for they shall have the gift and the power of the Holy Ghost; and if they endure unto the end they shall be lifted up at the last day, and shall be saved in the everlasting kingdom of the Lamb.”[^3]
 
 Blessings bestowed by God are always predicated upon obedience to law.[^4] Applied to my analogy, we are first to get “on the boat” with Him. Then we are to *stay* with Him. And if we don’t get “out of the boat” before we should, we shall reach His kingdom, where we will be lifted up to eternal life.
 
@@ -91,9 +93,9 @@ I pray that each of us may so endure and be lifted up at the last day, in the na
 
 [^1]: The word *endure* comes from two Latin roots. The prefix *en* means “within.” The remainder comes from the verb *durare,* which means “to be firm or solid.” Thus, to *endure* means “to become firm within yourself.” That meaning carries into the original languages of the Bible.
 
-[^2]: See [[Matthew 24.13|Matt. 24:13]]; [[Mark 13.13|Mark 13:13]]; [[2 Nephi 33.4|2 Ne. 33:4]]; [[Omni 1.26|Omni 1:26]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[D&C 14.7|D&C 14:7]]; [[D&C 18.22|18:22]]; [[D&C 20.29|20:29]]. This promise has been confirmed by both our Father in Heaven and by the Lord Jesus Christ. From the great Elohim, we have this pronouncement: “The words of my Beloved are true and faithful. He that endureth to the end, the same shall be saved” ([[2 Nephi 31.15|2 Ne. 31:15]]). And from the Savior, we have this promise: “Whoso repenteth and is baptized in my name shall be filled; and if he endureth to the end, … him will I hold guiltless before my Father at that day when I shall stand to judge the world” ([[3 Nephi 27.16|3 Ne. 27:16]]).
+[^2]: See [[Matthew 24.13|Matt. 24:13]]; [[Mark 13.13|Mark 13:13]]; [[2 Nephi 33.4|2 Ne. 33:4]]; [[Omni 1.26|Omni 1:26]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[D&C 14.7|D&C 14:7]]; [[D&C 18.22|18:22]]; [[D&C 20.29|20:29]]. This promise has been confirmed by both our Father in Heaven and by the Lord Jesus Christ. From the great Elohim, we have this pronouncement: “The words of my Beloved are true and faithful. He that endureth to the end, the same shall be saved” ([[2 Nephi 31.15|2 Ne. 31:15]]). And from the Savior, we have this promise: “Whoso repenteth and is baptized in my name shall be filled; and if he endureth to the end, … him will I hold guiltless before my Father at that day when I shall stand to judge the world” ([[3 Nephi 27.16|3 Ne. 27:16]]).
 
-[^3]: [[1 Nephi 13.37|1 Ne. 13:37]]; see also [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 13.29|Alma 13:29]]; [[Alma 36.3|36:3]]; [[Alma 37.37|37:37]]; [[Alma 38.5|38:5]]; [[3 Nephi 27.21|3 Ne. 27:21–22]][[3 Nephi 27.22|]]; [[Ether 4.19|Ether 4:19]]; [[D&C 5.35|D&C 5:35]]; [[D&C 9.14|9:14]]; [[D&C 17.8|17:8]]; [[D&C 75.16|75:16]]. For additional emphasis, scriptures teach the negative consequences of disobedience to this commandment. For example, “If they will not repent and believe in his name, and be baptized in his name, and endure to the end, they must be damned; for the Lord God, the Holy One of Israel, has spoken it” ([[2 Nephi 9.24|2 Ne. 9:24]]; see also [[2 Nephi 31.16|2 Ne. 31:16]]; [[Mormon 9.29|Morm. 9:29]]).
+[^3]: [[1 Nephi 13.37|1 Ne. 13:37]]; see also [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 13.29|Alma 13:29]]; [[Alma 36.3|36:3]]; [[Alma 37.37|37:37]]; [[Alma 38.5|38:5]]; [[3 Nephi 27.21|3 Ne. 27:21–22]][[3 Nephi 27.22|]]; [[Ether 4.19|Ether 4:19]]; [[D&C 5.35|D&C 5:35]]; [[D&C 9.14|9:14]]; [[D&C 17.8|17:8]]; [[D&C 75.16|75:16]]. For additional emphasis, scriptures teach the negative consequences of disobedience to this commandment. For example, “If they will not repent and believe in his name, and be baptized in his name, and endure to the end, they must be damned; for the Lord God, the Holy One of Israel, has spoken it” ([[2 Nephi 9.24|2 Ne. 9:24]]; see also [[2 Nephi 31.16|2 Ne. 31:16]]; [[Mormon 9.29|Morm. 9:29]]).
 
 [^4]: See [[D&C 130.20|D&C 130:20–21]][[D&C 130.21|]].
 
@@ -113,9 +115,9 @@ I pray that each of us may so endure and be lifted up at the last day, in the na
 
 [^12]: In 1887, the Congress of the USA took the unprecedented step of eliminating the Church’s legal existence by revoking its corporate charter and authorizing federal receivers to assume ownership of virtually all of the Church’s property and other assets, including its most sacred houses of worship—temples—in Logan, Manti, St. George, and Salt Lake City (see *The Late Corporation of The Church of Jesus Christ of Latter-Day Saints v. United States,* 136 U.S. 1 \[1890\]).
 
-[^13]: [[2 Timothy 4.7|2 Tim. 4:7]].
+[^13]: [[2 Timothy 4.7|2 Tim. 4:7]].
 
-[^14]: See [[3 Nephi 27.13|3 Ne. 27:13]].
+[^14]: See [[3 Nephi 27.13|3 Ne. 27:13]].
 
 [^15]: See [[Moses 1.39|Moses 1:39]].
 
@@ -129,7 +131,7 @@ I pray that each of us may so endure and be lifted up at the last day, in the na
 
 [^20]: See [[D&C 42.22|D&C 42:22]].
 
-[^21]: This statement has been made by many leaders of the Church. For example, see Howard W. Hunter, in Conference Report, Oct. 1994, 68; or *Ensign,* Nov. 1994, 50; David O. McKay, as quoted by Gordon B. Hinckley, in Conference Report, Oct. 1982, 112; or *Ensign,* Nov. 1982, 77.
+[^21]: This statement has been made by many leaders of the Church. For example, see Howard W. Hunter, in Conference Report, Oct. 1994, [[1994 October - Being a Righteous Husband and Father.md|68]]; or *Ensign,* Nov. 1994, 50; David O. McKay, as quoted by Gordon B. Hinckley, in Conference Report, Oct. 1982, [[1982 October - Reach Out in Love and Kindness.md|112]]; or *Ensign,* Nov. 1982, 77.
 
 [^22]: First session of member fireside conference in Lima, Peru, 9 Nov. 1996.
 
@@ -143,7 +145,7 @@ I pray that each of us may so endure and be lifted up at the last day, in the na
 
 [^27]: See [[D&C 1.38|D&C 1:38]]; [[D&C 21.5|21:5]]; [[D&C 68.4|68:4]].
 
-[^28]: See [[Acts 27.30|Acts 27:30–31]][[Acts 27.31|]]; [[1 Nephi 18.21|1 Ne. 18:21–23]][[1 Nephi 18.22|]][[1 Nephi 18.23|]].
+[^28]: See [[Acts 27.30|Acts 27:30–31]][[Acts 27.31|]]; [[1 Nephi 18.21|1 Ne. 18:21–23]][[1 Nephi 18.22|]][[1 Nephi 18.23|]].
 
 [^29]: “Master, the Tempest Is Raging,” *Hymns,* no. 105.
 
@@ -155,16 +157,11 @@ I pray that each of us may so endure and be lifted up at the last day, in the na
 
 [^33]: See [[Matthew 6.24|Matt. 6:24]].
 
-[^34]: [[Luke 14.note27b|JST, Luke 14:27–28 in Luke 14:27, footnote b]].
+[^34]: [JST, Luke 14:27–28 in Luke 14:27, footnote b](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/14?lang=eng&id=note27b#note27b).
 
 [^35]: [[Jeremiah 31.33|Jer. 31:33]].
 
 [^36]: [[Moroni 10.32|Moro. 10:32]].
 
-[^37]: In Conference Report, Oct. 1995, 96; or *Ensign,* Nov. 1995, 72; emphasis added.
+[^37]: In Conference Report, Oct. 1995, [[1995 October - Stay the Course—Keep the Faith.md|96]]; or *Ensign,* Nov. 1995, 72; emphasis added.
 
-
-
-
-
-#Adversity #Covenants #Endurance #Jesus_Christ #Love #Loyalty #Marriage #Pioneers #Plan_Of_Salvation #Priorities #Satan #Temptation #Work

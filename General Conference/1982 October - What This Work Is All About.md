@@ -1,14 +1,16 @@
 # What This Work Is All About
 
-By President Gordon B. Hinckley - *Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the October session of the 1982 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1982/10/what-this-work-is-all-about?lang=eng)
 
-My brethren and sisters, I am confident that I speak for all of you when I express appreciation to President Kimball for his message just read by his able and faithful secretary, D. Arthur Haycock.
+My brethren and sisters, I am confident that I speak for all of you when I express appreciation to President Kimball for his message just read by his able and faithful secretary, D. Arthur Haycock.
 
-Thank you, President Kimball, for your counsel, and particularly for your testimony of God our Eternal Father and his Beloved Son, our Savior and Redeemer. We add our witness to yours that we too know that God lives and that he is the Ruler of the universe, our Father in Heaven; that Jesus Christ, his Only Begotten in the flesh, was born in Bethlehem of Judea as the promised Messiah; that he was the Man of miracles, the one perfect Man who has lived upon the earth; that he was crucified and gave his life as a sacrifice for the sins of all men; that through that great act of atonement, he became the Redeemer of all mankind; that he arose from the grave the third day, thus becoming “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]); that he was seen by many in and about Jerusalem, and in this hemisphere also, who testified that they saw and felt and were instructed by the risen Lord. By the power of the Holy Spirit, which has borne witness to us, we can and do testify of these great, transcendent truths. And we add our witness that this, “the dispensation of the fulness of times” ([[D&C 112.30|D&C 112:30]]), spoken of in the scripture, was ushered in by a glorious visitation of the Father and the Son for the blessing of all who will seek and learn.
+Thank you, President Kimball, for your counsel, and particularly for your testimony of God our Eternal Father and his Beloved Son, our Savior and Redeemer. We add our witness to yours that we too know that God lives and that he is the Ruler of the universe, our Father in Heaven; that Jesus Christ, his Only Begotten in the flesh, was born in Bethlehem of Judea as the promised Messiah; that he was the Man of miracles, the one perfect Man who has lived upon the earth; that he was crucified and gave his life as a sacrifice for the sins of all men; that through that great act of atonement, he became the Redeemer of all mankind; that he arose from the grave the third day, thus becoming “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]); that he was seen by many in and about Jerusalem, and in this hemisphere also, who testified that they saw and felt and were instructed by the risen Lord. By the power of the Holy Spirit, which has borne witness to us, we can and do testify of these great, transcendent truths. And we add our witness that this, “the dispensation of the fulness of times” ([[D&C 112.30|D&C 112:30]]), spoken of in the scripture, was ushered in by a glorious visitation of the Father and the Son for the blessing of all who will seek and learn.
 
 President Kimball, we assure you that the prayers of this people across the world ascend to our Father in Heaven in your behalf. We sing anew the beautiful hymn of Evan Stephens, written for Wilford Woodruff’s ninetieth birthday:
 
@@ -93,5 +95,3 @@ This work of ours is a great work of redemption. All of us must do more because 
 
 
 
-
-#Activation #Leadership #Miracles #Obedience #Service

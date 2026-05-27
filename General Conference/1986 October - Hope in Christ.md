@@ -1,5 +1,7 @@
 # Hope in Christ
 
+Ezra Taft Benson
+
 By Barbara W. Winder - *Relief Society General President*
 
 *Given in the October session of the 1986 General Conference*
@@ -40,7 +42,7 @@ Learning to respect themselves as sons and daughters of our Heavenly Father, the
 
 Sister Barnes writes: “As we read the scriptures, we found that Jesus gave the instruction to ‘be of good cheer; thy sins be forgiven thee’ ([[Matthew 9.2|Matt. 9:2]]), indicating that as we truly repent and forsake our sins, we may be optimistic about the future. He said, ‘Let not your heart be troubled: ye believe in God, believe also in me’ ([[John 14.1|John 14:1]]). And we *do* believe in him, and this belief has changed our lives. We now feel that we can say, as Paul did, ‘I can do all things through Christ which strengtheneth me’” ([[Philippians 4.13|Philip. 4:13]]).
 
-This was the testimony of this good woman regarding the change in her life and in her family. This change was not unlike changes that have occurred with others. After King Benjamin exhorted his people to live a good life, having hope in Christ, “They all cried with one voice, saying: Yea, we believe all the words which thou hast spoken unto us; and also, we know of their surety and truth, because of the Spirit of the Lord … , which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually” ([[Mosiah 5.2|Mosiah 5:2]]).
+This was the testimony of this good woman regarding the change in her life and in her family. This change was not unlike changes that have occurred with others. After King Benjamin exhorted his people to live a good life, having hope in Christ, “They all cried with one voice, saying: Yea, we believe all the words which thou hast spoken unto us; and also, we know of their surety and truth, because of the Spirit of the Lord … , which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually” ([[Mosiah 5.2|Mosiah 5:2]]).
 
 Just as Brother and Sister Barnes felt the Savior’s unconditional love as they studied the gospel and found hope in Christ; and just as the people of King Benjamin found hope in him, so can we find respect for ourselves and others, rid ourselves of self-defeating habits, be nonjudgmental, be optimistic and of good cheer, be assured of his love for us, and find hope in him.
 
@@ -50,9 +52,9 @@ Another sister wrote: “On August 3, my twenty-one-year-old son broke his neck 
 
 Elder Richard L. Evans was sensitive to the need to prepare spiritually and emotionally for difficult times:
 
-“We have to prepare even for what we are unprepared for and do the best we can … to improve, to repent, to be grateful for all that is good—and to have faith and hope even \[in hard times\]. …
+“We have to prepare even for what we are unprepared for and do the best we can … to improve, to repent, to be grateful for all that is good—and to have faith and hope even \[in hard times\]. …
 
-“And whatever happens in the interim, there is solid assurance that life is everlasting, and that eternal progress is its purpose” (Richard L. Evans, *Thoughts for One Hundred Days: Volume Four,* Salt Lake City: Publishers Press, 1970, p. 169).
+“And whatever happens in the interim, there is solid assurance that life is everlasting, and that eternal progress is its purpose” (Richard L. Evans, *Thoughts for One Hundred Days: Volume Four,* Salt Lake City: Publishers Press, 1970, p. 169).
 
 Let us recognize and be grateful for the blessings we have. From the Savior comes hope! Understanding the gospel, doing his works of righteousness, and following the counsel of our prophet are our *assurance* of the realization of that hope.
 
@@ -69,8 +71,3 @@ I know that he lives. I know that he cares! This is my testimony and my hope for
 
 
 
-
-
-
-
-#Adversity #Hope #Jesus_Christ

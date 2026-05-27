@@ -1,5 +1,7 @@
 # Gracias
 
+Marion G. Romney
+
 By Elder Angel Abrea - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
@@ -25,8 +27,3 @@ For this testimony, which is my surety, my rock, my sustenance, which I have rec
 
 
 
-
-
-
-
-#Gratitude

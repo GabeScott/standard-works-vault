@@ -1,5 +1,7 @@
 # This Is a Day of Sacrifice
 
+Spencer W. Kimball
+
 By President Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
@@ -40,9 +42,9 @@ First: *To sacrifice, deny yourself all ungodliness.* This applies to members an
 
 “Come unto Christ, and be perfected in him, and *deny yourselves of all ungodliness;* and if ye shall deny yourselves of all ungodliness and love God with all your might, mind and strength, then is his grace sufficient for you, that by his grace ye may be perfect in Christ” ([[Moroni 10.32|Moro. 10:32]]; italics added).
 
-The Savior himself declared: “Repent, all ye ends of the earth, and *come unto me* and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day” ([[3 Nephi 27.20|3 Ne. 27:20]]; italics added).
+The Savior himself declared: “Repent, all ye ends of the earth, and *come unto me* and be baptized in my name, that ye may be sanctified by the reception of the Holy Ghost, that ye may stand spotless before me at the last day” ([[3 Nephi 27.20|3 Ne. 27:20]]; italics added).
 
-To deny oneself of all ungodliness is to come to Christ by ordinances and covenants to repent of any sins which prevent the Spirit of the Lord from taking precedence in our lives. To deny oneself of all ungodliness is to “offer a sacrifice unto the Lord thy God … , even that of a broken heart and a contrite spirit” ([[D&C 59.8|D&C 59:8]]).
+To deny oneself of all ungodliness is to come to Christ by ordinances and covenants to repent of any sins which prevent the Spirit of the Lord from taking precedence in our lives. To deny oneself of all ungodliness is to “offer a sacrifice unto the Lord thy God … , even that of a broken heart and a contrite spirit” ([[D&C 59.8|D&C 59:8]]).
 
 It is a willingness to forgo personal bad habits such as tobacco, alcohol, profanity, an unruly temper, and immorality—habits which cause us, the children of God, to be less than our destiny.
 
@@ -68,7 +70,7 @@ Now, I want to speak frankly to you young men and young women of the Church. Whe
 
 May I now tell you about something most sacred? Picture in your mind a small room beautifully adorned—something akin to a lovely living room. In the center is an altar, covered with velvet and lace. Chairs line the walls of the room, where just family and closest friends may observe. With family observing, and a priesthood man of God officiating, you will be asked to kneel at the altar opposite your companion. You will be given instructions, and a benediction will be pronounced upon you. Then you will be sealed together as husband and wife for time and all eternity. You are given the same promise that Adam, Abraham, Isaac, and Jacob received. Let me read it to you from the Doctrine and Covenants. Essentially you will receive, as the Lord said:
 
-“Ye shall come forth in the first resurrection; … and shall inherit thrones, kingdoms, principalities, and powers … ; \[Ye\] shall pass by the angels, and the gods, … to \[your\] exaltation … , which glory shall be a fulness and a continuation of the seeds forever and ever” ([[D&C 132.19|D&C 132:19]]). Temple marriage is a gospel ordinance for exaltation.
+“Ye shall come forth in the first resurrection; … and shall inherit thrones, kingdoms, principalities, and powers … ; \[Ye\] shall pass by the angels, and the gods, … to \[your\] exaltation … , which glory shall be a fulness and a continuation of the seeds forever and ever” ([[D&C 132.19|D&C 132:19]]). Temple marriage is a gospel ordinance for exaltation.
 
 Don’t trifle away your happiness by an involvement with someone who cannot take you worthily to the temple. Make a decision now that this is the place where you will marry. To leave that decision until a romantic involvement develops is to take a risk, the importance of which you can’t calculate now.
 
@@ -88,7 +90,7 @@ One of Satan’s greatest tools is pride: to cause a man or a woman to center so
 
 If you would find yourself, learn to deny yourself for the blessing of others. Forget yourself and find someone who needs your service, and you will discover the secret to the happy, fulfilled life.
 
-President Harold B. Lee said, “I \[am\] persuaded of one great truth: Whenever the Lord has a great blessing for one of his children, he puts that son or daughter in the way to make a great sacrifice.” (In Conference Report, Apr. 1947, p. 50.)
+President Harold B. Lee said, “I \[am\] persuaded of one great truth: Whenever the Lord has a great blessing for one of his children, he puts that son or daughter in the way to make a great sacrifice.” (In Conference Report, Apr. 1947, p. 50.)
 
 Yes, I testify that sacrifice brings forth the blessings of heaven. This is “a day of sacrifice” for the people of the Lord!
 
@@ -97,8 +99,3 @@ I testify to you that this is a day of sacrifice, that it is part of the Lord’
 
 
 
-
-
-
-
-#Marriage #Missionary_Work #Sacrifice #Self-Esteem

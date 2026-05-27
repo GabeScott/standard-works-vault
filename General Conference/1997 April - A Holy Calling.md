@@ -1,5 +1,7 @@
 # A Holy Calling
 
+Gordon B. Hinckley
+
 By Elder Monte J. Brough - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1997 General Conference*
@@ -22,9 +24,9 @@ A few days later, we were granted an appointment with Elder Rex D. Pinegar. We e
 
 Elder Pinegar then said, “Now you must gain a testimony as to the divine nature of your own calling. You must come to know that *you* also have been called of God.”
 
-Paul the Apostle had gained a personal testimony of his own “holy calling” and also that of Timothy. He declared that God “hath saved us, and called us with an holy calling, not according to our works, but according to his own purpose and grace, which was given us in Christ Jesus before the world began” ([[2 Timothy 1.9|2 Tim. 1:9]]).
+Paul the Apostle had gained a personal testimony of his own “holy calling” and also that of Timothy. He declared that God “hath saved us, and called us with an holy calling, not according to our works, but according to his own purpose and grace, which was given us in Christ Jesus before the world began” ([[2 Timothy 1.9|2 Tim. 1:9]]).
 
-This powerful personal witness would require Timothy to “be \[a\] partaker of the afflictions of the gospel according to the power of God” ([[2 Timothy 1.8|2 Tim. 1:8]]).
+This powerful personal witness would require Timothy to “be \[a\] partaker of the afflictions of the gospel according to the power of God” ([[2 Timothy 1.8|2 Tim. 1:8]]).
 
 As Kami and I read this scripture together, I could see that she very much wanted to understand. I wanted her to know that there can be some “afflictions” associated with our callings in the Church. We talked about being away from our home and family members. I understood it was difficult for her to adjust to these new surroundings.
 
@@ -36,7 +38,7 @@ We must each prepare ourselves for every good work that might come to us and the
 
 “Then came to him the mother of Zebedee’s children with her sons, worshipping him, and desiring a certain thing of him.
 
-“… She saith unto him, Grant that these my two sons may sit, the one on thy right hand, and the other on the left, in thy kingdom” ([[Matthew 20.20|Matt. 20:20–21]][[Matthew 20.21|]]).
+“… She saith unto him, Grant that these my two sons may sit, the one on thy right hand, and the other on the left, in thy kingdom” ([[Matthew 20.20|Matt. 20:20–21]][[Matthew 20.21|]]).
 
 I explained to Kami that Zebedee’s children were the Apostles James and John, who would later sit with Peter, one on his right hand and the other on his left. Then we read together how Jesus answered the devoted mother: “To sit on my right hand, and on my left, is not mine to give, but it shall be given to them for whom it is prepared of my Father” ([[Matthew 20.23|Matt. 20:23]]).
 
@@ -65,8 +67,3 @@ That personal and prophetic revelation is the foundation upon which our Church s
 
 
 
-
-
-
-
-#Church_Callings #Jesus_Christ #Missionary_Work #Testimony

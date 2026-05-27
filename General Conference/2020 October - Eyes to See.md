@@ -1,6 +1,8 @@
 # Eyes to See
 
-By Michelle D. Craig - *First Counselor in the Young Women General Presidency*
+Russell M. Nelson
+
+By Michelle D. Craig - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -63,17 +65,17 @@ And then, in that great day “when he shall appear we shall be like him, for *w
 
 
 
-[^1]: [[2 Kings 6.15|2 Kings 6:15–17]][[2 Kings 6.16|]][[2 Kings 6.17|]].
+[^1]: [[2 Kings 6.15|2 Kings 6:15–17]][[2 Kings 6.16|]][[2 Kings 6.17|]].
 
 [^2]: Young Women theme, ChurchofJesusChrist.org.
 
-[^3]: David Brooks, “[Finding the Road to Character](https://speeches.byu.edu/talks/david-brooks/finding-the-road-to-character)” (Brigham Young University forum address, Oct. 22, 2019), speeches.byu.edu.
+[^3]: David Brooks, “[Finding the Road to Character](https://speeches.byu.edu/talks/david-brooks/finding-the-road-to-character)” (Brigham Young University forum address, Oct. 22, 2019), speeches.byu.edu.
 
 [^4]: See [[Mark 5.1|Mark 5:1–15]][[Mark 5.2|]][[Mark 5.3|]][[Mark 5.4|]][[Mark 5.5|]][[Mark 5.6|]][[Mark 5.7|]][[Mark 5.8|]][[Mark 5.9|]][[Mark 5.10|]][[Mark 5.11|]][[Mark 5.12|]][[Mark 5.13|]][[Mark 5.14|]][[Mark 5.15|]].
 
-[^5]: “It is a serious thing to live in a society of possible gods and goddesses, to remember that the dullest … most uninteresting person you can talk to may one day be a creature which, if you saw it now, you would be strongly tempted to worship. … There are no *ordinary* people” (C. S. Lewis, *The Weight of Glory* \[2001\], 45–46).
+[^5]: “It is a serious thing to live in a society of possible gods and goddesses, to remember that the dullest … most uninteresting person you can talk to may one day be a creature which, if you saw it now, you would be strongly tempted to worship. … There are no *ordinary* people” (C. S. Lewis, *The Weight of Glory* \[2001\], 45–46).
 
-[^6]: Kim B. Clark, “[Encircled about with Fire](https://www.churchofjesuschrist.org/broadcasts/article/satellite-training-broadcast/2015/08/encircled-about-with-fire)” (Seminaries and Institutes of Religion satellite broadcast, Aug. 4, 2015), ChurchofJesusChrist.org.
+[^6]: Kim B. Clark, “[Encircled about with Fire](https://www.churchofjesuschrist.org/study/broadcasts/article/satellite-training-broadcast/2015/08/encircled-about-with-fire?lang=eng)” (Seminaries and Institutes of Religion satellite broadcast, Aug. 4, 2015), ChurchofJesusChrist.org.
 
 [^7]: See [[Luke 10.30|Luke 10:30–32]][[Luke 10.31|]][[Luke 10.32|]].
 
@@ -81,8 +83,3 @@ And then, in that great day “when he shall appear we shall be like him, for *w
 
 [^9]: [[Moroni 7.48|Moroni 7:48]]; emphasis added.
 
-
-
-
-
-#Love #Service

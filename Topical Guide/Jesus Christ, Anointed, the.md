@@ -1,4 +1,3 @@
 # Jesus Christ, Anointed, the
 
-
-*See* [[Jesus Christ, Messiah.md|Jesus Christ, Messiah]]
+*See also* [[Jesus Christ, Messiah.md|Jesus Christ, Messiah]]

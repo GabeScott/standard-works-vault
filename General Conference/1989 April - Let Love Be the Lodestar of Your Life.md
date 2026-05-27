@@ -1,5 +1,7 @@
 # Let Love Be the Lodestar of Your Life
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -84,9 +86,9 @@ Love is the very essence of family life. Why is it that the children we love bec
 
 The word *love* is often used in place of the word *charity* in Paul’s great declaration. I so read it:
 
-“\[Love\] never faileth: but whether there be prophecies, they shall fail; whether there be tongues, they shall cease; whether there be knowledge, it shall vanish away. …
+“\[Love\] never faileth: but whether there be prophecies, they shall fail; whether there be tongues, they shall cease; whether there be knowledge, it shall vanish away. …
 
-“And now abideth, faith, hope, \[love\], these three; but the greatest of these is \[love\].” ([[1 Corinthians 13.8|1 Cor. 13:8, 13]][[1 Corinthians 13.13|]].)
+“And now abideth, faith, hope, \[love\], these three; but the greatest of these is \[love\].” ([[1 Corinthians 13.8|1 Cor. 13:8, 13]][[1 Corinthians 13.13|]].)
 
 Speaking to us in this dispensation, the Lord has said, “And faith, hope, charity and love, with an eye single to the glory of God, qualify \[us\] for the work.” ([[D&C 4.5|D&C 4:5]].)
 
@@ -97,8 +99,3 @@ I leave with you my love and extend my blessing and pray that there may be peace
 
 
 
-
-
-
-
-#Church_Growth #Love

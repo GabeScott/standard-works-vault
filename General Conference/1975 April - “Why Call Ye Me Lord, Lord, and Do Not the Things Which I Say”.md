@@ -1,6 +1,8 @@
 # “Why Call Ye Me Lord, Lord, and Do Not the Things Which I Say?”
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -26,13 +28,13 @@ This past week we have been celebrating the Easter week. Happy Easter to all of 
 
 The ministry of Christ—nothing in all the world approaches these three pivotal years of his ministry as did those three years.
 
-The crucifixion came. He needed to die, that he might open the graves of all men as his own tomb was opened. Without the deep darkness of the crucifixion hour, there could have been no spring of coming from the grave. “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].) That is why we rejoice today. “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
+The crucifixion came. He needed to die, that he might open the graves of all men as his own tomb was opened. Without the deep darkness of the crucifixion hour, there could have been no spring of coming from the grave. “For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.22|1 Cor. 15:22]].) That is why we rejoice today. “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]].)
 
 The 11 apostles followed Christ to the top of the Mount of Olives, and this is recorded in our scriptures, when the two angels who were there said:
 
 “Ye men of Galilee, why stand ye gazing up into heaven? this same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven.” ([[Acts 1.11|Acts 1:11]].)
 
-“Now if Christ be preached that he rose from the dead, how say some among you that there is no resurrection of the dead?” ([[1 Corinthians 15.12|1 Cor. 15:12]].)
+“Now if Christ be preached that he rose from the dead, how say some among you that there is no resurrection of the dead?” ([[1 Corinthians 15.12|1 Cor. 15:12]].)
 
 The purpose of this conference is that we may refresh our faith, strengthen our testimonies, and learn the ways of the Lord from his duly appointed and authorized servants. May we take this opportunity, then, to remind each other of our covenants and promises and commitments.
 
@@ -161,5 +163,3 @@ Brethren and sisters, God bless you as you move forward to meet all your commitm
 
 
 
-
-#Abortion #Honesty #Marriage #Resurrection #Word_Of_Wisdom

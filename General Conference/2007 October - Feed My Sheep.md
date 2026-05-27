@@ -1,5 +1,7 @@
 # Feed My Sheep
 
+Gordon B. Hinckley
+
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -16,7 +18,7 @@ As a Relief Society presidency, we have studied and pondered the history and pur
 
 Sister Beck mentioned that one thing women of this Church can and should do well is in providing relief.
 
-Consider the principle taught in [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]]. The Lord asked Peter, “Lovest thou me … ?” Peter answered, “Thou knowest that I love thee.” And the Lord replied, “Feed my lambs.” The Lord asked him the second time, “Lovest thou me?” Peter again answered, “Yea, Lord; thou knowest that I love thee.” The Lord said to Peter, “Feed my sheep.” The Lord asked a third time, “Lovest thou me?” Peter answered, “Lord, thou knowest all things; thou knowest that I love thee.” Jesus said unto him, “Feed my sheep.”
+Consider the principle taught in [[John 21.15|John 21:15–17]][[John 21.16|]][[John 21.17|]]. The Lord asked Peter, “Lovest thou me … ?” Peter answered, “Thou knowest that I love thee.” And the Lord replied, “Feed my lambs.” The Lord asked him the second time, “Lovest thou me?” Peter again answered, “Yea, Lord; thou knowest that I love thee.” The Lord said to Peter, “Feed my sheep.” The Lord asked a third time, “Lovest thou me?” Peter answered, “Lord, thou knowest all things; thou knowest that I love thee.” Jesus said unto him, “Feed my sheep.”
 
 As disciples of Christ, we too declare that we love Him. So how do we go about feeding His sheep?
 
@@ -79,8 +81,3 @@ It is my prayer that we will pledge an increased commitment to extend our arms o
 
 [^5]: Personal correspondence.
 
-
-
-
-
-#Friendship #Service #Visiting_Teaching

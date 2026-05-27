@@ -1,6 +1,8 @@
 # Families Can Be Eternal
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -59,8 +61,3 @@ I bear you my solemn witness that God lives, that Jesus Christ lives, and that h
 
 
 
-
-
-
-
-#Family #Morality

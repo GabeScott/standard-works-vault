@@ -1,6 +1,8 @@
 # Are We Not All Beggars?
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -28,7 +30,7 @@ Given the monumental challenge of addressing inequity in the world, what can one
 
 Jesus said:
 
-“Why trouble ye her? she hath wrought a good work. …
+“Why trouble ye her? she hath wrought a good work. …
 
 *“She hath done what she could.”*[^8]
 
@@ -46,9 +48,9 @@ Now, lest I be accused of proposing quixotic global social programs or of endors
 
 You will recognize that I speak here of difficult societal needs that go well beyond members of the Church. Fortunately the Lord’s way of assisting our own is easier: all who are physically able are to observe the law of the fast. Isaiah wrote:
 
-“Is not this the fast that I have chosen? …
+“Is not this the fast that I have chosen? …
 
-“Is it not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him … ? \[that thou\] undo the heavy burdens, and … let the oppressed go free … ?”[^16]
+“Is it not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him … ? \[that thou\] undo the heavy burdens, and … let the oppressed go free … ?”[^16]
 
 I bear witness of the miracles, both spiritual and temporal, that come to those who live the law of the fast. I bear witness of the miracles that have come to me. Truly, as Isaiah recorded, I have cried out in the fast more than once, and truly God has responded, “Here I am.”[^17] Cherish that sacred privilege at least monthly, and be as generous as circumstances permit in your fast offering and other humanitarian, educational, and missionary contributions. I promise that God will be generous to you, and those who find relief at your hand will call your name blessed forever. More than three-quarters of a million members of the Church were helped last year through fast offerings administered by devoted bishops and Relief Society presidents. That is a lot of grateful Latter-day Saints.
 
@@ -65,7 +67,7 @@ In an 1831 revelation to the Prophet Joseph Smith, the Lord said the poor would 
 
 [^2]: [[Matthew 8.20|Matthew 8:20]].
 
-[^3]: [[2 Nephi 2.14|2 Nephi 2:14]]; [[3 Nephi 9.15|3 Nephi 9:15]].
+[^3]: [[2 Nephi 2.14|2 Nephi 2:14]]; [[3 Nephi 9.15|3 Nephi 9:15]].
 
 [^4]: [[Isaiah 3.14|Isaiah 3:14–15]][[Isaiah 3.15|]].
 
@@ -77,7 +79,7 @@ In an 1831 revelation to the Prophet Joseph Smith, the Lord said the poor would 
 
 [^8]: [[Mark 14.6|Mark 14:6, 8]][[Mark 14.8|]]; emphasis added.
 
-[^9]: Mother Teresa of Calcutta, *My Life for the Poor,* ed. José Luis González-Balado and Janet N. Playfoot (1985), 20.
+[^9]: Mother Teresa of Calcutta, *My Life for the Poor,* ed. José Luis González-Balado and Janet N. Playfoot (1985), 20.
 
 [^10]: See Malcolm Muggeridge, *Something Beautiful for God* (1986), 28–29, 118–19; see also [[Luke 15.7|Luke 15:7]].
 
@@ -97,14 +99,9 @@ In an 1831 revelation to the Prophet Joseph Smith, the Lord said the poor would 
 
 [^18]: Attributed to John Bradford; see *The Writings of John Bradford,* ed. Aubrey Townsend (1853), xliii.
 
-[^19]: “Because I Have Been Given Much,” *Hymns,* no. 219. © Harper San Francisco.
+[^19]: “Because I Have Been Given Much,” *Hymns,* no. 219. © Harper San Francisco.
 
 [^20]: [[Isaiah 52.7|Isaiah 52:7]].
 
 [^21]: [[D&C 56.18|Doctrine and Covenants 56:18]]; see also [[D&C 56.19|verse 19]].
 
-
-
-
-
-#Discipleship #Fasting #Generosity #Prayer #Welfare

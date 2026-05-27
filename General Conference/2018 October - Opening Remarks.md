@@ -1,6 +1,8 @@
 # Opening Remarks
 
-By President Russell M. Nelson - *President of the Church*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of the Church*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -28,19 +30,14 @@ For many years, Church leaders have been working on an integrated curriculum to 
 
 This morning we will announce a new balance and connection between gospel instruction in the home and in the Church. We are each responsible for our individual spiritual growth. And scriptures make it clear that parents have the primary responsibility to teach the doctrine to their children.[^2] It is the responsibility of the Church to assist each member in the divinely defined goal of increasing his or her gospel knowledge.
 
-Elder Quentin L. Cook will now explain these important adjustments. All members of the Council of the First Presidency and Quorum of the Twelve Apostles are united in endorsing this message. We gratefully acknowledge the inspiration from the Lord that has influenced the development of the plans and procedures that Elder Cook will present.
+Elder Quentin L. Cook will now explain these important adjustments. All members of the Council of the First Presidency and Quorum of the Twelve Apostles are united in endorsing this message. We gratefully acknowledge the inspiration from the Lord that has influenced the development of the plans and procedures that Elder Cook will present.
 
 My dear brothers and sisters, I know that God lives! Jesus is the Christ! This is His Church that He directs by prophecy and revelation to His humble servants. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: See Russell M. Nelson and Wendy W. Nelson, “[Hope of Israel](https://www.lds.org/languages/eng/content/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.lds.org.
+[^1]: See Russell M. Nelson and Wendy W. Nelson, “[Hope of Israel](https://www.lds.org/languages/eng/content/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.lds.org.
 
 [^2]: See [[D&C 93.40|Doctrine and Covenants 93:40]]; [[Moses 6.58|Moses 6:58–62]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]].
 
-
-
-
-
-#Curriculum #Home #Ministering #Sabbath

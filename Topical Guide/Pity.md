@@ -1,7 +1,6 @@
 # Pity
 
-
-*See also* [[Compassion.md|Compassion]]; [[God, Mercy of.md|God, Mercy of]]; [[Kindness.md|Kindness]]; [[Mercy, Merciful.md|Mercy]]
+*See also* [[Compassion.md|Compassion]]; [[God, Mercy of.md|God, Mercy of]]; [[Kindness.md|Kindness]]; [[Mercy.md|Mercy]]
 
 To him that is afflicted *pity* should be shewed, [[Job 6.14|Job 6:14]].
 
@@ -15,13 +14,13 @@ in his love and in his *pity* he redeemed them, [[Isaiah 63.9|Isaiah 63:9]].
 
 I had *pity* for mine holy name, [[Ezekiel 36.21|Ezekiel 36:21]].
 
-Then will the Lord ... *pity* his people, [[Joel 2.18|Joel 2:18]].
+Then will the Lord … *pity* his people, [[Joel 2.18|Joel 2:18]].
 
 I will no more *pity* the inhabitants of the land, [[Zechariah 11.6|Zechariah 11:6]].
 
 even as I had *pity* on thee, [[Matthew 18.33|Matthew 18:33]].
 
-fallen into the hands of their brethren, had it not been for the *pity* ... Ammon and his brethren had, [[Alma 53.11|Alma 53:11]].
+fallen into the hands of their brethren, had it not been for the *pity* … Ammon and his brethren had, [[Alma 53.11|Alma 53:11]].
 
 Lord, look upon me in *pity*, [[Ether 3.3|Ether 3:3]].
 

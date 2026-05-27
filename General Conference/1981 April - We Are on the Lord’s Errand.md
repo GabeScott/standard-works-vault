@@ -1,6 +1,8 @@
 # We Are on the Lord’s Errand
 
-By President Spencer W. Kimball - *President of the Church*
+Marion G. Romney
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -14,7 +16,7 @@ As Sister Kimball and I have traveled to many places of the world these past six
 
 In this conference we have been counseled to conserve our resources and ease the financial burdens on our people. Again we urge the planting of home gardens and the maintenance of a year’s supply of food and clothing against a time of need.
 
-We urge all Latter-day Saints to be good neighbors and to be good citizens, loyal to their flag and country. “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].) All Americans, and indeed people throughout the civilized world, were shocked and saddened last week when an attempt was made to assassinate the president of the United States, at which time he and three others near him were seriously wounded. I am confident all of you join with me in a fervent prayer that President Reagan and his associates will speedily return to full health and strength. We deplore such acts of violence wherever they may occur in the world.
+We urge all Latter-day Saints to be good neighbors and to be good citizens, loyal to their flag and country. “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].) All Americans, and indeed people throughout the civilized world, were shocked and saddened last week when an attempt was made to assassinate the president of the United States, at which time he and three others near him were seriously wounded. I am confident all of you join with me in a fervent prayer that President Reagan and his associates will speedily return to full health and strength. We deplore such acts of violence wherever they may occur in the world.
 
 During this conference we have focused on the basic mission of the Church. We have been counseled to manage the growth of the Church “in wisdom and order.” ([[Mosiah 4.27|Mosiah 4:27]].) We have been urged to qualify ourselves to receive all the ordinances and blessings of the gospel by keeping the commandments, doing our duty, and paying a true tithe and generous fast offerings.
 
@@ -37,8 +39,3 @@ My brethren and sisters, I testify to you that this is the Lord’s work and tha
 
 
 
-
-
-
-
-#Church_Growth

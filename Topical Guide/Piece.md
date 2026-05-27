@@ -1,13 +1,12 @@
 # Piece
 
-
 *See also* [[Portion.md|Portion]]
 
 Surely he is torn in *pieces*, [[Genesis 44.28|Genesis 44:28]].
 
 Samuel hewed Agag in *pieces* before the Lord, [[1 Samuel 15.33|1 Samuel 15:33]].
 
-Ahijah caught the new garment ... and rent it in twelve *pieces*, [[1 Kings 11.30|1 Kings 11:30]].
+Ahijah caught the new garment … and rent it in twelve *pieces*, [[1 Kings 11.30|1 Kings 11:30]].
 
 weighed for my price thirty *pieces* of silver, [[Zechariah 11.12|Zechariah 11:12]] ([[Matthew 26.15|Matthew 26:15]]; [[Matthew 27.9|Matthew 27:9]]).
 

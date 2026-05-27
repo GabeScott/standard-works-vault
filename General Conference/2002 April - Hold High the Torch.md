@@ -1,5 +1,7 @@
 # Hold High the Torch
 
+Gordon B. Hinckley
+
 By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 2002 General Conference*
@@ -61,8 +63,3 @@ Dear young women, let your light shine so brightly before all of your family and
 
 [^5]: First Presidency letter on strengthening youth, 28 Sept. 2001.
 
-
-
-
-
-#Example #Morality #Obedience #Standards

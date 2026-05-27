@@ -1,6 +1,8 @@
 # Let Us All Press On
 
-By President Russell M. Nelson - *President of the Church*
+Henry B. Eyring
+
+By President Russell M. Nelson - *President of the Church*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -44,8 +46,3 @@ I bless you to raise your voice in testimony, as I do now, that we are engaged i
 
 [^2]: Defined in [[D&C 14.7|Doctrine and Covenants 14:7]] as “the greatest of all the gifts of God.”
 
-
-
-
-
-#Covenants #Discipleship #Faith #Family_History #General_Conference #Temple_Work

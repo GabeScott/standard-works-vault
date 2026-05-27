@@ -1,5 +1,7 @@
 # Overcoming Adversity
 
+Ezra Taft Benson
+
 By Elder Carlos H. Amado - *Of the Second Quorum of the Seventy*
 
 *Given in the October session of the 1989 General Conference*
@@ -45,8 +47,3 @@ Basically, we limit our vision to the events that happen in this life with the g
 
 
 
-
-
-
-
-#Adversity #Faith #Humility #Obedience

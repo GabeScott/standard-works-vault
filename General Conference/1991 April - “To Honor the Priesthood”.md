@@ -1,5 +1,7 @@
 # “To Honor the Priesthood”
 
+Thomas S. Monson
+
 By Elder J. Richard Clarke - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -16,7 +18,7 @@ No big deal? If he only knew how big! I wondered how he reached such a conclusio
 
 We often say impulsive things as youth that we probably would not say with more maturity. I hope this young man is now serving a mission and getting a better idea of what it really means to bear the Melchizedek Priesthood.
 
-President Benson has said: “The greatest power in this world is the power \[of the\] priesthood. … No greater honor or blessing can come to man than the authority to act in the name of God” (*The Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], p. 219). What a privilege! What a trust!
+President Benson has said: “The greatest power in this world is the power \[of the\] priesthood. … No greater honor or blessing can come to man than the authority to act in the name of God” (*The Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], p. 219). What a privilege! What a trust!
 
 May I offer two suggestions to help us better honor the priesthood:
 
@@ -28,7 +30,7 @@ To have the priesthood conferred upon us does not automatically bless us with po
 
 The power of the priesthood comes gradually. Even our Savior had to master the flesh and grow “grace for grace” until He received a fulness ([[D&C 93.12|D&C 93:12–13]][[D&C 93.13|]]). We may also, if we are true and faithful to our covenants.
 
-However, we may forfeit priesthood power when we commit transgression. Spiritual powers are sensitive and withdraw from evil influences. As Peter warned, we must escape “the corruption that is in the world” ([[2 Peter 1.4|2 Pet. 1:4]]).
+However, we may forfeit priesthood power when we commit transgression. Spiritual powers are sensitive and withdraw from evil influences. As Peter warned, we must escape “the corruption that is in the world” ([[2 Peter 1.4|2 Pet. 1:4]]).
 
 I was proud of a young priest, Rick Dove of Tucker, Georgia, who reported his experience at a rock concert. He observed the drinking, dress, profanity, and general crudeness of the young people there. He said, “I suddenly remembered who I am and felt that I was out of place, so I left.”
 
@@ -81,8 +83,3 @@ In his last tender letter to Moroni, Mormon concluded: “My son, be faithful in
 
 
 
-
-
-
-
-#Authority #Faith #Priesthood #Repentance #Service #Spirituality

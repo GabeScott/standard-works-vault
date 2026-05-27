@@ -1,6 +1,8 @@
 # Of the World or of the Kingdom?
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+Harold B. Lee
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -51,8 +53,3 @@ May the Lord bless us in our righteous endeavors to shun the influences that lea
 
 
 
-
-
-
-
-#Kingdom_Of_God #Worldliness

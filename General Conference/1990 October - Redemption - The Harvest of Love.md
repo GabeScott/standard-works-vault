@@ -1,5 +1,7 @@
 # Redemption: The Harvest of Love
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -91,8 +93,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Family_History #Temple_Work #Temples

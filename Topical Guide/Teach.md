@@ -1,4 +1,3 @@
 # Teach
 
-
-*See* [[Teaching, Teach, Taught.md|Teaching]]
+*See also* [[Teaching.md|Teaching]]

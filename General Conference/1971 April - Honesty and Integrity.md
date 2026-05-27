@@ -1,12 +1,14 @@
 # Honesty and Integrity
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/04/honesty-and-integrity?lang=eng)
 
-My brothers and sisters: This has been a wonderful conference. Most worthwhile messages have been given, which recalls a statement by a young man in his late teens. He sought out his stake president following a stake conference attended by our beloved brother, the late Elder Thorpe B. Isaacson, and enthusiastically said, in the jargon of youth, “President, this conference really shook me. Elder Isaacson was really round.” And then he added, “This was a hairy conference.” Now you dig his meaning.
+My brothers and sisters: This has been a wonderful conference. Most worthwhile messages have been given, which recalls a statement by a young man in his late teens. He sought out his stake president following a stake conference attended by our beloved brother, the late Elder Thorpe B. Isaacson, and enthusiastically said, in the jargon of youth, “President, this conference really shook me. Elder Isaacson was really round.” And then he added, “This was a hairy conference.” Now you dig his meaning.
 
 The first part of the [[Articles of Faith 1.13|thirteenth Article of Faith]] states: “We believe in being honest.” Honesty embraces many meanings, such as integrity, sincerity, according to the truth, just, honorable, virtuous, purity of life, moral character, and uprightness in mutual dealings.
 
@@ -20,7 +22,7 @@ In all humility and sincerity we must admit a power higher than ourselves from w
 
 Carlyle said: “Make yourself an honest man, and then you may be sure there is one rascal less in the world.” Can there be a truly honest man without him being a good man, or can there be a truly good man without him being an honest man? It seems honesty must begin with oneself; otherwise we could not recognize this quality in others. We see things not as *they* are, but as *we* are. It is the responsibility of each of us to be honest ourselves—honest in our dealings and relationships, honest in our church membership, honest in keeping the commandments of God.
 
-It was said of King Mosiah’s sons: “… they were men of truth and soberness, for they had been taught to keep the commandments of God and to walk uprightly before him.” ([[Alma 53.21|Alma 53:21]].)
+It was said of King Mosiah’s sons: “… they were men of truth and soberness, for they had been taught to keep the commandments of God and to walk uprightly before him.” ([[Alma 53.21|Alma 53:21]].)
 
 Honesty and integrity as perfected virtues in parents are more likely to become the heritage and rich endowments of their children. Parents cannot give to their children that which they do not possess. All these fine ideals and principles that are a part of the gospel teachings, together with all the virtues that make for good character and good life, should be perfected in each of us. In that perfection they become a part of our nature, and when parenthood comes, these virtues are more apt to be transmitted to our children. We read in Proverbs: “The just man walketh in his integrity: his children are blessed after him.” ([[Proverbs 20.7|Prov. 20:7]].) How true and basic this statement is!
 
@@ -65,8 +67,3 @@ I bear witness to you of these things. I know that we must be Christlike in all 
 
 
 
-
-
-
-
-#Honesty

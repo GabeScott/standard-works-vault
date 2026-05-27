@@ -1,6 +1,8 @@
 # Being a More Christian Christian
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -30,7 +32,7 @@ Consider with me the experience of two Christian disciples:
 
 “And they straightway left their nets, and followed him.”[^1]
 
-As Christians today, we have the opportunity to act straightway, immediately, and decisively, just as Peter and Andrew did: “they forsook their nets, and followed him.”[^2] We too are called upon to leave our nets, to reject worldly habits, customs, and traditions. We are also called to forsake our sins. “When \[Jesus\] had called the people unto him … , he said unto them, Whosoever will come after me, let him deny himself, and take up his cross, and follow me.”[^3] Denying ourselves of ungodly behavior is the beginning of repentance, which brings a mighty change of heart until “we have no more disposition to do evil.”[^4]
+As Christians today, we have the opportunity to act straightway, immediately, and decisively, just as Peter and Andrew did: “they forsook their nets, and followed him.”[^2] We too are called upon to leave our nets, to reject worldly habits, customs, and traditions. We are also called to forsake our sins. “When \[Jesus\] had called the people unto him … , he said unto them, Whosoever will come after me, let him deny himself, and take up his cross, and follow me.”[^3] Denying ourselves of ungodly behavior is the beginning of repentance, which brings a mighty change of heart until “we have no more disposition to do evil.”[^4]
 
 This change, called conversion, is possible only through the Savior. Jesus promised: “If men come unto me I will show unto them their weakness. … And my grace is sufficient for all men that humble themselves before me; for if they humble themselves before me, and have faith in me, then will *I make weak things become strong unto them.*”[^5] As we are *made new* in Christ, our very natures change and we no longer want to go back to our old ways.
 
@@ -95,7 +97,7 @@ These are some of the characteristics of those who hear and heed the Savior’s 
 
 [^10]: [[Matthew 4.19|Matthew 4:19]]; emphasis added.
 
-[^11]: See “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270.
+[^11]: See “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270.
 
 [^12]: See [[Matthew 18.12|Matthew 18:12–14]][[Matthew 18.13|]][[Matthew 18.14|]].
 
@@ -107,8 +109,3 @@ These are some of the characteristics of those who hear and heed the Savior’s 
 
 [^16]: [[Luke 18.22|Luke 18:22]].
 
-
-
-
-
-#Christianity #Discipleship

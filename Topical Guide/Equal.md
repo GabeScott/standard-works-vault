@@ -1,9 +1,8 @@
 # Equal
 
-
 *See also* [[Equality.md|Equality]]; [[Equity.md|Equity]]
 
-way of the Lord is not *equal*, [[Ezekiel 18.25|Ezekiel 18:25]] ([[Ezekiel 18.29|Ezekiel 18:29]]; [[Ezekiel 33.17|Ezekiel 33:17]], [[Ezekiel 33.20|Ezekiel 33:20]]).
+way of the Lord is not *equal*, [[Ezekiel 18.25|Ezekiel 18:25]] ([[Ezekiel 18.29|Ezekiel 18:29]]; [[Ezekiel 33.17|Ezekiel 33:17]]; [[Ezekiel 33.20|Ezekiel 33:20]]).
 
 their way is not *equal*, [[Ezekiel 33.17|Ezekiel 33:17]].
 

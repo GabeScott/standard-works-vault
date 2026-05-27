@@ -1,6 +1,8 @@
 # Pornography—the Deadly Carrier
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -42,11 +44,11 @@ Some persons struggle to differentiate between what they term “soft-core” an
 
 The constant, consuming march of the pornography beetle blights neighborhoods just as it contaminates human lives. Some are particularly scarred by its insidious touch.
 
-Come with me for a moment to a place portrayed in song—dear to the heart of America—New York City’s world-famous landmark of Broadway and Forty-fifth Street. There, standing so forlornly alone on a tiny island surrounded by bustling traffic, is a heroic-size statue of Father Francis P. Duffy, well-known chaplain of the Fighting Sixty-ninth of World War I fame. He wears the uniform of the battlefield. He carries a canteen to relieve the physical distress of the wounded and a Bible to bring spiritual comfort to the dying.
+Come with me for a moment to a place portrayed in song—dear to the heart of America—New York City’s world-famous landmark of Broadway and Forty-fifth Street. There, standing so forlornly alone on a tiny island surrounded by bustling traffic, is a heroic-size statue of Father Francis P. Duffy, well-known chaplain of the Fighting Sixty-ninth of World War I fame. He wears the uniform of the battlefield. He carries a canteen to relieve the physical distress of the wounded and a Bible to bring spiritual comfort to the dying.
 
-As we gaze at this splendid statue, there courses through memory’s corridors such melodies of the period as “Over There,” “Keep the Home Fires Burning,” and “Give My Regards to Broadway.” Were those fallen warriors who knew the song and remembered with affection Broadway and Forty-fifth Street to return and stand with us at the side of Father Duffy’s statue, what sight would meet their eyes and ours? On every hand are massage parlors, sex shops, X-rated movies—the neon-lighted signs flashing their facade of allure. The statue of Father Francis P. Duffy stands surrounded by sin, engulfed by evil. The pornography beetle has just about destroyed this area. He moves relentlessly closer to your city, your neighborhood, and your family.
+As we gaze at this splendid statue, there courses through memory’s corridors such melodies of the period as “Over There,” “Keep the Home Fires Burning,” and “Give My Regards to Broadway.” Were those fallen warriors who knew the song and remembered with affection Broadway and Forty-fifth Street to return and stand with us at the side of Father Duffy’s statue, what sight would meet their eyes and ours? On every hand are massage parlors, sex shops, X-rated movies—the neon-lighted signs flashing their facade of allure. The statue of Father Francis P. Duffy stands surrounded by sin, engulfed by evil. The pornography beetle has just about destroyed this area. He moves relentlessly closer to your city, your neighborhood, and your family.
 
-An ominous warning was voiced by Laurence M. Gould, president emeritus of Carleton College:
+An ominous warning was voiced by Laurence M. Gould, president emeritus of Carleton College:
 
 “I do not believe the greatest threat to our future is from bombs or guided missiles. I don’t think our civilization will die that way. I think it will die when we no longer care. Arnold Toynbee has pointed out that 19 of 21 civilizations have died from within and not by conquest from without. There were no bands playing and flags waving when these civilizations decayed. It happened slowly, in the quiet and the dark when no one was aware.”
 
@@ -79,8 +81,3 @@ That we may do so is my sincere prayer, in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Media #Morality

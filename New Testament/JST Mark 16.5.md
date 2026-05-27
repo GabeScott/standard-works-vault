@@ -4,6 +4,3 @@
 
 [JST Mark 16:5](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-mark/16?lang=eng)
 
-
-
-

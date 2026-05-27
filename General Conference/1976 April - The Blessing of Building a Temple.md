@@ -1,12 +1,14 @@
 # The Blessing of Building a Temple
 
-By Elder Adney Y. Komatsu - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Adney Y. Komatsu - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1976/04/the-blessing-of-building-a-temple?lang=eng)
 
-My dear brothers and sisters and friends: It is glorious to be here with you in this great conference and feel the Spirit of the Lord made manifest through the many inspired words spoken by the Brethren. My testimony has been strengthened; my heart has been touched by the spoken words. I humbly bear you my testimony that I know that this is the Lord’s church, led by a living prophet of God, President Spencer W. Kimball.
+My dear brothers and sisters and friends: It is glorious to be here with you in this great conference and feel the Spirit of the Lord made manifest through the many inspired words spoken by the Brethren. My testimony has been strengthened; my heart has been touched by the spoken words. I humbly bear you my testimony that I know that this is the Lord’s church, led by a living prophet of God, President Spencer W. Kimball.
 
 President Kimball has repeatedly admonished us of the necessity for more missionaries to bring the gospel message to the peoples of the world. He has reminded us that every worthy young man should go on a mission. Today we are experiencing an increase in convert baptisms as more dedicated young men and women answer their calls to serve as missionaries for the Lord. The Church is growing very rapidly in many parts of the world because of the leadership and direction we receive from a living prophet of God.
 
@@ -42,13 +44,8 @@ It is a Japanese tradition that families gather together for special holidays in
 
 Today many young men and women are completing their family group sheets and are teaching the gospel of Jesus Christ to their parents and their relatives by this method. Through genealogical research and through doing temple work for their progenitors, and especially with a temple now becoming available in Tokyo, members can so live that the gospel will yet be embraced by many more in the Orient. This great work has just begun.
 
-I bear you my witness that the gospel of Jesus Christ is the way of salvation for the living and the dead and that God hears and answers our prayers. He will inspire and assist us to gather up the records of our progenitors, and he will open the way that we may bring joy and salvation into the lives of those who blessed us with this life. I bear you my humble testimony that I know that Joseph Smith was an instrument in the hands of the Lord to restore the gospel in these last days and we have a living prophet in President Spencer W. Kimball, who is guiding and directing The Church of Jesus Christ of Latter-day Saints. To this I testify, in the name of Jesus Christ. Amen.
+I bear you my witness that the gospel of Jesus Christ is the way of salvation for the living and the dead and that God hears and answers our prayers. He will inspire and assist us to gather up the records of our progenitors, and he will open the way that we may bring joy and salvation into the lives of those who blessed us with this life. I bear you my humble testimony that I know that Joseph Smith was an instrument in the hands of the Lord to restore the gospel in these last days and we have a living prophet in President Spencer W. Kimball, who is guiding and directing The Church of Jesus Christ of Latter-day Saints. To this I testify, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Missionary_Work #Temples

@@ -1,5 +1,7 @@
 # Knowing That We Know
 
+Gordon B. Hinckley
+
 By Elder Douglas L. Callister - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -46,7 +48,7 @@ Alma spoke of his conversion in these beautiful words: “I have fasted and pray
 
 When a testimony has been realized, there is a burning urge on the part of the possessor to bear that testimony to others. When Brigham Young left the waters of baptism, he said: “The spirit of the Lord was upon me, and I felt as though my bones would consume within me unless I spoke to the people. … The first discourse I ever delivered I occupied over an hour. I opened my mouth and the Lord filled it.”[^2] As a fire will not burn except the flame be revealed, a testimony cannot abide except it be expressed.
 
-Brigham Young later said of Orson Pratt, “If Brother Orson \[were\] chopped up in inch pieces, each piece would cry out, ‘Mormonism \[is\] true.’”[^3] Father Lehi eulogized his noble son Nephi in these words: “But behold, it was not he, but it was the Spirit of the Lord which was in him, which opened his mouth to utterance that he could not shut it” ([[2 Nephi 1.27|2 Nephi 1:27]]).
+Brigham Young later said of Orson Pratt, “If Brother Orson \[were\] chopped up in inch pieces, each piece would cry out, ‘Mormonism \[is\] true.’”[^3] Father Lehi eulogized his noble son Nephi in these words: “But behold, it was not he, but it was the Spirit of the Lord which was in him, which opened his mouth to utterance that he could not shut it” ([[2 Nephi 1.27|2 Nephi 1:27]]).
 
 The opportunity and responsibility for testimony bearing exist first in the family setting. Our children should be able to remember the light in our eyes, the ring of our testimonies in their ears, and the feeling in their hearts as we bear witness to our most precious audience that Jesus was truly God’s own Son and Joseph was His prophet. Our posterity must know that we know, because we oft tell them.
 
@@ -65,8 +67,3 @@ I have a testimony. It urges to be expressed. I bear witness that the power of t
 
 [^3]: President Brigham Young’s Office Journal, Oct. 1, 1860, Brigham Young Office Files, Church Archives, The Church of Jesus Christ of Latter-day Saints; punctuation and capitalization modernized.
 
-
-
-
-
-#Conversion #Testimony

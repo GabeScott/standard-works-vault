@@ -1,15 +1,14 @@
 # Contrite Heart
 
-
-*See also* [[Humility, Humble.md|Humility]]; [[Meek, Meekness.md|Meek]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Repent, Repentance.md|Repent]]; [[Teachable.md|Teachable]]
+*See also* [[Humility.md|Humility]]; [[Meek.md|Meek]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Repent.md|Repent]]; [[Teachable.md|Teachable]]
 
 if then their uncircumcised hearts be *humbled*, [[Leviticus 26.41|Leviticus 26:41]].
 
 saveth such as be of a *contrite* spirit, [[Psalms 34.18|Psalms 34:18]].
 
-sacrifices of God ... broken and a *contrite* heart, [[Psalms 51.17|Psalms 51:17]].
+sacrifices of God … broken and a *contrite* heart, [[Psalms 51.17|Psalms 51:17]].
 
-I dwell ... with him also that is of a *contrite* and humble spirit, [[Isaiah 57.15|Isaiah 57:15]].
+I dwell … with him also that is of a *contrite* and humble spirit, [[Isaiah 57.15|Isaiah 57:15]].
 
 I look, even to him that is poor and of a *contrite* spirit, [[Isaiah 66.2|Isaiah 66:2]].
 
@@ -27,6 +26,4 @@ he that prayeth, whose spirit is *contrite*, [[D&C 52.15|D&C 52:15]].
 
 hearts are broken, and whose spirits are *contrite*, [[D&C 56.18|D&C 56:18]].
 
-Spirit is sent ... to enlighten the humble and *contrite*, [[D&C 136.33|D&C 136:33]].
-
-*See also* [[Psalms 147.3|Psalms 147:3]]; [[Isaiah 61.1|Isaiah 61:1]]; [[Joel 2.12|Joel 2:12-13]][[Joel 2.13|]]; [[Matthew 5.3|Matthew 5:3]]; [[Hebrews 3.15|Hebrews 3:15]]; [[Moroni 8.25|Moroni 8:25]].
+Spirit is sent … to enlighten the humble and *contrite*, [[D&C 136.33|D&C 136:33]].

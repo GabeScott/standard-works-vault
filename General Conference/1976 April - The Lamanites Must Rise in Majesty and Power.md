@@ -1,6 +1,8 @@
 # The Lamanites Must Rise in Majesty and Power
 
-By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder J. Thomas Fyans - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -20,7 +22,7 @@ John Taylor expressed this thought: “The same organization of priesthood, must
 
 President Wilford Woodruff penetrated the future and revealed, “Zion is bound to rise and flourish. The Lamanites will blossom as the rose on the mountains. … Every word that God has ever said of them will have its fulfillment, and they, by and by, will receive the Gospel. It will be a day of God’s power among them, and a nation will be born in a day.” (*Journal of Discourses,* 15:282.)
 
-Now may we consider the book of revelations of today as shared with us by the present prophet, President Spencer W. Kimball: “The Lamanites must rise in majesty and power.” (*Conference Reports,* Oct. 1947, p. 22.)
+Now may we consider the book of revelations of today as shared with us by the present prophet, President Spencer W. Kimball: “The Lamanites must rise in majesty and power.” (*Conference Reports,* Oct. 1947, p. 22.)
 
 This prophetic statement was made on October 3, 1947, when in Central America we had fewer than 100 members and in that great land of Mexico fewer than 5,000, half of whom were in the Mormon colonies. “The Lamanites must rise in majesty,” I repeat. The fewer than 100 in Central America when these prophetic words were uttered has blossomed into more than 40,000 as of today. From the fewer than 5,000 in Mexico at that time, a rich harvest of over 150,000 stand tall in the field white already to harvest; the total membership of 1947 but represents harvest of a pair of months today.
 
@@ -30,13 +32,13 @@ When these words reached our ears in 1947 it wouldn’t have required the finger
 
 “They shall be operating farms,” President Kimball said. One stake president manages a complex of seven farms with over 400,000 chickens.
 
-President Kimball continues: “… businesses and industries and … occupied in the professions and in teaching.” Listen to this list describing stake presidencies, high councilors, and bishops in the Mexico City area: architects; attorneys; engineers (agronomic, biochemical, mechanical, aeronautical, petroleum, topographical, civil, electrical); doctors of medicine, including surgeons and pediatricians; dentists; nurses; business managers; tailors; carpenters; building contractors; teachers; school administrators; auto mechanics; business machine repairmen; blacksmiths; insurance agents; farmers—some very humble … and the list goes on and on.
+President Kimball continues: “… businesses and industries and … occupied in the professions and in teaching.” Listen to this list describing stake presidencies, high councilors, and bishops in the Mexico City area: architects; attorneys; engineers (agronomic, biochemical, mechanical, aeronautical, petroleum, topographical, civil, electrical); doctors of medicine, including surgeons and pediatricians; dentists; nurses; business managers; tailors; carpenters; building contractors; teachers; school administrators; auto mechanics; business machine repairmen; blacksmiths; insurance agents; farmers—some very humble … and the list goes on and on.
 
 To match this list is the rising of a nation.
 
 The birthplace of one of the largest refineries in Latin America rests within view of ancient Toltec statuary, waiting to process encased rivers of oil propelled for hundreds of miles over mountains and across valleys. An electric generating complex sufficient to produce comfort for many cities is pushing into the sky beside the remains of ancient civilizations that reached a peak of peace toward which we are striving.
 
-And President Kimball now continues: “… when they shall be organized into wards and stakes of Zion.” (Ibid.) Fifteen stakes organized in one day. Many more in the wings awaiting polishing and final approval.
+And President Kimball now continues: “… when they shall be organized into wards and stakes of Zion.” (Ibid.) Fifteen stakes organized in one day. Many more in the wings awaiting polishing and final approval.
 
 Hermanos de Mexico y America Central, favor de ponerse de pie.
 
@@ -61,8 +63,3 @@ The Lord is our light, and that light comes through the prophets. Of this I test
 
 
 
-
-
-
-
-#House_Of_Israel #Native_Americans

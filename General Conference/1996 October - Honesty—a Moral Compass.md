@@ -1,5 +1,7 @@
 # Honesty—a Moral Compass
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -81,7 +83,7 @@ The account is told by a coach in a junior high school. He states:
 
 “Today was test day in climbing the rope. We climb from a standing start to a point 15 feet high. \[My job is\] to train and teach the boys to negotiate this distance in as few seconds as possible.
 
-“The school record for the event is 2.1 seconds. It has stood for three years. Today this record was broken. …
+“The school record for the event is 2.1 seconds. It has stood for three years. Today this record was broken. …
 
 “For three years Bobby Polacio, a 14 1/2-year-old ninth-grade … boy, \[trained and worked, consumed by his dream\] of breaking this record.
 
@@ -89,9 +91,9 @@ The account is told by a coach in a junior high school. He states:
 
 “As he walked toward me, expressionless, I said, ‘Bobby, did you touch?’ If he had said, ‘Yes,’ the record he had dreamed of since he was a skinny seventh-grader and had worked for almost daily would be his, and he knew I would trust his word.
 
-“With the class already cheering him for his performance, the slim, brown-skinned boy shook his head negatively. And in this simple gesture, I witnessed a moment of greatness. …
+“With the class already cheering him for his performance, the slim, brown-skinned boy shook his head negatively. And in this simple gesture, I witnessed a moment of greatness. …
 
-“… And it was with effort through a tight throat that I told the class: ‘This boy has not set a record in the rope climb. No, he has set a much finer record for you and everyone to strive for. He has told the … truth.’
+“… And it was with effort through a tight throat that I told the class: ‘This boy has not set a record in the rope climb. No, he has set a much finer record for you and everyone to strive for. He has told the … truth.’
 
 “I turned to Bobby and said, ‘Bobby, I’m proud of you. You’ve just set a record many athletes never attain. Now, in your last try I want you to jump a few inches higher on the takeoff.’ …
 
@@ -110,7 +112,7 @@ Holding and exercising the priesthood of God is a marvelous blessing. We are pri
 
 [^2]: As related by Janette Hales Beckham.
 
-[^3]: [[2 Nephi 9.41|2 Ne. 9:41]].
+[^3]: [[2 Nephi 9.41|2 Ne. 9:41]].
 
 [^4]: *Othello,* act 3, scene 3, lines 157–61.
 
@@ -124,8 +126,3 @@ Holding and exercising the priesthood of God is a marvelous blessing. We are pri
 
 [^9]: “Four Simple Things to Help Our Families and Our Nations,” *Ensign,* Sept. 1996, 7.
 
-
-
-
-
-#Honesty #Priesthood #Truth

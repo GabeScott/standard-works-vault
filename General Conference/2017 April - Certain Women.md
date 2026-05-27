@@ -1,6 +1,8 @@
 # Certain Women
 
-By Linda K. Burton - *Relief Society General President*
+Bonnie H. Cordon
+
+By Linda K. Burton - *Relief Society General President*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -8,7 +10,7 @@ By Linda K. Burton - *Relief Society General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/certain-women?lang=eng)
 
-My beloved sisters, how we love you and thank you for your tenderhearted and enthusiastic response to the First Presidency’s invitation and the \#IWasAStranger effort. Please keep praying, listening to the whisperings of the Spirit, and acting on the promptings you receive.
+My beloved sisters, how we love you and thank you for your tenderhearted and enthusiastic response to the First Presidency’s invitation and the #IWasAStranger effort. Please keep praying, listening to the whisperings of the Spirit, and acting on the promptings you receive.
 
 Whether I travel locally or throughout the world, it is not unusual for someone to ask, “Do you remember me?” Because I am painfully imperfect, I must admit I often can’t remember names. However, I do remember the very real love Heavenly Father has allowed me to feel as I meet His precious daughters and sons.
 
@@ -22,7 +24,7 @@ Consider these accounts in the book of Luke. First, during the Savior’s minist
 
 “And it came to pass … that \[Jesus\] went throughout every city and village, preaching and shewing the glad tidings of the kingdom of God: and the twelve were with him,
 
-“And *certain women,* … Mary called Magdalene, … and Joanna … , and Susanna, and many others, which ministered unto him.”[^2]
+“And *certain women,* … Mary called Magdalene, … and Joanna … , and Susanna, and many others, which ministered unto him.”[^2]
 
 Next, following His Resurrection:
 
@@ -68,16 +70,16 @@ As a *certain woman,* Jenny testified: “Not only are we here to save others bu
 
 Sisters, when we have become distracted, doubtful, discouraged, sinful, sorrowful, or soul-stretched, may we accept the Lord’s invitation to drink of His living water, as did the *certain* woman at the well, inviting others to do the same as we bear our own *certain* witness: “Is not this the Christ?”
 
-When life seems unfair, as it must have seemed to Martha at the death of her brother—when we experience the heartaches of loneliness, infertility, loss of loved ones, missing opportunities for marriage and family, broken homes, debilitating depression, physical or mental illness, stifling stress, anxiety, addiction, financial hardship, or a plethora of other possibilities—may we remember Martha and declare our similar *certain* witness: “*But I know … \[and\] I believe* that thou art the Christ, the Son of God.”
+When life seems unfair, as it must have seemed to Martha at the death of her brother—when we experience the heartaches of loneliness, infertility, loss of loved ones, missing opportunities for marriage and family, broken homes, debilitating depression, physical or mental illness, stifling stress, anxiety, addiction, financial hardship, or a plethora of other possibilities—may we remember Martha and declare our similar *certain* witness: “*But I know … \[and\] I believe* that thou art the Christ, the Son of God.”
 
 May we remember the many *certain women* who refused to abandon our precious Savior during the excruciating experience He suffered on the cross and yet hours later were privileged to be among the *certain* witnesses of His glorious Resurrection. Let us be found staying close to Him in prayer and scripture study. Let us draw ourselves near to Him by preparing for and partaking of the sacred emblems of His atoning sacrifice weekly during the ordinance of the sacrament and as we keep covenants by serving others in their times of need. Perhaps then we might be part of the *certain women,* disciples of Jesus Christ, who will celebrate His glorious return when He comes again.
 
-Sisters, I testify of loving Heavenly Parents; of our Savior, Jesus Christ; and of His infinite Atonement in our behalf. I know the Prophet Joseph Smith was foreordained as the prophet of the Restoration. I know the Book of Mormon is true and was translated by the power of God. We have been blessed with a living prophet in our own day, President Thomas S. Monson. Of these truths I am *certain*! In the name of Jesus Christ, amen.
+Sisters, I testify of loving Heavenly Parents; of our Savior, Jesus Christ; and of His infinite Atonement in our behalf. I know the Prophet Joseph Smith was foreordained as the prophet of the Restoration. I know the Book of Mormon is true and was translated by the power of God. We have been blessed with a living prophet in our own day, President Thomas S. Monson. Of these truths I am *certain*! In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: *Daughters in My Kingdom: The History and Work of Relief Society* (2011), 3.
+[^1]: *[Daughters in My Kingdom: The History and Work of Relief Society](https://www.lds.org/relief-society/daughters-in-my-kingdom/manual/relief-society-a-restoration-of-an-ancient-pattern)* (2011), 3.
 
 [^2]: [[Luke 8.1|Luke 8:1–3]][[Luke 8.2|]][[Luke 8.3|]]; emphasis added.
 
@@ -91,12 +93,7 @@ Sisters, I testify of loving Heavenly Parents; of our Savior, Jesus Christ; and 
 
 [^7]: [[John 11.21|John 11:21–22, 27]][[John 11.22|]][[John 11.27|]]; emphasis added.
 
-[^8]: See Jennifer Reeder and Kate Holbrook, eds., *At the Pulpit: 185 Years of Discourses by Latter-day Saint Women* (2017), 51–52.
+[^8]: See Jennifer Reeder and Kate Holbrook, eds., *[At the Pulpit: 185 Years of Discourses by Latter-day Saint Women](https://www.churchhistorianspress.org/at-the-pulpit)* (2017), 51–52.
 
 [^9]: Used with permission of the author, Jennifer Reeder, a specialist in 19th-century women’s history in the Church History Department.
 
-
-
-
-
-#Confidence #Covenants #Discipleship #Jesus_Christ #Sacrifice #Women

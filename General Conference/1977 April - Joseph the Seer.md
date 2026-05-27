@@ -1,6 +1,8 @@
 # Joseph the Seer
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -40,13 +42,13 @@ Joseph Smith’s vision of man’s immortal nature reached from an existence bef
 
 Nor was the gospel he taught limited in application to those of his own and future generations. The mind of Joseph Smith, tutored by the God of heaven, encompassed all mankind of all generations. Both the living and the dead must have the opportunity to partake of gospel ordinances.
 
-Peter of old declared: “For this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.” ([[1 Peter 4.6|1 Pet. 4:6]].) In the case of the dead there must be vicarious work if they are to be judged according to men in the flesh, and in order to accomplish this they must be identified; hence the great genealogical program of The Church of Jesus Christ of Latter-day Saints. It was not established to satisfy the interests of a hobby, but to accomplish the eternal purposes of God.
+Peter of old declared: “For this cause was the gospel preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit.” ([[1 Peter 4.6|1 Pet. 4:6]].) In the case of the dead there must be vicarious work if they are to be judged according to men in the flesh, and in order to accomplish this they must be identified; hence the great genealogical program of The Church of Jesus Christ of Latter-day Saints. It was not established to satisfy the interests of a hobby, but to accomplish the eternal purposes of God.
 
 Within the space of that twenty years preceding his death, Joseph Smith set in motion a program for carrying the gospel to the nations of the earth. I marvel at the boldness with which he moved. Even in the infant days of the Church, in times of dark adversity, men were called to leave homes and families, to cross the sea, to proclaim the restoration of the gospel of Jesus Christ. His mind, his vision encompassed the entire earth.
 
 Seated in this hall today are those from North, Central, and South America; from the British Isles and Africa; from the nations of Europe; from the islands and continents of the Pacific; and from the ancient lands of Asia. You who have come from far and near, you are the flowering of the vision of Joseph Smith, the prophet of God. He was indeed a mighty seer, who saw this day and greater days yet to come as the work of the Lord moves over the earth.
 
-This magnificent flowering would amaze those men with painted faces who, in a cowardly attack, shot and killed the defenseless Prophet that sultry June day in 1844. It would amaze Governor Thomas Ford of the state of Illinois, who had pledged to protect the Prophet and then had left him to the mercy of the merciless mob. It was this same Thomas Ford who concluded in his *History* that Joseph Smith “never could succeed in establishing a system of policy which looked to permanent success in the future.” (Thomas Ford, *A History of Illinois … ,* quoted in B. H. Roberts, *Comprehensive History of the Church,* 2:347.)
+This magnificent flowering would amaze those men with painted faces who, in a cowardly attack, shot and killed the defenseless Prophet that sultry June day in 1844. It would amaze Governor Thomas Ford of the state of Illinois, who had pledged to protect the Prophet and then had left him to the mercy of the merciless mob. It was this same Thomas Ford who concluded in his *History* that Joseph Smith “never could succeed in establishing a system of policy which looked to permanent success in the future.” (Thomas Ford, *A History of Illinois … ,* quoted in B. H. Roberts, *Comprehensive History of the Church,* 2:347.)
 
 It is this same Thomas Ford who today lies buried in a secluded section of the cemetery in Peoria, Illinois, largely forgotten, while the man he had judged a failure is remembered with gratitude over the earth.
 
@@ -71,8 +73,3 @@ That testimony I reaffirm to you this day, as I also affirm that he who presides
 
 
 
-
-
-
-
-#Joseph_Smith #Restoration

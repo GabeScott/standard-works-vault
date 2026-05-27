@@ -1,5 +1,7 @@
 # The Priesthood—A Sacred Trust
 
+James E. Faust
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -112,7 +114,7 @@ Brethren, my prayer tonight is that all of us, in whatever capacities we serve i
 
 [^2]: [[D&C 18.10|D&C 18:10]].
 
-[^3]: See *Faith Precedes the Miracle* (Salt Lake City: Deseret Book Co., 1975), p. 178.
+[^3]: See *Faith Precedes the Miracle* (Salt Lake City: Deseret Book Co., 1975), p. 178.
 
 [^4]: [[D&C 4.3|D&C 4:3]].
 
@@ -124,7 +126,5 @@ Brethren, my prayer tonight is that all of us, in whatever capacities we serve i
 
 [^8]: [[John 1.47|John 1:47]].
 
+[^9]: [[Matthew 25.21|Matt. 25:21]].
 
-
-
-#Activation #Bishops #Goals #Priesthood #Service #Spirituality

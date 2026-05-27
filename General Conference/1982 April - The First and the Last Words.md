@@ -1,6 +1,8 @@
 # The First and the Last Words
 
-By Elder A. Theodore Tuttle - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder A. Theodore Tuttle - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -71,8 +73,3 @@ God lives. Jesus is the Christ. This is the consummate work of the kingdom. In t
 
 [^1]: This declaration by Moroni was placed as section 1 in the Book of Commandments. After the Preface was given to the Book of Commandments on November 1, 1831, this revelation was then made section 2. Today it is found as section 2 in the Doctrine and Covenants.
 
-
-
-
-
-#Temple_Work

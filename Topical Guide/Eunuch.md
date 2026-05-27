@@ -1,4 +1,3 @@
 # Eunuch
 
-
-*See* [BD Eunuch](https://www.churchofjesuschrist.org/study/scriptures/bd/eunuch?lang=eng)
+*See also* [[BD Eunuch.md|BD Eunuch]]

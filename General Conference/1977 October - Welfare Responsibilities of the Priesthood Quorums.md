@@ -1,6 +1,8 @@
 # Welfare Responsibilities of the Priesthood Quorums
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -24,9 +26,9 @@ Then, with the facts before them, they called on the various creditors. They did
 
 While in the process of managing the family’s affairs, the committee effectively taught principles of budgeting, financial responsibility, and money management. The problem was not cured in a day. It required many months. But miracles happened. A new and satisfying discipline came into the lives of the husband and wife. The creditors received their just due. The home was saved, and—most important—love and peace returned to that home.
 
-I have recalled this experience to emphasize a principle. That principle was defined by President J. Reuben Clark many years ago:
+I have recalled this experience to emphasize a principle. That principle was defined by President J. Reuben Clark many years ago:
 
-“The priesthood quorums in their extending of relief have not the obligation prescribed to the bishop. But the relationship of the priesthood, \[and\] the spirit of lofty unselfish brotherhood which it carries with it, do require that they individually and as quorums exert their utmost means of power to rehabilitate, spiritually and temporally, their erring and unfortunate brethren. In his temporal administrations, the bishop looks at every needy person as a temporary problem, caring for them until they can help themselves; the priesthood must look at their needy brethren as a continuing problem until not only his temporal needs are met, but his spiritual ones also. As a concrete example—a bishop extends help while the artisan or craftsman is out of work and in want; a priesthood quorum sets him up in work and tries to see that he goes along until fully self-supporting and active in his priesthood duties.” (J. Reuben Clark, Jr., “Bishops and Relief Society,” July 9, 1941, pp. 17–18.)
+“The priesthood quorums in their extending of relief have not the obligation prescribed to the bishop. But the relationship of the priesthood, \[and\] the spirit of lofty unselfish brotherhood which it carries with it, do require that they individually and as quorums exert their utmost means of power to rehabilitate, spiritually and temporally, their erring and unfortunate brethren. In his temporal administrations, the bishop looks at every needy person as a temporary problem, caring for them until they can help themselves; the priesthood must look at their needy brethren as a continuing problem until not only his temporal needs are met, but his spiritual ones also. As a concrete example—a bishop extends help while the artisan or craftsman is out of work and in want; a priesthood quorum sets him up in work and tries to see that he goes along until fully self-supporting and active in his priesthood duties.” (J. Reuben Clark, Jr., “Bishops and Relief Society,” July 9, 1941, pp. 17–18.)
 
 Continuing from President Clark: “\[Such\] assistance may take the form of helping the needy brother in his actual need and problem, to build a home, or to start in a small business, or, if he be an artisan, to get him a kit of tools, or, if he be a farmer, to get him seeds, or to help him plant or harvest a crop, or to meet some urgent credit need he has, or to supply him with clothing, or shelter, or food, or medical assistance, or schooling for the children, or to give aid in any number of other ways.” (Estes Park Address, 20 June 1939, p. 20.)
 
@@ -34,7 +36,7 @@ I am satisfied, my brethren, that there is enough of expertise, of knowledge, of
 
 It was Kuan Tzu, a Chinese philosopher, who said, “If you give a man a fish, he will have a single meal; if you teach him how to fish, he will eat all his life.” This, as I see it, illustrates the principle of Welfare Services. It is the responsibility of the bishop to give emergency help to see that neither the individual nor his family suffers. It is the obligation of the priesthood quorum to set in motion those forces and facilities which will equip the needy member to provide on a continuing basis for himself and his family.
 
-In the words of President Harold B. Lee, spoken many years ago, “All priesthood quorums are ‘commanded’ \[by the Lord\] to marshall their forces and, under the spirit and power of the Priesthood, to see to it that every person who is in distress is assisted by his quorum to become self-sustaining.” (*Improvement Era,* October 1937, p. 634.)
+In the words of President Harold B. Lee, spoken many years ago, “All priesthood quorums are ‘commanded’ \[by the Lord\] to marshall their forces and, under the spirit and power of the Priesthood, to see to it that every person who is in distress is assisted by his quorum to become self-sustaining.” (*Improvement Era,* October 1937, p. 634.)
 
 I am confident that the Lord intended that a priesthood quorum should be far more than a class in theology on Sunday mornings. Of course, the building of spirituality and the strengthening of testimony through effective gospel teaching is an important priesthood responsibility. But this is only a segment of the quorum function. Each quorum must be a working brotherhood for every member if its purpose is to be realized. There must be instruction in principles of personal and family preparedness. If effectively taught, such instruction will become preventative welfare, because the quorum member and his family, equipped with such knowledge, will be the better prepared to handle many difficulties that might arise. The teaching of financial and resource management, home production and storage, the fostering of such activities as will promote physical, emotional, and spiritual health might all be the proper and legitimate concerns of the presidency of the quorum in behalf of its members.
 
@@ -59,8 +61,3 @@ God help us to increase our efforts toward that day of realization, I humbly pra
 
 
 
-
-
-
-
-#Priesthood #Welfare

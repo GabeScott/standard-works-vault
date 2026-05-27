@@ -1,5 +1,7 @@
 # Out of Darkness into His Marvelous Light
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -38,7 +40,7 @@ Light dispels darkness. When light is present, darkness is vanquished and must d
 
 Beloved young men and young women of the Church, we are engaged in a battle between the forces of light and darkness. If it were not for the Light of Jesus Christ and His gospel, we would be doomed to the destruction of darkness. But the Savior said, “I am come a light into the world.”[^13] “He that followeth me shall not walk in darkness, but shall have the light of life.”[^14]
 
-The Lord is our light and, literally, our salvation.[^15] Like the sacred fire that encircled the children in 3 Nephi,[^16] His light will form a protective shield between you and the darkness of the adversary as you live worthy of it. You need that light. We need that light. Carefully study the scriptures and *For the Strength of Youth* and listen to the teachings of your parents and leaders. Then, by obedience to wise counsel, learn to claim the protective light of the gospel as your own.
+The Lord is our light and, literally, our salvation.[^15] Like the sacred fire that encircled the children in 3 Nephi,[^16] His light will form a protective shield between you and the darkness of the adversary as you live worthy of it. You need that light. We need that light. Carefully study the scriptures and *For the Strength of Youth* and listen to the teachings of your parents and leaders. Then, by obedience to wise counsel, learn to claim the protective light of the gospel as your own.
 
 You may wonder, “How can I do that?” There is only one way: you must learn to generate that light each day by believing on Jesus Christ and following His commandments.
 
@@ -62,7 +64,7 @@ In the scriptures we read that some individuals “grope in the dark without lig
 
 There is a way out of the “mists of darkness”[^24] and onto the path that leads to happiness in this life and eternal life in the world to come. The Lord told Isaiah, “I will bring the blind by a way that they knew not; I will lead them in paths that they have not known: I will make darkness light before them.”[^25]
 
-The prophet Nephi outlined the path: “Wherefore, my beloved brethren, I know that if ye shall follow the Son, with full purpose of heart, acting no hypocrisy and no deception before God, but with real intent, repenting of your sins, witnessing unto the Father that ye are willing to take upon you the name of Christ, by baptism … , behold, then shall ye receive the Holy Ghost; yea, then cometh the baptism of fire and of the Holy Ghost.”[^26]
+The prophet Nephi outlined the path: “Wherefore, my beloved brethren, I know that if ye shall follow the Son, with full purpose of heart, acting no hypocrisy and no deception before God, but with real intent, repenting of your sins, witnessing unto the Father that ye are willing to take upon you the name of Christ, by baptism … , behold, then shall ye receive the Holy Ghost; yea, then cometh the baptism of fire and of the Holy Ghost.”[^26]
 
 The covenant we make at baptism and renew as we partake of the sacrament—to take upon ourselves the name of Jesus Christ, always remember Him, and keep His commandments—includes the promise that we will always have His Spirit, that we will always have that light to be with us.[^27] The emblems of the Savior’s Atonement remind us that we need not stumble in darkness. We can have His light with us always.
 
@@ -125,9 +127,9 @@ In the name of Jesus Christ, amen.
 
 [^9]: [[Moroni 7.16|Moro. 7:16]].
 
-[^10]: See [[Articles of Faith 1.1|A of F 1:1]]; [[D&C 130.22|D&C 130:22]].
+[^10]: See [[Articles of Faith 1.1|A of F 1:1]]; [[D&C 130.22|D&C 130:22]].
 
-[^11]: See Bible Dictionary, “Holy Ghost,” 704.
+[^11]: See Bible Dictionary, “[[BD Holy Ghost|Holy Ghost]],” 704.
 
 [^12]: See [[John 14.16|John 14:16–18, 26–27]][[John 14.17|]][[John 14.18|]][[John 14.26|]][[John 14.27|]].
 
@@ -137,7 +139,7 @@ In the name of Jesus Christ, amen.
 
 [^15]: See [[Psalms 27.1|Ps. 27:1]].
 
-[^16]: See [[3 Nephi 17.24|3 Ne. 17:24]].
+[^16]: See [[3 Nephi 17.24|3 Ne. 17:24]].
 
 [^17]: [[D&C 58.27|D&C 58:27]].
 
@@ -153,30 +155,25 @@ In the name of Jesus Christ, amen.
 
 [^23]: [[Job 12.25|Job 12:25]].
 
-[^24]: [[1 Nephi 12.17|1 Ne. 12:17]].
+[^24]: [[1 Nephi 12.17|1 Ne. 12:17]].
 
 [^25]: [[Isaiah 42.16|Isa. 42:16]].
 
-[^26]: [[2 Nephi 31.13|2 Ne. 31:13]].
+[^26]: [[2 Nephi 31.13|2 Ne. 31:13]].
 
 [^27]: See [[D&C 20.37|D&C 20:37, 77, 79]][[D&C 20.77|]][[D&C 20.79|]].
 
 [^28]: [[Matthew 5.15|Matt. 5:15–16]][[Matthew 5.16|]].
 
-[^29]: [[3 Nephi 18.32|3 Ne. 18:32]].
+[^29]: [[3 Nephi 18.32|3 Ne. 18:32]].
 
-[^30]: [[2 Timothy 2.3|2 Tim. 2:3]].
+[^30]: [[2 Timothy 2.3|2 Tim. 2:3]].
 
 [^31]: [[Romans 13.12|Rom. 13:12]].
 
 [^32]: [[Mosiah 16.9|Mosiah 16:9]].
 
-[^33]: [[1 Peter 2.9|1 Pet. 2:9]].
+[^33]: [[1 Peter 2.9|1 Pet. 2:9]].
 
 [^34]: [[D&C 109.73|D&C 109:73–74]][[D&C 109.74|]].
 
-
-
-
-
-#Holy_Ghost #Jesus_Christ #Obedience #Sin

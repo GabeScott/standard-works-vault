@@ -1,6 +1,8 @@
 # Anchored in Testimony
 
-By Elder Joseph B. Wirthlin - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Joseph B. Wirthlin - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -12,7 +14,7 @@ Actually, I would come from the four corners of the earth to visit with him, and
 
 As I left his office, I *was* in shock. I could hardly believe what had happened to me. Then, just 3 hours and 27 minutes after that, the earthquake came. (There was an earthquake that day, centered in Malad, Idaho, but felt in Salt Lake.) This soon brought me back to reality.
 
-Bryant S. Hinckley, one of the great men of the earth, wrote of my father some years ago, “No sounder piece of manhood was put together in this century of time.” (From Thomas Carlyle.) I think this applies to President Kimball as well.
+Bryant S. Hinckley, one of the great men of the earth, wrote of my father some years ago, “No sounder piece of manhood was put together in this century of time.” (From Thomas Carlyle.) I think this applies to President Kimball as well.
 
 I was taught at my father’s knee to be humble, diligent, trustworthy, and to honor the servants, the General Authorities of our Church. He loved the Constitution of the United States and its free enterprise system. I trust that I will bring nothing but honor to his name.
 
@@ -20,11 +22,11 @@ My life has been encircled by two wonderful women: my mother, who gave me life i
 
 I appreciate and love each of our eight children. Their righteous lives have brought nothing but joy and happiness to us. I honor my brothers and sisters for their service in the Church and their communities.
 
-I think of my coaches who taught me to play—really the game of life—and the many fine teachers in school, and especially in the Church. Sister Marion G. Romney was my Primary teacher, and President Romney was the bishop who recommended me for my mission.
+I think of my coaches who taught me to play—really the game of life—and the many fine teachers in school, and especially in the Church. Sister Marion G. Romney was my Primary teacher, and President Romney was the bishop who recommended me for my mission.
 
 Today I reflect on the many fine brethren, my associates in the Church, with whom I have worked, and I honor them for the uplifting influence they have had upon me.
 
-The Sunday School organization of the Church is near and dear to my heart. Under the able leadership of President Russell M. Nelson, his fine counselors, and a talented and inspired board, this organization will do much to carry out and to help and assist the missionary effort in the Church.
+The Sunday School organization of the Church is near and dear to my heart. Under the able leadership of President Russell M. Nelson, his fine counselors, and a talented and inspired board, this organization will do much to carry out and to help and assist the missionary effort in the Church.
 
 I loved my mission in Switzerland and Germany. As I left on the train from Basel, Switzerland, tears flowed down my cheeks because I knew then that my full-time service in the Church had ended. I love the German and the Swiss people for their many fine traits of character. I love their language that is so exacting and yet so expressive.
 
@@ -35,8 +37,3 @@ President Kimball, in the love that I bear for you and all these Brethren who si
 
 
 
-
-
-
-
-#Testimony

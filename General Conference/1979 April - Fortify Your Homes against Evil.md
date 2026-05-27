@@ -1,6 +1,8 @@
 # Fortify Your Homes against Evil
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -94,7 +96,7 @@ Marriage is ordained of God. It is a necessary and delightful condition. It is t
 
 As we enter into an eternal marriage and seek to fortify our family unit against that which would destroy our celestial happiness, let us remember also that the Lord will not leave us alone to accomplish this task.
 
-The Lord has not promised us freedom from adversity or affliction. Instead, he has given us the avenue of communication known as prayer, whereby we might humble ourselves and seek his help and divine guidance, so that we could establish a house of prayer. I have previously said that they who reach down into the depths of life where, in the stillness, the voice of God has been heard, have the stabilizing power which carries them poised and serene through the hurricane of difficulties. President Harold B. Lee has said it this way: “Just as a flood-lighted temple is more beautiful in a severe storm or in a heavy fog, so the gospel of Jesus Christ is more glorious in times of inward storm and of personal sorrow and tormenting conflict” (in Conference Report, Apr. 1965, p. 16).
+The Lord has not promised us freedom from adversity or affliction. Instead, he has given us the avenue of communication known as prayer, whereby we might humble ourselves and seek his help and divine guidance, so that we could establish a house of prayer. I have previously said that they who reach down into the depths of life where, in the stillness, the voice of God has been heard, have the stabilizing power which carries them poised and serene through the hurricane of difficulties. President Harold B. Lee has said it this way: “Just as a flood-lighted temple is more beautiful in a severe storm or in a heavy fog, so the gospel of Jesus Christ is more glorious in times of inward storm and of personal sorrow and tormenting conflict” (in Conference Report, Apr. 1965, p. 16).
 
 There is a great need in the world today for prayer which can keep us in touch with God and keep open the channels of communication. None of us should get so busy in our lives that we cannot contemplate with prayer. Prayer is the passport to spiritual power.
 
@@ -111,8 +113,3 @@ May the Lord bless us all in our homes and families as we strive to draw nearer 
 
 
 
-
-
-
-
-#Home #Obedience #Teaching

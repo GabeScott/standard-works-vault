@@ -1,5 +1,7 @@
 # “Be Thou an Example”
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -87,9 +89,9 @@ In the name of Jesus Christ, amen.
 
 
 
-[^1]: [[1 Timothy 4.12|1 Tim. 4:12, 14, 15]][[1 Timothy 4.14|]][[1 Timothy 4.15|]].
+[^1]: [[1 Timothy 4.12|1 Tim. 4:12, 14, 15]][[1 Timothy 4.14|]][[1 Timothy 4.15|]].
 
-[^2]: In Conference Report, Apr. 1982, 61; or *Ensign,* May 1982, 41.
+[^2]: In Conference Report, Apr. 1982, [[1982 April - Tithing - An Opportunity to Prove Our Faithfulness.md|61]]; or *Ensign,* May 1982, 41.
 
 [^3]: [[Malachi 3.8|Mal. 3:8, 10]][[Malachi 3.10|]].
 
@@ -101,7 +103,7 @@ In the name of Jesus Christ, amen.
 
 [^7]: Harold B. Lee, *Stand Ye in Holy Places* (1974), 366–67.
 
-[^8]: In Conference Report, Apr. 1978, 121; or *Ensign,* May 1978, 80.
+[^8]: In Conference Report, Apr. 1978, [[1978 April - Becoming the Pure in Heart.md|121]]; or *Ensign,* May 1978, 80.
 
 [^9]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 145–46.
 
@@ -111,12 +113,7 @@ In the name of Jesus Christ, amen.
 
 [^12]: [[Mosiah 4.16|Mosiah 4:16]].
 
-[^13]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^13]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^14]: [[D&C 76.5|D&C 76:5–6]][[D&C 76.6|]].
 
-
-
-
-
-#Example #Fasting #Home_Teaching #Missionary_Work #Tithing

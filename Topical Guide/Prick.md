@@ -1,6 +1,5 @@
 # Prick
 
-
 I was *pricked* in my reins, [[Psalms 73.21|Psalms 73:21]].
 
 they were *pricked* in their heart, [[Acts 2.37|Acts 2:37]] ([[Jarom 1.12|Jarom 1:12]]).

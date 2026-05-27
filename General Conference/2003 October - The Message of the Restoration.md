@@ -1,5 +1,7 @@
 # The Message of the Restoration
 
+Gordon B. Hinckley
+
 By Elder Charles Didier - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -26,7 +28,7 @@ Because of what Adam heard and what he saw, he qualified to be called the first 
 
 The New Testament confirms the teachings, testimonies, and prophecies of the prophets of the Old Testament. It is an account of the birth, life, and ministry of Jesus Christ, the Son of the living God; His Atonement; and His Resurrection. It tells about the establishment of His Church, His divine authority, His gospel, and His commandment to His disciples to share, to “go … into all the world, and preach \[His\] gospel to every creature” ([[Mark 16.15|Mark 16:15]]).
 
-The message of the New Testament was clear: there was one fold, one faith, one gospel, one priesthood, one church in order to be “in one, the children of Christ” ([[4 Nephi 1.17|4 Nephi 1:17]]).
+The message of the New Testament was clear: there was one fold, one faith, one gospel, one priesthood, one church in order to be “in one, the children of Christ” ([[4 Nephi 1.17|4 Nephi 1:17]]).
 
 But again persecution, denial of divine identity, and rejection of Christ’s gospel and His authorized priesthood servants characterized the post-Resurrection era. And religious history shows us evidence of how rapidly the priesthood authority was superseded by the secular authority; how the divine doctrine was traded for shifting, distorted human philosophies; how the ordinances of salvation were altered or purchased for money; how revelation was replaced by a veil of obscurity leading into the ages of spiritual darkness.
 
@@ -43,8 +45,3 @@ Of this I testify, in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Missionary_Work #Prophets #Restoration

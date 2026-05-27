@@ -37,7 +37,7 @@ Why is it significant to you to know that Jesus Christ is Jehovah?
 
 ### The Lord restored many “plain and precious things” through Joseph Smith.
 
-In a vision, the Lord showed Nephi the coming forth of the Bible, explaining that “many plain and precious things” would be taken from it. Consider reading [[1 Nephi 13.21|1 Nephi 13:21–29, 38–42]][[1 Nephi 13.22|]][[1 Nephi 13.23|]][[1 Nephi 13.24|]][[1 Nephi 13.25|]][[1 Nephi 13.26|]][[1 Nephi 13.27|]][[1 Nephi 13.28|]][[1 Nephi 13.29|]][[1 Nephi 13.38|]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]][[1 Nephi 13.42|]], looking for how the Lord planned to “make known the plain and precious things.” According to [[2 Nephi 3.12|2 Nephi 3:12]], how do the Bible and Book of Mormon work together?
+In a vision, the Lord showed Nephi the coming forth of the Bible, explaining that “many plain and precious things” would be taken from it. Consider reading [[1 Nephi 13.21|1 Nephi 13:21–29, 38–42]][[1 Nephi 13.22|]][[1 Nephi 13.23|]][[1 Nephi 13.24|]][[1 Nephi 13.25|]][[1 Nephi 13.26|]][[1 Nephi 13.27|]][[1 Nephi 13.28|]][[1 Nephi 13.29|]][[1 Nephi 13.38|]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]][[1 Nephi 13.42|]], looking for how the Lord planned to “make known the plain and precious things.” According to [[2 Nephi 3.12|2 Nephi 3:12]], how do the Bible and Book of Mormon work together?
 
 As you study the Old Testament this year, you will also study some of the “other books” Nephi foresaw. These include:
 
@@ -67,7 +67,7 @@ See also [[Jeremiah 31.31|Jeremiah 31:31–34]][[Jeremiah 31.32|]][[Jeremiah 31.
 - The words and culture of the Old Testament may be difficult for children to understand, but you can help them see Jesus Christ in symbols and stories. Perhaps you and your children could look at the image below, *The Prophet Isaiah Foretells Christ’s Birth*. Let your children point out details they see. Draw their attention, in particular, to the baby Jesus. Then you could read with them what Isaiah wrote about the Savior’s birth in [[Isaiah 7.14|Isaiah 7:14]]; [[Isaiah 9.6|9:6]]. Share with your children how you feel about looking for the Savior in the Old Testament this year.> 
 
 
-- You and your children could also read [[Psalms 23.1|Psalm 23]][[Psalms 23.2|]][[Psalms 23.3|]][[Psalms 23.4|]][[Psalms 23.5|]][[Psalms 23.6|]] or [[Isaiah 53.3|Isaiah 53:3–9]][[Isaiah 53.4|]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]] and find words that remind you of Jesus Christ. What do these words teach us about His life and Atonement?
+- You and your children could also read [[Psalms 23.1|Psalm 23]][[Psalms 23.2|]][[Psalms 23.3|]][[Psalms 23.4|]][[Psalms 23.5|]][[Psalms 23.6|]] or [[Isaiah 53.3|Isaiah 53:3–9]][[Isaiah 53.4|]][[Isaiah 53.5|]][[Isaiah 53.6|]][[Isaiah 53.7|]][[Isaiah 53.8|]][[Isaiah 53.9|]] and find words that remind you of Jesus Christ. What do these words teach us about His life and Atonement?
 
 ### Heavenly Father wants to make covenants with me.
 

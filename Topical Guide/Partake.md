@@ -1,6 +1,5 @@
 # Partake
 
-
 *See also* [[Partaker.md|Partaker]]
 
 I did go forth and *partake*, [[1 Nephi 8.11|1 Nephi 8:11]].

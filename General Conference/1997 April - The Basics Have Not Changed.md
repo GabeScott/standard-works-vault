@@ -1,5 +1,7 @@
 # The Basics Have Not Changed
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -45,8 +47,3 @@ I leave you my love, my witness, my testimony that this work is true; that Presi
 
 
 
-
-
-
-
-#Church_Growth #Obedience #Pioneers #Priesthood

@@ -1,5 +1,7 @@
 # The Dawning of a Brighter Day
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2004 General Conference*
@@ -12,7 +14,7 @@ Wasn’t that absolutely magnificent? Thank you, Liriel Domiciano and the choir.
 
 May I first say to all the Church, and to others, thank you for your great kindness to Sister Hinckley and me. You have been and are so gracious and generous. We are touched by all you do for us. If all the world were treated as we are treated, what a different world it would be. We would care for one another in the Spirit of the Master, who reached out to comfort and heal.
 
-Now, my brothers and sisters, President Packer has spoken to you as a grandfather. I should like to pick up a thread from the tapestry he has woven. I too am now an old man, older even than he, if you can imagine that. I have been around for a long time, I have traveled far, and I have seen much of this world. In hours of quiet reflection, I wonder why there is so much of trouble and suffering almost everywhere. Our times are fraught with peril. We hear frequently quoted the words of Paul to Timothy: “This know also, that in the last days perilous times shall come” ([[2 Timothy 3.1|2 Timothy 3:1]]). He then goes on to describe the conditions that will prevail. I think it is plainly evident that these latter days are indeed perilous times that fit the conditions that Paul described (see [[2 Timothy 3.2|2 Timothy 3:2–7]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]]).
+Now, my brothers and sisters, President Packer has spoken to you as a grandfather. I should like to pick up a thread from the tapestry he has woven. I too am now an old man, older even than he, if you can imagine that. I have been around for a long time, I have traveled far, and I have seen much of this world. In hours of quiet reflection, I wonder why there is so much of trouble and suffering almost everywhere. Our times are fraught with peril. We hear frequently quoted the words of Paul to Timothy: “This know also, that in the last days perilous times shall come” ([[2 Timothy 3.1|2 Timothy 3:1]]). He then goes on to describe the conditions that will prevail. I think it is plainly evident that these latter days are indeed perilous times that fit the conditions that Paul described (see [[2 Timothy 3.2|2 Timothy 3:2–7]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]]).
 
 But peril is not a new condition for the human family. Revelation tells us that “there was war in heaven: Michael and his angels fought against the dragon; and the dragon fought and his angels,
 
@@ -42,7 +44,7 @@ Evil was manifest early in this world when Cain slew Abel. It increased until in
 
 “And it repented the Lord that he had made man on the earth, and it grieved him at his heart” ([[Genesis 6.5|Genesis 6:5–6]][[Genesis 6.6|]]).
 
-He commanded Noah to build an ark “wherein few, that is, eight souls” would be saved ([[1 Peter 3.20|1 Peter 3:20]]).
+He commanded Noah to build an ark “wherein few, that is, eight souls” would be saved ([[1 Peter 3.20|1 Peter 3:20]]).
 
 The earth was cleansed. The floods receded. Righteousness was again established. But it was not long until the family of humanity, so very many of them, returned to the old ways of disobedience. The inhabitants of the cities of the plain, Sodom and Gomorrah, are examples of the depravity to which men sank. And “God \[utterly\] destroyed the cities of the plain” in a summary and final desolation ([[Genesis 19.29|Genesis 19:29]]).
 
@@ -118,8 +120,3 @@ May we live worthy of the glorious endowment of light and understanding and eter
 
 
 
-
-
-
-
-#Hope #Kindness #Responsibility #Restoration

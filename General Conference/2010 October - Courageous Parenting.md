@@ -1,5 +1,7 @@
 # Courageous Parenting
 
+Thomas S. Monson
+
 By Elder Larry R. Lawrence - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -18,11 +20,11 @@ Challenges and temptations are coming at our teenagers with the speed and power 
 
 In the Book of Mormon, we read about Alma the Younger counseling his wayward son. Corianton had made some serious mistakes while serving a mission among the Zoramites. Alma loved him enough to speak very directly to the problem. He expressed his deep disappointment that his son had been immoral and explained to him the serious consequences of sin.
 
-I am inspired every time I read these courageous words from Alma: “And now the Spirit of the Lord doth say unto me: Command thy children to do good … ; therefore I command you, my son, in the fear of God, that ye refrain from your iniquities” ([[Alma 39.12|Alma 39:12]]). This early intervention by his father became a turning point for Corianton. He repented and served faithfully thereafter (see [[Alma 42.31|Alma 42:31]]; [[Alma 43.1|43:1–2]][[Alma 43.2|]]).
+I am inspired every time I read these courageous words from Alma: “And now the Spirit of the Lord doth say unto me: Command thy children to do good … ; therefore I command you, my son, in the fear of God, that ye refrain from your iniquities” ([[Alma 39.12|Alma 39:12]]). This early intervention by his father became a turning point for Corianton. He repented and served faithfully thereafter (see [[Alma 42.31|Alma 42:31]]; [[Alma 43.1|43:1–2]][[Alma 43.2|]]).
 
-Contrast Alma’s example with that of another father from the scriptures, Eli in the Old Testament. Eli served as the high priest in Israel during the childhood of Samuel the prophet. The scriptures explain that the Lord rebuked him severely “because his sons made themselves vile, and he restrained them not” ([[1 Samuel 3.13|1 Samuel 3:13]]). Eli’s sons never did repent, and all of Israel suffered because of their folly. The story of Eli teaches us that parents who love their children cannot afford to be intimidated by them.
+Contrast Alma’s example with that of another father from the scriptures, Eli in the Old Testament. Eli served as the high priest in Israel during the childhood of Samuel the prophet. The scriptures explain that the Lord rebuked him severely “because his sons made themselves vile, and he restrained them not” ([[1 Samuel 3.13|1 Samuel 3:13]]). Eli’s sons never did repent, and all of Israel suffered because of their folly. The story of Eli teaches us that parents who love their children cannot afford to be intimidated by them.
 
-Several years ago at general conference, Elder Joe J. Christensen reminded us that “parenting is not a popularity contest.”[^2] In the same spirit, Elder Robert D. Hales has observed, “Sometimes we are afraid of our children—afraid to counsel with them for fear of offending them.”[^3]
+Several years ago at general conference, Elder Joe J. Christensen reminded us that “parenting is not a popularity contest.”[^2] In the same spirit, Elder Robert D. Hales has observed, “Sometimes we are afraid of our children—afraid to counsel with them for fear of offending them.”[^3]
 
 Years ago our 17-year-old son wanted to go on a weekend trip with his friends, who were all good boys. He asked for permission to go. I wanted to say yes, but for some reason I felt uncomfortable about the trip. I shared my feelings with my wife, who was very supportive. “We need to listen to that warning voice,” she said.
 
@@ -38,7 +40,7 @@ Brothers and sisters, if your spouse doesn’t feel good about something, show r
 
 Parents can prevent a lot of heartache by teaching their children to postpone romantic relationships until the time comes when they are ready for marriage. Prematurely pairing off with a boyfriend or girlfriend is dangerous. Becoming a “couple” creates emotional intimacy, which too often leads to physical intimacy. Satan knows this sequence and uses it to his advantage. He will do whatever he can to keep young men from serving missions and to prevent temple marriages.
 
-It is vital that parents have the courage to speak up and intervene before Satan succeeds. President Boyd K. Packer has taught that “when morality is involved, we have both the *right* and the *obligation* to raise a warning voice.”[^4]
+It is vital that parents have the courage to speak up and intervene before Satan succeeds. President Boyd K. Packer has taught that “when morality is involved, we have both the *right* and the *obligation* to raise a warning voice.”[^4]
 
 I have always believed that nothing really good happens late at night and that young people need to know what time they are expected to come home.
 
@@ -63,14 +65,9 @@ Parenting teenagers in the latter days is a very humbling assignment. Satan and 
 
 [^1]: See “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
-[^2]: Joe J. Christensen, in Conference Report, Oct. 1993, 13; or *Ensign,* Nov. 1993, 11.
+[^2]: Joe J. Christensen, in Conference Report, Oct. 1993, [[1993 October - Rearing Children in a Polluted Environment.md|13]]; or *Ensign,* Nov. 1993, 11.
 
-[^3]: Robert D. Hales, in Conference Report, Apr. 2004, 92; or *Ensign,* May 2004, 90.
+[^3]: Robert D. Hales, in Conference Report, Apr. 2004, [[2004 April - With All the Feeling of a Tender Parent - A Message of Hope for Families.md|92]]; or *Ensign,* May 2004, 90.
 
-[^4]: Boyd K. Packer, in Conference Report, Apr. 1992, 93; or *Ensign,* May 1992, 67.
+[^4]: Boyd K. Packer, in Conference Report, Apr. 1992, [[1992 April - Our Moral Environment.md|93]]; or *Ensign,* May 1992, 67.
 
-
-
-
-
-#Children #Family #Holy_Ghost #Obedience #Parenthood

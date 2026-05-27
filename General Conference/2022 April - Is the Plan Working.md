@@ -1,5 +1,7 @@
 # Is the Plan Working?
 
+Russell M. Nelson
+
 By Elder Adrián Ochoa - *Of the Seventy*
 
 *Given in the April session of the 2022 General Conference*
@@ -40,7 +42,7 @@ Could I share with you three principles I learn from Peter? I pray that these pr
 
 I am in awe of Peter’s faith. At Jesus’s simple invitation to “come,” he left his storm-tossed ship. He seemed to know that if Jesus Christ invited him to do something, he could do it.[^4] Peter trusted the Savior more than he trusted his boat. And that faith gave him power to act with courage during a stressful, frightening situation.
 
-Peter’s faith reminds me of an experience that I heard from Elder José L. Alonso. Shortly after Elder Alonso’s son passed away, leaving a family with young children, Elder Alonso overheard the children talking.
+Peter’s faith reminds me of an experience that I heard from Elder José L. Alonso. Shortly after Elder Alonso’s son passed away, leaving a family with young children, Elder Alonso overheard the children talking.
 
 “What are we going to do?” they asked.
 
@@ -48,7 +50,7 @@ A nine-year-old daughter answered, “Daddy is OK. He is preaching the gospel of
 
 Like Peter, this little girl saw beyond her challenges and trusted in Jesus Christ and His Atonement. Faith in the Savior brings peace and the strength to move forward.
 
-If you look back on your life, I believe you will see that you have exercised faith many times. Joining the Church is an act of faith. Speaking with Heavenly Father in prayer is an act of faith. Reading the scriptures is an act of faith. Listening to my message in this general conference is an act of faith. As President Russell M. Nelson has said, “Do not minimize the faith you already have.”[^5]
+If you look back on your life, I believe you will see that you have exercised faith many times. Joining the Church is an act of faith. Speaking with Heavenly Father in prayer is an act of faith. Reading the scriptures is an act of faith. Listening to my message in this general conference is an act of faith. As President Russell M. Nelson has said, “Do not minimize the faith you already have.”[^5]
 
 Another lesson I learn from Peter is this:
 
@@ -66,7 +68,7 @@ In those moments, follow the example of Peter. Turn to the Savior right away.
 
 No matter where we are and where we have been, repentance is the way forward. President Nelson has taught:
 
-“Nothing is more liberating, more ennobling, or more crucial to our individual progression than is a regular, daily focus on repentance. …
+“Nothing is more liberating, more ennobling, or more crucial to our individual progression than is a regular, daily focus on repentance. …
 
 “Whether you are diligently moving along the covenant path, have slipped or stepped from the covenant path, or can’t even see the path from where you are now, I plead with you to repent. Experience the strengthening power of daily repentance—of doing and being a little better each day.”[^9]
 
@@ -103,17 +105,17 @@ I testify that the plan of happiness works. It was created by your Heavenly Fath
 
 [^3]: [[Matthew 14.25|Matthew 14:25–31]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]].
 
-[^4]: See [[1 Nephi 3.7|1 Nephi 3:7]].
+[^4]: See [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^5]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 104.
+[^5]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 104.
 
 [^6]: [[Matthew 14.30|Matthew 14:30–31]][[Matthew 14.31|]].
 
-[^7]: Elder Lynn G. Robbins taught: “Repentance is God’s ever-accessible gift that allows and enables us to go from failure to failure without any loss of enthusiasm. Repentance isn’t His backup plan in the event we might fail. Repentance *is* His plan, knowing that we will. This is the gospel of repentance” (“[[2018 April - Until Seventy Times Seven.md|Until Seventy Times Seven]],” *Ensign* or *Liahona*, May 2018, 22).
+[^7]: Elder Lynn G. Robbins taught: “Repentance is God’s ever-accessible gift that allows and enables us to go from failure to failure without any loss of enthusiasm. Repentance isn’t His backup plan in the event we might fail. Repentance *is* His plan, knowing that we will. This is the gospel of repentance” (“[[2018 April - Until Seventy Times Seven.md|Until Seventy Times Seven]],” *Ensign* or *Liahona*, May 2018, 22).
 
 [^8]: [[Alma 34.31|Alma 34:31, 33]][[Alma 34.33|]].
 
-[^9]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
+[^9]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
 
 [^10]: [[Matthew 14.31|Matthew 14:31]].
 
@@ -121,7 +123,5 @@ I testify that the plan of happiness works. It was created by your Heavenly Fath
 
 [^12]: The Lord has said, “No one can assist in this work except he shall be humble and full of love” ([[D&C 12.8|Doctrine and Covenants 12:8]]).
 
+[^13]: [[Alma 34.31|Alma 34:31]].
 
-
-
-#Adversity #Faith #Humility #Jesus_Christ #Plan_Of_Salvation #Repentance

@@ -1,5 +1,7 @@
 # Hyrum Smith: “Firm As the Pillars of Heaven”
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -38,7 +40,7 @@ Although Hyrum was grieved, his faith was unshaken; his determination to serve H
 
 Clearly Hyrum Smith was one of the firm pillars of the Restoration. But sadly, many Church members know little about him except that he was martyred with his brother in Carthage Jail. That is significant, but he did far more. Indeed, Joseph Smith himself once suggested that his followers would do well to pattern their lives after Hyrum’s.[^7] May I suggest a few examples from Hyrum’s life that we may wish to follow.
 
-In 1829, when Joseph was finishing the translation of the Book of Mormon, Hyrum was anxious to begin spreading the gospel and building the Church. He asked Joseph to inquire of the Lord what he should do. In section 11 of the Doctrine and Covenants we read the Lord’s response: “Seek not to declare my word, but first seek to obtain my word. … Study my word which hath gone forth … , and also study my word … which is now translating.”[^8]
+In 1829, when Joseph was finishing the translation of the Book of Mormon, Hyrum was anxious to begin spreading the gospel and building the Church. He asked Joseph to inquire of the Lord what he should do. In section 11 of the Doctrine and Covenants we read the Lord’s response: “Seek not to declare my word, but first seek to obtain my word. … Study my word which hath gone forth … , and also study my word … which is now translating.”[^8]
 
 Hyrum’s life is a witness to his obedience to this instruction. To the very last day of his life, he devoted himself to obtaining the word through study of the scriptures. In Carthage Jail, he read and commented on extracts from the Book of Mormon. The scriptures were obviously part of Hyrum’s being, and he turned to them during times when he needed comfort and strength the most.
 
@@ -65,29 +67,29 @@ Surely Joseph was inspired when he wrote of his brother Hyrum, “Thy name shall
 
 
 
-[^1]: Lucy Mack Smith, *History of Joseph Smith* (Salt Lake City: Bookcraft, 1979), p. 309.
+[^1]: Lucy Mack Smith, *History of Joseph Smith* (Salt Lake City: Bookcraft, 1979), p. 309.
 
 [^2]: *History of the Church,* 5:107–108.
 
 [^3]: *History of the Church,* 2:338.
 
-[^4]: Quoted in Richard Lloyd Anderson, *Investigating the Book of Mormon Witnesses* (Salt Lake City: Deseret Book Co., 1981), p. 159.
+[^4]: Quoted in Richard Lloyd Anderson, *Investigating the Book of Mormon Witnesses* (Salt Lake City: Deseret Book Co., 1981), p. 159.
 
-[^5]: Quoted in Donald Q. Cannon and Lyndon W. Cook, eds., *Far West Record* (Salt Lake City: Deseret Book Co., 1983), p. 21.
+[^5]: Quoted in Donald Q. Cannon and Lyndon W. Cook, eds., *Far West Record* (Salt Lake City: Deseret Book Co., 1983), p. 21.
 
-[^6]: *History of Joseph Smith,* p. 246.
+[^6]: *History of Joseph Smith,* p. 246.
 
 [^7]: See *History of the Church,* 5:108.
 
 [^8]: [[D&C 11.21|D&C 11:21–22]][[D&C 11.22|]].
 
-[^9]: *History of Joseph Smith,* p. 82.
+[^9]: *History of Joseph Smith,* p. 82.
 
 [^10]: [[D&C 124.15|D&C 124:15]].
 
-[^11]: *History of Joseph Smith,* p. 55.
+[^11]: *History of Joseph Smith,* p. 55.
 
-[^12]: Osborne J. P. Widtsoe, “Hyrum Smith, Patriarch,” *The Utah Genealogical and Historical Magazine,* Apr. 1911, p. 56.
+[^12]: Osborne J. P. Widtsoe, “Hyrum Smith, Patriarch,” *The Utah Genealogical and Historical Magazine,* Apr. 1911, p. 56.
 
 [^13]: Hyrum Smith letter to Mary Fielding Smith, 16 Mar. 1839, Archives of The Church of Jesus Christ of Latter-day Saints.
 
@@ -95,8 +97,3 @@ Surely Joseph was inspired when he wrote of his brother Hyrum, “Thy name shall
 
 [^15]: [[D&C 124.96|D&C 124:96]].
 
-
-
-
-
-#Blessings #Church_History #Faith #Holy_Ghost #Joseph_Smith

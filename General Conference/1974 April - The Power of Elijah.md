@@ -1,6 +1,8 @@
 # The Power of Elijah
 
-By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -12,9 +14,9 @@ The Old Testament speaks of many great prophets. The last of the prophets in old
 
 Then God sent Elijah to the city of Zarephath and told him he had appointed a widow there who would feed him. Elijah met this widow at the outskirts of the city and asked her to give him food to eat.
 
-“And she said, As the Lord thy God liveth, I have not a cake, but an handful of meal in a barrel, and a little oil in a cruse: and, behold, I am gathering two sticks, that I may go in and dress it for me and my son, that we may eat it, and die.” ([[1 Kings 17.12|1 Kgs. 17:12]].)
+“And she said, As the Lord thy God liveth, I have not a cake, but an handful of meal in a barrel, and a little oil in a cruse: and, behold, I am gathering two sticks, that I may go in and dress it for me and my son, that we may eat it, and die.” ([[1 Kings 17.12|1 Kgs. 17:12]].)
 
-Elijah then promised her in the name of the Lord that if she would feed him, she would never lack for food. I have pondered on the faith of that woman, who, on the promise of a humble man of God, put her life and the life of her son in the balance. Obediently she baked food and fed Elijah, and then followed the miracle of the fulfillment of the prophet’s promise: “And the barrel of meal wasted not, neither did the cruse of oil fail, according to the word of the Lord, which he spake by Elijah.” ([[1 Kings 17.16|1 Kgs. 17:16]].)
+Elijah then promised her in the name of the Lord that if she would feed him, she would never lack for food. I have pondered on the faith of that woman, who, on the promise of a humble man of God, put her life and the life of her son in the balance. Obediently she baked food and fed Elijah, and then followed the miracle of the fulfillment of the prophet’s promise: “And the barrel of meal wasted not, neither did the cruse of oil fail, according to the word of the Lord, which he spake by Elijah.” ([[1 Kings 17.16|1 Kgs. 17:16]].)
 
 I have tried to compare her spirit of obedience with our willingness to obey the word of God as spoken by modern prophets. These prophets hold the same fullness of authority given to Elijah. They have told us to keep at least a year’s supply of food on hand for any future emergency. We have only their word of prophecy to rely on, just as the widow relied on that of Elijah. We should obey as she did. By so doing, we will be able to save ourselves and our families from want.
 
@@ -71,8 +73,3 @@ Through this priesthood power which has been again restored to prophets of God, 
 
 
 
-
-
-
-
-#Priesthood #Temple_Work

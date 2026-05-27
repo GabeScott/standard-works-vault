@@ -1,6 +1,5 @@
 # Perverse
 
-
 *See also* [[Pervert.md|Pervert]]
 
 thy way is *perverse* before me, [[Numbers 22.32|Numbers 22:32]].

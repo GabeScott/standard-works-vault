@@ -1,6 +1,5 @@
 # Awake, Awaken
 
-
 Lord *awaked* as one out of sleep, [[Psalms 78.65|Psalms 78:65]].
 
 *Awake*, *awake*, put on strength, [[Isaiah 51.9|Isaiah 51:9]] ([[Isaiah 52.1|Isaiah 52:1]]).

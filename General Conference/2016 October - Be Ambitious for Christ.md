@@ -1,5 +1,7 @@
 # Be Ambitious for Christ
 
+Jean B. Bingham
+
 By Elder Kazuhiko Yamashita - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
@@ -10,7 +12,7 @@ By Elder Kazuhiko Yamashita - *Of the Seventy*
 
 My dear brothers and sisters, today I would like to speak to the young people of the Church, including our wonderful missionaries. Of course, brothers and sisters who are young at heart are warmly invited to listen.
 
-Last August 21, President Russell M. Nelson dedicated the beautiful Sapporo Temple—the third temple in Japan. The Sapporo Temple is built in northern Japan in a place called Hokkaido. Like Utah, Hokkaido was settled by industrious, hardworking pioneers.
+Last August 21, President Russell M. Nelson dedicated the beautiful Sapporo Temple—the third temple in Japan. The Sapporo Temple is built in northern Japan in a place called Hokkaido. Like Utah, Hokkaido was settled by industrious, hardworking pioneers.
 
 In 1876, a renowned educator named Dr. William Clark[^1] was invited to come to Hokkaido to teach. He lived in Japan for just eight months, but his Christian spirit left a lasting impression on his young non-Christian students. Before leaving, he gave his students a parting message that has become immortalized in this bronze statue.[^2] He said, “Boys, be ambitious!”—“Be ambitious for Christ.”[^3] His injunction to “be ambitious for Christ” can help direct daily decisions for today’s Latter-day Saints.
 
@@ -44,9 +46,9 @@ The Book of Mormon contains many accounts of those who were ambitious for Christ
 
 This Alma gave his son Helaman the following counsel:
 
-“Whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions. …
+“Whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions. …
 
-“… Keep the commandments of God. …
+“… Keep the commandments of God. …
 
 “Counsel with the Lord in all thy doings, and he will direct thee for good.”[^4]
 
@@ -69,15 +71,13 @@ I testify that the Lord knows you. He knows your struggles and concerns. He know
 
 
 
-[^1]: William Smith Clark (1826–86) was a professor of chemistry, botany, and zoology and served as a colonel during the American Civil War. He was a leader in agricultural education and president of Massachusetts Agricultural College. (See “William S. Clark,” wikipedia.com.)
+[^1]: William Smith Clark (1826–86) was a professor of chemistry, botany, and zoology and served as a colonel during the American Civil War. He was a leader in agricultural education and president of Massachusetts Agricultural College. (See “William S. Clark,” wikipedia.com.)
 
 [^2]: Statue located at Sapporo Hitsujigaoka Observation Hill.
 
-[^3]: William S. Clark, in Ann B. Irish, *Hokkaido: A History of Ethnic Transition and Development on Japan’s Northern Island* (2009), 156.
+[^3]: William S. Clark, in Ann B. Irish, *Hokkaido: A History of Ethnic Transition and Development on Japan’s Northern Island* (2009), 156.
 
 [^4]: [[Alma 36.3|Alma 36:3]]; [[Alma 37.35|37:35, 37]][[Alma 37.37|]].
 
+[^5]: [[Alma 36.20|Alma 36:20]].
 
-
-
-#Adversity #Disabilities #Missionary_Work #Service

@@ -1,7 +1,6 @@
 # Flatter, Flattery
 
-
-*See also* [[Hypocrisy, Hypocrite.md|Hypocrisy]]; [[Sincere, Sincerity.md|Sincere]]
+*See also* [[Hypocrisy.md|Hypocrisy]]; [[Sincere.md|Sincere]]
 
 speaketh *flattery* to his friends, [[Job 17.5|Job 17:5]].
 
@@ -19,7 +18,7 @@ a *flattering* mouth worketh ruin, [[Proverbs 26.28|Proverbs 26:28]].
 
 no more any vain vision nor *flattering* divination, [[Ezekiel 12.24|Ezekiel 12:24]].
 
-vile person ... obtain the kingdom by *flatteries*, [[Daniel 11.21|Daniel 11:21]].
+vile person … obtain the kingdom by *flatteries*, [[Daniel 11.21|Daniel 11:21]].
 
 neither at any time used we *flattering* words, [[1 Thessalonians 2.5|1 Thessalonians 2:5]].
 
@@ -31,7 +30,7 @@ deceived by the vain and *flattering* words of the king, [[Mosiah 11.7|Mosiah 11
 
 did deceive many with their *flattering* words, [[Mosiah 26.6|Mosiah 26:6]].
 
-man of many words ... *flattery* to the people, [[Mosiah 27.8|Mosiah 27:8]].
+man of many words … *flattery* to the people, [[Mosiah 27.8|Mosiah 27:8]].
 
 by thy lying and by thy *flattering* words, [[Alma 30.47|Alma 30:47]].
 

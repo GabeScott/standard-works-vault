@@ -1,6 +1,8 @@
 # The Lord Has Not Forgotten You
 
-By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
+Thomas S. Monson
+
+By Linda S. Reeves - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -22,7 +24,7 @@ We are told that “when Jesus therefore saw \[Mary\] weeping, … he groaned in
 
 Then we read some of the most compassionate, loving words in scripture: “Jesus wept.”[^8]
 
-Apostle James E. Talmage wrote, “The sight of the two women so overcome by grief … caused Jesus to sorrow \[with them\] so that He groaned in spirit and was deeply troubled.”[^9] This experience testifies of the compassion, empathy, and love that our Savior and our Heavenly Father feel for each of us every time we are weighed down by the anguish, sin, adversity, and pains of life.
+Apostle James E. Talmage wrote, “The sight of the two women so overcome by grief … caused Jesus to sorrow \[with them\] so that He groaned in spirit and was deeply troubled.”[^9] This experience testifies of the compassion, empathy, and love that our Savior and our Heavenly Father feel for each of us every time we are weighed down by the anguish, sin, adversity, and pains of life.
 
 Dear sisters, our Heavenly Father and our Savior, Jesus Christ, know us and love us. They know when we are in pain or suffering in any way. They do not say, “It’s OK that you’re in pain right now because soon everything is going to be all right. You will be healed, or your husband will find a job, or your wandering child will come back.” They feel the depth of our suffering, and we can feel of Their love and compassion in our suffering.
 
@@ -56,9 +58,9 @@ Just as the Lord has testified to me that He has not forgotten His precious daug
 
 Our Savior asked:
 
-“For can a woman forget her sucking child, that she should not have compassion on the son of her womb? Yea, they may forget, yet will I not forget thee. …
+“For can a woman forget her sucking child, that she should not have compassion on the son of her womb? Yea, they may forget, yet will I not forget thee. …
 
-“… I have graven thee upon the palms of my hands.”[^14]
+“… I have graven thee upon the palms of my hands.”[^14]
 
 “I have commanded that *none* of you should go away, but rather have commanded that ye should come unto me, that ye might feel and see; even so shall ye do unto the world.”[^15]
 
@@ -83,7 +85,7 @@ That is our charge. We must feel and see for ourselves and then help all of Heav
 
 [^8]: [[John 11.35|John 11:35]].
 
-[^9]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 493.
+[^9]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 493.
 
 [^10]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
@@ -93,12 +95,7 @@ That is our charge. We must feel and see for ourselves and then help all of Heav
 
 [^13]: See [[Alma 36.14|Alma 36:14–22]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]]; emphasis added.
 
-[^14]: [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]].
+[^14]: [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]].
 
-[^15]: [[3 Nephi 18.25|3 Nephi 18:25]]; emphasis added.
+[^15]: [[3 Nephi 18.25|3 Nephi 18:25]]; emphasis added.
 
-
-
-
-
-#Jesus_Christ #Love

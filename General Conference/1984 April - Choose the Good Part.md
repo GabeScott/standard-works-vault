@@ -1,5 +1,7 @@
 # Choose the Good Part
 
+Gordon B. Hinckley
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -44,7 +46,7 @@ As a single parent she has chosen the good part.
 
 In times of hurt and discouragement, it may be consoling for her and for all of us to recall that no one can do anything permanently to us that will last for eternity. Only we ourselves can affect our eternal progression.
 
-There is a temptation on the part of some of our sisters who have never married to give up, to stop trying, to think of what they don’t have in life instead of what they do have. It is important for them to never give up, to never cease living. As Sister Carol Clark has so beautifully stated: “The personal challenge is not to wait successfully but to live richly, fully, joyfully. The goal is not to wait for the right person but to *be* the right person.” (*A Singular Life: Perspectives for the Single Woman,* Salt Lake City: Deseret Book Co., 1974, p. 9.) May I emphasize the word *live.* Live richly, fully, joyfully. Be excited about your chance to grow and develop your potential. Be excited about life and the opportunities and privileges that the Lord has given you.
+There is a temptation on the part of some of our sisters who have never married to give up, to stop trying, to think of what they don’t have in life instead of what they do have. It is important for them to never give up, to never cease living. As Sister Carol Clark has so beautifully stated: “The personal challenge is not to wait successfully but to live richly, fully, joyfully. The goal is not to wait for the right person but to *be* the right person.” (*A Singular Life: Perspectives for the Single Woman,* Salt Lake City: Deseret Book Co., 1974, p. 9.) May I emphasize the word *live.* Live richly, fully, joyfully. Be excited about your chance to grow and develop your potential. Be excited about life and the opportunities and privileges that the Lord has given you.
 
 Make a decision as to the kind of person you want to be regardless of external circumstances. The first challenge in life is to learn, accept, and internalize “Who am I?” If this question is researched carefully in the scriptures and in Church teachings, the importance of each and every soul will be verified. A good self-image is one of the most important and necessary steps in facing life. So often we believe about ourselves only the things that others have implanted. There is no woman in or out of the Church who is not a loved child of God—no one!
 
@@ -62,7 +64,7 @@ Thinking and acting women today are taking part in making history in one of the 
 
 We must constantly remember it is not our situation or problems that make us unhappy; it is our failure to properly resolve them.
 
-Someone has said that happiness is like a butterfly. The more you chase it, the more it will elude you. But if you turn your attention to other things, it comes and sits softly on your shoulder. (See Nathaniel Hawthorne, quoted in *Reader’s Digest,* Apr. 1982, p. 148.)
+Someone has said that happiness is like a butterfly. The more you chase it, the more it will elude you. But if you turn your attention to other things, it comes and sits softly on your shoulder. (See Nathaniel Hawthorne, quoted in *Reader’s Digest,* Apr. 1982, p. 148.)
 
 In the Church our leaders have a great desire and spend much thought and prayer in trying to offer guidelines that may help with solutions. In reference to a recent letter in which the First Presidency gave guidelines for membership in singles wards, let me emphasize it is contemplated that no abrupt changes in existing programs be made without considering their impact on the lives of those who are presently involved in singles wards. Stake presidents are now authorized to make exceptions to the general policy after consultation and joint agreement with the bishop involved.
 
@@ -83,8 +85,3 @@ May God help us to so do, I pray in the worthy name of Jesus Christ, our Redeeme
 
 
 
-
-
-
-
-#Single_Members #Women

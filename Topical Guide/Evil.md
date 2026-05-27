@@ -1,7 +1,6 @@
 # Evil
 
-
-*See also* [[Abomination.md|Abomination]]; [[Bad.md|Bad]]; [[Carnal Mind.md|Carnal Mind]]; [[Devil.md|Devil]]; [[Evildoer.md|Evildoer]]; [[Filthiness, Filthy.md|Filthiness]]; [[Iniquity.md|Iniquity]]; [[Sin.md|Sin]]; [[Transgress, Transgression.md|Transgress]]; [[Wickedness, Wicked.md|Wickedness]]
+*See also* [[Abomination.md|Abomination]]; [[Bad.md|Bad]]; [[Carnal Mind.md|Carnal Mind]]; [[Devil.md|Devil]]; [[Evildoer.md|Evildoer]]; [[Filthiness.md|Filthiness]]; [[Iniquity.md|Iniquity]]; [[Sin.md|Sin]]; [[Transgress.md|Transgress]]; [[Wickedness.md|Wickedness]]
 
 be as gods, knowing good and *evil*, [[Genesis 3.5|Genesis 3:5]] ([[Moses 4.11|Moses 4:11]]).
 
@@ -9,7 +8,7 @@ man is become as one of us, to know good and *evil*, [[Genesis 3.22|Genesis 3:22
 
 thoughts of his heart was only *evil* continually, [[Genesis 6.5|Genesis 6:5]] ([[Moses 8.22|Moses 8:22]]).
 
-imagination of man's heart is *evil*, [[Genesis 8.21|Genesis 8:21]].
+imagination of man’s heart is *evil*, [[Genesis 8.21|Genesis 8:21]].
 
 redeemed me from all *evil*, [[Genesis 48.16|Genesis 48:16]].
 
@@ -17,7 +16,7 @@ ye thought *evil* against me, [[Genesis 50.20|Genesis 50:20]].
 
 not follow a multitude to do *evil*, [[Exodus 23.2|Exodus 23:2]].
 
-have set before thee ... death and *evil*, [[Deuteronomy 30.15|Deuteronomy 30:15]].
+have set before thee … death and *evil*, [[Deuteronomy 30.15|Deuteronomy 30:15]].
 
 *evil* will befall you in the latter days, [[Deuteronomy 31.29|Deuteronomy 31:29]].
 
@@ -89,7 +88,7 @@ Thou art of purer eyes than to behold *evil*, [[Habakkuk 1.13|Habakkuk 1:13]].
 
 say all manner of *evil* against you falsely, [[Matthew 5.11|Matthew 5:11]].
 
-yea; Nay ... more than these cometh of *evil*, [[Matthew 5.37|Matthew 5:37]].
+yea; Nay … more than these cometh of *evil*, [[Matthew 5.37|Matthew 5:37]].
 
 That ye resist not *evil*, [[Matthew 5.39|Matthew 5:39]].
 
@@ -125,7 +124,7 @@ in my name, that can lightly speak *evil* of me, [[Mark 9.39|Mark 9:39]].
 
 cast out your name as *evil*, [[Luke 6.22|Luke 6:22]].
 
-he is kind ... to the *evil*, [[Luke 6.35|Luke 6:35]].
+he is kind … to the *evil*, [[Luke 6.35|Luke 6:35]].
 
 because their deeds were *evil*, [[John 3.19|John 3:19]] ([[D&C 10.21|D&C 10:21]]).
 
@@ -133,7 +132,7 @@ every one that doeth *evil* hateth the light, [[John 3.20|John 3:20]].
 
 done *evil*, unto the resurrection of damnation, [[John 5.29|John 5:29]].
 
-world ... the works thereof are *evil*, [[John 7.7|John 7:7]].
+world … the works thereof are *evil*, [[John 7.7|John 7:7]].
 
 thou shouldest keep them from the *evil*, [[John 17.15|John 17:15]].
 
@@ -163,7 +162,7 @@ Let not then your good be *evil* spoken of, [[Romans 14.16|Romans 14:16]].
 
 Abstain from all appearance of *evil*, [[1 Thessalonians 5.22|1 Thessalonians 5:22]].
 
-Lord ... keep you from *evil*, [[2 Thessalonians 3.3|2 Thessalonians 3:3]].
+Lord … keep you from *evil*, [[2 Thessalonians 3.3|2 Thessalonians 3:3]].
 
 love of money is the root of all *evil*, [[1 Timothy 6.10|1 Timothy 6:10]].
 
@@ -193,19 +192,19 @@ flesh and the *evil* which is therein, [[2 Nephi 2.29|2 Nephi 2:29]].
 
 that which is *evil* cometh from the devil, [[Omni 1.25|Omni 1:25]] ([[Alma 5.40|Alma 5:40]]; [[Moroni 7.12|Moroni 7:12]]).
 
-contentions ... ye list to obey the *evil* spirit, [[Mosiah 2.32|Mosiah 2:32]] ([[Mosiah 2.37|Mosiah 2:37]]).
+contentions … ye list to obey the *evil* spirit, [[Mosiah 2.32|Mosiah 2:32]] ([[Mosiah 2.37|Mosiah 2:37]]).
 
 *evil* spirits which dwell in the hearts, [[Mosiah 3.6|Mosiah 3:6]].
 
-act according to their wills ... to do *evil*, [[Alma 12.31|Alma 12:31]].
+act according to their wills … to do *evil*, [[Alma 12.31|Alma 12:31]].
 
 no more desire to do *evil*, [[Alma 19.33|Alma 19:33]].
 
-no part nor portion of the Spirit ... they chose *evil*, [[Alma 40.13|Alma 40:13]].
+no part nor portion of the Spirit … they chose *evil*, [[Alma 40.13|Alma 40:13]].
 
 bring back again *evil* for *evil*, [[Alma 41.13|Alma 41:13]].
 
-how *evil* ... are the children of men, [[Helaman 12.4|Helaman 12:4]].
+how *evil* … are the children of men, [[Helaman 12.4|Helaman 12:4]].
 
 a man being *evil* cannot do that which is good, [[Moroni 7.6|Moroni 7:6]].
 
@@ -215,9 +214,9 @@ not suffer that Satan shall accomplish his *evil* design, [[D&C 10.14|D&C 10:14]
 
 love darkness rather than light, because their deeds are *evil*, [[D&C 10.21|D&C 10:21]].
 
-no iniquity in the church ... nor *evil* speaking, [[D&C 20.54|D&C 20:54]].
+no iniquity in the church … nor *evil* speaking, [[D&C 20.54|D&C 20:54]].
 
-for this *evil* they were ... sorely chastened, [[D&C 64.8|D&C 64:8]].
+for this *evil* they were … sorely chastened, [[D&C 64.8|D&C 64:8]].
 
 Light and truth forsake that *evil* one, [[D&C 93.37|D&C 93:37]].
 

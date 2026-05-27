@@ -1,5 +1,7 @@
 # Tears, Trials, Trust, Testimony
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1987 General Conference*
@@ -12,9 +14,9 @@ Early in my service as a member of the Council of the Twelve, I was attending th
 
 When it was his opportunity to participate, President Child took the Doctrine and Covenants and left the pulpit to stand among the priesthood to whom he was directing his message. He turned to section 18 and began to read:
 
-“Remember the worth of souls is great in the sight of God. …
+“Remember the worth of souls is great in the sight of God. …
 
-“And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father” ([[D&C 18.10|D&C 18:10, 15]][[D&C 18.15|]]).
+“And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father” ([[D&C 18.10|vs. 10, 15]][[D&C 18.15|]]).
 
 President Child then raised his eyes from the scriptures and asked the question of the priesthood brethren: “What is the worth of a human soul?” He avoided calling on a bishop, stake president, or high councilor for a response. Instead, he selected the president of an elders quorum—a brother who had been a bit drowsy and had missed the significance of the question.
 
@@ -36,7 +38,7 @@ The men to whom he gave this instruction were not owners of land, nor did they h
 
 Paul testified to the Corinthians: “Not many wise men after the flesh, not many mighty, not many noble, are called:
 
-“But God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty” ([[1 Corinthians 1.26|1 Cor. 1:26–27]][[1 Corinthians 1.27|]]).
+“But God hath chosen the foolish things of the world to confound the wise; and God hath chosen the weak things of the world to confound the things which are mighty” ([[1 Corinthians 1.26|1 Cor. 1:26–27]][[1 Corinthians 1.27|]]).
 
 On this, the American continent, Alma likewise counseled his son Helaman: “I say unto you, that by small and simple things are great things brought to pass” ([[Alma 37.6|Alma 37:6]]).
 
@@ -52,7 +54,7 @@ This description typified the early beginnings of missionary work following the 
 
 In 1833, the Prophet Joseph Smith, Sidney Rigdon, and Freeman Nickerson traveled to Mount Pleasant, Upper Canada. There they taught, they baptized, they organized a branch of the Church. At one time, in June of 1835, six of the Twelve held a conference in that land.
 
-In April of 1836, Elder Heber C. Kimball and others entered the home of Parley P. Pratt and, filled with the spirit of prophecy, they placed their hands on the head of Brother Pratt and declared: “Thou shalt go to upper Canada, even to the City of Toronto, … and there thou shalt find a people prepared for the fulness of the gospel, and they shall receive thee, and thou shalt organize the Church among them, and many shall be brought to the knowledge of the truth and shall be filled with joy; and from the things growing out of this mission, shall the fulness of the gospel spread into England, and cause a great work to be done in that land” (*Autobiography of Parley P. Pratt,* Salt Lake City: Deseret Book Co., 1975, pp. 130–31).
+In April of 1836, Elder Heber C. Kimball and others entered the home of Parley P. Pratt and, filled with the spirit of prophecy, they placed their hands on the head of Brother Pratt and declared: “Thou shalt go to Upper Canada, even to the City of Toronto, … and there thou shalt find a people prepared for the fulness of the gospel, and they shall receive thee, and thou shalt organize the Church among them, and many shall be brought to the knowledge of the truth and shall be filled with joy; and from the things growing out of this mission, shall the fulness of the gospel spread into England, and cause a great work to be done in that land” (*Autobiography of Parley P. Pratt,* Salt Lake City: Deseret Book Co., 1975, pp. 130–31).
 
 In July of this year there shall be commemorated the 150th anniversary of the beginning of the work in England. We rejoice in the tremendous accomplishments of those early missionaries and those whom the Lord prepared to play such a part in the advancement of this latter-day work.
 
@@ -78,19 +80,14 @@ While all of the men gathered around the table, including little David, Jr., Pet
 
 When that true story was told on “Death Valley Days,” young David Cannon, Jr., was then eighty-seven years of age. He listened to the story with rapt attention. I feel that in his mind, he once again heard those gold pieces, one by one, dropping upon the table as astonished men saw with their very eyes the answer to their prayers.
 
-Tabernacles and temples are built with more than stone and mortar, wood and glass. Particularly is this true when we speak of the temple described by the Apostle Paul: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Cor. 3:16]]). Such temples are built with faith and fasting. They are built with service and sacrifice. They are built with trials and testimonies.
+Tabernacles and temples are built with more than stone and mortar, wood and glass. Particularly is this true when we speak of the temple described by the Apostle Paul: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Cor. 3:16]]). Such temples are built with faith and fasting. They are built with service and sacrifice. They are built with trials and testimonies.
 
 If any brethren within the sound of my voice feel unprepared, even incapable of responding to a call to serve, to sacrifice, to bless the lives of others, remember the truth: “Whom God calls, God qualifies.” He who notes the sparrow’s fall will not abandon the servant’s need.
 
-God bless you, my brethren—you who bear the priesthood. You “are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]).
+God bless you, my brethren—you who bear the priesthood. You “are a chosen generation, a royal priesthood” ([[1 Peter 2.9|1 Pet. 2:9]]).
 
 May we respond affirmatively to the Prophet Joseph, who urged: “Brethren, shall we not go on in so great a cause? Go forward and not backward. Courage, brethren; and on, on to the victory!” ([[D&C 128.22|D&C 128:22]]). This is my earnest and humble prayer, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Faith #Missionary_Work

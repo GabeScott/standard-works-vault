@@ -1,6 +1,8 @@
 # The Blessing of Continuing Revelation to Prophets and Personal Revelation to Guide Our Lives
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -10,13 +12,13 @@ By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 Today I will speak on continuing revelation to prophets and continuing personal revelation to guide our lives.
 
-Sometimes we receive revelation even when we do not know the Lord’s purposes. Shortly before Elder Jeffrey R. Holland was called to be an Apostle in June of 1994, I had a beautiful revelatory experience that he would be called. I was a regional representative and could see no reason I would be given that knowledge. But we were companions as young missionaries in England in the early 1960s, and I had a great love for him. I considered the experience a tender mercy for me. In recent years, I have wondered if the Lord was preparing me to be junior in the Twelve to an incredible missionary companion who was my junior companion when we were young missionaries.[^1] I sometimes warn young missionaries to be kind to their junior companions because they never know when they might be their senior companion.
+Sometimes we receive revelation even when we do not know the Lord’s purposes. Shortly before Elder Jeffrey R. Holland was called to be an Apostle in June of 1994, I had a beautiful revelatory experience that he would be called. I was a regional representative and could see no reason I would be given that knowledge. But we were companions as young missionaries in England in the early 1960s, and I had a great love for him. I considered the experience a tender mercy for me. In recent years, I have wondered if the Lord was preparing me to be junior in the Twelve to an incredible missionary companion who was my junior companion when we were young missionaries.[^1] I sometimes warn young missionaries to be kind to their junior companions because they never know when they might be their senior companion.
 
 I have a firm testimony that this restored Church is led by our Savior, Jesus Christ. He knows whom to call as His Apostles and in what order to call them. He also knows how to prepare His senior Apostle to be the prophet and President of the Church.
 
-We were blessed this morning to hear our beloved prophet, President Russell M. Nelson, deliver a profound bicentennial proclamation to the world with respect to the Restoration of the fulness of the gospel of Jesus Christ.[^2] This seminal declaration by President Nelson has made it clear that the Church of Jesus Christ owes its origin, existence, and direction for the future to the principle of continuous revelation. The new proclamation represents a loving Father’s communication to His children.
+We were blessed this morning to hear our beloved prophet, President Russell M. Nelson, deliver a profound bicentennial proclamation to the world with respect to the Restoration of the fulness of the gospel of Jesus Christ.[^2] This seminal declaration by President Nelson has made it clear that the Church of Jesus Christ owes its origin, existence, and direction for the future to the principle of continuous revelation. The new proclamation represents a loving Father’s communication to His children.
 
-In an earlier day, President Spencer W. Kimball expressed the feelings I have today. He stated: “Of all things, that … we should be most grateful \[for\] is that the heavens are indeed open and that the restored church of Jesus Christ is founded upon the rock of revelation. Continuous revelation is indeed the very lifeblood of the gospel of the living Lord and Savior, Jesus Christ.”[^3]
+In an earlier day, President Spencer W. Kimball expressed the feelings I have today. He stated: “Of all things, that … we should be most grateful \[for\] is that the heavens are indeed open and that the restored church of Jesus Christ is founded upon the rock of revelation. Continuous revelation is indeed the very lifeblood of the gospel of the living Lord and Savior, Jesus Christ.”[^3]
 
 The prophet Enoch foresaw the days in which we live. The Lord acknowledged to Enoch the great wickedness that would prevail and prophesied of the “great tribulations” that would occur. Nevertheless, the Lord promised, “But my people will I preserve.”[^4] “And righteousness will I send down out of heaven; and truth will I send forth out of the earth, to bear testimony of mine Only Begotten.”[^5]
 
@@ -28,15 +30,15 @@ In addition to these great foundational scriptures, we are blessed with continui
 
 Some revelations are of monumental importance, and others enhance our understanding of essential divine truths and provide guidance for our day.[^9]
 
-We are incredibly grateful for the revelation to President Spencer W. Kimball extending priesthood and temple blessings to all worthy male members of the Church in June 1978.[^10]
+We are incredibly grateful for the revelation to President Spencer W. Kimball extending priesthood and temple blessings to all worthy male members of the Church in June 1978.[^10]
 
 I have served with many of the Twelve who were present and participated when that precious revelation was received. Each of them, in personal conversations, confirmed the powerful and uniting spiritual guidance President Kimball and they had experienced. Many said it was the most powerful revelation they had received before or after that time.[^11]
 
-Those of us currently serving in the Quorum of the Twelve Apostles have been blessed in our day as significant revelations have come through recent prophets.[^12] President Russell M. Nelson has been a commissioned agent of the Lord *especially* with respect to revelations to help families build sanctuaries of faith in their homes, gather scattered Israel on both sides of the veil, and bless endowed members in sacred temple ordinance matters.
+Those of us currently serving in the Quorum of the Twelve Apostles have been blessed in our day as significant revelations have come through recent prophets.[^12] President Russell M. Nelson has been a commissioned agent of the Lord *especially* with respect to revelations to help families build sanctuaries of faith in their homes, gather scattered Israel on both sides of the veil, and bless endowed members in sacred temple ordinance matters.
 
-When important changes to bless our homes were announced at the October 2018 general conference, I testified “that in the deliberations of the Council of the First Presidency and Quorum of the Twelve Apostles in the temple, … after our beloved prophet petitioned the Lord for revelation … , a powerful confirmation was received by all.”[^13]
+When important changes to bless our homes were announced at the October 2018 general conference, I testified “that in the deliberations of the Council of the First Presidency and Quorum of the Twelve Apostles in the temple, … after our beloved prophet petitioned the Lord for revelation … , a powerful confirmation was received by all.”[^13]
 
-At that time, other revelations relating to sacred temple ordinances had been received but not announced or implemented.[^14] This guidance commenced with individual prophetic revelation to President Russell M. Nelson and tender and powerful confirmation to those participating in the process. President Nelson specifically involved the sisters who preside over the Relief Society, Young Women, and Primary organizations. The final guidance, in the temple, to the First Presidency and Quorum of the Twelve Apostles was profoundly spiritual and powerful. We each knew we had received the mind, will, and voice of the Lord.[^15]
+At that time, other revelations relating to sacred temple ordinances had been received but not announced or implemented.[^14] This guidance commenced with individual prophetic revelation to President Russell M. Nelson and tender and powerful confirmation to those participating in the process. President Nelson specifically involved the sisters who preside over the Relief Society, Young Women, and Primary organizations. The final guidance, in the temple, to the First Presidency and Quorum of the Twelve Apostles was profoundly spiritual and powerful. We each knew we had received the mind, will, and voice of the Lord.[^15]
 
 I declare with all solemnity that continuous revelation has been received and is being received through channels the Lord has established. I testify the new proclamation President Nelson delivered this morning is a revelation to bless all people.
 
@@ -44,7 +46,7 @@ I declare with all solemnity that continuous revelation has been received and is
 
 We also declare our heartfelt desire to be reunited with those who have been struggling with their testimonies, been less active, or had their names removed from Church records. We desire to feast with you “upon the words of Christ” at the Lord’s table, to learn the things we all should do.[^16] We need you! The Church needs you! The Lord needs you! Our heartfelt prayer is that you will join with us in worshipping the Savior of the world. We know that some of you may have received offense, unkindness, or other conduct that is not Christlike. We also know that some have had challenges to their faith that may not be fully appreciated, understood, or resolved.
 
-Some of our most stalwart and faithful members have suffered a challenge to their faith for a season. I love the true account of W. W. Phelps, who had forsaken the Church and testified against the Prophet Joseph Smith in a Missouri court. After repenting, he wrote to Joseph, “I know my situation, you know it, and God knows it, and I want to be saved if my friends will help me.”[^17] Joseph did forgive him, put him back to work, and lovingly wrote, “Friends at first are friends again at last.”[^18]
+Some of our most stalwart and faithful members have suffered a challenge to their faith for a season. I love the true account of W. W. Phelps, who had forsaken the Church and testified against the Prophet Joseph Smith in a Missouri court. After repenting, he wrote to Joseph, “I know my situation, you know it, and God knows it, and I want to be saved if my friends will help me.”[^17] Joseph did forgive him, put him back to work, and lovingly wrote, “Friends at first are friends again at last.”[^18]
 
 Brothers and sisters, regardless of your situation, please know that the Church and its members will welcome you back!
 
@@ -95,11 +97,11 @@ My humble plea today is that each of us will seek continuing revelation to guide
 
 
 
-[^1]: In 1960 when the age for missionary service for young men was reduced from 20 to 19 years of age, I was one of the last 20-year-olds; Elder Jeffrey R. Holland was one of the first 19-year-olds.
+[^1]: In 1960 when the age for missionary service for young men was reduced from 20 to 19 years of age, I was one of the last 20-year-olds; Elder Jeffrey R. Holland was one of the first 19-year-olds.
 
-[^2]: See “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” in Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 91–92. This proclamation joins with five others that have been delivered in this dispensation by the First Presidency and the Quorum of the Twelve Apostles.
+[^2]: See “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” in Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 91–92. This proclamation joins with five others that have been delivered in this dispensation by the First Presidency and the Quorum of the Twelve Apostles.
 
-[^3]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 243; see also [[Matthew 16.13|Matthew 16:13–19]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]][[Matthew 16.18|]][[Matthew 16.19|]].
+[^3]: *[Teachings of Presidents of the Church: Spencer W. Kimball](https://www.churchofjesuschrist.org/study/manual/teachings-spencer-w-kimball/chapter-22?lang=eng)* (2006), 243; see also [[Matthew 16.13|Matthew 16:13–19]][[Matthew 16.14|]][[Matthew 16.15|]][[Matthew 16.16|]][[Matthew 16.17|]][[Matthew 16.18|]][[Matthew 16.19|]].
 
 [^4]: [[Moses 7.61|Moses 7:61]].
 
@@ -109,33 +111,33 @@ My humble plea today is that each of us will seek continuing revelation to guide
 
 [^7]: See Ezra Taft Benson, “[[1986 October - The Gift of Modern Revelation.md|The Gift of Modern Revelation]],” 80.
 
-[^8]: Hugh B. Brown, “Joseph Smith among the Prophets” (Sixteenth Annual Joseph Smith Memorial Sermon, Logan Institute of Religion, Dec. 7, 1958), 7.
+[^8]: Hugh B. Brown, “Joseph Smith among the Prophets” (Sixteenth Annual Joseph Smith Memorial Sermon, Logan Institute of Religion, Dec. 7, 1958), 7.
 
-[^9]: See Hugh B. Brown, “Joseph Smith among the Prophets,” 7. In all cases, the revelations are in harmony with the word of God given to previous prophets.
+[^9]: See Hugh B. Brown, “Joseph Smith among the Prophets,” 7. In all cases, the revelations are in harmony with the word of God given to previous prophets.
 
-[^10]: See [Official Declaration 2](https://churchofjesuschrist.org/study/scriptures/dc-testament/od/2?lang=eng); see also [[2 Nephi 26.33|2 Nephi 26:33]]. The revelation implemented doctrine set forth in the Book of Mormon that “all are alike unto God,” including “black and white, bond and free, male and female” ([[2 Nephi 26.33|2 Nephi 26:33]]). This remarkable revelation was received and confirmed in the sacred upper room of the Salt Lake Temple by the Council of the First Presidency and Quorum of the Twelve Apostles.
+[^10]: See [[Official Declaration 2.1|Official Declaration 2]]; see also [[2 Nephi 26.33|2 Nephi 26:33]]. The revelation implemented doctrine set forth in the Book of Mormon that “all are alike unto God,” including “black and white, bond and free, male and female” ([[2 Nephi 26.33|2 Nephi 26:33]]). This remarkable revelation was received and confirmed in the sacred upper room of the Salt Lake Temple by the Council of the First Presidency and Quorum of the Twelve Apostles.
 
 [^11]: Many of the Apostles indicated that the revelation was so powerful and so sacred that any words used to describe it would be insufficient and, in some ways, would diminish the deep and powerful nature of the revelation.
 
-[^12]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/liahona/2017/05/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145. This proclamation was announced by President Gordon B. Hinckley at the general Relief Society meeting held on September 23, 1995, in Salt Lake City, Utah. See also Thomas S. Monson, “[[2012 October - Welcome to Conference.md|Welcome to Conference]],” *Ensign* or *Liahona,* Nov. 2012, 4–5. President Monson announced a lower age requirement for missionary service.
+[^12]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/liahona/2017/05/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* May 2017, 145. This proclamation was announced by President Gordon B. Hinckley at the general Relief Society meeting held on September 23, 1995, in Salt Lake City, Utah. See also Thomas S. Monson, “[[2012 October - Welcome to Conference.md|Welcome to Conference]],” *Ensign* or *Liahona,* Nov. 2012, 4–5. President Monson announced a lower age requirement for missionary service.
 
-[^13]: Quentin L. Cook, “[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2018, 11.
+[^13]: Quentin L. Cook, “[[2018 October - Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ.md|Deep and Lasting Conversion to Heavenly Father and the Lord Jesus Christ]],” *Ensign* or *Liahona,* Nov. 2018, 11.
 
-[^14]: The revelations related to sacred temple ordinances were implemented in all temples beginning on January 1, 2019. It is important to understand that specific details about temple ordinances are discussed only in the temple. However, principles are taught. Elder David A. Bednar beautifully taught the significance of temple covenants and ordinances and how through them “the power of godliness can flow into our lives” (“[[2020 April - “Let This House Be Built unto My Name”.md|Let This House Be Built unto My Name]],”  *Ensign* or *Liahona,* May 2020, 86).
+[^14]: The revelations related to sacred temple ordinances were implemented in all temples beginning on January 1, 2019. It is important to understand that specific details about temple ordinances are discussed only in the temple. However, principles are taught. Elder David A. Bednar beautifully taught the significance of temple covenants and ordinances and how through them “the power of godliness can flow into our lives” (“[[2020 April - “Let This House Be Built unto My Name”.md|Let This House Be Built unto My Name]],”  *Ensign* or *Liahona,* May 2020, 86).
 
-[^15]: This process and the meetings held occurred in the Salt Lake Temple in January, February, March, and April 2018. The final revelation to the First Presidency and the Quorum of the Twelve was on April 26, 2018.
+[^15]: This process and the meetings held occurred in the Salt Lake Temple in January, February, March, and April 2018. The final revelation to the First Presidency and the Quorum of the Twelve was on April 26, 2018.
 
-[^16]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^16]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^17]: *Saints: The Story of the Church of Jesus Christ in the Latter Days,* vol. 1, *The Standard of Truth, 1815–1846* (2018), 418.
+[^17]: *[Saints: The Story of the Church of Jesus Christ in the Latter Days](https://www.churchofjesuschrist.org/study/history/saints-v1/35-a-beautiful-place?lang=eng&id=p13#p13),* vol. 1, *The Standard of Truth, 1815–1846* (2018), 418.
 
-[^18]: *Saints,* 1:418.
+[^18]: *[Saints](https://www.churchofjesuschrist.org/study/history/saints-v1/35-a-beautiful-place?lang=eng&id=p15#p15),* 1:418.
 
-[^19]: [[3 Nephi 27.20|3 Nephi 27:20]].
+[^19]: [[3 Nephi 27.20|3 Nephi 27:20]].
 
-[^20]: The Holy Ghost is a member of the Godhead (see [[1 John 5.7|1 John 5:7]]; [[D&C 20.28|Doctrine and Covenants 20:28]]). He has a body of spirit in the form and likeness of man (see [[D&C 130.22|Doctrine and Covenants 130:22]]). His influence can be everywhere. He is unified in purpose with our Heavenly Father and Jesus Christ, our Savior.
+[^20]: The Holy Ghost is a member of the Godhead (see [[1 John 5.7|1 John 5:7]]; [[D&C 20.28|Doctrine and Covenants 20:28]]). He has a body of spirit in the form and likeness of man (see [[D&C 130.22|Doctrine and Covenants 130:22]]). His influence can be everywhere. He is unified in purpose with our Heavenly Father and Jesus Christ, our Savior.
 
-[^21]: For a comprehensive understanding of the Light of Christ and the difference between the Light of Christ and the Holy Ghost, see [[2 Nephi 32.1|2 Nephi 32]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]][[2 Nephi 32.6|]][[2 Nephi 32.7|]][[2 Nephi 32.8|]][[2 Nephi 32.9|]]; [[D&C 88.7|Doctrine and Covenants 88:7, 11–13]][[D&C 88.11|]][[D&C 88.12|]][[D&C 88.13|]]; “[Light of Christ](https://churchofjesuschrist.org/study/scriptures/bd/light-of-christ?lang=eng),” Bible Dictionary. See also Boyd K. Packer, “[The Light of Christ](https://churchofjesuschrist.org/study/liahona/2005/04/the-light-of-christ?lang=eng),” *Ensign* or *Liahona,* Apr. 2005, 8–14.
+[^21]: For a comprehensive understanding of the Light of Christ and the difference between the Light of Christ and the Holy Ghost, see [[2 Nephi 32.1|2 Nephi 32]]; [[D&C 88.7|Doctrine and Covenants 88:7, 11–13]][[D&C 88.11|]][[D&C 88.12|]][[D&C 88.13|]]; “[[BD Light Of Christ|Light of Christ]],” Bible Dictionary. See also Boyd K. Packer, “[The Light of Christ](https://www.churchofjesuschrist.org/study/liahona/2005/04/the-light-of-christ?lang=eng),” *Ensign* or *Liahona,* Apr. 2005, 8–14.
 
 [^22]: [[D&C 8.2|Doctrine and Covenants 8:2–3]][[D&C 8.3|]].
 
@@ -155,12 +157,7 @@ My humble plea today is that each of us will seek continuing revelation to guide
 
 [^30]: [[D&C 42.61|Doctrine and Covenants 42:61]].
 
-[^31]: Neal A. Maxwell, *All These Things Shall Give Thee Experience* (2007), 31.
+[^31]: Neal A. Maxwell, *All These Things Shall Give Thee Experience* (2007), 31.
 
-[^32]: Wilford Woodruff, in *Teachings of Presidents of the Church: Joseph Smith* (2007), 283.
+[^32]: Wilford Woodruff, in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-24?lang=eng)* (2007), 283.
 
-
-
-
-
-#Prophets #Revelation

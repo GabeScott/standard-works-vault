@@ -1,6 +1,5 @@
 # Trust
 
-
 *See also* [[Trust in God.md|Trust in God]]; [[Trust Not in the Arm of Flesh.md|Trust Not in the Arm of Flesh]]; [[Trustworthiness.md|Trustworthiness]]
 
 They that *trust* in their wealth, [[Psalms 49.6|Psalms 49:6]] ([[Psalms 52.7|Psalms 52:7]]).
@@ -31,8 +30,8 @@ one that accuseth you, even Moses, in whom ye *trust*, [[John 5.45|John 5:45]].
 
 we should not *trust* in ourselves, [[2 Corinthians 1.9|2 Corinthians 1:9]].
 
-we were ... put in *trust* with the gospel, [[1 Thessalonians 2.4|1 Thessalonians 2:4]].
+we were … put in *trust* with the gospel, [[1 Thessalonians 2.4|1 Thessalonians 2:4]].
 
-gospel ... which was committed to my *trust*, [[1 Timothy 1.11|1 Timothy 1:11]].
+gospel … which was committed to my *trust*, [[1 Timothy 1.11|1 Timothy 1:11]].
 
-*trust* no one to be your teacher ... except he be a man of God, [[Mosiah 23.14|Mosiah 23:14]].
+*trust* no one to be your teacher … except he be a man of God, [[Mosiah 23.14|Mosiah 23:14]].

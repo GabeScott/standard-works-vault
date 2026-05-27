@@ -1,5 +1,7 @@
 # The Sanctity of the Body
 
+Gordon B. Hinckley
+
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the October session of the 2005 General Conference*
@@ -18,7 +20,7 @@ With the fulness of the gospel on the earth, we are again privileged to know the
 
 Satan learned these same eternal truths about the body, and yet his punishment is that he does not have one. Therefore he tries to do everything he can to get us to abuse or misuse this precious gift. He has filled the world with lies and deceptions about the body. He tempts many to defile this great gift of the body through unchastity, immodesty, self-indulgence, and addictions. He seduces some to despise their bodies; others he tempts to worship their bodies. In either case, he entices the world to regard the body merely as an object. In the face of so many satanic falsehoods about the body, I want to raise my voice today in support of the sanctity of the body. I testify that the body is a gift to be treated with gratitude and respect.
 
-The scriptures declare that the body is a temple. It was Jesus Himself who first compared His body to a temple (see [[John 2.21|John 2:21]]). Later Paul admonished the people of Corinth, a wicked city teeming with all manner of lasciviousness and indecency: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]).
+The scriptures declare that the body is a temple. It was Jesus Himself who first compared His body to a temple (see [[John 2.21|John 2:21]]). Later Paul admonished the people of Corinth, a wicked city teeming with all manner of lasciviousness and indecency: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you? If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]]).
 
 What would happen if we truly treated our bodies as temples? The result would be a dramatic increase in chastity, modesty, observance of the Word of Wisdom, and a similar decrease in the problems of pornography and abuse, for we would regard the body, like the temple, as a sacred sanctuary of the Spirit. Just as no unclean thing may enter the temple, we would be vigilant to keep impurity of any sort from entering the temple of our bodies.
 
@@ -53,8 +55,3 @@ Our bodies are our temples. We are not less but *more* like Heavenly Father beca
 
 
 
-
-
-
-
-#Morality #Plan_Of_Salvation #Self-Esteem #Temples #Word_Of_Wisdom

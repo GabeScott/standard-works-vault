@@ -1,6 +1,5 @@
 # Ambassador
 
-
 *See also* [[Disciple.md|Disciple]]; [[Messenger.md|Messenger]]; [[Minister.md|Minister]]; [[Prophets, Mission of.md|Prophets, Mission of]]
 
 we are *ambassadors* for Christ, [[2 Corinthians 5.20|2 Corinthians 5:20]].

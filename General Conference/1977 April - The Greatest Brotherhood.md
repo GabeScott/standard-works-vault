@@ -1,6 +1,8 @@
 # The Greatest Brotherhood
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -10,7 +12,7 @@ For the past few years I have been associated with an organization known as The 
 
 The president of this organization, Dr. David Hyatt, has stated:
 
-“Brotherhood—the respect for the dignity and worth of another human being—must become a part of our conscious activities, not just philosophical rhetoric or afterthought. …
+“Brotherhood—the respect for the dignity and worth of another human being—must become a part of our conscious activities, not just philosophical rhetoric or afterthought. …
 
 “Brotherhood is democracy at work! It is giving to others the rights and respect we want for ourselves. It can be that simple and that profound!” (“We Need You to Combat Intergroup Bigotry and Prejudice,” NCCJ pamphlet, December 1974, p. 3).
 
@@ -38,7 +40,7 @@ All of these instructions are to help us enjoy life here and prepare ourselves t
 
 To accomplish God’s purposes and to prove ourselves, it is necessary that we work within his church and under the direction of his authorized servants. We need the strength that comes from association with others who are seeking the same goals.
 
-To illustrate this I should like to repeat a story related by Henry D. Taylor a few years ago in a talk which he gave at conference and which he entitled “Man Does Not Stand Alone.”
+To illustrate this I should like to repeat a story related by Henry D. Taylor a few years ago in a talk which he gave at conference and which he entitled “Man Does Not Stand Alone.”
 
 “A boy was extended an invitation to visit his uncle who was a lumberjack up in the Northwest. … \[As he arrived\] his uncle met him at the depot, and as the two pursued their way to the lumber camp, the boy was impressed by the enormous size of the trees on every hand. There was a gigantic tree which he observed standing all alone on the top of a small hill. The boy, full of awe, called out excitedly, ‘Uncle George, look at that big tree! It will make a lot of good lumber, won’t it?’
 
@@ -46,7 +48,7 @@ To illustrate this I should like to repeat a story related by Henry D. Taylor a
 
 Then Brother Taylor made this observation: “It is so with people. We become better individuals, more useful timber when we grow together rather than alone.” (*Conference Report,* April 1965, pp. 54–55.)
 
-Elder Sterling W. Sill, in an article entitled “Men in Step,” wrote:
+Elder Sterling W. Sill, in an article entitled “Men in Step,” wrote:
 
 “The greatest invention of all time is said to have taken place 2500 years ago at Platea when an obscure Greek perfected the process of marching men in step. When it was found that the efforts of a large group of people having different motives and different personalities could be organized and coordinated to function as one, that day civilization began.” (“Insights & Perspectives,” March 1977, from *Leadership,* Bookcraft, 1958, 1:222–29.)
 
@@ -60,7 +62,7 @@ Another area where we work for the benefit and blessing of some we do not know i
 
 In both these areas of our Church activity it is inspirational to see groups of men and women working side by side in good fellowship to accomplish something for somebody else. These projects strengthen personal relations between those who are working together and build testimonies of the truthfulness of a gospel which teaches that we are our brother’s keepers and that “inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.40|Matt. 25:40]].)
 
-Sometimes we can get our inactive brethren to assist in such projects; and when they catch the spirit of the work, they will want to continue their association with their brethren in quorum meetings. President David O. McKay once said:
+Sometimes we can get our inactive brethren to assist in such projects; and when they catch the spirit of the work, they will want to continue their association with their brethren in quorum meetings. President David O. McKay once said:
 
 “There are many ways in which we can get these indifferent elders together without inviting them to do things which are difficult. Some of them do not like to pray. They hesitate about standing in public to preach, and some of them would rather go fishing or playing golf on Sunday than attend meeting. But, not one of those indifferent elders will refuse an invitation, for example, to come to a funeral of one of the townsfolk, or one of their members, or of one of their members’ wives, and if you will come as a quorum and sit together as a quorum, there is one means of fellowship. Our High Priests are doing it more than Seventies or Elders.
 
@@ -70,7 +72,7 @@ In this same train of thought, President McKay said on another occasion, address
 
 “Fellow presiding officers in missions, stakes, wards, and quorums, *make your quorums more effective in regard to brotherhood and service.* The quorums are units which should effectively hold the priesthood in sacred bonds and in helpfulness.
 
-“I refer particularly to the senior members of the Aaronic Priesthood—you businessmen, successful in the business world; you professional men who have devoted your time to the success of your vocations and are successful and are leading men in civic and political affairs—get together more closely in your quorum … and help one another. If one of your number be sick, two or three of you get together and call on him. …
+“I refer particularly to the senior members of the Aaronic Priesthood—you businessmen, successful in the business world; you professional men who have devoted your time to the success of your vocations and are successful and are leading men in civic and political affairs—get together more closely in your quorum … and help one another. If one of your number be sick, two or three of you get together and call on him. …
 
 “You elders perhaps have one of your number sick, and his crop needs harvesting. Get together and harvest it. One of your members has a son on a mission, and his funds are getting low. Just ask if you can be of help to him. Your thoughtfulness he will never forget. Such acts as these are what the Savior had in mind when he said, ‘Inasmuch as ye do it unto the least of these my brethren, ye do it unto me.’ (See [[Matthew 25.40|Matt. 25:40]].)” (*Conference Report,* October 1955, p. 129.)
 
@@ -98,19 +100,14 @@ Another experience was related to me recently by one of our priesthood holders. 
 
 “When I arrived home there were many friends there to greet me, and my dear friend and member of my priesthood quorum who is a fine physician took care of me. We cannot express our gratitude to those who offered assistance in so many ways, but most definitely we witnessed there the priesthood in action and always will be grateful to be members of The Church of Jesus Christ of Latter-day Saints where such brotherhood is fostered.”
 
-President Stephen L Richards, a former counselor in the First Presidency, said:
+President Stephen L Richards, a former counselor in the First Presidency, said:
 
 “I have reached the conclusion in my own mind that no man, however great his intellectual attainments, however vast and far-reaching his service may be, arrives at the full measure of his sonship and the manhood the Lord intended him to have, without the investiture of the Holy Priesthood, and with that appreciation, my brethren, I have given thanks to the Lord all my life for this marvelous blessing which has come to me—a blessing that some of my progenitors had, and a blessing which more than any other heritage I want my sons and my grandsons and my great-grandsons to enjoy.” (*Conference Report,* October 1955, p. 88.)
 
-Well, brethren, I have tried to help us all to further understand our duty, that it might be truly said of us, “Well done, thou good and faithful servant.” ([[Matthew 25.21|Matt. 25:21]].) May we assist our prophet, President Spencer W. Kimball, in accomplishing his great desires for the benefit and blessing of all mankind. His primary and most worthy goals are to take the gospel to every nation, kindred, tongue, and people, and to build temples wherein the work can be done to seal on earth and in heaven those blessings reserved for the faithful righteous.
+Well, brethren, I have tried to help us all to further understand our duty, that it might be truly said of us, “Well done, thou good and faithful servant.” ([[Matthew 25.21|Matt. 25:21]].) May we assist our prophet, President Spencer W. Kimball, in accomplishing his great desires for the benefit and blessing of all mankind. His primary and most worthy goals are to take the gospel to every nation, kindred, tongue, and people, and to build temples wherein the work can be done to seal on earth and in heaven those blessings reserved for the faithful righteous.
 
 May we strive with all our hearts, minds, and strength to do what the Lord would have us do in preparation for his second coming. I fully believe that when he comes he will call on the faithful brethren who hold his priesthood in preference to any others to assist him in the consummation of his glorious work. I know he lives, that he will come again; and it is my earnest prayer that we will be worthy to meet him and assist him. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Brotherhood #Unity

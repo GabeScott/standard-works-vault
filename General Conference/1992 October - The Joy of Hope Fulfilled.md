@@ -1,5 +1,7 @@
 # The Joy of Hope Fulfilled
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -32,7 +34,7 @@ Admittedly we have ample reason to be deeply concerned because we see no immedia
 
 To all who have harbored feelings of despair and an absence of hope, I offer the words of the Lord through the Prophet Joseph Smith:
 
-“Fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. …
+“Fear not, little flock; do good; let earth and hell combine against you, for if ye are built upon my rock, they cannot prevail. …
 
 “Look unto me in every thought; doubt not, fear not” ([[D&C 6.34|D&C 6:34, 36]][[D&C 6.36|]]). “Even so am I in the midst of you” ([[D&C 6.32|D&C 6:32]]).
 
@@ -66,13 +68,13 @@ Some parents might have given up hope on this prodigal son, but not this man’s
 
 Brothers and sisters, I wish all of you could have been with us in the temple that day to feel the joy of hope fulfilled. I am sure you would have sensed, as I did, the rekindled love for God and the sublime happiness that filled the heart of my friend’s mother as her four sons, their companions, and other family members surrounded her in the sealing room.
 
-The Apostle Paul taught that three divine principles form a foundation upon which we can build the structure of our lives. They are faith, hope, and charity. (See [[1 Corinthians 13.13|1 Cor. 13:13]].) Together they give us a base of support like the legs of a three-legged stool. Each principle is significant within itself, but each also plays an important supporting role. Each is incomplete without the others. Hope helps faith develop. Likewise true faith gives birth to hope. When we begin to lose hope, we are faltering also in our measure of faith. The principles of faith and hope working together must be accompanied by charity, which is the greatest of all. According to Mormon, “charity is the pure love of Christ, and it endureth forever” ([[Moroni 7.47|Moro. 7:47]]). It is the perfect manifestation of our faith and hope.
+The Apostle Paul taught that three divine principles form a foundation upon which we can build the structure of our lives. They are faith, hope, and charity. (See [[1 Corinthians 13.13|1 Cor. 13:13]].) Together they give us a base of support like the legs of a three-legged stool. Each principle is significant within itself, but each also plays an important supporting role. Each is incomplete without the others. Hope helps faith develop. Likewise true faith gives birth to hope. When we begin to lose hope, we are faltering also in our measure of faith. The principles of faith and hope working together must be accompanied by charity, which is the greatest of all. According to Mormon, “charity is the pure love of Christ, and it endureth forever” ([[Moroni 7.47|Moro. 7:47]]). It is the perfect manifestation of our faith and hope.
 
 Working together, these three eternal principles will help give us the broad eternal perspective we need to face life’s toughest challenges, including the prophesied ordeals of the last days. Real faith fosters hope for the future; it allows us to look beyond ourselves and our present cares. Fortified by hope, we are moved to demonstrate the pure love of Christ through daily acts of obedience and Christian service.
 
 I assure you, my brothers and sisters, that our Heavenly Father is aware of us, individually and collectively. He understands the spiritual, physical, and emotional difficulties we face in the world today. In fact, they are all part of His plan for our eternal growth and development. And His promise to us is sure: “He that endureth in faith and doeth my will, the same shall overcome” ([[D&C 63.20|D&C 63:20]]).
 
-The Savior promised that “no weapon that is formed against thee shall prosper. … This is the heritage of the servants of the Lord” ([[3 Nephi 22.17|3 Ne. 22:17]]).
+The Savior promised that “no weapon that is formed against thee shall prosper. … This is the heritage of the servants of the Lord” ([[3 Nephi 22.17|3 Ne. 22:17]]).
 
 May we all find the “peace of God, which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]), which can be found only through charity, faith, and hope.
 
@@ -81,8 +83,3 @@ May I leave you my testimony that I know that the Lord Jesus Christ lives. He ha
 
 
 
-
-
-
-
-#Charity #Faith #Hope #Jesus_Christ

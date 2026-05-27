@@ -1,6 +1,8 @@
 # The Blessing of a Testimony
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -19,8 +21,3 @@ We are very fortunate in having a testimony of the teachings of the gospel of Je
 
 
 
-
-
-
-
-#Testimony

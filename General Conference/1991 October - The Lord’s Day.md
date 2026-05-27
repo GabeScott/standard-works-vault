@@ -1,5 +1,7 @@
 # The Lord’s Day
 
+Gordon B. Hinckley
+
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1991 General Conference*
@@ -42,7 +44,7 @@ This great commandment is culminated with a promise: “Verily I say, that inasm
 
 Keeping the Sabbath day holy is much more than just physical rest. It involves spiritual renewal and worship. President Spencer W. Kimball gave excellent counsel on Sabbath day observance. He said:
 
-“The Sabbath is a holy day in which to do worthy and holy things. Abstinence from work and recreation is important but insufficient. The Sabbath calls for constructive thoughts and acts, and if one merely lounges about doing nothing on the Sabbath, he is breaking it. To observe it, one will be on his knees in prayer, preparing lessons, studying the gospel, meditating, visiting the ill and distressed, sleeping, reading wholesome material, and attending all the meetings of that day to which he is expected. To fail to do these proper things is a transgression on the omission side” (*The Miracle of Forgiveness* \[Salt Lake City: Bookcraft, 1969\], pp. 96–97).
+“The Sabbath is a holy day in which to do worthy and holy things. Abstinence from work and recreation is important but insufficient. The Sabbath calls for constructive thoughts and acts, and if one merely lounges about doing nothing on the Sabbath, he is breaking it. To observe it, one will be on his knees in prayer, preparing lessons, studying the gospel, meditating, visiting the ill and distressed, sleeping, reading wholesome material, and attending all the meetings of that day to which he is expected. To fail to do these proper things is a transgression on the omission side” (*The Miracle of Forgiveness* \[Salt Lake City: Bookcraft, 1969\], pp. 96–97).
 
 Over a lifetime of observation, it is clear to me that the farmer who observes the Sabbath day seems to get more done on his farm than he would if he worked seven days. The mechanic will be able to turn out more and better products in six days than in seven. The doctor, the lawyer, the dentist, the scientist will accomplish more by trying to rest on the Sabbath than if he tries to utilize every day of the week for his professional work. I would counsel all students, if they can, to arrange their schedules so that they do not study on the Sabbath. If students and other seekers after truth will do this, their minds will be quickened and the infinite Spirit will lead them to the verities they wish to learn. This is because God has hallowed his day and blessed it as a perpetual covenant of faithfulness (see [[Exodus 31.16|Ex. 31:16]]).
 
@@ -50,17 +52,17 @@ On February 1, 1980, when the First Presidency announced the consolidated Sunday
 
 “Other appropriate Sabbath activities, such as strengthening family ties, visiting the sick and homebound, giving service to others, writing personal and family histories, genealogical work, and missionary work, should be carefully planned and carried out.
 
-“It is expected that this new schedule of meetings and activities will result in greater spiritual growth for members of the Church” (“Meeting Schedule Approved,” *Church News,* 2 Feb. 1980, p. 3). It is hoped that priesthood leaders and members of the Church will honor the spirit of more family togetherness on Sunday.
+“It is expected that this new schedule of meetings and activities will result in greater spiritual growth for members of the Church” (“Meeting Schedule Approved,” *Church News,* 2 Feb. 1980, p. 3). It is hoped that priesthood leaders and members of the Church will honor the spirit of more family togetherness on Sunday.
 
 The children of Israel were miraculously sustained in the wilderness for over forty years. They received manna from heaven daily except on the Sabbath. The manna had to be gathered and used the day it fell, or it became wormy and would stink (see [[Exodus 16.20|Ex. 16:20, 30]][[Exodus 16.30|]]). But on the sixth day, prior to the Sabbath, twice as much manna fell as on the other days (see [[Exodus 16.5|Ex. 16:5]]). The children of Israel were instructed by the Lord to gather twice as much so that it would last for two days because the manna did not fall on the Sabbath day. When they did this, a third miracle happened. On the Sabbath day the manna gathered the day before did not stink, and there were no worms in it, for it was preserved for Sabbath day use (see [[Exodus 16.24|Ex. 16:24]]).
 
 Over the centuries, other stories of miraculous happenings relating to Sabbath day observance have been preserved. One is the story of the cobbler working under one of the megalithic stones in Avebury, near Stonehenge, England:
 
-“‘One Sunday,’ wrote John Saunders in his journal for August 13, 1712, ‘a cobler was mending of shoos under one of these great stones. The minute he rose the stone fell down and broke in pieces on the very ground where he sat which made him see the great providence of God in preserving him alive and so deter him from braking the Sabbath for which reason he never more worked on the Sabbath day’” (Michael Pitts, *Footprints through Avebury* \[Dorchester, England: The Friary Press Limited, 1985\], pp. 31–32).
+“‘One Sunday,’ wrote John Saunders in his journal for August 13, 1712, ‘a cobler was mending of shoos under one of these great stones. The minute he rose the stone fell down and broke in pieces on the very ground where he sat which made him see the great providence of God in preserving him alive and so deter him from braking the Sabbath for which reason he never more worked on the Sabbath day’” (Michael Pitts, *Footprints through Avebury* \[Dorchester, England: The Friary Press Limited, 1985\], pp. 31–32).
 
 A more recent miracle occurred at the Wells Stake Welfare Tannery some years ago where hides of animals were tanned into leather. On regular workdays, the hides were removed from the vats and fresh lime placed in the vats, after which the hides were returned to the lime solution. If the hides were not turned on holidays, they would spoil. But the change was never made on Sunday, and there were no spoiled hides on Monday. Explained J. Lowell Fox, the supervisor of the tannery at the time:
 
-“This brought a strange fact to our minds: holidays are determined by man, and on these days just as on every week day, the hides need to have special care every twelve hours. Sunday is the day set aside by the Lord as a day of rest, and He makes it possible for us to rest from our labors as He has commanded. The hides at the tannery never spoil on Sundays. This is a modern-day miracle, a miracle that happens every weekend!” (*Handbook for Guide Patrol Leaders* \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1964\], p. 37).
+“This brought a strange fact to our minds: holidays are determined by man, and on these days just as on every week day, the hides need to have special care every twelve hours. Sunday is the day set aside by the Lord as a day of rest, and He makes it possible for us to rest from our labors as He has commanded. The hides at the tannery never spoil on Sundays. This is a modern-day miracle, a miracle that happens every weekend!” (*Handbook for Guide Patrol Leaders* \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1964\], p. 37).
 
 Why has God asked us to honor the Sabbath day? The reasons I think are at least threefold. The first has to do with the physical need for rest and renewing. Obviously God, who created us, would know more than we do of the limits of our physical and nervous energy and strength.
 
@@ -68,7 +70,7 @@ The second reason is, in my opinion, of far greater significance. It has to do w
 
 The third reason may be the most important of the three. It has to do with obedience to commandments as an expression of our love for God. Blessed are those who need no reasons other than their love for the Savior to keep his commandments. The response of Adam to the angel who asked Adam why he made a sacrifice unto the Lord is a model for all. Responded Adam, “I know not, save the Lord commanded me” ([[Moses 5.6|Moses 5:6]]).
 
-The prophet Samuel reminds us, “To obey is better than sacrifice, and to hearken than the fat of rams” ([[1 Samuel 15.22|1 Sam. 15:22]]).
+The prophet Samuel reminds us, “To obey is better than sacrifice, and to hearken than the fat of rams” ([[1 Samuel 15.22|1 Sam. 15:22]]).
 
 In this day of increasing access to and preoccupation with materialism, there is a sure protection for ourselves and our children against the plagues of our day. The key to that sure protection surprisingly can be found in Sabbath observance: “And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day” ([[D&C 59.9|D&C 59:9]]).
 
@@ -85,8 +87,3 @@ What is worthy or unworthy on the Sabbath day will have to be judged by each of 
 
 
 
-
-
-
-
-#Faith #Sabbath

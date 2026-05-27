@@ -1,5 +1,7 @@
 # The Lord Blesses His Children through Patriarchal Blessings
 
+Gordon B. Hinckley
+
 By Elder Richard D. Allred - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -20,7 +22,7 @@ I testify to you that today the heavens are open and since the spring of the yea
 
 I witness to you that the Lord’s prophet to all the world, he who holds all the keys pertaining to the last dispensation today, is Gordon B. Hinckley, prophet, seer, and revelator, and the President of the Lord’s kingdom here upon the earth, even The Church of Jesus Christ of Latter-day Saints.
 
-It was through the Prophet Joseph Smith that the Lord restored the priesthood, the fulness of the gospel, and “the same organization that existed in the Primitive Church, namely, apostles, prophets, pastors, teachers, evangelists, and so forth” ([[Articles of Faith 1.6|A of F 1:6]]).
+It was through the Prophet Joseph Smith that the Lord restored the priesthood, the fulness of the gospel, and “the same organization that existed in the Primitive Church, namely, apostles, prophets, pastors, teachers, evangelists, and so forth” ([[Articles of Faith 1.6|A of F 1:6]]).
 
 Patriarchs are charged with the duty of blessing the members of the Church. “Patriarchal blessings contemplate an inspired declaration of the lineage of the recipient. A patriarchal blessing also includes an inspired and prophetic statement of the life possibilities and mission of the recipient. It may include such blessings, promises, advice, admonitions, and warnings as the patriarch may be prompted to give. It should always be made clear that the realization of all promised blessings is conditioned upon faithfulness and the Lord’s will” (*Information and Suggestions for Patriarchs* \[1970\], 3–4).
 
@@ -41,8 +43,3 @@ It is my sincere prayer that all who desire a blessing at the Lord’s hand may 
 
 
 
-
-
-
-
-#Joseph_Smith #Patriarchal_Blessings #Priesthood

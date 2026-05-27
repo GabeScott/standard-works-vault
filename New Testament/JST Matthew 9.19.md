@@ -4,6 +4,3 @@
 
 [JST Matthew 9:19](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/9?lang=eng)
 
-
-
-

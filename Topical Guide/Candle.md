@@ -1,6 +1,5 @@
 # Candle
 
-
 *See also* [[Lamp.md|Lamp]]; [[Light [noun].md|Light [noun]]]
 
 How oft is the *candle* of the wicked put out, [[Job 21.17|Job 21:17]] ([[Proverbs 24.20|Proverbs 24:20]]).

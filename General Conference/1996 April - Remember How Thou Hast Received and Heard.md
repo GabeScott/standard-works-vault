@@ -1,5 +1,7 @@
 # Remember How Thou Hast Received and Heard
 
+James E. Faust
+
 By Susan L. Warner - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 1996 General Conference*
@@ -38,7 +40,7 @@ Each week, all over the world, members of The Church of Jesus Christ of Latter-d
 
 I recall a day when one of our children was leaving for school with his friend. I waved good-bye and called out, “Remember who you are.” As they walked away, I overheard the friend ask, “Why does your mother always say that to you? What does she mean?” I heard our son’s quick reply, “She means, ‘Be good.’” He was exactly right. We remember who we are by doing good, and we do good when we remember who we are.
 
-We are to remember to keep His commandments in all things (see [[1 Nephi 15.25|1 Ne. 15:25]]), remember to search the scriptures diligently (see [[Mosiah 1.7|Mosiah 1:7]]), remember the words our parents have taught us (see [[Alma 57.21|Alma 57:21]]), remember the counsel of the prophets and apostles (see [[Jude 1.17|Jude 1:17]]), remember the awfulness of transgression (see [[2 Nephi 9.39|2 Ne. 9:39]]), remember that the Lord is merciful unto all who believe on His name (see [[Alma 32.22|Alma 32:22]]), and remember that He came to redeem us (see [[Helaman 5.9|Hel. 5:9]]).
+We are to remember to keep His commandments in all things (see [[1 Nephi 15.25|1 Ne. 15:25]]), remember to search the scriptures diligently (see [[Mosiah 1.7|Mosiah 1:7]]), remember the words our parents have taught us (see [[Alma 57.21|Alma 57:21]]), remember the counsel of the prophets and apostles (see [[Jude 1.17|Jude 1:17]]), remember the awfulness of transgression (see [[2 Nephi 9.39|2 Ne. 9:39]]), remember that the Lord is merciful unto all who believe on His name (see [[Alma 32.22|Alma 32:22]]), and remember that He came to redeem us (see [[Helaman 5.9|Hel. 5:9]]).
 
 I join with children around the world, bearing my testimony in this Primary song, and remembering what we have received and heard, what we know and feel:
 
@@ -56,8 +58,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Children #Commandments #Family #Family_Home_Evening #Jesus_Christ #Parents #Prophets #Repentance #Responsibility #Sacrament #Scripture_Study #Sin #Spirituality

@@ -1,5 +1,7 @@
 # A New Witness for Christ
 
+Gordon B. Hinckley
+
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -16,7 +18,7 @@ Zion cannot fully arise and put on her beautiful garments if she is under this c
 
 This prompts five critical questions to which each of us must respond: Is the Book of Mormon the word of God? For whom was it meant? How important is this volume of scripture? What is its major purpose? How are we to use it?
 
-First, is the Book of Mormon the word of God? Yes. God has so testified. (See [[D&C 20.8|D&C 20:8–10]][[D&C 20.9|]][[D&C 20.10|]].) So have its writers (see [[2 Nephi 33.10|2 Ne. 33:10]]; [[Moroni 7.35|Moro. 7:35]]), so has its translator (see [[Articles of Faith 1.8|A of F 1:8]]), so have its witnesses, and so do all those who have read it and received a personal revelation from God as to its truthfulness.
+First, is the Book of Mormon the word of God? Yes. God has so testified. (See [[D&C 20.8|D&C 20:8–10]][[D&C 20.9|]][[D&C 20.10|]].) So have its writers (see [[2 Nephi 33.10|2 Ne. 33:10]]; [[Moroni 7.35|Moro. 7:35]]), so has its translator (see [[Articles of Faith 1.8|A of F 1:8]]), so have its witnesses, and so do all those who have read it and received a personal revelation from God as to its truthfulness.
 
 Second, for whom was the Book of Mormon meant? Moroni, the book’s last writer, speaking to us said, “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing.” ([[Mormon 8.35|Morm. 8:35]].) God inspired Mormon, its chief compiler, to put into the book what we would need in our day.
 
@@ -30,7 +32,7 @@ Third, how important is the Book of Mormon? Joseph Smith called it “the keysto
 
 “But those who harden their hearts in unbelief, and reject it, it shall turn to their own condemnation.” ([[D&C 20.14|D&C 20:14–15]][[D&C 20.15|]].)
 
-Fourth, what is the major purpose of the Book of Mormon? To bring men to Christ and to be reconciled to him, and then to join his church—in that order. (See [[2 Nephi 25.23|2 Ne. 25:23]]; [[D&C 20.11|D&C 20:11–14, 35–37]][[D&C 20.12|]][[D&C 20.13|]][[D&C 20.14|]][[D&C 20.35|]][[D&C 20.36|]][[D&C 20.37|]].)
+Fourth, what is the major purpose of the Book of Mormon? To bring men to Christ and to be reconciled to him, and then to join his church—in that order. (See [[2 Nephi 25.23|2 Ne. 25:23]]; [[D&C 20.11|D&C 20:11–14, 35–37]][[D&C 20.12|]][[D&C 20.13|]][[D&C 20.14|]][[D&C 20.35|]][[D&C 20.36|]][[D&C 20.37|]].)
 
 The title page of the Book of Mormon states the book is for “the convincing of the Jew and Gentile that Jesus is the Christ, the Eternal God.”
 
@@ -52,9 +54,9 @@ Now the spirit, as well as the body, is in need of constant nourishment. Yesterd
 
 Not all truths are of equal value, nor are all scriptures of the same worth. What better way to nourish the spirit than to frequently feast from the book which the Prophet Joseph said would get a man “nearer to God by abiding by its precepts, than by any other book”? (*History of the Church,* 4:461.)
 
-President Marion G. Romney understood this. Years ago he started a daily procedure, which he recommended to us, of reading the Book of Mormon each morning for thirty minutes. “I know that it kept me in harmony,” he said, “so far as I did keep in harmony, with the Spirit of the Lord.” Then he added, “It will hold us as close to the Spirit of the Lord as anything I know.” (In Conference Report, Apr. 1949, pp. 36, 41.)
+President Marion G. Romney understood this. Years ago he started a daily procedure, which he recommended to us, of reading the Book of Mormon each morning for thirty minutes. “I know that it kept me in harmony,” he said, “so far as I did keep in harmony, with the Spirit of the Lord.” Then he added, “It will hold us as close to the Spirit of the Lord as anything I know.” (In Conference Report, Apr. 1949, pp. 36, 41.)
 
-The Book of Mormon is to be “a standard unto my people, which are of the house of Israel,” said the Lord. ([[2 Nephi 29.2|2 Ne. 29:2]].) It is a standard we should heed and follow.
+The Book of Mormon is to be “a standard unto my people, which are of the house of Israel,” said the Lord. ([[2 Nephi 29.2|2 Ne. 29:2]].) It is a standard we should heed and follow.
 
 In the twentieth section of the Doctrine and Covenants, the Lord devotes several verses to summarizing the vital truths which the Book of Mormon teaches. (See [[D&C 20.17|D&C 20:17–36]][[D&C 20.18|]][[D&C 20.19|]][[D&C 20.20|]][[D&C 20.21|]][[D&C 20.22|]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]][[D&C 20.26|]][[D&C 20.27|]][[D&C 20.28|]][[D&C 20.29|]][[D&C 20.30|]][[D&C 20.31|]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]][[D&C 20.35|]][[D&C 20.36|]].) It speaks of God, the creation of man, the Fall, the Atonement, the ascension of Christ into heaven, prophets, faith, repentance, baptism, the Holy Ghost, endurance, prayer, justification and sanctification through grace, and loving and serving God.
 
@@ -80,11 +82,11 @@ We testify to the world that we have the record of Joseph—even the Book of Mor
 
 “Know ye not that the testimony of two nations is a witness unto you that I am God, that I remember one nation like unto another?
 
-“… And because that I have spoken one word ye need not suppose that I cannot speak another.” ([[2 Nephi 29.7|2 Ne. 29:7–9]][[2 Nephi 29.8|]][[2 Nephi 29.9|]].)
+“… And because that I have spoken one word ye need not suppose that I cannot speak another.” ([[2 Nephi 29.7|2 Ne. 29:7–9]][[2 Nephi 29.8|]][[2 Nephi 29.9|]].)
 
 We invite all men everywhere to read the Book of Mormon, another testament of Jesus Christ.
 
-The Bible sits on the pulpit of hundreds of different religious sects. The Book of Mormon, the record of Joseph, verifies and clarifies the Bible. It removes stumbling blocks, it restores many plain and precious things. We testify that when used together, the Bible and the Book of Mormon confound false doctrines, lay down contentions, and establish peace. (See [[2 Nephi 3.12|2 Ne. 3:12]].)
+The Bible sits on the pulpit of hundreds of different religious sects. The Book of Mormon, the record of Joseph, verifies and clarifies the Bible. It removes stumbling blocks, it restores many plain and precious things. We testify that when used together, the Bible and the Book of Mormon confound false doctrines, lay down contentions, and establish peace. (See [[2 Nephi 3.12|2 Ne. 3:12]].)
 
 We do not have to prove the Book of Mormon is true. The book is its own proof. All we need to do is read it and declare it! The Book of Mormon is not on trial—the people of the world, including the members of the Church, are on trial as to what they will do with this second witness for Christ.
 
@@ -93,8 +95,3 @@ I testify that the Book of Mormon is the word of God; and therefore Jesus is the
 
 
 
-
-
-
-
-#Book_Of_Mormon

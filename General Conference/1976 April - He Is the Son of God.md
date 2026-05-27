@@ -1,6 +1,8 @@
 # He Is the Son of God
 
-By Elder David B. Haight - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -20,7 +22,7 @@ A few hours after President Kimball ordained and set me apart, I traveled to mee
 
 The weight of this new calling and the responsibility to which you have just sustained me would be overwhelming were it not for my knowledge of the Savior.
 
-I have prayed daily for a deeper understanding of the Master as I prepare for this sacred responsibility of being a special witness to all the world. His words seem clearer to me now. He said, “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me. …
+I have prayed daily for a deeper understanding of the Master as I prepare for this sacred responsibility of being a special witness to all the world. His words seem clearer to me now. He said, “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me. …
 
 “Thou shalt declare repentance and faith on the Savior,” he said, “and remission of sins by baptism, and by fire, yea, even the Holy Ghost.” ([[D&C 19.23|D&C 19:23, 31]][[D&C 19.31|]].)
 
@@ -36,7 +38,7 @@ Our challenges are the same: “Thou shalt preach the fulness of my gospel, whic
 
 The Master’s instructions to us, given then, are the same today:
 
-“And now, behold, I give unto you a commandment, that when ye are assembled together ye shall instruct and edify each other, that ye may know how to act and direct my church. …
+“And now, behold, I give unto you a commandment, that when ye are assembled together ye shall instruct and edify each other, that ye may know how to act and direct my church. …
 
 “And ye are to be taught from on high.” He went on to say, “Sanctify yourselves and ye shall be endowed with power.” ([[D&C 43.8|D&C 43:8, 16]][[D&C 43.16|]].)
 
@@ -44,31 +46,31 @@ His promises are clear to us today. “If thou shalt ask, thou shalt receive rev
 
 And then that great promise: “And if your eye be single to my glory, your whole bodies shall be filled with light, and there shall be no darkness in you; and that body which is filled with light comprehendeth all things.” ([[D&C 88.67|D&C 88:67]].)
 
-Just as I have been instructed and counseled by President Kimball, others through the years have been so counseled. One hundred forty-six years ago when the Church was restored, the First Presidency instructed Parley P. Pratt, a newly called member of the Twelve: “O, Lord, smile from heaven upon this thy servant; forgive his sins, sanctify his heart, and prepare him to receive the blessing. … Increase his intelligence, communicate to him all that wisdom, that prudence and that understanding which he needs as a minister of righteousness, and to magnify the apostleship whereunto he is called.”
+Just as I have been instructed and counseled by President Kimball, others through the years have been so counseled. One hundred forty-six years ago when the Church was restored, the First Presidency instructed Parley P. Pratt, a newly called member of the Twelve: “O, Lord, smile from heaven upon this thy servant; forgive his sins, sanctify his heart, and prepare him to receive the blessing. … Increase his intelligence, communicate to him all that wisdom, that prudence and that understanding which he needs as a minister of righteousness, and to magnify the apostleship whereunto he is called.”
 
-And continuing they said: “You have enlisted in a cause that requires your whole attention. … Become a polished shaft. … You must endure much toil, much labor, and many privations to become perfectly polished. … Your labor must be incessant, and your toil great; you must go forth and labor till the great work is done. … Your Heavenly Father requires it; the field is His; the work is His; and He will … cheer you … and buoy you up. …
+And continuing they said: “You have enlisted in a cause that requires your whole attention. … Become a polished shaft. … You must endure much toil, much labor, and many privations to become perfectly polished. … Your labor must be incessant, and your toil great; you must go forth and labor till the great work is done. … Your Heavenly Father requires it; the field is His; the work is His; and He will … cheer you … and buoy you up. …
 
-“Beware of pride,” they continued. “Beware of evil; shun the very appearance of it. … You will see thousands who, when they first see you, will know nothing about salvation by Jesus Christ. …
+“Beware of pride,” they continued. “Beware of evil; shun the very appearance of it. … You will see thousands who, when they first see you, will know nothing about salvation by Jesus Christ. …
 
-“Cultivate great humility. … Beware … the flatterers of the world. … Let your ministry be first. Remember, the souls of men are committed to your charge. …”
+“Cultivate great humility. … Beware … the flatterers of the world. … Let your ministry be first. Remember, the souls of men are committed to your charge. …”
 
-They went on to say to Parley P. Pratt: “It is necessary that you receive a testimony from Heaven … so that you can bear testimony to the truth of the Book of Mormon. …
+They went on to say to Parley P. Pratt: “It is necessary that you receive a testimony from Heaven … so that you can bear testimony to the truth of the Book of Mormon. …
 
-“Strengthen your faith. …
+“Strengthen your faith. …
 
-“You are called to preach the gospel of the Son of God to the nations of the earth; it is the will of your Heavenly Father that you proclaim His gospel to the ends of the earth, and the islands of the sea. …
+“You are called to preach the gospel of the Son of God to the nations of the earth; it is the will of your Heavenly Father that you proclaim His gospel to the ends of the earth, and the islands of the sea. …
 
-“Be prepared at all times to make a sacrifice of your \[life\], should God require it. … Be always prayerful; be always watchful. …
+“Be prepared at all times to make a sacrifice of your \[life\], should God require it. … Be always prayerful; be always watchful. …
 
-“This gospel must roll, and will roll until it fills the \[entire\] earth. …
+“This gospel must roll, and will roll until it fills the \[entire\] earth. …
 
-“You \[will\] need a fountain of wisdom, knowledge and intelligence, such as you never had. … \[God\] can endow you without worldly pomp or great parade. …
+“You \[will\] need a fountain of wisdom, knowledge and intelligence, such as you never had. … \[God\] can endow you without worldly pomp or great parade. …
 
-“You must proclaim the gospel in its simplicity and \[its\] purity.” (*Autobiography of Parley P. Pratt,* Deseret Book Co., 1961, pp. 119–26.)
+“You must proclaim the gospel in its simplicity and \[its\] purity.” (*Autobiography of Parley P. Pratt,* Deseret Book Co., 1961, pp. 119–26.)
 
 Now I know by the power of the Spirit that this direction and counsel given under the inspiration of the Prophet Joseph Smith, which was meant for the Brethren in those days, is also meant for us. These eleven chosen servants I now have the honor to be associated with have not only placed their all on the altar, but they live lives of righteousness and complete dedication. I hope to follow them and to emulate their example. I love each of them. I love the First Presidency and all of the General Authorities. I feel a warmth to my soul when I am in their company.
 
-Of the Twelve, President Joseph F. Smith said, “These twelve disciples of Christ are supposed to be eye and ear witnesses of the divine mission of Jesus Christ. It is not permissible for them to say, I believe, … I have accepted it simply because I believe it. … The Lord informs us they must *know,* they must get the knowledge for themselves. It must be with them as if they had seen with their eyes and heard with their ears and they know the truth. That is their mission, to testify of Jesus Christ and him crucified and risen from the dead and clothed now with almighty power at the right hand of God, the Savior of the world … That is the doctrine and the truth that it is their duty to preach to the world and see that it is preached to the world … that Joseph \[Smith\] is a prophet of God, and was authorized and qualified to lay the foundation of the kingdom of God.” (*Gospel Doctrine,* p. 178.)
+Of the Twelve, President Joseph F. Smith said, “These twelve disciples of Christ are supposed to be eye and ear witnesses of the divine mission of Jesus Christ. It is not permissible for them to say, I believe, … I have accepted it simply because I believe it. … The Lord informs us they must *know,* they must get the knowledge for themselves. It must be with them as if they had seen with their eyes and heard with their ears and they know the truth. That is their mission, to testify of Jesus Christ and him crucified and risen from the dead and clothed now with almighty power at the right hand of God, the Savior of the world … That is the doctrine and the truth that it is their duty to preach to the world and see that it is preached to the world … that Joseph \[Smith\] is a prophet of God, and was authorized and qualified to lay the foundation of the kingdom of God.” (*Gospel Doctrine,* p. 178.)
 
 I know that the spirit of revelation is as essential for us today as it was for the Twelve during the Savior’s earthly ministry. There occurred an incident which some writers regard as a culminating point of the Savior’s ministry. You recall that he asked the Twelve two momentous questions. First, he asked, “Whom do men say that I the Son of man am?” ([[Matthew 16.13|Matt. 16:13]].) The apostles spoke words of soberness and truth but made the admission that the Messiah had not been recognized by the world which he came to save. The apostles repeated the guesses of the people. Some said he was John the Baptist; some said he was a new Elijah; others saw in him the tenderness of Jeremiah and thought that *he* had come. And many looked on him as a prophet. The light had shone in the darkness, but the darkness comprehended it not. (See [[John 1.5|John 1:5]].) We can only imagine the disappointment as the Savior directed the second question to the apostles when he said: “But whom say ye that I am?” ([[Matthew 16.15|Matt. 16:15]].)
 
@@ -97,8 +99,3 @@ Bless us with heavenly inspiration to know and to be prepared for His coming—f
 
 
 
-
-
-
-
-#Jesus_Christ #Quorum_Of_The_Twelve_Apostles

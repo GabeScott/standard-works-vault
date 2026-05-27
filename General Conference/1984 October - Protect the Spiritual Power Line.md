@@ -1,5 +1,7 @@
 # Protect the Spiritual Power Line
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -22,7 +24,7 @@ But learning can be misused! A sharp mind, misdirected, can cut into that line o
 
 “O that cunning plan of the evil one! O the vainness, and the frailties, and the foolishness of men! When they are learned they think they are wise, and they hearken not unto the counsel of God, for they set it aside, supposing they know of themselves, wherefore, their wisdom is foolishness and it profiteth them not. And they shall perish.
 
-“But to be learned is good *if* they hearken unto the counsels of God.” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]]; italics added.)
+“But to be learned is good *if* they hearken unto the counsels of God.” ([[2 Nephi 9.28|2 Ne. 9:28–29]][[2 Nephi 9.29|]]; italics added.)
 
 What happens without spiritual learning? What happens to the pilot of a glider when he is cut loose from the power of his tow plane? There may be banks and turns, but ultimately there is only *one* direction he can go, and that is down!
 
@@ -30,9 +32,9 @@ We must gain learning, but we must apply it wisely. Otherwise, we have politics 
 
 ## Power to Labor
 
-Consider the power of labor. Labor well spent increases our capacity to do. President Heber J. Grant often said, “‘That which we persist in doing becomes easier for us to do; not that the nature of the thing itself is changed, but that our power to do is increased.’” (In Conference Report, Apr. 1901, p. 63.)
+Consider the power of labor. Labor well spent increases our capacity to do. President Heber J. Grant often said, “‘That which we persist in doing becomes easier for us to do; not that the nature of the thing itself is changed, but that our power to do is increased.’” (In Conference Report, Apr. 1901, p. 63.)
 
-The Lord, through his prophet Lehi, said, “It must needs be, that there is an opposition in all things.” ([[2 Nephi 2.11|2 Ne. 2:11]].) So, in reality, competition forces us to improve. It deserves our praise and our gratitude. Without it we could not reach the heights that are otherwise ours to achieve.
+The Lord, through his prophet Lehi, said, “It must needs be, that there is an opposition in all things.” ([[2 Nephi 2.11|2 Ne. 2:11]].) So, in reality, competition forces us to improve. It deserves our praise and our gratitude. Without it we could not reach the heights that are otherwise ours to achieve.
 
 But our labor can be misdirected. One can be anxiously engaged in a meaningless cause. Or one can do something wrong a hundred times and call it experience! Some would avoid labor while pursuing the goals of wealth without working for it, or an honored position without preparing for it. The converted Lamanites taught this lesson: “Rather than shed the blood of their brethren they would give up their own lives; and rather than take away from a brother they would give unto him; and rather than spend their days in idleness they would labor abundantly with their hands.” ([[Alma 24.18|Alma 24:18]].)
 
@@ -56,7 +58,7 @@ Can the power to love be misused? Sadly, yes. The illegitimate union of the sexe
 
 Misused, the power of love can cut off spiritual power. The abuse of the power to love can result in no love at all. Only its cheap facsimiles of lewdness and lust remain in the wake of pleasure without conscience. Instead of feasting at the banquet table of bounteous love with his own posterity, one is left with scraps from the table—only the refuse from what might have been.
 
-The ashes of burned “love” smolder with the smoke of sadness. Yet the embers of evil still burn. But as loud voices argue on, let us remember that those who advocate abortion have already been born! Those who freely deny God with their amoral and agnostic practices will one day find that He may just as freely deny them! (See [[3 Nephi 28.34|3 Ne. 28:34]].)
+The ashes of burned “love” smolder with the smoke of sadness. Yet the embers of evil still burn. But as loud voices argue on, let us remember that those who advocate abortion have already been born! Those who freely deny God with their amoral and agnostic practices will one day find that He may just as freely deny them! (See [[3 Nephi 28.34|3 Ne. 28:34]].)
 
 ## Source of Spiritual Power
 
@@ -89,8 +91,3 @@ Of his sacred name and mission I solemnly bear special witness. Of his divine so
 
 
 
-
-
-
-
-#Love #Obedience #Prayer #Work

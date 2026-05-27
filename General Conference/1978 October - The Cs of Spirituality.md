@@ -1,12 +1,14 @@
 # The Cs of Spirituality
 
-By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1978/10/the-cs-of-spirituality?lang=eng)
 
-My dear brothers and sisters, I pray that you and I might be united by the Spirit, uplifted together, and rejoice in the beautiful things of the gospel. I have in my pocket a silver dollar. On one side it says, “in God we trust.” We have been taught by the prophets to trust in the Lord, to trust as did young David when facing the giant Goliath. Now, there is another side to that coin. Would that it read, “and God can trust in you.” The Lord wants us to trust in him, but he also wants to be able to trust in us. One of our great prophet leaders said, “To be trusted is a greater compliment than to be loved” (David O. McKay, “Character,” *True to the Faith,* Salt Lake City: Bookcraft, 1966, p. 274).
+My dear brothers and sisters, I pray that you and I might be united by the Spirit, uplifted together, and rejoice in the beautiful things of the gospel. I have in my pocket a silver dollar. On one side it says, “in God we trust.” We have been taught by the prophets to trust in the Lord, to trust as did young David when facing the giant Goliath. Now, there is another side to that coin. Would that it read, “and God can trust in you.” The Lord wants us to trust in him, but he also wants to be able to trust in us. One of our great prophet leaders said, “To be trusted is a greater compliment than to be loved” (David O. McKay, “Character,” *True to the Faith,* Salt Lake City: Bookcraft, 1966, p. 274).
 
 One of the principal purposes of this life is to find out if the Lord *can* trust us. One of our familiar scriptures says, “And we will prove them herewith, to see if they will do all things whatsoever the Lord their God shall command them” ([[Abraham 3.25|Abr. 3:25]]). We are destined to be tried, tested, and proven during our sojourn on earth to see if we are trustworthy.
 
@@ -18,11 +20,11 @@ Character is part of trust. If there is any doubt as to the borrower’s charact
 
 The Lord needs to know if he can trust us to do the right thing in every situation. Joseph of Egypt had a fine position as Potiphar’s principal steward. Then the wife of Potiphar attempted to entice him to sin. Joseph was far from home and family. He was a trusted slave, but still a slave nonetheless. No one would know or care about his morals. To spurn the woman would certainly bring severe complications to his life, but he was true to his noble character. He fled sin, was caught, and imprisoned. He paid a price for his purity; yet to have done otherwise would have been a tragic flaw in his character. Nephi’s strength of character led him to obey a commandment. He could easily have been slain by the wicked Laban. Yet to not obey, when he had the testimony that the Lord would open the way for him to obtain the plates, would have been a flaw in his character. The Lord could trust Joseph and Nephi.
 
-A person of high character testifies and then lives in harmony with his testimony. Martin Luther, at the Diet of Worms, demonstrated this principle of being true to oneself: “I cannot and \[I\] will not recant, for it is neither safe nor expedient to act against conscience. Here I take my stand; I can do no otherwise, so help me God!” (Quoted in “The Building of Human Character,” *Gospel Ideals,* David O. McKay, Salt Lake City: *Improvement Era,* 1953, p. 354.)
+A person of high character testifies and then lives in harmony with his testimony. Martin Luther, at the Diet of Worms, demonstrated this principle of being true to oneself: “I cannot and \[I\] will not recant, for it is neither safe nor expedient to act against conscience. Here I take my stand; I can do no otherwise, so help me God!” (Quoted in “The Building of Human Character,” *Gospel Ideals,* David O. McKay, Salt Lake City: *Improvement Era,* 1953, p. 354.)
 
 Joseph Smith describes Paul’s character: “He saw a light, and heard a voice; … some said he was dishonest, others said he was mad. … But all this did not destroy the reality of his vision. He had seen a vision, he knew he had, and all the persecution under heaven could not make it otherwise.” Then Joseph adds his testimony regarding his own vision, revealing his own strength of character; “I had seen a vision; I knew it, and I knew that God knew it, and I could not deny it, neither dared I do it.” ([[Joseph Smith History 1.24|JS—H 1:24–25]][[Joseph Smith History 1.25|]].) Joseph Smith was a man of great, noble character that the Lord knew he could trust, no matter what the sacrifice.
 
-President David O. McKay said: “Man’s chief concern in life should not be the acquiring of gold, or of fame, or of material possessions. It should not be the development of physical prowess, nor of intellectual strength, but his aim, the highest in life, should be the development of a Christlike character.” (McKay, *True to the Faith,* p. 32.)
+President David O. McKay said: “Man’s chief concern in life should not be the acquiring of gold, or of fame, or of material possessions. It should not be the development of physical prowess, nor of intellectual strength, but his aim, the highest in life, should be the development of a Christlike character.” (McKay, *True to the Faith,* p. 32.)
 
 Active membership in The Church of Jesus Christ of Latter-day Saints builds a Christlike character. Serving a full-time mission builds a Christlike character in whom the Lord can trust.
 
@@ -47,8 +49,3 @@ I solemnly testify as a witness that God lives and loves us; that Jesus Christ, 
 
 
 
-
-
-
-
-#Character #Trust

@@ -1,6 +1,8 @@
 # Ask the Missionaries! They Can Help You!
 
-By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/ask-the-missionaries-they-can-help-you?lang=eng)
 
-My beloved brothers, sisters, and friends, we extend our love and greetings to each of you. We are thrilled with President Thomas S. Monson’s announcement this morning, which adjusts the minimum age for missionary service to 18 for young men and 19 for young women. Through this option, more of our youth may enjoy the blessings of a mission.
+My beloved brothers, sisters, and friends, we extend our love and greetings to each of you. We are thrilled with President Thomas S. Monson’s announcement this morning, which adjusts the minimum age for missionary service to 18 for young men and 19 for young women. Through this option, more of our youth may enjoy the blessings of a mission.
 
 Two years ago and powerfully reaffirmed again this morning, President Monson declared “that every worthy, able young man should prepare to serve a mission. Missionary service is a priesthood duty—an obligation the Lord expects of us who have been given so very much.”[^1] Again he explained that for young sisters, a mission is a welcome option but not a responsibility. And again he invited many more mature couples to serve.
 
@@ -67,7 +69,7 @@ I know that God lives. Jesus is the Christ. His Church has been restored. Ferven
 
 
 
-[^1]: Thomas S. Monson, “As We Meet Together Again,” *Liahona* and *Ensign,* Nov. 2010, 5–6.
+[^1]: Thomas S. Monson, “As We Meet Together Again,” *Liahona* and *Ensign,* Nov. 2010, 5–6.
 
 [^2]: See [[D&C 4.3|Doctrine and Covenants 4:3]].
 
@@ -79,24 +81,19 @@ I know that God lives. Jesus is the Christ. His Church has been restored. Ferven
 
 [^6]: See [[D&C 68.8|Doctrine and Covenants 68:8]]; [[D&C 84.62|84:62]]; [[D&C 112.28|112:28]].
 
-[^7]: See [[1 Corinthians 2.2|1 Corinthians 2:2]]; [[2 Nephi 25.26|2 Nephi 25:26]].
+[^7]: See [[1 Corinthians 2.2|1 Corinthians 2:2]]; [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^8]: Personal communication from W. Tracy Watson, former president of the Arizona Mesa Mission.
+[^8]: Personal communication from W. Tracy Watson, former president of the Arizona Mesa Mission.
 
 [^9]: Where I have phrased the invitation to “ask the missionaries,” you could also ask a friend who is a member of the Church for assistance.
 
 [^10]: Actively participating relatives, friends, and Church leaders would also be pleased to assist.
 
-[^11]: See James E. Enstrom and Lester Breslow, “Lifestyle and Reduced Mortality among Active California Mormons, 1980–2004,” *Preventive Medicine,* vol. 46 (2008), 135.
+[^11]: See James E. Enstrom and Lester Breslow, “Lifestyle and Reduced Mortality among Active California Mormons, 1980–2004,” *Preventive Medicine,* vol. 46 (2008), 135.
 
 [^12]: See [[D&C 93.36|Doctrine and Covenants 93:36]].
 
-[^13]: See *U.S. Religious Knowledge Survey* (Pew Forum on Religion and Public Life, Sept. 28, 2010), 7.
+[^13]: See *U.S. Religious Knowledge Survey* (Pew Forum on Religion and Public Life, Sept. 28, 2010), 7.
 
-[^14]: See Ram Cnaan, Van Evans, and Daniel W. Curtis, *Called to Serve: The Prosocial Behavior of Active Latter-day Saints* (University of Pennsylvania School of Social Policy and Practice, 2012); “Mormon Volunteerism Highlighted in New Study” (Mar. 16, 2012), http://www.mormonnewsroom.org/article/mormon-volunteerism-report; *Mormons in America: Certain in Their Beliefs, Uncertain of Their Place in Society* (Pew Forum on Religion and Public Life, Jan. 12, 2012), 43; Robert D. Putnam and David E. Campbell, *American Grace: How Religion Divides and Unites Us* (2010), 444–54.
+[^14]: See Ram Cnaan, Van Evans, and Daniel W. Curtis, *Called to Serve: The Prosocial Behavior of Active Latter-day Saints* (University of Pennsylvania School of Social Policy and Practice, 2012); “Mormon Volunteerism Highlighted in New Study” (Mar. 16, 2012), http://www.mormonnewsroom.org/article/mormon-volunteerism-report; *Mormons in America: Certain in Their Beliefs, Uncertain of Their Place in Society* (Pew Forum on Religion and Public Life, Jan. 12, 2012), 43; Robert D. Putnam and David E. Campbell, *American Grace: How Religion Divides and Unites Us* (2010), 444–54.
 
-
-
-
-
-#Jesus_Christ #Missionary_Work #Restoration #Teaching

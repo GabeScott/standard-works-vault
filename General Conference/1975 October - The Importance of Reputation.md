@@ -1,6 +1,8 @@
 # The Importance of Reputation
 
-By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -71,8 +73,3 @@ May we all do this, I humbly pray, in the name of our Lord and Savior, Jesus Chr
 
 
 
-
-
-
-
-#Character

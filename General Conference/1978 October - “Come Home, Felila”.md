@@ -1,6 +1,8 @@
 # “Come Home, Felila”
 
-By Elder John H. Groberg - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder John H. Groberg - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -50,7 +52,7 @@ My questions as to why—as to justice and reasons—were all at that moment com
 
 Oh, how we must remember the words of Jacob as he said:
 
-“Behold, great and marvelous are the works of the Lord. How unsearchable are the depths of the mysteries of him; and it is impossible that man should find out all his ways. And no man knoweth of his ways save it be revealed unto him; wherefore, brethren, despise not the revelations of God. …
+“Behold, great and marvelous are the works of the Lord. How unsearchable are the depths of the mysteries of him; and it is impossible that man should find out all his ways. And no man knoweth of his ways save it be revealed unto him; wherefore, brethren, despise not the revelations of God. …
 
 “Seek not to counsel the Lord, but to take counsel from his hand. For behold, ye yourselves know that he counseleth in wisdom, and in justice, and in great mercy, over all his works.” ([[Jacob 4.8|Jacob 4:8, 10]][[Jacob 4.10|]].)
 
@@ -71,8 +73,3 @@ Oh, may we all have a little Felila in our lives—and there are so many: the re
 
 
 
-
-
-
-
-#Disabilities #Faith

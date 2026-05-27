@@ -1,6 +1,5 @@
 # Unknown
 
-
 inscription, To the *Unknown* God, [[Acts 17.23|Acts 17:23]].
 
 he that speaketh in an *unknown* tongue speaketh not unto men, [[1 Corinthians 14.2|1 Corinthians 14:2]].

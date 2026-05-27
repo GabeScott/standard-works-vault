@@ -1,5 +1,7 @@
 # Remembrance and Gratitude
 
+Ezra Taft Benson
+
 By Bishop Henry B. Eyring - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1989 General Conference*
@@ -62,21 +64,21 @@ The Holy Ghost brings back memories of what God has taught us. And one of the wa
 
 You could test that in prayer today. You could follow the command, “Thou shalt thank the Lord thy God in all things.” ([[D&C 59.7|D&C 59:7]].) President Benson suggested prayer as a time to do that. He said:
 
-“The Prophet Joseph said at one time that one of the greatest sins of which the Latter-day Saints would be guilty is the sin of ingratitude. I presume most of us have not thought of that as a great sin. There is a great tendency for us in our prayers and in our pleadings with the Lord to ask for additional blessings. But sometimes I feel we need to devote more of our prayers to expressions of gratitude and thanksgiving for blessings already received. We enjoy so much.” (*God, Family, Country,* Salt Lake City: Deseret Book Co., 1974, p. 199.)
+“The Prophet Joseph said at one time that one of the greatest sins of which the Latter-day Saints would be guilty is the sin of ingratitude. I presume most of us have not thought of that as a great sin. There is a great tendency for us in our prayers and in our pleadings with the Lord to ask for additional blessings. But sometimes I feel we need to devote more of our prayers to expressions of gratitude and thanksgiving for blessings already received. We enjoy so much.” (*God, Family, Country,* Salt Lake City: Deseret Book Co., 1974, p. 199.)
 
 You could have an experience with the gift of the Holy Ghost today. You could begin a private prayer with thanks. You could start to count your blessings, and then pause for a moment. If you exercise faith, and with the gift of the Holy Ghost, you will find that memories of other blessings will flood into your mind. If you begin to express gratitude for each of them, your prayer may take a little longer than usual. Remembrance will come. And so will gratitude.
 
 You could try the same thing as you write an entry in your book of remembrance. The Holy Ghost has helped with that since the beginning of time. You remember in the record of Moses it says: “And a book of remembrance was kept, in the which was recorded, in the language of Adam, for it was given unto as many as called upon God to write by the spirit of inspiration.” ([[Moses 6.5|Moses 6:5]].)
 
-President Spencer W. Kimball described that process of inspired writing: “Those who keep a book of remembrance are more likely to keep the Lord in remembrance in their daily lives. Journals are a way of counting our blessings and of leaving an inventory of these blessings for our posterity.” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, p. 349.)
+President Spencer W. Kimball described that process of inspired writing: “Those who keep a book of remembrance are more likely to keep the Lord in remembrance in their daily lives. Journals are a way of counting our blessings and of leaving an inventory of these blessings for our posterity.” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball, Salt Lake City: Bookcraft, 1982, p. 349.)
 
 As you start to write, you could ask yourself, “How did God bless me today?” If you do that long enough and with faith, you will find yourself remembering blessings. And sometimes, you will have gifts brought to your mind which you failed to notice during the day, but which you will then know were a touch of God’s hand in your life.
 
 You can choose to remember the greatest gift of all. Next week, you can go to a meeting where the sacrament is administered. You will hear the words, “Always remember him.” You can pledge to do that, and the Holy Ghost will help you. President Marion G. Romney talked about the gift we will be helped to remember. He said:
 
-“We should be thankful and express appreciation for all favors received—and surely we receive many. The chief objects of our gratitude, however, should be, and are, God, our Heavenly Father, and his son Jesus Christ, our Lord and Redeemer. …
+“We should be thankful and express appreciation for all favors received—and surely we receive many. The chief objects of our gratitude, however, should be, and are, God, our Heavenly Father, and his son Jesus Christ, our Lord and Redeemer. …
 
-“To the Lord Jesus we owe an undying debt of gratitude, for he bought us with a great price. It is impossible for us, weak mortals as we are, to fully comprehend and appreciate the sufferings he endured on the cross that he might gain for us the victory over death.” (“Thou Shalt Thank the Lord Thy God in All Things,” *Ensign,* June 1974, p. 3.)
+“To the Lord Jesus we owe an undying debt of gratitude, for he bought us with a great price. It is impossible for us, weak mortals as we are, to fully comprehend and appreciate the sufferings he endured on the cross that he might gain for us the victory over death.” (“Thou Shalt Thank the Lord Thy God in All Things,” *Ensign,* June 1974, p. 3.)
 
 I bear you my testimony that Jesus is the Christ, that he atoned for our sins, and that the keys which unlock the doors of eternal life were restored to the Prophet Joseph Smith and are on the earth today. I bear testimony that President Ezra Taft Benson now holds those keys.
 
@@ -93,8 +95,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Blessings #Church_History #Consecration #Gratitude #Prayer #Sacrifice

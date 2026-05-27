@@ -1,6 +1,8 @@
 # Behold the Lamb of God
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Ulisses Soares
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -26,9 +28,9 @@ Unfortunately, as a symbol of genuine repentance and faithful living, this ritua
 
 With such trials and troubles going on for centuries, no wonder the angels of heaven sang for joy when, finally, Jesus was born—the long-promised Messiah Himself. Following His brief mortal ministry, this purest of all Passover sheep prepared His disciples for His death by introducing the sacrament of the Lord’s Supper, a more personal form of the ordinance that had been introduced just outside of Eden. There would still be an offering, it would still involve a sacrifice, but it would be with symbolism much deeper, much more introspective and personal than the bloodletting of a firstborn lamb. To the Nephites, after His Resurrection, the Savior said of this:
 
-“Ye shall offer up unto me no more the shedding of blood. …
+“Ye shall offer up unto me no more the shedding of blood. …
 
-“… Ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost. …
+“… Ye shall offer for a sacrifice unto me a broken heart and a contrite spirit. And whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost. …
 
 “… Therefore repent, … and be saved.”[^8]
 
@@ -53,7 +55,7 @@ Beloved friends, as we unite across the globe each week in what we hope is an in
 
 [^1]: [[John 1.29|John 1:29]].
 
-[^2]: See [[2 Nephi 9.8|2 Nephi 9:8–9]][[2 Nephi 9.9|]].
+[^2]: See [[2 Nephi 9.8|2 Nephi 9:8–9]][[2 Nephi 9.9|]].
 
 [^3]: See [[Moses 5.5|Moses 5:5]]; see also [[Exodus 12.3|Exodus 12:3–10]][[Exodus 12.4|]][[Exodus 12.5|]][[Exodus 12.6|]][[Exodus 12.7|]][[Exodus 12.8|]][[Exodus 12.9|]][[Exodus 12.10|]].
 
@@ -61,20 +63,15 @@ Beloved friends, as we unite across the globe each week in what we hope is an in
 
 [^5]: [[Revelation 13.8|Revelation 13:8]].
 
-[^6]: See Bible Dictionary, “[Anointed One](https://churchofjesuschrist.org/study/scriptures/bd/anointed-one?lang=eng)”; see also Guide to the Scriptures, “[Anointed One](https://churchofjesuschrist.org/study/scriptures/gs/anointed-one?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^6]: See Bible Dictionary, “[[BD Anointed One|Anointed One]]”; see also Guide to the Scriptures, “[Anointed One](https://www.churchofjesuschrist.org/study/scriptures/gs/anointed-one?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^7]: Ironically, Cain’s slaying of Abel, an act ultimately directed by Satan, may have been linked to Cain’s earlier anger over his sacrificial offering being rejected by the Lord while Abel’s was accepted.
 
-[^8]: [[3 Nephi 9.19|3 Nephi 9:19–20, 22]][[3 Nephi 9.20|]][[3 Nephi 9.22|]].
+[^8]: [[3 Nephi 9.19|3 Nephi 9:19–20, 22]][[3 Nephi 9.20|]][[3 Nephi 9.22|]].
 
 [^9]: [[D&C 59.9|Doctrine and Covenants 59:9]].
 
 [^10]: [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|5:2]].
 
-[^11]: “More Holiness Give Me,” *Hymns,* no. 131.
+[^11]: “More Holiness Give Me,” *Hymns,* no. 131.
 
-
-
-
-
-#Atonement #Church_Meetings #Jesus_Christ #Reverence #Sacrament #Sacrifice

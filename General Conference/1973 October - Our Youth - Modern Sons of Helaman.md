@@ -1,6 +1,8 @@
 # Our Youth: Modern Sons of Helaman
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Harold B. Lee
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -36,7 +38,7 @@ Another class of teenage girls, upon learning of a physical disability of a neig
 
 Probably none of these activities would ever make the headlines; however, they are strong evidence that this generation of youth has the character to fight this battle against the forces of Satan.
 
-A few months ago something wonderful happened. The Lord through a prophet gave a revelation pertaining to this generation of youth such as has not been given to any other generation. The foundation of The Church of Jesus Christ of Latter-day Saints is revelation—ancient and modern. Our message to the world is that God lives; the heavens are open; and he, the Lord, speaks through a living prophet, President Harold B. Lee. It was through this process that the Lord directed that the Aaronic Priesthood MIA organization be established. It was inaugurated in the Church on September 1 of this year. In the short time since then, reports indicate that exciting things are happening in the lives of youth as they begin to understand the significant and important principles involved in this change. These are:
+A few months ago something wonderful happened. The Lord through a prophet gave a revelation pertaining to this generation of youth such as has not been given to any other generation. The foundation of The Church of Jesus Christ of Latter-day Saints is revelation—ancient and modern. Our message to the world is that God lives; the heavens are open; and he, the Lord, speaks through a living prophet, President Harold B. Lee. It was through this process that the Lord directed that the Aaronic Priesthood MIA organization be established. It was inaugurated in the Church on September 1 of this year. In the short time since then, reports indicate that exciting things are happening in the lives of youth as they begin to understand the significant and important principles involved in this change. These are:
 
 First, the programs and activities of youth between the ages of 12 and 18 have now come under the umbrella of the Aaronic Priesthood. In other words, the programs and activities for both boys and girls are now priesthood oriented. They have priesthood leadership which draws them closer than ever before to the very lifeline of the Church.
 
@@ -81,8 +83,3 @@ May the Lord bless this royal generation that they may achieve that which he has
 
 
 
-
-
-
-
-#Youth

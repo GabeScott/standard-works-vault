@@ -1,7 +1,6 @@
 # Lot
 
-
-*See also* [[Portion.md|Portion]]; [BD Lot](https://www.churchofjesuschrist.org/study/scriptures/bd/lot?lang=eng); [Lots, casting of](https://www.churchofjesuschrist.org/study/scriptures/bd/lots-casting-of?lang=eng)
+*See also* [[Portion.md|Portion]]; [[BD Lot.md|BD Lot]]; [[BD Lots, casting of.md|BD Lots, casting of]]
 
 Aaron shall cast *lots* upon the two goats, [[Leviticus 16.8|Leviticus 16:8]].
 
@@ -21,7 +20,7 @@ his *lot* was to burn incense, [[Luke 1.9|Luke 1:9]].
 
 gave forth their *lots*; and the *lot* fell upon Matthias, [[Acts 1.26|Acts 1:26]].
 
-we cast *lots* —who of us should go, [[1 Nephi 3.11|1 Nephi 3:11]].
+we cast *lots*—who of us should go, [[1 Nephi 3.11|1 Nephi 3:11]].
 
 arrange by *lot* the inheritances of the saints, [[D&C 85.7|D&C 85:7]].
 

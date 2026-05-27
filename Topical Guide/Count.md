@@ -1,6 +1,5 @@
 # Count
 
-
 *See also* [[Account.md|Account]]
 
 *counted* it to him for righteousness, [[Genesis 15.6|Genesis 15:6]] ([[Romans 4.3|Romans 4:3]]).

@@ -1,6 +1,8 @@
 # Guardians of Virtue
 
-By Elaine S. Dalton - *Young Women General President*
+Thomas S. Monson
+
+By Elaine S. Dalton - *Young Women General President*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -44,7 +46,7 @@ For the mothers listening tonight, you are your daughters’ most important exam
 
 This week I again climbed Ensign Peak. It was early in the morning, and as I looked down from that mount at the mountain of the Lord’s house—the Salt Lake Temple—it was again crystal clear. The pioneers gave everything they had to come to the tops of the mountains so that you and I could have the blessings of the temple and be sealed eternally as families. Forty years of sacrifice, painstaking work, and even walking from Alpine to the temple—why? Because, like you, they believed! They believed in a prophet. They believed he had seen and talked with God and His Beloved Son. They believed in the Savior. They believed in the Book of Mormon. That’s why they could say, “We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things.”[^10] They endured many things and so can we. The thirteenth article of faith is what we believe because those are the very things that qualify us to be worthy to enter the temple and to one day stand in our Heavenly Father’s presence—proven, pure, and sealed. This will require that you be “more fit for the kingdom” and that you prepare now and gain the confidence that you can do hard things.
 
-Young women, you are engaged in a great work! And you are not alone! As you guard your virtue and purity, you will be given strength. As you keep the covenants you have made, the Holy Ghost will guide and guard you. You will be surrounded by heavenly hosts of angels. President Thomas S. Monson reminds us, “Remember that we do not run alone in this great race of life; we are entitled to the help of the Lord.”[^11] Prepare for that day when you will come to the Lord’s temple worthy and prepared to make sacred covenants. As guardians of virtue, you will want to *seek* the Savior in His holy house.
+Young women, you are engaged in a great work! And you are not alone! As you guard your virtue and purity, you will be given strength. As you keep the covenants you have made, the Holy Ghost will guide and guard you. You will be surrounded by heavenly hosts of angels. President Thomas S. Monson reminds us, “Remember that we do not run alone in this great race of life; we are entitled to the help of the Lord.”[^11] Prepare for that day when you will come to the Lord’s temple worthy and prepared to make sacred covenants. As guardians of virtue, you will want to *seek* the Savior in His holy house.
 
 I testify that God lives and that His Beloved Son, our Redeemer, Jesus Christ, lives and because of the redeeming and enabling power of His infinite Atonement, each of you will be guided and guarded on your path to the temple and back into Their presence. I pray that each of you will be strengthened for that work which will be your finest hour. Live for that beautiful day spoken of in the book of Revelation when you will “walk … in white: \[because you\] are worthy.”[^12] In the name of Jesus Christ, amen.
 
@@ -61,22 +63,17 @@ I testify that God lives and that His Beloved Son, our Redeemer, Jesus Christ, l
 
 [^5]: “More Holiness Give Me,” *Hymns,* no. 131.
 
-[^6]: See Dieter F. Uchtdorf, “Lift Where You Stand,” *Liahona* and *Ensign,* Nov. 2008, 55.
+[^6]: See Dieter F. Uchtdorf, “Lift Where You Stand,” *Liahona* and *Ensign,* Nov. 2008, 55.
 
 [^7]: [[Moroni 9.9|Moroni 9:9]].
 
 [^8]: [[Proverbs 3.15|Proverbs 3:15]].
 
-[^9]: See M. Russell Ballard, “Mothers and Daughters,” *Liahona* and *Ensign,* May 2010, 18–21.
+[^9]: See M. Russell Ballard, “Mothers and Daughters,” *Liahona* and *Ensign,* May 2010, 18–21.
 
 [^10]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-[^11]: Thomas S. Monson, “Great Expectations” (Church Educational System fireside for young adults, Jan. 11, 2009), http://lds.org/library/display/0,4945,538-1-4773-1,00.html.
+[^11]: Thomas S. Monson, “Great Expectations” (Church Educational System fireside for young adults, Jan. 11, 2009), http://lds.org/library/display/0,4945,538-1-4773-1,00.html.
 
 [^12]: [[Revelation 3.4|Revelation 3:4]].
 
-
-
-
-
-#Commitment #Covenants #Morality #Temples #Worthiness

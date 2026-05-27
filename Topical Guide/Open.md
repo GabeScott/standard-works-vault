@@ -1,6 +1,5 @@
 # Open
 
-
 *See also* [[Openly.md|Openly]]
 
 eat thereof, then your eyes shall be *opened*, [[Genesis 3.5|Genesis 3:5]].
@@ -33,15 +32,15 @@ the graves were *opened*, [[Matthew 27.52|Matthew 27:52]].
 
 his ears were *opened*, [[Mark 7.35|Mark 7:35]].
 
-knock ... saying, Lord, Lord, *open* unto us, [[Luke 13.25|Luke 13:25]].
+knock … saying, Lord, Lord, *open* unto us, [[Luke 13.25|Luke 13:25]].
 
-heart burn ... while he *opened* to us the scriptures, [[Luke 24.32|Luke 24:32]].
+heart burn … while he *opened* to us the scriptures, [[Luke 24.32|Luke 24:32]].
 
 *opened* he their understanding, [[Luke 24.45|Luke 24:45]].
 
 Jesus made the clay, and *opened* his eyes, [[John 9.14|John 9:14]].
 
-angel of the Lord ... *opened* the prison doors, [[Acts 5.19|Acts 5:19]].
+angel of the Lord … *opened* the prison doors, [[Acts 5.19|Acts 5:19]].
 
 I see the heavens *opened*, and the Son of man standing, [[Acts 7.56|Acts 7:56]].
 
@@ -49,25 +48,25 @@ saw heaven *opened*, and a certain vessel descending, [[Acts 10.11|Acts 10:11]].
 
 he had *opened* the door of faith, [[Acts 14.27|Acts 14:27]].
 
-Lydia ... whose heart the Lord *opened*, [[Acts 16.14|Acts 16:14]].
+Lydia … whose heart the Lord *opened*, [[Acts 16.14|Acts 16:14]].
 
 great door and effectual is *opened* unto me, [[1 Corinthians 16.9|1 Corinthians 16:9]].
 
 God would *open* unto us a door of utterance, [[Colossians 4.3|Colossians 4:3]].
 
-Some men's sins are *open* beforehand, [[1 Timothy 5.24|1 Timothy 5:24]].
+Some men’s sins are *open* beforehand, [[1 Timothy 5.24|1 Timothy 5:24]].
 
-if any man ... *open* the door, I will come in, [[Revelation 3.20|Revelation 3:20]].
+if any man … *open* the door, I will come in, [[Revelation 3.20|Revelation 3:20]].
 
 Who is worthy to *open* the book, [[Revelation 5.2|Revelation 5:2]].
 
 I saw when the Lamb *opened* one of the seals, [[Revelation 6.1|Revelation 6:1]] ([[Revelation 8.1|Revelation 8:1]]; [[D&C 77.13|D&C 77:13]]).
 
-I saw the dead ... and the books were *opened*, [[Revelation 20.12|Revelation 20:12]] ([[D&C 128.6|D&C 128:6-7]][[D&C 128.7|]]).
+I saw the dead … and the books were *opened*, [[Revelation 20.12|Revelation 20:12]].
 
 whoso knocketh, to him will he *open*, [[2 Nephi 9.42|2 Nephi 9:42]].
 
-you should ... *open* your ears, [[Mosiah 2.9|Mosiah 2:9]].
+you should … *open* your ears, [[Mosiah 2.9|Mosiah 2:9]].
 
 gate of heaven is *open* unto all, [[Helaman 3.28|Helaman 3:28]].
 

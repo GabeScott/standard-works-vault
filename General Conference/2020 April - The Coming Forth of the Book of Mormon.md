@@ -1,5 +1,7 @@
 # The Coming Forth of the Book of Mormon
 
+Russell M. Nelson
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
@@ -14,9 +16,9 @@ As we study the coming forth of this holy book of scripture in these latter days
 
 The coming forth of the Book of Mormon began long before Joseph Smith received the gold plates from the hands of the angel Moroni. Prophets of old prophesied about this sacred book’s advent in our day.[^5] Isaiah spoke of a sealed book, that when it would appear people would be contending over God’s word. This circumstance would provide the context wherein God could perform His “marvellous work and a wonder,” causing “the wisdom of their wise men \[to\] perish, and the understanding of their prudent men \[to\] be hid,” while the meek would “increase their joy in the Lord, and the poor among men shall rejoice in the Holy One of Israel.”[^6] Ezekiel spoke about the stick of Judah (the Bible) and the stick of Ephraim (the Book of Mormon) being brought together as one. Both Ezekiel (in the Old Testament) and Lehi (in the Book of Mormon) indicate that they shall “grow together” to confound false doctrine, establish peace, and bring us to a knowledge of the covenants.[^7]
 
-In the evening of September 21, 1823, three and a half years after experiencing the First Vision, Joseph was visited three times by the angel Moroni, the last prophet of the Nephites in ancient America, as a result of his sincere prayers. During their visits that lasted through the night, Moroni told Joseph that God had a marvelous work for him to accomplish—the translation and publication to the world of the inspired words of ancient prophets of the American continent.[^8] The next day, Joseph went to the place, not far from his home, where the plates were buried by Moroni at the end of his life, centuries earlier. There Joseph saw Moroni again, who instructed him to prepare himself to receive the plates in the future.
+In the evening of September 21, 1823, three and a half years after experiencing the First Vision, Joseph was visited three times by the angel Moroni, the last prophet of the Nephites in ancient America, as a result of his sincere prayers. During their visits that lasted through the night, Moroni told Joseph that God had a marvelous work for him to accomplish—the translation and publication to the world of the inspired words of ancient prophets of the American continent.[^8] The next day, Joseph went to the place, not far from his home, where the plates were buried by Moroni at the end of his life, centuries earlier. There Joseph saw Moroni again, who instructed him to prepare himself to receive the plates in the future.
 
-Over the next four years, on September 22 of each year, Joseph received additional instructions from Moroni regarding the knowledge about how the Lord’s kingdom should be governed in the latter days. Joseph’s preparation also included visits from the angels of God, thus unfolding the majesty and glory of the events that would take place in this dispensation.[^9]
+Over the next four years, on September 22 of each year, Joseph received additional instructions from Moroni regarding the knowledge about how the Lord’s kingdom should be governed in the latter days. Joseph’s preparation also included visits from the angels of God, thus unfolding the majesty and glory of the events that would take place in this dispensation.[^9]
 
 His marriage to Emma Hale in 1827 was part of that preparation. She played an important role in helping the Prophet throughout his life and ministry. In fact, in September 1827, Emma accompanied Joseph to the hill where the plates were hidden, and she waited for him as the angel Moroni delivered the record into Joseph’s hands. Joseph received the promise that the plates would be preserved if he would devote all his efforts to keep them safe until they should be returned into the hands of Moroni.[^10]
 
@@ -34,11 +36,11 @@ The Lord miraculously called another eight witnesses to see the gold plates for 
 
 Lucy Mack Smith recorded that her son arrived home overcome with joy after the witnesses were shown the plates. Joseph explained to his parents, “I feel as if I was relieved of a burden which was almost too heavy for me to bear, and it rejoices my soul, that I am not any longer to be entirely alone in the world.”[^20]
 
-Joseph Smith faced much opposition in printing the Book of Mormon as its translation came to an end. He was able to convince a printer named Egbert B. Grandin in Palmyra, New York, to print it only after Martin Harris, in an act of great faith and sacrifice, mortgaged his farm as collateral for the printing costs. Due in part to the continuing opposition after the publication of the Book of Mormon, Martin Harris faithfully sold 151 acres (0.6 km) of his farm to pay off the publication costs. Through a revelation given to Joseph Smith, the Lord instructed Martin Harris to not covet his property and pay the printing cost for the book that “contains the truth and the word of God.”[^21] In March 1830 the first 5,000 copies of the Book of Mormon were published, and today more than 180 million copies have been printed in over a hundred languages.
+Joseph Smith faced much opposition in printing the Book of Mormon as its translation came to an end. He was able to convince a printer named Egbert B. Grandin in Palmyra, New York, to print it only after Martin Harris, in an act of great faith and sacrifice, mortgaged his farm as collateral for the printing costs. Due in part to the continuing opposition after the publication of the Book of Mormon, Martin Harris faithfully sold 151 acres (0.6 km2) of his farm to pay off the publication costs. Through a revelation given to Joseph Smith, the Lord instructed Martin Harris to not covet his property and pay the printing cost for the book that “contains the truth and the word of God.”[^21] In March 1830 the first 5,000 copies of the Book of Mormon were published, and today more than 180 million copies have been printed in over a hundred languages.
 
 The historical facts and the special witnesses of the Book of Mormon testify that its coming forth was indeed miraculous. Nevertheless, the power of this book is not based only in its magnificent history but on its powerful, unparalleled message that has changed countless lives—including mine!
 
-I read the entire Book of Mormon for the first time when I was a young seminary student. As recommended by my teachers, I started reading it beginning with its introduction pages. The promise contained in the first pages of the Book of Mormon still echoes in my mind: “Ponder in \[your\] hearts … , and then … ask God \[in faith\] … in the name of Christ if the book is true. Those who pursue this course … will gain a testimony of its truth and divinity by the power of the Holy Ghost.”[^22]
+I read the entire Book of Mormon for the first time when I was a young seminary student. As recommended by my teachers, I started reading it beginning with its introduction pages. The promise contained in the first pages of the Book of Mormon still echoes in my mind: “Ponder in \[your\] hearts … , and then … ask God \[in faith\] … in the name of Christ if the book is true. Those who pursue this course … will gain a testimony of its truth and divinity by the power of the Holy Ghost.”[^22]
 
 With that promise in mind, earnestly seeking to know more about the truth of it, and in a spirit of prayer, I studied the Book of Mormon, little by little, as I completed the weekly assigned seminary lessons. I remember, like it was yesterday, that a warm feeling gradually began swelling in my soul and filling my heart, enlightening my understanding, and becoming more and more delightful, as described by Alma in his preaching the word of God to his people.[^23] That feeling eventually turned into knowledge that took root in my heart and became the foundation of my testimony of the significant events and teachings found in this sacred book.
 
@@ -55,27 +57,27 @@ I bear my witness that the Book of Mormon is indeed the word of God. I testify t
 
 [^1]: Joseph Smith, in “[Minute Book 1](https://www.josephsmithpapers.org/paper-summary/minute-book-1/48),” 44, josephsmithpapers.org; also at Church History Library, Salt Lake City; capitalization standardized.
 
-[^2]: See [[3 Nephi 11.1|3 Nephi 11–26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]].
+[^2]: See [[3 Nephi 11.1|3 Nephi 11–26]].
 
-[^3]: See [[Ezekiel 37.21|Ezekiel 37:21–28]][[Ezekiel 37.22|]][[Ezekiel 37.23|]][[Ezekiel 37.24|]][[Ezekiel 37.25|]][[Ezekiel 37.26|]][[Ezekiel 37.27|]][[Ezekiel 37.28|]]; [[1 Nephi 13.34|1 Nephi 13:34–41]][[1 Nephi 13.35|]][[1 Nephi 13.36|]][[1 Nephi 13.37|]][[1 Nephi 13.38|]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]]; [[3 Nephi 20.46|3 Nephi 20:46]]; [[3 Nephi 21.1|21:1–11]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]][[3 Nephi 21.8|]][[3 Nephi 21.9|]][[3 Nephi 21.10|]][[3 Nephi 21.11|]]; [title page of the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng).
+[^3]: See [[Ezekiel 37.21|Ezekiel 37:21–28]][[Ezekiel 37.22|]][[Ezekiel 37.23|]][[Ezekiel 37.24|]][[Ezekiel 37.25|]][[Ezekiel 37.26|]][[Ezekiel 37.27|]][[Ezekiel 37.28|]]; [[1 Nephi 13.34|1 Nephi 13:34–41]][[1 Nephi 13.35|]][[1 Nephi 13.36|]][[1 Nephi 13.37|]][[1 Nephi 13.38|]][[1 Nephi 13.39|]][[1 Nephi 13.40|]][[1 Nephi 13.41|]]; [[3 Nephi 20.46|3 Nephi 20:46]]; [[3 Nephi 21.1|21:1–11]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]][[3 Nephi 21.8|]][[3 Nephi 21.9|]][[3 Nephi 21.10|]][[3 Nephi 21.11|]]; [title page of the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng).
 
-[^4]: [Introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
+[^4]: [Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
 
-[^5]: See [[Revelation 14.6|Revelation 14:6–7]][[Revelation 14.7|]]; [[1 Nephi 19.21|1 Nephi 19:21]].
+[^5]: See [[Revelation 14.6|Revelation 14:6–7]][[Revelation 14.7|]]; [[1 Nephi 19.21|1 Nephi 19:21]].
 
 [^6]: [[Isaiah 29.14|Isaiah 29:14, 19]][[Isaiah 29.19|]]; see also [[Isaiah 29.11|verses 11–13]][[Isaiah 29.12|]][[Isaiah 29.13|]].
 
-[^7]: See [[Ezekiel 37.16|Ezekiel 37:16–17]][[Ezekiel 37.17|]]; [[2 Nephi 3.12|2 Nephi 3:12]].
+[^7]: See [[Ezekiel 37.16|Ezekiel 37:16–17]][[Ezekiel 37.17|]]; [[2 Nephi 3.12|2 Nephi 3:12]].
 
-[^8]: See [[Joseph Smith History 1.27|Joseph Smith—History 1:27–47]][[Joseph Smith History 1.28|]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.43|]][[Joseph Smith History 1.44|]][[Joseph Smith History 1.45|]][[Joseph Smith History 1.46|]][[Joseph Smith History 1.47|]]; see also [[D&C 27.5|Doctrine and Covenants 27:5]]; Joseph Smith, “[History, 1838–1856, volume A-1 [23 December 1805–30 August 1834]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-a-1-23-december-1805-30-august-1834/5),” 5, josephsmithpapers.org.
+[^8]: See [[Joseph Smith History 1.27|Joseph Smith—History 1:27–47]][[Joseph Smith History 1.28|]][[Joseph Smith History 1.29|]][[Joseph Smith History 1.30|]][[Joseph Smith History 1.31|]][[Joseph Smith History 1.32|]][[Joseph Smith History 1.33|]][[Joseph Smith History 1.34|]][[Joseph Smith History 1.35|]][[Joseph Smith History 1.36|]][[Joseph Smith History 1.37|]][[Joseph Smith History 1.38|]][[Joseph Smith History 1.39|]][[Joseph Smith History 1.40|]][[Joseph Smith History 1.41|]][[Joseph Smith History 1.42|]][[Joseph Smith History 1.43|]][[Joseph Smith History 1.44|]][[Joseph Smith History 1.45|]][[Joseph Smith History 1.46|]][[Joseph Smith History 1.47|]]; see also [[D&C 27.5|Doctrine and Covenants 27:5]]; Joseph Smith, “[History, 1838–1856, volume A-1 \[23 December 1805–30 August 1834\]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-a-1-23-december-1805-30-august-1834/5),” 5, josephsmithpapers.org.
 
-[^9]: See [[Joseph Smith History 1.54|Joseph Smith—History 1:54]]; see also Joseph Smith, “[Church History](https://www.josephsmithpapers.org/paper-summary/church-history-1-march-1842/2),” *Times and Seasons,* Mar. 1, 1842, 707, josephsmithpapers.org.
+[^9]: See [[Joseph Smith History 1.54|Joseph Smith—History 1:54]]; see also Joseph Smith, “[Church History](https://www.josephsmithpapers.org/paper-summary/church-history-1-march-1842/2),” *Times and Seasons,* Mar. 1, 1842, 707, josephsmithpapers.org.
 
-[^10]: See [[Joseph Smith History 1.59|Joseph Smith—History 1:59]]; *Teachings of Presidents of the Church: Joseph Smith* (2007), 57–59.
+[^10]: See [[Joseph Smith History 1.59|Joseph Smith—History 1:59]]; *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-4?lang=eng&id=title2#title2)* (2007), 57–59.
 
-[^11]: Joseph Smith, “[History, 1838–1856, volume E-1 [1 July 1843–30 April 1844]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-e-1-1-july-1843-30-april-1844/147),” 1775, josephsmithpapers.org; also at Church History Library, Salt Lake City; punctuation standardized. See also Joseph Smith, “[Letter to James Arlington Bennet, 13 November 1843](https://www.josephsmithpapers.org/paper-summary/letter-to-james-arlington-bennet-13-november-1843/2),” 1, josephsmithpapers.org; also at Church History Library, Salt Lake City.
+[^11]: Joseph Smith, “[History, 1838–1856, volume E-1 \[1 July 1843–30 April 1844\]](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-e-1-1-july-1843-30-april-1844/147),” 1775, josephsmithpapers.org; also at Church History Library, Salt Lake City; punctuation standardized. See also Joseph Smith, “[Letter to James Arlington Bennet, 13 November 1843](https://www.josephsmithpapers.org/paper-summary/letter-to-james-arlington-bennet-13-november-1843/2),” 1, josephsmithpapers.org; also at Church History Library, Salt Lake City.
 
-[^12]: See John W. Welch, “Timing the Translation of the Book of Mormon: ‘Days \[and Hours\] Never to Be Forgotten,’” *BYU Studies,* vol. 57, no. 4 (2018), 11–50.
+[^12]: See John W. Welch, “Timing the Translation of the Book of Mormon: ‘Days \[and Hours\] Never to Be Forgotten,’” *BYU Studies,* vol. 57, no. 4 (2018), 11–50.
 
 [^13]: Oliver Cowdery, quoted in [[Joseph Smith History 1.76|Joseph Smith—History 1:71, footnote]]; see also *Latter Day Saints’ Messenger and Advocate,* Oct. 1834, 14.
 
@@ -83,30 +85,25 @@ I bear my witness that the Book of Mormon is indeed the word of God. I testify t
 
 [^15]: See [[Joseph Smith History 1.60|Joseph Smith—History 1:60–62]][[Joseph Smith History 1.61|]][[Joseph Smith History 1.62|]].
 
-[^16]: Andrew H. Hedges, “‘All My Endeavors to Preserve Them’: Protecting the Plates in Palmyra, 22 September–December 1827,” *Journal of Book of Mormon Studies,* vol. 8, no. 2 (1999), 23.
+[^16]: Andrew H. Hedges, “‘All My Endeavors to Preserve Them’: Protecting the Plates in Palmyra, 22 September–December 1827,” *Journal of Book of Mormon Studies,* vol. 8, no. 2 (1999), 23.
 
-[^17]: See [[2 Nephi 27.12|2 Nephi 27:12–14]][[2 Nephi 27.13|]][[2 Nephi 27.14|]]; [[Ether 5.1|Ether 5:1–3]][[Ether 5.2|]][[Ether 5.3|]].
+[^17]: See [[2 Nephi 27.12|2 Nephi 27:12–14]][[2 Nephi 27.13|]][[2 Nephi 27.14|]]; [[Ether 5.1|Ether 5:1–3]][[Ether 5.2|]][[Ether 5.3|]].
 
 [^18]: [[Matthew 18.16|Matthew 18:16]].
 
-[^19]: See “[The Testimony of Three Witnesses](https://churchofjesuschrist.org/study/scriptures/bofm/three?lang=eng),” Book of Mormon.
+[^19]: See “[The Testimony of Three Witnesses](https://www.churchofjesuschrist.org/study/scriptures/bofm/three?lang=eng),” Book of Mormon.
 
 [^20]: Joseph Smith, in Lucy Smith, *Biographical Sketches of Joseph Smith, the Prophet, and His Progenitors for Many Generations* (1880); see also “[Lucy Mack Smith, History, 1845](https://www.josephsmithpapers.org/paper-summary/lucy-mack-smith-history-1845/161),” 154, josephsmithpapers.org.
 
 [^21]: [[D&C 19.26|Doctrine and Covenants 19:26]].
 
-[^22]: [Introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng); see also [[Moroni 10.3|Moroni 10:3–5]][[Moroni 10.4|]][[Moroni 10.5|]].
+[^22]: [Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng); see also [[Moroni 10.3|Moroni 10:3–5]][[Moroni 10.4|]][[Moroni 10.5|]].
 
 [^23]: See [[Alma 32.41|Alma 32:41–43]][[Alma 32.42|]][[Alma 32.43|]].
 
-[^24]: See [[2 Nephi 28.30|2 Nephi 28:30]].
+[^24]: See [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^25]: [[Moroni 10.4|Moroni 10:4]].
 
-[^26]: [Introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
+[^26]: [Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
 
-
-
-
-
-#Book_Of_Mormon

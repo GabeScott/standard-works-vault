@@ -1,6 +1,8 @@
 # The Church and the Family in Welfare Services
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Spencer W. Kimball
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -14,7 +16,7 @@ We simply must recognize that the foundation of the Welfare Services program of 
 
 We look to you stake presidents, bishops, and Relief Society presidents to teach the people the basic principles of self-reliance and independence. It is of critical importance that the members of the Church be converted to this principle. If the Church as a whole would practice these teachings, we would have no need to fear regardless of problems that will undoubtedly arise.
 
-The Lord has said: “For if you will that I give unto you a place in the celestial world, you must prepare yourselves by doing the things which I have commanded you and required of you. …
+The Lord has said: “For if you will that I give unto you a place in the celestial world, you must prepare yourselves by doing the things which I have commanded you and required of you. …
 
 “Behold, this is the preparation wherewith I prepare you, and the foundation, and the ensample which I give unto you, whereby you may accomplish the commandments which are given you;
 
@@ -26,7 +28,7 @@ Now as to the role of the Church in welfare services. Early in this dispensation
 
 A few months later the Lord added this admonition: “And remember in all things the poor and the needy, the sick and the afflicted, for he that doeth not these things, the same is not my disciple.” ([[D&C 52.40|D&C 52:40]].)
 
-To enable us to collectively—as a church—discharge this responsibility, the Welfare Services program was organized. There are some basic differences in the Church’s approach to taking care of the needy over that of governments. One of the most important of these differences is discussed by President J. Reuben Clark, Jr.:
+To enable us to collectively—as a church—discharge this responsibility, the Welfare Services program was organized. There are some basic differences in the Church’s approach to taking care of the needy over that of governments. One of the most important of these differences is discussed by President J. Reuben Clark, Jr.:
 
 “There is no church dole; that is one reason why we must make the care of the needy a local problem, and why we should continue to make it local. The church cannot give a dole; it cannot provide a great reservoir to which bishops could send and get all they need for their poor just as if the church were a United States Treasury that could be dipped into. It cannot be done.” (*Conference Reports,* Oct. 1944.)
 
@@ -36,11 +38,11 @@ The Lord’s way is designed to help each of us prepare for our own needs and al
 
 The combined Church effort to help these righteous but unfortunate Saints help themselves is referred to as *Church preparedness.* With their efforts focused at the ward level, the membership of the Church consecrate their time, energy, and means to acquire production projects, processing plants such as canneries, storehouses, employment offices, and other Welfare Services agencies. They also help other members with social, emotional, and economic problems as they live the second great commandment of loving their neighbor as themselves. In addition, they help the Church meet the needs of the poor through contributing a generous fast offering each month. These efforts, however, are geared to care for only a limited number of Saints, only those who genuinely cannot care for themselves—the widow, the orphan, the temporarily unemployed, the emotionally distressed, the sick, and so forth. But even these are helped only after they and their families have done as much as they can for themselves.
 
-A year ago in this Welfare Services meeting, President Marion G. Romney made this comment: “I do not want to be a calamity howler. I don’t know in detail what’s going to happen in the future. I know what the prophets have predicted. But I tell you that the welfare program, organized to enable us to take care of our own needs, has not yet performed the function that it was set up to perform. We will see the day when we live on what we produce.” (*Conference Reports,* April 1975, p. 165.)
+A year ago in this Welfare Services meeting, President Marion G. Romney made this comment: “I do not want to be a calamity howler. I don’t know in detail what’s going to happen in the future. I know what the prophets have predicted. But I tell you that the welfare program, organized to enable us to take care of our own needs, has not yet performed the function that it was set up to perform. We will see the day when we live on what we produce.” (*Conference Reports,* April 1975, p. 165.)
 
-President Spencer W. Kimball has said:
+President Spencer W. Kimball has said:
 
-“We have had many calamities in this past period. It seems that every day or two there is an earthquake or a flood or a tornado or distress that brings trouble to many people. I am grateful to see that our people and our leaders are beginning to catch the vision of their self-help. …
+“We have had many calamities in this past period. It seems that every day or two there is an earthquake or a flood or a tornado or distress that brings trouble to many people. I am grateful to see that our people and our leaders are beginning to catch the vision of their self-help. …
 
 “Now I think the time is coming when there will be more distresses, when there may be more tornadoes, and more floods, … more earthquakes. … I think they will be increasing probably as we come nearer to the end, and so we must be prepared for this.” (*Conference Reports,* April 1974, pp. 183–84.)
 
@@ -60,13 +62,13 @@ These examples and figures, though only projections, illustrate quite graphicall
 
 “And that the gathering together upon the land of Zion, and upon her stakes, may be for a defense, and for a refuge from the storm.” ([[D&C 115.5|D&C 115:5–6]][[D&C 115.6|]].)
 
-Now let us discuss the foundation principle, the role of the family and the individual. The individual is responsible for caring for himself and his family. The apostle Paul wrote, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].) This duty rests upon individuals for themselves, upon parents for their children, upon children for their aged parents and grandparents. This duty can be met only through the wise use of individual and family resources.
+Now let us discuss the foundation principle, the role of the family and the individual. The individual is responsible for caring for himself and his family. The apostle Paul wrote, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].) This duty rests upon individuals for themselves, upon parents for their children, upon children for their aged parents and grandparents. This duty can be met only through the wise use of individual and family resources.
 
 May I review with you once again the five basic elements of family preparedness, which we have spoken of in previous Welfare Services meetings:
 
 “*Career development.* In the prepared family, the breadwinner has prepared himself for his chosen occupation. His children are preparing themselves for a satisfying and adequate vocation.
 
-“*Financial management.* In the prepared family, the parents know and use the fundamentals of budgeting and financial management. Their children are being taught through practical experience these basic skills. …
+“*Financial management.* In the prepared family, the parents know and use the fundamentals of budgeting and financial management. Their children are being taught through practical experience these basic skills. …
 
 “*Home production and storage.* The prepared family has sufficient stores to take care of basic needs for a minimum of one year. Further, they are, where possible, actively involved in growing, canning, and sewing, and producing their year’s supply.
 
@@ -99,8 +101,3 @@ In all that we have said regarding family and individual preparedness, we must n
 
 
 
-
-
-
-
-#Family #Self-Reliance #Welfare

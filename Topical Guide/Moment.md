@@ -1,11 +1,10 @@
 # Moment
 
-
 lying tongue is but for a *moment*, [[Proverbs 12.19|Proverbs 12:19]].
 
 For a small *moment* have I forsaken thee, [[Isaiah 54.7|Isaiah 54:7]] ([[3 Nephi 22.7|3 Nephi 22:7]]).
 
-In a *moment* ... the dead shall be raised incorruptible, [[1 Corinthians 15.52|1 Corinthians 15:52]].
+In a *moment* … the dead shall be raised incorruptible, [[1 Corinthians 15.52|1 Corinthians 15:52]].
 
 light affliction, which is but for a *moment*, [[2 Corinthians 4.17|2 Corinthians 4:17]].
 

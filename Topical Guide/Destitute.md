@@ -1,6 +1,5 @@
 # Destitute
 
-
 *See also* [[Needy.md|Needy]]; [[Poor.md|Poor]]
 
 He will regard the prayer of the *destitute*, [[Psalms 102.17|Psalms 102:17]].

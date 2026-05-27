@@ -1,5 +1,7 @@
 # Every Woman Needs Relief Society
 
+Thomas S. Monson
+
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -16,11 +18,11 @@ Soon after the Prophet Joseph Smith organized and established the Church, he als
 
 The deepest desire of our presidency is to help each woman in the Church prepare to receive the blessings of the temple, to honor the covenants she makes, and to be engaged in the cause of Zion. The Relief Society inspires and teaches women to help them increase their faith and personal righteousness, strengthen families, and seek out and help those in need.
 
-Speaking of our day, President Spencer W. Kimball said:
+Speaking of our day, President Spencer W. Kimball said:
 
 “Much of the major growth that is coming to the Church in the last days will come because many of the good women of the world … will be drawn to the Church in large numbers. This will happen to the degree that the women of the Church reflect righteousness and articulateness in their lives and to the degree that the women of the Church are seen as distinct and different—in happy ways—from the women of the world.
 
-“Among the real heroines in the world who will come into the Church are women who are more concerned with being righteous than with being selfish. These real heroines have true humility, which places a higher value on integrity than on visibility. …
+“Among the real heroines in the world who will come into the Church are women who are more concerned with being righteous than with being selfish. These real heroines have true humility, which places a higher value on integrity than on visibility. …
 
 “Thus it will be that female exemplars of the Church will be a significant force in both the numerical and the spiritual growth of the Church in the last days.”[^2]
 
@@ -91,16 +93,11 @@ I testify to you that Relief Society was divinely organized to assist the priest
 
 
 
-[^1]: Joseph Smith, quoted in Sarah M. Kimball, “Auto-biography,” *Woman’s Exponent,* Sept. 1, 1883, 51.
+[^1]: Joseph Smith, quoted in Sarah M. Kimball, “Auto-biography,” *Woman’s Exponent,* Sept. 1, 1883, 51.
 
-[^2]: Spencer W. Kimball, “The Role of Righteous Women,” *Ensign,* Nov. 1979, 103–4.
+[^2]: Spencer W. Kimball, “The Role of Righteous Women,” *Ensign,* Nov. 1979, 103–4.
 
 [^3]: Personal correspondence.
 
 [^4]: Personal correspondence.
 
-
-
-
-
-#Relief_Society #Service #Women

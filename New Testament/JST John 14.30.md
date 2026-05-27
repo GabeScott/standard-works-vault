@@ -4,6 +4,3 @@
 
 [JST John 14:30](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-john/14?lang=eng)
 
-
-
-

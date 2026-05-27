@@ -1,7 +1,6 @@
 # Master
 
-
-*See also* [[Lord.md|Lord]]; [[Teacher.md|Teacher]]; [BD Rabbi](https://www.churchofjesuschrist.org/study/scriptures/bd/rabbi?lang=eng)
+*See also* [[Lord.md|Lord]]; [[Teacher.md|Teacher]]; [[BD Rabbi.md|BD Rabbi]]
 
 his *master* saw that the Lord was with him, [[Genesis 39.3|Genesis 39:3]].
 
@@ -33,7 +32,7 @@ Rabboni; which is to say, *Master*, [[John 20.16|John 20:16]].
 
 be obedient to them that are your *masters*, [[Ephesians 6.5|Ephesians 6:5]].
 
-ye *masters* ... knowing that your *Master* also is in heaven, [[Ephesians 6.9|Ephesians 6:9]].
+ye *masters* … knowing that your *Master* also is in heaven, [[Ephesians 6.9|Ephesians 6:9]].
 
 Servants, obey in all things your *masters*, [[Colossians 3.22|Colossians 3:22]].
 

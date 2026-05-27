@@ -1,5 +1,7 @@
 # Selflessness: A Pattern for Happiness
 
+Gordon B. Hinckley
+
 By Elder H. Burke Peterson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -60,7 +62,7 @@ When I was told of the experience, I recalled the words of King Benjamin when, i
 
 It is my feeling that, after all is said and done, it will be the intent of the heart by which we shall be judged. However, let us be careful that we do not fill our hearts with *unjustified* excuses. Being selfless does not come naturally to most of us. Often it is easier to say, “I can’t,” or “I’m made differently,” or “I don’t have time,” than it is to become involved in making life happier and more pleasant for others. Let us remember the words from the scriptures:
 
-“Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world. …
+“Then shall the King say unto them on his right hand, Come, ye blessed of my Father, inherit the kingdom prepared for you from the foundation of the world. …
 
 “Then shall the righteous answer him, saying, Lord, when saw we thee an hungred, and fed thee? or thirsty, and gave thee drink?
 
@@ -79,8 +81,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Generosity

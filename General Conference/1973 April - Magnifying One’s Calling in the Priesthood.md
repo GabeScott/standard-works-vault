@@ -1,6 +1,8 @@
 # Magnifying One’s Calling in the Priesthood
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Harold B. Lee
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -30,19 +32,19 @@ And a third is that we pray.
 
 Over and over again the scriptures teach that men receive from the Lord according to their desires. Alma declared:
 
-“… I know that \[God\] granteth unto men according to their desire, whether it be unto death or unto life; yea, I know that he allotteth unto men according to their wills, whether they be unto salvation or unto destruction.” ([[Alma 29.4|Alma 29:4]].)
+“… I know that \[God\] granteth unto men according to their desire, whether it be unto death or unto life; yea, I know that he allotteth unto men according to their wills, whether they be unto salvation or unto destruction.” ([[Alma 29.4|Alma 29:4]].)
 
 Jesus acted on this principle. In John’s parchment record, he wrote:
 
-“… the Lord said unto me: John, my beloved, what desirest thou? …
+“… the Lord said unto me: John, my beloved, what desirest thou? …
 
 “And I said unto him: Lord, give unto me power over death, that I may live and bring souls unto thee.
 
 “And the Lord said unto me: Verily, verily, I say unto thee, because thou desirest this thou shalt tarry until I come in my glory, and shalt prophesy before nations, kindreds, tongues and people.” ([[D&C 7.1|D&C 7:1–3]][[D&C 7.2|]][[D&C 7.3|]].)
 
-At the opening of this last dispensation, the Lord said to the Prophet’s father: “… if ye have desires to serve God ye are called to the work.” ([[D&C 4.3|D&C 4:3]].)
+At the opening of this last dispensation, the Lord said to the Prophet’s father: “… if ye have desires to serve God ye are called to the work.” ([[D&C 4.3|D&C 4:3]].)
 
-And two months later he said to Joseph Smith and Oliver Cowdery: “… as you desire of me so it shall be unto you. …” ([[D&C 6.8|D&C 6:8]].)
+And two months later he said to Joseph Smith and Oliver Cowdery: “… as you desire of me so it shall be unto you. …” ([[D&C 6.8|D&C 6:8]].)
 
 The importance of desire is dramatically pointed up in this quotation from the 18th section of the Doctrine and Covenants:
 
@@ -50,7 +52,7 @@ The importance of desire is dramatically pointed up in this quotation from the 1
 
 “Yea, even twelve; and the Twelve shall be my disciples, and they shall take upon them my name; and the Twelve are they who shall *desire* to take upon them my name with full purpose of heart.
 
-“And if they *desire* to take upon them my name with full purpose of heart, they are called. …
+“And if they *desire* to take upon them my name with full purpose of heart, they are called. …
 
 “And now, behold, I give unto you, Oliver Cowdery, and also unto David Whitmer, that you shall search out the Twelve, who shall have the *desires* of which I have spoken;
 
@@ -74,7 +76,7 @@ In the Lord’s preface to his Book of Commandments, he said: “Search these co
 
 We are under divine instruction to “teach the principles of \[the\] gospel, which are in the Bible and the Book of Mormon.” ([[D&C 42.12|D&C 42:12]].) This we cannot do unless we know what they are.
 
-To Joseph the Prophet, Oliver Cowdery, and John Whitmer, the Lord said: “Behold, I say unto you that you shall let your time be devoted to the studying of the scriptures. …” ([[D&C 26.1|D&C 26:1]].)
+To Joseph the Prophet, Oliver Cowdery, and John Whitmer, the Lord said: “Behold, I say unto you that you shall let your time be devoted to the studying of the scriptures. …” ([[D&C 26.1|D&C 26:1]].)
 
 To the Saints in Kirtland, he said, concerning the instruction he had given them, “Hearken ye to these words. Behold, I am Jesus Christ, the Savior of the world. Treasure these things up in your hearts, and let the solemnities of eternity rest upon your minds.” ([[D&C 43.34|D&C 43:34]].)
 
@@ -84,19 +86,19 @@ As I have read the scriptures, I have been challenged by the word *ponder,* so f
 
 Jesus said to the Nephites:
 
-“I perceive that ye are weak, that ye cannot understand all my words. …
+“I perceive that ye are weak, that ye cannot understand all my words. …
 
-“Therefore, go ye unto your homes, and *ponder* upon the things which I have said, and ask of the Father, in my name, that ye may understand. …” ([[3 Nephi 17.2|3 Ne. 17:2–3]][[3 Nephi 17.3|]]. Italics added.)
+“Therefore, go ye unto your homes, and *ponder* upon the things which I have said, and ask of the Father, in my name, that ye may understand. …” ([[3 Nephi 17.2|3 Ne. 17:2–3]][[3 Nephi 17.3|]]. Italics added.)
 
 *Pondering* is, in my feeling, a form of prayer. It has, at least, been an approach to the Spirit of the Lord on many occasions. Nephi tells us of one such occasion:
 
-“For it came to pass,” he wrote, “after I had desired to know the things that my father had seen, and believing that the Lord was able to make them known unto me, as I sat *pondering* in mine heart I was caught away in the Spirit of the Lord, yea, into an exceeding high mountain. …” ([[1 Nephi 11.1|1 Ne. 11:1]]. Italics added.)
+“For it came to pass,” he wrote, “after I had desired to know the things that my father had seen, and believing that the Lord was able to make them known unto me, as I sat *pondering* in mine heart I was caught away in the Spirit of the Lord, yea, into an exceeding high mountain. …” ([[1 Nephi 11.1|1 Ne. 11:1]]. Italics added.)
 
 Then follows Nephi’s account of the great vision he was given by the Spirit of the Lord, because he believed the words of his prophet father and had such a great desire to know more that he pondered and prayed about them.
 
-President Joseph F. Smith tells us that “on the third of October, in the year nineteen hundred and eighteen, I sat in my room *pondering* over the Scriptures. …” He had particular reference at this time to Peter’s statement that Christ “went and preached unto the spirits in prison” ([[1 Peter 3.19|1 Pet. 3:19]]) while his body lay in the grave.
+President Joseph F. Smith tells us that “on the third of October, in the year nineteen hundred and eighteen, I sat in my room *pondering* over the Scriptures. …” He had particular reference at this time to Peter’s statement that Christ “went and preached unto the spirits in prison” ([[1 Peter 3.19|1 Pet. 3:19]]) while his body lay in the grave.
 
-“As I *pondered* over these things which are written,” President Smith continued, “the eyes of my understanding were opened, and the Spirit of the Lord rested upon me, and I saw the hosts of the dead, both small and great. …” He then gives us an account of his great vision concerning missionary work among the spirits of the dead. (*Gospel Doctrine* \[Deseret Book Co., 1939\], p. 472. Italics added.) \[[[D&C 138.1|D&C 138:1, 11]][[D&C 138.11|]].\]
+“As I *pondered* over these things which are written,” President Smith continued, “the eyes of my understanding were opened, and the Spirit of the Lord rested upon me, and I saw the hosts of the dead, both small and great. …” He then gives us an account of his great vision concerning missionary work among the spirits of the dead. (*Gospel Doctrine* \[Deseret Book Co., 1939\], p. 472. Italics added.) \[[[D&C 138.1|D&C 138:1, 11]][[D&C 138.11|]].\]
 
 Desiring, searching, and pondering over “the words of eternal life,” all three of them together, as important as they are, would be inadequate without prayer.
 
@@ -110,37 +112,32 @@ Jesus instructed the Nephites:
 
 “Therefore ye must always pray unto the Father in my name;
 
-“Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.18|3 Ne. 18:18–19, 21]][[3 Nephi 18.19|]][[3 Nephi 18.21|]].)
+“Pray in your families unto the Father, always in my name, that your wives and your children may be blessed.” ([[3 Nephi 18.18|3 Ne. 18:18–19, 21]][[3 Nephi 18.19|]][[3 Nephi 18.21|]].)
 
 In this dispensation, even before the Church was organized, the Lord said to the Prophet:
 
 “Pray always, that you may come off conqueror; yea, that you may conquer Satan, and that you may escape the hands of the servants of Satan that do uphold his work.” ([[D&C 10.5|D&C 10:5]].)
 
-He instructed the priests to “visit the house of each member, and exhort them to pray vocally and in secret. …” ([[D&C 20.47|D&C 20:47, 51]][[D&C 20.51|]].)
+He instructed the priests to “visit the house of each member, and exhort them to pray vocally and in secret. …” ([[D&C 20.47|D&C 20:47, 51]][[D&C 20.51|]].)
 
-Of Church members who went to build up Jackson County, Missouri, he said: “… he that observeth not his prayers before the Lord in the season thereof, let him be had in remembrance before the judge of my people.” ([[D&C 68.33|D&C 68:33]].)
+Of Church members who went to build up Jackson County, Missouri, he said: “… he that observeth not his prayers before the Lord in the season thereof, let him be had in remembrance before the judge of my people.” ([[D&C 68.33|D&C 68:33]].)
 
-And finally, he said: “… pray always lest that wicked one have power in you, and remove you out of your place.” ([[D&C 93.49|D&C 93:49]].)
+And finally, he said: “… pray always lest that wicked one have power in you, and remove you out of your place.” ([[D&C 93.49|D&C 93:49]].)
 
 In conclusion, I ask you to listen to Nephi’s exhortation. I hope it moves you as deeply as it does me. He said:
 
-“… behold, my beloved brethren, …
+“… behold, my beloved brethren, …
 
-“… I said unto you, feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.
+“… I said unto you, feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.
 
 “Wherefore, now after I have spoken these words, if ye cannot understand them it will be because ye ask not, neither do ye knock; wherefore, ye are not brought into the light, but must perish in the dark.
 
 “And now, my beloved brethren, I perceive that ye ponder still in your hearts; and it grieveth me that I must speak concerning this thing. For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray, but teacheth him that he must not pray.
 
-“But behold, I say unto you that ye must pray always, and not faint; that ye must not perform any thing unto the Lord save in the first place ye shall pray unto the Father in the name of Christ, that he will consecrate thy performance unto thee, that thy performance may be for the welfare of thy soul.” ([[2 Nephi 32.1|2 Ne. 32:1, 3–4, 8–9]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.8|]][[2 Nephi 32.9|]].)
+“But behold, I say unto you that ye must pray always, and not faint; that ye must not perform any thing unto the Lord save in the first place ye shall pray unto the Father in the name of Christ, that he will consecrate thy performance unto thee, that thy performance may be for the welfare of thy soul.” ([[2 Nephi 32.1|2 Ne. 32:1, 3–4, 8–9]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.8|]][[2 Nephi 32.9|]].)
 
 That the Lord will help each of us bearers of the holy priesthood to acquire such a powerful motivating desire that we will, through searching and pondering upon the words of eternal life and praying about them, be led to magnify our callings in the priesthood, and that we may thereby qualify ourselves to receive the promised blessings of the “covenant which belongeth to the priesthood,” I humbly pray, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Priesthood

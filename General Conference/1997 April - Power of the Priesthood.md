@@ -1,5 +1,7 @@
 # Power of the Priesthood
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1997 General Conference*
@@ -28,7 +30,7 @@ The duty of home teachers cannot always be satisfied with a once-a-month visit. 
 
 “My legs felt like gelatin and there was a knot in my stomach as we approached the door. I was sure that I was going to faint as my \[home teaching\] companion told me that this was my door.
 
-“… I was a 15-year-old home teacher climbing the stairs to the apartment of Sister Rice, a widow living in the Bountiful (Utah) First Ward. Don Gabbott, my companion, was to teach me a great lesson that night about the nurturing role of priesthood bearers to shut-ins who are cut off from the mainstream of Church activity.
+“… I was a 15-year-old home teacher climbing the stairs to the apartment of Sister Rice, a widow living in the Bountiful (Utah) First Ward. Don Gabbott, my companion, was to teach me a great lesson that night about the nurturing role of priesthood bearers to shut-ins who are cut off from the mainstream of Church activity.
 
 “Brother Gabbott had given me a topic to present to the five families assigned us, and I was frightened. … I \[had\] prepared … some notes on a paper, but I was unsure of how to take the lead in the presence of a high priest.
 
@@ -66,7 +68,7 @@ You young men need to understand that this greatest of all powers, the priesthoo
 
 “No power or influence can or ought to be maintained by virtue of the priesthood, only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned;
 
-“By kindness, and pure knowledge, which shall greatly enlarge the soul without hypocrisy, and without guile. …
+“By kindness, and pure knowledge, which shall greatly enlarge the soul without hypocrisy, and without guile. …
 
 “Let thy bowels also be full of charity towards all men, and to the household of faith, and let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.”[^8]
 
@@ -107,8 +109,3 @@ Brethren, may we strive to keep the oath and covenant of the priesthood and qual
 
 [^14]: In Conference Report, Oct. 1955, 88.
 
-
-
-
-
-#Bishops #Brigham_Young #Church_Callings #Holy_Ghost #Home #Joy #Love #Obedience #Priesthood #Service #Spirituality

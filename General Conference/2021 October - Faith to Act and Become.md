@@ -1,5 +1,7 @@
 # Faith to Act and Become
 
+Russell M. Nelson
+
 By Elder Ciro Schmeil - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -8,7 +10,7 @@ By Elder Ciro Schmeil - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/10/23schmeil?lang=eng)
 
-Shortly after I was called to serve as a General Authority Seventy, I had the opportunity to visit with President Russell M. Nelson for a few minutes. It was an unplanned encounter in the cafeteria, and he was so kind to invite Elder S. Mark Palmer and me to sit and enjoy lunch with him.
+Shortly after I was called to serve as a General Authority Seventy, I had the opportunity to visit with President Russell M. Nelson for a few minutes. It was an unplanned encounter in the cafeteria, and he was so kind to invite Elder S. Mark Palmer and me to sit and enjoy lunch with him.
 
 “What do we talk about during lunch with the prophet?” was the thought that came to my mind. So I decided to ask President Nelson if he had any counsel or guidance for me since I was just starting my calling. His answer was very simple and direct; he looked at me and said, “Elder Schmeil, you are called for what you can become.” I walked away from that experience pondering about what the Lord wants me to become. As I thought about this, I realized that He wants me to become a better husband, father, and son and a better servant. I then realized that all of this could be accomplished as I worked to become a better disciple of the Savior Jesus Christ.
 
@@ -36,7 +38,7 @@ This is how the Lord works as we put forth effort and act, even when we do not h
 
 ## 3. Study
 
-In 3 Nephi, the disciples mentioned to the Savior that there were disputations among the people regarding the name of the Church. In response, the Savior taught an important principle when He asked, “Have they not read the scriptures?”[^6] Studying is then another essential key to becoming a better disciple of Jesus Christ. Prayer and scripture study go hand in hand. They work together for our benefit. This is the process that the Lord has established. “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.”[^7]
+In 3 Nephi, the disciples mentioned to the Savior that there were disputations among the people regarding the name of the Church. In response, the Savior taught an important principle when He asked, “Have they not read the scriptures?”[^6] Studying is then another essential key to becoming a better disciple of Jesus Christ. Prayer and scripture study go hand in hand. They work together for our benefit. This is the process that the Lord has established. “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.”[^7]
 
 The Savior also taught that we should not only study the scriptures but also teach from them, as He demonstrated to the Nephites: “And now it came to pass that when Jesus had expounded all the scriptures in one, which they had written, he commanded them that they should teach the things which he had expounded unto them.”[^8]
 
@@ -44,7 +46,7 @@ This is one of the reasons why it was so important for Nephi to go back and get 
 
 ## 4. Act to Become
 
-Many times answers to prayer will not come right away. But we must have faith to continue, act in righteousness, and be persistent like Nephi when he was trying to get the brass plates. The Lord will show us a little bit at a time; as we study the scriptures, the Lord will give us the answers or the necessary strength for us to get through one more day, one more week, and to try one more time. Elder Richard G. Scott said: “Be thankful that sometimes God lets you struggle for a long time before that answer comes. That causes your faith to increase and your character to grow.”[^9]
+Many times answers to prayer will not come right away. But we must have faith to continue, act in righteousness, and be persistent like Nephi when he was trying to get the brass plates. The Lord will show us a little bit at a time; as we study the scriptures, the Lord will give us the answers or the necessary strength for us to get through one more day, one more week, and to try one more time. Elder Richard G. Scott said: “Be thankful that sometimes God lets you struggle for a long time before that answer comes. That causes your faith to increase and your character to grow.”[^9]
 
 Through prayer and scripture study, the Lord has always given me the strength to act and endure one more day, one more week, and to try one more time. Many times the answers did not come right away. I have questions that have not been answered yet, but I keep asking and studying, and I am happy that the Lord continues to give me the strength to act as I wait for answers.
 
@@ -54,39 +56,34 @@ To become a better follower of the Savior Jesus Christ is a lifelong journey, an
 
 Speaking to Sidney Rigdon, the Lord said the following: “I have looked upon thee and thy works. I have heard thy prayers, and prepared thee for a greater work.”[^11] I testify that the Lord hears and answers our prayers; He knows us; He has a great work for each one of us. Through prayer, scripture study, and action, we can unlock the blessings of heaven and become better followers of the Savior Jesus Christ.
 
-President Dallin H. Oaks taught that “the Final Judgment is not just an evaluation of a sum total of good and evil acts—what we have *done*. It is an acknowledgment of the final effect of our acts and thoughts—what we have *become*.”[^12]
+President Dallin H. Oaks taught that “the Final Judgment is not just an evaluation of a sum total of good and evil acts—what we have *done*. It is an acknowledgment of the final effect of our acts and thoughts—what we have *become*.”[^12]
 
 I am grateful for prophets, seers, and revelators; they are the watchmen on the tower. They see things that we do not see. I testify that through their words, we can become better followers of the Savior Jesus Christ and achieve our potential. I testify that Christ lives and knows each one of us individually. This is His Church. In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
+[^1]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
 
-[^2]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” 103.
+[^2]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” 103.
 
-[^3]: [[3 Nephi 27.1|3 Nephi 27:1–2]][[3 Nephi 27.2|]].
+[^3]: [[3 Nephi 27.1|3 Nephi 27:1–2]][[3 Nephi 27.2|]].
 
-[^4]: [[3 Nephi 27.28|3 Nephi 27:28–29]][[3 Nephi 27.29|]].
+[^4]: [[3 Nephi 27.28|3 Nephi 27:28–29]][[3 Nephi 27.29|]].
 
-[^5]: [[1 Nephi 4.6|1 Nephi 4:6]].
+[^5]: [[1 Nephi 4.6|1 Nephi 4:6]].
 
-[^6]: [[3 Nephi 27.5|3 Nephi 27:5]].
+[^6]: [[3 Nephi 27.5|3 Nephi 27:5]].
 
-[^7]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^7]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^8]: [[3 Nephi 23.14|3 Nephi 23:14]].
+[^8]: [[3 Nephi 23.14|3 Nephi 23:14]].
 
-[^9]: Richard G. Scott, “[[2010 October - The Transforming Power of Faith and Character.md|The Transforming Power of Faith and Character]],” *Ensign* or *Liahona*, Nov. 2010, 44.
+[^9]: Richard G. Scott, “[[2010 October - The Transforming Power of Faith and Character.md|The Transforming Power of Faith and Character]],” *Ensign* or *Liahona*, Nov. 2010, 44.
 
-[^10]: Richard G. Scott, “[[2010 October - The Transforming Power of Faith and Character.md|The Transforming Power of Faith and Character]],” 44.
+[^10]: Richard G. Scott, “[[2010 October - The Transforming Power of Faith and Character.md|The Transforming Power of Faith and Character]],” 44.
 
 [^11]: [[D&C 35.3|Doctrine and Covenants 35:3]].
 
-[^12]: Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32; *Liahona*, Jan. 2001, 40.
+[^12]: Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32; *Liahona*, Jan. 2001, 40.
 
-
-
-
-
-#Discipleship #Faith #Jesus_Christ #Prayer #Scripture_Study

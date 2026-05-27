@@ -1,6 +1,8 @@
 # How to Obtain Revelation and Inspiration for Your Personal Life
 
-By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -12,9 +14,9 @@ Anyone who stands at this pulpit to deliver a message feels the strength and sup
 
 The Holy Ghost communicates important information that we need to guide us in our mortal journey. When it is crisp and clear and essential, it warrants the title of revelation. When it is a series of promptings we often have to guide us step by step to a worthy objective, for the purpose of this message, it is inspiration.
 
-An example of revelation would be the direction that President Spencer W. Kimball received after his long and continued supplication to the Lord regarding providing the priesthood to all worthy men in the Church when at the time it was available to only some of them.
+An example of revelation would be the direction that President Spencer W. Kimball received after his long and continued supplication to the Lord regarding providing the priesthood to all worthy men in the Church when at the time it was available to only some of them.
 
-Another example of revelation is this guidance given to President Joseph F. Smith: “I believe we move and have our being in the presence of heavenly messengers and of heavenly beings. We are not separate from them. … We are closely related to our kindred, to our ancestors … who have preceded us into the spirit world. We can not forget them; we do not cease to love them; we always hold them in our hearts, in memory, and thus we are associated and united to them by ties that we can not break. … If this is the case with us in our finite condition, surrounded by our mortal weaknesses, … how much more certain it is … to believe that those who have been faithful, who have gone beyond … can see us better than we can see them; that they know us better than we know them. … We live in their presence, they see us, they are solicitous for our welfare, they love us now more than ever. For now they see the dangers that beset us; … their love for us and their desire for our well being must be greater than that which we feel for ourselves.”[^1]
+Another example of revelation is this guidance given to President Joseph F. Smith: “I believe we move and have our being in the presence of heavenly messengers and of heavenly beings. We are not separate from them. … We are closely related to our kindred, to our ancestors … who have preceded us into the spirit world. We can not forget them; we do not cease to love them; we always hold them in our hearts, in memory, and thus we are associated and united to them by ties that we can not break. … If this is the case with us in our finite condition, surrounded by our mortal weaknesses, … how much more certain it is … to believe that those who have been faithful, who have gone beyond … can see us better than we can see them; that they know us better than we know them. … We live in their presence, they see us, they are solicitous for our welfare, they love us now more than ever. For now they see the dangers that beset us; … their love for us and their desire for our well being must be greater than that which we feel for ourselves.”[^1]
 
 Relationships can be strengthened through the veil with people we know and love. That is done by our determined effort to continually do what is right. We can strengthen our relationship with the departed individual we love by recognizing that the separation is temporary and that covenants made in the temple are eternal. When consistently obeyed, such covenants assure the eternal realization of the promises inherent in them.
 
@@ -42,7 +44,7 @@ The scriptures give eloquent confirmation of how truth, consistently lived, open
 
 I have seen individuals encountering challenges who knew what to do when it was beyond their own experience because they trusted in the Lord and knew that He would guide them to solutions that were urgently required.
 
-The Lord has declared: “And ye are to be taught from on high. Sanctify yourselves and ye shall be endowed with power, that ye may give even as I have spoken.”[^2] The words *sanctify yourselves* may appear puzzling. President Harold B. Lee once explained that you can replace those words with the phrase “keep my commandments.” Read that way, the counsel may seem clearer.[^3]
+The Lord has declared: “And ye are to be taught from on high. Sanctify yourselves and ye shall be endowed with power, that ye may give even as I have spoken.”[^2] The words *sanctify yourselves* may appear puzzling. President Harold B. Lee once explained that you can replace those words with the phrase “keep my commandments.” Read that way, the counsel may seem clearer.[^3]
 
 One must be ever mentally and physically clean and have purity of intent so that the Lord can inspire. One who is obedient to His commandments is trusted of the Lord. That individual has access to His inspiration to know what to do and, as needed, the divine power to do it.
 
@@ -75,16 +77,11 @@ May the Lord inspire you to understand and use the principles that lead to perso
 
 
 
-[^1]: Joseph F. Smith, in Conference Report, Apr. 1916, 2–3; see also *Gospel Doctrine,* 5th ed. (1939), 430–31.
+[^1]: Joseph F. Smith, in Conference Report, Apr. 1916, 2–3; see also *Gospel Doctrine,* 5th ed. (1939), 430–31.
 
 [^2]: [[D&C 43.16|Doctrine and Covenants 43:16]].
 
-[^3]: See *Teachings of Presidents of the Church: Harold B. Lee* (2000), 34.
+[^3]: See *Teachings of Presidents of the Church: Harold B. Lee* (2000), 34.
 
 [^4]: [[D&C 6.14|Doctrine and Covenants 6:14–15]][[D&C 6.15|]].
 
-
-
-
-
-#Holy_Ghost #Humility #Prayer #Spirituality

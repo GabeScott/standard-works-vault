@@ -1,5 +1,7 @@
 # In Partnership with the Lord
 
+Dallin H. Oaks
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
@@ -53,21 +55,21 @@ I testify to you that as we—women and men—work together in a true and equal 
 
 [^3]: [[Moses 3.18|Moses 3:18]]; see also [[Genesis 2.18|Genesis 2:18]].
 
-[^4]: “The Lord intended that the wife be a helpmeet for man (*meet* means equal)—that is, a companion equal and necessary in full partnership” (*Teachings of Presidents of the Church: Howard W. Hunter* \[2015\], 224).
+[^4]: “The Lord intended that the wife be a helpmeet for man (*meet* means equal)—that is, a companion equal and necessary in full partnership” (*[Teachings of Presidents of the Church: Howard W. Hunter](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-howard-w-hunter/chapter-17-preserve-and-protect-the-family?lang=eng&id=p22#p22)* \[2015\], 224).
 
 [^5]: See [[Moses 3.18|Moses 3:18–24]][[Moses 3.19|]][[Moses 3.20|]][[Moses 3.21|]][[Moses 3.22|]][[Moses 3.23|]][[Moses 3.24|]]; [[Moses 4.12|4:12]]; [[Moses 5.10|5:10–12]][[Moses 5.11|]][[Moses 5.12|]].
 
-[^6]: See [[Romans 2.11|Romans 2:11]]; [[1 Nephi 17.35|1 Nephi 17:35]]; [[2 Nephi 26.33|2 Nephi 26:33]].
+[^6]: See [[Romans 2.11|Romans 2:11]]; [[1 Nephi 17.35|1 Nephi 17:35]]; [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^7]: See [[Mosiah 2.41|Mosiah 2:41]].
 
-[^8]: [[2 Nephi 26.33|2 Nephi 26:33]].
+[^8]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
-[^9]: See Guide to the Scriptures, “[Unity](https://churchofjesuschrist.org/study/scriptures/gs/unity?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^9]: See Guide to the Scriptures, “[Unity](https://www.churchofjesuschrist.org/study/scriptures/gs/unity?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^10]: Madeleine L’Engle, *The Irrational Season* (1977), 48.
 
-[^11]: Bruce C. Hafen and Marie K. Hafen, “[Crossing Thresholds and Becoming Equal Partners](https://churchofjesuschrist.org/study/liahona/2007/08/crossing-thresholds-and-becoming-equal-partners?lang=eng&id=p27#p27),” *Ensign*, Aug. 2007, 28; *Liahona*, Aug. 2007, 30; see also [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
+[^11]: Bruce C. Hafen and Marie K. Hafen, “[Crossing Thresholds and Becoming Equal Partners](https://www.churchofjesuschrist.org/study/liahona/2007/08/crossing-thresholds-and-becoming-equal-partners?lang=eng&id=p27#p27),” *Ensign*, Aug. 2007, 28; *Liahona*, Aug. 2007, 30; see also [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
 [^12]: [[Luke 6.31|Luke 6:31]]; see also [[Matthew 7.12|Matthew 7:12]].
 
@@ -79,11 +81,11 @@ I testify to you that as we—women and men—work together in a true and equal 
 
 [^16]: “The Family: A Proclamation to the World,” ChurchofJesusChrist.org.
 
-[^17]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [2.1.3](https://churchofjesuschrist.org/study/manual/general-handbook/2-supporting-individuals-and-families?lang=eng&id=title5#title5), ChurchofJesusChrist.org.
+[^17]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [2.1.3](https://www.churchofjesuschrist.org/study/manual/general-handbook/2-supporting-individuals-and-families?lang=eng&id=title5#title5), ChurchofJesusChrist.org.
 
-[^18]: See [[D&C 107.21|Doctrine and Covenants 107:21–26]][[D&C 107.22|]][[D&C 107.23|]][[D&C 107.24|]][[D&C 107.25|]][[D&C 107.26|]]; see also *General Handbook*, [4.2.4](https://churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=title7#title7).
+[^18]: See [[D&C 107.21|Doctrine and Covenants 107:21–26]][[D&C 107.22|]][[D&C 107.23|]][[D&C 107.24|]][[D&C 107.25|]][[D&C 107.26|]]; see also *General Handbook*, [4.2.4](https://www.churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=title7#title7).
 
-[^19]: See Dallin H. Oaks, “[[2005 October - Priesthood Authority in the Family and the Church.md|Priesthood Authority in the Family and the Church]],” *Ensign* or *Liahona*, Nov. 2005, 24–27; Ezra Taft Benson, “[What I Hope You Will Teach Your Children about the Temple](https://churchofjesuschrist.org/study/liahona/1986/04/what-i-hope-you-would-teach-your-children-about-the-temple?lang=eng),” *Ensign*, Aug. 1985, 6–10; *Tambuli*, Apr./May 1986, 1–6.
+[^19]: See Dallin H. Oaks, “[[2005 October - Priesthood Authority in the Family and the Church.md|Priesthood Authority in the Family and the Church]],” *Ensign* or *Liahona*, Nov. 2005, 24–27; Ezra Taft Benson, “[What I Hope You Will Teach Your Children about the Temple](https://www.churchofjesuschrist.org/study/liahona/1986/04/what-i-hope-you-would-teach-your-children-about-the-temple?lang=eng),” *Ensign*, Aug. 1985, 6–10; *Tambuli*, Apr./May 1986, 1–6.
 
 [^20]: See [[Moses 5.1|Moses 5:1]].
 
@@ -99,16 +101,11 @@ I testify to you that as we—women and men—work together in a true and equal 
 
 [^26]: “The Family: A Proclamation to the World,” ChurchofJesusChrist.org.
 
-[^27]: See [[2 Nephi 31.20|2 Nephi 31:20]].
+[^27]: See [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^28]: [[John 17.21|John 17:21–22]][[John 17.22|]].
 
 [^29]: [[Mosiah 18.21|Mosiah 18:21]].
 
-[^30]: See Henry B. Eyring, “[[2008 October - Our Hearts Knit as One.md|Our Hearts Knit as One]],” *Ensign* or *Liahona*, Nov. 2008, 68–71.
+[^30]: See Henry B. Eyring, “[[2008 October - Our Hearts Knit as One.md|Our Hearts Knit as One]],” *Ensign* or *Liahona*, Nov. 2008, 68–71.
 
-
-
-
-
-#Family #Love #Marriage #Parenthood #Unity

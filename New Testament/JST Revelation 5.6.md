@@ -4,6 +4,3 @@
 
 [JST Revelation 5:6](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-rev/5?lang=eng)
 
-
-
-

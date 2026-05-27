@@ -1,4 +1,3 @@
 # Israel, Congregation of
 
-
-*See* [[Church.md|Church]]
+*See also* [[Church.md|Church]]

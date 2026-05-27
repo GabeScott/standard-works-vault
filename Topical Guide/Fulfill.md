@@ -1,7 +1,6 @@
 # Fulfill
 
-
-*See also* [[Accomplished.md|Accomplished]]; [[Do, Did, Done.md|Do]]; [[Perform.md|Perform]]
+*See also* [[Accomplished.md|Accomplished]]; [[Do.md|Do]]; [[Perform.md|Perform]]
 
 when the days of his separation are *fulfilled*, [[Numbers 6.13|Numbers 6:13]].
 
@@ -23,11 +22,11 @@ how then shall the scriptures be *fulfilled*, [[Matthew 26.54|Matthew 26:54]].
 
 might be *fulfilled* which was spoken by the prophet, [[Matthew 27.35|Matthew 27:35]].
 
-scripture was *fulfilled* ... he was numbered with the transgressors, [[Mark 15.28|Mark 15:28]].
+scripture was *fulfilled* … he was numbered with the transgressors, [[Mark 15.28|Mark 15:28]].
 
 This day is this scripture *fulfilled*, [[Luke 4.21|Luke 4:21]].
 
-until the times of the Gentiles be *fulfilled*, [[Luke 21.24|Luke 21:24]] ([[D&C 45.25|D&C 45:25]], [[D&C 45.30|D&C 45:30]]).
+until the times of the Gentiles be *fulfilled*, [[Luke 21.24|Luke 21:24]] ([[D&C 45.25|D&C 45:25]]; [[D&C 45.30|D&C 45:30]]).
 
 until it be *fulfilled* in the kingdom of God, [[Luke 22.16|Luke 22:16]].
 
@@ -35,7 +34,7 @@ all things must be *fulfilled*, which were written, [[Luke 24.44|Luke 24:44]].
 
 this my joy therefore is *fulfilled*, [[John 3.29|John 3:29]].
 
-uncircumcision ... if it *fulfil* the law, [[Romans 2.27|Romans 2:27]].
+uncircumcision … if it *fulfil* the law, [[Romans 2.27|Romans 2:27]].
 
 righteousness of the law might be *fulfilled* in us, [[Romans 8.4|Romans 8:4]].
 
@@ -59,7 +58,7 @@ I will *fulfil* my promises, [[2 Nephi 10.17|2 Nephi 10:17]].
 
 prophecies of Isaiah shall be *fulfilled*, [[2 Nephi 25.7|2 Nephi 25:7]].
 
-steadfastness ... until the law shall be *fulfilled*, [[2 Nephi 25.24|2 Nephi 25:24]].
+steadfastness … until the law shall be *fulfilled*, [[2 Nephi 25.24|2 Nephi 25:24]].
 
 under the law, in me are all *fulfilled*, [[3 Nephi 12.46|3 Nephi 12:46]].
 

@@ -1,5 +1,7 @@
 # “That Spirit Which Leadeth to Do Good”
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -42,7 +44,7 @@ In that special, sacred hour when the Savior realized that His earthly ministry 
 
 Upon receiving this blessed assurance, the other Judas, not Iscariot, asked, “Lord, how is it that thou wilt manifest thyself unto us, and not unto the world?” ([[John 14.22|John 14:22]]).
 
-Jesus answered and said unto him: “If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him. …
+Jesus answered and said unto him: “If a man love me, he will keep my words: and my Father will love him, and we will come unto him, and make our abode with him. …
 
 “But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you” ([[John 14.23|John 14:23, 26]][[John 14.26|]]).
 
@@ -62,7 +64,7 @@ What a tremendous privilege it is to be numbered among those who, by the power o
 
 Elder LeGrand Richards, describing the gift of the Holy Ghost, said:
 
-“To me, the gift of the Holy Ghost is as important to man as sunshine and water are to the plants. You take them away, and the plants would die. You take the Holy Ghost out of this Church, and this Church would not be any different than any other church. And it is manifest in so many ways in the lives and the devotion of the members of the Church” (in Conference Report, Oct. 1979, 109; or *Ensign,* Nov. 1979, 76).
+“To me, the gift of the Holy Ghost is as important to man as sunshine and water are to the plants. You take them away, and the plants would die. You take the Holy Ghost out of this Church, and this Church would not be any different than any other church. And it is manifest in so many ways in the lives and the devotion of the members of the Church” (in Conference Report, Oct. 1979, [[1979 October - The Gift of the Holy Ghost.md|109]]; or *Ensign,* Nov. 1979, 76).
 
 Gifts have only limited value unless they are used. The Holy Ghost will be our constant companion if we submit ourselves to the will of our Father in Heaven, always remembering Him and keeping His commandments.
 
@@ -70,7 +72,7 @@ I remember a critical time in my life and how grateful I was when a still, small
 
 After struggling for about one year, a company called me from California and invited me to come out and talk to them about working for them. I went out and negotiated a very good contract; I was delighted with the opportunity. I told them that I had to return home and discuss it with my family before I could give an answer. I returned home and after a careful discussion, I convinced my family that it was the right thing to do. In the process of calling the firm to accept the offer, a voice just as strong and powerful as I have ever heard came to me and said, “Say no to the offer.” I could not ignore the voice, so I turned the offer down, but I was distressed. I could not comprehend why I had been told to do such a thing. I went upstairs to my bedroom, sat on the bed, opened the scriptures, and they fell open to the Doctrine and Covenants, section 111. This was the only section given in the state of Massachusetts, where my home was at that particular time. These words literally jumped out of the page and met my eye:
 
-“Concern not yourselves about your debts, … I will give you power to pay them. …
+“Concern not yourselves about your debts, … I will give you power to pay them. …
 
 “Tarry in this place, and in the regions round about” ([[D&C 111.5|D&C 111:5, 7]][[D&C 111.7|]]).
 
@@ -87,8 +89,3 @@ I bear witness of the power and comfort the gift of the Holy Ghost is to those w
 
 
 
-
-
-
-
-#Apostasy #Commandments #Holy_Ghost #Jesus_Christ #Priesthood #Spirituality #Temptation

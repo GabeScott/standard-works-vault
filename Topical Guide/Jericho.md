@@ -1,9 +1,8 @@
 # Jericho
 
+*See also* [[BD Jericho.md|BD Jericho]]
 
-*See also* [BD Jericho](https://www.churchofjesuschrist.org/study/scriptures/bd/jericho?lang=eng)
-
-Israel ... pitched ... by *Jericho*, [[Numbers 22.1|Numbers 22:1]].
+Israel … pitched … by *Jericho*, [[Numbers 22.1|Numbers 22:1]].
 
 *Jericho*, the city of palm trees, [[Deuteronomy 34.3|Deuteronomy 34:3]].
 

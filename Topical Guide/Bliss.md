@@ -1,4 +1,3 @@
 # Bliss
 
-
-*See* [[Happiness, Happy.md|Happiness]]; [[Joy.md|Joy]]; [[Pleasure.md|Pleasure]]
+*See also* [[Happiness.md|Happiness]]; [[Joy.md|Joy]]; [[Pleasure.md|Pleasure]]

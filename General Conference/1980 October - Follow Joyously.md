@@ -1,6 +1,8 @@
 # Follow Joyously
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -66,9 +68,9 @@ Let us become better managers of our economic resources. The first step could be
 
 In an interesting book entitled *The Richest Man in Babylon,* the story is told of a poor scribe who bargained with the rich man for his formula for economic success. That early Babylonian gave a surprisingly simple answer: “A lean purse is easier to cure than endure.
 
-“… learn to make your treasure work for you. Make it your slave.
+“… learn to make your treasure work for you. Make it your slave.
 
-“Pay for what you eat and wear but pay yourself as well.” (George S. Clason, *The Richest Man in Babylon,* New York: Hawthorne Books, 1955, p. 31.)
+“Pay for what you eat and wear but pay yourself as well.” (George S. Clason, *The Richest Man in Babylon,* New York: Hawthorne Books, 1955, p. 31.)
 
 Let us practice prudence in our homes, become better meal planners, housekeepers, and home decorators. Let us acquire the sewing and tailoring skills that will help our clothing look custom-made and that will help keep it in good repair. Let us make our kitchens creative centers from which emanate some of the most delightful of all home experiences.
 
@@ -87,8 +89,3 @@ Then as we attend area and multiregion council meetings and as we serve in this 
 
 
 
-
-
-
-
-#Home #Relief_Society

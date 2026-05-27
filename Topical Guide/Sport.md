@@ -1,6 +1,5 @@
 # Sport
 
-
 Isaac was *sporting* with Rebekah, [[Genesis 26.8|Genesis 26:8]].
 
 Call for Samson, that he may make us *sport*, [[Judges 16.25|Judges 16:25]].

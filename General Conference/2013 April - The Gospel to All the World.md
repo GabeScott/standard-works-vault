@@ -1,6 +1,8 @@
 # The Gospel to All the World
 
-By Elder John B. Dickson - *Of the Seventy*
+Thomas S. Monson
+
+By Elder John B. Dickson - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -36,9 +38,9 @@ Now let us move 1,800 years forward to the time of the Restoration of the gospel
 
 From the time of the organization of The Church of Jesus Christ of Latter-day Saints in 1830, the Church has moved steadily across the world from nation to nation, culture to culture, people to people, on the Lord’s calendar and in His time.
 
-In 1978, following the established pattern of revelation through the senior Apostle, President Spencer W. Kimball, came a revelation, this time on extending priesthood blessings to all worthy males across the world. This means that in our day all of Heavenly Father’s children worldwide can partake of all of the blessings of the restored gospel. How appropriate to the kingdom of God on earth in the days approaching Christ’s Second Coming.
+In 1978, following the established pattern of revelation through the senior Apostle, President Spencer W. Kimball, came a revelation, this time on extending priesthood blessings to all worthy males across the world. This means that in our day all of Heavenly Father’s children worldwide can partake of all of the blessings of the restored gospel. How appropriate to the kingdom of God on earth in the days approaching Christ’s Second Coming.
 
-On a personal note, I had just been called as a mission president and Sister Dickson and I were about to take our family to Mexico when Elder Richard G. Scott, at the time a member of the Seventy, told me of the coming forth of this special revelation. I remember tears coming to my eyes as he related to me what had happened. I was pleased beyond words, as I knew it was right and that the time had come for all mankind to have access to all of the ordinances, covenants, and blessings of the gospel.
+On a personal note, I had just been called as a mission president and Sister Dickson and I were about to take our family to Mexico when Elder Richard G. Scott, at the time a member of the Seventy, told me of the coming forth of this special revelation. I remember tears coming to my eyes as he related to me what had happened. I was pleased beyond words, as I knew it was right and that the time had come for all mankind to have access to all of the ordinances, covenants, and blessings of the gospel.
 
 That was almost 35 years ago, and little did I know at the time that I would spend several years of my ministry in the Seventy in the Africa West Area of the Church, among a believing, faithful people whose lives would be so affected by the 1978 revelation on priesthood. Sister Dickson and I have lived there for four years, and the experience has been wonderful and life changing for us.
 
@@ -59,8 +61,3 @@ I testify that our Heavenly Father loves all of His children, that Jesus is the 
 
 
 
-
-
-
-
-#Church_Growth #Missionary_Work

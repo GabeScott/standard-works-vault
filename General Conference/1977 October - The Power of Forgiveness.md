@@ -1,6 +1,8 @@
 # The Power of Forgiveness
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -30,21 +32,21 @@ Years passed, and she had received neither principal nor interest. She noticed t
 
 “How I hate him!” she told me, and her voice breathed venom and bitterness and her dark eyes flashed. To think that an able-bodied man would defraud a young widow with a family to support! “How I loathe him!” she repeated over and over. Then I told her my Bishop Kempton story, where a man forgave the murderer of his father. She listened intently. I saw she was impressed. At the conclusion there were tears in her eyes, and she whispered: “Thank you. Thank you sincerely. Surely I, too, must forgive my enemy. I will now cleanse my heart of its bitterness. I do not expect ever to receive the money, but I leave my offender in the hands of the Lord.”
 
-Weeks later, she saw me again and confessed that those intervening weeks had been the happiest of her life. A new peace had overshadowed her and she was able to pray for the offender and forgive him, even though she never received back a single dollar. (See Spencer W. Kimball, *The Miracle of Forgiveness,* Bookcraft, 1969, pp. 293–94.)
+Weeks later, she saw me again and confessed that those intervening weeks had been the happiest of her life. A new peace had overshadowed her and she was able to pray for the offender and forgive him, even though she never received back a single dollar. (See Spencer W. Kimball, *The Miracle of Forgiveness,* Bookcraft, 1969, pp. 293–94.)
 
 I saw another woman once whose little girl had been violated. “I will never forgive the culprit so long as I live,” she repeated every time it came into her mind. Vicious and ugly was the act. Anyone would be shocked and disturbed at such a crime, but to be unwilling to forgive is not Christlike. The foul deed was done and could not be undone. The culprit had been disciplined. In her bitterness the woman shriveled and shrank into a miserable person. (See *The Miracle of Forgiveness,* p. 294.)
 
 Contrast this woman with the Latter-day Saint girl who climbed the heights of self-control as she forgave the man who disfigured her lovely face. Let the United Press newsman, Neal Corbett, tell the story as it appeared in the pages of the San Francisco newspapers.
 
-“‘I would think he must be suffering, anybody who’s like that, we ought to feel sorry for him,’ said April Aaron of the man who had sent her to a hospital for three weeks, following a brutal … knife attack. April Aaron is a devout Mormon, 22 years of age. … She is a secretary who is as pretty as her name, but her face has just one blemish—the right eye is missing … April lost it to the ‘wildly slashing knife of a purse snatcher,’ near San Francisco’s Golden Gate Park while en route to an MIA dance. … She also suffered deep slashes on her left arm and right leg during a struggle with her assailant, after she tripped and fell in her efforts to elude him just one block from the Mormon chapel. …
+“‘I would think he must be suffering, anybody who’s like that, we ought to feel sorry for him,’ said April Aaron of the man who had sent her to a hospital for three weeks, following a brutal … knife attack. April Aaron is a devout Mormon, 22 years of age. … She is a secretary who is as pretty as her name, but her face has just one blemish—the right eye is missing … April lost it to the ‘wildly slashing knife of a purse snatcher,’ near San Francisco’s Golden Gate Park while en route to an MIA dance. … She also suffered deep slashes on her left arm and right leg during a struggle with her assailant, after she tripped and fell in her efforts to elude him just one block from the Mormon chapel. …
 
 “‘I ran for a block and a half before he caught me. You can’t run very fast on high heels,’ April said with a smile. Slashes on her leg were so severe \[that\] doctors feared for a time it would need amputation. The sharp edge of the weapon could damage neither April’s vivaciousness, nor her compassion. ‘… I wish that somebody could do something for him, to help him. He should have some treatment. Who knows what leads a person to do a thing like this? If they don’t find him, he’s likely to do it again.’
 
-“… April Aaron has won the hearts of the people in the San Francisco Bay area with her courage and good spirit in face of tragedy. Her room at St. Francis hospital was banked with flowers throughout her stay and attendants said they couldn’t recall when anyone received more cards and expressions of good wishes.” (Cited in *The Miracle of Forgiveness,* p. 294.)
+“… April Aaron has won the hearts of the people in the San Francisco Bay area with her courage and good spirit in face of tragedy. Her room at St. Francis hospital was banked with flowers throughout her stay and attendants said they couldn’t recall when anyone received more cards and expressions of good wishes.” (Cited in *The Miracle of Forgiveness,* p. 294.)
 
 The following is taken from a Los Angeles newspaper account attesting to the strength of people who have risen above the sordid revenge and ugly bitterness which so often prevail in such circumstances:
 
-“Three men were apprehended for the kidnap-murder of Marvin W. Merrill of Los Angeles. I knew Marvin personally—this young man grew up in my community—from his childhood. … Angelo B. Rollins, a black postal employee, was selected by the mail-carriers at Wagner Station to represent them by reading a eulogy at the funeral services. Elder Merrill had served the postal department for more than 20 years. Scattered throughout the chapel and overflow room were scores of postmen who came directly from their postal routes, still in their uniforms. … Rollins said: ‘No man can condone the actions of the perpetrators who ended his life. These vicious and vile acts that make us bow our heads in shame, point an accusing finger at innocent millions as a nation of offenders. In my sinful weakness, I would have rent them limb from limb,’” said this man, “‘but the still small voice of the Master said, “Vengeance is Mine.” … This Mormon Elder, Marvin Merrill, firm in the strength of his faith, and steeped in the teachings of Christ, would probably have said of them, as did our Savior at Calvary, “Father, forgive them, for they know not what they do.”’” (Cited in *The Miracle of Forgiveness,* p. 295.)
+“Three men were apprehended for the kidnap-murder of Marvin W. Merrill of Los Angeles. I knew Marvin personally—this young man grew up in my community—from his childhood. … Angelo B. Rollins, a black postal employee, was selected by the mail-carriers at Wagner Station to represent them by reading a eulogy at the funeral services. Elder Merrill had served the postal department for more than 20 years. Scattered throughout the chapel and overflow room were scores of postmen who came directly from their postal routes, still in their uniforms. … Rollins said: ‘No man can condone the actions of the perpetrators who ended his life. These vicious and vile acts that make us bow our heads in shame, point an accusing finger at innocent millions as a nation of offenders. In my sinful weakness, I would have rent them limb from limb,’” said this man, “‘but the still small voice of the Master said, “Vengeance is Mine.” … This Mormon Elder, Marvin Merrill, firm in the strength of his faith, and steeped in the teachings of Christ, would probably have said of them, as did our Savior at Calvary, “Father, forgive them, for they know not what they do.”’” (Cited in *The Miracle of Forgiveness,* p. 295.)
 
 Once I heard a neighbor say, “I hate those people across the border. They are dirty men. They have done so much evil in the world.” This man had not stopped to think that among that people were numerous good men, honest and upright. They were not responsible for what the leaders of the country had done. All men were not as vicious or cruel. They should not be judged by the evil deeds of their fellow nationals. Most men were grieved by the kinds of evil committed.
 
@@ -82,7 +84,7 @@ Eight, nine, ten, eleven, twelve o’clock, one, and two o’clock and the night
 
 I could feel the two antagonists were yielding, and I read the Lord’s Prayer, wherein He said,
 
-“But when ye pray, use not vain repetitions, as the heathen do. …
+“But when ye pray, use not vain repetitions, as the heathen do. …
 
 “For your Father knoweth what things ye have need of, before ye ask him.
 
@@ -102,7 +104,7 @@ As though he needed to refresh their minds, the Lord returned to the theme:
 
 “But if ye forgive not men their trespasses, neither will your Father forgive your trespasses.” ([[Matthew 6.14|Matt. 6:14–15]][[Matthew 6.15|]].)
 
-Hard to do? Of course. The Lord never promised an easy road, nor a simple gospel, nor low standards, nor a low norm. The price is high, but the goods attained are worth all they cost. The Lord himself turned the other cheek; he suffered himself to be buffeted and beaten without remonstrance; he suffered every indignity and yet spoke no word of condemnation. And his question to all of us is: “Therefore, what manner of men ought ye to be?” And his answer to us is: “Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+Hard to do? Of course. The Lord never promised an easy road, nor a simple gospel, nor low standards, nor a low norm. The price is high, but the goods attained are worth all they cost. The Lord himself turned the other cheek; he suffered himself to be buffeted and beaten without remonstrance; he suffered every indignity and yet spoke no word of condemnation. And his question to all of us is: “Therefore, what manner of men ought ye to be?” And his answer to us is: “Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 In his *The Prince of Peace,* William Jennings Bryan wrote:
 
@@ -110,7 +112,7 @@ In his *The Prince of Peace,* William Jennings Bryan wrote:
 
 If we have been wronged or injured, forgiveness means to blot it completely from our minds. To forgive and forget is an ageless counsel. “To be wronged or robbed,” said the Chinese philosopher Confucius, “is nothing unless you continue to remember it.”
 
-The injuries inflicted by neighbors, by relatives, or by spouses are generally of a minor nature, at least at first. We must forgive them. Since the Lord is so merciful, must not we be? “Blessed are the merciful, for they shall obtain mercy” ([[3 Nephi 12.7|3 Ne. 12:7]]) is another version of the Golden Rule. “All manner of sin and blasphemy shall be forgiven unto men,” said the Lord, “but the blasphemy against the Holy Ghost shall not be forgiven unto men.” ([[Matthew 12.31|Matt. 12:31]].) If the Lord is so gracious and kind, we must be also.
+The injuries inflicted by neighbors, by relatives, or by spouses are generally of a minor nature, at least at first. We must forgive them. Since the Lord is so merciful, must not we be? “Blessed are the merciful, for they shall obtain mercy” ([[3 Nephi 12.7|3 Ne. 12:7]]) is another version of the Golden Rule. “All manner of sin and blasphemy shall be forgiven unto men,” said the Lord, “but the blasphemy against the Holy Ghost shall not be forgiven unto men.” ([[Matthew 12.31|Matt. 12:31]].) If the Lord is so gracious and kind, we must be also.
 
 “When such people as the widow, Bishop Kempton, April Aaron and others grievously wronged can forgive; when men like Stephen and Paul can forgive vicious attacks against themselves and set the example of forgiveness; then all men should be able to forgive in their reach for perfection.
 
@@ -125,5 +127,3 @@ We shall love all our neighbors as ourselves and God will bless all of us. Jesus
 
 
 
-
-#Activation #Forgiveness

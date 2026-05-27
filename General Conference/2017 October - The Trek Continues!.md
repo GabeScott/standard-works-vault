@@ -1,6 +1,8 @@
 # The Trek Continues!
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+Sharon Eubank
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -87,9 +89,9 @@ I testify that “the trek continues,” and I invite you to stay on the gospel 
 
 [^2]: Jane Manning James autobiography, ca. 1902, Church History Library, Salt Lake City; see also James Goldberg, “[The Autobiography of Jane Manning James](https://history.lds.org/article/jane-manning-james-life-sketch),” Dec. 11, 2013, history.lds.org.
 
-[^3]: See, for example, Jill DiSanto, “Penn Research Shows That Mormons Are Generous and Active in Helping Others,” *Penn News,* Apr. 17, 2012.
+[^3]: See, for example, Jill DiSanto, “Penn Research Shows That Mormons Are Generous and Active in Helping Others,” *Penn News,* Apr. 17, 2012.
 
-[^4]: See M. Russell Ballard, “[[1996 October - Faith in Every Footstep.md|Faith in Every Footstep]],” *Ensign,* Nov. 1996, 23–25.
+[^4]: See M. Russell Ballard, “[[1996 October - Faith in Every Footstep.md|Faith in Every Footstep]],” *Ensign,* Nov. 1996, 23–25.
 
 [^5]: “The Purpose of Relief Society,” [lds.org/callings/relief-society/purposes](https://www.lds.org/callings/relief-society/purposes?lang=eng); see also *Handbook 2: Administering the Church* (2010), 9.1.1.
 
@@ -103,12 +105,7 @@ I testify that “the trek continues,” and I invite you to stay on the gospel 
 
 [^10]: See [[D&C 26.2|Doctrine and Covenants 26:2]]; [[D&C 28.13|28:13]]; [[D&C 43.6|43:6–7]][[D&C 43.7|]].
 
-[^11]: Church spokesman Eric Hawkins, Sept. 2016.
+[^11]: Church spokesman Eric Hawkins, Sept. 2016.
 
 [^12]: *Handbook 2,* 21.3.6.
 
-
-
-
-
-#Dedication #Faith #Pioneers #Wisdom

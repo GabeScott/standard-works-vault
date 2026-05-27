@@ -1,5 +1,7 @@
 # Our Lord and Savior
 
+Ezra Taft Benson
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -14,7 +16,7 @@ As Michael Watson was reading the annual report confirming the continued growth 
 
 This is the church of our Lord Jesus Christ, and it does indeed bring forth fruit worthy of him. Its growth will continue unabated because of the faith of its members and because more men and women are discovering the golden threads of truth, hope, and salvation as they learn gospel principles and are “nourished by the good word of God, to keep them in the right way, … relying … upon the merits of Christ, who \[is\] the author … of their faith” ([[Moroni 6.4|Moro. 6:4]]).
 
-Outside of our church, many watch in amazement at this consistent expansion in spite of popular secularism. We hope they may one day know of the joy and happiness available to the Saints who hold fast to the iron rod of gospel truth (see [[1 Nephi 11.25|1 Ne. 11:25]]), which they treasure as dearly as life itself and which they maintain by their abiding faith.
+Outside of our church, many watch in amazement at this consistent expansion in spite of popular secularism. We hope they may one day know of the joy and happiness available to the Saints who hold fast to the iron rod of gospel truth (see [[1 Nephi 11.25|1 Ne. 11:25]]), which they treasure as dearly as life itself and which they maintain by their abiding faith.
 
 We see the light of the gospel continuing to dawn like a gentle new day upon previous intolerable darkness. It continues to spread out into new frontiers, confirming the revelation to Joseph the Prophet that “the voice of the Lord is unto all men, and there is none to escape” ([[D&C 1.2|D&C 1:2]]) and all hearts shall be penetrated.
 
@@ -36,11 +38,11 @@ The early Apostles fearlessly continued to preach the principles of the gospel, 
 
 The Spirit of truth leads men to righteousness, but we must have a desire to seek truth and to take the time to form spiritual habits and respond to spiritual impressions if we are to keep our souls alive—and is not now the time to begin?
 
-A person who has developed spirituality may suffer deeply and know frustration; but yet he is able to continue in showing forth kindness and love because of a power that rises up from his spiritual base that governs his actions and urges him to “speak with a new tongue” ([[2 Nephi 31.14|2 Ne. 31:14]]), as Nephi said, and to be his best despite obstacles and setbacks.
+A person who has developed spirituality may suffer deeply and know frustration; but yet he is able to continue in showing forth kindness and love because of a power that rises up from his spiritual base that governs his actions and urges him to “speak with a new tongue” ([[2 Nephi 31.14|2 Ne. 31:14]]), as Nephi said, and to be his best despite obstacles and setbacks.
 
 My desire is to aid the cause of truth and righteousness and, like the Apostles of old, to add my witness of the divinity of Jesus the Christ.
 
-Tomorrow is Easter! Christians everywhere will commemorate the resurrection of our Lord Jesus Christ. Though the anniversary date may not be accurate, the Easter season should inspire us to study and reflect upon the infinite and eternal atonement of Christ—“the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]). The resurrection of Jesus from the tomb is the most glorious of all messages to mankind.
+Tomorrow is Easter! Christians everywhere will commemorate the resurrection of our Lord Jesus Christ. Though the anniversary date may not be accurate, the Easter season should inspire us to study and reflect upon the infinite and eternal atonement of Christ—“the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]). The resurrection of Jesus from the tomb is the most glorious of all messages to mankind.
 
 I believe in Christ. As a Latter-day Saint, I believe in Christ with all my heart. We invite all to “come unto Christ, and be perfected in him,” as Moroni declared, “and deny yourselves of all ungodliness” ([[Moroni 10.32|Moro. 10:32]]). Without reservation, we declare he is the Son of God and the Savior of the world.
 
@@ -48,7 +50,7 @@ Joseph Smith, the first prophet of this dispensation, wrote:
 
 “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost.
 
-“We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.1|A of F 1:1, 3]][[Articles of Faith 1.3|]]).
+“We believe that through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.1|A of F 1:1, 3]][[Articles of Faith 1.3|]]).
 
 We believe that Christ came into the world to ransom mankind from the temporal and spiritual death brought into the world by the fall of Adam, that through the shedding of His innocent blood all mankind are raised in immortality and that those who believe and obey His laws are raised unto eternal life.
 
@@ -78,7 +80,7 @@ Jesus himself was standing before her, but he did not appear as she had known hi
 
 Filled with amazement, she hastened to obey, and repeated that glorious message which would give hope through all future ages and to which she added her personal declaration that she had seen the risen Lord (see [[John 20.1|John 20:1–18]][[John 20.2|]][[John 20.3|]][[John 20.4|]][[John 20.5|]][[John 20.6|]][[John 20.7|]][[John 20.8|]][[John 20.9|]][[John 20.10|]][[John 20.11|]][[John 20.12|]][[John 20.13|]][[John 20.14|]][[John 20.15|]][[John 20.16|]][[John 20.17|]][[John 20.18|]]).
 
-“The debt is paid, the redemption made, the covenant fulfilled, justice satisfied, the will of God done,” wrote President John Taylor, “and all power is now given into the hands of the Son of God—the power of the resurrection, the power of the redemption, \[and\] the power of salvation” (*The Mediation and Atonement,* Salt Lake City: Deseret News Co., 1882, p. 171).
+“The debt is paid, the redemption made, the covenant fulfilled, justice satisfied, the will of God done,” wrote President John Taylor, “and all power is now given into the hands of the Son of God—the power of the resurrection, the power of the redemption, \[and\] the power of salvation” (*The Mediation and Atonement,* Salt Lake City: Deseret News Co., 1882, p. 171).
 
 Hundreds of years before Christ’s earthly ministry, the prophet Isaiah, foretelling of the establishment of Zion and speaking of Jehovah, the true God, wrote:
 
@@ -116,8 +118,3 @@ It is my hope that we will all come to know and love our Lord through obedience 
 
 
 
-
-
-
-
-#Atonement #Jesus_Christ #Resurrection

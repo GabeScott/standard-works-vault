@@ -1,5 +1,7 @@
 # Sunday Worship Service
 
+Thomas S. Monson
+
 By Elder W. Mack Lawrence - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -12,7 +14,7 @@ Today I would like to talk about sacrament meeting. Your bishop organizes and ov
 
 Sacrament meeting is the most important meeting of the week, the one the Lord has *commanded* us to attend. It’s a time to worship the Savior. What does that mean, to worship? It means to reverently show love and allegiance to him, to think about him, to honor him, to remember his sacrifice for each of us, and to thank him.
 
-In sacrament meeting we often do this through prayer, music, talks, scripture, and our testimony. His Spirit should be there. We partake of the sacrament in remembrance of his body and blood, symbolizing his resurrection and atonement. We should think about his life and sacrifice during the passing of the sacrament. Our sacrament meeting should be a time to talk of Christ, rejoice in Christ, preach of Christ, and prophesy of Christ, to paraphrase Nephi (see [[2 Nephi 25.26|2 Ne. 25:26]]). It’s also a time to learn the doctrines of the Church, to feel the Spirit, and to be spiritually enlightened.
+In sacrament meeting we often do this through prayer, music, talks, scripture, and our testimony. His Spirit should be there. We partake of the sacrament in remembrance of his body and blood, symbolizing his resurrection and atonement. We should think about his life and sacrifice during the passing of the sacrament. Our sacrament meeting should be a time to talk of Christ, rejoice in Christ, preach of Christ, and prophesy of Christ, to paraphrase Nephi (see [[2 Nephi 25.26|2 Ne. 25:26]]). It’s also a time to learn the doctrines of the Church, to feel the Spirit, and to be spiritually enlightened.
 
 Sacrament meeting is so important that the Lord revealed specific instructions about the meeting to Joseph Smith. That message is recorded in the 59th section of the Doctrine and Covenants:
 
@@ -44,7 +46,7 @@ And don’t be afraid to include your personal feelings about the Savior, his go
 
 And finally, *remember the Savior as you partake of the sacrament.* Some people have told me that they’ve heard sacrament prayers so often that they don’t even hear them when the sacrament is blessed. Perhaps this is because they don’t understand what is being said. Perhaps you might want to pull out your scriptures at the proper time and study these prayers. They contain profound and significant information about our promises to the Lord and his promises to us.
 
-Do you know where to find the sacrament prayers? In the [[D&C 20.1|Doctrine and Covenants, the 20th section]][[D&C 20.2|]][[D&C 20.3|]][[D&C 20.4|]][[D&C 20.5|]][[D&C 20.6|]][[D&C 20.7|]][[D&C 20.8|]][[D&C 20.9|]][[D&C 20.10|]][[D&C 20.11|]][[D&C 20.12|]][[D&C 20.13|]][[D&C 20.14|]][[D&C 20.15|]][[D&C 20.16|]][[D&C 20.17|]][[D&C 20.18|]][[D&C 20.19|]][[D&C 20.20|]][[D&C 20.21|]][[D&C 20.22|]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]][[D&C 20.26|]][[D&C 20.27|]][[D&C 20.28|]][[D&C 20.29|]][[D&C 20.30|]][[D&C 20.31|]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]][[D&C 20.35|]][[D&C 20.36|]][[D&C 20.37|]][[D&C 20.38|]][[D&C 20.39|]][[D&C 20.40|]][[D&C 20.41|]][[D&C 20.42|]][[D&C 20.43|]][[D&C 20.44|]][[D&C 20.45|]][[D&C 20.46|]][[D&C 20.47|]][[D&C 20.48|]][[D&C 20.49|]][[D&C 20.50|]][[D&C 20.51|]][[D&C 20.52|]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]][[D&C 20.60|]][[D&C 20.61|]][[D&C 20.62|]][[D&C 20.63|]][[D&C 20.64|]][[D&C 20.65|]][[D&C 20.66|]][[D&C 20.67|]][[D&C 20.68|]][[D&C 20.69|]][[D&C 20.70|]][[D&C 20.71|]][[D&C 20.72|]][[D&C 20.73|]][[D&C 20.74|]][[D&C 20.75|]][[D&C 20.76|]][[D&C 20.77|]][[D&C 20.78|]][[D&C 20.79|]][[D&C 20.80|]][[D&C 20.81|]][[D&C 20.82|]][[D&C 20.83|]][[D&C 20.84|]], or in the Book of Mormon, [[Moroni 4.1|Moroni chapters 4]][[Moroni 4.2|]][[Moroni 4.3|]] and [[Moroni 5.1|5]][[Moroni 5.2|]]. In these sacrament prayers for the bread and for the water, symbolic of the body and the blood of the Savior, you witness (or promise) certain things.
+Do you know where to find the sacrament prayers? In the [[D&C 20.1|Doctrine and Covenants, the 20th section]][[D&C 20.2|]][[D&C 20.3|]][[D&C 20.4|]][[D&C 20.5|]][[D&C 20.6|]][[D&C 20.7|]][[D&C 20.8|]][[D&C 20.9|]][[D&C 20.10|]][[D&C 20.11|]][[D&C 20.12|]][[D&C 20.13|]][[D&C 20.14|]][[D&C 20.15|]][[D&C 20.16|]][[D&C 20.17|]][[D&C 20.18|]][[D&C 20.19|]][[D&C 20.20|]][[D&C 20.21|]][[D&C 20.22|]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]][[D&C 20.26|]][[D&C 20.27|]][[D&C 20.28|]][[D&C 20.29|]][[D&C 20.30|]][[D&C 20.31|]][[D&C 20.32|]][[D&C 20.33|]][[D&C 20.34|]][[D&C 20.35|]][[D&C 20.36|]][[D&C 20.37|]][[D&C 20.38|]][[D&C 20.39|]][[D&C 20.40|]][[D&C 20.41|]][[D&C 20.42|]][[D&C 20.43|]][[D&C 20.44|]][[D&C 20.45|]][[D&C 20.46|]][[D&C 20.47|]][[D&C 20.48|]][[D&C 20.49|]][[D&C 20.50|]][[D&C 20.51|]][[D&C 20.52|]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]][[D&C 20.60|]][[D&C 20.61|]][[D&C 20.62|]][[D&C 20.63|]][[D&C 20.64|]][[D&C 20.65|]][[D&C 20.66|]][[D&C 20.67|]][[D&C 20.68|]][[D&C 20.69|]][[D&C 20.70|]][[D&C 20.71|]][[D&C 20.72|]][[D&C 20.73|]][[D&C 20.74|]][[D&C 20.75|]][[D&C 20.76|]][[D&C 20.77|]][[D&C 20.78|]][[D&C 20.79|]][[D&C 20.80|]][[D&C 20.81|]][[D&C 20.82|]][[D&C 20.83|]][[D&C 20.84|]], or in the Book of Mormon, [[Moroni 4.1|Moroni chapters 4]] and [[Moroni 5.1|5]]. In these sacrament prayers for the bread and for the water, symbolic of the body and the blood of the Savior, you witness (or promise) certain things.
 
 As you partake of the sacrament, you witness that you are willing to take the name of Jesus Christ, the Son, upon you. This means that you are willing to be baptized, to proclaim gospel truths in his name, and to represent him in doing his work here on earth. You also witness that you will always remember him and keep his commandments. Those are serious, sacred commitments. And in return, as you keep your promises, you are blessed that you may always have his Spirit to be with you.
 
@@ -57,8 +59,3 @@ I believe with all my soul in Jesus Christ, our elder brother. May we understand
 
 
 
-
-
-
-
-#Jesus_Christ #Sabbath #Sacrament #Worship

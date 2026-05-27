@@ -1,6 +1,5 @@
 # Darken
 
-
 covered the face of the whole earth, so that the land was *darkened*, [[Exodus 10.15|Exodus 10:15]].
 
 *darkeneth* counsel by words without knowledge, [[Job 38.2|Job 38:2]].

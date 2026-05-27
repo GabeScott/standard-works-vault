@@ -1,6 +1,5 @@
 # Book of Remembrance
 
-
 *See also* [[Book of Life.md|Book of Life]]; [[Genealogy and Temple Work.md|Genealogy and Temple Work]]; [[Record Keeping.md|Record Keeping]]
 
 sought their register among those that were reckoned by *genealogy*, [[Ezra 2.62|Ezra 2:62]] ([[Nehemiah 7.5|Nehemiah 7:5]]).
@@ -17,6 +16,4 @@ who are not found written in the *book of remembrance*, [[D&C 85.9|D&C 85:9]].
 
 *book of remembrance* we have written, [[Moses 6.46|Moses 6:46]].
 
-I shall endeavor to write ... this *record*, for ... my posterity, [[Abraham 1.31|Abraham 1:31]].
-
-*See also* [[Psalms 56.8|Psalms 56:8]]; [[Ezekiel 13.9|Ezekiel 13:9]]; [[Matthew 1.17|Matthew 1:17]].
+I shall endeavor to write … this *record*, for … my posterity, [[Abraham 1.31|Abraham 1:31]].

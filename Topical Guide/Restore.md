@@ -1,15 +1,14 @@
 # Restore
 
-
-*See also* [[Israel, Restoration of.md|Israel, Restoration of]]; [[Restoration.md|Restoration]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [BD Restitution](https://www.churchofjesuschrist.org/study/scriptures/bd/restitution?lang=eng)
+*See also* [[Israel, Restoration of.md|Israel, Restoration of]]; [[Restoration.md|Restoration]]; [[Restoration of the Gospel.md|Restoration of the Gospel]]; [[BD Restitution.md|BD Restitution]]
 
 *restore* the man his wife, [[Genesis 20.7|Genesis 20:7]].
 
-to *restore* every man's money into his sack, [[Genesis 42.25|Genesis 42:25]].
+to *restore* every man’s money into his sack, [[Genesis 42.25|Genesis 42:25]].
 
 he shall *restore* five oxen for an ox, [[Exodus 22.1|Exodus 22:1]].
 
-If the theft be certainly found ... he shall *restore* double, [[Exodus 22.4|Exodus 22:4]].
+If the theft be certainly found … he shall *restore* double, [[Exodus 22.4|Exodus 22:4]].
 
 he shall *restore* that which he took violently, [[Leviticus 6.4|Leviticus 6:4]].
 
@@ -35,9 +34,9 @@ commandment to *restore* and to build Jerusalem, [[Daniel 9.25|Daniel 9:25]].
 
 I will *restore* to you the years that the locust hath eaten, [[Joel 2.25|Joel 2:25]].
 
-hand ... was *restored* whole, [[Matthew 12.13|Matthew 12:13]] ([[Mark 3.5|Mark 3:5]]; [[Luke 6.10|Luke 6:10]]).
+hand … was *restored* whole, [[Matthew 12.13|Matthew 12:13]] ([[Mark 3.5|Mark 3:5]]; [[Luke 6.10|Luke 6:10]]).
 
-if I have taken any thing ... I *restore* him fourfold, [[Luke 19.8|Luke 19:8]].
+if I have taken any thing … I *restore* him fourfold, [[Luke 19.8|Luke 19:8]].
 
 wilt thou at this time *restore* again the kingdom, [[Acts 1.6|Acts 1:6]].
 
@@ -57,13 +56,13 @@ soul shall be *restored* to the body, [[Alma 40.23|Alma 40:23]].
 
 all things shall be *restored* to their proper order, [[Alma 41.4|Alma 41:4]].
 
-Do not suppose ... that ye shall be *restored* from sin to happiness, [[Alma 41.10|Alma 41:10]].
+Do not suppose … that ye shall be *restored* from sin to happiness, [[Alma 41.10|Alma 41:10]].
 
 ye shall have mercy *restored* unto you, [[Alma 41.14|Alma 41:14]].
 
 they are *restored* into his presence, [[Alma 42.23|Alma 42:23]].
 
-men ... might be *restored* unto grace for grace, [[Helaman 12.24|Helaman 12:24]].
+men … might be *restored* unto grace for grace, [[Helaman 12.24|Helaman 12:24]].
 
 ye can do good and be *restored* unto that which is good, [[Helaman 14.31|Helaman 14:31]].
 

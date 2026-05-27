@@ -1,6 +1,8 @@
 # “An Honest Man—God’s Noblest Work”
 
-By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -50,13 +52,13 @@ Even following the miracle of Pentecost, deception was manifest among some who h
 
 “Whiles it remained, was it not thine own? and after it was sold, was it not in thine own power? Why hast thou conceived this thing in thine heart? Thou has not lied unto men, but unto God.
 
-“And Ananias hearing these words fell down, and gave up the ghost. …
+“And Ananias hearing these words fell down, and gave up the ghost. …
 
 “And it was about the space of three hours after, when his wife, not knowing what was done, came in.
 
 “And Peter answered unto her, Tell me whether ye sold the land for so much? And she said, Yea, for so much.
 
-“Then Peter said unto her, How is it that ye have agreed together to tempt the Spirit of the Lord? …
+“Then Peter said unto her, How is it that ye have agreed together to tempt the Spirit of the Lord? …
 
 “Then she fell down straightway at his feet, and yielded up the ghost.” ([[Acts 5.1|Acts 5:1–10]][[Acts 5.2|]][[Acts 5.3|]][[Acts 5.4|]][[Acts 5.5|]][[Acts 5.6|]][[Acts 5.7|]][[Acts 5.8|]][[Acts 5.9|]][[Acts 5.10|]].)
 
@@ -103,8 +105,3 @@ I leave you my testimony of the truth of the cause in which we labor, of the liv
 
 
 
-
-
-
-
-#Honesty #Truth

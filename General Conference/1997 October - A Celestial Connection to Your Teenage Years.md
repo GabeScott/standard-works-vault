@@ -1,5 +1,7 @@
 # A Celestial Connection to Your Teenage Years
 
+Gordon B. Hinckley
+
 By Elder Richard J. Maynes - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -53,8 +55,3 @@ Young brothers and sisters, it will ultimately be your love of the Lord which wi
 
 
 
-
-
-
-
-#Goals #Jesus_Christ #Youth

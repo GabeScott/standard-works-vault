@@ -1,5 +1,7 @@
 # Christ at Bethesda’s Pool
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1996 General Conference*
@@ -67,7 +69,7 @@ Reflect for a moment on the experience of Peter at the Gate Beautiful of the tem
 
 “And he took him by the right hand, and lifted him up. …
 
-“… He … stood, and walked, and entered with them into the temple.”[^14]
+“… He … stood, and walked, and entered with them into the temple.”[^14]
 
 Not all who approached the Master abided by His divine direction:
 
@@ -171,7 +173,7 @@ This expression describes Bethesda’s blessing. Of this divine truth I testify.
 
 [^3]: [[Matthew 27.22|Matt. 27:22]].
 
-[^4]: [[2 Nephi 31.12|2 Ne. 31:12]].
+[^4]: [[2 Nephi 31.12|2 Ne. 31:12]].
 
 [^5]: [[Luke 2.8|Luke 2:8, 11]][[Luke 2.11|]].
 
@@ -187,7 +189,7 @@ This expression describes Bethesda’s blessing. Of this divine truth I testify.
 
 [^11]: [[Matthew 20.28|Matt. 20:28]].
 
-[^12]: Thomas S. Monson, in Conference Report, Oct. 1971, 171; or *Ensign,* Dec. 1971, 131.
+[^12]: Thomas S. Monson, in Conference Report, Oct. 1971, [[1971 October - With Hand and Heart.md|171]]; or *Ensign,* Dec. 1971, 131.
 
 [^13]: [[Acts 3.4|Acts 3:4]].
 
@@ -201,8 +203,3 @@ This expression describes Bethesda’s blessing. Of this divine truth I testify.
 
 [^18]: *Ye Are the Light of the World* (1974), 292; emphasis added.
 
-
-
-
-
-#Blessings #Jesus_Christ #Service

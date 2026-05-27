@@ -1,6 +1,8 @@
 # Our Responsibility to Care for Our Own
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+Marion G. Romney
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -22,7 +24,7 @@ In one of the most important declarations of what it means to be a true disciple
 
 He has stated simply: If we are to be the Savior’s disciples, if we are to become like him, then we must serve one another, then we must assume responsibility to help with one another’s needs, then we must assist each other through the thorny pathways of life.
 
-We have been taught in other scripture that no matter how great and significant our mortal accomplishments, no matter how much was accomplished under our hand—as a bishop, a clerk, a president, a teacher, or a parent—unless we learn to exhibit charity, we are nothing. (See [[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]].) All our good deeds will not weigh in our favor if charity is lacking.
+We have been taught in other scripture that no matter how great and significant our mortal accomplishments, no matter how much was accomplished under our hand—as a bishop, a clerk, a president, a teacher, or a parent—unless we learn to exhibit charity, we are nothing. (See [[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]].) All our good deeds will not weigh in our favor if charity is lacking.
 
 Charity is measured in several ways. Perhaps a supreme form of charity may be exhibited by one who withholds judgment of another’s acts or conduct, remembering that there is only one who can look into the heart and know the intent—and know the honest desires found therein. There is only one whose right it is to judge the success of another’s journey through life. Uncalled-for judgments or prejudiced feelings keep many from displaying a truly charitable attitude or a willingness to help those in need, even those in our own family circle. A warning comes to us from King Benjamin, who said:
 
@@ -54,7 +56,7 @@ Fearing that we may have strayed from some of the basic moorings, I would like t
 
 “Obviously no person should become a charge upon the public \[or the Church\] when his relatives are able to care for him. Every consideration of kinship, of justice and fairness, of the common good, and even of humanity itself, requires this.” Then listen to these words: “Where Church relatives, financially competent to take care of their kin, refuse to do so, the matter should be reported to the bishop of the ward in which such relatives reside.” (*Welfare Plan of The Church of Jesus Christ of Latter-day Saints,* Handbook of Instructions, 1969, p. 4.)
 
-And then the handbook repeats the instruction of the Apostle Paul to Timothy: “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
+And then the handbook repeats the instruction of the Apostle Paul to Timothy: “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
 
 Perhaps we should clarify what it means to provide for our own. How do we do it? Does it mean money and other physical things only? Are there unmet needs that money cannot buy?
 
@@ -93,8 +95,3 @@ I testify of the truth of these teachings and of the reality of the one who is t
 
 
 
-
-
-
-
-#Charity #Family

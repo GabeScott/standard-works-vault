@@ -1,5 +1,7 @@
 # Being Teachable
 
+Gordon B. Hinckley
+
 By Elder Robert R. Steuer - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -39,7 +41,7 @@ I testify that through the Prophet Joseph Smith we have received countless revel
 
 [^4]: See [[Matthew 5.6|Matt. 5:6]]; [[Alma 32.13|Alma 32:13]].
 
-[^5]: See [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
+[^5]: See [[2 Kings 5.1|2 Kgs. 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
 
 [^6]: See [[D&C 93.30|D&C 93:30]].
 
@@ -51,15 +53,15 @@ I testify that through the Prophet Joseph Smith we have received countless revel
 
 [^10]: [[Alma 32.27|Alma 32:27]].
 
-[^11]: [[1 Nephi 3.7|1 Ne. 3:7]].
+[^11]: [[1 Nephi 3.7|1 Ne. 3:7]].
 
-[^12]: See [[1 Nephi 3.4|1 Ne. 3:4]]; [[1 Nephi 16.23|16:23–32]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]][[1 Nephi 16.32|]]; [[1 Nephi 17.8|17:8–11]][[1 Nephi 17.9|]][[1 Nephi 17.10|]][[1 Nephi 17.11|]].
+[^12]: See [[1 Nephi 3.4|1 Ne. 3:4]]; [[1 Nephi 16.23|16:23–32]][[1 Nephi 16.24|]][[1 Nephi 16.25|]][[1 Nephi 16.26|]][[1 Nephi 16.27|]][[1 Nephi 16.28|]][[1 Nephi 16.29|]][[1 Nephi 16.30|]][[1 Nephi 16.31|]][[1 Nephi 16.32|]]; [[1 Nephi 17.8|17:8–11]][[1 Nephi 17.9|]][[1 Nephi 17.10|]][[1 Nephi 17.11|]].
 
-[^13]: [[1 Nephi 4.6|1 Ne. 4:6]].
+[^13]: [[1 Nephi 4.6|1 Ne. 4:6]].
 
-[^14]: In Conference Report, Apr. 2001, 64; or *Ensign,* May 2001, 49.
+[^14]: In Conference Report, Apr. 2001, [[2001 April - To the Rescue.md|64]]; or *Ensign,* May 2001, 49.
 
-[^15]: [[2 Nephi 28.30|2 Ne. 28:30]].
+[^15]: [[2 Nephi 28.30|2 Ne. 28:30]].
 
 [^16]: [[D&C 84.47|D&C 84:47]].
 
@@ -69,8 +71,3 @@ I testify that through the Prophet Joseph Smith we have received countless revel
 
 [^19]: [[D&C 88.40|D&C 88:40]].
 
-
-
-
-
-#Holy_Ghost #Humility #Obedience

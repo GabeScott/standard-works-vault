@@ -1,6 +1,5 @@
 # Furnish
 
-
 *See also* [[Provide.md|Provide]]
 
 Can God *furnish* a table in the wilderness, [[Psalms 78.19|Psalms 78:19]].

@@ -1,6 +1,8 @@
 # The Vision of the Aaronic Priesthood
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Spencer W. Kimball
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -59,8 +61,3 @@ I bear my witness, my brethren, that the bishops of this Church have a stewardsh
 
 
 
-
-
-
-
-#Priesthood #Sacrifice #Service

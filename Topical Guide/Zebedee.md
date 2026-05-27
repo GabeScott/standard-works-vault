@@ -1,4 +1,3 @@
 # Zebedee
 
-
-*See* [BD Zebedee](https://www.churchofjesuschrist.org/study/scriptures/bd/zebedee?lang=eng)
+*See also* [[BD Zebedee.md|BD Zebedee]]

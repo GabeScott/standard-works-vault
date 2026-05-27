@@ -1,5 +1,7 @@
 # Lay Up in Store
 
+Thomas S. Monson
+
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2007 General Conference*
@@ -24,7 +26,7 @@ Hard work, a mission that awakened in him a correct vision of life’s purposes,
 
 Fortunately, the Lord has shown us how to avoid similar foolishness. He said:
 
-“Hearken, O ye people of my church. … Hearken ye people from afar; and ye that are upon the islands of the sea, listen together. …
+“Hearken, O ye people of my church. … Hearken ye people from afar; and ye that are upon the islands of the sea, listen together. …
 
 “Prepare ye, prepare ye for that which is to come, for the Lord is nigh.”[^2]
 
@@ -40,15 +42,15 @@ And “if ye are prepared ye shall not fear.”[^6]
 
 Priesthood bearers are led by these promises to prepare themselves and their families for the Lord’s appearing.[^7] There is no need to be anxious about events leading up to the Second Coming. Let us instead be filled with gratitude for our understanding of what lies ahead. Let us appreciate that we are in charge of our own world, being the Lord’s agents over that which He has entrusted to us.[^8] The formula is simple: Be faithful. Unencumber your life. Lay up in store.
 
-**Be faithful.** As priesthood bearers, we cultivate a gentle touch and kindly word. We are men who pray, who keep the Sabbath day holy, and who know the word of God. We tithe, fast, and give a generous fast offering. We keep our covenants and consecrate our lives to the building up of God’s kingdom.
+***Be faithful.*** As priesthood bearers, we cultivate a gentle touch and kindly word. We are men who pray, who keep the Sabbath day holy, and who know the word of God. We tithe, fast, and give a generous fast offering. We keep our covenants and consecrate our lives to the building up of God’s kingdom.
 
 And, brethren, we *lay up in store!* As we do these things, “the Lord shall have power over his saints, and shall reign in \[our\] midst.”[^9]
 
-**Unencumber your life.** As men of God, we turn from excess to that which edifies, for “that which doth not edify is not of God.”[^10] If dealings or involvements or pursuits or schedules detract from putting God first, we must pare back and unencumber our lives.[^11] If we have debts, we pay them and live debt free to the extent possible.
+***Unencumber your life.*** As men of God, we turn from excess to that which edifies, for “that which doth not edify is not of God.”[^10] If dealings or involvements or pursuits or schedules detract from putting God first, we must pare back and unencumber our lives.[^11] If we have debts, we pay them and live debt free to the extent possible.
 
 And, brethren, we *lay up in store!* Then, “through \[the Lord’s\] providence, notwithstanding the tribulation … the church \[and its people will\] stand independent.”[^12]
 
-**Lay up in store.** Wives are instrumental in this work, but they need husbands who lead out in family preparedness. Children need parents who instill in them this righteous tradition. They will then do likewise with their children, and their stores will not fail.
+***Lay up in store.*** Wives are instrumental in this work, but they need husbands who lead out in family preparedness. Children need parents who instill in them this righteous tradition. They will then do likewise with their children, and their stores will not fail.
 
 A cardinal principle of the gospel is to prepare for the day of scarcity. Work, industry, frugality are part of the royal order of life. Remember these words from Paul: “If any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.”[^13]
 
@@ -60,7 +62,7 @@ From President Thomas S. Monson, First Counselor, we hear: “Many more people c
 
 From President Gordon B. Hinckley, the Lord’s prophet, we hear:
 
-“The best place to have some food set aside is within our homes. …
+“The best place to have some food set aside is within our homes. …
 
 “We can begin ever so modestly. We can begin with a one week’s food supply and gradually build it to a month and then to three months. … I fear that so many feel that a long-term food supply is so far beyond their reach that they make no effort at all.
 
@@ -78,7 +80,7 @@ As we do our very best, we can be confident that “the barrel of meal shall not
 
 In closing, I introduce to you the Luca and Patrizia Vaccarono family. They live in a small town near Rome, Italy. In a recent letter, they wrote:
 
-“We decided after some experience that it is important to store the items we use. Sometimes we have to modify our habits in eating certain kinds of foods. …
+“We decided after some experience that it is important to store the items we use. Sometimes we have to modify our habits in eating certain kinds of foods. …
 
 “The feeling of peace and the desire to be faithful to the commandment given by the Lord through the modern prophet helps us feel the Holy Spirit, … to not be afraid, and to see that the signs of the time for the Second Coming of the Lord is a blessing and not something to fear. We rejoice in it. … It gives us the motivation to be faithful and endure to the end and to be saved and obtain eternal life.”
 
@@ -99,7 +101,7 @@ As a final thought, Brother Vaccarono writes: “I’m sorry for my English. I h
 
 [^6]: [[D&C 38.30|D&C 38:30]].
 
-[^7]: See [[2 Timothy 4.8|2 Timothy 4:8]]; [[D&C 133.50|D&C 133:50, 52]][[D&C 133.52|]].
+[^7]: See [[2 Timothy 4.8|2 Timothy 4:8]]; [[D&C 133.50|D&C 133:50, 52]][[D&C 133.52|]].
 
 [^8]: See [[D&C 104.13|D&C 104:13–17]][[D&C 104.14|]][[D&C 104.15|]][[D&C 104.16|]][[D&C 104.17|]].
 
@@ -111,17 +113,17 @@ As a final thought, Brother Vaccarono writes: “I’m sorry for my English. I h
 
 [^12]: [[D&C 78.14|D&C 78:14]].
 
-[^13]: [[1 Timothy 5.8|1 Timothy 5:8]]; see also [[1 Timothy 6.19|1 Timothy 6:19]]; [[D&C 29.34|D&C 29:34]]; “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102; Joseph F. Smith, in Conference Report, Oct. 1900, 46; Bruce R. McConkie, *The Mortal Messiah,* 4 vols. (1979–81), 2:155.
+[^13]: [[1 Timothy 5.8|1 Timothy 5:8]]; see also [[1 Timothy 6.19|1 Timothy 6:19]]; [[D&C 29.34|D&C 29:34]]; “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102; Joseph F. Smith, in Conference Report, Oct. 1900, 46; Bruce R. McConkie, *The Mortal Messiah,* 4 vols. (1979–81), 2:155.
 
-[^14]: In Conference Report, Apr. 1986, 26; or *Ensign,* May 1986, 22.
+[^14]: In Conference Report, Apr. 1986, [[1986 April - The Responsibility for Welfare Rests with Me and My Family.md|26]]; or *Ensign,* May 1986, 22.
 
 [^15]: “That Noble Gift—Love at Home,” *Church News,* May 12, 2001, 7.
 
-[^16]: In Conference Report, Oct. 2002, 65; or *Ensign,* Nov. 2002, 58.
+[^16]: In Conference Report, Oct. 2002, [[2002 October - To Men of the Priesthood.md|65]]; or *Ensign,* Nov. 2002, 58.
 
 [^17]: See *The Teachings of Harold B. Lee,* ed. Clyde J. Williams (1996), 314.
 
-[^18]: [[1 Kings 17.14|1 Kings 17:14]]; see also [[1 Kings 17.8|vv. 8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
+[^18]: [[1 Kings 17.14|1 Kings 17:14]]; see also [[1 Kings 17.8|vv. 8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
 
 [^19]: [[D&C 38.30|D&C 38:30]].
 
@@ -129,8 +131,3 @@ As a final thought, Brother Vaccarono writes: “I’m sorry for my English. I h
 
 [^21]: [[Proverbs 3.5|Proverbs 3:5–6]][[Proverbs 3.6|]].
 
-
-
-
-
-#Dedication #Financial_Management #Obedience #Preparation #Self-Reliance

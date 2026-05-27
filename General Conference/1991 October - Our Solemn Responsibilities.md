@@ -1,5 +1,7 @@
 # Our Solemn Responsibilities
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -72,7 +74,7 @@ Altogether too many men, leaving their wives at home in the morning and going to
 
 The tragedy is that some men are ensnared by their own foolishness and their own weakness. They throw to the wind the most sacred and solemn of covenants, entered into in the house of the Lord and sealed under the authority of the holy priesthood. They set aside their wives who have been faithful, who have loved and cared for them, who have struggled with them in times of poverty only to be discarded in times of affluence. They have left their children fatherless. They have avoided with every kind of artifice the payment of court-mandated alimony and child support.
 
-Do I sound harsh and negative? Yes, I feel that way as I deal with case after case and have done so over a period of time. Wrote Paul, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Tim. 5:8]]). In that same epistle, he said to Timothy, “Keep thyself pure” ([[1 Timothy 5.22|1 Tim. 5:22]]).
+Do I sound harsh and negative? Yes, I feel that way as I deal with case after case and have done so over a period of time. Wrote Paul, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel” ([[1 Timothy 5.8|1 Tim. 5:8]]). In that same epistle, he said to Timothy, “Keep thyself pure” ([[1 Timothy 5.22|1 Tim. 5:22]]).
 
 Now I recognize that there may be some few cases where conditions of the marriage are totally intolerable. But these cases are in the minority. And even in these cases, where a marriage has been undertaken and children are brought into the world, there is a responsibility, binding and with accountability before God, to provide care for those for whose lives the father is responsible.
 
@@ -99,5 +101,3 @@ It takes effort. It takes self-control. It takes unselfishness. It requires the 
 
 
 
-
-#Abuse #Church_Growth #Example #Love #Marriage #Repentance

@@ -1,7 +1,6 @@
 # Devil
 
-
-*See also* [[Adversary.md|Adversary]]; [[Evil.md|Evil]]; [[Hell.md|Hell]]; [[Lucifer.md|Lucifer]]; [[Satan.md|Satan]]; [BD Devil](https://www.churchofjesuschrist.org/study/scriptures/bd/devil?lang=eng)
+*See also* [[Adversary.md|Adversary]]; [[Evil.md|Evil]]; [[Hell.md|Hell]]; [[Lucifer.md|Lucifer]]; [[Satan.md|Satan]]; [[BD Devil.md|BD Devil]]
 
 *serpent* was more subtil than any beast, [[Genesis 3.1|Genesis 3:1]] ([[Moses 4.5|Moses 4:5]]).
 
@@ -33,7 +32,7 @@ they say, He hath a *devil*, [[Matthew 11.18|Matthew 11:18]] ([[Luke 7.33|Luke 7
 
 if I cast out *devils* by the Spirit of God, [[Matthew 12.28|Matthew 12:28]].
 
-my daughter is ... vexed with a *devil*, [[Matthew 15.22|Matthew 15:22]] ([[Mark 7.26|Mark 7:26]]).
+my daughter is … vexed with a *devil*, [[Matthew 15.22|Matthew 15:22]] ([[Mark 7.26|Mark 7:26]]).
 
 Jesus rebuked the *devil*, [[Matthew 17.18|Matthew 17:18]].
 
@@ -41,7 +40,7 @@ fire, prepared for the *devil* and his angels, [[Matthew 25.41|Matthew 25:41]].
 
 suffered not the *devils* to speak, [[Mark 1.34|Mark 1:34]] ([[Luke 4.41|Luke 4:41]]).
 
-power to ... cast out *devils*, [[Mark 3.15|Mark 3:15]].
+power to … cast out *devils*, [[Mark 3.15|Mark 3:15]].
 
 the *devil* is gone out of thy daughter, [[Mark 7.29|Mark 7:29]].
 
@@ -69,7 +68,7 @@ He hath a *devil*, and is mad, [[John 10.20|John 10:20]].
 
 *prince* of this world be cast out, [[John 12.31|John 12:31]].
 
-*devil* having now put into the heart of Judas ... to betray him, [[John 13.2|John 13:2]].
+*devil* having now put into the heart of Judas … to betray him, [[John 13.2|John 13:2]].
 
 *prince* of this world cometh, [[John 14.30|John 14:30]].
 
@@ -95,7 +94,7 @@ power of death, that is, the *devil*, [[Hebrews 2.14|Hebrews 2:14]].
 
 Resist the *devil*, and he will flee from you, [[James 4.7|James 4:7]].
 
-*devil*, as a roaring lion ... seeking whom he may devour, [[1 Peter 5.8|1 Peter 5:8]].
+*devil*, as a roaring lion … seeking whom he may devour, [[1 Peter 5.8|1 Peter 5:8]].
 
 committeth sin is of the *devil*, [[1 John 3.8|1 John 3:8]].
 
@@ -113,19 +112,19 @@ that old serpent, called the *Devil*, and Satan, [[Revelation 12.9|Revelation 12
 
 spirits of *devils*, working miracles, [[Revelation 16.14|Revelation 16:14]].
 
-Babylon ... is become the habitation of *devils*, [[Revelation 18.2|Revelation 18:2]].
+Babylon … is become the habitation of *devils*, [[Revelation 18.2|Revelation 18:2]].
 
-laid hold on ... the *Devil* ... and bound him a thousand years, [[Revelation 20.2|Revelation 20:2]].
+laid hold on … the *Devil* … and bound him a thousand years, [[Revelation 20.2|Revelation 20:2]].
 
 *devil* that deceived them was cast into the lake of fire, [[Revelation 20.10|Revelation 20:10]].
 
-people ... afflicted ... with *devils* and unclean spirits, [[1 Nephi 11.31|1 Nephi 11:31]].
+people … afflicted … with *devils* and unclean spirits, [[1 Nephi 11.31|1 Nephi 11:31]].
 
 led according to the will and captivity of the *devil*, [[2 Nephi 1.18|2 Nephi 1:18]].
 
-fallen from heaven ... that old serpent, who is the *devil*, ... father of all lies, [[2 Nephi 2.18|2 Nephi 2:18]].
+fallen from heaven … that old serpent, who is the *devil*, … father of all lies, [[2 Nephi 2.18|2 Nephi 2:18]].
 
-*devil* ... transformeth himself nigh unto an angel of light, [[2 Nephi 9.9|2 Nephi 9:9]].
+*devil* … transformeth himself nigh unto an angel of light, [[2 Nephi 9.9|2 Nephi 9:9]].
 
 they who are filthy are the *devil* and his angels, [[2 Nephi 9.16|2 Nephi 9:16]].
 
@@ -135,13 +134,13 @@ deceived by the power of the *devil*, [[Jacob 7.18|Jacob 7:18]].
 
 evil cometh from the *devil*, [[Omni 1.25|Omni 1:25]].
 
-beware lest ... ye list to obey the *evil spirit*, [[Mosiah 2.32|Mosiah 2:32]].
+beware lest … ye list to obey the *evil spirit*, [[Mosiah 2.32|Mosiah 2:32]].
 
 he shall cast out *devils*, [[Mosiah 3.6|Mosiah 3:6]].
 
-they shall ... say that he hath a *devil*, [[Mosiah 3.9|Mosiah 3:9]].
+they shall … say that he hath a *devil*, [[Mosiah 3.9|Mosiah 3:9]].
 
-*devil* hath all power ... *devil* an enemy to God, [[Mosiah 16.5|Mosiah 16:5]].
+*devil* hath all power … *devil* an enemy to God, [[Mosiah 16.5|Mosiah 16:5]].
 
 *devil* is your shepherd, [[Alma 5.39|Alma 5:39]].
 
@@ -151,7 +150,7 @@ they shall ... say that he hath a *devil*, [[Mosiah 3.9|Mosiah 3:9]].
 
 not be led away by the temptations of the *devil*, [[Alma 34.39|Alma 34:39]].
 
-chose evil works ... *devil* did enter into them, [[Alma 40.13|Alma 40:13]].
+chose evil works … *devil* did enter into them, [[Alma 40.13|Alma 40:13]].
 
 *devil* would never have power, [[Alma 48.17|Alma 48:17]].
 
@@ -159,9 +158,9 @@ when the *devil* shall send forth his mighty winds, [[Helaman 5.12|Helaman 5:12]
 
 *author* of all sin, [[Helaman 6.30|Helaman 6:30]].
 
-secret band, whose author is ... the *evil one*, [[Helaman 8.28|Helaman 8:28]].
+secret band, whose author is … the *evil one*, [[Helaman 8.28|Helaman 8:28]].
 
-*devil* ... is the father of contention, [[3 Nephi 11.29|3 Nephi 11:29]].
+*devil* … is the father of contention, [[3 Nephi 11.29|3 Nephi 11:29]].
 
 *devil* is an enemy unto God, [[Moroni 7.12|Moroni 7:12]].
 
@@ -169,7 +168,7 @@ secret band, whose author is ... the *evil one*, [[Helaman 8.28|Helaman 8:28]].
 
 *devil* has sought to lay a cunning plan, [[D&C 10.12|D&C 10:12]].
 
-Require not miracles ... except casting out *devils*, [[D&C 24.13|D&C 24:13]].
+Require not miracles … except casting out *devils*, [[D&C 24.13|D&C 24:13]].
 
 everlasting fire, prepared for the *devil*, [[D&C 29.28|D&C 29:28]].
 
@@ -183,12 +182,10 @@ to reign with the *devil* and his angels in eternity, [[D&C 76.44|D&C 76:44]].
 
 who shall not be redeemed from the *devil*, [[D&C 76.85|D&C 76:85]].
 
-*wicked one* ... taketh away light and truth, [[D&C 93.39|D&C 93:39]].
+*wicked one* … taketh away light and truth, [[D&C 93.39|D&C 93:39]].
 
 detecting the *devil* when he appeared as an angel of light, [[D&C 128.20|D&C 128:20]].
 
 became Satan, yea, even the *devil*, [[Moses 4.4|Moses 4:4]].
 
 *second* was angry, and kept not his first estate, [[Abraham 3.28|Abraham 3:28]].
-
-*See also* [[Matthew 10.28|Matthew 10:28]]; [[Luke 12.5|Luke 12:5]].

@@ -1,5 +1,7 @@
 # Send Missionaries from Every Nation
 
+Spencer W. Kimball
+
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
@@ -8,7 +10,7 @@ By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 I am seeking for the guidance of the Holy Spirit today. President Kimball, President Tanner, President Romney, President Benson, all of the Brethren of the Twelve, all the other General Authorities, and brothers and sisters, on behalf of the Saints in Japan and Korea, I would like to extend our warm and sincere appreciation for the angelic voices of the Mormon Tabernacle Choir. During their recent trip to Japan and Korea, they were magnificently accepted by both members and nonmembers. Their wholehearted appreciation can be seen in the excellent comments of the reviews in some of our most important newspapers. I would like to share these comments.
 
-One reviewer wrote: “You could find beauty and the profound sound of completeness or perfection” (*Yomiuri Tokyo,* 8 Sept. 1979). Another wrote: “They gave us a taste of the glorious quality and power of music” (*Kobe News,* 10 Sept. 1979). And still another wrote: “The choir found its way to the depths of our hearts, leaving us with the most indescribable sense of beauty and feeling.” (*Kyoto News,* 11 Sept. 1979). The president of Chukyo Television, a major sponsor for the trip and of course he is a nonmember, said that the eyes of the choir members were so beautiful and pure that he and his associates were left deeply touched. As our beloved prophet, President Spencer W. Kimball, has told us before, “As we incline our hearts to our Heavenly Father and his Son Jesus Christ, we hear a symphony of sweet music sung by heavenly voices proclaiming the gospel of peace” (*Ensign,* May 1974, p. 46).
+One reviewer wrote: “You could find beauty and the profound sound of completeness or perfection” (*Yomiuri Tokyo,* 8 Sept. 1979). Another wrote: “They gave us a taste of the glorious quality and power of music” (*Kobe News,* 10 Sept. 1979). And still another wrote: “The choir found its way to the depths of our hearts, leaving us with the most indescribable sense of beauty and feeling.” (*Kyoto News,* 11 Sept. 1979). The president of Chukyo Television, a major sponsor for the trip and of course he is a nonmember, said that the eyes of the choir members were so beautiful and pure that he and his associates were left deeply touched. As our beloved prophet, President Spencer W. Kimball, has told us before, “As we incline our hearts to our Heavenly Father and his Son Jesus Christ, we hear a symphony of sweet music sung by heavenly voices proclaiming the gospel of peace” (*Ensign,* May 1974, p. 46).
 
 Brothers and sisters, today I would also like to express my appreciation to the many missionaries who have come to our land and to the Land of Morning Calm. When I see their wonderful works, my heart turns to their parents who sent them and to those who are giving great sacrifices now that their sons and daughters may go on missions. I met a mother who was driving a taxi in this city as a part-time job so she could send her son on his mission. She spoke very proudly of her son, who was on his mission serving his Father in Heaven.
 
@@ -44,13 +46,8 @@ Oh, how I appreciate my own missionaries who taught me the most glorious message
 
 I bear you my testimony of the divinity of this gospel. I know that God lives and that Jesus Christ is the Savior of the whole world. There is no other name under heaven whereby we might be saved (see [[Acts 4.12|Acts 4:12]]). Only through Jesus of Nazareth can we be saved.
 
-I know that Joseph Smith was a prophet of God and that the Book of Mormon contains the true word of God. This Church is true. I know that President Spencer W. Kimball—a modern Job—is a living prophet of God today. I love him with all my heart and sustain him with all my soul. In the name of our Savior, Jesus Christ, amen.
+I know that Joseph Smith was a prophet of God and that the Book of Mormon contains the true word of God. This Church is true. I know that President Spencer W. Kimball—a modern Job—is a living prophet of God today. I love him with all my heart and sustain him with all my soul. In the name of our Savior, Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Miracles #Missionary_Work

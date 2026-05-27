@@ -1,5 +1,7 @@
 # Small and Simple Things
 
+Gordon B. Hinckley
+
 By Elder Christoffel Golden Jr. - *Of the Seventy*
 
 *Given in the October session of the 2007 General Conference*
@@ -43,7 +45,7 @@ Finally, as to these sacred things, may I add my personal witness and assurance 
 
 
 
-[^1]: See [[3 Nephi 27.13|3 Nephi 27:13–18]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]]; [[D&C 14.7|D&C 14:7]].
+[^1]: See [[3 Nephi 27.13|3 Nephi 27:13–18]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]]; [[D&C 14.7|D&C 14:7]].
 
 [^2]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]; [[Jacob 4.14|Jacob 4:14]]; [[Alma 37.44|Alma 37:44]]; [[D&C 133.57|D&C 133:57–58]][[D&C 133.58|]].
 
@@ -53,20 +55,15 @@ Finally, as to these sacred things, may I add my personal witness and assurance 
 
 [^5]: *History of the Church,* 4:461.
 
-[^6]: [[Luke 11.11|Luke 11:11, 13]][[Luke 11.13|]]; see [[Luke 11.note13a|Joseph Smith Translation in footnote 13a.]]
+[^6]: [[Luke 11.11|Luke 11:11, 13]][[Luke 11.13|]]; see [Joseph Smith Translation in footnote 13a.](https://www.churchofjesuschrist.org/study/scriptures/nt/luke/11?lang=eng&id=note13a#note13a)
 
 [^7]: *Teachings of Gordon B. Hinckley* (1997), 468.
 
 [^8]: In Conference Report, Oct. 1929, 60–61.
 
-[^9]: [[2 Peter 1.4|2 Peter 1:4]]; see also [[3 Nephi 18.1|3 Nephi 18:1–14]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]].
+[^9]: [[2 Peter 1.4|2 Peter 1:4]]; see also [[3 Nephi 18.1|3 Nephi 18:1–14]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]][[3 Nephi 18.12|]][[3 Nephi 18.13|]][[3 Nephi 18.14|]].
 
 [^10]: See [[Matthew 19.3|Matthew 19:3–6]][[Matthew 19.4|]][[Matthew 19.5|]][[Matthew 19.6|]]; [[D&C 131.1|D&C 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]].
 
-[^11]: See [[Moroni 6.1|Moroni 6]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]][[Moroni 6.5|]][[Moroni 6.6|]][[Moroni 6.7|]][[Moroni 6.8|]][[Moroni 6.9|]].
+[^11]: See [[Moroni 6.1|Moroni 6]].
 
-
-
-
-
-#Book_Of_Mormon #Conversion #Testimony

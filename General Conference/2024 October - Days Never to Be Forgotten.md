@@ -1,6 +1,8 @@
 # Days Never to Be Forgotten
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -10,7 +12,7 @@ By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 ## Introduction
 
-​My dear brothers and sisters, the history of The Church of Jesus Christ of Latter-day Saints in this dispensation is resplendent with divine experiences that demonstrate how the Lord has guided His Church. There is one decade in our history, however, that stands strikingly supreme above any other—the decade from 1820 to 1830. Beginning with the Prophet Joseph Smith’s experience in the Sacred Grove in the spring of 1820, when he saw God the Father and His Son, Jesus Christ, and continuing until April 6, 1830, that decade is unlike any other.
+​My dear brothers and sisters, the history of The Church of Jesus Christ of Latter-day Saints in this dispensation is resplendent with divine experiences that demonstrate how the Lord has guided His Church. There is one decade in our history, however, that stands strikingly supreme above any other—the decade from 1820 to 1830. Beginning with the Prophet Joseph Smith’s experience in the Sacred Grove in the spring of 1820, when he saw God the Father and His Son, Jesus Christ, and continuing until April 6, 1830, that decade is unlike any other.
 
 Consider these remarkable events! The young prophet conversed with the angel Moroni, translated the gold plates, and published the Book of Mormon! He was the instrument through whom the Aaronic and Melchizedek Priesthoods were restored,[^1] and then he organized the Church! Oliver Cowdery described that era well: “These were days never to be forgotten.”[^2] Miraculous events have continued to this very day.
 
@@ -20,7 +22,7 @@ May I be so bold as to suggest that this year we have commenced a decade that ma
 
 Let me explain. Between now, 2024, and 2034, we will experience seminal events that will result in extraordinary opportunities to serve, to unite with members and friends, and to introduce The Church of Jesus Christ of Latter-day Saints to more people than ever before.
 
-We just witnessed the power of a truly historic moment as we celebrated with tens of millions the 100th birthday of President Russell M. Nelson.
+We just witnessed the power of a truly historic moment as we celebrated with tens of millions the 100th birthday of President Russell M. Nelson.
 
 Reporting on President Nelson’s birthday, *Newsweek* wrote a headline that read, “World’s Oldest Religious Leader Turns 100.” They then listed the world’s 10 oldest faith leaders—with President Nelson first on a list that included Pope Francis and the Dalai Lama.[^3]
 
@@ -52,7 +54,7 @@ This message of the glad tidings of the gospel of Jesus Christ is the most impor
 
 Now, while this upcoming decade may be filled with days *never to be forgotten* for every member of the Church, this especially can be true for you of the rising generation. You are here on earth now because you were selected to be here now. You have the strength and capacity to be disciples of Christ in an unprecedented way.
 
-President George Q. Cannon taught, “God has reserved spirits for this dispensation who have the courage and determination to face the world and all the powers of the evil one \[and to\] … build up the Zion of our God fearless of all consequences.”[^10]
+President George Q. Cannon taught, “God has reserved spirits for this dispensation who have the courage and determination to face the world and all the powers of the evil one \[and to\] … build up the Zion of our God fearless of all consequences.”[^10]
 
 To that end, I wish to speak to you of the rising generation, to invite you to imagine how exciting this next decade, one never to be forgotten, can be *for you*. I also offer a few simple words of counsel and encouragement that may empower you during this coming decade.
 
@@ -93,9 +95,9 @@ I testify that those who approach the Lord with a sincere heart and real intent,
 
 [^2]: [[Joseph Smith History 1.71|Joseph Smith—History 1:71, note]][[Joseph Smith History 1.76|]].
 
-[^3]: See Theo Burman, “World’s Oldest Religious Leader Turns 100,” *Newsweek*, Sept. 9, 2024, newsweek.com.
+[^3]: See Theo Burman, “World’s Oldest Religious Leader Turns 100,” *Newsweek*, Sept. 9, 2024, newsweek.com.
 
-[^4]: Ruth Graham, “The Leader of the Mormon Church Turns 100,” *New York Times*, Sept. 9, 2024, nytimes.com. An Associated Press article quoted a leader at Duke University’s Divinity School as saying, “Age, wisdom and spiritual authority go together” (Angie Hong, in Hannah Schoenbaum and Deepa Bharath, “The Mormon Church’s Oldest-Ever President Has Turned 100,” Sept. 9, 2024, apnews.com).
+[^4]: Ruth Graham, “The Leader of the Mormon Church Turns 100,” *New York Times*, Sept. 9, 2024, nytimes.com. An Associated Press article quoted a leader at Duke University’s Divinity School as saying, “Age, wisdom and spiritual authority go together” (Angie Hong, in Hannah Schoenbaum and Deepa Bharath, “The Mormon Church’s Oldest-Ever President Has Turned 100,” Sept. 9, 2024, apnews.com).
 
 [^5]: [[Isaiah 2.2|Isaiah 2:2]].
 
@@ -103,13 +105,13 @@ I testify that those who approach the Lord with a sincere heart and real intent,
 
 [^7]: See James Strong, *The New Strong’s Exhaustive Concordance of the Bible* (1984), Greek dictionary section, entry 2098.
 
-[^8]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^8]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
-[^9]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=p10#p10), Gospel Library.
+[^9]: *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [1.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=p10#p10), Gospel Library.
 
-[^10]: *Gospel Truth: Discourses and Writings of President George Q. Cannon*, sel. Jerreld L. Newquist (1957), 1:21.
+[^10]: *Gospel Truth: Discourses and Writings of President George Q. Cannon*, sel. Jerreld L. Newquist (1957), 1:21.
 
-[^11]: See *General Handbook*, [1.2](https://churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title4#title4), Gospel Library.
+[^11]: See *General Handbook*, [1.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/1-work-of-salvation-and-exaltation?lang=eng&id=title4#title4), Gospel Library.
 
 [^12]: See Ulisses Soares, “[[2024 April - Covenant Confidence through Jesus Christ.md|Covenant Confidence through Jesus Christ]],” *Liahona*, May 2024, 17–21.
 
@@ -117,14 +119,9 @@ I testify that those who approach the Lord with a sincere heart and real intent,
 
 [^14]: [[Galatians 6.2|Galatians 6:2]].
 
-[^15]: See Jessica Lawrence, “[Finding Joy in Donating Jelly](https://www.thechurchnews.com/members/2023/6/18/23760092/finding-joy-in-donating-jelly-justserve-project),” *Church News*, June 18, 2023, thechurchnews.com.
+[^15]: See Jessica Lawrence, “[Finding Joy in Donating Jelly](https://www.thechurchnews.com/members/2023/6/18/23760092/finding-joy-in-donating-jelly-justserve-project),” *Church News*, June 18, 2023, thechurchnews.com.
 
 [^16]: See [[Matthew 22.37|Matthew 22:37–40]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]].
 
 [^17]: See Melina Myers, “[Scottish and Irish Youth Perform over 4,000 Ordinances in the Preston England Temple](https://www.thechurchnews.com/living-faith/2024/06/13/irish-scottish-youth-ordinances-preston-england-temple),” *Church News*, June 13, 2024, thechurchnews.com.
 
-
-
-
-
-#Church_History #Gospel #Service #Temples #Young_Adults #Youth

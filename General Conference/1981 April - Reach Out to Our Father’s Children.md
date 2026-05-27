@@ -1,6 +1,8 @@
 # Reach Out to Our Father’s Children
 
-By Elder Jack H Goaslind, Jr. - *Of the First Quorum of the Seventy*
+Marion G. Romney
+
+By Elder Jack H Goaslind, Jr. - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -60,7 +62,7 @@ With tears streaming down her face, the mother asked her friend how she could ev
 
 This story concerns a mother’s love for her daughter. But this is only the beginning. We must show such genuine love for all our Father’s children. When we learn to do this, we will be truly godlike. As John wrote, “Beloved, let us love one another: for love is of God; and every one that loveth is born of God and knoweth God.
 
-“He that loveth not knoweth not God; for God is love.” ([[1 John 4.7|1 Jn. 4:7–8]][[1 John 4.8|]].)
+“He that loveth not knoweth not God; for God is love.” ([[1 John 4.7|1 Jn. 4:7–8]][[1 John 4.8|]].)
 
 Jesus Christ, our perfect exemplar, consistently demonstrated his love through acts of compassion, and he understood the most appropriate ways to express love.
 
@@ -70,7 +72,7 @@ He gave of himself to the outcasts of society. A despised leper worshiped the Lo
 
 In one of his most dramatic miracles, Jesus still paid attention to individuals. As he prepared to raise Lazarus from the dead, he saw Mary weeping, and, the record states, “he groaned in the spirit, and was troubled.” And then, “Jesus wept.” ([[John 11.33|John 11:33–35]][[John 11.34|]][[John 11.35|]].) He used this occasion to express a divine testimony of his mission: “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live.” ([[John 11.25|John 11:25]].)
 
-In his visit to the Nephites, the Savior gave this important admonition: “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+In his visit to the Nephites, the Savior gave this important admonition: “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 It is my witness that we can be even as he is. We can demonstrate our love in ways that have eternal benefits both for ourselves and for those we serve.
 
@@ -78,15 +80,10 @@ Let us accept the challenge issued by our prophet two years ago:
 
 “It seems clear to me, indeed, this impression weighs upon me—that the Church is at a point in its growth and maturity when we are at last ready to move forward in a major way. … But the basic decisions needed for us to move forward, as a people, must be made by the individual members of the Church. The major strides which must be made by the Church will follow upon the major strides to be made by us as individuals.
 
-“We have paused on some plateaus long enough. Let us resume our journey forward and upward. Let us quietly put an end to our reluctance to reach out to others—whether in our own families, wards, or neighborhoods.” (Spencer W. Kimball, in Conference Report, Apr. 1979, p. 114.)
+“We have paused on some plateaus long enough. Let us resume our journey forward and upward. Let us quietly put an end to our reluctance to reach out to others—whether in our own families, wards, or neighborhoods.” (Spencer W. Kimball, in Conference Report, Apr. 1979, [[1979 April - Let Us Move Forward and Upward.md|p. 114]].)
 
 Let us decide today that we will reach out in love to our families, our less active or nonmember neighbors, our departed kindred, or anyone who has need of love. I testify that great blessings will come to us as individuals, as a Church, and as a brotherhood of mankind when we learn to live outside ourselves in love, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Love

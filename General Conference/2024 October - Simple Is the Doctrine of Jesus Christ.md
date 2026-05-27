@@ -1,6 +1,8 @@
 # Simple Is the Doctrine of Jesus Christ
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Henry B. Eyring
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -20,7 +22,7 @@ The word of God is the doctrine taught by Jesus Christ and by His prophets. Alma
 
 In the [[D&C 18.1|18th section of the Doctrine and Covenants]][[D&C 18.2|]][[D&C 18.3|]][[D&C 18.4|]][[D&C 18.5|]][[D&C 18.6|]][[D&C 18.7|]][[D&C 18.8|]][[D&C 18.9|]][[D&C 18.10|]][[D&C 18.11|]][[D&C 18.12|]][[D&C 18.13|]][[D&C 18.14|]][[D&C 18.15|]][[D&C 18.16|]][[D&C 18.17|]][[D&C 18.18|]][[D&C 18.19|]][[D&C 18.20|]][[D&C 18.21|]][[D&C 18.22|]][[D&C 18.23|]][[D&C 18.24|]][[D&C 18.25|]][[D&C 18.26|]][[D&C 18.27|]][[D&C 18.28|]][[D&C 18.29|]][[D&C 18.30|]][[D&C 18.31|]][[D&C 18.32|]][[D&C 18.33|]][[D&C 18.34|]][[D&C 18.35|]][[D&C 18.36|]][[D&C 18.37|]][[D&C 18.38|]][[D&C 18.39|]][[D&C 18.40|]][[D&C 18.41|]][[D&C 18.42|]][[D&C 18.43|]][[D&C 18.44|]][[D&C 18.45|]][[D&C 18.46|]][[D&C 18.47|]], the Lord revealed the foundation of His doctrine:
 
-“For, behold, I command all men everywhere to repent. …
+“For, behold, I command all men everywhere to repent. …
 
 “For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of all men, that all men might repent and come unto him.
 
@@ -28,7 +30,7 @@ In the [[D&C 18.1|18th section of the Doctrine and Covenants]][[D&C 18.2|]][[D&C
 
 “And you shall fall down and worship the Father in my name.
 
-“… You must repent and be baptized, in the name of Jesus Christ.”[^3]
+“… You must repent and be baptized, in the name of Jesus Christ.”[^3]
 
 “Ask the Father in my name in faith, believing that you shall receive, and you shall have the Holy Ghost.”[^4]
 
@@ -99,8 +101,3 @@ I bear witness of the sacred work of teaching Heavenly Father’s children the s
 
 [^10]: [[Isaiah 40.31|Isaiah 40:31]].
 
-
-
-
-
-#Church_Doctrine #Family #Jesus_Christ #Teaching

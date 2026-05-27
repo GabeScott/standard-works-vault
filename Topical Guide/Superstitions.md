@@ -1,7 +1,6 @@
 # Superstitions
 
-
-*See also* [[Idolatry, Idol.md|Idolatry]]; [[Sorcery.md|Sorcery]]
+*See also* [[Idolatry.md|Idolatry]]; [[Sorcery.md|Sorcery]]
 
 found *mandrakes* in the field, [[Genesis 30.14|Genesis 30:14]].
 
@@ -25,20 +24,20 @@ seeing vanity, and *divining* lies, [[Ezekiel 22.28|Ezekiel 22:28]].
 
 better than all the *magicians* and astrologers, [[Daniel 1.20|Daniel 1:20]].
 
-cannot the wise men, the *astrologers* ... shew unto the king, [[Daniel 2.27|Daniel 2:27]].
+cannot the wise men, the *astrologers* … shew unto the king, [[Daniel 2.27|Daniel 2:27]].
 
 My people ask counsel at their *stocks*, [[Hosea 4.12|Hosea 4:12]].
 
-Then shall ... *diviners* confounded, [[Micah 3.7|Micah 3:7]].
+Then shall … *diviners* confounded, [[Micah 3.7|Micah 3:7]].
 
-Simon ... used *sorcery*, and bewitched the people, [[Acts 8.9|Acts 8:9]].
+Simon … used *sorcery*, and bewitched the people, [[Acts 8.9|Acts 8:9]].
 
 ye are too *superstitious*, [[Acts 17.22|Acts 17:22]].
 
-questions ... of their own *superstition*, [[Acts 25.19|Acts 25:19]].
+questions … of their own *superstition*, [[Acts 25.19|Acts 25:19]].
 
-Gentiles ... *sacrifice* to devils, [[1 Corinthians 10.20|1 Corinthians 10:20]].
+Gentiles … *sacrifice* to devils, [[1 Corinthians 10.20|1 Corinthians 10:20]].
 
 cut off *witchcrafts* out of thy land, [[3 Nephi 21.16|3 Nephi 21:16]].
 
-things ... written from that *stone* are not of me, [[D&C 28.11|D&C 28:11]].
+things … written from that *stone* are not of me, [[D&C 28.11|D&C 28:11]].

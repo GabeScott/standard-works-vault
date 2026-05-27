@@ -1,5 +1,7 @@
 # The Eternal Family
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -26,7 +28,7 @@ In this latter day the promise of eternal families was restored in 1829 when the
 
 “Behold, the time has fully come, which was spoken of by the mouth of Malachi— …
 
-“… The keys of this dispensation are committed into your hands” ([[D&C 110.13|D&C 110:13–14, 16]][[D&C 110.14|]][[D&C 110.16|]]).
+“… The keys of this dispensation are committed into your hands” ([[D&C 110.13|D&C 110:13–14, 16]][[D&C 110.14|]][[D&C 110.16|]]).
 
 With the restoration of these keys and priesthood authority comes the opportunity for all who are worthy to receive the blessings of eternal families. “Yea the hearts of thousands and tens of thousands shall greatly rejoice in consequence of the blessings which shall be poured out, and the endowment with which my servants have been endowed in this house” ([[D&C 110.9|D&C 110:9]]).
 
@@ -36,7 +38,7 @@ What is the promise of these sealings which are performed in the temples? The Lo
 
 As taught in this scripture, an eternal bond doesn’t just happen as a result of sealing covenants we make in the temple. How we conduct ourselves in this life will determine what we will be in all the eternities to come. To receive the blessings of the sealing that our Heavenly Father has given to us, we have to keep the commandments and conduct ourselves in such a way that our families will want to live with us in the eternities. The family relationships we have here on this earth are important, but they are much more important for their effect on our families for generations in mortality and throughout all eternity.
 
-By divine commandment, spouses are required to love each other above all others. The Lord clearly declares, “Thou shalt love thy wife with all thy heart, and shalt cleave unto her and none else” ([[D&C 42.22|D&C 42:22]]). The proclamation states: “By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families \[see [[D&C 83.2|D&C 83:2–4]][[D&C 83.3|]][[D&C 83.4|]]; [[1 Timothy 5.8|1 Tim. 5:8]]\]. \[By divine design,\] mothers are primarily responsible for the nurture of their children.” By divine design, husband and wife are equal partners in their marriage and parental responsibilities. By direct commandment of God, “parents have a sacred duty … to teach \[their children\] *to love and serve one another, to observe the commandments of God and to be law-abiding citizens* \[in the countries where they reside\]” (*Ensign,* Nov. 1995, 102; emphasis added; see [[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]]; [[D&C 68.25|D&C 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]]).
+By divine commandment, spouses are required to love each other above all others. The Lord clearly declares, “Thou shalt love thy wife with all thy heart, and shalt cleave unto her and none else” ([[D&C 42.22|D&C 42:22]]). The proclamation states: “By divine design, fathers are to preside over their families in love and righteousness and are responsible to provide the necessities of life and protection for their families \[see [[D&C 83.2|D&C 83:2–4]][[D&C 83.3|]][[D&C 83.4|]]; [[1 Timothy 5.8|1 Tim. 5:8]]\]. \[By divine design,\] mothers are primarily responsible for the nurture of their children.” By divine design, husband and wife are equal partners in their marriage and parental responsibilities. By direct commandment of God, “parents have a sacred duty … to teach \[their children\] *to love and serve one another, to observe the commandments of God and to be law-abiding citizens* \[in the countries where they reside\]” (*Ensign,* Nov. 1995, 102; emphasis added; see [[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]]; [[D&C 68.25|D&C 68:25–28]][[D&C 68.26|]][[D&C 68.27|]][[D&C 68.28|]]).
 
 Because of the importance of the family to the eternal plan of happiness, Satan makes a major effort to destroy the sanctity of the family, demean the importance of the role of men and women, encourage moral uncleanliness and violations of the sacred law of chastity, and to discourage parents from placing the bearing and rearing of children as one of their highest priorities.
 
@@ -73,8 +75,3 @@ God lives. Jesus is the Christ. Through His Atonement we will all have the oppor
 
 
 
-
-
-
-
-#Atonement #Covenants #Family #Fatherhood #God_The_Father #Hope #Motherhood #Obedience #Parenthood #Plan_Of_Salvation #Temples

@@ -1,6 +1,8 @@
 # The Culture of Christ
 
-By Elder William K. Jackson - *Of the Seventy*
+Russell M. Nelson
+
+By Elder William K. Jackson - *Of the Seventy*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -63,12 +65,7 @@ We can, indeed, all cherish the best of our individual earthly cultures and stil
 
 [^1]: [[Moses 1.39|Moses 1:39]].
 
-[^2]: J. E. McCulloch, in *Teachings of Presidents of the Church: David O. McKay* (2011), 154.
+[^2]: J. E. McCulloch, in *[Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-16?lang=eng)* (2011), 154.
 
-[^3]: See *Teachings of Presidents of the Church: George Albert Smith* (2011), xxviii; Gordon B. Hinckley, “[[2002 October - The Marvelous Foundation of Our Faith.md|The Marvelous Foundation of Our Faith]],” *Ensign* or *Liahona,* Nov. 2002, 78–81.
+[^3]: See *[Teachings of Presidents of the Church: George Albert Smith](https://www.churchofjesuschrist.org/study/manual/teachings-george-albert-smith/life-and-ministry?lang=eng)* (2011), xxviii; Gordon B. Hinckley, “[[2002 October - The Marvelous Foundation of Our Faith.md|The Marvelous Foundation of Our Faith]],” *Ensign* or *Liahona,* Nov. 2002, 78–81.
 
-
-
-
-
-#Church_Membership #Conversion #Jesus_Christ

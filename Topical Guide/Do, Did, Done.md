@@ -1,6 +1,5 @@
 # Do, Did, Done
 
-
 *See also* [[Accomplished.md|Accomplished]]; [[Fulfill.md|Fulfill]]; [[Labor.md|Labor]]; [[Perform.md|Perform]]; [[Work.md|Work]]; [[Wrought.md|Wrought]]
 
 If thou *doest* well, shalt thou not be accepted, [[Genesis 4.7|Genesis 4:7]].
@@ -37,7 +36,7 @@ whatsoever ye would that men should *do* to you, *do* ye even so to them, [[Matt
 
 he that *doeth* the will of my Father, [[Matthew 7.21|Matthew 7:21]].
 
-heareth these sayings ... and *doeth* them, [[Matthew 7.24|Matthew 7:24]] ([[Luke 6.47|Luke 6:47]]).
+heareth these sayings … and *doeth* them, [[Matthew 7.24|Matthew 7:24]] ([[Luke 6.47|Luke 6:47]]).
 
 what good thing shall I *do*, [[Matthew 19.16|Matthew 19:16]] ([[Mark 10.17|Mark 10:17]]; [[Luke 18.18|Luke 18:18]]).
 
@@ -49,9 +48,9 @@ whatsoever they bid you observe, that observe and *do*, [[Matthew 23.3|Matthew 2
 
 these ought ye to have *done*, [[Matthew 23.23|Matthew 23:23]] ([[Luke 11.42|Luke 11:42]]).
 
-Blessed is that servant, whom his lord ... shall find so *doing*, [[Matthew 24.46|Matthew 24:46]] ([[Luke 12.43|Luke 12:43]]).
+Blessed is that servant, whom his lord … shall find so *doing*, [[Matthew 24.46|Matthew 24:46]] ([[Luke 12.43|Luke 12:43]]).
 
-as ye have *done* it unto one of the least ... ye have *done* it unto me, [[Matthew 25.40|Matthew 25:40]] ([[D&C 42.38|D&C 42:38]]).
+as ye have *done* it unto one of the least … ye have *done* it unto me, [[Matthew 25.40|Matthew 25:40]] ([[D&C 42.38|D&C 42:38]]).
 
 Is it lawful to *do* good on the sabbath days, or to *do* evil, [[Mark 3.4|Mark 3:4]] ([[Luke 6.9|Luke 6:9]]).
 
@@ -85,7 +84,7 @@ all that Jesus began both to *do* and teach, [[Acts 1.1|Acts 1:1]].
 
 Men and brethren, what shall we *do*, [[Acts 2.37|Acts 2:37]].
 
-Jesus ... went about *doing* good, [[Acts 10.38|Acts 10:38]].
+Jesus … went about *doing* good, [[Acts 10.38|Acts 10:38]].
 
 what must I *do* to be saved, [[Acts 16.30|Acts 16:30]].
 
@@ -115,7 +114,7 @@ I will go and *do* the things which the Lord hath commanded, [[1 Nephi 3.7|1 Nep
 
 by grace that we are saved, after all we can *do*, [[2 Nephi 25.23|2 Nephi 25:23]].
 
-*do* not any of these things ... prayer is vain, [[Alma 34.28|Alma 34:28]].
+*do* not any of these things … prayer is vain, [[Alma 34.28|Alma 34:28]].
 
 this shall ye always observe to *do*, [[3 Nephi 18.6|3 Nephi 18:6]].
 
@@ -129,8 +128,8 @@ Lord, am bound when ye *do* what I say, [[D&C 82.10|D&C 82:10]].
 
 observe to *do* whatsoever I command you, [[D&C 98.22|D&C 98:22]].
 
-let us cheerfully *do* all things ... in our power, [[D&C 123.17|D&C 123:17]].
+let us cheerfully *do* all things … in our power, [[D&C 123.17|D&C 123:17]].
 
-nothing that the Lord ... take in his heart to *do* but what he will *do* it, [[Abraham 3.17|Abraham 3:17]].
+nothing that the Lord … take in his heart to *do* but what he will *do* it, [[Abraham 3.17|Abraham 3:17]].
 
-see if they will *do* all things whatsoever the Lord ... command them, [[Abraham 3.25|Abraham 3:25]].
+see if they will *do* all things whatsoever the Lord … command them, [[Abraham 3.25|Abraham 3:25]].

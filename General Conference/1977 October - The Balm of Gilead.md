@@ -1,6 +1,8 @@
 # The Balm of Gilead
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -132,7 +134,7 @@ You may need a transfusion of spiritual strength to be able to do this. Then jus
 One of our sacred hymns carries this message:
 
 >Ere you left your room this morning,
->Did you think to pray? …
+>Did you think to pray? …
 >When your soul was full of sorrow,
 >Balm of Gilead did you borrow
 >At the gates of day?
@@ -183,8 +185,3 @@ I bear witness of Him who is the Great Comforter and as one authorized to bear t
 
 
 
-
-
-
-
-#Evil #Forgiveness #Healing

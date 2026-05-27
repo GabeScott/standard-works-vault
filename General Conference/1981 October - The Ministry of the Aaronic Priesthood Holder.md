@@ -1,6 +1,8 @@
 # The Ministry of the Aaronic Priesthood Holder
 
-By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
+Gordon B. Hinckley
+
+By Bishop H. Burke Peterson - *First Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -71,8 +73,3 @@ May the Lord bless all of you young men as you develop *your* personal relations
 
 
 
-
-
-
-
-#Miracles #Priesthood

@@ -1,6 +1,5 @@
 # Esteem
 
-
 *See also* [[Love.md|Love]]; [[Regard.md|Regard]]; [[Respect.md|Respect]]
 
 lightly *esteemed* the Rock of his salvation, [[Deuteronomy 32.15|Deuteronomy 32:15]].
@@ -29,4 +28,4 @@ let each *esteem* other better than themselves, [[Philippians 2.3|Philippians 2:
 
 Lord *esteemeth* all flesh in one, [[1 Nephi 17.35|1 Nephi 17:35]].
 
-every man should *esteem* his neighbor as himself, [[Mosiah 27.4|Mosiah 27:4]] ([[D&C 38.24|D&C 38:24-25]][[D&C 38.25|]]).
+every man should *esteem* his neighbor as himself, [[Mosiah 27.4|Mosiah 27:4]].

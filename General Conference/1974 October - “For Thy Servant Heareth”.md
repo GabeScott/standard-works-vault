@@ -1,6 +1,8 @@
 # “For Thy Servant Heareth”
 
-By President S. Dilworth Young - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -14,13 +16,13 @@ We all know the story of Joseph, of his enslavement, of his prophetic gift of in
 
 I have often wondered how he felt crouching in that pit and looking fearfully up at the leering faces of his blood brothers and at other strange faces as the caravan leaders bargained for his body. This peculiar circumstance, cruel and harsh, turned out to be for his good because he trusted in the Lord. That trust, through his obedience, has benefited all mankind through all generations. To Joseph went the promise of the birthright—and the promised land.
 
-Perhaps you with me will transport yourselves back 1,000 years before Christ to that ancient land of Israel and enter the room in the temple where Samuel, a youth, lay sleeping. You will not hear the voice calling him, but you can see him arise and go to Eli, asking if he called. You will notice the impatience of Eli until he finally realized who was speaking to Samuel. After the third awakening, you will hear Eli say, “Go, lie down: and it shall be, if he call thee, that thou shalt say, Speak, Lord; for thy servant heareth.” ([[1 Samuel 3.9|1 Sam. 3:9]].) Remember, you are living ten hundred years before Christ when people knew that the Lord spoke intelligible words of instruction and reproof, as well as words of acceptance and praise. Of course, you will say to yourselves, “But Samuel was chosen to be a prophet.”
+Perhaps you with me will transport yourselves back 1,000 years before Christ to that ancient land of Israel and enter the room in the temple where Samuel, a youth, lay sleeping. You will not hear the voice calling him, but you can see him arise and go to Eli, asking if he called. You will notice the impatience of Eli until he finally realized who was speaking to Samuel. After the third awakening, you will hear Eli say, “Go, lie down: and it shall be, if he call thee, that thou shalt say, Speak, Lord; for thy servant heareth.” ([[1 Samuel 3.9|1 Sam. 3:9]].) Remember, you are living ten hundred years before Christ when people knew that the Lord spoke intelligible words of instruction and reproof, as well as words of acceptance and praise. Of course, you will say to yourselves, “But Samuel was chosen to be a prophet.”
 
 As with me, it will thrill you that the Lord takes a pure boy and teaches him the truth before he can be taught what uninspired men conceive to be truth. Perhaps you will remember that the Lord puts into the minds and hearts of his prophets what he wants them to think and say rather than the thoughts of philosophical men. Remember what he said to Isaiah:
 
 “For my thoughts are not your thoughts, neither are your ways my ways, saith the Lord.” ([[Isaiah 55.8|Isa. 55:8]].)
 
-In the case of Samuel, the Lord spoke His thoughts, not men’s thoughts. Samuel heard the voice of the Lord. Would it have surprised you in that day to learn that sometime after hearing the voice of the Lord, Samuel saw the Lord. (See [[1 Samuel 3.21|1 Sam. 3:21]].)
+In the case of Samuel, the Lord spoke His thoughts, not men’s thoughts. Samuel heard the voice of the Lord. Would it have surprised you in that day to learn that sometime after hearing the voice of the Lord, Samuel saw the Lord. (See [[1 Samuel 3.21|1 Sam. 3:21]].)
 
 What do you suppose would have happened to Samuel if he had declared in the streets that he had heard the Lord without having the protection of the sanctuary and of Eli? What would Eli himself have said to Samuel if he had come as an unknown lad and knocked on his door and announced that he had a message for Eli?
 
@@ -56,13 +58,8 @@ Through him the Lord provided a miraculous witness which is a sure sign to anyon
 
 We invite all people in the earth to put this witness to the test. Obtain a copy of the Book of Mormon; read it with a desire to know of its truth. If you do as one of the prophets said—ponder it in your heart, and then ask the Lord if it be true—the Lord will “manifest the truth of it” unto you by the power of the Holy Ghost. If you make that test, you will know that Joseph, the modern prophet, bearing a common surname—Smith—was indeed the prophet he proved to be. If you know that truth by the power of the Holy Ghost, you will not rest until you have come into the kingdom of God and into the rest of the great Jehovah, even the Lord Jesus Christ, and have joined with the Latter-day Saints.
 
-The power and the authority of this kingdom on earth rest upon President Spencer W. Kimball. I bear you this, my solemn witness—Joseph Smith was a prophet. President Kimball is a prophet—in the name of Jesus Christ. Amen.
+The power and the authority of this kingdom on earth rest upon President Spencer W. Kimball. I bear you this, my solemn witness—Joseph Smith was a prophet. President Kimball is a prophet—in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Restoration #Youth

@@ -1,6 +1,8 @@
 # The Power to Make a Difference
 
-By Elder Richard G. Scott - *Of the Presidency of the First Quorum of the Seventy*
+Gordon B. Hinckley
+
+By Elder Richard G. Scott - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -30,7 +32,7 @@ Two individuals trapped in the cross fire of intense feelings rarely can think c
 
 Three things are required to mend broken lines of communication and to heal hearts that once expressed deep feelings of pure love, respect, and trust.
 
-First, an understanding of the principles which bring happiness in marriage. They have been eloquently stated by President Spencer W. Kimball in many of his messages. Two noteworthy examples are printed in his book entitled *Marriage* (Salt Lake City: Deseret Book Co., 1978).
+First, an understanding of the principles which bring happiness in marriage. They have been eloquently stated by President Spencer W. Kimball in many of his messages. Two noteworthy examples are printed in his book entitled *Marriage* (Salt Lake City: Deseret Book Co., 1978).
 
 Second, a willingness to live worthily and to strive diligently to obey the commandments of God. Such a course allows our hearts and minds to be touched by divine guidance, and our efforts to be magnified by power from on high.
 
@@ -59,8 +61,3 @@ Begin now with your best effort. Reach out to another. You will feel the power o
 
 
 
-
-
-
-
-#Service

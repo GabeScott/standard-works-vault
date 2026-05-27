@@ -1,5 +1,7 @@
 # Help Them on Their Way Home
 
+Thomas S. Monson
+
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2010 General Conference*
@@ -26,7 +28,7 @@ So you and I can expect a nearly continuous opportunity to help travelers among 
 
 “Because strait is the gate, and narrow is the way, which leadeth unto life, and few there be that find it.”[^1]
 
-Foreseeing the needs of His children, a loving Heavenly Father placed directions and rescuers along their way. He sent His Son, Jesus Christ, to make safe passage possible and visible. He called as His prophet in these times President Thomas S. Monson. Since his youth President Monson has taught not only how to stay on the path but also how to rescue those who have been led away into sorrow.
+Foreseeing the needs of His children, a loving Heavenly Father placed directions and rescuers along their way. He sent His Son, Jesus Christ, to make safe passage possible and visible. He called as His prophet in these times President Thomas S. Monson. Since his youth President Monson has taught not only how to stay on the path but also how to rescue those who have been led away into sorrow.
 
 Heavenly Father has assigned us to a great variety of stations to strengthen and, when needed, to lead travelers to safety. Our most important and powerful assignments are in the family. They are important because the family has the opportunity at the start of a child’s life to put feet firmly on the path home. Parents, brothers and sisters, grandparents, aunts and uncles are made more powerful guides and rescuers by the bonds of love that are the very nature of a family.
 
@@ -80,18 +82,16 @@ The example they most need from us is to do what they must do. We need to pray f
 
 And we need to exemplify in our own lives the steady and prolonged faithfulness that the Lord expects of them. As we do, we will help them feel from the Spirit an assurance that if they will persist, they will hear the words from a loving Savior and Heavenly Father: “Well done, thou good and faithful servant: thou hast been faithful over a few things, I will make thee ruler over many things: enter thou into the joy of thy lord.”[^4] And we who help them along the way will hear those words with joy.
 
-I testify that the Lord loves you and every child of God. This is His kingdom, restored with priesthood keys through the Prophet Joseph Smith. Thomas S. Monson is the Lord’s prophet today. I promise each of you, as you follow inspired direction in this, the true Church of Jesus Christ, that our youth and we who help and love them can be delivered safely to our home with Heavenly Father and the Savior to live in families and in joy forever. In the name of Jesus Christ, amen.
+I testify that the Lord loves you and every child of God. This is His kingdom, restored with priesthood keys through the Prophet Joseph Smith. Thomas S. Monson is the Lord’s prophet today. I promise each of you, as you follow inspired direction in this, the true Church of Jesus Christ, that our youth and we who help and love them can be delivered safely to our home with Heavenly Father and the Savior to live in families and in joy forever. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[3 Nephi 14.13|3 Nephi 14:13–14]][[3 Nephi 14.14|]].
+[^1]: [[3 Nephi 14.13|3 Nephi 14:13–14]][[3 Nephi 14.14|]].
 
-[^2]: Thomas S. Monson, in Conference Report, Oct. 2008, 65; or *Ensign,* Nov. 2008, 67.
+[^2]: Thomas S. Monson, in Conference Report, Oct. 2008, [[2008 October - To Learn, to Do, to Be.md|65]]; or *Ensign,* Nov. 2008, 67.
 
 [^3]: *Young Women Personal Progress* (booklet, 2009), 6.
 
+[^4]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-#Activation #Children #Priesthood #Teaching #Young_Women

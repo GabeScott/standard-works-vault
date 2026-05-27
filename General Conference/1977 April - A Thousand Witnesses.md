@@ -1,6 +1,8 @@
 # A Thousand Witnesses
 
-By Elder James M. Paramore - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder James M. Paramore - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -31,8 +33,3 @@ I want you to know that my life has been and will be dedicated to the things of 
 
 
 
-
-
-
-
-#Testimony

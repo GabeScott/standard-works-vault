@@ -1,11 +1,10 @@
 # Consume
 
-
 *See also* [[Devour.md|Devour]]
 
 burned with fire, and the bush was not *consumed*, [[Exodus 3.2|Exodus 3:2]].
 
-wrath ... that I may *consume* them, [[Exodus 32.10|Exodus 32:10]].
+wrath … that I may *consume* them, [[Exodus 32.10|Exodus 32:10]].
 
 God is a *consuming* fire, [[Deuteronomy 4.24|Deuteronomy 4:24]] ([[Hebrews 12.29|Hebrews 12:29]]).
 
@@ -39,4 +38,4 @@ sign that they may *consume* it upon their lusts, [[D&C 46.9|D&C 46:9]].
 
 *consume* the wicked with unquenchable fire, [[D&C 63.34|D&C 63:34]].
 
-every corruptible thing ... shall be *consumed*, [[D&C 101.24|D&C 101:24]].
+every corruptible thing … shall be *consumed*, [[D&C 101.24|D&C 101:24]].

@@ -1,6 +1,8 @@
 # Lasting Discipleship
 
-By President Steven J. Lund - *Young Men General President*
+Dallin H. Oaks
+
+By President Steven J. Lund - *Young Men General President*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -18,7 +20,7 @@ Like brightly hulled steel ships at sea, we live in a spiritually corrosive envi
 
 ## What Kinds of Things Can We Do to Maintain the Fire of Our Convictions?
 
-Experiences like FSY conferences, camps, sacrament meetings, and missions can help to burnish our testimonies, taking us through arcs of growth and spiritual discovery to places of relative peace. But what must we do to stay there and continue to “press forward with a steadfastness in Christ” ([[2 Nephi 31.20|2 Nephi 31:20]]) rather than slipping backward? We must continue to do those things that brought us there in the first place, like praying often, drenching ourselves in scripture, and serving sincerely.
+Experiences like FSY conferences, camps, sacrament meetings, and missions can help to burnish our testimonies, taking us through arcs of growth and spiritual discovery to places of relative peace. But what must we do to stay there and continue to “press forward with a steadfastness in Christ” ([[2 Nephi 31.20|2 Nephi 31:20]]) rather than slipping backward? We must continue to do those things that brought us there in the first place, like praying often, drenching ourselves in scripture, and serving sincerely.
 
 For some of us, it may require an exercise of trusting in the Lord even to attend sacrament meeting. But once we are there, the healing influence of the Lord’s sacrament, infusions of gospel principles, and the nurture of the Church community can send us home on higher ground.
 
@@ -38,9 +40,9 @@ But then she continued: “When you drop off those Tuesday-morning girls, they w
 
 On that Saturday, it was just as she predicted. As I was loading tents, I heard my wife’s voice in the little woodsy amphitheater where the girls had gathered before heading for home. I heard her say, “Oh, there you are. We’ve been watching for you all week. Our Saturday girls.”
 
-The stalwart youth of Zion are voyaging through stunning times. Finding joy *in* this world of prophesied disruption without becoming part *of* that world, with its blind spot toward holiness, is their particular charge. About a hundred years ago, G. K. Chesterton spoke almost as though he saw this quest as being home centered and Church supported when he said, “We have to feel the universe at once as an ogre’s castle, to be stormed, and yet as our own cottage, to which we can return at evening” (*Orthodoxy* \[1909\], 130).
+The stalwart youth of Zion are voyaging through stunning times. Finding joy *in* this world of prophesied disruption without becoming part *of* that world, with its blind spot toward holiness, is their particular charge. About a hundred years ago, G. K. Chesterton spoke almost as though he saw this quest as being home centered and Church supported when he said, “We have to feel the universe at once as an ogre’s castle, to be stormed, and yet as our own cottage, to which we can return at evening” (*Orthodoxy* \[1909\], 130).
 
-Thankfully, they do not have to go out into battle alone. They have each other. And they have you. And they follow a living prophet, President Russell M. Nelson, who leads with the knowing optimism of a seer in proclaiming that the great endeavor of these times—the gathering of Israel—will be both grand and majestic (see “” \[worldwide youth devotional, June 3, 2018\], HopeofIsrael.ChurchofJesusChrist.org).
+Thankfully, they do not have to go out into battle alone. They have each other. And they have you. And they follow a living prophet, President Russell M. Nelson, who leads with the knowing optimism of a seer in proclaiming that the great endeavor of these times—the gathering of Israel—will be both grand and majestic (see “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” \[worldwide youth devotional, June 3, 2018\], HopeofIsrael.ChurchofJesusChrist.org).
 
 This summer, my wife, Kalleen, and I were changing planes in Amsterdam where, many years earlier, I was a new missionary. After I had spent months struggling to learn Dutch, our KLM flight was landing, and the captain made an incoherent announcement over the PA system. After a moment of silence, my companion mumbled, “I think that was Dutch.” We glanced up, reading each other’s thoughts: All was lost.
 
@@ -57,8 +59,3 @@ I know that through trusting in the Lord Jesus Christ and His covenant path, we 
 
 
 
-
-
-
-
-#Conversion #Discipleship #Endurance #Faith #Youth

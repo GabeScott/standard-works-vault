@@ -1,6 +1,8 @@
 # What Is True?
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Dallin H. Oaks
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -35,13 +37,11 @@ I love you, my dear brothers and sisters. I pray that this conference will provi
 
 [^1]: Known as For the Strength of Youth, or FSY, conferences.
 
-[^2]: The guidebook *For the Strength of Youth* has recently been revised.
+[^2]: The guidebook *[For the Strength of Youth](https://www.churchofjesuschrist.org/study/manual/for-the-strength-of-youth/000-title-page?lang=eng)* has recently been revised.
 
 [^3]: See [[Matthew 18.6|Matthew 18:6]]; [[D&C 121.34|Doctrine and Covenants 121:34–37]][[D&C 121.35|]][[D&C 121.36|]][[D&C 121.37|]].
 
 [^4]: See [abuse.ChurchofJesusChrist.org](https://www.churchofjesuschrist.org/get-help/abuse).
 
+[^5]: [[D&C 123.12|Doctrine and Covenants 123:12]].
 
-
-
-#Abuse #Truth

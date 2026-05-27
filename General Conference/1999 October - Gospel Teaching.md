@@ -1,5 +1,7 @@
 # Gospel Teaching
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -48,7 +50,7 @@ The *first* is love. It has two manifestations. When we are called to teach, we 
 
 *Second,* a gospel teacher, like the Master we serve, will concentrate entirely on those being taught. His or her total concentration will be on the needs of the sheep—the good of the students. A gospel teacher does not focus on himself or herself. One who understands that principle will not look upon his or her calling as “giving or presenting a lesson,” because that definition views teaching from the standpoint of the teacher, not the student.
 
-Focusing on the needs of the students, a gospel teacher will never obscure their view of the Master by standing in the way or by shadowing the lesson with self-promotion or self-interest. This means that a gospel teacher must never indulge in priestcrafts, which are “that men preach and set themselves up for a light unto the world, that they may get gain and praise of the world” ([[2 Nephi 26.29|2 Ne. 26:29]]). A gospel teacher does not preach “to become popular” ([[Alma 1.3|Alma 1:3]]) or “for the sake of riches and honor” ([[Alma 1.16|Alma 1:16]]). He or she follows the marvelous Book of Mormon example in which “the preacher was no better than the hearer, neither was the teacher any better than the learner” ([[Alma 1.26|Alma 1:26]]). Both will always look to the Master.
+Focusing on the needs of the students, a gospel teacher will never obscure their view of the Master by standing in the way or by shadowing the lesson with self-promotion or self-interest. This means that a gospel teacher must never indulge in priestcrafts, which are “that men preach and set themselves up for a light unto the world, that they may get gain and praise of the world” ([[2 Nephi 26.29|2 Ne. 26:29]]). A gospel teacher does not preach “to become popular” ([[Alma 1.3|Alma 1:3]]) or “for the sake of riches and honor” ([[Alma 1.16|Alma 1:16]]). He or she follows the marvelous Book of Mormon example in which “the preacher was no better than the hearer, neither was the teacher any better than the learner” ([[Alma 1.26|Alma 1:26]]). Both will always look to the Master.
 
 *Third,* a superior teacher of the gospel will teach from the prescribed course material, with greatest emphasis on teaching the doctrine and principles and covenants of the gospel of Jesus Christ. This is commanded in modern revelation, where the Lord said:
 
@@ -70,9 +72,9 @@ As I have visited in quorums and Relief Societies, I have generally been pleased
 
 The *fifth* fundamental principle of gospel teaching I wish to stress is the Lord’s command, quoted earlier, that gospel teachers should “teach the principles of my gospel … as they shall be directed by the Spirit. … And if ye receive not the Spirit ye shall not teach” ([[D&C 42.12|D&C 42:12–14]][[D&C 42.13|]][[D&C 42.14|]]). It is a gospel teacher’s privilege and duty to seek that level of discipleship where his or her teachings will be directed and endorsed by the Spirit rather than being rigidly selected and prearranged for personal convenience or qualifications. The marvelous principles of “Gospel Teaching and Leadership” in the new *Church Handbook of Instructions* include the following:
 
-“Teachers and class members should seek the Spirit during the lesson. A person may teach profound truths, and class members may engage in stimulating discussions, but unless the Spirit is present, these things will not be powerfully impressed upon the soul. …
+“Teachers and class members should seek the Spirit during the lesson. A person may teach profound truths, and class members may engage in stimulating discussions, but unless the Spirit is present, these things will not be powerfully impressed upon the soul. …
 
-“When the Spirit is present in gospel teaching, ‘the power of the Holy Ghost carrieth \[the message\] unto the hearts of the children of men’ ([[2 Nephi 33.1|2 Ne. 33:1]]).”[^7]
+“When the Spirit is present in gospel teaching, ‘the power of the Holy Ghost carrieth \[the message\] unto the hearts of the children of men’ ([[2 Nephi 33.1|2 Ne. 33:1]]).”[^7]
 
 President Hinckley stated an important corollary to the command to teach by the Spirit when he issued this challenge:
 
@@ -91,7 +93,7 @@ I testify that this is God’s work, and that we are His servants with the sacre
 
 [^1]: Mitch Albom, *Tuesdays with Morrie* (1997), 192.
 
-[^2]: “How to Be a Teacher When Your Role as a Leader Requires You to Teach,” General Authority Priesthood Board Meeting, 5 Feb. 1969; see also Jeffrey R. Holland, in Conference Report, Apr. 1998, 31; or *Ensign,* May 1998, 26.
+[^2]: “How to Be a Teacher When Your Role as a Leader Requires You to Teach,” General Authority Priesthood Board Meeting, 5 Feb. 1969; see also Jeffrey R. Holland, in Conference Report, Apr. 1998, [[1998 April - “A Teacher Come from God”.md|31]]; or *Ensign,* May 1998, 26.
 
 [^3]: David O. McKay, *Gospel Ideals* (1953), 175.
 
@@ -105,12 +107,7 @@ I testify that this is God’s work, and that we are His servants with the sacre
 
 [^8]: *Teachings of Gordon B. Hinckley* (1997), 619–20.
 
-[^9]: See Henry B. Eyring, in Conference Report, Apr. 1999, 94–95; or *Ensign,* May 1999, 73.
+[^9]: See Henry B. Eyring, in Conference Report, Apr. 1999, [[1999 April - The Power of Teaching Doctrine.md|94–95]]; or *Ensign,* May 1999, 73.
 
 [^10]: *The Teachings of Harold B. Lee,* ed. Clyde J. Williams (1996), 461.
 
-
-
-
-
-#Curriculum #Faith #False_Doctrines #Family #Holy_Ghost #Home #Leadership #Love #Parenthood #Success

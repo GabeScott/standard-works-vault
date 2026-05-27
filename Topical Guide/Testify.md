@@ -1,7 +1,6 @@
 # Testify
 
-
-*See also* [[Witness, Witnesses.md|Witness]]
+*See also* [[Witness.md|Witness]]
 
 one witness shall not *testify* against any person to cause him to die, [[Numbers 35.30|Numbers 35:30]].
 
@@ -11,7 +10,7 @@ Set your hearts unto all the words which I *testify*, [[Deuteronomy 32.46|Deuter
 
 Lord *testified* against Israel, [[2 Kings 17.13|2 Kings 17:13]].
 
-prophets ... *testified* against them, [[2 Chronicles 24.19|2 Chronicles 24:19]].
+prophets … *testified* against them, [[2 Chronicles 24.19|2 Chronicles 24:19]].
 
 slew thy prophets which *testified* against them, [[Nehemiah 9.26|Nehemiah 9:26]].
 
@@ -27,17 +26,17 @@ know, and *testify* that we have seen, [[John 3.11|John 3:11]].
 
 what he hath seen and heard, that he *testifieth*, [[John 3.32|John 3:32]].
 
-scriptures ... are they which *testify* of me, [[John 5.39|John 5:39]].
+scriptures … are they which *testify* of me, [[John 5.39|John 5:39]].
 
-Spirit of truth ... he shall *testify* of me, [[John 15.26|John 15:26]].
+Spirit of truth … he shall *testify* of me, [[John 15.26|John 15:26]].
 
 disciple which *testifieth* of these things, [[John 21.24|John 21:24]].
 
 *testified* and preached the word of the Lord, [[Acts 8.25|Acts 8:25]].
 
-he commanded us to preach ... and to *testify*, [[Acts 10.42|Acts 10:42]].
+he commanded us to preach … and to *testify*, [[Acts 10.42|Acts 10:42]].
 
-Paul ... *testified* to the Jews that Jesus was Christ, [[Acts 18.5|Acts 18:5]].
+Paul … *testified* to the Jews that Jesus was Christ, [[Acts 18.5|Acts 18:5]].
 
 *Testifying* both to the Jews, and also to the Greeks, [[Acts 20.21|Acts 20:21]].
 
@@ -51,7 +50,7 @@ gave himself a ransom for all, to be *testified* in due time, [[1 Timothy 2.6|1 
 
 he *testifieth*, Thou art a priest for ever, [[Hebrews 7.17|Hebrews 7:17]].
 
-Spirit of Christ ... *testified* beforehand the sufferings of Christ, [[1 Peter 1.11|1 Peter 1:11]].
+Spirit of Christ … *testified* beforehand the sufferings of Christ, [[1 Peter 1.11|1 Peter 1:11]].
 
 *testifying* that this is the true grace, [[1 Peter 5.12|1 Peter 5:12]].
 
@@ -63,15 +62,15 @@ prophets, how great a number had *testified* of these things, [[1 Nephi 10.5|1 N
 
 Joseph truly *testified*, [[2 Nephi 3.6|2 Nephi 3:6]].
 
-three witnesses ... shall *testify* to the truth, [[2 Nephi 27.12|2 Nephi 27:12]].
+three witnesses … shall *testify* to the truth, [[2 Nephi 27.12|2 Nephi 27:12]].
 
 they truly *testify* of Christ, [[Jacob 7.11|Jacob 7:11]].
 
-I *testify* unto you that I do know that these things ... are true, [[Alma 5.45|Alma 5:45]].
+I *testify* unto you that I do know that these things … are true, [[Alma 5.45|Alma 5:45]].
 
 according to the Spirit which *testifieth* in me, [[Alma 7.26|Alma 7:26]].
 
-angry ... because they had *testified* so plainly, [[Alma 14.3|Alma 14:3]].
+angry … because they had *testified* so plainly, [[Alma 14.3|Alma 14:3]].
 
 *testify* unto you of myself that these things are true, [[Alma 34.8|Alma 34:8]].
 
@@ -85,11 +84,11 @@ seen them with your eyes, you shall *testify* of them, [[D&C 17.3|D&C 17:3]].
 
 *testify* that you have heard my voice, [[D&C 18.36|D&C 18:36]].
 
-prophets ... who truly *testified* of him in all things, [[D&C 20.26|D&C 20:26]].
+prophets … who truly *testified* of him in all things, [[D&C 20.26|D&C 20:26]].
 
 *testify* before you in all lowliness of heart, [[D&C 42.74|D&C 42:74]].
 
-that which the Spirit *testifies* unto you ... ye should do, [[D&C 46.7|D&C 46:7]].
+that which the Spirit *testifies* unto you … ye should do, [[D&C 46.7|D&C 46:7]].
 
 I sent you out to *testify* and warn, [[D&C 88.81|D&C 88:81]].
 
@@ -97,4 +96,4 @@ written in the book of Enoch, and are to be *testified* of, [[D&C 107.57|D&C 107
 
 *testifying* that he [Elijah] should be sent, [[D&C 110.14|D&C 110:14]].
 
-Enoch ... *testifying* against their works, [[Moses 6.37|Moses 6:37]].
+Enoch … *testifying* against their works, [[Moses 6.37|Moses 6:37]].

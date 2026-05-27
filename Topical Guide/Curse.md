@@ -1,9 +1,8 @@
 # Curse
 
-
 thou art *cursed* above all cattle, [[Genesis 3.14|Genesis 3:14]].
 
-*cursed* is the ground for thy sake, [[Genesis 3.17|Genesis 3:17]] ([[Genesis 3.17|3:17-19]][[Genesis 3.18|]][[Genesis 3.19|]]).
+*cursed* is the ground for thy sake, [[Genesis 3.17|Genesis 3:17]].
 
 now art thou *cursed* from the earth, [[Genesis 4.11|Genesis 4:11]] ([[Moses 5.36|Moses 5:36]]).
 
@@ -11,17 +10,17 @@ Lord set a *mark* upon Cain, [[Genesis 4.15|Genesis 4:15]] ([[Moses 5.40|Moses 5
 
 ground which the Lord hath *cursed*, [[Genesis 5.29|Genesis 5:29]] ([[Moses 8.9|Moses 8:9]]).
 
-not again *curse* the ground any more for man's sake, [[Genesis 8.21|Genesis 8:21]].
+not again *curse* the ground any more for man’s sake, [[Genesis 8.21|Genesis 8:21]].
 
 *Cursed* be Canaan, [[Genesis 9.25|Genesis 9:25]].
 
-I will ... *curse* him that *curseth* thee, [[Genesis 12.3|Genesis 12:3]] ([[Genesis 27.29|Genesis 27:29]]).
+I will … *curse* him that *curseth* thee, [[Genesis 12.3|Genesis 12:3]] ([[Genesis 27.29|Genesis 27:29]]).
 
 *Cursed* be their anger, for it was fierce, [[Genesis 49.7|Genesis 49:7]].
 
 he that *curseth* his father, or his mother, [[Exodus 21.17|Exodus 21:17]] ([[Leviticus 20.9|Leviticus 20:9]]; [[Proverbs 20.20|Proverbs 20:20]]; [[Matthew 15.4|Matthew 15:4]]; [[Mark 7.10|Mark 7:10]]).
 
-Thou shalt not ... *curse* the ruler, [[Exodus 22.28|Exodus 22:28]].
+Thou shalt not … *curse* the ruler, [[Exodus 22.28|Exodus 22:28]].
 
 Thou shalt not *curse* the deaf, [[Leviticus 19.14|Leviticus 19:14]].
 
@@ -31,7 +30,7 @@ set before you this day a blessing and a *curse*, [[Deuteronomy 11.26|Deuteronom
 
 God turned the *curse* into a blessing, [[Deuteronomy 23.5|Deuteronomy 23:5]].
 
-*Cursed* be the man that maketh any graven ... image, [[Deuteronomy 27.15|Deuteronomy 27:15]].
+*Cursed* be the man that maketh any graven … image, [[Deuteronomy 27.15|Deuteronomy 27:15]].
 
 *Cursed* be he that confirmeth not all the words, [[Deuteronomy 27.26|Deuteronomy 27:26]].
 
@@ -43,13 +42,13 @@ God will put all these *curses* upon thine enemies, [[Deuteronomy 30.7|Deuterono
 
 set before you life and death, blessing and *cursing*, [[Deuteronomy 30.19|Deuteronomy 30:19]].
 
-*Cursed* be the man ... that ... buildeth this city, [[Joshua 6.26|Joshua 6:26]].
+*Cursed* be the man … that … buildeth this city, [[Joshua 6.26|Joshua 6:26]].
 
-he read ... blessings and *cursings*, [[Joshua 8.34|Joshua 8:34]].
+he read … blessings and *cursings*, [[Joshua 8.34|Joshua 8:34]].
 
 that they should become a desolation and a *curse*, [[2 Kings 22.19|2 Kings 22:19]].
 
-bring evil ... even all the *curses* that are written, [[2 Chronicles 34.24|2 Chronicles 34:24]].
+bring evil … even all the *curses* that are written, [[2 Chronicles 34.24|2 Chronicles 34:24]].
 
 entered into a *curse*, and into an oath, [[Nehemiah 10.29|Nehemiah 10:29]].
 
@@ -79,7 +78,7 @@ it shall be counted a *curse*, [[Proverbs 27.14|Proverbs 27:14]].
 
 the *curse* devoured the earth, [[Isaiah 24.6|Isaiah 24:6]].
 
-come down ... upon the people of my *curse*, [[Isaiah 34.5|Isaiah 34:5]].
+come down … upon the people of my *curse*, [[Isaiah 34.5|Isaiah 34:5]].
 
 *Cursed* be the man that obeyeth not, [[Jeremiah 11.3|Jeremiah 11:3]].
 
@@ -87,11 +86,11 @@ come down ... upon the people of my *curse*, [[Isaiah 34.5|Isaiah 34:5]].
 
 *Cursed* be the day wherein I was born, [[Jeremiah 20.14|Jeremiah 20:14]].
 
-to make them a desolation ... and a *curse*, [[Jeremiah 25.18|Jeremiah 25:18]].
+to make them a desolation … and a *curse*, [[Jeremiah 25.18|Jeremiah 25:18]].
 
 *Cursed* be he that doeth the work of the Lord deceitfully, [[Jeremiah 48.10|Jeremiah 48:10]].
 
-transgressed ... therefore the *curse* is poured upon us, [[Daniel 9.11|Daniel 9:11]].
+transgressed … therefore the *curse* is poured upon us, [[Daniel 9.11|Daniel 9:11]].
 
 ye were a *curse* among the heathen, [[Zechariah 8.13|Zechariah 8:13]].
 
@@ -123,7 +122,7 @@ Christ hath redeemed us from the *curse* of the law, [[Galatians 3.13|Galatians 
 
 therewith *curse* we men, [[James 3.9|James 3:9]].
 
-they have ... *cursed* children, [[2 Peter 2.14|2 Peter 2:14]].
+they have … *cursed* children, [[2 Peter 2.14|2 Peter 2:14]].
 
 there shall be no more *curse*, [[Revelation 22.3|Revelation 22:3]].
 
@@ -145,7 +144,7 @@ because of their *cursing* which was upon them, [[2 Nephi 5.24|2 Nephi 5:24]].
 
 but ye have *cursed* them, [[2 Nephi 29.5|2 Nephi 29:5]].
 
-keep my commandments ... or *cursed* be the land, [[Jacob 2.29|Jacob 2:29]].
+keep my commandments … or *cursed* be the land, [[Jacob 2.29|Jacob 2:29]].
 
 except ye repent the land is *cursed*, [[Jacob 3.3|Jacob 3:3]].
 
@@ -167,7 +166,7 @@ the *cursing* and the blessing of God, [[Alma 45.16|Alma 45:16]].
 
 ye that hear me not will I *curse*, [[D&C 41.1|D&C 41:1]].
 
-in the last days ... I *cursed* the waters, [[D&C 61.14|D&C 61:14]].
+in the last days … I *cursed* the waters, [[D&C 61.14|D&C 61:14]].
 
 Lord, in the beginning *cursed* the land, [[D&C 61.17|D&C 61:17]].
 
@@ -183,7 +182,7 @@ a *cursing* which I will put upon thee, [[Moses 5.25|Moses 5:25]].
 
 *cursed* Lamech, and his house, [[Moses 5.52|Moses 5:52]].
 
-famine ... the Lord *cursed* the earth, [[Moses 8.4|Moses 8:4]].
+famine … the Lord *cursed* the earth, [[Moses 8.4|Moses 8:4]].
 
 sprang that race which preserved the *curse* in the land, [[Abraham 1.24|Abraham 1:24]].
 

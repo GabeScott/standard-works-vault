@@ -1,5 +1,7 @@
 # “Them That Honour Me I Will Honour”
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -44,7 +46,7 @@ When Elder LeGrand Richards left to attend college, his father, George F. Richar
 
 A father should never consciously disappoint his wife or children. In 1989 there was a terrible earthquake in Armenia that killed over 30,000 people in four minutes. A distraught father went in frantic search of his son. He reached his son’s school only to find that it had been reduced to a pile of rubble. But he was driven by his promise to his son, “No matter what, I’ll always be there for you!” He visualized the corner where his son’s classroom would be, rushed there, and started to dig through the debris, brick by brick.
 
-Others came on the scene—the fire chief, then the police—warning him of fires and explosions, and urging him to leave the search to the emergency crews. But he tenaciously carried on digging. Night came and went, and then, in the 38th hour of digging, he thought he heard his son’s voice. “Armand!” he called out. Then he heard, “Dad!?! It’s me, Dad! I told the other kids not to worry. I told ’em that if you were alive, you’d save me and when you saved me, they’d be saved. …
+Others came on the scene—the fire chief, then the police—warning him of fires and explosions, and urging him to leave the search to the emergency crews. But he tenaciously carried on digging. Night came and went, and then, in the 38th hour of digging, he thought he heard his son’s voice. “Armand!” he called out. Then he heard, “Dad!?! It’s me, Dad! I told the other kids not to worry. I told ’em that if you were alive, you’d save me and when you saved me, they’d be saved. …
 
 “There are 14 of us left out of 33. … When the building collapsed, it made a wedge, like a triangle, and it saved us.”
 
@@ -93,7 +95,7 @@ Brethren, I have been privileged, as boy and man, to enjoy the warm, comforting 
 
 
 
-[^1]: [[1 Samuel 2.30|1 Sam. 2:30]].
+[^1]: [[1 Samuel 2.30|1 Sam. 2:30]].
 
 [^2]: [[Daniel 5.23|Dan. 5:23]].
 
@@ -115,7 +117,7 @@ Brethren, I have been privileged, as boy and man, to enjoy the warm, comforting 
 
 [^11]: Mark V. Hansen, “Are You Going to Help Me?” in *Chicken Soup for the Soul,* ed. Jack Canfield and Mark Victor Hansen (1993), 273–74.
 
-[^12]: [[1 Samuel 2.30|1 Sam. 2:30]].
+[^12]: [[1 Samuel 2.30|1 Sam. 2:30]].
 
 [^13]: See [[D&C 132.7|D&C 132:7]].
 
@@ -125,8 +127,3 @@ Brethren, I have been privileged, as boy and man, to enjoy the warm, comforting 
 
 [^16]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 168.
 
-
-
-
-
-#Covenants #Example #Family #Family_History #Fatherhood #Idol_Worship #Love #Marriage #Motherhood #Ordinances #Priesthood #Profanity #Respect #Reverence

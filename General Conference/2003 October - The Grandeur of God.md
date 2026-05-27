@@ -1,5 +1,7 @@
 # The Grandeur of God
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -63,7 +65,7 @@ I bear witness of a God who has such shoulders. And in the spirit of the holy ap
 
 [^8]: See William Barclay, *The Mind of Jesus* (1961), especially the chapter “Looking at the Cross,” for a discussion of this modern tendency.
 
-[^9]: See, for example, [[1 Nephi 10.18|1 Nephi 10:18]]; [[2 Nephi 27.23|2 Nephi 27:23]]; [[Moroni 10.19|Moroni 10:19]]; [[D&C 20.12|D&C 20:12]].
+[^9]: See, for example, [[1 Nephi 10.18|1 Nephi 10:18]]; [[2 Nephi 27.23|2 Nephi 27:23]]; [[Moroni 10.19|Moroni 10:19]]; [[D&C 20.12|D&C 20:12]].
 
 [^10]: [[Moses 7.29|Moses 7:29–33, 37]][[Moses 7.30|]][[Moses 7.31|]][[Moses 7.32|]][[Moses 7.33|]][[Moses 7.37|]].
 
@@ -71,7 +73,7 @@ I bear witness of a God who has such shoulders. And in the spirit of the holy ap
 
 [^12]: [[Romans 1.1|Romans 1:1]].
 
-[^13]: [[Hebrews 1.3|Hebrews 1:3]]; see also [[2 Corinthians 4.4|2 Corinthians 4:4]]; [[Colossians 1.15|Colossians 1:15]].
+[^13]: [[Hebrews 1.3|Hebrews 1:3]]; see also [[2 Corinthians 4.4|2 Corinthians 4:4]]; [[Colossians 1.15|Colossians 1:15]].
 
 [^14]: *Lectures on Faith,* 42.
 
@@ -81,10 +83,5 @@ I bear witness of a God who has such shoulders. And in the spirit of the holy ap
 
 [^17]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 257, 240–41.
 
-[^18]: [[1 John 4.10|1 John 4:10–11]][[1 John 4.11|]].
+[^18]: [[1 John 4.10|1 John 4:10–11]][[1 John 4.11|]].
 
-
-
-
-
-#God_The_Father #Jesus_Christ #Love #Morality

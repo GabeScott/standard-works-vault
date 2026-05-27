@@ -1,6 +1,5 @@
 # Foolish
 
-
 *See also* [[Folly.md|Folly]]; [[Fool.md|Fool]]; [[Foolishness.md|Foolishness]]
 
 provoke them to anger with a *foolish* nation, [[Deuteronomy 32.21|Deuteronomy 32:21]] ([[Romans 10.19|Romans 10:19]]).
@@ -23,7 +22,7 @@ my people is *foolish*, [[Jeremiah 4.22|Jeremiah 4:22]].
 
 Woe unto the *foolish* prophets, [[Ezekiel 13.3|Ezekiel 13:3]].
 
-be likened unto a *foolish* man, which built ... upon the sand, [[Matthew 7.26|Matthew 7:26]] ([[3 Nephi 14.26|3 Nephi 14:26]]).
+be likened unto a *foolish* man, which built … upon the sand, [[Matthew 7.26|Matthew 7:26]] ([[3 Nephi 14.26|3 Nephi 14:26]]).
 
 five of them were wise, and five were *foolish*, [[Matthew 25.2|Matthew 25:2]].
 
@@ -47,9 +46,9 @@ put to silence the ignorance of *foolish* men, [[1 Peter 2.15|1 Peter 2:15]].
 
 *foolish* imaginations of his heart, [[1 Nephi 2.11|1 Nephi 2:11]] ([[1 Nephi 17.20|1 Nephi 17:20]]).
 
-many which shall teach ... *foolish* doctrines, [[2 Nephi 28.9|2 Nephi 28:9]].
+many which shall teach … *foolish* doctrines, [[2 Nephi 28.9|2 Nephi 28:9]].
 
-how *foolish* ... are the children of men, [[Helaman 12.4|Helaman 12:4]].
+how *foolish* … are the children of men, [[Helaman 12.4|Helaman 12:4]].
 
 how long will ye suffer yourselves to be led by *foolish*, [[Helaman 13.29|Helaman 13:29]].
 

@@ -1,5 +1,7 @@
 # “And Why Call Ye Me, Lord, Lord, and Do Not the Things Which I Say?”
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -30,7 +32,7 @@ Then Adam and Eve perpetuated this teaching by making all things known unto thei
 
 President Joseph F. Smith has said:
 
-“Every good and perfect gift comes from the Father of Light, who is no respecter of persons, and in whom there is no variableness, nor shadow of turning. To please him we must not only worship him with thanksgiving and praise but render willing obedience to his commandments. By so doing, he is bound to bestow his blessings; for it is upon this principle (obedience to law) that all blessings are predicated.” (*Improvement Era,* Dec. 1917, p. 104.)
+“Every good and perfect gift comes from the Father of Light, who is no respecter of persons, and in whom there is no variableness, nor shadow of turning. To please him we must not only worship him with thanksgiving and praise but render willing obedience to his commandments. By so doing, he is bound to bestow his blessings; for it is upon this principle (obedience to law) that all blessings are predicated.” (*Improvement Era,* Dec. 1917, p. 104.)
 
 The gospel is so very simple when we understand it properly. It is always right, it is always good, it is always uplifting. Obedience to gospel principles brings forth joy and happiness. Disobedience has a day of reckoning and will only bring forth heartache, misery, strife, and unhappiness.
 
@@ -70,7 +72,7 @@ Each member of the Church covenants to always remember the Savior as he or she p
 
 But because of human weakness, we make mistakes even after baptism. The Lord has, therefore, provided a way for us to renew our baptismal covenants through partaking of the sacrament each week. When we partake of the sacred emblems reverently and worthily, we witness again that we will take the name of Christ upon us, that we do always remember Him, that we will keep His commandments. It is a time to remember Christ’s atonement, His love, Gethsemane, Calvary, and the empty tomb.
 
-Elder Melvin J. Ballard suggested, “We want every Latter-day Saint to come to the sacrament table because it is the place for self-investigation, for self-inspection, where we may learn to rectify our course and to make right our own lives, bringing ourselves into harmony with the teachings of the Church and with our brethren and sisters.” (Bryant S. Hinckley, *Sermons and Missionary Services of Melvin Joseph Ballard,* Salt Lake City: Deseret Book Co., 1949, p. 150.)
+Elder Melvin J. Ballard suggested, “We want every Latter-day Saint to come to the sacrament table because it is the place for self-investigation, for self-inspection, where we may learn to rectify our course and to make right our own lives, bringing ourselves into harmony with the teachings of the Church and with our brethren and sisters.” (Bryant S. Hinckley, *Sermons and Missionary Services of Melvin Joseph Ballard,* Salt Lake City: Deseret Book Co., 1949, p. 150.)
 
 I’ve always been impressed with the renewed strength and dedication which come from weekly participating in the sacrament.
 
@@ -82,7 +84,7 @@ Another family council was called and the proposition presented that they close 
 
 What should we do on the Sabbath day? The story is told about a poor woman who faithfully went to church every week. Her husband, however, was not so devoted. Week after week she urged him to go, but he would not. Finally, tiring of her pestering, he said, “Give me one good reason why I should go to church.”
 
-Her reply was: “I can’t explain to you why I go. All I can tell you is that I go in empty and come out full.” (Rick Walton and Fern Oviatt, eds., *Stories for Mormons,* Salt Lake City: Bookcraft, 1983, p. 112.)
+Her reply was: “I can’t explain to you why I go. All I can tell you is that I go in empty and come out full.” (Rick Walton and Fern Oviatt, eds., *Stories for Mormons,* Salt Lake City: Bookcraft, 1983, p. 112.)
 
 With the proper planning, we should be able to use the Lord’s day in the way that He has intended for us.
 
@@ -93,8 +95,3 @@ I give you my witness that the greatest joy you can experience here in mortality
 
 
 
-
-
-
-
-#Commandments #Obedience #Sabbath #Sacrament

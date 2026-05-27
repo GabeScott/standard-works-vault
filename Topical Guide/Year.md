@@ -1,9 +1,8 @@
 # Year
 
+*See also* [[Day.md|Day]]; [[Month.md|Month]]; [[Time.md|Time]]; [[BD Calendar.md|BD Calendar]]; [[BD Jubilee, Year of.md|BD Jubilee, Year of]]; [[BD Sabbatical Year.md|BD Sabbatical Year]]
 
-*See also* [[Day.md|Day]]; [[Month, Monthly.md|Month]]; [[Time.md|Time]]; [BD Calendar](https://www.churchofjesuschrist.org/study/scriptures/bd/calendar?lang=eng); [Jubilee, Year of](https://www.churchofjesuschrist.org/study/scriptures/bd/jubilee-year-of?lang=eng); [Sabbatical Year](https://www.churchofjesuschrist.org/study/scriptures/bd/sabbatical-year?lang=eng)
-
-lights in the firmament ... for signs ... and *years*, [[Genesis 1.14|Genesis 1:14]] ([[Moses 2.14|Moses 2:14]]; [[Abraham 4.14|Abraham 4:14]]).
+lights in the firmament … for signs … and *years*, [[Genesis 1.14|Genesis 1:14]] ([[Moses 2.14|Moses 2:14]]; [[Abraham 4.14|Abraham 4:14]]).
 
 hallow the fiftieth *year*, [[Leviticus 25.10|Leviticus 25:10]].
 
@@ -37,7 +36,7 @@ lived and reigned with Christ a thousand *years*, [[Revelation 20.4|Revelation 2
 
 children who have arrived at the *years* of accountability, [[D&C 18.42|D&C 18:42]] ([[D&C 20.71|D&C 20:71]]).
 
-rise of the Church ... being one thousand eight hundred and thirty *years* since the coming of our Lord, [[D&C 20.1|D&C 20:1]] ([[D&C 21.3|D&C 21:3]]).
+rise of the Church … being one thousand eight hundred and thirty *years* since the coming of our Lord, [[D&C 20.1|D&C 20:1]] ([[D&C 21.3|D&C 21:3]]).
 
 dwell in righteousness with men on earth a thousand *years*, [[D&C 29.11|D&C 29:11]].
 
@@ -45,13 +44,13 @@ when the thousand *years* are ended, [[D&C 29.22|D&C 29:22]] ([[D&C 88.101|D&C 8
 
 let them act upon this land as for *years*, [[D&C 51.17|D&C 51:17]].
 
-earth during the seven thousand *years* of its continuance, [[D&C 77.6|D&C 77:6]] ([[D&C 77.8|77:8-12]][[D&C 77.9|]][[D&C 77.10|]][[D&C 77.11|]][[D&C 77.12|]]; [[D&C 88.108|88:108-9]][[D&C 88.109|]]).
+earth during the seven thousand *years* of its continuance, [[D&C 77.6|D&C 77:6]].
 
-priesthood ... without beginning of days or end of *years*, [[D&C 84.17|D&C 84:17]].
+priesthood … without beginning of days or end of *years*, [[D&C 84.17|D&C 84:17]].
 
-give light to each other in their times and ... in their *years* —all these are one *year* with God, [[D&C 88.44|D&C 88:44]].
+give light to each other in their times and … in their *years*—all these are one *year* with God, [[D&C 88.44|D&C 88:44]].
 
-Satan ... shall not be loosed for the space of a thousand *years*, [[D&C 88.110|D&C 88:110]].
+Satan … shall not be loosed for the space of a thousand *years*, [[D&C 88.110|D&C 88:110]].
 
 all the appointed days, months, and *years*, [[D&C 121.31|D&C 121:31]].
 

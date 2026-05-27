@@ -1,7 +1,6 @@
 # Form
 
-
-*See also* [[Creation, Create.md|Creation]]; [[Fashion.md|Fashion]]; [[Make, Made.md|Make]]; [[Shape.md|Shape]]
+*See also* [[Creation.md|Creation]]; [[Fashion.md|Fashion]]; [[Make.md|Make]]; [[Shape.md|Shape]]
 
 earth was without *form*, [[Genesis 1.2|Genesis 1:2]] ([[Moses 2.2|Moses 2:2]]).
 
@@ -31,11 +30,11 @@ he that *formeth* the mountains, [[Amos 4.13|Amos 4:13]].
 
 he appeared in another *form* unto two of them, [[Mark 16.12|Mark 16:12]].
 
-instructor of the foolish ... which hast the *form* of knowledge, [[Romans 2.20|Romans 2:20]].
+instructor of the foolish … which hast the *form* of knowledge, [[Romans 2.20|Romans 2:20]].
 
 Shall the thing *formed* say to him that *formed* it, [[Romans 9.20|Romans 9:20]].
 
-travail ... until Christ be *formed* in you, [[Galatians 4.19|Galatians 4:19]].
+travail … until Christ be *formed* in you, [[Galatians 4.19|Galatians 4:19]].
 
 Who, being in the *form* of God, [[Philippians 2.6|Philippians 2:6]].
 
@@ -43,11 +42,11 @@ Adam was first *formed*, then Eve, [[1 Timothy 2.13|1 Timothy 2:13]].
 
 Having a *form* of godliness, [[2 Timothy 3.5|2 Timothy 3:5]].
 
-in the *form* of a man ... the Spirit of the Lord, [[1 Nephi 11.11|1 Nephi 11:11]].
+in the *form* of a man … the Spirit of the Lord, [[1 Nephi 11.11|1 Nephi 11:11]].
 
-Holy Ghost come down ... in the *form* of a dove, [[1 Nephi 11.27|1 Nephi 11:27]] ([[2 Nephi 31.8|2 Nephi 31:8]]; [[D&C 93.15|D&C 93:15]]).
+Holy Ghost come down … in the *form* of a dove, [[1 Nephi 11.27|1 Nephi 11:27]] ([[2 Nephi 31.8|2 Nephi 31:8]]; [[D&C 93.15|D&C 93:15]]).
 
-God ... take upon him the *form* of man, [[Mosiah 13.34|Mosiah 13:34]].
+God … take upon him the *form* of man, [[Mosiah 13.34|Mosiah 13:34]].
 
 Son of Man cometh not in the *form* of a woman, [[D&C 49.22|D&C 49:22]].
 

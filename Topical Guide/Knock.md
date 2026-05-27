@@ -1,6 +1,5 @@
 # Knock
 
-
 *knock*, and it shall be opened unto you, [[Matthew 7.7|Matthew 7:7]] ([[Luke 11.9|Luke 11:9]]; [[3 Nephi 14.7|3 Nephi 14:7]]; [[3 Nephi 27.29|3 Nephi 27:29]]; [[D&C 4.7|D&C 4:7]]; [[D&C 6.5|D&C 6:5]]; [[D&C 11.5|D&C 11:5]]; [[D&C 12.5|D&C 12:5]]; [[D&C 14.5|D&C 14:5]]; [[D&C 49.26|D&C 49:26]]; [[D&C 66.9|D&C 66:9]]; [[D&C 75.27|D&C 75:27]]; [[D&C 88.63|D&C 88:63]]).
 
 to *knock* at the door, saying, Lord, Lord, open, [[Luke 13.25|Luke 13:25]].
@@ -11,4 +10,4 @@ I stand at the door, and *knock*, [[Revelation 3.20|Revelation 3:20]].
 
 whoso *knocketh*, to him will he open, [[2 Nephi 9.42|2 Nephi 9:42]].
 
-cannot understand them ... because ye ask not, neither do ye *knock*, [[2 Nephi 32.4|2 Nephi 32:4]].
+cannot understand them … because ye ask not, neither do ye *knock*, [[2 Nephi 32.4|2 Nephi 32:4]].

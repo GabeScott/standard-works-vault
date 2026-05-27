@@ -1,5 +1,7 @@
 # “And upon the Handmaids in Those Days Will I Pour Out My Spirit”
 
+Thomas S. Monson
+
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the April session of the 2010 General Conference*
@@ -30,15 +32,15 @@ Additionally, the Lord in His wisdom has provided a Relief Society to help His d
 
 When a girl advances into Relief Society or when a woman is baptized into the Church, she becomes part of a sisterhood that strengthens her in her preparation for eternal life. Entrance into Relief Society signifies that a woman can be trusted and relied upon to make a significant contribution in the Church. She continues to progress as an individual without receiving much outward credit or praise.
 
-The second general Relief Society president, Eliza R. Snow, said this to the sisters: “We want to be ladies in very deed, not according to the term of the word as the world judges, but fit companions of the Gods and Holy Ones. In an organized capacity we can assist each other in not only doing good but in refining ourselves, and whether few or many come forward and help to prosecute this great work, they will be those that will fill honorable positions in the Kingdom of God. … Women should be women and not babies that need petting and correction all the time. I know we like to be appreciated but if we do not get all the appreciation which we think is our due, what matters? We know the Lord has laid high responsibility upon us, and there is not a wish or desire that the Lord has implanted in our hearts in righteousness but will be realized, and the greatest good we can do to ourselves and each other is to refine and cultivate ourselves in everything that is good and ennobling to qualify us for those responsibilities.”[^8]
+The second general Relief Society president, Eliza R. Snow, said this to the sisters: “We want to be ladies in very deed, not according to the term of the word as the world judges, but fit companions of the Gods and Holy Ones. In an organized capacity we can assist each other in not only doing good but in refining ourselves, and whether few or many come forward and help to prosecute this great work, they will be those that will fill honorable positions in the Kingdom of God. … Women should be women and not babies that need petting and correction all the time. I know we like to be appreciated but if we do not get all the appreciation which we think is our due, what matters? We know the Lord has laid high responsibility upon us, and there is not a wish or desire that the Lord has implanted in our hearts in righteousness but will be realized, and the greatest good we can do to ourselves and each other is to refine and cultivate ourselves in everything that is good and ennobling to qualify us for those responsibilities.”[^8]
 
 ## Measuring Success
 
 Good women always have a desire to know if they are succeeding. In a world where the measures of success are often distorted, it is important to seek appreciation and affirmation from proper sources. To paraphrase a list found in *Preach My Gospel,* we are doing well when we develop attributes of Christ and strive to obey His gospel with exactness. We are doing well when we seek to improve ourselves and do our best. We are doing well when we increase faith and personal righteousness, strengthen families and homes, and seek out and help others who are in need. We know we are successful if we live so that we qualify for, receive, and know how to follow the Spirit. When we have done our very best, we may still experience disappointments, but we will not be disappointed in ourselves. We can feel certain that the Lord is pleased when we feel the Spirit working through us.[^9] Peace, joy, and hope are available to those who measure success properly.
 
-A revelation in the book of Joel states that in the last days, sons and daughters of God will prophesy and the Lord will pour out His Spirit upon His servants and His handmaids.[^10] President Spencer W. Kimball echoed this prophecy when he said:
+A revelation in the book of Joel states that in the last days, sons and daughters of God will prophesy and the Lord will pour out His Spirit upon His servants and His handmaids.[^10] President Spencer W. Kimball echoed this prophecy when he said:
 
-“Much of the major growth that is coming to the Church in the last days will come because many of the good women of the world (in whom there is often such an inner sense of spirituality) will be drawn to the Church in large numbers. This will happen to the degree that the women of the Church reflect righteousness and articulateness in their lives and to the degree that the women of the Church are seen as distinct and different—in happy ways—from the women of the world. …
+“Much of the major growth that is coming to the Church in the last days will come because many of the good women of the world (in whom there is often such an inner sense of spirituality) will be drawn to the Church in large numbers. This will happen to the degree that the women of the Church reflect righteousness and articulateness in their lives and to the degree that the women of the Church are seen as distinct and different—in happy ways—from the women of the world. …
 
 “Thus it will be that female exemplars of the Church will be a significant force in both the numerical and the spiritual growth of the Church in the last days.”[^11]
 
@@ -51,17 +53,17 @@ I bear my witness that the gospel of Jesus Christ is true. The Lord depends on H
 
 [^2]: See [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^3]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^3]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^4]: See [[3 Nephi 19.24|3 Nephi 19:24–33]][[3 Nephi 19.25|]][[3 Nephi 19.26|]][[3 Nephi 19.27|]][[3 Nephi 19.28|]][[3 Nephi 19.29|]][[3 Nephi 19.30|]][[3 Nephi 19.31|]][[3 Nephi 19.32|]][[3 Nephi 19.33|]].
+[^4]: See [[3 Nephi 19.24|3 Nephi 19:24–33]][[3 Nephi 19.25|]][[3 Nephi 19.26|]][[3 Nephi 19.27|]][[3 Nephi 19.28|]][[3 Nephi 19.29|]][[3 Nephi 19.30|]][[3 Nephi 19.31|]][[3 Nephi 19.32|]][[3 Nephi 19.33|]].
 
 [^5]: [[D&C 11.12|Doctrine and Covenants 11:12]].
 
 [^6]: See [[D&C 11.13|Doctrine and Covenants 11:13–14]][[D&C 11.14|]].
 
-[^7]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
+[^7]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
 
-[^8]: Eliza R. Snow, address to Lehi Ward Relief Society, Oct. 27, 1869, Lehi Ward, Alpine (Utah) Stake, in Relief Society, Minute Book, 1868–79, Church History Library, Salt Lake City, 26–27.
+[^8]: Eliza R. Snow, address to Lehi Ward Relief Society, Oct. 27, 1869, Lehi Ward, Alpine (Utah) Stake, in Relief Society, Minute Book, 1868–79, Church History Library, Salt Lake City, 26–27.
 
 [^9]: See *Preach My Gospel* (2004), 10–11.
 
@@ -69,8 +71,3 @@ I bear my witness that the gospel of Jesus Christ is true. The Lord depends on H
 
 [^11]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 222–23.
 
-
-
-
-
-#Holy_Ghost #Relief_Society #Spirituality #Women

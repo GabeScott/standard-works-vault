@@ -1,5 +1,7 @@
 # “Charity Never Faileth”
 
+Thomas S. Monson
+
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the April session of the 1992 General Conference*
@@ -22,13 +24,13 @@ They got them—involving themselves in everything from delivering breech babies
 
 Those Saints responded to the needs of their day. I am certain that their strength came from their ability to step forward with a resounding “Here am I, send me.” ([[Abraham 3.27|Abr. 3:27]].) Then they were off on the Lord’s errand.
 
-One of the youngest women in attendance at the first meeting of sisters was Bathsheba Smith, who served many years later as the fourth general president of the Relief Society. She had been well trained in those Nauvoo years and was known later for concluding her home visits—both social and compassionate—with the words, “Peace be unto thee, peace to this house.” (*Woman’s Exponent,* Sept. 1910, p. 18.)
+One of the youngest women in attendance at the first meeting of sisters was Bathsheba Smith, who served many years later as the fourth general president of the Relief Society. She had been well trained in those Nauvoo years and was known later for concluding her home visits—both social and compassionate—with the words, “Peace be unto thee, peace to this house.” (*Woman’s Exponent,* Sept. 1910, p. 18.)
 
 There are many Bathsheba Smiths in this world, many pioneering women who speak peace and give life to the Relief Society motto, “Charity Never Faileth.” In times past, more than one generation gleaned wheat in aprons and stored it in their own granaries, putting it to good use when the need came.
 
 And it did. Other sisters promoted health and nursing, establishing a hospital. Today, old and new blend as dedicated women bring sisterly support and love, keeping their appointed visits on horseback and on foot, by bus and by automobile. Over the decades and across continents, women have learned to value their faith and religion above comfort and personal priorities.
 
-Our sisters are steadfast, always abounding in good works. (See [[1 Corinthians 15.58|1 Cor. 15:58]].) They understand that the commandment is to develop an attitude as well as to undertake an action. “Be steadfast” ([[D&C 31.9|D&C 31:9]])—immovable in righteousness, humble, caring, clever, kind, generous, thoughtful, dignified, gentle, diligent, direct. Women have such depth and such ability!
+Our sisters are steadfast, always abounding in good works. (See [[1 Corinthians 15.58|1 Cor. 15:58]].) They understand that the commandment is to develop an attitude as well as to undertake an action. “Be steadfast” ([[D&C 31.9|D&C 31:9]])—immovable in righteousness, humble, caring, clever, kind, generous, thoughtful, dignified, gentle, diligent, direct. Women have such depth and such ability!
 
 And such faith. Despite trials, worldly confusion, and caustic voices, we can trust in the Lord and go forward with happy hearts, knowing that with every challenge or problem, there’s the strength to go on. Why? Because we know His promises are real, that He does know us by name and has a plan for each of us. He will help us learn what it is and give us joy in doing it.
 
@@ -53,8 +55,3 @@ Yes, as sisters in Zion, we are going to do something extraordinary.
 
 
 
-
-
-
-
-#Charity #Relief_Society #Sisterhood

@@ -1,6 +1,5 @@
 # Safely
 
-
 whoso hearkeneth unto me shall dwell *safely*, [[Proverbs 1.33|Proverbs 1:33]].
 
 He pursued them, and passed *safely*, [[Isaiah 41.3|Isaiah 41:3]].

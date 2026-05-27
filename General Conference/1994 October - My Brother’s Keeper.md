@@ -1,5 +1,7 @@
 # My Brother’s Keeper
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1994 General Conference*
@@ -20,7 +22,7 @@ In March of 1967, early in my service as a member of the Council of the Twelve, 
 
 When it was his opportunity to participate, President Child took in hand the Doctrine and Covenants and left the pulpit to stand among the priesthood brethren to whom he was directing his message. He turned to section 18 and began to read:
 
-“Remember the worth of souls is great in the sight of God. …
+“Remember the worth of souls is great in the sight of God. …
 
 “And if it so be that you should labor all your days in crying repentance unto this people, and bring, save it be one soul unto me, how great shall be your joy with him in the kingdom of my Father!”[^2]
 
@@ -34,9 +36,9 @@ I knew President Child’s style. I prayed fervently for that quorum president. 
 
 All present pondered that reply. Brother Child returned to the stand, leaned over to me, and said, “A profound reply; a profound reply!” He proceeded with his message, but I continued to reflect on that inspired response.
 
-Another pioneer in Church welfare, Walter Stover, who died some months ago at the same age as President Ezra Taft Benson, was one who understood the worth of a human soul. At his funeral service this tribute was paid to Brother Stover: “He had the ability to see Christ in every face he encountered, and he acted accordingly. Legendary are his acts of compassionate help and his talent to lift heavenward every person whom he met. His guiding light was the Master’s voice speaking, ‘Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.’”[^3]
+Another pioneer in Church welfare, Walter Stover, who died some months ago at the same age as President Ezra Taft Benson, was one who understood the worth of a human soul. At his funeral service this tribute was paid to Brother Stover: “He had the ability to see Christ in every face he encountered, and he acted accordingly. Legendary are his acts of compassionate help and his talent to lift heavenward every person whom he met. His guiding light was the Master’s voice speaking, ‘Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.’”[^3]
 
-The publication *Times and Seasons,* in its March 1842 issue, proclaimed the following: “Respecting how much a man … shall give … we have no special instructions … ; he is to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other \[church\], or in no church at all, wherever he finds them.”[^4]
+The publication *Times and Seasons,* in its March 1842 issue, proclaimed the following: “Respecting how much a man … shall give … we have no special instructions … ; he is to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other \[church\], or in no church at all, wherever he finds them.”[^4]
 
 Since the two special fast days in 1985, called for by the First Presidency, humanitarian efforts by members of The Church of Jesus Christ of Latter-day Saints have reached into every corner of the globe. Millions of the earth’s needy have been blessed as members of the Church have consecrated their means to provide life-sustaining food and clothing, establish immunization and infant feeding programs, teach basic literacy, dig freshwater wells, foster village banks, create new jobs, sustain hospitals and orphanages, teach basic self-reliance, and act in many other ways to help Heavenly Father’s children improve their lives both spiritually and temporally.
 
@@ -123,20 +125,15 @@ Brethren, may the Lord strengthen each of us who holds the priesthood, that each
 
 [^3]: [[Matthew 25.40|Matt. 25:40]].
 
-[^4]: *Times and Seasons,* 15 Mar. 1842, p. 732.
+[^4]: *Times and Seasons,* 15 Mar. 1842, p. 732.
 
-[^5]: [[1 Corinthians 13.8|1 Cor. 13:8]].
+[^5]: [[1 Corinthians 13.8|1 Cor. 13:8]].
 
-[^6]: [[1 Timothy 4.12|1 Tim. 4:12]].
+[^6]: [[1 Timothy 4.12|1 Tim. 4:12]].
 
 [^7]: [[Mark 12.43|Mark 12:43–44]][[Mark 12.44|]].
 
-[^8]: Quoted in *Providing in the Lord’s Way: A Leader’s Guide to Welfare* \[welfare handbook, 1990\], p. i.
+[^8]: Quoted in *Providing in the Lord’s Way: A Leader’s Guide to Welfare* \[welfare handbook, 1990\], p. i.
 
 [^9]: [[Psalms 41.1|Ps. 41:1–3]][[Psalms 41.2|]][[Psalms 41.3|]].
 
-
-
-
-
-#Charity #Compassion #Ezra_Taft_Benson #Individual_Worth #Welfare

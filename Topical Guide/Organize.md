@@ -1,9 +1,8 @@
 # Organize
 
-
 *See also* [[Organization.md|Organization]]
 
-Church ... *organized* and established agreeable to the laws of our country, [[D&C 20.1|D&C 20:1]].
+Church … *organized* and established agreeable to the laws of our country, [[D&C 20.1|D&C 20:1]].
 
 this church, where there is a regularly *organized* branch, [[D&C 20.65|D&C 20:65]].
 

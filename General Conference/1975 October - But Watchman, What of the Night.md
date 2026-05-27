@@ -1,12 +1,14 @@
 # But Watchman, What of the Night?
 
-By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop Vaughn J. Featherstone - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/10/but-watchman-what-of-the-night?lang=eng)
 
-I would like to bear a solemn and a sacred witness today to America and to the world that he to whom you have just listened, President Spencer W. Kimball, is a modern prophet of the only true living God. I know that, as I know that I am here before you this day.
+I would like to bear a solemn and a sacred witness today to America and to the world that he to whom you have just listened, President Spencer W. Kimball, is a modern prophet of the only true living God. I know that, as I know that I am here before you this day.
 
 There has been an increased concern about our country, about patriotism, and about integrity of national leaders by the youth of the Church. These concerns have led me to address this subject. Someone has said, “Though argument does not change belief, the lack of it destroys belief.”
 
@@ -38,7 +40,7 @@ In a letter to Ammoron, a warmongering chief of the Lamanites, we catch more of 
 
 “But as ye have rejected these things, and have fought against the people of the Lord, even so I may expect you will do it again.
 
-“And now behold, we are prepared to receive you; yea, …
+“And now behold, we are prepared to receive you; yea, …
 
 “As the Lord liveth, our armies shall come upon you except ye withdraw, and ye shall soon be visited with death, for we will retain our cities and our lands; yea, and we will maintain our religion and the cause of our God.
 
@@ -52,11 +54,11 @@ Behold, *there* was a leader!
 
 Not too long ago I saw a movie entitled *Tora! Tora! Tora!* This film is about the attack on Pearl Harbor by the Japanese. In one place in the movie the scene is a Japanese admiral standing on the captain’s deck of an aircraft carrier. The planes have already taken off for their sneak attack. The radio message is transmitted back to the bridge of the carrier that the bombing had commenced and that the United States was caught sleeping and flat-footed. The admiral turns and looks out to the ocean and then with a faraway look in his eyes, he says, “I fear lest we have awakened a sleeping giant with a terrible resolve.”
 
-I think it is time we should all awaken. Our concern isn’t about the flames of freedom which burn so brightly in our generation; the concern is that in the upcoming generation the fire has never been kindled. Our youth have never known anything but criticism of the United States of America. We need some faithful, free-loving patriots who will issue forth a clear, loud trumpet call. Remember Paul’s counsel: “For if the trumpet give an uncertain sound, who shall prepare … to the battle?” ([[1 Corinthians 14.8|1 Cor. 14:8]].) Freedom ought to ring in the heart of every Latter-day Saint regardless of his country.
+I think it is time we should all awaken. Our concern isn’t about the flames of freedom which burn so brightly in our generation; the concern is that in the upcoming generation the fire has never been kindled. Our youth have never known anything but criticism of the United States of America. We need some faithful, free-loving patriots who will issue forth a clear, loud trumpet call. Remember Paul’s counsel: “For if the trumpet give an uncertain sound, who shall prepare … to the battle?” ([[1 Corinthians 14.8|1 Cor. 14:8]].) Freedom ought to ring in the heart of every Latter-day Saint regardless of his country.
 
-Conrad Hilton in 1951 gave the following in an address; I quote from a talk delivered at Brigham Young University by President Harold B. Lee. “Speaking of liberty, he said, ‘Man possesses human dignity because he is made in the image and likeness of God; it is this image that makes man different, that makes man a son of God. Without this image, man has no free will and frequently neither liberty nor the capacity for liberty.’ He further said, ‘In this struggle for freedom, at home and abroad, our greatest weapon, both a sword and a shield will be our love of and faith in God.’”
+Conrad Hilton in 1951 gave the following in an address; I quote from a talk delivered at Brigham Young University by President Harold B. Lee. “Speaking of liberty, he said, ‘Man possesses human dignity because he is made in the image and likeness of God; it is this image that makes man different, that makes man a son of God. Without this image, man has no free will and frequently neither liberty nor the capacity for liberty.’ He further said, ‘In this struggle for freedom, at home and abroad, our greatest weapon, both a sword and a shield will be our love of and faith in God.’”
 
-Mrs. C. Girard Davidson, a Portland, Oregon, housewife, stated the following before a Congressional committee: “The world may long remember … our generation as the last of the educated mind and the educated heart, so sensitive in understanding, so wretched over failures, so modest about our triumphs, so permissive with everyone who wanted to do his own thing that we let civilization go to hell without any curiosity about what would replace it.”
+Mrs. C. Girard Davidson, a Portland, Oregon, housewife, stated the following before a Congressional committee: “The world may long remember … our generation as the last of the educated mind and the educated heart, so sensitive in understanding, so wretched over failures, so modest about our triumphs, so permissive with everyone who wanted to do his own thing that we let civilization go to hell without any curiosity about what would replace it.”
 
 Rebecca West, the noted British author, who attributes current assaults on patriotism to a certain “sloppiness among intellectuals in mistaking patriotism for imperialism,” states: “I think the majority of your people are outside the argument and are behaving quite sanely. There are thousands in your universities, millions in your country who … love their country. This civilized way of behaving hardly rates a headline.”
 
@@ -74,7 +76,7 @@ In Ether we read about this choice land:
 
 What a wonderful heritage we could leave to our youth if we could just kindle in them the fires of freedom that our fathers kindled in us. I love this great land; I honor the great founding fathers; I’m proud to be an American. I cannot sing “America” without tears coming to my eyes and without chills running up and down my back. When I stand with my hand over my heart and sing our national anthem, I’m so proud I can hardly stand it. When I think of all the noble men who gave their lives for this land, then I feel a sacred resolve well up within me and I know that we must stand fast.
 
-We are the nation’s watchmen—no other people collectively love the Constitution and honor it and hold it as a divinely inspired document as do the Latter-day Saints. The duty of the watchman is to watch over and safeguard his people. And remember the thought-provoking question by President Harold B. Lee, “But watchman, what of the night?” As a generation of those who love this glorious country, we must ask ourselves, “But watchman, what of the night?” Have our youth enough of the fires of freedom kindled in them to withstand the darkness? *We must teach them in our homes, churches, and schools.* The sound must go across this land from one end to the other.
+We are the nation’s watchmen—no other people collectively love the Constitution and honor it and hold it as a divinely inspired document as do the Latter-day Saints. The duty of the watchman is to watch over and safeguard his people. And remember the thought-provoking question by President Harold B. Lee, “But watchman, what of the night?” As a generation of those who love this glorious country, we must ask ourselves, “But watchman, what of the night?” Have our youth enough of the fires of freedom kindled in them to withstand the darkness? *We must teach them in our homes, churches, and schools.* The sound must go across this land from one end to the other.
 
 Now one final word about this great land. Emma Lazarus in these appropriate lines concerning the Statue of Liberty describes the migration from all lands to America:
 
@@ -99,8 +101,3 @@ The United States of America is the golden door. I bear my solemn and sacred wit
 
 
 
-
-
-
-
-#Freedom #Patriotism

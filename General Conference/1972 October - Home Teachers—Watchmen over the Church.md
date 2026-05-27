@@ -1,6 +1,8 @@
 # Home Teachers—Watchmen over the Church
 
-By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
+N. Eldon Tanner
+
+By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -8,11 +10,11 @@ By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 What I have prepared to say today, my brethren and sisters, is directed primarily to the home teachers of the Church and those directing their work.
 
-Much has been given during these conference sessions about the family and the home and the importance of them by those who have spoken. It has been indicated, “The very essence of divine government is fatherhood and the recognition of the family relationship. The Church itself exists to exalt the family.” \[Hugh B. Brown, in *Conference Report,* October 2, 1966, p. 103.\]
+Much has been given during these conference sessions about the family and the home and the importance of them by those who have spoken. It has been indicated, “The very essence of divine government is fatherhood and the recognition of the family relationship. The Church itself exists to exalt the family.” \[Hugh B. Brown, in *Conference Report,* October 2, 1966, p. 103.\]
 
-President Joseph F. Smith told us, “The very foundation of the kingdom of God, of righteousness, of progress, of development, of eternal life, and eternal increase in the kingdom of God is laid in the divinely ordained home.” \[*Gospel Doctrine,* p. 304.\]
+President Joseph F. Smith told us, “The very foundation of the kingdom of God, of righteousness, of progress, of development, of eternal life, and eternal increase in the kingdom of God is laid in the divinely ordained home.” \[*Gospel Doctrine,* p. 304.\]
 
-President Harold B. Lee said recently, “The most important of the Lord’s work will be that which we do within our own homes.” (Regional Representatives Seminar, April 7, 1972, p. 2.)
+President Harold B. Lee said recently, “The most important of the Lord’s work will be that which we do within our own homes.” (Regional Representatives Seminar, April 7, 1972, p. 2.)
 
 We are told that each family in the Church is really a kingdom or government within itself. The father, by virtue of the priesthood of God that has been bestowed upon him, is the head of that government. This is what constitutes patriarchal office in the family. Originally it was the only government on the earth and was passed down from Adam to his descendants. Eventually, as society became more complex, the manner of governing the people of the earth had to change, but as far as the Church is concerned, the same order exists within the families as God set it up originally with Father Adam. And this same order will extend into the eternities. (See *Millennial Star,* vol. 14, p. 290.)
 
@@ -26,7 +28,7 @@ From that time forward, to a degree, all homes in the Church have been visited m
 
 In September 1963 home teaching was introduced to the Church. This differs from ward teaching in that greater emphasis is placed on watching over the family, rather than just making a monthly visit. Instructions have been given that the duty of the home teacher is to keep in touch with the families, to watch over them, to contact them in whatever manner necessary, in order to watch over them. We are told that home teaching is not just the one visit a month, but that home teaching is never done. We are to have concern for these families every day as long as they are assigned to us. The one visit a month to a family is important, but it is only one means of contact as we watch over our families.
 
-On the occasion of the official introduction of the home teaching program, President Marion G. Romney suggested some of the challenges and opportunities of home teaching, in these words: “Through the program of priesthood correlation, we bearers of the priesthood must increase our efforts to encourage, teach, and inspire the Saints to become ‘partakers of the divine nature,’ … through obedience to the sanctifying principles of the gospel.
+On the occasion of the official introduction of the home teaching program, President Marion G. Romney suggested some of the challenges and opportunities of home teaching, in these words: “Through the program of priesthood correlation, we bearers of the priesthood must increase our efforts to encourage, teach, and inspire the Saints to become ‘partakers of the divine nature,’ … through obedience to the sanctifying principles of the gospel.
 
 “We are performing far below our potential in this matter. … Now, priesthood correlation, as we are using the term here, contemplates all that is now being done in ward teaching and much more. It unites under one undertaking many activities. It requires that attention be given to every member of every family, particularly to those who need special encouragement to live the gospel. It means much more than a perfunctory visit once a month. It includes:
 
@@ -40,7 +42,7 @@ On the occasion of the official introduction of the home teaching program, Presi
 
 “5. Fellowshipping and bringing into full activity recent converts, new arrivals, and all inactive church members;
 
-“6. Encouraging all parents and other family heads to maintain genuine Latter-day Saint homes in which are practiced and taught the sanctifying principles of the gospel. …
+“6. Encouraging all parents and other family heads to maintain genuine Latter-day Saint homes in which are practiced and taught the sanctifying principles of the gospel. …
 
 “It will be their \[the home teachers’\] responsibility,” President Romney continues, “to make sure that infants are blessed; that children are baptized at eight years of age; and that boys are worthy and qualified to be ordained to the priesthood at 12 years of age and that they are so ordained; that they move through the grades of the priesthood in proper order; that candidates for marriage are properly taught the importance and sanctity of temple marriage and the church standards which will qualify them for it, to the end that they will be married in the temple.
 
@@ -58,7 +60,7 @@ Our thought as home teachers should always be: How can I help the fathers under 
 
 We might put much effort into working with individuals in a family and eventually reach a child, but our real challenge is to work with the father in strengthening him that he might lead the entire family to celestial glory.
 
-President Joseph F. Smith said, regarding the right of the father: “There is no higher authority in matters relating to the family organization, and especially when that organization is presided over by one holding the higher Priesthood, than that of the father. … The patriarchal order is of divine origin and will continue throughout time and eternity. There is then a particular reason why men, women, and children should understand this order and this authority in the household of the people of God, and seek to make it what God intended it to be, a qualification and preparation for the highest exaltation of His children. In the home the presiding authority is always vested in the father, and in all home affairs and family matters there is no other authority paramount.” (*The Juvenile Instructor,* March 1902, p. 146.)
+President Joseph F. Smith said, regarding the right of the father: “There is no higher authority in matters relating to the family organization, and especially when that organization is presided over by one holding the higher Priesthood, than that of the father. … The patriarchal order is of divine origin and will continue throughout time and eternity. There is then a particular reason why men, women, and children should understand this order and this authority in the household of the people of God, and seek to make it what God intended it to be, a qualification and preparation for the highest exaltation of His children. In the home the presiding authority is always vested in the father, and in all home affairs and family matters there is no other authority paramount.” (*The Juvenile Instructor,* March 1902, p. 146.)
 
 There is great need for a fresh new look at ourselves as home teachers. How can we more nearly accomplish that which was intended by the Lord in the revelation to the Prophet Joseph Smith?
 
@@ -74,15 +76,10 @@ Brother Rex Reeve, one of the Regional Representatives of the Twelve, gave us so
 
 When stake presidents, bishops, and priesthood leaders generally get the real concept and feeling of home teaching and let it be the vehicle by which all Church programs are taken to the family and the individuals, when families and individuals come to properly recognize and work with the home teachers, we will be able to give a much better account of ourselves in watching over the Church.
 
-The First Presidency many years ago stated, “The home \[is\] the basis of a righteous life and no other instrumentality can take its place or fulfill its essential functions.” (Cited by Elder Harold B. Lee, in *CR,* September 30, 1961, p. 79.)
+The First Presidency many years ago stated, “The home \[is\] the basis of a righteous life and no other instrumentality can take its place or fulfill its essential functions.” (Cited by Elder Harold B. Lee, in *CR,* September 30, 1961, p. 79.)
 
 May we better fulfill our assignment as home teachers by becoming guardians and watchmen over the families of the Church and thus strengthen them, I pray, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Home_Teaching

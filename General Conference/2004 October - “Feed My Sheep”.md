@@ -1,5 +1,7 @@
 # “Feed My Sheep”
 
+Gordon B. Hinckley
+
 By Elder Ned B. Roueché - *Of the Seventy*
 
 *Given in the October session of the 2004 General Conference*
@@ -30,7 +32,7 @@ It takes courage to come back when we have gotten off the Savior’s path. I pro
 
 “Remember the worth of souls is great in the sight of God;
 
-“For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of all men, that all men might repent and come unto him. …
+“For, behold, the Lord your Redeemer suffered death in the flesh; wherefore he suffered the pain of all men, that all men might repent and come unto him. …
 
 “And how great is his joy in the soul that repenteth!” ([[D&C 18.10|D&C 18:10–11, 13]][[D&C 18.11|]][[D&C 18.13|]]).
 
@@ -40,10 +42,8 @@ We all have a great responsibility that has been placed upon our shoulders by th
 
 I pray that each of us can think about our families and our friends and acquaintances who are not enjoying the full blessings of the gospel. Think about those over whom you have a responsibility because of your calling. Ask yourself, “What can I do?” Heavenly Father will guide you as you seek His help. Then go and search them out and invite them to return and enjoy full fellowship and the wonderful message of the restored gospel of Jesus Christ. Let them feel your love and hear your testimony. Help them to recall the feelings that they once knew of the eternal truths that will make their lives full of joy and happiness.
 
-May we be anxiously engaged in gathering in His sheep who have gone astray, so they can be safe in the fold. He “who is mighty to save” ([[2 Nephi 31.19|2 Nephi 31:19]]) is the Good Shepherd, and He loves His sheep. I so testify in the name of Jesus Christ, amen.
+May we be anxiously engaged in gathering in His sheep who have gone astray, so they can be safe in the fold. He “who is mighty to save” ([[2 Nephi 31.19|2 Nephi 31:19]]) is the Good Shepherd, and He loves His sheep. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-
-#Activation #Fellowshipping #Forgiveness #Jesus_Christ

@@ -1,7 +1,6 @@
 # Holy Ghost, Baptism of
 
-
-*See also* [[Conversion, Convert.md|Conversion]]; [[Holy Ghost, Gift of.md|Holy Ghost, Gift of]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Sanctification, Sanctify.md|Sanctification]]
+*See also* [[Conversion.md|Conversion]]; [[Holy Ghost, Gift of.md|Holy Ghost, Gift of]]; [[Man, New, Spiritually Reborn.md|Man, New, Spiritually Reborn]]; [[Sanctification.md|Sanctification]]
 
 *baptize* you with the *Holy Ghost*, and with fire, [[Matthew 3.11|Matthew 3:11]] ([[2 Nephi 31.13|2 Nephi 31:13]]; [[3 Nephi 9.20|3 Nephi 9:20]]; [[3 Nephi 11.35|3 Nephi 11:35]]; [[3 Nephi 12.1|3 Nephi 12:1]]; [[3 Nephi 19.13|3 Nephi 19:13]]; [[D&C 19.31|D&C 19:31]]; [[D&C 33.11|D&C 33:11]]; [[D&C 39.6|D&C 39:6]]; [[Moses 6.66|Moses 6:66]]).
 
@@ -23,7 +22,7 @@ after being *sanctified* by the *Holy Ghost*, [[Alma 13.12|Alma 13:12]].
 
 be *born* of God, and be filled with the *Holy Ghost*, [[Alma 36.24|Alma 36:24]].
 
-the Holy Spirit of God ... did *enter* into their hearts, [[Helaman 5.45|Helaman 5:45]].
+the Holy Spirit of God … did *enter* into their hearts, [[Helaman 5.45|Helaman 5:45]].
 
 sanctified by the *reception* of the *Holy Ghost*, [[3 Nephi 27.20|3 Nephi 27:20]].
 
@@ -36,5 +35,3 @@ ye must be *born* again into the kingdom of heaven, [[Moses 6.59|Moses 6:59]].
 he was *born* of the Spirit, and became quickened, [[Moses 6.65|Moses 6:65]].
 
 We were *filled* with the *Holy Ghost*, [[Joseph Smith History 1.73|Joseph Smith History 1:73]].
-
-*See also* [[Acts 10.47|Acts 10:47]]; [[1 Peter 1.3|1 Peter 1:3]]; [[3 Nephi 15.23|3 Nephi 15:23]]; [[Moses 5.9|Moses 5:9]].

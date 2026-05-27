@@ -1,5 +1,7 @@
 # Peace—A Triumph of Principles
 
+Gordon B. Hinckley
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1985 General Conference*
@@ -34,7 +36,7 @@ There are those who dangle false enticements of peace before us. These are they 
 
 Peace will never be the possession of those who participate in vulgar conversations and behavior. Let us not be planters of poisonous seeds. Rather let us nourish roots of peace in the soil of righteous principles.
 
-It was Ralph Waldo Emerson who declared the mighty truth, “Nothing can bring you peace but yourself. Nothing can bring you peace but a triumph of principles.” (“Self-Reliance,” in *Ralph Waldo Emerson: Essays and Lectures,* New York: The Library of America, 1983, p. 282.)
+It was Ralph Waldo Emerson who declared the mighty truth, “Nothing can bring you peace but yourself. Nothing can bring you peace but a triumph of principles.” (“Self-Reliance,” in *Ralph Waldo Emerson: Essays and Lectures,* New York: The Library of America, 1983, p. 282.)
 
 Peace is not a purchase away. Peace is not when the final installment is paid. Peace is not when marriage comes nor when all the children are enrolled in school. Peace is not when the last child returns from the mission field. Peace is not when an inheritance is received. Peace is not when the scars of death start to heal.
 
@@ -77,8 +79,3 @@ To this I bear my special witness in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Peace

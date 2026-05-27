@@ -1,7 +1,6 @@
 # Vine
 
-
-*See also* [BD Vine](https://www.churchofjesuschrist.org/study/scriptures/bd/vine?lang=eng)
+*See also* [[BD Vine.md|BD Vine]]
 
 Binding his foal unto the *vine*, [[Genesis 49.11|Genesis 49:11]].
 
@@ -37,9 +36,9 @@ I am the true *vine*, [[John 15.1|John 15:1]].
 
 I am the *vine*, ye are the branches, [[John 15.5|John 15:5]].
 
-Can the fig tree ... bear olive berries? either a *vine*, figs, [[James 3.12|James 3:12]].
+Can the fig tree … bear olive berries? either a *vine*, figs, [[James 3.12|James 3:12]].
 
-angel ... gathered the *vine* of the earth, [[Revelation 14.19|Revelation 14:19]].
+angel … gathered the *vine* of the earth, [[Revelation 14.19|Revelation 14:19]].
 
 nourishment from the true *vine*, [[1 Nephi 15.15|1 Nephi 15:15]].
 

@@ -1,6 +1,5 @@
 # Cross
 
-
 he that taketh not his *cross*, [[Matthew 10.38|Matthew 10:38]] ([[Luke 14.27|Luke 14:27]]).
 
 take up his *cross*, [[Matthew 16.24|Matthew 16:24]] ([[Mark 8.34|Mark 8:34]]; [[Luke 9.23|Luke 9:23]]).
@@ -19,7 +18,7 @@ preaching of the *cross* is to them that perish foolishness, [[1 Corinthians 1.1
 
 glory, save in the *cross* of our Lord, [[Galatians 6.14|Galatians 6:14]].
 
-reconcile both unto God ... by the *cross*, [[Ephesians 2.16|Ephesians 2:16]].
+reconcile both unto God … by the *cross*, [[Ephesians 2.16|Ephesians 2:16]].
 
 enemies of the *cross* of Christ, [[Philippians 3.18|Philippians 3:18]].
 
@@ -33,13 +32,13 @@ lifted up upon the *cross* and slain for the sins, [[1 Nephi 11.33|1 Nephi 11:33
 
 they who have endured the *crosses* of the world, [[2 Nephi 9.18|2 Nephi 9:18]].
 
-all men would ... suffer his *cross*, [[Jacob 1.8|Jacob 1:8]].
+all men would … suffer his *cross*, [[Jacob 1.8|Jacob 1:8]].
 
 take up your *cross*, [[3 Nephi 12.30|3 Nephi 12:30]] ([[D&C 23.6|D&C 23:6]]).
 
 I had been lifted up upon the *cross*, [[3 Nephi 27.14|3 Nephi 27:14]].
 
-he that will not take up his *cross* ... shall not be saved, [[D&C 56.2|D&C 56:2]].
+he that will not take up his *cross* … shall not be saved, [[D&C 56.2|D&C 56:2]].
 
 sacrifice of the Son of God upon the *cross*, [[D&C 138.35|D&C 138:35]].
 

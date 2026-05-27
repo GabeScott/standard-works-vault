@@ -1,15 +1,14 @@
 # Leadership
 
-
-*See also* [[Bishop.md|Bishop]]; [[Delegation of Responsibility.md|Delegation of Responsibility]]; [[Elder.md|Elder]]; [[Governments.md|Governments]]; [[Jesus Christ, Head of the Church.md|Jesus Christ, Head of the Church]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Shepherd.md|Shepherd]]; [[Watchman, Watchmen.md|Watchman]]
+*See also* [[Bishop.md|Bishop]]; [[Delegation of Responsibility.md|Delegation of Responsibility]]; [[Elder.md|Elder]]; [[Governments.md|Governments]]; [[Jesus Christ, Head of the Church.md|Jesus Christ, Head of the Church]]; [[Priesthood, Keys of.md|Priesthood, Keys of]]; [[Shepherd.md|Shepherd]]; [[Watchman.md|Watchman]]
 
 they shall bear the *burden* with thee, [[Exodus 18.22|Exodus 18:22]] ([[Numbers 11.17|Numbers 11:17]]).
 
-Take you wise men ... make them *rulers*, [[Deuteronomy 1.13|Deuteronomy 1:13]].
+Take you wise men … make them *rulers*, [[Deuteronomy 1.13|Deuteronomy 1:13]].
 
 *Lead* me in thy truth, and teach me, [[Psalms 25.5|Psalms 25:5]].
 
-I have taught ... I have *led* thee in right paths, [[Proverbs 4.11|Proverbs 4:11]].
+I have taught … I have *led* thee in right paths, [[Proverbs 4.11|Proverbs 4:11]].
 
 when the wicked beareth *rule*, the people mourn, [[Proverbs 29.2|Proverbs 29:2]] ([[D&C 98.9|D&C 98:9]]).
 
@@ -23,9 +22,9 @@ whosoever will be *great* among you, let him be your minister, [[Matthew 20.26|M
 
 I will make thee *ruler* over many things, [[Matthew 25.21|Matthew 25:21]].
 
-hireling, and not the shepherd ... *leaveth* the sheep, [[John 10.12|John 10:12]].
+hireling, and not the shepherd … *leaveth* the sheep, [[John 10.12|John 10:12]].
 
-I have given you an *example* ... do as I have done, [[John 13.15|John 13:15]].
+I have given you an *example* … do as I have done, [[John 13.15|John 13:15]].
 
 as many as are *led* by the Spirit of God, [[Romans 8.14|Romans 8:14]].
 
@@ -41,11 +40,11 @@ as ye are not holy, and ye look upon me as a *teacher*, [[2 Nephi 9.48|2 Nephi 9
 
 our *leaders* were mighty men in the faith of the Lord, [[Jarom 1.7|Jarom 1:7]].
 
-began to *lead* ... from one piece of iniquity to another, [[Alma 4.11|Alma 4:11]].
+began to *lead* … from one piece of iniquity to another, [[Alma 4.11|Alma 4:11]].
 
-*called* ... on account of their exceeding faith and good works, [[Alma 13.3|Alma 13:3]].
+*called* … on account of their exceeding faith and good works, [[Alma 13.3|Alma 13:3]].
 
-chief *captains* ... one that had the spirit of revelation, [[3 Nephi 3.19|3 Nephi 3:19]].
+chief *captains* … one that had the spirit of revelation, [[3 Nephi 3.19|3 Nephi 3:19]].
 
 their *leaders* did establish their laws, [[3 Nephi 7.11|3 Nephi 7:11]].
 
@@ -57,9 +56,9 @@ Be ye clean that *bear* the vessels of the Lord, [[D&C 38.42|D&C 38:42]].
 
 ordained by some one who has *authority*, [[D&C 42.11|D&C 42:11]].
 
-*ordained* of God ... is appointed to be the greatest, [[D&C 50.26|D&C 50:26]].
+*ordained* of God … is appointed to be the greatest, [[D&C 50.26|D&C 50:26]].
 
-required ... of every *steward*, to render an account, [[D&C 72.3|D&C 72:3]].
+required … of every *steward*, to render an account, [[D&C 72.3|D&C 72:3]].
 
 He that *exalteth* himself shall be abased, [[D&C 101.42|D&C 101:42]].
 
@@ -69,12 +68,10 @@ who are appointed to *lead* my people, [[D&C 105.7|D&C 105:7]].
 
 let every man *learn* his duty, and to act in the office, [[D&C 107.99|D&C 107:99]].
 
-little authority ... begin to exercise *unrighteous* dominion, [[D&C 121.39|D&C 121:39]].
+little authority … begin to exercise *unrighteous* dominion, [[D&C 121.39|D&C 121:39]].
 
 whom I have appointed to *lead* my people, [[D&C 124.45|D&C 124:45]].
 
 I will *lead* thee by my hand, [[Abraham 1.18|Abraham 1:18]].
 
 These I will make my *rulers*, [[Abraham 3.23|Abraham 3:23]].
-
-*See also* [[2 Chronicles 18.12|2 Chr. 18:12-13]][[2 Chronicles 18.13|]]; [[Matthew 21.28|Matt. 21:28-30]][[Matthew 21.29|]][[Matthew 21.30|]]; [[Luke 6.12|Luke 6:12-16]][[Luke 6.13|]][[Luke 6.14|]][[Luke 6.15|]][[Luke 6.16|]]; [[Ephesians 6.9|Ephesians 6:9]]; [[Mosiah 18.12|Mosiah 18:12-13]][[Mosiah 18.13|]]; [[Mosiah 26.10|26:10-13]][[Mosiah 26.11|]][[Mosiah 26.12|]][[Mosiah 26.13|]]; [[Helaman 10.1|Hel. 10:1-5]][[Helaman 10.2|]][[Helaman 10.3|]][[Helaman 10.4|]][[Helaman 10.5|]]; [[D&C 70.3|D&C 70:3-9]][[D&C 70.4|]][[D&C 70.5|]][[D&C 70.6|]][[D&C 70.7|]][[D&C 70.8|]][[D&C 70.9|]].

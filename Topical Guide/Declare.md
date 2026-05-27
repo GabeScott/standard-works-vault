@@ -1,7 +1,6 @@
 # Declare
 
-
-*See also* [[Preaching, Preach.md|Preaching]]; [[Proclaim.md|Proclaim]]; [[Prophecy.md|Prophecy]]; [[Publish.md|Publish]]; [[Tell, Told.md|Tell]]
+*See also* [[Preaching.md|Preaching]]; [[Proclaim.md|Proclaim]]; [[Prophecy.md|Prophecy]]; [[Publish.md|Publish]]; [[Tell.md|Tell]]
 
 my name may be *declared* throughout all the earth, [[Exodus 9.16|Exodus 9:16]] ([[Romans 9.17|Romans 9:17]]).
 
@@ -41,7 +40,7 @@ they shall *declare* my glory among the Gentiles, [[Isaiah 66.19|Isaiah 66:19]].
 
 *Declare* unto us the parable of the tares, [[Matthew 13.36|Matthew 13:36]].
 
-the only begotten Son ... hath *declared* him, [[John 1.18|John 1:18]].
+the only begotten Son … hath *declared* him, [[John 1.18|John 1:18]].
 
 I have *declared* unto them thy name, [[John 17.26|John 17:26]].
 

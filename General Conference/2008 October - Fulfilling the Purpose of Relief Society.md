@@ -1,5 +1,7 @@
 # Fulfilling the Purpose of Relief Society
 
+Thomas S. Monson
+
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2008 General Conference*
@@ -18,7 +20,7 @@ I will begin by reviewing some of the history of Relief Society in order to expl
 
 ## I. Why Relief Society Was Established
 
-It is impossible to understand why we have an organization for women in the Church without having an understanding of the Restoration of the gospel of Jesus Christ. The Lord, knowing about the calamities that would come to pass in these latter days, spoke to His servant Joseph Smith Jr. “and gave him commandments; …
+It is impossible to understand why we have an organization for women in the Church without having an understanding of the Restoration of the gospel of Jesus Christ. The Lord, knowing about the calamities that would come to pass in these latter days, spoke to His servant Joseph Smith Jr. “and gave him commandments; …
 
 “That faith … might increase in the earth;
 
@@ -30,9 +32,9 @@ The work of the Lord is accomplished as His gospel is “preached unto every nat
 
 Just as the Savior invited Mary and Martha of New Testament times[^3] to participate in His work, women of this dispensation have an official commission to participate in the Lord’s work. From the earliest days of the Restoration, women were active in helping build up the Church by supporting missionary efforts, contributing to the construction of temples, and establishing communities where the Saints could worship together. The organization of Relief Society in 1842 mobilized the collective power of the women and their specific assignments to build the Lord’s kingdom, just as the organization of priesthood quorums gave men specific responsibilities.
 
-Since its organization, Relief Society has spread throughout the world and has been called “the largest, and by all measure, the greatest women’s organization on earth.”[^4] We know through the Prophet Joseph Smith that Relief Society was a formal part of the Restoration and that a similar organization for women existed in the Church anciently.[^5] President Joseph F. Smith taught that Relief Society was “divinely made, divinely authorized, divinely instituted, divinely ordained of God,”[^6] “according to the law of heaven,”[^7] to help the Lord “bring to pass the … eternal life of man.”[^8]
+Since its organization, Relief Society has spread throughout the world and has been called “the largest, and by all measure, the greatest women’s organization on earth.”[^4] We know through the Prophet Joseph Smith that Relief Society was a formal part of the Restoration and that a similar organization for women existed in the Church anciently.[^5] President Joseph F. Smith taught that Relief Society was “divinely made, divinely authorized, divinely instituted, divinely ordained of God,”[^6] “according to the law of heaven,”[^7] to help the Lord “bring to pass the … eternal life of man.”[^8]
 
-Through Relief Society, women have an official role in the Church with great responsibilities, “including working in the temple and teaching the gospel.”[^9] Further, Relief Society is to help women “plant and make grow … a testimony of \[Jesus\] Christ and of the Gospel,”[^10] “strengthen the family and the home,”[^11] and “attend to all family duties.”[^12] It has responsibility to take care of the “necessities of the poor, the sick and the needy,” but President Joseph F. Smith said that the larger part of its work is “to look after the spiritual welfare \[and salvation\] … of all the female members of the Church.”[^13]
+Through Relief Society, women have an official role in the Church with great responsibilities, “including working in the temple and teaching the gospel.”[^9] Further, Relief Society is to help women “plant and make grow … a testimony of \[Jesus\] Christ and of the Gospel,”[^10] “strengthen the family and the home,”[^11] and “attend to all family duties.”[^12] It has responsibility to take care of the “necessities of the poor, the sick and the needy,” but President Joseph F. Smith said that the larger part of its work is “to look after the spiritual welfare \[and salvation\] … of all the female members of the Church.”[^13]
 
 To summarize, the purpose of Relief Society, as established by the Lord, is to organize, teach, and inspire His daughters to prepare them for the blessings of eternal life. I would like to say that again. The purpose of Relief Society, as established by the Lord, is to organize, teach, and inspire His daughters to prepare them for the blessings of eternal life.
 
@@ -60,7 +62,7 @@ Mother knew that if I was sick, the sisters would take care of me, and when I ha
 
 Three different women held the calling of Relief Society president in my wards during the years my parents were away. Alta Chamberlain invited me to teach time management and home organization to the other sisters, perhaps because she saw that I needed to improve those skills. Jeanne Horne encouraged me to complete my first serious personal study of the Book of Mormon. Norma Healey gave me my first assignments at the cannery and taught me much about service. These wonderful women understood the purpose of Relief Society.
 
-**3. Serve the Lord and His children.** A third responsibility of all women of the Church is to serve the Lord and His children. It is interesting to me that during the years my mother was away, I served as the ward Primary president and later as the ward Young Women president. I was a member of the ward council, working under the direction of the bishopric. President Boyd K. Packer taught us that “just as \[the service of many brethren in the Aaronic Priesthood\] strengthens the Higher Priesthood, … to unselfishly render this service \[in Young Women and Primary\] is to show devotion to Relief Society.”[^17] When we serve in another auxiliary, we are not released from the sisterhood of Relief Society. Because we do not go in or out of Relief Society, we are always connected to the purpose and responsibilities of Relief Society and are blessed by all opportunities to be examples and faith-filled shepherds to our Father’s children.
+**3. Serve the Lord and His children.** A third responsibility of all women of the Church is to serve the Lord and His children. It is interesting to me that during the years my mother was away, I served as the ward Primary president and later as the ward Young Women president. I was a member of the ward council, working under the direction of the bishopric. President Boyd K. Packer taught us that “just as \[the service of many brethren in the Aaronic Priesthood\] strengthens the Higher Priesthood, … to unselfishly render this service \[in Young Women and Primary\] is to show devotion to Relief Society.”[^17] When we serve in another auxiliary, we are not released from the sisterhood of Relief Society. Because we do not go in or out of Relief Society, we are always connected to the purpose and responsibilities of Relief Society and are blessed by all opportunities to be examples and faith-filled shepherds to our Father’s children.
 
 Relief Society has within its commission some of the most remarkable service opportunities on earth, which are available to *all* sisters. In my travels across the world, I have seen that the thousands upon thousands of you who do not currently have a husband or children are an incredible reservoir of faith, talent, and dedication. No one is better positioned than you to work in temples, serve missions, teach the rising generation, and help those who are downtrodden. The Lord *needs* you.
 
@@ -68,13 +70,13 @@ I have also marveled at the youth and energy of you who are just arriving in Rel
 
 ## III. Fulfilling the Purpose
 
-We can do the work of the Lord in His way when we seek, receive, and act on personal revelation. Without personal revelation, we cannot succeed. If we heed personal revelation, we cannot fail. The prophet Nephi instructs us that the Holy Ghost will show us “all things what \[we\] should do.”[^18] It was prophesied that in the latter days the Lord would pour out His Spirit upon His handmaids.[^19] This will happen as we allow ourselves to be still enough and quiet enough to listen to the voice of the Spirit. Elder Neal A. Maxwell taught us that receiving revelation for our calling and in our personal lives “requires serious mental effort on our part. … Revelation is not a matter of pushing buttons, but of pushing ourselves, often aided by fasting, scripture study, and personal pondering.
+We can do the work of the Lord in His way when we seek, receive, and act on personal revelation. Without personal revelation, we cannot succeed. If we heed personal revelation, we cannot fail. The prophet Nephi instructs us that the Holy Ghost will show us “all things what \[we\] should do.”[^18] It was prophesied that in the latter days the Lord would pour out His Spirit upon His handmaids.[^19] This will happen as we allow ourselves to be still enough and quiet enough to listen to the voice of the Spirit. Elder Neal A. Maxwell taught us that receiving revelation for our calling and in our personal lives “requires serious mental effort on our part. … Revelation is not a matter of pushing buttons, but of pushing ourselves, often aided by fasting, scripture study, and personal pondering.
 
 “Most of all, revelation requires us to have a sufficient degree of personal righteousness, so that on occasion revelation may come to the righteous, unsolicited.”[^20]
 
 ## IV. Conclusion
 
-President Spencer W. Kimball stated a number of years ago that “there is a power in this organization that has not yet been fully exercised to strengthen the homes of Zion and build the Kingdom of God—nor will it until both the sisters and the priesthood catch the vision of Relief Society.”[^21] Relief Society was established by the Lord to organize, teach, and inspire His daughters to prepare for the blessings of eternal life. Our aim is to support the women of the Church in their individual responsibilities by ensuring that every meeting, every lesson, and every activity we undertake helps them increase in faith and personal righteousness, strengthen their families and their homes, and serve the Lord and His children.
+President Spencer W. Kimball stated a number of years ago that “there is a power in this organization that has not yet been fully exercised to strengthen the homes of Zion and build the Kingdom of God—nor will it until both the sisters and the priesthood catch the vision of Relief Society.”[^21] Relief Society was established by the Lord to organize, teach, and inspire His daughters to prepare for the blessings of eternal life. Our aim is to support the women of the Church in their individual responsibilities by ensuring that every meeting, every lesson, and every activity we undertake helps them increase in faith and personal righteousness, strengthen their families and their homes, and serve the Lord and His children.
 
 The only way we can accomplish this is by seeking, receiving, and acting on personal revelation. The real power in this great worldwide sisterhood lies within each woman. Though we may see ourselves as weak and simple, we all share a noble heritage and can develop a faith that is equal to that of remarkable, faithful women who have gone before us. We have a vital role to play in helping build the kingdom of God and preparing for the Lord’s coming. In fact, the Lord cannot accomplish His work without the help of His daughters. Because of that, the Lord expects us to increase our offering. He expects us to fulfill the purpose of Relief Society as never before. I am grateful to testify of the truthfulness of the restored gospel of Jesus Christ and of a living prophet today who leads His work. In the name of Jesus Christ, amen.
 
@@ -87,25 +89,25 @@ The only way we can accomplish this is by seeking, receiving, and acting on pers
 
 [^3]: See [[Luke 10.38|Luke 10:38–42]][[Luke 10.39|]][[Luke 10.40|]][[Luke 10.41|]][[Luke 10.42|]].
 
-[^4]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 109.
+[^4]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 109.
 
-[^5]: See Eliza R. Snow, “Female Relief Society,” *Deseret News,* Apr. 22, 1868, 1.
+[^5]: See Eliza R. Snow, “Female Relief Society,” *Deseret News,* Apr. 22, 1868, 1.
 
-[^6]: *Teachings of Presidents of the Church: Joseph F. Smith* (Melchizedek Priesthood and Relief Society course of study, 1998), 185.
+[^6]: *Teachings of Presidents of the Church: Joseph F. Smith* (Melchizedek Priesthood and Relief Society course of study, 1998), 185.
 
 [^7]: [[D&C 102.4|D&C 102:4]].
 
 [^8]: [[Moses 1.39|Moses 1:39]].
 
-[^9]: Dallin H. Oaks, “The Priesthood and the Auxiliaries,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 17.
+[^9]: Dallin H. Oaks, “The Priesthood and the Auxiliaries,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 17.
 
 [^10]: The First Presidency, “Memorandum of Suggestions,” Mar. 29, 1940, 2.
 
 [^11]: *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 17.
 
-[^12]: [[D&C 20.47|D&C 20:47]]; see also [[D&C 20.51|v. 51]].
+[^12]: [[D&C 20.47|D&C 20:47]]; see also [[D&C 20.51|v. 51]].
 
-[^13]: *Teachings: Joseph F. Smith,* 185.
+[^13]: *Teachings: Joseph F. Smith,* 185.
 
 [^14]: [[Alma 32.43|Alma 32:43]].
 
@@ -115,16 +117,11 @@ The only way we can accomplish this is by seeking, receiving, and acting on pers
 
 [^17]: *Ensign,* Nov. 1980, 110.
 
-[^18]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^18]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^19]: See [[Joel 2.29|Joel 2:29]].
 
-[^20]: Neal A. Maxwell, “Revelation,” *First Worldwide Leadership Training Meeting,* Jan. 11, 2003, 5.
+[^20]: Neal A. Maxwell, “Revelation,” *First Worldwide Leadership Training Meeting,* Jan. 11, 2003, 5.
 
-[^21]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
+[^21]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
 
-
-
-
-
-#Faith #Family #Relief_Society #Service #Women

@@ -1,9 +1,8 @@
 # Door
 
-
 *See also* [[Doorpost.md|Doorpost]]; [[Gate.md|Gate]]; [[Way.md|Way]]
 
-if ... sin lieth at the *door*, [[Genesis 4.7|Genesis 4:7]].
+if … sin lieth at the *door*, [[Genesis 4.7|Genesis 4:7]].
 
 Lord will pass over the *door*, [[Exodus 12.23|Exodus 12:23]].
 

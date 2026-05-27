@@ -1,6 +1,8 @@
 # My Mind Caught Hold upon This Thought of Jesus Christ
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Gary E. Stevenson
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -26,7 +28,11 @@ My prayer at this Easter season is that we will more consciously shape, strength
 
 Filling our mind with the power of Jesus Christ does not mean that He is the only thought we have. But it does mean that all our thoughts are circumscribed in His love, His life and teachings, and His atoning sacrifice and glorious Resurrection. Jesus is never in a forgotten corner, because our thoughts of Him are always present and “all that is in \[us adores\] him!”[^12] We pray and rehearse in our mind experiences that have brought us closer to Him. We welcome into our mind divine images, holy scriptures, and inspired hymns to gently cushion the countless daily thoughts rushing through our busy lives. Our love for Him does not shield us from the sadness and sorrow in this mortal life, but it allows us to walk through the challenges with a strength far beyond our own.
 
-Jesus, the very thought of theeWith sweetness fills my breast;But sweeter far thy face to seeAnd in thy presence rest.[^13]
+>Jesus, the very thought of thee
+>With sweetness fills my breast;
+>But sweeter far thy face to see
+>And in thy presence rest.[^13]
+>
 
 Remember, you are a spirit child of Heavenly Father. As the Apostle Paul explains, we are “the offspring of God.”[^14] You have lived with your own individual identity long before coming to earth. Our Father created a perfect plan for us to come to earth, learn, and return to Him. He sent His Beloved Son that through the power of His infinite Atonement and Resurrection, we live beyond the grave; and as we are willing to exercise faith in Him and repent of our sins,[^15] we are forgiven and receive the hope of eternal life.[^16]
 
@@ -42,7 +48,7 @@ Four years ago, by reducing the time of our sacrament meeting, we increased our 
 
 With the isolation of the worldwide pandemic and the help of *Come, Follow Me*, the teachings of the Savior are becoming more prominent in our homes, helping our worship of the Savior during the week.
 
-By following President Russell M. Nelson’s counsel to “hear Him,”[^21] we are refining our ability to recognize the whisperings of the Holy Ghost and to see the hand of the Lord in our lives.
+By following President Russell M. Nelson’s counsel to “hear Him,”[^21] we are refining our ability to recognize the whisperings of the Holy Ghost and to see the hand of the Lord in our lives.
 
 With the announcement and completion of dozens of temples, we are more frequently entering the house of the Lord and receiving His promised blessings. We are feeling more powerfully the transcendent beauty of our Savior and Redeemer.
 
@@ -60,7 +66,7 @@ For over a year Sarah had regularly scheduled Saturday appointments for the fami
 
 In November of last year, Sarah scheduled a family temple appointment for the last week in December on Thursday instead of Saturday. “I hope you’re OK with that,” she said to Matt.
 
-Sarah had been diagnosed with cancer, but the doctors anticipated she would live two or three more years. During a sacrament meeting, Sarah had shared her powerful testimony, saying that whatever the outcome for her, she loved the Savior with all her heart and that “the victory had already been won” by Him. As December progressed, unexpectedly Sarah’s health rapidly declined, and she was admitted to the hospital. In the early morning of Thursday, December 29, she quietly completed her mortality. Matt had been by Sarah’s side all through the night.
+Sarah had been diagnosed with cancer, but the doctors anticipated she would live two or three more years. During a sacrament meeting, Sarah had shared her powerful testimony, saying that whatever the outcome for her, she loved the Savior with all her heart and that “the victory had already been won” by Him. As December progressed, unexpectedly Sarah’s health rapidly declined, and she was admitted to the hospital. In the early morning of Thursday, December 29, she quietly completed her mortality. Matt had been by Sarah’s side all through the night.
 
 With his heart breaking, and completely exhausted physically and emotionally, he arrived home, sorrowing with his daughters. As Matt glanced at his phone, he noticed the reminder of the unusual Thursday temple appointment Sarah had scheduled for later that day. Matt said, “When I first saw it, I thought, This just isn’t going to work.”
 
@@ -85,15 +91,15 @@ In this Easter season, I witness the complete and absolute truth of the Savior�
 
 [^6]: [[Alma 36.17|Alma 36:17]].
 
-[^7]: [[Alma 36.18|Alma 36:18]]. The other time “caught hold” is used in the Book of Mormon is speaking of those who “caught hold of the end of the rod of iron” ([[1 Nephi 8.24|1 Nephi 8:24, 30]][[1 Nephi 8.30|]]).
+[^7]: [[Alma 36.18|Alma 36:18]]. The other time “caught hold” is used in the Book of Mormon is speaking of those who “caught hold of the end of the rod of iron” ([[1 Nephi 8.24|1 Nephi 8:24, 30]][[1 Nephi 8.30|]]).
 
 [^8]: [[Alma 36.19|Alma 36:19]].
 
 [^9]: [[Alma 36.21|Alma 36:21]].
 
-[^10]: “The greatest battle of life is fought within the silent chambers of your own soul” (David O. McKay, in Conference Report, Apr. 1967, 84).
+[^10]: “The greatest battle of life is fought within the silent chambers of your own soul” (David O. McKay, in Conference Report, Apr. 1967, 84).
 
-[^11]: “\[Thoughts\] sponsor all action. Our thoughts are the switchboard, the control panel governing our actions” (Boyd K. Packer, *That All May Be Edified* \[1982\], 33).
+[^11]: “\[Thoughts\] sponsor all action. Our thoughts are the switchboard, the control panel governing our actions” (Boyd K. Packer, *That All May Be Edified* \[1982\], 33).
 
 [^12]: “Praise to the Lord, the Almighty,” *Hymns*, no. 72.
 
@@ -109,16 +115,11 @@ In this Easter season, I witness the complete and absolute truth of the Savior�
 
 [^18]: “A good man out of the good treasure of his heart bringeth forth that which is good; and an evil man out of the evil treasure of his heart bringeth forth that which is evil: for of the abundance of the heart his mouth speaketh” ([[Luke 6.45|Luke 6:45]]).
 
-[^19]: See Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87–89.
+[^19]: See Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 87–89.
 
 [^20]: Our covenant each week in the sacrament prayer is that we will “always remember him” ([[Moroni 4.3|Moroni 4:3]]; [[D&C 20.77|Doctrine and Covenants 20:77]]). The Book of Mormon encourages us by using the word twice, one after another: “remember, remember” ([[Mosiah 2.41|Mosiah 2:41]]; [[Alma 37.13|Alma 37:13]]; [[Helaman 5.9|Helaman 5:9]]). Spiritually remembering comes through the power of the Holy Ghost: “He shall teach you all things, and bring all things to your remembrance” ([[John 14.26|John 14:26]]).
 
-[^21]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 90.
+[^21]: Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 90.
 
-[^22]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 41. President Nelson also said, “The joy \[Latter-day Saints\] feel has little to do with the circumstances of our lives and everything to do with the focus of our lives” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82).
+[^22]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona*, May 2017, 41. President Nelson also said, “The joy \[Latter-day Saints\] feel has little to do with the circumstances of our lives and everything to do with the focus of our lives” (“[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82).
 
-
-
-
-
-#Atonement #Jesus_Christ #Joy #Peace #Repentance

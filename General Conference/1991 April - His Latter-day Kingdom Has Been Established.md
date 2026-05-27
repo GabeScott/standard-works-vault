@@ -1,5 +1,7 @@
 # His Latter-day Kingdom Has Been Established
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -16,9 +18,9 @@ May I give you some of his own words on which to reflect as you leave for your h
 
 “I solemnly declare that the Lord has established his latter-day kingdom upon the earth in fulfillment of prophecies uttered by his ancient prophets and apostles. Holy angels have again communed with men on the earth. God has again revealed himself from heaven and restored to the earth his holy priesthood with power to administer in all the sacred ordinances necessary for the exaltation of his children. His church has been reestablished among men with all the spiritual gifts enjoyed anciently.
 
-“All this is done in preparation for Christ’s second coming. The great and dreadful day of the Lord is near at hand. In preparation for this great event and as a means of escaping the impending judgments, inspired messengers have gone forth to the nations of the earth carrying his testimony and warning” (in Conference Report, Denmark, Finland, Norway, and Sweden Area General Conference, 18 Aug. 1974, pp. 128–29).
+“All this is done in preparation for Christ’s second coming. The great and dreadful day of the Lord is near at hand. In preparation for this great event and as a means of escaping the impending judgments, inspired messengers have gone forth to the nations of the earth carrying his testimony and warning” (in Conference Report, Denmark, Finland, Norway, and Sweden Area General Conference, 18 Aug. 1974, pp. 128–29).
 
-“I hope that all of us can see … the hand of the Lord moving His kingdom forward to accomplish on an accelerated basis what He designs to accomplish. …
+“I hope that all of us can see … the hand of the Lord moving His kingdom forward to accomplish on an accelerated basis what He designs to accomplish. …
 
 “The Lord is now revealing, and will continue to do so through channels He has appointed, everything necessary for the future development and perfection of His Church” (interdepartmental meeting, 16 Mar. 1977).
 
@@ -31,8 +33,3 @@ Now, my beloved brethren and sisters, as we return to our homes, may we carry wi
 
 
 
-
-
-
-
-#Church_Growth #Gratitude #Jesus_Christ #Obedience #Prophets #Restoration

@@ -1,7 +1,6 @@
 # Week
 
-
-*See also* [BD Weeks, Feast of](https://www.churchofjesuschrist.org/study/scriptures/bd/weeks-feast-of?lang=eng)
+*See also* [[BD Weeks, Feast of.md|BD Weeks, Feast of]]
 
 observe the feast of *weeks*, [[Exodus 34.22|Exodus 34:22]] ([[Deuteronomy 16.10|Deuteronomy 16:10]]).
 
@@ -13,4 +12,4 @@ seven *weeks*, and threescore and two *weeks*, [[Daniel 9.25|Daniel 9:25]].
 
 one day in every *week* that was set apart, [[Mosiah 18.25|Mosiah 18:25]] ([[Alma 31.12|Alma 31:12]]; [[Alma 32.11|Alma 32:11]]).
 
-give light to each other ... in their *weeks*, [[D&C 88.44|D&C 88:44]].
+give light to each other … in their *weeks*, [[D&C 88.44|D&C 88:44]].

@@ -1,6 +1,8 @@
 # Glimpses of Heaven
 
-By President Spencer W. Kimball - *Acting President of the Council of the Twelve*
+Joseph Fielding Smith
+
+By President Spencer W. Kimball - *Acting President of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -81,8 +83,3 @@ May the true gospel of the Master reach into the lives of all of us, I pray. In 
 
 
 
-
-
-
-
-#Children #Parents #Plan_Of_Salvation

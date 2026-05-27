@@ -4,6 +4,3 @@
 
 [JST 2 Samuel 12:13](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-2-sam/12?lang=eng)
 
-
-
-

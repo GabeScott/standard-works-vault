@@ -1,6 +1,8 @@
 # Waiting for the Prodigal
 
-By Elder Brent H. Nielson - *Of the Seventy*
+Cheryl A. Esplin
+
+By Elder Brent H. Nielson - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Brent H. Nielson - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/04/waiting-for-the-prodigal?lang=eng)
 
-The Savior Jesus Christ spent His earthly ministry teaching of His healing and redemptive power. On one occasion in [[Luke 15.1|Luke chapter 15]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]][[Luke 15.8|]][[Luke 15.9|]][[Luke 15.10|]][[Luke 15.11|]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]] in the New Testament, He was actually criticized for eating and spending time with sinners (see [[Luke 15.2|Luke 15:2]]). The Savior used this criticism as an opportunity to teach us all how to respond to those who have lost their way.
+The Savior Jesus Christ spent His earthly ministry teaching of His healing and redemptive power. On one occasion in [[Luke 15.1|Luke chapter 15]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]][[Luke 15.8|]][[Luke 15.9|]][[Luke 15.10|]][[Luke 15.11|]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]] in the New Testament, He was actually criticized for eating and spending time with sinners (see [[Luke 15.2|Luke 15:2]]). The Savior used this criticism as an opportunity to teach us all how to respond to those who have lost their way.
 
 He replied to His critics by asking them two important questions:
 
@@ -40,13 +42,13 @@ Six years ago this weekend, my wife, Marcia, and I were sitting on the front row
 
 Prompted by these two great women, I walked to the foyer and called my sister. I got her voice mail and simply invited her to watch that session of general conference. She got the message. To our delight, she felt impressed to watch all the sessions of conference. She heard from prophets and apostles she had loved in earlier years. She found new names she had not heard before, such as President Uchtdorf and Elders Bednar, Cook, Christofferson, and Andersen. During this and other unique heaven-sent experiences, my sister—like the prodigal son—came to herself (see [[Luke 15.17|Luke 15:17]]). The words of prophets and apostles and the love of her family moved her to turn and begin the walk back home. After 15 years our daughter and sister who was lost had been found. The watch and the wait were over.
 
-Susan describes this experience just as Lehi described it in the Book of Mormon. She let go of the iron rod and found herself in a mist of darkness (see [[1 Nephi 8.23|1 Nephi 8:23]]). She states that she did not know she was lost until her faith was reawakened by the Light of Christ, which brightly magnified the stark contrast between what she was experiencing in the world and what the Lord and her family were offering.
+Susan describes this experience just as Lehi described it in the Book of Mormon. She let go of the iron rod and found herself in a mist of darkness (see [[1 Nephi 8.23|1 Nephi 8:23]]). She states that she did not know she was lost until her faith was reawakened by the Light of Christ, which brightly magnified the stark contrast between what she was experiencing in the world and what the Lord and her family were offering.
 
 A miracle has occurred over the past six years. Susan has a renewed testimony of the Book of Mormon. She has received her temple recommend. She has served as an ordinance worker in the temple, and she currently teaches the Gospel Doctrine class in her ward. The windows of heaven have opened to her children and her grandchildren, and although there have been difficult consequences, it feels as if she never left.
 
 Some of you, like the Nielson family, have family members who have temporarily lost their way. The Savior’s instruction to all who have 100 sheep is to leave the ninety and nine and go after and rescue the one. His instruction to those who have 10 pieces of silver and lose one is to search until you find it. When the lost one is your son or your daughter, your brother or your sister, and he or she has chosen to leave, we learned in our family that, after all we can do, we love that person with all of our hearts and we watch, we pray, and we wait for the Lord’s hand to be revealed.
 
-Perhaps the most important lesson the Lord taught me through this process happened during our family scripture study after my sister had left the Church. Our son David was reading as we studied together [[Luke 15.1|Luke 15]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]][[Luke 15.8|]][[Luke 15.9|]][[Luke 15.10|]][[Luke 15.11|]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]. As he read the parable of the prodigal son, I heard it differently that day than I had ever heard it before. For some reason, I had always related to the son who stayed home. As David read that morning, I realized that in some ways *I* was the prodigal son. All of us fall short of the glory of the Father (see [[Romans 3.23|Romans 3:23]]). All of us need the Savior’s Atonement to heal us. All of us are lost and need to be found. This revelation that day helped me know that my sister and I both needed the Savior’s love and His Atonement. Susan and I were actually on the same path back home.
+Perhaps the most important lesson the Lord taught me through this process happened during our family scripture study after my sister had left the Church. Our son David was reading as we studied together [[Luke 15.1|Luke 15]][[Luke 15.2|]][[Luke 15.3|]][[Luke 15.4|]][[Luke 15.5|]][[Luke 15.6|]][[Luke 15.7|]][[Luke 15.8|]][[Luke 15.9|]][[Luke 15.10|]][[Luke 15.11|]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]. As he read the parable of the prodigal son, I heard it differently that day than I had ever heard it before. For some reason, I had always related to the son who stayed home. As David read that morning, I realized that in some ways *I* was the prodigal son. All of us fall short of the glory of the Father (see [[Romans 3.23|Romans 3:23]]). All of us need the Savior’s Atonement to heal us. All of us are lost and need to be found. This revelation that day helped me know that my sister and I both needed the Savior’s love and His Atonement. Susan and I were actually on the same path back home.
 
 The Savior’s words in the parable as He describes the father greeting his prodigal son are powerful, and I believe they may be the description of the experience you and I will have with the Father when we return to our heavenly home. They teach us of a father who loves, waits, and watches. These are the words of the Savior: “When he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him” ([[Luke 15.20|Luke 15:20]]).
 
@@ -55,5 +57,3 @@ May you and I receive the revelation to know how to best approach those in our l
 
 
 
-
-#Activation #Family #Jesus_Christ #Love #Patience

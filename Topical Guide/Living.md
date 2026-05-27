@@ -1,9 +1,8 @@
 # Living
 
-
 *See also* [[Alive.md|Alive]]; [[Quick.md|Quick]]
 
-God created ... every *living* creature that moveth, [[Genesis 1.21|Genesis 1:21]] ([[Moses 2.21|Moses 2:21]]; [[Abraham 4.21|Abraham 4:21]]).
+God created … every *living* creature that moveth, [[Genesis 1.21|Genesis 1:21]] ([[Moses 2.21|Moses 2:21]]; [[Abraham 4.21|Abraham 4:21]]).
 
 breath of life; and man became a *living* soul, [[Genesis 2.7|Genesis 2:7]] ([[Moses 3.7|Moses 3:7]]; [[Abraham 5.7|Abraham 5:7]]).
 
@@ -31,7 +30,7 @@ Ye are the sons of the *living* God, [[Hosea 1.10|Hosea 1:10]].
 
 Thou art the Christ, the Son of the *living* God, [[Matthew 16.16|Matthew 16:16]].
 
-the God ... of the *living*, [[Matthew 22.32|Matthew 22:32]] ([[Mark 12.27|Mark 12:27]]; [[Luke 20.38|Luke 20:38]]).
+the God … of the *living*, [[Matthew 22.32|Matthew 22:32]] ([[Mark 12.27|Mark 12:27]]; [[Luke 20.38|Luke 20:38]]).
 
 I adjure thee by the *living* God, [[Matthew 26.63|Matthew 26:63]].
 
@@ -61,7 +60,7 @@ new and *living* way, which he hath consecrated, [[Hebrews 10.20|Hebrews 10:20]]
 
 as unto a *living* stone, [[1 Peter 2.4|1 Peter 2:4]].
 
-he suffereth ... the pains of every *living* creature, [[2 Nephi 9.21|2 Nephi 9:21]].
+he suffereth … the pains of every *living* creature, [[2 Nephi 9.21|2 Nephi 9:21]].
 
 following the example of the Son of the *living* God, [[2 Nephi 31.16|2 Nephi 31:16]].
 
@@ -69,7 +68,7 @@ put their trust in the true and *living* God, [[Alma 5.13|Alma 5:13]].
 
 worship the true and the *living* God, [[Alma 7.6|Alma 7:6]].
 
-hear the words of ... the Son of the *living* God, [[3 Nephi 30.1|3 Nephi 30:1]] ([[Mormon 5.14|Mormon 5:14]]; [[D&C 14.9|D&C 14:9]]).
+hear the words of … the Son of the *living* God, [[3 Nephi 30.1|3 Nephi 30:1]] ([[Mormon 5.14|Mormon 5:14]]; [[D&C 14.9|D&C 14:9]]).
 
 ye will serve the true and *living* God, [[Mormon 9.28|Mormon 9:28]].
 
@@ -77,9 +76,9 @@ the only *living* and true God, [[D&C 20.19|D&C 20:19]].
 
 give ear to the voice of the *living* God, [[D&C 50.1|D&C 50:1]].
 
-none are exempt ... who belong to the church of the *living* God, [[D&C 70.10|D&C 70:10]].
+none are exempt … who belong to the church of the *living* God, [[D&C 70.10|D&C 70:10]].
 
-These are they who are come ... unto the city of the *living* God, [[D&C 76.66|D&C 76:66]].
+These are they who are come … unto the city of the *living* God, [[D&C 76.66|D&C 76:66]].
 
 he to whom is given the seal of the *living* God, [[D&C 77.9|D&C 77:9]].
 

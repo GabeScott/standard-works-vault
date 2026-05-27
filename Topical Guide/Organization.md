@@ -1,6 +1,5 @@
 # Organization
 
-
 *See also* [[Church Organization.md|Church Organization]]; [[Jesus Christ, Head of the Church.md|Jesus Christ, Head of the Church]]; [[Order.md|Order]]
 
 it must needs be that there be an *organization* of my people, [[D&C 78.3|D&C 78:3]].

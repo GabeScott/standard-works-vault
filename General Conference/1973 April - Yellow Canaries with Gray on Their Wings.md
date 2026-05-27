@@ -1,6 +1,8 @@
 # Yellow Canaries with Gray on Their Wings
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+Harold B. Lee
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -42,21 +44,21 @@ To live greatly, we must develop the capacity to face trouble with courage, disa
 
 True, we live in a world where moral character ofttimes is relegated to a position secondary to facial beauty or personal charm. We read and hear of local, national, and international beauty contests. Throngs pay tribute to Miss America, Miss World, and Miss Universe. Athletic prowess, too, has its following. The winter games, the world Olympics, the tournaments of international scope bring forth the adoring applause of the enthralled crowd. Such are the ways of men!
 
-But what are the inspired words of God? From a time of long ago the counsel of Samuel the prophet echoes in our ears: “… the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
+But what are the inspired words of God? From a time of long ago the counsel of Samuel the prophet echoes in our ears: “… the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
 
 Sham and hypocrisy found no place with the King of kings and the Lord of lords. He denounced the scribes and Pharisees for their vanity and shallow lives, their pretense and feigned righteousness. He called them “whited sepulchres, which indeed appear beautiful outward, but are within full of dead men’s bones.” ([[Matthew 23.27|Matt. 23:27]].)
 
 They, like the beautiful yellow canaries, were outwardly handsome, but a true song came not from their hearts.
 
-To their counterparts on this continent God’s prophet declared: “For behold, ye do love money, and your substance, and your fine apparel, and the adorning of your churches, more than ye love the poor and the needy, the sick and the afflicted. …
+To their counterparts on this continent God’s prophet declared: “For behold, ye do love money, and your substance, and your fine apparel, and the adorning of your churches, more than ye love the poor and the needy, the sick and the afflicted. …
 
-“Why are ye ashamed to take upon you the name of Christ? …
+“Why are ye ashamed to take upon you the name of Christ? …
 
 “Why do ye adorn yourselves with that which hath no life, and yet suffer the hungry, and the needy, and the naked, and the sick and the afflicted to pass by you, and notice them not?” ([[Mormon 8.37|Morm. 8:37–39]][[Mormon 8.38|]][[Mormon 8.39|]].)
 
 The Master could be found mingling with the poor, the downtrodden, the oppressed, and the afflicted. He brought hope to the hopeless, strength to the weak, and freedom to the captive. He taught of the better life to come—even eternal life. This knowledge ever directs those who receive the divine injunction: “Follow thou me.” It guided Peter. It motivated Paul. It can determine our personal destiny. Can we make the decision to follow in righteousness and truth the Redeemer of the world? With his help a rebellious boy can become an obedient man, a wayward girl can cast aside the old self and begin anew. Indeed, the gospel of Jesus Christ can change men’s lives.
 
-In his epistle to the Corinthians, the apostle Paul taught: “… God hath chosen the weak things of the world to confound the things which are mighty.” ([[1 Corinthians 1.27|1 Cor. 1:27]].)
+In his epistle to the Corinthians, the apostle Paul taught: “… God hath chosen the weak things of the world to confound the things which are mighty.” ([[1 Corinthians 1.27|1 Cor. 1:27]].)
 
 When the Savior sought a man of faith, he did not select him from the throng of self-righteous who were found regularly in the synagogue. Rather, he called him from among the fishermen of Capernaum.
 
@@ -64,13 +66,13 @@ While teaching on the seashore, he saw two ships standing by the lake. He entere
 
 Simon answered: “Master, we have toiled all the night, and have taken nothing: nevertheless at thy word I will let down the net. And when they had this done, they inclosed a great multitude of fishes. … When Simon Peter saw it, he fell down at Jesus’ knees, saying, Depart from me; for I am a sinful man, O Lord.” ([[Luke 5.4|Luke 5:4–6, 8]][[Luke 5.5|]][[Luke 5.6|]][[Luke 5.8|]].)
 
-Came the reply: “Follow me, and I will make you fishers of men.” ([[Matthew 4.19|Matt. 4:19]].) Simon the fisherman had received his call. Doubting, disbelieving, unschooled, untrained, impetuous Simon did not find the way of the Lord a highway of ease nor a path free from pain. He was to hear the rebuke: “O thou of little faith” ([[Matthew 14.31|Matt. 14:31]]), and likewise the denunciation, “Get thee behind me, Satan: thou art an offence unto me” ([[Matthew 16.23|Matt. 16:23]]). Yet, when the Master asked him, “… whom say ye that I am?” Peter answered: “Thou art the Christ, the Son of the living God.” ([[Matthew 16.15|Matt. 16:15–16]][[Matthew 16.16|]].)
+Came the reply: “Follow me, and I will make you fishers of men.” ([[Matthew 4.19|Matt. 4:19]].) Simon the fisherman had received his call. Doubting, disbelieving, unschooled, untrained, impetuous Simon did not find the way of the Lord a highway of ease nor a path free from pain. He was to hear the rebuke: “O thou of little faith” ([[Matthew 14.31|Matt. 14:31]]), and likewise the denunciation, “Get thee behind me, Satan: thou art an offence unto me” ([[Matthew 16.23|Matt. 16:23]]). Yet, when the Master asked him, “… whom say ye that I am?” Peter answered: “Thou art the Christ, the Son of the living God.” ([[Matthew 16.15|Matt. 16:15–16]][[Matthew 16.16|]].)
 
 Simon, man of doubt, had become Peter, apostle of faith. A yellow canary with gray on his wings qualified for the Master’s full confidence and abiding love.
 
-When the Savior was to choose a missionary of zeal and power, he found him not among his advocates but amidst his adversaries. Saul of Tarsus made havoc of the church and breathed out threatenings and slaughter against the disciples of the Lord. But this was before the experience of Damascus Way. Of Saul, the Lord declared: “… he is a chosen vessel unto me, to bear my name before the Gentiles, and kings, and the children of Israel: … I will shew him how great things he must suffer for my name’s sake.” ([[Acts 9.15|Acts 9:15–16]][[Acts 9.16|]].)
+When the Savior was to choose a missionary of zeal and power, he found him not among his advocates but amidst his adversaries. Saul of Tarsus made havoc of the church and breathed out threatenings and slaughter against the disciples of the Lord. But this was before the experience of Damascus Way. Of Saul, the Lord declared: “… he is a chosen vessel unto me, to bear my name before the Gentiles, and kings, and the children of Israel: … I will shew him how great things he must suffer for my name’s sake.” ([[Acts 9.15|Acts 9:15–16]][[Acts 9.16|]].)
 
-Saul the persecutor became Paul the proselyter. Like the yellow canary with gray on his wings, Paul, too, had his blemishes. He himself said: “And lest I should be exalted above measure through the abundance of the revelations, there was given to me a thorn in the flesh, the messenger of Satan to buffet me. … For this thing I besought the Lord thrice, that it might depart from me. And he said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. …” ([[2 Corinthians 12.7|2 Cor. 12:7–9]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]].)
+Saul the persecutor became Paul the proselyter. Like the yellow canary with gray on his wings, Paul, too, had his blemishes. He himself said: “And lest I should be exalted above measure through the abundance of the revelations, there was given to me a thorn in the flesh, the messenger of Satan to buffet me. … For this thing I besought the Lord thrice, that it might depart from me. And he said unto me, My grace is sufficient for thee: for my strength is made perfect in weakness. …” ([[2 Corinthians 12.7|2 Cor. 12:7–9]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]].)
 
 Both Paul and Peter were to expend their strength and forfeit their lives in the cause of truth. The Redeemer chose imperfect men to teach the way to perfection. He did so then. He does so now—even yellow canaries with gray on their wings.
 
@@ -99,8 +101,3 @@ My prayer today is that we indeed will follow the Man of Galilee. May we praise 
 
 
 
-
-
-
-
-#Individual_Worth #Sin

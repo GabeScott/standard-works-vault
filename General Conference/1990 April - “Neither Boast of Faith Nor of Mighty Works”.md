@@ -1,5 +1,7 @@
 # “Neither Boast of Faith Nor of Mighty Works”
 
+Thomas S. Monson
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -38,7 +40,7 @@ When he returned from his mission, a combination of changing interest rates and 
 
 Helaman’s advice to his sons, Nephi and Lehi, can give us strength today:
 
-“Therefore, my sons, I would that ye should do that which is good. …
+“Therefore, my sons, I would that ye should do that which is good. …
 
 “And now my sons, behold I have somewhat more to desire of you, which desire is, that ye may not do these things that ye may boast, but that ye may do these things to lay up for yourselves a treasure in heaven, yea, which is eternal” ([[Helaman 5.7|Hel. 5:7–8]][[Helaman 5.8|]]).
 
@@ -99,8 +101,3 @@ I leave you my special witness of the truthfulness of this great work. All of us
 
 
 
-
-
-
-
-#Gratitude #Humility

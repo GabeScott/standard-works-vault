@@ -1,5 +1,7 @@
 # Reverence and Morality
 
+Ezra Taft Benson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1987 General Conference*
@@ -34,7 +36,7 @@ Music, of course, is an important factor. Our buildings for the most part are eq
 
 Socializing is an important aspect of our program as a church. We encourage the cultivation of friends with happy conversations among our people. However, these should take place in the foyer, and when we enter the chapel we should understand that we are in sacred precincts. All of us are familiar with the account in Exodus of the Lord’s appearance to Moses at the burning bush. When the Lord called, Moses answered, “Here am I” ([[Exodus 3.4|Ex. 3:4]]).
 
-And the Lord said, “Draw not nigh hither: put off thy shoes from off thy feet, for the place whereon thou standest is holy ground” ([[Exodus 3.5|v. 5]]).
+And the Lord said, “Draw not nigh hither: put off thy shoes from off thy feet, for the place whereon thou standest is holy ground” ([[Exodus 3.5|v. 5]]).
 
 We do not ask our people to remove their shoes when they come into the chapel. But all who come into the Lord’s house should have a feeling that they are walking and standing on holy ground and that it becomes them to deport themselves accordingly.
 
@@ -66,17 +68,17 @@ We, with others, hope that discoveries will make possible both prevention and he
 
 Prophets of God have repeatedly taught through the ages that practices of homosexual relations, fornication, and adultery are grievous sins. Sexual relations outside the bonds of marriage are forbidden by the Lord. We reaffirm those teachings. Mankind has been given agency to choose between right and wrong. Said the prophet Lehi to Jacob:
 
-“Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).
+“Wherefore, men are free according to the flesh; and all things are given them which are expedient unto man. And they are free to choose liberty and eternal life, through the great Mediator of all men, or to choose captivity and death, according to the captivity and power of the devil; for he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).
 
 I repeat, each of us has a choice between right and wrong. But with that choice there inevitably will follow consequences. Those who choose to violate the commandments of God put themselves at great spiritual and physical jeopardy. The Apostle Paul said, “The wages of sin is death” ([[Romans 6.23|Rom. 6:23]]).
 
-Jacob taught, “Remember, to be carnally-minded is death, and to be spiritually-minded is life eternal” ([[2 Nephi 9.39|2 Ne. 9:39]]).
+Jacob taught, “Remember, to be carnally-minded is death, and to be spiritually-minded is life eternal” ([[2 Nephi 9.39|2 Ne. 9:39]]).
 
 Jesus gave a commandment to control our thoughts as well as our deeds. He said, “Whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart” ([[Matthew 5.28|Matt. 5:28]]).
 
 There is a principle of accountability with reference to human behavior. The prophet Alma declared:
 
-“For our words will condemn us, yea, all our works will condemn us; we shall not be found spotless; and our thoughts will also condemn us; and in this awful state we shall not dare to look up to our God. …
+“For our words will condemn us, yea, all our works will condemn us; we shall not be found spotless; and our thoughts will also condemn us; and in this awful state we shall not dare to look up to our God. …
 
 “But this cannot be; we must come forth and stand before him in his glory, and in his power, and in his might, majesty, and dominion, and acknowledge to our everlasting shame that all his judgments are just” ([[Alma 12.14|Alma 12:14–15]][[Alma 12.15|]]).
 
@@ -92,9 +94,9 @@ We plead with people everywhere to live in accordance with the teachings of our 
 
 The Lord has proclaimed that marriage between a man and a woman is ordained of God and is intended to be an eternal relationship bonded by trust and fidelity. Latter-day Saints, of all people, should marry with this sacred objective in mind. Marriage should not be viewed as a therapeutic step to solve problems such as homosexual inclinations or practices, which first should clearly be overcome with a firm and fixed determination never to slip to such practices again.
 
-Having said this, I desire now to say with emphasis that our concern for the bitter fruit of sin is coupled with Christlike sympathy for its victims, innocent or culpable. We advocate the example of the Lord, who condemned the sin, yet loved the sinner. We should reach out with kindness and comfort to the afflicted, ministering to their needs and assisting them with their problems. We repeat, however, that the way of safety and the road to happiness lie in abstinence before marriage and fidelity following marriage. Declared the Lord in this dispensation: “Let virtue garnish thy thoughts unceasingly” ([[D&C 121.45|D&C 121:45]]). There follows a remarkable and wonderful promise: “Then shall thy confidence wax strong in the presence of God. …
+Having said this, I desire now to say with emphasis that our concern for the bitter fruit of sin is coupled with Christlike sympathy for its victims, innocent or culpable. We advocate the example of the Lord, who condemned the sin, yet loved the sinner. We should reach out with kindness and comfort to the afflicted, ministering to their needs and assisting them with their problems. We repeat, however, that the way of safety and the road to happiness lie in abstinence before marriage and fidelity following marriage. Declared the Lord in this dispensation: “Let virtue garnish thy thoughts unceasingly” ([[D&C 121.45|D&C 121:45]]). There follows a remarkable and wonderful promise: “Then shall thy confidence wax strong in the presence of God. …
 
-“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion” ([[D&C 121.45|vs. 45–46]][[D&C 121.46|]]).
+“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth; and thy dominion shall be an everlasting dominion” ([[D&C 121.45|vs. 45–46]][[D&C 121.46|]]).
 
 Now, in conclusion, this leads to a related matter I wish to mention, and that is the sexual adventurism which is spreading like another plague across the world.
 
@@ -102,17 +104,17 @@ There is a philosophy among large numbers of people that sex education in our sc
 
 I am not disposed to discuss in this forum the merits or otherwise of sex education in the public schools. But in passing, I am inclined to agree with one who was recently quoted in the newspaper *USA Today:* “More sex education in public schools will not reverse the damaging legacy of the sexual revolution unless the clear message is premarital chastity and marital monogamy.”
 
-This writer continues: “There are many defects in sex education courses. The philosophy behind them is to ridicule chastity, scoff at fidelity, and glamorize sexual adventurism. They teach there is no such thing as right and wrong. …
+This writer continues: “There are many defects in sex education courses. The philosophy behind them is to ridicule chastity, scoff at fidelity, and glamorize sexual adventurism. They teach there is no such thing as right and wrong. …
 
-“Thirty years of advocating sexual liberation has brought raging venereal diseases and rampant teenage pregnancy. …
+“Thirty years of advocating sexual liberation has brought raging venereal diseases and rampant teenage pregnancy. …
 
-“Most sex education in the public schools morally disarms the students rather than giving them moral sensitivity to help them make the proper sexual choices. …
+“Most sex education in the public schools morally disarms the students rather than giving them moral sensitivity to help them make the proper sexual choices. …
 
-“Sex education fights the modesty and morality endemic to human life” (Tottie Ellis, “Teaching about Sex Endangers Children,” 16 Mar. 1987, p. 12A).
+“Sex education fights the modesty and morality endemic to human life” (Tottie Ellis, “Teaching about Sex Endangers Children,” 16 Mar. 1987, p. 12A).
 
 There is in each of us that sense of modesty and morality to which this writer refers. To the young men who are here tonight I wish to say that the Lord has made it clear, and the experience of centuries has confirmed it, that happiness lies not in immorality, but rather in abstinence. The voice of the Church to which you belong is a voice pleading for virtue. It is a voice pleading for strength to abstain from that which is evil. It is a voice declaring that sexual transgression is sin. It is contrary to the will of the Lord. It is contrary to the teachings of the Church. It is contrary to the happiness and well-being of those who indulge in it.
 
-You should recognize, you *must* recognize, that both experience and divine wisdom dictate virtue and moral cleanliness as the way that leads to strength of character, peace in the heart, and happiness in life. Will and Ariel Durant, who wrote eleven large volumes of history covering thousands of years, declared: “A youth boiling with hormones will wonder why he should not give full freedom to his sexual desires; and if he is unchecked by customs, morals, or laws, he may ruin his life before he matures sufficiently to understand that sex is a river of fire that must be banked and cooled by a hundred restraints if it is not to consume in chaos both the individual and the group” (*The Lessons of History,* New York: Simon and Schuster, 1968, pp. 35–36).
+You should recognize, you *must* recognize, that both experience and divine wisdom dictate virtue and moral cleanliness as the way that leads to strength of character, peace in the heart, and happiness in life. Will and Ariel Durant, who wrote eleven large volumes of history covering thousands of years, declared: “A youth boiling with hormones will wonder why he should not give full freedom to his sexual desires; and if he is unchecked by customs, morals, or laws, he may ruin his life before he matures sufficiently to understand that sex is a river of fire that must be banked and cooled by a hundred restraints if it is not to consume in chaos both the individual and the group” (*The Lessons of History,* New York: Simon and Schuster, 1968, pp. 35–36).
 
 My dear young brethren, the Lord has been very good to you. He has brought you forth in this, the greatest age in the history of the earth. He has made you the beneficiary of His glorious gospel, restored to the earth for your blessing. No other generation has been the beneficiary of so much knowledge, of so much experience, of so much affluence and opportunity.
 
@@ -125,5 +127,3 @@ God bless you, my beloved brethren—you of the noble birthright, you of the gre
 
 
 
-
-#Accountability #Health #Morality #Reverence

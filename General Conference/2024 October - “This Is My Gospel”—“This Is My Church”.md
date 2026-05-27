@@ -1,6 +1,8 @@
 # “This Is My Gospel”—“This Is My Church”
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -44,7 +46,7 @@ Yet during the ensuing years, Church membership on Högmarsö increased, in part
 
 Members of that Högmarsö branch revered that island. This was their Waters of Mormon.[^31] This was where they came to a knowledge of their Redeemer.
 
-Over the years, as they kept their baptismal covenant, Oskar and Albertina were transformed by the power of Jesus Christ. They longed to make more covenants and receive their temple blessings. To obtain those blessings, they permanently emigrated from their home in Sweden to Salt Lake City in 1949. Oskar had served as the leader of the members on Högmarsö for 33 years.[^32]
+Over the years, as they kept their baptismal covenant, Oskar and Albertina were transformed by the power of Jesus Christ. They longed to make more covenants and receive their temple blessings. To obtain those blessings, they permanently emigrated from their home in Sweden to Salt Lake City in 1949. Oskar had served as the leader of the members on Högmarsö for 33 years.[^32]
 
 The combination of nitroglycerin and kieselguhr made dynamite valuable; the combination of the gospel of Jesus Christ and His Church is beyond price. Oskar and Albertina heard about the restored gospel because a prophet of God had called, assigned, and sent missionaries to Sweden. By divine commission, missionaries taught the doctrine of Christ and by priesthood authority baptized Oskar and Albertina. As members, Oskar and Albertina continued learning, developing, and serving others. They became Latter-day Saints because they kept the covenants they made.
 
@@ -57,35 +59,35 @@ I invite you to commit yourself more fully to the Savior, His gospel, and His Ch
 
 [^1]: Black powder is a mixture of potassium nitrate (saltpeter), sulfur, and charcoal. It is classified as a *low explosive* or a *low-yield explosive* because of its relatively slow decomposition rate, burning at subsonic speeds. *High explosives* or *high-yield explosives* detonate rather than burn, producing a supersonic shock wave.
 
-[^2]: Dynamite enabled “an unprecedented surge in the creation of rail tunnels, sewer systems, and subways around the world—major engineering projects that would have been impossible to \[accomplish\] without the controlled explosions \[that it allowed\]. Almost all the iconic engineering triumphs of the \[late 19th and early 20th centuries\]—the London Underground, the Brooklyn Bridge, the Transcontinental Railroad, \[and\] the Panama Canal—relied extensively on the new explosive” (Steven Johnson, *The Infernal Machine: A True Story of Dynamite, Terror, and the Rise of the Modern Detective* \[2024\], 24).
+[^2]: Dynamite enabled “an unprecedented surge in the creation of rail tunnels, sewer systems, and subways around the world—major engineering projects that would have been impossible to \[accomplish\] without the controlled explosions \[that it allowed\]. Almost all the iconic engineering triumphs of the \[late 19th and early 20th centuries\]—the London Underground, the Brooklyn Bridge, the Transcontinental Railroad, \[and\] the Panama Canal—relied extensively on the new explosive” (Steven Johnson, *The Infernal Machine: A True Story of Dynamite, Terror, and the Rise of the Modern Detective* \[2024\], 24).
 
-[^3]: Because nitroglycerin itself was not commercially viable, Ascanio Sobrero did not become wealthy because of his invention. However, when Alfred Nobel built a dynamite factory at Avigliana, Italy, in 1873, Sobrero was appointed as a well-paid adviser in recognition of his discovery of nitroglycerin. Sobrero held that appointment until his death in 1888. (See G. I. Brown, *The Big Bang: A History of Explosives* \[1998\], 106.)
+[^3]: Because nitroglycerin itself was not commercially viable, Ascanio Sobrero did not become wealthy because of his invention. However, when Alfred Nobel built a dynamite factory at Avigliana, Italy, in 1873, Sobrero was appointed as a well-paid adviser in recognition of his discovery of nitroglycerin. Sobrero held that appointment until his death in 1888. (See G. I. Brown, *The Big Bang: A History of Explosives* \[1998\], 106.)
 
 [^4]: For the history of black powder, nitroglycerin, and dynamite, see Brown, *The Big Bang*, 1–121.
 
 [^5]: The gospel of Jesus Christ is synonymous with the doctrine of Christ.
 
-[^6]: See [[Mosiah 18.7|Mosiah 18:7, 20]][[Mosiah 18.20|]]; [[Mosiah 25.15|25:15, 22]][[Mosiah 25.22|]].
+[^6]: See [[Mosiah 18.7|Mosiah 18:7, 20]][[Mosiah 18.20|]]; [[Mosiah 25.15|25:15, 22]][[Mosiah 25.22|]].
 
 [^7]: [[Mosiah 18.10|Mosiah 18:10]].
 
-[^8]: See [[2 Nephi 31.13|2 Nephi 31:13]].
+[^8]: See [[2 Nephi 31.13|2 Nephi 31:13]].
 
-[^9]: See [[Mosiah 18.17|Mosiah 18:17]]; [[Mosiah 25.18|25:18, 23]][[Mosiah 25.23|]]; [[Alma 4.4|Alma 4:4–5]][[Alma 4.5|]]; [[Helaman 3.24|Helaman 3:24–26]][[Helaman 3.25|]][[Helaman 3.26|]]; [[3 Nephi 28.18|3 Nephi 28:18, 23]][[3 Nephi 28.23|]].
+[^9]: See [[Mosiah 18.17|Mosiah 18:17]]; [[Mosiah 25.18|25:18, 23]][[Mosiah 25.23|]]; [[Alma 4.4|Alma 4:4–5]][[Alma 4.5|]]; [[Helaman 3.24|Helaman 3:24–26]][[Helaman 3.25|]][[Helaman 3.26|]]; [[3 Nephi 28.18|3 Nephi 28:18, 23]][[3 Nephi 28.23|]].
 
-[^10]: See [[2 Nephi 31.12|2 Nephi 31:12–14]][[2 Nephi 31.13|]][[2 Nephi 31.14|]]; [[Mosiah 18.10|Mosiah 18:10]].
+[^10]: See [[2 Nephi 31.12|2 Nephi 31:12–14]][[2 Nephi 31.13|]][[2 Nephi 31.14|]]; [[Mosiah 18.10|Mosiah 18:10]].
 
-[^11]: The Church is key to offering sacred covenants to Heavenly Father’s children. This is why, during the endowment in temples, members covenant to keep the law of consecration. This means that they “dedicate their time, talents, and everything with which the Lord has blessed them to building up Jesus Christ’s Church on the earth” (*General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [27.2](https://churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11), Gospel Library).
+[^11]: The Church is key to offering sacred covenants to Heavenly Father’s children. This is why, during the endowment in temples, members covenant to keep the law of consecration. This means that they “dedicate their time, talents, and everything with which the Lord has blessed them to building up Jesus Christ’s Church on the earth” (*General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [27.2](https://www.churchofjesuschrist.org/study/manual/general-handbook/27-temple-ordinances-for-the-living?lang=eng&id=title11#title11), Gospel Library).
 
-[^12]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 77.
+[^12]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 77.
 
-[^13]: See [[Mosiah 18.22|Mosiah 18:22]]; [[Moses 6.68|Moses 6:68]]; Guide to the Scriptures, “[Sons and Daughters of God](https://churchofjesuschrist.org/study/scriptures/gs/sons-and-daughters-of-god?lang=eng),” Gospel Library.
+[^13]: See [[Mosiah 18.22|Mosiah 18:22]]; [[Moses 6.68|Moses 6:68]]; Guide to the Scriptures, “[Sons and Daughters of God](https://www.churchofjesuschrist.org/study/scriptures/gs/sons-and-daughters-of-god?lang=eng),” Gospel Library.
 
-[^14]: See [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
+[^14]: See [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]].
 
 [^15]: See [[Articles of Faith 1.5|Articles of Faith 1:5]].
 
-[^16]: See Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 121; [[3 Nephi 27.9|3 Nephi 27:9–11]][[3 Nephi 27.10|]][[3 Nephi 27.11|]].
+[^16]: See Russell M. Nelson, “[[2024 April - Rejoice in the Gift of Priesthood Keys.md|Rejoice in the Gift of Priesthood Keys]],” *Liahona*, May 2024, 121; [[3 Nephi 27.9|3 Nephi 27:9–11]][[3 Nephi 27.10|]][[3 Nephi 27.11|]].
 
 [^17]: The Savior “gave some, apostles; and some, prophets; and some, evangelists; and some, pastors and teachers” so that “we \[could\] all come in the unity of the faith, and of the knowledge of the Son of God, … that we henceforth be no more children, tossed to and fro, and carried about with every wind of doctrine, by the sleight of men, and cunning craftiness, whereby they lie in wait to deceive” ([[Ephesians 4.11|Ephesians 4:11, 13–14]][[Ephesians 4.13|]][[Ephesians 4.14|]]).
 
@@ -93,17 +95,17 @@ I invite you to commit yourself more fully to the Savior, His gospel, and His Ch
 
 [^19]: See [[Joseph Smith History 1.19|Joseph Smith—History 1:19]].
 
-[^20]: See “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p6#p6),” Gospel Library. The proclamation was read by President Russell M. Nelson as part of his message at the 190th Annual General Conference, April 5, 2020, in Salt Lake City, Utah (see “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 91–92).
+[^20]: See “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p6#p6),” Gospel Library. The proclamation was read by President Russell M. Nelson as part of his message at the 190th Annual General Conference, April 5, 2020, in Salt Lake City, Utah (see “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona*, May 2020, 91–92).
 
 [^21]: We can access God’s power by exercising faith in Jesus Christ, repenting of our sins, and keeping the covenants we make with Heavenly Father and Jesus Christ in ordinances such as baptism, the endowment, and the sacrament.
 
-[^22]: See Guide to the Scriptures, “[Justification, Justify](https://churchofjesuschrist.org/study/scriptures/gs/justification-justify?lang=eng),” Gospel Library.
+[^22]: See Guide to the Scriptures, “[Justification, Justify](https://www.churchofjesuschrist.org/study/scriptures/gs/justification-justify?lang=eng),” Gospel Library.
 
-[^23]: See Guide to the Scriptures, “[Sanctification](https://churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng),” Gospel Library.
+[^23]: See Guide to the Scriptures, “[Sanctification](https://www.churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng),” Gospel Library.
 
 [^24]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^25]: See [[Hebrews 4.15|Hebrews 4:15]]; see also footnote *a*.
+[^25]: See [[Hebrews 4.15|Hebrews 4:15]]; see also footnote *a*.
 
 [^26]: See [[D&C 19.15|Doctrine and Covenants 19:15–18]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]].
 
@@ -127,8 +129,3 @@ I invite you to commit yourself more fully to the Savior, His gospel, and His Ch
 
 [^36]: [[Helaman 5.44|Helaman 5:44]].
 
-
-
-
-
-#Conversion #Covenants #Gospel #Jesus_Christ #Ordinances #Priesthood_Power

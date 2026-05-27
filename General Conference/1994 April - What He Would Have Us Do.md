@@ -1,5 +1,7 @@
 # What He Would Have Us Do
 
+James E. Faust
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -21,8 +23,3 @@ May we praise His name, follow His example, and incorporate His truths into our 
 
 
 
-
-
-
-
-#Jesus_Christ #Obedience

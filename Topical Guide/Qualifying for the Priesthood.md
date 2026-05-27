@@ -1,4 +1,3 @@
 # Qualifying for the Priesthood
 
-
-*See* [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]
+*See also* [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]

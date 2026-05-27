@@ -1,6 +1,8 @@
 # New Emphasis on Church Councils
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -8,7 +10,7 @@ By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 President Kimball has asked me to introduce to you an expansion of the procedure for conducting Church affairs at the area and region levels. With the increased growth and internationalization of the Church and the great responsibility to promote the ecclesiastical and temporal work throughout the world in a more unified fashion, we are introducing an emphasis on the role of councils in Church government.
 
-This action will maintain the orderly management of Church activity at all administrative levels. President Ezra Taft Benson, of the Council of the Twelve, and Bishop Victor L. Brown, Presiding Bishop of the Church, will explain details and indicate how this modification is to be implemented in the various parts of the Church.
+This action will maintain the orderly management of Church activity at all administrative levels. President Ezra Taft Benson, of the Council of the Twelve, and Bishop Victor L. Brown, Presiding Bishop of the Church, will explain details and indicate how this modification is to be implemented in the various parts of the Church.
 
 Since its beginning, the Church has been governed by leadership councils. Priesthood councils are a fundamental order of the Church, as illustrated repeatedly in the Doctrine and Covenants.
 
@@ -41,8 +43,3 @@ May the Lord richly bless you in carrying forth this great work of establishing 
 
 
 
-
-
-
-
-#Councils

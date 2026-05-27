@@ -1,13 +1,12 @@
 # Gold
 
-
 make a mercy seat of pure *gold*, [[Exodus 25.17|Exodus 25:17]] ([[Exodus 37.6|Exodus 37:6]]).
 
 Whosoever hath any *gold*, let them break it off, [[Exodus 32.24|Exodus 32:24]].
 
 hath tried me, I shall come forth as *gold*, [[Job 23.10|Job 23:10]].
 
-More to be desired ... than *gold*, [[Psalms 19.10|Psalms 19:10]].
+More to be desired … than *gold*, [[Psalms 19.10|Psalms 19:10]].
 
 better unto me than thousands of *gold*, [[Psalms 119.72|Psalms 119:72]].
 
@@ -27,13 +26,13 @@ swear by the *gold* of the temple, [[Matthew 23.16|Matthew 23:16]].
 
 Godhead is like unto *gold*, [[Acts 17.29|Acts 17:29]].
 
-coveted no man's silver, or *gold*, [[Acts 20.33|Acts 20:33]].
+coveted no man’s silver, or *gold*, [[Acts 20.33|Acts 20:33]].
 
 build upon this foundation *gold*, [[1 Corinthians 3.12|1 Corinthians 3:12]].
 
-women adorn themselves in modest apparel ... not with broided hair, or *gold*, [[1 Timothy 2.9|1 Timothy 2:9]] ([[1 Peter 3.3|1 Peter 3:3]]).
+women adorn themselves in modest apparel … not with broided hair, or *gold*, [[1 Timothy 2.9|1 Timothy 2:9]] ([[1 Peter 3.3|1 Peter 3:3]]).
 
-ark ... overlaid round about with *gold*, [[Hebrews 9.4|Hebrews 9:4]].
+ark … overlaid round about with *gold*, [[Hebrews 9.4|Hebrews 9:4]].
 
 man with a *gold* ring, [[James 2.2|James 2:2]].
 
@@ -55,6 +54,6 @@ have not sought *gold* nor silver nor any manner of riches, [[Mosiah 2.12|Mosiah
 
 fine *gold* he did cause to be refined, [[Ether 10.7|Ether 10:7]].
 
-under his feet ... a paved work of pure *gold*, [[D&C 110.2|D&C 110:2]].
+under his feet … a paved work of pure *gold*, [[D&C 110.2|D&C 110:2]].
 
-O kings ... come ye, with your *gold*, [[D&C 124.11|D&C 124:11]] ([[D&C 124.26|D&C 124:26]]).
+O kings … come ye, with your *gold*, [[D&C 124.11|D&C 124:11]] ([[D&C 124.26|D&C 124:26]]).

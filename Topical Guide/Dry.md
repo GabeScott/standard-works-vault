@@ -1,9 +1,8 @@
 # Dry
 
-
 face of the ground was *dry*, [[Genesis 8.13|Genesis 8:13]].
 
-Israel shall go on *dry* ground through ... the sea, [[Exodus 14.16|Exodus 14:16]].
+Israel shall go on *dry* ground through … the sea, [[Exodus 14.16|Exodus 14:16]].
 
 firm on *dry* ground in the midst of Jordan, [[Joshua 3.17|Joshua 3:17]].
 

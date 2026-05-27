@@ -1,6 +1,8 @@
 # The Last Words of Moroni
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -14,7 +16,7 @@ He had lived in America some fifteen hundred years ago and was the sole survivor
 
 He had witnessed the destruction of his whole nation, including his own family. In bitter vengeance their enemies had vowed their complete annihilation, and now this threat was accomplished.
 
-Moroni’s father was commander of the armies of this ancient people, known as Nephites. His name was Mormon. The war of which we speak took place here in America some four hundred years after Christ. (See [[Mormon 6.1|Morm. 6]][[Mormon 6.2|]][[Mormon 6.3|]][[Mormon 6.4|]][[Mormon 6.5|]][[Mormon 6.6|]][[Mormon 6.7|]][[Mormon 6.8|]][[Mormon 6.9|]][[Mormon 6.10|]][[Mormon 6.11|]][[Mormon 6.12|]][[Mormon 6.13|]][[Mormon 6.14|]][[Mormon 6.15|]][[Mormon 6.16|]][[Mormon 6.17|]][[Mormon 6.18|]][[Mormon 6.19|]][[Mormon 6.20|]][[Mormon 6.21|]][[Mormon 6.22|]].)
+Moroni’s father was commander of the armies of this ancient people, known as Nephites. His name was Mormon. The war of which we speak took place here in America some four hundred years after Christ. (See [[Mormon 6.1|Morm. 6]].)
 
 As the fighting neared its end, Mormon gathered the remnant of his forces about a hill which they called Cumorah, located in what is now the western part of the state of New York.
 
@@ -22,7 +24,7 @@ Their enemies, known as Lamanites, came against them on this hill. Of that dread
 
 “My people, with their wives and their children, did now behold the armies of the Lamanites marching towards them; and with that awful fear of death which fills the breasts of all the wicked, did they await to receive them.
 
-“… Every soul was filled with terror because of the greatness of their numbers.
+“… Every soul was filled with terror because of the greatness of their numbers.
 
 “And it came to pass that they did fall upon my people with the sword, and with the bow, and with the arrow, and with the ax, and with all manner of weapons of war.
 
@@ -60,9 +62,9 @@ When finished with the record, Moroni was to hide it up in that same Hill Cumora
 
 Realizing the importance of completing it, this lone survivor wrote: “I, Moroni, do finish the record of my father, Mormon” ([[Mormon 8.1|Morm. 8:1]]).
 
-Then he wrote a description of the last battle and added: “I … remain alone to write the sad tale of the destruction of my people. …
+Then he wrote a description of the last battle and added: “I … remain alone to write the sad tale of the destruction of my people. …
 
-“Therefore I will write and hide up the records in the earth. …
+“Therefore I will write and hide up the records in the earth. …
 
 “My father hath been slain in battle, and all my kinsfolk, and I have not friends nor whither to go; and how long the Lord will suffer that I may live I know not.” ([[Mormon 8.3|Morm. 8:3–5]][[Mormon 8.4|]][[Mormon 8.5|]].)
 
@@ -74,7 +76,7 @@ In closing his record, and knowing that it would come to us, Moroni pleaded with
 
 “Behold, I speak unto you as if ye were present, and yet ye are not. But behold, Jesus Christ hath shown you unto me, and I know your doing.
 
-“And I know that ye do walk in the pride of your hearts; …
+“And I know that ye do walk in the pride of your hearts; …
 
 “Ye do love money, and your substance, and your fine apparel.” ([[Mormon 8.35|Morm. 8:35–36]][[Mormon 8.36|]].)
 
@@ -133,8 +135,3 @@ The last words of Moroni! Dare we forget them? God grant that we never will, I p
 
 
 
-
-
-
-
-#Book_Of_Mormon

@@ -1,15 +1,14 @@
 # Fall, Fallen, Fell
 
-
 *See also* [[Apostasy of Individuals.md|Apostasy of Individuals]]; [[Apostasy of Israel.md|Apostasy of Israel]]; [[Apostasy of the Early Christian Church.md|Apostasy of the Early Christian Church]]; [[Descend.md|Descend]]; [[Fall of Man.md|Fall of Man]]
 
-dig a pit ... and an ox or an ass *fall* therein, [[Exodus 21.33|Exodus 21:33]].
+dig a pit … and an ox or an ass *fall* therein, [[Exodus 21.33|Exodus 21:33]].
 
 they shall *fall* when none pursueth, [[Leviticus 26.36|Leviticus 26:36]].
 
 great shout, that the wall *fell* down flat, [[Joshua 6.20|Joshua 6:20]].
 
-Lord ... let none of his words *fall* to the ground, [[1 Samuel 3.19|1 Samuel 3:19]].
+Lord … let none of his words *fall* to the ground, [[1 Samuel 3.19|1 Samuel 3:19]].
 
 he *fell* from off the seat backward by the side, [[1 Samuel 4.18|1 Samuel 4:18]].
 
@@ -37,11 +36,11 @@ Babylon is *fallen*, [[Isaiah 21.9|Isaiah 21:9]] ([[Jeremiah 51.8|Jeremiah 51:8]
 
 people that doth not understand shall *fall*, [[Hosea 4.14|Hosea 4:14]].
 
-shall say ... to the hills, *Fall* on us, [[Hosea 10.8|Hosea 10:8]] ([[Luke 23.30|Luke 23:30]]; [[Revelation 6.16|Revelation 6:16]]).
+shall say … to the hills, *Fall* on us, [[Hosea 10.8|Hosea 10:8]] ([[Luke 23.30|Luke 23:30]]; [[Revelation 6.16|Revelation 6:16]]).
 
 it *fell* not: for it was founded upon a rock, [[Matthew 7.25|Matthew 7:25]] ([[3 Nephi 14.25|3 Nephi 14:25]]).
 
-two sparrows ... one of them shall not *fall*, [[Matthew 10.29|Matthew 10:29]].
+two sparrows … one of them shall not *fall*, [[Matthew 10.29|Matthew 10:29]].
 
 blind lead the blind, both shall *fall* into the ditch, [[Matthew 15.14|Matthew 15:14]] ([[Luke 6.39|Luke 6:39]]).
 
@@ -71,7 +70,7 @@ man *fall* after the same example of unbelief, [[Hebrews 4.11|Hebrews 4:11]].
 
 If they shall *fall* away, to renew them, [[Hebrews 6.6|Hebrews 6:6]].
 
-fearful thing to *fall* into the hands of ... God, [[Hebrews 10.31|Hebrews 10:31]].
+fearful thing to *fall* into the hands of … God, [[Hebrews 10.31|Hebrews 10:31]].
 
 By faith the walls of Jericho *fell* down, [[Hebrews 11.30|Hebrews 11:30]].
 
@@ -79,7 +78,7 @@ flower thereof *falleth*, [[James 1.11|James 1:11]] ([[1 Peter 1.24|1 Peter 1:24
 
 ye do these things, ye shall never *fall*, [[2 Peter 1.10|2 Peter 1:10]].
 
-lest ye also ... *fall* from your own steadfastness, [[2 Peter 3.17|2 Peter 3:17]].
+lest ye also … *fall* from your own steadfastness, [[2 Peter 3.17|2 Peter 3:17]].
 
 when I saw him, I *fell* at his feet as dead, [[Revelation 1.17|Revelation 1:17]].
 
@@ -93,17 +92,17 @@ cities of the nations *fell*, [[Revelation 16.19|Revelation 16:19]].
 
 *fell* away into forbidden paths, [[1 Nephi 8.28|1 Nephi 8:28]].
 
-all mankind were in a ... *fallen* state, [[1 Nephi 10.6|1 Nephi 10:6]].
+all mankind were in a … *fallen* state, [[1 Nephi 10.6|1 Nephi 10:6]].
 
 *fall* into the pit which they digged, [[1 Nephi 22.14|1 Nephi 22:14]].
 
 Adam *fell* that men might be, [[2 Nephi 2.25|2 Nephi 2:25]].
 
-once enlightened ... then have *fallen* away, [[Alma 24.30|Alma 24:30]].
+once enlightened … then have *fallen* away, [[Alma 24.30|Alma 24:30]].
 
 they had *fallen* into great errors, [[Alma 31.9|Alma 31:9]].
 
-built upon a sandy foundation ... they shall *fall*, [[3 Nephi 18.13|3 Nephi 18:13]].
+built upon a sandy foundation … they shall *fall*, [[3 Nephi 18.13|3 Nephi 18:13]].
 
 brother of Jared *fell* down before the Lord, [[Ether 3.6|Ether 3:6]].
 

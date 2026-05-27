@@ -1,5 +1,7 @@
 # Windows
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1989 General Conference*
@@ -133,8 +135,3 @@ That each may experience this privilege is my humble prayer, in the name of Jesu
 
 
 
-
-
-
-
-#Charity #Example #Loneliness #Love #Service

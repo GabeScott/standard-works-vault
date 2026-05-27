@@ -1,5 +1,7 @@
 # Our Moral Environment
 
+Thomas S. Monson
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1992 General Conference*
@@ -12,7 +14,7 @@ I have been a General Authority for over thirty years and a member of the Quorum
 
 Today I speak to members of the Church as an environmentalist. My message is not on the *physical* but on the *moral and spiritual* environment in which we must raise our families. As we test the *moral* environment, we find the *pollution* index is spiraling upward.
 
-The Book of Mormon depicts humanity struggling through a “mist of darkness” and defines the darkness as the “temptations of the devil” ([[1 Nephi 8.23|1 Ne. 8:23]]; [[1 Nephi 12.17|12:17]]). So dense was that *moral pollution* that many followed “strange roads” and “fell away into forbidden paths and were lost” ([[1 Nephi 8.28|1 Ne. 8:28]]; see [[1 Nephi 8.23|1 Ne. 8:23–32]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]]).
+The Book of Mormon depicts humanity struggling through a “mist of darkness” and defines the darkness as the “temptations of the devil” ([[1 Nephi 8.23|1 Ne. 8:23]]; [[1 Nephi 12.17|12:17]]). So dense was that *moral pollution* that many followed “strange roads” and “fell away into forbidden paths and were lost” ([[1 Nephi 8.28|1 Ne. 8:28]]; see [[1 Nephi 8.23|1 Ne. 8:23–32]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]]).
 
 The deliberate pollution of the fountain of life now clouds our moral environment. The gift of mortal life and the capacity to kindle other lives is a supernal blessing. Its worth is *incalculable!*
 
@@ -22,7 +24,7 @@ The rapid, sweeping deterioration of values is characterized by a preoccupation�
 
 ## The Tempter
 
-The adversary is jealous toward all who have the power to beget life. He cannot beget life; he is impotent. He and those who followed him were cast out and forfeited the right to a mortal body. His angels even begged to inhabit the bodies of swine (see [[Matthew 8.31|Matt. 8:31]]). And the revelations tell us that “he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).
+The adversary is jealous toward all who have the power to beget life. He cannot beget life; he is impotent. He and those who followed him were cast out and forfeited the right to a mortal body. His angels even begged to inhabit the bodies of swine (see [[Matthew 8.31|Matt. 8:31]]). And the revelations tell us that “he seeketh that all men might be miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]).
 
 With ever fewer exceptions, what we see and read and hear have the mating act as a central theme. Censorship is forced offstage as a violation of individual freedom.
 
@@ -52,7 +54,7 @@ The phrase “*free* agency” does not appear in scripture. The only agency spo
 
 And the Lord warned members of his Church, “Let not that which I have appointed be polluted by mine enemies, *by the consent of those who call themselves after my name:* For this is a very sore and grievous sin against me, and against my people” ([[D&C 101.97|D&C 101:97–98]][[D&C 101.98|]]; italics added).
 
-Because the laws of man, by and large, do not raise moral issues, we are taught to honor, sustain, and obey the law (see [[Articles of Faith 1.12|A of F 1:12]]) and that “he that keepeth the laws of God hath no need to break the laws of the land” ([[D&C 58.21|D&C 58:21]]).
+Because the laws of man, by and large, do not raise moral issues, we are taught to honor, sustain, and obey the law (see [[Articles of Faith 1.12|A of F 1:12]]) and that “he that keepeth the laws of God hath no need to break the laws of the land” ([[D&C 58.21|D&C 58:21]]).
 
 ## The Right to Speak Out
 
@@ -72,7 +74,7 @@ But suppose an article of that law stated, “Within fifteen days the mother wil
 
 That provision is absolutely unenforceable. No matter how severe the penalty or the number of enforcers, it is absolutely unenforceable because it contravenes both natural and moral law.
 
-No matter if fifteen weeks or months or fifteen years were allowed, it cannot be enforced! It may work with animals, but “all flesh,” the scriptures teach, “is not the same flesh: but there is one kind of flesh of men, another flesh of beasts” ([[1 Corinthians 15.39|1 Cor. 15:39]]). It cannot be made to work with human mothers. Never!
+No matter if fifteen weeks or months or fifteen years were allowed, it cannot be enforced! It may work with animals, but “all flesh,” the scriptures teach, “is not the same flesh: but there is one kind of flesh of men, another flesh of beasts” ([[1 Corinthians 15.39|1 Cor. 15:39]]). It cannot be made to work with human mothers. Never!
 
 A man-made law against nature would be as impossible to defend as a law annulling love between mother and child would be impossible to enforce!
 
@@ -100,7 +102,7 @@ The only legitimate employment of the power of procreation is between husband an
 
 It is a great challenge to raise a family in the darkening mists of our moral environment.
 
-We emphasize that the greatest work you will do will be within the walls of your home (see Harold B. Lee, in Conference Report, Apr. 1973, p. 130; or *Ensign,* July 1973, p. 98), and that “no other success can compensate for failure in the home” (see David O. McKay, in Conference Report, Apr. 1935, p. 116; quoting J. E. McCulloch, *Home: The Savior of Civilization* \[Washington, D.C.: The Southern Co-operative League, 1924\], p. 42).
+We emphasize that the greatest work you will do will be within the walls of your home (see Harold B. Lee, in Conference Report, Apr. 1973, [[1973 April - Follow the Leadership of the Church.md|p. 130]]; or *Ensign,* July 1973, p. 98), and that “no other success can compensate for failure in the home” (see David O. McKay, in Conference Report, Apr. 1935, p. 116; quoting J. E. McCulloch, *Home: The Savior of Civilization* \[Washington, D.C.: The Southern Co-operative League, 1924\], p. 42).
 
 The measure of our success as parents, however, will not rest solely on how our children turn out. That judgment would be just only if we could raise our families in a perfectly moral environment, and that now is not possible.
 
@@ -108,11 +110,11 @@ It is not uncommon for responsible parents to lose one of their children, for a 
 
 It is my conviction that those wicked influences one day will be overruled.
 
-“The Prophet Joseph Smith declared—and he never taught a more comforting doctrine—that the eternal sealings of faithful parents and the divine promises made to them for valiant service in the Cause of Truth, would save not only themselves, but likewise their posterity. Though some of the sheep may wander, the eye of the Shepherd is upon them, and sooner or later they will feel the tentacles of Divine Providence reaching out after them and drawing them back to the fold. Either in this life or the life to come, they will return. They will have to pay their debt to justice; they will suffer for their sins; and may tread a thorny path; but if it leads them at last, like the penitent Prodigal, to a loving and forgiving father’s heart and home, the painful experience will not have been in vain. Pray for your careless and disobedient children; hold on to them with your faith. Hope on, trust on, till you see the salvation of God” (Orson F. Whitney, in Conference Report, Apr. 1929, p. 110).
+“The Prophet Joseph Smith declared—and he never taught a more comforting doctrine—that the eternal sealings of faithful parents and the divine promises made to them for valiant service in the Cause of Truth, would save not only themselves, but likewise their posterity. Though some of the sheep may wander, the eye of the Shepherd is upon them, and sooner or later they will feel the tentacles of Divine Providence reaching out after them and drawing them back to the fold. Either in this life or the life to come, they will return. They will have to pay their debt to justice; they will suffer for their sins; and may tread a thorny path; but if it leads them at last, like the penitent Prodigal, to a loving and forgiving father’s heart and home, the painful experience will not have been in vain. Pray for your careless and disobedient children; hold on to them with your faith. Hope on, trust on, till you see the salvation of God” (Orson F. Whitney, in Conference Report, Apr. 1929, p. 110).
 
 We cannot overemphasize the value of temple marriage, the binding ties of the sealing ordinance, and the standards of worthiness required of them. When parents keep the covenants they have made at the altar of the temple, their children will be forever bound to them. President Brigham Young said:
 
-“Let the father and mother, who are members of this Church and Kingdom, take a righteous course, and strive with all their might never to do a wrong, but to do good all their lives; if they have one child or one hundred children, if they conduct themselves towards them as they should, binding them to the Lord by their faith and prayers, I care not where those children go, they are bound up to their parents by an everlasting tie, and no power of earth or hell can separate them from their parents in eternity; they will return again to the fountain from whence they sprang” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], p. 208).
+“Let the father and mother, who are members of this Church and Kingdom, take a righteous course, and strive with all their might never to do a wrong, but to do good all their lives; if they have one child or one hundred children, if they conduct themselves towards them as they should, binding them to the Lord by their faith and prayers, I care not where those children go, they are bound up to their parents by an everlasting tie, and no power of earth or hell can separate them from their parents in eternity; they will return again to the fountain from whence they sprang” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], p. 208).
 
 ## Repentance
 
@@ -130,7 +132,7 @@ However long and painful the process of repentance, the Lord has said: “This i
 
 “And *their sins and iniquities* will *I remember no more*” ([[Hebrews 10.16|Heb. 10:16–17]][[Hebrews 10.17|]]; italics added).
 
-Civilizations, like Sodom and Gomorrah, destroyed themselves by disobedience to the laws of morality. “For the Spirit of the Lord will not always strive with man. And when the Spirit ceaseth to strive with man then cometh speedy destruction” ([[2 Nephi 26.11|2 Ne. 26:11]]; see also [[Genesis 6.3|Gen. 6:3]]; [[Ether 2.15|Ether 2:15]]; [[D&C 1.33|D&C 1:33]]; [[Moses 8.17|Moses 8:17]]).
+Civilizations, like Sodom and Gomorrah, destroyed themselves by disobedience to the laws of morality. “For the Spirit of the Lord will not always strive with man. And when the Spirit ceaseth to strive with man then cometh speedy destruction” ([[2 Nephi 26.11|2 Ne. 26:11]]; see also [[Genesis 6.3|Gen. 6:3]]; [[Ether 2.15|Ether 2:15]]; [[D&C 1.33|D&C 1:33]]; [[Moses 8.17|Moses 8:17]]).
 
 God grant that we will come to our senses and protect our moral environment from this mist of darkness which deepens day by day. The fate of all humanity hangs precariously in the balance.
 
@@ -139,5 +141,3 @@ And may we have the protection of Him who is our Father and our God, and may we 
 
 
 
-
-#Abuse #Marriage #Morality #Repentance

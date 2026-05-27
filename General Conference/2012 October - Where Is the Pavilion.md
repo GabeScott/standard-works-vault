@@ -1,6 +1,8 @@
 # Where Is the Pavilion?
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -20,7 +22,7 @@ The Spirit could reveal to her childlike mind and heart the comfort all of us ne
 
 I know from my own life that Eliza’s experience can be our own long after we leave childhood. In the early years of my career, I worked hard to secure a tenured professorship at Stanford University. I thought I had made a good life for myself and for my family. We lived close to my wife’s parents in very comfortable surroundings. By the world’s standards, I had achieved success. But I was given by the Church the chance to leave California and go to Ricks College in Rexburg, Idaho. My lifetime professional objectives might have been a pavilion dividing me from a loving Father who knew better than I did what my future could hold. But I was blessed to know that whatever success I had in my career and family life to that point was a gift from God. And so, like a child, I knelt in prayer to ask what I should do. I was able to hear a quiet voice in my mind that said, “It’s my school.” There was no pavilion shielding me from God. In faith and humility, I submitted my will to His and felt His care and closeness.
 
-My years at Ricks College, during which I tried to seek God’s will and do it, kept the pavilion from covering me or obscuring God’s active role in my life. As I sought to do His work, I felt close to Him and felt assurance that He knew of my affairs and cared deeply for my happiness. But as they had at Stanford, worldly motivations began to present themselves to me. One was an attractive job offer, extended just as I was finishing my fifth year as president of Ricks College. I considered the offer and prayed about it and even discussed it with the First Presidency. They responded with warmth and a little humor but certainly not with any direction. President Spencer W. Kimball listened to me describe the offer I had received from a large corporation and said: “Well, Hal, that sounds like a wonderful opportunity! And if we ever needed you, we’d know where to find you.” They would have known where to find me, but my desires for professional success might have created a pavilion that would make it hard for me to find God and harder for me to listen to and follow His invitations.
+My years at Ricks College, during which I tried to seek God’s will and do it, kept the pavilion from covering me or obscuring God’s active role in my life. As I sought to do His work, I felt close to Him and felt assurance that He knew of my affairs and cared deeply for my happiness. But as they had at Stanford, worldly motivations began to present themselves to me. One was an attractive job offer, extended just as I was finishing my fifth year as president of Ricks College. I considered the offer and prayed about it and even discussed it with the First Presidency. They responded with warmth and a little humor but certainly not with any direction. President Spencer W. Kimball listened to me describe the offer I had received from a large corporation and said: “Well, Hal, that sounds like a wonderful opportunity! And if we ever needed you, we’d know where to find you.” They would have known where to find me, but my desires for professional success might have created a pavilion that would make it hard for me to find God and harder for me to listen to and follow His invitations.
 
 My wife, sensing this, had a strong impression that we were not to leave Ricks College. I said, “That’s good enough for me.” But she insisted, wisely, that I must get my own revelation. And so I prayed again. This time I did receive direction, in the form of a voice in my mind that said, “I’ll *let* you stay at Ricks College a little longer.” My personal ambitions might have clouded my view of reality and made it hard for me to receive revelation.
 
@@ -75,7 +77,7 @@ If we serve with faith, humility, and a desire to do God’s will, I testify tha
 
 [^1]: [[D&C 121.1|Doctrine and Covenants 121:1]].
 
-[^2]: See [[Matthew 6.10|Matthew 6:10]]; [[Luke 11.2|Luke 11:2]]; [[3 Nephi 13.10|3 Nephi 13:10]]; [[Ether 12.29|Ether 12:29]]; [[D&C 109.44|Doctrine and Covenants 109:44]]; [[Moses 4.2|Moses 4:2]].
+[^2]: See [[Matthew 6.10|Matthew 6:10]]; [[Luke 11.2|Luke 11:2]]; [[3 Nephi 13.10|3 Nephi 13:10]]; [[Ether 12.29|Ether 12:29]]; [[D&C 109.44|Doctrine and Covenants 109:44]]; [[Moses 4.2|Moses 4:2]].
 
 [^3]: See [[D&C 130.22|Doctrine and Covenants 130:22]].
 
@@ -91,8 +93,3 @@ If we serve with faith, humility, and a desire to do God’s will, I testify tha
 
 [^9]: [[Moroni 10.34|Moroni 10:34]].
 
-
-
-
-
-#Faith #Humility #Service

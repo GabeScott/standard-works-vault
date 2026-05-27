@@ -1,11 +1,10 @@
 # Threshingfloor
 
-
 he winnoweth barley to night in the *threshingfloor*, [[Ruth 3.2|Ruth 3:2]].
 
-Philistines ... rob the *threshingfloors*, [[1 Samuel 23.1|1 Samuel 23:1]].
+Philistines … rob the *threshingfloors*, [[1 Samuel 23.1|1 Samuel 23:1]].
 
-rear an altar ... in the *threshingfloor*, [[2 Samuel 24.18|2 Samuel 24:18]] ([[1 Chronicles 21.18|1 Chronicles 21:18]]).
+rear an altar … in the *threshingfloor*, [[2 Samuel 24.18|2 Samuel 24:18]] ([[1 Chronicles 21.18|1 Chronicles 21:18]]).
 
 place that David had prepared in the *threshingfloor*, [[2 Chronicles 3.1|2 Chronicles 3:1]].
 

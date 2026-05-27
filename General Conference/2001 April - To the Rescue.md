@@ -1,5 +1,7 @@
 # To the Rescue
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2001 General Conference*
@@ -76,7 +78,7 @@ There are brethren in every ward who seem to have a special skill and aptitude t
 
 There are other ways as well by which one might lift and serve. On one occasion, I was speaking with a retired executive I had known for a long time. I asked him, “Ed, what are you doing in the Church?” He replied, “I have the best assignment in the ward. My responsibility is to help men who are unemployed find permanent employment. This year I have helped 12 of my brethren who were out of work to obtain good jobs. I have never been happier in my entire life.” Short in stature, “Little Ed,” as we affectionately called him, stood tall that evening as his eyes glistened and his voice quavered. He showed his love by helping those in need. He restored human dignity. He opened doors for those who knew not how to do so themselves.
 
-I truly believe that those who have the ability to reach out and to lift up have found the formula descriptive of Brother Walter Stover—a man who spent his entire life in service to others. At Brother Stover’s funeral, his son-in-law paid tribute to him in these words: “Walter Stover had the ability to see Christ in every face he encountered, and he treated each person accordingly.” Legendary are his acts of compassionate help and his talent to lift heavenward every person whom he met. His guiding light was the Master’s voice speaking, “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.”[^12]
+I truly believe that those who have the ability to reach out and to lift up have found the formula descriptive of Brother Walter Stover—a man who spent his entire life in service to others. At Brother Stover’s funeral, his son-in-law paid tribute to him in these words: “Walter Stover had the ability to see Christ in every face he encountered, and he treated each person accordingly.” Legendary are his acts of compassionate help and his talent to lift heavenward every person whom he met. His guiding light was the Master’s voice speaking, “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me.”[^12]
 
 Brethren, acquire the language of the Spirit. It is not learned from textbooks written by men of letters, nor is it acquired through reading and memorization. The language of the Spirit comes to him who seeks with all his heart to know God and keep His divine commandments. Proficiency in this “language” permits one to breach barriers, overcome obstacles, and touch the human heart.
 
@@ -115,8 +117,3 @@ In the name of Jesus Christ, amen.
 
 [^12]: [[Matthew 25.40|Matt. 25:40]].
 
-
-
-
-
-#Duty #Friendship #Hope #Jesus_Christ #Love #Neighbors #Peace #Priesthood #Service #Work

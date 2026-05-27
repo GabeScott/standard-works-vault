@@ -1,6 +1,8 @@
 # Invite Christ to Author Your Story
 
-By Camille N. Johnson - *Primary General President*
+Russell M. Nelson
+
+By Camille N. Johnson - *Primary General President*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -44,7 +46,7 @@ Esther was willing to let the Savior write her story even though, through the le
 
 Of course, Esther’s level of courage is rarely asked of us. But letting God prevail, letting Him be the author and finisher of our stories, does require us to keep His commandments and the covenants we have made. It is our commandment and covenant keeping that will open the line of communication for us to receive revelation through the Holy Ghost. And it is through the manifestations of the Spirit that we will feel the Master’s hand writing our stories with us.
 
-In April 2021, our prophet, President Russell M. Nelson, asked us to consider what we could do if we had more faith in Jesus Christ. With more faith in Jesus Christ, we could ask a question to which we do not know the answer—ask our Father in Heaven, in the name of Jesus Christ, to send an answer through the Holy Ghost, who testifies of truth. If we had more faith, we would ask the question and then be willing to accept the answer we receive, even if it doesn’t fit our comfortable narrative. And the promised blessing that will come from acting in faith in Jesus Christ is an increase in faith in Him as our author and finisher. President Nelson declared that we “*receive more* faith by doing something that *requires more* faith.”[^5]
+In April 2021, our prophet, President Russell M. Nelson, asked us to consider what we could do if we had more faith in Jesus Christ. With more faith in Jesus Christ, we could ask a question to which we do not know the answer—ask our Father in Heaven, in the name of Jesus Christ, to send an answer through the Holy Ghost, who testifies of truth. If we had more faith, we would ask the question and then be willing to accept the answer we receive, even if it doesn’t fit our comfortable narrative. And the promised blessing that will come from acting in faith in Jesus Christ is an increase in faith in Him as our author and finisher. President Nelson declared that we “*receive more* faith by doing something that *requires more* faith.”[^5]
 
 So, a childless couple suffering with infertility may ask in faith whether they should adopt children and be willing to accept the answer, even though the narrative they had written for themselves included a miraculous birth.
 
@@ -79,15 +81,13 @@ Let your narrative be one of faith, following your Exemplar, the Savior Jesus Ch
 
 [^2]: See [[John 14.16|John 14:16–17]][[John 14.17|]]; [[Jacob 4.13|Jacob 4:13]].
 
-[^3]: [[1 Samuel 17.37|1 Samuel 17:37]].
+[^3]: [[1 Samuel 17.37|1 Samuel 17:37]].
 
 [^4]: [[Esther 4.16|Esther 4:16]].
 
-[^5]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
+[^5]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
 
-[^6]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
+[^6]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
+[^7]: See [[Revelation 20.12|Revelation 20:12]].
 
-
-
-#Adversity #Agency #Discipleship #Faith #Holy_Ghost #Jesus_Christ

@@ -1,6 +1,5 @@
 # Scarlet
 
-
 *See also* [[Purple.md|Purple]]
 
 midwife took and bound upon his hand a *scarlet* thread, [[Genesis 38.28|Genesis 38:28]].

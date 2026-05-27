@@ -1,7 +1,6 @@
 # Hour
 
-
-*See also* [[Time.md|Time]]; [BD Hour](https://www.churchofjesuschrist.org/study/scriptures/bd/hour?lang=eng)
+*See also* [[Time.md|Time]]; [[BD Hour.md|BD Hour]]
 
 given you in that same *hour* what ye shall speak, [[Matthew 10.19|Matthew 10:19]] ([[Mark 13.11|Mark 13:11]]; [[Luke 12.12|Luke 12:12]]; [[D&C 84.85|D&C 84:85]]).
 
@@ -29,7 +28,7 @@ mine *hour* is not yet come, [[John 2.4|John 2:4]] ([[John 7.30|John 7:30]]; [[J
 
 Father, save me from this *hour*, [[John 12.27|John 12:27]].
 
-*hour* cometh ... that ye shall be scattered, [[John 16.32|John 16:32]].
+*hour* cometh … that ye shall be scattered, [[John 16.32|John 16:32]].
 
 at the *hour* of prayer, being the ninth *hour*, [[Acts 3.1|Acts 3:1]].
 
@@ -39,7 +38,7 @@ not know what *hour* I will come upon thee, [[Revelation 3.3|Revelation 3:3]].
 
 keep thee from the *hour* of temptation, [[Revelation 3.10|Revelation 3:10]].
 
-silence in heaven about ... half an *hour*, [[Revelation 8.1|Revelation 8:1]] ([[D&C 88.95|D&C 88:95]]).
+silence in heaven about … half an *hour*, [[Revelation 8.1|Revelation 8:1]] ([[D&C 88.95|D&C 88:95]]).
 
 *hour* is not yet, but is nigh, [[D&C 1.35|D&C 1:35]].
 

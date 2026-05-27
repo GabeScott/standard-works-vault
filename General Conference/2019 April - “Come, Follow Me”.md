@@ -1,6 +1,8 @@
 # “Come, Follow Me”
 
-By President Russell M. Nelson
+Ulisses Soares
+
+By President Russell M. Nelson
 
 *Given in the April session of the 2019 General Conference*
 
@@ -30,9 +32,9 @@ It was a tender, tearful moment for us. During her 67 years, we worked together,
 
 We miss our daughter greatly. However, because of the restored gospel of Jesus Christ, we do not worry about her. As we continue to honor our covenants with God, we live in anticipation of our being with her again. Meanwhile, we’re serving the Lord here and she is serving Him there—in paradise.[^1]
 
-Actually, my wife and I visited Paradise earlier this year—Paradise, California, that is. As it happened, our scheduled visit there came less than 40 hours after our daughter departed from this world. We, along with Elder Kevin W. Pearson and his wife, June, were bolstered by the Saints of the Chico California Stake. We learned of their great faith, their ministering, and the miracles that occurred even amidst their devastating losses from the most destructive wildfire in the history of California.
+Actually, my wife and I visited Paradise earlier this year—Paradise, California, that is. As it happened, our scheduled visit there came less than 40 hours after our daughter departed from this world. We, along with Elder Kevin W. Pearson and his wife, June, were bolstered by the Saints of the Chico California Stake. We learned of their great faith, their ministering, and the miracles that occurred even amidst their devastating losses from the most destructive wildfire in the history of California.
 
-While there, we spoke at length with a young police officer, John, who was one of many brave first responders. He recalled the thick darkness that descended upon Paradise on November 8, 2018, as flames and embers raced through the town, devouring property and possessions like a scourge and leaving nothing but piles of ash and stark brick chimneys.
+While there, we spoke at length with a young police officer, John, who was one of many brave first responders. He recalled the thick darkness that descended upon Paradise on November 8, 2018, as flames and embers raced through the town, devouring property and possessions like a scourge and leaving nothing but piles of ash and stark brick chimneys.
 
 For 15 hours, John drove through an impenetrable darkness that was streaked with javelins of threatening embers as he helped person after person, family after family escape to safety—all at the peril of his own life. Yet during that strenuous ordeal, what terrified John most was his all-consuming question: “*Where* is *my* family?” After many long, terrifying hours of anguish, he finally learned of their safe evacuation.
 
@@ -91,9 +93,9 @@ I testify that God lives! Jesus is the Christ. His Church and the fulness of His
 
 [^1]: See [[Alma 40.12|Alma 40:12–14]][[Alma 40.13|]][[Alma 40.14|]].
 
-[^2]: See [[Jeremiah 27.5|Jeremiah 27:5]]; [[Matthew 23.37|Matthew 23:37]]; [[Luke 13.34|Luke 13:34]]; [[Alma 5.33|Alma 5:33]]; [[3 Nephi 9.14|3 Nephi 9:14]].
+[^2]: See [[Jeremiah 27.5|Jeremiah 27:5]]; [[Matthew 23.37|Matthew 23:37]]; [[Luke 13.34|Luke 13:34]]; [[Alma 5.33|Alma 5:33]]; [[3 Nephi 9.14|3 Nephi 9:14]].
 
-[^3]: The Resurrection will come to all because of Christ’s victory over death (see [[Alma 11.41|Alma 11:41–45]][[Alma 11.42|]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]]; [[Alma 40.1|40]][[Alma 40.2|]][[Alma 40.3|]][[Alma 40.4|]][[Alma 40.5|]][[Alma 40.6|]][[Alma 40.7|]][[Alma 40.8|]][[Alma 40.9|]][[Alma 40.10|]][[Alma 40.11|]][[Alma 40.12|]][[Alma 40.13|]][[Alma 40.14|]][[Alma 40.15|]][[Alma 40.16|]][[Alma 40.17|]][[Alma 40.18|]][[Alma 40.19|]][[Alma 40.20|]][[Alma 40.21|]][[Alma 40.22|]][[Alma 40.23|]][[Alma 40.24|]][[Alma 40.25|]][[Alma 40.26|]]; [[D&C 76.1|Doctrine and Covenants 76]][[D&C 76.2|]][[D&C 76.3|]][[D&C 76.4|]][[D&C 76.5|]][[D&C 76.6|]][[D&C 76.7|]][[D&C 76.8|]][[D&C 76.9|]][[D&C 76.10|]][[D&C 76.11|]][[D&C 76.12|]][[D&C 76.13|]][[D&C 76.14|]][[D&C 76.15|]][[D&C 76.16|]][[D&C 76.17|]][[D&C 76.18|]][[D&C 76.19|]][[D&C 76.20|]][[D&C 76.21|]][[D&C 76.22|]][[D&C 76.23|]][[D&C 76.24|]][[D&C 76.25|]][[D&C 76.26|]][[D&C 76.27|]][[D&C 76.28|]][[D&C 76.29|]][[D&C 76.30|]][[D&C 76.31|]][[D&C 76.32|]][[D&C 76.33|]][[D&C 76.34|]][[D&C 76.35|]][[D&C 76.36|]][[D&C 76.37|]][[D&C 76.38|]][[D&C 76.39|]][[D&C 76.40|]][[D&C 76.41|]][[D&C 76.42|]][[D&C 76.43|]][[D&C 76.44|]][[D&C 76.45|]][[D&C 76.46|]][[D&C 76.47|]][[D&C 76.48|]][[D&C 76.49|]][[D&C 76.50|]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]][[D&C 76.60|]][[D&C 76.61|]][[D&C 76.62|]][[D&C 76.63|]][[D&C 76.64|]][[D&C 76.65|]][[D&C 76.66|]][[D&C 76.67|]][[D&C 76.68|]][[D&C 76.69|]][[D&C 76.70|]][[D&C 76.71|]][[D&C 76.72|]][[D&C 76.73|]][[D&C 76.74|]][[D&C 76.75|]][[D&C 76.76|]][[D&C 76.77|]][[D&C 76.78|]][[D&C 76.79|]][[D&C 76.80|]][[D&C 76.81|]][[D&C 76.82|]][[D&C 76.83|]][[D&C 76.84|]][[D&C 76.85|]][[D&C 76.86|]][[D&C 76.87|]][[D&C 76.88|]][[D&C 76.89|]][[D&C 76.90|]][[D&C 76.91|]][[D&C 76.92|]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]][[D&C 76.96|]][[D&C 76.97|]][[D&C 76.98|]][[D&C 76.99|]][[D&C 76.100|]][[D&C 76.101|]][[D&C 76.102|]][[D&C 76.103|]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]][[D&C 76.107|]][[D&C 76.108|]][[D&C 76.109|]][[D&C 76.110|]][[D&C 76.111|]][[D&C 76.112|]][[D&C 76.113|]][[D&C 76.114|]][[D&C 76.115|]][[D&C 76.116|]][[D&C 76.117|]][[D&C 76.118|]][[D&C 76.119|]]; [[Moses 7.62|Moses 7:62]]).
+[^3]: The Resurrection will come to all because of Christ’s victory over death (see [[Alma 11.41|Alma 11:41–45]][[Alma 11.42|]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]]; [[Alma 40.1|40]]; [[D&C 76.1|Doctrine and Covenants 76]][[D&C 76.2|]][[D&C 76.3|]][[D&C 76.4|]][[D&C 76.5|]][[D&C 76.6|]][[D&C 76.7|]][[D&C 76.8|]][[D&C 76.9|]][[D&C 76.10|]][[D&C 76.11|]][[D&C 76.12|]][[D&C 76.13|]][[D&C 76.14|]][[D&C 76.15|]][[D&C 76.16|]][[D&C 76.17|]][[D&C 76.18|]][[D&C 76.19|]][[D&C 76.20|]][[D&C 76.21|]][[D&C 76.22|]][[D&C 76.23|]][[D&C 76.24|]][[D&C 76.25|]][[D&C 76.26|]][[D&C 76.27|]][[D&C 76.28|]][[D&C 76.29|]][[D&C 76.30|]][[D&C 76.31|]][[D&C 76.32|]][[D&C 76.33|]][[D&C 76.34|]][[D&C 76.35|]][[D&C 76.36|]][[D&C 76.37|]][[D&C 76.38|]][[D&C 76.39|]][[D&C 76.40|]][[D&C 76.41|]][[D&C 76.42|]][[D&C 76.43|]][[D&C 76.44|]][[D&C 76.45|]][[D&C 76.46|]][[D&C 76.47|]][[D&C 76.48|]][[D&C 76.49|]][[D&C 76.50|]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]][[D&C 76.60|]][[D&C 76.61|]][[D&C 76.62|]][[D&C 76.63|]][[D&C 76.64|]][[D&C 76.65|]][[D&C 76.66|]][[D&C 76.67|]][[D&C 76.68|]][[D&C 76.69|]][[D&C 76.70|]][[D&C 76.71|]][[D&C 76.72|]][[D&C 76.73|]][[D&C 76.74|]][[D&C 76.75|]][[D&C 76.76|]][[D&C 76.77|]][[D&C 76.78|]][[D&C 76.79|]][[D&C 76.80|]][[D&C 76.81|]][[D&C 76.82|]][[D&C 76.83|]][[D&C 76.84|]][[D&C 76.85|]][[D&C 76.86|]][[D&C 76.87|]][[D&C 76.88|]][[D&C 76.89|]][[D&C 76.90|]][[D&C 76.91|]][[D&C 76.92|]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]][[D&C 76.96|]][[D&C 76.97|]][[D&C 76.98|]][[D&C 76.99|]][[D&C 76.100|]][[D&C 76.101|]][[D&C 76.102|]][[D&C 76.103|]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]][[D&C 76.107|]][[D&C 76.108|]][[D&C 76.109|]][[D&C 76.110|]][[D&C 76.111|]][[D&C 76.112|]][[D&C 76.113|]][[D&C 76.114|]][[D&C 76.115|]][[D&C 76.116|]][[D&C 76.117|]][[D&C 76.118|]][[D&C 76.119|]]; [[Moses 7.62|Moses 7:62]]).
 
 [^4]: [[D&C 132.7|Doctrine and Covenants 132:7]].
 
@@ -109,8 +111,3 @@ I testify that God lives! Jesus is the Christ. His Church and the fulness of His
 
 [^10]: [[John 14.2|John 14:2]].
 
-
-
-
-
-#Covenants #Family #Plan_Of_Salvation

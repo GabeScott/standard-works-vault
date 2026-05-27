@@ -1,5 +1,7 @@
 # A Year of Jubilee
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -18,7 +20,7 @@ The Lord, through all periods of time, has reminded His children of their duty t
 
 “Six years thou shalt sow thy field, and six years thou shalt prune thy vineyard, and gather in the fruit thereof;
 
-“But in the seventh year shall be a sabbath of rest unto the land, a sabbath for the Lord: thou shalt neither sow thy field, nor prune thy vineyard. …
+“But in the seventh year shall be a sabbath of rest unto the land, a sabbath for the Lord: thou shalt neither sow thy field, nor prune thy vineyard. …
 
 “And thou shalt number seven sabbaths of years unto thee, seven times seven years; and the space of the seven sabbaths of years shall be unto thee forty and nine years.
 
@@ -50,7 +52,7 @@ Finally, during the year of jubilee, all of the Israelites who were in bondage f
 
 Individually we have been given our agency. It was a blessing granted to man from the very beginning. The Lord declared to Adam, “And it is given unto them to know good from evil; wherefore they are agents unto themselves, and I have given unto you another law and commandment” ([[Moses 6.56|Moses 6:56]]).
 
-Given that there must be opposition in all things (see [[2 Nephi 2.11|2 Ne. 2:11]]), with agency comes the need to choose good from evil. Moreover, agency also opens the possibility for sin; that, in turn, creates the need for repentance. President Kimball has said: “Sin is intensely habit-forming and sometimes moves men to the tragic point of no return. Without repentance there can be no forgiveness, and without forgiveness all the blessings of eternity hang in jeopardy. As the transgressor moves deeper and deeper in his sin, and the error is entrenched more deeply and the will to change is weakened, it becomes increasingly nearer hopeless and he skids down and down until either he does not want to climb back up or he has lost the power to do so” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[1982\], 83).
+Given that there must be opposition in all things (see [[2 Nephi 2.11|2 Ne. 2:11]]), with agency comes the need to choose good from evil. Moreover, agency also opens the possibility for sin; that, in turn, creates the need for repentance. President Kimball has said: “Sin is intensely habit-forming and sometimes moves men to the tragic point of no return. Without repentance there can be no forgiveness, and without forgiveness all the blessings of eternity hang in jeopardy. As the transgressor moves deeper and deeper in his sin, and the error is entrenched more deeply and the will to change is weakened, it becomes increasingly nearer hopeless and he skids down and down until either he does not want to climb back up or he has lost the power to do so” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[1982\], 83).
 
 He then counseled us:
 
@@ -67,8 +69,3 @@ I hope it is clearly evident when the world looks at us that we are known for ou
 
 
 
-
-
-
-
-#Agency #Christianity #Family #Habits #Sin

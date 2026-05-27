@@ -17,7 +17,7 @@ In [[Amos 3.3|Amos 3:3–6]][[Amos 3.4|]][[Amos 3.5|]][[Amos 3.6|]], the prophet
 
 What has the Lord revealed to you through His prophets?
 
-Elder Ulisses Soares said that “having prophets is a sign of God’s love” (“[[2018 April - Prophets Speak by the Power of the Holy Spirit.md|Prophets Speak by the Power of the Holy Spirit]],” *Ensign* or *Liahona*, May 2018, 99). Consider how you would complete this sentence: “I know God loves me, because He sends prophets who …” Here are some scriptures that can help: [[Deuteronomy 18.18|Deuteronomy 18:18]]; [[Ezekiel 3.16|Ezekiel 3:16–17]][[Ezekiel 3.17|]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[1 Nephi 22.2|1 Nephi 22:2]]; [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; [[D&C 84.36|84:36–38]][[D&C 84.37|]][[D&C 84.38|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
+Elder Ulisses Soares said that “having prophets is a sign of God’s love” (“[[2018 April - Prophets Speak by the Power of the Holy Spirit.md|Prophets Speak by the Power of the Holy Spirit]],” *Ensign* or *Liahona*, May 2018, 99). Consider how you would complete this sentence: “I know God loves me, because He sends prophets who …” Here are some scriptures that can help: [[Deuteronomy 18.18|Deuteronomy 18:18]]; [[Ezekiel 3.16|Ezekiel 3:16–17]][[Ezekiel 3.17|]]; [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]]; [[1 Nephi 22.2|1 Nephi 22:2]]; [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; [[D&C 84.36|84:36–38]][[D&C 84.37|]][[D&C 84.38|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
 
 What would you say to someone who feels prophets are not needed today?
 
@@ -33,7 +33,7 @@ As you read [[Amos 5.4|Amos 5:4, 14–15]][[Amos 5.14|]][[Amos 5.15|]], ponder h
 [[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]]
 ### The word of the Lord can satisfy spiritual hunger and thirst.
 
-As you read [[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]], think about why famine is a good comparison for living without God’s word (see also [[John 6.26|John 6:26–35]][[John 6.27|]][[John 6.28|]][[John 6.29|]][[John 6.30|]][[John 6.31|]][[John 6.32|]][[John 6.33|]][[John 6.34|]][[John 6.35|]]; [[2 Nephi 9.50|2 Nephi 9:50–51]][[2 Nephi 9.51|]]; [[2 Nephi 32.3|32:3]]; [[Enos 1.4|Enos 1:4–8]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]]). How do you know when you are spiritually hungry?
+As you read [[Amos 8.11|Amos 8:11–12]][[Amos 8.12|]], think about why famine is a good comparison for living without God’s word (see also [[John 6.26|John 6:26–35]][[John 6.27|]][[John 6.28|]][[John 6.29|]][[John 6.30|]][[John 6.31|]][[John 6.32|]][[John 6.33|]][[John 6.34|]][[John 6.35|]]; [[2 Nephi 9.50|2 Nephi 9:50–51]][[2 Nephi 9.51|]]; [[2 Nephi 32.3|32:3]]; [[Enos 1.4|Enos 1:4–8]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]]). How do you know when you are spiritually hungry?
 
 These verses could also apply to the Great Apostasy (see Topics and Questions, “[Apostasy](https://churchofjesuschrist.org/study/manual/gospel-topics/apostasy?lang=eng),” Gospel Library). How has that spiritual “famine” affected God’s children? How has the Restoration satisfied your spiritual hunger?
 
@@ -49,13 +49,13 @@ See also “[Holy Temples on Mount Zion](https://churchofjesuschrist.org/study/m
 [[Jonah 1.1|Jonah 1–4]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]
 ### The Lord is merciful to all who turn to Him.
 
-Nineveh was an enemy of Israel known for its violence and cruelty. To Jonah, it seemed unrealistic that they were ready to repent. It might be interesting to compare Jonah’s attitude (see [[Jonah 1.1|Jonah 1]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]; [[Jonah 3.1|3–4]][[Jonah 3.2|]][[Jonah 3.3|]][[Jonah 3.4|]][[Jonah 3.5|]][[Jonah 3.6|]][[Jonah 3.7|]][[Jonah 3.8|]][[Jonah 3.9|]][[Jonah 3.10|]]) to the feelings of Alma and the sons of Mosiah (see [[Mosiah 28.1|Mosiah 28:1–5]][[Mosiah 28.2|]][[Mosiah 28.3|]][[Mosiah 28.4|]][[Mosiah 28.5|]]; [[Alma 17.23|Alma 17:23–25]][[Alma 17.24|]][[Alma 17.25|]]). What do you learn from [[Jonah 3.1|Jonah 3]][[Jonah 3.2|]][[Jonah 3.3|]][[Jonah 3.4|]][[Jonah 3.5|]][[Jonah 3.6|]][[Jonah 3.7|]][[Jonah 3.8|]][[Jonah 3.9|]][[Jonah 3.10|]] that inspires you to share the gospel even with people who may not seem ready to change?
+Nineveh was an enemy of Israel known for its violence and cruelty. To Jonah, it seemed unrealistic that they were ready to repent. It might be interesting to compare Jonah’s attitude (see [[Jonah 1.1|Jonah 1]][[Jonah 1.2|]][[Jonah 1.3|]][[Jonah 1.4|]][[Jonah 1.5|]][[Jonah 1.6|]][[Jonah 1.7|]][[Jonah 1.8|]][[Jonah 1.9|]][[Jonah 1.10|]][[Jonah 1.11|]][[Jonah 1.12|]][[Jonah 1.13|]][[Jonah 1.14|]][[Jonah 1.15|]][[Jonah 1.16|]][[Jonah 1.17|]]; [[Jonah 3.1|3–4]][[Jonah 3.2|]][[Jonah 3.3|]][[Jonah 3.4|]][[Jonah 3.5|]][[Jonah 3.6|]][[Jonah 3.7|]][[Jonah 3.8|]][[Jonah 3.9|]][[Jonah 3.10|]]) to the feelings of Alma and the sons of Mosiah (see [[Mosiah 28.1|Mosiah 28:1–5]][[Mosiah 28.2|]][[Mosiah 28.3|]][[Mosiah 28.4|]][[Mosiah 28.5|]]; [[Alma 17.23|Alma 17:23–25]][[Alma 17.24|]][[Alma 17.25|]]). What do you learn from [[Jonah 3.1|Jonah 3]][[Jonah 3.2|]][[Jonah 3.3|]][[Jonah 3.4|]][[Jonah 3.5|]][[Jonah 3.6|]][[Jonah 3.7|]][[Jonah 3.8|]][[Jonah 3.9|]][[Jonah 3.10|]] that inspires you to share the gospel even with people who may not seem ready to change?
 
-As you read Jonah, look for examples of the Lord’s mercy. Why do you feel Jonah was “displeased” and “very angry” ([[Jonah 4.1|Jonah 4:1]]) when the Lord extended mercy to the people of Nineveh? What do you feel the Lord was trying to teach him in [[Jonah 4.1|chapter 4]][[Jonah 4.2|]][[Jonah 4.3|]][[Jonah 4.4|]][[Jonah 4.5|]][[Jonah 4.6|]][[Jonah 4.7|]][[Jonah 4.8|]][[Jonah 4.9|]][[Jonah 4.10|]][[Jonah 4.11|]]? Ponder how you have experienced His mercy in your life. What do you learn from Jonah that can help you be more merciful?
+As you read Jonah, look for examples of the Lord’s mercy. Why do you feel Jonah was “displeased” and “very angry” ([[Jonah 4.1|Jonah 4:1]]) when the Lord extended mercy to the people of Nineveh? What do you feel the Lord was trying to teach him in [[Jonah 4.1|chapter 4]][[Jonah 4.2|]][[Jonah 4.3|]][[Jonah 4.4|]][[Jonah 4.5|]][[Jonah 4.6|]][[Jonah 4.7|]][[Jonah 4.8|]][[Jonah 4.9|]][[Jonah 4.10|]][[Jonah 4.11|]]? Ponder how you have experienced His mercy in your life. What do you learn from Jonah that can help you be more merciful?
 
 ### Scripture Helps
 
-- [What is a “plumbline”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/46-amos-obadiah-jonah?lang=eng&id=p_eIMmP-p_qkvng#p_eIMmP)
+- [What is a “plumbline”?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/46-amos-obadiah-jonah?lang=eng&id=p_eIMmP-p_qkvng#p_eIMmP)
 
 - [What do we know about the cities of Nineveh and Tarshish?](https://churchofjesuschrist.org/study/manual/scripture-helps-old-testament/46-amos-obadiah-jonah?lang=eng&id=p_jL6K0-p_ueZv2#p_jL6K0)
 
@@ -65,7 +65,7 @@ As you read Jonah, look for examples of the Lord’s mercy. Why do you feel Jona
 
 ## Ideas for Teaching Children
 
-Because this Sunday is the fifth Sunday of the month, Primary teachers are encouraged to use learning activities in “[Appendix B: Preparing Children for a Lifetime on God’s Covenant Path](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/54-appendix-b?lang=eng&id=title_number1#title_number1).”
+Because this Sunday is the fifth Sunday of the month, Primary teachers are encouraged to use learning activities in “[Appendix B: Preparing Children for a Lifetime on God’s Covenant Path](https://churchofjesuschrist.org/study/manual/come-follow-me-for-home-and-church-old-testament-2026/54-appendix-b?lang=eng&id=title_number1#title_number1).”
 
 [[Amos 3.7|Amos 3:7]]
 ### Prophets are messengers of Jesus Christ.

@@ -1,6 +1,8 @@
 # Live according to the Words of the Prophets
 
-By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
+Thomas S. Monson
+
+By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -10,7 +12,7 @@ By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 Our Father in Heaven loves all of His children and desires that they know and understand His plan of happiness. Therefore, He calls prophets, those who have been ordained with power and authority to act in God’s name for the salvation of His children. They are messengers of righteousness, witnesses of Jesus Christ and the infinite power of His Atonement. They hold the keys of the kingdom of God on earth and authorize the performance of saving ordinances.
 
-In the Lord’s true Church, “there is never but one on the earth at a time on whom this power and the keys of this priesthood are conferred.”[^1] We sustain President Thomas S. Monson as our prophet, seer, and revelator. He reveals the word of the Lord to guide and direct our *entire* Church. As President J. Reuben Clark Jr. explained, “The President of the Church … alone has the right to receive revelations for the Church.”[^2]
+In the Lord’s true Church, “there is never but one on the earth at a time on whom this power and the keys of this priesthood are conferred.”[^1] We sustain President Thomas S. Monson as our prophet, seer, and revelator. He reveals the word of the Lord to guide and direct our *entire* Church. As President J. Reuben Clark Jr. explained, “The President of the Church … alone has the right to receive revelations for the Church.”[^2]
 
 Concerning the living prophet, the Lord commands the people of His Church:
 
@@ -22,7 +24,7 @@ Concerning the living prophet, the Lord commands the people of His Church:
 
 To be in harmony with heaven’s divine purposes, we sustain the prophet and choose to live according to his words.
 
-We also sustain President Monson’s counselors and the Quorum of the Twelve Apostles as prophets, seers, and revelators. “They have the right, the power, and authority to declare the mind and will of \[the Lord\] … , subject to … the President of the Church.”[^4] They speak in the name of Christ. They prophesy in the name of Christ. They do all things in the name of Jesus Christ. In their words we hear the voice of the Lord and we feel the Savior’s love. “And whatsoever they shall speak when moved upon by the Holy Ghost shall be scripture … and the power of God unto salvation.”[^5] The Lord Himself has spoken: “Whether by mine own voice or by the voice of my servants, it is the same.”[^6]
+We also sustain President Monson’s counselors and the Quorum of the Twelve Apostles as prophets, seers, and revelators. “They have the right, the power, and authority to declare the mind and will of \[the Lord\] … , subject to … the President of the Church.”[^4] They speak in the name of Christ. They prophesy in the name of Christ. They do all things in the name of Jesus Christ. In their words we hear the voice of the Lord and we feel the Savior’s love. “And whatsoever they shall speak when moved upon by the Holy Ghost shall be scripture … and the power of God unto salvation.”[^5] The Lord Himself has spoken: “Whether by mine own voice or by the voice of my servants, it is the same.”[^6]
 
 We are grateful for a church “built upon the foundation of the apostles and prophets, Jesus Christ himself being the chief corner stone.”[^7] The Lord’s house is a house of order, and we need never be deceived about where to look for answers to our questions or uncertain about which voice to follow. We need not be “tossed to and fro, and carried about with every wind of doctrine.”[^8] God reveals His word through His ordained servants, “for the perfecting of the saints, for the work of the ministry, for the edifying of the body of Christ: till we all come in the unity of the faith, and of the knowledge of the Son of God.”[^9] When we choose to live according to the words of the prophets, we are on the covenant path that leads to eternal perfection.
 
@@ -46,7 +48,7 @@ The Lord honors and favors those who will heed prophetic direction. For the wido
 
 The Lord “will feed those who trust Him.”[^16] The words of the prophets are like manna to our souls. When we partake, we are blessed, protected, and preserved both temporally and spiritually. When we feast upon their words, we learn how to come unto Christ and live.
 
-Elder Bruce R. McConkie wrote that through the prophets “the Lord reveals the truths of salvation, … the salvation that is in Christ; and he charts … the course leading to eternal life. … In every age the Lord gives his people the direction they need at the moment of their peril and danger. And surely in the days ahead there will be times when nothing but the wisdom of God, descending from heaven and flowing forth from prophetic lips, will be able to save his people.”[^17]
+Elder Bruce R. McConkie wrote that through the prophets “the Lord reveals the truths of salvation, … the salvation that is in Christ; and he charts … the course leading to eternal life. … In every age the Lord gives his people the direction they need at the moment of their peril and danger. And surely in the days ahead there will be times when nothing but the wisdom of God, descending from heaven and flowing forth from prophetic lips, will be able to save his people.”[^17]
 
 For me, the words of prophets taught by my Laurel teacher gave me a vision of what a covenant marriage relationship should look like. The words of the prophets gave me the faith and hope that I could prepare for and obtain a happy home. Consistently studying the teachings of the prophets, both ancient and modern, sustained me during the strenuous and often exhausting years of bearing, teaching, and nurturing seven children. The words of the prophets in the scriptures and taught from this pulpit are words of comfort, love, strength, and good cheer that embrace us all.
 
@@ -63,11 +65,11 @@ I bear my witness that Joseph Smith was and is the prophet called of God to rest
 
 [^1]: [[D&C 132.7|Doctrine and Covenants 132:7]]; see also *Handbook 2: Administering the Church* (2010), 2.1.1: “Jesus Christ holds all the keys of the priesthood pertaining to His Church. He has conferred upon each of His Apostles all the keys that pertain to the kingdom of God on earth. The senior living Apostle, the President of the Church, is the only person on earth authorized to exercise all priesthood keys.”
 
-[^2]: J. Reuben Clark Jr., “When Are the Writings and Sermons of Church Leaders Entitled to the Claim of Scripture?” (address to seminary and institute personnel, Brigham Young University, July 7, 1954).
+[^2]: J. Reuben Clark Jr., “When Are the Writings and Sermons of Church Leaders Entitled to the Claim of Scripture?” (address to seminary and institute personnel, Brigham Young University, July 7, 1954).
 
 [^3]: [[D&C 21.4|Doctrine and Covenants 21:4–6]][[D&C 21.5|]][[D&C 21.6|]]; emphasis added.
 
-[^4]: J. Reuben Clark Jr., “When Are the Writings and Sermons of Church Leaders Entitled to the Claim of Scripture?”
+[^4]: J. Reuben Clark Jr., “When Are the Writings and Sermons of Church Leaders Entitled to the Claim of Scripture?”
 
 [^5]: [[D&C 68.4|Doctrine and Covenants 68:4]].
 
@@ -79,30 +81,25 @@ I bear my witness that Joseph Smith was and is the prophet called of God to rest
 
 [^9]: [[Ephesians 4.12|Ephesians 4:12–13]][[Ephesians 4.13|]].
 
-[^10]: [[1 Kings 17.10|1 Kings 17:10]].
+[^10]: [[1 Kings 17.10|1 Kings 17:10]].
 
-[^11]: [[1 Kings 17.11|1 Kings 17:11–13]][[1 Kings 17.12|]][[1 Kings 17.13|]]; emphasis added.
+[^11]: [[1 Kings 17.11|1 Kings 17:11–13]][[1 Kings 17.12|]][[1 Kings 17.13|]]; emphasis added.
 
-[^12]: [[1 Kings 17.14|1 Kings 17:14]].
+[^12]: [[1 Kings 17.14|1 Kings 17:14]].
 
 [^13]: [[Isaiah 55.9|Isaiah 55:9]].
 
 [^14]: [[Proverbs 3.5|Proverbs 3:5]].
 
-[^15]: [[1 Kings 17.15|1 Kings 17:15–16]][[1 Kings 17.16|]].
+[^15]: [[1 Kings 17.15|1 Kings 17:15–16]][[1 Kings 17.16|]].
 
 [^16]: Roger Hoffman, “Consider the Lilies.”
 
-[^17]: Bruce R. McConkie, *A New Witness for the Articles of Faith* (Deseret Book Company, 1985), 478; punctuation modified; used by permission.
+[^17]: Bruce R. McConkie, *A New Witness for the Articles of Faith* (Deseret Book Company, 1985), 478; punctuation modified; used by permission.
 
 [^18]: [[Helaman 5.12|Helaman 5:12]].
 
-[^19]: See [[3 Nephi 20.23|3 Nephi 20:23]].
+[^19]: See [[3 Nephi 20.23|3 Nephi 20:23]].
 
 [^20]: See [[Mosiah 2.9|Mosiah 2:9]].
 
-
-
-
-
-#Faith #Prophets

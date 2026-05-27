@@ -1,5 +1,7 @@
 # The Essential Role of Member Missionary Work
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2003 General Conference*
@@ -18,7 +20,7 @@ The Savior’s impassioned charge to “feed \[His\] sheep” continues in force
 
 But the Savior was not just talking to the Apostles. He was also talking to every person who has been blessed to hear the gospel and is a member of His Church. In a revelation to the Prophet Joseph Smith, the Lord put it in very simple terms: “It becometh every man who hath been warned to warn his neighbor” ([[D&C 88.81|D&C 88:81]]).
 
-During the last general conference we challenged our young men to better prepare themselves to serve the Lord Jesus Christ. We asked them to be worthy, qualified, spiritually energized missionaries. With the unsettled conditions that exist in the world today, they need to be “the greatest generation of missionaries in the history of the Church” (in Conference Report, Oct. 2002, 50; or *Ensign,* Nov. 2002, 47). We don’t expect them to be perfect, but they need to be anxious, willing, and committed to serve so they can reach new levels of spirituality as gospel teachers. They need to know the message of the Restoration of the gospel of Jesus Christ and teach it with power in their own words under the guiding influence of the Holy Spirit.
+During the last general conference we challenged our young men to better prepare themselves to serve the Lord Jesus Christ. We asked them to be worthy, qualified, spiritually energized missionaries. With the unsettled conditions that exist in the world today, they need to be “the greatest generation of missionaries in the history of the Church” (in Conference Report, Oct. 2002, [[2002 October - The Greatest Generation of Missionaries.md|50]]; or *Ensign,* Nov. 2002, 47). We don’t expect them to be perfect, but they need to be anxious, willing, and committed to serve so they can reach new levels of spirituality as gospel teachers. They need to know the message of the Restoration of the gospel of Jesus Christ and teach it with power in their own words under the guiding influence of the Holy Spirit.
 
 Throughout the Church we are working hard to help all of our missionaries to increase their spiritual maturity. This worldwide effort has been referred to as “raising the bar” or “raising the standard.” We thank you parents, bishops, and stake presidents for your support in this effort. We also thank the faithful youth of the Church for your willingness to live up to the Lord’s standard. May our Heavenly Father continue to bless you as you prepare to serve Him in this troubled world.
 
@@ -61,8 +63,3 @@ We can and we must do better, brothers and sisters. I pray that the Lord will gr
 
 
 
-
-
-
-
-#Love #Missionary_Work #Prayer #Worthiness

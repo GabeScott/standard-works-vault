@@ -1,5 +1,7 @@
 # A Brief Introduction to the Church
 
+Gordon B. Hinckley
+
 By Elder John B. Dickson - *Of the Seventy*
 
 *Given in the April session of the 2000 General Conference*
@@ -18,7 +20,7 @@ As he examined The Church of Jesus Christ of Latter-day Saints, he was able to r
 
 2. **Jesus Christ organized His Church during His mortal ministry.**The Bible helps us understand that Jesus organized His Church with apostles, prophets, pastors, teachers, and other Church officials who held the priesthood, which is the authority to act in God’s name. Their work was to bring all men to a “unity of the faith” regarding Jesus Christ and His teachings ([[Ephesians 4.13|Eph. 4:13]]).
 
-3. **The Church of Christ and many simple truths were lost.**Several Bible prophets declared that there would be a “falling away” ([[2 Thessalonians 2.3|2 Thes. 2:3]]) from the true gospel, a time when there would be a “famine” ([[Amos 8.11|Amos 8:11]]) regarding the word of God, and “divisions” ([[1 Corinthians 11.18|1 Cor. 11:18]]) caused as “grievous wolves” ([[Acts 20.29|Acts 20:29]]) would enter and disrupt the flock or the people of the Church. These prophecies became a reality when, in the years following the Savior’s Crucifixion, the Apostles were killed, the authority to direct the Church was eventually lost, and for many centuries, including the period known as the Dark Ages, the Church of Jesus Christ was not found on the earth.
+3. **The Church of Christ and many simple truths were lost.**Several Bible prophets declared that there would be a “falling away” ([[2 Thessalonians 2.3|2 Thes. 2:3]]) from the true gospel, a time when there would be a “famine” ([[Amos 8.11|Amos 8:11]]) regarding the word of God, and “divisions” ([[1 Corinthians 11.18|1 Cor. 11:18]]) caused as “grievous wolves” ([[Acts 20.29|Acts 20:29]]) would enter and disrupt the flock or the people of the Church. These prophecies became a reality when, in the years following the Savior’s Crucifixion, the Apostles were killed, the authority to direct the Church was eventually lost, and for many centuries, including the period known as the Dark Ages, the Church of Jesus Christ was not found on the earth.
 
 4. **The hearts of men and a location were prepared for a restoration of the gospel.**The closing of the Dark Ages took place as the Reformation unfolded, where brave men and women recognized the need to incorporate doctrines that Jesus had instituted back into the church. We are grateful for the great reformers such as Luther, Wycliffe, Wesley, Tyndale, and many others who helped set the stage for open religious dialogue, study of the scriptures, and the desire engendered in the hearts of good men and women for an expression of religious liberty. But their faith, their desire, their sacrifice, and even their martyrdom were insufficient to restore that which was lost.The founding fathers of the United States of America were inspired in drafting a constitution that guarantees religious and other freedoms for all. Religious tolerance and changing attitudes helped prepare a people, while the conditions created under the umbrella of the U.S. Constitution prepared a location where the restoration of the gospel could take place.
 
@@ -39,8 +41,3 @@ I humbly declare that Jesus is the Christ, the literal Son of God, and that His 
 
 
 
-
-
-
-
-#Apostasy #Book_Of_Mormon #Church_Doctrine #Church_Organization #Family #Holy_Ghost #Joseph_Smith #Plan_Of_Salvation #Premortal_Existence #Prophets #Restoration #Spirituality #Temple_Work

@@ -4,6 +4,3 @@
 
 [JST Luke 12:57](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/12?lang=eng)
 
-
-
-

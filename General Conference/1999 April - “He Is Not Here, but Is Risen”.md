@@ -1,5 +1,7 @@
 # “He Is Not Here, but Is Risen”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1999 General Conference*
@@ -26,9 +28,9 @@ Those of us who live in comfort and security seldom give any thought to death. O
 
 I have stood at the tomb of Napoleon in Paris, at the tomb of Lenin in Moscow, and before the burial places of many others of the great leaders of the earth. In their time they commanded armies, they ruled with almost omnipotent power, their very words brought terror into the hearts of people. I have reverently walked through some of the great cemeteries of the world. I have reflected quietly and thoughtfully as I have stood in the military cemetery in Manila in the Philippines where are buried some 17,000 Americans who gave their lives in the Second World War and where are remembered another 35,000 who died in the terrible battles of the Pacific and whose remains were never found. I have walked with reverence through the British cemetery on the outskirts of Rangoon, Burma, and noted the names of hundreds of young men who came from the villages, towns, and great cities of the British Isles and gave their lives in hot and distant places. I have strolled through old cemeteries in Asia and Europe and yet other places and reflected on the lives of those who were once buoyant and happy, who were creative and distinguished, who gave much to the world in which they lived. They have all passed into the oblivion of the grave. All who have lived upon the earth before us are now gone. They have left all behind as they have stepped over the threshold of silent death. None has escaped. All have walked their way to “the undiscovered country from whose bourn no traveler returns” (*Hamlet,* act 3, scene 1, lines 79–80). Shakespeare so described it.
 
-But Jesus the Christ changed all that. Only a God could do what He did. He broke the bonds of death. He too had to die, but on the third day following His burial, He rose from the grave, “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]), and in so doing brought the blessing of the Resurrection to every one of us.
+But Jesus the Christ changed all that. Only a God could do what He did. He broke the bonds of death. He too had to die, but on the third day following His burial, He rose from the grave, “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]), and in so doing brought the blessing of the Resurrection to every one of us.
 
-Contemplating this wondrous thing, Paul declared: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]]).
+Contemplating this wondrous thing, Paul declared: “O death, where is thy sting? O grave, where is thy victory?” ([[1 Corinthians 15.55|1 Cor. 15:55]]).
 
 Two weeks ago I was in Jerusalem, that great and ancient city where Jesus walked 2,000 years ago. Standing on a high point, I looked down upon the Old City. I thought of Bethlehem, a few miles to the south, where He was born in a lowly manger. He who was the Son of God, the Only Begotten Son, left His Father’s celestial courts to take on mortality. At His birth angels sang and wise men came to bestow gifts. He grew as did other boys in Nazareth of Galilee. There He “increased in wisdom and stature, and in favour with God and man” ([[Luke 2.52|Luke 2:52]]).
 
@@ -76,23 +78,23 @@ Men and women by the millions through the centuries have accepted that testimony
 
 And there is another witness. This biblical companion, the Book of Mormon, testifies that He appeared not only to those of the Old World but also to those of the New. For had He not at one time declared, “Other sheep I have, which are not of this fold: them also I must bring, and they shall hear my voice; and there shall be one fold, and one shepherd”? ([[John 10.16|John 10:16]]).
 
-To those of this hemisphere He appeared following His Resurrection. At His descent through the clouds of heaven, the voice of God the Eternal Father was heard again in solemn declaration: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him” ([[3 Nephi 11.7|3 Ne. 11:7]]).
+To those of this hemisphere He appeared following His Resurrection. At His descent through the clouds of heaven, the voice of God the Eternal Father was heard again in solemn declaration: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him” ([[3 Nephi 11.7|3 Ne. 11:7]]).
 
 Here again He called 12 Apostles, who would become witnesses of His name and divinity. He taught the people and blessed and healed them as He had done in Palestine, and peace reigned in the land for 200 years as the people sought to live by that which He had taught them.
 
 And if all of this is not enough, there is the testimony, sure and certain and unequivocal, of the great prophet of this dispensation, Joseph Smith. As a boy he went into the woods to pray seeking light and understanding. And there appeared before him two Personages, whose brightness and glory defy all description, standing above him in the air. One of them spoke to him, calling him “by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.17|JS—H 1:17]]).
 
-This same Joseph declared on a subsequent occasion: “We beheld the glory of the Son, on the right hand of the Father, and received of his fulness. …
+This same Joseph declared on a subsequent occasion: “We beheld the glory of the Son, on the right hand of the Father, and received of his fulness. …
 
 “And now, after the many testimonies which have been given of him, this is the testimony, last of all, which we give of him: That he lives!” ([[D&C 76.20|D&C 76:20, 22]][[D&C 76.22|]]).
 
-And so on this wonderful Easter morning, as the servants of the Almighty, as prophets and apostles in His great cause, we lift our voices in witness and testimony of our immortal Savior. He came to earth as the Son of the Everlasting Father. He did as Isaiah prophesied He must do. He bore “our griefs, and carried our sorrows. …
+And so on this wonderful Easter morning, as the servants of the Almighty, as prophets and apostles in His great cause, we lift our voices in witness and testimony of our immortal Savior. He came to earth as the Son of the Everlasting Father. He did as Isaiah prophesied He must do. He bore “our griefs, and carried our sorrows. …
 
-“… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed” ([[Isaiah 53.4|Isa. 53:4–5]][[Isaiah 53.5|]]).
+“… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed” ([[Isaiah 53.4|Isa. 53:4–5]][[Isaiah 53.5|]]).
 
 In everlasting immortality He arose the third day from the rock-hewn grave. He spoke with many. His Father repeatedly affirmed His divine sonship.
 
-Thanks be to the Almighty. His glorified Son broke the bonds of death, the greatest of all victories. As Paul declared, “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
+Thanks be to the Almighty. His glorified Son broke the bonds of death, the greatest of all victories. As Paul declared, “For as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
 
 He is our triumphant Lord. He is our Redeemer, who atoned for our sins. Through His redeeming sacrifice all men shall rise from the grave. He has opened the way whereby we may gain not only immortality but also eternal life.
 
@@ -101,8 +103,3 @@ As an Apostle of the Lord Jesus Christ, I bear witness and testimony of these th
 
 
 
-
-
-
-
-#Adversity #Atonement #Death #Jesus_Christ #Resurrection

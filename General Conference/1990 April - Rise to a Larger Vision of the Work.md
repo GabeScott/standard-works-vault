@@ -1,5 +1,7 @@
 # Rise to a Larger Vision of the Work
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -68,7 +70,7 @@ Further with reference to activities, may I say that I regard activities as impo
 
 It should be recognized that this church is not a social club. This is the kingdom of God in the earth. It is The Church of Jesus Christ of Latter-day Saints. Its purpose is to bring salvation and exaltation to both the living and the dead.
 
-May I remind you of a tremendous statement given by the First Presidency in 1907. They said: “Our motives are not selfish; our purposes not petty and earthbound; we contemplate the human race—past, present, and yet to come—as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now and forever.” (In Conference Report, Apr. 1907, appendix, “An Address to the World,” p. 16.) Such is the scope of our responsibility.
+May I remind you of a tremendous statement given by the First Presidency in 1907. They said: “Our motives are not selfish; our purposes not petty and earthbound; we contemplate the human race—past, present, and yet to come—as immortal beings, for whose salvation it is our mission to labor; and to this work, broad as eternity and deep as the love of God, we devote ourselves, now and forever.” (In Conference Report, Apr. 1907, appendix, “An Address to the World,” p. 16.) Such is the scope of our responsibility.
 
 In working under this new program let us not quibble or complain. Let us not get bogged down in discussions over a division of dollars and dimes. Let us not worry and get all worked up about exotic excursions that now may not be possible. These might provide wonderful fun, and young people, we all agree, need to have some fun under the direction of Church officers and teachers. But these officers and teachers, and these young men and women, are people of ingenuity who with faith and prayer can work out programs costing little in dollars that will yield tremendous dividends in wholesome recreation and faith-building activities. Perhaps we should be less concerned with fun and more with faith. This is a new and wonderful program. As with any new program, there will be a few items that will need to be corrected as we go along. There are still unanswered questions, particularly concerning recreation properties. Time and experience will provide the answers. Meanwhile, be grateful and prayerfully go to work to make it function. I promise you that you will be happy if you do so. Family life will be strengthened and faith will increase.
 
@@ -91,8 +93,3 @@ This is the work of the Almighty. Let us never forget that. It is the work of Hi
 
 
 
-
-
-
-
-#Financial_Management #Jesus_Christ #Prophets #Tithing

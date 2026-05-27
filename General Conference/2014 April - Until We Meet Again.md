@@ -1,6 +1,8 @@
 # Until We Meet Again
 
-By President Thomas S. Monson - *President of the Church*
+Thomas S. Monson
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -31,8 +33,3 @@ I bid you farewell until we meet again in six months’ time, and I do so in the
 
 
 
-
-
-
-
-#General_Conference #Love

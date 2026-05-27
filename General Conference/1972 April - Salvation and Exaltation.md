@@ -1,6 +1,8 @@
 # Salvation and Exaltation
 
-By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
+Wilford G. Edling
+
+By Elder Theodore M. Burton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -24,17 +26,17 @@ As Paul explained to the Corinthian Greeks:
 
 “For since by man came death, by man came also the resurrection of the dead.
 
-“For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.20|1 Cor. 15:20–22]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].)
+“For as in Adam all die, even so in Christ shall all be made alive.” ([[1 Corinthians 15.20|1 Cor. 15:20–22]][[1 Corinthians 15.21|]][[1 Corinthians 15.22|]].)
 
 All mankind will thus receive general salvation, excepting the sons of perdition. Following their resurrection, “they shall return again to their own place, to enjoy that which they are willing to receive, because they were not willing to enjoy that which they might have received.” ([[D&C 88.32|D&C 88:32]].)
 
-These sons of perdition (perhaps only few in number) will be resurrected but will not be redeemed from the power of Satan because they are still filthy; as the prophet Alma said of them: “… they shall be as though there had been no redemption made; for they cannot be redeemed according to God’s justice; and they cannot die, seeing there is no more corruption.” ([[Alma 12.18|Alma 12:18]].)
+These sons of perdition (perhaps only few in number) will be resurrected but will not be redeemed from the power of Satan because they are still filthy; as the prophet Alma said of them: “… they shall be as though there had been no redemption made; for they cannot be redeemed according to God’s justice; and they cannot die, seeing there is no more corruption.” ([[Alma 12.18|Alma 12:18]].)
 
 I suppose that having a body and not being able to do anything with it will be a true hell. All other persons will be saved by the grace of God from death, hell, the devil, and endless torment.
 
 The true value of the sacrifice of Christ means much more than this general salvation which comes to all mankind. There is an additional salvation that God has planned for his children. This additional salvation is an individual salvation and is conditioned not only upon grace, but also upon obedience to gospel law. One of the prophets in the Book of Mormon explained why he and his associates were so concerned about teaching more about Jesus Christ, as he wrote:
 
-“For we labor diligently to write, to persuade our children, and also our brethren, to believe in Christ, and to be reconciled to God; for we know that it is by grace that we are saved, after all we can do.” ([[2 Nephi 25.23|2 Ne. 25:23]].)
+“For we labor diligently to write, to persuade our children, and also our brethren, to believe in Christ, and to be reconciled to God; for we know that it is by grace that we are saved, after all we can do.” ([[2 Nephi 25.23|2 Ne. 25:23]].)
 
 That full reconciliation to God is extremely important to me. It is the idea of a personal atonement or reconciliation that can bring me back into the presence of God as one of his covenant sons that appeals to me. That kind of conditional salvation I call exaltation.
 
@@ -79,8 +81,3 @@ May God bless you to choose well, for I testify to you that God lives and that h
 
 
 
-
-
-
-
-#Plan_Of_Salvation

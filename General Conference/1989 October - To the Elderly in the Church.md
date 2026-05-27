@@ -1,5 +1,7 @@
 # To the Elderly in the Church
 
+Ezra Taft Benson
+
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the October session of the 1989 General Conference*
@@ -56,7 +58,7 @@ We see numerous others of our widows who volunteer as “pink ladies” at the h
 
 The key to overcoming aloneness and a feeling of uselessness for one who is physically able is to step outside yourself by helping others who are truly needy. We promise those who will render this kind of service that, in some measure, you will be healed of the loss of loved ones or the dread of being alone. The way to feel better about your own situation is to improve someone else’s circumstances.
 
-To those who are ill and suffering pain and the vicissitudes of this life, we extend particular love and concern. Our hearts and prayers go out to you. Remember what father Lehi said in blessing his son Jacob, who had suffered at the hands of his older brothers Laman and Lemuel. He said, “Thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain.” ([[2 Nephi 2.2|2 Ne. 2:2]].) And so he will for you.
+To those who are ill and suffering pain and the vicissitudes of this life, we extend particular love and concern. Our hearts and prayers go out to you. Remember what father Lehi said in blessing his son Jacob, who had suffered at the hands of his older brothers Laman and Lemuel. He said, “Thou knowest the greatness of God; and he shall consecrate thine afflictions for thy gain.” ([[2 Nephi 2.2|2 Ne. 2:2]].) And so he will for you.
 
 We pray that you will continue to strive to remain strong in attitude and spirit. We know it is not always easy. We pray that those who now do for you tasks that you no longer are able to do for yourself will do so in love, in gentleness, and with a caring spirit.
 
@@ -66,7 +68,7 @@ You will find that the daily reading of the Book of Mormon will lift your spirit
 
 Now for a few minutes may I speak to the families of the elderly. We repeat a scripture from Psalms: “Cast me not off in the time of old age; forsake me not when my strength faileth.” ([[Psalms 71.9|Ps. 71:9]].)
 
-We encourage families to give their elderly parents and grandparents the love, care, and attention they deserve. Let us remember the scriptural command that we must care for those of our own house lest we be found “worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].) I am so grateful for my own dear family and for the loving care they have given their parents over so many years.
+We encourage families to give their elderly parents and grandparents the love, care, and attention they deserve. Let us remember the scriptural command that we must care for those of our own house lest we be found “worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].) I am so grateful for my own dear family and for the loving care they have given their parents over so many years.
 
 Remember that parents and grandparents are our responsibility, and we are to care for them to the very best of our ability. When the elderly have no families to care for them, priesthood and Relief Society leaders should make every effort to meet their needs in the same loving way. We submit a few suggestions to families of the elderly.
 
@@ -88,7 +90,7 @@ We also hope that you would include the elderly in family activities when possib
 
 Grandparents can have a profound influence on their grandchildren. Their time is generally not as encumbered and busy as the parents’, so books can be opened and read, stories can be told, and application of gospel principles can be taught. Children then obtain a perspective of life which not only is rewarding but can bring them security, peace, and strength. It is possible to send letters, tapes, and pictures, particularly where distances are great and it is not possible to see one another often. Those who are blessed with a closeness to grandparents and other elderly people have a rich companionship and association. There might be times when they can attend graduations, weddings, temple excursions, missionary farewells and homecomings, and other special events with family members.
 
-We enjoy watching our children and grandchildren grow and achieve in special ways as we share in many of their joys and rejoice in their victories. Happiness blesses our lives as our children strive and achieve in their own lives. In [[3 John 1.4|3 Jn. 1:4]] we read, “I have no greater joy than to hear that my children walk in truth.” And knowing this can bring a renewal of love and courage to continue in our own struggles.
+We enjoy watching our children and grandchildren grow and achieve in special ways as we share in many of their joys and rejoice in their victories. Happiness blesses our lives as our children strive and achieve in their own lives. In [[3 John 1.4|3 Jn. 1:4]] we read, “I have no greater joy than to hear that my children walk in truth.” And knowing this can bring a renewal of love and courage to continue in our own struggles.
 
 Finally, we would urge priesthood leaders of the elderly to be sensitive to the Spirit of our Father in Heaven in assessing and meeting the spiritual, physical, emotional, and financial needs of the elderly. We trust you will utilize your counselors, Melchizedek Priesthood quorum leaders, and Relief Society leaders, home teachers, and visiting teachers in this great responsibility, for we must fulfill these duties without reluctance or hesitation.
 
@@ -112,13 +114,8 @@ You have so much to live for. May these golden years be your very best years as 
 
 I leave you my testimony of the joy of living—of the joys of *full* gospel living and of going through the Refiner’s fire and the sanctification process that takes place. As the Apostle Paul so well said, “We know that all things work together for good to them that love God.” ([[Romans 8.28|Rom. 8:28]].)
 
-I leave my blessing upon you. The Savior lives. This is His church. The work is true, and in the words of our Lord and Savior, “Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life” ([[3 Nephi 15.9|3 Ne. 15:9]]), to which I testify in the name of Jesus Christ, amen.
+I leave my blessing upon you. The Savior lives. This is His church. The work is true, and in the words of our Lord and Savior, “Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life” ([[3 Nephi 15.9|3 Ne. 15:9]]), to which I testify in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Charity #Elderly #Endurance #Family #Love #Service

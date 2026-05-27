@@ -1,17 +1,16 @@
 # Bread
 
-
 *See also* [[Bread, Shewbread.md|Bread, Shewbread]]; [[Bread, Unleavened.md|Bread, Unleavened]]; [[Bread of Life.md|Bread of Life]]; [[Sacrament.md|Sacrament]]
 
 In the sweat of thy face shalt thou eat *bread*, [[Genesis 3.19|Genesis 3:19]] ([[Moses 4.25|Moses 4:25]]).
 
-Melchizedek ... brought forth *bread*, [[Genesis 14.18|Genesis 14:18]].
+Melchizedek … brought forth *bread*, [[Genesis 14.18|Genesis 14:18]].
 
 I will rain *bread* from heaven, [[Exodus 16.4|Exodus 16:4]] ([[Nehemiah 9.15|Nehemiah 9:15]]).
 
-manna ... This is the *bread*, [[Exodus 16.15|Exodus 16:15]] ([[Exodus 14.18|Exodus 14:18]]).
+manna … This is the *bread*, [[Exodus 16.15|Exodus 16:15]] ([[Exodus 14.18|Exodus 14:18]]).
 
-serve the Lord ... and he shall bless thy *bread*, [[Exodus 23.25|Exodus 23:25]].
+serve the Lord … and he shall bless thy *bread*, [[Exodus 23.25|Exodus 23:25]].
 
 man doth not live by *bread* only, [[Deuteronomy 8.3|Deuteronomy 8:3]] ([[Matthew 4.4|Matthew 4:4]]).
 
@@ -39,13 +38,13 @@ Cast thy *bread* upon the waters, [[Ecclesiastes 11.1|Ecclesiastes 11:1]].
 
 spend money for that which is not *bread*, [[Isaiah 55.2|Isaiah 55:2]].
 
-earth ... that it may give ... *bread*, [[Isaiah 55.10|Isaiah 55:10]].
+earth … that it may give … *bread*, [[Isaiah 55.10|Isaiah 55:10]].
 
 deal thy *bread* to the hungry, [[Isaiah 58.7|Isaiah 58:7]].
 
 young children ask *bread*, [[Lamentations 4.4|Lamentations 4:4]].
 
-tempter came ... command that these stones be made *bread*, [[Matthew 4.3|Matthew 4:3]].
+tempter came … command that these stones be made *bread*, [[Matthew 4.3|Matthew 4:3]].
 
 Give us this day our daily *bread*, [[Matthew 6.11|Matthew 6:11]].
 
@@ -53,11 +52,11 @@ if his son ask *bread*, will he give him a stone, [[Matthew 7.9|Matthew 7:9]].
 
 he took the seven *loaves* and the fishes, [[Matthew 15.36|Matthew 15:36]].
 
-disciples ... had forgotten to take *bread*, [[Matthew 16.5|Matthew 16:5]] ([[Mark 8.14|Mark 8:14]]).
+disciples … had forgotten to take *bread*, [[Matthew 16.5|Matthew 16:5]] ([[Mark 8.14|Mark 8:14]]).
 
-Jesus took *bread* ... this is my body, [[Matthew 26.26|Matthew 26:26]] ([[Mark 14.22|Mark 14:22]]; [[Luke 22.19|Luke 22:19]]; [[1 Corinthians 11.23|1 Corinthians 11:23]]).
+Jesus took *bread* … this is my body, [[Matthew 26.26|Matthew 26:26]] ([[Mark 14.22|Mark 14:22]]; [[Luke 22.19|Luke 22:19]]; [[1 Corinthians 11.23|1 Corinthians 11:23]]).
 
-they should take ... no scrip, no *bread*, [[Mark 6.8|Mark 6:8]] ([[Luke 9.3|Luke 9:3]]).
+they should take … no scrip, no *bread*, [[Mark 6.8|Mark 6:8]] ([[Luke 9.3|Luke 9:3]]).
 
 Blessed is he that shall eat *bread* in the kingdom, [[Luke 14.15|Luke 14:15]].
 
@@ -67,7 +66,7 @@ my Father giveth you the true *bread*, [[John 6.32|John 6:32]].
 
 Jesus then cometh, and taketh *bread*, [[John 21.13|John 21:13]].
 
-continued steadfastly ... in breaking of *bread*, [[Acts 2.42|Acts 2:42]].
+continued steadfastly … in breaking of *bread*, [[Acts 2.42|Acts 2:42]].
 
 disciples came together to break *bread*, [[Acts 20.7|Acts 20:7]].
 
@@ -89,10 +88,8 @@ meet together often to partake of *bread*, [[D&C 20.75|D&C 20:75]].
 
 bless and sanctify this *bread* to the souls, [[D&C 20.77|D&C 20:77]] ([[Moroni 4.3|Moroni 4:3]]).
 
-idle shall not eat the *bread* ... of the laborer, [[D&C 42.42|D&C 42:42]].
+idle shall not eat the *bread* … of the laborer, [[D&C 42.42|D&C 42:42]].
 
 after partaking of *bread* and wine, [[D&C 88.141|D&C 88:141]].
 
 nor his seed be found begging *bread*, [[D&C 124.90|D&C 124:90]].
-
-*See also* [[D&C 89.14|D&C 89:14]]; [[D&C 136.9|D&C 136:9]].

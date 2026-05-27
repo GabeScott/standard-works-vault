@@ -1,5 +1,7 @@
 # Preparations for the Restoration and the Second Coming: “My Hand Shall Be over Thee”
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2005 General Conference*
@@ -115,8 +117,3 @@ That each of us will prepare ourselves to greet Him is my humble prayer. In His 
 
 [^19]: [[D&C 135.3|D&C 135:3]].
 
-
-
-
-
-#Apostasy #Book_Of_Mormon #Jesus_Christ #Joseph_Smith #Restoration #Scripture_Study

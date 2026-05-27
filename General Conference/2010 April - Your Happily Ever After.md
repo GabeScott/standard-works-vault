@@ -1,5 +1,7 @@
 # Your Happily Ever After
 
+Thomas S. Monson
+
 By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2010 General Conference*
@@ -8,7 +10,7 @@ By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2010/04/your-happily-ever-after?lang=eng)
 
-My dear young sisters all around the world, I am grateful and honored to be with you today. President Thomas S. Monson and all the leaders of the Church love you; we pray for you, and we rejoice in your faithfulness.
+My dear young sisters all around the world, I am grateful and honored to be with you today. President Thomas S. Monson and all the leaders of the Church love you; we pray for you, and we rejoice in your faithfulness.
 
 Over the years I have been exposed to many beautiful languages—each of them is fascinating and remarkable; each has its particular charm. But as different as these languages can be, they often have things in common. For example, in most languages there exists a phrase as magical and full of promise as perhaps any in the world. That phrase is “Once upon a time.”
 
@@ -107,7 +109,7 @@ As an Apostle of the Lord Jesus Christ, I leave you my blessing and give you a p
 
 [^1]: *Young Women Personal Progress* (booklet, 2009), 1.
 
-[^2]: See [[2 Nephi 2.11|2 Nephi 2:11, 15]][[2 Nephi 2.15|]].
+[^2]: See [[2 Nephi 2.11|2 Nephi 2:11, 15]][[2 Nephi 2.15|]].
 
 [^3]: [[D&C 121.7|Doctrine and Covenants 121:7–8]][[D&C 121.8|]].
 
@@ -123,7 +125,5 @@ As an Apostle of the Lord Jesus Christ, I leave you my blessing and give you a p
 
 [^9]: [[D&C 21.6|Doctrine and Covenants 21:6]].
 
+[^10]: *Young Women Personal Progress,* 3.
 
-
-
-#Adversity #Joy #Obedience #Plan_Of_Salvation

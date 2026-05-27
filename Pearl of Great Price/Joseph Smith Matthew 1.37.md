@@ -5,7 +5,7 @@
 [Joseph Smith Matthew 1:37](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.37?lang=eng#p37)
 
 
-[^a]: TG [[Scriptures, Study of]]; [[Study]]; [[Treasure]].
-[^b]: TG [[Jesus Christ, Second Coming]].
-[^c]: [[D&C 29.11|D&C 29:11 (11-15)]]; [[Moses 7.25|Moses 7:25 (25-26).]]
-[^d]: TG [[Israel, Remnant of]].
+[^a]: [[Scriptures, Study of|TG Scriptures, Study of]]; [[Study|Study]]; [[Treasure|Treasure]].  
+[^b]: [[Jesus Christ, Second Coming|TG Jesus Christ, Second Coming]].  
+[^c]: [[D&C 29.11|D&C 29:11 (11–15)]][[D&C 29.12|]][[D&C 29.13|]][[D&C 29.14|]][[D&C 29.15|]]; [[Moses 7.25|Moses 7:25 (25–26)]][[Moses 7.26|]].  
+[^d]: [[Israel, Remnant of|TG Israel, Remnant of]].  

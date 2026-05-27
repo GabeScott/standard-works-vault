@@ -1,4 +1,3 @@
 # Jonah
 
-
-*See* [BD Jonah](https://www.churchofjesuschrist.org/study/scriptures/bd/jonah?lang=eng)
+*See also* [[BD Jonah.md|BD Jonah]]

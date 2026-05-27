@@ -1,5 +1,7 @@
 # Blessed from on High
 
+Ezra Taft Benson
+
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -18,9 +20,9 @@ For a boy who had barely turned fourteen, his search for the truth was made even
 
 Now, with that familiar background and setting, I invite you to consider these rather remarkable thoughts and feelings from a boy of such a tender age. He wrote:
 
-“During this time of great excitement my mind was called up to serious reflection and great uneasiness; but though my feelings were deep and often poignant, still I kept myself aloof from all these \[factions\] … ; so great were the confusion and strife among the different denominations, that it was impossible for a person young as I was, and so unacquainted with men and things, to come to any certain conclusion who was right and who was wrong.
+“During this time of great excitement my mind was called up to serious reflection and great uneasiness; but though my feelings were deep and often poignant, still I kept myself aloof from all these \[factions\] … ; so great were the confusion and strife among the different denominations, that it was impossible for a person young as I was, and so unacquainted with men and things, to come to any certain conclusion who was right and who was wrong.
 
-“My mind at times was greatly excited, the cry and tumult were so great and incessant. …
+“My mind at times was greatly excited, the cry and tumult were so great and incessant. …
 
 “In the midst of this war of words and tumult of opinions, I often said to myself: What is to be done? Who of all these parties are right; or, are they all wrong together? If any one of them be right, which is it, and how shall I know it?
 
@@ -32,7 +34,7 @@ Of course, what happened next changed the course of human history. Determining t
 
 But my purpose this morning is not to outline the first moments of the Restoration, though it is one of the most sacred stories in the scriptures. I wish, rather, simply to emphasize the impressive degree of spiritual sensitivity demonstrated by this very young and untutored boy.
 
-How many of us, at fourteen or any age, could keep our heads steady and our wits calm with so many forces tugging and pulling on us, especially on such an important subject as our eternal salvation? How many of us could withstand the emotional conflict that might come when parents differ in their religious persuasions? How many of us, at fourteen or fifty, would search within our souls and search within holy writ to find answers to what the Apostle Paul called “the deep things of God”? ([[1 Corinthians 2.10|1 Cor. 2:10]]).
+How many of us, at fourteen or any age, could keep our heads steady and our wits calm with so many forces tugging and pulling on us, especially on such an important subject as our eternal salvation? How many of us could withstand the emotional conflict that might come when parents differ in their religious persuasions? How many of us, at fourteen or fifty, would search within our souls and search within holy writ to find answers to what the Apostle Paul called “the deep things of God”? ([[1 Corinthians 2.10|1 Cor. 2:10]]).
 
 How remarkable—at least it may seem remarkable to us in our day—that this lad would turn profoundly to the scriptures and then to private prayer, perhaps the two greatest sources of spiritual insight and spiritual impression that are available universally to mankind. Certainly he was torn by differing opinions, but he was determined to do the right thing and determined to find the right way. He believed, as you and I must believe, that he could be taught and blessed from on high, as he was.
 
@@ -73,13 +75,13 @@ Let me close with a third example noting just such a struggle shared by a youth 
 
 Elisha, a prophet, seer, and revelator, had counseled the king of Israel on how and where and when to defend against the warring Syrians. The king of Syria, of course, wished to rid his army of Elisha’s prophetic interference. The record reads:
 
-“Therefore sent he thither horses, and chariots, and a great host: and they came by night, and compassed the city about. …
+“Therefore sent he thither horses, and chariots, and a great host: and they came by night, and compassed the city about. …
 
-“\[They\] compassed the city both with horses and chariots.” ([[2 Kings 6.14|2 Kgs. 6:14–15]][[2 Kings 6.15|]].)
+“\[They\] compassed the city both with horses and chariots.” ([[2 Kings 6.14|2 Kgs. 6:14–15]][[2 Kings 6.15|]].)
 
-The odds were staggering. It was an old man and a boy against what looked like the whole world. Elisha’s young companion was fearful and cried, “Alas, my master! how shall we do?” And Elisha’s reply? “Fear not: for they that be with us are more than they that be with them.” ([[2 Kings 6.15|2 Kgs. 6:15–16]][[2 Kings 6.16|]].) But there were no others with the old man and his young companion. From what source could their help possibly come?
+The odds were staggering. It was an old man and a boy against what looked like the whole world. Elisha’s young companion was fearful and cried, “Alas, my master! how shall we do?” And Elisha’s reply? “Fear not: for they that be with us are more than they that be with them.” ([[2 Kings 6.15|2 Kgs. 6:15–16]][[2 Kings 6.16|]].) But there were no others with the old man and his young companion. From what source could their help possibly come?
 
-Then Elisha turned his eyes heavenward, saying, “Lord, I pray thee, open his eyes, that he may see.” And, we read, “the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha.” ([[2 Kings 6.17|2 Kgs. 6:17]].)
+Then Elisha turned his eyes heavenward, saying, “Lord, I pray thee, open his eyes, that he may see.” And, we read, “the Lord opened the eyes of the young man; and he saw: and, behold, the mountain was full of horses and chariots of fire round about Elisha.” ([[2 Kings 6.17|2 Kgs. 6:17]].)
 
 In the gospel of Jesus Christ, we have help from on high. “Be of good cheer,” the Lord says, “for I will lead you along.” ([[D&C 78.18|D&C 78:18]].) “I will impart unto you of my Spirit, which shall enlighten your mind, which shall fill your soul with joy.” ([[D&C 11.13|D&C 11:13]].)
 
@@ -88,8 +90,3 @@ I testify of the divinity of Jesus Christ. God does live and imparts to us his S
 
 
 
-
-
-
-
-#Prayer #Scripture_Study #Spirituality

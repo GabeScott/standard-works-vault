@@ -1,5 +1,7 @@
 # Full Conversion Brings Happiness
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -12,13 +14,13 @@ Each of us has observed how some individuals go through life consistently doing 
 
 What is it that makes the difference in the lives of these two groups? How can you consistently make the right choices? The scriptures give us insight. Consider enthusiastic, impetuous Peter. For three years he had served as an Apostle beside the Master, observing miracles and hearing transforming teachings and private explanations of parables. With James and John, Peter experienced the glorious Transfiguration of Jesus Christ with the accompanying visitations of Moses and Elijah.[^1] Yet with all of this, the Savior could see that Peter still lacked consistency. The Master knew him very well, as He does each of us. In the Bible we read:
 
-“And the Lord said, Simon, Simon, behold, Satan hath desired to have you … : But I have prayed for thee, that thy faith fail not: and when thou art *converted,* strengthen thy brethren. And he said unto him, Lord, I am ready to go with thee, both into prison, and to death.”[^2] Certainly these were not, from the perspective of Peter, idle words. He sincerely meant what he said but would act otherwise.
+“And the Lord said, Simon, Simon, behold, Satan hath desired to have you … : But I have prayed for thee, that thy faith fail not: and when thou art *converted,* strengthen thy brethren. And he said unto him, Lord, I am ready to go with thee, both into prison, and to death.”[^2] Certainly these were not, from the perspective of Peter, idle words. He sincerely meant what he said but would act otherwise.
 
 Later, at the Mount of Olives, Jesus prophesied to His disciples, “All ye shall be offended because of me this night: for it is written, I will smite the shepherd, and the sheep shall be scattered.” Peter again responded, “Although all shall be offended, yet will not I.” Then the Master soberly prophesied, “Verily I say unto thee, That this day, even in this night, before the cock crow twice, thou shalt deny me thrice,” to which Peter responded more vehemently, “If I should die with thee, I will not deny thee in any wise.”[^3]
 
 For me, one of the most poignant passages of scripture describes what then occurred. It is a sobering reminder to each of us that knowing to do right, even ardently desiring to do right, is not enough. It is often very hard to actually do what we clearly know we should do. We read:
 
-“But a certain maid beheld \[Peter\] … and said, This man was also with him. And he denied … , saying, Woman, I know him not. … Another saw him, and said, Thou art also of them. And Peter said, Man, I am not. … Another confidently affirmed, … Of a truth this fellow also was with him: … And Peter said, Man, I know not what thou sayest. And immediately, while he yet spake, the cock crew. And the Lord turned, and looked upon Peter. And Peter remembered the word of the Lord, … and … went out, and wept bitterly.”[^4]
+“But a certain maid beheld \[Peter\] … and said, This man was also with him. And he denied … , saying, Woman, I know him not. … Another saw him, and said, Thou art also of them. And Peter said, Man, I am not. … Another confidently affirmed, … Of a truth this fellow also was with him: … And Peter said, Man, I know not what thou sayest. And immediately, while he yet spake, the cock crew. And the Lord turned, and looked upon Peter. And Peter remembered the word of the Lord, … and … went out, and wept bitterly.”[^4]
 
 As painful as that confirmation of prophecy must have been for Peter, his life began to change forever. He became that unwavering, rock-solid servant essential to the plan of the Father after the Crucifixion and Resurrection of the Savior. This tender passage also illustrates how very much the Savior loved Peter. Although He was in the midst of an overpowering challenge to His own life, with all of the weight of what was to transpire upon His shoulders, yet He turned and looked at Peter—the love of a teacher transmitted to a beloved student, giving courage and enlightenment in time of need. Thereafter Peter rose to the full stature of his calling. He taught with power and unshakable testimony despite threats, imprisonment, and beatings. He was truly converted.
 
@@ -38,7 +40,7 @@ The parable of the sower taught by Jesus is generally considered to describe how
 
 Could that happen to you, in the wrong environment, with the wrong friendships?
 
-“\[Some\] are sown on stony ground; who, when they have heard the word, immediately receive it with gladness; and have no root in themselves, and so endure but for a time: afterward, when … persecution ariseth … , immediately they are offended.”
+“\[Some\] are sown on stony ground; who, when they have heard the word, immediately receive it with gladness; and have no root in themselves, and so endure but for a time: afterward, when … persecution ariseth … , immediately they are offended.”
 
 Have you ever been in a circumstance when someone proposed something inappropriate and you did nothing to resist it?
 
@@ -61,7 +63,7 @@ I bear testimony that as you pray for guidance, the Holy Ghost will help identif
 
 
 
-[^1]: See [[Matthew 17.1|Matt. 17:1–3]][[Matthew 17.2|]][[Matthew 17.3|]]; see also [[1 Kings 17.1|1 Kgs. 17:1]]; [[D&C 110.13|D&C 110:13]].
+[^1]: See [[Matthew 17.1|Matt. 17:1–3]][[Matthew 17.2|]][[Matthew 17.3|]]; see also [[1 Kings 17.1|1 Kgs. 17:1]]; [[D&C 110.13|D&C 110:13]].
 
 [^2]: [[Luke 22.31|Luke 22:31–33]][[Luke 22.32|]][[Luke 22.33|]]; emphasis added.
 
@@ -81,12 +83,7 @@ I bear testimony that as you pray for guidance, the Holy Ghost will help identif
 
 [^10]: [[Helaman 3.35|Hel. 3:35]].
 
-[^11]: See Regional representatives’ seminar, 6 Apr. 1984, quoted by W. Mack Lawrence, in Conference Report, Apr. 1996, 103; or *Ensign,* May 1996, 75.
+[^11]: See Regional representatives’ seminar, 6 Apr. 1984, quoted by W. Mack Lawrence, in Conference Report, Apr. 1996, [[1996 April - Conversion and Commitment.md|103]]; or *Ensign,* May 1996, 75.
 
-[^12]: [[3 Nephi 9.13|3 Ne. 9:13–14]][[3 Nephi 9.14|]].
+[^12]: [[3 Nephi 9.13|3 Ne. 9:13–14]][[3 Nephi 9.14|]].
 
-
-
-
-
-#Conversion #Faith #Joy #Repentance

@@ -1,5 +1,7 @@
 # Priesthood, Keys, and the Power to Bless
 
+Gordon B. Hinckley
+
 By Elder Merrill J. Bateman - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -61,8 +63,3 @@ I am so grateful that a 14-year-old boy, Joseph Smith, entered a grove of trees 
 
 [^9]: *Church Handbook of Instructions, Book 2: Priesthood and Auxiliary Leaders* (1998), 161.
 
-
-
-
-
-#Atonement #Blessings #Priesthood #Restoration

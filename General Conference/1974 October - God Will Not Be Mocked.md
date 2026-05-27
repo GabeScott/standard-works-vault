@@ -1,6 +1,8 @@
 # God Will Not Be Mocked
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -54,7 +56,7 @@ We warn you against the so-called polygamy cults which would lead you astray. Re
 
 We urge you to teach your children honor and integrity and honesty. Is it possible that some of our children do not know how sinful it is to steal? It is unbelievable—the extent of vandalism, thievery, robbery, stealing. Protect your family against it by proper teaching.
 
-Brothers and sisters, we teach all of our people to be loyal. “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].) Be loyal and true.
+Brothers and sisters, we teach all of our people to be loyal. “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].) Be loyal and true.
 
 Perhaps one of the most distinguishing features of the Church is the fact that its people abstain from liquor, tea, coffee, and tobacco. Of course, there are some who apparently have not the courage nor the testimony to follow this program, but numerous thousands observe it strictly.
 
@@ -132,7 +134,7 @@ Every form of homosexuality is sin. Pornography is one of the approaches to that
 
 Some people are ignorant or vicious and apparently attempting to destroy the concept of masculinity and femininity. More and more girls dress, groom, and act like men. More and more men dress, groom, and act like women. The high purposes of life are damaged and destroyed by the growing unisex theory. God made man in his own image, male and female made he them. With relatively few accidents of nature, we are born male or female. The Lord knew best. Certainly, men and women who would change their sex status will answer to their Maker.
 
-We hope this is another trumpet call. President J. Reuben Clark, Jr., said: “Our very civilization itself is based upon chastity, the sanctity of marriage, and the holiness of the home. Destroy these and Christian man becomes a brute.” (*Conference Report,* Oct. 1938, p. 137.)
+We hope this is another trumpet call. President J. Reuben Clark, Jr., said: “Our very civilization itself is based upon chastity, the sanctity of marriage, and the holiness of the home. Destroy these and Christian man becomes a brute.” (*Conference Report,* Oct. 1938, p. 137.)
 
 Beloved brothers and sisters, you are facing a trial of your faith. Will you listen to your leaders?
 
@@ -175,8 +177,3 @@ Our counsel then to you is to live strictly the laws of your Heavenly Father. In
 
 
 
-
-
-
-
-#Commandments #Obedience #Plan_Of_Salvation

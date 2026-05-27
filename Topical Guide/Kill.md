@@ -1,11 +1,10 @@
 # Kill
 
-
-*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Capital Punishment.md|Capital Punishment]]; [[Martyrdom.md|Martyrdom]]; [[Murder, Murderer.md|Murder]]; [[Persecution, Persecute.md|Persecution]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Slaughter.md|Slaughter]]; [[Slay, Slew, Slain.md|Slay]]; [[Smite, Smote, Smitten.md|Smite]]
+*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Capital Punishment.md|Capital Punishment]]; [[Martyrdom.md|Martyrdom]]; [[Murder.md|Murder]]; [[Persecution.md|Persecution]]; [[Prophets, Rejection of.md|Prophets, Rejection of]]; [[Slaughter.md|Slaughter]]; [[Slay.md|Slay]]; [[Smite.md|Smite]]
 
 mark upon Cain, lest any finding him should *kill* him, [[Genesis 4.15|Genesis 4:15]] ([[Moses 5.40|Moses 5:40]]).
 
-Reuben ... said, Let us not *kill* him, [[Genesis 37.21|Genesis 37:21]].
+Reuben … said, Let us not *kill* him, [[Genesis 37.21|Genesis 37:21]].
 
 intendest thou to *kill* me, as thou *killedst* the Egyptian, [[Exodus 2.14|Exodus 2:14]] ([[Acts 7.28|Acts 7:28]]).
 
@@ -13,7 +12,7 @@ Thou shalt not *kill*, [[Exodus 20.13|Exodus 20:13]] ([[Deuteronomy 5.17|Deutero
 
 he that *killeth* any man shall surely be put to death, [[Leviticus 24.17|Leviticus 24:17]].
 
-*kill* every male ... and *kill* every woman that hath known man, [[Numbers 31.17|Numbers 31:17]].
+*kill* every male … and *kill* every woman that hath known man, [[Numbers 31.17|Numbers 31:17]].
 
 revenger of blood *kill* the slayer, [[Numbers 35.27|Numbers 35:27]].
 
@@ -31,7 +30,7 @@ time to *kill*, and a time to heal, [[Ecclesiastes 3.3|Ecclesiastes 3:3]].
 
 be *killed*, and be raised again the third day, [[Matthew 16.21|Matthew 16:21]] ([[Mark 8.31|Mark 8:31]]).
 
-husbandmen ... beat one, and *killed* another, [[Matthew 21.35|Matthew 21:35]] ([[Mark 12.5|Mark 12:5]]).
+husbandmen … beat one, and *killed* another, [[Matthew 21.35|Matthew 21:35]] ([[Mark 12.5|Mark 12:5]]).
 
 children of them which *killed* the prophets, [[Matthew 23.31|Matthew 23:31]].
 
@@ -41,7 +40,7 @@ deliver you up to be afflicted, and shall *kill* you, [[Matthew 24.9|Matthew 24:
 
 take Jesus by subtilty, and *kill* him, [[Matthew 26.4|Matthew 26:4]] ([[Luke 22.2|Luke 22:2]]).
 
-Is it lawful to do good on the sabbath ... to save life, or to *kill*, [[Mark 3.4|Mark 3:4]].
+Is it lawful to do good on the sabbath … to save life, or to *kill*, [[Mark 3.4|Mark 3:4]].
 
 thy father hath *killed* the fatted calf, [[Luke 15.27|Luke 15:27]].
 
@@ -77,7 +76,7 @@ ye *kill*, and desire to have, [[James 4.2|James 4:2]].
 
 Ye have condemned and *killed* the just, [[James 5.6|James 5:6]].
 
-the beast ... shall overcome them, and *kill* them, [[Revelation 11.7|Revelation 11:7]].
+the beast … shall overcome them, and *kill* them, [[Revelation 11.7|Revelation 11:7]].
 
 he that *killeth* with the sword must be *killed* with the sword, [[Revelation 13.10|Revelation 13:10]].
 
@@ -85,17 +84,17 @@ constrained by the Spirit that I should *kill* Laban, [[1 Nephi 4.10|1 Nephi 4:1
 
 Wo unto the murderer who deliberately *killeth*, [[2 Nephi 9.35|2 Nephi 9:35]].
 
-they that *kill* the prophets ... earth shall swallow them up, [[2 Nephi 26.5|2 Nephi 26:5]] ([[Jacob 4.14|Jacob 4:14]]; [[Helaman 13.33|Helaman 13:33]]; [[3 Nephi 8.25|3 Nephi 8:25]]).
+they that *kill* the prophets … earth shall swallow them up, [[2 Nephi 26.5|2 Nephi 26:5]] ([[Jacob 4.14|Jacob 4:14]]; [[Helaman 13.33|Helaman 13:33]]; [[3 Nephi 8.25|3 Nephi 8:25]]).
 
 he that *kills* shall not have forgiveness, [[D&C 42.18|D&C 42:18]].
 
 he that *killeth* shall die, [[D&C 42.19|D&C 42:19]].
 
-if any ... shall *kill* ... dealt with according to the laws of the land, [[D&C 42.79|D&C 42:79]].
+if any … shall *kill* … dealt with according to the laws of the land, [[D&C 42.79|D&C 42:79]].
 
 they will *kill* one another, [[D&C 45.33|D&C 45:33]].
 
-Thou shalt not steal ... nor *kill*, [[D&C 59.6|D&C 59:6]].
+Thou shalt not steal … nor *kill*, [[D&C 59.6|D&C 59:6]].
 
 they *killed* the prophets, [[D&C 136.36|D&C 136:36]].
 

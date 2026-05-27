@@ -1,5 +1,7 @@
 # The Three Rs of Choice
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2010 General Conference*
@@ -14,7 +16,7 @@ I have been thinking recently about choices and their consequences. Scarcely an 
 
 As I’ve contemplated the various aspects of choice, I’ve put them into three categories: first, the *right* of choice; second, the *responsibility* of choice; and third, the *results* of choice. I call these the three Rs of choice.
 
-I mention first the *right* of choice. I am so grateful to a loving Heavenly Father for His gift of agency, or the right to choose. President David O. McKay, ninth President of the Church, said, “Next to the bestowal of life itself, the right to direct that life is God’s greatest gift to man.”[^1]
+I mention first the *right* of choice. I am so grateful to a loving Heavenly Father for His gift of agency, or the right to choose. President David O. McKay, ninth President of the Church, said, “Next to the bestowal of life itself, the right to direct that life is God’s greatest gift to man.”[^1]
 
 We know that we had our agency before this world was and that Lucifer attempted to take it from us. He had no confidence in the principle of agency or in us and argued for imposed salvation. He insisted that with his plan none would be lost, but he seemed not to recognize—or perhaps not to care—that in addition, none would be any wiser, any stronger, any more compassionate, or any more grateful if his plan were followed.
 
@@ -34,7 +36,7 @@ We are surrounded—even at times bombarded—by the messages of the adversary. 
 
 Although in our journey we will encounter forks and turnings in the road, we simply cannot afford the luxury of a detour from which we may never return. Lucifer, that clever pied piper, plays his lilting melody and attracts the unsuspecting away from the safety of their chosen pathway, away from the counsel of loving parents, away from the security of God’s teachings. He seeks not just the so-called refuse of humanity; he seeks all of us, including the very elect of God. King David listened, wavered, and then followed and fell. So did Cain in an earlier era and Judas Iscariot in a later one. Lucifer’s methods are cunning; his victims, numerous.
 
-We read of him in 2 Nephi: “Others will he pacify, and lull them away into carnal security.”[^4] “Others he flattereth away, and telleth them there is no hell … until he grasps them with his awful chains.”[^5] “And thus the devil cheateth their souls, and leadeth them away carefully down to hell.”[^6]
+We read of him in 2 Nephi: “Others will he pacify, and lull them away into carnal security.”[^4] “Others he flattereth away, and telleth them there is no hell … until he grasps them with his awful chains.”[^5] “And thus the devil cheateth their souls, and leadeth them away carefully down to hell.”[^6]
 
 When faced with significant choices, how do we decide? Do we succumb to the promise of momentary pleasure? To our urges and passions? To the pressure of our peers?
 
@@ -66,7 +68,7 @@ The scriptures are clear:
 
 “Ye shall walk in all the ways which the Lord your God hath commanded you.”[^12]
 
-In closing may I share with you an example of one who determined early in life what his goals would be. I speak of Brother Clayton M. Christensen, a member of the Church who is a professor of business administration in the business school at Harvard University.
+In closing may I share with you an example of one who determined early in life what his goals would be. I speak of Brother Clayton M. Christensen, a member of the Church who is a professor of business administration in the business school at Harvard University.
 
 When he was 16 years old, Brother Christensen decided, among other things, that he would not play sports on Sunday. Years later, when he attended Oxford University in England, he played center on the basketball team. That year they had an undefeated season and went through to the British equivalent of what in the United States would be the NCAA basketball tournament.
 
@@ -83,23 +85,23 @@ My beloved brethren, may we be filled with gratitude for the *right* of choice, 
 
 
 
-[^1]: *Teachings of Presidents of the Church: David O. McKay* (2003), 208.
+[^1]: *Teachings of Presidents of the Church: David O. McKay* (2003), 208.
 
-[^2]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^2]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^3]: [[Moroni 7.16|Moroni 7:16]].
 
-[^4]: [[2 Nephi 28.21|2 Nephi 28:21]].
+[^4]: [[2 Nephi 28.21|2 Nephi 28:21]].
 
-[^5]: [[2 Nephi 28.22|2 Nephi 28:22]].
+[^5]: [[2 Nephi 28.22|2 Nephi 28:22]].
 
-[^6]: [[2 Nephi 28.21|2 Nephi 28:21]].
+[^6]: [[2 Nephi 28.21|2 Nephi 28:21]].
 
 [^7]: Adapted from Lewis Carroll, *Alice’s Adventures in Wonderland* (1898), 89.
 
 [^8]: *Teachings of Presidents of the Church: Brigham Young* (1997), 294.
 
-[^9]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^9]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 [^10]: [[Isaiah 1.18|Isaiah 1:18]].
 
@@ -107,9 +109,7 @@ My beloved brethren, may we be filled with gratitude for the *right* of choice, 
 
 [^12]: [[Deuteronomy 5.32|Deuteronomy 5:32–33]][[Deuteronomy 5.33|]].
 
-[^13]: See Clayton M. Christensen, “Decisions for Which I’ve Been Grateful” (Brigham Young University–Idaho devotional, June 8, 2004), www.byui.edu/presentations.
+[^13]: See Clayton M. Christensen, “Decisions for Which I’ve Been Grateful” (Brigham Young University–Idaho devotional, June 8, 2004), www.byui.edu/presentations.
 
+[^14]: [[Isaiah 52.11|Isaiah 52:11]].
 
-
-
-#Accountability #Agency

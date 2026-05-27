@@ -1,6 +1,8 @@
 # Following Up
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -40,7 +42,7 @@ Inviting is certainly part of the process. But notice that there is much more to
 
 This follow-up principle is illustrated in the book of Acts:
 
-“Now Peter and John went up together into the temple. …
+“Now Peter and John went up together into the temple. …
 
 “And a certain man lame from his mother’s womb was carried, whom they laid daily at the gate of the temple which is called Beautiful, to ask alms of them that entered into the temple;
 
@@ -60,7 +62,7 @@ In other words, Peter didn’t simply invoke his priesthood authority and invite
 
 In the spirit of Peter’s example, may I suggest that we can all be more consistently involved in missionary work by replacing our fear with real faith, inviting someone at least once a quarter—or four times every year—to be taught by the full-time missionaries. They are prepared to teach by the Spirit, with sincere and heartfelt inspiration from the Lord. Together we can follow up on our invitations, take others by the hand, lift them up, and walk with them on their spiritual journey.
 
-To help you in this process, I invite all members, regardless of your current calling or level of activity in the Church, to obtain a copy of *Preach My Gospel.* It is available through our distribution centers and also online. The online version can be read or downloaded at no cost. It is a guidebook for missionary work—which means it is a guidebook for all of us. Read it, study it, and then apply what you learn to help you understand how to bring souls to Christ through invitation and follow-up. As President Thomas S. Monson has said, “Now is the time for members and missionaries to come together, to work together, to labor in the Lord’s vineyard to bring souls unto Him.”[^5]
+To help you in this process, I invite all members, regardless of your current calling or level of activity in the Church, to obtain a copy of *Preach My Gospel.* It is available through our distribution centers and also online. The online version can be read or downloaded at no cost. It is a guidebook for missionary work—which means it is a guidebook for all of us. Read it, study it, and then apply what you learn to help you understand how to bring souls to Christ through invitation and follow-up. As President Thomas S. Monson has said, “Now is the time for members and missionaries to come together, to work together, to labor in the Lord’s vineyard to bring souls unto Him.”[^5]
 
 Jesus Christ taught His disciples:
 
@@ -101,7 +103,7 @@ It is my testimony that as we work together, seeking the one, inviting, and foll
 
 [^4]: [[Acts 3.1|Acts 3:1–8]][[Acts 3.2|]][[Acts 3.3|]][[Acts 3.4|]][[Acts 3.5|]][[Acts 3.6|]][[Acts 3.7|]][[Acts 3.8|]]; emphasis added.
 
-[^5]: Thomas S. Monson, “Welcome to Conference,” *Ensign* or *Liahona,* Nov. 2013, 4.
+[^5]: Thomas S. Monson, “Welcome to Conference,” *Ensign* or *Liahona,* Nov. 2013, 4.
 
 [^6]: [[Matthew 9.37|Matthew 9:37–38]][[Matthew 9.38|]].
 
@@ -113,10 +115,5 @@ It is my testimony that as we work together, seeking the one, inviting, and foll
 
 [^10]: [[D&C 84.61|Doctrine and Covenants 84:61]].
 
-[^11]: Personal letter, Mar. 10, 2014.
+[^11]: Personal letter, Mar. 10, 2014.
 
-
-
-
-
-#Missionary_Work #Name_Of_Church

@@ -1,6 +1,5 @@
 # Cloud
 
-
 I do set my bow in the *cloud*, [[Genesis 9.13|Genesis 9:13]].
 
 went before them by day in a pillar of a *cloud*, [[Exodus 13.21|Exodus 13:21]] ([[Numbers 14.14|Numbers 14:14]]).
@@ -17,7 +16,7 @@ Lord came down in a *cloud*, [[Numbers 11.25|Numbers 11:25]].
 
 *cloud* filled the house of the Lord, [[1 Kings 8.10|1 Kings 8:10]].
 
-ariseth a little *cloud* out of the sea, like a man's hand, [[1 Kings 18.44|1 Kings 18:44]].
+ariseth a little *cloud* out of the sea, like a man’s hand, [[1 Kings 18.44|1 Kings 18:44]].
 
 In the daytime also he led them with a *cloud*, [[Psalms 78.14|Psalms 78:14]].
 
@@ -25,11 +24,11 @@ He spread a *cloud* for a covering, [[Psalms 105.39|Psalms 105:39]].
 
 false gift is like *clouds*, [[Proverbs 25.14|Proverbs 25:14]].
 
-Lord will create ... upon her assemblies, a *cloud* and smoke by day, [[Isaiah 4.5|Isaiah 4:5]] ([[2 Nephi 14.5|2 Nephi 14:5]]).
+Lord will create … upon her assemblies, a *cloud* and smoke by day, [[Isaiah 4.5|Isaiah 4:5]] ([[2 Nephi 14.5|2 Nephi 14:5]]).
 
 Lord rideth upon a swift *cloud*, [[Isaiah 19.1|Isaiah 19:1]].
 
-have blotted out ... as a *cloud*, thy sins, [[Isaiah 44.22|Isaiah 44:22]].
+have blotted out … as a *cloud*, thy sins, [[Isaiah 44.22|Isaiah 44:22]].
 
 Son of man came with the *clouds* of heaven, [[Daniel 7.13|Daniel 7:13]].
 
@@ -53,9 +52,9 @@ they ascended up to heaven in a *cloud*, [[Revelation 11.12|Revelation 11:12]].
 
 upon the *cloud* one sat like unto the Son of man, [[Revelation 14.14|Revelation 14:14]].
 
-descended ... in a *cloud*, [[Mosiah 27.11|Mosiah 27:11]].
+descended … in a *cloud*, [[Mosiah 27.11|Mosiah 27:11]].
 
-Lord came down ... in a *cloud*, [[Ether 2.4|Ether 2:4]] ([[Ether 2.5|Ether 2:5]]).
+Lord came down … in a *cloud*, [[Ether 2.4|Ether 2:4]] ([[Ether 2.5|Ether 2:5]]).
 
 I shall come in a *cloud*, [[D&C 34.7|D&C 34:7]].
 

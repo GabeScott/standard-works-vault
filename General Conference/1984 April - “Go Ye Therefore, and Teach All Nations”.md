@@ -1,5 +1,7 @@
 # “Go Ye Therefore, and Teach All Nations”
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1984 General Conference*
@@ -94,7 +96,7 @@ I hear you stand and bear your testimonies, acknowledging your love for your com
 
 President Heber J. Grant has said:
 
-“I feel sorry for the man or the woman who has never experienced the sweet joy which comes to the missionary who proclaims the gospel of Jesus Christ, who bring honest souls to a knowledge of the truth, and who hears the expressions of gratitude and thanksgiving that come from the hearts of those who have been brought by his labor to a comprehension of life eternal. So also do I feel sorry for those who have never experienced the sweet joy resulting from reaching out their hands and helping those who were needy. Assuredly there is more blessing comes to us from giving than in accumulating; there is no question of this in my mind. There is also more blessing comes to us in going forth to proclaim the gospel of Jesus Christ, and laboring for the salvation of the souls of men, than can possibly come to us by merely having a knowledge of the truth of our religion, and then remaining at home to mingle and labor in the ordinary affairs of life, and accumulate the wealth of this world that perishes with the using. One great trouble is that we ofttimes lose sight of what is the most valuable labor for us to perform, the labor that will be most pleasing in the sight of our Heavenly Father.” (*Gospel Standards,* comp. G. Homer Durham, Salt Lake City: Improvement Era, 1969, p. 104.)
+“I feel sorry for the man or the woman who has never experienced the sweet joy which comes to the missionary who proclaims the gospel of Jesus Christ, who bring honest souls to a knowledge of the truth, and who hears the expressions of gratitude and thanksgiving that come from the hearts of those who have been brought by his labor to a comprehension of life eternal. So also do I feel sorry for those who have never experienced the sweet joy resulting from reaching out their hands and helping those who were needy. Assuredly there is more blessing comes to us from giving than in accumulating; there is no question of this in my mind. There is also more blessing comes to us in going forth to proclaim the gospel of Jesus Christ, and laboring for the salvation of the souls of men, than can possibly come to us by merely having a knowledge of the truth of our religion, and then remaining at home to mingle and labor in the ordinary affairs of life, and accumulate the wealth of this world that perishes with the using. One great trouble is that we ofttimes lose sight of what is the most valuable labor for us to perform, the labor that will be most pleasing in the sight of our Heavenly Father.” (*Gospel Standards,* comp. G. Homer Durham, Salt Lake City: Improvement Era, 1969, p. 104.)
 
 Bishops, will you please give more encouragement to the healthy, retired, or soon-to-be retired couples who are considering missions? Many are awaiting your call, reluctant to come forward and ask. How we need their maturity, their wisdom, and their experience in our rapidly growing Church!
 
@@ -107,8 +109,3 @@ I leave you my witness of the truthfulness of this great work, in the name of Je
 
 
 
-
-
-
-
-#Missionary_Work

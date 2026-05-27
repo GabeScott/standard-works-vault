@@ -1,6 +1,5 @@
 # Quiet
 
-
 *See also* [[Peace.md|Peace]]; [[Quietness.md|Quietness]]; [[Still.md|Still]]
 
 Take heed, and be *quiet*, [[Isaiah 7.4|Isaiah 7:4]] ([[2 Nephi 17.4|2 Nephi 17:4]]).

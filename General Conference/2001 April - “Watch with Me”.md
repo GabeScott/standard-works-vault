@@ -1,5 +1,7 @@
 # “Watch with Me”
 
+Gordon B. Hinckley
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -95,8 +97,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Example #Faith #Holy_Ghost #Jesus_Christ #Leadership #Love #Prayer #Priesthood #Service #Sin #Spirituality

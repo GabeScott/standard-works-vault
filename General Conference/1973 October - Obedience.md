@@ -1,6 +1,8 @@
 # Obedience
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Harold B. Lee
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -18,7 +20,7 @@ I would like to have these young men try to listen to what I have to say because
 
 “They become the sons of Moses and of Aaron and the seed of Abraham, and the church and kingdom, and the elect of God.
 
-“… therefore all that my Father hath shall be given unto him.” ([[D&C 84.33|D&C 84:33–34, 38]][[D&C 84.34|]][[D&C 84.38|]].)
+“… therefore all that my Father hath shall be given unto him.” ([[D&C 84.33|D&C 84:33–34, 38]][[D&C 84.34|]][[D&C 84.38|]].)
 
 Now note the commandment the Lord gives unto all priesthood holders:
 
@@ -30,7 +32,7 @@ Never before has your strength and influence been needed more than now to combat
 
 “For behold, at that day shall he rage in the hearts of the children of men, and stir them up to anger against that which is good.
 
-“And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]].)
+“And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.” ([[2 Nephi 28.20|2 Ne. 28:20–21]][[2 Nephi 28.21|]].)
 
 Brethren, we seem to think that is a long way away, and when we die we won’t be well met unless we are prepared to do what the Lord has asked us to do.
 
@@ -139,8 +141,3 @@ May we do this, as members of the Church of Jesus Christ, which we are, and foll
 
 
 
-
-
-
-
-#Commitment #Obedience #Priesthood

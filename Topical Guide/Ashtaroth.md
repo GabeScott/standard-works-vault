@@ -1,4 +1,3 @@
 # Ashtaroth
 
-
-*See* [BD Ashtaroth](https://www.churchofjesuschrist.org/study/scriptures/bd/ashtaroth?lang=eng)
+*See also* [[BD Ashtaroth.md|BD Ashtaroth]]

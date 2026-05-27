@@ -1,6 +1,8 @@
 # Organize Yourselves
 
-By Marian R. Boyer - *First Counselor in the Relief Society General Presidency*
+Spencer W. Kimball
+
+By Marian R. Boyer - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -10,7 +12,7 @@ My dear sisters, it’s a privilege to meet with you here in the Tabernacle and 
 
 To all of us the word *homemaking* has great significance. To us as women a special mission has been given to be the homebuilders of the Church, the community, and the world.
 
-Speaking at a Relief Society conference, President J. Reuben Clark said, “May God … give you the vision of the true homemaker, that you will be able to save by this course, not alone Zion, but the world. And that is your destiny … to save the world.” (*Relief Society Magazine,* Dec. 1949, p. 798.)
+Speaking at a Relief Society conference, President J. Reuben Clark said, “May God … give you the vision of the true homemaker, that you will be able to save by this course, not alone Zion, but the world. And that is your destiny … to save the world.” (*Relief Society Magazine,* Dec. 1949, p. 798.)
 
 The work of women, then, takes on a deep and significant meaning. The daily business of homemaking becomes very important—in fact, the most important business in the world. A home is more than a house or a room to live in. For one person making a home for herself, or for the mother of a large family, the home should be a place of learning, a place where prayer can point the way to eternal life. *That* is how the world will be saved—by strengthening every child of God in every home.
 
@@ -28,13 +30,13 @@ Another needful thing is the food we eat. President Kimball has repeatedly admon
 
 Recently I went to a Relief Society meeting in a Brigham Young University ward. The girls were being taught breadmaking in a miniclass. The fragrance from the kitchen attracted the young men in the building, and as they gathered around the door looking hungry, hot bread, butter, and honey were soon being enjoyed by all as they socialized together.
 
-In our meeting a year ago, President Spencer W. Kimball admonished us to be different from the women of the world “in happy ways” (see *Ensign,* Nov. 1979, p. 104).
+In our meeting a year ago, President Spencer W. Kimball admonished us to be different from the women of the world “in happy ways” (see *Ensign,* Nov. 1979, p. 104).
 
-Nephi writes of his people in the wilderness sowing, reaping, and working to set their homes in order. Then he continues, “And it came to pass that we lived after the manner of happiness” ([[2 Nephi 5.27|2 Ne. 5:27]]).
+Nephi writes of his people in the wilderness sowing, reaping, and working to set their homes in order. Then he continues, “And it came to pass that we lived after the manner of happiness” ([[2 Nephi 5.27|2 Ne. 5:27]]).
 
 As Latter-day Saint homebuilders, our greatest challenge is to bring up our children in light and truth—to develop the spiritual nature of each family member. Our greatest role is as a teacher.
 
-“Home,” said President Harold B. Lee, quoting from a newspaper editorial, “is the seminary of all other institutions” (*Relief Society Magazine,* Jan. 1965, p. 9). The multifaceted nature of the home finds expression in a new focus given to the stake board structure. Included now in the concept of homemaking is music and the enrichment it brings to the home; the nursery, complete with materials that have been prepared according to the finest of child development principles; and recreation with its binding, health-giving contribution. Relief Society homemaking includes all of these elements, combining them into a day of training, preparing women to make a home that embodies skills, refinement, knowledge, and delight along with the love and warmth that have always meant home.
+“Home,” said President Harold B. Lee, quoting from a newspaper editorial, “is the seminary of all other institutions” (*Relief Society Magazine,* Jan. 1965, p. 9). The multifaceted nature of the home finds expression in a new focus given to the stake board structure. Included now in the concept of homemaking is music and the enrichment it brings to the home; the nursery, complete with materials that have been prepared according to the finest of child development principles; and recreation with its binding, health-giving contribution. Relief Society homemaking includes all of these elements, combining them into a day of training, preparing women to make a home that embodies skills, refinement, knowledge, and delight along with the love and warmth that have always meant home.
 
 In order to help every Latter-day Saint woman realize her full potential as a homemaker, we urge homemaking counselors to plan meetings that will meet the needs of each sister. We know that no two sisters have situations that are alike, and yet we hope that each will find purpose and fulfillment in creating a place that is home. One well-planned, two-hour, monthly meeting can provide the training and motivation that will enable each woman to succeed in her most essential work, which gives heart to all other work of the world.
 
@@ -45,8 +47,3 @@ May we make our homes havens of peace and happiness where all enjoy being togeth
 
 
 
-
-
-
-
-#Home #Relief_Society

@@ -1,4 +1,3 @@
 # Weaving
 
-
-*See* [BD Weaving](https://www.churchofjesuschrist.org/study/scriptures/bd/weaving?lang=eng)
+*See also* [[BD Weaving.md|BD Weaving]]

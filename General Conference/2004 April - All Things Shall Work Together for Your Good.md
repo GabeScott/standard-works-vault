@@ -1,5 +1,7 @@
 # All Things Shall Work Together for Your Good
 
+Gordon B. Hinckley
+
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2004 General Conference*
@@ -67,8 +69,3 @@ I testify that Heavenly Father is a tender, loving parent who desires to bless u
 
 
 
-
-
-
-
-#Courage #Endurance #Faith #Love #Service #Trust

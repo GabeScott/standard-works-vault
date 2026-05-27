@@ -1,9 +1,8 @@
 # Trust Not in the Arm of Flesh
 
-
 With him is an arm of flesh; but with us is the *Lord*, [[2 Chronicles 32.8|2 Chronicles 32:8]].
 
-Some *trust* in chariots ... but we will remember the name of the Lord, [[Psalms 20.7|Psalms 20:7]].
+Some *trust* in chariots … but we will remember the name of the Lord, [[Psalms 20.7|Psalms 20:7]].
 
 I will not *trust* in my bow, [[Psalms 44.6|Psalms 44:6]].
 
@@ -35,12 +34,10 @@ I will not put my *trust in the arm of flesh*, [[2 Nephi 4.34|2 Nephi 4:34]].
 
 Cursed is he that putteth his *trust* in man, [[2 Nephi 28.31|2 Nephi 28:31]].
 
-*trust* no one to be your teacher ... except ... a man of God, [[Mosiah 23.14|Mosiah 23:14]].
+*trust* no one to be your teacher … except … a man of God, [[Mosiah 23.14|Mosiah 23:14]].
 
 neither *trust in the arm of flesh*, [[D&C 1.19|D&C 1:19]].
 
 you should not have feared *man* more than God, [[D&C 3.7|D&C 3:7]].
 
 yield to the persuasions of *men* no more, [[D&C 5.21|D&C 5:21]].
-
-*See also* [[Isaiah 28.15|Isaiah 28:15]]; [[Isaiah 31.1|Isaiah 31:1]]; [[Isaiah 36.6|Isaiah 36:6]]; [[Jeremiah 7.8|Jeremiah 7:8]]; [[Luke 6.26|Luke 6:26]], [[Luke 6.39|Luke 6:39]]; [[2 Nephi 19.16|2 Nephi 19:16]]; [[Mosiah 23.14|Mosiah 23:14]]; [[D&C 76.61|D&C 76:61]].

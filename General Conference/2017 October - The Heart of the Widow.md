@@ -1,6 +1,8 @@
 # The Heart of the Widow
 
-By Elder O. Vincent Haleck - *Of the Seventy*
+Sharon Eubank
+
+By Elder O. Vincent Haleck - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -12,7 +14,7 @@ I have had the great blessing of serving among the Saints of the Pacific for mos
 
 It has occurred to me that these Saints have much in common with the widow whom the Savior observed while He “sat … and beheld how the people cast money into the treasury: and many that were rich cast in much.
 
-“And there came a certain poor widow, and she threw in two mites. …
+“And there came a certain poor widow, and she threw in two mites. …
 
 “And he called unto him his disciples, and saith unto them, Verily I say unto you, That this poor widow hath cast more in, than all they which have cast into the treasury:
 
@@ -34,7 +36,7 @@ Let me speak of another experience where the heart of the widow was in full view
 
 After so many years, to have this miraculous turn of events, I was curious to learn about what had happened to cause the paramount chief to take this action. I asked about this, and the chief with whom I was conversing replied, “A man can live in the dark for a period, but there will come a time when he will long to come into the light.”
 
-The paramount chief, in opening the village, demonstrated the heart of the widow—a heart that softens when the warmth and light of the truth is revealed. This leader was willing to relinquish years of tradition, confront much opposition, and stand firm so that others might be blessed. This was a leader whose heart was focused on the welfare and happiness of his people rather than on considerations of tradition, culture, and personal power. He gave away those concerns in favor of what President Thomas S. Monson has taught us: “As we follow the example of the Savior, ours will be the opportunity to be a light in the lives of others.”[^3]
+The paramount chief, in opening the village, demonstrated the heart of the widow—a heart that softens when the warmth and light of the truth is revealed. This leader was willing to relinquish years of tradition, confront much opposition, and stand firm so that others might be blessed. This was a leader whose heart was focused on the welfare and happiness of his people rather than on considerations of tradition, culture, and personal power. He gave away those concerns in favor of what President Thomas S. Monson has taught us: “As we follow the example of the Savior, ours will be the opportunity to be a light in the lives of others.”[^3]
 
 Finally, let me share with you one more experience among the Saints of the Pacific that remains deeply and spiritually rooted in my soul. Some years ago I was a young counselor to a bishop in a new ward in American Samoa. We had 99 members, consisting of subsistence farmers, cannery workers, government employees, and their families. When the First Presidency announced in 1977 that a temple was going to be constructed in Samoa, there was joy and thanksgiving expressed by all of us. Going to the temple from American Samoa at that time required traveling either to Hawaii or New Zealand. This was a costly journey that was beyond the reach of many faithful Church members.
 
@@ -46,7 +48,7 @@ The heart of the widow who gave her two mites is a heart that will give all by m
 
 Let us join as worldwide Saints in doing that which is necessary to have the widow’s heart, truly rejoicing in the blessings that will fill the “want” that results. My prayer for each of us is a plea to have the heart to bear our burdens, make necessary sacrifices, and have the will to do and to give. I promise that the Lord will not leave you wanting. The heart of the widow is filled with thanksgiving that the Savior was “a man of sorrows, and acquainted with grief”[^4] so that we would not need to taste the “bitter cup.”[^5] In spite of our weaknesses and failings, and because of them, He continues to offer His hands, which were pierced for our sakes. He will lift us up if we are willing to come into the light of His gospel, embrace Him, and allow Him to fill our “want.”
 
-I bear my testimony of the great love that we can share as disciples and followers of the Lord Jesus Christ. I love and sustain President Thomas S. Monson as the prophet of God on the earth. The Book of Mormon is another witness of Jesus Christ to the world, and I invite all to read it and discover its message for you. All who accept the Lord’s invitation to come unto Him will find peace, love, and light. Jesus Christ is our great Exemplar and Redeemer. It is only through Jesus Christ, and the miracle of His infinite Atonement, that we can receive eternal life. Of this I bear witness in His holy name, even Jesus Christ, amen.
+I bear my testimony of the great love that we can share as disciples and followers of the Lord Jesus Christ. I love and sustain President Thomas S. Monson as the prophet of God on the earth. The Book of Mormon is another witness of Jesus Christ to the world, and I invite all to read it and discover its message for you. All who accept the Lord’s invitation to come unto Him will find peace, love, and light. Jesus Christ is our great Exemplar and Redeemer. It is only through Jesus Christ, and the miracle of His infinite Atonement, that we can receive eternal life. Of this I bear witness in His holy name, even Jesus Christ, amen.
 
 
 
@@ -55,14 +57,9 @@ I bear my testimony of the great love that we can share as disciples and followe
 
 [^2]: [[Mosiah 24.15|Mosiah 24:15]].
 
-[^3]: Thomas S. Monson, “[[2015 October - Be an Example and a Light.md|Be an Example and a Light]],” *Ensign* or *Liahona,* Nov. 2015, 88.
+[^3]: Thomas S. Monson, “[[2015 October - Be an Example and a Light.md|Be an Example and a Light]],” *Ensign* or *Liahona,* Nov. 2015, 88.
 
 [^4]: [[Isaiah 53.3|Isaiah 53:3]].
 
-[^5]: [[3 Nephi 11.11|3 Nephi 11:11]].
+[^5]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
-
-
-
-
-#Consecration #Conversion #Gratitude #Jesus_Christ #Sacrifice #Temples

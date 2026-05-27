@@ -1,5 +1,7 @@
 # “In … Counsellors There Is Safety”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -81,8 +83,3 @@ I serve as a counselor, just as so many of you present tonight do, you in your r
 
 
 
-
-
-
-
-#Church_Leaders #Priesthood

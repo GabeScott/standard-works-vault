@@ -1,6 +1,8 @@
 # Choices
 
-By President Thomas S. Monson - *President of the Church*
+Cheryl A. Esplin
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -39,8 +41,3 @@ That this may ever be so is my heartfelt and humble prayer in the name of Jesus 
 
 [^1]: Adapted from Lewis Carroll, *Alice’s Adventures in Wonderland* (1898), 89.
 
-
-
-
-
-#Agency #Faith #Repentance #Temples

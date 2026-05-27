@@ -1,7 +1,6 @@
 # Spirit
 
-
-*See also* [[Breath of Life.md|Breath of Life]]; [[Conscience.md|Conscience]]; [[Contrite Heart.md|Contrite Heart]]; [[God, Spirit of.md|God, Spirit of]]; [[Holy Ghost.md|Holy Ghost]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Holy Ghost, Loss of.md|Holy Ghost, Loss of]]; [[Jesus Christ, Spirit of.md|Jesus Christ, Spirit of]]; [[Lord, Spirit of.md|Lord, Spirit of]]; [[Soul.md|Soul]]; [[Spirit Body.md|Spirit Body]]; [[Spirit Creation.md|Spirit Creation]]; [[Spirits, Disembodied.md|Spirits, Disembodied]]; [[Spirits, Evil or Unclean.md|Spirits, Evil or Unclean]]; [[Spirits in Prison.md|Spirits in Prison]]; [[Teaching with the Spirit.md|Teaching with the Spirit]]; [BD Spirit](https://www.churchofjesuschrist.org/study/scriptures/bd/spirit?lang=eng)
+*See also* [[Breath of Life.md|Breath of Life]]; [[Conscience.md|Conscience]]; [[Contrite Heart.md|Contrite Heart]]; [[God, Spirit of.md|God, Spirit of]]; [[Holy Ghost.md|Holy Ghost]]; [[Holy Ghost, Baptism of.md|Holy Ghost, Baptism of]]; [[Holy Ghost, Gifts of.md|Holy Ghost, Gifts of]]; [[Holy Ghost, Loss of.md|Holy Ghost, Loss of]]; [[Jesus Christ, Spirit of.md|Jesus Christ, Spirit of]]; [[Lord, Spirit of.md|Lord, Spirit of]]; [[Soul.md|Soul]]; [[Spirit Body.md|Spirit Body]]; [[Spirit Creation.md|Spirit Creation]]; [[Spirits, Disembodied.md|Spirits, Disembodied]]; [[Spirits, Evil or Unclean.md|Spirits, Evil or Unclean]]; [[Spirits in Prison.md|Spirits in Prison]]; [[Teaching with the Spirit.md|Teaching with the Spirit]]; [[BD Spirit.md|BD Spirit]]
 
 *Spirit* of God moved upon the face of the waters, [[Genesis 1.2|Genesis 1:2]] ([[Moses 2.2|Moses 2:2]]; [[Abraham 4.2|Abraham 4:2]]).
 
@@ -9,7 +8,7 @@ My *spirit* shall not always strive with man, [[Genesis 6.3|Genesis 6:3]] ([[Eth
 
 I will take of the *spirit* which is upon thee, [[Numbers 11.17|Numbers 11:17]].
 
-Joshua ... in whom is the *spirit*, [[Numbers 27.18|Numbers 27:18]].
+Joshua … in whom is the *spirit*, [[Numbers 27.18|Numbers 27:18]].
 
 evil *spirit* from the Lord troubled him, [[1 Samuel 16.14|1 Samuel 16:14]] ([[1 Samuel 19.9|1 Samuel 19:9]]).
 
@@ -27,13 +26,13 @@ Into thine hand I commit my *spirit*, [[Psalms 31.5|Psalms 31:5]] ([[Luke 23.46|
 
 in whose *spirit* there is no guile, [[Psalms 32.2|Psalms 32:2]].
 
-Lord ... saveth such as be of a contrite *spirit*, [[Psalms 34.18|Psalms 34:18]].
+Lord … saveth such as be of a contrite *spirit*, [[Psalms 34.18|Psalms 34:18]].
 
 renew a right *spirit* within me, [[Psalms 51.10|Psalms 51:10]].
 
 sacrifices of God are a broken *spirit*, [[Psalms 51.17|Psalms 51:17]].
 
-generation ... whose *spirit* was not steadfast with God, [[Psalms 78.8|Psalms 78:8]].
+generation … whose *spirit* was not steadfast with God, [[Psalms 78.8|Psalms 78:8]].
 
 Who maketh his angels *spirits*, [[Psalms 104.4|Psalms 104:4]] ([[Hebrews 1.7|Hebrews 1:7]]).
 
@@ -63,7 +62,7 @@ thou knowest not what is the way of the *spirit*, [[Ecclesiastes 11.5|Ecclesiast
 
 *spirit* of the Lord shall rest upon him, [[Isaiah 11.2|Isaiah 11:2]].
 
-Who hath directed the *Spirit* of the Lord, or ... taught, [[Isaiah 40.13|Isaiah 40:13]] ([[Isaiah 40.7|Isaiah 40:7]]).
+Who hath directed the *Spirit* of the Lord, or … taught, [[Isaiah 40.13|Isaiah 40:13]] ([[Isaiah 40.7|Isaiah 40:7]]).
 
 I have put my *spirit* upon him, [[Isaiah 42.1|Isaiah 42:1]] ([[Matthew 12.18|Matthew 12:18]]).
 
@@ -77,13 +76,13 @@ whither the *spirit* was to go, they went, [[Ezekiel 1.12|Ezekiel 1:12]].
 
 *spirit* took me up, and I heard, [[Ezekiel 3.12|Ezekiel 3:12]].
 
-*spirit* lifted me up between the earth, [[Ezekiel 8.3|Ezekiel 8:3]] ([[Ezekiel 11.1|Ezekiel 11:1]], [[Ezekiel 11.24|Ezekiel 11:24]]; [[Ezekiel 43.5|Ezekiel 43:5]]).
+*spirit* lifted me up between the earth, [[Ezekiel 8.3|Ezekiel 8:3]] ([[Ezekiel 11.1|Ezekiel 11:1]]; [[Ezekiel 11.24|Ezekiel 11:24]]; [[Ezekiel 43.5|Ezekiel 43:5]]).
 
-I will put a new *spirit* within you, [[Ezekiel 11.19|Ezekiel 11:19]] ([[Ezekiel 36.26|36:26-27]][[Ezekiel 36.27|]]; [[Ezekiel 37.14|Ezekiel 37:14]]).
+I will put a new *spirit* within you, [[Ezekiel 11.19|Ezekiel 11:19]] ([[Ezekiel 37.14|Ezekiel 37:14]]).
 
 in whom is the *spirit* of the holy gods, [[Daniel 4.8|Daniel 4:8]] ([[Daniel 5.11|Daniel 5:11]]).
 
-Daniel was preferred ... because an excellent *spirit* was in him, [[Daniel 6.3|Daniel 6:3]].
+Daniel was preferred … because an excellent *spirit* was in him, [[Daniel 6.3|Daniel 6:3]].
 
 *spirit* of whoredoms hath caused them to err, [[Hosea 4.12|Hosea 4:12]].
 
@@ -91,7 +90,7 @@ I will pour out my *spirit* upon all flesh, [[Joel 2.28|Joel 2:28]] ([[Acts 2.17
 
 my *spirit* remaineth among you, [[Haggai 2.5|Haggai 2:5]].
 
-Not by might ... but by my *spirit*, [[Zechariah 4.6|Zechariah 4:6]].
+Not by might … but by my *spirit*, [[Zechariah 4.6|Zechariah 4:6]].
 
 the four *spirits* of the heavens, [[Zechariah 6.5|Zechariah 6:5]].
 
@@ -131,7 +130,7 @@ born of water and of the *Spirit*, [[John 3.5|John 3:5]].
 
 that which is born of the *Spirit* is *spirit*, [[John 3.6|John 3:6]].
 
-canst not tell whence it cometh ... that is born of the *Spirit*, [[John 3.8|John 3:8]].
+canst not tell whence it cometh … that is born of the *Spirit*, [[John 3.8|John 3:8]].
 
 God is a *Spirit*: and they that worship him must worship him in *spirit*, [[John 4.24|John 4:24]].
 
@@ -147,7 +146,7 @@ when he, the *Spirit* of truth, is come, [[John 16.13|John 16:13]].
 
 speak with other tongues, as the *Spirit* gave them utterance, [[Acts 2.4|Acts 2:4]].
 
-Stephen ... saying, Lord Jesus, receive my *spirit*, [[Acts 7.59|Acts 7:59]].
+Stephen … saying, Lord Jesus, receive my *spirit*, [[Acts 7.59|Acts 7:59]].
 
 *Spirit* said unto Philip, Go near, [[Acts 8.29|Acts 8:29]].
 
@@ -181,9 +180,9 @@ if ye through the *Spirit* do mortify the deeds of the body, [[Romans 8.13|Roman
 
 *Spirit* itself maketh intercession for us, [[Romans 8.26|Romans 8:26]].
 
-he ... knoweth what is the mind of the *Spirit*, [[Romans 8.27|Romans 8:27]].
+he … knoweth what is the mind of the *Spirit*, [[Romans 8.27|Romans 8:27]].
 
-my speech ... in demonstration of the *Spirit*, [[1 Corinthians 2.4|1 Corinthians 2:4]].
+my speech … in demonstration of the *Spirit*, [[1 Corinthians 2.4|1 Corinthians 2:4]].
 
 God hath revealed them unto us by his *Spirit*, [[1 Corinthians 2.10|1 Corinthians 2:10]].
 
@@ -193,13 +192,13 @@ natural man receiveth not the things of the *Spirit*, [[1 Corinthians 2.14|1 Cor
 
 *spirit* may be saved in the day of the Lord, [[1 Corinthians 5.5|1 Corinthians 5:5]].
 
-justified ... by the *Spirit* of our God, [[1 Corinthians 6.11|1 Corinthians 6:11]].
+justified … by the *Spirit* of our God, [[1 Corinthians 6.11|1 Corinthians 6:11]].
 
 glorify God in your body, and in your *spirit*, [[1 Corinthians 6.20|1 Corinthians 6:20]].
 
 diversities of gifts, but the same *Spirit*, [[1 Corinthians 12.4|1 Corinthians 12:4]].
 
-manifestation of the *Spirit* is given to every man, [[1 Corinthians 12.7|1 Corinthians 12:7]] ([[1 Corinthians 12.1|12:1-11]][[1 Corinthians 12.2|]][[1 Corinthians 12.3|]][[1 Corinthians 12.4|]][[1 Corinthians 12.5|]][[1 Corinthians 12.6|]][[1 Corinthians 12.7|]][[1 Corinthians 12.8|]][[1 Corinthians 12.9|]][[1 Corinthians 12.10|]][[1 Corinthians 12.11|]]).
+manifestation of the *Spirit* is given to every man, [[1 Corinthians 12.7|1 Corinthians 12:7]].
 
 given by the *Spirit* the word of wisdom, [[1 Corinthians 12.8|1 Corinthians 12:8]].
 
@@ -241,17 +240,17 @@ fruit of the *Spirit* is in all goodness, [[Ephesians 5.9|Ephesians 5:9]].
 
 be filled with the *Spirit*, [[Ephesians 5.18|Ephesians 5:18]].
 
-take ... the sword of the *Spirit*, [[Ephesians 6.17|Ephesians 6:17]].
+take … the sword of the *Spirit*, [[Ephesians 6.17|Ephesians 6:17]].
 
 supply of the *Spirit* of Jesus Christ, [[Philippians 1.19|Philippians 1:19]].
 
 stand fast in one *spirit*, [[Philippians 1.27|Philippians 1:27]].
 
-If there be ... any fellowship of the *Spirit*, [[Philippians 2.1|Philippians 2:1]].
+If there be … any fellowship of the *Spirit*, [[Philippians 2.1|Philippians 2:1]].
 
 Quench not the *Spirit*, [[1 Thessalonians 5.19|1 Thessalonians 5:19]].
 
-God was ... justified in the *Spirit*, [[1 Timothy 3.16|1 Timothy 3:16]].
+God was … justified in the *Spirit*, [[1 Timothy 3.16|1 Timothy 3:16]].
 
 *Spirit* speaketh expressly, [[1 Timothy 4.1|1 Timothy 4:1]].
 
@@ -279,7 +278,7 @@ three that bear witness in earth, the *Spirit*, and the water, and the blood, [[
 
 sensual, having not the *Spirit*, [[Jude 1.19|Jude 1:19]].
 
-I was in the *Spirit* on the Lord's day, [[Revelation 1.10|Revelation 1:10]].
+I was in the *Spirit* on the Lord’s day, [[Revelation 1.10|Revelation 1:10]].
 
 let him hear what the *Spirit* saith unto the churches, [[Revelation 2.7|Revelation 2:7]].
 
@@ -327,15 +326,15 @@ he was taken up by the *Spirit*, [[Alma 45.19|Alma 45:19]].
 
 always remember me ye shall have my *Spirit*, [[3 Nephi 18.7|3 Nephi 18:7]].
 
-this body ... is the body of my *spirit*, [[Ether 3.16|Ether 3:16]].
+this body … is the body of my *spirit*, [[Ether 3.16|Ether 3:16]].
 
-may always have his *Spirit* to be with them, [[Moroni 4.3|Moroni 4:3]] ([[Moroni 5.2|Moroni 5:2]]; [[D&C 20.77|D&C 20:77]], [[D&C 20.79|D&C 20:79]]).
+may always have his *Spirit* to be with them, [[Moroni 4.3|Moroni 4:3]] ([[Moroni 5.2|Moroni 5:2]]; [[D&C 20.77|D&C 20:77]]; [[D&C 20.79|D&C 20:79]]).
 
-gifts are ... given by the manifestations of the *Spirit*, [[Moroni 10.8|Moroni 10:8]].
+gifts are … given by the manifestations of the *Spirit*, [[Moroni 10.8|Moroni 10:8]].
 
 *Spirit* beareth record, [[D&C 1.39|D&C 1:39]].
 
-with the manifestation of my *Spirit* ... even of water, [[D&C 5.16|D&C 5:16]].
+with the manifestation of my *Spirit* … even of water, [[D&C 5.16|D&C 5:16]].
 
 enlightened by the *Spirit* of truth, [[D&C 6.15|D&C 6:15]].
 
@@ -343,11 +342,11 @@ this is the *spirit* of revelation, [[D&C 8.3|D&C 8:3]].
 
 put your trust in that *Spirit* which leadeth to do good, [[D&C 11.12|D&C 11:12]] ([[D&C 11.18|D&C 11:18]]).
 
-tongue be loosed ... you shall have my *Spirit*, [[D&C 11.21|D&C 11:21]].
+tongue be loosed … you shall have my *Spirit*, [[D&C 11.21|D&C 11:21]].
 
-by the power of my *Spirit* have spoken it, [[D&C 18.47|D&C 18:47]] ([[D&C 18.2|D&C 18:2]], [[D&C 18.35|D&C 18:35]]).
+by the power of my *Spirit* have spoken it, [[D&C 18.47|D&C 18:47]] ([[D&C 18.2|D&C 18:2]]; [[D&C 18.35|D&C 18:35]]).
 
-at the time I withdrew my *Spirit*, [[D&C 19.20|D&C 19:20]] ([[D&C 19.18|D&C 19:18]], [[D&C 19.23|D&C 19:23]]).
+at the time I withdrew my *Spirit*, [[D&C 19.20|D&C 19:20]] ([[D&C 19.18|D&C 19:18]]; [[D&C 19.23|D&C 19:23]]).
 
 they have received of the *Spirit* of Christ, [[D&C 20.37|D&C 20:37]].
 
@@ -355,7 +354,7 @@ according as it shall be given thee by my *Spirit*, [[D&C 25.7|D&C 25:7]].
 
 sword of my *Spirit*, [[D&C 27.18|D&C 27:18]].
 
-created by ... power of my *Spirit*, [[D&C 29.30|D&C 29:30]].
+created by … power of my *Spirit*, [[D&C 29.30|D&C 29:30]].
 
 not given heed unto my *Spirit*, [[D&C 30.2|D&C 30:2]].
 
@@ -365,9 +364,9 @@ thresh the nations by the power of my *Spirit*, [[D&C 35.13|D&C 35:13]].
 
 if ye receive not the *Spirit* ye shall not teach, [[D&C 42.14|D&C 42:14]].
 
-looketh upon a woman to lust ... shall not have the *Spirit*, [[D&C 42.23|D&C 42:23]] ([[D&C 63.16|D&C 63:16]]).
+looketh upon a woman to lust … shall not have the *Spirit*, [[D&C 42.23|D&C 42:23]] ([[D&C 63.16|D&C 63:16]]).
 
-teach ... by the power of my *Spirit*, [[D&C 43.15|D&C 43:15]].
+teach … by the power of my *Spirit*, [[D&C 43.15|D&C 43:15]].
 
 may not be seduced by evil *spirits*, [[D&C 46.7|D&C 46:7]].
 
@@ -385,7 +384,7 @@ received ye *spirits* which ye could not understand, [[D&C 50.15|D&C 50:15]] ([[
 
 holding my *Spirit* from the inhabitants, [[D&C 63.32|D&C 63:32]].
 
-I ... withheld my *Spirit*, [[D&C 64.16|D&C 64:16]].
+I … withheld my *Spirit*, [[D&C 64.16|D&C 64:16]].
 
 by my *Spirit* will I enlighten them, [[D&C 76.10|D&C 76:10]].
 
@@ -401,11 +400,11 @@ man is *spirit*, [[D&C 93.33|D&C 93:33]].
 
 that I may pour out my *Spirit* upon all flesh, [[D&C 95.4|D&C 95:4]].
 
-I speak unto you with ... the voice of my *Spirit*, [[D&C 97.1|D&C 97:1]].
+I speak unto you with … the voice of my *Spirit*, [[D&C 97.1|D&C 97:1]].
 
 write according to that which shall be dictated by my *Spirit*, [[D&C 104.81|D&C 104:81]].
 
-manifest ... by the voice of the *Spirit*, [[D&C 105.36|D&C 105:36]].
+manifest … by the voice of the *Spirit*, [[D&C 105.36|D&C 105:36]].
 
 power of my *Spirit*, that shall flow unto you, [[D&C 111.8|D&C 111:8]].
 
@@ -444,5 +443,3 @@ born into the world by water, and blood, and the *spirit*, [[Moses 6.59|Moses 6:
 as many of the *spirits* as were in prison came forth, [[Moses 7.57|Moses 7:57]].
 
 he stood among those that were *spirits*, [[Abraham 3.23|Abraham 3:23]].
-
-*See also* [[Numbers 14.24|Numbers 14:24]]; [[Judges 9.23|Judges 9:23]]; [[1 Kings 22.21|1 Kings 22:21]]; [[2 Chronicles 18.20|2 Chronicles 18:20]]; [[Nehemiah 9.20|Nehemiah 9:20]]; [[Job 15.13|Job 15:13]]; [[Psalms 78.8|Psalms 78:8]]; [[Psalms 104.30|Psalms 104:30]]; [[Ecclesiastes 3.21|Ecclesiastes 3:21]]; [[Ecclesiastes 8.8|Ecclesiastes 8:8]]; [[Ecclesiastes 11.5|Ecclesiastes 11:5]]; [[Isaiah 4.4|Isaiah 4:4]]; [[Ezekiel 1.20|Ezek. 1:20-21]][[Ezekiel 1.21|]]; [[Ezekiel 8.3|Ezekiel 8:3]]; [[Ezekiel 10.17|Ezekiel 10:17]]; [[Ezekiel 18.31|Ezekiel 18:31]]; [[Haggai 2.5|Haggai 2:5]]; [[John 3.34|John 3:34]]; [[Acts 16.7|Acts 16:7]]; [[1 Corinthians 2.4|1 Corinthians 2:4]]; [[2 Corinthians 1.22|2 Corinthians 1:22]]; [[2 Corinthians 4.13|2 Corinthians 4:13]]; [[Galatians 4.6|Galatians 4:6]]; [[Ephesians 2.2|Ephesians 2:2]]; [[Philippians 3.3|Philippians 3:3]]; [[1 Thessalonians 5.23|1 Thessalonians 5:23]]; [[1 Peter 4.14|1 Peter 4:14]]; [[Revelation 1.4|Revelation 1:4]]; [[Revelation 11.11|Revelation 11:11]]; [[Revelation 22.17|Revelation 22:17]]; [[3 Nephi 17.21|3 Ne. 17:21-25]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]][[3 Nephi 17.25|]]; [[3 Nephi 19.13|19:13-14]][[3 Nephi 19.14|]].

@@ -1,5 +1,7 @@
 # The Finished Story
 
+Gordon B. Hinckley
+
 By Gayle M. Clegg - *Second Counselor in the Primary General Presidency*
 
 *Given in the April session of the 2004 General Conference*
@@ -43,8 +45,3 @@ What did we learn from this task? The same lesson Henry Clegg Jr. and Jimmy lear
 
 
 
-
-
-
-
-#Dedication #Endurance

@@ -1,6 +1,8 @@
 # An Opportunity for Continual Learning
 
-By Shirley W. Thomas - *Second Counselor in the Relief Society General Presidency*
+Gordon B. Hinckley
+
+By Shirley W. Thomas - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -45,8 +47,3 @@ As we continue to learn, with the Spirit of the Lord as our guide, we prepare fo
 
 
 
-
-
-
-
-#Relief_Society

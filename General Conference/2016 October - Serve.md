@@ -1,6 +1,8 @@
 # Serve
 
-By Elder Carl B. Cook - *Of the Seventy*
+Jean B. Bingham
+
+By Elder Carl B. Cook - *Of the Seventy*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -46,11 +48,11 @@ I know a wonderful Gospel Doctrine teacher who lifts class members as she teache
 
 The natural man or woman in all of us is inclined to allow us to excuse ourselves from serving for reasons such as “I am not ready to serve; I have more to learn,” “I’m tired and need a break,” “I’m too old—it’s someone else’s turn,” or “I am simply too busy.”
 
-Brothers and sisters, accepting and fulfilling a calling is an act of faith. We can trust in what our prophet, President Thomas S. Monson, repeatedly teaches: “Whom the Lord calls, the Lord qualifies” and “When we are on the Lord’s errand, we are entitled to the Lord’s help.”[^12] Whether we are overwhelmed or underwhelmed, whether we are scared to death or bored to death, the Lord wants us to gear down, power up, and serve.
+Brothers and sisters, accepting and fulfilling a calling is an act of faith. We can trust in what our prophet, President Thomas S. Monson, repeatedly teaches: “Whom the Lord calls, the Lord qualifies” and “When we are on the Lord’s errand, we are entitled to the Lord’s help.”[^12] Whether we are overwhelmed or underwhelmed, whether we are scared to death or bored to death, the Lord wants us to gear down, power up, and serve.
 
 I see no signs that President Monson and his associates in the First Presidency and the Quorum of the Twelve are too busy or too tired. They exemplify in an inspiring way the power that comes into our lives as we exercise faith, accept assignments, and fulfill them with commitment and dedication. They “put \[their shoulders\] to the wheel”[^13] many years ago, and they continue to push forward, onward, and upward.
 
-Yes, they serve in important callings, but *every* calling or assignment is important. President Gordon B. Hinckley, a previous prophet and President of the Church, said: “We are all in this great endeavor together. … Your obligation is as serious in your sphere of responsibility as is my obligation in my sphere. No calling in this church is small or of little consequence.”[^14] Every calling is important.[^15]
+Yes, they serve in important callings, but *every* calling or assignment is important. President Gordon B. Hinckley, a previous prophet and President of the Church, said: “We are all in this great endeavor together. … Your obligation is as serious in your sphere of responsibility as is my obligation in my sphere. No calling in this church is small or of little consequence.”[^14] Every calling is important.[^15]
 
 ## Let Us Serve
 
@@ -83,21 +85,21 @@ May the Lord bless each of us in our efforts to serve and become true followers 
 
 [^6]: See [[D&C 81.4|Doctrine and Covenants 81:4–6]][[D&C 81.5|]][[D&C 81.6|]].
 
-[^7]: Marion G. Romney, “[[1982 October - The Celestial Nature of Self-reliance.md|The Celestial Nature of Self-Reliance]],” *Ensign,* Nov. 1982, 93.
+[^7]: Marion G. Romney, “[[1982 October - The Celestial Nature of Self-reliance.md|The Celestial Nature of Self-Reliance]],” *Ensign,* Nov. 1982, 93.
 
-[^8]: See Joseph Skeen, reminiscences and diary, 7, Church History Library, Salt Lake City; see also *Journal and History of Joseph Skeen,* ed. Greg S. Montgomery and Mark R. Montgomery (1996), 23.
+[^8]: See Joseph Skeen, reminiscences and diary, 7, Church History Library, Salt Lake City; see also *Journal and History of Joseph Skeen,* ed. Greg S. Montgomery and Mark R. Montgomery (1996), 23.
 
 [^9]: See [[D&C 1.38|Doctrine and Covenants 1:38]]; [[Articles of Faith 1.5|Articles of Faith 1:5]].
 
-[^10]: Skeen, reminiscences and diary, 8, spelling and punctuation standardized; see also *Journal and History of Joseph Skeen,* 23; [[Luke 22.31|Luke 22:31]]; [[2 Nephi 28.19|2 Nephi 28:19–24]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.24|]]; [[Alma 30.60|Alma 30:60]]; [[D&C 10.22|Doctrine and Covenants 10:22–27]][[D&C 10.23|]][[D&C 10.24|]][[D&C 10.25|]][[D&C 10.26|]][[D&C 10.27|]].
+[^10]: Skeen, reminiscences and diary, 8, spelling and punctuation standardized; see also *Journal and History of Joseph Skeen,* 23; [[Luke 22.31|Luke 22:31]]; [[2 Nephi 28.19|2 Nephi 28:19–24]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.24|]]; [[Alma 30.60|Alma 30:60]]; [[D&C 10.22|Doctrine and Covenants 10:22–27]][[D&C 10.23|]][[D&C 10.24|]][[D&C 10.25|]][[D&C 10.26|]][[D&C 10.27|]].
 
 [^11]: See *Teaching in the Savior’s Way* (2016), 37–38; *Handbook 2: Administering the Church* (2010), 5.3, 5.5.4.
 
-[^12]: Thomas S. Monson, “[[1996 April - Duty Calls.md|Duty Calls]],” *Ensign,* May 1996, 44.
+[^12]: Thomas S. Monson, “[[1996 April - Duty Calls.md|Duty Calls]],” *Ensign,* May 1996, 44.
 
 [^13]: “Put Your Shoulder to the Wheel,” *Hymns,* no. 252.
 
-[^14]: Gordon B. Hinckley, “[[1995 April - This Is the Work of the Master.md|This Is the Work of the Master]],” *Ensign,* May 1995, 71.
+[^14]: Gordon B. Hinckley, “[[1995 April - This Is the Work of the Master.md|This Is the Work of the Master]],” *Ensign,* May 1995, 71.
 
 [^15]: See [[Alma 37.6|Alma 37:6]].
 
@@ -115,8 +117,3 @@ May the Lord bless each of us in our efforts to serve and become true followers 
 
 [^22]: See [[Moroni 7.48|Moroni 7:48]].
 
-
-
-
-
-#Church_Callings #Jesus_Christ #Service #Unity

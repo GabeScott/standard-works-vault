@@ -1,6 +1,5 @@
 # Loins
 
-
 righteousness shall be the girdle of his *loins*, [[Isaiah 11.5|Isaiah 11:5]].
 
 your *loins* be girded about, [[Luke 12.35|Luke 12:35]].

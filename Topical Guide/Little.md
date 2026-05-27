@@ -1,7 +1,6 @@
 # Little
 
-
-*See also* [[Light, Lighter [adjective].md|Light [adjective]]]; [[Small, Smallest.md|Small]]
+*See also* [[Light [adjective].md|Light [adjective]]]; [[Small.md|Small]]
 
 he that gathered *little* had no lack, [[Exodus 16.18|Exodus 16:18]] ([[2 Corinthians 8.15|2 Corinthians 8:15]]).
 
@@ -37,7 +36,7 @@ tongue is a *little* member, and boasteth, [[James 3.5|James 3:5]].
 
 he had in his hand a *little* book, [[Revelation 10.2|Revelation 10:2]].
 
-except they ... become as *little* children, [[Mosiah 3.18|Mosiah 3:18]].
+except they … become as *little* children, [[Mosiah 3.18|Mosiah 3:18]].
 
 *little* children also have eternal life, [[Mosiah 15.25|Mosiah 15:25]].
 
@@ -47,7 +46,7 @@ repenteth and cometh unto me as a *little* child, [[3 Nephi 9.22|3 Nephi 9:22]] 
 
 clothe you, if ye are not of *little* faith, [[3 Nephi 13.30|3 Nephi 13:30]].
 
-angels descending ... and encircled those *little* ones, [[3 Nephi 17.24|3 Nephi 17:24]].
+angels descending … and encircled those *little* ones, [[3 Nephi 17.24|3 Nephi 17:24]].
 
 disputations among you concerning the baptism of your *little* children, [[Moroni 8.5|Moroni 8:5]].
 
@@ -63,4 +62,4 @@ a *little* while and ye shall see it, [[D&C 84.119|D&C 84:119]].
 
 he shall be loosed for a *little* season, [[D&C 88.111|D&C 88:111]].
 
-men ... get a *little* authority ... exercise unrighteous dominion, [[D&C 121.39|D&C 121:39]].
+men … get a *little* authority … exercise unrighteous dominion, [[D&C 121.39|D&C 121:39]].

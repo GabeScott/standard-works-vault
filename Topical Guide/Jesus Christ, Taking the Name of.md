@@ -1,13 +1,12 @@
 # Jesus Christ, Taking the Name of
 
-
-*See also* [[Blaspheme, Blasphemous, Blasphemy.md|Blaspheme]]; [[Profanity.md|Profanity]]; [[Swearing, Swear, Sware, Sworn.md|Swearing]]
+*See also* [[Blaspheme.md|Blaspheme]]; [[Profanity.md|Profanity]]; [[Swearing.md|Swearing]]
 
 in his *name* shall the Gentiles trust, [[Matthew 12.21|Matthew 12:21]].
 
 believing ye might have life through his *name*, [[John 20.31|John 20:31]].
 
-none other *name* ... whereby we must be saved, [[Acts 4.12|Acts 4:12]] ([[2 Nephi 31.21|2 Nephi 31:21]]).
+none other *name* … whereby we must be saved, [[Acts 4.12|Acts 4:12]] ([[2 Nephi 31.21|2 Nephi 31:21]]).
 
 worthy to suffer shame for his *name*, [[Acts 5.41|Acts 5:41]].
 
@@ -29,7 +28,7 @@ desirous to take upon them the *name of Christ*, [[Mosiah 25.23|Mosiah 25:23]].
 
 blessed is this people who are willing to bear my *name*, [[Mosiah 26.18|Mosiah 26:18]].
 
-heaven is open ... to those who will believe on the *name of Jesus Christ*, [[Helaman 3.28|Helaman 3:28]].
+heaven is open … to those who will believe on the *name of Jesus Christ*, [[Helaman 3.28|Helaman 3:28]].
 
 take upon you the *name of Christ*, [[3 Nephi 27.5|3 Nephi 27:5]].
 
@@ -52,5 +51,3 @@ thy *name* may be upon them, [[D&C 109.22|D&C 109:22]].
 faithful before me unto my *name*, [[D&C 112.12|D&C 112:12]].
 
 I will magnify my *name*, [[D&C 132.64|D&C 132:64]].
-
-*See also* [[Acts 11.26|Acts 11:26]].

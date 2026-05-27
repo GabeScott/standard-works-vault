@@ -1,6 +1,8 @@
 # The Things of My Soul
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -20,7 +22,7 @@ The things of our souls are often clarified and deepened by asking questions.
 
 During the pandemic I have met with youth from all over the world in many devotionals, large and small, through broadcasts and social media, and we have discussed their questions.
 
-Fourteen-year-old Joseph Smith had a question deep in his soul, and he took it to the Lord. President Russell M. Nelson has emphasized: “Take your questions to the Lord and to other faithful sources. Study with the desire to *believe* rather than with the hope that you can find a flaw in the fabric of a prophet’s life or a discrepancy in the scriptures. Stop increasing your doubts by rehearsing them with … doubters. Allow the Lord to lead you on your journey of spiritual discovery.”[^6]
+Fourteen-year-old Joseph Smith had a question deep in his soul, and he took it to the Lord. President Russell M. Nelson has emphasized: “Take your questions to the Lord and to other faithful sources. Study with the desire to *believe* rather than with the hope that you can find a flaw in the fabric of a prophet’s life or a discrepancy in the scriptures. Stop increasing your doubts by rehearsing them with … doubters. Allow the Lord to lead you on your journey of spiritual discovery.”[^6]
 
 Youth often ask me what I believe and why I believe.
 
@@ -97,25 +99,25 @@ The things of my soul are as precious to me as yours are to you. These things st
 
 [^1]: [[Matthew 17.4|Matthew 17:4]].
 
-[^2]: [[2 Nephi 4.15|2 Nephi 4:15]].
+[^2]: [[2 Nephi 4.15|2 Nephi 4:15]].
 
 [^3]: See Scripture Citation Index, scriptures.byu.edu.
 
 [^4]: [[Moses 2.1|Moses 2:1]]; emphasis added.
 
-[^5]: [[2 Nephi 4.16|2 Nephi 4:16]]; emphasis added.
+[^5]: [[2 Nephi 4.16|2 Nephi 4:16]]; emphasis added.
 
-[^6]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
+[^6]: Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 103.
 
 [^7]: [[Matthew 22.37|Matthew 22:37]].
 
-[^8]: Russell M. Nelson, “[As We Go Forward Together](https://churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona*, Apr. 2018, 7.
+[^8]: Russell M. Nelson, “[As We Go Forward Together](https://www.churchofjesuschrist.org/study/liahona/2018/04/as-we-go-forward-together?lang=eng),” *Ensign* or *Liahona*, Apr. 2018, 7.
 
 [^9]: [[Matthew 22.39|Matthew 22:39]].
 
 [^10]: “Love One Another,” *Hymns*, no. 308.
 
-[^11]: Russell M. Nelson, “[[2019 October - The Second Great Commandment.md|The Second Great Commandment]],” *Ensign* or *Liahona*, Nov. 2019, 97.
+[^11]: Russell M. Nelson, “[[2019 October - The Second Great Commandment.md|The Second Great Commandment]],” *Ensign* or *Liahona*, Nov. 2019, 97.
 
 [^12]: [[Matthew 22.39|Matthew 22:39]].
 
@@ -125,36 +127,31 @@ The things of my soul are as precious to me as yours are to you. These things st
 
 [^15]: [[D&C 68.6|Doctrine and Covenants 68:6]].
 
-[^16]: Russell M. Nelson, “[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 7.
+[^16]: Russell M. Nelson, “[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 7.
 
-[^17]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
+[^17]: Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82.
 
 [^18]: [[Ephesians 4.14|Ephesians 4:14]].
 
 [^19]: [[Isaiah 55.8|Isaiah 55:8]].
 
-[^20]: [[2 Kings 5.13|2 Kings 5:13]].
+[^20]: [[2 Kings 5.13|2 Kings 5:13]].
 
-[^21]: For example, see [Friend to Friend Broadcast for Children: 2021](https://www.churchofjesuschrist.org/broadcasts/face-to-face/friend-to-friend) (Feb. 20, 2021), broadcasts.ChurchofJesusChrist.org, part 3, from time code 9:57 to 13:16.
+[^21]: For example, see [Friend to Friend Broadcast for Children: 2021](https://www.churchofjesuschrist.org/broadcasts/face-to-face/friend-to-friend) (Feb. 20, 2021), broadcasts.ChurchofJesusChrist.org, part 3, from time code 9:57 to 13:16.
 
-[^22]: For examples, see Russell M. Nelson, Facebook, July 23, 2021, facebook.com/russell.m.nelson; “[President Russell M. Nelson on the Healing Power of Gratitude](https://www.churchofjesuschrist.org/media/video/2020-11-1100-president-russell-m-nelson-on-the-healing-power-of-gratitude)” (video), ChurchofJesusChrist.org; Russell M. Nelson, Twitter, May 6, 2021, twitter.com/NelsonRussellM.
+[^22]: For examples, see Russell M. Nelson, Facebook, July 23, 2021, facebook.com/russell.m.nelson; “[President Russell M. Nelson on the Healing Power of Gratitude](https://www.churchofjesuschrist.org/media/video/2020-11-1100-president-russell-m-nelson-on-the-healing-power-of-gratitude)” (video), ChurchofJesusChrist.org; Russell M. Nelson, Twitter, May 6, 2021, twitter.com/NelsonRussellM.
 
-[^23]: For example, see Russell M. Nelson, “[The Love and Laws of God](https://speeches.byu.edu/talks/russell-m-nelson/love-laws-god)” (Brigham Young University devotional, Sept. 17, 2019), speeches.byu.edu.
+[^23]: For example, see Russell M. Nelson, “[The Love and Laws of God](https://speeches.byu.edu/talks/russell-m-nelson/love-laws-god)” (Brigham Young University devotional, Sept. 17, 2019), speeches.byu.edu.
 
-[^24]: For example, see “[First Presidency and NAACP Leaders Announce a Shared Vision to ‘Learn from and Serve One Another’](https://newsroom.churchofjesuschrist.org/article/first-presidency-naacp-shared-vision)” (news release, June 14, 2021), newsroom.ChurchofJesusChrist.org.
+[^24]: For example, see “[First Presidency and NAACP Leaders Announce a Shared Vision to ‘Learn from and Serve One Another’](https://newsroom.churchofjesuschrist.org/article/first-presidency-naacp-shared-vision)” (news release, June 14, 2021), newsroom.ChurchofJesusChrist.org.
 
 [^25]: See [[Ephesians 4.11|Ephesians 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]].
 
-[^26]: “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
+[^26]: “[The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
 
 [^27]: [[Ephesians 1.10|Ephesians 1:10]].
 
-[^28]: [[2 Nephi 4.15|2 Nephi 4:15]].
+[^28]: [[2 Nephi 4.15|2 Nephi 4:15]].
 
-[^29]: [[3 Nephi 20.8|3 Nephi 20:8]].
+[^29]: [[3 Nephi 20.8|3 Nephi 20:8]].
 
-
-
-
-
-#Commandments #God_The_Father #Jesus_Christ #Joy #Love #Prophets #Revelation

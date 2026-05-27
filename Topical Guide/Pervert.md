@@ -1,9 +1,8 @@
 # Pervert
 
-
 *See also* [[Corrupt.md|Corrupt]]; [[Perverse.md|Perverse]]; [[Wrest.md|Wrest]]
 
-gift ... *perverteth* the words of the righteous, [[Exodus 23.8|Exodus 23:8]] ([[Deuteronomy 16.19|Deuteronomy 16:19]]).
+gift … *perverteth* the words of the righteous, [[Exodus 23.8|Exodus 23:8]] ([[Deuteronomy 16.19|Deuteronomy 16:19]]).
 
 shalt not *pervert* the judgment of the stranger, [[Deuteronomy 24.17|Deuteronomy 24:17]].
 
@@ -13,13 +12,13 @@ foolishness of man *perverteth* his way, [[Proverbs 19.3|Proverbs 19:3]].
 
 ye have *perverted* the words of the living God, [[Jeremiah 23.36|Jeremiah 23:36]].
 
-ye ... *pervert* all equity, [[Micah 3.9|Micah 3:9]].
+ye … *pervert* all equity, [[Micah 3.9|Micah 3:9]].
 
 We found this fellow *perverting* the nation, [[Luke 23.2|Luke 23:2]].
 
 wilt thou not cease to *pervert* the right ways, [[Acts 13.10|Acts 13:10]].
 
-there be some that ... would *pervert* the gospel of Christ, [[Galatians 1.7|Galatians 1:7]].
+there be some that … would *pervert* the gospel of Christ, [[Galatians 1.7|Galatians 1:7]].
 
 that they might *pervert* the right ways of the Lord, [[1 Nephi 13.27|1 Nephi 13:27]] ([[2 Nephi 28.15|2 Nephi 28:15]]; [[Jacob 7.7|Jacob 7:7]]; [[Alma 31.11|Alma 31:11]]).
 

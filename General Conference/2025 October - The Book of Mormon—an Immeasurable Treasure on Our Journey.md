@@ -1,5 +1,7 @@
 # The Book of Mormon—an Immeasurable Treasure on Our Journey
 
+Dallin H. Oaks
+
 By Elder Ozani Farias - *Of the Seventy*
 
 *Given in the October session of the 2025 General Conference*
@@ -18,13 +20,13 @@ After I was baptized into The Church of Jesus Christ of Latter-day Saints, some 
 
 The Book of Mormon is more than just a book. It is another testament of Jesus Christ, written by many ancient prophets through the spirit of prophecy and revelation.
 
-The most significant event recorded in the Book of Mormon is the personal ministry of the Lord Jesus Christ among the Nephites shortly after His Resurrection. The Book of Mormon “puts forth the doctrines of the gospel, outlines the plan of salvation, and tells men what they must do to gain peace in this life and eternal salvation in the life to come” ([introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)).
+The most significant event recorded in the Book of Mormon is the personal ministry of the Lord Jesus Christ among the Nephites shortly after His Resurrection. The Book of Mormon “puts forth the doctrines of the gospel, outlines the plan of salvation, and tells men what they must do to gain peace in this life and eternal salvation in the life to come” ([introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)).
 
 The first edition of the Book of Mormon: Another Testament of Jesus Christ was published in a small town in the state of New York in March 1830. The Prophet Joseph Smith was only 23 years old when he completed the translation of the book in 1829. He translated almost the entire book in less than 75 days, and the printing process took about seven months.
 
 Today, approximately 80,000 full-time missionaries in more than 150 countries are serving as volunteers, dedicating their lives to bearing witness that the Book of Mormon is true and that it testifies of Jesus Christ.
 
-At the most recent seminar for new mission leaders in June of this year, President Russell M. Nelson shared his powerful testimony of the Book of Mormon: “The Book of Mormon is … the word of God. It teaches the doctrine of Christ and explains more about the Savior’s Atonement than does any other book.”[^1]
+At the most recent seminar for new mission leaders in June of this year, President Russell M. Nelson shared his powerful testimony of the Book of Mormon: “The Book of Mormon is … the word of God. It teaches the doctrine of Christ and explains more about the Savior’s Atonement than does any other book.”[^1]
 
 I would like to offer three suggestions that can help deepen our conversion to Jesus Christ through a study of the Book of Mormon:
 
@@ -38,7 +40,7 @@ It’s possible that after the mission we may not have the same amount of time a
 
 ## 2. Make Your Study More Meaningful by Feasting upon the Words of Christ
 
-Nephi taught, “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Nephi 32:3]]).
+Nephi taught, “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Nephi 32:3]]).
 
 To feast means more than just reading—it means savoring, pondering, and applying. As you study the Book of Mormon, consider ways to make your scripture study more meaningful. For example:
 
@@ -48,13 +50,13 @@ To feast means more than just reading—it means savoring, pondering, and applyi
 
 - Highlight significant phrases and record your impressions to preserve what you have learned during your study.
 
-The Book of Mormon has the power to answer questions of our souls. As Nephi said, we should “liken all scriptures unto us, that it might be for our profit and learning” ([[1 Nephi 19.23|1 Nephi 19:23]]).
+The Book of Mormon has the power to answer questions of our souls. As Nephi said, we should “liken all scriptures unto us, that it might be for our profit and learning” ([[1 Nephi 19.23|1 Nephi 19:23]]).
 
 As we feast upon the words of Christ, they will open the door to revelation and show us what we need to do in the various circumstances of our life to draw closer to Him.
 
 ## 3. Bear Your Testimony of the Truthfulness of the Book of Mormon
 
-Just as Lehi desired to share the fruit of the tree of life with his family (see [[1 Nephi 8.12|1 Nephi 8:12]]), when we gain a testimony of the Book of Mormon, we develop a desire to share the joy that comes from knowing the gospel of Jesus Christ.
+Just as Lehi desired to share the fruit of the tree of life with his family (see [[1 Nephi 8.12|1 Nephi 8:12]]), when we gain a testimony of the Book of Mormon, we develop a desire to share the joy that comes from knowing the gospel of Jesus Christ.
 
 One of our missionaries, Sister Benson, who is attending with us this session, shared with me her desire to help her young brother. At that time, he was preparing to attend college and wasn’t sure about serving a mission. I felt impressed to invite Sister Benson to read the Book of Mormon during the first four months of her mission, marking her favorite verses, and then to send that copy to her brother.
 
@@ -67,10 +69,5 @@ My beloved brothers and sisters, I encourage each of you to deepen your study of
 
 
 
-[^1]: Russell M. Nelson, “Sacrament Meeting” (address given at the seminar for new mission leaders, June 23, 2025).
+[^1]: Russell M. Nelson, “Sacrament Meeting” (address given at the seminar for new mission leaders, June 23, 2025).
 
-
-
-
-
-#Book_Of_Mormon #Conversion #Missionary_Service #Scripture_Study #Testimony

@@ -1,6 +1,8 @@
 # Learn from Alma and Amulek
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Jean B. Bingham
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -42,7 +44,7 @@ But God was preparing Amulek, and when Amulek met Alma, he welcomed the Lord’s
 
 When Alma went out again to teach among the people of Ammonihah, he had a second witness at his side—Amulek, one of their own.
 
-The events that followed constitute one of the most bittersweet narratives in all of scripture. You can read about it in [[Alma 8.1|Alma chapters 8–16]][[Alma 8.2|]][[Alma 8.3|]][[Alma 8.4|]][[Alma 8.5|]][[Alma 8.6|]][[Alma 8.7|]][[Alma 8.8|]][[Alma 8.9|]][[Alma 8.10|]][[Alma 8.11|]][[Alma 8.12|]][[Alma 8.13|]][[Alma 8.14|]][[Alma 8.15|]][[Alma 8.16|]][[Alma 8.17|]][[Alma 8.18|]][[Alma 8.19|]][[Alma 8.20|]][[Alma 8.21|]][[Alma 8.22|]][[Alma 8.23|]][[Alma 8.24|]][[Alma 8.25|]][[Alma 8.26|]][[Alma 8.27|]][[Alma 8.28|]][[Alma 8.29|]][[Alma 8.30|]][[Alma 8.31|]][[Alma 8.32|]].
+The events that followed constitute one of the most bittersweet narratives in all of scripture. You can read about it in [[Alma 8.1|Alma chapters 8–16]].
 
 Today, I would like to ask you to consider two questions:
 
@@ -163,7 +165,5 @@ Of this I testify and leave you my blessing as an Apostle of the Lord in the nam
 
 [^13]: [[James 1.5|James 1:5]].
 
+[^14]: See [[Alma 10.7|Alma 10:7]].
 
-
-
-#Activation #Book_Of_Mormon #Leadership #Repentance #Service

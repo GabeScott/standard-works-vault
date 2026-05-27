@@ -1,6 +1,8 @@
 # The Preparatory Priesthood
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -58,7 +60,7 @@ Now, such stories of success in priesthood preparation are familiar to you from 
 
 All of us in the priesthood have an obligation to help the Lord prepare others. There are some things we can do that could matter most. Even more powerful than using words in our teaching the doctrine will be our examples of living the doctrine.
 
-Paramount in our priesthood service is inviting people to come unto Christ by faith, repentance, baptism, and receiving the Holy Ghost. President Thomas S. Monson, for instance, has given sermons to stir the heart on all those doctrines. But what I know of what he did with people and missionaries and friends of the Church when presiding over the mission in Toronto motivates me to action.
+Paramount in our priesthood service is inviting people to come unto Christ by faith, repentance, baptism, and receiving the Holy Ghost. President Thomas S. Monson, for instance, has given sermons to stir the heart on all those doctrines. But what I know of what he did with people and missionaries and friends of the Church when presiding over the mission in Toronto motivates me to action.
 
 In priesthood preparation, “show me” counts more than “tell me.”
 
@@ -82,7 +84,7 @@ Quorums of deacons, teachers, and priests counsel regularly to draw every member
 
 Teachers and priests pray with their companions to fulfill the charge to watch over the Church, person by person. And those companionships pray together as they learn the needs and the hopes of heads of families. As they do, they are being prepared for the great day when they will preside as a father, in faith, in a family of their own.
 
-I testify that all who serve together in the priesthood are preparing a people for the coming of the Lord to His Church. God the Father lives. I know—I know—that Jesus is the Christ and that He loves us. President Thomas S. Monson is the Lord’s living prophet. I so testify in the sacred name of Jesus Christ, amen.
+I testify that all who serve together in the priesthood are preparing a people for the coming of the Lord to His Church. God the Father lives. I know—I know—that Jesus is the Christ and that He loves us. President Thomas S. Monson is the Lord’s living prophet. I so testify in the sacred name of Jesus Christ, amen.
 
 
 
@@ -101,7 +103,5 @@ I testify that all who serve together in the priesthood are preparing a people f
 
 [^7]: [[D&C 13.1|Doctrine and Covenants 13:1]].
 
+[^8]: See [[D&C 107.14|Doctrine and Covenants 107:14]].
 
-
-
-#Aaronic_Priesthood #Preparation #Service

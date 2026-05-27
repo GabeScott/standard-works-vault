@@ -1,6 +1,5 @@
 # Divide
 
-
 *See also* [[Division.md|Division]]
 
 God *divided* the light from the darkness, [[Genesis 1.4|Genesis 1:4]] ([[Moses 2.18|Moses 2:18]]; [[Abraham 4.17|Abraham 4:17]]).
@@ -25,7 +24,7 @@ To him which *divided* the Red sea into parts, [[Psalms 136.13|Psalms 136:13]].
 
 he shall *divide* the spoil with the strong, [[Isaiah 53.12|Isaiah 53:12]] ([[Mosiah 14.12|Mosiah 14:12]]).
 
-Moses ... *dividing* the water, [[Isaiah 63.12|Isaiah 63:12]] ([[1 Nephi 4.2|1 Nephi 4:2]]).
+Moses … *dividing* the water, [[Isaiah 63.12|Isaiah 63:12]] ([[1 Nephi 4.2|1 Nephi 4:2]]).
 
 be *divided* into two kingdoms, [[Ezekiel 37.22|Ezekiel 37:22]].
 

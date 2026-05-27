@@ -1,4 +1,3 @@
 # Song of Solomon
 
-
-*See* [BD Song of Solomon](https://www.churchofjesuschrist.org/study/scriptures/bd/song-of-solomon?lang=eng)
+*See also* [[BD Song of Solomon.md|BD Song of Solomon]]

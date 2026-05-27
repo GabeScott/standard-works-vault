@@ -1,5 +1,7 @@
 # Becoming Men in Whom the Spirit of God Is
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2002 General Conference*
@@ -83,8 +85,3 @@ What a blessing it is to bear the Lord’s holy priesthood and have that power a
 
 
 
-
-
-
-
-#Example #Holy_Ghost #Priesthood #Prophets

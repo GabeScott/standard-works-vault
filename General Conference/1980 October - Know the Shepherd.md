@@ -1,12 +1,14 @@
 # Know the Shepherd
 
-By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1980/10/know-the-shepherd?lang=eng)
 
-I once heard President Hugh B. Brown relate this inspiring story: Sometime ago a great actor in the city of New York gave a wonderful performance in a large theatre, at the close of which there were rounds of applause. He was called back again and again. Finally someone called to him, “Would you do for us the Twenty-third Psalm?”
+I once heard President Hugh B. Brown relate this inspiring story: Sometime ago a great actor in the city of New York gave a wonderful performance in a large theatre, at the close of which there were rounds of applause. He was called back again and again. Finally someone called to him, “Would you do for us the Twenty-third Psalm?”
 
 “Why, yes. I know the Twenty-third Psalm.”
 
@@ -28,7 +30,7 @@ Then changing to address the Savior directly and intimately:
 
 “Surely goodness and mercy shall follow me all the days of my life: and I will dwell in the house of the Lord for ever.” \[[[Psalms 23.1|Ps. 23:1–6]][[Psalms 23.2|]][[Psalms 23.3|]][[Psalms 23.4|]][[Psalms 23.5|]][[Psalms 23.6|]].\]
 
-When the old man finished, there was no applause, but there was not a dry eye in that house. The actor came to the front of the stage. He, too, was wiping his eyes. And he said, “Ladies and gentlemen, I know the *words* of the Twenty-third Psalm, but this man *knows the Shepherd.*” (Adapted from Hugh B. Brown, *The Quest,* Salt Lake City: Deseret Book Co., 1961, pp. 335–36.)
+When the old man finished, there was no applause, but there was not a dry eye in that house. The actor came to the front of the stage. He, too, was wiping his eyes. And he said, “Ladies and gentlemen, I know the *words* of the Twenty-third Psalm, but this man *knows the Shepherd.*” (Adapted from Hugh B. Brown, *The Quest,* Salt Lake City: Deseret Book Co., 1961, pp. 335–36.)
 
 President Benson has given us a key so that we might become as one who knows the Shepherd. He has told us: “To learn of Christ necessitates the study of the scriptures and the \[study of the\] testimonies of those who know him. We come to know him through prayer and the inspiration and revelation that God has promised to those who keep his commandments.” (*God, Family, Country: Our Three Great Loyalties,* Salt Lake City: Deseret Book Co., 1974, p. 156.)
 
@@ -65,8 +67,3 @@ We should each ask, “Am I loving enough, am I studying enough, am I serving en
 
 
 
-
-
-
-
-#Jesus_Christ #Testimony

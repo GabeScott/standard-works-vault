@@ -1,5 +1,7 @@
 # Remember Who You Are!
 
+Thomas S. Monson
+
 By Elaine S. Dalton - *Young Women General President*
 
 *Given in the April session of the 2010 General Conference*
@@ -14,7 +16,7 @@ Together we have shared many choice spiritual moments. We have borne testimony i
 
 This is a magnificent time to be on the earth and to be a young woman. Our vision remains the same. It is to be worthy to make and keep sacred covenants and receive the ordinances of the temple. This is our superlative goal! And so we will continue to lead the world in a return to virtue—a return to chastity and moral purity. We will continue to do all we can to help each other “stand … in holy places”[^2] and receive, recognize, and rely on the Holy Ghost.
 
-We will continue to talk of Christ, to rejoice in Christ, that each of us will know to what source we may look for a remission of our sins.[^3] And yes, we will continue to stand firm no matter what storms may rage around us because we know and testify that “it is upon the rock of our Redeemer, who is Christ, the Son of God, that \[we\] must build \[our\] foundation … , a foundation whereon if \[we\] build \[we\] cannot fall.”[^4]
+We will continue to talk of Christ, to rejoice in Christ, that each of us will know to what source we may look for a remission of our sins.[^3] And yes, we will continue to stand firm no matter what storms may rage around us because we know and testify that “it is upon the rock of our Redeemer, who is Christ, the Son of God, that \[we\] must build \[our\] foundation … , a foundation whereon if \[we\] build \[we\] cannot fall.”[^4]
 
 The Lord’s counsel to Joshua is His counsel to you today, the “youth of the noble birthright.”[^5] “Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.”[^6] You are not alone! Though you may be the only Latter-day Saint in your school or your group of friends or even your family, you are not alone. You can rely on the strength of the Lord. As Joshua said to the Israelites, “Sanctify yourselves: for to morrow the Lord will do wonders among you.”[^7] This was Joshua’s call for a return to virtue, and it is the same call to us today. We simply cannot do the work we have been reserved and prepared to do unless we can access the strength and confidence that comes by living a virtuous life.
 
@@ -28,7 +30,7 @@ I have always loved the story of the son of King Louis XVI of France because he 
 
 Like the king’s son, each of you has inherited a royal birthright. Each of you has a divine heritage. “You are literally the royal daughters of our Father in Heaven.”[^13] Each of you was born to be a queen.
 
-When I was attending Brigham Young University, I learned what it truly means to be a queen. I was given a unique opportunity, along with a small group of other students, to meet the prophet, President David O. McKay. I was told to wear my best dress and to be ready to travel early the next morning to Huntsville, Utah, to the home of the prophet. I will never forget the experience I had. As soon as we entered the home, I felt the spirit which filled that home. We were seated in the prophet’s living room, surrounding him. President McKay had on a white suit, and seated next to him was his wife. He asked for each of us to come forward and tell him about ourselves. As I went forward, he held out his hand and held mine, and as I told him about my life and my family, he looked deeply into my eyes.
+When I was attending Brigham Young University, I learned what it truly means to be a queen. I was given a unique opportunity, along with a small group of other students, to meet the prophet, President David O. McKay. I was told to wear my best dress and to be ready to travel early the next morning to Huntsville, Utah, to the home of the prophet. I will never forget the experience I had. As soon as we entered the home, I felt the spirit which filled that home. We were seated in the prophet’s living room, surrounding him. President McKay had on a white suit, and seated next to him was his wife. He asked for each of us to come forward and tell him about ourselves. As I went forward, he held out his hand and held mine, and as I told him about my life and my family, he looked deeply into my eyes.
 
 After we had finished, he leaned back in his chair and reached for his wife’s hand and said, “Now, young women, I would like you to meet *my queen.*” There seated next to him was his wife, Emma Ray McKay. Although she did not wear a crown of sparkling diamonds, nor was she seated on a throne, I *knew* she was a true queen. Her white hair was her crown, and her pure eyes sparkled like jewels. As President and Sister McKay spoke of their family and their life together, their intertwined hands spoke volumes about their love. Joy radiated from their faces. Hers was a beauty that cannot be purchased. It came from years of seeking the best gifts, becoming well educated, seeking knowledge by study and also by faith. It came from years of hard work, of faithfully enduring trials with optimism, trust, strength, and courage. It came from her unwavering devotion and fidelity to her husband, her family, and the Lord.
 
@@ -55,7 +57,7 @@ And so I conclude with the Lord’s words to each of us, His precious daughters:
 
 [^2]: [[D&C 87.8|Doctrine and Covenants 87:8]].
 
-[^3]: See [[2 Nephi 25.26|2 Nephi 25:26]].
+[^3]: See [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^4]: [[Helaman 5.12|Helaman 5:12]].
 
@@ -63,7 +65,7 @@ And so I conclude with the Lord’s words to each of us, His precious daughters:
 
 [^6]: [[Joshua 1.9|Joshua 1:9]].
 
-[^7]: [[Joshua 3.5|Joshua 3:5]]; see also Guide to the Scriptures, [“Sanctification,”](https://churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng) scriptures.lds.org.
+[^7]: [[Joshua 3.5|Joshua 3:5]]; see also Guide to the Scriptures, “[Sanctification](https://www.churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng),” scriptures.lds.org.
 
 [^8]: [[Alma 13.3|Alma 13:3]].
 
@@ -73,15 +75,15 @@ And so I conclude with the Lord’s words to each of us, His precious daughters:
 
 [^11]: [[D&C 25.2|Doctrine and Covenants 25:2, 10, 13]][[D&C 25.10|]][[D&C 25.13|]].
 
-[^12]: See Vaughn J. Featherstone, “The King’s Son,” *New Era,* Nov. 1975, 35.
+[^12]: See Vaughn J. Featherstone, “The King’s Son,” *New Era,* Nov. 1975, 35.
 
 [^13]: Ezra Taft Benson, “To the Young Women of the Church,” *Ensign,* Nov. 1986, 85.
 
-[^14]: Author unknown; see Elaine S. Dalton, “It Shows in Your Face,” *Liahona* and *Ensign,* May 2006, 109.
+[^14]: Author unknown; see Elaine S. Dalton, “It Shows in Your Face,” *Liahona* and *Ensign,* May 2006, 109.
 
 [^15]: [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
-[^16]: Parley P. Pratt, *Key to the Science of Theology,* 10th ed. (1965), 101; emphasis added.
+[^16]: Parley P. Pratt, *Key to the Science of Theology,* 10th ed. (1965), 101; emphasis added.
 
 [^17]: [[Alma 5.14|Alma 5:14]].
 
@@ -91,8 +93,3 @@ And so I conclude with the Lord’s words to each of us, His precious daughters:
 
 [^20]: [[D&C 25.2|Doctrine and Covenants 25:2, 10, 13, 15]][[D&C 25.10|]][[D&C 25.13|]][[D&C 25.15|]].
 
-
-
-
-
-#Divine_Nature #Faith #Holy_Ghost #Morality #Self-Esteem

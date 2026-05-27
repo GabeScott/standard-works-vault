@@ -1,5 +1,7 @@
 # “God Moves in a Mysterious Way His Wonders to Perform”
 
+Spencer W. Kimball
+
 By Elder LeGrand Richards - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
@@ -65,8 +67,3 @@ God bless you. I believe the words of the prophets, and I know that this Church 
 
 
 
-
-
-
-
-#Family_History #Prophecy #Restoration

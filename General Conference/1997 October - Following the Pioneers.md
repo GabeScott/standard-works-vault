@@ -1,5 +1,7 @@
 # Following the Pioneers
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1997 General Conference*
@@ -24,7 +26,7 @@ The foremost quality of our pioneers was *faith.* With faith in God, they did wh
 
 Two companion qualities evident in the lives of our pioneers, early and modern, are *unselfishness* and *sacrifice.* Our Utah pioneers excelled at putting “the general welfare and community goals over individual gain and personal ambition.”[^4] That same quality is evident in the conversion stories of modern pioneers. Upon receiving a testimony of the truth of the restored gospel, they have unhesitatingly sacrificed all that was required to assure that its blessings will be available to their children and to generations unborn. Some have sold all their property to travel to a temple. Some have lost employment. Many have lost friends. Some have even lost parents and extended family, as new converts have been disowned for their faith. This must be the greatest sacrifice of all. Here we recall the Savior’s teaching:
 
-“For I am come to set a man at variance against his father, and the daughter against her mother, and the daughter in law against her mother in law. …
+“For I am come to set a man at variance against his father, and the daughter against her mother, and the daughter in law against her mother in law. …
 
 “He that loveth father or mother more than me is not worthy of me: and he that loveth son or daughter more than me is not worthy of me.
 
@@ -87,11 +89,11 @@ The faith, commitment, and courage of these young men is an example to all of us
 
 
 
-[^1]: In Conference Report, Apr. 1997, 87; or *Ensign,* May 1997, 65.
+[^1]: In Conference Report, Apr. 1997, [[1997 April - “True to the Faith”.md|87]]; or *Ensign,* May 1997, 65.
 
 [^2]: *Our Heritage: A Brief History of The Church of Jesus Christ of Latter-day Saints* (1996), 145.
 
-[^3]: See M. Russell Ballard, in Conference Report, Apr. 1997, 80–84; or *Ensign,* May 1997, 59–61.
+[^3]: See M. Russell Ballard, in Conference Report, Apr. 1997, [[1997 April - “You Have Nothing to Fear from the Journey”.md|80–84]]; or *Ensign,* May 1997, 59–61.
 
 [^4]: Carol Cornwall Madsen, *Journey to Zion: Voices from the Mormon Trail* (1997), 6.
 
@@ -103,10 +105,5 @@ The faith, commitment, and courage of these young men is an example to all of us
 
 [^8]: *The Martin Harris Story,* 147.
 
-[^9]: In Conference Report, Apr. 1997, 91; or *Ensign,* May 1997, 67.
+[^9]: In Conference Report, Apr. 1997, [[1997 April - “True to the Faith”.md|91]]; or *Ensign,* May 1997, 67.
 
-
-
-
-
-#Adversity #Commitment #Faith #Fellowshipping #Honesty #Jesus_Christ #Missionary_Work #Obedience #Pioneers #Sacrifice #Service

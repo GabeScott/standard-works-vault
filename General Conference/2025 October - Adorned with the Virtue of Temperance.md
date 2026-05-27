@@ -1,5 +1,7 @@
 # Adorned with the Virtue of Temperance
 
+Dallin H. Oaks
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2025 General Conference*
@@ -8,7 +10,7 @@ By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2025/10/43soares?lang=eng)
 
-In May 2021, while visiting the renovation work of the Salt Lake Temple, President Russell M. Nelson marveled at the efforts of the pioneers who, with limited resources and unwavering faith, built that sacred edifice, a physical and spiritual masterpiece that has stood the test of time. However, he also observed the effects of erosion, which over time had caused gaps in the temple’s original foundation stones and instability in the masonry, clear signs of the need for structural reinforcement.
+In May 2021, while visiting the renovation work of the Salt Lake Temple, President Russell M. Nelson marveled at the efforts of the pioneers who, with limited resources and unwavering faith, built that sacred edifice, a physical and spiritual masterpiece that has stood the test of time. However, he also observed the effects of erosion, which over time had caused gaps in the temple’s original foundation stones and instability in the masonry, clear signs of the need for structural reinforcement.
 
 Our beloved prophet then taught us that just as it was necessary to implement major measures to strengthen the foundation of the temple in order for it to withstand the forces of nature, we also need to take extraordinary measures—perhaps measures we have never before taken—to strengthen our own spiritual foundation in Jesus Christ. In his memorable message, he left us with two profound questions for personal reflection: “How firm is *your* foundation? And what reinforcements to your testimony and understanding of the gospel are needed?”[^1]
 
@@ -26,11 +28,11 @@ Disciples of Christ who strive to cultivate this Christlike attribute become inc
 
 In his Epistle to Titus, Paul conveyed sacred counsel regarding the qualifications of those who desire to represent the Savior and do His will with faith and dedication. He said they should be hospitable, sober, just, and holy—qualities that clearly reflect the influence of temperance.[^5]
 
-However, Paul warned that they should be “not selfwilled, not soon angry, … \[and\] no striker.”[^6] Such characteristics are contrary to the mind of the Savior and hinder true spiritual growth. In the scriptural context, “not selfwilled” is one who refuses to act with arrogance and pride;[^7] “not soon angry” is one who avoids the natural urge to become impatient and irritated;[^8] and “no striker” refers to one who rejects contentious, aggressive, and harsh behavior verbally, physically, and emotionally.[^9] As we strive to change our behavior with faith and humility, we can be firmly anchored to the solid rock of His grace[^10] and become pure and polished instruments in His holy hands.
+However, Paul warned that they should be “not selfwilled, not soon angry, … \[and\] no striker.”[^6] Such characteristics are contrary to the mind of the Savior and hinder true spiritual growth. In the scriptural context, “not selfwilled” is one who refuses to act with arrogance and pride;[^7] “not soon angry” is one who avoids the natural urge to become impatient and irritated;[^8] and “no striker” refers to one who rejects contentious, aggressive, and harsh behavior verbally, physically, and emotionally.[^9] As we strive to change our behavior with faith and humility, we can be firmly anchored to the solid rock of His grace[^10] and become pure and polished instruments in His holy hands.
 
 In reflecting on the need to cultivate the virtue of temperance, I am reminded of the words of Hannah, the mother of the prophet Samuel—a woman of remarkable faith who, even after great trials, offered a song of gratitude to the Lord. She said, “Talk no more so exceeding proudly; let not arrogancy come out of your mouth: for the Lord is a God of knowledge, and by him actions are weighed.”[^11] Her song is more than a prayer—it is a self-addressed invitation to act with humility, self-control, and moderation. Hannah reminds us that true spiritual strength is not expressed in impulsive reactions or haughty words but in temperate, thoughtful attitudes aligned with the Lord’s wisdom.
 
-Oftentimes, the world exalts behaviors born of aggressiveness, arrogance, impatience, and excessiveness, often justifying such attitudes by the pressures of daily life and the inclination toward validation and popularity. When we turn our gaze away from the virtue of temperance and ignore the gentle and moderating influence of the Holy Spirit in our way of acting and speaking, we easily fall into the enemy’s trap, which inevitably leads us to utter words and adopt attitudes we will deeply regret, whether in our social, family, or even ecclesiastical relationships. The gospel of Jesus Christ invites us to exercise this virtue especially in times of challenge, for it is precisely on these occasions that the true character of an individual is revealed. As Martin Luther King Jr. once said, “The ultimate measure of a man is not where he stands in moments of comfort and convenience, but where he stands at times of challenge and controversy.”[^12]
+Oftentimes, the world exalts behaviors born of aggressiveness, arrogance, impatience, and excessiveness, often justifying such attitudes by the pressures of daily life and the inclination toward validation and popularity. When we turn our gaze away from the virtue of temperance and ignore the gentle and moderating influence of the Holy Spirit in our way of acting and speaking, we easily fall into the enemy’s trap, which inevitably leads us to utter words and adopt attitudes we will deeply regret, whether in our social, family, or even ecclesiastical relationships. The gospel of Jesus Christ invites us to exercise this virtue especially in times of challenge, for it is precisely on these occasions that the true character of an individual is revealed. As Martin Luther King Jr. once said, “The ultimate measure of a man is not where he stands in moments of comfort and convenience, but where he stands at times of challenge and controversy.”[^12]
 
 As covenant people, we are called to live with our hearts firmly rooted in the sacred promises we have made to the Lord, carefully following the pattern He established through His perfect example.[^13] In return, He has promised, “Verily, verily, I say unto you, that this is my doctrine, and whoso buildeth upon this buildeth upon my rock, and the gates of hell shall not prevail against them.”[^14]
 
@@ -44,14 +46,14 @@ At the conclusion of that sacred gathering, we greeted each one of them. Every h
 
 Jesus Christ, the greatest of all, suffered for us until He bled from every pore, yet He never allowed anger to inflame His heart, nor did aggressive, offensive, or profane words escape His lips, even amid such affliction. With perfect temperance and unmatched meekness, He did not think of Himself but of each of God’s children—past, present, and future. The Apostle Peter testified of Christ’s sublime attitude when he declared, “Who, when he was reviled, reviled not again; when he suffered, he threatened not; but committed himself to him that judgeth righteously.”[^19] Even in the midst of His greatest agony, the Savior demonstrated perfect and divine temperance. He declared, “Nevertheless, glory be to the Father, and I partook and finished my preparations unto the children of men.”[^20]
 
-My beloved brothers and sisters, I extend an earnest invitation to all of us to adorn our minds and hearts with the Christlike virtue of temperance as a sacred response to the prophetic call of our dear President Russell M. Nelson. As we strive with faith and diligence to weave temperance into our actions and words, I testify that we will strengthen and anchor our lives more securely upon the sure foundation of our Redeemer.
+My beloved brothers and sisters, I extend an earnest invitation to all of us to adorn our minds and hearts with the Christlike virtue of temperance as a sacred response to the prophetic call of our dear President Russell M. Nelson. As we strive with faith and diligence to weave temperance into our actions and words, I testify that we will strengthen and anchor our lives more securely upon the sure foundation of our Redeemer.
 
 I solemnly bear my testimony that the constant pursuit of temperance purifies our soul and sanctifies our heart before the Savior, gently drawing us nearer to Him and preparing us, with hope and peace, for that glorious day when we shall meet Him at His Second Coming. I share these sacred words in the name of our Savior, Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93.
+[^1]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93.
 
 [^2]: See Lucy Mack Smith, [History, 1844–1845, book 18, page 5](https://www.josephsmithpapers.org/paper-summary/lucy-mack-smith-history-1844-1845/221), josephsmithpapers.org. Although the phrase “firm as the pillars of heaven” was given in a blessing to Hyrum Smith, it seems fitting for Joseph Knight as well.
 
@@ -63,33 +65,31 @@ I solemnly bear my testimony that the constant pursuit of temperance purifies ou
 
 [^6]: [[Titus 1.7|Titus 1:7]].
 
-[^7]: See Guide to the Scriptures, “[Pride](https://churchofjesuschrist.org/study/scriptures/gs/pride?lang=eng),” Gospel Library.
+[^7]: See Guide to the Scriptures, “[Pride](https://www.churchofjesuschrist.org/study/scriptures/gs/pride?lang=eng),” Gospel Library.
 
-[^8]: See Guide to the Scriptures, “[Anger](https://churchofjesuschrist.org/study/scriptures/gs/anger?lang=eng),” Gospel Library.
+[^8]: See Guide to the Scriptures, “[Anger](https://www.churchofjesuschrist.org/study/scriptures/gs/anger?lang=eng),” Gospel Library.
 
-[^9]: See Guide to the Scriptures, “[Contention](https://churchofjesuschrist.org/study/scriptures/gs/contention?lang=eng),” Gospel Library.
+[^9]: See Guide to the Scriptures, “[Contention](https://www.churchofjesuschrist.org/study/scriptures/gs/contention?lang=eng),” Gospel Library.
 
-[^10]: See [[2 Nephi 25.23|2 Nephi 25:23]].
+[^10]: See [[2 Nephi 25.23|2 Nephi 25:23]].
 
-[^11]: [[1 Samuel 2.3|1 Samuel 2:3]].
+[^11]: [[1 Samuel 2.3|1 Samuel 2:3]].
 
-[^12]: Martin Luther King Jr., *Strength to Love* (1964), 25; see also [[Proverbs 15.1|Proverbs 15:1]]; [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
+[^12]: Martin Luther King Jr., *Strength to Love* (1964), 25; see also [[Proverbs 15.1|Proverbs 15:1]]; [[D&C 121.45|Doctrine and Covenants 121:45–46]][[D&C 121.46|]].
 
-[^13]: See [[3 Nephi 27.27|3 Nephi 27:27]]; see also “[Christlike Attributes](https://churchofjesuschrist.org/study/video/mormon-messages-for-youth/2014-01-001-christlike-attributes?lang=eng)” (video), Gospel Library.
+[^13]: See [[3 Nephi 27.27|3 Nephi 27:27]]; see also “[Christlike Attributes](https://www.churchofjesuschrist.org/study/video/mormon-messages-for-youth/2014-01-001-christlike-attributes?lang=eng)” (video), Gospel Library.
 
-[^14]: [[3 Nephi 11.39|3 Nephi 11:39]].
+[^14]: [[3 Nephi 11.39|3 Nephi 11:39]].
 
 [^15]: [[D&C 31.9|Doctrine and Covenants 31:9]].
 
-[^16]: [[3 Nephi 11.37|3 Nephi 11:37]]; see also [[Mark 10.15|Mark 10:15]]; [[Luke 18.17|Luke 18:17]]; [[Mosiah 3.19|Mosiah 3:19]]; [[3 Nephi 9.22|3 Nephi 9:22]].
+[^16]: [[3 Nephi 11.37|3 Nephi 11:37]]; see also [[Mark 10.15|Mark 10:15]]; [[Luke 18.17|Luke 18:17]]; [[Mosiah 3.19|Mosiah 3:19]]; [[3 Nephi 9.22|3 Nephi 9:22]].
 
-[^17]: See [[3 Nephi 12.22|3 Nephi 12:22–24]][[3 Nephi 12.23|]][[3 Nephi 12.24|]]; see also Guide to the Scriptures, “[Forgive](https://churchofjesuschrist.org/study/scriptures/gs/forgive?lang=eng),” Gospel Library.
+[^17]: See [[3 Nephi 12.22|3 Nephi 12:22–24]][[3 Nephi 12.23|]][[3 Nephi 12.24|]]; see also Guide to the Scriptures, “[Forgive](https://www.churchofjesuschrist.org/study/scriptures/gs/forgive?lang=eng),” Gospel Library.
 
-[^18]: See [[3 Nephi 22.10|3 Nephi 22:10]]; see also [[Psalms 94.14|Psalm 94:14]]; [[D&C 35.25|Doctrine and Covenants 35:25]].
+[^18]: See [[3 Nephi 22.10|3 Nephi 22:10]]; see also [[Psalms 94.14|Psalm 94:14]]; [[D&C 35.25|Doctrine and Covenants 35:25]].
 
-[^19]: [[1 Peter 2.23|1 Peter 2:23]].
+[^19]: [[1 Peter 2.23|1 Peter 2:23]].
 
+[^20]: [[D&C 19.19|Doctrine and Covenants 19:19]].
 
-
-
-#Adversity #Anger #Discipleship #Jesus_Christ #Patience

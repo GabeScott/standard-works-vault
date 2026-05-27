@@ -1,13 +1,12 @@
 # Withdraw, Withdrew, Withdrawn
 
-
 *See also* [[Darkness, Spiritual.md|Darkness, Spiritual]]; [[Holy Ghost, Loss of.md|Holy Ghost, Loss of]]
 
 he *withdrew* himself into the wilderness, and prayed, [[Luke 5.16|Luke 5:16]].
 
-*withdraw* yourselves from ... disorderly, [[2 Thessalonians 3.6|2 Thessalonians 3:6]].
+*withdraw* yourselves from … disorderly, [[2 Thessalonians 3.6|2 Thessalonians 3:6]].
 
-men of corrupt minds ... from such *withdraw* thyself, [[1 Timothy 6.5|1 Timothy 6:5]].
+men of corrupt minds … from such *withdraw* thyself, [[1 Timothy 6.5|1 Timothy 6:5]].
 
 ye do *withdraw* yourselves from the Spirit of the Lord, [[Mosiah 2.36|Mosiah 2:36]].
 

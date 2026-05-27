@@ -1,5 +1,7 @@
 # This Road We Call Life
 
+Gordon B. Hinckley
+
 By Elder Ben B. Banks - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -10,7 +12,7 @@ By Elder Ben B. Banks - *Of the Presidency of the Seventy*
 
 Brethren, I am delighted to be with you this evening. I too want to speak specifically with the young men of the Aaronic Priesthood. I love you and care very much about you.
 
-In the new *For the Strength of Youth* booklet, the First Presidency says to you: “Our beloved young men … , we have great confidence in you. You are choice spirits who have come forth in this day when the responsibilities and opportunities, as well as the temptations, are the greatest. You are at the beginning of your journey through this mortal life. Your Heavenly Father wants your life to be joyful and to lead you back into His presence. The decisions you make now will determine much of what will follow during your life and throughout eternity” (page 2).
+In the new *For the Strength of Youth* booklet, the First Presidency says to you: “Our beloved young men … , we have great confidence in you. You are choice spirits who have come forth in this day when the responsibilities and opportunities, as well as the temptations, are the greatest. You are at the beginning of your journey through this mortal life. Your Heavenly Father wants your life to be joyful and to lead you back into His presence. The decisions you make now will determine much of what will follow during your life and throughout eternity” (page 2).
 
 I hope in some small way this evening that you can learn from my nearly 70 years of traveling this road we call life. Your parents or grandparents may have already told you this: “The older you get, the quicker time seems to pass.” It is as though one minute you are 12 with your whole life in front of you, and the next minute you are nearly 70 with an expanding waistline in front of you!
 
@@ -42,7 +44,7 @@ We had a decision to make. Do we try to reach our planned destination, or do we 
 
 Here in mortality we are called upon to make serious decisions, the outcome of which can have a lasting effect upon our spiritual future. I encourage you to always be worthy to seek for the Spirit to help you always choose the right.
 
-In the Book of Mormon, Nephi tells us: “Then are ye in this strait and narrow path which leads to eternal life; yea, ye have entered in by the gate; ye have done according to the commandments of the Father and the Son; and ye have received the Holy Ghost” ([[2 Nephi 31.18|2 Ne. 31:18]]).
+In the Book of Mormon, Nephi tells us: “Then are ye in this strait and narrow path which leads to eternal life; yea, ye have entered in by the gate; ye have done according to the commandments of the Father and the Son; and ye have received the Holy Ghost” ([[2 Nephi 31.18|2 Ne. 31:18]]).
 
 As our family concluded the 225-mile bicycle journey, we learned that no matter how difficult things can become on this road we call life, great happiness is waiting for those who keep the commandments and endure to the end.
 
@@ -57,8 +59,3 @@ Of this I so testify in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Agency #Goals #Holy_Ghost #Joy

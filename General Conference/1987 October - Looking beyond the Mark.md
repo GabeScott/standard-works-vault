@@ -1,5 +1,7 @@
 # Looking beyond the Mark
 
+Ezra Taft Benson
+
 By Elder Dean L. Larsen - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -26,9 +28,9 @@ To Timothy, Paul wrote:
 
 “For the time will come when they will not endure sound doctrine; but after their own lusts shall they heap to themselves teachers, having itching ears;
 
-“And they shall turn away their ears from the truth, and shall be turned unto fables” ([[2 Timothy 4.2|2 Tim. 4:2–4]][[2 Timothy 4.3|]][[2 Timothy 4.4|]]).
+“And they shall turn away their ears from the truth, and shall be turned unto fables” ([[2 Timothy 4.2|2 Tim. 4:2–4]][[2 Timothy 4.3|]][[2 Timothy 4.4|]]).
 
-Earlier, Paul had counseled Timothy not to “give heed to fables and endless genealogies, which minister questions, rather than godly edifying which is in faith” ([[1 Timothy 1.4|1 Tim. 1:4]]).
+Earlier, Paul had counseled Timothy not to “give heed to fables and endless genealogies, which minister questions, rather than godly edifying which is in faith” ([[1 Timothy 1.4|1 Tim. 1:4]]).
 
 As I have wondered how we might protect ourselves in the present day from “going beyond the mark,” I have resolved to do several things which I share with you for whatever application you may wish to make in your own lives.
 
@@ -61,8 +63,3 @@ May God help us to do so and to keep from looking beyond that mark, I pray earne
 
 
 
-
-
-
-
-#Spirituality #Truth

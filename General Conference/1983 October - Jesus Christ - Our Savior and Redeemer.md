@@ -1,5 +1,7 @@
 # Jesus Christ: Our Savior and Redeemer
 
+Gordon B. Hinckley
+
 By President Ezra Taft Benson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
@@ -34,11 +36,11 @@ Once this truth about the One we worship as the Son of God is understood, we can
 
 As the great *Lawgiver,* He gave laws and commandments for the benefit of all our Heavenly Father’s children. Indeed, His law fulfilled all previous covenants with the house of Israel. Said He:
 
-“Behold, I am the law, and the light. Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life.” ([[3 Nephi 15.9|3 Ne. 15:9]].)
+“Behold, I am the law, and the light. Look unto me, and endure to the end, and ye shall live; for unto him that endureth to the end will I give eternal life.” ([[3 Nephi 15.9|3 Ne. 15:9]].)
 
-His law required all mankind, regardless of station in life, to repent and be baptized in His name and receive the Holy Ghost as the sanctifying power to cleanse themselves from sin. Compliance with these laws and ordinances will enable each individual to stand guiltless before Him at the day of judgment. Those who so comply are likened to one who builds his house on a firm foundation so that even “the gates of hell shall not prevail against them.” ([[3 Nephi 11.39|3 Ne. 11:39]].)
+His law required all mankind, regardless of station in life, to repent and be baptized in His name and receive the Holy Ghost as the sanctifying power to cleanse themselves from sin. Compliance with these laws and ordinances will enable each individual to stand guiltless before Him at the day of judgment. Those who so comply are likened to one who builds his house on a firm foundation so that even “the gates of hell shall not prevail against them.” ([[3 Nephi 11.39|3 Ne. 11:39]].)
 
-Appropriately we praise Him as the Rock of our salvation. (See [[2 Nephi 4.30|2 Ne. 4:30]].)
+Appropriately we praise Him as the Rock of our salvation. (See [[2 Nephi 4.30|2 Ne. 4:30]].)
 
 To have any measure of appreciation and gratitude for what He accomplished in our behalf, we must remember these vital truths:
 
@@ -62,7 +64,7 @@ We may never understand nor comprehend in mortality *how* He accomplished what H
 
 Everything He did was prompted by His unselfish, infinite love for us. Hear His own words:
 
-“For behold, I, God, have suffered these things for all, that they might not suffer if they would repent; …
+“For behold, I, God, have suffered these things for all, that they might not suffer if they would repent; …
 
 “Which suffering caused myself, even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit—and would that I might not drink the bitter cup, and shrink.” ([[D&C 19.16|D&C 19:16, 18]][[D&C 19.18|]].)
 
@@ -126,11 +128,11 @@ Faith in Him means trusting that He has all power over all men and all nations. 
 
 His gospel is the perfect prescription for all human problems and social ills.
 
-But His gospel is only effective as it is applied in our lives. Therefore, we must “feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].)
+But His gospel is only effective as it is applied in our lives. Therefore, we must “feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].)
 
 Unless we *do* His teachings, we do not demonstrate faith in Him.
 
-Think what a different world this would be if all mankind would do as He said: “Love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
+Think what a different world this would be if all mankind would do as He said: “Love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind. …
 
 “Thou shalt love thy neighbour as thyself.” ([[Matthew 22.37|Matt. 22:37, 39]][[Matthew 22.39|]].)
 
@@ -138,7 +140,7 @@ What then is the answer to the question “What is to be done?” concerning the
 
 “Believe in God; believe that he is, and that he created all things, both in heaven and in earth; believe that he has *all* wisdom, and *all* power, both in heaven and in earth; believe that man doth not comprehend all the things which the Lord can comprehend.
 
-“… Believe that ye must repent of your sins and forsake them, and humble yourselves before God; and ask in sincerity of heart that he would forgive you; and now, if you believe all these things *see that ye do them.*” ([[Mosiah 4.9|Mosiah 4:9–10]][[Mosiah 4.10|]]; italics added.)
+“… Believe that ye must repent of your sins and forsake them, and humble yourselves before God; and ask in sincerity of heart that he would forgive you; and now, if you believe all these things *see that ye do them.*” ([[Mosiah 4.9|Mosiah 4:9–10]][[Mosiah 4.10|]]; italics added.)
 
 As members of the Church, we are “under obligation to make the sinless Son of Man \[our\] ideal—the one perfect being who ever walked the earth.
 
@@ -154,7 +156,7 @@ As members of the Church, we are “under obligation to make the sinless Son of 
 
 “The immaculate Son of our Eternal Father
 
-“The Light, the Life, the Way.” (David O. McKay, *Improvement Era,* June 1951, p. 478.)
+“The Light, the Life, the Way.” (David O. McKay, *Improvement Era,* June 1951, p. 478.)
 
 With all my soul, I love Him.
 
@@ -167,8 +169,3 @@ God bless us all to believe Him, to accept Him, to worship Him, and to fully tru
 
 
 
-
-
-
-
-#Faith #Jesus_Christ

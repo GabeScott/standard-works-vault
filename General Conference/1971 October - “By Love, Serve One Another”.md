@@ -1,6 +1,8 @@
 # “By Love, Serve One Another”
 
-By President S. Dilworth Young - *Of the First Council of the Seventy*
+Joseph Fielding Smith
+
+By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -10,7 +12,7 @@ It is my desire to be led by the Spirit of the Lord in what I say. The wards and
 
 This may be because they do not understand the responsibility they have to the Church of Jesus Christ. Each of us has the same general calling. Each of us has the same responsibility as a result of entering into the waters of baptism and making the covenant. The Lord will not hold us blameless if we allow organizational responsibility, or the lack of it, to interfere with this special calling. Let me point out some necessary obligations in the words of the prophets.
 
-Jeremiah said to a people who were rebellious and recalcitrant: “… do no violence to the stranger \[he may have needed to say it in that day\], the fatherless, nor the widow.” ([[Jeremiah 22.3|Jer. 22:3]].)
+Jeremiah said to a people who were rebellious and recalcitrant: “… do no violence to the stranger \[he may have needed to say it in that day\], the fatherless, nor the widow.” ([[Jeremiah 22.3|Jer. 22:3]].)
 
 Of a king he said with approbation, “He judged the cause of the poor and needy; then it was well with him: was not this to know me? saith the Lord.” ([[Jeremiah 22.16|Jer. 22:16]].)
 
@@ -18,7 +20,7 @@ These thoughts were later reiterated by the Lord through Micah when he told the 
 
 Paul told the saints to be kind to one another, tenderhearted, forgiving, having charity one to another. ([[Ephesians 4.32|Eph. 4:32]].)
 
-Alma was a little more specific. He urged them to cry to the Lord over all of their activities and their possessions and for the welfare of themselves and those about them. Their whole attitude should be one of prayer to the Lord for all they had and all they were. Then he said, “… do not suppose that this is all; for after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.
+Alma was a little more specific. He urged them to cry to the Lord over all of their activities and their possessions and for the welfare of themselves and those about them. Their whole attitude should be one of prayer to the Lord for all they had and all they were. Then he said, “… do not suppose that this is all; for after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need—I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith.
 
 “Therefore, if ye do not remember to be charitable, ye are as dross, which the refiners do cast out, (it being of no worth) and is trodden under foot of men.” ([[Alma 34.28|Alma 34:28–29]][[Alma 34.29|]].)
 
@@ -53,8 +55,3 @@ I know that Jesus Christ lives, and that his Holy Father lives also. I sustain P
 
 
 
-
-
-
-
-#Love #Service

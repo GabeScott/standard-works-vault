@@ -1,6 +1,8 @@
 # The Savior Wants to Forgive
 
-By Elder Craig A. Cardon - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Craig A. Cardon - *Of the Seventy*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -64,7 +66,7 @@ His message is the same today.
 
 Our Heavenly Father knows what we are facing, that we all sin and “come short of the glory of God”[^49] again and again. He sent His Son, who “knoweth the weakness of man and how to succor them who are tempted.”[^50] His Son teaches us to “pray always that \[we\] enter *not* into temptation.”[^51] We are told to “cry unto \[God\] for *mercy;* for he is mighty to save.”[^52] The Savior commands us to repent[^53] and to forgive.[^54] And although repentance is not easy, as we strive with all our hearts to obey His gospel, He gives this promise: “Verily I say unto you, notwithstanding \[your\] sins, *my bowels are filled with compassion towards \[you\].* I will not utterly cast \[you\] off; *and in the day of wrath I will remember mercy.*”[^55] The Savior wants to forgive.
 
-Each week the Mormon Tabernacle Choir begins its inspiring broadcast with the uplifting words of William W. Phelps’s familiar hymn “Gently Raise the Sacred Strain.” Not as familiar are the comforting words of the fourth verse:
+Each week the Mormon Tabernacle Choir begins its inspiring broadcast with the uplifting words of William W. Phelps’s familiar hymn “Gently Raise the Sacred Strain.” Not as familiar are the comforting words of the fourth verse:
 
 >Holy, holy is the Lord.
 >Precious, precious is his word: …
@@ -98,15 +100,15 @@ I invite you to remember and believe the words of the Lord and to exercise faith
 
 [^10]: [[Luke 5.24|Luke 5:24]]; emphasis added; see also [[Matthew 9.6|Matthew 9:6–7]][[Matthew 9.7|]]; [[Mark 2.10|Mark 2:10–12]][[Mark 2.11|]][[Mark 2.12|]].
 
-[^11]: See [[1 Corinthians 6.9|1 Corinthians 6:9–10]][[1 Corinthians 6.10|]]; [[Alma 11.34|Alma 11:34, 37]][[Alma 11.37|]]; [[Helaman 5.10|Helaman 5:10–11]][[Helaman 5.11|]].
+[^11]: See [[1 Corinthians 6.9|1 Corinthians 6:9–10]][[1 Corinthians 6.10|]]; [[Alma 11.34|Alma 11:34, 37]][[Alma 11.37|]]; [[Helaman 5.10|Helaman 5:10–11]][[Helaman 5.11|]].
 
-[^12]: See [[2 Peter 2.20|2 Peter 2:20]]; [[James 2.10|James 2:10]]; [[D&C 82.7|Doctrine and Covenants 82:7]].
+[^12]: See [[2 Peter 2.20|2 Peter 2:20]]; [[James 2.10|James 2:10]]; [[D&C 82.7|Doctrine and Covenants 82:7]].
 
 [^13]: See [[Isaiah 1.18|Isaiah 1:18]]; [[Jeremiah 31.34|Jeremiah 31:34]]; [[Luke 7.36|Luke 7:36–50]][[Luke 7.37|]][[Luke 7.38|]][[Luke 7.39|]][[Luke 7.40|]][[Luke 7.41|]][[Luke 7.42|]][[Luke 7.43|]][[Luke 7.44|]][[Luke 7.45|]][[Luke 7.46|]][[Luke 7.47|]][[Luke 7.48|]][[Luke 7.49|]][[Luke 7.50|]]; [[Enos 1.5|Enos 1:5]]; [[Alma 24.10|Alma 24:10]]; [[Moroni 6.8|Moroni 6:8]]; [[D&C 1.32|Doctrine and Covenants 1:32]]; [[D&C 58.42|58:42–43]][[D&C 58.43|]].
 
 [^14]: See [[Jacob 4.7|Jacob 4:7]]; [[Alma 14.26|Alma 14:26]]; [[Moroni 10.7|Moroni 10:7]].
 
-[^15]: [[Mosiah 3.19|Mosiah 3:19]]; see also [[2 Nephi 10.24|2 Nephi 10:24–25]][[2 Nephi 10.25|]].
+[^15]: [[Mosiah 3.19|Mosiah 3:19]]; see also [[2 Nephi 10.24|2 Nephi 10:24–25]][[2 Nephi 10.25|]].
 
 [^16]: See [[Alma 32.28|Alma 32:28, 34]][[Alma 32.34|]].
 
@@ -120,7 +122,7 @@ I invite you to remember and believe the words of the Lord and to exercise faith
 
 [^21]: [[D&C 64.2|Doctrine and Covenants 64:2]]; emphasis added.
 
-[^22]: See [[1 Nephi 20.9|1 Nephi 20:9–11]][[1 Nephi 20.10|]][[1 Nephi 20.11|]]; [[D&C 24.2|Doctrine and Covenants 24:2]]; [[D&C 50.41|50:41]]; [[D&C 63.47|63:47]]; [[D&C 108.1|108:1–8]][[D&C 108.2|]][[D&C 108.3|]][[D&C 108.4|]][[D&C 108.5|]][[D&C 108.6|]][[D&C 108.7|]][[D&C 108.8|]].
+[^22]: See [[1 Nephi 20.9|1 Nephi 20:9–11]][[1 Nephi 20.10|]][[1 Nephi 20.11|]]; [[D&C 24.2|Doctrine and Covenants 24:2]]; [[D&C 50.41|50:41]]; [[D&C 63.47|63:47]]; [[D&C 108.1|108:1–8]][[D&C 108.2|]][[D&C 108.3|]][[D&C 108.4|]][[D&C 108.5|]][[D&C 108.6|]][[D&C 108.7|]][[D&C 108.8|]].
 
 [^23]: [[D&C 64.3|Doctrine and Covenants 64:3]].
 
@@ -142,19 +144,19 @@ I invite you to remember and believe the words of the Lord and to exercise faith
 
 [^32]: See [[Mosiah 15.26|Mosiah 15:26]].
 
-[^33]: See [[1 Samuel 16.7|1 Samuel 16:7]]; [[Psalms 24.3|Psalm 24:3–4]][[Psalms 24.4|]]; [[Proverbs 23.7|Proverbs 23:7]]; [[Matthew 15.18|Matthew 15:18–20]][[Matthew 15.19|]][[Matthew 15.20|]]; [[Mark 7.20|Mark 7:20–23]][[Mark 7.21|]][[Mark 7.22|]][[Mark 7.23|]]; [[Hebrews 3.12|Hebrews 3:12]]; [[3 Nephi 12.19|3 Nephi 12:19]]; [[D&C 59.8|Doctrine and Covenants 59:8]]; [[D&C 64.34|64:34]].
+[^33]: See [[1 Samuel 16.7|1 Samuel 16:7]]; [[Psalms 24.3|Psalm 24:3–4]][[Psalms 24.4|]]; [[Proverbs 23.7|Proverbs 23:7]]; [[Matthew 15.18|Matthew 15:18–20]][[Matthew 15.19|]][[Matthew 15.20|]]; [[Mark 7.20|Mark 7:20–23]][[Mark 7.21|]][[Mark 7.22|]][[Mark 7.23|]]; [[Hebrews 3.12|Hebrews 3:12]]; [[3 Nephi 12.19|3 Nephi 12:19]]; [[D&C 59.8|Doctrine and Covenants 59:8]]; [[D&C 64.34|64:34]].
 
 [^34]: See [[D&C 20.29|Doctrine and Covenants 20:29–30]][[D&C 20.30|]]; [[D&C 121.37|121:37]].
 
 [^35]: [[D&C 117.11|Doctrine and Covenants 117:11]].
 
-[^36]: See [Bible Dictionary, “Nicolaitans.”](https://churchofjesuschrist.org/study/scriptures/bd/nicolaitans?lang=eng)
+[^36]: See Bible Dictionary, “[[BD Nicolaitans|Nicolaitans]].”
 
 [^37]: See [[Revelation 2.6|Revelation 2:6, 15]][[Revelation 2.15|]].
 
 [^38]: [[D&C 56.15|Doctrine and Covenants 56:15]].
 
-[^39]: See [[2 Nephi 25.23|2 Nephi 25:23]]; [[D&C 138.4|Doctrine and Covenants 138:4]].
+[^39]: See [[2 Nephi 25.23|2 Nephi 25:23]]; [[D&C 138.4|Doctrine and Covenants 138:4]].
 
 [^40]: [[Moses 7.21|Moses 7:21]].
 
@@ -162,15 +164,15 @@ I invite you to remember and believe the words of the Lord and to exercise faith
 
 [^42]: See [[John 15.22|John 15:22]]; [[D&C 1.33|Doctrine and Covenants 1:33]]; [[D&C 82.3|82:3]].
 
-[^43]: See [[Alma 41.5|Alma 41:5–6]][[Alma 41.6|]]; [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 137.9|Doctrine and Covenants 137:9]].
+[^43]: See [[Alma 41.5|Alma 41:5–6]][[Alma 41.6|]]; [[3 Nephi 9.20|3 Nephi 9:20]]; [[D&C 137.9|Doctrine and Covenants 137:9]].
 
-[^44]: See [[1 Nephi 15.33|1 Nephi 15:33]]; [[Alma 41.3|Alma 41:3–4]][[Alma 41.4|]]; [[D&C 137.9|Doctrine and Covenants 137:9]].
+[^44]: See [[1 Nephi 15.33|1 Nephi 15:33]]; [[Alma 41.3|Alma 41:3–4]][[Alma 41.4|]]; [[D&C 137.9|Doctrine and Covenants 137:9]].
 
 [^45]: See [[Matthew 6.14|Matthew 6:14–15]][[Matthew 6.15|]]; [[D&C 64.8|Doctrine and Covenants 64:8–10]][[D&C 64.9|]][[D&C 64.10|]]; [[D&C 98.39|98:39–48]][[D&C 98.40|]][[D&C 98.41|]][[D&C 98.42|]][[D&C 98.43|]][[D&C 98.44|]][[D&C 98.45|]][[D&C 98.46|]][[D&C 98.47|]][[D&C 98.48|]].
 
 [^46]: *Preach My Gospel: A Guide to Missionary Service* (2004), 189.
 
-[^47]: Thomas S. Monson, “See Others as They May Become,” *Ensign* or *Liahona,* Nov. 2012, 68, 69; emphasis added.
+[^47]: Thomas S. Monson, “See Others as They May Become,” *Ensign* or *Liahona,* Nov. 2012, 68, 69; emphasis added.
 
 [^48]: [[D&C 38.10|Doctrine and Covenants 38:10–11, 14]][[D&C 38.11|]][[D&C 38.14|]]; emphasis added.
 
@@ -180,7 +182,7 @@ I invite you to remember and believe the words of the Lord and to exercise faith
 
 [^51]: [[D&C 61.39|Doctrine and Covenants 61:39]]; emphasis added.
 
-[^52]: [[Alma 34.18|Alma 34:18]]; emphasis added; see also [[2 Nephi 31.19|2 Nephi 31:19]]; [[Alma 7.14|Alma 7:14]].
+[^52]: [[Alma 34.18|Alma 34:18]]; emphasis added; see also [[2 Nephi 31.19|2 Nephi 31:19]]; [[Alma 7.14|Alma 7:14]].
 
 [^53]: See [[Helaman 13.11|Helaman 13:11]]; [[D&C 19.4|Doctrine and Covenants 19:4, 13–21]][[D&C 19.13|]][[D&C 19.14|]][[D&C 19.15|]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]][[D&C 19.20|]][[D&C 19.21|]].
 
@@ -192,8 +194,3 @@ I invite you to remember and believe the words of the Lord and to exercise faith
 
 [^57]: See [[Alma 34.15|Alma 34:15–17]][[Alma 34.16|]][[Alma 34.17|]].
 
-
-
-
-
-#Forgiveness #Jesus_Christ #Repentance

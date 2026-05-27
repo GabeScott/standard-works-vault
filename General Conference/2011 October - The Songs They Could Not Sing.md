@@ -1,6 +1,8 @@
 # The Songs They Could Not Sing
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+Richard G. Scott
+
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -48,7 +50,7 @@ It is instructive that the second Latter-day Saint connection with the *Titanic*
 
 There are many kinds of challenges. Some give us necessary experiences. Adverse results in this mortal life are not evidence of lack of faith or of an imperfection in our Father in Heaven’s overall plan. The refiner’s fire is real, and qualities of character and righteousness that are forged in the furnace of affliction perfect and purify us and prepare us to meet God.
 
-When the Prophet Joseph Smith was a prisoner in Liberty Jail, the Lord declared to him that multiple calamities can befall mankind. The Savior stated in part, “If thou be cast into the deep; if the billowing surge conspire against thee; if fierce winds become thine enemy; … and all the elements combine to hedge up the way; … these things shall give thee experience, and shall be for thy good.”[^20] The Savior concluded His instruction: “Thy days are known, and thy years shall not be numbered less; therefore, fear not … , for God shall be with you forever and ever.”[^21]
+When the Prophet Joseph Smith was a prisoner in Liberty Jail, the Lord declared to him that multiple calamities can befall mankind. The Savior stated in part, “If thou be cast into the deep; if the billowing surge conspire against thee; if fierce winds become thine enemy; … and all the elements combine to hedge up the way; … these things shall give thee experience, and shall be for thy good.”[^20] The Savior concluded His instruction: “Thy days are known, and thy years shall not be numbered less; therefore, fear not … , for God shall be with you forever and ever.”[^21]
 
 Some challenges result from the agency of others. Agency is essential for individual spiritual growth and development. Evil conduct is an element of agency. Captain Moroni explained this very important doctrine: “The Lord suffereth the righteous to be slain that his justice and judgment may come upon the wicked.” He made it clear that the righteous are not lost but “enter into the rest of the Lord their God.”[^22] The wicked will be held accountable for the atrocities they perpetrate.[^23]
 
@@ -56,7 +58,7 @@ Some challenges come from disobedience to God’s laws. Health problems resultin
 
 The incidence of divorce because of infidelity is also significant. Many of these trials and tribulations could be avoided by obedience to God’s laws.[^25]
 
-My beloved mission president, Elder Marion D. Hanks (who passed away in August), asked us as missionaries to memorize a statement to resist mortal challenges: “There is no chance, no fate, no destiny that can circumvent or hinder or control the firm resolve of a determined soul.”[^26]
+My beloved mission president, Elder Marion D. Hanks (who passed away in August), asked us as missionaries to memorize a statement to resist mortal challenges: “There is no chance, no fate, no destiny that can circumvent or hinder or control the firm resolve of a determined soul.”[^26]
 
 He acknowledged that this doesn’t apply to all the challenges we encounter but is true in spiritual matters. I have appreciated his counsel in my life.
 
@@ -77,13 +79,13 @@ The Savior said: “Therefore, let your hearts be comforted. … Be still and kn
 
 [^1]: See [[John 16.33|John 16:33]].
 
-[^2]: See [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]]; see also [[2 Nephi 32.7|2 Nephi 32:7]].
+[^2]: See [[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]]; see also [[2 Nephi 32.7|2 Nephi 32:7]].
 
-[^3]: See Boyd K. Packer, “The Play and the Plan” (Church Educational System fireside for young adults, May 7, 1995), 3: “In mortality, we are like one who enters a theater just as the curtain goes up on the second act. We have missed Act 1. … ‘And they all lived happily ever after’ is never written into the second act. That line belongs in the third act when the mysteries are solved and everything is put right.” See also Neal A. Maxwell, *All These Things Shall Give Thee Experience* (1979), 37: “God … sees the beginning from the end. … The arithmetic … is something we mortals cannot comprehend. We cannot do the sums because we do not have all the numbers. We are locked in the dimension of time and are contained within the tight perspectives of this second estate.”
+[^3]: See Boyd K. Packer, “The Play and the Plan” (Church Educational System fireside for young adults, May 7, 1995), 3: “In mortality, we are like one who enters a theater just as the curtain goes up on the second act. We have missed Act 1. … ‘And they all lived happily ever after’ is never written into the second act. That line belongs in the third act when the mysteries are solved and everything is put right.” See also Neal A. Maxwell, *All These Things Shall Give Thee Experience* (1979), 37: “God … sees the beginning from the end. … The arithmetic … is something we mortals cannot comprehend. We cannot do the sums because we do not have all the numbers. We are locked in the dimension of time and are contained within the tight perspectives of this second estate.”
 
 [^4]: Those who die before reaching the age of accountability are saved in the celestial kingdom (see [[D&C 137.10|Doctrine and Covenants 137:10]]). Those who have died without knowledge of the gospel and would have received it if they had been given the opportunity will also be heirs of the celestial kingdom (see [[D&C 137.7|Doctrine and Covenants 137:7]]). In addition, even those whose lives have been less than valiant will in time be blessed with an existence superior to this life (see [[D&C 76.89|Doctrine and Covenants 76:89]]).
 
-[^5]: See Conway B. Sonne, *A Man Named Alma: The World of Alma Sonne* (1988), 83.
+[^5]: See Conway B. Sonne, *A Man Named Alma: The World of Alma Sonne* (1988), 83.
 
 [^6]: See Sonne, *A Man Named Alma,* 84.
 
@@ -91,11 +93,11 @@ The Savior said: “Therefore, let your hearts be comforted. … Be still and kn
 
 [^8]: See “The Sinking of the World’s Greatest Liner,” 250.
 
-[^9]: Elder Sonne is an uncle to Elder L. Tom Perry.
+[^9]: Elder Sonne is an uncle to Elder L. Tom Perry.
 
 [^10]: See Sonne, *A Man Named Alma,* 83.
 
-[^11]: See Sonne, *A Man Named Alma,* 83–84; see also “From the Mission Field,” *Millennial Star,* Apr. 18, 1912, 254: “Releases and Departures.—The following named missionaries have been honorably released and sailed for home April 13th, 1912, per s.s. *Mauretania.* From Great Britain—Alma Sonne, George B. Chambers, Willard Richards, John R. Sayer, F. A. \[Fred\] Dahle. From the Netherlands—L. J. Shurtliff.”
+[^11]: See Sonne, *A Man Named Alma,* 83–84; see also “From the Mission Field,” *Millennial Star,* Apr. 18, 1912, 254: “Releases and Departures.—The following named missionaries have been honorably released and sailed for home April 13th, 1912, per s.s. *Mauretania.* From Great Britain—Alma Sonne, George B. Chambers, Willard Richards, John R. Sayer, F. A. \[Fred\] Dahle. From the Netherlands—L. J. Shurtliff.”
 
 [^12]: See [[Genesis 44.30|Genesis 44:30–31, 34]][[Genesis 44.31|]][[Genesis 44.34|]].
 
@@ -103,7 +105,7 @@ The Savior said: “Therefore, let your hearts be comforted. … Be still and kn
 
 [^14]: See “Friend to Friend,” *Friend,* Mar. 1977, 39.
 
-[^15]: See David A. Bednar, in Conference Report, Apr. 2005, 104–8; or *Ensign,* May 2005, 99–102.
+[^15]: See David A. Bednar, in Conference Report, Apr. 2005, [[2005 April - The Tender Mercies of the Lord.md|104–8]]; or *Ensign,* May 2005, 99–102.
 
 [^16]: See [[D&C 59.21|Doctrine and Covenants 59:21]].
 
@@ -111,7 +113,7 @@ The Savior said: “Therefore, let your hearts be comforted. … Be still and kn
 
 [^18]: [[D&C 42.44|Doctrine and Covenants 42:44]].
 
-[^19]: Interview with Irene Corbett’s grandson Donald M. Corbett, Oct. 30, 2010, by Gary H. Cook.
+[^19]: Interview with Irene Corbett’s grandson Donald M. Corbett, Oct. 30, 2010, by Gary H. Cook.
 
 [^20]: [[D&C 122.7|Doctrine and Covenants 122:7]].
 
@@ -129,17 +131,15 @@ The Savior said: “Therefore, let your hearts be comforted. … Be still and kn
 
 [^27]: See “The Atonement,” in *Preach My Gospel: A Guide to Missionary Service* (2004), 51–52.
 
-[^28]: See “The Song That I Came to Sing,” in *The Complete Poems of Rabindranath Tagore’s Gitanjali,* ed. S. K. Paul (2006), 64: “The song that I came to sing remains unsung to this day. / I have spent my days in stringing and in unstringing my instrument.”
+[^28]: See “The Song That I Came to Sing,” in *The Complete Poems of Rabindranath Tagore’s Gitanjali,* ed. S. K. Paul (2006), 64: “The song that I came to sing remains unsung to this day. / I have spent my days in stringing and in unstringing my instrument.”
 
 [^29]: Thomas Gray, “Elegy Written in a Country Church Yard,” in *The Oxford Book of English Verse,* ed. Christopher Ricks (1999), 279.
 
-[^30]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^30]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
-[^31]: “There Is Sunshine in My Soul Today,” *Hymns,* no. 227.
+[^31]: “There Is Sunshine in My Soul Today,” *Hymns,* no. 227.
 
 [^32]: [[D&C 101.16|Doctrine and Covenants 101:16]]; see also [[Psalms 46.10|Psalm 46:10]].
 
+[^33]: [[D&C 101.18|Doctrine and Covenants 101:18]]; see also [[D&C 45.71|Doctrine and Covenants 45:71]].
 
-
-
-#Adversity #Faith #Plan_Of_Salvation

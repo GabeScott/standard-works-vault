@@ -1,5 +1,7 @@
 # Remembering the Lord’s Love
 
+Gordon B. Hinckley
+
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2006 General Conference*
@@ -8,7 +10,7 @@ By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidenc
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2006/10/remembering-the-lords-love?lang=eng)
 
-*Christ in a Red Robe,* by Minerva Teichert, seemed the perfect painting to depict the scripture that we chose for this evening: “I am encircled about eternally in the arms of his love” ([[2 Nephi 1.15|2 Nephi 1:15]]). Christ looks so welcoming with His arms outstretched toward us. Just as He invited the Nephites to “arise and come forth unto me” ([[3 Nephi 11.15|3 Nephi 11:15]]), so He invites each of us to come, one by one, to Him, that we too may know that He is “the God of … the whole earth, and \[has\] been slain for the sins of the world” ([[3 Nephi 11.14|3 Nephi 11:14]]). We learn how it feels to be encircled in His love when we accept that invitation.
+*Christ in a Red Robe,* by Minerva Teichert, seemed the perfect painting to depict the scripture that we chose for this evening: “I am encircled about eternally in the arms of his love” ([[2 Nephi 1.15|2 Nephi 1:15]]). Christ looks so welcoming with His arms outstretched toward us. Just as He invited the Nephites to “arise and come forth unto me” ([[3 Nephi 11.15|3 Nephi 11:15]]), so He invites each of us to come, one by one, to Him, that we too may know that He is “the God of … the whole earth, and \[has\] been slain for the sins of the world” ([[3 Nephi 11.14|3 Nephi 11:14]]). We learn how it feels to be encircled in His love when we accept that invitation.
 
 I’m certain that each of you has felt, at one time or another, encircled in Christ’s arms. But if you are like me, there are times when you are fearful, when the stress and busyness of life seem to overwhelm you, when you feel adrift from the Spirit. Perhaps you even feel as though you have been abandoned. When I encounter those feelings, the best antidote is my *memory* of the moments when Christ’s peace has come to strengthen me. So tonight I invite you to *remember* with me what it is to feel the Lord’s love in your life and to feel encircled in His arms.
 
@@ -26,7 +28,7 @@ As faithful women of The Church of Jesus Christ of Latter-day Saints, we have be
 
 In the January 2004 worldwide leadership training meeting, President Gordon B. Hinckley admonished the women of the Church to “stand strong and immovable” against the evil that is growing in the world (“Standing Strong and Immovable,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20). Sisters, this is why we must seek to know and feel the Lord’s love in our lives. It is why we must remember and treasure up our own experiences with His peace and the strength it brings. And it is why we must relate our own experiences of faith and testimony to our children and to those who are without parents or loved ones.
 
-Our families need the peace of God in their lives, and if we can’t or won’t invite the Lord into our lives, then our families become a reflection of our own turmoil. Women are asked to be nurturers to their families, but we must also be firm; we must be the hard rock footings on which our homes can stand. Our families need us to speak peace to them, just as the Lord speaks peace to us. Our homes need to be places where our families and friends want to be, where all who enter our homes can draw strength and courage to face the challenges of living in an increasingly wicked world. Our children need to hear us “talk of Christ, … rejoice in Christ, \[and\] preach of Christ” ([[2 Nephi 25.26|2 Nephi 25:26]]) so that they may know to what source they can look for the peace that “passeth all understanding” ([[Philippians 4.7|Philippians 4:7]]).
+Our families need the peace of God in their lives, and if we can’t or won’t invite the Lord into our lives, then our families become a reflection of our own turmoil. Women are asked to be nurturers to their families, but we must also be firm; we must be the hard rock footings on which our homes can stand. Our families need us to speak peace to them, just as the Lord speaks peace to us. Our homes need to be places where our families and friends want to be, where all who enter our homes can draw strength and courage to face the challenges of living in an increasingly wicked world. Our children need to hear us “talk of Christ, … rejoice in Christ, \[and\] preach of Christ” ([[2 Nephi 25.26|2 Nephi 25:26]]) so that they may know to what source they can look for the peace that “passeth all understanding” ([[Philippians 4.7|Philippians 4:7]]).
 
 Remember, sisters, the Savior’s invitation is clear and direct, and importantly for us, it is constant: “Come unto me, all ye that labour and are heavy laden. … Take my yoke upon you, … for … my burden is light” ([[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]). This is the Lord’s promise to me and to you.
 
@@ -37,8 +39,3 @@ My prayer for each of us is that we will remember when the Lord has spoken His p
 
 
 
-
-
-
-
-#Holy_Ghost #Jesus_Christ #Peace #Scriptures

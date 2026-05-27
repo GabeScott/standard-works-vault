@@ -1,5 +1,7 @@
 # Glad Tidings from Cumorah
 
+Gordon B. Hinckley
+
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2005 General Conference*
@@ -32,9 +34,9 @@ Moroni also knew firsthand about loneliness and discouragement. After a great an
 
 I realize that many of us also at times feel without friends and alone in a wicked world. Some of us feel we have not “whither to go” as we face our trials. But you and I can not only survive but prevail, as did Moroni, in our efforts to stand for truth in perilous times. What did he do when facing a lonely and hostile world? He, in faithful obedience to his father’s direction, finished the record on the gold plates. He became familiar with the writings of the prophets. Above all, he fought his way out of his discouragement by clinging to the Lord’s promises for the future. He clung to the covenants that God had made with the house of Israel to bless them forever.
 
-Moroni exercised faith in the promised blessings for future generations. Elder Jeffrey R. Holland explained that this joyful anticipation of past prophets, including Moroni, was because they had seen our day in vision. They saw strong, covenant-keeping young people like you who would carry out the Lord’s work in this final dispensation. Elder Holland said, “The leaders in those ages past, were able to keep going, … not because they knew that *they* would succeed but because they knew that *you* would … a magnificent congregation of young \[women\] like you … in a determined effort to see the gospel prevail and triumph” (“Terror, Triumph, and a Wedding Feast,” Church Educational System fireside, Sept. 12, 2004; see ). We have that huge responsibility to fulfill Moroni’s “joyful anticipation.”
+Moroni exercised faith in the promised blessings for future generations. Elder Jeffrey R. Holland explained that this joyful anticipation of past prophets, including Moroni, was because they had seen our day in vision. They saw strong, covenant-keeping young people like you who would carry out the Lord’s work in this final dispensation. Elder Holland said, “The leaders in those ages past, were able to keep going, … not because they knew that *they* would succeed but because they knew that *you* would … a magnificent congregation of young \[women\] like you … in a determined effort to see the gospel prevail and triumph” (“Terror, Triumph, and a Wedding Feast,” Church Educational System fireside, Sept. 12, 2004; see [www.ldsces.org](https://www.churchofjesuschrist.org/church-education)). We have that huge responsibility to fulfill Moroni’s “joyful anticipation.”
 
-We who belong to The Church of Jesus Christ of Latter-day Saints are bound by covenant to the Lord. He has said: “I \[will\] not forget thee. … I have graven thee upon the palms of my hands” ([[Isaiah 49.15|Isaiah 49:15–16]][[Isaiah 49.16|]]; see also [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]]).
+We who belong to The Church of Jesus Christ of Latter-day Saints are bound by covenant to the Lord. He has said: “I \[will\] not forget thee. … I have graven thee upon the palms of my hands” ([[Isaiah 49.15|Isaiah 49:15–16]][[Isaiah 49.16|]]; see also [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]]).
 
 The binding and strengthening power of covenants in our lives became very real to me recently as our dear friends experienced a tragic loss in their family. While Catherine and Kimball Herrod and their four young children, ages nine months to seven years, were driving home from a family dinner at their grandparents’ place, a double wheel from a huge semitruck on the opposite side of the freeway suddenly sprang loose, flew across the median, and pounded into the driver’s side of the family van. Kimball, the driver, husband, and father, was severely injured and unconscious. Catherine somehow guided the car to the shoulder and called for emergency help. While she watched the paramedics work on her husband and two older children, she sat in a police car with her two little ones on her lap and prayed vocally, “Heavenly Father, we know that Thou hast the power to heal Kimball if it is Thy will, but if not, we have faith that somehow Thou wilt sustain us through this.” Kimball was life-flighted to the hospital, but he did not make it there alive.
 
@@ -44,7 +46,7 @@ At the funeral, we were reminded of the power of covenants to sustain us in mome
 
 We were also taught the power of covenants in the sermon offered by Catherine’s father. He quoted a scripture from the precious record that Moroni had sealed up and then brought forth to the Prophet Joseph, reminding us that the gospel promises us a rock in the storms and whirlwinds, not an umbrella:
 
-“Remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation; that when the devil shall send forth his mighty winds, … it shall have no power over you to drag you down to the gulf of misery … , because of the rock upon which ye are built, which is a sure foundation” ([[Helaman 5.12|Helaman 5:12]]).
+“Remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation; that when the devil shall send forth his mighty winds, … it shall have no power over you to drag you down to the gulf of misery … , because of the rock upon which ye are built, which is a sure foundation” ([[Helaman 5.12|Helaman 5:12]]).
 
 The profound strength the family exhibited comes from the knowledge that they are eternally bound to each other as a family, and they are bound to Heavenly Father and cannot be separated from Him.
 
@@ -54,19 +56,14 @@ How grateful I am to live in this great and marvelous day when the gospel has be
 
 “Now, what do we hear in the gospel which we have received? A voice of gladness! …
 
-“… Glad tidings from Cumorah! Moroni, an angel from heaven, declaring the fulfilment of the prophets—the book to be revealed. …
+“… Glad tidings from Cumorah! Moroni, an angel from heaven, declaring the fulfilment of the prophets—the book to be revealed. …
 
-“Brethren \[and sisters\], shall we not go on in so great a cause? … Let your hearts rejoice, and be exceedingly glad. …
+“Brethren \[and sisters\], shall we not go on in so great a cause? … Let your hearts rejoice, and be exceedingly glad. …
 
-“… Let us, therefore, as a church and a people, … offer unto the Lord an offering in righteousness” ([[D&C 128.19|D&C 128:19, 20, 22, 24]][[D&C 128.20|]][[D&C 128.22|]][[D&C 128.24|]]).
+“… Let us, therefore, as a church and a people, … offer unto the Lord an offering in righteousness” ([[D&C 128.19|D&C 128:19, 20, 22, 24]][[D&C 128.20|]][[D&C 128.22|]][[D&C 128.24|]]).
 
 I know this is the Church of Jesus Christ. May each of us let the gospel sink deep into our souls so that we love and serve God with full purpose of heart, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Covenants #Individual_Worth #Joseph_Smith #Prophets

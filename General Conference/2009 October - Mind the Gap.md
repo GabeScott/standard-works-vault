@@ -1,5 +1,7 @@
 # Mind the Gap
 
+Thomas S. Monson
+
 By Barbara Thompson - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -28,7 +30,7 @@ Some have said such things as: “If God really loved me, He would not let this 
 
 Unfortunately, we hear these types of statements all too often. You need to know that there is nothing that can “separate \[you\] from the love of Christ.” The scriptures clearly tell us that no tribulation, distress, persecution, power, nor any other creature can separate us from the love of God.[^3]
 
-Our Heavenly Father loved us so much that He sent His Only Begotten Son to atone for our sins. The Savior not only suffered for every sin, but He also felt every pain, sorrow, discomfort, loneliness, and sadness that any of us could ever experience. Is this not great love? President Henry B. Eyring has said, “It is the Holy Ghost that testifies of the reality of God and allows us to feel the joy of His love.”[^4]
+Our Heavenly Father loved us so much that He sent His Only Begotten Son to atone for our sins. The Savior not only suffered for every sin, but He also felt every pain, sorrow, discomfort, loneliness, and sadness that any of us could ever experience. Is this not great love? President Henry B. Eyring has said, “It is the Holy Ghost that testifies of the reality of God and allows us to feel the joy of His love.”[^4]
 
 We need to accept His love, love ourselves, and love others. Remember that every soul on this earth is also a child of God. We must treat each other with the love and kindness befitting a child of God.
 
@@ -56,7 +58,7 @@ Remember, it’s not just what you get out of active participation in Relief Soc
 
 My dear sisters, especially you younger single adults, I testify to you that God loves you; He is mindful of you; He has a plan for you. He needs you to serve His children. He needs you to be active and faithful and fully participating women in His Church. He needs you to “comfort the weary and strengthen the weak.”[^6]
 
-Sister Eliza R. Snow, second Relief Society general president, spoke to a large group of sisters—both teenage and adult women—gathered in Ogden, Utah, in 1873. She gave the following counsel that was timely then and is still appropriate today.
+Sister Eliza R. Snow, second Relief Society general president, spoke to a large group of sisters—both teenage and adult women—gathered in Ogden, Utah, in 1873. She gave the following counsel that was timely then and is still appropriate today.
 
 Speaking to the younger women, she said: “If you associate together \[meaning older and younger women\], your minds are improved, you are gaining intelligence, and you are retrenching from ignorance. The Spirit of God will impart instruction to your minds, and you will impart it to each other. I say, God bless you my young sisters. Remember that you are Saints of God; and that you have important works to perform in Zion.”
 
@@ -87,25 +89,25 @@ My dear sisters, I love you. I know the Savior lives. I know He loves each one o
 
 
 
-[^1]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
+[^1]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
 
 [^2]: “I Am a Child of God,” *Hymns,* no. 301.
 
 [^3]: See [[Romans 8.35|Romans 8:35–39]][[Romans 8.36|]][[Romans 8.37|]][[Romans 8.38|]][[Romans 8.39|]].
 
-[^4]: Henry B. Eyring, “The Love of God in Missionary Work” (address given at the mission presidents’ seminar, June 25, 2009).
+[^4]: Henry B. Eyring, “The Love of God in Missionary Work” (address given at the mission presidents’ seminar, June 25, 2009).
 
 [^5]: See [[D&C 97.27|D&C 97:27]]; [[D&C 124.1|124:1]].
 
 [^6]: “As Sisters in Zion,” *Hymns,* no. 309.
 
-[^7]: Eliza R. Snow, “An Address,” *Woman’s Exponent,* Sept. 15, 1873, 62.
+[^7]: Eliza R. Snow, “An Address,” *Woman’s Exponent,* Sept. 15, 1873, 62.
 
 [^8]: [[D&C 121.29|D&C 121:29]].
 
-[^9]: See [[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
+[^9]: See [[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
 
-[^10]: See [[2 Nephi 25.26|2 Nephi 25:26]].
+[^10]: See [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^11]: See [[Enos 1.5|Enos 1:5–11]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]][[Enos 1.9|]][[Enos 1.10|]][[Enos 1.11|]].
 
@@ -113,8 +115,3 @@ My dear sisters, I love you. I know the Savior lives. I know He loves each one o
 
 [^13]: See [[D&C 76.22|D&C 76:22]].
 
-
-
-
-
-#Divine_Nature #Relief_Society #Testimony #Young_Women

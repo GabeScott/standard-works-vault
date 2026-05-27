@@ -1,5 +1,7 @@
 # The Purifying Power of Gethsemane
 
+Gordon B. Hinckley
+
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -125,8 +127,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Atonement #Jesus_Christ #Resurrection

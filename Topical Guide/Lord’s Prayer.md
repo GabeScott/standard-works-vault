@@ -1,4 +1,3 @@
 # Lord’s Prayer
 
-
-*See* [BD Lord's Prayer](https://www.churchofjesuschrist.org/study/scriptures/bd/lords-prayer?lang=eng)
+*See also* [[BD Lord’s Prayer.md|BD Lord’s Prayer]]

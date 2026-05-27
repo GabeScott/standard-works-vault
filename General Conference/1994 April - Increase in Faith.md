@@ -1,5 +1,7 @@
 # Increase in Faith
 
+James E. Faust
+
 By Patricia P. Pinegar - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -24,7 +26,7 @@ Choosing to increase our faith in the Savior isn’t easy. It takes work, but th
 
 Sometimes when we try hard to make changes—good changes—we have a lot of distractions and obstacles. One of my favorite scripture stories is about Peter. As I read this story to you, think about Peter and what happened when he was distracted.
 
-Jesus and His disciples had just finished feeding five thousand people with five loaves of bread and two fishes. Jesus asked “his disciples to get into a ship, and to go before him. …
+Jesus and His disciples had just finished feeding five thousand people with five loaves of bread and two fishes. Jesus asked “his disciples to get into a ship, and to go before him. …
 
 “And when he had sent the multitudes away, he went up into a mountain apart to pray: and when the evening was come, he was there alone.
 
@@ -79,8 +81,3 @@ I sense the tender feelings in your hearts. I feel that too. I believe we want t
 
 
 
-
-
-
-
-#Faith #Jesus_Christ #Prayer

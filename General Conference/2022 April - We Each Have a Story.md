@@ -1,6 +1,8 @@
 # We Each Have a Story
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -30,7 +32,7 @@ Born AD 837, my 30th great-grandfather, First Dragon Gong, started our family vi
 
 On my mother’s side, our living family tree includes thousands of family names, with more to discover.[^6] We each have more family with whom to connect. If you think your great-aunt has completed all your family genealogy, please find your cousins and cousins’ cousins. Connect your living memory family names with the 10 billion searchable names FamilySearch now has in its online collection and the 1.3 billion individuals in its Family Tree.[^7]
 
-Ask friends or family to draw a living tree. As President Russell M. Nelson teaches, living trees have roots *and* branches.[^8] Whether you are your first or tenth known generation, connect yesterday for tomorrow. Connect the roots and branches in your living family tree.[^9]
+Ask friends or family to draw a living tree. As President Russell M. Nelson teaches, living trees have roots *and* branches.[^8] Whether you are your first or tenth known generation, connect yesterday for tomorrow. Connect the roots and branches in your living family tree.[^9]
 
 The question “Where are you from?” asks lineage, birthplace, and home country or homeland. Globally, 25 percent of us trace our homeland to China, 23 percent to India, 17 percent to other parts of Asia and the Pacific, 18 percent to Europe, 10 percent to Africa, 7 percent to the Americas.[^10]
 
@@ -87,7 +89,7 @@ Praise God’s plan of happiness, Jesus Christ’s Atonement, continuing restora
 
 [^1]: “My Heavenly Father Loves Me,” *Children’s Songbook*, 228.
 
-[^2]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^2]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^3]: See [[Ecclesiastes 3.1|Ecclesiastes 3:1]].
 
@@ -99,21 +101,21 @@ Praise God’s plan of happiness, Jesus Christ’s Atonement, continuing restora
 
 [^7]: In 2021, some 99 million names were added to public family trees. And recently, digitization was completed of 2.4 million rolls of microfilm containing approximately 37 billion names (with some duplications). These individual name records can now be prepared to be searched, found, and added to the family tree of humanity.
 
-[^8]: See Russell M. Nelson, “[[2004 April - Roots and Branches.md|Roots and Branches]],” *Ensign* or *Liahona*, May 2004, 27–29.
+[^8]: See Russell M. Nelson, “[[2004 April - Roots and Branches.md|Roots and Branches]],” *Ensign* or *Liahona*, May 2004, 27–29.
 
 [^9]: Of course, as we discover and build our living family tree, please maintain 100 percent respect for the privacy and volunteer participation of family members, living and deceased.
 
 [^10]: David Quimette extrapolated these numbers, based on Angus Maddison, *The World Economy: A Millennial Perspective* (2001), 241, table B-10.
 
-[^11]: See Laura Silver and others, “What Makes Life Meaningful? Views from 17 Advanced Economies,” Pew Research Center, Nov. 18, 2021, pewresearch.org.
+[^11]: See Laura Silver and others, “What Makes Life Meaningful? Views from 17 Advanced Economies,” Pew Research Center, Nov. 18, 2021, pewresearch.org.
 
-[^12]: [[1 Nephi 9.5|1 Nephi 9:5]]; [[1 Nephi 19.3|1 Nephi 19:3]]; [[Words of Mormon 1.6|Words of Mormon 1:6–7]][[Words of Mormon 1.7|]]; and [[Alma 37.2|Alma 37:2]] speak of keeping records and remembering “for a wise purpose,” including to bless future generations.
+[^12]: [[1 Nephi 9.5|1 Nephi 9:5]]; [[1 Nephi 19.3|1 Nephi 19:3]]; [[Words of Mormon 1.6|Words of Mormon 1:6–7]][[Words of Mormon 1.7|]]; and [[Alma 37.2|Alma 37:2]] speak of keeping records and remembering “for a wise purpose,” including to bless future generations.
 
-[^13]: See Russell M. Nelson and Wendy W. Nelson, “[Open the Heavens through Temple and Family History Work](https://churchofjesuschrist.org/study/liahona/2017/10/open-the-heavens-through-temple-and-family-history-work?lang=eng),” *Ensign*, Oct. 2017, 34–39; *Liahona*, Oct. 2017, 14–19; see also “[RootsTech Family Discovery Day—Opening Session 2017](https://www.churchofjesuschrist.org/media/video/2017-02-4050-rootstech-family-discovery-day-opening-session-2017)” (video), ChurchofJesusChrist.org.
+[^13]: See Russell M. Nelson and Wendy W. Nelson, “[Open the Heavens through Temple and Family History Work](https://www.churchofjesuschrist.org/study/liahona/2017/10/open-the-heavens-through-temple-and-family-history-work?lang=eng),” *Ensign*, Oct. 2017, 34–39; *Liahona*, Oct. 2017, 14–19; see also “[RootsTech Family Discovery Day—Opening Session 2017](https://www.churchofjesuschrist.org/study/video/rootstech-2017/2017-02-4050-rootstech-family-discovery-day-opening-session-2017?lang=eng)” (video), ChurchofJesusChrist.org.
 
 [^14]: See [[D&C 128.18|Doctrine and Covenants 128:18]].
 
-[^15]: See Gordon B. Hinckley, “[Keep the Chain Unbroken](https://speeches.byu.edu/talks/gordon-b-hinckley/keep-chain-unbroken)” (Brigham Young University devotional, Nov. 30, 1999), speeches.byu.edu. President Hinckley is also quoted in David A. Bednar, “[A Welding Link](https://www.churchofjesuschrist.org/broadcasts/article/worldwide-devotionals/2017/01/a-welding-link)” (worldwide devotional for young adults, Sept. 10, 2017), broadcasts.ChurchofJesusChrist.org.
+[^15]: See Gordon B. Hinckley, “[Keep the Chain Unbroken](https://speeches.byu.edu/talks/gordon-b-hinckley/keep-chain-unbroken)” (Brigham Young University devotional, Nov. 30, 1999), speeches.byu.edu. President Hinckley is also quoted in David A. Bednar, “[A Welding Link](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2017/09/a-welding-link?lang=eng)” (worldwide devotional for young adults, Sept. 10, 2017), broadcasts.ChurchofJesusChrist.org.
 
 [^16]: For example, in our family, Henry Bawden, from Devonshire, England, married Sarah Howard, who emigrated with her family after they joined the Church. While Sarah was in St. Louis as a young teenager, her father, mother, and five siblings died. Henry and Sarah had 10 children. Sarah also raised six children of Henry’s first wife, Ann Ireland, after she died. Sarah was also mother to two young granddaughters after her (Sarah’s) daughter-in-law passed away. Despite life’s many challenges, Sarah was warm, loving, compassionate, and of course very hardworking. She was affectionately known as “Little Grandma.”
 
@@ -121,7 +123,7 @@ Praise God’s plan of happiness, Jesus Christ’s Atonement, continuing restora
 
 [^18]: See, for example, [[Mosiah 3.19|Mosiah 3:19]].
 
-[^19]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
+[^19]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
 
 [^20]: [[D&C 128.9|Doctrine and Covenants 128:9]].
 
@@ -129,7 +131,7 @@ Praise God’s plan of happiness, Jesus Christ’s Atonement, continuing restora
 
 [^22]: [[D&C 128.18|Doctrine and Covenants 128:18]].
 
-[^23]: Russell M. Nelson, “[[1998 April - A New Harvest Time.md|A New Harvest Time]],” *Ensign*, May 1998, 34; see also Russell M. Nelson and Wendy W. Nelson, “[Open the Heavens through Temple and Family History Work](https://churchofjesuschrist.org/study/liahona/2017/10/open-the-heavens-through-temple-and-family-history-work?lang=eng&id=title2#title2),” 16–18.
+[^23]: Russell M. Nelson, “[[1998 April - A New Harvest Time.md|A New Harvest Time]],” *Ensign*, May 1998, 34; see also Russell M. Nelson and Wendy W. Nelson, “[Open the Heavens through Temple and Family History Work](https://www.churchofjesuschrist.org/study/liahona/2017/10/open-the-heavens-through-temple-and-family-history-work?lang=eng&id=title2#title2),” 16–18.
 
 [^24]: See [[Mosiah 18.21|Mosiah 18:21]].
 
@@ -141,8 +143,3 @@ Praise God’s plan of happiness, Jesus Christ’s Atonement, continuing restora
 
 [^28]: See [[Genesis 1.4|Genesis 1:4, 31]][[Genesis 1.31|]].
 
-
-
-
-
-#Divine_Nature #Family #Family_History #Temple_Work

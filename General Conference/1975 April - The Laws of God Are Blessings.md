@@ -1,6 +1,8 @@
 # The Laws of God Are Blessings
 
-By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -46,7 +48,7 @@ But while he gives us commandments, he also gives us the freedom and the liberty
 
 As it was with Adam and Eve, so it is with us. We have the divine right and also the individual responsibility to determine whether we will accept or whether we will reject the laws and principles and commandments of God. But my, how grateful we ought to be that these laws are given us and are plainly understood, given us to direct us, that we may not lose our way in this world of misunderstanding and by following the vain philosophies of the world. How thankful we ought to be for such truths as these:
 
-“Men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
+“Men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
 
 “I, the Lord, am bound when ye do what I say; but when ye do not what I say, ye have no promise.” ([[D&C 82.10|D&C 82:10]].)
 
@@ -56,15 +58,10 @@ And finally, this most beautiful statement by my friend King Benjamin in his add
 
 “And moreover, I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven, that thereby they may dwell with God in a state of never-ending happiness. O remember, remember that these things are true; for the Lord hath spoken it.” ([[Mosiah 2.41|Mosiah 2:41]].)
 
-We should be grateful for Spencer W. Kimball (and his associates), a great living prophet provided by the Lord to guide us in these difficult times and to teach us, and to speak the mind and will of the Lord in a day of confusion. I add my testimony to those many which have been borne today to the fact that God lives, that Jesus is the Christ, that the gospel has been restored in the fulfillment of prophecies and promises of ancient prophets, and that we have with us today a prophet of God to direct us, to help us, to warn us, and to reveal the mind and will of God unto us and unto the world.
+We should be grateful for Spencer W. Kimball (and his associates), a great living prophet provided by the Lord to guide us in these difficult times and to teach us, and to speak the mind and will of the Lord in a day of confusion. I add my testimony to those many which have been borne today to the fact that God lives, that Jesus is the Christ, that the gospel has been restored in the fulfillment of prophecies and promises of ancient prophets, and that we have with us today a prophet of God to direct us, to help us, to warn us, and to reveal the mind and will of God unto us and unto the world.
 
 May the world take heed while the day yet lasts, for when the night cometh, no man can work, and the opportunity will be gone. This I pray in the name of Jesus Christ, the Lord. Amen.
 
 
 
 
-
-
-
-
-#Commandments #Laws #Obedience

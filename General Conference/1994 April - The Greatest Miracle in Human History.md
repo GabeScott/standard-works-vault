@@ -1,5 +1,7 @@
 # The Greatest Miracle in Human History
 
+James E. Faust
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1994 General Conference*
@@ -14,11 +16,11 @@ But our Eternal Father, whose children we are, made possible a far better thing 
 
 His was the ultimate sacrifice, His the sublime victory.
 
-Doubters there may be. But is there a more fully attested experience in the history of humankind than the resurrection of Jesus that first Easter morn? He spoke with Mary, who was first at the tomb. He spoke with the other women who ran to tell their brethren, two of whom came running. He appeared unto ten of His Apostles, Thomas being absent. And then He came again when Thomas was present. The doubter, upon seeing Him, declared, “My Lord and my God” ([[John 20.28|John 20:28]]). He talked with the two brethren on the way to Emmaus, and they said, “Did not our heart burn within us … ?” ([[Luke 24.32|Luke 24:32]]). And Paul declared that “after that, he was seen of above five hundred brethren at once” ([[1 Corinthians 15.6|1 Cor. 15:6]]).
+Doubters there may be. But is there a more fully attested experience in the history of humankind than the resurrection of Jesus that first Easter morn? He spoke with Mary, who was first at the tomb. He spoke with the other women who ran to tell their brethren, two of whom came running. He appeared unto ten of His Apostles, Thomas being absent. And then He came again when Thomas was present. The doubter, upon seeing Him, declared, “My Lord and my God” ([[John 20.28|John 20:28]]). He talked with the two brethren on the way to Emmaus, and they said, “Did not our heart burn within us … ?” ([[Luke 24.32|Luke 24:32]]). And Paul declared that “after that, he was seen of above five hundred brethren at once” ([[1 Corinthians 15.6|1 Cor. 15:6]]).
 
-Then Paul adds that “last of all he was seen of me” ([[1 Corinthians 15.8|1 Cor. 15:8]]).
+Then Paul adds that “last of all he was seen of me” ([[1 Corinthians 15.8|1 Cor. 15:8]]).
 
-All of this and more is found in the New Testament. It has served as the foundation of the faith of uncounted millions across the world into whose hearts there has come the witness of the Holy Spirit that it is true. They have lived by this testimony, and they have died by it. When the dark shadow of death has crossed their paths, when hope normally would have fled, there has come the reassurance that “as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]). In such hours of darkness there has shown forth a light, steady and certain, to sustain and comfort and bless.
+All of this and more is found in the New Testament. It has served as the foundation of the faith of uncounted millions across the world into whose hearts there has come the witness of the Holy Spirit that it is true. They have lived by this testimony, and they have died by it. When the dark shadow of death has crossed their paths, when hope normally would have fled, there has come the reassurance that “as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]). In such hours of darkness there has shown forth a light, steady and certain, to sustain and comfort and bless.
 
 But if that is not enough, there is another testament. This so-called Book of Mormon, this scripture of the New World, is before us as an added witness of the divinity and reality of the Lord Jesus Christ, of the encompassing beneficence of His atonement, and of His coming forth from the darkness of the grave. Within these covers is found much of the sure word of prophecy concerning Him who should be born of a virgin, the Son of the Almighty God. There is a foretelling of His work among men as a living mortal. There is a declaration of His death, of the lamb without blemish who was to be sacrificed for the sins of the world. And there is an account that is moving and inspiring and true of the visit of the resurrected Christ among living men and women in the western continent. The testimony is here to handle; it is here to be read; it is here to be pondered; it is here to be prayed over with a promise that he who prays shall know by the power of the Holy Ghost of its truth and validity (see [[Moroni 10.3|Moro. 10:3–5]][[Moroni 10.4|]][[Moroni 10.5|]]).
 
@@ -50,7 +52,7 @@ I have stood before that monument and pondered the events and circumstances of w
 
 After the governor’s death and after his debts were paid, there remained the sum of $148.06 for distribution among his five children as their inheritance.
 
-In his introduction to Ford’s *History,* General James Shields relates: “In 1850 while the author of this work was on his death-bed, he placed in my hands a manuscript, with the contents of which I was then wholly unacquainted, with the injunction that after his decease I should have it published for the benefit of his family. He soon after departed this life, leaving his orphan children in a destitute condition” (p. xlvii). The royalties from the sale of the book yielded $750, making it possible for each of his five children to receive $150 as their meager financial inheritance beyond the $29.61 left each by their father.
+In his introduction to Ford’s *History,* General James Shields relates: “In 1850 while the author of this work was on his death-bed, he placed in my hands a manuscript, with the contents of which I was then wholly unacquainted, with the injunction that after his decease I should have it published for the benefit of his family. He soon after departed this life, leaving his orphan children in a destitute condition” (p. xlvii). The royalties from the sale of the book yielded $750, making it possible for each of his five children to receive $150 as their meager financial inheritance beyond the $29.61 left each by their father.
 
 The eldest daughter married; her husband died in 1878; she lived until 1910, the last few years cared for by others. The second daughter married, reared a family, and died in St. Louis. The younger daughter, born in 1841, died at the age of 21 of “consumption,” and was buried with her parents. Concerning the two sons, I quote again from Mr. Quaife:
 
@@ -60,7 +62,7 @@ I mention these things to say that there was tragedy on both sides of the Cartha
 
 While Governor Ford wrote his dismal appraisal of Joseph Smith, another contemporary, Parley P. Pratt, wrote one of his own. Speaking of Joseph Smith at that time, he said:
 
-“His works will live to endless ages, and unnumbered millions yet unborn will mention his name with honor, as a noble instrument in the hands of God, who, during his short and youthful career, laid the foundation of that kingdom spoken of by Daniel, the prophet, which should break in pieces all other kingdoms and stand forever” (*Autobiography of Parley P. Pratt* \[Salt Lake City: Deseret Book Co., 1975\], p. 46).
+“His works will live to endless ages, and unnumbered millions yet unborn will mention his name with honor, as a noble instrument in the hands of God, who, during his short and youthful career, laid the foundation of that kingdom spoken of by Daniel, the prophet, which should break in pieces all other kingdoms and stand forever” (*Autobiography of Parley P. Pratt* \[Salt Lake City: Deseret Book Co., 1975\], p. 46).
 
 Parley Pratt wrote with a surer sense of prophecy than did Tom Ford. He wrote out of a spirit of love, yes, but also with something of a vision of this great millennial movement.
 
@@ -78,7 +80,7 @@ They threaded their way across the Iowa prairie to the Missouri River at Council
 
 Church membership is now approaching nine million. Last year alone, more than 4.5 million copies of the Book of Mormon were printed and distributed as “Another Testament of Jesus Christ.” Thousands of meetinghouses, with more than 21,000 congregations, and scores of beautiful temples carry the name of The Church of Jesus Christ of Latter-day Saints.
 
-Governor Ford could not see the virtues of this man whose blood stained the floor of the little jail in Carthage. But an angel from heaven years earlier had spoken the destiny of the boy Joseph. Said Moroni: “Your name shall be known among the nations, for the work which the Lord will perform by your hands shall cause the righteous to rejoice and the wicked to rage: with the one it shall be had in honor, and with the other in reproach; yet, with these it shall be a terror because of the great and marvelous work which shall follow the coming forth of this fulness of my gospel” (in Oliver Cowdery, “Rise of the Church,” *Times and Seasons,* 1 May 1841, pp. 394–95).
+Governor Ford could not see the virtues of this man whose blood stained the floor of the little jail in Carthage. But an angel from heaven years earlier had spoken the destiny of the boy Joseph. Said Moroni: “Your name shall be known among the nations, for the work which the Lord will perform by your hands shall cause the righteous to rejoice and the wicked to rage: with the one it shall be had in honor, and with the other in reproach; yet, with these it shall be a terror because of the great and marvelous work which shall follow the coming forth of this fulness of my gospel” (in Oliver Cowdery, “Rise of the Church,” *Times and Seasons,* 1 May 1841, pp. 394–95).
 
 One hundred and fifty years have now passed. We are grateful for the reconciliation which has come. We thank God our Eternal Father for a more tolerant day and greater understanding. Gone are the days of burnings and forced marches. The sunshine of goodwill is upon our people. The Church of Jesus Christ of Latter-day Saints now owns the scene of the martyrdom, the Carthage Jail with the block on which it stands. It has been made beautiful and attractive for the tens of thousands who visit from many nations. Nauvoo is a place of goodwill, a remnant of a remarkable history. The site of the once-beautiful temple has become a scene of reverent curiosity. Today there is a stake of Zion which carries the name Nauvoo. And north of Chicago is a magnificently beautiful temple in which are administered ordinances of salvation to benefit the sons and daughters of God of all generations, a work which has come through the priesthood revealed to the Prophet Joseph Smith, a work which extends to the generations of the past the wondrous opportunities afforded by the atonement of the Savior of mankind.
 
@@ -107,8 +109,3 @@ And so, on this Easter Sabbath, we bear testimony of the Redeemer of the world, 
 
 
 
-
-
-
-
-#Book_Of_Mormon #Death #Jesus_Christ #Joseph_Smith #Resurrection

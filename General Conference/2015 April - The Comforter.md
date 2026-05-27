@@ -1,6 +1,8 @@
 # The Comforter
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Cheryl A. Esplin
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -92,7 +94,7 @@ It was that witness of the Spirit that gave him strength to endure. He would pas
 
 It was true for Job. Blessings came to him in this life. The story of Job ends with this miracle:
 
-“So the Lord blessed the latter end of Job more than his beginning. …
+“So the Lord blessed the latter end of Job more than his beginning. …
 
 “And in all the land were no women found so fair as the daughters of Job: and their father gave them inheritance among their brethren.
 
@@ -139,13 +141,11 @@ As His witness, I extend gratitude for what you do so well to help the living Lo
 
 [^8]: [[Job 42.12|Job 42:12, 15–17]][[Job 42.15|]][[Job 42.16|]][[Job 42.17|]].
 
-[^9]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
+[^9]: [[1 Corinthians 13.8|1 Corinthians 13:8]].
 
 [^10]: [[Moroni 7.47|Moroni 7:47]].
 
 [^11]: [[Mosiah 18.9|Mosiah 18:9]].
 
+[^12]: See [[D&C 81.5|Doctrine and Covenants 81:5]].
 
-
-
-#Adversity #Atonement #Baptism #Compassion #Covenants #Holy_Ghost #Jesus_Christ

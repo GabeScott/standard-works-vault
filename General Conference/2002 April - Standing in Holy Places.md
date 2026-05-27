@@ -1,5 +1,7 @@
 # Standing in Holy Places
 
+Gordon B. Hinckley
+
 By Sharon G. Larsen - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2002 General Conference*
@@ -63,8 +65,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Holy_Ghost #Reverence #Spirituality

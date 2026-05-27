@@ -1,6 +1,5 @@
 # Key
 
-
 *See also* [[Priesthood, Keys of.md|Priesthood, Keys of]]
 
 *key* of the house of David, [[Isaiah 22.22|Isaiah 22:22]].
@@ -13,7 +12,7 @@ he that hath the *key* of David, [[Revelation 3.7|Revelation 3:7]].
 
 to him was given the *key* of the bottomless pit, [[Revelation 9.1|Revelation 9:1]].
 
-greater priesthood ... holdeth the *key* of the mysteries, [[D&C 84.19|D&C 84:19]] ([[D&C 128.14|D&C 128:14]]).
+greater priesthood … holdeth the *key* of the mysteries, [[D&C 84.19|D&C 84:19]] ([[D&C 128.14|D&C 128:14]]).
 
 three grand *keys* whereby you may know whether any administration is from God, [[D&C 129.9|D&C 129:9]].
 

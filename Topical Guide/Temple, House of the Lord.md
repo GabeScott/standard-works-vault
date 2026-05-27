@@ -1,11 +1,10 @@
 # Temple, House of the Lord
 
-
-*See also* [[Sanctuary.md|Sanctuary]]; [[Tabernacle.md|Tabernacle]]; [[Temple.md|Temple]]; [BD Temple of Herod](https://www.churchofjesuschrist.org/study/scriptures/bd/temple-of-herod?lang=eng); [Temple of Solomon](https://www.churchofjesuschrist.org/study/scriptures/bd/temple-of-solomon?lang=eng); [Temple of Zerubbabel](https://www.churchofjesuschrist.org/study/scriptures/bd/temple-of-zerubbabel?lang=eng); [Temple on Mount Gerizim](https://www.churchofjesuschrist.org/study/scriptures/bd/temple-on-mount-gerizim?lang=eng)
+*See also* [[Sanctuary.md|Sanctuary]]; [[Tabernacle.md|Tabernacle]]; [[Temple.md|Temple]]; [[BD Temple of Herod.md|BD Temple of Herod]]; [[BD Temple of Solomon.md|BD Temple of Solomon]]; [[BD Temple of Zerubbabel.md|BD Temple of Zerubbabel]]; [[BD Temple on Mount Gerizim.md|BD Temple on Mount Gerizim]]
 
 Shalt thou build me an *house* for me to dwell in, [[2 Samuel 7.5|2 Samuel 7:5]].
 
-David ... could not build an *house*, [[1 Kings 5.3|1 Kings 5:3]].
+David … could not build an *house*, [[1 Kings 5.3|1 Kings 5:3]].
 
 Concerning this *house* which thou art in building, [[1 Kings 6.12|1 Kings 6:12]].
 
@@ -19,7 +18,7 @@ turned he from the *house of the Lord*, [[2 Kings 16.18|2 Kings 16:18]].
 
 burnt the *house of the Lord*, [[2 Kings 25.9|2 Kings 25:9]].
 
-called for Solomon ... charged him to build an *house*, [[1 Chronicles 22.6|1 Chronicles 22:6]].
+called for Solomon … charged him to build an *house*, [[1 Chronicles 22.6|1 Chronicles 22:6]].
 
 Solomon thy son, he shall build my *house*, [[1 Chronicles 28.6|1 Chronicles 28:6]].
 
@@ -33,7 +32,7 @@ be restored, and brought again unto the *temple*, [[Ezra 6.5|Ezra 6:5]].
 
 who shall stand in his *holy* place, [[Psalms 24.3|Psalms 24:3]].
 
-let us go up to ... the *house* of the God of Jacob, [[Isaiah 2.3|Isaiah 2:3]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.3|2 Nephi 12:3]]).
+let us go up to … the *house* of the God of Jacob, [[Isaiah 2.3|Isaiah 2:3]] ([[Micah 4.2|Micah 4:2]]; [[2 Nephi 12.3|2 Nephi 12:3]]).
 
 make them joyful in my *house* of prayer, [[Isaiah 56.7|Isaiah 56:7]].
 
@@ -47,9 +46,9 @@ brasen sea that was in the *house of the Lord*, [[Jeremiah 52.17|Jeremiah 52:17]
 
 twelve brasen bulls that were under the *bases*, [[Jeremiah 52.20|Jeremiah 52:20]].
 
-I will ... set my *sanctuary* in the midst of them, [[Ezekiel 37.26|Ezekiel 37:26]].
+I will … set my *sanctuary* in the midst of them, [[Ezekiel 37.26|Ezekiel 37:26]].
 
-*house* ... measured the breadth of the building, [[Ezekiel 40.5|Ezekiel 40:5]].
+*house* … measured the breadth of the building, [[Ezekiel 40.5|Ezekiel 40:5]].
 
 glory of the Lord came into the *house*, [[Ezekiel 43.4|Ezekiel 43:4]].
 
@@ -61,15 +60,15 @@ waters issued out from under the threshold of the *house* eastward, [[Ezekiel 47
 
 Lord is in his holy *temple*, [[Habakkuk 2.20|Habakkuk 2:20]].
 
-foundation of the Lord's *temple* was laid, [[Haggai 2.18|Haggai 2:18]].
+foundation of the Lord’s *temple* was laid, [[Haggai 2.18|Haggai 2:18]].
 
-returned to Jerusalem ... my *house* shall be built, [[Zechariah 1.16|Zechariah 1:16]].
+returned to Jerusalem … my *house* shall be built, [[Zechariah 1.16|Zechariah 1:16]].
 
 he shall build the *temple* of the Lord, [[Zechariah 6.13|Zechariah 6:13]].
 
-Lord ... shall suddenly come to his *temple*, [[Malachi 3.1|Malachi 3:1]] ([[3 Nephi 24.1|3 Nephi 24:1]]; [[D&C 36.8|D&C 36:8]]; [[D&C 42.36|D&C 42:36]]).
+Lord … shall suddenly come to his *temple*, [[Malachi 3.1|Malachi 3:1]] ([[3 Nephi 24.1|3 Nephi 24:1]]; [[D&C 36.8|D&C 36:8]]; [[D&C 42.36|D&C 42:36]]).
 
-devil ... setteth him on a pinnacle of the *temple*, [[Matthew 4.5|Matthew 4:5]] ([[Luke 4.9|Luke 4:9]]).
+devil … setteth him on a pinnacle of the *temple*, [[Matthew 4.5|Matthew 4:5]] ([[Luke 4.9|Luke 4:9]]).
 
 in this place is one greater than the *temple*, [[Matthew 12.6|Matthew 12:6]].
 
@@ -121,14 +120,12 @@ go to the *house* of prayer, [[D&C 59.9|D&C 59:9]].
 
 which *temple* shall be reared in this generation, [[D&C 84.4|D&C 84:4]].
 
-establish a *house* ... of prayer ... a *house* of God, [[D&C 88.119|D&C 88:119]] ([[D&C 109.8|D&C 109:8]]).
+establish a *house* … of prayer … a *house* of God, [[D&C 88.119|D&C 88:119]] ([[D&C 109.8|D&C 109:8]]).
 
-build a *house* unto me in the name of the Lord, [[D&C 97.15|D&C 97:15]] ([[D&C 124.24|D&C 124:24]], [[D&C 124.40|D&C 124:40]]).
+build a *house* unto me in the name of the Lord, [[D&C 97.15|D&C 97:15]] ([[D&C 124.24|D&C 124:24]]; [[D&C 124.40|D&C 124:40]]).
 
-manifest myself to my people ... in this *house*, [[D&C 110.7|D&C 110:7]].
+manifest myself to my people … in this *house*, [[D&C 110.7|D&C 110:7]].
 
 the baptismal *font* was instituted as a similitude of the grave, [[D&C 128.13|D&C 128:13]].
 
-building of the *temples* and the performance of ordinances therein for ... the dead, [[D&C 138.54|D&C 138:54]].
-
-*See also* [[2 Chronicles 6.18|2 Chronicles 6:18]]; [[2 Chronicles 26.16|26:16-21]][[2 Chronicles 26.17|]][[2 Chronicles 26.18|]][[2 Chronicles 26.19|]][[2 Chronicles 26.20|]][[2 Chronicles 26.21|]]; [[Ezra 3.12|Ezra 3:12-13]][[Ezra 3.13|]].
+building of the *temples* and the performance of ordinances therein for … the dead, [[D&C 138.54|D&C 138:54]].

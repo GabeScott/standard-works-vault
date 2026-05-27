@@ -1,6 +1,8 @@
 # The Beatitudes
 
-By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder O. Leslie Stone - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -54,9 +56,9 @@ Christ tells us that purity of heart leads to love and knowledge of God. A love 
 
 In Proverbs we read: “As \[a man\] thinketh in his heart, so is he.” ([[Proverbs 23.7|Prov. 23:7]].)
 
-The Prophet Joseph said: “If you wish to go where God is, you must be like God, or possess the principles which God possesses, for if we are not drawing towards God in principle, we are going from him and drawing towards the devil. …
+The Prophet Joseph said: “If you wish to go where God is, you must be like God, or possess the principles which God possesses, for if we are not drawing towards God in principle, we are going from him and drawing towards the devil. …
 
-“Search your hearts, and see if you are like God. I have searched mine, and I feel to repent of all my sins. …
+“Search your hearts, and see if you are like God. I have searched mine, and I feel to repent of all my sins. …
 
 “Is not God good? Then you be good; if He is faithful, then you be faithful. Add to your faith virtue, to virtue knowledge, and seek for every good thing.” (*History of The Church of Jesus Christ of Latter-day Saints,* 4:588.)
 
@@ -97,8 +99,3 @@ May his blessings be with all of us, according to our needs, is my prayer in the
 
 
 
-
-
-
-
-#Teaching

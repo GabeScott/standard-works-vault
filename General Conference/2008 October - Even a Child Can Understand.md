@@ -1,5 +1,7 @@
 # Even a Child Can Understand
 
+Thomas S. Monson
+
 By Elder Gérald Caussé - *Of the Seventy*
 
 *Given in the October session of the 2008 General Conference*
@@ -10,7 +12,7 @@ By Elder Gérald Caussé - *Of the Seventy*
 
 Parents are often taken aback by the replies their children make to questions from grown-ups. One evening when my wife and I were away, our children’s babysitter, intrigued by the prayer she heard them saying, asked them this question: “But what is the difference between your religion and mine?” The reply from our eight-year-old daughter was immediate: “It’s almost the same, except that we study a lot more than you do!” Far from wanting to offend her babysitter, my little daughter just wanted to underline in her own way the importance that Latter-day Saints attach to the search for knowledge.
 
-Joseph Smith declared, “It is impossible for a man to be saved in ignorance” ([[D&C 131.6|D&C 131:6]]). He added, “The principle of knowledge is the principle of salvation … ; and every one that does not obtain knowledge sufficient to be saved will be condemned” (*History of the Church,* 5:387). This knowledge is founded on understanding the nature of God and Jesus Christ and the plan of salvation that They have prepared to allow us to return to Their presence. “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent” ([[John 17.3|John 17:3]]).
+Joseph Smith declared, “It is impossible for a man to be saved in ignorance” ([[D&C 131.6|D&C 131:6]]). He added, “The principle of knowledge is the principle of salvation … ; and every one that does not obtain knowledge sufficient to be saved will be condemned” (*History of the Church,* 5:387). This knowledge is founded on understanding the nature of God and Jesus Christ and the plan of salvation that They have prepared to allow us to return to Their presence. “And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent” ([[John 17.3|John 17:3]]).
 
 The principle of knowledge has often been misinterpreted by men. “The glory of God is intelligence” ([[D&C 93.36|D&C 93:36]]). It surpasses all we can ever understand with our intellectual capacities. People who try to find God sometimes think that they have to look for Him in intellectually complicated concepts.
 
@@ -40,21 +42,21 @@ Sometimes we may be tempted to think, “It’s too easy,” just like Naaman, t
 
 “My father, if the prophet had bid thee do some great thing, wouldest thou not have done it? how much rather then, when he saith to thee, Wash, and be clean?
 
-“Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean” ([[2 Kings 5.13|2 Kings 5:13–14]][[2 Kings 5.14|]]).
+“Then went he down, and dipped himself seven times in Jordan, according to the saying of the man of God: and his flesh came again like unto the flesh of a little child, and he was clean” ([[2 Kings 5.13|2 Kings 5:13–14]][[2 Kings 5.14|]]).
 
 His cleansing was not only physical; his spiritual flesh also was cleansed when he accepted this beautiful lesson in humility.
 
-Little children have a marvelous disposition to learn. They have total trust in their teacher, a pure spirit, and great humility—in other words, the same qualities which open the door to the Holy Spirit. He is the channel through whom we gain knowledge of the things of the Spirit. Paul wrote to the Corinthians, “Even so the things of God knoweth no man, but the Spirit of God” ([[1 Corinthians 2.11|1 Corinthians 2:11]]).
+Little children have a marvelous disposition to learn. They have total trust in their teacher, a pure spirit, and great humility—in other words, the same qualities which open the door to the Holy Spirit. He is the channel through whom we gain knowledge of the things of the Spirit. Paul wrote to the Corinthians, “Even so the things of God knoweth no man, but the Spirit of God” ([[1 Corinthians 2.11|1 Corinthians 2:11]]).
 
-And he added, “But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Corinthians 2:14]]).
+And he added, “But the natural man receiveth not the things of the Spirit of God: for they are foolishness unto him: neither can he know them, because they are spiritually discerned” ([[1 Corinthians 2.14|1 Corinthians 2:14]]).
 
 We know that the carnal or natural man is “an enemy to God … unless he yields to the enticings of the Holy Spirit.” For that, he must become “as a child, submissive, meek, humble, patient, full of love, willing to submit to all things which the Lord seeth fit to inflict upon him, even as a child doth submit to his father” ([[Mosiah 3.19|Mosiah 3:19]]).
 
 In his philosophical short story *The Little Prince,* Antoine de Saint-Exupéry describes the confusion of a little boy who, on discovering a field of roses, perceives that the flower he has, which he has tended with such love, is not unique but very ordinary. Then he comes to the realization that the thing that makes his rose unique is not its outward appearance but the time and the love he has consecrated to taking care of it. He exclaims:
 
-“Men … raise five thousand roses in the same garden—and they do not find in it what they are looking for. …
+“Men … raise five thousand roses in the same garden—and they do not find in it what they are looking for. …
 
-“And yet what they are looking for could be found in one single rose, or in a little water. …
+“And yet what they are looking for could be found in one single rose, or in a little water. …
 
 “But the eyes are blind. One must look with the heart” (\[1943\], 79).
 
@@ -67,8 +69,3 @@ I pray that we will know how to open our hearts like a little child and take ple
 
 
 
-
-
-
-
-#Children #Education #Priorities #Scriptures

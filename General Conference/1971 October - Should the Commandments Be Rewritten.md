@@ -1,6 +1,8 @@
 # Should the Commandments Be Rewritten?
 
-By Elder Richard L. Evans - *Of the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Richard L. Evans - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -46,7 +48,7 @@ And if anyone doubts that all forms of moral infraction and perversion are not c
 
 Why quibble? Why not simply accept the facts and be honest with ourselves?
 
-“… fear God, and keep his commandments: for this is the whole duty of man.” ([[Ecclesiastes 12.13|Eccl. 12:13]].)
+“… fear God, and keep his commandments: for this is the whole duty of man.” ([[Ecclesiastes 12.13|Eccl. 12:13]].)
 
 “If ye love me,” said our Savior, “keep my commandments.” ([[John 14.15|John 14:15]].)
 
@@ -54,25 +56,25 @@ But we ought also to keep the commandments simply as a favor to ourselves.
 
 Many years ago Emerson wrote an essay, “Compensation,” in which he said:
 
-“The world looks like a multiplication-table, or a mathematical equation, which, turn it how you will, balances itself. … Every secret is told, every crime is punished, every virtue rewarded, every wrong redressed, in silence and certainty. …
+“The world looks like a multiplication-table, or a mathematical equation, which, turn it how you will, balances itself. … Every secret is told, every crime is punished, every virtue rewarded, every wrong redressed, in silence and certainty. …
 
-“Cause and effect, means and ends, seed and fruit, cannot be severed; for the effect already blooms in the cause, … the fruit in the seed. …
+“Cause and effect, means and ends, seed and fruit, cannot be severed; for the effect already blooms in the cause, … the fruit in the seed. …
 
-“What will you have? quoth God; pay for it and take it. … Thou shalt be paid exactly for what thou hast done, no more, no less. …
+“What will you have? quoth God; pay for it and take it. … Thou shalt be paid exactly for what thou hast done, no more, no less. …
 
-“A man cannot speak but he judges himself. … Every opinion reacts on him who utters it. …
+“A man cannot speak but he judges himself. … Every opinion reacts on him who utters it. …
 
-“You cannot do wrong without suffering wrong. …
+“You cannot do wrong without suffering wrong. …
 
-“The thief steals from himself. The swindler swindles himself. …
+“The thief steals from himself. The swindler swindles himself. …
 
-“… it is impossible to get anything without its price. …
+“… it is impossible to get anything without its price. …
 
 “Commit a crime, and it seems as if a coat of snow fell on the ground, such as reveals in the woods the track of every partridge and fox and squirrel and mole. You cannot recall the spoken word, you cannot wipe out the foot-track, you cannot draw up the ladder, so as to leave no inlet or clew.
 
-“… we gain the strength of the temptation we resist. …
+“… we gain the strength of the temptation we resist. …
 
-“Men suffer all their life long under the foolish superstition that they can be cheated. But it is … impossible for a man to be cheated by anyone but himself. …”
+“Men suffer all their life long under the foolish superstition that they can be cheated. But it is … impossible for a man to be cheated by anyone but himself. …”
 
 I heard from President Lee a very short sentence that said essentially what Emerson said, that there are no successful sinners. It is a remarkable sentence to contemplate.
 
@@ -119,8 +121,3 @@ There are many things, my beloved brethren and sisters, that I know and you know
 
 
 
-
-
-
-
-#Commandments #Morality

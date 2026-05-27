@@ -1,7 +1,6 @@
 # Almsgiving
 
-
-*See also* [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Poor.md|Poor]]; [[Welfare.md|Welfare]]; [BD Almsgiving](https://www.churchofjesuschrist.org/study/scriptures/bd/almsgiving?lang=eng)
+*See also* [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Poor.md|Poor]]; [[Welfare.md|Welfare]]; [[BD Almsgiving.md|BD Almsgiving]]
 
 *open* thine hand wide unto him, [[Deuteronomy 15.8|Deuteronomy 15:8]].
 
@@ -34,5 +33,3 @@ have more abundantly he should *impart* more, [[Mosiah 18.27|Mosiah 18:27]].
 Wo unto you rich men, that will not *give*, [[D&C 56.16|D&C 56:16]].
 
 thine *alms* have come up as a memorial, [[D&C 112.1|D&C 112:1]].
-
-*See also* [[Proverbs 22.9|Proverbs 22:9]]; [[Isaiah 58.7|Isaiah 58:7]]; [[Acts 3.3|Acts 3:3]]; [[Acts 11.29|Acts 11:29]]; [[Jacob 2.17|Jacob 2:17]]; [[Alma 1.27|Alma 1:27]]; [[Alma 4.13|Alma 4:13]]; [[Alma 34.28|Alma 34:28]]; [[D&C 42.31|D&C 42:31]]; [[D&C 44.6|D&C 44:6]]; [[D&C 88.2|D&C 88:2]]; [[D&C 105.3|D&C 105:3]].

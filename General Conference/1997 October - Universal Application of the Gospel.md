@@ -1,5 +1,7 @@
 # Universal Application of the Gospel
 
+Gordon B. Hinckley
+
 By Elder J. Kent Jolley - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -53,8 +55,3 @@ I also bear witness that Jesus Christ is the author and proponent of the gospel.
 
 
 
-
-
-
-
-#Holy_Ghost #Jesus_Christ #Joy #Peace

@@ -1,5 +1,7 @@
 # The Great Things Which God Has Revealed
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2005 General Conference*
@@ -46,7 +48,7 @@ I have just completed reading a newly published book by a renowned scholar. It i
 
 We reply that it is, insofar as it is translated correctly. The hand of the Lord was in its making. But it now does not stand alone. There is another witness of the significant and important truths found therein.
 
-Scripture declares that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Corinthians 13:1]]).
+Scripture declares that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Corinthians 13:1]]).
 
 The Book of Mormon has come forth by the gift and power of God. It speaks as a voice from the dust in testimony of the Son of God. It speaks of His birth, of His ministry, of His Crucifixion and Resurrection, and of His appearance to the righteous in the land Bountiful on the American continent.
 
@@ -123,8 +125,3 @@ To this I add my solemn witness of the divinity of his calling, of the virtue of
 
 
 
-
-
-
-
-#Book_Of_Mormon #Church_History #God_The_Father #Joseph_Smith #Priesthood

@@ -1,6 +1,8 @@
 # Roadblocks to Progress
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -12,7 +14,7 @@ She seemed taken aback and surprised when, instead of saying, “I will have the
 
 Many of us set up roadblocks to progress and contribute to our own unhappiness while we wait for others to seek us out and offer help. Negative attitudes lived with today cause stagnation, misery, and bitterness tomorrow. It is unproductive for those who should be anxiously engaged in seeking the abundant life to nurse personal hurts. We are all God’s children. If we love Him, we will feed His sheep wherever they may be found, without regard as to our own personal plight or situation. Often we can best feed others when we are hungry ourselves or not completely comfortable in the fold that we presently occupy. Very often those who are hungry, helpless, and cold can best be rescued by those who have been through the same exposures. Marking time or stalling should not be indulged in by the weak, weary, uncertain, and unrecognized. Instead, there is a healing power as we use our energy in action, in service, and in lifting others.
 
-It was Booker T. Washington who wisely stated, “Success is to be measured not so much by the position that one has reached in life as by the obstacles which he has overcome while trying to succeed.” (*The International Dictionary of Thoughts,* comp. by John P. Bradley and others, Chicago: J. G. Ferguson Publishing Company, 1969, p. 698.) Victories in life come through our ability to work around and over the obstacles that cross our path. We grow stronger as we climb our own mountains.
+It was Booker T. Washington who wisely stated, “Success is to be measured not so much by the position that one has reached in life as by the obstacles which he has overcome while trying to succeed.” (*The International Dictionary of Thoughts,* comp. by John P. Bradley and others, Chicago: J. G. Ferguson Publishing Company, 1969, p. 698.) Victories in life come through our ability to work around and over the obstacles that cross our path. We grow stronger as we climb our own mountains.
 
 “The brightest crowns that are worn in heaven have been tried, and smelted, polished and glorified through the furnace of tribulation” according to Thomas Carlyle (*Vital Quotations,* Emerson Roy West, comp., Salt Lake City: Bookcraft, 1968, p. 312).
 
@@ -32,7 +34,7 @@ The wise person will avoid the flood of bitterness and hatred that can be caused
 
 *Yielding to the sorrow of tragedy and grief.* Too often the tragic loss of a child, husband, wife, mother, father, or other loved ones becomes a turning point in life. Some yield to the damaging thought that if there be an all-wise and loving Eternal Father, how could He allow this to happen to me and mine? We allow the heartache to break the band and strengthening tie to Him who has promised to see us successfully through our Gethsemanes. Some of us in our moments of greatest despair turn away in bitterness from the arm of strength, comfort, and peace. Sometimes in our darkest hours we lose sight of the light as we dwell upon the unanswerable questions: “Why does God permit this to happen to me or to our family? What have we done to deserve this?”
 
-This incident was shared by Lucile F. Johnson of Orem, Utah: “There was an attractive lady whose company everyone sought and enjoyed. She was a delight to be around because she seemed to love life and people to the fullest. One day I said to her, ‘You are such a joy to all of us. What is your secret? Can you tell me?’
+This incident was shared by Lucile F. Johnson of Orem, Utah: “There was an attractive lady whose company everyone sought and enjoyed. She was a delight to be around because she seemed to love life and people to the fullest. One day I said to her, ‘You are such a joy to all of us. What is your secret? Can you tell me?’
 
 “‘Yes,’ she answered. ‘One word changed my life.’
 
@@ -65,7 +67,7 @@ In contrast to this process, how discouraging it is to witness someone who lives
 
 *Letting fears inhibit progress.* Fear is another roadblock which may stop our eternal progress. It keeps us from attempting anything significant because we are afraid of failure or rejection. We won’t accept opportunities for service in the Church or in the community because we might make a mistake.
 
-“For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind” ([[2 Timothy 1.7|2 Tim. 1:7]]). What a tragedy it is in our lives when we are afraid to try, afraid to make decisions, afraid to trust the Lord, or even afraid to make an error in judgment. Oh, that we could remember the great teaching of the Savior to Peter when fear caused him to fail to walk and to even sink.
+“For God hath not given us the spirit of fear; but of power, and of love, and of a sound mind” ([[2 Timothy 1.7|2 Tim. 1:7]]). What a tragedy it is in our lives when we are afraid to try, afraid to make decisions, afraid to trust the Lord, or even afraid to make an error in judgment. Oh, that we could remember the great teaching of the Savior to Peter when fear caused him to fail to walk and to even sink.
 
 “But the ship was now in the midst of the sea, tossed with waves: for the wind was contrary.
 
@@ -92,8 +94,3 @@ May we strive for that day and knowledge, I humbly pray. God does live. He does 
 
 
 
-
-
-
-
-#Attitude #Repentance

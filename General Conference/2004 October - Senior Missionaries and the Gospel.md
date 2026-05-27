@@ -1,5 +1,7 @@
 # Senior Missionaries and the Gospel
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -71,7 +73,7 @@ As one among the “special witnesses of the name of Christ in all the world,”
 
 [^1]: [[Mark 16.15|Mark 16:15]]; see also [[Matthew 28.19|Matthew 28:19]]; [[Mormon 9.22|Mormon 9:22]]; [[D&C 42.58|D&C 42:58]]; [[D&C 68.8|68:8]]; [[D&C 80.1|80:1]]; [[D&C 84.62|84:62]]; [[D&C 112.28|112:28]].
 
-[^2]: For example, see Gordon B. Hinckley, “There Must Be Messengers,” *Ensign,* Oct. 1987, 2–5; see also L. Tom Perry, in Conference Report, Apr. 1984, 104–8; or *Ensign,* May 1984, 78–80; M. Russell Ballard, “Missionary Couples,” *Tambuli,* May 1990, 16–21; *Ensign,* June 1988, 8–12; Robert D. Hales, in Conference Report, Apr. 2001, 31–34; or *Ensign,* May 2001, 25–27.
+[^2]: For example, see Gordon B. Hinckley, “There Must Be Messengers,” *Ensign,* Oct. 1987, 2–5; see also L. Tom Perry, in Conference Report, Apr. 1984, [[1984 April - “Go Ye Therefore, and Teach All Nations”.md|104–8]]; or *Ensign,* May 1984, 78–80; M. Russell Ballard, “Missionary Couples,” *Tambuli,* May 1990, 16–21; *Ensign,* June 1988, 8–12; Robert D. Hales, in Conference Report, Apr. 2001, [[2001 April - Couple Missionaries - A Time to Serve.md|31–34]]; or *Ensign,* May 2001, 25–27.
 
 [^3]: See “Serving as Couple Missionaries,” *Ensign,* Sept. 1997, 15.
 
@@ -101,18 +103,13 @@ As one among the “special witnesses of the name of Christ in all the world,”
 
 [^16]: Additional information can be found on the Church Web site [www.lds.org](https://www.churchofjesuschrist.org) under “Service Opportunities for Senior Missionaries” (click on “Other Resources” on the home page, then on “Church-Service Missionary Opportunities”).
 
-[^17]: See Bible Dictionary, “Gospels,” 682–83.
+[^17]: See Bible Dictionary, “[[BD Gospels|Gospels]],” 682–83.
 
-[^18]: [[3 Nephi 27.13|3 Nephi 27:13–14]][[3 Nephi 27.14|]].
+[^18]: [[3 Nephi 27.13|3 Nephi 27:13–14]][[3 Nephi 27.14|]].
 
-[^19]: [[3 Nephi 27.21|3 Nephi 27:21]].
+[^19]: [[3 Nephi 27.21|3 Nephi 27:21]].
 
 [^20]: See [[D&C 33.6|D&C 33:6–12]][[D&C 33.7|]][[D&C 33.8|]][[D&C 33.9|]][[D&C 33.10|]][[D&C 33.11|]][[D&C 33.12|]]; [[D&C 39.6|39:6]].
 
 [^21]: [[D&C 107.23|D&C 107:23]].
 
-
-
-
-
-#Couple_Missionaries #Jesus_Christ #Missionary_Work

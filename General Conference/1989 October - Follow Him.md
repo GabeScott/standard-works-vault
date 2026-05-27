@@ -1,5 +1,7 @@
 # Follow Him
 
+Ezra Taft Benson
+
 By Michaelene P. Grassli - *Primary General President*
 
 *Given in the October session of the 1989 General Conference*
@@ -79,8 +81,3 @@ Just as food satisfies our physical hunger, we can partake with satisfaction and
 
 
 
-
-
-
-
-#Jesus_Christ #Obedience #Plan_Of_Salvation #Spirituality #Women #Youth

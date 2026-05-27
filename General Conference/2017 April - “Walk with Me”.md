@@ -1,6 +1,8 @@
 # “Walk with Me”
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Bonnie H. Cordon
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -26,7 +28,7 @@ There are very few people in the world who have that understanding. Even those w
 
 “The power and authority of the … Aaronic Priesthood, is to hold the keys of the ministering of angels” ([[D&C 107.18|D&C 107:18–20]][[D&C 107.19|]][[D&C 107.20|]]).
 
-“In the ordinances \[of the priesthood\], the power of godliness is manifest. …
+“In the ordinances \[of the priesthood\], the power of godliness is manifest. …
 
 “For without this no man can see the face of God, even the Father, and live” ([[D&C 84.20|D&C 84:20, 22]][[D&C 84.22|]]).
 
@@ -48,7 +50,7 @@ The next step is described in an interaction between Jehovah and Enoch. We know 
 
 Brethren, our ordination to the priesthood is an invitation from the Lord to walk with Him. And what does it mean to walk with the Lord? It means to do what He does, to serve the way He serves. He sacrificed His own comforts to bless those in need, so that’s what we try to do. He seemed to take particular notice of people who were overlooked and even shunned by society, so we should try to do that too. He testified boldly yet lovingly of the true doctrine He received from His Father, even if it was unpopular, and so must we. He said to all, “Come unto me” ([[Matthew 11.28|Matthew 11:28]]), and we say to all, “Come unto Him.” As priesthood holders, we are His representatives. We act not for ourselves but for Him. We speak not our words but His. The people we serve come to know Him better because of our service.
 
-As soon as we accept the Lord’s invitation “Walk with me,” the nature of our priesthood service changes. It becomes all at once higher and nobler but also more achievable, because we know that we are not alone. I felt this most powerfully when President Thomas S. Monson laid his hands on my head nine years ago and blessed me as I began my service in my current calling. In that blessing, he recited these words of the Savior: “And whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|D&C 84:88]]).
+As soon as we accept the Lord’s invitation “Walk with me,” the nature of our priesthood service changes. It becomes all at once higher and nobler but also more achievable, because we know that we are not alone. I felt this most powerfully when President Thomas S. Monson laid his hands on my head nine years ago and blessed me as I began my service in my current calling. In that blessing, he recited these words of the Savior: “And whoso receiveth you, there I will be also, for I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|D&C 84:88]]).
 
 I have relied upon that promise many times, and I have seen it fulfilled in many ways throughout my 72 years of priesthood service. It happened when I was a new Aaronic Priesthood holder with an assignment to pass the sacrament. Terrified that I would make a mistake, I went outside the chapel before the meeting started and prayed in desperation that God would help me. An answer came. I felt that the Lord was with me. I felt His confidence in me, and so I felt confidence in my part in His work.
 
@@ -62,19 +64,14 @@ I learned important lessons from these experiences walking with the Lord in doin
 
 The second lesson is that the Lord’s work is not just to solve problems; it is to build people. So as you walk with Him in priesthood service, you may find that sometimes what seems like the most efficient solution is not the Lord’s preferred solution because it does not allow people to grow. If you listen, He will teach you His ways. Remember that God’s work and glory is not simply to run an effective organization; it is “to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]). This is, after all, why He gives His priesthood authority to flawed mortals like you and me and invites us to participate in His work. Our progress *is* His work!
 
-Now the third lesson: Walking with the Savior in priesthood service will change the way you look at others. He will teach you to see them through His eyes, which means seeing past an outward appearance and into the heart (see [[1 Samuel 16.7|1 Samuel 16:7]]). This is how the Savior was able to see Simon not as an impulsive fisherman but as Peter, the rock-solid future leader of His Church (see [[Luke 5.1|Luke 5:1–11]][[Luke 5.2|]][[Luke 5.3|]][[Luke 5.4|]][[Luke 5.5|]][[Luke 5.6|]][[Luke 5.7|]][[Luke 5.8|]][[Luke 5.9|]][[Luke 5.10|]][[Luke 5.11|]]). This is how He was able to see Zacchaeus not as the corrupt tax collector others saw but as an honest, upright son of Abraham (see [[Luke 19.1|Luke 19:1–9]][[Luke 19.2|]][[Luke 19.3|]][[Luke 19.4|]][[Luke 19.5|]][[Luke 19.6|]][[Luke 19.7|]][[Luke 19.8|]][[Luke 19.9|]]). If you walk with the Savior long enough, you will learn to see everyone as a child of God with limitless potential, regardless of what his or her past may have been. And if you continue walking with the Savior, you will develop another gift He has—the ability to help people see that potential in themselves and so repent.
+Now the third lesson: Walking with the Savior in priesthood service will change the way you look at others. He will teach you to see them through His eyes, which means seeing past an outward appearance and into the heart (see [[1 Samuel 16.7|1 Samuel 16:7]]). This is how the Savior was able to see Simon not as an impulsive fisherman but as Peter, the rock-solid future leader of His Church (see [[Luke 5.1|Luke 5:1–11]][[Luke 5.2|]][[Luke 5.3|]][[Luke 5.4|]][[Luke 5.5|]][[Luke 5.6|]][[Luke 5.7|]][[Luke 5.8|]][[Luke 5.9|]][[Luke 5.10|]][[Luke 5.11|]]). This is how He was able to see Zacchaeus not as the corrupt tax collector others saw but as an honest, upright son of Abraham (see [[Luke 19.1|Luke 19:1–9]][[Luke 19.2|]][[Luke 19.3|]][[Luke 19.4|]][[Luke 19.5|]][[Luke 19.6|]][[Luke 19.7|]][[Luke 19.8|]][[Luke 19.9|]]). If you walk with the Savior long enough, you will learn to see everyone as a child of God with limitless potential, regardless of what his or her past may have been. And if you continue walking with the Savior, you will develop another gift He has—the ability to help people see that potential in themselves and so repent.
 
 My dear brethren of the priesthood, in many ways, we are like the two disciples who walked the road to Emmaus on that first Easter Sunday. It was Resurrection morning, but they were not yet sure there was a resurrection or what resurrection even meant. They had “trusted that \[Jesus of Nazareth\] should have redeemed Israel,” but they were “slow of heart to believe” everything the scriptures taught about resurrection. As they walked along and tried to reason it out together, “Jesus himself drew near, and went with them. But their eyes were holden that they should not know him.” (See [[Luke 24.13|Luke 24:13–32]][[Luke 24.14|]][[Luke 24.15|]][[Luke 24.16|]][[Luke 24.17|]][[Luke 24.18|]][[Luke 24.19|]][[Luke 24.20|]][[Luke 24.21|]][[Luke 24.22|]][[Luke 24.23|]][[Luke 24.24|]][[Luke 24.25|]][[Luke 24.26|]][[Luke 24.27|]][[Luke 24.28|]][[Luke 24.29|]][[Luke 24.30|]][[Luke 24.31|]][[Luke 24.32|]].)
 
 I testify that when we walk the path of priesthood service, the Savior Jesus Christ goes with us, for it is His path, His way. His light goes before us, and His angels are round about us. We may lack a full understanding of what the priesthood is or how to exercise it as He does. But if we pay close attention to those moments when our hearts “burn within us” ([[Luke 24.32|Luke 24:32]]), our eyes can be opened and we will see His hand in our lives and in our service. I testify that we come to know Him best by working with Him and serving Him in the great work of bringing salvation to God’s children. “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” ([[Mosiah 5.13|Mosiah 5:13]]). Jesus Christ is our Master. This is His Church. It is His priesthood which we hold. May we each choose to walk with Him and to recognize how He walks with us.
 
-I give you my solemn witness that Jesus is the Christ, our resurrected Lord. I bear you my testimony that the priesthood He has trusted us with is the power to speak and to act in His name. We are children of a loving Heavenly Father who answers our prayers and sends the Holy Ghost to strengthen us in every priesthood responsibility we are blessed to receive. Joseph Smith saw the Father and the Son. He received the keys of the priesthood, which have been passed on to President Thomas S. Monson, who exercises them today. I so testify in the name of Jesus Christ, amen.
+I give you my solemn witness that Jesus is the Christ, our resurrected Lord. I bear you my testimony that the priesthood He has trusted us with is the power to speak and to act in His name. We are children of a loving Heavenly Father who answers our prayers and sends the Holy Ghost to strengthen us in every priesthood responsibility we are blessed to receive. Joseph Smith saw the Father and the Son. He received the keys of the priesthood, which have been passed on to President Thomas S. Monson, who exercises them today. I so testify in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Jesus_Christ #Priesthood #Service

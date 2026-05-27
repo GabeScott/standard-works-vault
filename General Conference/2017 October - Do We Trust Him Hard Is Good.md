@@ -1,6 +1,8 @@
 # Do We Trust Him? Hard Is Good
 
-By Elder Stanley G. Ellis - *Emeritus Member of the Seventy*
+Sharon Eubank
+
+By Elder Stanley G. Ellis - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -20,7 +22,7 @@ Now the question for this conference is “Do we trust Him?”
 
 ## Do We Trust Him?
 
-President Thomas S. Monson often reminds us to “trust in the Lord with all thine heart; and lean not unto thine own understanding.
+President Thomas S. Monson often reminds us to “trust in the Lord with all thine heart; and lean not unto thine own understanding.
 
 “In all thy ways acknowledge him, and he shall direct thy paths.
 
@@ -32,7 +34,7 @@ Looking back, I learned some of the best lessons during the hardest times—whet
 
 ## Hard Is Good
 
-Hard makes us stronger, humbles us, and gives us a chance to prove ourselves. Our beloved handcart pioneers came to know God *in their extremities.* Why did it take two chapters for Nephi and his brothers to obtain the brass plates and only three verses to enlist Ishmael’s family to join them in the wilderness? (see [[1 Nephi 3.1|1 Nephi 3]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]]–[[1 Nephi 4.1|4]][[1 Nephi 4.2|]][[1 Nephi 4.3|]][[1 Nephi 4.4|]][[1 Nephi 4.5|]][[1 Nephi 4.6|]][[1 Nephi 4.7|]][[1 Nephi 4.8|]][[1 Nephi 4.9|]][[1 Nephi 4.10|]][[1 Nephi 4.11|]][[1 Nephi 4.12|]][[1 Nephi 4.13|]][[1 Nephi 4.14|]][[1 Nephi 4.15|]][[1 Nephi 4.16|]][[1 Nephi 4.17|]][[1 Nephi 4.18|]][[1 Nephi 4.19|]][[1 Nephi 4.20|]][[1 Nephi 4.21|]][[1 Nephi 4.22|]][[1 Nephi 4.23|]][[1 Nephi 4.24|]][[1 Nephi 4.25|]][[1 Nephi 4.26|]][[1 Nephi 4.27|]][[1 Nephi 4.28|]][[1 Nephi 4.29|]][[1 Nephi 4.30|]][[1 Nephi 4.31|]][[1 Nephi 4.32|]][[1 Nephi 4.33|]][[1 Nephi 4.34|]][[1 Nephi 4.35|]][[1 Nephi 4.36|]][[1 Nephi 4.37|]][[1 Nephi 4.38|]]; [[1 Nephi 7.3|7:3–5]][[1 Nephi 7.4|]][[1 Nephi 7.5|]]). It seems the Lord wanted to strengthen Nephi through the struggle of obtaining the plates.
+Hard makes us stronger, humbles us, and gives us a chance to prove ourselves. Our beloved handcart pioneers came to know God *in their extremities.* Why did it take two chapters for Nephi and his brothers to obtain the brass plates and only three verses to enlist Ishmael’s family to join them in the wilderness? (see [[1 Nephi 3.1|1 Nephi 3]]–[[1 Nephi 4.1|4]]; [[1 Nephi 7.3|7:3–5]][[1 Nephi 7.4|]][[1 Nephi 7.5|]]). It seems the Lord wanted to strengthen Nephi through the struggle of obtaining the plates.
 
 The hard things in our lives should come as no surprise. One of the earliest covenants we make with the Lord is to live the law of sacrifice. Sacrifice, by definition, involves giving up something desirable. With experience we realize it is a small price to pay in relation to the blessings that follow. Under the direction of Joseph Smith, it was said that “a religion that does not require the sacrifice of all things never has power sufficient to produce the faith necessary unto life and salvation.”[^1]
 
@@ -44,7 +46,7 @@ Hard is part of the gospel plan. One of the purposes of this life is for us to b
 
 During the terrible days in Liberty Jail, the Lord taught Joseph Smith to “endure it well” ([[D&C 121.8|D&C 121:8]]) and promised that if he did, “all these things shall give thee experience, and shall be for thy good” ([[D&C 122.7|D&C 122:7]]).
 
-President Thomas S. Monson has pleaded, “May we ever choose the harder right instead of the easier wrong.”[^2] With regard to our temples, he stated that “no sacrifice is too great, no price too heavy, no struggle too difficult in order to receive \[temple\] blessings.”[^3]
+President Thomas S. Monson has pleaded, “May we ever choose the harder right instead of the easier wrong.”[^2] With regard to our temples, he stated that “no sacrifice is too great, no price too heavy, no struggle too difficult in order to receive \[temple\] blessings.”[^3]
 
 In the world of nature, hard is part of the circle of life. It is hard for a baby chick to hatch out of that tough eggshell. But when someone tries to make it easier, the chick does not develop the strength necessary to live. In a similar way, the struggle of a butterfly to escape the cocoon strengthens it for the life it will live.
 
@@ -58,7 +60,7 @@ We each choose our reaction to hard.
 
 Before this calling I was a financial consultant in Houston, Texas. Most of my work was with multimillionaires who owned their own businesses. Almost all of them had created their successful businesses from nothing through lots of hard work. The saddest thing for me was to hear some of them say that they wanted to make it easier for their children. They did not want their children to suffer as they had. In other words, they would deprive their children of the very thing that had made them successful.
 
-By contrast, we know a family who took a different approach. The parents were inspired by J. C. Penney’s experience where his father told him when he turned eight years old that he was on his own financially. They came up with their own version: as their children graduated from high school, they were on their own financially—for further education (college, graduate school) and for their financial maintenance (truly self-reliant) (see [[D&C 83.4|D&C 83:4]]). Happily, the children reacted wisely. All of them are college graduates, and several also completed graduate school—all on their own. It wasn’t easy, but they did it. They did it with hard work and faith.
+By contrast, we know a family who took a different approach. The parents were inspired by J. C. Penney’s experience where his father told him when he turned eight years old that he was on his own financially. They came up with their own version: as their children graduated from high school, they were on their own financially—for further education (college, graduate school) and for their financial maintenance (truly self-reliant) (see [[D&C 83.4|D&C 83:4]]). Happily, the children reacted wisely. All of them are college graduates, and several also completed graduate school—all on their own. It wasn’t easy, but they did it. They did it with hard work and faith.
 
 ## Faith to Trust Him
 
@@ -66,7 +68,7 @@ The question “Do we trust Him?” may be better stated, “Do we have the *fai
 
 Do we have the *faith* to trust His promises regarding tithing that with 90 percent of our increase *plus the Lord’s help,* we are better off than with 100 percent *on our own*?
 
-Do we have sufficient *faith* to trust that He will visit us in our afflictions (see [[Mosiah 24.14|Mosiah 24:14]]), that He will contend with those that contend with us (see [[Isaiah 49.25|Isaiah 49:25]]; [[2 Nephi 6.17|2 Nephi 6:17]]), and that He will consecrate our afflictions for our gain? (see [[2 Nephi 2.2|2 Nephi 2:2]]).
+Do we have sufficient *faith* to trust that He will visit us in our afflictions (see [[Mosiah 24.14|Mosiah 24:14]]), that He will contend with those that contend with us (see [[Isaiah 49.25|Isaiah 49:25]]; [[2 Nephi 6.17|2 Nephi 6:17]]), and that He will consecrate our afflictions for our gain? (see [[2 Nephi 2.2|2 Nephi 2:2]]).
 
 Will we exercise the *faith* necessary to keep His commandments so He can bless us both temporally and spiritually? And will we continue faithful to the end so that He can receive us into His presence? (see [[Mosiah 2.41|Mosiah 2:41]]).
 
@@ -78,7 +80,7 @@ Our world today is difficult. We have rampant evil, corruption in every nation, 
 
 ## Fear Not!
 
-In whatever we do, we should not decide nor act out of a spirit of fear. Truly, “God hath not given us the spirit of fear” ([[2 Timothy 1.7|2 Timothy 1:7]]). (Do you realize the idea of “fear not” is emphasized throughout the scriptures?) The Lord has taught me that discouragement and fear are tools of the adversary. The Lord’s answer to hard times is to go forward with faith.
+In whatever we do, we should not decide nor act out of a spirit of fear. Truly, “God hath not given us the spirit of fear” ([[2 Timothy 1.7|2 Timothy 1:7]]). (Do you realize the idea of “fear not” is emphasized throughout the scriptures?) The Lord has taught me that discouragement and fear are tools of the adversary. The Lord’s answer to hard times is to go forward with faith.
 
 ## What Is Hard?
 
@@ -92,20 +94,18 @@ My brothers and sisters, I witness that these leaders seated behind me are calle
 
 I love our Savior, Jesus Christ. I marvel that He loved the Father and us enough to become our Savior and Redeemer; that by so doing, He had to suffer such that it caused Him “to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit” ([[D&C 19.18|D&C 19:18]]). Yet faced with this awful prospect and its necessity, He affirmed to the Father, “Not my will, but thine, be done” ([[Luke 22.42|Luke 22:42]]). I glory in the angel’s words: “He is not here: for he is risen” ([[Matthew 28.6|Matthew 28:6]]).
 
-His example truly is “the way, the truth, and the life” ([[John 14.6|John 14:6]]). Only by following that example can we find “peace in this world, and eternal life in the world to come” ([[D&C 59.23|D&C 59:23]]). As I have followed His example and applied His teachings, I have learned for myself that each of His “exceedingly great and precious promises” ([[2 Peter 1.4|2 Peter 1:4]]) is true.
+His example truly is “the way, the truth, and the life” ([[John 14.6|John 14:6]]). Only by following that example can we find “peace in this world, and eternal life in the world to come” ([[D&C 59.23|D&C 59:23]]). As I have followed His example and applied His teachings, I have learned for myself that each of His “exceedingly great and precious promises” ([[2 Peter 1.4|2 Peter 1:4]]) is true.
 
-My greatest desires are to stand with Mormon as a true disciple of Jesus Christ (see [[3 Nephi 5.13|3 Nephi 5:13]]) and to one day hear from His lips, “Well done, thou good and faithful servant” ([[Matthew 25.21|Matthew 25:21]]). In the name of Jesus Christ, amen.
+My greatest desires are to stand with Mormon as a true disciple of Jesus Christ (see [[3 Nephi 5.13|3 Nephi 5:13]]) and to one day hear from His lips, “Well done, thou good and faithful servant” ([[Matthew 25.21|Matthew 25:21]]). In the name of Jesus Christ, amen.
 
 
 
 
 [^1]: *Lectures on Faith* (1985), 69.
 
-[^2]: Thomas S. Monson, “[Choices](https://churchofjesuschrist.org/study/liahona/2016/05/sunday-morning-session/choices?lang=eng),” *Ensign* or *Liahona,* May 2016, 86.
+[^2]: Thomas S. Monson, “[Choices](https://www.churchofjesuschrist.org/study/liahona/2016/05/sunday-morning-session/choices?lang=eng),” *Ensign* or *Liahona,* May 2016, 86.
 
 [^3]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 92.
 
+[^4]: See John Stuart Mill, *Inaugural Address: Delivered to the University of St. Andrews, Feb. 1, 1867* (1867), 36.
 
-
-
-#Adversity #Faith #Godhead #Jesus_Christ #Plan_Of_Salvation #Sacrifice #Trust

@@ -1,5 +1,7 @@
 # “Let Us Move This Work Forward”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
@@ -10,7 +12,7 @@ My brethren and sisters, we now bring to a conclusion the 155th Semiannual Gener
 
 All of us have appreciated the attendance of President Spencer W. Kimball in all four of the general sessions. Although he has not been able to speak to us, we have been able to look into his face, and that has been an inspiration. We know that he still stands as the prophet of the Lord in this day.
 
-I pray that as we return to our homes, we may do so with stronger resolution to live the gospel and to teach our children by precept and example to do so. Nephi’s great words to his father, when he and his brothers were asked to go back to Jerusalem for the record of their forebears, are quoted frequently among us. They are familiar to all of you; nonetheless, I wish to repeat them, with the suggestion that each of us return to our homes with these words as a motto for the months ahead: “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
+I pray that as we return to our homes, we may do so with stronger resolution to live the gospel and to teach our children by precept and example to do so. Nephi’s great words to his father, when he and his brothers were asked to go back to Jerusalem for the record of their forebears, are quoted frequently among us. They are familiar to all of you; nonetheless, I wish to repeat them, with the suggestion that each of us return to our homes with these words as a motto for the months ahead: “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them.” ([[1 Nephi 3.7|1 Ne. 3:7]].)
 
 In the last two days we have been reminded frequently of the commandments of the Lord. We have had set forth before us the counsel of his prophets. All of the counsel will have been in vain if those of us who have heard it do not have added resolution in our hearts to go forth now with a fortified spirit of obedience to the will of the Lord.
 
@@ -40,7 +42,7 @@ We *can* observe that Word of Wisdom. We receive numerous letters inquiring whet
 
 We *can* pay our tithing. This is not so much a matter of money as it is a matter of faith. I have yet to find a faithful tithe payer who cannot testify that in a very literal and wonderful way the windows of heaven have been opened and blessings have been poured out upon him or her.
 
-I urge you, my brethren and sisters, every one of you, to take the Lord at His word in this important matter. It is He who has given the commandment and made the promise. I go back to Nephi, who in that time of worry and concern said to his brothers: “Let us be faithful in keeping the commandments of the Lord; for behold he is mightier than all the earth.” ([[1 Nephi 4.1|1 Ne. 4:1]].)
+I urge you, my brethren and sisters, every one of you, to take the Lord at His word in this important matter. It is He who has given the commandment and made the promise. I go back to Nephi, who in that time of worry and concern said to his brothers: “Let us be faithful in keeping the commandments of the Lord; for behold he is mightier than all the earth.” ([[1 Nephi 4.1|1 Ne. 4:1]].)
 
 It is not a burden to refrain from two meals a month and give the value thereof to assist in caring for the poor. It is, rather, a blessing. Not only will physical benefits flow from the observance of this principle, but spiritual values also. Our program of the fast day and the fast offering is so simple and so beautiful that I cannot understand why people everywhere do not take it up. Hearings have recently been held in the Congress of the United States on a proposal to recommend to the president a day of fasting to raise funds for the starving people of Africa. Our own experience last spring was so easy of execution and so tremendously productive that our consecrations have blessed thousands without causing any of us to suffer in the least.
 
@@ -58,7 +60,7 @@ As I conclude and as we close this conference, I think of the charge given by th
 
 “And keep the charge of the Lord thy God, to walk in his ways, to keep his statutes, and his commandments, and his judgments, and his testimonies, as it is written in the law of Moses, that thou mayest prosper in all that thou doest, and whithersoever thou turnest thyself:
 
-“That the Lord may continue his word which he spake concerning me, saying, If thy children take heed to their way, to walk before me in truth with all their heart and with all their soul, there shall not fail thee (said he) a man on the throne of Israel.” ([[1 Kings 2.2|1 Kgs. 2:2–4]][[1 Kings 2.3|]][[1 Kings 2.4|]].)
+“That the Lord may continue his word which he spake concerning me, saying, If thy children take heed to their way, to walk before me in truth with all their heart and with all their soul, there shall not fail thee (said he) a man on the throne of Israel.” ([[1 Kings 2.2|1 Kgs. 2:2–4]][[1 Kings 2.3|]][[1 Kings 2.4|]].)
 
 If we will so conduct ourselves as Latter-day Saints, this work will never fail nor even lag. It will move forward toward that destiny given it by Him whose name it bears. Our Father will smile with favor upon us, and we shall look to Him and live.
 
@@ -67,8 +69,3 @@ For these great blessings I humbly pray as I express unto you my appreciation, m
 
 
 
-
-
-
-
-#Faith

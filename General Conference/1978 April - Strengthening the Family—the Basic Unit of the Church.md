@@ -1,6 +1,8 @@
 # Strengthening the Family—the Basic Unit of the Church
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -32,7 +34,7 @@ Here in Salt Lake City, the world headquarters of the Church, we are also concer
 
 As the *Deseret News,* with the *Church News,* strengthens our city and state, our newspaper can also strengthen the homes of you brethren residing in this area of the world headquarters of the Church.
 
-Brethren, by being alert to what enters your home, you can do much in helping your family seek that which is “virtuous, lovely, or of good report or praiseworthy.” ([[Articles of Faith 1.13|A of F 1:13]].)
+Brethren, by being alert to what enters your home, you can do much in helping your family seek that which is “virtuous, lovely, or of good report or praiseworthy.” ([[Articles of Faith 1.13|A of F 1:13]].)
 
 I had a note one day from a little boy who said, “I know a man who is such a wonderful man, and his name is The Bishop.” We always had a good bishop. We always loved him. There was Bishop Zundel and Bishop Moody and Bishop Tyler and Bishop Wilkins. I loved all my bishops. I hope all my young brethren love their bishops as I did.
 
@@ -64,7 +66,7 @@ Then in 1902 we broke ground for a new stake and ward building in Thatcher, and 
 
 When the new stake building—which still stands and is being used for stake and ward purposes—was completed, it had just two large, rectangular areas, one for the meetinghouse on the top floor and one for recreation, the latter being the basement. I remember we had wires strung across the building and cloth curtains between the classes. We could hear something of nearly every class that was going on and even sometimes see, if the lights were just right. I remember some years later when we of the basketball team of the Gila Academy did our practicing here and played our games, and I always took more than my share of the credit for the fact that in this smaller building with some obstructions, we defeated some high school and college teams while we were but a high school team.
 
-I remember some of the teachers. We always went to priesthood meeting on Monday nights, and we deacons would congregate around the potbellied stove and there receive our instructions. I remember some excellent teachers in Orville Allen and LeRoi C. Snow and others in that place, and also formed some excellent friendships among other young men of my age. LeRoi C. Snow of Salt Lake City was there in the bank, and he intrigued us as we became deacons with his many stories of the Red Sea, and the crossing of the Red Sea by the children of Israel, and Jerusalem where he had been.
+I remember some of the teachers. We always went to priesthood meeting on Monday nights, and we deacons would congregate around the potbellied stove and there receive our instructions. I remember some excellent teachers in Orville Allen and LeRoi C. Snow and others in that place, and also formed some excellent friendships among other young men of my age. LeRoi C. Snow of Salt Lake City was there in the bank, and he intrigued us as we became deacons with his many stories of the Red Sea, and the crossing of the Red Sea by the children of Israel, and Jerusalem where he had been.
 
 I remember going to Sunday School, and I believe that I received a great deal of inspiration for the foundation of my life in this place. We had opening exercises in the chapel above and then went downstairs to our classwork.
 
@@ -82,7 +84,7 @@ And then, if sometimes we had forgotten the verses, we could all join lustily in
 
 The song “Love at Home” (*Hymns,* no. 169) we sang in our home evenings, which the Kimball family always held in the early days of this century.
 
-I remember the song “In Our Lovely Deseret,” which Sister Eliza R. Snow wrote. She composed many of our songs. I can remember how lustily we sang:
+I remember the song “In Our Lovely Deseret,” which Sister Eliza R. Snow wrote. She composed many of our songs. I can remember how lustily we sang:
 
 >Hark! Hark! Hark! ’tis children’s music,
 >Children’s voices, O, how sweet,
@@ -113,7 +115,7 @@ And I learned to despise them. There were people in our rural community who were
 >They are seeking to be great and good and wise.
 >
 
-And then we’d “Hark! Hark! Hark” again, “… When in innocence and love Like the angels up above.” And then the third verse went:
+And then we’d “Hark! Hark! Hark” again, “… When in innocence and love Like the angels up above.” And then the third verse went:
 
 >They should be instructed young,
 >How to watch and guard the tongue,
@@ -184,8 +186,3 @@ Salvation could not come to this world without the mediation of Jesus Christ. Ho
 
 
 
-
-
-
-
-#Children #Family #Scripture_Study

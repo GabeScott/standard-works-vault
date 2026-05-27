@@ -1,5 +1,7 @@
 # “Behold the Man”
 
+Gordon B. Hinckley
+
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1997 General Conference*
@@ -121,7 +123,7 @@ God bless you, noble men of the Aaronic Priesthood, in the name of Jesus Christ,
 
 [^2]: See [[Moses 6.57|Moses 6:57–68]][[Moses 6.58|]][[Moses 6.59|]][[Moses 6.60|]][[Moses 6.61|]][[Moses 6.62|]][[Moses 6.63|]][[Moses 6.64|]][[Moses 6.65|]][[Moses 6.66|]][[Moses 6.67|]][[Moses 6.68|]].
 
-[^3]: See [[D&C 76.40|D&C 76:40–44]][[D&C 76.41|]][[D&C 76.42|]][[D&C 76.43|]][[D&C 76.44|]]; [[3 Nephi 27.13|3 Ne. 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[D&C 39.5|D&C 39:5–6]][[D&C 39.6|]]; see also *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 121.
+[^3]: See [[D&C 76.40|D&C 76:40–44]][[D&C 76.41|]][[D&C 76.42|]][[D&C 76.43|]][[D&C 76.44|]]; [[3 Nephi 27.13|3 Ne. 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[D&C 39.5|D&C 39:5–6]][[D&C 39.6|]]; see also *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (1976), 121.
 
 [^4]: [[D&C 84.33|D&C 84:33–34]][[D&C 84.34|]]; see also [[D&C 84.32|D&C 84:32–41]][[D&C 84.33|]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]][[D&C 84.40|]][[D&C 84.41|]].
 
@@ -133,13 +135,13 @@ God bless you, noble men of the Aaronic Priesthood, in the name of Jesus Christ,
 
 [^8]: [[D&C 84.39|D&C 84:39]]; see also [[D&C 107.18|D&C 107:18–19]][[D&C 107.19|]].
 
-[^9]: [[Articles of Faith 1.5|A of F 1:5]]; see also [[Hebrews 5.4|Heb. 5:4]].
+[^9]: [[Articles of Faith 1.5|A of F 1:5]]; see also [[Hebrews 5.4|Heb. 5:4]].
 
 [^10]: See [[D&C 20.46|D&C 20:46–60]][[D&C 20.47|]][[D&C 20.48|]][[D&C 20.49|]][[D&C 20.50|]][[D&C 20.51|]][[D&C 20.52|]][[D&C 20.53|]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]][[D&C 20.60|]]; [[D&C 84.106|84:106–110]][[D&C 84.107|]][[D&C 84.108|]][[D&C 84.109|]][[D&C 84.110|]].
 
 [^11]: [[D&C 4.5|D&C 4:5]].
 
-[^12]: See [[1 Corinthians 9.14|1 Cor. 9:14]].
+[^12]: See [[1 Corinthians 9.14|1 Cor. 9:14]].
 
 [^13]: See [[D&C 107.99|D&C 107:99]].
 
@@ -147,11 +149,9 @@ God bless you, noble men of the Aaronic Priesthood, in the name of Jesus Christ,
 
 [^15]: See [[D&C 84.33|D&C 84:33–39]][[D&C 84.34|]][[D&C 84.35|]][[D&C 84.36|]][[D&C 84.37|]][[D&C 84.38|]][[D&C 84.39|]].
 
-[^16]: See [[3 Nephi 5.13|3 Ne. 5:13]].
+[^16]: See [[3 Nephi 5.13|3 Ne. 5:13]].
 
 [^17]: See [[D&C 110.7|D&C 110:7–9]][[D&C 110.8|]][[D&C 110.9|]]; text is adapted from the Aaronic Priesthood mission statement in *Aaronic Priesthood Leadership Handbook* (1991), 6.
 
+[^18]: Poem by Keith B. McMullin.
 
-
-
-#Activation #Atonement #Priesthood #Youth

@@ -1,6 +1,5 @@
 # Praise
 
-
 *See also* [[Exalt.md|Exalt]]; [[Glorify.md|Glorify]]; [[Honor.md|Honor]]; [[Magnify.md|Magnify]]
 
 Now will I *praise* the Lord, [[Genesis 29.35|Genesis 29:35]].
@@ -11,7 +10,7 @@ I will sing *praises* unto thy name, [[2 Samuel 22.50|2 Samuel 22:50]] ([[Psalms
 
 four thousand *praised* the Lord with the instruments, [[1 Chronicles 23.5|1 Chronicles 23:5]].
 
-Levites ... with cymbals, to *praise* the Lord, [[Ezra 3.10|Ezra 3:10]].
+Levites … with cymbals, to *praise* the Lord, [[Ezra 3.10|Ezra 3:10]].
 
 I will *praise* thee, O Lord, [[Psalms 9.1|Psalms 9:1]] ([[Psalms 57.9|Psalms 57:9]]; [[Psalms 108.3|Psalms 108:3]]; [[Psalms 138.1|Psalms 138:1]]).
 
@@ -63,7 +62,7 @@ he spake, and *praised* God, [[Luke 1.64|Luke 1:64]].
 
 multitude of the heavenly host *praising* God, [[Luke 2.13|Luke 2:13]].
 
-shepherds returned ... *praising* God, [[Luke 2.20|Luke 2:20]].
+shepherds returned … *praising* God, [[Luke 2.20|Luke 2:20]].
 
 disciples began to rejoice and *praise* God, [[Luke 19.37|Luke 19:37]].
 
@@ -97,7 +96,7 @@ if you should render all the thanks and *praise*, [[Mosiah 2.20|Mosiah 2:20]].
 
 let us sing to his *praise*, [[Alma 26.8|Alma 26:8]].
 
-it is to ... be *praised* of men, [[Helaman 7.21|Helaman 7:21]].
+it is to … be *praised* of men, [[Helaman 7.21|Helaman 7:21]].
 
 shall bring forth fruits of *praise*, [[D&C 52.17|D&C 52:17]].
 

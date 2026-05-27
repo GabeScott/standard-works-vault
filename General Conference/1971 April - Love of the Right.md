@@ -1,12 +1,14 @@
 # Love of the Right
 
-By Elder Marvin J. Ashton - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Marvin J. Ashton - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1971/04/love-of-the-right?lang=eng)
 
-The past few days my thoughts have turned repeatedly to that great message of strength, “… for I, the Lord, love him \[Hyrum Smith\] because of the integrity of his heart, and because he loveth that which is right before me. …” ([[D&C 124.15|D&C 124:15]].) What a blessing it is to be one who loves that which is right.
+The past few days my thoughts have turned repeatedly to that great message of strength, “… for I, the Lord, love him \[Hyrum Smith\] because of the integrity of his heart, and because he loveth that which is right before me. …” ([[D&C 124.15|D&C 124:15]].) What a blessing it is to be one who loves that which is right.
 
 There seems to be a tendency among many of us in our society today to live by compromise, rationalization, comparison, and self-justification. Love of right has been replaced by love of acceptance and convenience. Some mistakenly think the pathway of safety is somewhere between the path of righteousness and the road to destruction. Others seem to have convinced themselves that the way to perfection is reached by traveling the highway of compromise.
 
@@ -66,13 +68,8 @@ To our young friends and bewildered parents caught in the vicious grip of drug a
 
 I bear witness to you this day that a love for that which is right will bring us our Heavenly Father’s strength and protection. In his paths we will find security. My prayer is that we will have the desire in our hearts to earnestly seek the pathways of safety from evils such as drugs by honestly keeping all of his commandments.
 
-As we unitedly work to help our youth in combatting and avoiding all of the temptations of the day, may we be reminded, “… let every man be swift to hear, slow to speak, slow to wrath: For the wrath of man worketh not the righteousness of God.” ([[James 1.19|James 1:19–20]][[James 1.20|]].) I pray for our Heavenly Father to help us teach and love that which is right, in the name of Jesus Christ. Amen.
+As we unitedly work to help our youth in combatting and avoiding all of the temptations of the day, may we be reminded, “… let every man be swift to hear, slow to speak, slow to wrath: For the wrath of man worketh not the righteousness of God.” ([[James 1.19|James 1:19–20]][[James 1.20|]].) I pray for our Heavenly Father to help us teach and love that which is right, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Family #Word_Of_Wisdom

@@ -1,6 +1,8 @@
 # Holiness to the Lord in Everyday Life
 
-By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -10,15 +12,15 @@ By Elder Gerrit W. Gong - *Of the Quorum of the Twelve Apostles*
 
 Our recent Gong family reunion included a fun talent show, complete with a dad jokes contest.
 
-But this contest was unusual. On one team was Grandpa (me) and two of the grandchildren, ages 12 and 11. On the other team was an artificial intelligence (AI) program prompted by a cousin to tell dad jokes in the style of Gerrit W. Gong. Grandpa Gerrit Gong versus AI Gerrit Gong.
+But this contest was unusual. On one team was Grandpa (me) and two of the grandchildren, ages 12 and 11. On the other team was an artificial intelligence (AI) program prompted by a cousin to tell dad jokes in the style of Gerrit W. Gong. Grandpa Gerrit Gong versus AI Gerrit Gong.
 
 The grandchildren and I went first.
 
 What do you call a dinosaur who crashes his car? Tyrannosaurus Wrecks.
 
-AI Gerrit Gong was instructed—think like Gerrit W. Gong. Talk like him.
+AI Gerrit Gong was instructed—think like Gerrit W. Gong. Talk like him.
 
-AI Gerrit Gong—“Here is a dad joke as if spoken by Gerrit W. Gong, embracing his warm, thoughtful, and uplifting style: Why did the humble tree make people smile? Because it was rooted in love and reached out with branches of kindness. Like that tree, we too can find strength in our roots and joy in extending kindness to others.”
+AI Gerrit Gong—“Here is a dad joke as if spoken by Gerrit W. Gong, embracing his warm, thoughtful, and uplifting style: Why did the humble tree make people smile? Because it was rooted in love and reached out with branches of kindness. Like that tree, we too can find strength in our roots and joy in extending kindness to others.”
 
 Well, what do you think? That’s why they’re called dad jokes.
 
@@ -36,7 +38,7 @@ What does holiness to the Lord in everyday life look like?
 
 Holiness to the Lord in everyday life looks like two faithful young adults, married for a year, sharing with authenticity and vulnerability gospel covenants, sacrifice, and service in their unfolding lives.[^4]
 
-She begins, “In high school, I was in a dark place. I felt like God wasn’t there for me. One night, a text from a friend said, ‘Hey, have you read [[Alma 36.1|Alma 36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]] ever?’
+She begins, “In high school, I was in a dark place. I felt like God wasn’t there for me. One night, a text from a friend said, ‘Hey, have you read [[Alma 36.1|Alma 36]] ever?’
 
 “As I started reading,” she said, “I was overcome with peace and love. I felt like I was being given this big hug. When I read [[Alma 36.12|Alma 36:12]], I knew Heavenly Father saw me and knew exactly how I was feeling.”
 
@@ -117,7 +119,7 @@ As did my friend, you may wonder if your Heavenly Father loves you. The answer i
 
 [^2]: See [[Moses 6.34|Moses 6:34]].
 
-[^3]: See “Religion and Spirituality: Tools for Better Wellbeing?,” Gallup Blog, Oct. 10, 2023, news.gallup.com. “Worldwide, people with a greater commitment to spirituality or religion have better wellbeing in many respects”—including positive emotions, sense of purpose, community engagement, and social connections (*Faith and Wellness: The Worldwide Connection between Spirituality and Wellbeing* \[2023\], 4, faithandmedia.com/research/gallup).
+[^3]: See “Religion and Spirituality: Tools for Better Wellbeing?,” Gallup Blog, Oct. 10, 2023, news.gallup.com. “Worldwide, people with a greater commitment to spirituality or religion have better wellbeing in many respects”—including positive emotions, sense of purpose, community engagement, and social connections (*Faith and Wellness: The Worldwide Connection between Spirituality and Wellbeing* \[2023\], 4, faithandmedia.com/research/gallup).
 
 [^4]: Each quoted experience is shared—with my admiration and appreciation—in the words of the individuals involved and by their permission.
 
@@ -131,12 +133,7 @@ As did my friend, you may wonder if your Heavenly Father loves you. The answer i
 
 [^9]: A paradox of parenting is that children are deeply shaped by how they are nurtured, yet they usually remember little of the early years when their mothers tirelessly, selflessly mother. Words are insufficient to express the truism that my understanding, love, and appreciation for my father and mother expanded and deepened as I became a husband, parent, and grandparent. Reflecting the generational nature of the plan of happiness, we can, in temple mirrors of eternity, see ourselves as a mother, grandmother, great-grandmother in one direction and as a daughter, granddaughter, great-granddaughter in the other direction.
 
-[^10]: Today, approximately 60 percent of Church members worldwide live within 50 miles (80 km, or about an hour travel time in many places) of a house of the Lord. In coming years, as announced temples are completed, approximately three-fourths of Church members will live within an hour of a house of the Lord. Depending on circumstances, that is hopefully close enough to come often to the Lord in His holy house, thereby blessing generations of precious family members and ourselves and our posterity.
+[^10]: Today, approximately 60 percent of Church members worldwide live within 50 miles (80 km, or about an hour travel time in many places) of a house of the Lord. In coming years, as announced temples are completed, approximately three-fourths of Church members will live within an hour of a house of the Lord. Depending on circumstances, that is hopefully close enough to come often to the Lord in His holy house, thereby blessing generations of precious family members and ourselves and our posterity.
 
 [^11]: On our temples, the standard inscription is “Holiness to the Lord, the House of the Lord.” A few temples include more than this inscription, such as adding the name of the Church. A few temples have the inscription reversed: “The House of the Lord, Holiness to the Lord” (in Atlanta, Los Angeles, and San Diego in the United States). The Logan Utah Temple inscription simply states, “Holiness to the Lord.”
 
-
-
-
-
-#Discipleship #Holiness #Missionary_Service #Temples

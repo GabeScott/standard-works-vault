@@ -1,6 +1,8 @@
 # Sailing Safely the Seas of Life
 
-By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -64,7 +66,7 @@ Through trickery, aided by flattery, King Darius signed a proclamation that prov
 
 I love the biblical account which follows:
 
-“The king went to his palace, and passed the night fasting … and his sleep went from him. …
+“The king went to his palace, and passed the night fasting … and his sleep went from him. …
 
 “The king arose very early in the morning, and went in haste unto the den of lions.
 
@@ -72,7 +74,7 @@ I love the biblical account which follows:
 
 “Then said Daniel unto the king, O king, live for ever.
 
-“My God hath sent his angel, and hath shut the lions’ mouths, that they have not hurt me. …
+“My God hath sent his angel, and hath shut the lions’ mouths, that they have not hurt me. …
 
 “Then was the king exceeding glad. … Daniel was taken up out of the den, and no manner of hurt was found upon him, because he believed in his God.” ([[Daniel 6.18|Dan. 6:18–23]][[Daniel 6.19|]][[Daniel 6.20|]][[Daniel 6.21|]][[Daniel 6.22|]][[Daniel 6.23|]].)
 
@@ -80,7 +82,7 @@ In a time of critical need, Daniel’s determination to steer a steady course yi
 
 The clock of history, like the sands of the hourglass, marks the passage of time. A new cast occupies the stage of life. The problems of our day loom ominously before us. Surrounded by the sophistication of modern living, we look heavenward for that unfailing sense of direction, that we might chart and follow a wise and proper course. He whom we call our Heavenly Father will not leave our sincere petition unanswered.
 
-This lesson I learned anew some years ago as I received a rather unique and frightening assignment. Folkman D. Brown, then the Director of Mormon Relationships for the Boy Scouts of America, came to my office, having learned that I was about to depart for a lengthy assignment to New Zealand. He told me of his widowed sister, Belva Jones, who had been stricken with terminal cancer, who knew not how to tell her only son—a missionary in that far away country. Her wish, even her plea, was that he remain in the mission field and serve faithfully. She worried about his reaction; for the missionary, Elder Ryan Jones, had lost his father just a year earlier to the same dread disease.
+This lesson I learned anew some years ago as I received a rather unique and frightening assignment. Folkman D. Brown, then the Director of Mormon Relationships for the Boy Scouts of America, came to my office, having learned that I was about to depart for a lengthy assignment to New Zealand. He told me of his widowed sister, Belva Jones, who had been stricken with terminal cancer, who knew not how to tell her only son—a missionary in that far away country. Her wish, even her plea, was that he remain in the mission field and serve faithfully. She worried about his reaction; for the missionary, Elder Ryan Jones, had lost his father just a year earlier to the same dread disease.
 
 I accepted the responsibility. Following a missionary meeting held adjacent to the majestically beautiful New Zealand Temple, I met privately with Elder Jones and, as gently as I could, explained the situation of his mother. Naturally there were tears—not all his—but then the handclasp of assurance and the pledge: “Tell my mother I will serve, I will pray, and I will see her again.”
 

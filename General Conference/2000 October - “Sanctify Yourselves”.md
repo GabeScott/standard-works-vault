@@ -1,5 +1,7 @@
 # “Sanctify Yourselves”
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -61,11 +63,11 @@ In an even more serious kind of spiritual warfare, brethren, the day may come—
 
 [^1]: [[Joshua 3.5|Josh. 3:5]].
 
-[^2]: [[Isaiah 52.11|Isa. 52:11]]; see also [[3 Nephi 20.41|3 Ne. 20:41]]; [[D&C 38.42|D&C 38:42]]; [[D&C 133.5|133:5]].
+[^2]: [[Isaiah 52.11|Isa. 52:11]]; see also [[3 Nephi 20.41|3 Ne. 20:41]]; [[D&C 38.42|D&C 38:42]]; [[D&C 133.5|133:5]].
 
-[^3]: See [[2 Kings 25.14|2 Kgs. 25:14–15]][[2 Kings 25.15|]]; [[Ezra 1.5|Ezra 1:5–11]][[Ezra 1.6|]][[Ezra 1.7|]][[Ezra 1.8|]][[Ezra 1.9|]][[Ezra 1.10|]][[Ezra 1.11|]].
+[^3]: See [[2 Kings 25.14|2 Kgs. 25:14–15]][[2 Kings 25.15|]]; [[Ezra 1.5|Ezra 1:5–11]][[Ezra 1.6|]][[Ezra 1.7|]][[Ezra 1.8|]][[Ezra 1.9|]][[Ezra 1.10|]][[Ezra 1.11|]].
 
-[^4]: [[2 Timothy 2.20|2 Tim. 2:20–22]][[2 Timothy 2.21|]][[2 Timothy 2.22|]]; emphasis added.
+[^4]: [[2 Timothy 2.20|2 Tim. 2:20–22]][[2 Timothy 2.21|]][[2 Timothy 2.22|]]; emphasis added.
 
 [^5]: C. S. Lewis, *Christian Reflections,* ed. Walter Hooper (1967), 33.
 
@@ -77,8 +79,3 @@ In an even more serious kind of spiritual warfare, brethren, the day may come—
 
 [^9]: “The World Is Too Much with Us,” line 1.
 
-
-
-
-
-#Faith #Media #Morality #Prayer #Preparation #Priesthood #Priorities #Self-Control #Service #Worldliness

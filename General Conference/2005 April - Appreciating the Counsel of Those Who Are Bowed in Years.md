@@ -1,5 +1,7 @@
 # Appreciating the Counsel of Those Who Are Bowed in Years
 
+Gordon B. Hinckley
+
 By Elder Stephen B. Oveson - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -14,7 +16,7 @@ As a young man I was given a very strong written admonition to prove myself a fa
 
 My mother often told me that she prayed for me and for our family every day. As she came closer and closer to the veil, her prayers were especially fervent and meaningful to me. Both of my parents, as well as my dear parents-in-law, endured or are enduring to the end in righteous paths, leaving a legacy of faithful dedication for all their posterity to follow.
 
-President Ezra Taft Benson, in the November 1989 *Ensign,* is quoted as follows: “The Lord knows and loves the elderly among His people. It has always been so, and upon them He has bestowed many of His greatest responsibilities. In various dispensations He has guided His people through prophets who were in their advancing years. He has needed the wisdom and experience of age, the inspired direction from those with long years of proven faithfulness to His gospel” (in Conference Report, Oct. 1989, 3; or *Ensign,* Nov. 1989, 4).
+President Ezra Taft Benson, in the November 1989 *Ensign,* is quoted as follows: “The Lord knows and loves the elderly among His people. It has always been so, and upon them He has bestowed many of His greatest responsibilities. In various dispensations He has guided His people through prophets who were in their advancing years. He has needed the wisdom and experience of age, the inspired direction from those with long years of proven faithfulness to His gospel” (in Conference Report, Oct. 1989, [[1989 October - To the Elderly in the Church.md|3]]; or *Ensign,* Nov. 1989, 4).
 
 These thoughts have caused me to reflect on the great sermons, blessings, testimonies, and admonitions that prophets and apostles throughout the ages have left, especially as they felt themselves waxing old or preparing to go down to the dust. Some of these parting passages are among our most noteworthy and quoted scriptures. For instance, in [[Moses 6.57|Moses 6:57]], Enoch states unequivocally, “Wherefore teach it unto your children, that all men, everywhere, must repent, or they can in nowise inherit the kingdom of God, for no unclean thing can dwell … in his presence.” These basic principles of the gospel were being taught from the time of Adam and Eve, passed down from generation to generation, as the scriptures attest, time and time again.
 
@@ -24,13 +26,13 @@ Generations later, as fulfillment of Joseph’s prophecy was about to be realize
 
 Later prophets, such as Jeremiah, Isaiah, and Malachi, left equally indelible testimonies throughout their ministries, prophesying of the coming Messiah and His infinite Atonement.
 
-We find a similar pattern throughout the Book of Mormon in the emphasis given to the final addresses of Nephi, Jacob, and King Benjamin—whose mighty discourse changed the hearts of an entire nation—not to mention the masterful words of Abinadi, who boldly spoke knowing full well that his days were numbered: “Teach them that redemption cometh through Christ the Lord, who is the very Eternal Father” ([[Mosiah 16.15|Mosiah 16:15]]). The list continues with Alma and his son Alma; also Helaman, the son of Helaman, who gave such priceless advice to his sons: “And now, my sons, remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation … , which is a sure foundation, a foundation whereon if men build they cannot fall” ([[Helaman 5.12|Helaman 5:12]]).
+We find a similar pattern throughout the Book of Mormon in the emphasis given to the final addresses of Nephi, Jacob, and King Benjamin—whose mighty discourse changed the hearts of an entire nation—not to mention the masterful words of Abinadi, who boldly spoke knowing full well that his days were numbered: “Teach them that redemption cometh through Christ the Lord, who is the very Eternal Father” ([[Mosiah 16.15|Mosiah 16:15]]). The list continues with Alma and his son Alma; also Helaman, the son of Helaman, who gave such priceless advice to his sons: “And now, my sons, remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation … , which is a sure foundation, a foundation whereon if men build they cannot fall” ([[Helaman 5.12|Helaman 5:12]]).
 
 These and other Book of Mormon prophets, including Mormon himself, wrote for our day, knowing that we would need their knowledge and wisdom to aid us in these perilous times. The Book of Mormon itself ends with the incomparable charge of Moroni, the son of Mormon, as he tells us, “Yea, come unto Christ, and be perfected in him, and deny yourselves of all ungodliness; and if ye shall deny yourselves of all ungodliness, and love God with all your might, mind and strength, then is his grace sufficient for you” ([[Moroni 10.32|Moroni 10:32]]).
 
-We have similar “last testimonies” in the New Testament, such as Paul’s grand statement: “I have fought a good fight, I have finished my course, I have kept the faith” ([[2 Timothy 4.7|2 Timothy 4:7]]), attesting to his having endured to the end.
+We have similar “last testimonies” in the New Testament, such as Paul’s grand statement: “I have fought a good fight, I have finished my course, I have kept the faith” ([[2 Timothy 4.7|2 Timothy 4:7]]), attesting to his having endured to the end.
 
-We gain great insight into the growth of the mighty senior Apostle, Peter, in his statement: “And be clothed with humility: for God resisteth the proud, and giveth grace to the humble. Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time” ([[1 Peter 5.5|1 Peter 5:5–6]][[1 Peter 5.6|]]).
+We gain great insight into the growth of the mighty senior Apostle, Peter, in his statement: “And be clothed with humility: for God resisteth the proud, and giveth grace to the humble. Humble yourselves therefore under the mighty hand of God, that he may exalt you in due time” ([[1 Peter 5.5|1 Peter 5:5–6]][[1 Peter 5.6|]]).
 
 And certainly the greatest personage of all time to learn from is the risen Lord Himself, as He charged His Apostles and followers to “go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world” ([[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]]).
 
@@ -56,7 +58,7 @@ One of my favorites, from President Spencer W. Kimball:
 
 “He is my friend, my Savior, my Lord, my God.
 
-“With all my heart I pray that the Saints may … gain an eternal inheritance with him in celestial glory” (in Conference Report, Oct. 1978, 110; or *Ensign,* Nov. 1978, 73).
+“With all my heart I pray that the Saints may … gain an eternal inheritance with him in celestial glory” (in Conference Report, Oct. 1978, [[1978 October - An Eternal Hope in Christ.md|110]]; or *Ensign,* Nov. 1978, 73).
 
 Our prophet today, President Gordon B. Hinckley, continues to lead us with his powerful convictions, as he declared in a recent stake conference address: “I have a testimony, real, burning, and vital, of the truth of this work. I know that God our Eternal Father lives and that Jesus is the Christ, my Savior and my Redeemer. It is He who stands at the head of this Church. All I desire is that I go forward with this work as He would have it go forward” (“Inspirational Thoughts,” *Liahona* and *Ensign,* Oct. 2003, 5).
 
@@ -71,8 +73,3 @@ I wish to add my own humble affirmation of the truthfulness of the aforementione
 
 
 
-
-
-
-
-#Elderly #Prophets #Testimony #Wisdom

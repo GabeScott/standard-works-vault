@@ -1,6 +1,8 @@
 # Celestial Marriages and Eternal Families
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -14,7 +16,7 @@ The frequency of divorce has led some to a life-style where they feel inclined t
 
 Let us consider first the purpose of the creation of the earth. The scriptures make it clear that it was for no other purpose than to provide a place for the sons and daughters of God to dwell in mortality and prove themselves worthy, through keeping the commandments, to return to the presence of God from whence they came.
 
-Following the creation of the earth, “God said, Let us make man in our image, after our likeness. …
+Following the creation of the earth, “God said, Let us make man in our image, after our likeness. …
 
 “So God created man in his own image, in the image of God created he him; male and female created he them.
 
@@ -24,7 +26,7 @@ When God created woman and brought her to the man, he said:
 
 “Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh” ([[Genesis 2.24|Gen. 2:24]]).
 
-Yes, marriage is ordained of God, and following that first reference to husband and wife, we find recurring scriptures as evidence that men and women became husbands and wives in marriage ceremonies followed by wedding feasts. We are not here just to “eat, drink, and be merry” ([[2 Nephi 28.7|2 Ne. 28:7]]). We have been given an earth to subdue, and instructions to multiply and replenish it. It is interesting to note that God said “multiply” and not just “replenish” the earth (see [[Genesis 1.28|Gen. 1:28]]).
+Yes, marriage is ordained of God, and following that first reference to husband and wife, we find recurring scriptures as evidence that men and women became husbands and wives in marriage ceremonies followed by wedding feasts. We are not here just to “eat, drink, and be merry” ([[2 Nephi 28.7|2 Ne. 28:7]]). We have been given an earth to subdue, and instructions to multiply and replenish it. It is interesting to note that God said “multiply” and not just “replenish” the earth (see [[Genesis 1.28|Gen. 1:28]]).
 
 It is important for us to understand, as we can learn from the scriptures, that God is eternal, that his creations are eternal, and that his truths are eternal. Therefore, when he gave Eve to Adam in marriage, that union would be eternal. Marriage as ordained of God and performed in his holy temples is eternal—not just until death. In Ecclesiastes we read:
 
@@ -92,7 +94,7 @@ Sometimes young people do not have the patience to wait for material comforts an
 
 Into this happy home and pleasant atmosphere will eventually come the children for which the marriage was consummated, and who will add immeasurably to the joy and fulfillment which God the Father intended when he instructed Adam and Eve to multiply and replenish the earth. When parents understand the purpose of their existence, that they are literally the spiritual offspring of their Father in Heaven and that they have a responsibility to provide mortal bodies for others, then they rejoice in the miracle of birth as they realize they are copartners with God in the creation of each child who comes into that home.
 
-In keeping with the revelations on this subject, one of our early leaders, the late Melvin J. Ballard, said this:
+In keeping with the revelations on this subject, one of our early leaders, the late Melvin J. Ballard, said this:
 
 “There is a passage in our Scriptures which the Latter-day Saints accept as divine: ‘This is the glory of God—to bring to pass the immortality and eternal life of man’ \[see [[Moses 1.39|Moses 1:39]]\]. Likewise we could say that this is the glory of men and women—to bring to pass the *mortality* of the sons and daughters of God, to give earth-life to the waiting children of our Father. … The greatest mission of woman is to give life, earth-life, through honorable marriage, to the waiting spirits, our Father’s spirit children who anxiously desire to come to dwell here in this mortal state. All the honor and glory that can come to men or women by the development of their talents, the homage and the praise they may receive from an applauding world, worshipping at their shrine of genius, is but a dim thing whose luster shall fade in comparison to the high honor, the eternal glory, the ever-enduring happiness that shall come to the woman who fulfils the first great duty and mission that devolves upon her to become the mother of the sons and daughters of God” (*Sermons and Missionary Services,* Salt Lake City: Deseret Book Company, 1949, pp. 203–4, italics added).
 
@@ -114,7 +116,7 @@ In a recent publication of a small pamphlet called *Family Matters,* the opening
 
 Dr. Sydney Harris, in a recent syndicated newspaper column, reached the same conclusion. He said people asked him why he didn’t write about the energy crisis, and he responded that he didn’t have enough solid facts to make a judgment about that subject. He went on to say that he also felt it was not important enough, because mankind can solve its technical problems, but what concerned him was the greater problem, we have which is moral, not technical. He concluded by saying that if we fail as a species it will have nothing to do with energy or any other technological obstacle, but with the way we regard ourselves and others as threats and enemies rather than as members of the same family. He said that until we know who we are and what we are supposed to do, all our other knowledge cannot save us.
 
-Jesus Christ came to earth to give us that very message—who we are and what we are supposed to do. He gave us the gospel plan of life and salvation and said there was no other name under heaven whereby we could be saved (see [[Acts 4.12|Acts 4:12]]). We have that same gospel restored in these latter days, with the living prophet today, even Spencer W. Kimball, to speak for God, as has been God’s method of communication with man through the ages. The answers to all life’s problems are to be found in the gospel of Jesus Christ. Continuous revelation keeps us advised on current problems.
+Jesus Christ came to earth to give us that very message—who we are and what we are supposed to do. He gave us the gospel plan of life and salvation and said there was no other name under heaven whereby we could be saved (see [[Acts 4.12|Acts 4:12]]). We have that same gospel restored in these latter days, with the living prophet today, even Spencer W. Kimball, to speak for God, as has been God’s method of communication with man through the ages. The answers to all life’s problems are to be found in the gospel of Jesus Christ. Continuous revelation keeps us advised on current problems.
 
 To strengthen the weakening family structure, the Church has instituted the family home evening program, where at least one night each week the entire family meets together to solve problems, enjoy recreation, and learn to better know and love one another. Here is opportunity for the parents to lead out as examples of love, kindness, courtesy, and support as father and mother together take their places as patriarch and matriarch of the family. In such a home are taught the moral principles and other virtues which will help those family members to be the future leaders of their communities and countries.
 
@@ -124,7 +126,7 @@ I conclude by reading from a letter I received from a convert to the Church who,
 
 “We love this church and we love the Lord and our Heavenly Father. We were on the verge of a total family failure when some of our LDS friends here began to work with us.
 
-“Even now as I sit here and think back to Saturday, I have to be amazed at the way the Church has changed our lives, from almost total family loss to an eternal family! …
+“Even now as I sit here and think back to Saturday, I have to be amazed at the way the Church has changed our lives, from almost total family loss to an eternal family! …
 
 “Nothing can compare to seeing my wife and child dressed in white, with a radiant glow around them, and feeling the very Spirit of God whisper in my ear, ‘John, they’re yours for all time and all eternity.’”
 
@@ -133,8 +135,3 @@ I know that through the gospel of Jesus Christ, and through keeping the commandm
 
 
 
-
-
-
-
-#Family #Marriage

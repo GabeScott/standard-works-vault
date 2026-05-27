@@ -1,6 +1,8 @@
 # “Judge Not According to the Appearance”
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -64,7 +66,7 @@ Why, then, do they find it worth the mention when the unfortunate person is a Mo
 
 Really, that is something of a backhanded compliment. It is an acknowledgment that members of the Church are supposed to know better, and we’re supposed to do better; and when we don’t, they point at the Church.
 
-Be careful of those who promote controversy and contention, “for verily, verily I say unto you, he that hath the spirit of contention is not of me,” saith the Lord ([[3 Nephi 11.29|3 Ne. 11:29]]).
+Be careful of those who promote controversy and contention, “for verily, verily I say unto you, he that hath the spirit of contention is not of me,” saith the Lord ([[3 Nephi 11.29|3 Ne. 11:29]]).
 
 This next question concerns those who are shaking your faith.
 
@@ -179,8 +181,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Criticism #Faith #Temptation

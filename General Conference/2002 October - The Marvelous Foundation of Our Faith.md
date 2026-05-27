@@ -1,5 +1,7 @@
 # The Marvelous Foundation of Our Faith
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2002 General Conference*
@@ -109,8 +111,3 @@ This must be our great and singular message to the world. We do not offer it wit
 
 
 
-
-
-
-
-#Church_Growth #Faith #Jesus_Christ #Joseph_Smith #Restoration

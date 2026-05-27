@@ -1,6 +1,8 @@
 # More Than Conquerors through Him That Loved Us
 
-By Elder Paul V. Johnson - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Paul V. Johnson - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -12,7 +14,7 @@ Earth life includes tests, trials, and tribulations, and some of the trials we f
 
 But these trials are not just to test us. They are vitally important to the process of putting on the divine nature.[^3] If we handle these afflictions properly, they will be consecrated for our gain.[^4]
 
-Elder Orson F. Whitney said: “No pain that we suffer, no trial that we experience is wasted. … All that we suffer and all that we endure, especially when we endure it patiently, builds up our characters, purifies our hearts, expands our souls, and makes us more tender and charitable. … It is through sorrow and suffering, toil and tribulation, that we gain the education that we come here to acquire.”[^5]
+Elder Orson F. Whitney said: “No pain that we suffer, no trial that we experience is wasted. … All that we suffer and all that we endure, especially when we endure it patiently, builds up our characters, purifies our hearts, expands our souls, and makes us more tender and charitable. … It is through sorrow and suffering, toil and tribulation, that we gain the education that we come here to acquire.”[^5]
 
 Recently a nine-year-old boy was diagnosed with a rare bone cancer. The doctor explained the diagnosis and the treatment, which included months of chemotherapy and major surgery. He said it would be a very difficult time for the boy and his family but then added, “People ask me, ‘Will I be the same after this is over?’ I tell them, ‘No, you won’t be the same. You will be so much stronger. You will be awesome!’”
 
@@ -34,13 +36,13 @@ Sometimes we want to have growth without challenges and to develop strength with
 
 Not one of the trials and tribulations we face is beyond our limits, because we have access to help from the Lord. We can do all things through Christ, who strengthens us.[^16]
 
-After recovering from serious health challenges, Elder Robert D. Hales shared the following in general conference: “On a few occasions, I told the Lord that I had surely learned the lessons to be taught and that it wouldn’t be necessary for me to endure any more suffering. Such entreaties seemed to be of no avail, for it was made clear to me that this purifying process of testing was to be endured in the Lord’s time and in the Lord’s own way. … I … learned that I would not be left alone to meet these trials and tribulations but that guardian angels would attend me. There were some that were near angels in the form of doctors, nurses, and most of all my sweet companion, Mary. And on occasion, when the Lord so desired, I was to be comforted with visitations of heavenly hosts that brought comfort and eternal reassurances in my time of need.”[^17]
+After recovering from serious health challenges, Elder Robert D. Hales shared the following in general conference: “On a few occasions, I told the Lord that I had surely learned the lessons to be taught and that it wouldn’t be necessary for me to endure any more suffering. Such entreaties seemed to be of no avail, for it was made clear to me that this purifying process of testing was to be endured in the Lord’s time and in the Lord’s own way. … I … learned that I would not be left alone to meet these trials and tribulations but that guardian angels would attend me. There were some that were near angels in the form of doctors, nurses, and most of all my sweet companion, Mary. And on occasion, when the Lord so desired, I was to be comforted with visitations of heavenly hosts that brought comfort and eternal reassurances in my time of need.”[^17]
 
 Our Heavenly Father loves us, and we “know that whosoever shall put their trust in God shall be supported in their trials, and their troubles, and their afflictions, and shall be lifted up at the last day.”[^18] Someday when we get to the other side of the veil, we want more than for someone just to tell us, “Well, you’re done.” Instead, we want the Lord to say, “Well done, thou good and faithful servant.”[^19]
 
 I love the words of Paul:
 
-“Who shall separate us from the love of Christ? shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword? …
+“Who shall separate us from the love of Christ? shall tribulation, or distress, or persecution, or famine, or nakedness, or peril, or sword? …
 
 “Nay, in all these things we are more than conquerors through him that loved us.”[^20]
 
@@ -49,17 +51,17 @@ I know that God lives and that His Son, Jesus Christ, lives. I also know that th
 
 
 
-[^1]: See [[1 Peter 1.6|1 Peter 1:6–8]][[1 Peter 1.7|]][[1 Peter 1.8|]]; [[Abraham 3.25|Abraham 3:25]].
+[^1]: See [[1 Peter 1.6|1 Peter 1:6–8]][[1 Peter 1.7|]][[1 Peter 1.8|]]; [[Abraham 3.25|Abraham 3:25]].
 
-[^2]: See [[1 Peter 2.20|1 Peter 2:20]].
+[^2]: See [[1 Peter 2.20|1 Peter 2:20]].
 
-[^3]: See [[2 Peter 1.4|2 Peter 1:4]].
+[^3]: See [[2 Peter 1.4|2 Peter 1:4]].
 
-[^4]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^4]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
-[^5]: Orson F. Whitney, in Spencer W. Kimball, *Faith Precedes the Miracle* (1972), 98.
+[^5]: Orson F. Whitney, in Spencer W. Kimball, *Faith Precedes the Miracle* (1972), 98.
 
-[^6]: See [[Isaiah 48.10|Isaiah 48:10]]; [[1 Nephi 20.10|1 Nephi 20:10]].
+[^6]: See [[Isaiah 48.10|Isaiah 48:10]]; [[1 Nephi 20.10|1 Nephi 20:10]].
 
 [^7]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
@@ -67,7 +69,7 @@ I know that God lives and that His Son, Jesus Christ, lives. I also know that th
 
 [^9]: See [[Exodus 14.5|Exodus 14:5–30]][[Exodus 14.6|]][[Exodus 14.7|]][[Exodus 14.8|]][[Exodus 14.9|]][[Exodus 14.10|]][[Exodus 14.11|]][[Exodus 14.12|]][[Exodus 14.13|]][[Exodus 14.14|]][[Exodus 14.15|]][[Exodus 14.16|]][[Exodus 14.17|]][[Exodus 14.18|]][[Exodus 14.19|]][[Exodus 14.20|]][[Exodus 14.21|]][[Exodus 14.22|]][[Exodus 14.23|]][[Exodus 14.24|]][[Exodus 14.25|]][[Exodus 14.26|]][[Exodus 14.27|]][[Exodus 14.28|]][[Exodus 14.29|]][[Exodus 14.30|]].
 
-[^10]: See [[1 Nephi 3.1|1 Nephi 3–4]][[1 Nephi 3.2|]][[1 Nephi 3.3|]][[1 Nephi 3.4|]][[1 Nephi 3.5|]][[1 Nephi 3.6|]][[1 Nephi 3.7|]][[1 Nephi 3.8|]][[1 Nephi 3.9|]][[1 Nephi 3.10|]][[1 Nephi 3.11|]][[1 Nephi 3.12|]][[1 Nephi 3.13|]][[1 Nephi 3.14|]][[1 Nephi 3.15|]][[1 Nephi 3.16|]][[1 Nephi 3.17|]][[1 Nephi 3.18|]][[1 Nephi 3.19|]][[1 Nephi 3.20|]][[1 Nephi 3.21|]][[1 Nephi 3.22|]][[1 Nephi 3.23|]][[1 Nephi 3.24|]][[1 Nephi 3.25|]][[1 Nephi 3.26|]][[1 Nephi 3.27|]][[1 Nephi 3.28|]][[1 Nephi 3.29|]][[1 Nephi 3.30|]][[1 Nephi 3.31|]].
+[^10]: See [[1 Nephi 3.1|1 Nephi 3–4]].
 
 [^11]: See [[Joseph Smith History 1.15|Joseph Smith—History 1:15–17]][[Joseph Smith History 1.16|]][[Joseph Smith History 1.17|]].
 
@@ -75,19 +77,17 @@ I know that God lives and that His Son, Jesus Christ, lives. I also know that th
 
 [^13]: [[Hebrews 12.11|Hebrews 12:11]].
 
-[^14]: [[2 Corinthians 4.17|2 Corinthians 4:17]].
+[^14]: [[2 Corinthians 4.17|2 Corinthians 4:17]].
 
-[^15]: See [[2 Corinthians 11.23|2 Corinthians 11:23–28]][[2 Corinthians 11.24|]][[2 Corinthians 11.25|]][[2 Corinthians 11.26|]][[2 Corinthians 11.27|]][[2 Corinthians 11.28|]].
+[^15]: See [[2 Corinthians 11.23|2 Corinthians 11:23–28]][[2 Corinthians 11.24|]][[2 Corinthians 11.25|]][[2 Corinthians 11.26|]][[2 Corinthians 11.27|]][[2 Corinthians 11.28|]].
 
 [^16]: See [[Philippians 4.13|Philippians 4:13]].
 
-[^17]: Robert D. Hales, in Conference Report, Oct. 2000, 3–4; or *Ensign,* Nov. 2000, 6.
+[^17]: Robert D. Hales, in Conference Report, Oct. 2000, [[2000 October - The Covenant of Baptism - To Be in the Kingdom and of the Kingdom.md|3–4]]; or *Ensign,* Nov. 2000, 6.
 
 [^18]: [[Alma 36.3|Alma 36:3]].
 
 [^19]: [[Matthew 25.21|Matthew 25:21]].
 
+[^20]: [[Romans 8.35|Romans 8:35, 37]][[Romans 8.37|]].
 
-
-
-#Adversity #Faith #Jesus_Christ #Patience

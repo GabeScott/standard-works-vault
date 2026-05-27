@@ -1,4 +1,3 @@
 # Belial
 
-
-*See* [BD Belial](https://www.churchofjesuschrist.org/study/scriptures/bd/belial?lang=eng)
+*See also* [[BD Belial.md|BD Belial]]

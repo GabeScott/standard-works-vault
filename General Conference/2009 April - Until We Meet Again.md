@@ -1,5 +1,7 @@
 # Until We Meet Again
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2009 General Conference*
@@ -18,7 +20,7 @@ The music has been magnificent. How grateful I am for those blessed with musical
 
 May we long remember that which we have heard during this conference. I remind you that the messages will be printed in next month’s *Ensign* and *Liahona* magazines. I urge you to study the messages and to ponder their teachings and then to apply them in your life.
 
-I want you to know how much I love and appreciate my devoted counselors, President Henry B. Eyring and President Dieter F. Uchtdorf. They are men of wisdom and understanding. Their service is invaluable. I love and support my Brethren of the Quorum of the Twelve Apostles. During this conference we sustained a new member of that Quorum. He is completely dedicated to the work of the Lord, and I testify that he is the man our Heavenly Father wants to fill this position at this time.
+I want you to know how much I love and appreciate my devoted counselors, President Henry B. Eyring and President Dieter F. Uchtdorf. They are men of wisdom and understanding. Their service is invaluable. I love and support my Brethren of the Quorum of the Twelve Apostles. During this conference we sustained a new member of that Quorum. He is completely dedicated to the work of the Lord, and I testify that he is the man our Heavenly Father wants to fill this position at this time.
 
 I express my love to the members of the Seventy and the Presiding Bishopric. They serve selflessly and so effectively. Similarly, I pay tribute to the general auxiliary officers. In accordance with our policy of rotation, we have sustained new general presidencies of the Young Men and of the Sunday School. We look forward to working with them. We thank those who were released from these positions at this conference and who served so faithfully in these capacities.
 
@@ -59,12 +61,7 @@ I love you. I pray for you. I would ask that you would remember me and all the G
 
 [^1]: [[D&C 25.12|D&C 25:12]].
 
-[^2]: [[3 Nephi 18.18|3 Nephi 18:18]].
+[^2]: [[3 Nephi 18.18|3 Nephi 18:18]].
 
 [^3]: [[Joshua 24.15|Joshua 24:15]].
 
-
-
-
-
-#General_Conference #Pornography #Prayer #Temples

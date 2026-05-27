@@ -1,5 +1,7 @@
 # “The Spirit Giveth Life”
 
+Gordon B. Hinckley
+
 By Elder Thomas S. Monson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1985 General Conference*
@@ -14,7 +16,7 @@ I am told that on occasion when a missionary in training feels that the Spanish 
 
 There is one language, however, that is understood by each missionary: the language of the Spirit. It is not learned from textbooks written by men of letters, nor is it acquired through reading and memorization. The language of the Spirit comes to him who seeks with all his heart to know God and to keep His divine commandments. Proficiency in this language permits one to breach barriers, overcome obstacles, and touch the human heart.
 
-The Apostle Paul, in his second epistle to the Corinthians, urges that we turn from the narrow confinement of the letter of the law and seek the open vista of opportunity which the Spirit provides. I love and cherish Paul’s statement: “The letter killeth, but the spirit giveth life.” ([[2 Corinthians 3.6|2 Cor. 3:6]].)
+The Apostle Paul, in his second epistle to the Corinthians, urges that we turn from the narrow confinement of the letter of the law and seek the open vista of opportunity which the Spirit provides. I love and cherish Paul’s statement: “The letter killeth, but the spirit giveth life.” ([[2 Corinthians 3.6|2 Cor. 3:6]].)
 
 In a day of danger or a time of trial, such knowledge, such hope, such understanding bring comfort to the troubled mind and grieving heart. The entire message of the New Testament breathes a spirit of awakening to the human soul. Shadows of despair are dispelled by rays of hope, sorrow yields to joy, and the feeling of being lost in the crowd of life vanishes with the certain knowledge that our Heavenly Father is mindful of each of us.
 
@@ -80,8 +82,3 @@ As we pursue the journey of life, let us learn the language of the Spirit. May w
 
 
 
-
-
-
-
-#Holy_Ghost

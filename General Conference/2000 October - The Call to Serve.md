@@ -1,5 +1,7 @@
 # The Call to Serve
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2000 General Conference*
@@ -119,7 +121,7 @@ President Hinckley, we the priesthood brethren of the Church do love and sustain
 
 [^3]: See Conference Report, Oct. 1952, 17.
 
-[^4]: In Conference Report, Oct. 1986, 57; or *Ensign,* Nov. 1986, 44.
+[^4]: In Conference Report, Oct. 1986, [[1986 October - The War We Are Winning.md|57]]; or *Ensign,* Nov. 1986, 44.
 
 [^5]: [[Proverbs 4.26|Prov. 4:26]].
 
@@ -127,8 +129,3 @@ President Hinckley, we the priesthood brethren of the Church do love and sustain
 
 [^7]: [[James 1.5|James 1:5]].
 
-
-
-
-
-#Commitment #Duty #Faith #Home_Teaching #Honesty #Media #Peace #Prayer #Priesthood

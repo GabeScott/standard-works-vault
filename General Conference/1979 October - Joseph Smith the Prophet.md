@@ -1,6 +1,8 @@
 # Joseph Smith the Prophet
 
-By Elder David B. Haight - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -54,7 +56,7 @@ One of the most profound principles of God’s love for his children was reveale
 
 “Joseph Smith, the Prophet and Seer of the Lord,” wrote President John Taylor, “has done more, save Jesus only, for the salvation of men in this world, than any other man that ever lived in it. In the short space of twenty years, he has brought forth the Book of Mormon, which he translated by the gift and power of God, and has been the means of publishing it on two continents; has sent the fulness of the everlasting gospel, which it contained, to the four quarters of the earth; has brought forth the revelations and commandments which compose this book of Doctrine and Covenants, and many other wise documents and instructions for the benefit of the children of men; gathered many thousands of the Latter-day Saints, founded a great city, and left a fame and name that cannot be slain. He lived great, and he died great in the eyes of God and his people; and like most of the Lord’s anointed in ancient times, has sealed his mission and his works with his own blood” ([[D&C 135.3|D&C 135:3]]).
 
-While the Saints were still mourning their loss, William W. Phelps, a loyal associate, expressed their feelings when he wrote:
+While the Saints were still mourning their loss, William W. Phelps, a loyal associate, expressed their feelings when he wrote:
 
 >Praise to the man who communed with Jehovah!
 >Jesus anointed that Prophet and Seer,
@@ -83,8 +85,3 @@ Joseph was the prophet of the Restoration. I testify to you of his divinity and 
 
 
 
-
-
-
-
-#Joseph_Smith #Restoration

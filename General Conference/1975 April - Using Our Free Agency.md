@@ -1,6 +1,8 @@
 # Using Our Free Agency
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -10,11 +12,11 @@ My brothers, sisters, and friends, one of God’s most precious gifts to man is 
 
 Lehi, an early American Nephite prophet, taught:
 
-“For it must needs be, that there is an opposition in all things. If not so … righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad.” ([[2 Nephi 2.11|2 Ne. 2:11]].)
+“For it must needs be, that there is an opposition in all things. If not so … righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad.” ([[2 Nephi 2.11|2 Ne. 2:11]].)
 
 As sons and daughters of our Heavenly Father, we have this gift of free agency to use in our mortal lives. We must be tried, tested, and proved to see if we will choose the right and do all things whatsoever the Lord our God shall command us. As spirit children of God, we have built-in powers of conscience sufficient to develop our free agency in right choices and to acquire qualities of goodness, humility, and integrity of purpose.
 
-Elder Bruce R. McConkie made this statement about free agency:
+Elder Bruce R. McConkie made this statement about free agency:
 
 “Four great principles must be in force if there is to be agency: 1. *Laws must exist,* laws ordained by an Omnipotent power, laws which can be obeyed or disobeyed; 2. Opposites must exist—good and evil, virtue and vice, right and wrong—that is, there must be an opposition, one force pulling … the other. 3. A knowledge of good and evil must be had by those who are to enjoy the agency, that is, they must know the difference between the opposites; and 4. An unfettered power of choice must prevail.
 
@@ -22,7 +24,7 @@ Elder Bruce R. McConkie made this statement about free agency:
 
 All things good come from God. All things evil come from Satan. Brigham Young explained it this way:
 
-“There are but two parties on the earth, one for God and the other for the world or the Evil One. No matter how many names the Christian or heathen world bear, or how many sects and creeds may exist, there are but two parties, one for heaven and God, and the other will go to some other kingdom than the celestial kingdom of God.” (*Discourses of Brigham Young,* comp. John A. Widtsoe, 1966 ed., Deseret Book Co., p. 70.)
+“There are but two parties on the earth, one for God and the other for the world or the Evil One. No matter how many names the Christian or heathen world bear, or how many sects and creeds may exist, there are but two parties, one for heaven and God, and the other will go to some other kingdom than the celestial kingdom of God.” (*Discourses of Brigham Young,* comp. John A. Widtsoe, 1966 ed., Deseret Book Co., p. 70.)
 
 Free agency is an everlasting principle which has existed with God from all eternity. It is a gift from him given with the hope that we will apply it wisely in the conduct of our personal lives. Freedom of choice is a moral agency which we should keep uppermost in our minds in all our activities and decisions. “By virtue of this agency you and I and all mankind are made responsible beings, responsible for the course we pursue, the lives we live, the deeds we do in the body.” (Wilford Woodruff, *Discourses of Wilford Woodruff,* Bookcraft, Inc., 1969, pp. 8–9.)
 
@@ -32,13 +34,13 @@ Free agency doesn’t suggest we do wrong or infringe upon the rights and privil
 
 Too many people have the wrong attitude about free agency. They use it as a negative force in their lives rather than as a positive one. Perhaps you have heard this statement: “I can smoke and drink if I want to. I have my free agency.” But why not think in terms of eternal values and say, “I can smoke and drink if I want to. I have my free agency, but I choose to use my agency in bettering my life—in choosing the right and not the wrong.” This can apply to any vice in one’s life. Have the right attitude and a vice can turn to a virtue, and virtue has its own reward. To use our agency for good, we must set aside the defensive, arrogant, and haughty attitude of a transgressor.
 
-Brigham Young taught: “Men should not be permitted to do as they please in all things; for there are rules regulating all good societies … , the violation of which cannot be countenanced either by civil or religious usages. … Men … should not be free to sin against God or against man without suffering such penalties as their sins deserve.” (*Discourses of Brigham Young,* p. 65.)
+Brigham Young taught: “Men should not be permitted to do as they please in all things; for there are rules regulating all good societies … , the violation of which cannot be countenanced either by civil or religious usages. … Men … should not be free to sin against God or against man without suffering such penalties as their sins deserve.” (*Discourses of Brigham Young,* p. 65.)
 
 How far does our agency extend? Brigham Young answered this question by saying: “There are limits to agency, and to all things and to all beings, and our agency must not infringe upon that law. A man must choose life or death. … the agency which is given to him is so bound up that he cannot exercise it in opposition to the law, without laying himself liable to be corrected and punished by the Almighty.
 
 “It behooves us to be careful, and not forfeit that agency that is given to us. The difference between the righteous and the sinner, eternal life or death, happiness or misery, is this, to those who are exalted there are no bounds or limits to their privileges, their blessings have a continuation … they increase through all eternity; whereas, those who reject the offer, who despise the proffered mercies of the Lord, and prepare themselves to be banished from his presence, and to become companions of the devils, have their agency abridged immediately, and bounds and limits are put to their operations.” (*Discourses of Brigham Young,* pp. 63–64.)
 
-God has given commandments with promise of blessings for compliance with his laws, and penalties for violation of them. The late James E. Talmage said: “Obedience to law is the habit of free men. The transgressor fears the law, for he brings upon himself deprivation and restraint, not because of the law which would have protected him in his freedom, but because of his antagonism to the law. It is no more a part of God’s plan to compel men to work righteousness than it is his purpose to permit evil powers to force his children into sin.” (*The Great Apostasy,* Deseret Book Co., 1958, pp. 34–35.)
+God has given commandments with promise of blessings for compliance with his laws, and penalties for violation of them. The late James E. Talmage said: “Obedience to law is the habit of free men. The transgressor fears the law, for he brings upon himself deprivation and restraint, not because of the law which would have protected him in his freedom, but because of his antagonism to the law. It is no more a part of God’s plan to compel men to work righteousness than it is his purpose to permit evil powers to force his children into sin.” (*The Great Apostasy,* Deseret Book Co., 1958, pp. 34–35.)
 
 A person’s freedom should never be suppressed by men, by Satan, nor by our Lord. Men should never be in bondage one to another. While Satan would like us under his control, God does not control the actions of men. He has given us our agency to combat the trials, temptations, and evils of every kind. However, he gives certain principles that, if followed, will lead us back to his presence. God’s kingdom is founded upon perfect liberty. Every man, woman, and child has the right to worship God according to the dictates of his own conscience. Each person alone is responsible to his creator for his individual acts.
 
@@ -85,8 +87,3 @@ May God bless us all that we will have the desire and courage to exercise our fr
 
 
 
-
-
-
-
-#Agency

@@ -1,5 +1,7 @@
 # Anchors of Testimony
 
+Dieter F. Uchtdorf
+
 By Mary N. Cook - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 2008 General Conference*
@@ -22,7 +24,7 @@ I know some young women who had questions about modest clothing. To find answers
 
 First, pray to your Heavenly Father. Ask Him for help in finding answers to your questions.
 
-Our prophet, President Thomas S. Monson, said in his first news conference:
+Our prophet, President Thomas S. Monson, said in his first news conference:
 
 “Sometimes the best answers that young people can \[get\] to the questions of life are found there upon their knees calling upon our Heavenly Father.
 
@@ -36,7 +38,7 @@ As you learn from the scriptures, I know the Lord will bless you with His Spirit
 
 Studying the words of our latter-day prophets will also increase your faith. “You can always trust the living prophets. Their teachings reflect the will of the Lord”[^5] and will help anchor your testimony.
 
-President Spencer W. Kimball, one of our latter-day prophets, counseled youth to drive down stakes to help them be “steadfast and immovable” when he taught: “Our young people should drive down stakes early. … The stakes are of two kinds: ‘This I *will do’* and ‘This I *will not do.’ …* Very early, youth should have been living by a plan. … When such a course is charted and the goal is set, it is easier to resist the many temptations and to say ‘no’ to the first cigarette, ‘no’ to the first drink, … ‘no’ to the first improper advances which lead eventually to immoral practices.”[^6]
+President Spencer W. Kimball, one of our latter-day prophets, counseled youth to drive down stakes to help them be “steadfast and immovable” when he taught: “Our young people should drive down stakes early. … The stakes are of two kinds: ‘This I *will do’* and ‘This I *will not do.’ …* Very early, youth should have been living by a plan. … When such a course is charted and the goal is set, it is easier to resist the many temptations and to say ‘no’ to the first cigarette, ‘no’ to the first drink, … ‘no’ to the first improper advances which lead eventually to immoral practices.”[^6]
 
 We have a great tool to help us drive down those stakes. It is *For the Strength of Youth.* In this little book you will find the words of our latter-day prophets. The “stakes” that President Kimball described are in this book: the things “I *will do”* and the things “I *will not do.”*
 
@@ -91,8 +93,3 @@ I testify that the Lord loves each of you and will bless you in your efforts to 
 
 [^12]: [[Alma 36.3|Alma 36:3]].
 
-
-
-
-
-#Morality #Obedience #Testimony

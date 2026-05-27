@@ -1,5 +1,7 @@
 # “Behold, the Enemy Is Combined” (D&C 38:12)
 
+Thomas S. Monson
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -42,7 +44,7 @@ Abortion, which has increased enormously, causes one to ask, “Have we strayed 
 
 What of neighboring? Long ago, Tocqueville anticipated how individualism, unenriched by family and community, could produce the “lonely crowd,” saying:
 
-“Thus not only does democracy make every man forget his ancestors, but it hides his descendants and separates his contemporaries from him; it throws him back forever upon himself alone and threatens in the end to confine him entirely within the solitude of his own heart” (Alexis de Tocqueville, “Democracy in America,” in Andrew M. Scott, *Political Thought in America* \[New York: Rinehart and Co., Inc., 1959\], p. 225).
+“Thus not only does democracy make every man forget his ancestors, but it hides his descendants and separates his contemporaries from him; it throws him back forever upon himself alone and threatens in the end to confine him entirely within the solitude of his own heart” (Alexis de Tocqueville, “Democracy in America,” in Andrew M. Scott, *Political Thought in America* \[New York: Rinehart and Co., Inc., 1959\], p. 225).
 
 In their search for identity and belonging, too many supposedly savvy teens are now confined to the solitude of a lonely gang. What is the lasting advantage of becoming streetwise if one is on a street to nowhere? Gangs mark the failure of both families and communities as well as symbolizing the pervasive revolt against authority.
 
@@ -52,11 +54,11 @@ We are lathered with soap operas in need of nothing so much as soap—for the sc
 
 Those who mock the traditional moral values should heed this lesson of history from the Durants:
 
-“A youth boiling with hormones will wonder why he should not give full freedom to his sexual desires; and if he is unchecked by custom, morals, or laws, he may ruin his life before he matures sufficiently to understand that sex is a river of fire that must be banked and cooled by a hundred restraints if it is not to consume both the individual and the group” (Will and Ariel Durant, *The Lessons of History* \[New York: Simon and Schuster, 1968\], pp. 35–36).
+“A youth boiling with hormones will wonder why he should not give full freedom to his sexual desires; and if he is unchecked by custom, morals, or laws, he may ruin his life before he matures sufficiently to understand that sex is a river of fire that must be banked and cooled by a hundred restraints if it is not to consume both the individual and the group” (Will and Ariel Durant, *The Lessons of History* \[New York: Simon and Schuster, 1968\], pp. 35–36).
 
-Lasciviousness wrongly celebrates the capacity to feel, so that people lose their capacity to feel! Three different prophets in three different dispensations bemoaned those who became “past feeling” (see [[1 Nephi 17.45|1 Ne. 17:45]]; [[Ephesians 4.19|Eph. 4:19]]; [[Moroni 9.20|Moro. 9:20]]). Do we really expect those presently “past feeling” to fashion an acceptable future? Gross sin not only dulls the feelings, it also impairs the intellect. After murdering Abel, Cain ironically boasted, “I am free”! ([[Moses 5.33|Moses 5:33]]). Did the herd of Gadarene swine similarly console themselves, thinking that they were actually rugged individualists as they raced down the hill to their destruction?
+Lasciviousness wrongly celebrates the capacity to feel, so that people lose their capacity to feel! Three different prophets in three different dispensations bemoaned those who became “past feeling” (see [[1 Nephi 17.45|1 Ne. 17:45]]; [[Ephesians 4.19|Eph. 4:19]]; [[Moroni 9.20|Moro. 9:20]]). Do we really expect those presently “past feeling” to fashion an acceptable future? Gross sin not only dulls the feelings, it also impairs the intellect. After murdering Abel, Cain ironically boasted, “I am free”! ([[Moses 5.33|Moses 5:33]]). Did the herd of Gadarene swine similarly console themselves, thinking that they were actually rugged individualists as they raced down the hill to their destruction?
 
-Aleksandr Solzhenitsyn lamented recently how those who hold “there is no God, there is no truth, the universe is chaotic, all is relative” constitute a “relentless cult of novelty … \[which\] conceals an unyielding and long-sustained attempt to undermine, ridicule and uproot all moral precepts” (“The Relentless Cult of Novelty and How It Wrecked the Century,” *The New York Times Book Review,* 7 Feb. 1993, p. 17).
+Aleksandr Solzhenitsyn lamented recently how those who hold “there is no God, there is no truth, the universe is chaotic, all is relative” constitute a “relentless cult of novelty … \[which\] conceals an unyielding and long-sustained attempt to undermine, ridicule and uproot all moral precepts” (“The Relentless Cult of Novelty and How It Wrecked the Century,” *The New York Times Book Review,* 7 Feb. 1993, p. 17).
 
 Today’s anguishing mortal scene gives rise to still other questions.
 
@@ -68,9 +70,9 @@ Since democracy depends upon citizens’ “obedience to the unenforceable,” w
 
 Only reform and self-restraint, institutional and individual, can finally rescue society! Only a sufficient number of sin-resistant souls can change the marketplace. As Church members, we should be part of that sin-resistant counterculture. Instead, too many members are sliding down the slope, though perhaps at a slower pace.
 
-In a “wheat and tares” world, how unusually blessed faithful members are to have the precious and constant gift of the Holy Ghost with reminders of what is right and of the covenants we have made. “For behold, … the Holy Ghost … will show unto you all things what ye should do” ([[2 Nephi 32.5|2 Ne. 32:5]]). Whatever the decibels of decadence, these need not overwhelm the still, small voice! Some of the best sermons we will ever hear will be thus prompted from the pulpit of memory—to an audience of one!
+In a “wheat and tares” world, how unusually blessed faithful members are to have the precious and constant gift of the Holy Ghost with reminders of what is right and of the covenants we have made. “For behold, … the Holy Ghost … will show unto you all things what ye should do” ([[2 Nephi 32.5|2 Ne. 32:5]]). Whatever the decibels of decadence, these need not overwhelm the still, small voice! Some of the best sermons we will ever hear will be thus prompted from the pulpit of memory—to an audience of one!
 
-While living amid the foreseen “distress of nations, with perplexity” ([[Luke 21.25|Luke 21:25]]; see also [[D&C 88.79|D&C 88:79]]), members also have prophetic leadership which provides direction. Several times a year, we sustain fifteen Apostles as prophets, seers, and revelators. So we know to whom to look, even though there are a few members who “seek not the welfare of Zion” and “set themselves up for a light” ([[2 Nephi 26.29|2 Ne. 26:29]]). Furthermore, the Prophet Joseph clearly taught that recipients of that apostleship possess “all the keys that ever were, or that can be, conferred upon mortal man” (cited by Brigham Young, in *Journal of Discourses,* 1:137).
+While living amid the foreseen “distress of nations, with perplexity” ([[Luke 21.25|Luke 21:25]]; see also [[D&C 88.79|D&C 88:79]]), members also have prophetic leadership which provides direction. Several times a year, we sustain fifteen Apostles as prophets, seers, and revelators. So we know to whom to look, even though there are a few members who “seek not the welfare of Zion” and “set themselves up for a light” ([[2 Nephi 26.29|2 Ne. 26:29]]). Furthermore, the Prophet Joseph clearly taught that recipients of that apostleship possess “all the keys that ever were, or that can be, conferred upon mortal man” (cited by Brigham Young, in *Journal of Discourses,* 1:137).
 
 Repetitive experience teaches Church members that we need not be prey to pretenders. Besides, “the day cometh that they who will not hear the voice of the Lord, … neither give heed to the words of the prophets and apostles, shall be cut off from among the people” ([[D&C 1.14|D&C 1:14]]).
 
@@ -92,23 +94,18 @@ Care is even needed in our renderings between God and Caesar (see [[Matthew 22.2
 
 Thus, the fulness of the gospel of Jesus Christ is greater than any of its parts and larger than any of its programs or principles!
 
-Even during these difficult times, members “armed with righteousness” can do so many things ([[1 Nephi 14.14|1 Ne. 14:14]]). We can have love at home, even though the love of many waxes cold in the world (see [[Matthew 24.12|Matt. 24:12]]). We can have inner peace even though peace has been taken from the earth (see [[D&C 1.35|D&C 1:35]]).
+Even during these difficult times, members “armed with righteousness” can do so many things ([[1 Nephi 14.14|1 Ne. 14:14]]). We can have love at home, even though the love of many waxes cold in the world (see [[Matthew 24.12|Matt. 24:12]]). We can have inner peace even though peace has been taken from the earth (see [[D&C 1.35|D&C 1:35]]).
 
 We can keep the seventh commandment even though others break it and mock it. We can render individualized, humanitarian service even though the mass of human suffering seems so overwhelming.
 
 We can use our tongues to speak the truth in love, while refusing to use them to bear false witness (see [[Ephesians 4.15|Eph. 4:15]]; [[Exodus 20.16|Ex. 20:16]]). We can stand fast “in holy places” even though in the world “all things shall be in commotion” ([[D&C 45.32|D&C 45:32]]; [[D&C 88.91|88:91]]).
 
-We can reach for “hands which hang down” even if some refuse our proffered hands of friendship ([[D&C 81.5|D&C 81:5]]). We can hold to the iron rod even if others slip away and a few end up mocking us from the “great and spacious building” ([[1 Nephi 8.26|1 Ne. 8:26]]; see also [[1 Nephi 8.27|8:27–28]][[1 Nephi 8.28|]]).
+We can reach for “hands which hang down” even if some refuse our proffered hands of friendship ([[D&C 81.5|D&C 81:5]]). We can hold to the iron rod even if others slip away and a few end up mocking us from the “great and spacious building” ([[1 Nephi 8.26|1 Ne. 8:26]]; see also [[1 Nephi 8.27|8:27–28]][[1 Nephi 8.28|]]).
 
-Like Nephi, we may not always know the meaning of things happening to us or around us. Nevertheless, like Nephi, we can still know that God loves us! (see [[1 Nephi 11.17|1 Ne. 11:17]]).
+Like Nephi, we may not always know the meaning of things happening to us or around us. Nevertheless, like Nephi, we can still know that God loves us! (see [[1 Nephi 11.17|1 Ne. 11:17]]).
 
-Yes, “the enemy is combined,” but when we are combined with the Lord’s “chariots of fire,” then “they that be with us are more than they that be with them”! ([[2 Kings 6.16|2 Kgs. 6:16–17]][[2 Kings 6.17|]]). Furthermore, the divine promise is that no weapon formed against the Lord’s work shall finally prosper; “this is the heritage of the servants of the Lord” ([[Isaiah 54.17|Isa. 54:17]]; see also [[D&C 71.9|D&C 71:9]]). I so assure; I so testify in the name of Jesus Christ, amen!
-
-
+Yes, “the enemy is combined,” but when we are combined with the Lord’s “chariots of fire,” then “they that be with us are more than they that be with them”! ([[2 Kings 6.16|2 Kgs. 6:16–17]][[2 Kings 6.17|]]). Furthermore, the divine promise is that no weapon formed against the Lord’s work shall finally prosper; “this is the heritage of the servants of the Lord” ([[Isaiah 54.17|Isa. 54:17]]; see also [[D&C 71.9|D&C 71:9]]). I so assure; I so testify in the name of Jesus Christ, amen!
 
 
 
 
-
-
-#Commitment #Faith #Holy_Ghost #Last_Days

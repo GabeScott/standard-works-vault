@@ -1,6 +1,5 @@
 # Supply
 
-
 that which was lacking on your part they have *supplied*, [[1 Corinthians 16.17|1 Corinthians 16:17]].
 
 your abundance may be a *supply*, [[2 Corinthians 8.14|2 Corinthians 8:14]].

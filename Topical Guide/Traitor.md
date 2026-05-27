@@ -1,6 +1,5 @@
 # Traitor
 
-
 Judas Iscariot, which also was the *traitor*, [[Luke 6.16|Luke 6:16]].
 
 *Traitors*, heady, highminded, lovers of pleasures, [[2 Timothy 3.4|2 Timothy 3:4]].

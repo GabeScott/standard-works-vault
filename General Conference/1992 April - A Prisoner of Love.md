@@ -1,5 +1,7 @@
 # A Prisoner of Love
 
+Thomas S. Monson
+
 By Elder Vaughn J. Featherstone - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -100,7 +102,7 @@ Our generation came through a depression, World War II, Korea, and Vietnam. We l
 
 President Joseph F. Smith said:
 
-“After we have done all we could do for the cause of truth, and withstood the evil that men have brought upon us, … it is still our duty to stand. We cannot give up; we must not lie down. Great causes are not won in a single generation. To stand firm in the face of overwhelming opposition, when you have done all you can, is the courage of faith. The courage of faith is the courage of progress. Men who possess that divine quality go on; they are not permitted to stand still if they would. They are not simply the creatures of their own power and wisdom; they are instrumentalities of a higher law and a divine purpose. (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], p. 119).
+“After we have done all we could do for the cause of truth, and withstood the evil that men have brought upon us, … it is still our duty to stand. We cannot give up; we must not lie down. Great causes are not won in a single generation. To stand firm in the face of overwhelming opposition, when you have done all you can, is the courage of faith. The courage of faith is the courage of progress. Men who possess that divine quality go on; they are not permitted to stand still if they would. They are not simply the creatures of their own power and wisdom; they are instrumentalities of a higher law and a divine purpose. (*Gospel Doctrine,* 5th ed. \[Salt Lake City: Deseret Book Co., 1939\], p. 119).
 
 There is a holy hand behind the divine purposes of God. We can be His “instrumentalities.”
 
@@ -119,8 +121,3 @@ Ponder and pray together. Begin to prepare. Our generation can do something grea
 
 
 
-
-
-
-
-#Love #Missionary_Work #Service

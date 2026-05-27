@@ -1,5 +1,7 @@
 # Repentance and Change
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -36,7 +38,7 @@ Now back to the account of the man who opened his house and his heart to the Lor
 
 “And Zacchaeus stood, and said unto the Lord; Behold, Lord, the half of my goods I give to the poor; and if I have taken any thing from any man by false accusation, I restore him fourfold.
 
-“And Jesus said unto him, This day is salvation come to this house. …
+“And Jesus said unto him, This day is salvation come to this house. …
 
 “For the Son of man is come to seek and to save that which was lost” ([[Luke 19.8|vv. 8–10]][[Luke 19.9|]][[Luke 19.10|]]).
 
@@ -54,7 +56,7 @@ Again, in modern revelation the Lord declares that the “wicked one” takes th
 
 The traditions or culture or way of life of a people inevitably include some practices that must be changed by those who wish to qualify for God’s choicest blessings.
 
-Chastity is an example. “Thou shalt not commit adultery,” the Lord commanded from Sinai ([[Exodus 20.14|Exodus 20:14]]) and repeated in modern revelation ([[D&C 42.24|D&C 42:24]]; see also [[D&C 59.6|D&C 59:6]]). “Flee fornication,” the New Testament commands ([[1 Corinthians 6.18|1 Corinthians 6:18]]; see also [[Galatians 5.19|Galatians 5:19]]; [[1 Thessalonians 4.3|1 Thessalonians 4:3]]). Always the prophets of God have condemned whoredoms. Yet these eternal commands have frequently been ignored, opposed, or mocked by powerful traditions in many lands. This is especially visible today, when the movies, magazines, and Internet communications of one nation are instantly shared with many others. Sexual relations out of wedlock are tolerated or advocated by many. So is the rapidly expanding culture of pornography. All who have belonged to these cultures of sin must repent and change if they are to become the people of God, for He has warned that “no unclean thing can enter into his kingdom” ([[3 Nephi 27.19|3 Nephi 27:19]]).
+Chastity is an example. “Thou shalt not commit adultery,” the Lord commanded from Sinai ([[Exodus 20.14|Exodus 20:14]]) and repeated in modern revelation ([[D&C 42.24|D&C 42:24]]; see also [[D&C 59.6|D&C 59:6]]). “Flee fornication,” the New Testament commands ([[1 Corinthians 6.18|1 Corinthians 6:18]]; see also [[Galatians 5.19|Galatians 5:19]]; [[1 Thessalonians 4.3|1 Thessalonians 4:3]]). Always the prophets of God have condemned whoredoms. Yet these eternal commands have frequently been ignored, opposed, or mocked by powerful traditions in many lands. This is especially visible today, when the movies, magazines, and Internet communications of one nation are instantly shared with many others. Sexual relations out of wedlock are tolerated or advocated by many. So is the rapidly expanding culture of pornography. All who have belonged to these cultures of sin must repent and change if they are to become the people of God, for He has warned that “no unclean thing can enter into his kingdom” ([[3 Nephi 27.19|3 Nephi 27:19]]).
 
 Weekly attendance at church is another example of a commandment contrary to popular traditions. The Lord has commanded us to attend church and “offer up \[our\] sacraments” on His Sabbath day (see [[D&C 59.9|D&C 59:9]]). This requires more than passive attendance. We are commanded to participate in worship and in service, and that requires a wrenching change for many non-Christians and even for those Christians who have attended church only as irregular spectators.
 
@@ -68,7 +70,7 @@ I saw a memorable example of this a few months ago in the Philippines. I visited
 
 In these examples I am not contrasting the culture or traditions of one part of the world with another. I am contrasting the Lord’s way with the world’s way—the culture of the gospel of Jesus Christ with the culture or traditions of every nation or people. No group has a monopoly on virtue or an immunity from the commandment to change. Jesus and His Apostles did not attempt to make Gentiles into Jews (see [[Romans 2.11|Romans 2:11]]; [[Galatians 2.11|Galatians 2:11–16]][[Galatians 2.12|]][[Galatians 2.13|]][[Galatians 2.14|]][[Galatians 2.15|]][[Galatians 2.16|]]; [[Galatians 3.1|3:1–29]][[Galatians 3.2|]][[Galatians 3.3|]][[Galatians 3.4|]][[Galatians 3.5|]][[Galatians 3.6|]][[Galatians 3.7|]][[Galatians 3.8|]][[Galatians 3.9|]][[Galatians 3.10|]][[Galatians 3.11|]][[Galatians 3.12|]][[Galatians 3.13|]][[Galatians 3.14|]][[Galatians 3.15|]][[Galatians 3.16|]][[Galatians 3.17|]][[Galatians 3.18|]][[Galatians 3.19|]][[Galatians 3.20|]][[Galatians 3.21|]][[Galatians 3.22|]][[Galatians 3.23|]][[Galatians 3.24|]][[Galatians 3.25|]][[Galatians 3.26|]][[Galatians 3.27|]][[Galatians 3.28|]][[Galatians 3.29|]]; [[Galatians 5.1|5:1–6]][[Galatians 5.2|]][[Galatians 5.3|]][[Galatians 5.4|]][[Galatians 5.5|]][[Galatians 5.6|]]; [[Galatians 6.15|6:15]]). They taught Gentiles and Jews, attempting to make each of them into followers of Christ.
 
-Similarly, the present-day servants of the Lord do not attempt to make Filipinos or Asians or Africans into Americans. The Savior invites all to come unto Him (see [[2 Nephi 26.33|2 Nephi 26:33]]; [[D&C 43.20|D&C 43:20]]), and His servants seek to persuade all—including Americans—to become Latter-day Saints. We say to all, give up your traditions and cultural practices that are contrary to the commandments of God and the culture of His gospel, and join with His people in building the kingdom of God. If we cease to walk in darkness, the Apostle John taught, “we walk in the light, … we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin” ([[1 John 1.7|1 John 1:7]]).
+Similarly, the present-day servants of the Lord do not attempt to make Filipinos or Asians or Africans into Americans. The Savior invites all to come unto Him (see [[2 Nephi 26.33|2 Nephi 26:33]]; [[D&C 43.20|D&C 43:20]]), and His servants seek to persuade all—including Americans—to become Latter-day Saints. We say to all, give up your traditions and cultural practices that are contrary to the commandments of God and the culture of His gospel, and join with His people in building the kingdom of God. If we cease to walk in darkness, the Apostle John taught, “we walk in the light, … we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin” ([[1 John 1.7|1 John 1:7]]).
 
 ## III.
 
@@ -76,7 +78,7 @@ There is a unique gospel culture, a set of values and expectations and practices
 
 Those who are baptized in the Church of Jesus Christ make covenants. In modern revelation the Lord declared, “When men are called unto mine everlasting gospel, and covenant with an everlasting covenant, they are accounted as the salt of the earth and the savor of men” ([[D&C 101.39|D&C 101:39]]). To perform our covenant duty as the salt of the earth, we must be different from those around us.
 
-As Jesus taught: “I give unto you to be the salt of the earth; but if the salt shall lose its savor wherewith shall the earth be salted? The salt shall be thenceforth good for nothing, but to be cast out and to be trodden under foot of men” ([[3 Nephi 12.13|3 Nephi 12:13]]; see also [[Matthew 5.13|Matthew 5:13]]; [[D&C 101.40|D&C 101:40]]).
+As Jesus taught: “I give unto you to be the salt of the earth; but if the salt shall lose its savor wherewith shall the earth be salted? The salt shall be thenceforth good for nothing, but to be cast out and to be trodden under foot of men” ([[3 Nephi 12.13|3 Nephi 12:13]]; see also [[Matthew 5.13|Matthew 5:13]]; [[D&C 101.40|D&C 101:40]]).
 
 This requires us to make some changes from our family culture, our ethnic culture, or our national culture. We must change all elements of our behavior that are in conflict with gospel commandments, covenants, and culture.
 
@@ -86,7 +88,7 @@ The doctrine and practice of personal responsibility and personal effort collide
 
 The gospel raises people out of poverty and dependency, but only when gospel culture, including the faithful payment of tithing even by the very poor, prevails over the traditions and cultures of dependency. That is the lesson to be learned from the children of Israel, who came out of hundreds of years of slavery in Egypt and followed a prophet into their own land and became a mighty people. That lesson can also be learned from the Mormon pioneers, who never used their persecutions or poverty as an excuse but went forward in faith, knowing that God would bless them when they kept His commandments, which He did.
 
-The changes we must make to become part of the gospel culture require prolonged and sometimes painful effort, and our differences must be visible. As the “salt of the earth,” we are also the “light of the world,” and our light must not be hidden (see [[Matthew 5.13|Matthew 5:13–16]][[Matthew 5.14|]][[Matthew 5.15|]][[Matthew 5.16|]]). The Apostle John warned that this will cause the world to hate us (see [[1 John 3.13|1 John 3:13]]). That is why those who have made the covenant to change have a sacred duty to love and help one another. That encouragement must be extended to every soul who struggles to come out of the culture of the world and into the culture of the gospel of Jesus Christ. The Apostle John concluded, “Let us not love in word, neither in tongue; but in deed and in truth” ([[1 John 3.18|1 John 3:18]]).
+The changes we must make to become part of the gospel culture require prolonged and sometimes painful effort, and our differences must be visible. As the “salt of the earth,” we are also the “light of the world,” and our light must not be hidden (see [[Matthew 5.13|Matthew 5:13–16]][[Matthew 5.14|]][[Matthew 5.15|]][[Matthew 5.16|]]). The Apostle John warned that this will cause the world to hate us (see [[1 John 3.13|1 John 3:13]]). That is why those who have made the covenant to change have a sacred duty to love and help one another. That encouragement must be extended to every soul who struggles to come out of the culture of the world and into the culture of the gospel of Jesus Christ. The Apostle John concluded, “Let us not love in word, neither in tongue; but in deed and in truth” ([[1 John 3.18|1 John 3:18]]).
 
 No one shows love for their fellowmen more impressively than the noble men and women of this Church who leave comfortable homes and surroundings to serve as couple missionaries. They provide the most authentic and the most valuable assistance to those who are struggling to change. God bless our couple missionaries!
 
@@ -99,8 +101,3 @@ I testify that this is what our Lord and Savior would have us do so that we may 
 
 
 
-
-
-
-
-#Couple_Missionaries #Covenants #Honesty #Morality #Repentance #Worship

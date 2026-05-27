@@ -1,5 +1,7 @@
 # “Honour Thy Father and Thy Mother”
 
+Gordon B. Hinckley
+
 By Elder Lino Alvarez - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -20,7 +22,7 @@ The Lord gave to Israel, through Moses, the Ten Commandments on Mount Sinai. I w
 
 There are two things that our parents did with all of their children for which we now honor them. First, they taught us correct principles and helped us walk uprightly before the Lord and live his commandments. Second, they taught us the value of work, personal integrity, and family unity. Even though not all of us are members of the Church, we have tried to live according to the principles they taught us.
 
-Every year we have the opportunity to gather as a family—children, grandchildren, and great-grandchildren—with my father. He does what Lehi did before he died, when he gathered together his children and told them: “And now that my soul might have joy in you, and that my heart might leave this world with gladness because of you, that I might not be brought down with grief and sorrow to the grave, arise from the dust, my sons, and be men, and be determined in one mind and in one heart, united in all things, that ye may not come down into captivity” ([[2 Nephi 1.21|2 Ne. 1:21]]).
+Every year we have the opportunity to gather as a family—children, grandchildren, and great-grandchildren—with my father. He does what Lehi did before he died, when he gathered together his children and told them: “And now that my soul might have joy in you, and that my heart might leave this world with gladness because of you, that I might not be brought down with grief and sorrow to the grave, arise from the dust, my sons, and be men, and be determined in one mind and in one heart, united in all things, that ye may not come down into captivity” ([[2 Nephi 1.21|2 Ne. 1:21]]).
 
 When I was about to go on a mission, I worried about the same things that today worry the young men and young women who will also serve missions. I worried about work, my girlfriend, school, and family. When I was old enough to go on a mission, my father was almost sixty-six years old, and I thought, My father is old, and if I leave for two years, he may die and I will not see him anymore. Who will take care of my mother? She will be all alone when he is no longer at her side.
 
@@ -45,8 +47,3 @@ I testify that Joseph Smith was a prophet of God and that through him the fulnes
 
 
 
-
-
-
-
-#Commandments #Obedience #Parenthood

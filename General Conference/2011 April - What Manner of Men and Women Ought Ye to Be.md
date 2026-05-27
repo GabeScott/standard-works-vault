@@ -1,6 +1,8 @@
 # What Manner of Men and Women Ought Ye to Be?
 
-By Elder Lynn G. Robbins - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Lynn G. Robbins - *Of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -8,9 +10,9 @@ By Elder Lynn G. Robbins - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2011/04/what-manner-of-men-and-women-ought-ye-to-be?lang=eng)
 
-“To be, or not to be”[^1] is actually a very good question. The Savior posed the question in a far more profound way, making it a vital doctrinal question for each of us: “What manner of men \[and women\] ought ye *to be?* Verily I say unto you, even as *I am*” ([[3 Nephi 27.27|3 Nephi 27:27]]; emphasis added). The first-person present tense of the verb *be* is *I Am.* He invites us to take upon us His name and His nature.
+“To be, or not to be”[^1] is actually a very good question. The Savior posed the question in a far more profound way, making it a vital doctrinal question for each of us: “What manner of men \[and women\] ought ye *to be?* Verily I say unto you, even as *I am*” ([[3 Nephi 27.27|3 Nephi 27:27]]; emphasis added). The first-person present tense of the verb *be* is *I Am.* He invites us to take upon us His name and His nature.
 
-To become as He *is,* we must also *do* the things He *did:* “Verily, verily, I say unto you, this is my gospel; and ye know the things that ye must *do* in my church; for the works which ye have seen me *do* that shall ye also *do*” ([[3 Nephi 27.21|3 Nephi 27:21]]; emphasis added).
+To become as He *is,* we must also *do* the things He *did:* “Verily, verily, I say unto you, this is my gospel; and ye know the things that ye must *do* in my church; for the works which ye have seen me *do* that shall ye also *do*” ([[3 Nephi 27.21|3 Nephi 27:21]]; emphasis added).
 
 To *be* and to *do* are inseparable. As interdependent doctrines, they reinforce and promote each other. Faith inspires one to pray, for example, and prayer in turn strengthens one’s faith.
 
@@ -50,7 +52,7 @@ A sweet and obedient child will enroll a father or mother only in Parenting 101.
 
 We have all heard the advice to condemn the sin and not the sinner. Likewise, when our children misbehave, we must be careful not to say things that would cause them to believe that what they *did* wrong is who they *are.* “Never let failure progress from an action to an identity,” with its attendant labels like “stupid,” “slow,” “lazy,” or “clumsy.”[^2] Our children are God’s children. That is their true identity and potential. His very plan is to help His children overcome mistakes and misdeeds and to progress to become as He *is.* Disappointing behavior, therefore, should be considered as something temporary, not permanent—an act, not an identity.
 
-We need to be careful, therefore, about using permanent phrases such as “You always …” or “You never …” when disciplining. Take care with phrases such as “You never consider my feelings” or “Why do you always make us wait?” Phrases like these make actions appear as an identity and can adversely influence the child’s self-perception and self-worth.
+We need to be careful, therefore, about using permanent phrases such as “You always …” or “You never …” when disciplining. Take care with phrases such as “You never consider my feelings” or “Why do you always make us wait?” Phrases like these make actions appear as an identity and can adversely influence the child’s self-perception and self-worth.
 
 Identity confusion can also occur when we ask children what they want to *be* when they grow up, as if what a person *does* for a living is who he or she *is.* Neither professions nor possessions should define identity or self-worth. The Savior, for example, was a humble carpenter, but that hardly defined His life.
 
@@ -79,8 +81,3 @@ My remarks today have been addressed primarily to parents, but the principles ap
 
 [^3]: See *Preach My Gospel: A Guide to Missionary Service* (2004), 115.
 
-
-
-
-
-#Children #Jesus_Christ #Obedience #Parenthood #Responsibility

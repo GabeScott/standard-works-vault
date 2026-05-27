@@ -1,6 +1,5 @@
 # Overseer
 
-
 made him *overseer* over his house, [[Genesis 39.4|Genesis 39:4]].
 
 having no guide, *overseer*, or ruler, [[Proverbs 6.7|Proverbs 6:7]].

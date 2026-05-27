@@ -1,6 +1,8 @@
 # Eternal Life—to Know Our Heavenly Father and His Son, Jesus Christ
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -60,13 +62,13 @@ You too can seek our Heavenly Father and “this Jesus of whom the prophets and 
 
 “And by the power of the Holy Ghost ye may know \[with a surety\] the truth of all things.”[^27]
 
-Brothers and sisters, I testify that our Heavenly Father wants us to seek this knowledge now. The words of the prophet Helaman cry from the dust: “Remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation … , a foundation whereon if men build they cannot fall.”[^28] Indeed, we will not fail.
+Brothers and sisters, I testify that our Heavenly Father wants us to seek this knowledge now. The words of the prophet Helaman cry from the dust: “Remember, remember that it is upon the rock of our Redeemer, who is Christ, the Son of God, that ye must build your foundation … , a foundation whereon if men build they cannot fall.”[^28] Indeed, we will not fail.
 
 That sure foundation is Jesus Christ. He is “the Rock of Heaven.”[^29] When we build our house upon Him, the rains of the latter days may descend, the floods may come, and the winds may blow, but we will not fall. We will not fail, for our home and our family will be founded upon Christ.[^30]
 
 I testify that such a home is “a house of glory.”[^31] There we gather together to pray to our Heavenly Father in the name of Jesus Christ, His Beloved Son. There we glorify and give gratitude to Them. There we receive the Holy Ghost and “the promise which \[He gives\] unto \[us\] of eternal life, even the glory of the celestial kingdom.”[^32]
 
-I bear my special witness that our Savior is Jesus Christ, that He lives, that our Eternal Heavenly Father loves us and watches over us, that we have a prophet in this dispensation—even President Thomas S. Monson—to lead and to guide us. The Holy Spirit testifies that this is true to each who goes and seeks the knowledge. In the name of Jesus Christ, amen.
+I bear my special witness that our Savior is Jesus Christ, that He lives, that our Eternal Heavenly Father loves us and watches over us, that we have a prophet in this dispensation—even President Thomas S. Monson—to lead and to guide us. The Holy Spirit testifies that this is true to each who goes and seeks the knowledge. In the name of Jesus Christ, amen.
 
 
 
@@ -77,9 +79,9 @@ I bear my special witness that our Savior is Jesus Christ, that He lives, that o
 
 [^3]: [[D&C 46.13|Doctrine and Covenants 46:13–14]][[D&C 46.14|]].
 
-[^4]: [[2 Nephi 32.3|2 Nephi 32:3]].
+[^4]: [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^5]: [[1 John 4.19|1 John 4:19]].
+[^5]: [[1 John 4.19|1 John 4:19]].
 
 [^6]: [[Moses 4.2|Moses 4:2]].
 
@@ -107,17 +109,17 @@ I bear my special witness that our Savior is Jesus Christ, that He lives, that o
 
 [^18]: [[John 20.17|John 20:17]].
 
-[^19]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^19]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
-[^20]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
+[^20]: [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
-[^21]: [[3 Nephi 11.32|3 Nephi 11:32]].
+[^21]: [[3 Nephi 11.32|3 Nephi 11:32]].
 
-[^22]: [[3 Nephi 11.27|3 Nephi 11:27]].
+[^22]: [[3 Nephi 11.27|3 Nephi 11:27]].
 
 [^23]: [[Moses 1.39|Moses 1:39]].
 
-[^24]: [[3 Nephi 19.29|3 Nephi 19:29]].
+[^24]: [[3 Nephi 19.29|3 Nephi 19:29]].
 
 [^25]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
@@ -129,14 +131,9 @@ I bear my special witness that our Savior is Jesus Christ, that He lives, that o
 
 [^29]: [[Moses 7.53|Moses 7:53]].
 
-[^30]: See [[3 Nephi 14.24|3 Nephi 14:24–25]][[3 Nephi 14.25|]].
+[^30]: See [[3 Nephi 14.24|3 Nephi 14:24–25]][[3 Nephi 14.25|]].
 
 [^31]: [[D&C 88.119|Doctrine and Covenants 88:119]]; [[D&C 109.8|109:8, 16]][[D&C 109.16|]].
 
 [^32]: [[D&C 88.4|Doctrine and Covenants 88:4]].
 
-
-
-
-
-#God_The_Father #Holy_Ghost #Jesus_Christ #Love #Testimony #Unity

@@ -1,6 +1,8 @@
 # Missionary Work: Sharing What Is in Your Heart
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Ulisses Soares
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2019/04/14uchtdorf?lang=eng)
 
-Last month the Twelve were invited by our dear prophet, President Russell M. Nelson, to travel with him to the dedication of the Rome Italy Temple. While traveling, I thought about the Apostle Paul and his journeys. In his day, to get from Jerusalem to Rome, it would have taken about 40 days. Today, in one of my favorite airplanes, it takes less than 3 hours.
+Last month the Twelve were invited by our dear prophet, President Russell M. Nelson, to travel with him to the dedication of the Rome Italy Temple. While traveling, I thought about the Apostle Paul and his journeys. In his day, to get from Jerusalem to Rome, it would have taken about 40 days. Today, in one of my favorite airplanes, it takes less than 3 hours.
 
 Bible scholars believe that Paul was in Rome when he wrote several of his letters, which were key in strengthening Church members then as well as today.
 
@@ -125,9 +127,9 @@ I so testify in the name of Jesus Christ, amen.
 
 
 
-[^1]: The great prophet Nephi saw in vision that even though the Church of the Lamb of God would spread “upon all the face of the earth,” because of wickedness in the world its overall “numbers \[would be\] few” ([[1 Nephi 14.12|1 Nephi 14:12]]; see also [[Luke 12.32|Luke 12:32]]).
+[^1]: The great prophet Nephi saw in vision that even though the Church of the Lamb of God would spread “upon all the face of the earth,” because of wickedness in the world its overall “numbers \[would be\] few” ([[1 Nephi 14.12|1 Nephi 14:12]]; see also [[Luke 12.32|Luke 12:32]]).
 
-[^2]: For example, a recent study by the Pew Research Center found that in the United States, “the percentage of adults (ages 18 and older) who describe themselves as Christians has dropped by nearly eight percentage points in just seven years, from 78.4% in … 2007 to 70.6% in 2014. Over the same period, the percentage of Americans who are religiously unaffiliated—describing themselves as atheist, agnostic or ‘nothing in particular’—has jumped more than six points, from 16.1% to 22.8%” (“America’s Changing Religious Landscape,” Pew Research Center, May 12, 2015, pewforum.org).
+[^2]: For example, a recent study by the Pew Research Center found that in the United States, “the percentage of adults (ages 18 and older) who describe themselves as Christians has dropped by nearly eight percentage points in just seven years, from 78.4% in … 2007 to 70.6% in 2014. Over the same period, the percentage of Americans who are religiously unaffiliated—describing themselves as atheist, agnostic or ‘nothing in particular’—has jumped more than six points, from 16.1% to 22.8%” (“America’s Changing Religious Landscape,” Pew Research Center, May 12, 2015, pewforum.org).
 
 [^3]: The word *gospel* means “good news.” The good news is that Jesus Christ has made a perfect Atonement that will redeem all mankind from the grave and reward each individual according to his or her works. This Atonement began with His appointment in the premortal world, continued during His mortal sojourn, and culminated with His glorious Resurrection. The biblical records of His mortal life, ministry, and sacrifice are called the Gospels: Matthew, Mark, Luke, and John.
 
@@ -135,7 +137,7 @@ I so testify in the name of Jesus Christ, amen.
 
 [^5]: “Verily I say unto you, my friends, I leave these sayings with you to ponder in your hearts” ([[D&C 88.62|Doctrine and Covenants 88:62]]).
 
-[^6]: President David O. McKay encouraged “every member \[to be\] a missionary” when he presided over the European Mission from 1922 to 1924, and he shared that same message with the Church in general conference as early as 1952 (see “[‘Every Member a Missionary’ Motto Stands Firm Today](https://www.lds.org/church/news/-every-member-a-missionary-motto-stands-firm-today?lang=eng&_r=1),” Church News, Feb. 20, 2015, news.ChurchofJesusChrist.org).
+[^6]: President David O. McKay encouraged “every member \[to be\] a missionary” when he presided over the European Mission from 1922 to 1924, and he shared that same message with the Church in general conference as early as 1952 (see “[‘Every Member a Missionary’ Motto Stands Firm Today](https://www.lds.org/church/news/-every-member-a-missionary-motto-stands-firm-today?lang=eng&_r=1),” Church News, Feb. 20, 2015, news.ChurchofJesusChrist.org).
 
 [^7]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 
@@ -159,14 +161,9 @@ I so testify in the name of Jesus Christ, amen.
 
 [^17]: See [[John 15.18|John 15:18]].
 
-[^18]: 1 Peter 4:13, English Standard Version; see also verses 1–19 for more about how followers of Christ should view suffering for the gospel’s sake.
+[^18]: 1 Peter 4:13, English Standard Version; see also verses 1–19 for more about how followers of Christ should view suffering for the gospel’s sake.
 
 [^19]: [[Acts 5.41|Acts 5:41]].
 
 [^20]: [[D&C 45.44|Doctrine and Covenants 45:44]].
 
-
-
-
-
-#Missionary_Work

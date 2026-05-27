@@ -1,7 +1,6 @@
 # World
 
-
-*See also* [[Astronomy.md|Astronomy]]; [[Creation, Create.md|Creation]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[God, Creator.md|God, Creator]]; [[God, Works of.md|God, Works of]]; [[Spirit Creation.md|Spirit Creation]]; [[Spirits in Prison.md|Spirits in Prison]]; [[Vineyard of the Lord.md|Vineyard of the Lord]]; [[World, End of.md|World, End of]]; [[Worldliness.md|Worldliness]]
+*See also* [[Astronomy.md|Astronomy]]; [[Creation.md|Creation]]; [[Earth, Destiny of.md|Earth, Destiny of]]; [[Earth, Purpose of.md|Earth, Purpose of]]; [[God, Creator.md|God, Creator]]; [[God, Works of.md|God, Works of]]; [[Spirit Creation.md|Spirit Creation]]; [[Spirits in Prison.md|Spirits in Prison]]; [[Vineyard of the Lord.md|Vineyard of the Lord]]; [[World, End of.md|World, End of]]; [[Worldliness.md|Worldliness]]
 
 words to the end of the *world*, [[Psalms 19.4|Psalms 19:4]] ([[Romans 10.18|Romans 10:18]]).
 
@@ -21,7 +20,7 @@ I will punish the *world* for their evil, [[Isaiah 13.11|Isaiah 13:11]] ([[2 Nep
 
 Ye are the light of the *world*, [[Matthew 5.14|Matthew 5:14]] ([[3 Nephi 12.14|3 Nephi 12:14]]).
 
-care of this *world* ... choke the word, [[Matthew 13.22|Matthew 13:22]] ([[Mark 4.19|Mark 4:19]]).
+care of this *world* … choke the word, [[Matthew 13.22|Matthew 13:22]] ([[Mark 4.19|Mark 4:19]]).
 
 field is the *world*, [[Matthew 13.38|Matthew 13:38]] ([[D&C 86.2|D&C 86:2]]).
 
@@ -31,7 +30,7 @@ gain the whole *world*, and lose his own soul, [[Matthew 16.26|Matthew 16:26]] (
 
 I am with you alway, even unto the end of the *world*, [[Matthew 28.20|Matthew 28:20]].
 
-receive ... in the *world* to come eternal life, [[Mark 10.30|Mark 10:30]] ([[Luke 18.30|Luke 18:30]]).
+receive … in the *world* to come eternal life, [[Mark 10.30|Mark 10:30]] ([[Luke 18.30|Luke 18:30]]).
 
 Go ye into all the *world*, and preach, [[Mark 16.15|Mark 16:15]] ([[Mormon 9.22|Mormon 9:22]]; [[D&C 84.62|D&C 84:62]]).
 
@@ -81,7 +80,7 @@ I am no more in the *world*, [[John 17.11|John 17:11]].
 
 they are not of the *world*, even as I am not of the *world*, [[John 17.14|John 17:14]].
 
-I pray not that thou ... take them out of the *world*, [[John 17.15|John 17:15]].
+I pray not that thou … take them out of the *world*, [[John 17.15|John 17:15]].
 
 *world* may believe that thou hast sent me, [[John 17.21|John 17:21]].
 
@@ -111,7 +110,7 @@ saints shall judge the *world*, [[1 Corinthians 6.2|1 Corinthians 6:2]].
 
 they that use this *world*, as not abusing it, [[1 Corinthians 7.31|1 Corinthians 7:31]].
 
-God ... reconciling the *world* unto himself, [[2 Corinthians 5.19|2 Corinthians 5:19]].
+God … reconciling the *world* unto himself, [[2 Corinthians 5.19|2 Corinthians 5:19]].
 
 Christ, by whom the *world* is crucified unto me, and I unto the *world*, [[Galatians 6.14|Galatians 6:14]].
 
@@ -125,9 +124,9 @@ against the rulers of the darkness of this *world*, [[Ephesians 6.12|Ephesians 6
 
 forsaken me, having loved this present *world*, [[2 Timothy 4.10|2 Timothy 4:10]].
 
-his Son ... by whom also he made the *worlds*, [[Hebrews 1.2|Hebrews 1:2]].
+his Son … by whom also he made the *worlds*, [[Hebrews 1.2|Hebrews 1:2]].
 
-tasted ... the powers of the *world* to come, [[Hebrews 6.5|Hebrews 6:5]].
+tasted … the powers of the *world* to come, [[Hebrews 6.5|Hebrews 6:5]].
 
 *worlds* were framed by the word of God, [[Hebrews 11.3|Hebrews 11:3]].
 
@@ -139,17 +138,17 @@ friendship of the *world* is enmity with God, [[James 4.4|James 4:4]].
 
 spared not the old *world*, [[2 Peter 2.5|2 Peter 2:5]].
 
-propitiation ... for the sins of the whole *world*, [[1 John 2.2|1 John 2:2]].
+propitiation … for the sins of the whole *world*, [[1 John 2.2|1 John 2:2]].
 
 Love not the *world*, [[1 John 2.15|1 John 2:15]].
 
 *world* knoweth us not, [[1 John 3.1|1 John 3:1]].
 
-Marvel not ... if the *world* hate you, [[1 John 3.13|1 John 3:13]].
+Marvel not … if the *world* hate you, [[1 John 3.13|1 John 3:13]].
 
 many false prophets are gone out into the *world*, [[1 John 4.1|1 John 4:1]].
 
-They are of the *world* ... and the *world* heareth them, [[1 John 4.5|1 John 4:5]].
+They are of the *world* … and the *world* heareth them, [[1 John 4.5|1 John 4:5]].
 
 whole *world* lieth in wickedness, [[1 John 5.19|1 John 5:19]].
 
@@ -183,11 +182,11 @@ show unto the *world* that I am the same, [[2 Nephi 27.23|2 Nephi 27:23]].
 
 then shall they confess, who live without God in the *world*, [[Mosiah 27.31|Mosiah 27:31]].
 
-set their hearts upon ... vain things of the *world*, [[Alma 4.8|Alma 4:8]] ([[Alma 31.27|Alma 31:27]]).
+set their hearts upon … vain things of the *world*, [[Alma 4.8|Alma 4:8]] ([[Alma 31.27|Alma 31:27]]).
 
 he shall come into the *world* to redeem, [[Alma 11.40|Alma 11:40]] ([[Helaman 5.9|Helaman 5:9]]; [[Mormon 7.7|Mormon 7:7]]; [[D&C 19.1|D&C 19:1]]).
 
-Moroni ... I seek not for honor of the *world*, [[Alma 60.36|Alma 60:36]].
+Moroni … I seek not for honor of the *world*, [[Alma 60.36|Alma 60:36]].
 
 that they might get gain and glory of the *world*, [[Helaman 7.5|Helaman 7:5]].
 
@@ -195,29 +194,29 @@ I have chosen them out of the *world*, [[3 Nephi 19.20|3 Nephi 19:20]].
 
 day when I shall stand to judge the *world*, [[3 Nephi 27.16|3 Nephi 27:16]].
 
-who were never to taste of death ... are hid from the *world*, [[3 Nephi 28.25|3 Nephi 28:25]].
+who were never to taste of death … are hid from the *world*, [[3 Nephi 28.25|3 Nephi 28:25]].
 
 brought to pass the redemption of the *world*, [[Mormon 7.7|Mormon 7:7]].
 
 laid up for you, from the foundation of the *world*, [[Ether 4.14|Ether 4:14]].
 
-set his heart ... upon the glory of the *world*, [[Ether 8.7|Ether 8:7]].
+set his heart … upon the glory of the *world*, [[Ether 8.7|Ether 8:7]].
 
 image is in the likeness of the *world*, [[D&C 1.16|D&C 1:16]].
 
 *world* is ripening in iniquity, [[D&C 18.6|D&C 18:6]].
 
-I am ... the Redeemer of the *world*, [[D&C 19.1|D&C 19:1]].
+I am … the Redeemer of the *world*, [[D&C 19.1|D&C 19:1]].
 
-crucified ... for the sins of the *world*, [[D&C 21.9|D&C 21:9]].
+crucified … for the sins of the *world*, [[D&C 21.9|D&C 21:9]].
 
-Make known thy calling ... before the *world*, [[D&C 23.2|D&C 23:2]].
+Make known thy calling … before the *world*, [[D&C 23.2|D&C 23:2]].
 
 continue in bearing my name before the *world*, [[D&C 24.10|D&C 24:10]].
 
 lay aside the things of this *world*, [[D&C 25.10|D&C 25:10]].
 
-rejected me many times because of ... cares of the *world*, [[D&C 39.9|D&C 39:9]].
+rejected me many times because of … cares of the *world*, [[D&C 39.9|D&C 39:9]].
 
 *world* lieth in sin, [[D&C 49.20|D&C 49:20]].
 
@@ -231,23 +230,23 @@ of him, the *worlds* are and were created, [[D&C 76.24|D&C 76:24]].
 
 bosom of the Father before the *worlds* were made, [[D&C 76.39|D&C 76:39]].
 
-he came ... to bear the sins of the *world*, [[D&C 76.41|D&C 76:41]].
+he came … to bear the sins of the *world*, [[D&C 76.41|D&C 76:41]].
 
 not have forgiveness of sins in this *world* nor in the *world* to come, [[D&C 84.41|D&C 84:41]].
 
 whole *world* groaneth under sin and darkness, [[D&C 84.53|D&C 84:53]].
 
-revelation ... in force ... upon all the *world*, [[D&C 84.75|D&C 84:75]].
+revelation … in force … upon all the *world*, [[D&C 84.75|D&C 84:75]].
 
 I send you out to prove the *world*, [[D&C 84.79|D&C 84:79]].
 
 I send you out to reprove the *world*, [[D&C 84.87|D&C 84:87]].
 
-not ... live after the manner of the *world*, [[D&C 95.13|D&C 95:13]].
+not … live after the manner of the *world*, [[D&C 95.13|D&C 95:13]].
 
 in this *world* your joy is not full, [[D&C 101.36|D&C 101:36]].
 
-that which was ordained ... before this *world*, [[D&C 121.32|D&C 121:32]].
+that which was ordained … before this *world*, [[D&C 121.32|D&C 121:32]].
 
 hearts are set so much upon the things of this *world*, [[D&C 121.35|D&C 121:35]].
 

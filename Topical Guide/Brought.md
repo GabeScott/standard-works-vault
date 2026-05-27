@@ -1,4 +1,3 @@
 # Brought
 
-
-*See* [[Bring, Brought.md|Bring]]
+*See also* [[Bring.md|Bring]]

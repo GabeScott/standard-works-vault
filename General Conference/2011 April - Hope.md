@@ -1,6 +1,8 @@
 # Hope
 
-By Elder Steven E. Snow - *Of the Presidency of the Seventy*
+Thomas S. Monson
+
+By Elder Steven E. Snow - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -28,15 +30,15 @@ Hope can inspire dreams and spur us to realize those dreams. Hope alone, however
 
 As parents, we find our fondest hopes center around our children. We hope they will grow up to lead responsible and righteous lives. Such hopes can be easily dashed if we do not act as good examples. Hope alone does not mean our children will grow in righteousness. We must spend time with them in family home evening and worthwhile family activities. We must teach them to pray. We must read with them in the scriptures and teach them important gospel principles. Only then is it possible our fondest hopes will be realized.
 
-We should never let hope be displaced by despair. The Apostle Paul wrote that we “should plow in hope” ([[1 Corinthians 9.10|1 Corinthians 9:10]]). The exercise of hope enriches our lives and helps us look forward to the future. Whether we are plowing fields to plant or plowing through life, it is imperative we, as Latter-day Saints, have hope.
+We should never let hope be displaced by despair. The Apostle Paul wrote that we “should plow in hope” ([[1 Corinthians 9.10|1 Corinthians 9:10]]). The exercise of hope enriches our lives and helps us look forward to the future. Whether we are plowing fields to plant or plowing through life, it is imperative we, as Latter-day Saints, have hope.
 
 In the gospel of Jesus Christ, hope is the desire of His followers to gain eternal salvation through the Atonement of the Savior.
 
-This is truly the hope we must all have. It is what sets us apart from the rest of the world. Peter admonished the early followers of Christ to “be ready always to give an answer to every man that asketh you a reason of the hope that is in you” ([[1 Peter 3.15|1 Peter 3:15]]).
+This is truly the hope we must all have. It is what sets us apart from the rest of the world. Peter admonished the early followers of Christ to “be ready always to give an answer to every man that asketh you a reason of the hope that is in you” ([[1 Peter 3.15|1 Peter 3:15]]).
 
 Our hope in the Atonement empowers us with eternal perspective. Such perspective allows us to look beyond the here and now on into the promise of the eternities. We don’t have to be trapped in the narrow confines of society’s fickle expectations. We are free to look forward to celestial glory, sealed to our family and loved ones.
 
-In the gospel, hope is almost always related to faith and charity. President Dieter F. Uchtdorf has taught: “Hope is one leg of a three-legged stool, together with faith and charity. These three stabilize our lives regardless of the rough or uneven surfaces we might encounter at the time” (in Conference Report, Oct. 2008, 19; or *Ensign,* Nov. 2008, 21).
+In the gospel, hope is almost always related to faith and charity. President Dieter F. Uchtdorf has taught: “Hope is one leg of a three-legged stool, together with faith and charity. These three stabilize our lives regardless of the rough or uneven surfaces we might encounter at the time” (in Conference Report, Oct. 2008, [[2008 October - The Infinite Power of Hope.md|19]]; or *Ensign,* Nov. 2008, 21).
 
 In the last chapter of the Book of Mormon, Moroni wrote:
 
@@ -44,9 +46,9 @@ In the last chapter of the Book of Mormon, Moroni wrote:
 
 “And except ye have charity ye can in nowise be saved in the kingdom of God; neither can ye be saved in the kingdom of God if ye have not faith; neither can ye if ye have no hope” ([[Moroni 10.20|Moroni 10:20–21]][[Moroni 10.21|]]).
 
-Elder Russell M. Nelson has taught that “*faith* is rooted in Jesus Christ. *Hope* centers in his Atonement. *Charity* is manifest in the ‘pure love of Christ.’ These three attributes are intertwined like strands in a cable and may not always be precisely distinguished. Together they become our tether to the celestial kingdom” (“A More Excellent Hope,” *Ensign,* Feb. 1997, 61).
+Elder Russell M. Nelson has taught that “*faith* is rooted in Jesus Christ. *Hope* centers in his Atonement. *Charity* is manifest in the ‘pure love of Christ.’ These three attributes are intertwined like strands in a cable and may not always be precisely distinguished. Together they become our tether to the celestial kingdom” (“A More Excellent Hope,” *Ensign,* Feb. 1997, 61).
 
-When Nephi prophesied of Jesus Christ at the closing of his record, he wrote, “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men” ([[2 Nephi 31.20|2 Nephi 31:20]]).
+When Nephi prophesied of Jesus Christ at the closing of his record, he wrote, “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men” ([[2 Nephi 31.20|2 Nephi 31:20]]).
 
 This “perfect brightness of hope” of which Nephi speaks is the hope in the Atonement, eternal salvation made possible by the sacrifice of our Savior. This hope has led men and women through the ages to do remarkable things. Apostles of old roamed the earth and testified of Him and ultimately gave their lives in His service.
 
@@ -58,7 +60,7 @@ Her son John Murdoch and his wife joined the Church and left for Utah in 1852 wi
 
 After a safe passage across the Atlantic, she ultimately joined the ill-fated Martin handcart company. On July 28 these handcart pioneers began the journey west. The suffering of this company is well known. Of the 576 members of the party, almost one-fourth died before they reached Utah. More would have perished if not for the rescue effort organized by President Brigham Young, who sent wagons and supplies to find the stranded, snowbound Saints.
 
-Mary Murdoch died on October 2, 1856, near Chimney Rock, Nebraska. Here she succumbed to fatigue, exposure, and the hardships of the journey. Her frail body simply gave out under the physical hardships the Saints encountered. As she lay clinging to life, her thoughts were of her family in Utah. The last words of this faithful pioneer woman were “Tell John that I died with my face toward Zion.” (See Kenneth W. Merrell, *Scottish Shepherd: The Life and Times of John Murray Murdoch, Utah Pioneer* \[2006\], 34, 39, 54, 77, 94–97, 103, 112–13, 115.)
+Mary Murdoch died on October 2, 1856, near Chimney Rock, Nebraska. Here she succumbed to fatigue, exposure, and the hardships of the journey. Her frail body simply gave out under the physical hardships the Saints encountered. As she lay clinging to life, her thoughts were of her family in Utah. The last words of this faithful pioneer woman were “Tell John that I died with my face toward Zion.” (See Kenneth W. Merrell, *Scottish Shepherd: The Life and Times of John Murray Murdoch, Utah Pioneer* \[2006\], 34, 39, 54, 77, 94–97, 103, 112–13, 115.)
 
 Mary Murray Murdoch exemplifies the hope and faith of so many of the early pioneers who made the courageous journey west. The spiritual journeys of today require no less hope or faith than those of the early pioneers. Our challenges may be different, but the struggles are just as great.
 
@@ -67,8 +69,3 @@ It is my prayer that our hopes will lead to the fulfillment of our righteous dre
 
 
 
-
-
-
-
-#Atonement #Charity #Faith #Hope #Pioneers

@@ -1,6 +1,8 @@
 # “This Is My Work and Glory”
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -18,11 +20,11 @@ Brothers and sisters, the power by which the heavens and earth were and are crea
 
 It is the keys of this priesthood authority and resultant power that He gave to Peter, James, and John and His other Apostles to bless others and to bind in heaven that which is bound on earth.
 
-The power of the priesthood is a sacred and essential gift of God. It is different from priesthood authority, which is the authorization to act in God’s name. The authorization or ordination is given by the laying on of hands. The power of the priesthood comes only when those who exercise it are worthy and acting in accordance with God’s will. As President Spencer W. Kimball declared, “The Lord has given to all of us, as holders of the priesthood, certain of his authority, but we can only tap the powers of heaven on the basis of our personal righteousness” (“Boys Need Heroes Close By,” *Ensign,* May 1976, 45).
+The power of the priesthood is a sacred and essential gift of God. It is different from priesthood authority, which is the authorization to act in God’s name. The authorization or ordination is given by the laying on of hands. The power of the priesthood comes only when those who exercise it are worthy and acting in accordance with God’s will. As President Spencer W. Kimball declared, “The Lord has given to all of us, as holders of the priesthood, certain of his authority, but we can only tap the powers of heaven on the basis of our personal righteousness” (“Boys Need Heroes Close By,” *Ensign,* May 1976, 45).
 
 During the glorious days of the Restoration and the reestablishment of the Church of Jesus Christ in the world today, John the Baptist; Peter, James, and John; Moses; Elias; and Elijah came to the earth and restored through the Prophet Joseph Smith all of the keys and authority of the priesthood for the work of God in these latter days.
 
-It is by these keys, this authority, and this power that the Church of Jesus Christ is organized today, with Christ at the head directing His living prophet, Thomas S. Monson, and assisted by duly called and ordained Apostles.
+It is by these keys, this authority, and this power that the Church of Jesus Christ is organized today, with Christ at the head directing His living prophet, Thomas S. Monson, and assisted by duly called and ordained Apostles.
 
 In our Heavenly Father’s great priesthood-endowed plan, men have the unique responsibility to administer the priesthood, but they are not the priesthood. Men and women have different but equally valued roles. Just as a woman cannot conceive a child without a man, so a man cannot fully exercise the power of the priesthood to establish an eternal family without a woman. In other words, in the eternal perspective, both the procreative power and the priesthood power are shared by husband and wife. And as husband and wife, a man and a woman should strive to follow our Heavenly Father. The Christian virtues of love, humility, and patience should be their focus as they seek the blessings of the priesthood in their lives and for their family.
 
@@ -66,7 +68,7 @@ It shows us all—men, women, children; married, widowed, or single; no matter w
 
 One special scene was filmed in the very small pioneer home of my mother’s great-grandmother Mary Fielding Smith. She was the widow of Hyrum, the Prophet Joseph’s older brother. As a single parent, through her strong faith in the priesthood, she called upon and relied on that power to raise and bless her children in love and the light of the gospel. Today her posterity of thousands of faithful leaders and members of the Church thank her for her faith, courage, and example.
 
-This new leadership training is now available on the Internet at LDS.org for all to see and experience (). You can stream it from LDS.org, or you can download it to your computer, smartphone, or tablet devices.
+This new leadership training is now available on the Internet at LDS.org for all to see and experience ([wwlt.lds.org](https://www.churchofjesuschrist.org/study/video/worldwide-leadership-training/2013/february-2013?lang=eng)). You can stream it from LDS.org, or you can download it to your computer, smartphone, or tablet devices.
 
 The First Presidency has asked “stake presidencies and bishoprics to dedicate one or more stake or ward council meetings to viewing the \[entire\] DVD. Stake and ward councils should discuss how to implement the teachings that are presented” (First Presidency letter, Feb. 1, 2013).
 
@@ -93,8 +95,3 @@ I testify that the work of Jesus Christ is accomplished through the priesthood. 
 
 
 
-
-
-
-
-#Divine_Nature #Family #Priesthood

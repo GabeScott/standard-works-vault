@@ -26,7 +26,7 @@ In Malachi’s day, the Israelites had already rebuilt the temple in Jerusalem, 
 [[Malachi 1.6|Malachi 1:6–14]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]]
 ### The Lord asks for “a pure offering.”
 
-As you read about the offerings described in [[Malachi 1.1|Malachi 1]][[Malachi 1.2|]][[Malachi 1.3|]][[Malachi 1.4|]][[Malachi 1.5|]][[Malachi 1.6|]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]], what do you notice about the sacrifices the priests were offering? What do these sacrifices suggest about the priests’ feelings toward the Lord? (see [[Malachi 1.13|Malachi 1:13]]). Consider making a list of offerings, or sacrifices, that you make to the Lord. For each item on the list, ponder what might make it a “polluted” offering or a “pure” offering ([[Malachi 1.7|Malachi 1:7, 11]][[Malachi 1.11|]]).
+As you read about the offerings described in [[Malachi 1.1|Malachi 1]][[Malachi 1.2|]][[Malachi 1.3|]][[Malachi 1.4|]][[Malachi 1.5|]][[Malachi 1.6|]][[Malachi 1.7|]][[Malachi 1.8|]][[Malachi 1.9|]][[Malachi 1.10|]][[Malachi 1.11|]][[Malachi 1.12|]][[Malachi 1.13|]][[Malachi 1.14|]], what do you notice about the sacrifices the priests were offering? What do these sacrifices suggest about the priests’ feelings toward the Lord? (see [[Malachi 1.13|Malachi 1:13]]). Consider making a list of offerings, or sacrifices, that you make to the Lord. For each item on the list, ponder what might make it a “polluted” offering or a “pure” offering ([[Malachi 1.7|Malachi 1:7, 11]][[Malachi 1.11|]]).
 
 [[Malachi 3.8|Malachi 3:8–12]][[Malachi 3.9|]][[Malachi 3.10|]][[Malachi 3.11|]][[Malachi 3.12|]]
 ### The Lord opens the windows of heaven as I show my faith by paying tithing.
@@ -41,7 +41,7 @@ Imagine you have a friend who just found out that you pay tithing. “Why do you
 
 You could also share with your friend how the Lord has blessed you when you pay tithing. You can find ideas in the section titled “[[2013 October - The Windows of Heaven.md|Lesson Number 1—Significant but Subtle Blessings]]” in Elder David A. Bednar’s message “[[2013 October - The Windows of Heaven.md|The Windows of Heaven]]” (*Ensign* or *Liahona*, Nov. 2013, 17–18). What kind of people do we become by paying tithing?
 
-What do you think the phrase “open you the windows of heaven” ([[Malachi 3.10|verse 10]]) might mean? Maybe you could look out a window and think about the purposes of windows. Why is “windows of heaven” a good way to describe how the Lord blesses us when we pay tithing?
+What do you think the phrase “open you the windows of heaven” ([[Malachi 3.10|verse 10]]) might mean? Maybe you could look out a window and think about the purposes of windows. Why is “windows of heaven” a good way to describe how the Lord blesses us when we pay tithing?
 
 [[Malachi 4.5|Malachi 4:5–6]][[Malachi 4.6|]]
 ### “I will send you Elijah the prophet.”

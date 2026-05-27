@@ -1,5 +1,7 @@
 # Be a Strong Link
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -69,8 +71,3 @@ May your links be strong. May you personally find the great joy and the happines
 
 
 
-
-
-
-
-#Family #Family_History #Jesus_Christ #Temples

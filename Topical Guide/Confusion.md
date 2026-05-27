@@ -1,6 +1,5 @@
 # Confusion
 
-
 let them cover themselves with their own *confusion*, [[Psalms 109.29|Psalms 109:29]].
 
 city of *confusion* is broken down, [[Isaiah 24.10|Isaiah 24:10]].

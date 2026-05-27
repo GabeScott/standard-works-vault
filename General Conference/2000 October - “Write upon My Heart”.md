@@ -1,5 +1,7 @@
 # “Write upon My Heart”
 
+Gordon B. Hinckley
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -28,11 +30,11 @@ I had learned that we must always pray in the name of Jesus Christ. But somethin
 
 She knew the Savior, and she loved Him. I had learned from her that we do not close in the name of a stranger when we approach our Father in prayer. I knew from what I had seen of her life that her heart was drawn to the Savior from years of determined and consistent effort to serve Him and to please Him. I knew the scripture was true which warns, “For how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart?” ([[Mosiah 5.13|Mosiah 5:13]]).
 
-Years after my mother and father are gone, the words “in the name of Jesus Christ” are not casual for me, either when I say them or when I hear others say them. We must serve Him to know the Master’s heart. But we also must pray that Heavenly Father will answer our prayers in our hearts as well as in our minds (see [[Jeremiah 31.33|Jer. 31:33]]; [[Hebrews 8.10|Heb. 8:10]]; [[Hebrews 10.16|10:16]]; [[2 Corinthians 3.3|2 Cor. 3:3]]).
+Years after my mother and father are gone, the words “in the name of Jesus Christ” are not casual for me, either when I say them or when I hear others say them. We must serve Him to know the Master’s heart. But we also must pray that Heavenly Father will answer our prayers in our hearts as well as in our minds (see [[Jeremiah 31.33|Jer. 31:33]]; [[Hebrews 8.10|Heb. 8:10]]; [[Hebrews 10.16|10:16]]; [[2 Corinthians 3.3|2 Cor. 3:3]]).
 
 President George Q. Cannon described the blessing of people coming together having prayed for such answers. He was speaking of going to a priesthood meeting, yet many of you have come to this meeting with hearts prepared in the way he described in these words:
 
-“I should enter that assembly with my mind entirely free from all influence that would prevent the operation of the Spirit of God upon me. I should go in a prayerful spirit, asking God to *write upon my heart* His will; not with my own will already prepared, and determined to carry out my will … , regardless of everyone else’s views. If I were to go, and all the rest were to go, with this spirit, then the Spirit of God would be felt in our midst, and that which we would decide upon would be the mind and will of God, because God would reveal it to us. We would see light in the direction where we should go, and we would behold darkness in the direction we should not go” (*Deseret Semi-Weekly News,* 30 Sept. 1890, 2; emphasis added).
+“I should enter that assembly with my mind entirely free from all influence that would prevent the operation of the Spirit of God upon me. I should go in a prayerful spirit, asking God to *write upon my heart* His will; not with my own will already prepared, and determined to carry out my will … , regardless of everyone else’s views. If I were to go, and all the rest were to go, with this spirit, then the Spirit of God would be felt in our midst, and that which we would decide upon would be the mind and will of God, because God would reveal it to us. We would see light in the direction where we should go, and we would behold darkness in the direction we should not go” (*Deseret Semi-Weekly News,* 30 Sept. 1890, 2; emphasis added).
 
 Our goal when we teach our children to pray is for them to want God to write upon their hearts and be willing then to go and do what God asks of them. It is possible for our children to have faith enough, from what they see us do and what we teach, that they can feel at least part of what the Savior felt as He prayed to have the strength to make His infinite sacrifice for us: “And he went a little further, and fell on his face, and prayed, saying, O my Father, if it be possible, let this cup pass from me: nevertheless not as I will, but as thou wilt” ([[Matthew 26.39|Matt. 26:39]]).
 
@@ -73,8 +75,3 @@ I testify that our Heavenly Father answers the pleadings of faithful parents to 
 
 
 
-
-
-
-
-#Adversity #Children #Conscience #Faith #Forgiveness #Gratitude #Holy_Ghost #Jesus_Christ #Parenthood #Prayer #Service #Sin

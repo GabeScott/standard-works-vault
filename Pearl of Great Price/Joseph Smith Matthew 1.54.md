@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:54](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.54?lang=eng#p54)
 
 
-[^a]: [[Matthew 8.12|Matt. 8:12.]]
+[^a]: [[Matthew 8.12|Matt. 8:12]].  

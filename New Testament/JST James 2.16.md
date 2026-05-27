@@ -4,6 +4,3 @@
 
 [JST James 2:16](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-james/2?lang=eng)
 
-
-
-

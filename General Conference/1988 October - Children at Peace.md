@@ -1,5 +1,7 @@
 # Children at Peace
 
+Ezra Taft Benson
+
 By Michaelene P. Grassli - *Primary General President*
 
 *Given in the October session of the 1988 General Conference*
@@ -16,7 +18,7 @@ Jamie was a child at peace. How did she come to that peace? She had been prepare
 
 I have chosen to speak about our children—precious children of our Heavenly Father throughout the earth. I pray that my message will be received and understood, for these are among the most valiant spirits to come into the world. We can do no less than to bestow on them a legacy of peace.
 
-Our Heavenly Father has promised peace to his children. “All thy children shall be taught of the Lord; and great shall be the peace of thy children.” ([[3 Nephi 22.13|3 Ne. 22:13]].) Peace in the Lord can give them freedom from self-doubt, freedom from fear, freedom from the confinement of their environment, freedom from enslaving habits. His peace can free them to unfold from the tender buds they are to the mature and fruitful adults they can be.
+Our Heavenly Father has promised peace to his children. “All thy children shall be taught of the Lord; and great shall be the peace of thy children.” ([[3 Nephi 22.13|3 Ne. 22:13]].) Peace in the Lord can give them freedom from self-doubt, freedom from fear, freedom from the confinement of their environment, freedom from enslaving habits. His peace can free them to unfold from the tender buds they are to the mature and fruitful adults they can be.
 
 Just as the fragile bud contains all of the essential elements to develop into a lovely plant or flower, so does each child come to us with the potential for individual self-fulfillment of his eternal destiny. In both instances, in order that what is inside can be fully developed, it must be nurtured from the outside. In nature, plants require light, water, air, and nutrients to thrive. The human spirit thrives on love, knowledge of its origin, and teachings of a spiritual nature. It is important that we provide a favorable environment for spiritual growth and the peace that will accompany it. This peace I speak of will result in quiet assurances even in the midst of worldly pressures and turmoil.
 
@@ -46,7 +48,7 @@ President Benson, I’m proud to say that Primary children have this year read a
 
 “When my father told our family that we would be moving from Denver to Wisconsin, my mother reminded us of Lehi’s family. Like them, I was leaving the only home I had known, all my friends, my school, and my ward. Luckily *we* got to bring all our possessions with us, though they were in storage for three months, and we missed having a house and our ‘precious things.’
 
-“My mother reminded us of how Nephi accepted this challenge—willingly—knowing that the Lord would ‘prepare a way for them that they may accomplish the thing which he commandeth them.’ (See [[1 Nephi 3.7|1 Ne. 3:7]].)
+“My mother reminded us of how Nephi accepted this challenge—willingly—knowing that the Lord would ‘prepare a way for them that they may accomplish the thing which he commandeth them.’ (See [[1 Nephi 3.7|1 Ne. 3:7]].)
 
 “I have learned that I can do without things, but not without my family. My brothers and sisters and I have tried to be more like Nephi than his complaining brothers. I am grateful for the things that the Book of Mormon teaches us.”
 
@@ -57,8 +59,3 @@ May all our children have the blessing to be taught of the Lord that they might 
 
 
 
-
-
-
-
-#Children #Parenthood #Teaching

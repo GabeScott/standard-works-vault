@@ -1,7 +1,6 @@
 # Goodness
 
-
-*See also* [[Good.md|Good]]; [[Virtue, Virtuous.md|Virtue]]
+*See also* [[Good.md|Good]]; [[Virtue.md|Virtue]]
 
 I will make all my *goodness* pass before thee, [[Exodus 33.19|Exodus 33:19]].
 
@@ -23,13 +22,13 @@ flow together to the *goodness* of the Lord, [[Jeremiah 31.12|Jeremiah 31:12]].
 
 *goodness* of God leadeth thee to repentance, [[Romans 2.4|Romans 2:4]].
 
-Behold ... *goodness* and severity of God, [[Romans 11.22|Romans 11:22]].
+Behold … *goodness* and severity of God, [[Romans 11.22|Romans 11:22]].
 
-fruit of the Spirit is love, joy ... *goodness*, [[Galatians 5.22|Galatians 5:22]] ([[Ephesians 5.9|Ephesians 5:9]]).
+fruit of the Spirit is love, joy … *goodness*, [[Galatians 5.22|Galatians 5:22]] ([[Ephesians 5.9|Ephesians 5:9]]).
 
 fulfil all the good pleasure of his *goodness*, [[2 Thessalonians 1.11|2 Thessalonians 1:11]].
 
-great *goodness* of the Lord ... marvelous works, [[2 Nephi 4.17|2 Nephi 4:17]].
+great *goodness* of the Lord … marvelous works, [[2 Nephi 4.17|2 Nephi 4:17]].
 
 how great the *goodness* of our God, [[2 Nephi 9.10|2 Nephi 9:10]].
 

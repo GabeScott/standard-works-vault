@@ -1,6 +1,8 @@
 # Sisters in Zion
 
-By President Henry B. Eyring - *Second Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Henry B. Eyring - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -28,7 +30,7 @@ The Lord has, through His prophets, made a promise to you. In the early days of 
 
 That marvelous potential lies within you, and you are being prepared for it.
 
-President Gordon B. Hinckley said:
+President Gordon B. Hinckley said:
 
 “You sisters … do not hold a second place in our Father’s plan for the eternal happiness and well-being of His children. You are an absolutely essential part of that plan.
 
@@ -36,7 +38,7 @@ President Gordon B. Hinckley said:
 
 “Each of you is a daughter of God, endowed with a divine birthright.”[^4]
 
-Our current prophet, President Russell M. Nelson, has given this description of the part you play in preparation for the Savior’s coming:
+Our current prophet, President Russell M. Nelson, has given this description of the part you play in preparation for the Savior’s coming:
 
 “It would be impossible to measure the influence that … women have, not only on families but also on the Lord’s Church, as wives, mothers, and grandmothers; as sisters and aunts; as teachers and leaders; and especially as exemplars and devout defenders of the faith.
 
@@ -44,15 +46,15 @@ Our current prophet, President Russell M. Nelson, has given this description of
 
 This dispensation is distinct in that the Lord will lead us to become prepared to be like the city of Enoch. He has described through His apostles and prophets what that transformation to a Zion people will entail.
 
-Elder Bruce R. McConkie taught:
+Elder Bruce R. McConkie taught:
 
 “\[Enoch’s\] was a day of wickedness and evil, a day of darkness and rebellion, a day of war and desolation, a day leading up to the cleansing of the earth by water.
 
-“Enoch, however, was faithful. He ‘saw the Lord,’ and talked with him ‘face to face’ as one man speaks with another. ([[Moses 7.4|Moses 7:4]].) The Lord sent him to cry repentance to the world, and commissioned him to ‘baptize in the name of the Father and of the Son, which is full of grace and truth, and of the Holy Ghost, which beareth record of the Father and the Son.’ ([[Moses 7.11|Moses 7:11]].) Enoch made covenants and assembled a congregation of true believers, all of whom *became* so faithful that ‘the Lord came and dwelt with his people, and they dwelt in righteousness,’ and were blessed from on high. ‘And the Lord called his people Zion, because they were of one heart and one mind, and dwelt in righteousness; and there was no poor among them.’ ([[Moses 7.18|Moses 7:18]].) …
+“Enoch, however, was faithful. He ‘saw the Lord,’ and talked with him ‘face to face’ as one man speaks with another. ([[Moses 7.4|Moses 7:4]].) The Lord sent him to cry repentance to the world, and commissioned him to ‘baptize in the name of the Father and of the Son, which is full of grace and truth, and of the Holy Ghost, which beareth record of the Father and the Son.’ ([[Moses 7.11|Moses 7:11]].) Enoch made covenants and assembled a congregation of true believers, all of whom *became* so faithful that ‘the Lord came and dwelt with his people, and they dwelt in righteousness,’ and were blessed from on high. ‘And the Lord called his people Zion, because they were of one heart and one mind, and dwelt in righteousness; and there was no poor among them.’ ([[Moses 7.18|Moses 7:18]].) …
 
-“After the Lord called his people Zion, the scripture says that Enoch ‘built a city that was called the City of Holiness, even Zion;’ that Zion ‘was taken up into heaven’ where ‘God received it into his own bosom;” and that “from thence went forth the saying, Zion is fled.’ ([[Moses 7.19|Moses 7:19, 21, 69]][[Moses 7.21|]][[Moses 7.69|]].) …
+“After the Lord called his people Zion, the scripture says that Enoch ‘built a city that was called the City of Holiness, even Zion;’ that Zion ‘was taken up into heaven’ where ‘God received it into his own bosom;” and that “from thence went forth the saying, Zion is fled.’ ([[Moses 7.19|Moses 7:19, 21, 69]][[Moses 7.21|]][[Moses 7.69|]].) …
 
-“This same Zion which was taken up into heaven shall return … when the Lord brings again Zion, and its inhabitants shall join with the new Jerusalem, which shall then be established.”[^6]
+“This same Zion which was taken up into heaven shall return … when the Lord brings again Zion, and its inhabitants shall join with the new Jerusalem, which shall then be established.”[^6]
 
 If the past is prologue, at the time of the Savior’s coming, the daughters who are deeply committed to their covenants with God will be more than half of those who are prepared to welcome Him when He comes. But whatever the numbers, your contribution in creating unity among the people prepared for that Zion will be far greater than half.
 
@@ -79,18 +81,13 @@ I testify that you are citizens of the Lord’s kingdom on the earth. You are da
 
 [^2]: [[Moses 7.61|Moses 7:61–64]][[Moses 7.62|]][[Moses 7.63|]][[Moses 7.64|]]; emphasis added.
 
-[^3]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-39?lang=eng&id=p22#p22) (2007), 454; emphasis added.
+[^3]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-39?lang=eng&id=p22#p22) (2007), 454; emphasis added.
 
-[^4]: Gordon B. Hinckley, “[[1996 October - Women of the Church.md|Women of the Church]],” *Ensign,* Nov. 1996, 67.
+[^4]: Gordon B. Hinckley, “[[1996 October - Women of the Church.md|Women of the Church]],” *Ensign,* Nov. 1996, 67.
 
-[^5]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 95–96; emphasis added.
+[^5]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 95–96; emphasis added.
 
-[^6]: Bruce R. McConkie, “[Building Zion](https://churchofjesuschrist.org/study/liahona/1977/09/building-zion?lang=eng),” *Tambuli,* Sept. 1977, 13; emphasis added.
+[^6]: Bruce R. McConkie, “[Building Zion](https://www.churchofjesuschrist.org/study/liahona/1977/09/building-zion?lang=eng),” *Tambuli,* Sept. 1977, 13; emphasis added.
 
-[^7]: [[4 Nephi 1.15|4 Nephi 1:15]].
+[^7]: [[4 Nephi 1.15|4 Nephi 1:15]].
 
-
-
-
-
-#Women #Zion

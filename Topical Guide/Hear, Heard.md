@@ -1,6 +1,5 @@
 # Hear, Heard
 
-
 *See also* [[Hearer.md|Hearer]]; [[Hearing.md|Hearing]]; [[Hearken.md|Hearken]]
 
 they *heard* the voice of the Lord God, [[Genesis 3.8|Genesis 3:8]].
@@ -19,25 +18,25 @@ I will *hear* what the Lord will command, [[Numbers 9.8|Numbers 9:8]].
 
 ye *heard* the voice of the words, [[Deuteronomy 4.12|Deuteronomy 4:12]].
 
-Did ever people *hear* the voice of God ... and live, [[Deuteronomy 4.33|Deuteronomy 4:33]].
+Did ever people *hear* the voice of God … and live, [[Deuteronomy 4.33|Deuteronomy 4:33]].
 
 *Hear*, O Israel: The Lord our God is one Lord, [[Deuteronomy 6.4|Deuteronomy 6:4]] ([[Mark 12.29|Mark 12:29]]).
 
 Let me not *hear* again the voice of the Lord, [[Deuteronomy 18.16|Deuteronomy 18:16]].
 
-that they may *hear*, and ... learn, [[Deuteronomy 31.12|Deuteronomy 31:12]].
+that they may *hear*, and … learn, [[Deuteronomy 31.12|Deuteronomy 31:12]].
 
 *hear*, O earth, the words of my mouth, [[Deuteronomy 32.1|Deuteronomy 32:1]].
 
 Speak, Lord; for thy servant *heareth*, [[1 Samuel 3.9|1 Samuel 3:9]].
 
-Samuel cried ... for Israel; and the Lord *heard* him, [[1 Samuel 7.9|1 Samuel 7:9]].
+Samuel cried … for Israel; and the Lord *heard* him, [[1 Samuel 7.9|1 Samuel 7:9]].
 
 Lord will not *hear* you in that day, [[1 Samuel 8.18|1 Samuel 8:18]].
 
 loud shout, and the noise was *heard* afar off, [[Ezra 3.13|Ezra 3:13]].
 
-Evening, and morning, and at noon, will I pray ... and he shall *hear*, [[Psalms 55.17|Psalms 55:17]].
+Evening, and morning, and at noon, will I pray … and he shall *hear*, [[Psalms 55.17|Psalms 55:17]].
 
 iniquity in my heart, the Lord will not *hear*, [[Psalms 66.18|Psalms 66:18]].
 
@@ -75,13 +74,13 @@ I *heard*, but I understood not, [[Daniel 12.8|Daniel 12:8]].
 
 whosoever *heareth* these sayings of mine, and doeth them, [[Matthew 7.24|Matthew 7:24]] ([[3 Nephi 14.24|3 Nephi 14:24]]).
 
-He that hath ears to *hear*, let him *hear*, [[Matthew 11.15|Matthew 11:15]] ([[Matthew 13.9|Matthew 13:9]], [[Matthew 13.43|Matthew 13:43]]; [[Mark 4.9|Mark 4:9]]; [[Luke 8.8|Luke 8:8]]).
+He that hath ears to *hear*, let him *hear*, [[Matthew 11.15|Matthew 11:15]] ([[Matthew 13.9|Matthew 13:9]]; [[Matthew 13.43|Matthew 13:43]]; [[Mark 4.9|Mark 4:9]]; [[Luke 8.8|Luke 8:8]]).
 
 seed into the good ground is he that *heareth* the word, [[Matthew 13.23|Matthew 13:23]].
 
 *heard* of the fame of Jesus, [[Matthew 14.1|Matthew 14:1]] ([[Mark 6.14|Mark 6:14]]; [[Luke 9.7|Luke 9:7]]).
 
-beloved Son ... *hear* ye him, [[Matthew 17.5|Matthew 17:5]] ([[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]]; [[Joseph Smith History 1.17|Joseph Smith History 1:17]]).
+beloved Son … *hear* ye him, [[Matthew 17.5|Matthew 17:5]] ([[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]]; [[Joseph Smith History 1.17|Joseph Smith History 1:17]]).
 
 ye shall *hear* of wars, [[Matthew 24.6|Matthew 24:6]] ([[Mark 13.7|Mark 13:7]]; [[Luke 21.9|Luke 21:9]]; [[D&C 45.26|D&C 45:26]]; [[Joseph Smith Matthew 1.23|Joseph Smith Matthew 1:23]]).
 
@@ -111,13 +110,13 @@ Doth our law judge any man, before it *hear* him, [[John 7.51|John 7:51]].
 
 because ye cannot *hear* my word, [[John 8.43|John 8:43]].
 
-He that is of God *heareth* God's words: ye therefore *hear* them not, [[John 8.47|John 8:47]].
+He that is of God *heareth* God’s words: ye therefore *hear* them not, [[John 8.47|John 8:47]].
 
-God *heareth* not sinners: but if any ... doeth his will, him he *heareth*, [[John 9.31|John 9:31]].
+God *heareth* not sinners: but if any … doeth his will, him he *heareth*, [[John 9.31|John 9:31]].
 
 porter openeth; and the sheep *hear* his voice, [[John 10.3|John 10:3]].
 
-other sheep ... shall *hear* my voice, [[John 10.16|John 10:16]] ([[3 Nephi 15.17|3 Ne. 15:17-24]][[3 Nephi 15.18|]][[3 Nephi 15.19|]][[3 Nephi 15.20|]][[3 Nephi 15.21|]][[3 Nephi 15.22|]][[3 Nephi 15.23|]][[3 Nephi 15.24|]]).
+other sheep … shall *hear* my voice, [[John 10.16|John 10:16]].
 
 My sheep *hear* my voice, and I know them, [[John 10.27|John 10:27]].
 
@@ -183,7 +182,7 @@ God did *hear* our cries, [[Mosiah 9.18|Mosiah 9:18]].
 
 I will be slow to *hear* their cries, [[Mosiah 11.24|Mosiah 11:24]].
 
-he that will not *hear* ... I will not receive, [[Mosiah 26.28|Mosiah 26:28]].
+he that will not *hear* … I will not receive, [[Mosiah 26.28|Mosiah 26:28]].
 
 Lord hath *heard* the prayers of his people, [[Mosiah 27.14|Mosiah 27:14]].
 
@@ -191,7 +190,7 @@ multitude did see and *hear*, [[3 Nephi 17.25|3 Nephi 17:25]].
 
 Lord did *hear* the brother of Jared, [[Ether 1.40|Ether 1:40]].
 
-no ... ear that shall not *hear*, [[D&C 1.2|D&C 1:2]].
+no … ear that shall not *hear*, [[D&C 1.2|D&C 1:2]].
 
 they who will not *hear* the voice of the Lord, [[D&C 1.14|D&C 1:14]].
 
@@ -207,8 +206,8 @@ shall *hear* the voice of the Son of Man, [[D&C 76.16|D&C 76:16]].
 
 that which you *hear* is as the voice of one crying, [[D&C 88.66|D&C 88:66]].
 
-every man shall *hear* ... gospel in his own tongue, [[D&C 90.11|D&C 90:11]].
+every man shall *hear* … gospel in his own tongue, [[D&C 90.11|D&C 90:11]].
 
-they *heard* the voice of the Lord God ... in the garden, [[Moses 4.14|Moses 4:14]] ([[Moses 4.16|Moses 4:16]]).
+they *heard* the voice of the Lord God … in the garden, [[Moses 4.14|Moses 4:14]] ([[Moses 4.16|Moses 4:16]]).
 
 My Beloved Son. *Hear* Him, [[Joseph Smith History 1.17|Joseph Smith History 1:17]].

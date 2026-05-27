@@ -1,5 +1,7 @@
 # The Priesthood in Action
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -14,7 +16,7 @@ Three times the voice of the Lord came to him, with the same response. Then the 
 
 The lad’s answer, as before, is a classic example for you and me. He responded: “Speak; for thy servant heareth.
 
-“And the Lord said to Samuel, Behold, I will do a thing in Israel, at which both the ears of every one that heareth it shall tingle” (see [[1 Samuel 3.1|1 Sam. 3:1–11]][[1 Samuel 3.2|]][[1 Samuel 3.3|]][[1 Samuel 3.4|]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]][[1 Samuel 3.11|]]).
+“And the Lord said to Samuel, Behold, I will do a thing in Israel, at which both the ears of every one that heareth it shall tingle” (see [[1 Samuel 3.1|1 Sam. 3:1–11]][[1 Samuel 3.2|]][[1 Samuel 3.3|]][[1 Samuel 3.4|]][[1 Samuel 3.5|]][[1 Samuel 3.6|]][[1 Samuel 3.7|]][[1 Samuel 3.8|]][[1 Samuel 3.9|]][[1 Samuel 3.10|]][[1 Samuel 3.11|]]).
 
 Most of you young men will one day receive a call to serve a mission. How I pray that your response will be as was Samuel’s: “Here am I. … Speak; for thy servant heareth.” Then will heavenly help be yours. Every missionary strives to be the missionary his mother thinks he is, the missionary his father hopes he is—even the missionary the Lord knows he can become.
 
@@ -24,7 +26,7 @@ Yes, sometimes expectations of those who love us are a bit beyond our capacity. 
 
 Upon returning to Salt Lake City, I discovered that a proposed temple for South Africa had already been approved and was to be announced immediately. When this occurred, I received a telegram from our members in South Africa. It read, “Thank you, Elder Monson. We knew you could do it!” You know, I believe I never did convince them that though I approved of the proposal, I did not bring it about.
 
-Every call to serve is a human drama in the life of the recipient. I am certain that such has been the case with each of the Brethren who earlier today were sustained as new General Authorities. Let me share with you some marvelous lessons from the life of one of these Brethren, Jay E. Jensen, as recently reported in the *Church News* (“Spiritual Foundation Set Early in Life,” 8 Aug. 1992, pp. 6, 14).
+Every call to serve is a human drama in the life of the recipient. I am certain that such has been the case with each of the Brethren who earlier today were sustained as new General Authorities. Let me share with you some marvelous lessons from the life of one of these Brethren, Jay E. Jensen, as recently reported in the *Church News* (“Spiritual Foundation Set Early in Life,” 8 Aug. 1992, pp. 6, 14).
 
 Elder Jensen speaks of turning points in his life. His spiritual awakening began when he was a small boy growing up in Mapleton, Utah. His parents held family night long before it became a Church program. He recalled that his father read to him lessons from the Book of Mormon. His mother’s deep love for books also had a favorable impact on her son. However, it was when he read for himself Joseph Smith’s account of the First Vision that the witness of its truth became a reality.
 
@@ -99,10 +101,5 @@ To this divine truth I testify as I leave my witness with you that this work is 
 
 
 
-[^1]: *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), pp. 469–70.
+[^1]: *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), pp. 469–70.
 
-
-
-
-
-#Missionary_Work #Priesthood #Service

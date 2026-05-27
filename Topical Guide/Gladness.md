@@ -1,7 +1,6 @@
 # Gladness
 
-
-*See also* [[Cheerful, Cheerfulness.md|Cheerful]]; [[Delight.md|Delight]]; [[Glad.md|Glad]]; [[Happiness, Happy.md|Happiness]]; [[Joy.md|Joy]]; [[Pleasure.md|Pleasure]]
+*See also* [[Cheerful.md|Cheerful]]; [[Delight.md|Delight]]; [[Glad.md|Glad]]; [[Happiness.md|Happiness]]; [[Joy.md|Joy]]; [[Pleasure.md|Pleasure]]
 
 anointed thee with the oil of *gladness*, [[Psalms 45.7|Psalms 45:7]] ([[Hebrews 1.9|Hebrews 1:9]]).
 
@@ -17,4 +16,4 @@ did eat their meat with *gladness*, [[Acts 2.46|Acts 2:46]].
 
 she opened not the gate for *gladness*, but ran in, [[Acts 12.14|Acts 12:14]].
 
-we hear in the gospel ... A voice of *gladness*, [[D&C 128.19|D&C 128:19]].
+we hear in the gospel … A voice of *gladness*, [[D&C 128.19|D&C 128:19]].

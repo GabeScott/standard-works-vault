@@ -1,6 +1,8 @@
 # In His Strength
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+Harold B. Lee
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -38,7 +40,7 @@ I bear witness to you and the world that Joseph Smith knew with earth-shattering
 
 “It caused me serious reflection then, and often has since, how very strange it was that an obscure boy, of a little over fourteen years of age, and one, too, who was doomed to the necessity of obtaining a scanty maintenance by his daily labor, should be thought a character of sufficient importance to attract the attention of the great ones of the most popular sects of the day, and in a manner to create in them a spirit of the most bitter persecution and reviling. But strange or not, so it was, and it was the cause of great sorrow to myself.
 
-“However, it was nevertheless a fact that I had beheld a vision. …” ([[Joseph Smith History 1.23|JS—H 1:23–24]][[Joseph Smith History 1.24|]].)
+“However, it was nevertheless a fact that I had beheld a vision. …” ([[Joseph Smith History 1.23|JS—H 1:23–24]][[Joseph Smith History 1.24|]].)
 
 May I remind all of us that Joseph Smith referred to himself as “an obscure boy” but never as a “nobody.” Joseph Smith was sustained all the days of his perilous life by the knowledge that in God’s strength he could accomplish all things.
 
@@ -56,7 +58,7 @@ May we learn an important lesson from a missionary recently interviewed. This el
 
 Here is a young man who may have had some excuse to pity himself with a “nobody” label when his parents don’t bother to write, but he is having no part of this kind of attitude. Further conversation with him emphatically convinced me that here is a young man who is really someone. If his parents don’t write, that is their responsibility. His responsibility is to write, and that is just what he is doing with enthusiasm. I have never met this missionary’s mother or father, probably never will, but wherever they are, in my mind they are “somebody” just to have him for their son. This missionary will succeed because he knows he is someone and is conducting himself accordingly.
 
-More than once during the past few months President Harold B. Lee has called me to his office to listen with him to someone he has invited to share a suggestion, concern, bewilderment, or heartache. Some might well conclude for President Lee that he just doesn’t have time for the least of these his brethren, but he knows well the worth of every soul in the kingdom. I recall one saying to President Lee at the time of departure, “I can’t believe you would take the time to listen to someone like me.”
+More than once during the past few months President Harold B. Lee has called me to his office to listen with him to someone he has invited to share a suggestion, concern, bewilderment, or heartache. Some might well conclude for President Lee that he just doesn’t have time for the least of these his brethren, but he knows well the worth of every soul in the kingdom. I recall one saying to President Lee at the time of departure, “I can’t believe you would take the time to listen to someone like me.”
 
 To mothers, fathers, husbands, wives, and children everywhere, we declare that regardless of your present station in life you are someone special. Remember, you may be an obscure boy, girl, man, or woman, but you are not a “nobody.” Please enjoy with me one of the truly great parables in all of the holy scriptures as we think along this subject.
 
@@ -117,8 +119,3 @@ God lives. He too is someone—real and eternal—and he wants us to be someone 
 
 
 
-
-
-
-
-#Individual_Worth #Teaching

@@ -1,6 +1,8 @@
 # Where Do We Stand?
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -36,7 +38,7 @@ We testify also that Christ has spoken again in our day, that he has raised up n
 
 The divine gospel was lost over the centuries, human philosophies displaced revealed doctrine, and the holy priesthood was taken away. But now it is all restored! We testify that it *is* restored! Revelation again comes from heaven. Prophets once more walk among us, and the truth is offered freely to all who will listen. God’s modern dispensation now shines as a brilliant ensign to the nations, just as the prophets foretold.
 
-But as it shines, opposition grows. As truth is spread abroad, deceit and dishonesty arise to oppose it. As virtue is taught by the servants of God, unchastity increases among the ungodly. Indeed, as the Prophet Lehi said, “There is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]); and as truth manifests itself, the adversary seeks to strike it down.
+But as it shines, opposition grows. As truth is spread abroad, deceit and dishonesty arise to oppose it. As virtue is taught by the servants of God, unchastity increases among the ungodly. Indeed, as the Prophet Lehi said, “There is an opposition in all things” ([[2 Nephi 2.11|2 Ne. 2:11]]); and as truth manifests itself, the adversary seeks to strike it down.
 
 In a very real sense it is a war—a hot war—a war between right and wrong, between the powers of heaven and the forces of Lucifer.
 
@@ -122,7 +124,7 @@ Then what shall we do? Put on the whole armour of God—that is what we are to d
 
 “Put on the whole armour of God, that ye may be able to stand against the wiles of the devil.
 
-“… Take unto you the whole armour of God, that ye may be able to withstand in the evil day. …
+“… Take unto you the whole armour of God, that ye may be able to withstand in the evil day. …
 
 “Stand therefore, having your loins girt about with truth, and having on the breastplate of righteousness;
 
@@ -137,8 +139,3 @@ For this I humbly pray in the sacred name of the Lord, Jesus Christ, amen.
 
 
 
-
-
-
-
-#Obedience #Spirituality

@@ -1,5 +1,7 @@
 # The Library of the Lord
 
+Thomas S. Monson
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -138,9 +140,9 @@ All of these courses in seminary, in institute, and at Church schools are taught
 
 Years ago, I was in Arizona with Elder Kimball. He gave a powerful endorsement of seminary and institute to the people of his home stake. Afterwards I said, “I will be quoting you all over the Church.” He replied, “You do that. And if you can think of anything better to say, say it and quote me.”
 
-Paul prophesied that in the last days perilous times would come. He prophesied that men would be “unholy, without natural affection, … despisers of those that are good, … lovers of pleasures more than lovers of God” ([[2 Timothy 3.1|2 Tim. 3:1–7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]]).
+Paul prophesied that in the last days perilous times would come. He prophesied that men would be “unholy, without natural affection, … despisers of those that are good, … lovers of pleasures more than lovers of God” ([[2 Timothy 3.1|2 Tim. 3:1–7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]]).
 
-He said that “evil men and seducers shall wax worse and worse, deceiving, and being deceived” ([[2 Timothy 3.13|v. 13]]).
+He said that “evil men and seducers shall wax worse and worse, deceiving, and being deceived” ([[2 Timothy 3.13|v. 13]]).
 
 Then he gave the answer to it all:
 
@@ -148,7 +150,7 @@ Then he gave the answer to it all:
 
 “And that from a child thou hast known the holy *scriptures,* which are able to make thee wise unto salvation through faith which is in Christ Jesus.
 
-“All scripture,” Paul continued, “is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness” ([[2 Timothy 3.13|2 Tim. 3:13–16]][[2 Timothy 3.14|]][[2 Timothy 3.15|]][[2 Timothy 3.16|]]; italics added).
+“All scripture,” Paul continued, “is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness” ([[2 Timothy 3.13|2 Tim. 3:13–16]][[2 Timothy 3.14|]][[2 Timothy 3.15|]][[2 Timothy 3.16|]]; italics added).
 
 The Lord said that when we read the revelations to one another, by his power we “can testify that you have heard my voice, and know my words” ([[D&C 18.36|D&C 18:36]]).
 
@@ -159,5 +161,3 @@ I reverently give thanks to the Lord for the revelations, the scriptures, the st
 
 
 
-
-#Activation #Book_Of_Mormon #Scriptures #Teaching

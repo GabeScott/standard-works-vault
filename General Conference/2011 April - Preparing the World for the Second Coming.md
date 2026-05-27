@@ -1,6 +1,8 @@
 # Preparing the World for the Second Coming
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -14,7 +16,7 @@ Have you ever thought about why you were sent to earth at this specific time? Yo
 
 With your baptism, you declared your faith in Jesus Christ. With your ordination to the priesthood, your talents and spiritual capacities have been increased. One of your important responsibilities is to help prepare the world for the Second Coming of the Savior.
 
-The Lord has appointed a prophet, President Thomas S. Monson, to direct the work of His priesthood. To you, President Monson has said: “The Lord needs missionaries.”[^1] “Every worthy, able young man should prepare to serve a mission. Missionary service is a priesthood duty—an obligation the Lord expects of \[you\] who have been given so very much.”[^2]
+The Lord has appointed a prophet, President Thomas S. Monson, to direct the work of His priesthood. To you, President Monson has said: “The Lord needs missionaries.”[^1] “Every worthy, able young man should prepare to serve a mission. Missionary service is a priesthood duty—an obligation the Lord expects of \[you\] who have been given so very much.”[^2]
 
 Missionary service requires sacrifice. There will always be something you leave behind when you respond to the prophet’s call to serve.
 
@@ -46,7 +48,7 @@ The Lord has long spoken of the necessary preparations for His Second Coming. To
 
 From the early days of the Restoration, the Brethren have been very serious about their charge to declare the gospel. In 1837, only seven years after the organization of the Church, at a time of poverty and persecution, missionaries were sent to teach the gospel in England. Within the next few years, missionaries were preaching in such diverse places as Austria, French Polynesia, India, Jamaica, Chile, and China.[^15]
 
-The Lord has blessed this work, and the Church is being established across the world. This meeting is being translated into 92 languages. We are grateful for the 52,225 full-time missionaries serving in more than 150 countries.[^16] The sun never sets on righteous missionaries testifying of the Savior. Think of the spiritual power of 52,000 missionaries, endowed with the Spirit of the Lord, boldly declaring that there is “no other name given nor any other way nor means whereby salvation can come … , only in and through the name of Christ.”[^17] We express appreciation to the tens of thousands of returned missionaries who have given and continue to give their very best. The world is being prepared for the Second Coming of the Savior in large measure because of the Lord’s work through His missionaries.
+The Lord has blessed this work, and the Church is being established across the world. This meeting is being translated into 92 languages. We are grateful for the 52,225 full-time missionaries serving in more than 150 countries.[^16] The sun never sets on righteous missionaries testifying of the Savior. Think of the spiritual power of 52,000 missionaries, endowed with the Spirit of the Lord, boldly declaring that there is “no other name given nor any other way nor means whereby salvation can come … , only in and through the name of Christ.”[^17] We express appreciation to the tens of thousands of returned missionaries who have given and continue to give their very best. The world is being prepared for the Second Coming of the Savior in large measure because of the Lord’s work through His missionaries.
 
 Missionary service is a spiritual work. Worthiness and preparation are essential. President Monson has said: “Young men, I admonish you to prepare for service as a missionary. Keep yourselves clean and pure and worthy to represent the Lord.”[^18] In the years prior to your mission, please remember the sacred assignment ahead of you. Your actions before your mission will greatly influence the priesthood power you bring with you into the mission. Prepare yourself well.
 
@@ -60,7 +62,7 @@ I love meeting missionaries around the world. Recently while I was visiting the 
 
 Speaking to you, the First Presidency has said:
 
-“You are \[a\] choice \[spirit\] who \[has\] come forth in this day when the responsibilities and opportunities, as well as the temptations, are the greatest. …
+“You are \[a\] choice \[spirit\] who \[has\] come forth in this day when the responsibilities and opportunities, as well as the temptations, are the greatest. …
 
 “We pray for each of you … \[that\] you can do the great work that lies before you … that you will be worthy \[and willing\] to carry on the responsibilities of building the kingdom of God and preparing the world for the Second Coming of the Savior.”[^22]
 
@@ -75,9 +77,9 @@ My young brethren of the priesthood, I testify of the majesty but, most of all, 
 
 
 
-[^1]: Thomas S. Monson, “The Lord Needs Missionaries,” *Liahona* and *Ensign,* Jan. 2011, 4.
+[^1]: Thomas S. Monson, “The Lord Needs Missionaries,” *Liahona* and *Ensign,* Jan. 2011, 4.
 
-[^2]: Thomas S. Monson, in Conference Report, Oct. 2010, 3; or *Ensign,* Nov. 2010, 5–6.
+[^2]: Thomas S. Monson, in Conference Report, Oct. 2010, [[2010 October - As We Meet Together Again.md|3]]; or *Ensign,* Nov. 2010, 5–6.
 
 [^3]: See stats.allblacks.com.
 
@@ -99,7 +101,7 @@ My young brethren of the priesthood, I testify of the majesty but, most of all, 
 
 [^12]: [[Daniel 2.45|Daniel 2:45]].
 
-[^13]: See [[1 Nephi 14.12|1 Nephi 14:12–14]][[1 Nephi 14.13|]][[1 Nephi 14.14|]].
+[^13]: See [[1 Nephi 14.12|1 Nephi 14:12–14]][[1 Nephi 14.13|]][[1 Nephi 14.14|]].
 
 [^14]: [[D&C 29.7|Doctrine and Covenants 29:7]].
 
@@ -109,9 +111,9 @@ My young brethren of the priesthood, I testify of the majesty but, most of all, 
 
 [^17]: [[Mosiah 3.17|Mosiah 3:17]].
 
-[^18]: Thomas S. Monson, “The Lord Needs Missionaries,” 4.
+[^18]: Thomas S. Monson, “The Lord Needs Missionaries,” 4.
 
-[^19]: Thomas S. Monson, in Conference Report, Oct. 2010, 3; or *Ensign,* Nov. 2010, 5–6.
+[^19]: Thomas S. Monson, in Conference Report, Oct. 2010, [[2010 October - As We Meet Together Again.md|3]]; or *Ensign,* Nov. 2010, 5–6.
 
 [^20]: [[D&C 90.11|Doctrine and Covenants 90:11]].
 
@@ -131,7 +133,5 @@ My young brethren of the priesthood, I testify of the majesty but, most of all, 
 
 [^28]: [[D&C 45.48|Doctrine and Covenants 45:48]].
 
+[^29]: [[D&C 45.49|Doctrine and Covenants 45:49]].
 
-
-
-#Aaronic_Priesthood #Missionary_Work #Priesthood #Second_Coming

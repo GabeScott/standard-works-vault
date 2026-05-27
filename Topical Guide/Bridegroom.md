@@ -1,6 +1,5 @@
 # Bridegroom
 
-
 as a *bridegroom* coming out of his chamber, [[Psalms 19.5|Psalms 19:5]].
 
 as a *bridegroom* decketh himself with ornaments, [[Isaiah 61.10|Isaiah 61:10]].

@@ -1,4 +1,3 @@
 # Habakkuk
 
-
-*See* [BD Habakkuk](https://www.churchofjesuschrist.org/study/scriptures/bd/habakkuk?lang=eng)
+*See also* [[BD Habakkuk.md|BD Habakkuk]]

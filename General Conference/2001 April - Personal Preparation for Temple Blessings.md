@@ -1,5 +1,7 @@
 # Personal Preparation for Temple Blessings
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -81,13 +83,13 @@ Meanwhile, in this world smitten with spiritual decay, can individuals prepared 
 
 [^1]: See [[Exodus 28.36|Ex. 28:36]]; [[Exodus 39.30|39:30]]; [[Psalms 93.5|Ps. 93:5]]. Translated equivalents are used on temples in non-English-speaking localities.
 
-[^2]: See [[Exodus 19.5|Ex. 19:5–6]][[Exodus 19.6|]]; [[Leviticus 19.1|Lev. 19:1–2]][[Leviticus 19.2|]]; [[Psalms 24.3|Ps. 24:3–5]][[Psalms 24.4|]][[Psalms 24.5|]]; [[1 Thessalonians 4.7|1 Thes. 4:7]]; [[Moroni 10.32|Moro. 10:32–33]][[Moroni 10.33|]]; [[D&C 20.69|D&C 20:69]]; [[D&C 110.6|110:6–9]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]]; see also Bible Dictionary, “[Holiness](https://churchofjesuschrist.org/study/scriptures/bd/holiness?lang=eng),” 703–4.
+[^2]: See [[Exodus 19.5|Ex. 19:5–6]][[Exodus 19.6|]]; [[Leviticus 19.1|Lev. 19:1–2]][[Leviticus 19.2|]]; [[Psalms 24.3|Ps. 24:3–5]][[Psalms 24.4|]][[Psalms 24.5|]]; [[1 Thessalonians 4.7|1 Thes. 4:7]]; [[Moroni 10.32|Moro. 10:32–33]][[Moroni 10.33|]]; [[D&C 20.69|D&C 20:69]]; [[D&C 110.6|110:6–9]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]]; see also Bible Dictionary, “[[BD Holiness|Holiness]],” 703–4.
 
-[^3]: [[2 Nephi 9.48|2 Ne. 9:48]].
+[^3]: [[2 Nephi 9.48|2 Ne. 9:48]].
 
 [^4]: See “Following the Master: Teachings of President Howard W. Hunter,” *Ensign,* Apr. 1995, 21–22; Howard W. Hunter, “The Great Symbol of Our Membership,” *Tambuli,* Nov. 1994, 3.
 
-[^5]: In Conference Report, Oct. 1995, 72; or *Ensign,* Nov. 1995, 53.
+[^5]: In Conference Report, Oct. 1995, [[1995 October - Of Missions, Temples, and Stewardship.md|72]]; or *Ensign,* Nov. 1995, 53.
 
 [^6]: Gordon B. Hinckley, *Teachings of Gordon B. Hinckley* (1997), 638.
 
@@ -99,17 +101,17 @@ Meanwhile, in this world smitten with spiritual decay, can individuals prepared 
 
 [^10]: See [[D&C 14.7|D&C 14:7]].
 
-[^11]: See [[D&C 109.20|D&C 109:20]]; see also [[Isaiah 52.11|Isa. 52:11]]; [[Alma 11.37|Alma 11:37]]; [[3 Nephi 27.19|3 Ne. 27:19]].
+[^11]: See [[D&C 109.20|D&C 109:20]]; see also [[Isaiah 52.11|Isa. 52:11]]; [[Alma 11.37|Alma 11:37]]; [[3 Nephi 27.19|3 Ne. 27:19]].
 
 [^12]: Or the branch president and mission president.
 
-[^13]: See [[3 Nephi 20.26|3 Ne. 20:26]]; see also Russell M. Nelson, in Conference Report, Apr. 1995, 41–42; or *Ensign,* May 1995, 32.
+[^13]: See [[3 Nephi 20.26|3 Ne. 20:26]]; see also Russell M. Nelson, in Conference Report, Apr. 1995, [[1995 April - Children of the Covenant.md|41–42]]; or *Ensign,* May 1995, 32.
 
 [^14]: See [[Romans 6.17|Rom. 6:17, 20]][[Romans 6.20|]]; [[D&C 121.17|D&C 121:17]].
 
 [^15]: [[Alma 7.6|Alma 7:6]].
 
-[^16]: President Hinckley said, “I urge our people everywhere, with all of the persuasiveness of which I am capable, to live worthy to hold a temple recommend, to secure one and regard it as a precious asset, and to make a greater effort to go to the house of the Lord and partake of the spirit and the blessings to be had therein” (in Conference Report, Oct. 1995, 72; or *Ensign,* Nov. 1995, 53).
+[^16]: President Hinckley said, “I urge our people everywhere, with all of the persuasiveness of which I am capable, to live worthy to hold a temple recommend, to secure one and regard it as a precious asset, and to make a greater effort to go to the house of the Lord and partake of the spirit and the blessings to be had therein” (in Conference Report, Oct. 1995, [[1995 October - Of Missions, Temples, and Stewardship.md|72]]; or *Ensign,* Nov. 1995, 53).
 
 [^17]: Boyd K. Packer, *The Holy Temple* (1980), 73.
 
@@ -131,21 +133,21 @@ Meanwhile, in this world smitten with spiritual decay, can individuals prepared 
 
 [^26]: Members of the Church who do not read English may find comparable terms in their language editions of the Guide to the Scriptures.
 
-[^27]: Page 609, paragraphs 1, 4.
+[^27]: “[[BD Anoint|Anoint]],” paragraphs 1, 4.
 
-[^28]: Page 617, paragraphs 1–2.
+[^28]: “[[BD Atonement|Atonement]],” paragraphs 1–2.
 
-[^29]: Page 633, paragraphs 1–3.
+[^29]: “[[BD Christ|Christ]],” paragraphs 1–3.
 
-[^30]: Page 651, paragraphs 1–2.
+[^30]: “[[BD Covenant|Covenant]],” paragraphs 1–2.
 
-[^31]: Page 670, paragraphs 1–2.
+[^31]: “[[BD Fall Of Adam And Eve|Fall of Adam]],” paragraphs 1–2.
 
-[^32]: Pages 765–66, paragraph 1.
+[^32]: “[[BD Sacrifices|Sacrifices]],” paragraph 1.
 
-[^33]: Pages 780–81, paragraphs 1–3.
+[^33]: “[[BD Temple|Temple]],” paragraphs 1–3.
 
-[^34]: Chapters of special interest include [[Exodus 26.1|Ex. 26–29]][[Exodus 26.2|]][[Exodus 26.3|]][[Exodus 26.4|]][[Exodus 26.5|]][[Exodus 26.6|]][[Exodus 26.7|]][[Exodus 26.8|]][[Exodus 26.9|]][[Exodus 26.10|]][[Exodus 26.11|]][[Exodus 26.12|]][[Exodus 26.13|]][[Exodus 26.14|]][[Exodus 26.15|]][[Exodus 26.16|]][[Exodus 26.17|]][[Exodus 26.18|]][[Exodus 26.19|]][[Exodus 26.20|]][[Exodus 26.21|]][[Exodus 26.22|]][[Exodus 26.23|]][[Exodus 26.24|]][[Exodus 26.25|]][[Exodus 26.26|]][[Exodus 26.27|]][[Exodus 26.28|]][[Exodus 26.29|]][[Exodus 26.30|]][[Exodus 26.31|]][[Exodus 26.32|]][[Exodus 26.33|]][[Exodus 26.34|]][[Exodus 26.35|]][[Exodus 26.36|]][[Exodus 26.37|]], [[Exodus 39.1|39]][[Exodus 39.2|]][[Exodus 39.3|]][[Exodus 39.4|]][[Exodus 39.5|]][[Exodus 39.6|]][[Exodus 39.7|]][[Exodus 39.8|]][[Exodus 39.9|]][[Exodus 39.10|]][[Exodus 39.11|]][[Exodus 39.12|]][[Exodus 39.13|]][[Exodus 39.14|]][[Exodus 39.15|]][[Exodus 39.16|]][[Exodus 39.17|]][[Exodus 39.18|]][[Exodus 39.19|]][[Exodus 39.20|]][[Exodus 39.21|]][[Exodus 39.22|]][[Exodus 39.23|]][[Exodus 39.24|]][[Exodus 39.25|]][[Exodus 39.26|]][[Exodus 39.27|]][[Exodus 39.28|]][[Exodus 39.29|]][[Exodus 39.30|]][[Exodus 39.31|]][[Exodus 39.32|]][[Exodus 39.33|]][[Exodus 39.34|]][[Exodus 39.35|]][[Exodus 39.36|]][[Exodus 39.37|]][[Exodus 39.38|]][[Exodus 39.39|]][[Exodus 39.40|]][[Exodus 39.41|]][[Exodus 39.42|]][[Exodus 39.43|]]; [[Leviticus 8.1|Lev. 8]][[Leviticus 8.2|]][[Leviticus 8.3|]][[Leviticus 8.4|]][[Leviticus 8.5|]][[Leviticus 8.6|]][[Leviticus 8.7|]][[Leviticus 8.8|]][[Leviticus 8.9|]][[Leviticus 8.10|]][[Leviticus 8.11|]][[Leviticus 8.12|]][[Leviticus 8.13|]][[Leviticus 8.14|]][[Leviticus 8.15|]][[Leviticus 8.16|]][[Leviticus 8.17|]][[Leviticus 8.18|]][[Leviticus 8.19|]][[Leviticus 8.20|]][[Leviticus 8.21|]][[Leviticus 8.22|]][[Leviticus 8.23|]][[Leviticus 8.24|]][[Leviticus 8.25|]][[Leviticus 8.26|]][[Leviticus 8.27|]][[Leviticus 8.28|]][[Leviticus 8.29|]][[Leviticus 8.30|]][[Leviticus 8.31|]][[Leviticus 8.32|]][[Leviticus 8.33|]][[Leviticus 8.34|]][[Leviticus 8.35|]][[Leviticus 8.36|]]; [[2 Samuel 12.1|2 Sam. 12]][[2 Samuel 12.2|]][[2 Samuel 12.3|]][[2 Samuel 12.4|]][[2 Samuel 12.5|]][[2 Samuel 12.6|]][[2 Samuel 12.7|]][[2 Samuel 12.8|]][[2 Samuel 12.9|]][[2 Samuel 12.10|]][[2 Samuel 12.11|]][[2 Samuel 12.12|]][[2 Samuel 12.13|]][[2 Samuel 12.14|]][[2 Samuel 12.15|]][[2 Samuel 12.16|]][[2 Samuel 12.17|]][[2 Samuel 12.18|]][[2 Samuel 12.19|]][[2 Samuel 12.20|]][[2 Samuel 12.21|]][[2 Samuel 12.22|]][[2 Samuel 12.23|]][[2 Samuel 12.24|]][[2 Samuel 12.25|]][[2 Samuel 12.26|]][[2 Samuel 12.27|]][[2 Samuel 12.28|]][[2 Samuel 12.29|]][[2 Samuel 12.30|]][[2 Samuel 12.31|]] ([[2 Samuel 12.20|v. 20]]); [[2 Chronicles 6.1|2 Chr. 6–7]][[2 Chronicles 6.2|]][[2 Chronicles 6.3|]][[2 Chronicles 6.4|]][[2 Chronicles 6.5|]][[2 Chronicles 6.6|]][[2 Chronicles 6.7|]][[2 Chronicles 6.8|]][[2 Chronicles 6.9|]][[2 Chronicles 6.10|]][[2 Chronicles 6.11|]][[2 Chronicles 6.12|]][[2 Chronicles 6.13|]][[2 Chronicles 6.14|]][[2 Chronicles 6.15|]][[2 Chronicles 6.16|]][[2 Chronicles 6.17|]][[2 Chronicles 6.18|]][[2 Chronicles 6.19|]][[2 Chronicles 6.20|]][[2 Chronicles 6.21|]][[2 Chronicles 6.22|]][[2 Chronicles 6.23|]][[2 Chronicles 6.24|]][[2 Chronicles 6.25|]][[2 Chronicles 6.26|]][[2 Chronicles 6.27|]][[2 Chronicles 6.28|]][[2 Chronicles 6.29|]][[2 Chronicles 6.30|]][[2 Chronicles 6.31|]][[2 Chronicles 6.32|]][[2 Chronicles 6.33|]][[2 Chronicles 6.34|]][[2 Chronicles 6.35|]][[2 Chronicles 6.36|]][[2 Chronicles 6.37|]][[2 Chronicles 6.38|]][[2 Chronicles 6.39|]][[2 Chronicles 6.40|]][[2 Chronicles 6.41|]][[2 Chronicles 6.42|]]; [[Isaiah 22.1|Isa. 22]][[Isaiah 22.2|]][[Isaiah 22.3|]][[Isaiah 22.4|]][[Isaiah 22.5|]][[Isaiah 22.6|]][[Isaiah 22.7|]][[Isaiah 22.8|]][[Isaiah 22.9|]][[Isaiah 22.10|]][[Isaiah 22.11|]][[Isaiah 22.12|]][[Isaiah 22.13|]][[Isaiah 22.14|]][[Isaiah 22.15|]][[Isaiah 22.16|]][[Isaiah 22.17|]][[Isaiah 22.18|]][[Isaiah 22.19|]][[Isaiah 22.20|]][[Isaiah 22.21|]][[Isaiah 22.22|]][[Isaiah 22.23|]][[Isaiah 22.24|]][[Isaiah 22.25|]]; [[Ezekiel 16.1|Ezek. 16]][[Ezekiel 16.2|]][[Ezekiel 16.3|]][[Ezekiel 16.4|]][[Ezekiel 16.5|]][[Ezekiel 16.6|]][[Ezekiel 16.7|]][[Ezekiel 16.8|]][[Ezekiel 16.9|]][[Ezekiel 16.10|]][[Ezekiel 16.11|]][[Ezekiel 16.12|]][[Ezekiel 16.13|]][[Ezekiel 16.14|]][[Ezekiel 16.15|]][[Ezekiel 16.16|]][[Ezekiel 16.17|]][[Ezekiel 16.18|]][[Ezekiel 16.19|]][[Ezekiel 16.20|]][[Ezekiel 16.21|]][[Ezekiel 16.22|]][[Ezekiel 16.23|]][[Ezekiel 16.24|]][[Ezekiel 16.25|]][[Ezekiel 16.26|]][[Ezekiel 16.27|]][[Ezekiel 16.28|]][[Ezekiel 16.29|]][[Ezekiel 16.30|]][[Ezekiel 16.31|]][[Ezekiel 16.32|]][[Ezekiel 16.33|]][[Ezekiel 16.34|]][[Ezekiel 16.35|]][[Ezekiel 16.36|]][[Ezekiel 16.37|]][[Ezekiel 16.38|]][[Ezekiel 16.39|]][[Ezekiel 16.40|]][[Ezekiel 16.41|]][[Ezekiel 16.42|]][[Ezekiel 16.43|]][[Ezekiel 16.44|]][[Ezekiel 16.45|]][[Ezekiel 16.46|]][[Ezekiel 16.47|]][[Ezekiel 16.48|]][[Ezekiel 16.49|]][[Ezekiel 16.50|]][[Ezekiel 16.51|]][[Ezekiel 16.52|]][[Ezekiel 16.53|]][[Ezekiel 16.54|]][[Ezekiel 16.55|]][[Ezekiel 16.56|]][[Ezekiel 16.57|]][[Ezekiel 16.58|]][[Ezekiel 16.59|]][[Ezekiel 16.60|]][[Ezekiel 16.61|]][[Ezekiel 16.62|]][[Ezekiel 16.63|]].
+[^34]: Chapters of special interest include [[Exodus 26.1|Ex. 26–29]][[Exodus 26.2|]][[Exodus 26.3|]][[Exodus 26.4|]][[Exodus 26.5|]][[Exodus 26.6|]][[Exodus 26.7|]][[Exodus 26.8|]][[Exodus 26.9|]][[Exodus 26.10|]][[Exodus 26.11|]][[Exodus 26.12|]][[Exodus 26.13|]][[Exodus 26.14|]][[Exodus 26.15|]][[Exodus 26.16|]][[Exodus 26.17|]][[Exodus 26.18|]][[Exodus 26.19|]][[Exodus 26.20|]][[Exodus 26.21|]][[Exodus 26.22|]][[Exodus 26.23|]][[Exodus 26.24|]][[Exodus 26.25|]][[Exodus 26.26|]][[Exodus 26.27|]][[Exodus 26.28|]][[Exodus 26.29|]][[Exodus 26.30|]][[Exodus 26.31|]][[Exodus 26.32|]][[Exodus 26.33|]][[Exodus 26.34|]][[Exodus 26.35|]][[Exodus 26.36|]][[Exodus 26.37|]], [[Exodus 39.1|39]][[Exodus 39.2|]][[Exodus 39.3|]][[Exodus 39.4|]][[Exodus 39.5|]][[Exodus 39.6|]][[Exodus 39.7|]][[Exodus 39.8|]][[Exodus 39.9|]][[Exodus 39.10|]][[Exodus 39.11|]][[Exodus 39.12|]][[Exodus 39.13|]][[Exodus 39.14|]][[Exodus 39.15|]][[Exodus 39.16|]][[Exodus 39.17|]][[Exodus 39.18|]][[Exodus 39.19|]][[Exodus 39.20|]][[Exodus 39.21|]][[Exodus 39.22|]][[Exodus 39.23|]][[Exodus 39.24|]][[Exodus 39.25|]][[Exodus 39.26|]][[Exodus 39.27|]][[Exodus 39.28|]][[Exodus 39.29|]][[Exodus 39.30|]][[Exodus 39.31|]][[Exodus 39.32|]][[Exodus 39.33|]][[Exodus 39.34|]][[Exodus 39.35|]][[Exodus 39.36|]][[Exodus 39.37|]][[Exodus 39.38|]][[Exodus 39.39|]][[Exodus 39.40|]][[Exodus 39.41|]][[Exodus 39.42|]][[Exodus 39.43|]]; [[Leviticus 8.1|Lev. 8]][[Leviticus 8.2|]][[Leviticus 8.3|]][[Leviticus 8.4|]][[Leviticus 8.5|]][[Leviticus 8.6|]][[Leviticus 8.7|]][[Leviticus 8.8|]][[Leviticus 8.9|]][[Leviticus 8.10|]][[Leviticus 8.11|]][[Leviticus 8.12|]][[Leviticus 8.13|]][[Leviticus 8.14|]][[Leviticus 8.15|]][[Leviticus 8.16|]][[Leviticus 8.17|]][[Leviticus 8.18|]][[Leviticus 8.19|]][[Leviticus 8.20|]][[Leviticus 8.21|]][[Leviticus 8.22|]][[Leviticus 8.23|]][[Leviticus 8.24|]][[Leviticus 8.25|]][[Leviticus 8.26|]][[Leviticus 8.27|]][[Leviticus 8.28|]][[Leviticus 8.29|]][[Leviticus 8.30|]][[Leviticus 8.31|]][[Leviticus 8.32|]][[Leviticus 8.33|]][[Leviticus 8.34|]][[Leviticus 8.35|]][[Leviticus 8.36|]]; [[2 Samuel 12.1|2 Sam. 12]][[2 Samuel 12.2|]][[2 Samuel 12.3|]][[2 Samuel 12.4|]][[2 Samuel 12.5|]][[2 Samuel 12.6|]][[2 Samuel 12.7|]][[2 Samuel 12.8|]][[2 Samuel 12.9|]][[2 Samuel 12.10|]][[2 Samuel 12.11|]][[2 Samuel 12.12|]][[2 Samuel 12.13|]][[2 Samuel 12.14|]][[2 Samuel 12.15|]][[2 Samuel 12.16|]][[2 Samuel 12.17|]][[2 Samuel 12.18|]][[2 Samuel 12.19|]][[2 Samuel 12.20|]][[2 Samuel 12.21|]][[2 Samuel 12.22|]][[2 Samuel 12.23|]][[2 Samuel 12.24|]][[2 Samuel 12.25|]][[2 Samuel 12.26|]][[2 Samuel 12.27|]][[2 Samuel 12.28|]][[2 Samuel 12.29|]][[2 Samuel 12.30|]][[2 Samuel 12.31|]] ([[2 Samuel 12.20|v. 20]]); [[2 Chronicles 6.1|2 Chr. 6–7]][[2 Chronicles 6.2|]][[2 Chronicles 6.3|]][[2 Chronicles 6.4|]][[2 Chronicles 6.5|]][[2 Chronicles 6.6|]][[2 Chronicles 6.7|]][[2 Chronicles 6.8|]][[2 Chronicles 6.9|]][[2 Chronicles 6.10|]][[2 Chronicles 6.11|]][[2 Chronicles 6.12|]][[2 Chronicles 6.13|]][[2 Chronicles 6.14|]][[2 Chronicles 6.15|]][[2 Chronicles 6.16|]][[2 Chronicles 6.17|]][[2 Chronicles 6.18|]][[2 Chronicles 6.19|]][[2 Chronicles 6.20|]][[2 Chronicles 6.21|]][[2 Chronicles 6.22|]][[2 Chronicles 6.23|]][[2 Chronicles 6.24|]][[2 Chronicles 6.25|]][[2 Chronicles 6.26|]][[2 Chronicles 6.27|]][[2 Chronicles 6.28|]][[2 Chronicles 6.29|]][[2 Chronicles 6.30|]][[2 Chronicles 6.31|]][[2 Chronicles 6.32|]][[2 Chronicles 6.33|]][[2 Chronicles 6.34|]][[2 Chronicles 6.35|]][[2 Chronicles 6.36|]][[2 Chronicles 6.37|]][[2 Chronicles 6.38|]][[2 Chronicles 6.39|]][[2 Chronicles 6.40|]][[2 Chronicles 6.41|]][[2 Chronicles 6.42|]]; [[Isaiah 22.1|Isa. 22]][[Isaiah 22.2|]][[Isaiah 22.3|]][[Isaiah 22.4|]][[Isaiah 22.5|]][[Isaiah 22.6|]][[Isaiah 22.7|]][[Isaiah 22.8|]][[Isaiah 22.9|]][[Isaiah 22.10|]][[Isaiah 22.11|]][[Isaiah 22.12|]][[Isaiah 22.13|]][[Isaiah 22.14|]][[Isaiah 22.15|]][[Isaiah 22.16|]][[Isaiah 22.17|]][[Isaiah 22.18|]][[Isaiah 22.19|]][[Isaiah 22.20|]][[Isaiah 22.21|]][[Isaiah 22.22|]][[Isaiah 22.23|]][[Isaiah 22.24|]][[Isaiah 22.25|]]; [[Ezekiel 16.1|Ezek. 16]][[Ezekiel 16.2|]][[Ezekiel 16.3|]][[Ezekiel 16.4|]][[Ezekiel 16.5|]][[Ezekiel 16.6|]][[Ezekiel 16.7|]][[Ezekiel 16.8|]][[Ezekiel 16.9|]][[Ezekiel 16.10|]][[Ezekiel 16.11|]][[Ezekiel 16.12|]][[Ezekiel 16.13|]][[Ezekiel 16.14|]][[Ezekiel 16.15|]][[Ezekiel 16.16|]][[Ezekiel 16.17|]][[Ezekiel 16.18|]][[Ezekiel 16.19|]][[Ezekiel 16.20|]][[Ezekiel 16.21|]][[Ezekiel 16.22|]][[Ezekiel 16.23|]][[Ezekiel 16.24|]][[Ezekiel 16.25|]][[Ezekiel 16.26|]][[Ezekiel 16.27|]][[Ezekiel 16.28|]][[Ezekiel 16.29|]][[Ezekiel 16.30|]][[Ezekiel 16.31|]][[Ezekiel 16.32|]][[Ezekiel 16.33|]][[Ezekiel 16.34|]][[Ezekiel 16.35|]][[Ezekiel 16.36|]][[Ezekiel 16.37|]][[Ezekiel 16.38|]][[Ezekiel 16.39|]][[Ezekiel 16.40|]][[Ezekiel 16.41|]][[Ezekiel 16.42|]][[Ezekiel 16.43|]][[Ezekiel 16.44|]][[Ezekiel 16.45|]][[Ezekiel 16.46|]][[Ezekiel 16.47|]][[Ezekiel 16.48|]][[Ezekiel 16.49|]][[Ezekiel 16.50|]][[Ezekiel 16.51|]][[Ezekiel 16.52|]][[Ezekiel 16.53|]][[Ezekiel 16.54|]][[Ezekiel 16.55|]][[Ezekiel 16.56|]][[Ezekiel 16.57|]][[Ezekiel 16.58|]][[Ezekiel 16.59|]][[Ezekiel 16.60|]][[Ezekiel 16.61|]][[Ezekiel 16.62|]][[Ezekiel 16.63|]].
 
 [^35]: See [[D&C 124.40|D&C 124:40–41]][[D&C 124.41|]].
 
@@ -157,18 +159,13 @@ Meanwhile, in this world smitten with spiritual decay, can individuals prepared 
 
 [^39]: See [[Alma 42.8|Alma 42:8]].
 
-[^40]: In Conference Report. Apr. 1987, 27; or *Ensign,* May 1987, 24.
+[^40]: In Conference Report. Apr. 1987, [[1987 April - Covenants.md|27]]; or *Ensign,* May 1987, 24.
 
 [^41]: [[D&C 128.15|D&C 128:15]].
 
-[^42]: See [[2 Nephi 9.41|2 Ne. 9:41]].
+[^42]: See [[2 Nephi 9.41|2 Ne. 9:41]].
 
 [^43]: See [[D&C 137.9|D&C 137:9]].
 
-[^44]: [[1 Nephi 14.14|1 Ne. 14:14]].
+[^44]: [[1 Nephi 14.14|1 Ne. 14:14]].
 
-
-
-
-
-#Atonement #Commitment #Covenants #Death #Faith #Leadership #Morality #Obedience #Ordinances #Preparation #Priesthood #Spirituality #Temple_Work #Temples #Temptation #Tithing #Worship #Worthiness

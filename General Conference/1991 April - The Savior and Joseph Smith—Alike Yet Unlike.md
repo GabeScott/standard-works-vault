@@ -1,5 +1,7 @@
 # The Savior and Joseph Smith—Alike Yet Unlike
 
+Thomas S. Monson
+
 By Elder Francis M. Gibbons - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -36,7 +38,7 @@ This mortal linkage between Joseph Smith, the Prophet, and Jesus Christ, the Sav
 
 - Both were prayerful by nature. Before his earthly ministry began, the Savior spent forty days in the wilderness engaged in fervent fasting and prayer. And on the Mount of Transfiguration, in Gethsemane, on the cross, and on other occasions he engaged in fervent prayers to his Heavenly Father, pleading for guidance or assistance.Joseph Smith’s ministry actually began with the fervent prayer he offered in the Sacred Grove, which resulted in the Father and the Son appearing to him. Thereafter, his life was marked by repeated prayers offered for divine help in solving the problems he faced, whether great or small.
 
-- Their births were foreseen long in advance. The Savior, according to the scriptures, was “Beloved and Chosen from the beginning” ([[Moses 4.2|Moses 4:2]]), even him whom God declared “should come in the meridian of time, who was prepared from before the foundation of the world” ([[Moses 5.57|Moses 5:57]]). Joseph of old, the son of Jacob, or Israel, prophesied that in the latter days a choice seer would be raised up: “And his name shall be called after me,” he prophesied, “and it shall be after the name of his father” ([[2 Nephi 3.15|2 Ne. 3:15]]), which is an ancient prophetic reference to Joseph Smith and his father, Joseph Smith, Sr.
+- Their births were foreseen long in advance. The Savior, according to the scriptures, was “Beloved and Chosen from the beginning” ([[Moses 4.2|Moses 4:2]]), even him whom God declared “should come in the meridian of time, who was prepared from before the foundation of the world” ([[Moses 5.57|Moses 5:57]]). Joseph of old, the son of Jacob, or Israel, prophesied that in the latter days a choice seer would be raised up: “And his name shall be called after me,” he prophesied, “and it shall be after the name of his father” ([[2 Nephi 3.15|2 Ne. 3:15]]), which is an ancient prophetic reference to Joseph Smith and his father, Joseph Smith, Sr.
 
 While the Savior and Joseph Smith shared these and many other qualities, they were very different in basic ways. The main difference lay in the Savior’s unusual nature and identity. He functioned on a plane which was beyond the Prophet Joseph Smith’s comprehension. Jesus is a member of the Godhead, chosen before the creation of the world to become the Savior and the Redeemer of mankind. He was the active force in the Creation, and he is the head of the Church. Through the Atonement, he has, in a sense, purchased us so that we are his children. And by becoming members of the Church, we have taken his name upon us.
 
@@ -59,8 +61,3 @@ Finally, I testify that through an unbroken chain, the prophetic keys and author
 
 
 
-
-
-
-
-#Authority #Jesus_Christ #Joseph_Smith #Prayer #Restoration

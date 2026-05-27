@@ -1,5 +1,7 @@
 # Peace through Prayer
 
+Thomas S. Monson
+
 By Elder Rex D. Pinegar - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -10,7 +12,7 @@ On behalf of the Presidency of the Seventy, we welcome with joy Brother Todd Chr
 
 There have been many inspiring messages given from this Tabernacle pulpit about prayer. Today I add my testimony of the blessing of peace that comes through the miraculous power of prayer.
 
-Alexandre Dumas, in his classic tale *The Count of Monte Cristo,* wrote, “For the happy man prayer is only a jumble of words, until the day when sorrow comes to explain to him the sublime language by means of which he speaks to God” (trans. Lowell Bair \[New York: Bantam Books, 1981\], p. 34).
+Alexandre Dumas, in his classic tale *The Count of Monte Cristo,* wrote, “For the happy man prayer is only a jumble of words, until the day when sorrow comes to explain to him the sublime language by means of which he speaks to God” (trans. Lowell Bair \[New York: Bantam Books, 1981\], p. 34).
 
 It was a happy, carefree time in my young life until on such a day, sorrow and tragedy brought me closer to God in humble, sincere prayer. In the summer of my thirteenth year, on a July night, I eagerly joined some neighborhood friends to light fireworks. Five of us took turns igniting the colorful assortment of Roman candles and rockets and firecrackers. Each was a new surprise with its burst of sights and sounds through the evening sky.
 
@@ -28,9 +30,9 @@ Recently in his own pain and suffering, my friend and associate Elder Clinton Cu
 
 Our Father in Heaven has promised us peace in times of trial and has provided a way for us to come to Him in our need. He has given us the privilege and power of prayer. He has told us to “pray always” and has promised He will pour out His Spirit upon us (see [[D&C 19.38|D&C 19:38]]).
 
-Thankfully, we can call upon Him anytime, anywhere. We can speak to Him in the quiet thoughts of our mind and from the deepest feelings of our heart. It has been said, “prayer is made up of heart throbs and the righteous yearnings of the soul” (James E. Talmage, *Jesus the Christ,* 3rd ed. \[Salt Lake City: Deseret Book Co., 1916\], p. 238). Our Heavenly Father has told us He knows our thoughts and the intents of our hearts (see [[D&C 6.16|D&C 6:16]]).
+Thankfully, we can call upon Him anytime, anywhere. We can speak to Him in the quiet thoughts of our mind and from the deepest feelings of our heart. It has been said, “prayer is made up of heart throbs and the righteous yearnings of the soul” (James E. Talmage, *Jesus the Christ,* 3rd ed. \[Salt Lake City: Deseret Book Co., 1916\], p. 238). Our Heavenly Father has told us He knows our thoughts and the intents of our hearts (see [[D&C 6.16|D&C 6:16]]).
 
-President Marion G. Romney taught: “Sometimes the Lord puts thoughts in our minds in answer to prayers. … \[He\] gives us peace in our minds” (in Conference Report, Taiwan Area Conference 1975, p. 7).
+President Marion G. Romney taught: “Sometimes the Lord puts thoughts in our minds in answer to prayers. … \[He\] gives us peace in our minds” (in Conference Report, Taiwan Area Conference 1975, p. 7).
 
 For example, in response to Oliver Cowdery’s prayer to know if the translation of the plates by Joseph Smith was true, the Lord answered: “Did I not speak peace to your mind concerning the matter? What greater witness can you have than from God?” ([[D&C 6.23|D&C 6:23]]).
 
@@ -46,7 +48,7 @@ There *is* terrible suffering in our world today. Tragic things happen to good p
 
 “It is not the usual purpose of prayer to serve us like Aladdin’s lamp, to bring us ease without effort,” Elder Richard L. Evans wrote. “Prayer is not a matter of asking only. It should not be always as the beggar’s upturned hand. Often the purpose of prayer is to give us strength to do what needs to be done, wisdom to see the way to solve our own problems, and ability to do our best in our tasks.
 
-“We need to pray … for strength to endure, for faith and fortitude to face what sometimes must be faced” (in Richard L. Evans, Jr., *Richard L. Evans: The Man and the Message* \[Salt Lake City: Bookcraft, 1973\], p. 289).
+“We need to pray … for strength to endure, for faith and fortitude to face what sometimes must be faced” (in Richard L. Evans, Jr., *Richard L. Evans: The Man and the Message* \[Salt Lake City: Bookcraft, 1973\], p. 289).
 
 It was the Lord Himself who taught us by His own example how to find peace when the answers we receive are not what we asked for. On the eve of His crucifixion, with “soul … exceeding sorrowful, even unto death,” Jesus knelt in the Garden of Gethsemane and prayed to the Father, saying, “O my Father, if it be possible \[and he acknowledged ‘all things are possible unto thee’\], let this cup pass from me: nevertheless not as I will, but as thou wilt” ([[Matthew 26.38|Matt. 26:38–39]][[Matthew 26.39|]]; see also [[Mark 14.36|Mark 14:36]]).
 
@@ -83,8 +85,3 @@ With this testimony of peace through prayer, I bear witness of the reality of Je
 
 
 
-
-
-
-
-#Faith #Peace #Prayer

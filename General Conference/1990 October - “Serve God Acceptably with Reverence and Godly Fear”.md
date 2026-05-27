@@ -1,5 +1,7 @@
 # “Serve God Acceptably with Reverence and Godly Fear”
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -58,13 +60,8 @@ One Sunday, my granddaughter Diana, who is four years old, was sitting next to h
 
 Diana’s message to her father was perfectly clear. She was telling him to turn his complete and total attention to the Savior. This is the message a reverent attitude always conveys, and when reverent attitudes abound, reverent behavior will always flourish. I pray that, like Diana, we may all strive to develop reverent attitudes so that we may serve God reverently and with godly fear (see [[Hebrews 12.28|Heb. 12:28]]).
 
-Let us never depreciate the value of our own personal example of being a living witness of the love and respect we have for Him whom we call “Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace” ([[2 Nephi 19.6|2 Ne. 19:6]]), is my humble prayer in the name of Jesus Christ, amen.
+Let us never depreciate the value of our own personal example of being a living witness of the love and respect we have for Him whom we call “Wonderful, Counselor, The Mighty God, The Everlasting Father, The Prince of Peace” ([[2 Nephi 19.6|2 Ne. 19:6]]), is my humble prayer in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Example #Prophets #Reverence

@@ -1,5 +1,7 @@
 # Our Perfect Example
 
+Thomas S. Monson
+
 By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2009 General Conference*
@@ -48,7 +50,7 @@ I saw this in my parents’ marriage. In my mother’s final illness, the more u
 
 Now I give counsel to the parents of a wandering child. The Savior is the perfect example of persisting in love. You remember His words of comfort to the people among the Nephites who had rejected His earlier invitation to come to Him. He spoke to the survivors of the destruction which came after His Crucifixion: “O ye house of Israel whom I have spared, how oft will I gather you as a hen gathereth her chickens under her wings, if ye will repent and return unto me with full purpose of heart.”[^3]
 
-The story of the prodigal son gives us all hope. The prodigal remembered home, as will your children. They will feel your love drawing them back to you. Elder Orson F. Whitney, in a general conference of 1929, gave a remarkable promise, which I know is true, to the faithful parents who honor the temple sealing to their children: “Though some of the sheep may wander, the eye of the Shepherd is upon them, and sooner or later they will feel the tentacles of Divine Providence reaching out after them and drawing them back to the fold.”
+The story of the prodigal son gives us all hope. The prodigal remembered home, as will your children. They will feel your love drawing them back to you. Elder Orson F. Whitney, in a general conference of 1929, gave a remarkable promise, which I know is true, to the faithful parents who honor the temple sealing to their children: “Though some of the sheep may wander, the eye of the Shepherd is upon them, and sooner or later they will feel the tentacles of Divine Providence reaching out after them and drawing them back to the fold.”
 
 Then he goes on to say: “Pray for your careless and disobedient children; hold on to them with your faith. Hope on, trust on, till you see the salvation of God.”[^4] You can pray for your children, love them, and reach out to them with confidence that Jesus reaches for them with you. When you keep trying, you are doing what Jesus does.
 
@@ -60,7 +62,7 @@ For all of us it may be hard to see in our lives an increasing power to love and
 
 It may have come when you were baptized. He did not need baptism, because He was pure. But when you were baptized, you had the feeling of being washed clean, like a little child. When He was baptized, the heavens were opened, and He heard the voice of His Heavenly Father: “This is my beloved Son, in whom I am well pleased.”[^7] You heard no voice, but you felt the approval of Heavenly Father for having done what Jesus did.
 
-You have felt it in your family when you asked the pardon of your spouse or forgave a child for some mistake or disobedience. These moments will come more often as you try to do the things you know Jesus would do. Because of His Atonement for you, your childlike obedience will bring a feeling of love of the Savior for you and your love for Him. That is one of the gifts that is promised to His faithful disciples. And this gift can come not only to you alone but also to the loving members of your family. The promise was given in 3 Nephi: “And all thy children shall be taught of the Lord; and great shall be the peace of thy children.”[^8]
+You have felt it in your family when you asked the pardon of your spouse or forgave a child for some mistake or disobedience. These moments will come more often as you try to do the things you know Jesus would do. Because of His Atonement for you, your childlike obedience will bring a feeling of love of the Savior for you and your love for Him. That is one of the gifts that is promised to His faithful disciples. And this gift can come not only to you alone but also to the loving members of your family. The promise was given in 3 Nephi: “And all thy children shall be taught of the Lord; and great shall be the peace of thy children.”[^8]
 
 I hope you will go out today looking for opportunities to do as He did and to love as He loves. I can promise you the peace that you felt as a child will come to you often and it will linger with you. The promise is true that He made to His disciples: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you.”[^9]
 
@@ -75,9 +77,9 @@ I testify that the way lies in faith in Jesus Christ, in baptism, in receiving t
 
 [^2]: “I’m Trying to Be like Jesus,” *Children’s Songbook,* 78–79.
 
-[^3]: [[3 Nephi 10.6|3 Nephi 10:6]].
+[^3]: [[3 Nephi 10.6|3 Nephi 10:6]].
 
-[^4]: Orson F. Whitney, in Conference Report, Apr. 1929, 110.
+[^4]: Orson F. Whitney, in Conference Report, Apr. 1929, 110.
 
 [^5]: [[Mosiah 13.20|Mosiah 13:20]].
 
@@ -85,12 +87,7 @@ I testify that the way lies in faith in Jesus Christ, in baptism, in receiving t
 
 [^7]: [[Matthew 3.17|Matthew 3:17]].
 
-[^8]: [[3 Nephi 22.13|3 Nephi 22:13]].
+[^8]: [[3 Nephi 22.13|3 Nephi 22:13]].
 
 [^9]: [[John 14.27|John 14:27]].
 
-
-
-
-
-#Family #Jesus_Christ #Love

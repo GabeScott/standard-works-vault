@@ -1,6 +1,8 @@
 # Build Your Shield of Faith
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -10,7 +12,7 @@ Thank you, President. This is a general conference in which I find my emotions v
 
 I was reared in a home in which the children were taught great love and respect for the General Authorities of the Church. I remember as I was learning the names of the members of the Council of the Twelve as a Primary graduation requirement, my father spent time and patience to teach me about the lives of each, as well as the required memory work.
 
-To this day, I think you can ask me at any time to recite the names of those great men from Rudger Clawson to Charles A. Callis; and I can repeat them rapidly and remember events in their lives.
+To this day, I think you can ask me at any time to recite the names of those great men from Rudger Clawson to Charles A. Callis; and I can repeat them rapidly and remember events in their lives.
 
 As I was thinking about this assignment, I thought, what if there is some father in the Church who would like to spend some time in family home evening telling about the current members of the Council of the Twelve. This thought startled me. What could he ever tell about me?
 
@@ -46,13 +48,8 @@ President Benson, I love and appreciate you and your great leadership. I am devo
 
 And to my two great colleagues whom I have worked so closely with, Elder Hanks and Elder Faust, there has been a special brotherhood develop between us. How patient they have been in helping to train me in the things that I should do in these great callings. I express to you my gratitude and thanks.
 
-And to all who hear my voice today, I declare my witness that God lives, that Jesus is the Christ, and that Spencer W. Kimball is truly a prophet of the Lord. Come and join with us. Let us help you build your shield of faith that you may live with the peaceful assurance that you have a strong line of defense between you and the powers of the wicked one, I humbly pray in the name of Jesus Christ. Amen.
+And to all who hear my voice today, I declare my witness that God lives, that Jesus is the Christ, and that Spencer W. Kimball is truly a prophet of the Lord. Come and join with us. Let us help you build your shield of faith that you may live with the peaceful assurance that you have a strong line of defense between you and the powers of the wicked one, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Home #Spirituality

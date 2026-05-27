@@ -1,4 +1,3 @@
 # Annunciation
 
-
-*See* [BD Annunciation](https://www.churchofjesuschrist.org/study/scriptures/bd/annunciation?lang=eng)
+*See also* [[BD Annunciation.md|BD Annunciation]]

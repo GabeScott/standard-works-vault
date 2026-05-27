@@ -1,5 +1,7 @@
 # Teach the Children
 
+Thomas S. Monson
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -44,7 +46,7 @@ A recent experience illustrates the importance of each of these little children.
 
 Some may choose not to go. Our Heavenly Father has given them the agency to choose for themselves. We have the task of helping them learn about our Heavenly Father’s plan for us, demonstrating our faith in the Lord, and continuing to work with our children in prayerful and patient persuasion.
 
-To teach our children the gospel of Jesus Christ and to protect them from the influences of a wicked world, love must abide in our homes. We should cherish and care for our children with unwavering dedication. The older we grow, the more precious our family becomes to us. We come to see more clearly that all of the wealth, honor, and positions of the world pale in significance when compared to the precious souls of our loved ones. You young parents who are beginning your families must guard against seeking financial gain, worldly comforts, or achievement at the expense of your children. You must guard against being so anxious to get to work or to a meeting that you do not have time for your family, especially time to listen to anxious little voices. Always remember this timeless counsel from a prophet of God, President David O. McKay: “No other success can compensate for failure in the home” (J. E. McCulloch, *Home: The Savior of Civilization* \[Washington, D.C.: The Southern Co-operative League, 1924\], p. 42; quoted by President McKay in Conference Report, Apr. 1935, p. 115).
+To teach our children the gospel of Jesus Christ and to protect them from the influences of a wicked world, love must abide in our homes. We should cherish and care for our children with unwavering dedication. The older we grow, the more precious our family becomes to us. We come to see more clearly that all of the wealth, honor, and positions of the world pale in significance when compared to the precious souls of our loved ones. You young parents who are beginning your families must guard against seeking financial gain, worldly comforts, or achievement at the expense of your children. You must guard against being so anxious to get to work or to a meeting that you do not have time for your family, especially time to listen to anxious little voices. Always remember this timeless counsel from a prophet of God, President David O. McKay: “No other success can compensate for failure in the home” (J. E. McCulloch, *Home: The Savior of Civilization* \[Washington, D.C.: The Southern Co-operative League, 1924\], p. 42; quoted by President McKay in Conference Report, Apr. 1935, p. 115).
 
 We *cannot* and we *must not* allow the school, community, television, or even Church organizations to establish our children’s values. The Lord has placed this duty with mothers and fathers. It is one from which we cannot escape and one that cannot be delegated. Others may help, but parents remain accountable. Therefore, we must guard the sanctity of our homes because that is where children develop their values, attitudes, and habits for everyday living.
 
@@ -73,8 +75,3 @@ I know that we are all spirit children of a loving Heavenly Father, brothers and
 
 
 
-
-
-
-
-#Family #Teaching

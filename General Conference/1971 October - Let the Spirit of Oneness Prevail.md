@@ -1,5 +1,7 @@
 # Let the Spirit of Oneness Prevail
 
+Joseph Fielding Smith
+
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the October session of the 1971 General Conference*
@@ -12,13 +14,13 @@ We have been fed the bread of life, and our desires to serve the Lord and keep h
 
 May I express before you the profound appreciation I have for the faith, devotion, and service of the two great men who stand beside me in the First Presidency of the Church.
 
-President Harold B. Lee is a spiritual giant with faith like that of Enoch. He has the spirit of revelation and magnifies his calling as a prophet, seer, and revelator.
+President Harold B. Lee is a spiritual giant with faith like that of Enoch. He has the spirit of revelation and magnifies his calling as a prophet, seer, and revelator.
 
-President N. Eldon Tanner is also one of the noble and great ones who was prepared from eternity to render the important service he is now performing in this, the Lord’s church. He is a man of surpassing ability and integrity.
+President N. Eldon Tanner is also one of the noble and great ones who was prepared from eternity to render the important service he is now performing in this, the Lord’s church. He is a man of surpassing ability and integrity.
 
 The First Presidency of the Church is united as one, and it is my prayer that we may ever be one, even as Jesus said that he and the Father and the Holy Ghost are one. And this same oneness should prevail in every stake presidency, every bishopric, and every priesthood quorum presidency.
 
-I am also grateful for the labors and ministry of President Spencer W. Kimball and his associates in the Council of the Twelve, as well as those of all the General Authorities, and I want you to know that I love my brethren.
+I am also grateful for the labors and ministry of President Spencer W. Kimball and his associates in the Council of the Twelve, as well as those of all the General Authorities, and I want you to know that I love my brethren.
 
 I feel in my heart to bless the faithful members of the Church. Just as surely as they continue to walk in paths of truth and virtue, they shall have the desires of their hearts in righteousness and shall go on to eternal reward in our Father’s kingdom in due course of time.
 
@@ -39,8 +41,3 @@ And I pray that this may be the happy lot of all of us, in our own due time, and
 
 
 
-
-
-
-
-#Faith #Service #Unity

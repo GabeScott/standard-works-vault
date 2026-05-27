@@ -1,6 +1,5 @@
 # Remember
 
-
 *See also* [[Remembrance.md|Remembrance]]
 
 God *remembered* Noah, and every living thing, [[Genesis 8.1|Genesis 8:1]].
@@ -17,7 +16,7 @@ God *remembered* his covenant with Abraham, [[Exodus 2.24|Exodus 2:24]] ([[Exodu
 
 *remember* all the commandments of the Lord, [[Numbers 15.39|Numbers 15:39]].
 
-thou shalt *remember* that thou wast a bondman in ... Egypt, [[Deuteronomy 15.15|Deuteronomy 15:15]].
+thou shalt *remember* that thou wast a bondman in … Egypt, [[Deuteronomy 15.15|Deuteronomy 15:15]].
 
 *Remember* the days of old, [[Deuteronomy 32.7|Deuteronomy 32:7]].
 
@@ -39,7 +38,7 @@ will not *remember* thy sins, [[Isaiah 43.25|Isaiah 43:25]].
 
 new heavens and a new earth: and the former shall not be *remembered*, [[Isaiah 65.17|Isaiah 65:17]].
 
-Lord ... will now *remember* their iniquity, [[Jeremiah 14.10|Jeremiah 14:10]] ([[Hosea 8.13|Hosea 8:13]]).
+Lord … will now *remember* their iniquity, [[Jeremiah 14.10|Jeremiah 14:10]] ([[Hosea 8.13|Hosea 8:13]]).
 
 I will *remember* their sin no more, [[Jeremiah 31.34|Jeremiah 31:34]] ([[Hebrews 8.12|Hebrews 8:12]]; [[Hebrews 10.17|Hebrews 10:17]]).
 
@@ -57,7 +56,7 @@ Peter *remembered* the word of Jesus, [[Matthew 26.75|Matthew 26:75]] ([[Luke 22
 
 *remember* his holy covenant, [[Luke 1.72|Luke 1:72]].
 
-*Remember* Lot's wife, [[Luke 17.32|Luke 17:32]].
+*Remember* Lot’s wife, [[Luke 17.32|Luke 17:32]].
 
 *remember* me when thou comest into thy kingdom, [[Luke 23.42|Luke 23:42]].
 
@@ -67,7 +66,7 @@ we should *remember* the poor, [[Galatians 2.10|Galatians 2:10]].
 
 *Remembering* without ceasing your work of faith, [[1 Thessalonians 1.3|1 Thessalonians 1:3]].
 
-*Remember* that Jesus Christ ... was raised from the dead, [[2 Timothy 2.8|2 Timothy 2:8]].
+*Remember* that Jesus Christ … was raised from the dead, [[2 Timothy 2.8|2 Timothy 2:8]].
 
 their sins and their iniquities will I *remember* no more, [[Hebrews 8.12|Hebrews 8:12]].
 
@@ -75,13 +74,13 @@ their sins and their iniquities will I *remember* no more, [[Hebrews 8.12|Hebrew
 
 *Remember* them which have the rule over you, [[Hebrews 13.7|Hebrews 13:7]].
 
-Ye are ... slow to *remember* the Lord, [[1 Nephi 17.45|1 Nephi 17:45]] ([[Mosiah 9.3|Mosiah 9:3]]; [[Alma 62.49|Alma 62:49]]; [[Helaman 12.5|Helaman 12:5]]).
+Ye are … slow to *remember* the Lord, [[1 Nephi 17.45|1 Nephi 17:45]] ([[Mosiah 9.3|Mosiah 9:3]]; [[Alma 62.49|Alma 62:49]]; [[Helaman 12.5|Helaman 12:5]]).
 
 *Remember* the words of thy dying father, [[2 Nephi 3.25|2 Nephi 3:25]].
 
-*remember* the awfulness in transgressing against ... God, [[2 Nephi 9.39|2 Nephi 9:39]].
+*remember* the awfulness in transgressing against … God, [[2 Nephi 9.39|2 Nephi 9:39]].
 
-Prepare your souls ... that ye may not *remember* your awful guilt, [[2 Nephi 9.46|2 Nephi 9:46]].
+Prepare your souls … that ye may not *remember* your awful guilt, [[2 Nephi 9.46|2 Nephi 9:46]].
 
 Gentiles, have ye *remembered* the Jews, [[2 Nephi 29.5|2 Nephi 29:5]].
 
@@ -95,24 +94,24 @@ O man, *remember*, and perish not, [[Mosiah 4.30|Mosiah 4:30]].
 
 I did *remember* all my sins and iniquities, [[Alma 36.13|Alma 36:13]].
 
-his people ... will not *remember* him, [[Helaman 12.3|Helaman 12:3]].
+his people … will not *remember* him, [[Helaman 12.3|Helaman 12:3]].
 
 then will I *remember* my covenant, [[3 Nephi 16.11|3 Nephi 16:11]] ([[3 Nephi 20.29|3 Nephi 20:29]]).
 
-testimony unto the Father that ye do always *remember* me, [[3 Nephi 18.7|3 Nephi 18:7]] ([[3 Nephi 18.11|3 Nephi 18:11]]; [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|Moroni 5:2]]; [[D&C 20.77|D&C 20:77]], [[D&C 20.79|D&C 20:79]]).
+testimony unto the Father that ye do always *remember* me, [[3 Nephi 18.7|3 Nephi 18:7]] ([[3 Nephi 18.11|3 Nephi 18:11]]; [[Moroni 4.3|Moroni 4:3]]; [[Moroni 5.2|Moroni 5:2]]; [[D&C 20.77|D&C 20:77]]; [[D&C 20.79|D&C 20:79]]).
 
 *Remember* faith, virtue, [[D&C 4.6|D&C 4:6]].
 
 *Remember* the worth of souls is great in the sight of God, [[D&C 18.10|D&C 18:10]].
 
-partake ... *remembering* unto the Father my body, [[D&C 27.2|D&C 27:2]].
+partake … *remembering* unto the Father my body, [[D&C 27.2|D&C 27:2]].
 
 thou wilt *remember* the poor, [[D&C 42.30|D&C 42:30]].
 
 the best gifts, always *remembering* for what they are given, [[D&C 46.8|D&C 46:8]].
 
-always *remember* ... what those gifts are, [[D&C 46.10|D&C 46:10]].
+always *remember* … what those gifts are, [[D&C 46.10|D&C 46:10]].
 
 I, the Lord, *remember* them no more, [[D&C 58.42|D&C 58:42]].
 
-choose for thyself ... but, *remember* that I forbid it, [[Moses 3.17|Moses 3:17]].
+choose for thyself … but, *remember* that I forbid it, [[Moses 3.17|Moses 3:17]].

@@ -1,4 +1,3 @@
 # Caesar
 
-
-*See* [BD Caesar](https://www.churchofjesuschrist.org/study/scriptures/bd/caesar?lang=eng)
+*See also* [[BD Caesar.md|BD Caesar]]

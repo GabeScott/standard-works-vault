@@ -1,6 +1,8 @@
 # First Observe, Then Serve
 
-By Linda K. Burton - *Relief Society General President*
+Thomas S. Monson
+
+By Linda K. Burton - *Relief Society General President*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -8,7 +10,7 @@ By Linda K. Burton - *Relief Society General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/10/first-observe-then-serve?lang=eng)
 
-One of the greatest evidences we have that our beloved prophet, President Thomas S. Monson, is the Lord’s chosen servant is that he has learned to follow the Savior’s example—serving individually, one by one. Those of us who have entered the waters of baptism have covenanted to do the same. We have covenanted to “always remember \[the Savior\] and keep his commandments,”[^1] and He has said, “This is my commandment, That ye love one another, as I have loved you.”[^2]
+One of the greatest evidences we have that our beloved prophet, President Thomas S. Monson, is the Lord’s chosen servant is that he has learned to follow the Savior’s example—serving individually, one by one. Those of us who have entered the waters of baptism have covenanted to do the same. We have covenanted to “always remember \[the Savior\] and keep his commandments,”[^1] and He has said, “This is my commandment, That ye love one another, as I have loved you.”[^2]
 
 Notice how the following words from President Monson include the same invitation: “We are surrounded by those in need of our attention, our encouragement, our support, our comfort, our kindness. … We are the Lord’s hands here upon the earth, with the mandate to serve and to lift His children. He is dependent upon each of us.”[^3]
 
@@ -32,7 +34,7 @@ President Monson has reminded us that charity, “the pure love of Christ”[^8]
 
 An observant husband served in two important ways. He relates:
 
-“I was assisting my wife one Sunday with her Primary class full of energetic seven-year-olds. As Primary sharing time started, I noticed one of the class members huddled on her chair and obviously not feeling well. The Spirit whispered to me that she needed comfort, so I sat by her and quietly asked what was wrong. She didn’t answer … , so I began to sing softly to her.
+“I was assisting my wife one Sunday with her Primary class full of energetic seven-year-olds. As Primary sharing time started, I noticed one of the class members huddled on her chair and obviously not feeling well. The Spirit whispered to me that she needed comfort, so I sat by her and quietly asked what was wrong. She didn’t answer … , so I began to sing softly to her.
 
 “The Primary was learning a new song, and when we sang, ‘If I listen with my heart I hear the Savior’s voice,’ I began to feel the most incredible light and warmth fill my soul. … I received a personal testimony of our Savior’s love for her … and for me. … I learned that we are \[the Savior’s\] hands when we serve the one.”[^11]
 
@@ -40,7 +42,7 @@ Not only did this Christlike brother notice the need to help his wife with a cla
 
 Recently a flood opened many opportunities for disciples of Jesus Christ to first observe and then serve. Men, women, teenagers, and children saw businesses and homes destroyed and dropped everything to help clean and repair damaged structures. Some observed the need to help with the overwhelming task of doing laundry. Others painstakingly wiped down photographs, legal documents, letters, and other important papers and then carefully hung them out to dry to preserve whatever they could. Observing and then serving is not always convenient and doesn’t always fit our own timetable.
 
-What better place to first observe and then serve than in the home? An example from the life of Elder Richard G. Scott illustrates:
+What better place to first observe and then serve than in the home? An example from the life of Elder Richard G. Scott illustrates:
 
 “One night our little son Richard, who had a heart problem, awoke crying. … Normally my wife always got up to take care of a crying baby, but this time I said, ‘I’ll take care of him.’
 
@@ -48,7 +50,7 @@ What better place to first observe and then serve than in the home? An example f
 
 Jesus said, “Whosoever will be great among you, let him be your minister.”[^14]
 
-Sometimes we are tempted to serve in a way that we want to serve and not necessarily in the way that is needed at the moment. When Elder Robert D. Hales taught the principle of provident living, he shared the example of buying a gift for his wife. She asked, “Are you buying this for me or for you?”[^15] If we adapt that question to ourselves as we serve and ask, “Am I doing this for the Savior, or am I doing this for me?” our service will more likely resemble the ministry of the Savior. The Savior asked, and so should we, “What will ye that I shall do unto you?”[^16]
+Sometimes we are tempted to serve in a way that we want to serve and not necessarily in the way that is needed at the moment. When Elder Robert D. Hales taught the principle of provident living, he shared the example of buying a gift for his wife. She asked, “Are you buying this for me or for you?”[^15] If we adapt that question to ourselves as we serve and ask, “Am I doing this for the Savior, or am I doing this for me?” our service will more likely resemble the ministry of the Savior. The Savior asked, and so should we, “What will ye that I shall do unto you?”[^16]
 
 A few weeks ago, I was hurried and frazzled, with too many to-dos on my list. I had hoped to go to the temple that day but felt I was just too busy. As soon as that thought of being too busy for temple service crossed my mind, it awakened me to what I most needed to do. I left my office to walk over to the Salt Lake Temple, wondering when I was going to recapture the time I was losing. Thankfully, the Lord is patient and merciful and taught me a beautiful lesson that day.
 
@@ -65,9 +67,9 @@ May we all seek to first observe, then serve. As we do so, we are keeping covena
 
 [^2]: [[John 15.12|John 15:12]].
 
-[^3]: Thomas S. Monson, “What Have I Done for Someone Today?” *Liahona* and *Ensign,* Nov. 2009, 86.
+[^3]: Thomas S. Monson, “What Have I Done for Someone Today?” *Liahona* and *Ensign,* Nov. 2009, 86.
 
-[^4]: Canyon H., “A Good Choice,” *Friend,* Jan. 2012, 31.
+[^4]: Canyon H., “A Good Choice,” *Friend,* Jan. 2012, 31.
 
 [^5]: [[Matthew 5.44|Matthew 5:44]].
 
@@ -77,24 +79,19 @@ May we all seek to first observe, then serve. As we do so, we are keeping covena
 
 [^8]: [[Moroni 7.47|Moroni 7:47]].
 
-[^9]: Thomas S. Monson, “Charity Never Faileth,” *Liahona* and *Ensign,* Nov. 2010, 125; see also *Daughters in My Kingdom: The History and Work of Relief Society* (2011), 101.
+[^9]: Thomas S. Monson, “Charity Never Faileth,” *Liahona* and *Ensign,* Nov. 2010, 125; see also *Daughters in My Kingdom: The History and Work of Relief Society* (2011), 101.
 
-[^10]: [[3 Nephi 14.12|3 Nephi 14:12]].
+[^10]: [[3 Nephi 14.12|3 Nephi 14:12]].
 
 [^11]: Al VanLeeuwen, “Serving the One,” *Liahona,* Aug. 2012, 19; *Ensign,* Aug. 2012, 15; see also Sally DeFord, “If I Listen with My Heart,” *2011 Outline for Sharing Time,* 28.
 
-[^12]: [[3 Nephi 27.21|3 Nephi 27:21]].
+[^12]: [[3 Nephi 27.21|3 Nephi 27:21]].
 
-[^13]: Richard G. Scott, “The Eternal Blessings of Marriage,” *Liahona* and *Ensign,* May 2011, 96.
+[^13]: Richard G. Scott, “The Eternal Blessings of Marriage,” *Liahona* and *Ensign,* May 2011, 96.
 
 [^14]: [[Matthew 20.26|Matthew 20:26]].
 
-[^15]: Robert D. Hales, “Becoming Provident Providers Temporally and Spiritually,” *Liahona* and *Ensign,* May 2009, 9.
+[^15]: Robert D. Hales, “Becoming Provident Providers Temporally and Spiritually,” *Liahona* and *Ensign,* May 2009, 9.
 
 [^16]: [[Matthew 20.32|Matthew 20:32]].
 
-
-
-
-
-#Discipleship #Love #Service

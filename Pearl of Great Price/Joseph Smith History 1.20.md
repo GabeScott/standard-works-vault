@@ -5,7 +5,7 @@
 [Joseph Smith History 1:20](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.20?lang=eng#p20)
 
 
-[^a]: Dan. 10:9; [[1 Nephi 1.7|1 Ne. 1:7]]; [[Moses 1.9|Moses 1:9.]]
-[^b]: JS—H 1:4. TG [[Family, Love within]].
-[^c]: TG [[Devil, Church of]].
-[^d]: [[Jeremiah 11.19|Jer. 11:19]]; [[Matthew 10.22|Matt. 10:22]]; [[Moses 6.31|Moses 6:31 (31-37).]]
+[^a]: [[Daniel 10.9|Dan. 10:9]]; [[1 Nephi 1.7|1 Ne. 1:7]]; [[Moses 1.9|Moses 1:9]].  
+[^b]: [[Joseph Smith History 1.4|JS—H 1:4]]. [[Family, Love within|TG Family, Love within]].  
+[^c]: [[Devil|TG Devil]].  
+[^d]: [[Jeremiah 11.19|Jer. 11:19]]; [[Matthew 10.22|Matt. 10:22]]; [[Moses 6.31|Moses 6:31 (31–37)]][[Moses 6.32|]][[Moses 6.33|]][[Moses 6.34|]][[Moses 6.35|]][[Moses 6.36|]][[Moses 6.37|]].  

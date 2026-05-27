@@ -1,6 +1,8 @@
 # Five Million Members—A Milestone and Not a Summit
 
-By President Gordon B. Hinckley - *Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Gordon B. Hinckley - *Counselor in the First Presidency*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -10,7 +12,7 @@ As you have heard, earlier this week the membership of the Church reached five m
 
 And those of their generation who with bitterness predicted that it would fade and die must, if they are in any position to know, look with wonder and frustration at what God has wrought. For this is his work, and he has brought it to its present strength through his miraculous power. He it was who opened it in this dispensation of time. In that process he used as his instrument a boy whose mind was clean and unencumbered, into which could be infused the instruction of divine beings and the revelation that comes through the Holy Spirit.
 
-It was God who planted in the hearts of men and women the faith to see a chosen prophet in the young man Joseph Smith. It was the Spirit of God that opened their eyes to the miracle of this remarkable Book of Mormon, which was brought forth as a voice speaking from the dust in testimony that Jesus is the Christ. (See [[2 Nephi 33.13|2 Ne. 33:13]].)
+It was God who planted in the hearts of men and women the faith to see a chosen prophet in the young man Joseph Smith. It was the Spirit of God that opened their eyes to the miracle of this remarkable Book of Mormon, which was brought forth as a voice speaking from the dust in testimony that Jesus is the Christ. (See [[2 Nephi 33.13|2 Ne. 33:13]].)
 
 He it was who gave strength and courage when the very powers of hell were marshaled against the infant Church and against those few who comprised its membership. Thanks be to him, those days are behind us. Gone are the terrors of forced winter marches, of burning homes and desecrated temples, of unmarked prairie graves and sobbings in the night of those bereft and lonely.
 
@@ -30,7 +32,7 @@ I have no doubt whatever that this work will continue to grow in magnitude. I am
 
 The first: We must hold fast to the doctrine.
 
-The gospel for me is not complex. It is a beautiful and simple pattern, a constant source of strength, a wellspring of faith. The keystone of that doctrine is that God is our Eternal Father and Jesus is the Christ, our living Redeemer. We are sons and daughters of God. He loves us and invites us to love him, showing that love through service to others of his children. His Beloved Son is our Savior, who gave his life on the cross of Calvary as a vicarious sacrifice for the sins of mankind. By the power of his divine Sonship he rose from the grave, becoming “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]), assuring for all a resurrection from the dead and inviting each of us to partake of eternal life according to our obedience to his laws and commandments.
+The gospel for me is not complex. It is a beautiful and simple pattern, a constant source of strength, a wellspring of faith. The keystone of that doctrine is that God is our Eternal Father and Jesus is the Christ, our living Redeemer. We are sons and daughters of God. He loves us and invites us to love him, showing that love through service to others of his children. His Beloved Son is our Savior, who gave his life on the cross of Calvary as a vicarious sacrifice for the sins of mankind. By the power of his divine Sonship he rose from the grave, becoming “the firstfruits of them that slept” ([[1 Corinthians 15.20|1 Cor. 15:20]]), assuring for all a resurrection from the dead and inviting each of us to partake of eternal life according to our obedience to his laws and commandments.
 
 They, that is, the Father and the Son, appeared to the boy Joseph Smith in a most glorious and wonderful manifestation to open this, the dispensation of the fulness of times. (See [[D&C 112.30|D&C 112:30]].) All of the elements of previous bestowals of divine teaching and authority are now brought together through restoration in a final and everlasting dispensation.
 
@@ -38,7 +40,7 @@ God has not left us in ignorance to walk in darkness. His word, spoken both anci
 
 My second imperative: We must implement that doctrine more fully in our lives.
 
-The most persuasive gospel tract is the exemplary life of a faithful Latter-day Saint. We live in a time when the pressures of life make it so easy and so tempting, in fulfillment of the words of Nephi, to commit “a little sin; yea, lie a little, take the advantage of one because of his words, dig a pit for thy neighbor; … turn aside the just for a thing of naught and revile against that which is good.” ([[2 Nephi 28.8|2 Ne. 28:8, 16]][[2 Nephi 28.16|]].)
+The most persuasive gospel tract is the exemplary life of a faithful Latter-day Saint. We live in a time when the pressures of life make it so easy and so tempting, in fulfillment of the words of Nephi, to commit “a little sin; yea, lie a little, take the advantage of one because of his words, dig a pit for thy neighbor; … turn aside the just for a thing of naught and revile against that which is good.” ([[2 Nephi 28.8|2 Ne. 28:8, 16]][[2 Nephi 28.16|]].)
 
 Said the Savior while speaking on the mount: “Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.” ([[Matthew 5.16|Matt. 5:16]].)
 
@@ -93,8 +95,3 @@ In reaching a membership of five million, we have reached a milestone. It must n
 
 
 
-
-
-
-
-#Endurance #Love #Obedience

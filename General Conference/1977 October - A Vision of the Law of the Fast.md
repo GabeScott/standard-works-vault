@@ -1,6 +1,8 @@
 # A Vision of the Law of the Fast
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Spencer W. Kimball
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -10,15 +12,15 @@ As with other eternal laws, great blessings are predicated upon observing the la
 
 The importance of this relationship cannot be overemphasized. The one who consecrates his fast by a generous offering is in fact providing food, clothing, and shelter for the poor and is sanctified by his sacrifice.
 
-President Spencer W. Kimball expanded our vision of being generous in our offerings to the Lord when he said (and again repeated this morning):
+President Spencer W. Kimball expanded our vision of being generous in our offerings to the Lord when he said (and again repeated this morning):
 
-“Sometimes we have been a bit penurious and figured that we had for breakfast one egg and that cost so many cents and then we give that to the Lord. I think that when we are affluent, as many of us are, that we ought to be very, very generous. …
+“Sometimes we have been a bit penurious and figured that we had for breakfast one egg and that cost so many cents and then we give that to the Lord. I think that when we are affluent, as many of us are, that we ought to be very, very generous. …
 
 “I think we should be very generous and give, instead of the amount we saved by our two meals of fasting, perhaps much, much more—ten times more where we are in a position to do it.” (*Conference Report,* April 1974, p. 184.)
 
 Since President Kimball issued this call 3 1/2 years ago, fast offering donations have increased substantially. These sacred funds have blessed many Church members in all parts of the world. Those who received were certainly blessed, but those who gave were even more so. When we give generously to the Lord, we receive from him that which is of greater value than our offering. When we keep his commandments, “He doth immediately bless” us. ([[Mosiah 2.24|Mosiah 2:24]].) It is impossible to place the Lord in our debt.
 
-Some time ago, Dr. James O. Mason, who was associated with us in the Welfare Services Department, was visiting one of the developing countries of the world. A teenage boy asked him if he would please bring a gift to President Kimball. The gift was a sketch he had drawn of a peacock with its tail feather in full fan. It was done so carefully—each feather in place—in such beautiful color. As we saw it, we marveled at the artistry of the boy and asked further about him. In response, Dr. Mason handed us a picture of this lad. He had no arms. A birth defect had left him crippled, and yet he had developed his artistic talent so as to draw this beautiful, intricate rendering by holding his pencils between his toes.
+Some time ago, Dr. James O. Mason, who was associated with us in the Welfare Services Department, was visiting one of the developing countries of the world. A teenage boy asked him if he would please bring a gift to President Kimball. The gift was a sketch he had drawn of a peacock with its tail feather in full fan. It was done so carefully—each feather in place—in such beautiful color. As we saw it, we marveled at the artistry of the boy and asked further about him. In response, Dr. Mason handed us a picture of this lad. He had no arms. A birth defect had left him crippled, and yet he had developed his artistic talent so as to draw this beautiful, intricate rendering by holding his pencils between his toes.
 
 We were asked if the Church had funds that could be used to fit him with artificial limbs. We assured the mission president there were funds, but only after his family had done all they could. When we had the assurance that the family had complied with Welfare Services principles, funds were made available.
 
@@ -40,7 +42,7 @@ This was Amulek, who had been specially prepared to receive a prophet of God and
 
 The greatest lesson ever taught with regard to fasting was taught by the Savior himself. In St. Luke we read:
 
-“… Being forty days tempted of the devil. And in those days he did eat nothing; and when they were ended, he afterward hungered.
+“… Being forty days tempted of the devil. And in those days he did eat nothing; and when they were ended, he afterward hungered.
 
 “And the devil said unto him, If thou be the Son of God, command this stone that it be made bread.
 
@@ -72,9 +74,9 @@ Commitment to act is the key to exercising any gospel principle. We must actuall
 
 When we fast, we must work in appropriate ways to do everything we can to accomplish the purpose of our fast. The fast is most effective when we have done all that is within our power. Often this commitment involves the willingness to change, to put aside feelings and attitudes standing in our path, to forgive, to be strong, to make sacrifices, to exert energy toward our righteous goal.
 
-In conclusion, may I read a message given by President Harold B. Lee thirty-six years ago this conference:
+In conclusion, may I read a message given by President Harold B. Lee thirty-six years ago this conference:
 
-“I have had difficulty understanding how a people who are not able to sacrifice to a point where they can pay a tenth of their interest annually and abstain from two meals on the first Sunday of the month and pay that as an offering for the care of the needy, I have difficulty in understanding how we can believe that many of our people are more than ten per cent ready for the United Order. …
+“I have had difficulty understanding how a people who are not able to sacrifice to a point where they can pay a tenth of their interest annually and abstain from two meals on the first Sunday of the month and pay that as an offering for the care of the needy, I have difficulty in understanding how we can believe that many of our people are more than ten per cent ready for the United Order. …
 
 “We have come, yes, in a day when ‘the way of the Lord,’ as he described it, would be applied, when the poor would be exalted, or in other words stimulated to success and pride, and uplifted because the rich have been made low, or in other words, because the rich have been made humble and willing to give of their substance, their time, and their talent, and their wisdom, and their example that the poor might be thus guided and directed. I have seen team work and cooperation grow, and I have seen the priesthood take its place in blessing this Church temporally and spiritually in a most glorious way.
 
@@ -87,8 +89,3 @@ May we, the Priesthood and Relief Society officers of the Church throughout the 
 
 
 
-
-
-
-
-#Fasting

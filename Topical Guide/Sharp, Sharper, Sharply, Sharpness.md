@@ -1,11 +1,10 @@
 # Sharp, Sharper, Sharply, Sharpness
 
-
 took a *sharp* stone, and cut off the foreskin, [[Exodus 4.25|Exodus 4:25]].
 
 Make thee *sharp* knives, and circumcise again, [[Joshua 5.2|Joshua 5:2]].
 
-her end is ... *sharp* as a twoedged sword, [[Proverbs 5.4|Proverbs 5:4]].
+her end is … *sharp* as a twoedged sword, [[Proverbs 5.4|Proverbs 5:4]].
 
 I will make thee a new *sharp* threshing instrument, [[Isaiah 41.15|Isaiah 41:15]].
 
@@ -19,7 +18,7 @@ in his hand a *sharp* sickle, [[Revelation 14.14|Revelation 14:14]].
 
 he hath made my mouth like a *sharp* sword, [[1 Nephi 21.2|1 Nephi 21:2]].
 
-have murmured because ... he hath used *sharpness*, [[2 Nephi 1.26|2 Nephi 1:26]] ([[Moroni 9.4|Moroni 9:4]]).
+have murmured because … he hath used *sharpness*, [[2 Nephi 1.26|2 Nephi 1:26]] ([[Moroni 9.4|Moroni 9:4]]).
 
 there were exceedingly *sharp* lightnings, [[3 Nephi 8.7|3 Nephi 8:7]].
 

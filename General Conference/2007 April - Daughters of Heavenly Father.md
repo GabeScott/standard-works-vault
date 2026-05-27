@@ -1,5 +1,7 @@
 # Daughters of Heavenly Father
 
+Thomas S. Monson
+
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2007 General Conference*
@@ -34,7 +36,7 @@ Has your mother or father ever reminded you as you were leaving the house to “
 
 When I was called to serve you, the young women of this Church, I knew I had to behave appropriately. One day one of my daughters got a ticket for parking her car on the street with an expired registration sticker. I took matters into my own hands and went marching into the city government building to explain that the registration papers were currently on their way to us through the mail. As I walked resolutely through the door, someone said to me, “I know who you are.” That stopped me and reminded me that I also needed to remember who I am—not just the Young Women general president, but most especially a daughter of God.
 
-In relationships we must remember that others are also children of our Heavenly Father. At the first of our marriage, my husband said quite often, “I didn’t marry you for your looks.” Finally I teased him a bit by saying, “That really doesn’t sound too flattering.” He explained what I really already knew, that this was intended to be the highest compliment he could give me. He said, “I love you for who you are intrinsically and eternally.” The Lord said: “Look not on his countenance, or on the height of his stature; … for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Samuel 16:7]]). In families, friendships, dating, and marriage, we should value not just beauty and résumés, but rather character, good values, and each other’s inherited divine natures.
+In relationships we must remember that others are also children of our Heavenly Father. At the first of our marriage, my husband said quite often, “I didn’t marry you for your looks.” Finally I teased him a bit by saying, “That really doesn’t sound too flattering.” He explained what I really already knew, that this was intended to be the highest compliment he could give me. He said, “I love you for who you are intrinsically and eternally.” The Lord said: “Look not on his countenance, or on the height of his stature; … for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart” ([[1 Samuel 16.7|1 Samuel 16:7]]). In families, friendships, dating, and marriage, we should value not just beauty and résumés, but rather character, good values, and each other’s inherited divine natures.
 
 In a stake in Chile the young women did this at camp by keeping a book of each other’s virtuous qualities. Each day they got better acquainted and wrote down the intrinsic good they were learning about each person there. At the end of the camp, they shared their thoughts, helping each person to see more of the divinity within herself. Their leader said, “We were literally basking in this wonderful spirit of kindness and goodwill. I can honestly say that I never heard a word of complaint from the girls! They were flourishing in a sweet spirit of mutual acceptance that is not often present among teenage girls. There was no competition, no contention. Our camp had become a little bit of heaven” (personal correspondence). The girls recognized and reaffirmed the divine natures of each other, and the Spirit filled the camp as these virtuous thoughts were expressed.
 
@@ -53,8 +55,3 @@ In conclusion let me share an experience that is tender and even sacred to me. W
 
 
 
-
-
-
-
-#Divine_Nature #Example #Individual_Worth #Love #Unity

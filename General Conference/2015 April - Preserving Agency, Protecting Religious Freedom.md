@@ -1,6 +1,8 @@
 # Preserving Agency, Protecting Religious Freedom
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -40,9 +42,9 @@ There are four cornerstones of religious freedom that we as Latter-day Saints mu
 
 The first is freedom to believe. No one should be criticized, persecuted, or attacked by individuals, or governments either, for what he or she believes about God. It is very personal and very important. An early declaration of our beliefs regarding religious liberty states:
 
-“No government can exist in peace, except such laws are framed and held inviolate as will secure to each individual the free exercise of conscience. …
+“No government can exist in peace, except such laws are framed and held inviolate as will secure to each individual the free exercise of conscience. …
 
-“… The civil magistrate should restrain crime, but never control conscience \[or\] suppress the freedom of the soul.”[^9]
+“… The civil magistrate should restrain crime, but never control conscience \[or\] suppress the freedom of the soul.”[^9]
 
 This fundamental freedom of belief has since been acknowledged by the United Nations in its Universal Declaration of Human Rights and by other national and international human rights documents.[^10]
 
@@ -85,7 +87,7 @@ Of our Savior, we sing, “His precious blood he freely spilt; His life he freel
 
 
 
-[^1]: [[2 Timothy 3.3|2 Timothy 3:3]].
+[^1]: [[2 Timothy 3.3|2 Timothy 3:3]].
 
 [^2]: [[Isaiah 5.20|Isaiah 5:20]].
 
@@ -99,11 +101,11 @@ Of our Savior, we sing, “His precious blood he freely spilt; His life he freel
 
 [^7]: [[Moses 4.2|Moses 4:2]].
 
-[^8]: [[2 Corinthians 3.17|2 Corinthians 3:17]].
+[^8]: [[2 Corinthians 3.17|2 Corinthians 3:17]].
 
 [^9]: [[D&C 134.2|Doctrine and Covenants 134:2, 4]][[D&C 134.4|]].
 
-[^10]: See the Universal Declaration of Human Rights, adopted by United Nations General Assembly on Dec. 10, 1948; un.org/en/documents/udhr. Article 18 states: “Everyone has the right to freedom of thought, conscience and religion; this right includes freedom to change his religion or belief, and freedom, either alone or in community with others and in public or private, to manifest his religion or belief in teaching, practice, worship and observance.” See also article 9 of Europe’s Convention for the Protection of Human Rights and Fundamental Freedoms, ratified on Sept. 3, 1953; conventions.coe.int/treaty/en/treaties/html/005.htm.
+[^10]: See the Universal Declaration of Human Rights, adopted by United Nations General Assembly on Dec. 10, 1948; un.org/en/documents/udhr. Article 18 states: “Everyone has the right to freedom of thought, conscience and religion; this right includes freedom to change his religion or belief, and freedom, either alone or in community with others and in public or private, to manifest his religion or belief in teaching, practice, worship and observance.” See also article 9 of Europe’s Convention for the Protection of Human Rights and Fundamental Freedoms, ratified on Sept. 3, 1953; conventions.coe.int/treaty/en/treaties/html/005.htm.
 
 [^11]: [[Deuteronomy 11.19|Deuteronomy 11:19]].
 
@@ -131,10 +133,5 @@ Of our Savior, we sing, “His precious blood he freely spilt; His life he freel
 
 [^23]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-[^24]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^24]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
-
-
-
-
-#Agency #Jesus_Christ #Missionary_Work #Plan_Of_Salvation #Religious_Freedom

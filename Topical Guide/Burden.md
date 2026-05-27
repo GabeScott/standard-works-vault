@@ -1,7 +1,6 @@
 # Burden
 
-
-*See also* [[Affliction.md|Affliction]]; [[Oppression, Oppress.md|Oppression]]; [[Suffering.md|Suffering]]
+*See also* [[Affliction.md|Affliction]]; [[Oppression.md|Oppression]]; [[Suffering.md|Suffering]]
 
 taskmasters to afflict them with their *burdens*, [[Exodus 1.11|Exodus 1:11]].
 
@@ -15,7 +14,7 @@ Cast thy *burden* upon the Lord, [[Psalms 55.22|Psalms 55:22]].
 
 his *burden* depart from off their shoulders, [[Isaiah 14.25|Isaiah 14:25]] ([[2 Nephi 24.25|2 Nephi 24:25]]).
 
-Is not this the fast ... to undo the heavy *burdens*, [[Isaiah 58.6|Isaiah 58:6]].
+Is not this the fast … to undo the heavy *burdens*, [[Isaiah 58.6|Isaiah 58:6]].
 
 bear no *burden* on the sabbath day, [[Jeremiah 17.21|Jeremiah 17:21]].
 
@@ -27,7 +26,7 @@ they bind heavy *burdens* and grievous to be borne, [[Matthew 23.4|Matthew 23:4]
 
 no greater *burden* than these necessary things, [[Acts 15.28|Acts 15:28]].
 
-Bear ye one another's *burdens*, [[Galatians 6.2|Galatians 6:2]].
+Bear ye one another’s *burdens*, [[Galatians 6.2|Galatians 6:2]].
 
 every man shall bear his own *burden*, [[Galatians 6.5|Galatians 6:5]].
 

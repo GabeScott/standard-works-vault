@@ -1,5 +1,7 @@
 # “By Way of Invitation” (Alma 5:62)
 
+Gordon B. Hinckley
+
 By Betty Jo N. Jepsen - *First Counselor in the Primary General Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -18,7 +20,7 @@ In this latter day I have been invited to witness marvelous things for myself. T
 
 The prophet Alma, the son of Alma, carried this important message to the members in Zarahemla who needed to be reminded. The prophet said:
 
-“Behold, he sendeth an invitation unto all men, for the arms of mercy are extended towards them, and he saith: Repent, and I will receive you. …
+“Behold, he sendeth an invitation unto all men, for the arms of mercy are extended towards them, and he saith: Repent, and I will receive you. …
 
 “Yea, come unto me and bring forth works of righteousness” ([[Alma 5.33|Alma 5:33, 35]][[Alma 5.35|]]).
 
@@ -26,7 +28,7 @@ As a baptized member of the Church, I hear the invitation, and I wonder, How do 
 
 ## Search the Word of God
 
-We can search the word of God. Through studying and pondering the scriptures and the words of the latter-day prophets, we can *feast* upon the words of Christ, and the words will tell us all the things that we should do (see [[2 Nephi 32.3|2 Ne. 32:3]]). Then we must *nourish the word* and allow it to *take root* (see [[Alma 32.41|Alma 32:41–43]][[Alma 32.42|]][[Alma 32.43|]]). After we hearken to the word and hold fast to it, we are promised that temptations and the fiery darts of the adversary will not overpower us (see [[1 Nephi 15.24|1 Ne. 15:24]]). We will be able to recognize the truth when we hear it just as the shepherds and the Wise Men knew when they were told about the Savior’s birth. The scriptures are the word of God and a light to us and the world, and we can follow this light as if they were our guiding star.
+We can search the word of God. Through studying and pondering the scriptures and the words of the latter-day prophets, we can *feast* upon the words of Christ, and the words will tell us all the things that we should do (see [[2 Nephi 32.3|2 Ne. 32:3]]). Then we must *nourish the word* and allow it to *take root* (see [[Alma 32.41|Alma 32:41–43]][[Alma 32.42|]][[Alma 32.43|]]). After we hearken to the word and hold fast to it, we are promised that temptations and the fiery darts of the adversary will not overpower us (see [[1 Nephi 15.24|1 Ne. 15:24]]). We will be able to recognize the truth when we hear it just as the shepherds and the Wise Men knew when they were told about the Savior’s birth. The scriptures are the word of God and a light to us and the world, and we can follow this light as if they were our guiding star.
 
 ## Pray
 
@@ -57,8 +59,3 @@ I pray that Heavenly Father will help us be wise men and wise women—wise enoug
 
 
 
-
-
-
-
-#Christmas #Prayer #Scripture_Study #Service

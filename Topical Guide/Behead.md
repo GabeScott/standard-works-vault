@@ -1,6 +1,5 @@
 # Behead
 
-
 he sent, and *beheaded* John in the prison, [[Matthew 14.10|Matthew 14:10]] ([[Mark 6.27|Mark 6:27]]).
 
 John, whom I *beheaded*: he is risen, [[Mark 6.16|Mark 6:16]].

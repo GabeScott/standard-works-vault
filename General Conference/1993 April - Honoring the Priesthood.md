@@ -1,5 +1,7 @@
 # Honoring the Priesthood
 
+Thomas S. Monson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1993 General Conference*
@@ -20,13 +22,13 @@ Differences exist in practice and organization between the Lord’s Church and m
 
 The Church of Jesus Christ of Latter-day Saints, however, is neither a democracy nor a republic. His is a kingdom—the kingdom of God on earth. His is a hierarchical church, with ultimate authority at the top. The Lord directs His anointed servants. They testify to all the world that God has again spoken. The heavens have been opened. A living linkage has been formed between heaven and earth in our day.
 
-That supreme authority is supported by a firm foundation following an organizational pattern established anciently. Jesus Christ is the chief cornerstone, with Apostles and prophets and all the gifts, powers, and blessings that characterized the Church in earlier days (see [[1 Corinthians 12.28|1 Cor. 12:28]]).
+That supreme authority is supported by a firm foundation following an organizational pattern established anciently. Jesus Christ is the chief cornerstone, with Apostles and prophets and all the gifts, powers, and blessings that characterized the Church in earlier days (see [[1 Corinthians 12.28|1 Cor. 12:28]]).
 
 ## Leaders and Titles
 
 Secular and spiritual institutions have differing patterns of leadership. Man-made organizations are governed by officers with titles that designate rank or accomplishment. A military officer, judge, senator, doctor, or professor is properly addressed by title. We appropriately honor individuals who have attained such positions.
 
-In contrast, the kingdom of God is governed by the authority of the priesthood. It is not conferred for honor, but for a ministry of service. Priesthood titles are not created by man; neither are they for adornment, nor do they express mastership. They denote appointment to service in the work of the Lord. We are called, sustained, and ordained—not by ourselves, but “by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” ([[Articles of Faith 1.5|A of F 1:5]]; see also [[Hebrews 5.4|Heb. 5:4]]).
+In contrast, the kingdom of God is governed by the authority of the priesthood. It is not conferred for honor, but for a ministry of service. Priesthood titles are not created by man; neither are they for adornment, nor do they express mastership. They denote appointment to service in the work of the Lord. We are called, sustained, and ordained—not by ourselves, but “by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” ([[Articles of Faith 1.5|A of F 1:5]]; see also [[Hebrews 5.4|Heb. 5:4]]).
 
 Titles pertaining to the holy priesthood deserve our utmost care and respect. Each member of the First Presidency is addressed and spoken of as “President” (see [[D&C 107.22|D&C 107:22]]). The title *President* is also used when referring to the presidency of a stake or mission, and in reference to a quorum or branch president. The title *Apostle* is sacred. It has been given of God and belongs only to those who have been called and ordained as “special witnesses of the name of Christ in all the world” ([[D&C 107.23|D&C 107:23]]). An Apostle speaks in the name of Him whose special witness he is. This hallowed title is not used in ordinary forms of address. The preferred title for one of the Twelve is *Elder* or *Brother.*
 
@@ -44,7 +46,7 @@ We honor such a man because of his extraordinary calling. His official acts are 
 
 Often we speak of *keys* of priesthood authority. Fifteen living men—the First Presidency and the Twelve—have been ordained as Apostles and have had *all* keys of priesthood authority conferred upon them. President Gordon B. Hinckley recently explained:
 
-“Only the President of the Church has the right to exercise \[those keys\] in their fulness. He may delegate the exercise of various of them to one or more of his Brethren. …
+“Only the President of the Church has the right to exercise \[those keys\] in their fulness. He may delegate the exercise of various of them to one or more of his Brethren. …
 
 “Such agency has been given by President Benson to his Counselors and to the Twelve according to various responsibilities delegated to them.”[^5]
 
@@ -119,24 +121,19 @@ Brethren, to all mankind we proclaim these everlasting truths: “The Melchizede
 
 [^2]: President George Q. Cannon said: “\[Honoring the President of the Church\] will cause us to draw nearer unto the Father and live so that we shall receive revelation from him for ourselves, that the knowledge of the Spirit shall be in our hearts, that the voice of the true Shepherd will be known to our ears, that when we hear it we will know it. … This is the privilege of the Latter-day Saints, and the man and woman in this Church who does not live so as to enjoy this privilege comes short of being what he should be” (in *Journal of Discourses,* 19:110).
 
-[^3]: “The Unique Commission of a General Authority” (address delivered at a General Authority training meeting, 2 Oct. 1985), p. 5.
+[^3]: “The Unique Commission of a General Authority” (address delivered at a General Authority training meeting, 2 Oct. 1985), p. 5.
 
-[^4]: “Commission,” p. 1.
+[^4]: “Commission,” p. 1.
 
-[^5]: In Conference Report, Oct. 1992, p. 77; or *Ensign,* Nov. 1992, p. 54.
+[^5]: In Conference Report, Oct. 1992, [[1992 October - The Church Is on Course.md|p. 77]]; or *Ensign,* Nov. 1992, p. 54.
 
-[^6]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 21.
+[^6]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 21.
 
 [^7]: *Messages of the First Presidency,* 4:306.
 
-[^8]: James E. Faust, “A Seventy Is a General Authority” (address delivered at a special training session for the Seventy, 29 Sept. 1987), p. 4.
+[^8]: James E. Faust, “A Seventy Is a General Authority” (address delivered at a special training session for the Seventy, 29 Sept. 1987), p. 4.
 
-[^9]: “Commission,” p. 9.
+[^9]: “Commission,” p. 9.
 
 [^10]: *History of the Church,* 2:177.
 
-
-
-
-
-#Leadership #Priesthood #Respect

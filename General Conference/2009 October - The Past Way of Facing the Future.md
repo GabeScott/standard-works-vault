@@ -1,5 +1,7 @@
 # The Past Way of Facing the Future
 
+Thomas S. Monson
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2009 General Conference*
@@ -26,11 +28,11 @@ Many weary pioneers had just started to enjoy some of the modest comforts of lif
 
 Upon my return from my visit to Sanpete County, I felt the desire to learn more about its early pioneers. I decided to spend a few hours in the new Church History Library and read a little about their history.
 
-It was in the year 1849, just two years after they had arrived in the Salt Lake Valley, when Brigham Young, the great colonizer of the West, called a group of Saints to journey south and start building their homes and communities all over again in another desert wasteland. A short time after they had settled in Sanpete, President Heber C. Kimball, a counselor to President Brigham Young, visited the Manti community and promised them that on the hill overlooking the valley, a temple would be built using stone from the mountains to the east.
+It was in the year 1849, just two years after they had arrived in the Salt Lake Valley, when Brigham Young, the great colonizer of the West, called a group of Saints to journey south and start building their homes and communities all over again in another desert wasteland. A short time after they had settled in Sanpete, President Heber C. Kimball, a counselor to President Brigham Young, visited the Manti community and promised them that on the hill overlooking the valley, a temple would be built using stone from the mountains to the east.
 
 Some years passed after the visit of President Kimball, and the citizens began to be anxious that nothing was being done to construct a temple for their use. “We must have a temple in our community,” declared one of the citizens. “We have waited long enough for this blessing.” Another one said, “If we are going to have a temple, we had better get busy and build it.” And that is just what they did.
 
-The cornerstone was laid on April 14, 1879, some 30 years after they had arrived in the Sanpete Valley. There are many stories that could be told about the diligence of the workmen, who put their very best into the construction of this beautiful temple. President Gordon B. Hinckley said several years ago at the rededication of the Manti Temple, “I have been in the world’s great buildings, and in none of these have I had the feeling I get in coming to these pioneer houses of God.”[^3] The Hinckley family has a very special connection with the Manti Temple. Sister Marjorie Hinckley’s grandfather lost his life from an injury sustained in its construction.
+The cornerstone was laid on April 14, 1879, some 30 years after they had arrived in the Sanpete Valley. There are many stories that could be told about the diligence of the workmen, who put their very best into the construction of this beautiful temple. President Gordon B. Hinckley said several years ago at the rededication of the Manti Temple, “I have been in the world’s great buildings, and in none of these have I had the feeling I get in coming to these pioneer houses of God.”[^3] The Hinckley family has a very special connection with the Manti Temple. Sister Marjorie Hinckley’s grandfather lost his life from an injury sustained in its construction.
 
 To better understand how the past can provide a better way of facing the future, I would like to share an account from the building of the Manti Temple. Then I want to share what it has taught me about true principles.
 
@@ -46,7 +48,7 @@ When we received the special blessing of knowledge of the gospel of Jesus Christ
 
 We have discovered that ward-based missionary work increases member involvement in finding and teaching investigators. Often investigators are invited to receive the missionary lessons in members’ homes. Ward members become more excited to share their precious knowledge of the gospel of Jesus Christ when they directly experience the sweet blessings of missionary service and they receive more regular reminders from their ward leaders. Members become more inclusive as they ponder and pray about sharing the gospel with friends, neighbors, and family members of other faiths.
 
-President Gordon B. Hinckley taught: “So many of us look upon missionary work as simply tracting. Everyone who is familiar with this work knows there is a better way. That way is through the members of the Church. Whenever there is a member who introduces an investigator, there is an immediate support system. The member bears testimony of the truth of the work. He is anxious for the happiness of his investigator friend. He becomes excited as that friend makes progress in learning the gospel.”[^4]
+President Gordon B. Hinckley taught: “So many of us look upon missionary work as simply tracting. Everyone who is familiar with this work knows there is a better way. That way is through the members of the Church. Whenever there is a member who introduces an investigator, there is an immediate support system. The member bears testimony of the truth of the work. He is anxious for the happiness of his investigator friend. He becomes excited as that friend makes progress in learning the gospel.”[^4]
 
 The full-time missionaries will continue to do most of the actual teaching of investigators, but members will have ample opportunity to answer questions and share their testimonies. We heed the prophet’s voice more fully by preparing ourselves to teach basic gospel principles. Preparation removes fear. It also simplifies and strengthens what the members do in support of the full-time missionaries. There are three basic lessons the full-time missionaries teach: the Restoration, the plan of salvation, and the gospel of Jesus Christ. How prepared are you to give witness and testimony to the truthfulness of these very basic lessons? Use the inspired missionary manual *Preach My Gospel* to study and prepare yourself to play that supporting role to the full-time missionaries as they teach these basic gospel discussions.
 
@@ -57,16 +59,11 @@ The gospel of Jesus Christ is true. It has been restored to bless our lives in t
 
 
 
-[^1]: Ronald Reagan, quoted in George F. Will, “One Man’s America,” *Cato Policy Report,* Sept.–Oct. 2008, 11.
+[^1]: Ronald Reagan, quoted in George F. Will, “One Man’s America,” *Cato Policy Report,* Sept.–Oct. 2008, 11.
 
 [^2]: Brigham Young, quoted in Wilford Woodruff, “Celebration of Pioneers’ Day,” *The Utah Pioneers* (1880), 23.
 
 [^3]: Gordon B. Hinckley, quoted in “Manti Temple Rededicated,” *Ensign,* Aug. 1985, 73.
 
-[^4]: Gordon B. Hinckley, “Find the Lambs, Feed the Sheep,” *Liahona,* July 1999, 119; *Ensign,* May 1999, 105.
+[^4]: Gordon B. Hinckley, “Find the Lambs, Feed the Sheep,” *Liahona,* July 1999, 119; *Ensign,* May 1999, 105.
 
-
-
-
-
-#Missionary_Work #Pioneers #Temples

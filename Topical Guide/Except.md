@@ -1,6 +1,5 @@
 # Except
 
-
 *Except* the Lord build the house, [[Psalms 127.1|Psalms 127:1]].
 
 Can two walk together, *except* they be agreed, [[Amos 3.3|Amos 3:3]].

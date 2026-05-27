@@ -1,5 +1,7 @@
 # True Friends That Lift
 
+Ezra Taft Benson
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -62,17 +64,17 @@ It is written:
 
 The Book of Mormon records these comforting words of the Savior:
 
-“Blessed are the poor in spirit who come unto me, for theirs is the kingdom of heaven. …
+“Blessed are the poor in spirit who come unto me, for theirs is the kingdom of heaven. …
 
-“Blessed are all they that mourn, for they shall be comforted. …
+“Blessed are all they that mourn, for they shall be comforted. …
 
-“Blessed are the meek, for they shall inherit the earth. …
+“Blessed are the meek, for they shall inherit the earth. …
 
-“Blessed are all they who hunger and thirst after righteousness, for they shall be filled with the Holy Ghost. …
+“Blessed are all they who hunger and thirst after righteousness, for they shall be filled with the Holy Ghost. …
 
-“Blessed are the merciful, for they shall obtain mercy. …
+“Blessed are the merciful, for they shall obtain mercy. …
 
-“Blessed are the pure in heart, for they shall see God.” ([[3 Nephi 12.3|3 Ne. 12:3–8]][[3 Nephi 12.4|]][[3 Nephi 12.5|]][[3 Nephi 12.6|]][[3 Nephi 12.7|]][[3 Nephi 12.8|]].)
+“Blessed are the pure in heart, for they shall see God.” ([[3 Nephi 12.3|3 Ne. 12:3–8]][[3 Nephi 12.4|]][[3 Nephi 12.5|]][[3 Nephi 12.6|]][[3 Nephi 12.7|]][[3 Nephi 12.8|]].)
 
 When Jesus prayed to his father in humility, faith, and obedience for others, his Father answered. When he prayed for strength and comfort in his hour of greatest need and took upon himself the sins of the world and gave his atoning sacrifice, that upon repentance we could enjoy the miracle of forgiveness, his Father answered.
 
@@ -81,8 +83,3 @@ He is your Father; pray to him. If your life is in disarray and you feel uncomfo
 
 
 
-
-
-
-
-#Book_Of_Mormon #Jesus_Christ

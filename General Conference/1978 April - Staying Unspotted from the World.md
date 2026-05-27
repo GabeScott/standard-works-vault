@@ -1,6 +1,8 @@
 # Staying Unspotted from the World
 
-By Elder George P. Lee - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder George P. Lee - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -16,7 +18,7 @@ And now, in these last days, in these crucial, perilous times, young people, you
 
 To help you prepare for the Lord to use you, may I offer the following suggestions to assist you to be unspotted from the world:
 
-1. Beloved youth, it is the will of God that you be virtuous. You are very elect, you are choice, you are sons and daughters of God. You can be virtuous. The Lord said: “Let virtue garnish thy thoughts unceasingly.” ([[D&C 121.45|D&C 121:45]].)Of all the possessions that you have, young people, virtue is the most important. It is a pearl of great price. People can strive, toil, and sweat all their lives for fame and wealth, but your greatest wealth and fame will come from virtuous living. The wealth and fame that come from virtuous living are peace with yourself, your fellowmen, and with God, the joys and happiness of righteous living. The fame of having your name recorded in Heavenly Father’s book of life as one who is true and faithful and loves the Lord is far more important than being honored with the praises and glories of the world.Let virtue and purity be your shield and armor, and you will be invincible. As priceless as virtue is, wear it openly and do not keep it in a vault like crown jewels.Paul declared, “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.17|1 Cor. 3:17]].)Do not mock God, young people. Virtue is the law of God.
+1. Beloved youth, it is the will of God that you be virtuous. You are very elect, you are choice, you are sons and daughters of God. You can be virtuous. The Lord said: “Let virtue garnish thy thoughts unceasingly.” ([[D&C 121.45|D&C 121:45]].)Of all the possessions that you have, young people, virtue is the most important. It is a pearl of great price. People can strive, toil, and sweat all their lives for fame and wealth, but your greatest wealth and fame will come from virtuous living. The wealth and fame that come from virtuous living are peace with yourself, your fellowmen, and with God, the joys and happiness of righteous living. The fame of having your name recorded in Heavenly Father’s book of life as one who is true and faithful and loves the Lord is far more important than being honored with the praises and glories of the world.Let virtue and purity be your shield and armor, and you will be invincible. As priceless as virtue is, wear it openly and do not keep it in a vault like crown jewels.Paul declared, “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are.” ([[1 Corinthians 3.17|1 Cor. 3:17]].)Do not mock God, young people. Virtue is the law of God.
 
 2. Young friends, it is the will of God that you pray unceasingly. As a young boy on the Navajo reservation, many times I found myself on my knees in our small humble hogan. Many times I’ve been tried and tested. In those moments I asked my Heavenly Father for faith, strength, and courage to withstand temptations. Many times, as I was on my knees, my own brothers made a game of me, laughing and sneering and shouting through the cracks of the hogan, but I was not bothered by them.The young people who kneel down and ask God for faith and courage to resist temptation very early in life will find that temptation loses much of its luster, and temptation is very unattractive. You cannot receive a full-grown testimony that God lives and that the Church is true any more than you can come into the world fully grown. You start small, but grow with consistency.Your faith needs nourishment through prayers. Exercise the muscle of the faith until it is one of such strength that it will sustain you. Beloved youth, get on your knees. The Lord has a testimony just for you—one that fits your size and needs—but you have to ask for it.Every young man and young woman should pray before going out on a date. A Navajo boy, coming from very simple, humble, poor circumstances, because he was on his knees, became a polished instrument of God. A praying young man becomes a praying man; and a praying man becomes a god.
 
@@ -41,8 +43,3 @@ God loves you. I love you. I thank God every day for young people like you. And 
 
 
 
-
-
-
-
-#Youth

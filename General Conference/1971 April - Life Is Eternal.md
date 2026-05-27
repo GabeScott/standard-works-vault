@@ -1,5 +1,7 @@
 # Life Is Eternal
 
+Joseph Fielding Smith
+
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
@@ -32,7 +34,7 @@ Thank God for the life and ministry of the Master, Jesus the Christ, who broke t
 
 “I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live:
 
-“And whosoever liveth and believeth in me shall never die. …” ([[John 11.25|John 11:25–26]][[John 11.26|]].)
+“And whosoever liveth and believeth in me shall never die. …” ([[John 11.25|John 11:25–26]][[John 11.26|]].)
 
 “If a man die, shall he live again?” asked Job, the prophet, anciently. ([[Job 14.14|Job 14:14]].) My good friend Senator Everett Dirksen, shortly before his death, responded impressively to Job’s question in these words: “What mortal being, standing on the threshold of infinity, has not pondered what lies beyond the veil which separates the seen from the unseen?
 
@@ -42,7 +44,7 @@ Thank God for the life and ministry of the Master, Jesus the Christ, who broke t
 
 “Centuries ago the man Job, so long blessed with every material blessing, only to find himself sorely afflicted by all that can befall a human being, sat with his companions and uttered the timeless, ageless question, ‘If a man die, shall he live again?’ In the Easter Season, when all Christendom observes the Resurrection and seeks answers to many questions, there in the forefront is the question raised by Job, ‘If a man die, shall he live again?’
 
-“If there be a design in this universe and in this world in which we live, there must be a Designer. Who can behold the inexplicable mysteries of the universe without believing that there is a design for all mankind and also a Designer? …
+“If there be a design in this universe and in this world in which we live, there must be a Designer. Who can behold the inexplicable mysteries of the universe without believing that there is a design for all mankind and also a Designer? …
 
 “‘If a man die, shall he live again?’ Surely he shall, as surely as day follows night, as surely as the stars follow their courses, as surely as the crest of every wave brings its trough.” (*U.S. News & World Report,* November 8, 1965, p. 124.)
 
@@ -60,7 +62,7 @@ Yes, there is the ever expectancy of death, but in reality there is no death—n
 
 The apostle John on the Isle of Patmos “saw the dead, small and great, stand before God” ([[Revelation 20.12|Rev. 20:12]].) And so we may quote on and on from holy writ, ancient and modern.
 
-The spirit world is not far away. Sometimes the veil between this life and the life beyond becomes very thin. Our loved ones who have passed on are not far from us. One great spiritual leader asked, “But where is the spirit world?” and then answered his own question. “It is here.” “Do \[spirits\] go beyond the boundaries of this organized earth? No, they do not. They are brought forth upon this earth, for the express purpose of inhabiting it to all eternity.” “… when the spirits leave their bodies they are in the presence of our Father and God; they are prepared then to see, hear and understand spiritual things. … If the Lord would permit it, and it was His will that it should be done, you could see the spirits that have departed from this world, as plainly as you now see bodies with your natural eyes. …” (Brigham Young, in *Journal of Discourses,* vol. 3, pp. 367–69.)
+The spirit world is not far away. Sometimes the veil between this life and the life beyond becomes very thin. Our loved ones who have passed on are not far from us. One great spiritual leader asked, “But where is the spirit world?” and then answered his own question. “It is here.” “Do \[spirits\] go beyond the boundaries of this organized earth? No, they do not. They are brought forth upon this earth, for the express purpose of inhabiting it to all eternity.” “… when the spirits leave their bodies they are in the presence of our Father and God; they are prepared then to see, hear and understand spiritual things. … If the Lord would permit it, and it was His will that it should be done, you could see the spirits that have departed from this world, as plainly as you now see bodies with your natural eyes. …” (Brigham Young, in *Journal of Discourses,* vol. 3, pp. 367–69.)
 
 Yes, life is eternal, so:
 
@@ -80,7 +82,7 @@ As I have gratefully testified many times—
 
 I know that Jesus is the Christ—the Savior and Redeemer of the world—the very Son of God. He was born the Babe of Bethlehem. He lived and ministered among men. He was crucified on Calvary. On the third day he rose again.
 
-To the sorrowful, inquiring women at the tomb the angels proclaimed: “… Why seek ye the living among the dead? He is not here, but is risen. …” ([[Luke 24.5|Luke 24:5–6]][[Luke 24.6|]].) There is nothing in history to equal that dramatic announcement. “He is not here, but is risen.”
+To the sorrowful, inquiring women at the tomb the angels proclaimed: “… Why seek ye the living among the dead? He is not here, but is risen. …” ([[Luke 24.5|Luke 24:5–6]][[Luke 24.6|]].) There is nothing in history to equal that dramatic announcement. “He is not here, but is risen.”
 
 No other single influence has had so great an impact on this earth as the life of Jesus the Christ. We cannot conceive of our lives without his teachings. Without him we would be lost in a mirage of beliefs and worships, born in fear and darkness where the sensual and materialistic hold sway. We are far short of the goal he set for us, but we must never lose sight of it; nor must we forget that our great climb toward the light, toward perfection, would not be possible except for his teachings, his life, his death, and his resurrection.
 
@@ -88,13 +90,13 @@ May God hasten the day when people everywhere will accept his teachings, his exa
 
 Yes, we must learn and learn again that only through accepting and living the gospel of love as taught by the Master and only through doing his will can we break the bonds of ignorance and doubt that bind us. We must learn this simple, glorious truth so that we can experience the sweet joys of the spirit now and eternally. We must lose ourselves in doing his will. We must place him first in our lives. Yes, our blessings multiply as we share his love with our neighbor.
 
-To the extent that we stray from the path marked out for us by the Man of Galilee, to that extent we are failing in our individual battles to overcome our worlds. But we are not without his help. Again and again he told his disciples, and all of us, “Let not your heart be troubled. …”
+To the extent that we stray from the path marked out for us by the Man of Galilee, to that extent we are failing in our individual battles to overcome our worlds. But we are not without his help. Again and again he told his disciples, and all of us, “Let not your heart be troubled. …”
 
 “If ye shall ask any thing in my name, I will do it.”
 
-“I will not leave you comfortless. …”
+“I will not leave you comfortless. …”
 
-“Peace I leave with you, my peace I give unto you. …” ([[John 14.1|John 14:1, 14, 18, 27]][[John 14.14|]][[John 14.18|]][[John 14.27|]].)
+“Peace I leave with you, my peace I give unto you. …” ([[John 14.1|John 14:1, 14, 18, 27]][[John 14.14|]][[John 14.18|]][[John 14.27|]].)
 
 We feel his comforting spirit in the sweet prayer of a child and the quiet abiding faith of all who have let his gospel permeate their lives. What a priceless gift it is that we can know him through our own prayers and through the sacred and solemn testimonies of those who have seen him, known him, felt his presence.
 
@@ -114,7 +116,7 @@ I quote from a vision given to the Prophet Joseph Smith and his associate Sidney
 
 Yes, my friends, Jesus is the Christ. He lives. He did break the bonds of death. He is our Savior and Redeemer, the very Son of God.
 
-And he will come again, as the Holy Bible proclaims: “… this same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven.” ([[Acts 1.11|Acts 1:11]].)
+And he will come again, as the Holy Bible proclaims: “… this same Jesus, which is taken up from you into heaven, shall so come in like manner as ye have seen him go into heaven.” ([[Acts 1.11|Acts 1:11]].)
 
 Yes, this same Jesus has already come to earth in our day. The resurrected Christ—glorified, exalted, the God of this world under the Father—appeared to the boy Joseph Smith in 1820. This same Jesus who was the God of Abraham, Isaac, and Jacob, the God of Moses, the Creator of this earth, has come in our day. He was introduced by the Father to Joseph Smith in these words: *“This is My Beloved Son. Hear Him!”* ([[Joseph Smith History 1.17|JS—H 1:17]].)
 
@@ -129,8 +131,3 @@ Today I testify to the truth of the message which they bear and add my solemn wi
 
 
 
-
-
-
-
-#Plan_Of_Salvation #Resurrection

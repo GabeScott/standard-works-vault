@@ -1,6 +1,8 @@
 # Humble to Accept and Follow
 
-By Elder Joni L. Koch - *Of the Seventy*
+David A. Bednar
+
+By Elder Joni L. Koch - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Joni L. Koch - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/32koch?lang=eng)
 
-In the [[Alma 5.1|fifth chapter of Alma]][[Alma 5.2|]][[Alma 5.3|]][[Alma 5.4|]][[Alma 5.5|]][[Alma 5.6|]][[Alma 5.7|]][[Alma 5.8|]][[Alma 5.9|]][[Alma 5.10|]][[Alma 5.11|]][[Alma 5.12|]][[Alma 5.13|]][[Alma 5.14|]][[Alma 5.15|]][[Alma 5.16|]][[Alma 5.17|]][[Alma 5.18|]][[Alma 5.19|]][[Alma 5.20|]][[Alma 5.21|]][[Alma 5.22|]][[Alma 5.23|]][[Alma 5.24|]][[Alma 5.25|]][[Alma 5.26|]][[Alma 5.27|]][[Alma 5.28|]][[Alma 5.29|]][[Alma 5.30|]][[Alma 5.31|]][[Alma 5.32|]][[Alma 5.33|]][[Alma 5.34|]][[Alma 5.35|]][[Alma 5.36|]][[Alma 5.37|]][[Alma 5.38|]][[Alma 5.39|]][[Alma 5.40|]][[Alma 5.41|]][[Alma 5.42|]][[Alma 5.43|]][[Alma 5.44|]][[Alma 5.45|]][[Alma 5.46|]][[Alma 5.47|]][[Alma 5.48|]][[Alma 5.49|]][[Alma 5.50|]][[Alma 5.51|]][[Alma 5.52|]][[Alma 5.53|]][[Alma 5.54|]][[Alma 5.55|]][[Alma 5.56|]][[Alma 5.57|]][[Alma 5.58|]][[Alma 5.59|]][[Alma 5.60|]][[Alma 5.61|]][[Alma 5.62|]], an introspective question is posed: “Could ye say, if ye were called to die at this time, within yourselves, that ye have been sufficiently humble?”[^1] That question implies that humility is a mandatory requirement for us to be ready to return to the presence of God.
+In the [[Alma 5.1|fifth chapter of Alma]], an introspective question is posed: “Could ye say, if ye were called to die at this time, within yourselves, that ye have been sufficiently humble?”[^1] That question implies that humility is a mandatory requirement for us to be ready to return to the presence of God.
 
 We all like to think we are sufficiently humble, but some experiences in life make us realize that the natural, prideful man or woman often is very much alive within us.
 
@@ -32,7 +34,7 @@ Then what is humility? According to *Preach My Gospel*, it is a “willingness t
 
 There are certainly many opportunities for us all to improve in this Christlike attribute. I would like to explore first how humble we’ve been, or should be, in following the counsel of our prophet. A pop quiz for us individually could be:
 
-- Do we mention the full name of the Church in all our interactions? President Russell M. Nelson said, “To remove the Lord’s name from the Lord’s Church is a major victory for Satan.”[^4]
+- Do we mention the full name of the Church in all our interactions? President Russell M. Nelson said, “To remove the Lord’s name from the Lord’s Church is a major victory for Satan.”[^4]
 
 - Are we letting God prevail in our lives by accepting our prophet’s very specific invitation? “Today I call upon our members everywhere to lead out in abandoning attitudes and actions of prejudice.”[^5]
 
@@ -75,26 +77,21 @@ May we be humble to follow the counsel of our prophets and accept that only God 
 
 [^2]: [[Proverbs 29.23|Proverbs 29:23]].
 
-[^3]: “Seek Christlike Attributes,” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), [131](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng&id=p54-p55#p54).
+[^3]: “Seek Christlike Attributes,” *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), [131](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/14-chapter-6?lang=eng&id=p54-p55#p54).
 
-[^4]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88.
+[^4]: Russell M. Nelson, “[[2018 October - The Correct Name of the Church.md|The Correct Name of the Church]],” *Ensign* or *Liahona*, Nov. 2018, 88.
 
-[^5]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
+[^5]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
-[^6]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–98.
+[^6]: See Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95–98.
 
-[^7]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
+[^7]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
 
-[^8]: See [[Numbers 21.7|Numbers 21:7–9]][[Numbers 21.8|]][[Numbers 21.9|]]; [[1 Nephi 17.41|1 Nephi 17:41]].
+[^8]: See [[Numbers 21.7|Numbers 21:7–9]][[Numbers 21.8|]][[Numbers 21.9|]]; [[1 Nephi 17.41|1 Nephi 17:41]].
 
-[^9]: [[1 Nephi 17.41|1 Nephi 17:41]].
+[^9]: [[1 Nephi 17.41|1 Nephi 17:41]].
 
-[^10]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^10]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^11]: [[D&C 112.10|Doctrine and Covenants 112:10]].
 
-
-
-
-
-#Humility #Pride #Prophets

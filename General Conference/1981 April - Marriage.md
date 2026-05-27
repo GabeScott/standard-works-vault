@@ -1,6 +1,8 @@
 # Marriage
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+Marion G. Romney
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -165,8 +167,3 @@ I thank God for marriage. I thank God for temples. I thank God for the glorious 
 
 
 
-
-
-
-
-#Marriage

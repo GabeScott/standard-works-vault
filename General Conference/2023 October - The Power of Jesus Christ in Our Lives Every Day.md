@@ -1,6 +1,8 @@
 # The Power of Jesus Christ in Our Lives Every Day
 
-By Elder Joaquin E. Costa - *Of the Seventy*
+David A. Bednar
+
+By Elder Joaquin E. Costa - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Joaquin E. Costa - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/24costa?lang=eng)
 
-Dear brothers and sisters, this is The Church of Jesus Christ of Latter-day Saints. What a joy it is to be gathered as His Church. I am thankful that President Russell M. Nelson has reminded us to use the correct name of the Lord’s Church often so that we remember whose Church this is and whose teachings we follow.
+Dear brothers and sisters, this is The Church of Jesus Christ of Latter-day Saints. What a joy it is to be gathered as His Church. I am thankful that President Russell M. Nelson has reminded us to use the correct name of the Lord’s Church often so that we remember whose Church this is and whose teachings we follow.
 
 President Nelson has stated: “In coming days, we will see the *greatest* manifestations of the Savior’s power that the world has *ever* seen. … He will bestow countless privileges, blessings, and miracles upon the faithful.”[^1]
 
@@ -44,11 +46,11 @@ President Nelson taught: “The reward for keeping covenants with God is heavenl
 
 The New Testament tells of a time when Jesus and His disciples were on a ship:
 
-“And there arose a great storm of wind, and the waves beat into the ship. …
+“And there arose a great storm of wind, and the waves beat into the ship. …
 
 “And he was … asleep on a pillow: and they awake him, and say unto him, Master, carest thou not that we perish?
 
-“And he arose, and rebuked the wind, and said unto the sea, Peace, be still. …
+“And he arose, and rebuked the wind, and said unto the sea, Peace, be still. …
 
 “And he said unto them, Why are ye so fearful? how is it that ye have no faith?”[^17]
 
@@ -63,15 +65,15 @@ I know this is the Church of Jesus Christ. I know that He stands ready to endow 
 
 
 
-[^1]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95.
+[^1]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 95.
 
-[^2]: See “[Mission President Passes Away following Battle with COVID-19](https://newsroom.churchofjesuschrist.org/article/mission-president-dies-bolivia-covid-19),” July 13, 2021, newsroom.ChurchofJesusChrist.org.
+[^2]: See “[Mission President Passes Away following Battle with COVID-19](https://newsroom.churchofjesuschrist.org/article/mission-president-dies-bolivia-covid-19),” July 13, 2021, newsroom.ChurchofJesusChrist.org.
 
-[^3]: See “[Elder Soares Tells Global Faith Leaders That Human Dignity Is a Constant in a Changing World](https://newsroom.churchofjesuschrist.org/article/elder-soares-argentina-ministry),” June 9, 2023, newsroom.ChurchofJesusChrist.org.
+[^3]: See “[Elder Soares Tells Global Faith Leaders That Human Dignity Is a Constant in a Changing World](https://newsroom.churchofjesuschrist.org/article/elder-soares-argentina-ministry),” June 9, 2023, newsroom.ChurchofJesusChrist.org.
 
-[^4]: See “[Church Responds as Forest Fires Burn in Chile](https://www.thechurchnews.com/global/2023/2/17/23603460/chile-forest-fires-church-of-jesus-christ-help),” Feb. 17, 2023, thechurchnews.com.
+[^4]: See “[Church Responds as Forest Fires Burn in Chile](https://www.thechurchnews.com/global/2023/2/17/23603460/chile-forest-fires-church-of-jesus-christ-help),” Feb. 17, 2023, thechurchnews.com.
 
-[^5]: [[2 Nephi 9.21|2 Nephi 9:21]].
+[^5]: [[2 Nephi 9.21|2 Nephi 9:21]].
 
 [^6]: [[Moroni 10.32|Moroni 10:32]].
 
@@ -79,23 +81,21 @@ I know this is the Church of Jesus Christ. I know that He stands ready to endow 
 
 [^8]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^9]: The doctrine of Christ as found in [[3 Nephi 11.33|3 Nephi 11:33]]; [[3 Nephi 27.16|27:16, 20]][[3 Nephi 27.20|]].
+[^9]: The doctrine of Christ as found in [[3 Nephi 11.33|3 Nephi 11:33]]; [[3 Nephi 27.16|27:16, 20]][[3 Nephi 27.20|]].
 
 [^10]: See [[Mark 4.38|Mark 4:38]].
 
-[^11]: See D. Todd Christofferson, “[[2008 April - Born Again.md|Born Again]],” *Ensign* or *Liahona*, May 2008, 77; [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^11]: See D. Todd Christofferson, “[[2008 April - Born Again.md|Born Again]],” *Ensign* or *Liahona*, May 2008, 77; [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
 [^12]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^13]: See Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98–101.
+[^13]: See Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98–101.
 
-[^14]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
+[^14]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
 
 [^15]: Flavia Cruzado, in “[Elder Soares Tells Global Faith Leaders That Human Dignity Is a Constant in a Changing World](https://newsroom.churchofjesuschrist.org/article/elder-soares-argentina-ministry),” newsroom.ChurchofJesusChrist.org.
 
-[^16]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
+[^16]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
 
+[^17]: [[Mark 4.37|Mark 4:37–40]][[Mark 4.38|]][[Mark 4.39|]][[Mark 4.40|]].
 
-
-
-#Adversity #Dedication #Faith #Jesus_Christ

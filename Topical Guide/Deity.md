@@ -1,4 +1,3 @@
 # Deity
 
-
-*See* [[Godhead.md|Godhead]]
+*See also* [[Godhead.md|Godhead]]

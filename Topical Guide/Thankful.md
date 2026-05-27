@@ -1,6 +1,5 @@
 # Thankful
 
-
 *See also* [[Thank.md|Thank]]; [[Thanksgiving.md|Thanksgiving]]
 
 be *thankful* unto him, [[Psalms 100.4|Psalms 100:4]].

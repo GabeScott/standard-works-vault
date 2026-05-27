@@ -1,17 +1,16 @@
 # End
 
-
 *See also* [[Finish.md|Finish]]; [[Last.md|Last]]; [[Purpose.md|Purpose]]; [[World, End of.md|World, End of]]
 
 on the seventh day God *ended* his work, [[Genesis 2.2|Genesis 2:2]] ([[Moses 3.2|Moses 3:2]]).
 
 said unto Noah, The *end* of all flesh is come, [[Genesis 6.13|Genesis 6:13]].
 
-nation against thee ... from the *end* of the earth, [[Deuteronomy 28.49|Deuteronomy 28:49]].
+nation against thee … from the *end* of the earth, [[Deuteronomy 28.49|Deuteronomy 28:49]].
 
 push the people together to the *ends* of the earth, [[Deuteronomy 33.17|Deuteronomy 33:17]].
 
-How long ... ere ye make an *end* of words, [[Job 18.2|Job 18:2]].
+How long … ere ye make an *end* of words, [[Job 18.2|Job 18:2]].
 
 wickedness of the wicked come to an *end*, [[Psalms 7.9|Psalms 7:9]].
 
@@ -51,13 +50,13 @@ he that endureth to the *end*, [[Matthew 10.22|Matthew 10:22]] ([[Matthew 24.13|
 
 harvest is the *end* of the world, [[Matthew 13.39|Matthew 13:39]].
 
-at the *end* of the world ... sever the wicked, [[Matthew 13.49|Matthew 13:49]].
+at the *end* of the world … sever the wicked, [[Matthew 13.49|Matthew 13:49]].
 
 sign of thy coming, and of the *end* of the world, [[Matthew 24.3|Matthew 24:3]] ([[Joseph Smith Matthew 1.4|Joseph Smith Matthew 1:4]]).
 
 *end* is not yet, [[Matthew 24.6|Matthew 24:6]] ([[Mark 13.7|Mark 13:7]]; [[Luke 21.9|Luke 21:9]]; [[Joseph Smith Matthew 1.23|Joseph Smith Matthew 1:23]]).
 
-preached ... unto all nations; and then shall the *end* come, [[Matthew 24.14|Matthew 24:14]] ([[Joseph Smith Matthew 1.31|Joseph Smith Matthew 1:31]]).
+preached … unto all nations; and then shall the *end* come, [[Matthew 24.14|Matthew 24:14]] ([[Joseph Smith Matthew 1.31|Joseph Smith Matthew 1:31]]).
 
 I am with you alway, even unto the *end*, [[Matthew 28.20|Matthew 28:20]] ([[D&C 24.8|D&C 24:8]]).
 
@@ -65,7 +64,7 @@ of his kingdom there shall be no *end*, [[Luke 1.33|Luke 1:33]].
 
 he loved them unto the *end*, [[John 13.1|John 13:1]].
 
-supper being *ended*, the devil ... into the heart of Judas, [[John 13.2|John 13:2]].
+supper being *ended*, the devil … into the heart of Judas, [[John 13.2|John 13:2]].
 
 To this *end* was I born, [[John 18.37|John 18:37]].
 
@@ -91,7 +90,7 @@ latter *end* is worse, [[2 Peter 2.20|2 Peter 2:20]].
 
 Alpha and Omega, the beginning and the *end*, [[Revelation 21.6|Revelation 21:6]].
 
-endure unto the *end* they shall be lifted up, [[1 Nephi 13.37|1 Nephi 13:37]] ([[1 Nephi 22.31|1 Nephi 22:31]]; [[2 Nephi 9.24|2 Nephi 9:24]]; [[2 Nephi 31.15|2 Nephi 31:15]]; [[Alma 32.15|Alma 32:15]]; [[3 Nephi 15.9|3 Nephi 15:9]]; [[3 Nephi 27.6|3 Nephi 27:6]], [[3 Nephi 27.16|3 Nephi 27:16]]; [[Mormon 9.29|Mormon 9:29]]).
+endure unto the *end* they shall be lifted up, [[1 Nephi 13.37|1 Nephi 13:37]] ([[1 Nephi 22.31|1 Nephi 22:31]]; [[2 Nephi 9.24|2 Nephi 9:24]]; [[2 Nephi 31.15|2 Nephi 31:15]]; [[Alma 32.15|Alma 32:15]]; [[3 Nephi 15.9|3 Nephi 15:9]]; [[3 Nephi 27.6|3 Nephi 27:6]]; [[3 Nephi 27.16|3 Nephi 27:16]]; [[Mormon 9.29|Mormon 9:29]]).
 
 unto none else can the *ends* of the law be answered, [[2 Nephi 2.7|2 Nephi 2:7]].
 
@@ -109,13 +108,13 @@ hold out faithful to the *end*, [[D&C 6.13|D&C 6:13]].
 
 destroying of Satan and his works at the *end*, [[D&C 19.3|D&C 19:3]].
 
-the *end* shall come ... a new heaven and a new earth, [[D&C 29.23|D&C 29:23]].
+the *end* shall come … a new heaven and a new earth, [[D&C 29.23|D&C 29:23]].
 
 my works have no *end*, [[D&C 29.33|D&C 29:33]].
 
 Be faithful unto the *end*, [[D&C 31.13|D&C 31:13]].
 
-judgment ... at the *end* of the earth, [[D&C 38.5|D&C 38:5]] ([[D&C 43.31|D&C 43:31]]; [[D&C 45.22|D&C 45:22]]).
+judgment … at the *end* of the earth, [[D&C 38.5|D&C 38:5]] ([[D&C 43.31|D&C 43:31]]; [[D&C 45.22|D&C 45:22]]).
 
 consumption decreed hath made a full *end* of all nations, [[D&C 87.6|D&C 87:6]].
 

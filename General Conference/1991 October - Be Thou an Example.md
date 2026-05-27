@@ -1,5 +1,7 @@
 # Be Thou an Example
 
+Gordon B. Hinckley
+
 By Ruth B. Wright - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -24,7 +26,7 @@ She never scolded us for doing this, nor would she allow our mother to, either. 
 
 Every evening, rocking in her chair, she would call us to her side and ask that we say our prayers with her. She taught us a sweet little verse which we would repeat: “Now I lay me down to sleep, I pray the Lord my soul to keep. If I should die before I wake, I pray the Lord my soul to take.” Afterward we offered our individual prayers to Heavenly Father. She would listen carefully and tell us that she loved us. Through her example, she taught me about patience. She taught me about prayer. She taught me about love.
 
-In Timothy, we are admonished to be an example of the believers. (See [[1 Timothy 4.12|1 Tim. 4:12]].) A believer is someone who follows and knows the teachings of Christ not only in his mind but also in his heart and whose actions are a witness of that belief. It isn’t easy to be an example of the believers. We don’t usually wake up in the morning and say, “Today I’m going to be an example of the believers!” Yet we can say, “Today I will be kind and thoughtful, or considerate, or honest, or whatever quality I need to work on.” And *then* we will try hard all day to make a conscious effort to do so. That we can do!
+In Timothy, we are admonished to be an example of the believers. (See [[1 Timothy 4.12|1 Tim. 4:12]].) A believer is someone who follows and knows the teachings of Christ not only in his mind but also in his heart and whose actions are a witness of that belief. It isn’t easy to be an example of the believers. We don’t usually wake up in the morning and say, “Today I’m going to be an example of the believers!” Yet we can say, “Today I will be kind and thoughtful, or considerate, or honest, or whatever quality I need to work on.” And *then* we will try hard all day to make a conscious effort to do so. That we can do!
 
 We can live in such a way that people can look to us as their examples.
 
@@ -58,15 +60,15 @@ It is interesting to note that we choose the examples we follow. We exercise our
 
 Throughout the beginning pages of the Book of Mormon, we are reminded that Nephi believed the words of his father and used his agency to follow Lehi’s righteous example. Laman and Lemuel thought their father was foolish; they rebelled and murmured against him. They chose not to follow their father’s teachings. The results of Nephi, Laman, and Lemuel’s decisions are evident. Nephi was blessed with the Spirit of the Lord. Laman and Lemuel lived lives of despair. And yet the decision was theirs, to choose for themselves.
 
-Our beloved prophet, Ezra Taft Benson, a living example of the believers, said, “The proper example is all-important. *Let us be what we profess to be.* There is no satisfactory substitute.” (*Improvement Era,* Aug. 1948, p. 494; italics added.)
+Our beloved prophet, Ezra Taft Benson, a living example of the believers, said, “The proper example is all-important. *Let us be what we profess to be.* There is no satisfactory substitute.” (*Improvement Era,* Aug. 1948, p. 494; italics added.)
 
-We can always feel secure in looking to Christ as our perfect example. He showed us by his own life not only what we should do, but also what we are to become. “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+We can always feel secure in looking to Christ as our perfect example. He showed us by his own life not only what we should do, but also what we are to become. “Therefore, what manner of men ought ye to be? Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 Jesus resisted temptations. He treated all equally. He was patient in his teaching yet bold in his condemnation of evil. He forgave the repentant, healed the sick, and served without ceasing.
 
-Among the Nephites, Christ taught many beautiful gospel principles. He instructed them to follow the commandments so they could be happy. He commanded them not to argue or fight but love one another. He taught them how to pray and said, “Behold I am the light; I have set an example for you.” ([[3 Nephi 18.16|3 Ne. 18:16]].)
+Among the Nephites, Christ taught many beautiful gospel principles. He instructed them to follow the commandments so they could be happy. He commanded them not to argue or fight but love one another. He taught them how to pray and said, “Behold I am the light; I have set an example for you.” ([[3 Nephi 18.16|3 Ne. 18:16]].)
 
-Above all, Jesus was the perfect example of love. “A new commandment I give unto you, That ye love one another; as I have loved you. …” ([[John 13.34|John 13:34]].)
+Above all, Jesus was the perfect example of love. “A new commandment I give unto you, That ye love one another; as I have loved you. …” ([[John 13.34|John 13:34]].)
 
 One Sunday I was substituting in a Primary class of particularly rambunctious five-year-olds. The lesson was about love. We began by singing the song “Jesus Said Love Everyone.”
 
@@ -105,8 +107,3 @@ Each of us can feel our Savior’s love through the righteous example of others.
 
 
 
-
-
-
-
-#Example #Love #Testimony

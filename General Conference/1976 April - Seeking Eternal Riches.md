@@ -1,6 +1,8 @@
 # Seeking Eternal Riches
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -88,15 +90,15 @@ The Lord gave to us in the beginning of this dispensation:
 
 “And the rebellious shall be pierced with much sorrow; for their iniquities shall be spoken upon the housetops, and their secret acts shall be revealed.
 
-“And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days. …
+“And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days. …
 
 “Prepare ye, prepare ye for that which is to come, for the Lord is nigh;
 
 “And the anger of the Lord is kindled, and his sword is bathed in heaven, and it shall fall upon the inhabitants of the earth.
 
-“And the arm of the Lord shall be revealed; and the day cometh that they who will not hear the voice of the Lord, neither the voice of his servants, neither give heed to the words of the prophets and apostles, shall be cut off from among the people \[And I would like to say here that through the days of this conference we have heard many, many testimonies by the prophets and the apostles and the servants of the Lord.\]; …
+“And the arm of the Lord shall be revealed; and the day cometh that they who will not hear the voice of the Lord, neither the voice of his servants, neither give heed to the words of the prophets and apostles, shall be cut off from among the people \[And I would like to say here that through the days of this conference we have heard many, many testimonies by the prophets and the apostles and the servants of the Lord.\]; …
 
-“They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world, and whose substance is that of an idol, which waxeth old and shall perish in Babylon, even Babylon the great, which shall fall. …
+“They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world, and whose substance is that of an idol, which waxeth old and shall perish in Babylon, even Babylon the great, which shall fall. …
 
 “The weak things of the world shall come forth and break down the mighty and strong ones, that man should not counsel his fellow man, neither trust in the arm of flesh—
 
@@ -106,7 +108,7 @@ I would like to conclude with the thought about Job, whose wife came to him with
 
 “Then said his wife unto him, Dost thou still retain thine integrity? curse God, and die.
 
-“But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive good at the hand of God, and shall we not receive evil? …
+“But he said unto her, Thou speakest as one of the foolish women speaketh. What? shall we receive good at the hand of God, and shall we not receive evil? …
 
 “All the while my breath is in me, and the spirit of God is in my nostrils,
 
@@ -114,7 +116,7 @@ I would like to conclude with the thought about Job, whose wife came to him with
 
 “God forbid that I should justify you: till I die I will not remove mine integrity from me.
 
-“My righteousness I hold fast, and will not let it go: my heart shall not reproach me so long as I live. …
+“My righteousness I hold fast, and will not let it go: my heart shall not reproach me so long as I live. …
 
 “For what is the hope of the hypocrite, though he hath gained, when God taketh away his soul?” ([[Job 2.9|Job 2:9–10]][[Job 2.10|]]; [[Job 27.3|27:3–6, 8]][[Job 27.4|]][[Job 27.5|]][[Job 27.6|]][[Job 27.8|]].)
 
@@ -141,8 +143,3 @@ And that is my testimony to you, my brothers and sisters, as we conclude this ma
 
 
 
-
-
-
-
-#Family #Prophets #Truth

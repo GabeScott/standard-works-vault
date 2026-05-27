@@ -1,7 +1,6 @@
 # Arise, Arose
 
-
-*See also* [[Rise, Rose, Risen.md|Rise]]
+*See also* [[Rise.md|Rise]]
 
 together with my dead body shall they *arise*, [[Isaiah 26.19|Isaiah 26:19]].
 
@@ -17,7 +16,7 @@ took her by the hand, and the maid *arose*, [[Matthew 9.25|Matthew 9:25]].
 
 many bodies of the saints which slept *arose*, [[Matthew 27.52|Matthew 27:52]].
 
-said unto her, ... Damsel, ... *arise*, [[Mark 5.41|Mark 5:41]] ([[Luke 8.54|Luke 8:54]]).
+said unto her, … Damsel, … *arise*, [[Mark 5.41|Mark 5:41]] ([[Luke 8.54|Luke 8:54]]).
 
 Young man, I say unto thee, *Arise*, [[Luke 7.14|Luke 7:14]].
 
@@ -38,5 +37,3 @@ Zion must *arise*, [[D&C 82.14|D&C 82:14]].
 *arise* early, [[D&C 88.124|D&C 88:124]].
 
 *Arise* and shine forth, [[D&C 115.5|D&C 115:5]].
-
-*See also* [[D&C 43.18|D&C 43:18]].

@@ -1,11 +1,10 @@
 # Stature
 
-
 people that we saw in it are men of a great *stature*, [[Numbers 13.32|Numbers 13:32]].
 
 Gath, where was a man of great *stature*, [[2 Samuel 21.20|2 Samuel 21:20]] ([[1 Chronicles 20.6|1 Chronicles 20:6]]).
 
-Which of you ... can add one cubit unto his *stature*, [[Matthew 6.27|Matthew 6:27]] ([[Luke 12.25|Luke 12:25]]; [[3 Nephi 13.27|3 Nephi 13:27]]).
+Which of you … can add one cubit unto his *stature*, [[Matthew 6.27|Matthew 6:27]] ([[Luke 12.25|Luke 12:25]]; [[3 Nephi 13.27|3 Nephi 13:27]]).
 
 Jesus increased in wisdom and *stature*, [[Luke 2.52|Luke 2:52]].
 

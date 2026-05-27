@@ -1,5 +1,7 @@
 # “Stalwart and Brave We Stand”
 
+Ezra Taft Benson
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -67,13 +69,13 @@ In my mind I could see him running on that difficult track. I learned from him. 
 
 I’ve always been very impressed with some of the statements Winston Churchill made as he served as prime minister during England’s darkest days of war. Among other things, he said the following:
 
-“It is no use saying, ‘We are doing our best.’ You have got to succeed in doing what is necessary.” (In *Reader’s Digest,* July 1964, p. 247.)
+“It is no use saying, ‘We are doing our best.’ You have got to succeed in doing what is necessary.” (In *Reader’s Digest,* July 1964, p. 247.)
 
-Also, “We have before us an ordeal of the most grievous kind. …
+Also, “We have before us an ordeal of the most grievous kind. …
 
 “You ask, what is our policy? I will say: It is to wage war, by sea, land, and air, with all our might and with all our strength that God can give us. … That is our policy.
 
-“You ask, what is our aim? I can answer in one word: It is victory, victory at all costs, victory in spite of all the terror; victory, however long and hard the road may be” (quoted by Louis L. Snyder, *The War: A Concise History, 1939–1945,* New York: Julian Messner, Inc., 1961, p. 89).
+“You ask, what is our aim? I can answer in one word: It is victory, victory at all costs, victory in spite of all the terror; victory, however long and hard the road may be” (quoted by Louis L. Snyder, *The War: A Concise History, 1939–1945,* New York: Julian Messner, Inc., 1961, p. 89).
 
 Young people, bearers of the priesthood, God wants us to be victorious. He wants you to triumph over all of your foes. Stalwart and brave we must stand. God is at the helm. There is no reason for defeat.
 
@@ -94,8 +96,3 @@ Jesus is the Christ. He is our Redeemer, our Lord and Savior and friend. We cons
 
 
 
-
-
-
-
-#Courage #Endurance #Faith #Obedience

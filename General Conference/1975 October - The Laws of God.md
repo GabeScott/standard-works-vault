@@ -1,6 +1,8 @@
 # The Laws of God
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -36,7 +38,7 @@ All of this is possible only because through the laws of nature, the Creator kee
 
 Law is simply the application of truth. Let me draw your attention to some statements taken from the writings of great thinkers:
 
-Frank Crane: “Truth is the logic of the universe. It is the reasoning of destiny; it is the mind of God. And nothing that man can devise or discover can take its place.” (Quoted by Leo J. Muir, *Flashes from the Eternal Semaphore,* Salt Lake City: Deseret News Press, 1928, p. 100.)
+Frank Crane: “Truth is the logic of the universe. It is the reasoning of destiny; it is the mind of God. And nothing that man can devise or discover can take its place.” (Quoted by Leo J. Muir, *Flashes from the Eternal Semaphore,* Salt Lake City: Deseret News Press, 1928, p. 100.)
 
 W. Radcliffe said, “There is no progress in fundamental truth. We may grow in knowledge of its meaning, and in the modes of its application, but its great principles will forever be the same.” (Ibid., p. 101.)
 
@@ -46,9 +48,9 @@ In a revelation to Joseph Smith the Lord declared:
 
 “And their courses are fixed, even the courses of the heavens and the earth, which comprehend the earth and all the planets.
 
-“And they give light to each other in their times and in their seasons, in their minutes, in their hours, in their days, in their weeks, in their months, in their years. …
+“And they give light to each other in their times and in their seasons, in their minutes, in their hours, in their days, in their weeks, in their months, in their years. …
 
-“The earth rolls upon her wings, and the sun giveth his light by day, and the moon giveth her light by night, and the stars also give their light, as they roll upon their wings in their glory, in the midst of the power of God. …
+“The earth rolls upon her wings, and the sun giveth his light by day, and the moon giveth her light by night, and the stars also give their light, as they roll upon their wings in their glory, in the midst of the power of God. …
 
 “Behold, all these are kingdoms, and any man who hath seen any or the least of these hath seen God moving in his majesty and power.” ([[D&C 88.42|D&C 88:42–45, 47]][[D&C 88.43|]][[D&C 88.44|]][[D&C 88.45|]][[D&C 88.47|]].)
 
@@ -124,7 +126,7 @@ We have the Sermon on the Mount, with which you should all be familiar. We have 
 
 It is impossible to estimate or overemphasize the great effect the keeping of these two commandments would have on the whole world. Peace and righteousness would reign.
 
-We also have as a guide other scriptures which contain the word of the Lord as it has been given by revelation direct from God through his chosen prophets, including our own President and Prophet, Spencer W. Kimball, through whom the Lord speaks today; and it is by accepting and living these teachings that we can gain eternal life. Let us all have the courage to feel and say, with Paul:
+We also have as a guide other scriptures which contain the word of the Lord as it has been given by revelation direct from God through his chosen prophets, including our own President and Prophet, Spencer W. Kimball, through whom the Lord speaks today; and it is by accepting and living these teachings that we can gain eternal life. Let us all have the courage to feel and say, with Paul:
 
 “For I am not ashamed of the gospel of Christ: for it is the power of God unto salvation to every one that believeth.” ([[Romans 1.16|Rom. 1:16]].)
 
@@ -153,8 +155,3 @@ I testify that these things are true, in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Laws #Obedience

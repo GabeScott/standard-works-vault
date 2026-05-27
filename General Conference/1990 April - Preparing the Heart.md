@@ -1,5 +1,7 @@
 # Preparing the Heart
 
+Thomas S. Monson
+
 By Elder H. Burke Peterson - *Of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -52,7 +54,7 @@ Finally, love is spoken in prayer. In your home, do children hear their parents 
 
 Following the marvelous words of instruction by King Benjamin, as they are recorded in the first few chapters of Mosiah, we learn that “he sent among them, desiring to know of his people, if they believed the words which he had spoken unto them” ([[Mosiah 5.1|Mosiah 5:1]]). At the conclusion of this marvelous two days of general conference, I would hope, if we were asked, our response to such a question would be as was theirs in that day, for they said:
 
-“Yea, we believe all the words which thou hast spoken unto us; and also, we know of their surety and truth, because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually. …
+“Yea, we believe all the words which thou hast spoken unto us; and also, we know of their surety and truth, because of the Spirit of the Lord Omnipotent, which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually. …
 
 “And we are willing to enter into a covenant with our God to do his will, and to be obedient to his commandments” ([[Mosiah 5.2|Mosiah 5:2, 5]][[Mosiah 5.5|]]).
 
@@ -67,8 +69,3 @@ To this, brothers and sisters, I add my testimony of the divinity of the Lord Je
 
 
 
-
-
-
-
-#Agency #Communication #Listening #Love #Spirituality

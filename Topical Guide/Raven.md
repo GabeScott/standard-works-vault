@@ -1,6 +1,5 @@
 # Raven
 
-
 he sent forth a *raven*, [[Genesis 8.7|Genesis 8:7]].
 
 *ravens* brought him bread and flesh, [[1 Kings 17.6|1 Kings 17:6]].

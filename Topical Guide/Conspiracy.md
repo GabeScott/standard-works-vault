@@ -1,6 +1,5 @@
 # Conspiracy
 
-
 *See also* [[Secret Combinations.md|Secret Combinations]]
 
 they *conspired* against him to slay him, [[Genesis 37.18|Genesis 37:18]].
@@ -21,7 +20,7 @@ more than forty which had made this *conspiracy*, [[Acts 23.13|Acts 23:13]].
 
 the *secret* works of those people, [[Alma 37.21|Alma 37:21]].
 
-Amalickiah ... by his *fraud* ... obtained the kingdom, [[Alma 47.35|Alma 47:35]].
+Amalickiah … by his *fraud* … obtained the kingdom, [[Alma 47.35|Alma 47:35]].
 
 object of all those who belonged to his *band* to murder, and to rob, and to gain power, [[Helaman 2.8|Helaman 2:8]].
 

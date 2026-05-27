@@ -1,6 +1,8 @@
 # Here to Serve a Righteous Cause
 
-By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
+Rosemary M. Wixom
+
+By Carol F. McConkie - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -14,11 +16,11 @@ Over the summer I visited with a lovely young mother of daughters. She shared wi
 
 The righteous cause we serve is the cause of Christ. It is the work of salvation.[^4] The Lord taught, “This is my work and my glory—to bring to pass the immortality and eternal life of man.”[^5] We are the cause for which Jesus Christ suffered, bled from every pore, and in perfect love gave His life. His cause is the good news, “the glad tidings, … that he came into the world, even Jesus, to be crucified for the world, and to bear the sins of the world, and to sanctify the world, and to cleanse it from all unrighteousness; that through him all might be saved.”[^6] Our Savior has “marked the path and led the way.”[^7] I testify that as we follow His example, love God, and serve one another with kindness and compassion, we may stand in purity, “blameless before God at the last day.”[^8] We choose to serve the Lord in His righteous cause that we may become one with the Father and with the Son.[^9]
 
-The prophet Mormon boldly declared, “For we have a labor to perform whilst in this tabernacle of clay, that we may conquer the enemy of all righteousness, and rest our souls in the kingdom of God.”[^10] The early Church leaders and pioneers of the past pressed forward with heroic courage and determined faithfulness to establish the restored gospel and build temples where ordinances of exaltation could be performed. The pioneers of the present, meaning you and me, also press forward in faith, “to labor in \[the Lord’s\] vineyard for the salvation of the souls of men.”[^11] And, as President Gordon B. Hinckley taught, “How magnificent will be the future as the Almighty rolls on His glorious work … through the selfless \[service\] of those whose hearts are filled with love for the Redeemer of the world.”[^12] We join with faithful sisters of the past, of the present, and of the rising generation when we join together in the work of salvation!
+The prophet Mormon boldly declared, “For we have a labor to perform whilst in this tabernacle of clay, that we may conquer the enemy of all righteousness, and rest our souls in the kingdom of God.”[^10] The early Church leaders and pioneers of the past pressed forward with heroic courage and determined faithfulness to establish the restored gospel and build temples where ordinances of exaltation could be performed. The pioneers of the present, meaning you and me, also press forward in faith, “to labor in \[the Lord’s\] vineyard for the salvation of the souls of men.”[^11] And, as President Gordon B. Hinckley taught, “How magnificent will be the future as the Almighty rolls on His glorious work … through the selfless \[service\] of those whose hearts are filled with love for the Redeemer of the world.”[^12] We join with faithful sisters of the past, of the present, and of the rising generation when we join together in the work of salvation!
 
-Before we were born, we accepted our Heavenly Father’s plan “by which \[we\] could obtain a physical body and gain earthly experience to progress toward perfection and ultimately realize \[our\] divine destiny as heirs of eternal life.”[^13] Of this premortal covenant, Elder John A. Widtsoe explained: “We agreed, right then and there, to be not only saviors for ourselves but … saviors for the whole human family. We went into a partnership with the Lord. The working out of the plan became then not merely the Father’s work, and the Savior’s work, but also our work. The least of us, the humblest, is in partnership with the Almighty in achieving the purpose of the eternal plan of salvation.”[^14]
+Before we were born, we accepted our Heavenly Father’s plan “by which \[we\] could obtain a physical body and gain earthly experience to progress toward perfection and ultimately realize \[our\] divine destiny as heirs of eternal life.”[^13] Of this premortal covenant, Elder John A. Widtsoe explained: “We agreed, right then and there, to be not only saviors for ourselves but … saviors for the whole human family. We went into a partnership with the Lord. The working out of the plan became then not merely the Father’s work, and the Savior’s work, but also our work. The least of us, the humblest, is in partnership with the Almighty in achieving the purpose of the eternal plan of salvation.”[^14]
 
-Here in mortality we have again covenanted to serve the Savior in the work of salvation. By participating in sacred priesthood ordinances, we pledge that we will embark in the service of God with “heart, might, mind, and strength.”[^15] We receive the Holy Ghost and seek His promptings to guide our efforts. Righteousness emanates out to the world when we understand what God wants us to do and then we do it.
+Here in mortality we have again covenanted to serve the Savior in the work of salvation. By participating in sacred priesthood ordinances, we pledge that we will embark in the service of God with “heart, might, mind, and strength.”[^15] We receive the Holy Ghost and seek His promptings to guide our efforts. Righteousness emanates out to the world when we understand what God wants us to do and then we do it.
 
 I know a Primary child who said to a friend while standing at the bus stop, “Hey! You ought to come to church with me and learn about Jesus!”
 
@@ -61,17 +63,17 @@ May we choose to serve a righteous cause as valiant emissaries of our Lord Jesus
 
 [^8]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
-[^9]: See [[John 17.20|John 17:20–23]][[John 17.21|]][[John 17.22|]][[John 17.23|]]; [[4 Nephi 1.15|4 Nephi 1:15–17]][[4 Nephi 1.16|]][[4 Nephi 1.17|]]; [[D&C 35.2|Doctrine and Covenants 35:2]]; [[D&C 38.27|38:27]]; [[Moses 6.68|Moses 6:68]].
+[^9]: See [[John 17.20|John 17:20–23]][[John 17.21|]][[John 17.22|]][[John 17.23|]]; [[4 Nephi 1.15|4 Nephi 1:15–17]][[4 Nephi 1.16|]][[4 Nephi 1.17|]]; [[D&C 35.2|Doctrine and Covenants 35:2]]; [[D&C 38.27|38:27]]; [[Moses 6.68|Moses 6:68]].
 
 [^10]: [[Moroni 9.6|Moroni 9:6]].
 
 [^11]: [[D&C 138.56|Doctrine and Covenants 138:56]].
 
-[^12]: Gordon B. Hinckley, “Stay the Course—Keep the Faith,” *Ensign,* Nov. 1995, 72.
+[^12]: Gordon B. Hinckley, “Stay the Course—Keep the Faith,” *Ensign,* Nov. 1995, 72.
 
 [^13]: “The Family: A Proclamation to the World,” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^14]: John A. Widtsoe, “The Worth of Souls,” *Utah Genealogical and Historical Magazine,* Oct. 1934, 189.
+[^14]: John A. Widtsoe, “The Worth of Souls,” *Utah Genealogical and Historical Magazine,* Oct. 1934, 189.
 
 [^15]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
@@ -83,18 +85,13 @@ May we choose to serve a righteous cause as valiant emissaries of our Lord Jesus
 
 [^19]: Personal correspondence.
 
-[^20]: See Marianne Holman Prescott, “She Just Doesn’t Quit,” *Church News,* Sept. 6, 2015, 15.
+[^20]: See Marianne Holman Prescott, “She Just Doesn’t Quit,” *Church News,* Sept. 6, 2015, 15.
 
 [^21]: See [[Moroni 10.32|Moroni 10:32]].
 
-[^22]: [[2 Timothy 2.22|2 Timothy 2:22]].
+[^22]: [[2 Timothy 2.22|2 Timothy 2:22]].
 
 [^23]: [[Mosiah 5.12|Mosiah 5:12]].
 
-[^24]: Gordon B. Hinckley, *Ensign,* Nov. 1995, 72.
+[^24]: Gordon B. Hinckley, *Ensign,* Nov. 1995, 72.
 
-
-
-
-
-#Covenants #Divine_Nature #Family #Plan_Of_Salvation #Repentance #Service

@@ -1,15 +1,14 @@
 # Kindness
 
-
-*See also* [[Benevolence.md|Benevolence]]; [[Compassion.md|Compassion]]; [[Courtesy.md|Courtesy]]; [[Gentle.md|Gentle]]; [[God, Mercy of.md|God, Mercy of]]; [[Grace.md|Grace]]; [[Gracious.md|Gracious]]; [[Mercy, Merciful.md|Mercy]]
+*See also* [[Benevolence.md|Benevolence]]; [[Compassion.md|Compassion]]; [[Courtesy.md|Courtesy]]; [[Gentle.md|Gentle]]; [[God, Mercy of.md|God, Mercy of]]; [[Grace.md|Grace]]; [[Gracious.md|Gracious]]; [[Mercy.md|Mercy]]
 
 thy *kindness* which thou shalt shew, [[Genesis 20.13|Genesis 20:13]].
 
-O Lord ... shew *kindness* unto my master Abraham, [[Genesis 24.12|Genesis 24:12]].
+O Lord … shew *kindness* unto my master Abraham, [[Genesis 24.12|Genesis 24:12]].
 
 shewed you *kindness*, that ye will also shew *kindness*, [[Joshua 2.12|Joshua 2:12]].
 
-I may shew him *kindness* for Jonathan's sake, [[2 Samuel 9.1|2 Samuel 9:1]].
+I may shew him *kindness* for Jonathan’s sake, [[2 Samuel 9.1|2 Samuel 9:1]].
 
 slow to anger, and of great *kindness*, [[Nehemiah 9.17|Nehemiah 9:17]] ([[Joel 2.13|Joel 2:13]]).
 
@@ -25,7 +24,7 @@ whatsoever ye would that men should *do* to you, do ye, [[Matthew 7.12|Matthew 7
 
 *Give*, and it shall be given unto you, [[Luke 6.38|Luke 6:38]].
 
-a certain Samaritan ... had *compassion* on him, [[Luke 10.33|Luke 10:33]].
+a certain Samaritan … had *compassion* on him, [[Luke 10.33|Luke 10:33]].
 
 barbarous people shewed us no little *kindness*, [[Acts 28.2|Acts 28:2]].
 
@@ -35,7 +34,7 @@ fruit of the Spirit is love, joy, peace, longsuffering, *gentleness*, [[Galatian
 
 be ye *kind* one to another, [[Ephesians 4.32|Ephesians 4:32]].
 
-Put on ... bowels of mercies, *kindness*, [[Colossians 3.12|Colossians 3:12]].
+Put on … bowels of mercies, *kindness*, [[Colossians 3.12|Colossians 3:12]].
 
 Lord is very pitiful, and of tender *mercy*, [[James 5.11|James 5:11]].
 
@@ -49,10 +48,8 @@ my bowels are filled with *compassion* towards you, [[3 Nephi 17.6|3 Nephi 17:6]
 
 with everlasting *kindness* will I have mercy, [[3 Nephi 22.8|3 Nephi 22:8]].
 
-Remember faith, virtue ... brotherly *kindness*, [[D&C 4.6|D&C 4:6]].
+Remember faith, virtue … brotherly *kindness*, [[D&C 4.6|D&C 4:6]].
 
-decisions ... are to be made in ... brotherly *kindness*, [[D&C 107.30|D&C 107:30]].
+decisions … are to be made in … brotherly *kindness*, [[D&C 107.30|D&C 107:30]].
 
 they shall mention the loving *kindness* of their Lord, [[D&C 133.52|D&C 133:52]].
-
-*See also* [[2 Corinthians 6.6|2 Corinthians 6:6]]; [[D&C 121.42|D&C 121:42]].

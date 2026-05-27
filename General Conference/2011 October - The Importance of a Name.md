@@ -1,6 +1,8 @@
 # The Importance of a Name
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+Richard G. Scott
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -16,15 +18,15 @@ The Lord Jesus Christ knew how important it was to clearly name His Church in th
 
 And King Benjamin taught his people in Book of Mormon times:
 
-“I would that ye should take upon you the name of Christ, all you that have entered into the covenant with God that ye should be obedient unto the end of your lives. …
+“I would that ye should take upon you the name of Christ, all you that have entered into the covenant with God that ye should be obedient unto the end of your lives. …
 
 “And I would that ye should remember also, that this is the name that I said I should give unto you that never should be blotted out, except it be through transgression; therefore, take heed that ye do not transgress, that the name be not blotted out of your hearts” ([[Mosiah 5.8|Mosiah 5:8, 11]][[Mosiah 5.11|]]).
 
 We take the name of Christ upon us in the waters of baptism. We renew the effect of that baptism each week as we partake of the sacrament, signifying our willingness to take His name upon us and promising always to remember Him (see [[D&C 20.77|D&C 20:77, 79]][[D&C 20.79|]]).
 
-Do we realize how blessed we are to take upon us the name of God’s Beloved and Only Begotten Son? Do we understand how significant that is? The Savior’s name is the only name under heaven by which man can be saved (see [[2 Nephi 31.21|2 Nephi 31:21]]).
+Do we realize how blessed we are to take upon us the name of God’s Beloved and Only Begotten Son? Do we understand how significant that is? The Savior’s name is the only name under heaven by which man can be saved (see [[2 Nephi 31.21|2 Nephi 31:21]]).
 
-As you will remember, President Boyd K. Packer discussed the importance of the name of the Church in last April’s general conference. He explained that “obedient to revelation, we call ourselves The Church of Jesus Christ of Latter-day Saints rather than the Mormon Church” (in Conference Report, Apr. 2011, 28; or *Ensign,* May 2011, 30).
+As you will remember, President Boyd K. Packer discussed the importance of the name of the Church in last April’s general conference. He explained that “obedient to revelation, we call ourselves The Church of Jesus Christ of Latter-day Saints rather than the Mormon Church” (in Conference Report, Apr. 2011, [[2011 April - Guided by the Holy Spirit.md|28]]; or *Ensign,* May 2011, 30).
 
 Because the full name of the Church is so important, I echo the revelations from the scriptures, the First Presidency’s instructions in letters of 1982 and 2001, and the words of other Apostles who have encouraged the members of the Church to uphold and teach the world that the Church is known by the name of the Lord Jesus Christ. This is the name by which the Lord will call us at the last day. It is the name by which His Church will be distinguished from all others.
 
@@ -32,7 +34,7 @@ I have thought a lot about why the Savior gave the nine-word name to His restore
 
 Every word is clarifying and indispensable. The word *The* indicates the unique position of the restored Church among the religions of the world.
 
-The words *Church of Jesus Christ* declare that it is His Church. In the Book of Mormon, Jesus taught: “And how be it my church save it be called in my name? For if a church be called in Moses’ name then it be Moses’ church; or if it be called in the name of a man \[like Mormon\] then it be the church of a man; but if it be called in my name then it is my church, if it so be that they are built upon my gospel” ([[3 Nephi 27.8|3 Nephi 27:8]]).
+The words *Church of Jesus Christ* declare that it is His Church. In the Book of Mormon, Jesus taught: “And how be it my church save it be called in my name? For if a church be called in Moses’ name then it be Moses’ church; or if it be called in the name of a man \[like Mormon\] then it be the church of a man; but if it be called in my name then it is my church, if it so be that they are built upon my gospel” ([[3 Nephi 27.8|3 Nephi 27:8]]).
 
 *Of Latter-day* explains that it is the same Church as the Church that Jesus Christ established during His mortal ministry but restored in these latter days. We know there was a falling away, or an apostasy, necessitating the Restoration of His true and complete Church in our time.
 
@@ -54,13 +56,13 @@ Through the years as I have filled assignments around the world, I have been ask
 
 Brothers and sisters, just think of what an impact we can have by simply responding by using the full name of the Church as the Lord has declared we should do. And if you cannot immediately use the full name, at least say, “I belong to the Church of Jesus Christ” and later explain “of Latter-day Saints.”
 
-Some may ask, what about the Internet sites such as  as well as various Church-initiated media campaigns? As I said, referring collectively to members as *Mormons* is sometimes appropriate. As a practical matter, those outside of our faith come looking for us searching for that term. But once you open up , the proper name of the Church is explained on the home page, and it appears on each additional page on the site. It is impractical to expect people to type the full name of the Church when seeking to find us or when logging on to our website.
+Some may ask, what about the Internet sites such as [Mormon.org](https://www.churchofjesuschrist.org/comeuntochrist) as well as various Church-initiated media campaigns? As I said, referring collectively to members as *Mormons* is sometimes appropriate. As a practical matter, those outside of our faith come looking for us searching for that term. But once you open up [Mormon.org](https://www.churchofjesuschrist.org/comeuntochrist), the proper name of the Church is explained on the home page, and it appears on each additional page on the site. It is impractical to expect people to type the full name of the Church when seeking to find us or when logging on to our website.
 
 While these practicalities may continue, they should not keep members from using the full name of the Church whenever possible. Let us develop the habit within our families and our Church activities and our daily interactions of making it clear that The Church of Jesus Christ of Latter-day Saints is the name by which the Lord Himself has directed that we be known.
 
 A recent opinion poll indicated that far too many people still do not understand correctly that *Mormon* refers to members of our Church. And a majority of people are still not sure that Mormons are Christian. Even when they read of our Helping Hands work throughout the world in response to hurricanes, earthquakes, floods, and famines, they do not associate our humanitarian efforts with us as a Christian organization. Surely it would be easier for them to understand that we believe in and follow the Savior if we referred to ourselves as members of The Church of Jesus Christ of Latter-day Saints. In this way those who hear the name *Mormon* will come to associate that word with our revealed name and with people who follow Jesus Christ.
 
-As the First Presidency asked in their letter of February 23, 2001: “The use of the revealed name, The Church of Jesus Christ of Latter-day Saints … , is increasingly important in our responsibility to proclaim the name of the Savior throughout all the world. Accordingly, we ask that when we refer to the Church we use its full name wherever possible.”
+As the First Presidency asked in their letter of February 23, 2001: “The use of the revealed name, The Church of Jesus Christ of Latter-day Saints … , is increasingly important in our responsibility to proclaim the name of the Savior throughout all the world. Accordingly, we ask that when we refer to the Church we use its full name wherever possible.”
 
 Back in 1948 at the October general conference, President George Albert Smith said, “Brethren and sisters, when you go away from here, you may be associating with various denominations of the world, but remember that there is only one Church in all the world that by divine command bears the name of Jesus Christ, our Lord” (in Conference Report, Oct. 1948, 167).
 
@@ -69,8 +71,3 @@ Brothers and sisters, may we also remember this as we leave conference today. Le
 
 
 
-
-
-
-
-#Christianity #Church_Membership #Jesus_Christ #Missionary_Work

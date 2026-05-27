@@ -1,4 +1,3 @@
 # Gerizim
 
-
-*See* [BD Gerizim and Ebal](https://www.churchofjesuschrist.org/study/scriptures/bd/gerizim-and-ebal?lang=eng)
+*See also* [[BD Gerizim and Ebal.md|BD Gerizim and Ebal]]

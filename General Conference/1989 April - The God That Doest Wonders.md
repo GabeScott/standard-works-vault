@@ -1,5 +1,7 @@
 # The God That Doest Wonders
 
+Ezra Taft Benson
+
 By President Howard W. Hunter - *President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1989 General Conference*
@@ -14,9 +16,9 @@ In this beautiful time of year, we remember that death has no sting and the grav
 
 The Psalmist has written:
 
-“I cried unto God with my voice, … and he gave ear unto me. …
+“I cried unto God with my voice, … and he gave ear unto me. …
 
-“And I said, This is my infirmity: but I will remember the years of the right hand of the most High. …
+“And I said, This is my infirmity: but I will remember the years of the right hand of the most High. …
 
 “Thou art the God that doest wonders: thou hast declared thy strength among the people.” ([[Psalms 77.1|Ps. 77:1, 10, 14]][[Psalms 77.10|]][[Psalms 77.14|]].)
 
@@ -34,7 +36,7 @@ Is it not the same for the return of one’s sight or the utterance of our speec
 
 Just one other reminder. Once we start to recognize the many miraculous and blessed manifestations of God and Christ in our lives—the everyday variety as well as restored sight to the blind and restored hearing to the deaf—we may be truly bewildered at the unexplainable principles and processes that bring about such wonders.
 
-In the contemplation of miracles “we must of necessity recognize the operation of a power transcending our present human understanding,” wrote Dr. James E. Talmage, who, as both a scientist and an Apostle of the Lord, had uniquely strong qualifications for examining such phenomena. (*Jesus the Christ,* 3rd ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916, p. 149.) Science and the unaided human mind, he said, have not advanced far enough to analyze and explain these wonders. But, he cautioned, to deny the reality of miracles on the ground that the results and manifestations *must* be fictitious simply because we cannot comprehend the means by which they have happened is arrogant on the face of it. (See p. 149.) Indeed, those who have been the beneficiaries of such miracles are the most compelling witnesses of all. It is hard to argue with results.
+In the contemplation of miracles “we must of necessity recognize the operation of a power transcending our present human understanding,” wrote Dr. James E. Talmage, who, as both a scientist and an Apostle of the Lord, had uniquely strong qualifications for examining such phenomena. (*Jesus the Christ,* 3rd ed., Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1916, p. 149.) Science and the unaided human mind, he said, have not advanced far enough to analyze and explain these wonders. But, he cautioned, to deny the reality of miracles on the ground that the results and manifestations *must* be fictitious simply because we cannot comprehend the means by which they have happened is arrogant on the face of it. (See p. 149.) Indeed, those who have been the beneficiaries of such miracles are the most compelling witnesses of all. It is hard to argue with results.
 
 Consider this simple but telling account from the Savior’s ministry to make manifest the works of God in men’s lives.
 
@@ -79,8 +81,3 @@ I say of our Father as the Psalmist said, “Thou art the God that doest wonders
 
 
 
-
-
-
-
-#Faith #Miracles

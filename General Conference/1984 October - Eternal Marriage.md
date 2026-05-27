@@ -1,5 +1,7 @@
 # Eternal Marriage
 
+Gordon B. Hinckley
+
 By Elder Marion D. Hanks - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -36,7 +38,7 @@ Honorable marriage is approved of the Lord. Indeed, the scriptures teach that �
 
 In the beginning, after the earth was prepared, God brought man and woman together in the Garden, and the first wedding occurred. They were not yet subject to mortal death, and no time limitations were placed upon their marriage. God declared, “Therefore shall a man leave his father and his mother, and shall cleave unto his wife: and they shall be one flesh.” ([[Genesis 2.24|Gen. 2:24]].)
 
-When Christ lived on the earth, He quoted this commandment and added, “What therefore God hath joined together, let not man put asunder.” (See [[Matthew 19.4|Matt. 19:4–6]][[Matthew 19.5|]][[Matthew 19.6|]].) He gave His disciples power to bind in heaven that which is bound on earth. (See [[Matthew 18.18|Matt. 18:18]].) Paul declared that “neither is the man without the woman, neither the woman without the man, in the Lord.” ([[1 Corinthians 11.11|1 Cor. 11:11]].)
+When Christ lived on the earth, He quoted this commandment and added, “What therefore God hath joined together, let not man put asunder.” (See [[Matthew 19.4|Matt. 19:4–6]][[Matthew 19.5|]][[Matthew 19.6|]].) He gave His disciples power to bind in heaven that which is bound on earth. (See [[Matthew 18.18|Matt. 18:18]].) Paul declared that “neither is the man without the woman, neither the woman without the man, in the Lord.” ([[1 Corinthians 11.11|1 Cor. 11:11]].)
 
 When the gospel was restored there came a renewed understanding of temples and temple worship. The power to bind and seal on earth and in heaven has again been entrusted to authorized servants of God. Eternal marriage, marriage of highest promise, is again performed for time and for all eternity by qualified officiators in the holy temples of the Lord.
 
@@ -92,15 +94,10 @@ It is simple to see, isn’t it, that the kind of marriage we’re talking about
 
 So wherever we are with respect to marriage—years from it, close to it, or deeply committed in it—we must be wise, be faithful to the commandments of God, be true. Marriage is the closest and most intimate relationship one makes in this life, and the most serious and sacred decision. If you haven’t been to the Lord’s house, get ready, be clean, prepare to come to establish the foundation for a special, happy, eternal marriage.
 
-And the inspiration for all of this is the sweet assurance—deeply rooted in the heart of every decent man who is living as he should with his sweetheart wife, or who has so lived, or who is planning and preparing such a union—that heaven will be heaven for us because we know we will be there with the one we love the best. Parley P. Pratt said after he met the Prophet in Philadelphia that “it was from him that I learned that the wife of my bosom might be secured to me for time and all eternity; and that the refined sympathies and affections which endeared us to each other emanated from the foundation of divine eternal love. It was from the Prophet that I learned that we might cultivate these affections, and grow and increase in the same to all eternity.” (*Autobiography of Parley P. Pratt,* Salt Lake City: Deseret Book Co., 1938, pp. 297–98.)
+And the inspiration for all of this is the sweet assurance—deeply rooted in the heart of every decent man who is living as he should with his sweetheart wife, or who has so lived, or who is planning and preparing such a union—that heaven will be heaven for us because we know we will be there with the one we love the best. Parley P. Pratt said after he met the Prophet in Philadelphia that “it was from him that I learned that the wife of my bosom might be secured to me for time and all eternity; and that the refined sympathies and affections which endeared us to each other emanated from the foundation of divine eternal love. It was from the Prophet that I learned that we might cultivate these affections, and grow and increase in the same to all eternity.” (*Autobiography of Parley P. Pratt,* Salt Lake City: Deseret Book Co., 1938, pp. 297–98.)
 
 We sat in a room the other night with our five children and their eternal partners, and with their sixteen children. Twenty-eight of us joined in a circle of affection and appreciation. That circle, established with the two of us in a holy house of the Lord only a few short years ago, has expanded miraculously. Our last child was born twenty-four years ago, but the circle continues to expand and grow. God being willing, we may live to see another generation of wonderful children entering the world. We are grateful to know that our family will relate with us eternally, even as we will with those who gave us mortal life, and all of us together will find a loving place ultimately and a continuing relationship under the holy influence of Him whose spirit children we are and of Him whose holy sacrifice brought us the blessings of eternal life. Of this I testify, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Marriage

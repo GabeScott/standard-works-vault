@@ -1,6 +1,8 @@
 # Bind Up Their Wounds
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -93,8 +95,3 @@ I pray that we may prepare ourselves to give whatever priesthood service the Lor
 
 [^3]: [[Moroni 7.46|Moroni 7:46–48]][[Moroni 7.47|]][[Moroni 7.48|]].
 
-
-
-
-
-#Charity #Service #Spirituality

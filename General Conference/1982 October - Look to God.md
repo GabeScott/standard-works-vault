@@ -1,6 +1,8 @@
 # Look to God
 
-By Elder Rex C. Reeve - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Rex C. Reeve - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -99,8 +101,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Love #Priorities

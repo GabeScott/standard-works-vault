@@ -1,15 +1,14 @@
 # Red
 
-
-*See also* [BD Red Sea](https://www.churchofjesuschrist.org/study/scriptures/bd/red-sea?lang=eng)
+*See also* [[BD Red Sea.md|BD Red Sea]]
 
 the first came out *red*, all over, [[Genesis 25.25|Genesis 25:25]].
 
-Feed me ... with that same *red* pottage, [[Genesis 25.30|Genesis 25:30]].
+Feed me … with that same *red* pottage, [[Genesis 25.30|Genesis 25:30]].
 
-water ... as *red* as blood, [[2 Kings 3.22|2 Kings 3:22]].
+water … as *red* as blood, [[2 Kings 3.22|2 Kings 3:22]].
 
-sins ... be *red* like crimson, [[Isaiah 1.18|Isaiah 1:18]].
+sins … be *red* like crimson, [[Isaiah 1.18|Isaiah 1:18]].
 
 art thou *red* in thine apparel, [[Isaiah 63.2|Isaiah 63:2]] ([[D&C 133.48|D&C 133:48]]).
 

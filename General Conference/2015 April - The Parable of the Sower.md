@@ -1,6 +1,8 @@
 # The Parable of the Sower
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -28,13 +30,13 @@ Spiritual food is necessary for spiritual survival, especially in a world that i
 
 Young people, if that teaching seems too general, here is a specific example. If the emblems of the sacrament are being passed and you are texting or whispering or playing video games or doing anything else to deny yourself essential spiritual food, you are severing your spiritual roots and moving yourself toward stony ground. You are making yourself vulnerable to withering away when you encounter tribulation like isolation, intimidation, or ridicule. And that applies to adults also.
 
-Another potential destroyer of spiritual roots—accelerated by current technology but not unique to it—is the keyhole view of the gospel or the Church. This limited view focuses on a particular doctrine or practice or perceived deficiency in a leader and ignores the grand panorama of the gospel plan and the personal and communal fruits of its harvest. President Gordon B. Hinckley gave a vivid description of one aspect of this keyhole view. He told a BYU audience about political commentators “aflame with indignation” at a then-recent news event. “With studied art they poured out the sour vinegar of invective and anger. … Surely,” he concluded, “this is the age and place of the gifted pickle sucker.”[^1] In contrast, to be securely rooted in the gospel, we must be moderate and measured in criticism and seek always for the broader view of the majestic work of God.
+Another potential destroyer of spiritual roots—accelerated by current technology but not unique to it—is the keyhole view of the gospel or the Church. This limited view focuses on a particular doctrine or practice or perceived deficiency in a leader and ignores the grand panorama of the gospel plan and the personal and communal fruits of its harvest. President Gordon B. Hinckley gave a vivid description of one aspect of this keyhole view. He told a BYU audience about political commentators “aflame with indignation” at a then-recent news event. “With studied art they poured out the sour vinegar of invective and anger. … Surely,” he concluded, “this is the age and place of the gifted pickle sucker.”[^1] In contrast, to be securely rooted in the gospel, we must be moderate and measured in criticism and seek always for the broader view of the majestic work of God.
 
 ## II. Thorns: The Cares of This World and the Deceitfulness of Riches
 
 Jesus taught that “some fell among thorns, and the thorns grew up, and choked it, and it yielded no fruit” ([[Mark 4.7|Mark 4:7]]). He explained that these are “such as hear the word, and the cares of this world, and the deceitfulness of riches, and the lusts of other things entering in, choke the word, and it becometh unfruitful” ([[Mark 4.18|Mark 4:18–19]][[Mark 4.19|]]). This is surely a warning to be heeded by all of us.
 
-I will speak first of the deceitfulness of riches. Wherever we are in our spiritual journey—whatever our state of conversion—we are all tempted by this. When attitudes or priorities are fixed on the acquisition, use, or possession of property, we call that materialism. So much has been said and written about materialism that little needs to be added here.[^2] Those who believe in what has been called the theology of prosperity are suffering from the deceitfulness of riches. The possession of wealth or significant income is not a mark of heavenly favor, and their absence is not evidence of heavenly disfavor. When Jesus told a faithful follower that he could inherit eternal life if he would only give all that he had to the poor (see [[Mark 10.17|Mark 10:17–24]][[Mark 10.18|]][[Mark 10.19|]][[Mark 10.20|]][[Mark 10.21|]][[Mark 10.22|]][[Mark 10.23|]][[Mark 10.24|]]), He was not identifying an evil in the *possession* of riches but an evil in that follower’s *attitude* toward them. As we are all aware, Jesus praised the good Samaritan, who used the same coinage to serve his fellowman that Judas used to betray his Savior. The root of all evil is not money but the *love of money* (see [[1 Timothy 6.10|1 Timothy 6:10]]).
+I will speak first of the deceitfulness of riches. Wherever we are in our spiritual journey—whatever our state of conversion—we are all tempted by this. When attitudes or priorities are fixed on the acquisition, use, or possession of property, we call that materialism. So much has been said and written about materialism that little needs to be added here.[^2] Those who believe in what has been called the theology of prosperity are suffering from the deceitfulness of riches. The possession of wealth or significant income is not a mark of heavenly favor, and their absence is not evidence of heavenly disfavor. When Jesus told a faithful follower that he could inherit eternal life if he would only give all that he had to the poor (see [[Mark 10.17|Mark 10:17–24]][[Mark 10.18|]][[Mark 10.19|]][[Mark 10.20|]][[Mark 10.21|]][[Mark 10.22|]][[Mark 10.23|]][[Mark 10.24|]]), He was not identifying an evil in the *possession* of riches but an evil in that follower’s *attitude* toward them. As we are all aware, Jesus praised the good Samaritan, who used the same coinage to serve his fellowman that Judas used to betray his Savior. The root of all evil is not money but the *love of money* (see [[1 Timothy 6.10|1 Timothy 6:10]]).
 
 The Book of Mormon tells of a time when the Church of God “began to fail in its progress” ([[Alma 4.10|Alma 4:10]]) because “the people of the church began to … set their hearts upon riches and upon the vain things of the world” ([[Alma 4.8|Alma 4:8]]). Whoever has an abundance of material things is in jeopardy of being spiritually “sedated” by riches and other things of the world.[^3] That is a suitable introduction to the next of the Savior’s teachings.
 
@@ -42,13 +44,13 @@ The most subtle thorns to choke out the effect of the gospel word in our lives a
 
 On one occasion Jesus rebuked His chief Apostle, saying to Peter, “Thou art an offence unto me: for thou savourest not the things that be of God, but those that be of men” ([[Matthew 16.23|Matthew 16:23]]; see also [[D&C 3.6|D&C 3:6–7]][[D&C 3.7|]]; [[D&C 58.39|58:39]]). Savoring the things of men means putting the cares of this world ahead of the things of God in our actions, our priorities, and our thinking.
 
-We surrender to the “pleasures of this life” (1) when we are addicted, which impairs God’s precious gift of agency; (2) when we are beguiled by trivial distractions, which draw us away from things of eternal importance; and (3) when we have an entitlement mentality, which impairs the personal growth necessary to qualify us for our eternal destiny.
+We surrender to the “pleasures of this life” (1) when we are addicted, which impairs God’s precious gift of agency; (2) when we are beguiled by trivial distractions, which draw us away from things of eternal importance; and (3) when we have an entitlement mentality, which impairs the personal growth necessary to qualify us for our eternal destiny.
 
-We are overcome by the “cares … of this life” when we are paralyzed by fear of the future, which hinders our going forward in faith, trusting in God and His promises. Twenty-five years ago my esteemed BYU teacher Hugh W. Nibley spoke of the dangers of surrendering to the cares of the world. He was asked in an interview whether world conditions and our duty to spread the gospel made it desirable to seek some way to “be accommodating of the world in what we do in the Church.”[^4]
+We are overcome by the “cares … of this life” when we are paralyzed by fear of the future, which hinders our going forward in faith, trusting in God and His promises. Twenty-five years ago my esteemed BYU teacher Hugh W. Nibley spoke of the dangers of surrendering to the cares of the world. He was asked in an interview whether world conditions and our duty to spread the gospel made it desirable to seek some way to “be accommodating of the world in what we do in the Church.”[^4]
 
 His reply: “That’s been the whole story of the Church, hasn’t it? You have to be willing to offend here, you have to be willing to take the risk. That’s where the faith comes in. … Our commitment is supposed to be a test, it’s supposed to be hard, it’s supposed to be impractical in the terms of this world.”[^5]
 
-This gospel priority was affirmed on the BYU campus just a few months ago by an esteemed Catholic leader, Charles J. Chaput, the archbishop of Philadelphia. Speaking of “concerns that the LDS and Catholic communities share,” such as “about marriage and family, the nature of our sexuality, the sanctity of human life, and the urgency of religious liberty,” he said this:
+This gospel priority was affirmed on the BYU campus just a few months ago by an esteemed Catholic leader, Charles J. Chaput, the archbishop of Philadelphia. Speaking of “concerns that the LDS and Catholic communities share,” such as “about marriage and family, the nature of our sexuality, the sanctity of human life, and the urgency of religious liberty,” he said this:
 
 “I want to stress again the importance of really living what we claim to believe. That needs to be a priority—not just in our personal and family lives but in our churches, our political choices, our business dealings, our treatment of the poor; in other words, in everything we do.”
 
@@ -69,20 +71,15 @@ I testify of the truth of these things, and I testify of our Savior, Jesus Chris
 
 
 
-[^1]: Gordon B. Hinckley, “Let Not Your Heart Be Troubled” (Brigham Young University devotional, Oct. 29, 1974), 1; [speeches.byu.edu](https://speeches.byu.edu/talks/gordon-b-hinckley/let-heart-troubled).
+[^1]: Gordon B. Hinckley, “Let Not Your Heart Be Troubled” (Brigham Young University devotional, Oct. 29, 1974), 1; [speeches.byu.edu](https://speeches.byu.edu/talks/gordon-b-hinckley/let-heart-troubled).
 
-[^2]: See, for example, Dallin H. Oaks, “Materialism,” chapter 5 in *Pure in Heart* (1988), 73–87.
+[^2]: See, for example, Dallin H. Oaks, “Materialism,” chapter 5 in *Pure in Heart* (1988), 73–87.
 
-[^3]: I am indebted to Elder Neal A. Maxwell for this memorable image (see [“These Are Your Days,”](https://churchofjesuschrist.org/study/ensign/2004/10/these-are-your-days?lang=eng) *Ensign,* Oct. 2004, 26).
+[^3]: I am indebted to Elder Neal A. Maxwell for this memorable image (see “[These Are Your Days](https://www.churchofjesuschrist.org/study/ensign/2004/10/these-are-your-days?lang=eng),” *Ensign,* Oct. 2004, 26).
 
-[^4]: James P. Bell, in “Hugh Nibley, in Black and White,” *BYU Today,* May 1990, 37.
+[^4]: James P. Bell, in “Hugh Nibley, in Black and White,” *BYU Today,* May 1990, 37.
 
 [^5]: Hugh Nibley, in “Hugh Nibley, in Black and White,” 37–38.
 
-[^6]: Charles J. Chaput, “The Great Charter at 800: Why It Still Matters,” *First Things,* Jan. 23, 2015, firstthings.com/web-exclusives/2015/01/the-great-charter-at-800; see also Tad Walch, “At BYU, Catholic Archbishop Seeks Friends, Says U.S. Liberty Depends on Moral People,” *Deseret News,* Jan. 23, 2015, deseretnews.com/article/865620233/At-BYU-Catholic-archbishop-seeks-friends-says-US-liberty-depends-on-moral-people.html. Archbishop Chaput also said that “some of our best Catholic institutions have either lost or greatly softened their religious identity. … Brigham Young is an extraordinary university … because it’s a center of learning enriched by its religious identity. Never lose that” (“The Great Charter at 800”).
+[^6]: Charles J. Chaput, “The Great Charter at 800: Why It Still Matters,” *First Things,* Jan. 23, 2015, firstthings.com/web-exclusives/2015/01/the-great-charter-at-800; see also Tad Walch, “At BYU, Catholic Archbishop Seeks Friends, Says U.S. Liberty Depends on Moral People,” *Deseret News,* Jan. 23, 2015, deseretnews.com/article/865620233/At-BYU-Catholic-archbishop-seeks-friends-says-US-liberty-depends-on-moral-people.html. Archbishop Chaput also said that “some of our best Catholic institutions have either lost or greatly softened their religious identity. … Brigham Young is an extraordinary university … because it’s a center of learning enriched by its religious identity. Never lose that” (“The Great Charter at 800”).
 
-
-
-
-
-#Conversion #Priorities #Worldliness

@@ -1,6 +1,8 @@
 # “I Did Not Reach This Place By Myself”
 
-By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Ronald E. Poelman - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -14,13 +16,8 @@ To my beloved family, friends, teachers, leaders, and associates, I feel intense
 
 To President Kimball, the other General Authorities, and to each of you, I feel great appreciation for your sustaining vote, and I pledge to you my best effort in any assignments which may come to me.
 
-Nearly thirty years ago, in response to my earnest study and fervent prayer, the Holy Spirit confirmed to me the fact that Jesus of Nazareth is the Son of God, the Savior and Redeemer of each individual soul. From that conviction, and by that same Spirit, has followed the knowledge that his gospel is eternally true, that it has been restored to the earth, that the scriptures—which I love—including the Book of Mormon, are divine records, that Joseph Smith and his successors, including Spencer W. Kimball, are prophets of God, and that our Heavenly Father loves us individually. For this knowledge I give thanks and leave you my personal witness that these things are true, in the name of our beloved Savior, the Lord Jesus Christ. Amen.
+Nearly thirty years ago, in response to my earnest study and fervent prayer, the Holy Spirit confirmed to me the fact that Jesus of Nazareth is the Son of God, the Savior and Redeemer of each individual soul. From that conviction, and by that same Spirit, has followed the knowledge that his gospel is eternally true, that it has been restored to the earth, that the scriptures—which I love—including the Book of Mormon, are divine records, that Joseph Smith and his successors, including Spencer W. Kimball, are prophets of God, and that our Heavenly Father loves us individually. For this knowledge I give thanks and leave you my personal witness that these things are true, in the name of our beloved Savior, the Lord Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Testimony

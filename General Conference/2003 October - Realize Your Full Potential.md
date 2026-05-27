@@ -1,5 +1,7 @@
 # Realize Your Full Potential
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -53,8 +55,3 @@ You are a precious young man or woman. Realize your full potential. Be the leade
 
 
 
-
-
-
-
-#Missionary_Work #Patience #Scripture_Study #Service #Testimony

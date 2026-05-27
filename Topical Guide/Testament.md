@@ -1,6 +1,5 @@
 # Testament
 
-
 *See also* [[Covenants.md|Covenants]]; [[Testimony.md|Testimony]]
 
 my blood of the new *testament*, [[Matthew 26.28|Matthew 26:28]] ([[Mark 14.24|Mark 14:24]]).
@@ -23,7 +22,7 @@ in his temple the ark of his *testament*, [[Revelation 11.19|Revelation 11:19]].
 
 until the New *Testament* be translated, [[D&C 45.60|D&C 45:60]].
 
-prayers ... recorded with this seal and *testament*, [[D&C 98.2|D&C 98:2]].
+prayers … recorded with this seal and *testament*, [[D&C 98.2|D&C 98:2]].
 
 testators are now dead, and their *testament* is in force, [[D&C 135.5|D&C 135:5]].
 

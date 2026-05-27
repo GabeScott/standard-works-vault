@@ -1,5 +1,7 @@
 # Go For It!
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -40,13 +42,13 @@ Then the boy concluded, “Who is the other man?”
 
 The mother spoke more softly, yet she was still audible to Brother Winder: “Oh, he’s nobody.”
 
-Remember, my young friends, you are somebody! You are a child of promise. You are a man of might. You are a son of God, endowed with faith, gifted with courage, and guided by prayer. Your eternal destiny is before you. The Apostle Paul speaks to you today as he spoke to Timothy long years ago: “Neglect not the gift that is in thee. … O Timothy, keep that which is committed to thy trust.” ([[1 Timothy 4.14|1 Tim. 4:14]]; [[1 Timothy 6.20|6:20]].)
+Remember, my young friends, you are somebody! You are a child of promise. You are a man of might. You are a son of God, endowed with faith, gifted with courage, and guided by prayer. Your eternal destiny is before you. The Apostle Paul speaks to you today as he spoke to Timothy long years ago: “Neglect not the gift that is in thee. … O Timothy, keep that which is committed to thy trust.” ([[1 Timothy 4.14|1 Tim. 4:14]]; [[1 Timothy 6.20|6:20]].)
 
 As you define your goals and plan for their achievement, ponder the thought: The past is behind—learn from it; the future is ahead—prepare for it; the present is here—live in it.
 
 At times, all of us let that enemy of achievement—even the culprit, self-defeat—dwarf our aspirations, smother our dreams, cloud our vision, and wreck our lives. The enemy’s voice whispers in our ears, “I can’t do it.” “I’m too little.” “Everyone is watching.” “I’m nobody.” This is when we need to reflect on the counsel of Maxwell Maltz, who declared:
 
-“The most … realistic self-image of all is to conceive of yourself as ‘made in the image of God.’” You cannot sincerely hold this conviction without experiencing a profound new sense of strength and power. (*Psycho-Cybernetics,* Englewood Cliffs, N.J.: Prentice-Hall, 1960, p. 245.)
+“The most … realistic self-image of all is to conceive of yourself as ‘made in the image of God.’” You cannot sincerely hold this conviction without experiencing a profound new sense of strength and power. (*Psycho-Cybernetics,* Englewood Cliffs, N.J.: Prentice-Hall, 1960, p. 245.)
 
 This is good medicine for all of us—young and old. After all, men are but boys grown older. One wife said of her husband, as he admiringly gazed at his new boat, “The bigger the boy, the bigger the toy!”
 
@@ -76,7 +78,7 @@ A wise father, speaking to his son, placed the question of choice in a direct se
 
 Altogether too frequently, we are prone to place the blame on Lucifer for every temptation we encounter or every sin we commit. The words of the Apostle Paul place in perspective such thinking. To the Corinthians, Paul counseled,
 
-“There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it.” ([[1 Corinthians 10.13|1 Cor. 10:13]].)
+“There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it.” ([[1 Corinthians 10.13|1 Cor. 10:13]].)
 
 As priesthood holders, we have a responsibility to “stand up and be counted.” Some years back, when David Kennedy was appointed as Secretary of the Treasury, a reporter attempted to entrap him with the question: “Mr. Kennedy, do you believe in prayer?”
 
@@ -137,8 +139,3 @@ Brethren of the priesthood, like the Charles Dickens character Philip Pirrip, we
 
 
 
-
-
-
-
-#Dedication #Faith #Self-Esteem

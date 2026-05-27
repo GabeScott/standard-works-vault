@@ -1,5 +1,7 @@
 # The Shepherds of the Flock
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1999 General Conference*
@@ -66,7 +68,7 @@ The requirements of their office are today as they were in the days of Paul, who
 
 “A bishop then must be blameless, the husband of one wife, vigilant, sober, of good behaviour, given to hospitality, apt to teach;
 
-“Not given to wine, no striker \[that is, not a bully or a violent person\], … not a brawler, not covetous” ([[1 Timothy 3.2|1 Tim. 3:2–3]][[1 Timothy 3.3|]]).
+“Not given to wine, no striker \[that is, not a bully or a violent person\], … not a brawler, not covetous” ([[1 Timothy 3.2|1 Tim. 3:2–3]][[1 Timothy 3.3|]]).
 
 In his letter to Titus, Paul adds that “a bishop must be blameless, as the steward of God; …
 
@@ -103,8 +105,3 @@ May the blessings of heaven come down upon your wives and your children. Someday
 
 
 
-
-
-
-
-#Bishops #Evil #Example #Honesty #Priesthood #Worldliness

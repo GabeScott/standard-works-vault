@@ -1,6 +1,5 @@
 # Dew
 
-
 speech shall distil as the *dew*, [[Deuteronomy 32.2|Deuteronomy 32:2]].
 
 if the *dew* be on the fleece, [[Judges 6.37|Judges 6:37]].

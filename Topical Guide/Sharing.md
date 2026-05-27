@@ -1,4 +1,3 @@
 # Sharing
 
-
-*See* [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Welfare.md|Welfare]]
+*See also* [[Charity.md|Charity]]; [[Generosity.md|Generosity]]; [[Welfare.md|Welfare]]

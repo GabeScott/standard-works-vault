@@ -1,10 +1,12 @@
 # Testimony
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1998 General Conference*
 
->*This thing which we call testimony is the great strength of the Church. It is the wellspring of faith and activity. It is difficult to explain. It is difficult to quantify … , yet it is as real and powerful as any force on the earth.*
+>*This thing which we call testimony is the great strength of the Church. It is the wellspring of faith and activity. It is difficult to explain. It is difficult to quantify … , yet it is as real and powerful as any force on the earth.*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1998/04/testimony?lang=eng)
 
@@ -100,8 +102,3 @@ Jesus is the Christ, His immortal Son, who under His Father’s direction was th
 
 
 
-
-
-
-
-#Book_Of_Mormon #Jesus_Christ #Resurrection #Testimony

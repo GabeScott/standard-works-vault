@@ -1,6 +1,8 @@
 # The Lord Leads His Church
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Sharon Eubank
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -74,7 +76,7 @@ There was another lesson for me. If that boy had judged me for my failure to giv
 
 Yet another lesson from that experience has served me well. As far as I know, he never told anyone in the ward that I had not given good counsel at first. Had he done that, it might have reduced the faith of others in the ward to trust the bishop’s inspiration.
 
-I try not to judge servants of the Lord or to speak of their apparent weaknesses. And I try to teach that by example to my children. President James E. Faust shared a credo that I am trying to make my own. I commend it to you:
+I try not to judge servants of the Lord or to speak of their apparent weaknesses. And I try to teach that by example to my children. President James E. Faust shared a credo that I am trying to make my own. I commend it to you:
 
 “We … need to support and sustain our local leaders, because they … have been ‘called and chosen.’ Every member of this Church may receive counsel from a bishop or a branch president, a stake or a mission president, and the President of the Church and his associates. None of these brethren asked for his calling. None is perfect. Yet they are the servants of the Lord, called by Him through those entitled to inspiration. Those called, sustained, and set apart are entitled to our sustaining support.
 
@@ -84,19 +86,14 @@ That counsel blesses servants of God under all conditions.
 
 In the early days of the Lord’s Church, leaders close to the Prophet Joseph Smith began to speak of his faults. Even with all they had seen and knew of his standing with the Lord, their spirit of criticism and jealousy spread like a plague. One of the Twelve set for us all the standard of faith and loyalty we must have if we are to serve in the Lord’s kingdom.
 
-Here is the report: “Several elders called a meeting in the temple for all those who considered Joseph Smith to be a fallen Prophet. They intended to appoint David Whitmer as the new Church leader. … After listening to the arguments against the Prophet, Brigham \[Young\] arose and testified, ‘Joseph was a Prophet, and I knew it, and that they might rail and slander him as much as they pleased; they could not destroy the appointment of the Prophet of God, they could only destroy their own authority, cut the thread that bound them to the Prophet and to God, and sink themselves to hell’” (*Church History in the Fulness of Times Student Manual* \[Church Educational System manual, 2003\], 2nd ed., 174; see also ** \[1997\], 79).
+Here is the report: “Several elders called a meeting in the temple for all those who considered Joseph Smith to be a fallen Prophet. They intended to appoint David Whitmer as the new Church leader. … After listening to the arguments against the Prophet, Brigham \[Young\] arose and testified, ‘Joseph was a Prophet, and I knew it, and that they might rail and slander him as much as they pleased; they could not destroy the appointment of the Prophet of God, they could only destroy their own authority, cut the thread that bound them to the Prophet and to God, and sink themselves to hell’” (*Church History in the Fulness of Times Student Manual* \[Church Educational System manual, 2003\], 2nd ed., 174; see also *[Teachings of Presidents of the Church: Brigham Young](https://www.churchofjesuschrist.org/study/manual/teachings-brigham-young/chapter-12?lang=eng)* \[1997\], 79).
 
 There is a thread that binds us to the Lord in our service. It runs from wherever we are called to serve in the kingdom, up through those called to preside over us in the priesthood, and to the prophet, who is bound to the Lord. It takes faith and humility to serve in the place to which we are called, to trust that the Lord called us and those who preside over us, and to sustain them with full faith.
 
 There will be times, as there were in the days of Kirtland, when we will need the faith and the integrity of a Brigham Young to stand in the place the Lord has called us to, loyal to His prophet and to the leaders He has put in place.
 
-I bear you my solemn and yet joyful witness that the Lord Jesus Christ is at the helm. He leads His Church and His servants. I bear witness that Thomas S. Monson is the only man who holds and exercises all the keys of the holy priesthood on earth at this time. And I pray blessings on all the humble servants who serve so willingly and well in the restored Church of Jesus Christ, which He leads personally. I testify that Joseph Smith saw God the Father and Jesus Christ. They spoke to him. The keys of the priesthood were restored for the blessing of all of Heavenly Father’s children. It is our mission and our trust to serve in our place in the Lord’s cause. In the name of Jesus Christ, amen.
+I bear you my solemn and yet joyful witness that the Lord Jesus Christ is at the helm. He leads His Church and His servants. I bear witness that Thomas S. Monson is the only man who holds and exercises all the keys of the holy priesthood on earth at this time. And I pray blessings on all the humble servants who serve so willingly and well in the restored Church of Jesus Christ, which He leads personally. I testify that Joseph Smith saw God the Father and Jesus Christ. They spoke to him. The keys of the priesthood were restored for the blessing of all of Heavenly Father’s children. It is our mission and our trust to serve in our place in the Lord’s cause. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Bishops #Church_Callings #Church_Leadership #Faith #Jesus_Christ #Revelation

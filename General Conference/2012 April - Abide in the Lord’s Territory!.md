@@ -1,5 +1,7 @@
 # Abide in the Lord’s Territory!
 
+Thomas S. Monson
+
 By Elder Ulisses Soares - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
@@ -8,7 +10,7 @@ By Elder Ulisses Soares - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2012/04/abide-in-the-lords-territory?lang=eng)
 
-President Thomas S. Monson once said: “May I provide a simple formula by which you can measure the choices which confront you. It’s easy to remember: ‘You can’t be right by doing wrong; you can’t be wrong by doing right’” (“Pathways to Perfection,” *Liahona,* July 2002, 112; *Ensign,* May 2002, 100). President Monson’s formula is simple and direct. It works the same way as the Liahona given to Lehi did. If we exercise faith and are diligent in obeying the Lord’s commandments, we will easily find the correct direction to follow, especially when we face our day-to-day choices.
+President Thomas S. Monson once said: “May I provide a simple formula by which you can measure the choices which confront you. It’s easy to remember: ‘You can’t be right by doing wrong; you can’t be wrong by doing right’” (“Pathways to Perfection,” *Liahona,* July 2002, 112; *Ensign,* May 2002, 100). President Monson’s formula is simple and direct. It works the same way as the Liahona given to Lehi did. If we exercise faith and are diligent in obeying the Lord’s commandments, we will easily find the correct direction to follow, especially when we face our day-to-day choices.
 
 The Apostle Paul exhorts us about the importance of sowing in the Spirit and being aware of not sowing in the flesh. He said:
 
@@ -42,13 +44,8 @@ In [[D&C 20.37|Doctrine and Covenants 20:37]], the Lord teaches us what it means
 
 Jesus Christ established the perfect behavior pattern by which we can build upon our attitudes to be able to fulfill these sacred covenants. The Savior banished from His life any influence that might take His focus away from His divine mission, especially when He was tempted by the enemy or by his followers while He ministered here on earth. Although He never sinned, He had a broken heart and a contrite spirit, full of love for our Heavenly Father and for all men. He humbled Himself before our Father in Heaven, denying His own will to fulfill what the Father had asked of Him in all things until the end. Even at that moment of extreme physical and spiritual pain, carrying the burden of the sins of all mankind on His shoulders and shedding blood through His pores, He told the Father, “Nevertheless not what I will, but what thou wilt” ([[Mark 14.36|Mark 14:36]]).
 
-My prayer, brothers and sisters, as we think about our covenants, is that we may keep ourselves strong against “the fiery darts of the adversary” ([[1 Nephi 15.24|1 Nephi 15:24]]), following the Savior’s example so that we may sow in the Spirit and abide in the Lord’s territory. Let us remember President Monson’s formula: “You can’t be right by doing wrong; you can’t be wrong by doing right.” I say these things in the name of Jesus Christ, amen.
+My prayer, brothers and sisters, as we think about our covenants, is that we may keep ourselves strong against “the fiery darts of the adversary” ([[1 Nephi 15.24|1 Nephi 15:24]]), following the Savior’s example so that we may sow in the Spirit and abide in the Lord’s territory. Let us remember President Monson’s formula: “You can’t be right by doing wrong; you can’t be wrong by doing right.” I say these things in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Agency #Covenants #Obedience

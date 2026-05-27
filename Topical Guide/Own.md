@@ -1,6 +1,5 @@
 # Own
 
-
 every man shall be put to death for his *own* sin, [[Deuteronomy 24.16|Deuteronomy 24:16]].
 
 every man did that which was right in his *own* eyes, [[Judges 17.6|Judges 17:6]] ([[Judges 21.25|Judges 21:25]]; [[Proverbs 21.2|Proverbs 21:2]]).
@@ -23,7 +22,7 @@ Let no man seek his *own*, [[1 Corinthians 10.24|1 Corinthians 10:24]].
 
 seeketh not her *own*, [[1 Corinthians 13.5|1 Corinthians 13:5]].
 
-all seek their *own*, not ... Jesus Christ's, [[Philippians 2.21|Philippians 2:21]].
+all seek their *own*, not … Jesus Christ’s, [[Philippians 2.21|Philippians 2:21]].
 
 if any provide not for his *own*, [[1 Timothy 5.8|1 Timothy 5:8]].
 
@@ -31,7 +30,7 @@ did walk after the desires of his *own* heart, [[Mosiah 11.2|Mosiah 11:2]].
 
 he that persists in his *own* carnal nature, [[Mosiah 16.5|Mosiah 16:5]].
 
-not so much concerned about his people as ... his *own* life, [[Mosiah 19.8|Mosiah 19:8]].
+not so much concerned about his people as … his *own* life, [[Mosiah 19.8|Mosiah 19:8]].
 
 hast not sought thine *own* life, but hast sought my will, [[Helaman 10.4|Helaman 10:4]].
 

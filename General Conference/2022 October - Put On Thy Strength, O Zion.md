@@ -1,6 +1,8 @@
 # Put On Thy Strength, O Zion
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Dallin H. Oaks
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -46,9 +48,9 @@ As the king entered the wedding hall, he surveyed the audience and immediately n
 
 The man obviously was not dressed properly for this special occasion, and the phrase “And he was speechless” indicates that the man was without excuse.[^16]
 
-Elder James E. Talmage provides this instructive commentary about the significance of the man’s actions: “That the unrobed guest was guilty of neglect, intentional disrespect, or some more grievous offense, is plain from the context. The king at first was graciously considerate, inquiring only as to how the man had entered without a wedding garment. Had the guest been able to explain his exceptional appearance, or had he any reasonable excuse to offer, he surely would have spoken; but we are told that he remained speechless. The king’s summons had been freely extended to all whom his servants had found; but each of them had to enter the royal palace by the door; and before reaching the banquet room, in which the king would appear in person, each would be properly attired; but the deficient one, by some means had entered by another way; and not having passed the attendant sentinels at the portal, he was an intruder.”[^17]
+Elder James E. Talmage provides this instructive commentary about the significance of the man’s actions: “That the unrobed guest was guilty of neglect, intentional disrespect, or some more grievous offense, is plain from the context. The king at first was graciously considerate, inquiring only as to how the man had entered without a wedding garment. Had the guest been able to explain his exceptional appearance, or had he any reasonable excuse to offer, he surely would have spoken; but we are told that he remained speechless. The king’s summons had been freely extended to all whom his servants had found; but each of them had to enter the royal palace by the door; and before reaching the banquet room, in which the king would appear in person, each would be properly attired; but the deficient one, by some means had entered by another way; and not having passed the attendant sentinels at the portal, he was an intruder.”[^17]
 
-A Christian author, John O. Reid, noted that the man’s refusal to wear the wedding garment exemplified blatant “disrespect for both the king and his son.” He did not simply lack a wedding garment; rather, he chose not to wear one. He rebelliously refused to dress appropriately for the occasion. The king’s reaction was swift and decisive: “Bind him hand and foot, and take him away, and cast him into outer darkness; there shall be weeping and gnashing of teeth.”[^18]
+A Christian author, John O. Reid, noted that the man’s refusal to wear the wedding garment exemplified blatant “disrespect for both the king and his son.” He did not simply lack a wedding garment; rather, he chose not to wear one. He rebelliously refused to dress appropriately for the occasion. The king’s reaction was swift and decisive: “Bind him hand and foot, and take him away, and cast him into outer darkness; there shall be weeping and gnashing of teeth.”[^18]
 
 The king’s judgment of the man is not based primarily upon the lack of a wedding garment—but that “he was, in fact, determined not to wear one. The man … desired the honor of attending the wedding feast, but … did not want to follow the custom of the king. He wanted to do things his own way. His lack of proper dress revealed his inner rebellion against the king and his instructions.”[^19]
 
@@ -105,15 +107,15 @@ I joyfully declare my witness of the divinity and living reality of God, our Ete
 
 [^7]: [[Matthew 22.1|Matthew 22:1–5]][[Matthew 22.2|]][[Matthew 22.3|]][[Matthew 22.4|]][[Matthew 22.5|]].
 
-[^8]: See James E. Talmage, *Jesus the Christ* (1916), 536–40.
+[^8]: See James E. Talmage, *[Jesus the Christ](https://www.churchofjesuschrist.org/study/manual/jesus-the-christ/chapter-30?lang=eng&id=p21-p29#p21)* (1916), 536–40.
 
-[^9]: James E. Talmage, *Jesus the Christ*, 537.
+[^9]: James E. Talmage, *[Jesus the Christ](https://www.churchofjesuschrist.org/study/manual/jesus-the-christ/chapter-30?lang=eng&id=p23#p23)*, 537.
 
-[^10]: See James E. Talmage, *Jesus the Christ*, 537.
+[^10]: See James E. Talmage, *[Jesus the Christ](https://www.churchofjesuschrist.org/study/manual/jesus-the-christ/chapter-30?lang=eng&id=p23#p23)*, 537.
 
 [^11]: [[Matthew 22.8|Matthew 22:8–10]][[Matthew 22.9|]][[Matthew 22.10|]].
 
-[^12]: See John O. Reid, “Many Are Called, Few Are Chosen,” *Forerunner*, Mar.–Apr. 2016, 8, cgg.org.
+[^12]: See John O. Reid, “Many Are Called, Few Are Chosen,” *Forerunner*, Mar.–Apr. 2016, 8, cgg.org.
 
 [^13]: See Joseph Fielding McConkie, *Gospel Symbolism* (1985), 132.
 
@@ -123,7 +125,7 @@ I joyfully declare my witness of the divinity and living reality of God, our Ete
 
 [^16]: See Reid, “Many Are Called, Few Are Chosen,” 8.
 
-[^17]: James E. Talmage, *Jesus the Christ*, 539–40.
+[^17]: James E. Talmage, *[Jesus the Christ](https://www.churchofjesuschrist.org/study/manual/jesus-the-christ/chapter-30?lang=eng&id=p28#p28)*, 539–40.
 
 [^18]: [[Matthew 22.13|Matthew 22:13]]; see Reid, “Many Are Called, Few Are Chosen,” 8.
 
@@ -137,9 +139,9 @@ I joyfully declare my witness of the divinity and living reality of God, our Ete
 
 [^23]: [[D&C 121.34|Doctrine and Covenants 121:34–35]][[D&C 121.35|]]; emphasis added.
 
-[^24]: See David A. Bednar, “[[2005 April - The Tender Mercies of the Lord.md|The Tender Mercies of the Lord]],” *Ensign* or *Liahona*, May 2005, 99–102.
+[^24]: See David A. Bednar, “[[2005 April - The Tender Mercies of the Lord.md|The Tender Mercies of the Lord]],” *Ensign* or *Liahona*, May 2005, 99–102.
 
-[^25]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^25]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
 [^26]: See [[Genesis 25.29|Genesis 25:29–34]][[Genesis 25.30|]][[Genesis 25.31|]][[Genesis 25.32|]][[Genesis 25.33|]][[Genesis 25.34|]].
 
@@ -155,8 +157,3 @@ I joyfully declare my witness of the divinity and living reality of God, our Ete
 
 [^32]: [[D&C 82.14|Doctrine and Covenants 82:14]].
 
-
-
-
-
-#Agency #Covenants #Discipleship #Obedience #Parables #Priorities #Worldliness

@@ -1,6 +1,8 @@
 # Keeping Covenants Protects Us, Prepares Us, and Empowers Us
 
-By Rosemary M. Wixom - *Primary General President*
+Thomas S. Monson
+
+By Rosemary M. Wixom - *Primary General President*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -38,11 +40,11 @@ That was beautiful. You may sit down. Thank you.
 
 As women of all ages, we walk in *His* light. Our journey on the path is personal and well lit with the Savior’s love.
 
-We enter the gate to the path of eternal life with the ordinance and covenant of baptism, and then we receive the gift of the Holy Ghost. Elder Robert D. Hales asks us, “Do \[we\] understand and do \[our\] children understand that when \[we\] are baptized \[we\] are changed forever?”
+We enter the gate to the path of eternal life with the ordinance and covenant of baptism, and then we receive the gift of the Holy Ghost. Elder Robert D. Hales asks us, “Do \[we\] understand and do \[our\] children understand that when \[we\] are baptized \[we\] are changed forever?”
 
 He also explained that “when we understand our baptismal covenant and the gift of the Holy Ghost, it will change our lives and will establish our total allegiance to the kingdom of God. When temptations come our way, if we will listen, the Holy Ghost will remind us that we have promised to remember our Savior and obey the commandments of God.”[^2]
 
-Each week as we partake of the emblems of the sacrament, we renew our baptismal covenant. Elder David A. Bednar said: “As we stand in the waters of baptism, we look to the temple. As we partake of the sacrament, we look to the temple. We pledge to always remember the Savior and to keep His commandments as preparation to participate in the sacred ordinances of the temple.”[^3]
+Each week as we partake of the emblems of the sacrament, we renew our baptismal covenant. Elder David A. Bednar said: “As we stand in the waters of baptism, we look to the temple. As we partake of the sacrament, we look to the temple. We pledge to always remember the Savior and to keep His commandments as preparation to participate in the sacred ordinances of the temple.”[^3]
 
 Temple ordinances lead to the greatest blessings available through the Atonement of Jesus Christ. They are those ordinances necessary for our exaltation in the celestial kingdom. As we strive to keep our covenants, our feelings of inadequacy and imperfection begin to fade, while the ordinances and the covenants of the temple come alive. Everyone is welcome to walk that path to eternal life.
 
@@ -71,24 +73,19 @@ We do rejoice that through keeping our covenants, we may feel the love of our He
 
 
 
-[^1]: “Teach Me to Walk in the Light,” *Hymns,* no. 304; or *Children’s Songbook,* 177.
+[^1]: “Teach Me to Walk in the Light,” *Hymns,* no. 304; or *Children’s Songbook,* 177.
 
-[^2]: Robert D. Hales, “The Covenant of Baptism: To Be in the Kingdom and of the Kingdom,” *Ensign,* Nov. 2000, 8, 7; *Liahona,* Jan. 2001, 8, 7.
+[^2]: Robert D. Hales, “The Covenant of Baptism: To Be in the Kingdom and of the Kingdom,” *Ensign,* Nov. 2000, 8, 7; *Liahona,* Jan. 2001, 8, 7.
 
-[^3]: David A. Bednar, “Honorably Hold a Name and Standing,” *Ensign* or *Liahona,* May 2009, 98.
+[^3]: David A. Bednar, “Honorably Hold a Name and Standing,” *Ensign* or *Liahona,* May 2009, 98.
 
 [^4]: [[Mosiah 18.9|Mosiah 18:9]].
 
-[^5]: [[2 Nephi 11.5|2 Nephi 11:5]].
+[^5]: [[2 Nephi 11.5|2 Nephi 11:5]].
 
 [^6]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^7]: [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
+[^7]: [[2 Nephi 31.19|2 Nephi 31:19–20]][[2 Nephi 31.20|]].
 
 [^8]: [[D&C 25.13|Doctrine and Covenants 25:13]].
 
-
-
-
-
-#Baptism #Covenants #Temples

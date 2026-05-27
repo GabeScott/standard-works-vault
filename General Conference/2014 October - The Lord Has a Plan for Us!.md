@@ -1,6 +1,8 @@
 # The Lord Has a Plan for Us!
 
-By Elder Carlos A. Godoy - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Carlos A. Godoy - *Of the Seventy*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -12,7 +14,7 @@ What a privilege to be a part of this historic moment when general conference sp
 
 All of us have experienced or will yet experience moments of great decision in our lives. Should I pursue this career or that one? Should I serve a mission? Is this the right person for me to marry?
 
-These are situations in different areas of our lives in which a small change in direction can have significant future consequences. In the words of President Dieter F. Uchtdorf: “Through years of serving the Lord … , I have learned that the difference between happiness and misery in individuals, in marriages, and families often comes down to an error of only a few degrees” (“A Matter of a Few Degrees,” *Ensign* or *Liahona,* May 2008, 58).
+These are situations in different areas of our lives in which a small change in direction can have significant future consequences. In the words of President Dieter F. Uchtdorf: “Through years of serving the Lord … , I have learned that the difference between happiness and misery in individuals, in marriages, and families often comes down to an error of only a few degrees” (“A Matter of a Few Degrees,” *Ensign* or *Liahona,* May 2008, 58).
 
 How can we avoid these small errors in calculation?
 
@@ -26,7 +28,7 @@ I had never thought about my patriarchal blessing in this way. I read it from ti
 
 After his visit, I turned my attention to my patriarchal blessing, wondering, “If we continue to live as we are living, will the promised blessings be fulfilled?” After some pondering, I had the feeling that some changes were necessary, particularly in relation to my education and profession.
 
-It was not a decision between what was right and wrong but between what was good and what was better, as Elder Dallin H. Oaks taught us when he said: “As we consider various choices, we should remember that it is not enough that something is good. Other choices are better, and still others are best” (“Good, Better, Best,” *Ensign* or *Liahona,* Nov. 2007, 104–5).
+It was not a decision between what was right and wrong but between what was good and what was better, as Elder Dallin H. Oaks taught us when he said: “As we consider various choices, we should remember that it is not enough that something is good. Other choices are better, and still others are best” (“Good, Better, Best,” *Ensign* or *Liahona,* Nov. 2007, 104–5).
 
 How then can we ensure that we are making the best decision?
 
@@ -42,9 +44,9 @@ We can find examples in the scriptures in which having a broader vision gave cla
 
 Moses spoke with the Lord face-to-face, learned about the plan of salvation, and thereby better understood his role as the prophet of the gathering of Israel.
 
-“And God spake unto Moses, saying: Behold, I am the Lord God Almighty. …
+“And God spake unto Moses, saying: Behold, I am the Lord God Almighty. …
 
-“… And I will show thee the workmanship of mine hands. …
+“… And I will show thee the workmanship of mine hands. …
 
 “And I have a work for thee, Moses, my son” ([[Moses 1.3|Moses 1:3–4, 6]][[Moses 1.4|]][[Moses 1.6|]]).
 
@@ -54,7 +56,7 @@ Lehi, the great prophet of the Book of Mormon, dreamed a dream, and in his visio
 
 “And it came to pass that the Lord commanded my father, even in a dream, that he should take his family and depart into the wilderness.
 
-“… And he left his house, and the land of his inheritance, and his gold, and his silver, and his precious things” ([[1 Nephi 2.2|1 Nephi 2:2, 4]][[1 Nephi 2.4|]]).
+“… And he left his house, and the land of his inheritance, and his gold, and his silver, and his precious things” ([[1 Nephi 2.2|1 Nephi 2:2, 4]][[1 Nephi 2.4|]]).
 
 Lehi remained faithful to this vision in spite of the difficulties of travel and having to leave behind a comfortable life in Jerusalem.
 
@@ -84,13 +86,13 @@ Happily, earthly parentage was not a deciding factor, and I was accepted that ye
 
 We are children of Almighty God. He is our Father, He loves us, and He has a plan for us. We are not here in this life just to waste our time, grow old, and die. God wants us to grow and achieve our potential.
 
-In the words of President Thomas S. Monson: “Each of you, single or married, regardless of age, has the opportunity to learn and to grow. Expand your knowledge, both intellectual and spiritual, to the full stature of your divine potential” (“The Mighty Strength of the Relief Society,” *Ensign,* Nov. 1997, 95).
+In the words of President Thomas S. Monson: “Each of you, single or married, regardless of age, has the opportunity to learn and to grow. Expand your knowledge, both intellectual and spiritual, to the full stature of your divine potential” (“The Mighty Strength of the Relief Society,” *Ensign,* Nov. 1997, 95).
 
 ## Principle Number Three: We Need to Share This Vision with the People We Love
 
 Lehi made more than a few attempts to help Laman and Lemuel understand the importance of the change they were making. The fact that they did not share their father’s vision caused them to murmur during the journey. Nephi, on the other hand, sought the Lord in order to see what his father had seen.
 
-“And it came to pass after I, Nephi, having heard all the words of my father, concerning the things which he saw in a vision, … I … was desirous also that I might see, and hear, and know of these things, by the power of the Holy Ghost” ([[1 Nephi 10.17|1 Nephi 10:17]]).
+“And it came to pass after I, Nephi, having heard all the words of my father, concerning the things which he saw in a vision, … I … was desirous also that I might see, and hear, and know of these things, by the power of the Holy Ghost” ([[1 Nephi 10.17|1 Nephi 10:17]]).
 
 With this vision, Nephi was able not only to overcome the challenges of the journey but also to lead his family when it became necessary.
 
@@ -105,8 +107,3 @@ God lives. He is our Father. The Savior Jesus Christ lives, and I know that thro
 
 
 
-
-
-
-
-#Agency #Perspective

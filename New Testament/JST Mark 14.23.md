@@ -4,6 +4,3 @@
 
 [JST Mark 14:23](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-mark/14?lang=eng)
 
-
-
-

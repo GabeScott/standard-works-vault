@@ -1,15 +1,14 @@
 # Move
 
-
 Spirit of God *moved* upon the face of the waters, [[Genesis 1.2|Genesis 1:2]] ([[Moses 2.2|Moses 2:2]]).
 
 Spirit of the Lord began to *move* him, [[Judges 13.25|Judges 13:25]].
 
 foundations of heaven *moved*, [[2 Samuel 22.8|2 Samuel 22:8]] ([[Psalms 18.7|Psalms 18:7]]).
 
-Lord ... at my right hand, I shall not be *moved*, [[Psalms 16.8|Psalms 16:8]] ([[Acts 2.25|Acts 2:25]]).
+Lord … at my right hand, I shall not be *moved*, [[Psalms 16.8|Psalms 16:8]] ([[Acts 2.25|Acts 2:25]]).
 
-foundations ... of the hills *moved* and were shaken, [[Psalms 18.7|Psalms 18:7]].
+foundations … of the hills *moved* and were shaken, [[Psalms 18.7|Psalms 18:7]].
 
 through the mercy of the most High he shall not be *moved*, [[Psalms 21.7|Psalms 21:7]].
 
@@ -31,9 +30,9 @@ every mountain and island were *moved* out of their places, [[Revelation 6.14|Re
 
 lending you breath, that ye may live and *move*, [[Mosiah 2.21|Mosiah 2:21]].
 
-if he say unto the earth— *Move* —it is *moved*, [[Helaman 12.13|Helaman 12:13]].
+if he say unto the earth—*Move*—it is *moved*, [[Helaman 12.13|Helaman 12:13]].
 
-brother of Jared ... if he had not had faith it would not have *moved*, [[Ether 12.30|Ether 12:30]].
+brother of Jared … if he had not had faith it would not have *moved*, [[Ether 12.30|Ether 12:30]].
 
 by whom all things were made which live, and *move*, [[D&C 45.1|D&C 45:1]].
 

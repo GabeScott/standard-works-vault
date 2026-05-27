@@ -1,6 +1,8 @@
 # Personal Strength through the Atonement of Jesus Christ
 
-By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -63,17 +65,17 @@ Because your Father in Heaven loves you profoundly, the Atonement of Jesus Chris
 
 
 
-[^1]: [[Alma 17.14|Alma 17:14]]; see also [[Alma 17.1|Alma 17–27]][[Alma 17.2|]][[Alma 17.3|]][[Alma 17.4|]][[Alma 17.5|]][[Alma 17.6|]][[Alma 17.7|]][[Alma 17.8|]][[Alma 17.9|]][[Alma 17.10|]][[Alma 17.11|]][[Alma 17.12|]][[Alma 17.13|]][[Alma 17.14|]][[Alma 17.15|]][[Alma 17.16|]][[Alma 17.17|]][[Alma 17.18|]][[Alma 17.19|]][[Alma 17.20|]][[Alma 17.21|]][[Alma 17.22|]][[Alma 17.23|]][[Alma 17.24|]][[Alma 17.25|]][[Alma 17.26|]][[Alma 17.27|]][[Alma 17.28|]][[Alma 17.29|]][[Alma 17.30|]][[Alma 17.31|]][[Alma 17.32|]][[Alma 17.33|]][[Alma 17.34|]][[Alma 17.35|]][[Alma 17.36|]][[Alma 17.37|]][[Alma 17.38|]][[Alma 17.39|]].
+[^1]: [[Alma 17.14|Alma 17:14]]; see also [[Alma 17.1|Alma 17–27]].
 
 [^2]: See [[Alma 23.4|Alma 23:4–7]][[Alma 23.5|]][[Alma 23.6|]][[Alma 23.7|]]; [[Alma 24.5|24:5–19]][[Alma 24.6|]][[Alma 24.7|]][[Alma 24.8|]][[Alma 24.9|]][[Alma 24.10|]][[Alma 24.11|]][[Alma 24.12|]][[Alma 24.13|]][[Alma 24.14|]][[Alma 24.15|]][[Alma 24.16|]][[Alma 24.17|]][[Alma 24.18|]][[Alma 24.19|]].
 
 [^3]: See [[Alma 24.20|Alma 24:20–27]][[Alma 24.21|]][[Alma 24.22|]][[Alma 24.23|]][[Alma 24.24|]][[Alma 24.25|]][[Alma 24.26|]][[Alma 24.27|]].
 
-[^4]: See [[Alma 27.1|Alma 27]][[Alma 27.2|]][[Alma 27.3|]][[Alma 27.4|]][[Alma 27.5|]][[Alma 27.6|]][[Alma 27.7|]][[Alma 27.8|]][[Alma 27.9|]][[Alma 27.10|]][[Alma 27.11|]][[Alma 27.12|]][[Alma 27.13|]][[Alma 27.14|]][[Alma 27.15|]][[Alma 27.16|]][[Alma 27.17|]][[Alma 27.18|]][[Alma 27.19|]][[Alma 27.20|]][[Alma 27.21|]][[Alma 27.22|]][[Alma 27.23|]][[Alma 27.24|]][[Alma 27.25|]][[Alma 27.26|]][[Alma 27.27|]][[Alma 27.28|]][[Alma 27.29|]][[Alma 27.30|]].
+[^4]: See [[Alma 27.1|Alma 27]].
 
 [^5]: See [[Alma 53.8|Alma 53:8–9]][[Alma 53.9|]]; [[Alma 56.10|56:10–17]][[Alma 56.11|]][[Alma 56.12|]][[Alma 56.13|]][[Alma 56.14|]][[Alma 56.15|]][[Alma 56.16|]][[Alma 56.17|]].
 
-[^6]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^6]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
 [^7]: See [[Alma 53.10|Alma 53:10–13]][[Alma 53.11|]][[Alma 53.12|]][[Alma 53.13|]].
 
@@ -93,11 +95,11 @@ Because your Father in Heaven loves you profoundly, the Atonement of Jesus Chris
 
 [^15]: See [[Ether 12.27|Ether 12:27]].
 
-[^16]: See [[1 Samuel 12.15|1 Samuel 12:15]]; [[Isaiah 1.20|Isaiah 1:20]]; [[1 Nephi 2.23|1 Nephi 2:23]]; [[Mosiah 15.26|Mosiah 15:26]]; [[Alma 9.24|Alma 9:24]]; [[D&C 76.25|Doctrine and Covenants 76:25]]; [[Moses 4.3|Moses 4:3]].
+[^16]: See [[1 Samuel 12.15|1 Samuel 12:15]]; [[Isaiah 1.20|Isaiah 1:20]]; [[1 Nephi 2.23|1 Nephi 2:23]]; [[Mosiah 15.26|Mosiah 15:26]]; [[Alma 9.24|Alma 9:24]]; [[D&C 76.25|Doctrine and Covenants 76:25]]; [[Moses 4.3|Moses 4:3]].
 
-[^17]: See [[Proverbs 28.13|Proverbs 28:13]]; [[1 Corinthians 2.3|1 Corinthians 2:3]]; [[1 Corinthians 15.43|15:43]]; [[2 Corinthians 13.4|2 Corinthians 13:4]]; [[James 3.17|James 3:17]]; [[2 Nephi 3.13|2 Nephi 3:13]]; [[Jacob 4.7|Jacob 4:7]]; [[Alma 34.17|Alma 34:17]]; [[3 Nephi 22.8|3 Nephi 22:8]]; [[Ether 12.26|Ether 12:26–28]][[Ether 12.27|]][[Ether 12.28|]]; [[D&C 24.11|Doctrine and Covenants 24:11]]; [[D&C 35.17|35:17]]; [[D&C 38.14|38:14]]; [[D&C 62.1|62:1]].
+[^17]: See [[Proverbs 28.13|Proverbs 28:13]]; [[1 Corinthians 2.3|1 Corinthians 2:3]]; [[1 Corinthians 15.43|15:43]]; [[2 Corinthians 13.4|2 Corinthians 13:4]]; [[James 3.17|James 3:17]]; [[2 Nephi 3.13|2 Nephi 3:13]]; [[Jacob 4.7|Jacob 4:7]]; [[Alma 34.17|Alma 34:17]]; [[3 Nephi 22.8|3 Nephi 22:8]]; [[Ether 12.26|Ether 12:26–28]][[Ether 12.27|]][[Ether 12.28|]]; [[D&C 24.11|Doctrine and Covenants 24:11]]; [[D&C 35.17|35:17]]; [[D&C 38.14|38:14]]; [[D&C 62.1|62:1]].
 
-[^18]: [[2 Nephi 28.21|2 Nephi 28:21]].
+[^18]: [[2 Nephi 28.21|2 Nephi 28:21]].
 
 [^19]: [[Ether 12.27|Ether 12:27]].
 
@@ -109,8 +111,3 @@ Because your Father in Heaven loves you profoundly, the Atonement of Jesus Chris
 
 [^23]: See [[Matthew 16.25|Matthew 16:25]]; [[D&C 88.125|Doctrine and Covenants 88:125]].
 
-
-
-
-
-#Atonement #Book_Of_Mormon #Covenants #Jesus_Christ #Repentance

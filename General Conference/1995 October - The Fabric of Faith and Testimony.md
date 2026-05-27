@@ -1,5 +1,7 @@
 # The Fabric of Faith and Testimony
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1995 General Conference*
@@ -21,8 +23,3 @@ God bless you. I leave my blessing upon you, that as you walk in faith there may
 
 
 
-
-
-
-
-#Faith #General_Conference #Holy_Ghost #Plan_Of_Salvation #Prayer #Sin

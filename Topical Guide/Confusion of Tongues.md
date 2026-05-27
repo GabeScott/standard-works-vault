@@ -1,4 +1,3 @@
 # Confusion of Tongues
 
-
-*See* [[Language.md|Language]]
+*See also* [[Language.md|Language]]

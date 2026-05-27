@@ -1,5 +1,7 @@
 # Faith in Adversity
 
+Thomas S. Monson
+
 By Elder Rafael E. Pino - *Of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -28,7 +30,7 @@ Brother Quero showed an admirable attitude when he said the following:
 
 “This was the time to show loyalty to God and to acknowledge that we depend on Him, that His will must be obeyed, and that we are subject to Him.
 
-“I spoke to my brothers and gave them strength and courage to understand what President Kimball taught many years ago, that ‘there is no tragedy in death, but only in sin’ (*Teachings of Presidents of the Church: Spencer W. Kimball* \[Melchizedek Priesthood and Relief Society course of study, 2006\], 18) and that the important thing is not how a man died but how he lived.
+“I spoke to my brothers and gave them strength and courage to understand what President Kimball taught many years ago, that ‘there is no tragedy in death, but only in sin’ (*Teachings of Presidents of the Church: Spencer W. Kimball* \[Melchizedek Priesthood and Relief Society course of study, 2006\], 18) and that the important thing is not how a man died but how he lived.
 
 “The words of Job filled my soul: ‘The Lord gave, and the Lord hath taken away; blessed be the name of the Lord’ ([[Job 1.21|Job 1:21]]). And then from Jesus: ‘I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live’ ([[John 11.25|John 11:25]]).
 
@@ -52,7 +54,7 @@ Then, as the Prophet raised his voice, the consoling words of the Lord attended 
 
 “And then, if thou endure it well, God shall exalt thee on high; thou shalt triumph over all thy foes” ([[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]]).
 
-President Howard W. Hunter said: “If our lives and our faith are centered on Jesus Christ and his restored gospel, nothing can ever go permanently wrong. On the other hand, if our lives are not centered on the Savior and his teachings, no other success can ever be permanently right” (*The Teachings of Howard W. Hunter,* ed. Clyde J. Williams \[1997\], 40).
+President Howard W. Hunter said: “If our lives and our faith are centered on Jesus Christ and his restored gospel, nothing can ever go permanently wrong. On the other hand, if our lives are not centered on the Savior and his teachings, no other success can ever be permanently right” (*The Teachings of Howard W. Hunter,* ed. Clyde J. Williams \[1997\], 40).
 
 The Savior said:
 
@@ -62,14 +64,12 @@ The Savior said:
 
 “And every one that heareth these sayings of mine and doeth them not shall be likened unto a foolish man, who built his house upon the sand—
 
-“And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell, and great was the fall of it” ([[3 Nephi 14.24|3 Nephi 14:24–27]][[3 Nephi 14.25|]][[3 Nephi 14.26|]][[3 Nephi 14.27|]]).
+“And the rain descended, and the floods came, and the winds blew, and beat upon that house; and it fell, and great was the fall of it” ([[3 Nephi 14.24|3 Nephi 14:24–27]][[3 Nephi 14.25|]][[3 Nephi 14.26|]][[3 Nephi 14.27|]]).
 
 It is interesting to notice that the rain descended, the floods came, and the winds blew against both houses! Living the gospel does not mean that we will everlastingly escape adversity. Rather, it means that we will be prepared to face and endure adversity more confidently.
 
-I bear solemn witness that Jesus is the Christ, our Savior and Redeemer. He directs His Church through a living prophet, President Thomas S. Monson. If we live our lives in accordance with teachings of the Savior, we will surely find the peace and consolation that only God can give (see [[Philippians 4.7|Philippians 4:7]]). I bear witness of these things in the name of Jesus Christ, amen.
+I bear solemn witness that Jesus is the Christ, our Savior and Redeemer. He directs His Church through a living prophet, President Thomas S. Monson. If we live our lives in accordance with teachings of the Savior, we will surely find the peace and consolation that only God can give (see [[Philippians 4.7|Philippians 4:7]]). I bear witness of these things in the name of Jesus Christ, amen.
 
 
 
 
-
-#Adversity #Faith #Holy_Ghost

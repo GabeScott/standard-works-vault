@@ -1,8 +1,8 @@
 # We Will Prove Them Herewith
 
-([[Abraham 3.25|Abraham 3:25]])
+Russell M. Nelson
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -34,7 +34,7 @@ And the Lord declared in 1833, “Therefore, be not afraid of your enemies, for 
 
 The year 2020 has been marked, in part, by a global pandemic that has proved, examined, and tried us in many ways. I pray that we as individuals and families are learning the valuable lessons that only challenging experiences can teach us. I also hope that all of us will more fully acknowledge the “greatness of God” and the truth that “he shall consecrate \[our\] afflictions for \[our\] gain.”[^4]
 
-Two basic principles can guide and strengthen us as we face proving and trying circumstances in our lives, whatever they may be: (1) the principle of preparation and (2) the principle of pressing forward with a steadfastness in Christ.
+Two basic principles can guide and strengthen us as we face proving and trying circumstances in our lives, whatever they may be: (1) the principle of preparation and (2) the principle of pressing forward with a steadfastness in Christ.
 
 ## Proving and Preparation
 
@@ -58,7 +58,7 @@ Just as challenging times reveal inadequacies in temporal preparedness, so too t
 
 “They that were foolish took their lamps, and took no oil with them:
 
-“But the wise took oil in their vessels with their lamps. …
+“But the wise took oil in their vessels with their lamps. …
 
 “And at midnight there was a cry made, Behold, the bridegroom cometh; go ye out to meet him.
 
@@ -90,7 +90,7 @@ Though the loss of a dear loved one was heart-wrenching and difficult, the membe
 
 Faithfulness is not foolishness or fanaticism. Rather, it is trusting and placing our confidence in Jesus Christ as our Savior, on His name, and in His promises. As we “press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men,”[^15] we are blessed with an eternal perspective and vision that stretches far beyond our limited mortal capacity. We will be enabled to “gather together, and stand in holy places”[^16] and “be not moved, until the day of the Lord come.”[^17]
 
-While I was serving as the president of Brigham Young University–Idaho, Elder Jeffrey R. Holland came to the campus in December 1998 to speak in one of our weekly devotionals. Susan and I invited a group of students to meet and visit with Elder Holland before he delivered his message. As our time together was drawing to a close, I asked Elder Holland, “If you could teach these students just one thing, what would it be?”
+While I was serving as the president of Brigham Young University–Idaho, Elder Jeffrey R. Holland came to the campus in December 1998 to speak in one of our weekly devotionals. Susan and I invited a group of students to meet and visit with Elder Holland before he delivered his message. As our time together was drawing to a close, I asked Elder Holland, “If you could teach these students just one thing, what would it be?”
 
 He answered:
 
@@ -117,7 +117,7 @@ I witness that God the Eternal Father is our Father. Jesus Christ is His Only Be
 
 [^3]: [[D&C 98.14|Doctrine and Covenants 98:14]]; emphasis added.
 
-[^4]: [[2 Nephi 2.2|2 Nephi 2:2]].
+[^4]: [[2 Nephi 2.2|2 Nephi 2:2]].
 
 [^5]: [[D&C 88.119|Doctrine and Covenants 88:119]]; emphasis added.
 
@@ -127,25 +127,23 @@ I witness that God the Eternal Father is our Father. Jesus Christ is His Only Be
 
 [^8]: [[Matthew 25.3|Matthew 25:3–4, 6–11]][[Matthew 25.4|]][[Matthew 25.6|]][[Matthew 25.7|]][[Matthew 25.8|]][[Matthew 25.9|]][[Matthew 25.10|]][[Matthew 25.11|]].
 
-[^9]: Joseph Smith Translation, Matthew 25:12 (in [[Matthew 25.12|Matthew 25:12]], footnote *a*).
+[^9]: Joseph Smith Translation, Matthew 25:12 (in [[Matthew 25.12|Matthew 25:12]], footnote *a*).
 
 [^10]: See [[James 1.22|James 1:22–25]][[James 1.23|]][[James 1.24|]][[James 1.25|]].
 
-[^11]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^11]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^12]: [[Haggai 1.5|Haggai 1:5, 7]][[Haggai 1.7|]].
 
-[^13]: [[2 Corinthians 13.5|2 Corinthians 13:5]].
+[^13]: [[2 Corinthians 13.5|2 Corinthians 13:5]].
 
 [^14]: See [[D&C 105.6|Doctrine and Covenants 105:6]].
 
-[^15]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^15]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
 [^16]: [[D&C 101.22|Doctrine and Covenants 101:22]].
 
 [^17]: [[D&C 87.8|Doctrine and Covenants 87:8]].
 
+[^18]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-#Adversity #Faith #Preparation

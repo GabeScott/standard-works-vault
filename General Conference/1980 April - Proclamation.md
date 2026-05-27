@@ -1,5 +1,7 @@
 # Proclamation
 
+Spencer W. Kimball
+
 By 
 
 *Given in the April session of the 1980 General Conference*
@@ -24,7 +26,7 @@ We affirm the sanctity of the family as a divine creation and declare that God o
 
 We bear witness that all men and women are sons and daughters of God, each accountable to him; that our lives here on earth are part of an eternal plan; that death is not the end, but rather a transition from this to another sphere of purposeful activity made possible through the Atonement of the Redeemer of the world; and that we shall there have the opportunity of working and growing toward perfection.
 
-We testify that the spirit of prophecy and revelation is among us. “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” ([[Articles of Faith 1.9|A of F 1:9]]). The heavens are not sealed; God continues to speak to his children through a prophet empowered to declare his word, now as he did anciently.
+We testify that the spirit of prophecy and revelation is among us. “We believe all that God has revealed, all that He does now reveal, and we believe that He will yet reveal many great and important things pertaining to the Kingdom of God” ([[Articles of Faith 1.9|A of F 1:9]]). The heavens are not sealed; God continues to speak to his children through a prophet empowered to declare his word, now as he did anciently.
 
 The mission of the Church today, as it has been from the beginning, is to teach the gospel of Christ to all the world in obedience to the commandment given by the Savior prior to his ascension and repeated in modern revelation: “Go ye into all the world, preach the gospel to every creature, acting in the authority which I have given you, baptizing in the name of the Father, and of the Son, and of the Holy Ghost” ([[D&C 68.8|D&C 68:8]]).
 
@@ -53,8 +55,3 @@ We call upon all men and women to forsake evil and turn to God; to work together
 
 
 
-
-
-
-
-#Restoration

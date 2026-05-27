@@ -1,15 +1,14 @@
 # Way
 
+*See also* [[Door.md|Door]]; [[Example.md|Example]]; [[Gate.md|Gate]]; [[Highway.md|Highway]]; [[Means.md|Means]]; [[Path.md|Path]]; [[Road.md|Road]]; [[Street.md|Street]]; [[Walk.md|Walk]]; [[Wayside.md|Wayside]]
 
-*See also* [[Door.md|Door]]; [[Example, Ensample.md|Example]]; [[Gate.md|Gate]]; [[Highway.md|Highway]]; [[Means.md|Means]]; [[Path.md|Path]]; [[Road.md|Road]]; [[Street.md|Street]]; [[Walk.md|Walk]]; [[Wayside.md|Wayside]]
-
-flaming sword ... to keep the *way* of the tree of life, [[Genesis 3.24|Genesis 3:24]] ([[Alma 42.2|Alma 42:2]]; [[Moses 4.31|Moses 4:31]]).
+flaming sword … to keep the *way* of the tree of life, [[Genesis 3.24|Genesis 3:24]] ([[Alma 42.2|Alma 42:2]]; [[Moses 4.31|Moses 4:31]]).
 
 shall keep the *way* of the Lord, [[Genesis 18.19|Genesis 18:19]].
 
-thou ... shalt shew them the *way*, [[Exodus 18.20|Exodus 18:20]].
+thou … shalt shew them the *way*, [[Exodus 18.20|Exodus 18:20]].
 
-keep the commandments of the Lord ... walk in his *ways*, [[Deuteronomy 8.6|Deuteronomy 8:6]] ([[Deuteronomy 26.17|Deuteronomy 26:17]]).
+keep the commandments of the Lord … walk in his *ways*, [[Deuteronomy 8.6|Deuteronomy 8:6]] ([[Deuteronomy 26.17|Deuteronomy 26:17]]).
 
 give to the man of God, to tell us our *way*, [[1 Samuel 9.8|1 Samuel 9:8]].
 
@@ -59,7 +58,7 @@ neither are your *ways* my *ways*, [[Isaiah 55.8|Isaiah 55:8]].
 
 so are my *ways* higher than your *ways*, [[Isaiah 55.9|Isaiah 55:9]].
 
-they ... delight to know my *ways*, [[Isaiah 58.2|Isaiah 58:2]].
+they … delight to know my *ways*, [[Isaiah 58.2|Isaiah 58:2]].
 
 *way* of peace they know not, [[Isaiah 59.8|Isaiah 59:8]] ([[Romans 3.17|Romans 3:17]]).
 
@@ -73,7 +72,7 @@ God may shew us the *way* wherein we may walk, [[Jeremiah 42.3|Jeremiah 42:3]].
 
 They shall ask the *way* to Zion, [[Jeremiah 50.5|Jeremiah 50:5]].
 
-I ... will judge thee according to thy *ways*, [[Ezekiel 7.3|Ezekiel 7:3]].
+I … will judge thee according to thy *ways*, [[Ezekiel 7.3|Ezekiel 7:3]].
 
 *way* of the Lord is not equal, [[Ezekiel 18.25|Ezekiel 18:25]] ([[Ezekiel 33.17|Ezekiel 33:17]]).
 
@@ -91,9 +90,9 @@ strait is the gate, and narrow is the *way*, [[Matthew 7.14|Matthew 7:14]] ([[2 
 
 multitude spread their garments in the *way*, [[Matthew 21.8|Matthew 21:8]] ([[Mark 11.8|Mark 11:8]]; [[Luke 19.36|Luke 19:36]]).
 
-thou ... teachest the *way* of God, [[Matthew 22.16|Matthew 22:16]] ([[Mark 12.14|Mark 12:14]]; [[Luke 20.21|Luke 20:21]]).
+thou … teachest the *way* of God, [[Matthew 22.16|Matthew 22:16]] ([[Mark 12.14|Mark 12:14]]; [[Luke 20.21|Luke 20:21]]).
 
-go before ... the Lord to prepare his *ways*, [[Luke 1.76|Luke 1:76]].
+go before … the Lord to prepare his *ways*, [[Luke 1.76|Luke 1:76]].
 
 whither I go ye know, and the *way* ye know, [[John 14.4|John 14:4]].
 
@@ -107,13 +106,13 @@ spake evil of that *way* before the multitude, [[Acts 19.9|Acts 19:9]].
 
 I persecuted this *way* unto the death, [[Acts 22.4|Acts 22:4]].
 
-Felix ... having more perfect knowledge of that *way*, [[Acts 24.22|Acts 24:22]].
+Felix … having more perfect knowledge of that *way*, [[Acts 24.22|Acts 24:22]].
 
 They are all gone out of the *way*, [[Romans 3.12|Romans 3:12]] ([[2 Nephi 28.11|2 Nephi 28:11]]; [[D&C 82.6|D&C 82:6]]).
 
-God ... his *ways* past finding out, [[Romans 11.33|Romans 11:33]].
+God … his *ways* past finding out, [[Romans 11.33|Romans 11:33]].
 
-God ... will with the temptation also make a *way* to escape, [[1 Corinthians 10.13|1 Corinthians 10:13]].
+God … will with the temptation also make a *way* to escape, [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 shew I unto you a more excellent *way*, [[1 Corinthians 12.31|1 Corinthians 12:31]].
 
@@ -131,13 +130,13 @@ just and true are thy *ways*, [[Revelation 15.3|Revelation 15:3]].
 
 *way* of the kings of the east might be prepared, [[Revelation 16.12|Revelation 16:12]].
 
-Lord giveth no commandments ... save he shall prepare a *way*, [[1 Nephi 3.7|1 Nephi 3:7]] ([[1 Nephi 9.6|1 Nephi 9:6]]; [[Moroni 7.32|Moroni 7:32]]).
+Lord giveth no commandments … save he shall prepare a *way*, [[1 Nephi 3.7|1 Nephi 3:7]] ([[1 Nephi 9.6|1 Nephi 9:6]]; [[Moroni 7.32|Moroni 7:32]]).
 
-prophet who should come ... to prepare the *way* of the Lord, [[1 Nephi 10.7|1 Nephi 10:7]] ([[Alma 7.9|Alma 7:9]]; [[Alma 9.28|Alma 9:28]]; [[Helaman 14.9|Helaman 14:9]]; [[Ether 9.28|Ether 9:28]]; [[D&C 33.10|D&C 33:10]]; [[D&C 34.6|D&C 34:6]]; [[D&C 65.1|D&C 65:1]]; [[D&C 133.17|D&C 133:17]]).
+prophet who should come … to prepare the *way* of the Lord, [[1 Nephi 10.7|1 Nephi 10:7]] ([[Alma 7.9|Alma 7:9]]; [[Alma 9.28|Alma 9:28]]; [[Helaman 14.9|Helaman 14:9]]; [[Ether 9.28|Ether 9:28]]; [[D&C 33.10|D&C 33:10]]; [[D&C 34.6|D&C 34:6]]; [[D&C 65.1|D&C 65:1]]; [[D&C 133.17|D&C 133:17]]).
 
 *way* is prepared for all men, [[1 Nephi 10.18|1 Nephi 10:18]].
 
-round ball ... pointed the *way*, [[1 Nephi 16.10|1 Nephi 16:10]] ([[Alma 37.40|Alma 37:40]]).
+round ball … pointed the *way*, [[1 Nephi 16.10|1 Nephi 16:10]] ([[Alma 37.40|Alma 37:40]]).
 
 I will prepare the *way* before you, [[1 Nephi 17.13|1 Nephi 17:13]] ([[1 Nephi 22.20|1 Nephi 22:20]]).
 
@@ -153,9 +152,9 @@ none other *way* save it be by the gate, [[2 Nephi 9.41|2 Nephi 9:41]] ([[2 Neph
 
 free to act for yourselves—to choose the *way* of everlasting death or the *way* of eternal life, [[2 Nephi 10.23|2 Nephi 10:23]].
 
-words which I have spoken ... are sufficient to teach any man the right *way*, [[2 Nephi 25.28|2 Nephi 25:28]].
+words which I have spoken … are sufficient to teach any man the right *way*, [[2 Nephi 25.28|2 Nephi 25:28]].
 
-pervert the right *way* of the Lord ... they shall be thrust down to hell, [[2 Nephi 28.15|2 Nephi 28:15]] ([[Jacob 7.7|Jacob 7:7]]; [[Mosiah 29.7|Mosiah 29:7]]).
+pervert the right *way* of the Lord … they shall be thrust down to hell, [[2 Nephi 28.15|2 Nephi 28:15]] ([[Jacob 7.7|Jacob 7:7]]; [[Mosiah 29.7|Mosiah 29:7]]).
 
 none other *way* nor name given, [[2 Nephi 31.21|2 Nephi 31:21]] ([[D&C 61.24|D&C 61:24]]).
 
@@ -173,7 +172,7 @@ somewhat to say unto them by the *way* of condemnation, [[Alma 60.2|Alma 60:2]].
 
 go on in this your *way* of sin, [[Helaman 9.21|Helaman 9:21]].
 
-Jesus ... went a little *way* off from them, [[3 Nephi 19.19|3 Nephi 19:19]].
+Jesus … went a little *way* off from them, [[3 Nephi 19.19|3 Nephi 19:19]].
 
 to prepare the *way* whereby they may come unto me, [[3 Nephi 21.27|3 Nephi 21:27]].
 
@@ -193,11 +192,11 @@ go thy *way* and sin no more, [[D&C 24.2|D&C 24:2]] ([[John 8.11|John 8:11]]).
 
 by some other *way* it is not of God, [[D&C 50.18|D&C 50:18]] ([[D&C 104.16|D&C 104:16]]).
 
-let them journey ... preaching the word by the *way*, [[D&C 52.9|D&C 52:9]] ([[D&C 58.47|D&C 58:47]], [[D&C 58.63|D&C 58:63]]).
+let them journey … preaching the word by the *way*, [[D&C 52.9|D&C 52:9]] ([[D&C 58.47|D&C 58:47]]; [[D&C 58.63|D&C 58:63]]).
 
 preach repentance and remission of sins by *way* of baptism, [[D&C 55.2|D&C 55:2]].
 
-unveil his face unto you ... in his own *way*, [[D&C 88.68|D&C 88:68]].
+unveil his face unto you … in his own *way*, [[D&C 88.68|D&C 88:68]].
 
 must needs be done in mine own *way*, [[D&C 104.16|D&C 104:16]].
 

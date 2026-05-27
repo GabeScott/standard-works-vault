@@ -1,7 +1,6 @@
 # Conceit
 
-
-*See also* [[Haughtiness, Haughty.md|Haughtiness]]; [[Pride.md|Pride]]
+*See also* [[Haughtiness.md|Haughtiness]]; [[Pride.md|Pride]]
 
 lest he be wise in his own *conceit*, [[Proverbs 26.5|Proverbs 26:5]] ([[Romans 11.25|Romans 11:25]]).
 

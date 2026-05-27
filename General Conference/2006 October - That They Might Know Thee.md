@@ -1,5 +1,7 @@
 # That They Might Know Thee
 
+Gordon B. Hinckley
+
 By Elder Keith R. Edwards - *Of the Seventy*
 
 *Given in the October session of the 2006 General Conference*
@@ -63,7 +65,7 @@ I bear testimony that Jesus Christ is the Savior of the world, that through His 
 
 [^1]: *Hymns,* no. 141.
 
-[^2]: [[1 Nephi 19.9|1 Nephi 19:9]].
+[^2]: [[1 Nephi 19.9|1 Nephi 19:9]].
 
 [^3]: See [[D&C 19.16|D&C 19:16–19]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]].
 
@@ -71,9 +73,9 @@ I bear testimony that Jesus Christ is the Savior of the world, that through His 
 
 [^5]: [[Matthew 27.46|Matthew 27:46]].
 
-[^6]: [[1 Nephi 18.15|1 Nephi 18:15–16]][[1 Nephi 18.16|]].
+[^6]: [[1 Nephi 18.15|1 Nephi 18:15–16]][[1 Nephi 18.16|]].
 
-[^7]: [[1 Nephi 19.9|1 Nephi 19:9]].
+[^7]: [[1 Nephi 19.9|1 Nephi 19:9]].
 
 [^8]: [[D&C 121.7|D&C 121:7–8]][[D&C 121.8|]].
 
@@ -89,7 +91,5 @@ I bear testimony that Jesus Christ is the Savior of the world, that through His 
 
 [^14]: [[D&C 19.18|D&C 19:18]].
 
+[^15]: [[John 17.3|John 17:3]].
 
-
-
-#Adversity #Atonement #Endurance

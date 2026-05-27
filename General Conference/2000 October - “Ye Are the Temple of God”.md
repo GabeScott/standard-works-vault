@@ -1,5 +1,7 @@
 # “Ye Are the Temple of God”
 
+Gordon B. Hinckley
+
 By President Boyd K. Packer - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -12,9 +14,9 @@ I respond to a prompting I have had for a very long time to speak to the youth o
 
 President J. Reuben Clark described our youth as “hungry for things of the spirit; they are eager to learn the Gospel, and they want it straight, undiluted.
 
-“They want to know about … our beliefs; they want to gain testimonies of their truth; they are not now doubters but inquirers, seekers after truth. …
+“They want to know about … our beliefs; they want to gain testimonies of their truth; they are not now doubters but inquirers, seekers after truth. …
 
-“You do not have to sneak up behind \[these\] spiritually experienced youth and whisper religion in \[their\] ears; you can come right out, face to face, and talk with \[them\] … ; you can bring these truths to \[them\] openly. … Youth may prove to be not more fearful of them than you are. There is no need for gradual approaches” (“The Charted Course of the Church in Education” \[address to Church educators, 8 Aug. 1938\]; in Boyd K. Packer, *Teach Ye Diligently,* rev. ed. \[1991\], 365, 373–74).
+“You do not have to sneak up behind \[these\] spiritually experienced youth and whisper religion in \[their\] ears; you can come right out, face to face, and talk with \[them\] … ; you can bring these truths to \[them\] openly. … Youth may prove to be not more fearful of them than you are. There is no need for gradual approaches” (“The Charted Course of the Church in Education” \[address to Church educators, 8 Aug. 1938\]; in Boyd K. Packer, *Teach Ye Diligently,* rev. ed. \[1991\], 365, 373–74).
 
 I agree with President Clark and will speak plainly to the youth about things I have learned and know to be true.
 
@@ -46,11 +48,11 @@ You would not paint a temple with dark pictures or symbols or graffiti or even i
 
 “Know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own?
 
-“For ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God’s” ([[1 Corinthians 6.19|1 Cor. 6:19–20]][[1 Corinthians 6.20|]]).
+“For ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God’s” ([[1 Corinthians 6.19|1 Cor. 6:19–20]][[1 Corinthians 6.20|]]).
 
 “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
+“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
 
 There is in your body the supernal power to create life. Boys grow up to be men and may become fathers; girls grow up to be women and may become mothers. Natural and good feelings draw men and women together.
 
@@ -58,11 +60,11 @@ There is in your body the supernal power to create life. Boys grow up to be men 
 
 “Marriage between a man and a woman is ordained of God and … the family is central to the Creator’s plan for the eternal destiny of His children” (*Ensign,* Nov. 1995, 102).
 
-You should be attracted to one another and to marry. Then, and only then, may you worthily respond to the strong and good and constant desire to express that love through which children will bless your lives. By commandment of God our Father, that must happen only between husband and wife—man and woman—committed to one another in the covenant of marriage (see [[1 Corinthians 7.2|1 Cor. 7:2]]; [[D&C 42.22|D&C 42:22]]). To do otherwise is forbidden and will bring sorrow.
+You should be attracted to one another and to marry. Then, and only then, may you worthily respond to the strong and good and constant desire to express that love through which children will bless your lives. By commandment of God our Father, that must happen only between husband and wife—man and woman—committed to one another in the covenant of marriage (see [[1 Corinthians 7.2|1 Cor. 7:2]]; [[D&C 42.22|D&C 42:22]]). To do otherwise is forbidden and will bring sorrow.
 
 It is about controlling these natural desires that the strictest commandments are given in the revelations (see *Teachings of the Prophet Joseph Smith,* 181; [[Galatians 5.19|Gal. 5:19]]; [[Ephesians 5.5|Eph. 5:5]]; [[Mormon 9.28|Morm. 9:28]]).
 
-Young men and women, keep yourselves worthy. Stay away from those environments, the music, the films, the videos, the clubs, and the associations that draw you into immoral conduct (see [[1 Corinthians 6.9|1 Cor. 6:9]]; [[1 Thessalonians 5.22|1 Thes. 5:22]]; [[2 Timothy 2.22|2 Tim. 2:22]]; [[D&C 9.13|D&C 9:13]]).
+Young men and women, keep yourselves worthy. Stay away from those environments, the music, the films, the videos, the clubs, and the associations that draw you into immoral conduct (see [[1 Corinthians 6.9|1 Cor. 6:9]]; [[1 Thessalonians 5.22|1 Thes. 5:22]]; [[2 Timothy 2.22|2 Tim. 2:22]]; [[D&C 9.13|D&C 9:13]]).
 
 Now, I must speak of another danger, almost unknown in our youth but now everywhere about you.
 
@@ -72,13 +74,13 @@ If you consent, the adversary can take control of your thoughts and lead you car
 
 With some few, there is the temptation which seems nearly overpowering for man to be attracted to man or woman to woman. The scriptures plainly condemn those who “dishonour their own bodies between themselves: … men with men working that which is unseemly” ([[Romans 1.24|Rom. 1:24, 27]][[Romans 1.27|]]) or “women \[who\] change the natural use into that which is against nature” ([[Romans 1.26|Rom. 1:26]]).
 
-The gates of freedom, and the good or bad beyond, swing open or closed to the password *choice.* You are free to choose a path that may lead to despair, to disease, even to death (see [[2 Nephi 2.26|2 Ne. 2:26–27]][[2 Nephi 2.27|]]).
+The gates of freedom, and the good or bad beyond, swing open or closed to the password *choice.* You are free to choose a path that may lead to despair, to disease, even to death (see [[2 Nephi 2.26|2 Ne. 2:26–27]][[2 Nephi 2.27|]]).
 
-If you choose that course, the fountains of life may dry up. You will not experience the combination of love and struggle, the pain and pleasure, the disappointment and sacrifice, that love which, blended together in parenthood, exalts a man or a woman and leads to that fulness of joy spoken of in the scriptures (see [[2 Nephi 2.25|2 Ne. 2:25]]; [[2 Nephi 9.18|9:18]]; [[D&C 11.13|D&C 11:13]]; [[D&C 42.61|42:61]]; [[D&C 101.36|101:36]]).
+If you choose that course, the fountains of life may dry up. You will not experience the combination of love and struggle, the pain and pleasure, the disappointment and sacrifice, that love which, blended together in parenthood, exalts a man or a woman and leads to that fulness of joy spoken of in the scriptures (see [[2 Nephi 2.25|2 Ne. 2:25]]; [[2 Nephi 9.18|9:18]]; [[D&C 11.13|D&C 11:13]]; [[D&C 42.61|42:61]]; [[D&C 101.36|101:36]]).
 
-Do not experiment; do not let anyone of either gender touch your body to awaken passions that can flame beyond control. It begins as an innocent curiosity; Satan influences your thoughts, and it becomes a pattern, a habit, which may imprison you in an addiction, to the sorrow and disappointment of those who love you (see [[John 8.34|John 8:34]]; [[2 Peter 2.12|2 Pet. 2:12–14, 18–19]][[2 Peter 2.13|]][[2 Peter 2.14|]][[2 Peter 2.18|]][[2 Peter 2.19|]]).
+Do not experiment; do not let anyone of either gender touch your body to awaken passions that can flame beyond control. It begins as an innocent curiosity; Satan influences your thoughts, and it becomes a pattern, a habit, which may imprison you in an addiction, to the sorrow and disappointment of those who love you (see [[John 8.34|John 8:34]]; [[2 Peter 2.12|2 Pet. 2:12–14, 18–19]][[2 Peter 2.13|]][[2 Peter 2.14|]][[2 Peter 2.18|]][[2 Peter 2.19|]]).
 
-Pressure is put upon legislatures to legalize unnatural conduct. They can never make right that which is forbidden in the laws of God (see [[Leviticus 18.22|Lev. 18:22]]; [[1 Corinthians 6.9|1 Cor. 6:9]]; [[1 Timothy 1.9|1 Tim. 1:9–10]][[1 Timothy 1.10|]]).
+Pressure is put upon legislatures to legalize unnatural conduct. They can never make right that which is forbidden in the laws of God (see [[Leviticus 18.22|Lev. 18:22]]; [[1 Corinthians 6.9|1 Cor. 6:9]]; [[1 Timothy 1.9|1 Tim. 1:9–10]][[1 Timothy 1.10|]]).
 
 Sometimes we are asked why we do not recognize this conduct as a diverse and acceptable lifestyle. This we cannot do. We did not make the laws; they were made in heaven “before the foundation of the world” ([[D&C 132.5|D&C 132:5]]; [[D&C 124.41|124:41]]; see also [[Alma 22.13|Alma 22:13]]). We are servants only.
 
@@ -90,7 +92,7 @@ You may even feel that we do not love you. That also is not true. Parents know, 
 
 We did not make the rules; they were revealed as commandments. We do not cause nor can we prevent the consequences if you disobey the moral laws (see [[D&C 101.78|D&C 101:78]]). In spite of criticism or opposition, we must teach and we must warn.
 
-When any unworthy desires press into your mind, fight them, resist them, control them (see [[James 4.6|James 4:6–8]][[James 4.7|]][[James 4.8|]]; [[2 Nephi 9.39|2 Ne. 9:39]]; [[Mosiah 3.19|Mosiah 3:19]]). The Apostle Paul taught, “There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it” ([[1 Corinthians 10.13|1 Cor. 10:13]]; see also [[D&C 62.1|D&C 62:1]]).
+When any unworthy desires press into your mind, fight them, resist them, control them (see [[James 4.6|James 4:6–8]][[James 4.7|]][[James 4.8|]]; [[2 Nephi 9.39|2 Ne. 9:39]]; [[Mosiah 3.19|Mosiah 3:19]]). The Apostle Paul taught, “There hath no temptation taken you but such as is common to man: but God is faithful, who will not suffer you to be tempted above that ye are able; but will with the temptation also make a way to escape, that ye may be able to bear it” ([[1 Corinthians 10.13|1 Cor. 10:13]]; see also [[D&C 62.1|D&C 62:1]]).
 
 That may be a struggle from which you will not be free in this life. If you do not act on temptations, you need feel no guilt. They may be extremely difficult to resist. But that is better than to yield and bring disappointment and unhappiness to you and those who love you.
 
@@ -106,7 +108,7 @@ You need not, you cannot find your way alone. You have a Redeemer. The Lord will
 
 The choice rests with you; you are not cast off forever. I repeat, these transgressions are not unforgivable.
 
-One may think, “It is too late, my life will soon be over, and I am eternally doomed.” Not so, for “if in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Cor. 15:19]]).
+One may think, “It is too late, my life will soon be over, and I am eternally doomed.” Not so, for “if in this life only we have hope in Christ, we are of all men most miserable” ([[1 Corinthians 15.19|1 Cor. 15:19]]).
 
 Just as the physical body can be cleansed and healed, so can the spirit be washed clean by the power of the Atonement. The Lord will lift you and carry your burden during the suffering and struggle required to make you clean. That is what the Atonement of Christ is all about. He said, “I, the Lord, \[will\] remember \[your sins\] no more” ([[D&C 58.42|D&C 58:42]]; see also [[Hebrews 8.12|Heb. 8:12]]; [[Hebrews 10.17|10:17]]; [[Alma 36.19|Alma 36:19]]).
 
@@ -117,8 +119,3 @@ God be praised for the cleansing, purifying, forgiving power of the Atonement br
 
 
 
-
-
-
-
-#Atonement #Disabilities #Forgiveness #Freedom #Homosexuality #Marriage #Media #Morality #Parenthood #Temples #Temptation #Testimony #Word_Of_Wisdom #Worldliness #Youth

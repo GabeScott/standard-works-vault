@@ -1,5 +1,7 @@
 # Preparing Our Families for the Temple
 
+Gordon B. Hinckley
+
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -16,7 +18,7 @@ Has it only been one year since our beloved prophet announced the building of 32
 
 Our youngest son, Spencer, now serving a mission in Mongolia, wrote that his mission president was addressing the missionaries and members concerning their duty in building up the Church there. “As President Cox opened the discussion for questions, the first response was, ‘When is Mongolia going to have a temple?’ These people,” Spencer said, “are hungering for the gospel to play a greater part in their lives. They don’t even have a Book of Mormon yet, and they want a temple.”
 
-Why all this fuss about temples? Simply put, the purpose of temples “is to redeem all mankind who are obedient to the laws and commandments of God. The gospel in its fulness was revealed to Adam. … \[And\] Saints of all ages have had temples in one form or another” (David B. Haight, in Conference Report, Apr. 1993, 29–30; or *Ensign,* May 1993, 23–24).
+Why all this fuss about temples? Simply put, the purpose of temples “is to redeem all mankind who are obedient to the laws and commandments of God. The gospel in its fulness was revealed to Adam. … \[And\] Saints of all ages have had temples in one form or another” (David B. Haight, in Conference Report, Apr. 1993, [[1993 April - Personal Temple Worship.md|29–30]]; or *Ensign,* May 1993, 23–24).
 
 Joseph Smith said, “The greatest responsibility in this world that God has laid upon us is to seek after our dead” (*History of the Church,* 6:313). If this is true, then as parents and family members our greatest challenge is to prepare our families for the temple. Parents have the primary responsibility, but grandparents, aunts and uncles, even brothers and sisters all may teach the family.
 
@@ -69,8 +71,3 @@ Brothers and sisters, as servants of the living God, we shall press forward in t
 
 
 
-
-
-
-
-#Children #Covenants #Parenthood #Preparation #Satan #Spirituality #Teaching #Temple_Work #Temples

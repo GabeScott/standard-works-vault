@@ -1,5 +1,7 @@
 # A Living Witness of the Living Christ
 
+Russell M. Nelson
+
 By Bishop Gérald Caussé - *Presiding Bishop*
 
 *Given in the April session of the 2020 General Conference*
@@ -14,11 +16,11 @@ The statue of the *Christus,* which adorns the grounds of the Paris Temple and o
 
 Perhaps one reason we as members of The Church of Jesus Christ of Latter-day Saints love this statue is that it reminds us of the description given in the Book of Mormon of the Savior’s appearance on the American continent:
 
-“And behold, they saw a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them. …
+“And behold, they saw a Man descending out of heaven; and he was clothed in a white robe; and he came down and stood in the midst of them. …
 
 “And it came to pass that he stretched forth his hand and spake unto the people, saying:
 
-“Behold, I am Jesus Christ, …
+“Behold, I am Jesus Christ, …
 
 “… I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world.”[^1]
 
@@ -26,7 +28,7 @@ Then He invited each man, woman, and child to come forth and thrust their hands 
 
 This sublime scene is the climax of the Book of Mormon. The entire “good news” of the gospel is contained in this image of the Savior tenderly extending His “arms of mercy”[^3] to invite each individual to come unto Him and receive the blessings of His Atonement.
 
-The central message of the Book of Mormon is to restore the true knowledge of the essential role of Jesus Christ in the salvation and exaltation of mankind. This theme reverberates from the introductory page through the very last words of the last chapter. Through centuries of apostasy and spiritual confusion, the deeper meaning of what Christ did in Gethsemane and on Golgotha became lost or corrupted. How excited Joseph Smith must have felt when, as he was translating 1 Nephi, he discovered this marvelous promise: “These last records \[the Book of Mormon\] … shall establish the truth of the first \[the Bible\] … and shall make known the plain and precious things which have been taken away from them; and shall make known to all kindreds, tongues, and people, that the Lamb of God is the Son of the Eternal Father, and the Savior of the world; and that all men must come unto him, or they cannot be saved.”[^4]
+The central message of the Book of Mormon is to restore the true knowledge of the essential role of Jesus Christ in the salvation and exaltation of mankind. This theme reverberates from the introductory page through the very last words of the last chapter. Through centuries of apostasy and spiritual confusion, the deeper meaning of what Christ did in Gethsemane and on Golgotha became lost or corrupted. How excited Joseph Smith must have felt when, as he was translating 1 Nephi, he discovered this marvelous promise: “These last records \[the Book of Mormon\] … shall establish the truth of the first \[the Bible\] … and shall make known the plain and precious things which have been taken away from them; and shall make known to all kindreds, tongues, and people, that the Lamb of God is the Son of the Eternal Father, and the Savior of the world; and that all men must come unto him, or they cannot be saved.”[^4]
 
 Plain and precious truths about the Savior’s Atonement resound throughout the Book of Mormon. As I list several of these truths, I invite you to reflect on how they have changed or could change your life.
 
@@ -53,51 +55,51 @@ I bear witness that all these experiences are real and are evidence that lives c
 
 
 
-[^1]: [[3 Nephi 11.8|3 Nephi 11:8–11]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]].
+[^1]: [[3 Nephi 11.8|3 Nephi 11:8–11]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]].
 
-[^2]: See [[3 Nephi 11.14|3 Nephi 11:14–15]][[3 Nephi 11.15|]].
+[^2]: See [[3 Nephi 11.14|3 Nephi 11:14–15]][[3 Nephi 11.15|]].
 
 [^3]: [[Alma 5.33|Alma 5:33]].
 
-[^4]: [[1 Nephi 13.40|1 Nephi 13:40]].
+[^4]: [[1 Nephi 13.40|1 Nephi 13:40]].
 
-[^5]: See [[2 Nephi 9.21|2 Nephi 9:21]]; [[2 Nephi 26.24|26:24–27]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]]; [[Mosiah 3.13|Mosiah 3:13]].
+[^5]: See [[2 Nephi 9.21|2 Nephi 9:21]]; [[2 Nephi 26.24|26:24–27]][[2 Nephi 26.25|]][[2 Nephi 26.26|]][[2 Nephi 26.27|]]; [[Mosiah 3.13|Mosiah 3:13]].
 
 [^6]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
-[^7]: See [[2 Nephi 10.25|2 Nephi 10:25]].
+[^7]: See [[2 Nephi 10.25|2 Nephi 10:25]].
 
-[^8]: [[Mosiah 3.24|Mosiah 3:24]]; see also [[2 Nephi 2.4|2 Nephi 2:4, 10, 26]][[2 Nephi 2.10|]][[2 Nephi 2.26|]]; [[2 Nephi 9.6|9:6–7, 12–13, 15, 22]][[2 Nephi 9.7|]][[2 Nephi 9.12|]][[2 Nephi 9.13|]][[2 Nephi 9.15|]][[2 Nephi 9.22|]]; [[Mosiah 3.12|Mosiah 3:12]]; [[Mosiah 16.7|16:7–8]][[Mosiah 16.8|]]; [[Alma 11.41|Alma 11:41–44]][[Alma 11.42|]][[Alma 11.43|]][[Alma 11.44|]]; [[Alma 42.6|42:6–8, 23]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.23|]]; [[Helaman 14.16|Helaman 14:16]]; [[Mormon 9.12|Mormon 9:12]].
+[^8]: [[Mosiah 3.24|Mosiah 3:24]]; see also [[2 Nephi 2.4|2 Nephi 2:4, 10, 26]][[2 Nephi 2.10|]][[2 Nephi 2.26|]]; [[2 Nephi 9.6|9:6–7, 12–13, 15, 22]][[2 Nephi 9.7|]][[2 Nephi 9.12|]][[2 Nephi 9.13|]][[2 Nephi 9.15|]][[2 Nephi 9.22|]]; [[Mosiah 3.12|Mosiah 3:12]]; [[Mosiah 16.7|16:7–8]][[Mosiah 16.8|]]; [[Alma 11.41|Alma 11:41–44]][[Alma 11.42|]][[Alma 11.43|]][[Alma 11.44|]]; [[Alma 42.6|42:6–8, 23]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.23|]]; [[Helaman 14.16|Helaman 14:16]]; [[Mormon 9.12|Mormon 9:12]].
 
-[^9]: See [[2 Nephi 9.21|2 Nephi 9:21]]; [[Mosiah 3.12|Mosiah 3:12]]; [[Helaman 5.11|Helaman 5:11]]; [[Helaman 14.18|14:18]].
+[^9]: See [[2 Nephi 9.21|2 Nephi 9:21]]; [[Mosiah 3.12|Mosiah 3:12]]; [[Helaman 5.11|Helaman 5:11]]; [[Helaman 14.18|14:18]].
 
-[^10]: [[2 Nephi 31.21|2 Nephi 31:21]]; see also [[3 Nephi 27.20|3 Nephi 27:20–21]][[3 Nephi 27.21|]].
+[^10]: [[2 Nephi 31.21|2 Nephi 31:21]]; see also [[3 Nephi 27.20|3 Nephi 27:20–21]][[3 Nephi 27.21|]].
 
-[^11]: [[1 Nephi 8.20|1 Nephi 8:20]].
+[^11]: [[1 Nephi 8.20|1 Nephi 8:20]].
 
-[^12]: [[1 Nephi 15.36|1 Nephi 15:36]].
+[^12]: [[1 Nephi 15.36|1 Nephi 15:36]].
 
-[^13]: [[1 Nephi 15.24|1 Nephi 15:24]].
+[^13]: [[1 Nephi 15.24|1 Nephi 15:24]].
 
-[^14]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]].
+[^14]: See [[2 Nephi 31.1|2 Nephi 31]].
 
 [^15]: [[Mosiah 3.19|Mosiah 3:19]].
 
-[^16]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^16]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^17]: See [[Mosiah 3.19|Mosiah 3:19]].
 
-[^18]: See [[3 Nephi 27.27|3 Nephi 27:27]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
+[^18]: See [[3 Nephi 27.27|3 Nephi 27:27]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^19]: See [[2 Nephi 2.8|2 Nephi 2:8]]; [[Mosiah 2.41|Mosiah 2:41]].
+[^19]: See [[2 Nephi 2.8|2 Nephi 2:8]]; [[Mosiah 2.41|Mosiah 2:41]].
 
 [^20]: See [[Alma 11.37|Alma 11:37]].
 
-[^21]: See [[2 Nephi 9.21|2 Nephi 9:21]].
+[^21]: See [[2 Nephi 9.21|2 Nephi 9:21]].
 
 [^22]: See [[Omni 1.26|Omni 1:26]]; [[Alma 5.33|Alma 5:33]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^23]: See [[Enos 1.1|Enos 1]][[Enos 1.2|]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]][[Enos 1.9|]][[Enos 1.10|]][[Enos 1.11|]][[Enos 1.12|]][[Enos 1.13|]][[Enos 1.14|]][[Enos 1.15|]][[Enos 1.16|]][[Enos 1.17|]][[Enos 1.18|]][[Enos 1.19|]][[Enos 1.20|]][[Enos 1.21|]][[Enos 1.22|]][[Enos 1.23|]][[Enos 1.24|]][[Enos 1.25|]][[Enos 1.26|]][[Enos 1.27|]]; [[Mosiah 5.1|Mosiah 5]][[Mosiah 5.2|]][[Mosiah 5.3|]][[Mosiah 5.4|]][[Mosiah 5.5|]][[Mosiah 5.6|]][[Mosiah 5.7|]][[Mosiah 5.8|]][[Mosiah 5.9|]][[Mosiah 5.10|]][[Mosiah 5.11|]][[Mosiah 5.12|]][[Mosiah 5.13|]][[Mosiah 5.14|]][[Mosiah 5.15|]]; [[Alma 12.1|Alma 12]][[Alma 12.2|]][[Alma 12.3|]][[Alma 12.4|]][[Alma 12.5|]][[Alma 12.6|]][[Alma 12.7|]][[Alma 12.8|]][[Alma 12.9|]][[Alma 12.10|]][[Alma 12.11|]][[Alma 12.12|]][[Alma 12.13|]][[Alma 12.14|]][[Alma 12.15|]][[Alma 12.16|]][[Alma 12.17|]][[Alma 12.18|]][[Alma 12.19|]][[Alma 12.20|]][[Alma 12.21|]][[Alma 12.22|]][[Alma 12.23|]][[Alma 12.24|]][[Alma 12.25|]][[Alma 12.26|]][[Alma 12.27|]][[Alma 12.28|]][[Alma 12.29|]][[Alma 12.30|]][[Alma 12.31|]][[Alma 12.32|]][[Alma 12.33|]][[Alma 12.34|]][[Alma 12.35|]][[Alma 12.36|]][[Alma 12.37|]]; [[Alma 18.1|18–19]][[Alma 18.2|]][[Alma 18.3|]][[Alma 18.4|]][[Alma 18.5|]][[Alma 18.6|]][[Alma 18.7|]][[Alma 18.8|]][[Alma 18.9|]][[Alma 18.10|]][[Alma 18.11|]][[Alma 18.12|]][[Alma 18.13|]][[Alma 18.14|]][[Alma 18.15|]][[Alma 18.16|]][[Alma 18.17|]][[Alma 18.18|]][[Alma 18.19|]][[Alma 18.20|]][[Alma 18.21|]][[Alma 18.22|]][[Alma 18.23|]][[Alma 18.24|]][[Alma 18.25|]][[Alma 18.26|]][[Alma 18.27|]][[Alma 18.28|]][[Alma 18.29|]][[Alma 18.30|]][[Alma 18.31|]][[Alma 18.32|]][[Alma 18.33|]][[Alma 18.34|]][[Alma 18.35|]][[Alma 18.36|]][[Alma 18.37|]][[Alma 18.38|]][[Alma 18.39|]][[Alma 18.40|]][[Alma 18.41|]][[Alma 18.42|]][[Alma 18.43|]]; [[Alma 36.1|36]][[Alma 36.2|]][[Alma 36.3|]][[Alma 36.4|]][[Alma 36.5|]][[Alma 36.6|]][[Alma 36.7|]][[Alma 36.8|]][[Alma 36.9|]][[Alma 36.10|]][[Alma 36.11|]][[Alma 36.12|]][[Alma 36.13|]][[Alma 36.14|]][[Alma 36.15|]][[Alma 36.16|]][[Alma 36.17|]][[Alma 36.18|]][[Alma 36.19|]][[Alma 36.20|]][[Alma 36.21|]][[Alma 36.22|]][[Alma 36.23|]][[Alma 36.24|]][[Alma 36.25|]][[Alma 36.26|]][[Alma 36.27|]][[Alma 36.28|]][[Alma 36.29|]][[Alma 36.30|]].
+[^23]: See [[Enos 1.1|Enos 1]]; [[Mosiah 5.1|Mosiah 5]]; [[Alma 12.1|Alma 12]]; [[Alma 18.1|18–19]]; [[Alma 36.1|36]].
 
 [^24]: [[Alma 5.26|Alma 5:26]]; emphasis added.
 
@@ -109,8 +111,3 @@ I bear witness that all these experiences are real and are evidence that lives c
 
 [^28]: [[D&C 93.1|Doctrine and Covenants 93:1]].
 
-
-
-
-
-#Atonement #Book_Of_Mormon #Jesus_Christ

@@ -1,6 +1,8 @@
 # Wilt Thou Be Made Whole?
 
-By Elder Timothy J. Dyches - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Timothy J. Dyches - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -38,7 +40,7 @@ As they went in faith, the miracle occurred. Can you imagine the overwhelming jo
 
 “One of them, when he saw that he was healed, turned back, and with a loud voice glorified God,
 
-“And fell down on his face at \[the Master’s\] feet, giving him thanks. …
+“And fell down on his face at \[the Master’s\] feet, giving him thanks. …
 
 “And \[Jesus\] said unto him, Arise, go thy way: thy faith hath made thee whole” ([[Luke 17.15|Luke 17:15–16, 19]][[Luke 17.16|]][[Luke 17.19|]]).
 
@@ -54,11 +56,11 @@ The Savior counsels us on how to be made whole—to be complete or become healed
 
 “For my yoke is easy, and my burden is light” ([[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]]).
 
-“Come, follow me” ([[Luke 18.22|Luke 18:22]]) invites us to leave behind the old life and worldly desires and become a new creature for whom “old things are passed away \[and\] all things are become new” ([[2 Corinthians 5.17|2 Corinthians 5:17]]), even with a new, faithful heart. And we are made whole again.
+“Come, follow me” ([[Luke 18.22|Luke 18:22]]) invites us to leave behind the old life and worldly desires and become a new creature for whom “old things are passed away \[and\] all things are become new” ([[2 Corinthians 5.17|2 Corinthians 5:17]]), even with a new, faithful heart. And we are made whole again.
 
 “Draw near unto me and I will draw near unto you; seek me diligently and ye shall find me; ask, and ye shall receive; knock, and it shall be opened unto you” ([[D&C 88.63|D&C 88:63]]).
 
-As we draw near to Him, we realize that mortality is meant to be difficult and that “opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]) is not a flaw in the plan of salvation. Opposition, rather, is the indispensable element of mortality and strengthens our will and refines our choices. The vicissitudes of life help us fashion an eternal relationship with God—and engrave His image upon our countenance as we yield our hearts to Him (see [[Alma 5.19|Alma 5:19]]).
+As we draw near to Him, we realize that mortality is meant to be difficult and that “opposition in all things” ([[2 Nephi 2.11|2 Nephi 2:11]]) is not a flaw in the plan of salvation. Opposition, rather, is the indispensable element of mortality and strengthens our will and refines our choices. The vicissitudes of life help us fashion an eternal relationship with God—and engrave His image upon our countenance as we yield our hearts to Him (see [[Alma 5.19|Alma 5:19]]).
 
 “This do in remembrance of me” ([[Luke 22.19|Luke 22:19]]) is what our Savior asked when He instituted what we call the sacrament. This ordinance with bread and water renews sacred covenants we have made with God and invites the power of the Atonement into our lives. We are healed by abandoning the habits and lifestyles that harden hearts and stiffen necks. When we lay down “the weapons of \[our\] rebellion” ([[Alma 23.7|Alma 23:7]]), we become “agents unto \[ourselves\]” ([[D&C 58.28|D&C 58:28]]), no longer blinded by the sophistry of Satan or deafened by the discordant noise of the secular world.
 
@@ -82,11 +84,11 @@ After the war she often spoke publicly of her experiences and of healing and for
 
 Corrie ten Boom was made whole.
 
-President Thomas S. Monson has said, “There is one life that sustains those who are troubled or beset with sorrow and grief—even the Lord Jesus Christ.”[^2]
+President Thomas S. Monson has said, “There is one life that sustains those who are troubled or beset with sorrow and grief—even the Lord Jesus Christ.”[^2]
 
 If you feel unclean, unloved, unhappy, unworthy, or unwhole, remember “all that is unfair about life can be made right through the Atonement of Jesus Christ.”[^3] Have faith and patience in the Savior’s timing and purposes for you. “Be not afraid, only believe” ([[Mark 5.36|Mark 5:36]]).
 
-Be assured the Savior still seeks to mend our souls and heal our hearts. He waits at the door and knocks. Let us answer by beginning again to pray, repent, forgive, and forget. Let us love God and serve our neighbor and stand in holy places with a life made clean. The impotent man at the pool of Bethesda, the leper along the journey to Jerusalem, and Corrie ten Boom were made whole. “Wilt thou be made whole?” Rise and walk. His “grace is sufficient” ([[2 Corinthians 12.9|2 Corinthians 12:9]]), and you will not walk alone.
+Be assured the Savior still seeks to mend our souls and heal our hearts. He waits at the door and knocks. Let us answer by beginning again to pray, repent, forgive, and forget. Let us love God and serve our neighbor and stand in holy places with a life made clean. The impotent man at the pool of Bethesda, the leper along the journey to Jerusalem, and Corrie ten Boom were made whole. “Wilt thou be made whole?” Rise and walk. His “grace is sufficient” ([[2 Corinthians 12.9|2 Corinthians 12:9]]), and you will not walk alone.
 
 I have come to know that God lives. I know that we are all His children and that He loves us for who we are and for who we can become. I know that He sent His Son to the world to be the atoning sacrifice for all mankind and that those who embrace His gospel and follow Him will be made whole and complete—“in his own time, and in his own way, and according to his own will” ([[D&C 88.68|D&C 88:68]]), by His tender mercies. This is my witness to you in the name of Jesus Christ, amen.
 
@@ -95,12 +97,7 @@ I have come to know that God lives. I know that we are all His children and that
 
 [^1]: Corrie ten Boom, *The Hiding Place* (1971), 215.
 
-[^2]: Thomas S. Monson, “Meeting Life’s Challenges,” *Ensign,* Nov. 1993, 71.
+[^2]: Thomas S. Monson, “Meeting Life’s Challenges,” *Ensign,* Nov. 1993, 71.
 
 [^3]: *Preach My Gospel: A Guide to Missionary Service* (2004), 52.
 
-
-
-
-
-#Forgiveness #Healing #Jesus_Christ

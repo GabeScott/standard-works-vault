@@ -1,6 +1,8 @@
 # Strive for Excellence
 
-By Dallin H. Oaks - *President, Brigham Young University*
+Joseph Fielding Smith
+
+By Dallin H. Oaks - *President, Brigham Young University*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -12,17 +14,17 @@ In describing the nature of man, Hobbes wrote that “the life of man \[is\] sol
 
 But most of all, I am grateful that my educational program was such that at the time I was exposed to this view of man, I was also being taught these lines:
 
-“Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
+“Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
 
 “Remember the worth of souls is great in the sight of God.” ([[D&C 18.10|D&C 18:10]].)
 
 The worlds were created by the Only Begotten of the Father, “and the inhabitants thereof are begotten sons and daughters unto God.” ([[D&C 76.24|D&C 76:24]].)
 
-“For a wise and glorious purpose thou hast placed me here on earth. …” (“O My Father,” *Hymns,* No. 138.)
+“For a wise and glorious purpose thou hast placed me here on earth. …” (“O My Father,” *Hymns,* No. 138.)
 
-“… they who keep their second estate shall have glory added upon their heads for ever and ever.” ([[Abraham 3.26|Abr. 3:26]].)
+“… they who keep their second estate shall have glory added upon their heads for ever and ever.” ([[Abraham 3.26|Abr. 3:26]].)
 
-“Wherefore, as it is written, they are gods, even the sons of God—Wherefore, all things are theirs. …” ([[D&C 76.58|D&C 76:58–59]][[D&C 76.59|]].)
+“Wherefore, as it is written, they are gods, even the sons of God—Wherefore, all things are theirs. …” ([[D&C 76.58|D&C 76:58–59]][[D&C 76.59|]].)
 
 My personal experience converts me to the wisdom of the educational philosophy that joins spiritual with secular instruction. At Brigham Young University and in the other institutions of the Church Educational System, we are concerned with teaching the fundaments of spiritual and secular knowledge and with bringing those teachings into harmony in the lives of men and women in order to prepare them for a balanced and full life of service to God and fellowman.
 
@@ -43,8 +45,3 @@ I bear this testimony to you and ask your prayers and the blessings of our Fathe
 
 
 
-
-
-
-
-#Education

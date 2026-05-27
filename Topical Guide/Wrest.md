@@ -1,6 +1,5 @@
 # Wrest
 
-
 *See also* [[Pervert.md|Pervert]]
 
 cause to decline after many to *wrest* judgment, [[Exodus 23.2|Exodus 23:2]].

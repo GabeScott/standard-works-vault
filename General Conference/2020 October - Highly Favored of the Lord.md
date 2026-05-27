@@ -1,6 +1,8 @@
 # Highly Favored of the Lord
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/10/53stevenson?lang=eng)
 
-One day years ago, as young missionaries laboring in a tiny branch on the small island of Amami Oshima, Japan, my companion and I were ecstatic to learn that President Spencer W. Kimball would be visiting Asia and that all members and missionaries in Japan were invited to Tokyo to hear the prophet at an area conference. With branch members, my companion and I excitedly began making plans for the conference, which would require a 12-hour boat ride across the East China Sea to mainland Japan, followed by a 15-hour train ride to Tokyo. Sadly, however, it was not to be. We received word from our mission president that because of distance and time, my companion and I would not be able to attend the conference in Tokyo.
+One day years ago, as young missionaries laboring in a tiny branch on the small island of Amami Oshima, Japan, my companion and I were ecstatic to learn that President Spencer W. Kimball would be visiting Asia and that all members and missionaries in Japan were invited to Tokyo to hear the prophet at an area conference. With branch members, my companion and I excitedly began making plans for the conference, which would require a 12-hour boat ride across the East China Sea to mainland Japan, followed by a 15-hour train ride to Tokyo. Sadly, however, it was not to be. We received word from our mission president that because of distance and time, my companion and I would not be able to attend the conference in Tokyo.
 
 While members of our little branch embarked for Tokyo, we stayed behind. The following days seemed quiet and empty. We held sacrament meeting alone in the small chapel, while the Latter-day Saints and missionaries of Japan attended the conference.
 
@@ -26,7 +28,7 @@ Even more poignant are thoughts of families who have lost loved ones during this
 
 In short, many, many of you have dealt with heartbreaking disappointment, sorrow, and discouragement. So how do we heal, endure, and move forward when things seem so broken?
 
-The prophet Nephi began engraving the small plates when he was a grown man. As he looked back on his life and ministry, he offered an important reflection in the very first verse of the Book of Mormon. This verse frames an important principle for us to consider in our time. Following his familiar words, “I, Nephi, having been born of goodly parents … ,” he writes, “and having seen many afflictions in the course of my days, nevertheless, having been highly favored of the Lord in all my days.”[^3]
+The prophet Nephi began engraving the small plates when he was a grown man. As he looked back on his life and ministry, he offered an important reflection in the very first verse of the Book of Mormon. This verse frames an important principle for us to consider in our time. Following his familiar words, “I, Nephi, having been born of goodly parents … ,” he writes, “and having seen many afflictions in the course of my days, nevertheless, having been highly favored of the Lord in all my days.”[^3]
 
 As students of the Book of Mormon, we are familiar with the many afflictions to which Nephi refers. Yet following acknowledgment of his afflictions in the course of his days, Nephi gives his gospel perspective of being highly favored of the Lord in all his days. Times of affliction and disappointment do not change the watchful eye of the Lord as He favorably looks upon us, blessing us.
 
@@ -48,7 +50,7 @@ We too can draw parallels as individual members and as a church in the way in wh
 
 First, **becoming more home centered and Church supported.**
 
-Two years ago, President Russell M. Nelson said: “We have become accustomed to thinking of ‘church’ as something that happens in our meetinghouses, supported by what happens at home. We need an adjustment to this pattern. … A *home-centered Church,* supported by what takes place inside our … buildings.”[^12] What a prophetic adjustment! Home-centered gospel learning has been put into practice with the temporary closure of meetinghouses. Even as the world begins to normalize and we return to chapels, we will want to retain our home-centered patterns of gospel study and learning developed during the pandemic.
+Two years ago, President Russell M. Nelson said: “We have become accustomed to thinking of ‘church’ as something that happens in our meetinghouses, supported by what happens at home. We need an adjustment to this pattern. … A *home-centered Church,* supported by what takes place inside our … buildings.”[^12] What a prophetic adjustment! Home-centered gospel learning has been put into practice with the temporary closure of meetinghouses. Even as the world begins to normalize and we return to chapels, we will want to retain our home-centered patterns of gospel study and learning developed during the pandemic.
 
 A second example of being highly favored of the Lord is the revelation regarding ministering **in a higher and holier way.**
 
@@ -68,7 +70,7 @@ The temple ordinances we have missed over several months seem sweeter than previ
 
 As I close, please listen to the encouraging, enthusiastic, uplifting words of the Prophet Joseph Smith. One would never guess he penned them in affliction and isolation, constrained and restricted at a home in Nauvoo, hiding from those who were seeking to illegally apprehend him:
 
-“Now, what do we hear in the gospel which we have received? A voice of gladness! A voice of mercy from heaven; and a voice of truth out of the earth; glad tidings for the dead; a voice of gladness for the living and the dead; glad tidings of great joy. …
+“Now, what do we hear in the gospel which we have received? A voice of gladness! A voice of mercy from heaven; and a voice of truth out of the earth; glad tidings for the dead; a voice of gladness for the living and the dead; glad tidings of great joy. …
 
 “… Shall we not go on in so great a cause? Go forward and not backward. Courage, … and on, on to the victory! Let your hearts rejoice, and be exceedingly glad. Let the earth break forth into singing.”[^14]
 
@@ -83,7 +85,7 @@ I close with my testimony of Jesus Christ, who Himself was no stranger to afflic
 
 [^2]: First Presidency letter, May 19, 2020.
 
-[^3]: [[1 Nephi 1.1|1 Nephi 1:1]].
+[^3]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
 [^4]: See [[Acts 16.24|Acts 16:24–33]][[Acts 16.25|]][[Acts 16.26|]][[Acts 16.27|]][[Acts 16.28|]][[Acts 16.29|]][[Acts 16.30|]][[Acts 16.31|]][[Acts 16.32|]][[Acts 16.33|]].
 
@@ -101,15 +103,13 @@ I close with my testimony of Jesus Christ, who Himself was no stranger to afflic
 
 [^11]: [[D&C 122.9|Doctrine and Covenants 122:9]].
 
-[^12]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7.
+[^12]: Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7.
 
-[^13]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118.
+[^13]: Russell M. Nelson, “[[2018 April - Let Us All Press On.md|Let Us All Press On]],” *Ensign* or *Liahona,* May 2018, 118.
 
 [^14]: [[D&C 128.19|Doctrine and Covenants 128:19, 22]][[D&C 128.22|]].
 
-[^15]: See [[2 Nephi 2.2|2 Nephi 2:2]].
+[^15]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
+[^16]: See [[D&C 122.8|Doctrine and Covenants 122:8]].
 
-
-
-#Adversity

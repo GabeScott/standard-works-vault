@@ -1,5 +1,7 @@
 # Preparing for the Second Coming of Christ
 
+Russell M. Nelson
+
 By Elder Christoffel Golden - *Of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
@@ -22,7 +24,7 @@ Please contrast for a moment the following two scriptures, the first from the Ap
 
 “Without natural affection, trucebreakers, false accusers, incontinent, fierce, despisers of those that are good,
 
-“Traitors, heady, highminded, lovers of pleasures more than lovers of God; …
+“Traitors, heady, highminded, lovers of pleasures more than lovers of God; …
 
 “Ever learning, and never able to come to the knowledge of the truth.”[^6]
 
@@ -48,7 +50,7 @@ Now I quote for a moment from the Church’s Gospel Topics under the heading “
 
 In our preparation for the Second Coming of Jesus Christ, I provide a vital, comforting note for the faithful taken from the Old Testament prophet Amos: “Surely the Lord God will do nothing, until he revealeth his secret unto his servants the prophets.”[^11]
 
-In this spirit, today’s prophet of the Lord to the world, President Russell M. Nelson, has given us this recent inspiring counsel: “The gospel of Jesus Christ *is* a gospel of repentance. Because of the Savior’s Atonement, His gospel provides an invitation to keep changing, growing, and becoming more pure. It is a gospel of hope, of healing, and of progress. Thus, the gospel is a message of *joy*! Our spirits rejoice with every small step forward we take.”[^12]
+In this spirit, today’s prophet of the Lord to the world, President Russell M. Nelson, has given us this recent inspiring counsel: “The gospel of Jesus Christ *is* a gospel of repentance. Because of the Savior’s Atonement, His gospel provides an invitation to keep changing, growing, and becoming more pure. It is a gospel of hope, of healing, and of progress. Thus, the gospel is a message of *joy*! Our spirits rejoice with every small step forward we take.”[^12]
 
 I unreservedly testify of and attest to the reality of God and the miracles in the everyday life of countless people from both the low and high stations of life. True, many sacred experiences are rarely spoken of, in part because of their divine origin and the resulting possibility of ridicule by some who do not know better.
 
@@ -73,9 +75,9 @@ I conclude my remarks with a truly inspiring prophetic declaration from the Prop
 
 [^4]: [[Jacob 4.14|Jacob 4:14]].
 
-[^5]: See [[1 Nephi 3.29|1 Nephi 3:29–31]][[1 Nephi 3.30|]][[1 Nephi 3.31|]].
+[^5]: See [[1 Nephi 3.29|1 Nephi 3:29–31]][[1 Nephi 3.30|]][[1 Nephi 3.31|]].
 
-[^6]: [[2 Timothy 3.1|2 Timothy 3:1–4, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.7|]].
+[^6]: [[2 Timothy 3.1|2 Timothy 3:1–4, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.7|]].
 
 [^7]: [[Alma 37.6|Alma 37:6]].
 
@@ -83,18 +85,13 @@ I conclude my remarks with a truly inspiring prophetic declaration from the Prop
 
 [^9]: [[John 14.6|John 14:6]].
 
-[^10]: Gospel Topics, “[Second Coming of Jesus Christ](https://churchofjesuschrist.org/study/manual/gospel-topics/second-coming-of-jesus-christ?lang=eng),” topics.ChurchofJesusChrist.org.
+[^10]: Gospel Topics, “[Second Coming of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/gospel-topics/second-coming-of-jesus-christ?lang=eng),” topics.ChurchofJesusChrist.org.
 
 [^11]: Joseph Smith Translation, Amos 3:7 (in [[Amos 3.7|Amos 3:7]], footnote *a*).
 
-[^12]: Russell M. Nelson, “[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 7.
+[^12]: Russell M. Nelson, “[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 7.
 
 [^13]: [[Mormon 9.7|Mormon 9:7–9]][[Mormon 9.8|]][[Mormon 9.9|]].
 
 [^14]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
-
-
-
-
-#Jesus_Christ #Preparation #Prophets #Second_Coming

@@ -1,12 +1,14 @@
 # The Living Prophet
 
-By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Rex D. Pinegar - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1976/10/the-living-prophet?lang=eng)
 
-My dear brethren, I wholeheartedly sustain the brethren in the new First Council of the Seventy and the prophet through whom the Lord called them to their new positions of responsibility. Tonight we shall listen to the word of the Lord from His living prophet, Spencer W. Kimball. Young men, you’ve heard about prophets. It has been my opportunity to live where I could associate with one for the last four years. Tonight I would like to share some personal experiences which have brought me to an unyielding testimony of the divine call and mission of President Spencer W. Kimball as prophet, seer, and revelator for the Lord Jesus Christ in our day and time.
+My dear brethren, I wholeheartedly sustain the brethren in the new First Council of the Seventy and the prophet through whom the Lord called them to their new positions of responsibility. Tonight we shall listen to the word of the Lord from His living prophet, Spencer W. Kimball. Young men, you’ve heard about prophets. It has been my opportunity to live where I could associate with one for the last four years. Tonight I would like to share some personal experiences which have brought me to an unyielding testimony of the divine call and mission of President Spencer W. Kimball as prophet, seer, and revelator for the Lord Jesus Christ in our day and time.
 
 It was my privilege to be present when President Kimball became President of the Church. As the body of priesthood bearers raised their hands to sustain President Kimball, there came into my heart and into my mind a calm assurance that this was indeed the will of our Heavenly Father.
 
@@ -34,9 +36,9 @@ Gathering President Tanner, Elder Monson, and Elder Packer closer to him, the pr
 
 What a thrilling spiritual feeling to hear the prophet bear witness of his own calling and to have so graphically illustrated the importance of living apostles. As beautifully and masterfully done as the statues were, they were only marble and could do no more than remind us of the real priesthood leaders which they represented. How blessed we all felt to be present with a living prophet and apostles of the Lord Jesus Christ. Brethren, we must be more than “marble.” We must follow the prophet’s lead and become “living examples” of Christ—bearers—living carriers of His message of salvation to those about us.
 
-My testimony of the divine call of Spencer W. Kimball as the Lord’s prophet has grown from that sweet assurance at the time of his sustaining. Observing his personal example with individuals, with groups of people, in his nonpublic doings, with members and nonmembers of the Church, I have seen and felt his concern for the individual, his dauntless missionary spirit, and his commitment of his full energy and thought to the work of the Lord. In each of these settings, there has come into my soul that witness that here indeed is the prophet of God.
+My testimony of the divine call of Spencer W. Kimball as the Lord’s prophet has grown from that sweet assurance at the time of his sustaining. Observing his personal example with individuals, with groups of people, in his nonpublic doings, with members and nonmembers of the Church, I have seen and felt his concern for the individual, his dauntless missionary spirit, and his commitment of his full energy and thought to the work of the Lord. In each of these settings, there has come into my soul that witness that here indeed is the prophet of God.
 
-I testify to you that Jesus is the Christ; that He is the Head of this Church, The Church of Jesus Christ of Latter-day Saints, and that He does have living apostles of whom the chief apostle is President Spencer W. Kimball. These men do hold the keys of priesthood authority and power, the soul-saving power administered by the Savior Himself during His sojourn here in the earth.
+I testify to you that Jesus is the Christ; that He is the Head of this Church, The Church of Jesus Christ of Latter-day Saints, and that He does have living apostles of whom the chief apostle is President Spencer W. Kimball. These men do hold the keys of priesthood authority and power, the soul-saving power administered by the Savior Himself during His sojourn here in the earth.
 
 Think of it! The Lord loves us so much that He has placed these great men here on the earth to guide us safely back into His presence. Take a good look at them. Listen to their counsel thoughtfully and prayerfully.
 
@@ -45,8 +47,3 @@ May you receive in your heart through the Holy Ghost the same witness and testim
 
 
 
-
-
-
-
-#Spencer_W._Kimball #Testimony

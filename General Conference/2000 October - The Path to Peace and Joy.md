@@ -1,5 +1,7 @@
 # The Path to Peace and Joy
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -38,7 +40,7 @@ Formulas have been crafted to help us remember some of the essential actions req
 
 “I was three days and three nights in the most bitter pain and anguish of soul; and never, until I did cry out unto the Lord Jesus Christ for mercy, did I receive a remission of my sins. But … I did cry unto him and I did find peace to my soul.
 
-“… I have told you this that you may learn wisdom, that ye may learn … that there is no other way or means whereby man can be saved, only in and through Christ.”[^10]
+“… I have told you this that you may learn wisdom, that ye may learn … that there is no other way or means whereby man can be saved, only in and through Christ.”[^10]
 
 Peace is the precious fruit of a righteous life. It is possible because of the Atonement of the Savior. It is earned through full repentance, for that leads to refreshing forgiveness. Repentance opens the doors of enlightenment and aids inspiration.[^11] Repentance brings salvation through forgiveness,[^12] but it does not come automatically. Each step of repentance must be fulfilled.
 
@@ -75,9 +77,9 @@ Have you wandered from the path of joy and now find yourself where you do not wa
 
 [^3]: [[D&C 19.13|D&C 19:13, 20]][[D&C 19.20|]].
 
-[^4]: [[2 Nephi 9.21|2 Ne. 9:21, 23]][[2 Nephi 9.23|]].
+[^4]: [[2 Nephi 9.21|2 Ne. 9:21, 23]][[2 Nephi 9.23|]].
 
-[^5]: See [[2 Nephi 9.8|2 Ne. 9:8–10]][[2 Nephi 9.9|]][[2 Nephi 9.10|]]; [[2 Nephi 2.5|2:5]].
+[^5]: See [[2 Nephi 9.8|2 Ne. 9:8–10]][[2 Nephi 9.9|]][[2 Nephi 9.10|]]; [[2 Nephi 2.5|2:5]].
 
 [^6]: *Gospel Doctrine,* 5th ed. (1939), 100–101.
 
@@ -93,11 +95,11 @@ Have you wandered from the path of joy and now find yourself where you do not wa
 
 [^12]: See [[Alma 32.13|Alma 32:13]].
 
-[^13]: [[2 Nephi 2.7|2 Ne. 2:7]]; emphasis added.
+[^13]: [[2 Nephi 2.7|2 Ne. 2:7]]; emphasis added.
 
 [^14]: See [[D&C 61.2|D&C 61:2]].
 
-[^15]: See [[2 Corinthians 7.9|2 Cor. 7:9–10]][[2 Corinthians 7.10|]].
+[^15]: See [[2 Corinthians 7.9|2 Cor. 7:9–10]][[2 Corinthians 7.10|]].
 
 [^16]: [[D&C 58.42|D&C 58:42–43]][[D&C 58.43|]].
 
@@ -105,8 +107,3 @@ Have you wandered from the path of joy and now find yourself where you do not wa
 
 [^18]: [[Alma 26.20|Alma 26:20]].
 
-
-
-
-
-#Atonement #Commitment #Faith #Forgiveness #Jesus_Christ #Joy #Morality #Obedience #Peace #Repentance #Satan #Sin #Spirituality

@@ -1,5 +1,7 @@
 # “If a Man Die, Shall He Live Again?”
 
+James E. Faust
+
 By Elder Carlos E. Asay - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1994 General Conference*
@@ -14,25 +16,25 @@ I don’t recall exactly what I said on that occasion. But I did attempt to reas
 
 ## The Real Issue
 
-The real issue facing each of us is not *Can I die?* Physical death is one of life’s certainties. It occurs regularly and is evidenced by the printed obituary notices and the empty chairs at our tables. For just as the sun sets at the close of each day, in accord with the eternal rhythm of life, so will we experience a temporary separation of body and spirit, whereby our tabernacles of flesh will be placed “in the cold and silent grave” ([[2 Nephi 1.14|2 Ne. 1:14]]) and our spirits will be “taken home to that God who gave them life” ([[Alma 40.11|Alma 40:11]]).
+The real issue facing each of us is not *Can I die?* Physical death is one of life’s certainties. It occurs regularly and is evidenced by the printed obituary notices and the empty chairs at our tables. For just as the sun sets at the close of each day, in accord with the eternal rhythm of life, so will we experience a temporary separation of body and spirit, whereby our tabernacles of flesh will be placed “in the cold and silent grave” ([[2 Nephi 1.14|2 Ne. 1:14]]) and our spirits will be “taken home to that God who gave them life” ([[Alma 40.11|Alma 40:11]]).
 
 But rather, the real issue is, “If a man die, shall he live again?” ([[Job 14.14|Job 14:14]]). Will the grave seal our fate forever? Or is there a resurrection and another sphere of existence awaiting our souls?
 
-Those who believe that the grave is man’s final destiny live without hope of a better world and are inclined to embrace that fatalistic approach, “Eat, drink, and be merry, for tomorrow we die” ([[2 Nephi 28.7|2 Ne. 28:7]]; see also [[1 Corinthians 15.32|1 Cor. 15:32]]). This approach often leads to wanton experimentation, immoral conduct, and all the other behaviors that reap misery and remorse of conscience (see [[Alma 29.5|Alma 29:5]]).
+Those who believe that the grave is man’s final destiny live without hope of a better world and are inclined to embrace that fatalistic approach, “Eat, drink, and be merry, for tomorrow we die” ([[2 Nephi 28.7|2 Ne. 28:7]]; see also [[1 Corinthians 15.32|1 Cor. 15:32]]). This approach often leads to wanton experimentation, immoral conduct, and all the other behaviors that reap misery and remorse of conscience (see [[Alma 29.5|Alma 29:5]]).
 
 Those who believe in a life after death are much more inclined to lead purposeful lives. Belief in a resurrection and related truths encourages one to obey the commandments, repent of sins, serve others, and do the other things that bring joy and happiness both here and hereafter. It seems, therefore, most appropriate that we address this real issue, *Shall I live again?* on the eve of Easter—a day when Christians the world over will commemorate the resurrection of the Lord and Savior, Jesus Christ.
 
 ## Two Classes of Evidence
 
-A noted writer referred to Christ’s resurrection as “the *greatest miracle* and the most *glorious fact of history”* (James E. Talmage, *Jesus the Christ,* 3rd ed. \[Salt Lake City: Deseret Book Co., 1916\], p. 699; emphasis added).
+A noted writer referred to Christ’s resurrection as “the *greatest miracle* and the most *glorious fact of history”* (James E. Talmage, *Jesus the Christ,* 3rd ed. \[Salt Lake City: Deseret Book Co., 1916\], p. 699; emphasis added).
 
-Miracles are “manifestations of divine or spiritual power” (Bible Dictionary, p. 732). They are not simply sleight-of-hand tricks or actions contrived by clever men. They are acts wrought by individuals with powers beyond those of mortals. What could possibly be greater than the act of laying one’s body down in death and picking it up again in a resurrected state as did Jesus? Only by the use of godly powers and only through the grace of God could such a marvelous thing occur.
+Miracles are “manifestations of divine or spiritual power” (Bible Dictionary, [[BD Miracles|p. 732]]). They are not simply sleight-of-hand tricks or actions contrived by clever men. They are acts wrought by individuals with powers beyond those of mortals. What could possibly be greater than the act of laying one’s body down in death and picking it up again in a resurrected state as did Jesus? Only by the use of godly powers and only through the grace of God could such a marvelous thing occur.
 
 What about the claim that the Resurrection was “the most glorious fact of history”? The facts of the Resurrection may be placed in two groups or classes. One is the cloud of witnesses who saw the resurrected Christ; the other is the army of believers, both present and past, who on the strength of personal testimonies declare with conviction, “The grave hath no victory, and the sting of death is swallowed up in Christ” ([[Mosiah 16.8|Mosiah 16:8]]). Both classes of evidence are significant and worthy of our review.
 
 ## Cloud of Witnesses
 
-In the Acts of the Apostles it is recorded: “To whom also he shewed himself alive after his sufferings by many *infallible proofs,* being seen of them forty days, and speaking of the things pertaining to the kingdom of God” ([[Acts 1.note3b|JST, Acts 1:3]]; emphasis added).
+In the Acts of the Apostles it is recorded: “To whom also he shewed himself alive after his sufferings by many *infallible proofs,* being seen of them forty days, and speaking of the things pertaining to the kingdom of God” ([JST, Acts 1:3](https://www.churchofjesuschrist.org/study/scriptures/nt/acts/1?lang=eng&id=note3b#note3b); emphasis added).
 
 Included in the cloud of witnesses or among the “infallible proofs” were hundreds of followers who saw the risen Lord on multiple occasions.
 
@@ -46,7 +48,7 @@ Included in the cloud of witnesses or among the “infallible proofs” were hun
 
 - He appeared to his beloved Apostles at least four times.
 
-- He was seen after the Crucifixion by “above five hundred brethren at once” ([[1 Corinthians 15.6|1 Cor. 15:6]]), according to Paul’s account.
+- He was seen after the Crucifixion by “above five hundred brethren at once” ([[1 Corinthians 15.6|1 Cor. 15:6]]), according to Paul’s account.
 
 - Moreover, “the graves were opened; and many bodies of the saints which slept arose,“And came out of the graves after his resurrection, and went into the holy city, and appeared unto many” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]]).
 
@@ -56,19 +58,19 @@ One wonders how anyone could doubt the actuality of the Resurrection after readi
 
 But there is more. Christ said, “The testimony of two men is true” ([[John 8.17|John 8:17]]). If this is a valid statement, then surely the testimony of Christ’s escape from the tomb provided by a second nation must not be overlooked. I refer, of course, to the Book of Mormon record of Christ’s postmortal appearances in the Western Hemisphere.
 
-Near a temple in the land called Bountiful some 2,500 people heard a small, piercing voice declare, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him” ([[3 Nephi 11.7|3 Ne. 11:7]]). They stood in awe and experienced a change of heart upon hearing God, the Eternal Father, introduce his Only Begotten Son—his means of extending the gifts of immortality and eternal life to all of his children (see [[John 3.16|John 3:16]]).
+Near a temple in the land called Bountiful some 2,500 people heard a small, piercing voice declare, “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him” ([[3 Nephi 11.7|3 Ne. 11:7]]). They stood in awe and experienced a change of heart upon hearing God, the Eternal Father, introduce his Only Begotten Son—his means of extending the gifts of immortality and eternal life to all of his children (see [[John 3.16|John 3:16]]).
 
-The multitude saw a man descending out of heaven. They heard him announce, “Behold, I am Jesus Christ, whom the prophets testified shall come into the world” ([[3 Nephi 11.10|3 Ne. 11:10]]). Then he invited the people to come forth one by one and see with their eyes and feel with their hands the prints of the nails in his hands and in his feet (see [[3 Nephi 11.14|3 Ne. 11:14–17]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]]).
+The multitude saw a man descending out of heaven. They heard him announce, “Behold, I am Jesus Christ, whom the prophets testified shall come into the world” ([[3 Nephi 11.10|3 Ne. 11:10]]). Then he invited the people to come forth one by one and see with their eyes and feel with their hands the prints of the nails in his hands and in his feet (see [[3 Nephi 11.14|3 Ne. 11:14–17]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]]).
 
-A cloud of people on two continents were eyewitnesses of the risen Christ. Thus, it can be said about this glorious fact of history, “The resurrection … is attested by evidence more conclusive than that upon which rests our acceptance of historical events in general” (James E. Talmage, *Jesus the Christ,* p. 699).
+A cloud of people on two continents were eyewitnesses of the risen Christ. Thus, it can be said about this glorious fact of history, “The resurrection … is attested by evidence more conclusive than that upon which rests our acceptance of historical events in general” (James E. Talmage, *Jesus the Christ,* p. 699).
 
 ## Personal Testimony
 
-“Infallible proofs” of spiritual matters, such as Christ’s resurrection, are not of the hand, but of the heart. They are not seen with the naked eye; they are seen through the “eye of faith” ([[Ether 12.19|Ether 12:19]]). Nor are they established by a touch of a finger. The reality of spiritual matters is confirmed by feelings stirred through the spoken or written words of God (see [[1 Nephi 17.45|1 Ne. 17:45]]). I say this because “the Spirit speaketh the truth and lieth not. Wherefore, it speaketh of things as they really are, and of things as they really will be” ([[Jacob 4.13|Jacob 4:13]]). The Holy Spirit deals with facts, not with fancied happenings.
+“Infallible proofs” of spiritual matters, such as Christ’s resurrection, are not of the hand, but of the heart. They are not seen with the naked eye; they are seen through the “eye of faith” ([[Ether 12.19|Ether 12:19]]). Nor are they established by a touch of a finger. The reality of spiritual matters is confirmed by feelings stirred through the spoken or written words of God (see [[1 Nephi 17.45|1 Ne. 17:45]]). I say this because “the Spirit speaketh the truth and lieth not. Wherefore, it speaketh of things as they really are, and of things as they really will be” ([[Jacob 4.13|Jacob 4:13]]). The Holy Spirit deals with facts, not with fancied happenings.
 
 You will recall that the two disciples who walked and talked with Christ on the road to Emmaus did not recognize him at first. Later, however, when “their eyes were opened, and they knew him,” they reflected, “Did not our heart burn within us, while he talked with us by the way, and while he opened to us the scriptures?” ([[Luke 24.31|Luke 24:31–32]][[Luke 24.32|]]).
 
-You will also recall that Jesus said to Thomas, “Be not faithless, but believing. …
+You will also recall that Jesus said to Thomas, “Be not faithless, but believing. …
 
 “Because thou hast seen me, thou hast believed: blessed are they that have not seen, and yet have believed” ([[John 20.27|John 20:27, 29]][[John 20.29|]]).
 
@@ -88,11 +90,11 @@ Our “eyes of faith” will also be opened, and we shall know of a surety that 
 
 - We rise with him to a newness of life when we seek a spiritual rebirth and strive to become his sons and daughters.
 
-And in the process of following in his footsteps (see [[1 Peter 2.21|1 Pet. 2:21]]), we gain the personal conviction or infallible proof that he lives, that he is the Son of the living God, and that he is our Redeemer.
+And in the process of following in his footsteps (see [[1 Peter 2.21|1 Pet. 2:21]]), we gain the personal conviction or infallible proof that he lives, that he is the Son of the living God, and that he is our Redeemer.
 
 ## Conclusion
 
-I cannot go back to that sweet old woman in the wheelchair who begged, “Can I die?” She has already crossed the bridge between earth and heaven—the bridge we call death. She now knows better than I that dying and living again are established facts. She knows of a certainty that “death is not a period but a comma in the story of life” (Amos John Traver, in Jacob M. Braude, ed., *Lifetime Speaker’s Encyclopedia,* 2 vols. \[Englewood Cliffs, N.J.: Prentice Hall, 1962\], 1:159), for she has gone back home and is cradled in the arms of God’s love (see [[2 Nephi 1.15|2 Ne. 1:15]]).
+I cannot go back to that sweet old woman in the wheelchair who begged, “Can I die?” She has already crossed the bridge between earth and heaven—the bridge we call death. She now knows better than I that dying and living again are established facts. She knows of a certainty that “death is not a period but a comma in the story of life” (Amos John Traver, in Jacob M. Braude, ed., *Lifetime Speaker’s Encyclopedia,* 2 vols. \[Englewood Cliffs, N.J.: Prentice Hall, 1962\], 1:159), for she has gone back home and is cradled in the arms of God’s love (see [[2 Nephi 1.15|2 Ne. 1:15]]).
 
 Whether young or old, we need not “look upon death with any degree of terror, for \[our\] hope and views of Christ and the resurrection; therefore, death \[is\] swallowed up to \[us\] by the victory of Christ over it” ([[Alma 27.28|Alma 27:28]]). He is our Redeemer; he is “the resurrection, and the life” ([[John 11.25|John 11:25]]).
 
@@ -101,8 +103,3 @@ I bear solemn testimony that *we shall live again!* Such testimony is founded up
 
 
 
-
-
-
-
-#Death #Jesus_Christ #Resurrection

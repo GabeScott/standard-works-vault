@@ -1,6 +1,8 @@
 # The Enriching of Marriage
 
-By Elder James E. Faust - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder James E. Faust - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -77,8 +79,3 @@ May the presence of God be found enriching and blessing all marriages and homes,
 
 
 
-
-
-
-
-#Divorce #Marriage

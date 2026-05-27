@@ -1,5 +1,7 @@
 # Christians in Belief and Action
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1996 General Conference*
@@ -75,15 +77,15 @@ I add my personal testimony to others you have heard. Jesus is the Christ, the S
 
 
 
-[^1]: In Conference Report, Apr. 1996, 89; or *Ensign,* May 1996, 65.
+[^1]: In Conference Report, Apr. 1996, [[1996 April - This Glorious Easter Morn.md|89]]; or *Ensign,* May 1996, 65.
 
-[^2]: [[Articles of Faith 1.11|A of F 1:11]]; emphasis added.
+[^2]: [[Articles of Faith 1.11|A of F 1:11]]; emphasis added.
 
 [^3]: *The American Heritage Dictionary* (1992), “Christian,” 340; emphasis added.
 
 [^4]: [[Ephesians 2.20|Eph. 2:20]].
 
-[^5]: [[Articles of Faith 1.4|A of F 1:4]].
+[^5]: [[Articles of Faith 1.4|A of F 1:4]].
 
 [^6]: [[John 14.6|John 14:6]].
 
@@ -99,47 +101,47 @@ I add my personal testimony to others you have heard. Jesus is the Christ, the S
 
 [^12]: See [[Revelation 20.6|Rev. 20:6]]; [[D&C 76.107|D&C 76:107–9]][[D&C 76.108|]][[D&C 76.109|]].
 
-[^13]: [[Articles of Faith 1.8|A of F 1:8]].
+[^13]: [[Articles of Faith 1.8|A of F 1:8]].
 
-[^14]: [[Articles of Faith 1.8|A of F 1:8]].
+[^14]: [[Articles of Faith 1.8|A of F 1:8]].
 
-[^15]: [[Articles of Faith 1.8|A of F 1:8]].
+[^15]: [[Articles of Faith 1.8|A of F 1:8]].
 
 [^16]: Title page, Book of Mormon.
 
-[^17]: [[2 Nephi 33.10|2 Ne. 33:10]]; see also [[Moroni 7.16|Moro. 7:16]].
+[^17]: [[2 Nephi 33.10|2 Ne. 33:10]]; see also [[Moroni 7.16|Moro. 7:16]].
 
-[^18]: [[Articles of Faith 1.9|A of F 1:9]].
+[^18]: [[Articles of Faith 1.9|A of F 1:9]].
 
 [^19]: See [[Amos 3.7|Amos 3:7]]; [[Ephesians 4.11|Eph. 4:11–14]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]].
 
-[^20]: In Conference Report, Apr. 1996, 89; or *Ensign,* May 1996, 65.
+[^20]: In Conference Report, Apr. 1996, [[1996 April - This Glorious Easter Morn.md|89]]; or *Ensign,* May 1996, 65.
 
-[^21]: [Introduction to the Doctrine and Covenants](https://churchofjesuschrist.org/study/scriptures/dc-testament/introduction?lang=eng).
+[^21]: [Introduction to the Doctrine and Covenants](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/introduction?lang=eng).
 
-[^22]: [Introduction to the Doctrine and Covenants](https://churchofjesuschrist.org/study/scriptures/dc-testament/introduction?lang=eng).
+[^22]: [Introduction to the Doctrine and Covenants](https://www.churchofjesuschrist.org/study/scriptures/dc-testament/introduction?lang=eng).
 
 [^23]: [[Matthew 7.21|Matt. 7:21]]; emphasis added.
 
 [^24]: [[John 14.15|John 14:15]]; [[D&C 124.87|D&C 124:87]].
 
-[^25]: See [[3 Nephi 12.48|3 Ne. 12:48]]; [[Matthew 5.48|Matt. 5:48]]; [[3 Nephi 27.27|3 Ne. 27:27]].
+[^25]: See [[3 Nephi 12.48|3 Ne. 12:48]]; [[Matthew 5.48|Matt. 5:48]]; [[3 Nephi 27.27|3 Ne. 27:27]].
 
 [^26]: [[James 1.22|James 1:22]].
 
-[^27]: See [[Articles of Faith 1.4|A of F 1:4]].
+[^27]: See [[Articles of Faith 1.4|A of F 1:4]].
 
 [^28]: See [[Alma 12.32|Alma 12:32–34]][[Alma 12.33|]][[Alma 12.34|]]; [[D&C 130.20|D&C 130:20–21]][[D&C 130.21|]].
 
-[^29]: [[Alma 34.16|Alma 34:16]]; see also [[Mosiah 15.9|Mosiah 15:9]]; [[Alma 42.1|Alma 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]].
+[^29]: [[Alma 34.16|Alma 34:16]]; see also [[Mosiah 15.9|Mosiah 15:9]]; [[Alma 42.1|Alma 42]].
 
 [^30]: See [[D&C 20.37|D&C 20:37]].
 
-[^31]: [[Articles of Faith 1.4|A of F 1:4]].
+[^31]: [[Articles of Faith 1.4|A of F 1:4]].
 
 [^32]: [[John 3.5|John 3:5]].
 
-[^33]: [[Articles of Faith 1.4|A of F 1:4]]; see also [[Articles of Faith 1.5|A of F 1:5]].
+[^33]: [[Articles of Faith 1.4|A of F 1:4]]; see also [[Articles of Faith 1.5|A of F 1:5]].
 
 [^34]: [[D&C 20.77|D&C 20:77]].
 
@@ -155,10 +157,5 @@ I add my personal testimony to others you have heard. Jesus is the Christ, the S
 
 [^40]: [[Hebrews 12.2|Heb. 12:2]].
 
-[^41]: In Conference Report, Apr. 1996, 92; or *Ensign,* May 1996, 67.
+[^41]: In Conference Report, Apr. 1996, [[1996 April - This Glorious Easter Morn.md|92]]; or *Ensign,* May 1996, 67.
 
-
-
-
-
-#Atonement #Christianity #Commandments #Conversion #Faith #Holy_Ghost #Jesus_Christ #Ordinances #Repentance #Restoration #Scriptures

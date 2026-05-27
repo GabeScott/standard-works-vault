@@ -1,6 +1,8 @@
 # The Savior’s Healing Power upon the Isles of the Sea
 
-By Elder J. Kimo Esplin - *Of the Seventy*
+David A. Bednar
+
+By Elder J. Kimo Esplin - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -36,7 +38,7 @@ The other challenge for members was that the temple presentation was not availab
 
 When the endowed Japanese members living in Hawaii first heard the translation, they wept. One member recorded: “We’ve been to the temple many, many times. We’ve heard the ceremonies in English. \[But\] we have never felt the spirit of … temple work as we feel it now \[hearing it\] in our own native tongue.”[^10]
 
-Later that same year, 161 adults and children embarked from Tokyo to make their way to the Hawaii Temple. One Japanese brother reflected on the journey: “As I looked out of the airplane and saw Pearl Harbor, and remembered what our country had done to these people on December 7, 1941, I feared in my heart. Will they accept us? But to my surprise they showed greater love and kindness than I had ever seen in my life.”[^11]
+Later that same year, 161 adults and children embarked from Tokyo to make their way to the Hawaii Temple. One Japanese brother reflected on the journey: “As I looked out of the airplane and saw Pearl Harbor, and remembered what our country had done to these people on December 7, 1941, I feared in my heart. Will they accept us? But to my surprise they showed greater love and kindness than I had ever seen in my life.”[^11]
 
 Upon the Japanese Saints’ arrival, the Hawaiian members welcomed them with countless strands of flower leis while exchanging hugs and kisses on the cheeks, a custom foreign to Japanese culture. After spending 10 transformative days in Hawaii, the Japanese Saints bid their farewells to the melody of “Aloha Oe” sung by the Hawaiian Saints.[^12]
 
@@ -50,9 +52,9 @@ My father, a World War II veteran of the Pacific, was thrilled when I received m
 
 Temple covenants are gifts from our Heavenly Father to the faithful followers of His Son, Jesus Christ. Through the temple, our Heavenly Father binds individuals and families to the Savior and to each other.
 
-President Russell M. Nelson declared last year:
+President Russell M. Nelson declared last year:
 
-“Each person who makes covenants in baptismal fonts and in temples—and keeps them—has increased access to the power of Jesus Christ. …
+“Each person who makes covenants in baptismal fonts and in temples—and keeps them—has increased access to the power of Jesus Christ. …
 
 “The reward for keeping covenants with God is heavenly power—power that strengthens us to withstand our trials, temptations, and heartaches better. This power eases our way.”[^15]
 
@@ -69,44 +71,39 @@ With unwavering conviction, I declare these truths in the name of Jesus Christ, 
 
 
 
-[^1]: The Laie Hawaii Temple was dedicated in 1919 by President Heber J. Grant. As an Apostle, he opened the Church in Japan in 1901. It was the fifth operating temple and the first temple built outside the continental United States.
+[^1]: The Laie Hawaii Temple was dedicated in 1919 by President Heber J. Grant. As an Apostle, he opened the Church in Japan in 1901. It was the fifth operating temple and the first temple built outside the continental United States.
 
-[^2]: As of March 2, 2023, there were 241,281 names inscribed on the monument.
+[^2]: As of March 2, 2023, there were 241,281 names inscribed on the monument.
 
-[^3]: See Gordon B. Hinckley, “[Keep the Chain Unbroken](https://speeches.byu.edu/talks/gordon-b-hinckley/keep-chain-unbroken)” (Brigham Young University devotional, Nov. 30, 1999), 4, speeches.byu.edu.
+[^3]: See Gordon B. Hinckley, “[Keep the Chain Unbroken](https://speeches.byu.edu/talks/gordon-b-hinckley/keep-chain-unbroken)” (Brigham Young University devotional, Nov. 30, 1999), 4, speeches.byu.edu.
 
-[^4]: Dwayne N. Andersen was wounded in the Battle of Okinawa. He served as mission president in Japan from 1962 to 1965 and was the first president of the Tokyo Japan Temple, from 1980 to 1982.
+[^4]: Dwayne N. Andersen was wounded in the Battle of Okinawa. He served as mission president in Japan from 1962 to 1965 and was the first president of the Tokyo Japan Temple, from 1980 to 1982.
 
 [^5]: I met members of her family while my wife and I served as mission leaders in Tokyo. They provided me with this information from her personal family history accounts.
 
-[^6]: See *Dwayne N. Andersen: An Autobiography for His Posterity*, 102–5, Church History Library, Salt Lake City.
+[^6]: See *Dwayne N. Andersen: An Autobiography for His Posterity*, 102–5, Church History Library, Salt Lake City.
 
-[^7]: See *Dwayne N. Andersen*, 104.
+[^7]: See *Dwayne N. Andersen*, 104.
 
-[^8]: See Edward L. Clissold, “Translating the Endowment into Japanese,” in *Stories of the Temple in Lā‘ie, Hawai‘i*, comp. Clinton D. Christensen (2019), 110–13. 
+[^8]: See Edward L. Clissold, “Translating the Endowment into Japanese,” in *Stories of the Temple in Lā‘ie, Hawai‘i*, comp. Clinton D. Christensen (2019), 110–13. 
 
-[^9]: The translator, Tatsui Sato, was baptized July 7, 1946, by a US serviceman, C. Elliott Richards. Tatsui’s wife, Chiyo Sato, was baptized on the same day by Boyd K. Packer. Separately, Neal A. Maxwell fought in the Battle of Okinawa, and L. Tom Perry was among the first wave of Marines to go ashore in Japan following the peace treaty. Elders Packer, Maxwell, and Perry would become members of the Quorum of the Twelve Apostles.
+[^9]: The translator, Tatsui Sato, was baptized July 7, 1946, by a US serviceman, C. Elliott Richards. Tatsui’s wife, Chiyo Sato, was baptized on the same day by Boyd K. Packer. Separately, Neal A. Maxwell fought in the Battle of Okinawa, and L. Tom Perry was among the first wave of Marines to go ashore in Japan following the peace treaty. Elders Packer, Maxwell, and Perry would become members of the Quorum of the Twelve Apostles.
 
 [^10]: In Clissold, “Translating the Endowment into Japanese,” 112.
 
-[^11]: In Dwayne N. Andersen, “1965 Japanese Excursion,” *Stories of the Temple in Lā‘ie, Hawai‘i*, 114.
+[^11]: In Dwayne N. Andersen, “1965 Japanese Excursion,” *Stories of the Temple in Lā‘ie, Hawai‘i*, 114.
 
 [^12]: See Andersen, “1965 Japanese Excursion,” 114, 117.
 
-[^13]: Later in this session of the October 2023 general conference, President Russell M. Nelson announced 20 new temples, including the Osaka Japan Temple, which will be the fifth temple in Japan.
+[^13]: Later in this session of the October 2023 general conference, President Russell M. Nelson announced 20 new temples, including the Osaka Japan Temple, which will be the fifth temple in Japan.
 
 [^14]: During our mission in Tokyo from 2018 to 2021, amid the challenges of the COVID pandemic, her family extended love and care for me and my family, which we will forever be grateful for.
 
-[^15]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96.
+[^15]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 96.
 
-[^16]: [[3 Nephi 25.2|3 Nephi 25:2]].
+[^16]: [[3 Nephi 25.2|3 Nephi 25:2]].
 
 [^17]: [[Mosiah 3.20|Mosiah 3:20]].
 
-[^18]: [[2 Nephi 29.7|2 Nephi 29:7]].
+[^18]: [[2 Nephi 29.7|2 Nephi 29:7]].
 
-
-
-
-
-#Conversion #Covenants #Healing #Temple_Work #Temples

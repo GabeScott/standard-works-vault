@@ -1,5 +1,7 @@
 # Thanks Be to God
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1989 General Conference*
@@ -8,9 +10,9 @@ By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 In the first section of the Doctrine and Covenants, we read the Lord’s promise:
 
-“Hearken, O ye people of my church, saith the voice of him who dwells on high. … Hearken ye people from afar. …
+“Hearken, O ye people of my church, saith the voice of him who dwells on high. … Hearken ye people from afar. …
 
-“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated. …
+“For verily the voice of the Lord is unto all men, and there is none to escape; and there is no eye that shall not see, neither ear that shall not hear, neither heart that shall not be penetrated. …
 
 “And the voice of warning shall be unto all people, by the mouths of my disciples, whom I have chosen in these last days.
 
@@ -98,7 +100,7 @@ From the heavens we hear anew the Lord’s declaration:
 
 “Great is his wisdom, marvelous are his ways, and the extent of his doings none can find out.
 
-“His purposes fail not, neither are there any who can stay his hand. …
+“His purposes fail not, neither are there any who can stay his hand. …
 
 “For thus saith the Lord—I, the Lord, am merciful and gracious unto those who fear me, and delight to honor those who serve me in righteousness and in truth unto the end.
 
@@ -109,8 +111,3 @@ May this be our universal blessing, I pray in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Faith #Missionary_Work

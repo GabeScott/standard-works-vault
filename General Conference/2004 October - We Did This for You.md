@@ -1,5 +1,7 @@
 # We Did This for You
 
+Gordon B. Hinckley
+
 By Elaine S. Dalton - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -14,7 +16,7 @@ Those words, “We did this for you,” reminded me that our ancestors, along wi
 
 Prior to coming to Nauvoo, the Saints sacrificed greatly to build the first temple of this dispensation in Kirtland, Ohio. It was there that the Lord Himself appeared to Joseph Smith and Oliver Cowdery. Three other heavenly messengers also appeared there. One of these was Elijah the prophet, who restored, through the Prophet Joseph Smith, keys pertaining to the restoration of the priesthood and the “great work to be done in the temples of the Lord.”[^1] This happened in accordance with the promise that is recorded in the Doctrine and Covenants wherein the Lord said:
 
-“Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet. …
+“Behold, I will reveal unto you the Priesthood, by the hand of Elijah the prophet. …
 
 “And he shall plant in the hearts of the children the promises made to the fathers, and the hearts of the children shall turn to their fathers.
 
@@ -67,13 +69,13 @@ Zina Baker Huntington, along with so many other faithful Saints, sacrificed *eve
 
 [^8]: See [www.lds.org](https://www.churchofjesuschrist.org); see also “Temples throughout the World,” *Friend,* July 2002, 36–37.
 
-[^9]: In Conference Report, Oct. 1997, 69; or *Ensign,* Nov. 1997, 50.
+[^9]: In Conference Report, Oct. 1997, [[1997 October - Some Thoughts on Temples, Retention of Converts, and Missionary Service.md|69]]; or *Ensign,* Nov. 1997, 50.
 
 [^10]: See [[D&C 110.9|D&C 110:9–10]][[D&C 110.10|]].
 
 [^11]: [[D&C 109.22|D&C 109:22]].
 
-[^12]: In Conference Report, Oct. 2003, 57–58; or *Ensign,* Nov. 2003, 53–54; see also [[D&C 128.18|D&C 128:18]].
+[^12]: In Conference Report, Oct. 2003, [[2003 October - The Phenomenon That Is You.md|57–58]]; or *Ensign,* Nov. 2003, 53–54; see also [[D&C 128.18|D&C 128:18]].
 
 [^13]: [[Esther 4.14|Esther 4:14]].
 
@@ -85,8 +87,3 @@ Zina Baker Huntington, along with so many other faithful Saints, sacrificed *eve
 
 [^17]: [[D&C 87.8|D&C 87:8]].
 
-
-
-
-
-#Family_History #Sacrifice #Temples #Youth

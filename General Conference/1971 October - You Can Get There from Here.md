@@ -1,6 +1,8 @@
 # You Can Get There from Here
 
-By Elder Marvin J. Ashton - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Marvin J. Ashton - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -66,9 +68,9 @@ Many drug abusers are desperately trying to find their way back today. The road 
 
 After visiting with one of our young women who has been lost to drugs for many months, her only encouraging remark after more than three hours of sincere communication was, “Thanks for not chewing me out.” Two visits later she asked, “Do you think I would make a good schoolteacher?” To a sincere yes, she said, “Thanks, I’ll try. I’m only three semesters away from getting my teaching certificate.” This girl is making it back. Someone believes in her. Someone has convinced her she can get there from here. The trip she is on this time will bring her back home.
 
-May I this day challenge all of us as priesthood bearers, young and old, to vigorously locate and lead those who have temporarily strayed. Let us lead them by our example, love, and persuasion. They deserve our help. They want our direction. They need our love. You priesthood bearers this night, honor your priesthood, build yourself by stooping to help someone who has temporarily lost his or her way. Remember that powerful truth found in [[Matthew 23.37|Matthew 23:37]]: “… how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!”
+May I this day challenge all of us as priesthood bearers, young and old, to vigorously locate and lead those who have temporarily strayed. Let us lead them by our example, love, and persuasion. They deserve our help. They want our direction. They need our love. You priesthood bearers this night, honor your priesthood, build yourself by stooping to help someone who has temporarily lost his or her way. Remember that powerful truth found in [[Matthew 23.37|Matthew 23:37]]: “… how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not!”
 
-With your indulgence, I would like to repeat that quotation once more and add just two words of admonition: “… how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not *help me!*”
+With your indulgence, I would like to repeat that quotation once more and add just two words of admonition: “… how often would I have gathered thy children together, even as a hen gathereth her chickens under her wings, and ye would not *help me!*”
 
 How many of us are actively helping the Lord gather his flock? How involved are each of us in the responsibilities of our priesthood? How many of us are helping as high council advisers, professional resource volunteers, and helpers with innate skills to our fellow members who need us? When our Savior declared, “If ye love me, feed my sheep” (see [[John 21.16|John 21:16]]), he wasn’t referring to just those found safely in the fold. I declare to all of us tonight, he needs our help in finding the lost and bringing them back.
 
@@ -78,15 +80,10 @@ The field is white, ready for harvest. The lost want to know how to get back. Th
 
 Jesus set the pattern for us in his invitation, “Come, follow me.” I think it is significant our Savior Jesus Christ declared, “He that hath seen me hath seen the Father,” rather than “He that hath heard me hath heard the Father.” The example bore witness. The life was the sermon. The life was the way.
 
-I bear witness to you this day that God lives and this is his work, and that Jesus Christ is our Savior and Redeemer. I also bear witness that by doing his will and keeping his commandments, we can share in that great joy found in Third John: “I have no greater joy than to hear that my children walk in truth.” ([[3 John 1.4|3 Jn. 1:4]].)
+I bear witness to you this day that God lives and this is his work, and that Jesus Christ is our Savior and Redeemer. I also bear witness that by doing his will and keeping his commandments, we can share in that great joy found in Third John: “I have no greater joy than to hear that my children walk in truth.” ([[3 John 1.4|3 Jn. 1:4]].)
 
 And I say this in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Love #Social_Services

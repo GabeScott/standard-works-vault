@@ -1,6 +1,5 @@
 # Heavenly
 
-
 *See also* [[God the Father, Elohim.md|God the Father, Elohim]]; [[Heaven.md|Heaven]]
 
 your *heavenly* Father feedeth them, [[Matthew 6.26|Matthew 6:26]].
@@ -27,8 +26,8 @@ you ought to thank your *heavenly* King, [[Mosiah 2.19|Mosiah 2:19]].
 
 eternally indebted to your *heavenly* Father, [[Mosiah 2.34|Mosiah 2:34]].
 
-forgive men ... your *heavenly* Father will also forgive you, [[3 Nephi 13.14|3 Nephi 13:14]] ([[3 Nephi 13.26|3 Nephi 13:26]], [[3 Nephi 13.32|3 Nephi 13:32]]).
+forgive men … your *heavenly* Father will also forgive you, [[3 Nephi 13.14|3 Nephi 13:14]] ([[3 Nephi 13.26|3 Nephi 13:26]]; [[3 Nephi 13.32|3 Nephi 13:32]]).
 
 equal in the bonds of *heavenly* things, [[D&C 78.5|D&C 78:5]].
 
-earthly conforming to ... *heavenly*, [[D&C 128.13|D&C 128:13]].
+earthly conforming to … *heavenly*, [[D&C 128.13|D&C 128:13]].

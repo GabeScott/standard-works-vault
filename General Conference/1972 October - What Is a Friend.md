@@ -1,6 +1,8 @@
 # What Is a Friend?
 
-By Elder Marvin J. Ashton - *Of the Council of the Twelve*
+N. Eldon Tanner
+
+By Elder Marvin J. Ashton - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -18,11 +20,11 @@ President Abraham Lincoln was once criticized for his attitude toward his enemie
 
 “Am I not destroying my enemies,” Lincoln gently replied, “when I make them my friends?”
 
-Are we not within our rights as members of The Church of Jesus Christ of Latter-day Saints to regard our prophet, seer, and revelator, President Harold B. Lee, as a close personal friend as he leaves us improved daily by his willingness to reprove, admonish, love, encourage, and guide according to our needs? President Lee is our friend; I bear witness he is, in the fullest and most noble sense of the word, and he will lead us by inspiration and by his courageous character.
+Are we not within our rights as members of The Church of Jesus Christ of Latter-day Saints to regard our prophet, seer, and revelator, President Harold B. Lee, as a close personal friend as he leaves us improved daily by his willingness to reprove, admonish, love, encourage, and guide according to our needs? President Lee is our friend; I bear witness he is, in the fullest and most noble sense of the word, and he will lead us by inspiration and by his courageous character.
 
-I invite you to be his friend. What a pleasure it was for me this morning to raise my arm to the square and sustain my friend, President Harold B. Lee! His friendship with me down through the years has met the test. He has always been willing to take me the way I am and leave me improved. What a joy it is to join him and my friends among the General Authorities, and all of you, in building the kingdom of our Heavenly Father here upon this earth!
+I invite you to be his friend. What a pleasure it was for me this morning to raise my arm to the square and sustain my friend, President Harold B. Lee! His friendship with me down through the years has met the test. He has always been willing to take me the way I am and leave me improved. What a joy it is to join him and my friends among the General Authorities, and all of you, in building the kingdom of our Heavenly Father here upon this earth!
 
-I love President Tanner and I love President Romney because they are my friends. I am happy to have Elder Bruce R. McConkie seated at my side because he too is a friend.
+I love President Tanner and I love President Romney because they are my friends. I am happy to have Elder Bruce R. McConkie seated at my side because he too is a friend.
 
 As we more fully strive to comprehend the significance of friendship, the more our appreciation should increase for the truths found in the following quotation:
 
@@ -42,13 +44,13 @@ Let me share with you quickly a few of the many “friend” references in the D
 
 “Whatsoever ye ask the Father in my name it shall be given unto you, that is expedient for you.” ([[D&C 88.62|D&C 88:62–64]][[D&C 88.63|]][[D&C 88.64|]].)
 
-“… my friends Sidney and Joseph. …” ([[D&C 100.1|D&C 100:1]].)
+“… my friends Sidney and Joseph. …” ([[D&C 100.1|D&C 100:1]].)
 
-“… my friends, behold, I will give unto you a revelation and commandment. …” ([[D&C 103.1|D&C 103:1]].)
+“… my friends, behold, I will give unto you a revelation and commandment. …” ([[D&C 103.1|D&C 103:1]].)
 
-“… my friends, fear not. …” ([[D&C 98.1|D&C 98:1]].)
+“… my friends, fear not. …” ([[D&C 98.1|D&C 98:1]].)
 
-“… I will call you friends, for you are my friends, and ye shall have an inheritance with me.” ([[D&C 93.45|D&C 93:45]].)
+“… I will call you friends, for you are my friends, and ye shall have an inheritance with me.” ([[D&C 93.45|D&C 93:45]].)
 
 May I add that this last friendly greeting was given when the Lord was rebuking Joseph Smith for the conduct of his family at that particular time.
 
@@ -80,7 +82,7 @@ The Savior said, “Greater love hath no man than this, that a man lay down his 
 
 When Robert Louis Stevenson was asked the secret of his radiant, useful life, he responded simply, “I had a friend.”
 
-In [[Exodus 33.11|Exodus 33:11]] we read, “… The Lord spake unto Moses face to face, as a man speaketh unto his friend.”
+In [[Exodus 33.11|Exodus 33:11]] we read, “… The Lord spake unto Moses face to face, as a man speaketh unto his friend.”
 
 A friend in the true sense is not a person who passively nods approval. A friend is a person who cares.
 
@@ -98,21 +100,16 @@ All of us should be eternally grateful for the classic experience shared by Pete
 
 “Silver and gold have I none; but such as I have give I thee: In the name of Jesus Christ of Nazareth rise up and walk.
 
-“And he took him by the right hand and lifted him up. …” ([[Acts 3.6|Acts 3:6–7]][[Acts 3.7|]].)
+“And he took him by the right hand and lifted him up. …” ([[Acts 3.6|Acts 3:6–7]][[Acts 3.7|]].)
 
 Peter was a friend. He told the beggar, “Rise and walk; I’m going to help you.” We too must take the friend by the hand until he sees and finds that he has enough strength to go on his own. Is it not appropriate to conclude that Peter was willing to take the friend the way he was but left him improved? Our Savior pointed the way to reap friendship with our associates and with him when he declared:
 
 “For I was an hungred, and ye gave me meat: I was thirsty, and ye gave me drink: I was a stranger, and ye took me in:
 
-“… Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.35|Matt. 25:35, 40]][[Matthew 25.40|]].)
+“… Verily I say unto you, Inasmuch as ye have done it unto one of the least of these my brethren, ye have done it unto me.” ([[Matthew 25.35|Matt. 25:35, 40]][[Matthew 25.40|]].)
 
 I pray God to help us to be friends. We need God’s friendship. He pleads for ours. God lives. He is near. He is available. I leave you my testimony today that Jesus Christ is our Redeemer and Savior, that this is his church, and that he too is our friend. I bear this witness humbly, in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Friendship

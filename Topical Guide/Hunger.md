@@ -1,6 +1,5 @@
 # Hunger
 
-
 *See also* [[Almsgiving.md|Almsgiving]]; [[Hungry.md|Hungry]]; [[Poor.md|Poor]]; [[Welfare.md|Welfare]]
 
 kill this whole assembly with *hunger*, [[Exodus 16.3|Exodus 16:3]].
@@ -33,10 +32,8 @@ They shall *hunger* no more, [[Revelation 7.16|Revelation 7:16]].
 
 my soul *hungered*, [[Enos 1.4|Enos 1:4]].
 
-he shall suffer temptations, and ... *hunger*, [[Mosiah 3.7|Mosiah 3:7]].
+he shall suffer temptations, and … *hunger*, [[Mosiah 3.7|Mosiah 3:7]].
 
 his soul shall never *hunger*, [[3 Nephi 20.8|3 Nephi 20:8]].
 
-for the use ... in times of famine and excess of *hunger*, [[D&C 89.15|D&C 89:15]].
-
-*See also* [[2 Corinthians 11.27|2 Corinthians 11:27]].
+for the use … in times of famine and excess of *hunger*, [[D&C 89.15|D&C 89:15]].

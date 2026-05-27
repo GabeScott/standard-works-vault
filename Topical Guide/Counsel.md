@@ -1,7 +1,6 @@
 # Counsel
 
-
-*See also* [[Edification, Edify.md|Edification]]; [[Problem-Solving.md|Problem-Solving]]
+*See also* [[Edification.md|Edification]]; [[Problem-Solving.md|Problem-Solving]]
 
 I will give thee *counsel*, [[Exodus 18.19|Exodus 18:19]].
 
@@ -37,19 +36,19 @@ Every purpose is established by *counsel*, [[Proverbs 20.18|Proverbs 20:18]].
 
 Take *counsel* together, [[Isaiah 8.10|Isaiah 8:10]].
 
-spirit of the Lord shall rest upon him ... the spirit of *counsel*, [[Isaiah 11.2|Isaiah 11:2]].
+spirit of the Lord shall rest upon him … the spirit of *counsel*, [[Isaiah 11.2|Isaiah 11:2]].
 
-Woe unto them that seek deep to hide their *counsel* from the Lord, [[Isaiah 29.15|Isaiah 29:15]] ([[2 Nephi 28.9|2 Ne. 28:9-10]][[2 Nephi 28.10|]]).
+Woe unto them that seek deep to hide their *counsel* from the Lord, [[Isaiah 29.15|Isaiah 29:15]].
 
-rebellious children ... that take *counsel*, [[Isaiah 30.1|Isaiah 30:1]].
+rebellious children … that take *counsel*, [[Isaiah 30.1|Isaiah 30:1]].
 
 With whom took he *counsel*, [[Isaiah 40.14|Isaiah 40:14]].
 
 took *counsel* how they might entangle him, [[Matthew 22.15|Matthew 22:15]].
 
-elders ... took *counsel* against Jesus, [[Matthew 27.1|Matthew 27:1]].
+elders … took *counsel* against Jesus, [[Matthew 27.1|Matthew 27:1]].
 
-straightway took *counsel* ... against him, [[Mark 3.6|Mark 3:6]].
+straightway took *counsel* … against him, [[Mark 3.6|Mark 3:6]].
 
 rejected the *counsel* of God against themselves, [[Luke 7.30|Luke 7:30]].
 
@@ -59,9 +58,9 @@ took *counsel* to slay them, [[Acts 5.33|Acts 5:33]].
 
 if this *counsel* or this work be of men, [[Acts 5.38|Acts 5:38]].
 
-the people ... gave *heed* unto those things which Philip spake, [[Acts 8.6|Acts 8:6]].
+the people … gave *heed* unto those things which Philip spake, [[Acts 8.6|Acts 8:6]].
 
-shunned to declare unto you all the *counsel* of God, [[Acts 20.27|Acts 20:27]] ([[Acts 20.22|20:22-27]][[Acts 20.23|]][[Acts 20.24|]][[Acts 20.25|]][[Acts 20.26|]][[Acts 20.27|]]).
+shunned to declare unto you all the *counsel* of God, [[Acts 20.27|Acts 20:27]].
 
 who hath known the mind of the Lord, that he may *instruct* him, [[1 Corinthians 2.16|1 Corinthians 2:16]].
 
@@ -83,7 +82,7 @@ man should not *counsel* his fellow man, [[D&C 1.19|D&C 1:19]].
 
 sets at naught the *counsels* of God, [[D&C 3.4|D&C 3:4]].
 
-misery ... if thou wilt slight these *counsels*, [[D&C 19.33|D&C 19:33]].
+misery … if thou wilt slight these *counsels*, [[D&C 19.33|D&C 19:33]].
 
 you seek to *counsel* in your own ways, [[D&C 56.14|D&C 56:14]].
 
@@ -108,5 +107,3 @@ Man of *Counsel* is my name, [[Moses 7.35|Moses 7:35]].
 Gods took *counsel* among themselves, [[Abraham 4.26|Abraham 4:26]].
 
 end our work, which we have *counseled*, [[Abraham 5.2|Abraham 5:2]].
-
-*See also* [[Psalms 2.2|Psalms 2:2]].

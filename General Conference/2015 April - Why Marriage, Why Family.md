@@ -1,6 +1,8 @@
 # Why Marriage, Why Family
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Cheryl A. Esplin
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -81,13 +83,13 @@ That is my prayer for all of us today. May we each find approval in His sight. M
 
 [^11]: [[John 1.3|John 1:3]]; see also [[D&C 76.23|Doctrine and Covenants 76:23–24]][[D&C 76.24|]].
 
-[^12]: See [[1 Corinthians 15.21|1 Corinthians 15:21–22]][[1 Corinthians 15.22|]]; [[2 Nephi 2.25|2 Nephi 2:25]].
+[^12]: See [[1 Corinthians 15.21|1 Corinthians 15:21–22]][[1 Corinthians 15.22|]]; [[2 Nephi 2.25|2 Nephi 2:25]].
 
-[^13]: See [[2 Nephi 2.15|2 Nephi 2:15–18]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]]; [[Alma 12.24|Alma 12:24]]; [[D&C 29.39|Doctrine and Covenants 29:39]]; [[Moses 4.3|Moses 4:3]]. Joseph Smith said: “All persons are entitled to their agency, for God has so ordained it. He has constituted mankind moral agents, and given them power to choose good or evil; to seek after that which is good, by pursuing the pathway of holiness in this life, which brings peace of mind, and joy in the Holy Ghost here, and a fulness of joy and happiness at His right hand hereafter; or to pursue an evil course, going on in sin and rebellion against God, thereby bringing condemnation to their souls in this world, and an eternal loss in the world to come.” The Prophet also noted: “Satan cannot seduce us by his enticements unless we in our hearts consent and yield. Our organization is such that we can resist the devil; if we were not organized so, we would not be free agents” (*Teachings: Joseph Smith,* 213).
+[^13]: See [[2 Nephi 2.15|2 Nephi 2:15–18]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]]; [[Alma 12.24|Alma 12:24]]; [[D&C 29.39|Doctrine and Covenants 29:39]]; [[Moses 4.3|Moses 4:3]]. Joseph Smith said: “All persons are entitled to their agency, for God has so ordained it. He has constituted mankind moral agents, and given them power to choose good or evil; to seek after that which is good, by pursuing the pathway of holiness in this life, which brings peace of mind, and joy in the Holy Ghost here, and a fulness of joy and happiness at His right hand hereafter; or to pursue an evil course, going on in sin and rebellion against God, thereby bringing condemnation to their souls in this world, and an eternal loss in the world to come.” The Prophet also noted: “Satan cannot seduce us by his enticements unless we in our hearts consent and yield. Our organization is such that we can resist the devil; if we were not organized so, we would not be free agents” (*Teachings: Joseph Smith,* 213).
 
 [^14]: See [[Genesis 3.22|Genesis 3:22–24]][[Genesis 3.23|]][[Genesis 3.24|]]; [[Alma 42.2|Alma 42:2–6]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]]; [[Moses 4.28|Moses 4:28–31]][[Moses 4.29|]][[Moses 4.30|]][[Moses 4.31|]].
 
-[^15]: Even those who do not repent are redeemed from spiritual death by the Atonement in the sense that they come again into the presence of God for the Final Judgment (see [[Helaman 14.17|Helaman 14:17]]; [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]]).
+[^15]: Even those who do not repent are redeemed from spiritual death by the Atonement in the sense that they come again into the presence of God for the Final Judgment (see [[Helaman 14.17|Helaman 14:17]]; [[3 Nephi 27.14|3 Nephi 27:14–15]][[3 Nephi 27.15|]]).
 
 [^16]: *Teachings: Joseph Smith,* 210.
 
@@ -95,14 +97,9 @@ That is my prayer for all of us today. May we each find approval in His sight. M
 
 [^18]: [[Moses 6.58|Moses 6:58–59]][[Moses 6.59|]].
 
-[^19]: People may be loyal to one another in nonmarital relationships, and children can be born and raised, sometimes quite successfully, in other than a married two-parent family environment. But on average and in the majority of cases, evidence of the social benefits of marriage and of the comparatively superior outcomes for children in families headed by a married man and woman is extensive. On the other hand, the social and economic costs of what one commentator calls “the global flight from the family” weigh increasingly on society. Nicholas Eberstadt catalogs the worldwide declines in marriage and childbearing and the trends regarding fatherless homes and divorce and observes: “The deleterious impact on the hardly inconsequential numbers of children disadvantaged by the flight from the family is already plain enough. So too the damaging role of divorce and out-of-wedlock childbearing in exacerbating income disparities and wealth gaps—for society as a whole, but especially for children. Yes, children are resilient and all that. But the flight from family most assuredly comes at the expense of the vulnerable young. That same flight also has unforgiving implications for the vulnerable old” (“The Global Flight from the Family,” *Wall Street Journal,* Feb. 21, 2015, wsj.com/articles/nicholas-eberstadt-the-global-flight-from-the-family-1424476179).
+[^19]: People may be loyal to one another in nonmarital relationships, and children can be born and raised, sometimes quite successfully, in other than a married two-parent family environment. But on average and in the majority of cases, evidence of the social benefits of marriage and of the comparatively superior outcomes for children in families headed by a married man and woman is extensive. On the other hand, the social and economic costs of what one commentator calls “the global flight from the family” weigh increasingly on society. Nicholas Eberstadt catalogs the worldwide declines in marriage and childbearing and the trends regarding fatherless homes and divorce and observes: “The deleterious impact on the hardly inconsequential numbers of children disadvantaged by the flight from the family is already plain enough. So too the damaging role of divorce and out-of-wedlock childbearing in exacerbating income disparities and wealth gaps—for society as a whole, but especially for children. Yes, children are resilient and all that. But the flight from family most assuredly comes at the expense of the vulnerable young. That same flight also has unforgiving implications for the vulnerable old” (“The Global Flight from the Family,” *Wall Street Journal,* Feb. 21, 2015, wsj.com/articles/nicholas-eberstadt-the-global-flight-from-the-family-1424476179).
 
 [^20]: “The Family: A Proclamation to the World,” *Ensign* or *Liahona,* Nov. 2010, 129.
 
 [^21]: See [[Genesis 1.26|Genesis 1:26–28]][[Genesis 1.27|]][[Genesis 1.28|]]; [[Genesis 2.7|2:7, 18, 21–24]][[Genesis 2.18|]][[Genesis 2.21|]][[Genesis 2.22|]][[Genesis 2.23|]][[Genesis 2.24|]]; [[Genesis 3.20|3:20]]; [[Moses 2.26|Moses 2:26–28]][[Moses 2.27|]][[Moses 2.28|]]; [[Moses 3.7|3:7–8, 18, 20–24]][[Moses 3.8|]][[Moses 3.18|]][[Moses 3.20|]][[Moses 3.21|]][[Moses 3.22|]][[Moses 3.23|]][[Moses 3.24|]]; [[Moses 4.26|4:26]].
 
-
-
-
-
-#Atonement #Creation #Fall #Family #Marriage #Plan_Of_Salvation

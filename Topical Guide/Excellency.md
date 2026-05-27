@@ -1,6 +1,5 @@
 # Excellency
 
-
 *excellency* of dignity, and the *excellency* of power, [[Genesis 49.3|Genesis 49:3]].
 
 *excellency* of knowledge is, that wisdom giveth life, [[Ecclesiastes 7.12|Ecclesiastes 7:12]].

@@ -1,7 +1,6 @@
 # Firstfruits
 
-
-*See also* [[Firstborn.md|Firstborn]]; [[Harvest.md|Harvest]]; [[Sacrifice.md|Sacrifice]]; [BD Firstfruits](https://www.churchofjesuschrist.org/study/scriptures/bd/firstfruits?lang=eng)
+*See also* [[Firstborn.md|Firstborn]]; [[Harvest.md|Harvest]]; [[Sacrifice.md|Sacrifice]]; [[BD Firstfruits.md|BD Firstfruits]]
 
 feast of harvest, the *firstfruits* of thy labours, [[Exodus 23.16|Exodus 23:16]].
 
@@ -33,4 +32,4 @@ a kind of *firstfruits* of his creatures, [[James 1.18|James 1:18]].
 
 *firstfruits* unto God and to the Lamb, [[Revelation 14.4|Revelation 14:4]].
 
-They are Christ's, the *first fruits*, [[D&C 88.98|D&C 88:98]].
+They are Christ’s, the *first fruits*, [[D&C 88.98|D&C 88:98]].

@@ -1,5 +1,7 @@
 # Loyalty
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2003 General Conference*
@@ -62,7 +64,7 @@ The book of Revelation declares: “I know thy works, that thou art neither cold
 
 I make you a promise, my dear brethren, that while I am serving in my present responsibility I will never consent to nor advocate any policy, any program, any doctrine which will be otherwise than beneficial to the membership of this, the Lord’s Church.
 
-This is His work. He established it. He has revealed its doctrine. He has outlined its practices. He created its government. It is His work and His kingdom, and He has said, “They who are not for me are against me” ([[2 Nephi 10.16|2 Nephi 10:16]]).
+This is His work. He established it. He has revealed its doctrine. He has outlined its practices. He created its government. It is His work and His kingdom, and He has said, “They who are not for me are against me” ([[2 Nephi 10.16|2 Nephi 10:16]]).
 
 In 1933 there was a movement in the United States to overturn the law which prohibited commerce in alcoholic beverages. When it came to a vote, Utah was the deciding state.
 
@@ -100,8 +102,3 @@ May the blessings of heaven rest upon you and your families, my dear brethren. M
 
 
 
-
-
-
-
-#Loyalty #Marriage #Media #Morality #Priesthood

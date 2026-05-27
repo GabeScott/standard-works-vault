@@ -1,12 +1,14 @@
 # The Joy of Service
 
+Gordon B. Hinckley
+
 By Elder F. Arthur Kay - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1985/04/the-joy-of-service?lang=eng)
 
-My beloved brothers and sisters, words are so inadequate to express the deep and tender feelings of my heart as I stand at this pulpit, which has been hallowed by the prophets of God and their associates, the General Authorities of the Church. Yes, “holy men of God spake as they were moved by the Holy Ghost” ([[2 Peter 1.21|2 Pet. 1:21]]), for “they spake the word of God with boldness.” ([[Acts 4.31|Acts 4:31]].)
+My beloved brothers and sisters, words are so inadequate to express the deep and tender feelings of my heart as I stand at this pulpit, which has been hallowed by the prophets of God and their associates, the General Authorities of the Church. Yes, “holy men of God spake as they were moved by the Holy Ghost” ([[2 Peter 1.21|2 Pet. 1:21]]), for “they spake the word of God with boldness.” ([[Acts 4.31|Acts 4:31]].)
 
 I love and revere these valiant servants of our Heavenly Father and feel honored and very humbled to be numbered among them.
 
@@ -34,9 +36,9 @@ With all my heart I desire to share my testimony with others of our Father’s c
 
 My earnest desire is to kindle in their hearts that which burns so deeply and strongly within my own, that they, too, may have the peace, the happiness, the security, and the spiritual strength that gospel living brings.
 
-As President Kimball has said of truth and of testimony, it “is the electric light illuminating the cavern; the wind and sun dissipating the fog. … It is much more than all else, for … ‘this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.’ ([[John 17.3|John 17:3]].)” (*Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 14.)
+As President Kimball has said of truth and of testimony, it “is the electric light illuminating the cavern; the wind and sun dissipating the fog. … It is much more than all else, for … ‘this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.’ ([[John 17.3|John 17:3]].)” (*Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 14.)
 
-Testimony, like the widow’s cruse of oil, will not fail (see [[1 Kings 17.14|1 Kgs. 17:14]]), neither be diminished as it is shared; rather, it will be enlarged at its base and renewed at its source.
+Testimony, like the widow’s cruse of oil, will not fail (see [[1 Kings 17.14|1 Kgs. 17:14]]), neither be diminished as it is shared; rather, it will be enlarged at its base and renewed at its source.
 
 With this calling comes the privilege and the blessing and obligation of sharing my testimony as an *especial* witness of Him whose name we bear and in whose image and likeness we were created. (See [[D&C 107.25|D&C 107:25]].)
 
@@ -51,8 +53,3 @@ In closing, I wish to express my eternal gratitude to the sweetheart of my youth
 
 
 
-
-
-
-
-#Service #Testimony

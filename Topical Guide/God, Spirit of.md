@@ -1,6 +1,5 @@
 # God, Spirit of
 
-
 *See also* [[Holy Ghost.md|Holy Ghost]]; [[Holy Spirit.md|Holy Spirit]]; [[Light of Christ.md|Light of Christ]]
 
 *Spirit of God* moved upon the face of the waters, [[Genesis 1.2|Genesis 1:2]].
@@ -33,9 +32,9 @@ of God knoweth no man, but the *Spirit of God*, [[1 Corinthians 2.11|1 Corinthia
 
 natural man receiveth not the things of the *Spirit of God*, [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
-ye are the temple of God ... *Spirit of God* dwelleth in you, [[1 Corinthians 3.16|1 Corinthians 3:16]].
+ye are the temple of God … *Spirit of God* dwelleth in you, [[1 Corinthians 3.16|1 Corinthians 3:16]].
 
-sanctified ... justified ... by the *Spirit* of our *God*, [[1 Corinthians 6.11|1 Corinthians 6:11]].
+sanctified … justified … by the *Spirit* of our *God*, [[1 Corinthians 6.11|1 Corinthians 6:11]].
 
 I think also that I have the *Spirit of God*, [[1 Corinthians 7.40|1 Corinthians 7:40]].
 
@@ -49,7 +48,7 @@ so powerful was the *Spirit of God*, [[1 Nephi 17.52|1 Nephi 17:52]].
 
 sea shall be wrought upon by the *Spirit of God*, [[1 Nephi 19.12|1 Nephi 19:12]].
 
-spirit of prophecy ... by the manifestation of the *Spirit of God*, [[Alma 5.47|Alma 5:47]].
+spirit of prophecy … by the manifestation of the *Spirit of God*, [[Alma 5.47|Alma 5:47]].
 
 Having been visited by the *Spirit of God*, [[Alma 9.21|Alma 9:21]] ([[3 Nephi 7.21|3 Nephi 7:21]]).
 
@@ -70,5 +69,3 @@ did not behold, discerning it by the *Spirit of God*, [[Moses 1.27|Moses 1:27]].
 *Spirit of God* descended out of heaven, [[Moses 6.26|Moses 6:26]].
 
 *Spirit of God* descended upon him, and thus he was born of the *Spirit*, [[Moses 6.65|Moses 6:65]].
-
-*See also* [[Psalms 143.10|Psalms 143:10]]; [[Revelation 3.1|Revelation 3:1]]; [[Revelation 4.5|Revelation 4:5]]; [[Revelation 5.6|Revelation 5:6]]; [[1 Nephi 20.16|1 Nephi 20:16]]; [[Jacob 7.8|Jacob 7:8]].

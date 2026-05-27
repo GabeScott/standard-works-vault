@@ -1,5 +1,7 @@
 # See the End from the Beginning
 
+Robert D. Hales
+
 By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -36,7 +38,7 @@ Just as the temples of God are sacred, so are your temporal bodies. The Apostle 
 
 “Know ye not that your body is the temple of the Holy Ghost which is in you, which ye have of God, and ye are not your own?
 
-“For ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God’s” ([[1 Corinthians 6.19|1 Corinthians 6:19–20]][[1 Corinthians 6.20|]]).
+“For ye are bought with a price: therefore glorify God in your body, and in your spirit, which are God’s” ([[1 Corinthians 6.19|1 Corinthians 6:19–20]][[1 Corinthians 6.20|]]).
 
 My dear fellow priesthood holders of all ages and in all places around this world, let us use our thoughts, our minds and hearts, and our bodies with the respect and dignity worthy of a sacred temple given to us by our Heavenly Father.
 
@@ -65,8 +67,3 @@ Of this I testify as an Apostle of the Lord, our Savior, and in the sacred name 
 
 
 
-
-
-
-
-#Perspective #Standards #Worthiness

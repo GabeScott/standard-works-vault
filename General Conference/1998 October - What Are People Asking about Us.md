@@ -1,5 +1,7 @@
 # What Are People Asking about Us?
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1998 General Conference*
@@ -26,7 +28,7 @@ Since the time of the First Vision, people have raised this question, and they c
 
 The Prophet Joseph declared, “It is the first principle of the Gospel to know for a certainty the Character of God, and to know that we may converse with him as one man converses with another” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[1976\], 345).
 
-“We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]). This first article of faith epitomizes our doctrine. We do not accept the Athanasian Creed. We do not accept the Nicene Creed, nor any other creed based on tradition and the conclusions of men.
+“We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost” ([[Articles of Faith 1.1|A of F 1:1]]). This first article of faith epitomizes our doctrine. We do not accept the Athanasian Creed. We do not accept the Nicene Creed, nor any other creed based on tradition and the conclusions of men.
 
 We do accept, as the basis of our doctrine, the statement of the Prophet Joseph Smith that when he prayed for wisdom in the woods, “the light rested upon me \[and\] I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.17|JS—H 1:17]]).
 
@@ -66,7 +68,7 @@ We are faced these days with many newspaper articles on this subject. This has a
 
 I wish to state categorically that this Church has nothing whatever to do with those practicing polygamy. They are not members of this Church. Most of them have never been members. They are in violation of the civil law. They know they are in violation of the law. They are subject to its penalties. The Church, of course, has no jurisdiction whatever in this matter.
 
-If any of our members are found to be practicing plural marriage, they are excommunicated, the most serious penalty the Church can impose. Not only are those so involved in direct violation of the civil law, they are in violation of the law of this Church. An article of our faith is binding upon us. It states, “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law” ([[Articles of Faith 1.12|A of F 1:12]]). One cannot obey the law and disobey the law at the same time.
+If any of our members are found to be practicing plural marriage, they are excommunicated, the most serious penalty the Church can impose. Not only are those so involved in direct violation of the civil law, they are in violation of the law of this Church. An article of our faith is binding upon us. It states, “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law” ([[Articles of Faith 1.12|A of F 1:12]]). One cannot obey the law and disobey the law at the same time.
 
 There is no such thing as a “Mormon fundamentalist.” It is a contradiction to use the two words together.
 
@@ -117,5 +119,3 @@ Knowing this work to be true, we go forward, each of us. May we make a renewed e
 
 
 
-
-#Abortion #Abuse #Children #Church_Doctrine #Church_Organization #Family #Godhead #Homosexuality #Honesty #Jesus_Christ #Joseph_Smith #Joy #Marriage #Media #Prophets #Sin #Tithing

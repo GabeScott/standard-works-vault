@@ -1,5 +1,7 @@
 # Lessons from Eve
 
+Ezra Taft Benson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1987 General Conference*
@@ -14,7 +16,7 @@ Sister Doxey has recounted the privilege that each of us has to strengthen the f
 
 Sister Evans has helped us understand that the human race doesn’t run on a smooth track. The route more closely resembles an obstacle course with hurdles, puddles, or snares lurking around every turn we make. Life isn’t meant to be easy. The race isn’t to be won by the swift or the flashy. Victory comes only to those who muster the faith to stay on the track—the strait and narrow way.
 
-Sister Winder has put our purpose in perspective. She has taught an eternal truth—“Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]). And she has emphasized one of the means by which true joy is realized: rendering selfless service of worth to others.
+Sister Winder has put our purpose in perspective. She has taught an eternal truth—“Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]). And she has emphasized one of the means by which true joy is realized: rendering selfless service of worth to others.
 
 As the male participant tonight, I bear a great responsibility to convey deep feelings of gratitude. For the men of the Church, I say thank you!
 
@@ -44,11 +46,11 @@ Question: What was the role of the priesthood in the process of creation?
 
 The Prophet Joseph Smith taught:
 
-“The Priesthood is an everlasting principle, and existed with God from eternity. … Christ is the Great High Priest; Adam next” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 157–58).
+“The Priesthood is an everlasting principle, and existed with God from eternity. … Christ is the Great High Priest; Adam next” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 157–58).
 
-“The priesthood was first given to Adam; he obtained the First Presidency, and held the keys of it from generation to generation. He obtained it in the Creation, before the world was formed” (*Teachings,* p. 157).
+“The priesthood was first given to Adam; he obtained the First Presidency, and held the keys of it from generation to generation. He obtained it in the Creation, before the world was formed” (*Teachings,* p. 157).
 
-President Brigham Young said, “Priesthood … is the law by which the worlds are, were, and will continue for ever and ever” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 130).
+President Brigham Young said, “Priesthood … is the law by which the worlds are, were, and will continue for ever and ever” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 130).
 
 Thus, priesthood is the power of God. Its ordinances and covenants are to bless men and women alike. By that power, the earth was created. Under the direction of the Father, Jehovah was the creator. As Michael, Adam did his part. He became the first man. But, in spite of the power and glory of creation to that point, the final link in the chain of creation was still missing. All the purposes of the world and all that was in the world would be brought to naught without woman—a keystone in the priesthood arch of creation.
 
@@ -72,7 +74,7 @@ From our study of Eve, we may learn five fundamental lessons of everlasting impo
 
 From these five fundamental lessons, we can study patterns which apply to present-day circumstances. Let us review them, lesson by lesson.
 
-1. **She labored beside her companion.** Adam held the priesthood. Eve served in matriarchal partnership with the patriarchal priesthood. So today, each wife may join with her husband as a partner unified in purpose. Scriptures state clearly, “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]). “They twain shall be one flesh” ([[Matthew 19.6|Matt. 19:6]]; [[Mark 10.8|Mark 10:8]]; [[D&C 49.16|D&C 49:16]]). Marvelously, it takes a man *and* a woman to make a man *or* a woman. Without union of the sexes, neither can we exist, nor can we become perfect. Ordinary and imperfect people can build each other through their wholeness together. The complete contribution of one partner to the other is essential to exaltation. This is so “that the earth might answer the end of its creation” ([[D&C 49.16|D&C 49:16]]).So labor and love in partnership. Honor your companion. Any sense of competition for place or position is not appropriate for either partner, especially when enlightened by scriptural understanding.
+1. **She labored beside her companion.** Adam held the priesthood. Eve served in matriarchal partnership with the patriarchal priesthood. So today, each wife may join with her husband as a partner unified in purpose. Scriptures state clearly, “Neither is the man without the woman, neither the woman without the man, in the Lord” ([[1 Corinthians 11.11|1 Cor. 11:11]]). “They twain shall be one flesh” ([[Matthew 19.6|Matt. 19:6]]; [[Mark 10.8|Mark 10:8]]; [[D&C 49.16|D&C 49:16]]). Marvelously, it takes a man *and* a woman to make a man *or* a woman. Without union of the sexes, neither can we exist, nor can we become perfect. Ordinary and imperfect people can build each other through their wholeness together. The complete contribution of one partner to the other is essential to exaltation. This is so “that the earth might answer the end of its creation” ([[D&C 49.16|D&C 49:16]]).So labor and love in partnership. Honor your companion. Any sense of competition for place or position is not appropriate for either partner, especially when enlightened by scriptural understanding.
 
 2. **As Adam bore responsibilities of fatherhood, so Eve bore the responsibilities of motherhood.** She did not shirk them. So with welcome arms you may gratefully greet those children God may send, through your divine design as cocreator. With your husband, be obedient to the commandment to multiply and replenish the earth, as your opportunity, your spiritual guidance, your wisdom, and your health allow. You will gain joy and rejoicing in your posterity. That enrichment becomes more beautiful and precious with each passing year.For you childless sisters and those without companions, remember the eternal timetable of the Lord is much longer than the lonely hours of your preparation or the total of this mortal life. These are only as microseconds when compared to eternity. Your willingness and worthiness are surely known to Him. The spiritual rewards of motherhood are available to all women. Nurturing the young, comforting the frightened, protecting the vulnerable, teaching and giving encouragement need not—and should not—be limited to our own children.Sisters, be patient. I know something of the pressures you feel. Your kitchens are too small. Your budgets are too tight. Demands upon you exceed your capacity to help all who cry out to you. Through it all, “Improve the shining moments; Don’t let them pass you by” (*Hymns,* 1985, no. 226). Take time for spiritual regeneration.I’ll share a few lines that have sustained Sister Nelson through the years. They also reflect her sense of priority:Cleaning and scrubbing can wait ’til tomorrow.For babies grow up,We’ve learned to our sorrow.So quiet down, cobwebs.Dust, go to sleep.I’m rocking my baby,And babies don’t keep.I’m glad Sister Nelson has not tried to be a “supermom.” But she has been a “soothing” mom. This she has done simply by being herself.When priorities are in place, one can more patiently tolerate unfinished business.“Time flies on wings of lightning; We cannot call it back” (*Hymns,* 1985, no. 226). And while it passes, remember the precious eternal perspective. As you faithfully endure to the end, you will gain rewards promised by your Father in Heaven. They include thrones, kingdoms, principalities, powers, dominions, glory, immortality, and eternal lives (see [[D&C 75.5|D&C 75:5]]; [[D&C 128.12|D&C 128:12, 13]][[D&C 128.13|]]; [[D&C 132.19|D&C 132:19, 24]][[D&C 132.24|]]; [[Moses 1.39|Moses 1:39]]).
 
@@ -99,5 +101,3 @@ I invoke the blessings of Almighty God upon you that you may be successful in fu
 
 
 
-
-#Adam_And_Eve #Family #Marriage #Motherhood #Obedience #Prayer #Priesthood #Teaching #Women

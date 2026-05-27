@@ -1,7 +1,6 @@
 # Worthiness, Worthy
 
-
-*See also* [[Cleanliness.md|Cleanliness]]; [[Dependability.md|Dependability]]; [[Faithfulness.md|Faithfulness]]; [[Fit.md|Fit]]; [[Honorable.md|Honorable]]; [[Meet [adjective].md|Meet [adjective]]]; [[Noble.md|Noble]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]; [[Purification, Purify, Purifying.md|Purification]]; [[Repent, Repentance.md|Repent]]; [[Righteousness.md|Righteousness]]
+*See also* [[Cleanliness.md|Cleanliness]]; [[Dependability.md|Dependability]]; [[Faithfulness.md|Faithfulness]]; [[Fit.md|Fit]]; [[Honorable.md|Honorable]]; [[Meet [adjective].md|Meet [adjective]]]; [[Noble.md|Noble]]; [[Priesthood, Qualifying for.md|Priesthood, Qualifying for]]; [[Purification.md|Purification]]; [[Repent.md|Repent]]; [[Righteousness.md|Righteousness]]
 
 I am not *worthy* of the least of all the mercies, [[Genesis 32.10|Genesis 32:10]].
 
@@ -17,7 +16,7 @@ I am not *worthy* that thou shouldest come, [[Matthew 8.8|Matthew 8:8]] ([[Luke 
 
 workman is *worthy* of his meat, [[Matthew 10.10|Matthew 10:10]].
 
-he that taketh not his cross ... is not *worthy* of me, [[Matthew 10.38|Matthew 10:38]].
+he that taketh not his cross … is not *worthy* of me, [[Matthew 10.38|Matthew 10:38]].
 
 whose shoes I am not *worthy* to stoop down and unloose, [[Mark 1.7|Mark 1:7]] ([[Luke 3.16|Luke 3:16]]; [[John 1.27|John 1:27]]; [[Acts 13.25|Acts 13:25]]; [[1 Nephi 10.8|1 Nephi 10:8]]).
 
@@ -29,7 +28,7 @@ am no more *worthy* to be called thy son, [[Luke 15.19|Luke 15:19]].
 
 accounted *worthy* to escape all these things, [[Luke 21.36|Luke 21:36]].
 
-sufferings ... are not *worthy* to be compared with the glory, [[Romans 8.18|Romans 8:18]].
+sufferings … are not *worthy* to be compared with the glory, [[Romans 8.18|Romans 8:18]].
 
 walk *worthy* of the vocation wherewith ye are called, [[Ephesians 4.1|Ephesians 4:1]].
 
@@ -39,7 +38,7 @@ walk *worthy* of God, who hath called you, [[1 Thessalonians 2.12|1 Thessalonian
 
 be counted *worthy* of the kingdom of God, [[2 Thessalonians 1.5|2 Thessalonians 1:5]].
 
-pray ... God would count you *worthy* of this calling, [[2 Thessalonians 1.11|2 Thessalonians 1:11]].
+pray … God would count you *worthy* of this calling, [[2 Thessalonians 1.11|2 Thessalonians 1:11]].
 
 Of whom the world was not *worthy*, [[Hebrews 11.38|Hebrews 11:38]].
 
@@ -53,7 +52,7 @@ Who is *worthy* to open the book, [[Revelation 5.2|Revelation 5:2]].
 
 I cannot tell you all the things whereby ye may commit *sin*, [[Mosiah 4.29|Mosiah 4:29]].
 
-Abinadi ... thou art *worthy* of death, [[Mosiah 17.7|Mosiah 17:7]].
+Abinadi … thou art *worthy* of death, [[Mosiah 17.7|Mosiah 17:7]].
 
 not of any *worthiness* of myself, [[Alma 36.5|Alma 36:5]].
 
@@ -77,10 +76,10 @@ let those be chosen that are *worthy*, [[D&C 105.35|D&C 105:35]].
 
 slothful shall not be counted *worthy* to stand, [[D&C 107.100|D&C 107:100]].
 
-tithed of their surplus properties ... or they shall not be found *worthy*, [[D&C 119.5|D&C 119:5]].
+tithed of their surplus properties … or they shall not be found *worthy*, [[D&C 119.5|D&C 119:5]].
 
 a good house, *worthy* of all acceptation, [[D&C 124.23|D&C 124:23]].
 
-to minister for those who are *worthy* of ... an eternal weight of glory, [[D&C 132.16|D&C 132:16]].
+to minister for those who are *worthy* of … an eternal weight of glory, [[D&C 132.16|D&C 132:16]].
 
 he that will not bear chastisement is not *worthy* of my kingdom, [[D&C 136.31|D&C 136:31]].

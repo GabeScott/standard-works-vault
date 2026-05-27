@@ -1,6 +1,8 @@
 # The Grave Has No Victory
 
-By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
+Russell M. Nelson
+
+By Reyna I. Aburto - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -12,9 +14,9 @@ On this glorious Easter Sunday, our children joyfully sing, “On a golden sprin
 
 We are grateful for our knowledge of the Resurrection of Jesus Christ. And yet at some point in our lives, we will have felt heartbroken after losing someone whom we love dearly. Through the current global pandemic, many of us have lost loved ones—either family members or friends.[^2] We pray for those who are grieving such loss.
 
-President Russell M. Nelson has said:
+President Russell M. Nelson has said:
 
-“Irrespective of age, we mourn for those loved and lost. Mourning is one of the deepest expressions of pure love. …
+“Irrespective of age, we mourn for those loved and lost. Mourning is one of the deepest expressions of pure love. …
 
 “Moreover, we can’t fully appreciate joyful reunions later without tearful separations now. The only way to take sorrow out of death is to take love out of life.”[^3]
 
@@ -42,9 +44,9 @@ That day I realized that the Spirit had given me comfort in a difficult time. I 
 
 President Nelson has taught:
 
-“Death is a necessary component of our eternal existence. No one knows when it will come, but it is essential to God’s great plan of happiness. Thanks to the Atonement of the Lord, eventual resurrection is a reality and eternal life is a possibility for all humankind. …
+“Death is a necessary component of our eternal existence. No one knows when it will come, but it is essential to God’s great plan of happiness. Thanks to the Atonement of the Lord, eventual resurrection is a reality and eternal life is a possibility for all humankind. …
 
-“… For sorrowing loved ones left behind … the sting of death is soothed by a steadfast faith in Christ, a perfect brightness of hope, a love of God and of all men, and a deep desire to serve them. That faith, that hope, that love will qualify us to come into God’s holy presence and, with our eternal companions and families, dwell with Him forever.”[^16]
+“… For sorrowing loved ones left behind … the sting of death is soothed by a steadfast faith in Christ, a perfect brightness of hope, a love of God and of all men, and a deep desire to serve them. That faith, that hope, that love will qualify us to come into God’s holy presence and, with our eternal companions and families, dwell with Him forever.”[^16]
 
 I testify that “if Christ had not risen from the dead, or have broken the bands of death that the grave should have no victory, and that death should have no sting, there could have been no resurrection.
 
@@ -63,7 +65,7 @@ I testify that through the redeeming Atonement and glorious Resurrection of Jesu
 
 [^2]: According to the World Health Organization, more than 2.8 million people have died so far from complications related to COVID-19 (see covid19.who.int).
 
-[^3]: Russell M. Nelson, “[[1992 April - Doors of Death.md|Doors of Death]],” *Ensign*, May 1992, 72.
+[^3]: Russell M. Nelson, “[[1992 April - Doors of Death.md|Doors of Death]],” *Ensign*, May 1992, 72.
 
 [^4]: See [[Matthew 27.55|Matthew 27:55]]; [[Mark 15.41|Mark 15:41]]; [[Luke 23.49|Luke 23:49]].
 
@@ -83,20 +85,15 @@ I testify that through the redeeming Atonement and glorious Resurrection of Jesu
 
 [^12]: See [[John 20.11|John 20:11–15]][[John 20.12|]][[John 20.13|]][[John 20.14|]][[John 20.15|]].
 
-[^13]: See “Rob Gardner: Portraying the Savior in Music,” Apr. 10, 2019, ldsliving.com; Elena Aburto, “Naming Our Grief,” Dec. 26, 2019, IWillHealThee.blogspot.com; see also Gospel Topics, “[Grief](https://churchofjesuschrist.org/study/manual/gospel-topics/grief?lang=eng),” topics.ChurchofJesusChrist.org; Gospel Topics, “[Death, Physical](https://churchofjesuschrist.org/study/manual/gospel-topics/death-physical?lang=eng),” topics.ChurchofJesusChrist.org; “[His Grace](https://www.churchofjesuschrist.org/media/collection/his-grace?),” ChurchofJesusChrist.org/media/collection/his-grace.
+[^13]: See “Rob Gardner: Portraying the Savior in Music,” Apr. 10, 2019, ldsliving.com; Elena Aburto, “Naming Our Grief,” Dec. 26, 2019, IWillHealThee.blogspot.com; see also Gospel Topics, “[Grief](https://www.churchofjesuschrist.org/study/manual/gospel-topics/grief?lang=eng),” topics.ChurchofJesusChrist.org; Gospel Topics, “[Death, Physical](https://www.churchofjesuschrist.org/study/manual/gospel-topics/death-physical?lang=eng),” topics.ChurchofJesusChrist.org; “[His Grace](https://www.churchofjesuschrist.org/media/collection/his-grace?),” ChurchofJesusChrist.org/media/collection/his-grace.
 
 [^14]: See [[Mark 16.9|Mark 16:9–10]][[Mark 16.10|]]; [[John 20.16|John 20:16–18]][[John 20.17|]][[John 20.18|]].
 
 [^15]: [[John 11.23|John 11:23]].
 
-[^16]: Russell M. Nelson, “[[2005 April - Now Is the Time to Prepare.md|Now Is the Time to Prepare]],” *Ensign* or *Liahona*, May 2005, 18.
+[^16]: Russell M. Nelson, “[[2005 April - Now Is the Time to Prepare.md|Now Is the Time to Prepare]],” *Ensign* or *Liahona*, May 2005, 18.
 
 [^17]: [[Mosiah 16.7|Mosiah 16:7–9]][[Mosiah 16.8|]][[Mosiah 16.9|]].
 
 [^18]: [[John 11.25|John 11:25]].
 
-
-
-
-
-#Atonement #Death #Hope #Jesus_Christ #Resurrection

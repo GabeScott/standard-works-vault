@@ -1,6 +1,8 @@
 # Become Rich toward God
 
-By President Rex D. Pinegar - *Of the First Council of the Seventy*
+Harold B. Lee
+
+By President Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1973 General Conference*
 
@@ -17,7 +19,7 @@ William Jennings Bryan wrote:
 
 In our search for happiness we may get so involved with the “human measure of life” that we fail to recognize the temporary value of such riches. Christ warned that we can become spiritually “choked” with the “cares and riches and pleasures of this life, and bring no fruit to perfection.” ([[Luke 8.14|Luke 8:14]].)
 
-The Savior also said, “… a man’s life consisteth not in the abundance of the things which he possesseth.
+The Savior also said, “… a man’s life consisteth not in the abundance of the things which he possesseth.
 
 “And he spake a parable unto them, saying, The ground of a certain rich man brought forth plentifully:
 
@@ -31,7 +33,7 @@ The Savior also said, “… a man’s life consisteth not in the abundance of 
 
 “So is he that layeth up treasure for himself, and is not rich toward God.” ([[Luke 12.15|Luke 12:15–21]][[Luke 12.16|]][[Luke 12.17|]][[Luke 12.18|]][[Luke 12.19|]][[Luke 12.20|]][[Luke 12.21|]].)
 
-It is, then, our blessing and responsibility to become rich toward God. We are to go beyond acquiring something for ourselves. The Savior also taught us how to do this when he said, “… seek ye the kingdom of God; and all these things shall be added unto you” ([[Luke 12.31|Luke 12:31]]), and, “… whoso desireth to reap, let him thrust in his sickle with his might, and reap while the day lasts, that he may treasure up for his soul everlasting salvation in the kingdom of God.” ([[D&C 6.3|D&C 6:3]].)
+It is, then, our blessing and responsibility to become rich toward God. We are to go beyond acquiring something for ourselves. The Savior also taught us how to do this when he said, “… seek ye the kingdom of God; and all these things shall be added unto you” ([[Luke 12.31|Luke 12:31]]), and, “… whoso desireth to reap, let him thrust in his sickle with his might, and reap while the day lasts, that he may treasure up for his soul everlasting salvation in the kingdom of God.” ([[D&C 6.3|D&C 6:3]].)
 
 This means we may gain eternal life. “Behold, he that hath eternal life is rich.” ([[D&C 11.7|D&C 11:7]].)
 
@@ -47,7 +49,7 @@ The significance of this truth was brought to the heart of a certain man when hi
 
 “The most important thing in all this world is that I know that I existed in the preexistence as a spirit child of my Heavenly Father; that I am here in mortality as part of his great plan for me in order that I may prove my worthiness to him by constantly making the proper choices between good and evil; and that if I prove myself worthy I will return to his presence.
 
-“I further know that there is a prophet, Harold B. Lee, here upon the earth today who communicates regularly with the true and living Jesus Christ, the son of God. Through this prophet I can learn everything necessary to help me live my life and guide my family in the proper manner to return to his presence.
+“I further know that there is a prophet, Harold B. Lee, here upon the earth today who communicates regularly with the true and living Jesus Christ, the son of God. Through this prophet I can learn everything necessary to help me live my life and guide my family in the proper manner to return to his presence.
 
 “Oh, there is so much more that I could tell you, but suffice it to say that there is absolutely no unanswered question in my mind concerning my reason for being here at this time, nor what reward I will earn if I obey the teachings of my Father in heaven.
 
@@ -55,7 +57,7 @@ The significance of this truth was brought to the heart of a certain man when hi
 
 “Now I am going to do something about it. At the same time this letter is mailed, I am sending your name to the Church representatives in your area and asking them to contact you. They will undoubtedly send a couple of young men (or lady) missionaries to see you. These will be people who are dedicating a couple of years of their lives at their or their family’s expense to tell people like yourselves of this gospel. They have about six one-hour lessons they will want to teach you. I beg of you to listen to their message. I testify to you that it is true.”
 
-I also testify that this is the true Church, that Harold B. Lee is a prophet of the true and living God, and that this gospel of Jesus Christ is more precious than money.
+I also testify that this is the true Church, that Harold B. Lee is a prophet of the true and living God, and that this gospel of Jesus Christ is more precious than money.
 
 A recent Relief Society film, “Walk in the Light,” highlights the incident of a young granddaughter who desired to become the heir to her grandmother’s watch. It seemed to the grandchild a real treasure. Here are the soul-stirring words of her grandmother’s reply:
 
@@ -74,8 +76,3 @@ May we all share our wealth of testimony with others that we and they may become
 
 
 
-
-
-
-
-#Charity #Testimony #Wealth

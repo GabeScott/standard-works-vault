@@ -1,5 +1,7 @@
 # “Great Shall Be the Peace of Thy Children”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2000 General Conference*
@@ -82,7 +84,7 @@ I read from a clipping I made the other day: “The latest Census information �
 
 As has been said here tonight, Paul, in writing to the Corinthians, declared: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?
 
-“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
+“If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.16|1 Cor. 3:16–17]][[1 Corinthians 3.17|]]).
 
 Now comes the craze of tattooing one’s body. I cannot understand why any young man—or young woman, for that matter—would wish to undergo the painful process of disfiguring the skin with various multicolored representations of people, animals, and various symbols. With tattoos, the process is permanent, unless there is another painful and costly undertaking to remove it. Fathers, caution your sons against having their bodies tattooed. They may resist your talk now, but the time will come when they will thank you. A tattoo is graffiti on the temple of the body.
 
@@ -113,8 +115,3 @@ God bless you, dear fathers. May He bless you with wisdom and judgment, with und
 
 
 
-
-
-
-
-#Adversity #Children #Conscience #Divorce #Education #Family #Fatherhood #Friendship #Home #Honesty #Marriage #Media #Morality #Parenthood #Peace #Prayer #Standards #Temptation #Word_Of_Wisdom #Youth

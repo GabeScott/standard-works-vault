@@ -1,5 +1,7 @@
 # Shall He Find Faith on the Earth?
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2002 General Conference*
@@ -16,7 +18,7 @@ Today I ask a question the Savior asked nearly 2,000 years ago: “When the Son 
 
 ## First Principle of the Gospel
 
-What is true faith? Faith is defined as “belief and trust in and loyalty to God” and “firm belief in something for which there is no proof.”[^2] We believe that “faith is to hope for things which are not seen, but which are true … , and must be centered in Jesus Christ.” In fact, we believe that “faith in Jesus Christ is the first principle of the gospel.”[^3]
+What is true faith? Faith is defined as “belief and trust in and loyalty to God” and “firm belief in something for which there is no proof.”[^2] We believe that “faith is to hope for things which are not seen, but which are true … , and must be centered in Jesus Christ.” In fact, we believe that “faith in Jesus Christ is the first principle of the gospel.”[^3]
 
 ## A Widow’s Faith
 
@@ -145,23 +147,23 @@ I testify that through our prophet, seer, and revelator, President Gordon B. Hin
 
 [^2]: *Merriam-Webster’s Collegiate Dictionary,* 10th ed. (1993), “Faith,” 418.
 
-[^3]: Bible Dictionary, “Faith,” 669–70.
+[^3]: Bible Dictionary, “[[BD Faith|Faith]],” 669–70.
 
-[^4]: See [[1 Kings 17.11|1 Kings 17:11–16]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
+[^4]: See [[1 Kings 17.11|1 Kings 17:11–16]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
 
 [^5]: [[Hebrews 11.1|Hebrews 11:1]]; see also [[Hebrews 11.2|Hebrews 11:2–40]][[Hebrews 11.3|]][[Hebrews 11.4|]][[Hebrews 11.5|]][[Hebrews 11.6|]][[Hebrews 11.7|]][[Hebrews 11.8|]][[Hebrews 11.9|]][[Hebrews 11.10|]][[Hebrews 11.11|]][[Hebrews 11.12|]][[Hebrews 11.13|]][[Hebrews 11.14|]][[Hebrews 11.15|]][[Hebrews 11.16|]][[Hebrews 11.17|]][[Hebrews 11.18|]][[Hebrews 11.19|]][[Hebrews 11.20|]][[Hebrews 11.21|]][[Hebrews 11.22|]][[Hebrews 11.23|]][[Hebrews 11.24|]][[Hebrews 11.25|]][[Hebrews 11.26|]][[Hebrews 11.27|]][[Hebrews 11.28|]][[Hebrews 11.29|]][[Hebrews 11.30|]][[Hebrews 11.31|]][[Hebrews 11.32|]][[Hebrews 11.33|]][[Hebrews 11.34|]][[Hebrews 11.35|]][[Hebrews 11.36|]][[Hebrews 11.37|]][[Hebrews 11.38|]][[Hebrews 11.39|]][[Hebrews 11.40|]]; [[Ether 12.7|Ether 12:7–22]][[Ether 12.8|]][[Ether 12.9|]][[Ether 12.10|]][[Ether 12.11|]][[Ether 12.12|]][[Ether 12.13|]][[Ether 12.14|]][[Ether 12.15|]][[Ether 12.16|]][[Ether 12.17|]][[Ether 12.18|]][[Ether 12.19|]][[Ether 12.20|]][[Ether 12.21|]][[Ether 12.22|]].
 
-[^6]: [[1 Corinthians 2.5|1 Corinthians 2:5]].
+[^6]: [[1 Corinthians 2.5|1 Corinthians 2:5]].
 
 [^7]: [[Romans 1.17|Romans 1:17]].
 
 [^8]: [[John 20.29|John 20:29]].
 
-[^9]: [[1 Peter 1.8|1 Peter 1:8–9]][[1 Peter 1.9|]].
+[^9]: [[1 Peter 1.8|1 Peter 1:8–9]][[1 Peter 1.9|]].
 
 [^10]: [[James 2.17|James 2:17]].
 
-[^11]: In Conference Report, Oct. 1998, 70; or *Ensign,* Nov. 1998, 53.
+[^11]: In Conference Report, Oct. 1998, [[1998 October - To the Boys and to the Men.md|70]]; or *Ensign,* Nov. 1998, 53.
 
 [^12]: [[D&C 8.2|D&C 8:2]].
 
@@ -171,7 +173,7 @@ I testify that through our prophet, seer, and revelator, President Gordon B. Hin
 
 [^15]: [[John 14.12|John 14:12]].
 
-[^16]: See [[1 Corinthians 2.14|1 Corinthians 2:14]].
+[^16]: See [[1 Corinthians 2.14|1 Corinthians 2:14]].
 
 [^17]: [[Ether 12.12|Ether 12:12]].
 
@@ -183,8 +185,3 @@ I testify that through our prophet, seer, and revelator, President Gordon B. Hin
 
 [^21]: [[Romans 5.1|Romans 5:1]].
 
-
-
-
-
-#Faith #Financial_Management #Humility #Work

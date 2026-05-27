@@ -1,5 +1,7 @@
 # What Have I Done for Someone Today?
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2009 General Conference*
@@ -22,7 +24,7 @@ The Savior taught His disciples, “For whosoever will save his life shall lose 
 
 I believe the Savior is telling us that unless we lose ourselves in service to others, there is little purpose to our own lives. Those who live only for themselves eventually shrivel up and figuratively lose their lives, while those who lose themselves in service to others grow and flourish—and in effect save their lives.
 
-In the October 1963 general conference—the conference at which I was sustained as a member of the Quorum of the Twelve Apostles—President David O. McKay made this statement: “Man’s greatest happiness comes from losing himself for the good of others.”[^6]
+In the October 1963 general conference—the conference at which I was sustained as a member of the Quorum of the Twelve Apostles—President David O. McKay made this statement: “Man’s greatest happiness comes from losing himself for the good of others.”[^6]
 
 Often we live side by side but do not communicate heart to heart. There are those within the sphere of our own influence who, with outstretched hands, cry out, “Is there no balm in Gilead?”[^7]
 
@@ -52,7 +54,7 @@ Dozens and dozens of Primaries challenged the children to provide service, and t
 
 I share with you just a few of the countless notes contained in the many gifts I received. One small child wrote, “My grandpa had a stroke, and I held his hand.” From an 8-year-old girl: “My sister and I served my mom and family by organizing and cleaning the toy closet. It took us a few hours and we had fun. The best part was that we surprised my mom and made her happy because she didn’t even ask us to do it.” An 11-year-old girl wrote: “There was a family in my ward that did not have a lot of money. They have three little girls. The mom and dad had to go somewhere, so I offered to watch the three girls. The dad was just about to hand me a $5 bill. I said, ‘I can’t take \[it\].’ My service was that I watched the girls for free.” A Primary child in Mongolia wrote that he had brought in water from the well so his mother would not have to do so. From a 4-year-old boy, no doubt written by a Primary teacher: “My dad is gone for army training for a few weeks. My special job is to give my mom hugs and kisses.” Wrote a 9-year-old girl: “I picked strawberries for my great-grandma. I felt good inside!” And another: “I played with a lonely kid.”
 
-From an 11-year-old boy: “I went to a lady’s house and asked her questions and sang her a song. It felt good to visit her. She was happy because she never gets visitors.” Reading this particular note reminded me of words penned long ago by Elder Richard L. Evans of the Quorum of the Twelve. Said he: “It is difficult for those who are young to understand the loneliness that comes when life changes from a time of preparation and performance to a time of putting things away. … To be so long the center of a home, so much sought after, and then, almost suddenly to be on the sidelines watching the procession pass by—this is living into loneliness. … We have to live a long time to learn how empty a room can be that is filled only with furniture. It takes someone … beyond mere hired service, beyond institutional care or professional duty, to thaw out the memories of the past and keep them warmly living in the present. … We cannot bring them back the morning hours of youth. But we can help them live in the warm glow of a sunset made more beautiful by our thoughtfulness … and unfeigned love.”[^11]
+From an 11-year-old boy: “I went to a lady’s house and asked her questions and sang her a song. It felt good to visit her. She was happy because she never gets visitors.” Reading this particular note reminded me of words penned long ago by Elder Richard L. Evans of the Quorum of the Twelve. Said he: “It is difficult for those who are young to understand the loneliness that comes when life changes from a time of preparation and performance to a time of putting things away. … To be so long the center of a home, so much sought after, and then, almost suddenly to be on the sidelines watching the procession pass by—this is living into loneliness. … We have to live a long time to learn how empty a room can be that is filled only with furniture. It takes someone … beyond mere hired service, beyond institutional care or professional duty, to thaw out the memories of the past and keep them warmly living in the present. … We cannot bring them back the morning hours of youth. But we can help them live in the warm glow of a sunset made more beautiful by our thoughtfulness … and unfeigned love.”[^11]
 
 My birthday cards and notes came also from teenagers in Young Men and Young Women classes who made blankets for hospitals, served in food pantries, were baptized for the dead, and performed numerous other acts of service.
 
@@ -113,17 +115,17 @@ If we truly listen, we may hear that voice from far away say to us, as it spoke 
 
 [^5]: [[Luke 9.24|Luke 9:24]].
 
-[^6]: David O. McKay, in Conference Report, Oct. 1963, 8.
+[^6]: David O. McKay, in Conference Report, Oct. 1963, 8.
 
 [^7]: [[Jeremiah 8.22|Jeremiah 8:22]].
 
 [^8]: [[Mosiah 18.8|Mosiah 18:8]].
 
-[^9]: Anonymous, quoted in Richard L. Evans, “The Quality of Kindness,” *Improvement Era,* May 1960, 340.
+[^9]: Anonymous, quoted in Richard L. Evans, “The Quality of Kindness,” *Improvement Era,* May 1960, 340.
 
 [^10]: See Gerry Avant, “Prophet’s Birthday,” *Church News,* Aug. 23, 2008, 4.
 
-[^11]: Richard L. Evans, “Living into Loneliness,” *Improvement Era,* July 1948, 445.
+[^11]: Richard L. Evans, “Living into Loneliness,” *Improvement Era,* July 1948, 445.
 
 [^12]: [[Matthew 25.34|Matthew 25:34–40]][[Matthew 25.35|]][[Matthew 25.36|]][[Matthew 25.37|]][[Matthew 25.38|]][[Matthew 25.39|]][[Matthew 25.40|]].
 
@@ -133,8 +135,3 @@ If we truly listen, we may hear that voice from far away say to us, as it spoke 
 
 [^15]: [[Matthew 25.21|Matthew 25:21]].
 
-
-
-
-
-#Compassion #Love #Service

@@ -1,6 +1,8 @@
 # “Our Father Which Art in Heaven”
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+Gordon B. Hinckley
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -20,11 +22,11 @@ Being a guest in so many different homes over the last few years has certainly c
 
 Our prophets have admonished us repeatedly to make family prayer a regular part of our daily worship. President John Taylor asked the Saints:
 
-“Do you have prayers in your family? …
+“Do you have prayers in your family? …
 
 “And when you do, do you go through the operation like the guiding of a piece of machinery, or do you bow in meekness and with a sincere desire to seek the blessing of God upon you and your household? That is the way that we ought to do, and cultivate a spirit of devotion and trust in God, dedicating ourselves to him, and seeking his blessings.” (*Journal of Discourses,* 21:118.)
 
-President Heber J. Grant, in referring to this matter, said:
+President Heber J. Grant, in referring to this matter, said:
 
 “I have little or no fear for the boy or the girl, the young man or the young woman, who honestly and conscientiously supplicate God twice a day for the guidance of His Spirit. I am sure that when temptation comes they will have the strength to overcome it by the inspiration that shall be given to them.” (*Gospel Standards,* Salt Lake City: The Improvement Era, 1941, p. 26.)
 
@@ -38,13 +40,13 @@ Prayer is a divine fellowship with God. Such spiritual companionship brings a ma
 
 “Sanctify them through thy truth: thy word is truth.
 
-“As thou hast sent me into the world, even so have I also sent them into the world. …
+“As thou hast sent me into the world, even so have I also sent them into the world. …
 
 “Neither pray I for these alone, but for them also which shall believe on me through their word;
 
 “That they all may be one; as thou, Father, art in me, and I in thee, that they also may be one in us: that the world may believe that thou hast sent me.” ([[John 17.15|John 17:15–18, 20–21]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.20|]][[John 17.21|]].)
 
-President Heber J. Grant once counseled us:
+President Heber J. Grant once counseled us:
 
 “The minute a man stops supplicating God for his spirit and direction, just so soon he starts out to become a stranger to him and his works. When men stop praying for God’s spirit, they place confidence in their own unaided reason, and they gradually lose the spirit of God, just the same as near and dear friends, by never writing to or visiting with each other, will become strangers.” (*Improvement Era,* Aug. 1944, p. 481.)
 
@@ -56,15 +58,15 @@ First, the way we address our Father in Heaven in prayer. I listen to so many pe
 
 When the Lord instructed His disciples on how to pray, He said:
 
-“And when thou prayest, thou shalt not be as the hypocrites are: for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. Verily I say unto you, They have their reward. …
+“And when thou prayest, thou shalt not be as the hypocrites are: for they love to pray standing in the synagogues and in the corners of the streets, that they may be seen of men. Verily I say unto you, They have their reward. …
 
 “After this manner therefore pray ye: Our Father which art in heaven, Hallowed be thy name.” ([[Matthew 6.5|Matt. 6:5, 9]][[Matthew 6.9|]].)
 
 In the words of other prayers given to us by the Savior, the term *Father* is also used. “O God, the Eternal Father” is the way the Lord instructed us to bless the sacrament. (See [[D&C 20.77|D&C 20:77]].) By use of the word *Father,* we understand our relationship to Him. He is our Eternal Father, and we are His children. Teach your children how to address the Lord in prayer.
 
-Second, use the sacred language of prayer. We should always address Deity by using the sacred pronouns *thou, thee, thy,* and *thine.* The late President Stephen L Richards gave us this wise counsel:
+Second, use the sacred language of prayer. We should always address Deity by using the sacred pronouns *thou, thee, thy,* and *thine.* The late President Stephen L Richards gave us this wise counsel:
 
-“We have discovered … a lack of proper teaching with reference to prayer. I know that I myself have been shocked out in the mission field as I have heard missionaries called on for prayer who seem to have had no experience or training whatever in the use of the language of prayer. …
+“We have discovered … a lack of proper teaching with reference to prayer. I know that I myself have been shocked out in the mission field as I have heard missionaries called on for prayer who seem to have had no experience or training whatever in the use of the language of prayer. …
 
 “I think, my brethren, that in the quorums and in the classes, you would do well, as in the homes also, to teach the language of prayer—‘Thee and Thou,’ rather than ‘you.’ It always seems disappointing to me to have our Father in Heaven, our Lord, addressed as ‘you.’ It is surprising how much we see of this. … I think you might make note of it, and avail yourselves of any opportunities that may come in order to teach the sacred and reverential language of prayer.” (In Conference Report, Oct. 1951, p. 175.)
 
@@ -107,8 +109,3 @@ May the power of prayer bless our homes, I pray in the name of Jesus Christ, ame
 
 
 
-
-
-
-
-#Prayer

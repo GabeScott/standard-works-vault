@@ -1,5 +1,7 @@
 # Peace
 
+Thomas S. Monson
+
 By Elder Robert E. Wells - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -14,7 +16,7 @@ Today I’d like to speak about this spiritual peace offered by Christ in the Se
 
 I like to think of when the sermon was first taught. In my mind’s eye, I see a scene of peaceful beauty: I envision an afternoon in early April. The sky is softening toward dusk, with not even a breeze. White, wispy cirrus clouds stand almost motionless in the clear blue sky. And below, on the coast of the Sea of Galilee, soft waves lap against moored fishing boats. A great crowd assembles on the side of the hill. Eager listeners sit on the grass or stand amidst the rocks and early spring flowers. All are hushed and thoughtful as every face is lifted up, every eye looking towards the Lord and every ear listening as the Savior tells them what they need to do in order to have peace in their lives.
 
-Tenderly Christ speaks: “Blessed are the peacemakers” ([[Matthew 5.9|Matt. 5:9]]). Another Bible translator quotes the Savior, saying, “Happy are those who *make* peace” ((J. B. Phillips, trans., *The New Testament in Modern English* \[New York: The Macmillan Co., 1958\], p. 9; italics added). Either way, we focus on the strong verb *make* as in “make peace” or “peacemakers.” To follow Christ and bring forth the blessings of heaven, we must actively make peace in the world, in the community, in the neighborhood, and above all, in the home we live in.
+Tenderly Christ speaks: “Blessed are the peacemakers” ([[Matthew 5.9|Matt. 5:9]]). Another Bible translator quotes the Savior, saying, “Happy are those who *make* peace” ((J. B. Phillips, trans., *The New Testament in Modern English* \[New York: The Macmillan Co., 1958\], p. 9; italics added). Either way, we focus on the strong verb *make* as in “make peace” or “peacemakers.” To follow Christ and bring forth the blessings of heaven, we must actively make peace in the world, in the community, in the neighborhood, and above all, in the home we live in.
 
 In the meridian of time, many expected Christ to take a political stand against Roman rule and offer peace to the oppressed people. Christ did indeed offer peace, but it was not external or political; rather, the peace Christ taught was internal and personal.
 
@@ -22,25 +24,25 @@ I would like to share an incident which took place during the Vietnam War. There
 
 President Harold B. Lee was the President of the Church at the time. While at an area conference in another country, he was interviewed by reporters from the international news services. One reporter asked President Lee, “What is your church’s position on the Vietnam War?” Some recognized the question as a trap—one which could not be answered without a very real risk of being misunderstood or misinterpreted. If the prophet answered, “We are against the war,” the international media could state, “How strange—a religious leader who is against the position of the country he is obliged to sustain in his own church’s articles of faith.” On the other hand, if President Lee answered, “We are in favor of the war,” the media could question, “How strange—a religious leader in favor of war?” Either way, the answer could result in serious problems regarding public opinion both inside and outside the Church.
 
-President Lee, with great inspiration and wisdom, answered as would a man who knows the Savior: “We, together with the whole Christian world, abhor war. But the Savior said, ‘In me ye might have peace. In the world ye shall have tribulation’ ([[John 16.33|John 16:33]]).” And then the prophet quoted that other comforting scripture from John: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you” ([[John 14.27|John 14:27]]). President Lee then explained: The Savior was not talking about the peace that can be achieved between nations, by military force, or by negotiation in the halls of parliaments. Rather, he was speaking of the peace we can each have in our own lives when we live the commandments and come unto Christ with broken hearts and contrite spirits. (See Conference Report, Oct. 1982, p. 101; or *Ensign,* Nov. 1982, p. 70.)
+President Lee, with great inspiration and wisdom, answered as would a man who knows the Savior: “We, together with the whole Christian world, abhor war. But the Savior said, ‘In me ye might have peace. In the world ye shall have tribulation’ ([[John 16.33|John 16:33]]).” And then the prophet quoted that other comforting scripture from John: “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you” ([[John 14.27|John 14:27]]). President Lee then explained: The Savior was not talking about the peace that can be achieved between nations, by military force, or by negotiation in the halls of parliaments. Rather, he was speaking of the peace we can each have in our own lives when we live the commandments and come unto Christ with broken hearts and contrite spirits. (See Conference Report, Oct. 1982, p. 101; or *Ensign,* Nov. 1982, p. 70.)
 
-A tender, sweet story about receiving peace from the scriptures appeared in the January 1991 *Ensign,* submitted by Sister Carole Seegmiller. Using a few excerpts, I quote from her article: “Dad decided that our family should begin an intensive study of the scriptures to help my brother Bruce prepare for his mission. Dad’s goal was to read the entire Book of Mormon before Bruce left, tape-recording our voices as we went along. … We would take turns reading a chapter \[each\]. …
+A tender, sweet story about receiving peace from the scriptures appeared in the January 1991 *Ensign,* submitted by Sister Carole Seegmiller. Using a few excerpts, I quote from her article: “Dad decided that our family should begin an intensive study of the scriptures to help my brother Bruce prepare for his mission. Dad’s goal was to read the entire Book of Mormon before Bruce left, tape-recording our voices as we went along. … We would take turns reading a chapter \[each\]. …
 
-“The family finished the Book of Mormon a few months later, … so Dad decided we should read and record the four Gospels from the New Testament. I complained this time, telling Dad that I didn’t see the point: we could buy audiotapes of professionals reading the scriptures—and they sounded a lot better than we did. Still Dad persisted. ‘Carole, one day these tapes will be a great blessing to us.’ …
+“The family finished the Book of Mormon a few months later, … so Dad decided we should read and record the four Gospels from the New Testament. I complained this time, telling Dad that I didn’t see the point: we could buy audiotapes of professionals reading the scriptures—and they sounded a lot better than we did. Still Dad persisted. ‘Carole, one day these tapes will be a great blessing to us.’ …
 
-“I began to enjoy these times together with the family. I especially liked to hear Dad share his personal insights about a passage. Soon I began to sense the peace that comes through studying the scriptures. We finished reading the four Gospels shortly before Bruce left for the Missionary Training Center. …
+“I began to enjoy these times together with the family. I especially liked to hear Dad share his personal insights about a passage. Soon I began to sense the peace that comes through studying the scriptures. We finished reading the four Gospels shortly before Bruce left for the Missionary Training Center. …
 
-“After Bruce left, I noticed how comforting the tapes were to Dad. He often listened to them, partly just to hear Bruce’s voice, I thought, since they had been very close. Sometimes at night Dad would fall asleep listening, and I would smile to myself as I heard the familiar click-click-click of the recorder that had run to tape’s end. …
+“After Bruce left, I noticed how comforting the tapes were to Dad. He often listened to them, partly just to hear Bruce’s voice, I thought, since they had been very close. Sometimes at night Dad would fall asleep listening, and I would smile to myself as I heard the familiar click-click-click of the recorder that had run to tape’s end. …
 
 “When Bruce had been gone for more than a year, Dad died quietly of a heart attack. … All of our family members … gathered except Bruce, who had determined to finish his mission.
 
 “That evening, after \[the funeral\], I was feeling low. I went upstairs to Dad’s room and dejectedly sat down at his desk. I noticed his well-used tape recorder lying nearby; inside was one of our tapes of the New Testament, which Dad must have listened to the night before he died. I began rewinding the tape, stopping it at random, hoping to find solace in hearing the gentle resonance of Dad’s voice. … I sat upright as my father spoke from the tape:
 
-“‘Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.’ …
+“‘Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid.’ …
 
-“I listened to that passage over and over; the words reached out and wrapped a comforting arm around me. …
+“I listened to that passage over and over; the words reached out and wrapped a comforting arm around me. …
 
-“Peace did come to us that night. … Since then, I have tasted the sweet peace of the New Testament time and time again. To me, that is its greatest message” (“Our Family’s Tape-recorded New Testament,” *Ensign,* Jan. 1991, p. 27).
+“Peace did come to us that night. … Since then, I have tasted the sweet peace of the New Testament time and time again. To me, that is its greatest message” (“Our Family’s Tape-recorded New Testament,” *Ensign,* Jan. 1991, p. 27).
 
 One of the world-famous prayers of St. Francis of Assisi suggests that we can be instruments in the hands of the Savior for bringing personal peace to others. This is the essence of the true “maker of peace.”
 

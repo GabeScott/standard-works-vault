@@ -1,5 +1,7 @@
 # He Is Risen
 
+Ezra Taft Benson
+
 By President Howard W. Hunter - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1988 General Conference*
@@ -10,9 +12,9 @@ On this beautiful and sacred Easter weekend, surely no doctrine will be the subj
 
 In spite of the great importance we place upon the Resurrection in our doctrine, perhaps many of us may not yet have fully glimpsed its spiritual significance and eternal grandeur. If we had, we would marvel at its beauty as did Jacob, the brother of Nephi, and we would shudder at the alternative we would have faced had we not received this divine gift. Jacob wrote:
 
-“O the wisdom of God, his mercy and grace! For behold, if the flesh should rise no more our spirits must become subject to that angel who fell from before the presence of the Eternal God, and became the devil, to rise no more” ([[2 Nephi 9.8|2 Ne. 9:8]]).
+“O the wisdom of God, his mercy and grace! For behold, if the flesh should rise no more our spirits must become subject to that angel who fell from before the presence of the Eternal God, and became the devil, to rise no more” ([[2 Nephi 9.8|2 Ne. 9:8]]).
 
-Surely the Resurrection is the center of every Christian’s faith; it is the greatest of all of the miracles performed by the Savior of the world. Without it, we are indeed left hopeless. Let me borrow the words of Paul: “If there be no resurrection of the dead, … then is our preaching vain, … and we are found false witnesses of God; because we have testified of God that he raised up Christ. … If Christ be not raised, your faith is vain; ye are yet in your sins” ([[1 Corinthians 15.13|1 Cor. 15:13–15, 17]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.17|]]).
+Surely the Resurrection is the center of every Christian’s faith; it is the greatest of all of the miracles performed by the Savior of the world. Without it, we are indeed left hopeless. Let me borrow the words of Paul: “If there be no resurrection of the dead, … then is our preaching vain, … and we are found false witnesses of God; because we have testified of God that he raised up Christ. … If Christ be not raised, your faith is vain; ye are yet in your sins” ([[1 Corinthians 15.13|1 Cor. 15:13–15, 17]][[1 Corinthians 15.14|]][[1 Corinthians 15.15|]][[1 Corinthians 15.17|]]).
 
 Go with me back in time to those final scenes in the Holy Land. The end of our Lord’s mortal life was near. He had healed the sick, raised the dead, and expounded the scriptures, including those prophecies of his own death and resurrection. He said to his disciples:
 
@@ -32,9 +34,9 @@ Later, as they met to celebrate the Passover, Jesus and his Apostles partook of 
 
 Always the teacher to the very end, he continued his discourse on the theme of the sacrificial lamb. He told them he would be smitten, and that they would be scattered as sheep without a shepherd (see [[Matthew 26.31|Matt. 26:31]]). “But after I am risen again,” he said, “I will go before you into Galilee” ([[Matthew 26.32|Matt. 26:32]]).
 
-In the hours that followed, he sweat drops of blood, was scourged by the very leaders who claimed to be custodians of his law, and was crucified in the company of thieves. It was as King Benjamin in the Book of Mormon prophesied: “He shall suffer temptations, and pain of body, hunger, thirst, and fatigue, even more than man can suffer, except it be unto death; for behold, blood cometh from every pore, so great shall be his anguish for the wickedness and the abominations of his people. …
+In the hours that followed, he sweat drops of blood, was scourged by the very leaders who claimed to be custodians of his law, and was crucified in the company of thieves. It was as King Benjamin in the Book of Mormon prophesied: “He shall suffer temptations, and pain of body, hunger, thirst, and fatigue, even more than man can suffer, except it be unto death; for behold, blood cometh from every pore, so great shall be his anguish for the wickedness and the abominations of his people. …
 
-“… He cometh unto his own, that salvation might come unto the children of men; … and even after all this they shall consider him a man, and say that he hath a devil, and shall scourge him, and shall crucify him” ([[Mosiah 3.7|Mosiah 3:7, 9]][[Mosiah 3.9|]]).
+“… He cometh unto his own, that salvation might come unto the children of men; … and even after all this they shall consider him a man, and say that he hath a devil, and shall scourge him, and shall crucify him” ([[Mosiah 3.7|Mosiah 3:7, 9]][[Mosiah 3.9|]]).
 
 We are indebted to the prophet Alma for our knowledge of the full measure of His suffering: “He shall go forth, suffering pains and afflictions and temptations of every kind; and this that the word might be fulfilled which saith he will take upon him the pains and the sicknesses of his people.
 
@@ -44,7 +46,7 @@ Think of it! When his body was taken from the cross and hastily placed in a borr
 
 But there remained one more set of chains to be broken before the Atonement could be complete: the bands of death. The prophets of the Old Testament had taught that the Resurrection would be certain and would be universal. Also, the Book of Mormon prophets taught the doctrine of the Resurrection with great plainness. Nephi wrote:
 
-“Behold, they will crucify him; and after he is laid in a sepulchre for the space of three days he shall rise from the dead, with healing in his wings; and all those who shall believe on his name shall be saved in the kingdom of God” ([[2 Nephi 25.13|2 Ne. 25:13]]).
+“Behold, they will crucify him; and after he is laid in a sepulchre for the space of three days he shall rise from the dead, with healing in his wings; and all those who shall believe on his name shall be saved in the kingdom of God” ([[2 Nephi 25.13|2 Ne. 25:13]]).
 
 And Samuel the Lamanite prophesied to the Nephites:
 
@@ -68,7 +70,7 @@ The resurrection of Jesus was followed immediately by the resurrection of other 
 
 In the days that followed his resurrection, the Lord appeared unto many. He displayed his five special wounds to them. He walked and talked and ate with them, as if to prove beyond a doubt that a resurrected body is indeed a physical body of tangible flesh and bones. Later he ministered to the Nephites, whom he commanded to “arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world.
 
-“And … the multitude went forth, and thrust their hands into his side, and did feel the prints of the nails in his hands and in his feet; and this they did do, going forth one by one until they had all gone forth, and did see with their eyes and did feel with their hands, and did know of a surety and did bear record, that it was he, of whom it was written by the prophets, that should come” ([[3 Nephi 11.14|3 Ne. 11:14–15]][[3 Nephi 11.15|]]).
+“And … the multitude went forth, and thrust their hands into his side, and did feel the prints of the nails in his hands and in his feet; and this they did do, going forth one by one until they had all gone forth, and did see with their eyes and did feel with their hands, and did know of a surety and did bear record, that it was he, of whom it was written by the prophets, that should come” ([[3 Nephi 11.14|3 Ne. 11:14–15]][[3 Nephi 11.15|]]).
 
 It is the responsibility and joy of all men and women everywhere to “seek this Jesus of whom the prophets and apostles have \[testified\]” ([[Ether 12.41|Ether 12:41]]) and to have the spiritual witness of his divinity. It is the right and blessing of all who humbly seek, to hear the voice of the Holy Spirit, bearing witness of the Father and his resurrected Son.
 
@@ -77,8 +79,3 @@ As one called and ordained to bear witness of the name of Jesus Christ to all th
 
 
 
-
-
-
-
-#Atonement #Jesus_Christ #Resurrection

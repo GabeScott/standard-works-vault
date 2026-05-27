@@ -1,5 +1,7 @@
 # Be Thou an Example of the Believers
 
+Thomas S. Monson
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2010 General Conference*
@@ -28,7 +30,7 @@ Like Timothy, most full-time missionaries are young men. Some are sisters; some 
 
 We need more missionaries—more worthy missionaries. During His earthly ministry, the Lord told His disciples, “The harvest truly is great, but the labourers are few: pray ye therefore the Lord of the harvest, that he would send forth labourers into his harvest.”[^8]
 
-At this morning’s session of general conference, our beloved President Thomas S. Monson made an impassioned plea for each young man of this Church to prepare for missionary service. I hope his entire message will be heeded in every home of the Church.
+At this morning’s session of general conference, our beloved President Thomas S. Monson made an impassioned plea for each young man of this Church to prepare for missionary service. I hope his entire message will be heeded in every home of the Church.
 
 To President Monson’s wise counsel, I add my witness. In my family, I have observed the blessings that come to each missionary. Thus far, the number of our children, grandchildren, and their spouses called to serve as full-time missionaries is 49, and that number will continue to increase. In each instance, I have seen the growth in wisdom, maturity in judgment, and flowering of faith that developed in each missionary. They, just as many generations before them, embarked in the service of God to “serve him with all \[their\] heart, might, mind and strength.”[^9] Missionary service has helped to shape their divine destiny.
 
@@ -58,13 +60,13 @@ Another way that you can share the gospel is to invite friends to meet with full
 
 Scripture tells us that “there are many yet on the earth … who are only kept from the truth because they know not where to find it.”[^20] Isn’t that your opportunity? You can become their own disciple of discovery!
 
-Now in this day of the Internet, there are new and exciting ways you can do missionary work. You can invite friends and neighbors to visit the new  website. If you have blogs and online social networks, you could link your sites to mormon.org. And there you can create your own personal profile. Each profile includes an expression of belief, an experience, and a testimony. Because this is a new feature, most of these profiles are available in English. Profiles in other languages will follow.
+Now in this day of the Internet, there are new and exciting ways you can do missionary work. You can invite friends and neighbors to visit the new [mormon.org](https://www.churchofjesuschrist.org/comeuntochrist) website. If you have blogs and online social networks, you could link your sites to mormon.org. And there you can create your own personal profile. Each profile includes an expression of belief, an experience, and a testimony. Because this is a new feature, most of these profiles are available in English. Profiles in other languages will follow.
 
-These profiles can have a profound influence for good. Two months ago a young man named Zac—a freshman in college—saw an ad for  on television in Baton Rouge, Louisiana. He connected with the website and was intrigued by the profiles of Church members. At our website he found the link that informed him where he could attend church. The next Sunday, dressed in a white shirt and tie, he attended church, was introduced to members of the ward, and enjoyed all three hours of meetings. He was invited to a member’s home for dinner, followed by his first missionary lesson. In less than two weeks, he was baptized and confirmed as a member of the Church.[^21] Welcome, Zac! (He is listening.)
+These profiles can have a profound influence for good. Two months ago a young man named Zac—a freshman in college—saw an ad for [mormon.org](https://www.churchofjesuschrist.org/comeuntochrist) on television in Baton Rouge, Louisiana. He connected with the website and was intrigued by the profiles of Church members. At our website he found the link that informed him where he could attend church. The next Sunday, dressed in a white shirt and tie, he attended church, was introduced to members of the ward, and enjoyed all three hours of meetings. He was invited to a member’s home for dinner, followed by his first missionary lesson. In less than two weeks, he was baptized and confirmed as a member of the Church.[^21] Welcome, Zac! (He is listening.)
 
 Each exemplary follower of Jesus Christ can become an effective member missionary. Members and full-time missionaries may walk arm in arm in bringing the blessings of the gospel to cherished friends and neighbors. Many of them are of Israel, now being gathered as promised. This is all part of the preparation for the Second Coming of the Lord.[^22] He wants each of us truly to be an example of the believers.
 
-I know that God lives. Jesus is the Christ. This is His Church. The Book of Mormon is true. Joseph Smith is its translator and the prophet of this last dispensation. President Thomas S. Monson is God’s prophet today. I so testify in the sacred name of Jesus Christ, amen.
+I know that God lives. Jesus is the Christ. This is His Church. The Book of Mormon is true. Joseph Smith is its translator and the prophet of this last dispensation. President Thomas S. Monson is God’s prophet today. I so testify in the sacred name of Jesus Christ, amen.
 
 
 
@@ -75,7 +77,7 @@ I know that God lives. Jesus is the Christ. This is His Church. The Book of Morm
 
 [^3]: [[Acts 9.1|Acts 9:1]].
 
-[^4]: [[1 Timothy 4.12|1 Timothy 4:12]]; emphasis added.
+[^4]: [[1 Timothy 4.12|1 Timothy 4:12]]; emphasis added.
 
 [^5]: *Preach My Gospel: A Guide to Missionary Service* (2004), 1.
 
@@ -93,9 +95,9 @@ I know that God lives. Jesus is the Christ. This is His Church. The Book of Morm
 
 [^12]: See [[D&C 88.11|Doctrine and Covenants 88:11]].
 
-[^13]: [[1 Peter 3.15|1 Peter 3:15]].
+[^13]: [[1 Peter 3.15|1 Peter 3:15]].
 
-[^14]: See [[2 Nephi 31.2|2 Nephi 31:2, 21]][[2 Nephi 31.21|]].
+[^14]: See [[2 Nephi 31.2|2 Nephi 31:2, 21]][[2 Nephi 31.21|]].
 
 [^15]: [[John 1.39|John 1:39]]. For this pattern, see also [[Revelation 6.1|Revelation 6:1, 3, 5, 7]][[Revelation 6.3|]][[Revelation 6.5|]][[Revelation 6.7|]].
 
@@ -103,18 +105,13 @@ I know that God lives. Jesus is the Christ. This is His Church. The Book of Morm
 
 [^17]: Introduction to the Book of Mormon.
 
-[^18]: See [[3 Nephi 21.1|3 Nephi 21:1–7]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]]. Note that these seven verses comprise one sentence.
+[^18]: See [[3 Nephi 21.1|3 Nephi 21:1–7]][[3 Nephi 21.2|]][[3 Nephi 21.3|]][[3 Nephi 21.4|]][[3 Nephi 21.5|]][[3 Nephi 21.6|]][[3 Nephi 21.7|]]. Note that these seven verses comprise one sentence.
 
 [^19]: [[D&C 29.7|Doctrine and Covenants 29:7]].
 
 [^20]: [[D&C 123.12|Doctrine and Covenants 123:12]].
 
-[^21]: Personal communication from William G. Woods, president of the Louisiana Baton Rouge Mission.
+[^21]: Personal communication from William G. Woods, president of the Louisiana Baton Rouge Mission.
 
-[^22]: See [[Malachi 4.5|Malachi 4:5]]; [[3 Nephi 25.5|3 Nephi 25:5]]; [[D&C 2.1|Doctrine and Covenants 2:1]]; [[D&C 110.14|110:14–16]][[D&C 110.15|]][[D&C 110.16|]]; [[D&C 128.17|128:17]]; [[D&C 138.46|138:46]]; [[Joseph Smith History 1.38|Joseph Smith—History 1:38]].
+[^22]: See [[Malachi 4.5|Malachi 4:5]]; [[3 Nephi 25.5|3 Nephi 25:5]]; [[D&C 2.1|Doctrine and Covenants 2:1]]; [[D&C 110.14|110:14–16]][[D&C 110.15|]][[D&C 110.16|]]; [[D&C 128.17|128:17]]; [[D&C 138.46|138:46]]; [[Joseph Smith History 1.38|Joseph Smith—History 1:38]].
 
-
-
-
-
-#Example #Fellowshipping #Missionary_Work

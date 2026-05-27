@@ -1,5 +1,7 @@
 # Opening the Windows of Heaven
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1998 General Conference*
@@ -20,7 +22,7 @@ Tithing is a principle that is fundamental to the personal happiness and well-be
 
 The law of tithing is simple: we pay one-tenth of our individual increase annually.[^1] Increase has been interpreted by the First Presidency to mean income.[^2] What amounts to 10 percent of our individual income is between each of us and our Maker. There are no legalistic rules. As a convert in Korea once said: “With tithing, it doesn’t matter whether you are rich or poor. You pay 10 percent, and you don’t have to be ashamed if you haven’t earned very much. If you make lots of money, you pay 10 percent. If you make very little, you still pay 10 percent. Heavenly Father will love you for it. You can hold your head up proud.”[^3]
 
-Why should members worldwide, many of whom may not have enough for their daily needs, be encouraged to keep the Lord’s law of tithing? As President Hinckley said in Cebu in the Philippine Islands, if members, “even living in poverty and misery, … will accept the gospel and live it, pay their tithes and offerings, even though those be meager, … they will have rice in their bowls and clothing on their backs and shelter over their heads. I do not see any other solution.”[^4]
+Why should members worldwide, many of whom may not have enough for their daily needs, be encouraged to keep the Lord’s law of tithing? As President Hinckley said in Cebu in the Philippine Islands, if members, “even living in poverty and misery, … will accept the gospel and live it, pay their tithes and offerings, even though those be meager, … they will have rice in their bowls and clothing on their backs and shelter over their heads. I do not see any other solution.”[^4]
 
 Some may feel that they cannot afford to pay tithing, but the Lord has promised that He would prepare a way for us to keep all of His commandments.[^5] To pay tithing takes a leap of faith in the beginning, but as Jesus said, “If any man will do his will, he shall know of the doctrine.”[^6] We learn about tithing by paying it. Indeed, I believe it is possible to break out of poverty by having the faith to give back to the Lord part of what little we have.
 
@@ -67,13 +69,13 @@ The ultimate offering was that offered by the Savior Himself in giving His very 
 
 [^1]: See [[D&C 119.4|D&C 119:4]].
 
-[^2]: See *General Handbook of Instructions* (1989), sec. 9, p. 1.
+[^2]: See *General Handbook of Instructions* (1989), sec. 9, p. 1.
 
 [^3]: Letter from D. Brent Clement, president of the Korea Seoul Mission, 1981.
 
 [^4]: “Inspirational Thoughts,” *Ensign,* Aug. 1997, 7.
 
-[^5]: See [[1 Nephi 3.7|1 Ne. 3:7]].
+[^5]: See [[1 Nephi 3.7|1 Ne. 3:7]].
 
 [^6]: [[John 7.17|John 7:17]].
 
@@ -93,10 +95,5 @@ The ultimate offering was that offered by the Savior Himself in giving His very 
 
 [^14]: *Lectures on Faith* (1985), 69, 70.
 
-[^15]: [[2 Samuel 24.24|2 Sam. 24:24]]; see [[2 Samuel 24.15|vv. 15–25]][[2 Samuel 24.16|]][[2 Samuel 24.17|]][[2 Samuel 24.18|]][[2 Samuel 24.19|]][[2 Samuel 24.20|]][[2 Samuel 24.21|]][[2 Samuel 24.22|]][[2 Samuel 24.23|]][[2 Samuel 24.24|]][[2 Samuel 24.25|]].
+[^15]: [[2 Samuel 24.24|2 Sam. 24:24]]; see [[2 Samuel 24.15|vv. 15–25]][[2 Samuel 24.16|]][[2 Samuel 24.17|]][[2 Samuel 24.18|]][[2 Samuel 24.19|]][[2 Samuel 24.20|]][[2 Samuel 24.21|]][[2 Samuel 24.22|]][[2 Samuel 24.23|]][[2 Samuel 24.24|]][[2 Samuel 24.25|]].
 
-
-
-
-
-#Book_Of_Mormon #Church_Membership #Commandments #Covenants #Fasting #Honesty #Jesus_Christ #Love #Sacrifice #Temples #Tithing

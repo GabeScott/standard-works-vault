@@ -1,5 +1,7 @@
 # This Is the Work of the Lord
 
+Gordon B. Hinckley
+
 By Elder Waldo P. Call - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1985 General Conference*
@@ -17,8 +19,3 @@ I know that this is the work of the Lord. I know that he lives. I know this. I k
 
 
 
-
-
-
-
-#Gratitude #Love

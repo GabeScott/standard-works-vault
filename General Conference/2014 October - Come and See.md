@@ -1,6 +1,8 @@
 # Come and See
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -50,13 +52,13 @@ Why did that little boy do what he did? Please note that he immediately and intu
 
 Many of us as adults behave in precisely the same way when we find a treatment or medication that alleviates pain with which we have long suffered, or we receive counsel that enables us to face challenges with courage and perplexities with patience. Sharing with other people things that are most meaningful to us or have helped us is not unusual at all.
 
-This same pattern is especially evident in matters of great spiritual importance and consequence. For example, an account in a volume of scripture known as the Book of Mormon highlights a dream received by an ancient prophet-leader named Lehi. The central feature in Lehi’s dream is the tree of life—which is a representation of “the love of God” that is “most desirable above all things” and “most joyous to the soul” ([[1 Nephi 11.22|1 Nephi 11:22–23]][[1 Nephi 11.23|]]; see also [[1 Nephi 8.12|1 Nephi 8:12, 15]][[1 Nephi 8.15|]]).
+This same pattern is especially evident in matters of great spiritual importance and consequence. For example, an account in a volume of scripture known as the Book of Mormon highlights a dream received by an ancient prophet-leader named Lehi. The central feature in Lehi’s dream is the tree of life—which is a representation of “the love of God” that is “most desirable above all things” and “most joyous to the soul” ([[1 Nephi 11.22|1 Nephi 11:22–23]][[1 Nephi 11.23|]]; see also [[1 Nephi 8.12|1 Nephi 8:12, 15]][[1 Nephi 8.15|]]).
 
 Lehi explained:
 
 “And it came to pass that I did go forth and partake of the fruit thereof; and I beheld that it was most sweet, above all that I ever before tasted. Yea, and I beheld that the fruit thereof was white, to exceed all the whiteness that I had ever seen.
 
-“*And as I partook of the fruit thereof it filled my soul with exceedingly great joy; wherefore, I began to be desirous that my family should partake of it also*” ([[1 Nephi 8.11|1 Nephi 8:11–12]][[1 Nephi 8.12|]]; emphasis added).
+“*And as I partook of the fruit thereof it filled my soul with exceedingly great joy; wherefore, I began to be desirous that my family should partake of it also*” ([[1 Nephi 8.11|1 Nephi 8:11–12]][[1 Nephi 8.12|]]; emphasis added).
 
 The greatest manifestation of God’s love for His children is the mortal ministry, atoning sacrifice, and Resurrection of the Lord Jesus Christ. The fruit on the tree can be considered a symbol for the blessings of the Savior’s Atonement.
 
@@ -78,7 +80,7 @@ He said:
 
 “Now, it came to pass that *when I had heard these words I began to feel a desire for the welfare of my brethren, the Nephites; wherefore, I did pour out my whole soul unto God for them*” ([[Enos 1.4|Enos 1:4–9]][[Enos 1.5|]][[Enos 1.6|]][[Enos 1.7|]][[Enos 1.8|]][[Enos 1.9|]]; emphasis added).
 
-As Enos turned to the Lord “with full purpose of heart” ([[2 Nephi 31.13|2 Nephi 31:13]]), his concern for the welfare of his family, friends, and associates increased simultaneously.
+As Enos turned to the Lord “with full purpose of heart” ([[2 Nephi 31.13|2 Nephi 31:13]]), his concern for the welfare of his family, friends, and associates increased simultaneously.
 
 The enduring lesson we learn from these two episodes is the importance of experiencing in our personal lives the blessings of the Atonement of Jesus Christ as a prerequisite to heartfelt and authentic service that stretches far beyond merely “going through the motions.” Much like Lehi, Enos, and our little boy in the story I recounted, we as members of The Church of Jesus Christ of Latter-day Saints have felt the anguish associated with spiritual uncertainty and sin. We also have experienced the cleansing, the peace of conscience, the spiritual healing and renewal, and the guidance that are obtained only by learning and living the principles of the Savior’s gospel.
 
@@ -97,8 +99,3 @@ As one of the Lord’s Apostles, and with all of the energy of my soul, I bear w
 
 
 
-
-
-
-
-#Atonement #Children #Missionary_Work #Truth

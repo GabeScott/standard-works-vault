@@ -1,6 +1,8 @@
 # A Report of My Stewardship
 
-By President Spencer W. Kimball - *President of the Church*
+Marion G. Romney
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1981 General Conference*
 
@@ -22,13 +24,13 @@ All three are part of one work—to assist our Father in Heaven and His Son, Jes
 
 Having these sacred principles in mind—*to proclaim the gospel, to perfect the Saints,* and *to redeem the dead*—we have endeavored these past six months to carry out our responsibilities among the Saints at home and abroad. I should like, therefore, to give you a brief report on my stewardship since last we met in October 1980.
 
-Ten days after the close of the October conference, President Marion G. Romney and I left, in company with a number of others, to conduct area conferences in the Orient. Our first meetings were held in Manila, Philippine Islands, October 18 and 19, where twenty thousand Saints attended the sessions in the Araneta Colosseum. We also looked over possible sites for the new temple which has just been announced for that land. We had a very pleasant visit with Philippine President Ferdinand E. Marcos, who gave up his Saturday morning with his family to meet with us at the presidential palace.
+Ten days after the close of the October conference, President Marion G. Romney and I left, in company with a number of others, to conduct area conferences in the Orient. Our first meetings were held in Manila, Philippine Islands, October 18 and 19, where twenty thousand Saints attended the sessions in the Araneta Colosseum. We also looked over possible sites for the new temple which has just been announced for that land. We had a very pleasant visit with Philippine President Ferdinand E. Marcos, who gave up his Saturday morning with his family to meet with us at the presidential palace.
 
 From Manila we traveled to Hong Kong, perhaps the world’s most densely populated city, where there are about four hundred thousand people per square mile. There we held meetings in our own excellent stake center on October 20 and 21. The following day we flew to Taipei, Taiwan, where we met on October 22 and 23 in the beautiful Sun Yat-sen Memorial Hall. We had breakfast at our hotel with the two top leaders of the Republic of China, Prime Minister Sun and President Chiang, son of the late Chiang Kai-shek. We later had lunch as guests of the governor of Taiwan Province. After leaving Taiwan, we went to Seoul, South Korea, the “Land of the Morning Calm.” Meetings were held for two days, October 25 and 26. We met outside in the Korea Seoul Mission compound with more than six thousand present in bitter, subfreezing temperature due to an overnight change in the weather. At our hotel we had lunch as guests of the former Deputy Prime Minister of Korea.
 
 We arrived in Tokyo late Sunday evening, October 26. On Monday, October 27, President Romney and I laid the cornerstone for the Tokyo Temple, and then at 3:00 p.m. the first dedicatory session was held in the celestial room, with color television provided in all other rooms of the temple. During the next two days, six more dedicatory sessions were held. Following the dedication of the temple, the Tokyo area conference was held on October 30 and 31 in the famed Budokan Hall. In every place we visited we also held special meetings with the missionaries, with fifteen hundred being present in one meeting in Tokyo. It was indeed a thrilling and inspiring sight to see. On Saturday, November 1, we held morning and afternoon sessions of the Osaka, Japan, area conference. We left that evening to fly home, stopping off in Hawaii for three hours for the purpose of setting apart several sealers for the Hawaii Temple.
 
-On November 14, we installed Dr. Jeffrey R. Holland as the ninth president of the Brigham Young University, succeeding newly appointed Utah Supreme Court justice Dallin H. Oaks.
+On November 14, we installed Dr. Jeffrey R. Holland as the ninth president of the Brigham Young University, succeeding newly appointed Utah Supreme Court justice Dallin H. Oaks.
 
 Three days later, the First Presidency traveled to Seattle, Washington, where we dedicated the new Seattle Temple at nearby Bellevue. Monday through Friday, November 17 to 21, thirteen dedicatory sessions were well attended. Over forty-three thousand members from the great Northwest attended the various sessions.
 
@@ -44,11 +46,11 @@ On Thursday, the nineteenth, we proceeded to Samoa, where we broke ground in Api
 
 Early the next morning we had one of the loveliest experiences of our lives, as we visited the Church School of Western Samoa. As we entered the gymnasium, the largest building on the campus, we saw seventeen hundred children sitting cross-legged on the gymnasium floor, crowded in as tightly as little sardines in a can. They ranged from small four- and five-year-old kindergarten children in the front to teenaged high-school youngsters in the back of the hall. What a beautiful, thrilling sight they were as they sang “I Am a Child of God”! They were all dressed in their school uniforms in colors of blue and gold. With their beautiful dark hair and big brown eyes, they presented a picture of youth and beauty that was breathtaking. The tears came to our eyes quickly and without shame. At the close of my remarks, I announced to the students that in honor of the occasion I was declaring a holiday for the rest of the day. Judging by the sound of the applause, I think I may have become an instant hero—at least for that day. After the brief meeting, we left the hall with the haunting strains of the Samoan farewell song, “Tofa My Faleni,” ringing in our ears and warming our hearts.
 
-We flew to Hawaii that night, arriving the morning of Saturday, February 21. During the day we visited the BYU—Hawaii campus and the Polynesian Cultural Center. Sunday morning we attended the Oahu Stake conference, and then, in company with Elders Gordon B. Hinckley, Thomas S. Monson, and Boyd K. Packer, we held a meeting in the Hawaii Temple. We then toured the newly remodeled visitors’ center and there met with the missionaries. On Monday, February 23, 1981, we returned to Church headquarters.
+We flew to Hawaii that night, arriving the morning of Saturday, February 21. During the day we visited the BYU—Hawaii campus and the Polynesian Cultural Center. Sunday morning we attended the Oahu Stake conference, and then, in company with Elders Gordon B. Hinckley, Thomas S. Monson, and Boyd K. Packer, we held a meeting in the Hawaii Temple. We then toured the newly remodeled visitors’ center and there met with the missionaries. On Monday, February 23, 1981, we returned to Church headquarters.
 
 After four days at home and the office, Sister Kimball and I left on Saturday, February 28, for Florida for a week-long series of meetings with the Saints and some business leaders. On Saturday, March 7, we broke ground for the new temple in Atlanta, Georgia. Ten thousand were present for this occasion, including the governor of Georgia and his wife, several legislators, and U.S. senators Jake Garn and Paula Hawkins. Immediately following that service, we flew to San Juan, Puerto Rico. The next morning, Sunday, March 8, we held a meeting with over twenty-six hundred members of the stake and mission on that island. We next visited the Dominican Republic and held a meeting at Santo Domingo on Monday. Two years ago there were only two families of members on that island, but at our meeting we had over fifteen hundred members present. We left Santo Domingo on Tuesday, March 10, and that night dedicated a new visitors’ center on the Church’s Deseret Ranch near Orlando, Florida.
 
-On Thursday, we visited the Washington, D.C., Visitors’ Center and then met with the Washington Temple presidency and set apart several sealers. The next morning, Friday, March 13, in company with Elder Gordon B. Hinckley, we visited with President Ronald Reagan in the Oval Office of the White House. We presented to him his genealogy on his mother’s side. We then met with Mrs. Reagan. Both were very warm and gracious and very appreciative of the genealogical record.
+On Thursday, we visited the Washington, D.C., Visitors’ Center and then met with the Washington Temple presidency and set apart several sealers. The next morning, Friday, March 13, in company with Elder Gordon B. Hinckley, we visited with President Ronald Reagan in the Oval Office of the White House. We presented to him his genealogy on his mother’s side. We then met with Mrs. Reagan. Both were very warm and gracious and very appreciative of the genealogical record.
 
 Sister Kimball and I then traveled directly to Arizona, where on Saturday we attended the funeral of my sister, Alice Nelson, who had passed away during our absence. On Sunday, March 15, we returned home to prepare for this general conference.
 
@@ -61,8 +63,3 @@ I know that God lives and that His Son, Jesus Christ, lives. He is our Savior an
 
 
 
-
-
-
-
-#Church_Growth

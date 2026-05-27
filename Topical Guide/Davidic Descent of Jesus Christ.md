@@ -1,4 +1,3 @@
 # Davidic Descent of Jesus Christ
 
-
-*See* [[Jesus Christ, Davidic Descent of.md|Jesus Christ, Davidic Descent of]]
+*See also* [[Jesus Christ, Davidic Descent of.md|Jesus Christ, Davidic Descent of]]

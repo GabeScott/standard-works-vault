@@ -1,11 +1,10 @@
 # Death, Spiritual, Second
 
-
 *See also* [[Hell.md|Hell]]; [[Sin.md|Sin]]; [[Sons of Perdition.md|Sons of Perdition]]
 
-awake ... some to shame and *everlasting* contempt, [[Daniel 12.2|Daniel 12:2]].
+awake … some to shame and *everlasting* contempt, [[Daniel 12.2|Daniel 12:2]].
 
-Fear him, which ... hath power to cast into *hell*, [[Luke 12.5|Luke 12:5]].
+Fear him, which … hath power to cast into *hell*, [[Luke 12.5|Luke 12:5]].
 
 If a man keep my saying, he shall never see *death*, [[John 8.51|John 8:51]].
 
@@ -19,19 +18,19 @@ reserved unto fire against the day of judgment and *perdition*, [[2 Peter 3.7|2 
 
 He that overcometh shall not be hurt of the second *death*, [[Revelation 2.11|Revelation 2:11]].
 
-beast ... shall ascend out of the bottomless pit, and go into *perdition*, [[Revelation 17.8|Revelation 17:8]].
+beast … shall ascend out of the bottomless pit, and go into *perdition*, [[Revelation 17.8|Revelation 17:8]].
 
 on such the second *death* hath no power, [[Revelation 20.6|Revelation 20:6]].
 
 This is the second *death*, [[Revelation 20.14|Revelation 20:14]].
 
-lake which burneth with fire and brimstone: which is the second *death*, [[Revelation 21.8|Revelation 21:8]] ([[Jacob 3.11|Jacob 3:11]]; [[D&C 63.17|D&C 63:17-18]][[D&C 63.18|]]).
+lake which burneth with fire and brimstone: which is the second *death*, [[Revelation 21.8|Revelation 21:8]] ([[Jacob 3.11|Jacob 3:11]]).
 
 second *death*, which is a spiritual *death*, [[Alma 12.16|Alma 12:16]].
 
 second *death*, which was an everlasting *death*, [[Alma 12.32|Alma 12:32]].
 
-repentance ... that ye may not suffer the second *death*, [[Alma 13.30|Alma 13:30]].
+repentance … that ye may not suffer the second *death*, [[Alma 13.30|Alma 13:30]].
 
 spiritual *death*, yea, a second *death*, [[Helaman 14.18|Helaman 14:18]].
 

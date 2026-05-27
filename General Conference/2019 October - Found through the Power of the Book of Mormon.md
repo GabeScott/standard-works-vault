@@ -1,6 +1,8 @@
 # Found through the Power of the Book of Mormon
 
-By Elder Rubén V. Alliaud - *Of the Seventy*
+Jeffrey R. Holland
+
+By Elder Rubén V. Alliaud - *Of the Seventy*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -56,7 +58,7 @@ I came to know that the Book of Mormon was crucial in the conversion process by 
 
 Nephi explained the central purpose of the Book of Mormon in this way:
 
-“For we labor diligently to write, to persuade our children, and also our brethren, to believe in Christ, and to be reconciled to God. …
+“For we labor diligently to write, to persuade our children, and also our brethren, to believe in Christ, and to be reconciled to God. …
 
 “And \[so\] we talk of Christ, we rejoice in Christ, we preach of Christ, \[and\] we prophesy of Christ, … that our children may know to what source they may look for a remission of their sins.”[^7]
 
@@ -64,7 +66,7 @@ The entire Book of Mormon is imbued with that same sacred purpose.
 
 For this reason, any reader who commits to a sincere study of it, with the spirit of prayer, will not only learn about Christ but will learn *from* Christ—especially if they make the decision to “try the virtue of the word”[^8] and not reject it prematurely due to prejudiced unbelief[^9] by what others have said about things that they have never read.
 
-President Russell M. Nelson reflected: “When I think of the Book of Mormon, I think of the word *power.* The truths of the Book of Mormon have the *power* to heal, comfort, restore, succor, strengthen, console, and cheer our souls.”[^10]
+President Russell M. Nelson reflected: “When I think of the Book of Mormon, I think of the word *power.* The truths of the Book of Mormon have the *power* to heal, comfort, restore, succor, strengthen, console, and cheer our souls.”[^10]
 
 My invitation this afternoon to each of us, regardless of how long we’ve been a member of the Church, is to allow the power of the truths of the Book of Mormon to find us and embrace us once again and day after day as we diligently seek for personal revelation. It will do so if we allow it.
 
@@ -73,30 +75,25 @@ I solemnly testify that the Book of Mormon contains the fulness of the gospel of
 
 
 
-[^1]: [[Luke 15.6|Luke 15:6]]; see also [[Luke 15.9|Luke 15:9, 32]][[Luke 15.32|]].
+[^1]: [[Luke 15.6|Luke 15:6]]; see also [[Luke 15.9|Luke 15:9, 32]][[Luke 15.32|]].
 
-[^2]: In its broadest sense, the scriptures account for prophecies that speak of the gathering of the lost tribes of Israel (see Russell M. Nelson, “[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona,* Nov. 2006, 79–82). Even though they are lost, they are not lost to Him (see [[3 Nephi 17.4|3 Nephi 17:4]]). Also, it is interesting to note they don’t realize that they were lost until the time they are found, especially when they receive their patriarchal blessing.
+[^2]: In its broadest sense, the scriptures account for prophecies that speak of the gathering of the lost tribes of Israel (see Russell M. Nelson, “[[2006 October - The Gathering of Scattered Israel.md|The Gathering of Scattered Israel]],” *Ensign* or *Liahona,* Nov. 2006, 79–82). Even though they are lost, they are not lost to Him (see [[3 Nephi 17.4|3 Nephi 17:4]]). Also, it is interesting to note they don’t realize that they were lost until the time they are found, especially when they receive their patriarchal blessing.
 
-[^3]: Elder Dieter F. Uchtdorf quoted Saint Francis of Assisi when he said, “Preach the gospel at all times and if necessary, use words” (“[[2011 April - Waiting on the Road to Damascus.md|Waiting on the Road to Damascus]],” *Ensign* or *Liahona,* May 2011, 77; see also William Fay and Linda Evans Shepherd, *Share Jesus without Fear* \[1999\], 22).
+[^3]: Elder Dieter F. Uchtdorf quoted Saint Francis of Assisi when he said, “Preach the gospel at all times and if necessary, use words” (“[[2011 April - Waiting on the Road to Damascus.md|Waiting on the Road to Damascus]],” *Ensign* or *Liahona,* May 2011, 77; see also William Fay and Linda Evans Shepherd, *Share Jesus without Fear* \[1999\], 22).
 
 [^4]: [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]].
 
-[^5]: The conversion story of our ancestor is also our own story. Elder William R. Walker taught, “It would be a wonderful thing if every Latter-day Saint knew the conversion stories of their forefathers” (“[[2014 April - Live True to the Faith.md|Live True to the Faith]],” *Ensign* or *Liahona,* May 2014, 97). Hence, all of us in some way have been found directly or through our ancestors, thanks to our Heavenly Father, who knows the end from the beginning (see [[Abraham 2.8|Abraham 2:8]]).
+[^5]: The conversion story of our ancestor is also our own story. Elder William R. Walker taught, “It would be a wonderful thing if every Latter-day Saint knew the conversion stories of their forefathers” (“[[2014 April - Live True to the Faith.md|Live True to the Faith]],” *Ensign* or *Liahona,* May 2014, 97). Hence, all of us in some way have been found directly or through our ancestors, thanks to our Heavenly Father, who knows the end from the beginning (see [[Abraham 2.8|Abraham 2:8]]).
 
-[^6]: [Introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng); see also [[Alma 31.5|Alma 31:5]].
+[^6]: [Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng); see also [[Alma 31.5|Alma 31:5]].
 
-[^7]: [[2 Nephi 25.23|2 Nephi 25:23, 26]][[2 Nephi 25.26|]].
+[^7]: [[2 Nephi 25.23|2 Nephi 25:23, 26]][[2 Nephi 25.26|]].
 
 [^8]: [[Alma 31.5|Alma 31:5]].
 
 [^9]: See [[Alma 32.28|Alma 32:28]].
 
-[^10]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]]” *Ensign* or *Liahona,* Nov. 2017, 62.
+[^10]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]]” *Ensign* or *Liahona,* Nov. 2017, 62.
 
-[^11]: See [[3 Nephi 5.20|3 Nephi 5:20]].
+[^11]: See [[3 Nephi 5.20|3 Nephi 5:20]].
 
-
-
-
-
-#Book_Of_Mormon #Conversion

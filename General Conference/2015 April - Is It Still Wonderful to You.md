@@ -1,5 +1,7 @@
 # Is It Still Wonderful to You?
 
+Cheryl A. Esplin
+
 By Bishop Gérald Caussé - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2015 General Conference*
@@ -20,7 +22,7 @@ During His earthly ministry, Jesus said to His disciples:
 
 I have often wondered what it would have been like to live at the time of our Savior. Can you imagine sitting at His feet? feeling His embrace? witnessing as He ministered to others? And yet so many who met Him failed to recognize—to “see”—that the very Son of God was living among them.
 
-We too are privileged to live in an exceptional time. The prophets of old saw the work of the Restoration as “a marvelous work … , yea, a marvelous work and a wonder.”[^2] In no previous dispensation have so many missionaries been called, so many nations been opened for the gospel message, and so many temples been built throughout the world.
+We too are privileged to live in an exceptional time. The prophets of old saw the work of the Restoration as “a marvelous work … , yea, a marvelous work and a wonder.”[^2] In no previous dispensation have so many missionaries been called, so many nations been opened for the gospel message, and so many temples been built throughout the world.
 
 For us, as Latter-day Saints, wonders also occur in our individual lives. They include our own personal conversion, the answers we receive to our prayers, and the tender blessings God showers upon us daily.
 
@@ -61,9 +63,9 @@ That we may always have eyes that see, ears that hear, and hearts that perceive 
 
 [^1]: [[Luke 10.23|Luke 10:23–24]][[Luke 10.24|]].
 
-[^2]: [[2 Nephi 27.26|2 Nephi 27:26]].
+[^2]: [[2 Nephi 27.26|2 Nephi 27:26]].
 
-[^3]: [[3 Nephi 2.1|3 Nephi 2:1]].
+[^3]: [[3 Nephi 2.1|3 Nephi 2:1]].
 
 [^4]: “Marcel Proust,” *Guardian,* July 22, 2008; theguardian.com/books/2008/jun/11/marcelproust.
 
@@ -71,16 +73,11 @@ That we may always have eyes that see, ears that hear, and hearts that perceive 
 
 [^6]: Adapted from Lorraine Bird Jameson, “The Giants of Kinkondja” (article on Africa Southeast Area website, 2009); web.archive.org/web/20101210013757/http:/www.lds.co.za/index.php/news-a-events/news/aseanews/91-the-giants-of-kinkondja.
 
-[^7]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^7]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
-[^8]: [[3 Nephi 19.9|3 Nephi 19:9]].
+[^8]: [[3 Nephi 19.9|3 Nephi 19:9]].
 
 [^9]: [[Hebrews 2.4|Hebrews 2:4]].
 
 [^10]: “I Stand All Amazed,” *Hymns,* no. 193.
 
-
-
-
-
-#Faith #Holy_Ghost #Miracles

@@ -1,6 +1,8 @@
 # Be Ye Therefore Perfect—Eventually
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Sharon Eubank
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -16,17 +18,17 @@ Around the Church I hear many who struggle with this issue: “I am just not goo
 
 What I now say in no way denies or diminishes any commandment God has ever given us. I believe in His perfection, and I know we are His spiritual sons and daughters with divine potential to become as He is. I also know that, as children of God, we should not demean or vilify ourselves, as if beating up on ourselves is somehow going to make us the person God wants us to become. No! With a willingness to repent and a desire for increased righteousness always in our hearts, I would hope we could pursue personal improvement in a way that doesn’t include getting ulcers or anorexia, feeling depressed or demolishing our self-esteem. That is *not* what the Lord wants for Primary children or anyone else who honestly sings, “I’m trying to be like Jesus.”[^4]
 
-To put this issue in context, may I remind all of us that we live in a fallen world and for now we are a fallen people. We are in the *telestial* kingdom; that is spelled with a *t,* not a *c.* As President Russell M. Nelson has taught, here in mortality perfection is still “pending.”[^5]
+To put this issue in context, may I remind all of us that we live in a fallen world and for now we are a fallen people. We are in the *telestial* kingdom; that is spelled with a *t,* not a *c.* As President Russell M. Nelson has taught, here in mortality perfection is still “pending.”[^5]
 
 So I believe that Jesus did not intend His sermon on this subject to be a verbal hammer for battering us about our shortcomings. No, I believe He intended it to be a tribute to who and what God the Eternal Father is and what we can achieve with Him in eternity. In any case, I am grateful to know that in spite of *my* imperfections, at least God is perfect—that at least He is, for example, able to love His enemies, because too often, due to the “natural man”[^6] and woman in us, you and I are sometimes that enemy. How grateful I am that at least God can bless those who despitefully use Him because, without wanting or intending to do so, we *all* despitefully use Him sometimes. I am grateful that God is merciful and a peacemaker because I need mercy and the world needs peace. Of course, all we say of the Father’s virtues we also say of His Only Begotten Son, who lived and died unto the same perfection.
 
 I hasten to say that focusing on the Father’s and the Son’s achievements rather than our failures does not give us one ounce of justification for undisciplined lives or dumbing down our standards. No, from the beginning the gospel has been “for the perfecting of the saints, … till we … come … unto a perfect man, unto the measure of the stature of the fulness of Christ.”[^7] I am simply suggesting that at least one purpose of a scripture or a commandment can be to remind us just how magnificent “the measure of the stature of the fulness of Christ”[^8] really is, inspiring in us greater love and admiration for Him and a greater desire to be like Him.
 
-“Yea, come unto Christ, and be perfected in him … ,” Moroni pleads. “Love God with all your might, mind and strength, then … *by his grace ye may be perfect in Christ.*”[^9] Our only hope for true perfection is in receiving it as a gift from heaven—we can’t “earn” it. Thus, the grace of Christ offers us not only salvation from sorrow and sin and death but also salvation from our own persistent self-criticism.
+“Yea, come unto Christ, and be perfected in him … ,” Moroni pleads. “Love God with all your might, mind and strength, then … *by his grace ye may be perfect in Christ.*”[^9] Our only hope for true perfection is in receiving it as a gift from heaven—we can’t “earn” it. Thus, the grace of Christ offers us not only salvation from sorrow and sin and death but also salvation from our own persistent self-criticism.
 
 Let me use one of the Savior’s parables to say this in a little different way. A servant was in debt to his king for the amount of 10,000 talents. Hearing the servant’s plea for patience and mercy, “the lord of that servant was moved with compassion, and … forgave … the debt.” But then that same servant would not forgive a fellow servant who owed him 100 pence. On hearing this, the king lamented to the one he had forgiven, “Shouldest not thou also have had compassion on thy fellowservant, even as I had pity on thee?”[^10]
 
-There is some difference of opinion among scholars regarding the monetary values mentioned here—and forgive the U.S. monetary reference—but to make the math easy, if the smaller, unforgiven 100-pence debt were, say, $100 in current times, then the 10,000-talent debt so freely forgiven would have approached $1 billion—or more!
+There is some difference of opinion among scholars regarding the monetary values mentioned here—and forgive the U.S. monetary reference—but to make the math easy, if the smaller, unforgiven 100-pence debt were, say, $100 in current times, then the 10,000-talent debt so freely forgiven would have approached $1 billion—or more!
 
 As a personal debt, that is an astronomical number—totally beyond our comprehension. (Nobody can shop that much!) Well, for the purposes of this parable, it is *supposed* to be incomprehensible; it is *supposed* to be beyond our ability to grasp, to say nothing of beyond our ability to repay. That is because this isn’t a story about two servants arguing in the New Testament. It is a story about us, the fallen human family—mortal debtors, transgressors, and prisoners all. Every one of us is a debtor, and the verdict was imprisonment for every one of us. And there we would all have remained were it not for the grace of a King who sets us free because He loves us and is “moved with compassion toward us.”[^11]
 
@@ -53,11 +55,11 @@ I testify of that grand destiny, made available to us by the Atonement of the Lo
 
 [^2]: [[Matthew 5.48|Matthew 5:48]].
 
-[^3]: See Darla Isackson, “Satan’s Counterfeit Gospel of Perfectionism,” *Meridian Magazine,* June 1, 2016, ldsmag.com.
+[^3]: See Darla Isackson, “Satan’s Counterfeit Gospel of Perfectionism,” *Meridian Magazine,* June 1, 2016, ldsmag.com.
 
 [^4]: “I’m Trying to Be like Jesus,” *Children’s Songbook,* 78–79.
 
-[^5]: See Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign,* Nov. 1995, 86–88.
+[^5]: See Russell M. Nelson, “[[1995 October - Perfection Pending.md|Perfection Pending]],” *Ensign,* Nov. 1995, 86–88.
 
 [^6]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -71,11 +73,11 @@ I testify of that grand destiny, made available to us by the Atonement of the Lo
 
 [^11]: [[D&C 121.4|Doctrine and Covenants 121:4]].
 
-[^12]: See Joanna Benson and Lara Jackson, “Nobody’s Perfect: A Look at Toxic Perfectionism and Depression,” *Millennial Star,* Mar. 21, 2013, millennialstar.org.
+[^12]: See Joanna Benson and Lara Jackson, “Nobody’s Perfect: A Look at Toxic Perfectionism and Depression,” *Millennial Star,* Mar. 21, 2013, millennialstar.org.
 
 [^13]: “The New Way,” *Leo Tolstoy: Spiritual Writings,* sel. Charles E. Moore (2006), 81–82.
 
-[^14]: For an enlightening examination of the meaning of the Greek word used in the New Testament for *perfect* (“teleios”), see President Russell M. Nelson’s October 1995 general conference address “[[1995 October - Perfection Pending.md|Perfection Pending]]” (*Ensign,* Nov. 1995, 86–87).
+[^14]: For an enlightening examination of the meaning of the Greek word used in the New Testament for *perfect* (“teleios”), see President Russell M. Nelson’s October 1995 general conference address “[[1995 October - Perfection Pending.md|Perfection Pending]]” (*Ensign,* Nov. 1995, 86–87).
 
 [^15]: [[D&C 93.13|Doctrine and Covenants 93:13]].
 
@@ -83,8 +85,3 @@ I testify of that grand destiny, made available to us by the Atonement of the Lo
 
 [^17]: See [[D&C 93.13|Doctrine and Covenants 93:13]].
 
-
-
-
-
-#God_The_Father #Grace #Individual_Worth #Jesus_Christ #Perspective

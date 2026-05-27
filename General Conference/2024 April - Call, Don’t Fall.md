@@ -1,6 +1,8 @@
 # Call, Don’t Fall
 
-By Elder Taylor G. Godoy - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Taylor G. Godoy - *Of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -72,7 +74,7 @@ I suggest you consider the following:
 
 Perhaps there is someone right now who, due to circumstances, feels like they are about to fall and would like to call like Joseph Smith did when he cried out: “O God, where art thou? … How long shall thy hand be stayed?”[^7]
 
-Even in circumstances such as these, pray with “spiritual momentum,” as President Russell M. Nelson taught,[^8] because your prayers are always heard!
+Even in circumstances such as these, pray with “spiritual momentum,” as President Russell M. Nelson taught,[^8] because your prayers are always heard!
 
 Remember this hymn:
 
@@ -95,21 +97,19 @@ As we pray we can feel the embrace of our Heavenly Father, who sent His Only Beg
 
 [^1]: [[Matthew 7.7|Matthew 7:7]].
 
-[^2]: [[1 Nephi 17.51|1 Nephi 17:51]].
+[^2]: [[1 Nephi 17.51|1 Nephi 17:51]].
 
 [^3]: See [[Isaiah 55.8|Isaiah 55:8]].
 
 [^4]: [[D&C 64.32|Doctrine and Covenants 64:32]].
 
-[^5]: [[2 Nephi 32.9|2 Nephi 32:9]].
+[^5]: [[2 Nephi 32.9|2 Nephi 32:9]].
 
 [^6]: See [[Alma 58.10|Alma 58:10–11]][[Alma 58.11|]].
 
 [^7]: [[D&C 121.1|Doctrine and Covenants 121:1–2]][[D&C 121.2|]].
 
-[^8]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97–100.
+[^8]: See Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 97–100.
 
+[^9]: “Did You Think to Pray?,” *Hymns*, no. 140.
 
-
-
-#Adversity #Faith #Prayer #Revelation

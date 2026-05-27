@@ -1,5 +1,7 @@
 # Couple Missionaries: Blessings from Sacrifice and Service
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2005 General Conference*
@@ -55,9 +57,9 @@ As members of The Church of Jesus Christ of Latter-day Saints, it is our greates
 
 
 
-[^1]: In Conference Report, Apr. 2001, 31; or *Ensign,* May 2001, 25.
+[^1]: In Conference Report, Apr. 2001, [[2001 April - Couple Missionaries - A Time to Serve.md|31]]; or *Ensign,* May 2001, 25.
 
-[^2]: In Conference Report, Apr. 2001, 31; or *Ensign,* May 2001, 25.
+[^2]: In Conference Report, Apr. 2001, [[2001 April - Couple Missionaries - A Time to Serve.md|31]]; or *Ensign,* May 2001, 25.
 
 [^3]: [[Alma 30.8|Alma 30:8]].
 
@@ -77,7 +79,7 @@ As members of The Church of Jesus Christ of Latter-day Saints, it is our greates
 
 [^11]: [[John 12.26|John 12:26]].
 
-[^12]: [[Matthew 6.32|Matthew 6:32]]; [[3 Nephi 13.32|3 Nephi 13:32]].
+[^12]: [[Matthew 6.32|Matthew 6:32]]; [[3 Nephi 13.32|3 Nephi 13:32]].
 
 [^13]: “Called to Serve,” *Hymns,* no. 249.
 
@@ -89,12 +91,7 @@ As members of The Church of Jesus Christ of Latter-day Saints, it is our greates
 
 [^17]: [[John 3.16|John 3:16]].
 
-[^18]: [[2 Nephi 26.24|2 Nephi 26:24]].
+[^18]: [[2 Nephi 26.24|2 Nephi 26:24]].
 
 [^19]: [[D&C 98.13|D&C 98:13]].
 
-
-
-
-
-#Couple_Missionaries #Example #Faith #Missionary_Work #Sacrifice #Service

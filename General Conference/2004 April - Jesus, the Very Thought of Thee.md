@@ -1,5 +1,7 @@
 # Jesus, the Very Thought of Thee
 
+Gordon B. Hinckley
+
 By Bishop Keith B. McMullin - *Second Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 2004 General Conference*
@@ -24,9 +26,9 @@ What, then, is this testimony of Jesus, how can it be acquired, and what will it
 
 Because the testimony of Jesus is God-given, it stands preeminent and is essential to a happy life. It is the fundamental principle of our religion, and all other things pertaining to our faith are appendages to it.[^4] President Hinckley reminds us:
 
-“It is the privilege, it is the opportunity, it is the obligation of every Latter-day Saint to gain for himself or herself a certain knowledge … that Jesus is the Christ, the Son of God, the Redeemer of all mankind. … That testimony … is the most precious possession that any of us can hold. …
+“It is the privilege, it is the opportunity, it is the obligation of every Latter-day Saint to gain for himself or herself a certain knowledge … that Jesus is the Christ, the Son of God, the Redeemer of all mankind. … That testimony … is the most precious possession that any of us can hold. …
 
-“… I am satisfied … that whenever a man has a true witness in his heart of the living reality of the Lord Jesus Christ all else will come together as it should.”[^5]
+“… I am satisfied … that whenever a man has a true witness in his heart of the living reality of the Lord Jesus Christ all else will come together as it should.”[^5]
 
 Nurtured through righteous living, this testimony of Jesus becomes the governing force in all that a person does. Furthermore, it is available to everyone, for “God is no respecter of persons.”[^6]
 
@@ -56,7 +58,7 @@ Finally, the testimony of Jesus comes to those who *pray to receive* it. “Ask,
 
 For example, the Lord’s life did not begin in Bethlehem,[^13] and ours did not begin at birth. In the premortal world, He stood as the stalwart, unwavering advocate of God’s eternal plan for His children,[^14] and we were there. In the great War in Heaven, it was by the power of the Firstborn that Lucifer was cast out,[^15] and we helped champion the cause. Through God’s Only Begotten Son “the worlds are and were created,”[^16] and we can therefore achieve our divine potential. As President J. Reuben Clark has said:
 
-“It was not a novice, not an amateur, not a Being making a first trial, that came down in the beginning … and … made this world. …
+“It was not a novice, not an amateur, not a Being making a first trial, that came down in the beginning … and … made this world. …
 
 “And if you think of this galaxy of ours having within it from the beginning perhaps … one million worlds, and multiply that by the number of millions of galaxies … that surround us, you will then get some view of who \[Jesus Christ\] is.”[^17]
 
@@ -70,7 +72,26 @@ This Jesus, who is called Christ, wrought out a perfect atonement for all mankin
 
 As the world could not overcome Him in the meridian of time, so the world cannot do without Him in our time, and neither can we. His purpose is “to bring to pass the immortality and eternal life of man.”[^22] Hence, He came to the Prophet Joseph Smith, restored the priesthood, reestablished His Church, and again proclaimed the plan of redemption. Joseph saw Him, conversed with Him, and has left us this transcendent, poetic account of Him:
 
-I beheld round the throne holy angels and hosts,And sanctified beings from worlds that have been,In holiness worshipping God and the Lamb,For ever and ever. Amen and amen.And now after all of the proofs made of him,By witnesses truly, by whom he was known,This is mine, last of all, that he lives; yea, he lives!And sits at the right hand of God on his throne.And I heard a great voice bearing record from heav’n,He’s the Saviour and only begotten of God;By him, of him, and through him, the worlds were all made,Even all that \[careen\] in the heavens so broad.Whose inhabitants, too, from the first to the last,Are sav’d by the very same Saviour of ours;And, of course, are begotten God’s daughters and sonsBy the very same truths and the very same powers.[^23]
+>I beheld round the throne holy angels and hosts,
+>And sanctified beings from worlds that have been,
+>In holiness worshipping God and the Lamb,
+>For ever and ever. Amen and amen.
+>
+>And now after all of the proofs made of him,
+>By witnesses truly, by whom he was known,
+>This is mine, last of all, that he lives; yea, he lives!
+>And sits at the right hand of God on his throne.
+>
+>And I heard a great voice bearing record from heav’n,
+>He’s the Saviour and only begotten of God;
+>By him, of him, and through him, the worlds were all made,
+>Even all that \[careen\] in the heavens so broad.
+>
+>Whose inhabitants, too, from the first to the last,
+>Are sav’d by the very same Saviour of ours;
+>And, of course, are begotten God’s daughters and sons
+>By the very same truths and the very same powers.[^23]
+>
 
 We have with us today the Lord’s duly ordained Apostles. True to their sacred commission as “special witnesses of the name of Christ in all the world,”[^24] they declare:
 
@@ -87,7 +108,7 @@ I thank God for my testimony of Jesus and pray that all may be likewise blessed,
 
 [^2]: “Jesus, the Very Thought of Thee,” *Hymns,* no. 141.
 
-[^3]: See [[Job 32.8|Job 32:8]]; [[1 Corinthians 2.11|1 Corinthians 2:11]].
+[^3]: See [[Job 32.8|Job 32:8]]; [[1 Corinthians 2.11|1 Corinthians 2:11]].
 
 [^4]: See *History of the Church,* 3:30.
 
@@ -101,7 +122,7 @@ I thank God for my testimony of Jesus and pray that all may be likewise blessed,
 
 [^9]: See “The Living Christ: The Testimony of the Apostles,” *Liahona* and *Ensign,* Apr. 2000, 2.
 
-[^10]: [Book of Mormon title page](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng).
+[^10]: [Book of Mormon title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng).
 
 [^11]: [[John 7.16|John 7:16–17]][[John 7.17|]].
 
@@ -121,9 +142,9 @@ I thank God for my testimony of Jesus and pray that all may be likewise blessed,
 
 [^19]: See [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
-[^20]: See [[Luke 24.36|Luke 24:36–39]][[Luke 24.37|]][[Luke 24.38|]][[Luke 24.39|]]; [[1 Corinthians 15.55|1 Corinthians 15:55]]; [[Alma 11.41|Alma 11:41–45]][[Alma 11.42|]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]]; [[3 Nephi 11.7|3 Nephi 11:7–14]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]].
+[^20]: See [[Luke 24.36|Luke 24:36–39]][[Luke 24.37|]][[Luke 24.38|]][[Luke 24.39|]]; [[1 Corinthians 15.55|1 Corinthians 15:55]]; [[Alma 11.41|Alma 11:41–45]][[Alma 11.42|]][[Alma 11.43|]][[Alma 11.44|]][[Alma 11.45|]]; [[3 Nephi 11.7|3 Nephi 11:7–14]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]].
 
-[^21]: Bible Dictionary, “Christ,” 633.
+[^21]: Bible Dictionary, “[[BD Christ|Christ]],” 633.
 
 [^22]: [[Moses 1.39|Moses 1:39]].
 
@@ -133,8 +154,3 @@ I thank God for my testimony of Jesus and pray that all may be likewise blessed,
 
 [^25]: “The Living Christ: The Testimony of the Apostles.”
 
-
-
-
-
-#Atonement #Faith #Jesus_Christ #Prayer #Scripture_Study #Testimony

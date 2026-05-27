@@ -4,6 +4,3 @@
 
 [JST John 1:16](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-john/1?lang=eng)
 
-
-
-

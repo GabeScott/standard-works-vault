@@ -1,5 +1,7 @@
 # “Beware Lest Thou Forget the Lord”
 
+Thomas S. Monson
+
 By Elder Dean L. Larsen - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -40,7 +42,7 @@ Moses’ concern for his people proved to be justified in the years following th
 
 “And when thy herds and thy flocks multiply, and thy silver and thy gold is multiplied, and all that thou hast is multiplied;
 
-“Then thine heart be lifted up, and thou forget the Lord thy God, which brought thee forth out of the land of Egypt, from the house of bondage. …
+“Then thine heart be lifted up, and thou forget the Lord thy God, which brought thee forth out of the land of Egypt, from the house of bondage. …
 
 “And thou say in thine heart, My power and the might of mine hand hath gotten me this wealth” ([[Deuteronomy 8.7|Deut. 8:7–14, 17]][[Deuteronomy 8.8|]][[Deuteronomy 8.9|]][[Deuteronomy 8.10|]][[Deuteronomy 8.11|]][[Deuteronomy 8.12|]][[Deuteronomy 8.13|]][[Deuteronomy 8.14|]][[Deuteronomy 8.17|]]).
 
@@ -48,7 +50,7 @@ Not long after the early Latter-day Saints had entered the Salt Lake Valley, and
 
 Brigham Young, sensing feelings that circulated among some of the people, said: “I hope that the gold mines will be no nearer than 800 miles. … Prosperity and riches blunt the feelings of man” (Journal History of the Church, 8 July 1849).
 
-And then, in his customary candor, he added at a later time: “The worst fear I have about this people is that they will get rich in this country, forget God and His people, wax fat, and kick themselves out of the Church and go to hell. This people will stand mobbing, robbing, poverty, and all manner of persecution, and be true. But my greater fear … is that they cannot stand wealth” (in James S. Brown, *Life of a Pioneer* \[Salt Lake City: Geo. Q. Cannon and Sons Co., 1900\], pp. 122–23).
+And then, in his customary candor, he added at a later time: “The worst fear I have about this people is that they will get rich in this country, forget God and His people, wax fat, and kick themselves out of the Church and go to hell. This people will stand mobbing, robbing, poverty, and all manner of persecution, and be true. But my greater fear … is that they cannot stand wealth” (in James S. Brown, *Life of a Pioneer* \[Salt Lake City: Geo. Q. Cannon and Sons Co., 1900\], pp. 122–23).
 
 In his inspired wisdom, President Young felt some of the same apprehensions for his people that Moses had felt for the tribes of Israel.
 
@@ -64,7 +66,7 @@ An episode during the time of Alma in the Book of Mormon illustrates the cycle t
 
 Not only had there been great loss of life; the destruction to lands and to property had been sufficient to seriously jeopardize the prospects of recovery. Alma describes conditions in these words:
 
-“But the people were afflicted, yea, greatly afflicted for the loss of their brethren, and also for the loss of their flocks and herds, and also for the loss of their fields of grain, which were trodden under foot and destroyed. …
+“But the people were afflicted, yea, greatly afflicted for the loss of their brethren, and also for the loss of their flocks and herds, and also for the loss of their fields of grain, which were trodden under foot and destroyed. …
 
 “And so great were their afflictions that every soul had cause to mourn; and they believed that it was the judgments of God sent upon them because of their wickedness and their abominations; therefore they were awakened to a remembrance of their duty.
 
@@ -109,8 +111,3 @@ And “when thou hast eaten and art full, then thou shalt bless the Lord thy God
 
 
 
-
-
-
-
-#Faith #Pride #Priorities #Wealth

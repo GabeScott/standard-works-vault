@@ -1,6 +1,8 @@
 # Stay in the Boat and Hold On!
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2014 General Conference*
 
@@ -48,11 +50,11 @@ Our local Church leaders, like seasoned river guides, have been tutored by life�
 
 On another occasion this year, I spoke to the young adults of the Church in the May CES devotional broadcast. I said:
 
-“I have heard that some people think the Church leaders live in a ‘bubble.’ What they forget is that we are men and women of experience, and we have lived our lives in so many places and worked with many people from different backgrounds. Our current assignments literally take us around the globe, where we meet the political, religious, business, and humanitarian leaders of the world. Although we have visited \[leaders in\] the White House in Washington, D.C., and leaders of nations \[and religions\] throughout the world, we have also visited the most humble \[families and people\] on earth. …
+“I have heard that some people think the Church leaders live in a ‘bubble.’ What they forget is that we are men and women of experience, and we have lived our lives in so many places and worked with many people from different backgrounds. Our current assignments literally take us around the globe, where we meet the political, religious, business, and humanitarian leaders of the world. Although we have visited \[leaders in\] the White House in Washington, D.C., and leaders of nations \[and religions\] throughout the world, we have also visited the most humble \[families and people\] on earth. …
 
-“When you thoughtfully consider our lives and ministry, you will most likely agree that we see and experience the world in ways few others do. You will realize that we live less in a ‘bubble’ than most people. …
+“When you thoughtfully consider our lives and ministry, you will most likely agree that we see and experience the world in ways few others do. You will realize that we live less in a ‘bubble’ than most people. …
 
-“… There is something about the individual and combined wisdom of the \[Church leaders\] that should provide some comfort. We have experienced it all, including the consequences of different public laws and policies, disappointments, tragedies, and deaths in our own families. We are not out of touch with your lives.”[^6]
+“… There is something about the individual and combined wisdom of the \[Church leaders\] that should provide some comfort. We have experienced it all, including the consequences of different public laws and policies, disappointments, tragedies, and deaths in our own families. We are not out of touch with your lives.”[^6]
 
 Along with rule number one as I’ve applied it, remember rules two and three: always wear a life jacket, and hold on with both hands. The words of the Lord are found in the scriptures and the teachings of the apostles and prophets. They provide us counsel and direction that, when followed, will act like a spiritual life jacket and will help us know how to hold on with both hands.
 
@@ -87,29 +89,27 @@ Brothers and sisters, stay in the boat, use your life jackets, and hold on with 
 
 [^1]: *Teachings of Presidents of the Church: Brigham Young* (1997), 82–83.
 
-[^2]: Brigham Young, “Discourse,” *Deseret News,* Jan. 27, 1858, 373.
+[^2]: Brigham Young, “Discourse,” *Deseret News,* Jan. 27, 1858, 373.
 
-[^3]: Brigham Young, “Remarks,” *Deseret News,* Nov. 18, 1857, 291.
+[^3]: Brigham Young, “Remarks,” *Deseret News,* Nov. 18, 1857, 291.
 
 [^4]: [[Alma 5.26|Alma 5:26]].
 
-[^5]: M. Russell Ballard, “Mission Leadership” (address given at the seminar for new mission presidents, June 25, 2014), 8.
+[^5]: M. Russell Ballard, “Mission Leadership” (address given at the seminar for new mission presidents, June 25, 2014), 8.
 
-[^6]: M. Russell Ballard, “Be Still, and Know That I Am God” (Church Educational System devotional, May 4, 2014); [lds.org/broadcasts](https://www.churchofjesuschrist.org/media/video/2014-05-0030-be-still-and-know-that-i-am-god).
+[^6]: M. Russell Ballard, “Be Still, and Know That I Am God” (Church Educational System devotional, May 4, 2014); [lds.org/broadcasts](https://www.churchofjesuschrist.org/media/video/2014-05-0030-be-still-and-know-that-i-am-god).
 
 [^7]: [[Alma 17.2|Alma 17:2]].
 
 [^8]: [[Alma 17.3|Alma 17:3]].
 
-[^9]: First Presidency and Quorum of the Twelve Apostles letter, June 28, 2014.
+[^9]: First Presidency and Quorum of the Twelve Apostles letter, June 28, 2014.
 
 [^10]: Joseph Smith, *Elders’ Journal,* July 1838, 44.
 
-[^11]: [[2 Nephi 31.20|2 Nephi 31:20]].
+[^11]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
-[^12]: First Presidency and Quorum of the Twelve Apostles letter, June 28, 2014.
+[^12]: First Presidency and Quorum of the Twelve Apostles letter, June 28, 2014.
 
+[^13]: [[Galatians 6.2|Galatians 6:2]].
 
-
-
-#Adversity #Apostasy #Prophets

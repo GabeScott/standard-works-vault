@@ -1,6 +1,8 @@
 # A Witness
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Richard G. Scott
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -26,7 +28,7 @@ The Lord is keeping His promise to you as you keep yours. As you serve others fo
 
 Just as you promised God to become charitable, you promised to be His witness wherever you may be throughout your life. Again, the Book of Mormon is the best guide I know to help us keep that promise.
 
-I was once invited to speak at graduation services at a university. The university president had wanted President Gordon B. Hinckley to be invited but found that he was unavailable. So by default I got the invitation. I was then a junior member of the Quorum of the Twelve Apostles.
+I was once invited to speak at graduation services at a university. The university president had wanted President Gordon B. Hinckley to be invited but found that he was unavailable. So by default I got the invitation. I was then a junior member of the Quorum of the Twelve Apostles.
 
 The person who invited me to speak became anxious as she learned more about my obligations as an Apostle. She called me on the phone and said that she now understood that my duty was to be a witness of Jesus Christ.
 
@@ -68,7 +70,7 @@ He saw the look of surprise in my eyes, laughed quietly, and explained, “After
 
 He was an example of the fully converted Latter-day Saints I meet often after they have given a life of dedicated service. They press on.
 
-President Marion G. Romney described it this way: “In one who is wholly converted, desire for things \[contrary\] to the gospel of Jesus Christ has actually died, and substituted therefor is a love of God with a fixed and controlling determination to keep his commandments.”[^5]
+President Marion G. Romney described it this way: “In one who is wholly converted, desire for things \[contrary\] to the gospel of Jesus Christ has actually died, and substituted therefor is a love of God with a fixed and controlling determination to keep his commandments.”[^5]
 
 It is that fixed determination I see more and more often in the seasoned disciples of Jesus Christ. Like the sister greeting my daughters and the man in the new shoes ready to get up and march, they follow the Savior’s command to the end. All of you have seen it.
 
@@ -99,16 +101,11 @@ The Book of Mormon is a precious witness. I now leave with you my witness in the
 
 [^3]: [[Moroni 7.47|Moroni 7:47]].
 
-[^4]: See [[3 Nephi 17.21|3 Nephi 17:21–22]][[3 Nephi 17.22|]].
+[^4]: See [[3 Nephi 17.21|3 Nephi 17:21–22]][[3 Nephi 17.22|]].
 
-[^5]: Marion G. Romney, in Conference Report, Oct. 1963, 23.
+[^5]: Marion G. Romney, in Conference Report, Oct. 1963, 23.
 
 [^6]: [[Mosiah 2.30|Mosiah 2:30]].
 
 [^7]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-
-
-#Book_Of_Mormon #Charity #Consecration #Conversion #Endurance #Service #Testimony

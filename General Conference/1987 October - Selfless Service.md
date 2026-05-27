@@ -1,5 +1,7 @@
 # Selfless Service
 
+Ezra Taft Benson
+
 By Elder William R. Bradford - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1987 General Conference*
@@ -44,7 +46,7 @@ It is vain to seek the praise or recognition of men. This vanity comes of evil b
 
 “Behold, the Lord hath forbidden this thing; wherefore, the Lord God hath given a commandment that all men should have charity, which charity is love. And except they should have charity they were nothing. Wherefore, if they should have charity they would not suffer the laborer in Zion to perish.
 
-“But the laborer in Zion shall labor for Zion” ([[2 Nephi 26.29|2 Ne. 26:29–31]][[2 Nephi 26.30|]][[2 Nephi 26.31|]]).
+“But the laborer in Zion shall labor for Zion” ([[2 Nephi 26.29|2 Ne. 26:29–31]][[2 Nephi 26.30|]][[2 Nephi 26.31|]]).
 
 Selflessness is righteousness. It embraces the true spirit of companionship. It is the very essence of friendship. It is the portrayer of true love and oneness in humanity. Its reward is the freeing of the soul, a nearness to divinity, a worthiness for the companionship of the Spirit. Every requirement that God’s plan for our salvation places upon us is based on the giving of one’s self.
 
@@ -81,8 +83,3 @@ In the sacred name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Sacrifice #Service #Worldliness

@@ -1,6 +1,8 @@
 # Preparing for Service in the Church
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1979 General Conference*
 
@@ -8,19 +10,19 @@ By President Spencer W. Kimball - *President of the Church*
 
 Brethren, we have had a rich experience this night, listening to the servants of the Lord. They have given to us words of truth and righteousness. I hope that these words have sunk deep into the hearts of all those who have been listening tonight.
 
-This morning Elder Howard W. Hunter spoke of one of the presidents of the Church, Wilford Woodruff, and it stirred my memory of some experiences of President Woodruff that I had been reading about. I would like to tell you of two or three of them while we are concluding this meeting. All of these experiences happened to him while he was a youth like those of you holding the Aaronic Priesthood.
+This morning Elder Howard W. Hunter spoke of one of the presidents of the Church, Wilford Woodruff, and it stirred my memory of some experiences of President Woodruff that I had been reading about. I would like to tell you of two or three of them while we are concluding this meeting. All of these experiences happened to him while he was a youth like those of you holding the Aaronic Priesthood.
 
 President Woodruff was one of the great spiritual giants of this dispensation. The Lord gave him many dreams and visions; he baptized thousands of converts, as was explained to us today, and he performed many, many miracles. Few men have enjoyed more of the guidance of the Holy Spirit than did President Woodruff. He was an apostle of the Lord Jesus Christ, was valiant and true all his days, and, in the provinces of the Lord, he was the fourth president of The Church of Jesus Christ of Latter-day Saints. He is the one who dedicated the Salt Lake Temple in 1893, and it was to him that the founders of the American nation appeared in the St. George Temple, seeking to have the temple ordinances performed for them. That was very unusual, brethren, and those kinds of miracles and visions and revelations were rather unusual, as you would know. These men of the American Constitution had lived in a day when the gospel was not upon the earth, but they were upright, good men who were entitled to all of the blessings which come to us.
 
-We all need heroes to honor and admire; we need people after whom we can pattern our lives. For us Christ is the chiefest of these. “What manner of men ought ye to be?” he asked his Nephite disciples. His answer, “Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].) Christ is our pattern, our guide, our prototype, and our friend. We seek to be like him so that we can always be with him. In a lesser degree the apostles and prophets who have lived as Christ lived also become examples for us.
+We all need heroes to honor and admire; we need people after whom we can pattern our lives. For us Christ is the chiefest of these. “What manner of men ought ye to be?” he asked his Nephite disciples. His answer, “Verily I say unto you, even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].) Christ is our pattern, our guide, our prototype, and our friend. We seek to be like him so that we can always be with him. In a lesser degree the apostles and prophets who have lived as Christ lived also become examples for us.
 
-Coming back to the thought of this special vision: Brother Woodruff saw to it through the authorities at the temple there that these people received their endowments and the blessings to which they were entitled. The wives went in and did the work for the women, who were anxious that this work be done. Now you can see why Elder Royden G. Derrick spoke to us today about temple service. There are millions of people in the spirit world who are anxious that this work be done for them, realizing that they have come to a halt. They cannot go further until the work has been done for them.
+Coming back to the thought of this special vision: Brother Woodruff saw to it through the authorities at the temple there that these people received their endowments and the blessings to which they were entitled. The wives went in and did the work for the women, who were anxious that this work be done. Now you can see why Elder Royden G. Derrick spoke to us today about temple service. There are millions of people in the spirit world who are anxious that this work be done for them, realizing that they have come to a halt. They cannot go further until the work has been done for them.
 
 Brother Woodruff said:
 
 “The first sermon that I ever heard in this Church was in 1833, by old father Zera Pulsipher, who died in the south, after having lived to be considerably over eighty years old. That sermon was what I had prayed for from my childhood,” he said. “When I heard it I had a testimony for myself that it was true. I received it with every sentiment of my heart. He preached in a schoolhouse upon a farm that we owned in Oswego County, New York. He opened the door for any remarks to be made. The house was crowded. The first thing I knew I stood on top of a bench before the people, not knowing what I got up for. But I said to my neighbors and friends, ‘I want you to be careful what you say as touching these men (there were two of them) and their testimony, for they are servants of God, and they have testified unto us the truth—principles that I have been looking for from my childhood.’
 
-“I went forth and was baptized. I was ordained a teacher. I was always sorry that I was not a deacon first, for I had a desire to bear the priesthood in its various degrees as far as I was worthy. I had had a desire for years, not only to hear the gospel, but to have the privilege and power of preaching it to my fellow men. I was a miller by trade, and I spent many a midnight hour in the mill calling upon the Lord for light and truth, and praying that I might hear the gospel of Christ, and be able to teach it to my fellow men. I rejoiced in it when I did receive it.” (*Discourses of Wilford Woodruff,* sel. G. Homer Durham, Salt Lake City: Bookcraft, 1946, p. 304.)
+“I went forth and was baptized. I was ordained a teacher. I was always sorry that I was not a deacon first, for I had a desire to bear the priesthood in its various degrees as far as I was worthy. I had had a desire for years, not only to hear the gospel, but to have the privilege and power of preaching it to my fellow men. I was a miller by trade, and I spent many a midnight hour in the mill calling upon the Lord for light and truth, and praying that I might hear the gospel of Christ, and be able to teach it to my fellow men. I rejoiced in it when I did receive it.” (*Discourses of Wilford Woodruff,* sel. G. Homer Durham, Salt Lake City: Bookcraft, 1946, p. 304.)
 
 President Woodruff was born March 1, 1807; he was baptized December 31, 1833, when he was twenty-six years old, and was ordained a teacher on January 25, 1834.
 
@@ -42,7 +44,7 @@ Young people should study the gospel, prepare themselves for service in the Chur
 
 The third experience:
 
-“… While holding the office of teacher I went to Missouri in Zion’s Camp. After arriving in Missouri, having gone through many trials and tribulations, and suffering from cholera, which caused us to lay in the grave fifteen of our brethren, we stayed at Brother Lyman Wight’s. While at Lyman Wight’s, I attended council meetings with the Prophet, with David Whitmer, with Oliver Cowdery, and other leading brethren of the Church. David Whitmer was the president of the stake of Zion. Brother Joseph reproved him very sharply, as well as some of the other brethren, because of their lack in fulfilling the commandments of God and doing their duty.
+“… While holding the office of teacher I went to Missouri in Zion’s Camp. After arriving in Missouri, having gone through many trials and tribulations, and suffering from cholera, which caused us to lay in the grave fifteen of our brethren, we stayed at Brother Lyman Wight’s. While at Lyman Wight’s, I attended council meetings with the Prophet, with David Whitmer, with Oliver Cowdery, and other leading brethren of the Church. David Whitmer was the president of the stake of Zion. Brother Joseph reproved him very sharply, as well as some of the other brethren, because of their lack in fulfilling the commandments of God and doing their duty.
 
 “While at that place I had a great desire in my heart to go and preach the gospel. I went off one Sunday night by myself into a hickory grove, several hundred yards from the settlement, and I asked the Lord to open the door for me that I might go and preach the gospel. I did not want to preach the gospel for any honor I might get on this earth; for I thoroughly understood, as far as a man could in my condition, what a preacher would have to pass through. It was not honor, nor wealth, nor gold, nor silver, that I desired: But I knew this was the gospel of Christ, revealed to me by the power of God; I knew this was the Church of Christ; I knew Joseph Smith was a prophet of God; and I had a desire that I might preach that gospel to the nations of the earth. I asked the Lord to give me that privilege. The Lord answered that prayer, and said I should have my desire granted. I got up rejoicing. I walked about two hundred yards out in the open road; and when I got into the road there stood Judge Higbee. Said he, ‘Brother Woodruff, the Lord has revealed to me that it is your duty to be ordained to go and preach the gospel.’
 
@@ -73,8 +75,3 @@ I just wish to say this in conclusion: It is wonderful to meet this large body o
 
 
 
-
-
-
-
-#Priesthood #Wilford_Woodruff

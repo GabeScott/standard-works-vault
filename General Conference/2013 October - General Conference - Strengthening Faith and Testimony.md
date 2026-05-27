@@ -1,6 +1,8 @@
 # General Conference: Strengthening Faith and Testimony
 
-By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -36,7 +38,7 @@ Oh, how we need general conference! Through conferences our faith is fortified a
 
 In recent decades the Church has largely been spared the terrible misunderstandings and persecutions experienced by the early Saints. It will not always be so. The world is moving away from the Lord faster and farther than ever before. The adversary has been loosed upon the earth. We watch, hear, read, study, and share the words of prophets to be forewarned and protected. For example, “The Family: A Proclamation to the World” was given long before we experienced the challenges now facing the family. “The Living Christ: The Testimony of the Apostles” was prepared in advance of when we will need it most.
 
-We may not know all the reasons why the prophets and conference speakers address us with certain topics in conference, but the Lord does. President Harold B. Lee taught: “The only safety we have as members of this church is to … give heed to the words and commandments that the Lord shall give through His prophet. … There will be some things that take patience and faith. You may not like what comes from the authority of the Church. It may contradict your \[personal\] views. It may contradict your social views. It may interfere with some of your social life. But if you listen to these things, as if from the mouth of the Lord Himself, with patience and faith, the promise is that ‘the gates of hell shall not prevail against you; … and the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory’ ([[D&C 21.6|D&C 21:6]]).”[^10]
+We may not know all the reasons why the prophets and conference speakers address us with certain topics in conference, but the Lord does. President Harold B. Lee taught: “The only safety we have as members of this church is to … give heed to the words and commandments that the Lord shall give through His prophet. … There will be some things that take patience and faith. You may not like what comes from the authority of the Church. It may contradict your \[personal\] views. It may contradict your social views. It may interfere with some of your social life. But if you listen to these things, as if from the mouth of the Lord Himself, with patience and faith, the promise is that ‘the gates of hell shall not prevail against you; … and the Lord God will disperse the powers of darkness from before you, and cause the heavens to shake for your good, and his name’s glory’ ([[D&C 21.6|D&C 21:6]]).”[^10]
 
 How did President Lee know what we would be facing in our day? He knew because he was a prophet, seer, and revelator. And if we listen and obey the prophets now, including those who will speak in this very conference, we will be strengthened and protected.
 
@@ -44,11 +46,11 @@ The greatest blessings of general conference come to us after the conference is 
 
 After King Benjamin taught his people, “he dismissed the multitude, and they returned, every one, according to their families, to their own houses.”[^11] In his day, King Limhi did the same.[^12] After teaching and ministering to the people at the temple in Bountiful, the Savior entreated the people, “Go ye unto your homes, and ponder upon the things which I have said, and ask of the Father, in my name, that ye may understand, and prepare your minds for the morrow, and I come unto you again.”[^13]
 
-We accept the Savior’s invitation when we ponder and pray to understand what we have been taught and then go forward and do His will. Remember President Spencer W. Kimball’s words: “I have made up my mind that when I go home from this \[general\] conference … there are many, many areas in my life that I can perfect. I have made a mental list of them, and I expect to go to work as soon as we get through.”[^14] President Monson recently said: “I encourage you to read the talks … and to ponder the messages contained therein. I have found in my own life that I gain even more from these inspired sermons when I study them in greater depth.”[^15]
+We accept the Savior’s invitation when we ponder and pray to understand what we have been taught and then go forward and do His will. Remember President Spencer W. Kimball’s words: “I have made up my mind that when I go home from this \[general\] conference … there are many, many areas in my life that I can perfect. I have made a mental list of them, and I expect to go to work as soon as we get through.”[^14] President Monson recently said: “I encourage you to read the talks … and to ponder the messages contained therein. I have found in my own life that I gain even more from these inspired sermons when I study them in greater depth.”[^15]
 
 In addition to inviting us to hold personal and family scripture study, Heavenly Father wants us to regularly study and apply what we have learned in conference. I testify that those who put their trust in the Lord and heed this counsel in faith will gain great strength to bless themselves and their families for generations to come.
 
-Heavenly Father has provided the way. At this conference, 97 percent of the Church can hear these messages in their own language. Millions of members in 197 countries will watch this conference in 95 languages. In just two or three days the messages will appear on  in English, and within one week they will begin to be available in 52 languages. Now we receive the printed Church magazines within three weeks of the general conference. No longer do we have to wait months for the talks to arrive by mail. On a computer, phone, or other electronic device, we can read, listen to, watch, and share the teachings of the prophets. Anytime, anywhere, we can enlarge our knowledge, strengthen our faith and testimony, protect our families, and lead them safely home.
+Heavenly Father has provided the way. At this conference, 97 percent of the Church can hear these messages in their own language. Millions of members in 197 countries will watch this conference in 95 languages. In just two or three days the messages will appear on [LDS.org](https://www.churchofjesuschrist.org) in English, and within one week they will begin to be available in 52 languages. Now we receive the printed Church magazines within three weeks of the general conference. No longer do we have to wait months for the talks to arrive by mail. On a computer, phone, or other electronic device, we can read, listen to, watch, and share the teachings of the prophets. Anytime, anywhere, we can enlarge our knowledge, strengthen our faith and testimony, protect our families, and lead them safely home.
 
 The messages of this conference will also be woven into the online youth curriculum. Parents, you may access youth lessons for yourself on LDS.org. Find out what your children are learning, and make it the subject of your own study, family discussions, family home evenings, family councils, and personal interviews with each of your children concerning what they need to be taught individually.
 
@@ -77,26 +79,21 @@ My brothers and sisters, I bear my special witness that the Lord Jesus Christ li
 
 [^6]: See [[Mosiah 2.5|Mosiah 2:5]].
 
-[^7]: See [[2 Nephi 33.1|2 Nephi 33:1]].
+[^7]: See [[2 Nephi 33.1|2 Nephi 33:1]].
 
-[^8]: See Spencer W. Kimball, in Conference Report, Tonga Area Conference 1976, 27.
+[^8]: See Spencer W. Kimball, in Conference Report, Tonga Area Conference 1976, 27.
 
 [^9]: See [[Luke 22.31|Luke 22:31–32]][[Luke 22.32|]].
 
-[^10]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 84–85.
+[^10]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 84–85.
 
 [^11]: [[Mosiah 6.3|Mosiah 6:3]].
 
 [^12]: See [[Mosiah 8.4|Mosiah 8:4]].
 
-[^13]: [[3 Nephi 17.3|3 Nephi 17:3]].
+[^13]: [[3 Nephi 17.3|3 Nephi 17:3]].
 
-[^14]: Spencer W. Kimball, “Spoken from Their Hearts,” *Ensign,* Nov. 1975, 111.
+[^14]: Spencer W. Kimball, “Spoken from Their Hearts,” *Ensign,* Nov. 1975, 111.
 
-[^15]: Thomas S. Monson, “God Be with You Till We Meet Again,” *Ensign* or *Liahona,* Nov. 2012, 110.
+[^15]: Thomas S. Monson, “God Be with You Till We Meet Again,” *Ensign* or *Liahona,* Nov. 2012, 110.
 
-
-
-
-
-#General_Conference

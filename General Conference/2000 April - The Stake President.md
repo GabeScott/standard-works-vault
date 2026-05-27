@@ -1,5 +1,7 @@
 # The Stake President
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2000 General Conference*
@@ -87,8 +89,3 @@ I pray that the rich and wondrous blessings of the Lord may be poured out upon t
 
 
 
-
-
-
-
-#Commandments #Disciplinary_Councils #Education #Humility #Leadership #Missionary_Work #Priesthood #Prophecy #Respect #Responsibility #Restoration #Teaching #Unity #Worthiness

@@ -1,4 +1,3 @@
 # Magdalene
 
-
-*See* [BD Magdalene](https://www.churchofjesuschrist.org/study/scriptures/bd/magdalene?lang=eng)
+*See also* [[BD Magdalene.md|BD Magdalene]]

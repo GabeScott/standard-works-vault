@@ -1,7 +1,6 @@
 # Plainly
 
-
-write ... all the words of this law very *plainly*, [[Deuteronomy 27.8|Deuteronomy 27:8]].
+write … all the words of this law very *plainly*, [[Deuteronomy 27.8|Deuteronomy 27:8]].
 
 stammerers shall be ready to speak *plainly*, [[Isaiah 32.4|Isaiah 32:4]].
 

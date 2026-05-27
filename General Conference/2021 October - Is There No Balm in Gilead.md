@@ -1,6 +1,8 @@
 # Is There No Balm in Gilead?
 
-By Elder Brent H. Nielson - *Of the Presidency of the Seventy*
+Russell M. Nelson
+
+By Elder Brent H. Nielson - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -47,25 +49,23 @@ I bear my witness to you of the Balm of Gilead, the Savior Jesus Christ, our Red
 
 
 
-[^1]: See Bible Dictionary, “[Balm](https://churchofjesuschrist.org/study/scriptures/bd/balm?lang=eng).”
+[^1]: See Bible Dictionary, “[[BD Balm|Balm]].”
 
 [^2]: [[Jeremiah 8.22|Jeremiah 8:22]].
 
 [^3]: [[Mark 2.5|Mark 2:5]].
 
-[^4]: [[3 Nephi 9.13|3 Nephi 9:13]]; emphasis added.
+[^4]: [[3 Nephi 9.13|3 Nephi 9:13]]; emphasis added.
 
-[^5]: [[3 Nephi 18.32|3 Nephi 18:32]]; emphasis added.
+[^5]: [[3 Nephi 18.32|3 Nephi 18:32]]; emphasis added.
 
 [^6]: [[Moroni 7.33|Moroni 7:33]].
 
 [^7]: See [[Mosiah 24.15|Mosiah 24:15]].
 
-[^8]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
+[^8]: [[1 Corinthians 15.22|1 Corinthians 15:22]].
 
 [^9]: [[Ether 12.27|Ether 12:27]].
 
+[^10]: [[Malachi 4.2|Malachi 4:2]].
 
-
-
-#Adversity #Atonement #Faith #Healing #Jesus_Christ

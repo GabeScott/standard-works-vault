@@ -1,5 +1,7 @@
 # Holy Scriptures: The Power of God unto Our Salvation
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -12,11 +14,11 @@ The holy scriptures are the word of God given to us for our salvation. The scrip
 
 Will you open with me the cover of the Book of Mormon? Look on the title page. We read that it is “written by way of commandment, … by the spirit of prophecy and of revelation.” It has “come forth by the gift and power of God,” and its interpretation is “by the gift of God”—by the Holy Ghost. It shows “what great things the Lord \[has\] done” and has given to us “that \[we\] may know the covenants of the Lord,” that we might not be “cast off forever.” Most importantly, it has been written to convince us “that Jesus is the Christ, the Eternal God.”
 
-Turn the page again, to the introduction. Here we learn that this prophetic record is “holy scripture comparable to the Bible.” It contains “the fulness of the everlasting gospel … , outlines the plan of salvation, and tells \[us\] what \[we\] must do to gain peace in this life and eternal salvation in the life to come.” It promises each of us that “all who will come unto \[the Savior\] and obey the laws and ordinances of his gospel may be saved.”
+Turn the page again, to the introduction. Here we learn that this prophetic record is “holy scripture comparable to the Bible.” It contains “the fulness of the everlasting gospel … , outlines the plan of salvation, and tells \[us\] what \[we\] must do to gain peace in this life and eternal salvation in the life to come.” It promises each of us that “all who will come unto \[the Savior\] and obey the laws and ordinances of his gospel may be saved.”
 
 What is the vital role of this sacred book in our day? What is its message regarding the purpose of all scripture?
 
-On page one of the book of 1 Nephi—the very first book in the Book of Mormon—we learn that Lehi, in about 600 b.c., was directed by God to take his family and flee into the wilderness. But Lehi didn’t get very far before the Lord commanded him to send his sons back. Why? To retrieve the scriptures, the brass plates, which were so important that Lehi’s sons risked their lives and lost all their worldly possessions to recover them! Ultimately, it was the Lord’s help and Nephi’s faith that miraculously delivered the plates into his hands. When Nephi and his brothers returned, Lehi, their father, rejoiced. He began to search the holy scriptures “from the beginning” and “found that they were desirable; yea, even of great worth … insomuch that \[Lehi and his posterity\] could preserve the commandments of the Lord unto \[their\] children.”[^1]
+On page one of the book of 1 Nephi—the very first book in the Book of Mormon—we learn that Lehi, in about 600 b.c., was directed by God to take his family and flee into the wilderness. But Lehi didn’t get very far before the Lord commanded him to send his sons back. Why? To retrieve the scriptures, the brass plates, which were so important that Lehi’s sons risked their lives and lost all their worldly possessions to recover them! Ultimately, it was the Lord’s help and Nephi’s faith that miraculously delivered the plates into his hands. When Nephi and his brothers returned, Lehi, their father, rejoiced. He began to search the holy scriptures “from the beginning” and “found that they were desirable; yea, even of great worth … insomuch that \[Lehi and his posterity\] could preserve the commandments of the Lord unto \[their\] children.”[^1]
 
 Indeed, the brass plates were a record of Lehi’s fathers, including their language, genealogy, and, more importantly, the gospel taught by God’s holy prophets. As Lehi searched the plates, he learned what all of us learn by studying the scriptures:
 
@@ -66,12 +68,12 @@ At the end of the Book of Mormon, Moroni figuratively looks out over the last re
 
 “And *by the power of the Holy Ghost* ye may know the truth of all things.”[^21]
 
-We are living in the latter days, brothers and sisters, in the fulness of times. We must remember that we have control over who we are no matter how difficult the world becomes. Like those in 1 Nephi, the true and faithful will be able to withstand the fiery darts of the adversary when he is loosed upon this earth.[^22] Despite all the turmoil in the world, when the Savior comes to His temple, as He did in the Book of Mormon, those who are true and faithful will be there. May we be among them, I so pray, in the name of Jesus Christ, amen.
+We are living in the latter days, brothers and sisters, in the fulness of times. We must remember that we have control over who we are no matter how difficult the world becomes. Like those in 1 Nephi, the true and faithful will be able to withstand the fiery darts of the adversary when he is loosed upon this earth.[^22] Despite all the turmoil in the world, when the Savior comes to His temple, as He did in the Book of Mormon, those who are true and faithful will be there. May we be among them, I so pray, in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[1 Nephi 5.10|1 Nephi 5:10, 21]][[1 Nephi 5.21|]].
+[^1]: [[1 Nephi 5.10|1 Nephi 5:10, 21]][[1 Nephi 5.21|]].
 
 [^2]: [[Alma 5.7|Alma 5:7]].
 
@@ -87,25 +89,25 @@ We are living in the latter days, brothers and sisters, in the fulness of times.
 
 [^8]: [[Moroni 10.5|Moroni 10:5]].
 
-[^9]: [[Alma 37.4|Alma 37:4, 14]][[Alma 37.14|]]; see also [[1 Nephi 9.5|1 Nephi 9:5]]; [[Words of Mormon 1.7|Words of Mormon 1:7]].
+[^9]: [[Alma 37.4|Alma 37:4, 14]][[Alma 37.14|]]; see also [[1 Nephi 9.5|1 Nephi 9:5]]; [[Words of Mormon 1.7|Words of Mormon 1:7]].
 
-[^10]: [[1 Nephi 5.19|1 Nephi 5:19]].
+[^10]: [[1 Nephi 5.19|1 Nephi 5:19]].
 
 [^11]: [[Enos 1.16|Enos 1:16]].
 
-[^12]: [Book of Mormon title page](https://churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng).
+[^12]: [Book of Mormon title page](https://www.churchofjesuschrist.org/study/scriptures/bofm/bofm-title?lang=eng).
 
 [^13]: [[D&C 35.20|D&C 35:20–21]][[D&C 35.21|]].
 
 [^14]: [[Isaiah 30.8|Isaiah 30:8]].
 
-[^15]: [[Matthew 5.38|Matthew 5:38]]; see also [[3 Nephi 12.38|3 Nephi 12:38]].
+[^15]: [[Matthew 5.38|Matthew 5:38]]; see also [[3 Nephi 12.38|3 Nephi 12:38]].
 
-[^16]: [[3 Nephi 12.47|3 Nephi 12:47]].
+[^16]: [[3 Nephi 12.47|3 Nephi 12:47]].
 
 [^17]: [[Matthew 22.39|Matthew 22:39]].
 
-[^18]: [[Matthew 5.44|Matthew 5:44]]; see also [[3 Nephi 12.44|3 Nephi 12:44]].
+[^18]: [[Matthew 5.44|Matthew 5:44]]; see also [[3 Nephi 12.44|3 Nephi 12:44]].
 
 [^19]: [[D&C 64.10|D&C 64:10]].
 
@@ -113,10 +115,5 @@ We are living in the latter days, brothers and sisters, in the fulness of times.
 
 [^21]: [[Moroni 10.4|Moroni 10:4–5]][[Moroni 10.5|]]; emphasis added.
 
-[^22]: See [[1 Nephi 15.24|1 Nephi 15:24]].
+[^22]: See [[1 Nephi 15.24|1 Nephi 15:24]].
 
-
-
-
-
-#Book_Of_Mormon #Jesus_Christ #Scriptures

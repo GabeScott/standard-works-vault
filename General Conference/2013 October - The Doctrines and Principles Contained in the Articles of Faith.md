@@ -1,6 +1,8 @@
 # The Doctrines and Principles Contained in the Articles of Faith
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -12,7 +14,7 @@ When I was given the assignment to speak in the priesthood session of general co
 
 We decided on a special spot we liked to hike to on the rocky slopes just above the first dam at the entrance of Logan Canyon, in northern Utah. There was a small, flat space in these rocky cliffs that had a natural fireplace where you could cook hot dogs and roast marshmallows. When we chose the location, however, we did not consider our teacher, who was older and certainly not the athletic type. If we had thought about it more carefully, it might have occurred to us that she would have a difficult time making the hike. Her promise was her bond, however, and she gamely followed us.
 
-First we climbed up the small hill. In our day there were no power lines to prevent access. With some help our teacher made it up the hill. Once over the top we dropped down into a rocky ridge to a place we called “Turtle Back.”
+First we climbed up the small hill. In our day there were no power lines to prevent access. With some help our teacher made it up the hill. Once over the top we dropped down into a rocky ridge to a place we called “Turtle Back.”
 
 After we arrived, it took our teacher a little while to catch her breath. By the time we prepared to sit down and eat, she had recovered enough to teach us our final lesson. She told us how she had enjoyed teaching us in Primary for the last two years. She complimented us on how we had mastered the Articles of Faith. She could call out the number of any one of them, and we could quote it back to her. Then she said memorizing the Articles of Faith would mean nothing more than a lot of words unless we understood the doctrines and principles contained in them. She encouraged us to study the gospel doctrine taught in each of the Articles of Faith. She explained that the doctrine found in the Articles of Faith was divided into sections.
 
@@ -32,7 +34,7 @@ The scriptures teach us how to avoid false teachings. For example, in Paul’s l
 
 “All scripture is given by inspiration of God, and is profitable for doctrine, for reproof, for correction, for instruction in righteousness:
 
-“That the man of God may be perfect, throughly furnished unto all good works” ([[2 Timothy 3.16|2 Timothy 3:16–17]][[2 Timothy 3.17|]]).
+“That the man of God may be perfect, throughly furnished unto all good works” ([[2 Timothy 3.16|2 Timothy 3:16–17]][[2 Timothy 3.17|]]).
 
 This doctrine is to the Church like a battery is to a cell phone. When you remove the battery from your cell phone, it becomes useless. A church in which true doctrine is no longer taught is similarly useless. It cannot guide us back to our Heavenly Father and our eternal home.
 
@@ -79,8 +81,3 @@ I add my testimony to the truthfulness of the thirteen Articles of Faith in the 
 
 
 
-
-
-
-
-#Articles_Of_Faith #Priesthood #Scripture_Study

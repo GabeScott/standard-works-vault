@@ -1,6 +1,8 @@
 # Your Divine Nature and Eternal Destiny
 
-By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Dale G. Renlund - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -16,7 +18,7 @@ The Spirit plays a pivotal role in communicating God’s love to us.[^4] Yet the
 
 Similarly, our sense of God’s love may be blunted by challenging circumstances and physical or mental illness, among other things. In all these cases, the counsel of trusted leaders or professionals can often be beneficial. We can also try to improve our receptivity to God’s love by asking ourselves, “Is my love for God constant, or do I love Him when I have good days but not so much when I have bad days?”
 
-The second truth is that we have heavenly parents, a father and a mother.[^7] The doctrine of a Heavenly Mother comes by revelation and is a distinctive belief among Latter-day Saints. President Dallin H. Oaks explained the importance of this truth: “Our theology begins with heavenly parents. Our highest aspiration is to be like them.”[^8]
+The second truth is that we have heavenly parents, a father and a mother.[^7] The doctrine of a Heavenly Mother comes by revelation and is a distinctive belief among Latter-day Saints. President Dallin H. Oaks explained the importance of this truth: “Our theology begins with heavenly parents. Our highest aspiration is to be like them.”[^8]
 
 Very little has been revealed about Mother in Heaven, but what we do know is summarized in a gospel topic found in our Gospel Library application.[^9] Once you have read what is there, you will know everything that I know about the subject. I wish I knew more. You too may still have questions and want to find more answers. Seeking greater understanding is an important part of our spiritual development, but please be cautious. Reason cannot replace revelation.
 
@@ -36,7 +38,7 @@ The second paragraph in the Young Women theme reads: “As a disciple of Jesus C
 
 The Young Women theme continues, “I will stand as a witness of God at all times and in all things and in all places.” All members of the Church are needed as witnesses of God,[^24] although Apostles and Seventies are commissioned as special witnesses of the name of Christ.[^25] Imagine a soccer match in which only the goalie protects the goal. Without the help of the other team players, the goalie will not be able to adequately defend the goal, and the team will always lose. So too, everyone is needed on the Lord’s team.[^26]
 
-The final paragraph of the Young Women theme begins, “As I strive to qualify for exaltation, I cherish the gift of repentance and seek to improve each day.” Because of the Savior’s atoning sacrifice, we can repent, learn from our mistakes, and not be condemned by them. President Russell M. Nelson taught: “Too many people consider repentance as punishment. … But this feeling of being penalized is engendered by Satan. He tries to block us from looking to Jesus Christ, who stands with open arms, hoping and willing to heal, forgive, cleanse, strengthen, purify, and sanctify us.”[^27]
+The final paragraph of the Young Women theme begins, “As I strive to qualify for exaltation, I cherish the gift of repentance and seek to improve each day.” Because of the Savior’s atoning sacrifice, we can repent, learn from our mistakes, and not be condemned by them. President Russell M. Nelson taught: “Too many people consider repentance as punishment. … But this feeling of being penalized is engendered by Satan. He tries to block us from looking to Jesus Christ, who stands with open arms, hoping and willing to heal, forgive, cleanse, strengthen, purify, and sanctify us.”[^27]
 
 When we sincerely repent, no spiritual scar remains, no matter what we have done, how serious it was, or how many times we repeated it.[^28] As often as we repent and seek forgiveness with real intent, we can be forgiven.[^29] What a remarkable gift from our Savior, Jesus Christ![^30] The Holy Ghost can assure us that we have been forgiven. As we sense joy and peace,[^31] guilt is swept away,[^32] and we are no longer tormented by our sin.[^33]
 
@@ -51,29 +53,29 @@ I invite you to center your life on Jesus Christ and remember the foundational t
 
 
 
-[^1]: See Bonnie H. Cordon, “[[2019 October - Beloved Daughters.md|Beloved Daughters]],” *Ensign* or *Liahona*, Nov. 2019, 67; “[Young Women Theme](https://churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng),” ChurchofJesusChrist.org.
+[^1]: See Bonnie H. Cordon, “[[2019 October - Beloved Daughters.md|Beloved Daughters]],” *Ensign* or *Liahona*, Nov. 2019, 67; “[Young Women Theme](https://www.churchofjesuschrist.org/study/manual/young-women-theme/young-women-theme?lang=eng),” ChurchofJesusChrist.org.
 
-[^2]: See also “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
+[^2]: See also “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng&id=title1#title1),” ChurchofJesusChrist.org.
 
 [^3]: See [[Romans 8.35|Romans 8:35, 38–39]][[Romans 8.38|]][[Romans 8.39|]].
 
 [^4]: See [[Galatians 5.22|Galatians 5:22]].
 
-[^5]: Richard G. Scott, “[[2009 October - To Acquire Spiritual Guidance.md|To Acquire Spiritual Guidance]],” *Ensign* or *Liahona*, Nov. 2009, 8. The jalapeño is a medium-sized chili pepper pod of the species *Capsicum annuum*.
+[^5]: Richard G. Scott, “[[2009 October - To Acquire Spiritual Guidance.md|To Acquire Spiritual Guidance]],” *Ensign* or *Liahona*, Nov. 2009, 8. The jalapeño is a medium-sized chili pepper pod of the species *Capsicum annuum*.
 
 [^6]: See [[Mosiah 2.36|Mosiah 2:36]].
 
-[^7]: See Gospel Topics, “[Heavenly Parents](https://churchofjesuschrist.org/study/manual/gospel-topics/heavenly-parents?lang=eng&id=series_title1#series_title1),” topics.ChurchofJesusChrist.org.
+[^7]: See Gospel Topics, “[Heavenly Parents](https://www.churchofjesuschrist.org/study/manual/gospel-topics/heavenly-parents?lang=eng&id=series_title1#series_title1),” topics.ChurchofJesusChrist.org.
 
-[^8]: Dallin H. Oaks, “[[1995 April - Apostasy and Restoration.md|Apostasy and Restoration]],” *Ensign*, May 1995, 87; see also [[D&C 131.1|Doctrine and Covenants 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]]; [[D&C 132.19|132:19]]. Women and men cannot be exalted without each other.
+[^8]: Dallin H. Oaks, “[[1995 April - Apostasy and Restoration.md|Apostasy and Restoration]],” *Ensign*, May 1995, 87; see also [[D&C 131.1|Doctrine and Covenants 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]]; [[D&C 132.19|132:19]]. Women and men cannot be exalted without each other.
 
-[^9]: See Gospel Topics, “[Heavenly Parents](https://churchofjesuschrist.org/study/manual/gospel-topics/heavenly-parents?lang=eng&id=series_title1#series_title1).” Another resource providing information on this subject is the Gospel Topics essay “[Mother in Heaven](https://churchofjesuschrist.org/study/manual/gospel-topics-essays/mother-in-heaven?lang=eng)” (topics.ChurchofJesusChrist.org).
+[^9]: See Gospel Topics, “[Heavenly Parents](https://www.churchofjesuschrist.org/study/manual/gospel-topics/heavenly-parents?lang=eng&id=series_title1#series_title1).” Another resource providing information on this subject is the Gospel Topics essay “[Mother in Heaven](https://www.churchofjesuschrist.org/study/manual/gospel-topics-essays/mother-in-heaven?lang=eng)” (topics.ChurchofJesusChrist.org).
 
-[^10]: Even sincere questions about partially revealed or unrevealed truths can lead us to look “beyond the mark” ([[Jacob 4.14|Jacob 4:14]]). In particular, we need to rely “wholly upon the merits of him who is mighty to save” ([[2 Nephi 31.19|2 Nephi 31:19]]), Jesus Christ. Suggesting the need for something more than what Jesus Christ offers effectively diminishes the scope and power of His infinite Atonement. In so doing we divert our attention from the ultimate “source \[to which we should\] look for a remission of \[our\] sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
+[^10]: Even sincere questions about partially revealed or unrevealed truths can lead us to look “beyond the mark” ([[Jacob 4.14|Jacob 4:14]]). In particular, we need to rely “wholly upon the merits of him who is mighty to save” ([[2 Nephi 31.19|2 Nephi 31:19]]), Jesus Christ. Suggesting the need for something more than what Jesus Christ offers effectively diminishes the scope and power of His infinite Atonement. In so doing we divert our attention from the ultimate “source \[to which we should\] look for a remission of \[our\] sins” ([[2 Nephi 25.26|2 Nephi 25:26]]).
 
-[^11]: [[3 Nephi 18.19|3 Nephi 18:19]].
+[^11]: [[3 Nephi 18.19|3 Nephi 18:19]].
 
-[^12]: See, for example, Russell M. Nelson, “[[2009 April - Lessons from the Lord’s Prayers.md|Lessons from the Lord’s Prayers]],” *Ensign* or *Liahona*, May 2009, 47.
+[^12]: See, for example, Russell M. Nelson, “[[2009 April - Lessons from the Lord’s Prayers.md|Lessons from the Lord’s Prayers]],” *Ensign* or *Liahona*, May 2009, 47.
 
 [^13]: [[Numbers 16.28|Numbers 16:28]].
 
@@ -81,21 +83,21 @@ I invite you to center your life on Jesus Christ and remember the foundational t
 
 [^15]: See [[D&C 28.2|Doctrine and Covenants 28:2–7]][[D&C 28.3|]][[D&C 28.4|]][[D&C 28.5|]][[D&C 28.6|]][[D&C 28.7|]].
 
-[^16]: See Gospel Topics, “[Heavenly Parents](https://churchofjesuschrist.org/study/manual/gospel-topics/heavenly-parents?lang=eng&id=series_title1#series_title1).”
+[^16]: See Gospel Topics, “[Heavenly Parents](https://www.churchofjesuschrist.org/study/manual/gospel-topics/heavenly-parents?lang=eng&id=series_title1#series_title1).”
 
 [^17]: [[D&C 88.32|Doctrine and Covenants 88:32]].
 
 [^18]: See [[D&C 130.20|Doctrine and Covenants 130:20–21]][[D&C 130.21|]].
 
-[^19]: See [[2 Nephi 2.5|2 Nephi 2:5, 16, 26–27]][[2 Nephi 2.16|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]].
+[^19]: See [[2 Nephi 2.5|2 Nephi 2:5, 16, 26–27]][[2 Nephi 2.16|]][[2 Nephi 2.26|]][[2 Nephi 2.27|]].
 
 [^20]: [[D&C 88.35|Doctrine and Covenants 88:35]].
 
-[^21]: See Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 101–4.
+[^21]: See Russell M. Nelson, “[[2021 April - Christ Is Risen; Faith in Him Will Move Mountains.md|Christ Is Risen; Faith in Him Will Move Mountains]],” *Liahona*, May 2021, 101–4.
 
 [^22]: See [[D&C 46.13|Doctrine and Covenants 46:13–14]][[D&C 46.14|]].
 
-[^23]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [4.1](https://churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=title2#title2), ChurchofJesusChrist.org.
+[^23]: See *General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints*, [4.1](https://www.churchofjesuschrist.org/study/manual/general-handbook/4-leadership-in-the-church-of-jesus-christ?lang=eng&id=title2#title2), ChurchofJesusChrist.org.
 
 [^24]: See [[Mosiah 18.9|Mosiah 18:9]].
 
@@ -103,9 +105,9 @@ I invite you to center your life on Jesus Christ and remember the foundational t
 
 [^26]: No one needs to do everything, but everyone who is willing can do something. Moreover, God can make the willing able, but He cannot or will not make the able willing.
 
-[^27]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
+[^27]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona*, May 2019, 67.
 
-[^28]: Joseph Smith taught: “There is never a time when the spirit is too old to approach God. All are within the reach of pardoning mercy. … This doctrine appears glorious, inasmuch as it exhibits the greatness of divine compassion and benevolence in the extent of the plan of human salvation. This glorious truth is well calculated to enlarge the understanding, and to sustain the soul under troubles, difficulties and distress” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 471). See also Boyd K. Packer, “[[2015 April - The Plan of Happiness.md|The Plan of Happiness]],” *Ensign* or *Liahona*, May 2015, 28.
+[^28]: Joseph Smith taught: “There is never a time when the spirit is too old to approach God. All are within the reach of pardoning mercy. … This doctrine appears glorious, inasmuch as it exhibits the greatness of divine compassion and benevolence in the extent of the plan of human salvation. This glorious truth is well calculated to enlarge the understanding, and to sustain the soul under troubles, difficulties and distress” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-41?lang=eng)* \[2007\], 471). See also Boyd K. Packer, “[[2015 April - The Plan of Happiness.md|The Plan of Happiness]],” *Ensign* or *Liahona*, May 2015, 28.
 
 [^29]: See [[Mosiah 26.29|Mosiah 26:29–30]][[Mosiah 26.30|]]; [[Moroni 6.8|Moroni 6:8]]; [[D&C 58.42|Doctrine and Covenants 58:42–43]][[D&C 58.43|]].
 
@@ -117,11 +119,11 @@ I invite you to center your life on Jesus Christ and remember the foundational t
 
 [^33]: See [[Alma 36.19|Alma 36:19]].
 
-[^34]: Richard G. Scott, “[[2013 October - Personal Strength through the Atonement of Jesus Christ.md|Personal Strength through the Atonement of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2013, 83. Consciously planning a sin with the callous plan to repent afterwards—in other words, preplanned repentance—is repugnant to the Lord. Those who do so “crucify to themselves the Son of God afresh” (see [[Hebrews 6.4|Hebrews 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]]). This warning should be considered: “For if we sin wilfully after that we have received the knowledge of the truth, there remaineth no more sacrifice for sins, but a certain fearful looking for of judgment and fiery indignation” ([[Hebrews 10.26|Hebrews 10:26–27]][[Hebrews 10.27|]]).
+[^34]: Richard G. Scott, “[[2013 October - Personal Strength through the Atonement of Jesus Christ.md|Personal Strength through the Atonement of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2013, 83. Consciously planning a sin with the callous plan to repent afterwards—in other words, preplanned repentance—is repugnant to the Lord. Those who do so “crucify to themselves the Son of God afresh” (see [[Hebrews 6.4|Hebrews 6:4–6]][[Hebrews 6.5|]][[Hebrews 6.6|]]). This warning should be considered: “For if we sin wilfully after that we have received the knowledge of the truth, there remaineth no more sacrifice for sins, but a certain fearful looking for of judgment and fiery indignation” ([[Hebrews 10.26|Hebrews 10:26–27]][[Hebrews 10.27|]]).
 
 [^35]: See [[Isaiah 58.12|Isaiah 58:12–14]][[Isaiah 58.13|]][[Isaiah 58.14|]].
 
-[^36]: Marcus Tullius Cicero, *Orator*, trans. H. M. Hubbell, chapter 34, section 120; in *Cicero* (1971), 5:395.
+[^36]: Marcus Tullius Cicero, *Orator*, trans. H. M. Hubbell, chapter 34, section 120; in *Cicero* (1971), 5:395.
 
 [^37]: See [[D&C 109.15|Doctrine and Covenants 109:15]].
 
@@ -131,8 +133,3 @@ I invite you to center your life on Jesus Christ and remember the foundational t
 
 [^40]: See [[D&C 84.36|Doctrine and Covenants 84:36–38]][[D&C 84.37|]][[D&C 84.38|]].
 
-
-
-
-
-#Agency #Divine_Nature #Heavenly_Mother #Heavenly_Parents #Love #Prophets #Repentance #Revelation #Young_Women

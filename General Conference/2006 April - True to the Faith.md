@@ -1,5 +1,7 @@
 # True to the Faith
 
+Robert D. Hales
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -72,11 +74,11 @@ I love the biblical account which follows:
 
 “The king arose very early in the morning, and went in haste unto the den of lions.
 
-“And when he came to the den, he cried with a lamentable voice … , O Daniel, … is thy God, whom thou servest continually, able to deliver thee from the lions?
+“And when he came to the den, he cried with a lamentable voice … , O Daniel, … is thy God, whom thou servest continually, able to deliver thee from the lions?
 
-“Then said Daniel unto the king, …
+“Then said Daniel unto the king, …
 
-“My God hath sent his angel, and hath shut the lions’ mouths, that they have not hurt me. …
+“My God hath sent his angel, and hath shut the lions’ mouths, that they have not hurt me. …
 
 “Then was the king exceeding glad. … Daniel was taken up out of the den, and no manner of hurt was found upon him, because he believed in his God.”[^11]
 
@@ -108,17 +110,17 @@ That each of us may do so is my humble prayer, in the name of Jesus Christ, amen
 
 
 
-[^1]: [[2 Nephi 15.20|2 Nephi 15:20]]; see also [[Isaiah 5.20|Isaiah 5:20]].
+[^1]: [[2 Nephi 15.20|2 Nephi 15:20]]; see also [[Isaiah 5.20|Isaiah 5:20]].
 
-[^2]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
+[^2]: [[1 Corinthians 10.13|1 Corinthians 10:13]].
 
 [^3]: In John Bartlett, comp., *Familiar Quotations,* 14th ed. (1968), 409.
 
-[^4]: In Conference Report, Oct. 2000, 68; or *Ensign,* Nov. 2000, 51.
+[^4]: In Conference Report, Oct. 2000, [[2000 October - “Great Shall Be the Peace of Thy Children”.md|68]]; or *Ensign,* Nov. 2000, 51.
 
 [^5]: [[D&C 50.23|D&C 50:23]].
 
-[^6]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]].
+[^6]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]].
 
 [^7]: [[D&C 19.35|D&C 19:35]].
 
@@ -130,9 +132,7 @@ That each of us may do so is my humble prayer, in the name of Jesus Christ, amen
 
 [^11]: [[Daniel 6.19|Daniel 6:19–23]][[Daniel 6.20|]][[Daniel 6.21|]][[Daniel 6.22|]][[Daniel 6.23|]].
 
-[^12]: See [[1 Samuel 2.30|1 Samuel 2:30]].
+[^12]: See [[1 Samuel 2.30|1 Samuel 2:30]].
 
+[^13]: “True to the Faith,” *Hymns,* no. 254.
 
-
-
-#Addiction #Financial_Management #Media #Morality #Temptation #Word_Of_Wisdom

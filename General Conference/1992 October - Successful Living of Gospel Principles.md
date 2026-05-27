@@ -1,5 +1,7 @@
 # Successful Living of Gospel Principles
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -18,7 +20,7 @@ Michael Hirsley, who writes for the *Chicago Tribune,* recently observed that pr
 
 The actual signs of the times are threatening. Where will they lead? I, for one, am concerned.
 
-Previous periods of moral decline brought forth divine attention. In past times, as at present, prophets of God have delivered a voice of warning. The Lord said to Ezekiel, “I have made thee a watchman unto the house of Israel: therefore hear the word … , and give them warning from me” ([[Ezekiel 3.17|Ezek. 3:17]]).
+Previous periods of moral decline brought forth divine attention. In past times, as at present, prophets of God have delivered a voice of warning. The Lord said to Ezekiel, “I have made thee a watchman unto the house of Israel: therefore hear the word … , and give them warning from me” ([[Ezekiel 3.17|Ezek. 3:17]]).
 
 From what we are witnessing happening in the world around us, I am impressed today to raise a voice of warning for mankind to prepare—by repentance—for the great day of the Lord (see [[D&C 1.11|D&C 1:11–12]][[D&C 1.12|]]).
 
@@ -30,23 +32,23 @@ The people then rushed forward in horror, forcing the dog’s mouth open to resc
 
 We see around us daily that which is portrayed in this parable. We sit idly by, watching as an insidious stream of profanity, vulgarity, and demeaning behavior, a mocking of righteous ideals and principles, invades our homes and lives through most types of media, teaching our children negative values and moral corruption. We then become upset when our children perform differently than we would wish, and social behavior continues to deteriorate.
 
-One newspaper headline reads, “The Battle Lines Are Clearly Drawn for America’s … Cultural War.” The article then asks: “Who determines ‘the norms by which we live … and govern ourselves’\[?\] Who decides what is right and wrong, moral and immoral, beautiful and ugly … ? Whose beliefs shall form the basis of law? …
+One newspaper headline reads, “The Battle Lines Are Clearly Drawn for America’s … Cultural War.” The article then asks: “Who determines ‘the norms by which we live … and govern ourselves’\[?\] Who decides what is right and wrong, moral and immoral, beautiful and ugly … ? Whose beliefs shall form the basis of law? …
 
-“Our \[cultural challenge\] is about ‘who we are’ and ‘what we believe’” (Patrick J. Buchanan, *Salt Lake Tribune,* 13 Sept. 1992, sec. A, p. 15).
+“Our \[cultural challenge\] is about ‘who we are’ and ‘what we believe’” (Patrick J. Buchanan, *Salt Lake Tribune,* 13 Sept. 1992, sec. A, p. 15).
 
 Cal Thomas of the *Los Angeles Times* wrote that some see “the state as either equal or superior to God in human affairs. Theirs is an uninvolved god who trickles down blessings when we want them, but whose commands are to be ignored when he asks us to do something we don’t want to do.
 
 “The fact is that our laws came from a standard of righteousness that was thought to promote the common good, or ‘general welfare.’ … That standard has been abandoned as biblical illiteracy has flourished, thanks in part to the state’s antipathy toward immutable and eternal truths.
 
-“William Penn warned, ‘If we are not governed by God, then we will be ruled by tyrants.’ One’s view of God and his requirements for our personal lives determines one’s view of the role of the state in public life. …
+“William Penn warned, ‘If we are not governed by God, then we will be ruled by tyrants.’ One’s view of God and his requirements for our personal lives determines one’s view of the role of the state in public life. …
 
 “Benjamin Franklin … observed that if a sparrow cannot fall to the ground without God’s knowledge, ‘can an empire rise without his aid?’
 
-“The late philosopher-theologian Francis Schaeffer wrote that ‘God has ordained the state as a *delegated* authority; it is not autonomous. The state is to be an agent of justice, to restrain evil by punishing the wrongdoer, and to protect the good in society. When it does the reverse, *it has no proper authority.* It is then a usurped authority and as such it becomes lawless and is tyranny.’ …
+“The late philosopher-theologian Francis Schaeffer wrote that ‘God has ordained the state as a *delegated* authority; it is not autonomous. The state is to be an agent of justice, to restrain evil by punishing the wrongdoer, and to protect the good in society. When it does the reverse, *it has no proper authority.* It is then a usurped authority and as such it becomes lawless and is tyranny.’ …
 
-“This is what the culture war is about. It is a conflict between those who recognize an … existing God who has spoken about the order of the universe, the purpose of the state and the plan for individual lives and those who think those instructions are unclear, or open to interpretation, or that God is irrelevant to the debate or doesn’t exist and we are on our own. …
+“This is what the culture war is about. It is a conflict between those who recognize an … existing God who has spoken about the order of the universe, the purpose of the state and the plan for individual lives and those who think those instructions are unclear, or open to interpretation, or that God is irrelevant to the debate or doesn’t exist and we are on our own. …
 
-“\[Thirty years ago\] students could still pray and read the Bible in school, abortion was illegal and ‘gay rights’ meant the right to be happy. … The issue now is whether we will become our own god” (Cal Thomas, *Salt Lake Tribune,* 18 Sept. 1992, sec. A, p. 18).
+“\[Thirty years ago\] students could still pray and read the Bible in school, abortion was illegal and ‘gay rights’ meant the right to be happy. … The issue now is whether we will become our own god” (Cal Thomas, *Salt Lake Tribune,* 18 Sept. 1992, sec. A, p. 18).
 
 No wonder Isaiah, speaking under inspiration, declared, “Neither are your ways my ways, saith the Lord” ([[Isaiah 55.8|Isa. 55:8]]).
 
@@ -66,17 +68,17 @@ What was their purpose? What was their motive? Not for the gold in California, b
 
 There was little inviting in this endeavor except faith. In fact, they had been warned that nothing would grow—now farms, cities, and towns flourish. They were builders, not destroyers. They had a majestic dream of great things and lofty ideals: of homes and gardens, temples and meetinghouses, schools and universities. It would take work—hard work—and everyone’s best efforts to make it happen. They became experienced colonizers and benefactors to our nation and to humanity. Many of us are a product of that early inspired colonization—its teachings and blessings of the value of hard work coupled with desire and faith for a better way of life.
 
-The depth of their faith in a living God and their loyalty and obedience, as well as their solid foundation of righteousness, inspire us today. They believed that they had started on their way toward perfection—a process to be pursued laboriously throughout a lifetime. President Kimball declared, “\[But\] to each person is given a pattern—obedience through suffering, and perfection through obedience” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 168).
+The depth of their faith in a living God and their loyalty and obedience, as well as their solid foundation of righteousness, inspire us today. They believed that they had started on their way toward perfection—a process to be pursued laboriously throughout a lifetime. President Kimball declared, “\[But\] to each person is given a pattern—obedience through suffering, and perfection through obedience” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], p. 168).
 
 Their pathway was straight, uncluttered, unbending: they were to live the commandments of God and endure to the end. Today, we know how we should live. We know right from wrong.
 
 We are to teach and train our children in the ways of the Lord. Children should not be left to their own devices in learning character and family values, or in listening to and watching unsupervised music or television or movies as a means of gaining knowledge and understanding as to how to live their lives!
 
-The Lord has clearly commanded that parents are to teach their children to do good (see [[Alma 39.12|Alma 39:12]])—to teach them “the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, \[or\] the sin \[shall\] be upon the heads of the parents. …
+The Lord has clearly commanded that parents are to teach their children to do good (see [[Alma 39.12|Alma 39:12]])—to teach them “the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, \[or\] the sin \[shall\] be upon the heads of the parents. …
 
 “And they shall also teach their children to pray, and to walk uprightly before the Lord” ([[D&C 68.25|D&C 68:25, 28]][[D&C 68.28|]]).
 
-“And ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God. …
+“And ye will not suffer your children that they go hungry, or naked; neither will ye suffer that they transgress the laws of God. …
 
 “But ye will teach them to walk in the ways of truth and soberness; ye will teach them to love one another, and to serve one another” ([[Mosiah 4.14|Mosiah 4:14–15]][[Mosiah 4.15|]]).
 
@@ -91,8 +93,3 @@ The only sure way to protect ourselves and our families from the onslaught of th
 
 
 
-
-
-
-
-#Commitment #Obedience

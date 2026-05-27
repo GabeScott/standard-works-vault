@@ -1,5 +1,7 @@
 # As We Gather Together
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1995 General Conference*
@@ -25,8 +27,3 @@ I invoke the blessings of the Lord upon all who will speak, upon all who will si
 
 
 
-
-
-
-
-#Church_Growth #General_Conference #Testimony

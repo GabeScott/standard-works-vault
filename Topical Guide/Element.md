@@ -1,6 +1,5 @@
 # Element
 
-
 in bondage under the *elements* of the world, [[Galatians 4.3|Galatians 4:3]].
 
 how turn ye again to the weak and beggarly *elements*, [[Galatians 4.9|Galatians 4:9]].

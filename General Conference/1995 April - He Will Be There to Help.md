@@ -1,5 +1,7 @@
 # He Will Be There to Help
 
+Thomas S. Monson
+
 By Hilarie Cole - *West Jordan Eighth Ward, West Jordan Utah Stake*
 
 *Given in the April session of the 1995 General Conference*
@@ -23,8 +25,3 @@ No matter where you live or what kind of family you come from, Heavenly Father l
 
 
 
-
-
-
-
-#Adversity #Disabilities #Scripture_Study

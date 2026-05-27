@@ -1,6 +1,5 @@
 # Poor
 
-
 *See also* [[Afflicted.md|Afflicted]]; [[Almsgiving.md|Almsgiving]]; [[Charity.md|Charity]]; [[Consecration.md|Consecration]]; [[Destitute.md|Destitute]]; [[Generosity.md|Generosity]]; [[Needy.md|Needy]]; [[Poor in Spirit.md|Poor in Spirit]]; [[Welfare.md|Welfare]]; [[Widows.md|Widows]]
 
 lend money to any of my people that is *poor*, [[Exodus 22.25|Exodus 22:25]].
@@ -11,7 +10,7 @@ if he be *poor*, and cannot get so much, [[Leviticus 14.21|Leviticus 14:21]].
 
 leave them for the *poor*, [[Leviticus 19.10|Leviticus 19:10]] ([[Leviticus 23.22|Leviticus 23:22]]).
 
-not ... shut thine hand from thy *poor* brother, [[Deuteronomy 15.7|Deuteronomy 15:7]].
+not … shut thine hand from thy *poor* brother, [[Deuteronomy 15.7|Deuteronomy 15:7]].
 
 Lord maketh *poor*, and maketh rich, [[1 Samuel 2.7|1 Samuel 2:7]].
 
@@ -53,7 +52,7 @@ bring the *poor* that are cast out to thy house, [[Isaiah 58.7|Isaiah 58:7]].
 
 to him that is *poor* and of a contrite spirit, [[Isaiah 66.2|Isaiah 66:2]].
 
-neither did she strengthen the ... *poor*, [[Ezekiel 16.49|Ezekiel 16:49]].
+neither did she strengthen the … *poor*, [[Ezekiel 16.49|Ezekiel 16:49]].
 
 have vexed the *poor* and needy, [[Ezekiel 22.29|Ezekiel 22:29]].
 
@@ -61,11 +60,11 @@ by shewing mercy to the *poor*, [[Daniel 4.27|Daniel 4:27]].
 
 *poor* have the gospel preached to them, [[Matthew 11.5|Matthew 11:5]] ([[Luke 7.22|Luke 7:22]]).
 
-If thou wilt be perfect ... give to the *poor*, [[Matthew 19.21|Matthew 19:21]] ([[Mark 10.21|Mark 10:21]]; [[Luke 18.22|Luke 18:22]]).
+If thou wilt be perfect … give to the *poor*, [[Matthew 19.21|Matthew 19:21]] ([[Mark 10.21|Mark 10:21]]; [[Luke 18.22|Luke 18:22]]).
 
 sold for much, and given to the *poor*, [[Matthew 26.9|Matthew 26:9]] ([[Mark 14.5|Mark 14:5]]; [[John 12.5|John 12:5]]).
 
-certain *poor* widow, and she threw in two mites, [[Mark 12.42|Mark 12:42]] ([[Luke 21.2|Luke 21:2-3]][[Luke 21.3|]]).
+certain *poor* widow, and she threw in two mites, [[Mark 12.42|Mark 12:42]].
 
 ye have the *poor* with you always, [[Mark 14.7|Mark 14:7]].
 
@@ -105,7 +104,7 @@ are we not all *beggars*, [[Mosiah 4.19|Mosiah 4:19]].
 
 impart of your substance to the *poor*, [[Mosiah 4.26|Mosiah 4:26]] ([[D&C 42.31|D&C 42:31]]; [[D&C 105.3|D&C 105:3]]).
 
-they did impart of their substance ... to the *poor*, [[Alma 1.27|Alma 1:27]].
+they did impart of their substance … to the *poor*, [[Alma 1.27|Alma 1:27]].
 
 imparting their substance to the *poor* and the needy, [[Alma 4.13|Alma 4:13]].
 
@@ -115,19 +114,19 @@ began to have success among the *poor*, [[Alma 32.2|Alma 32:2]].
 
 *poor* as to things of the world, [[Alma 32.3|Alma 32:3]].
 
-if ye turn away the *needy* ... prayer is vain, [[Alma 34.28|Alma 34:28]].
+if ye turn away the *needy* … prayer is vain, [[Alma 34.28|Alma 34:28]].
 
 because of their oppression to the *poor*, [[Helaman 4.12|Helaman 4:12]].
 
 do alms unto the *poor*, [[3 Nephi 13.1|3 Nephi 13:1]].
 
-ye do love money ... more than ye love the *poor*, [[Mormon 8.37|Mormon 8:37]].
+ye do love money … more than ye love the *poor*, [[Mormon 8.37|Mormon 8:37]].
 
 *poor* and the meek shall have the gospel, [[D&C 35.15|D&C 35:15]].
 
 thou wilt remember the *poor*, [[D&C 42.30|D&C 42:30]] ([[D&C 42.39|D&C 42:39]]; [[D&C 52.40|D&C 52:40]]).
 
-consecrate of the riches ... unto the *poor*, [[D&C 42.39|D&C 42:39]].
+consecrate of the riches … unto the *poor*, [[D&C 42.39|D&C 42:39]].
 
 that will not give your substance to the *poor*, [[D&C 56.16|D&C 56:16]].
 
@@ -137,16 +136,14 @@ blessed are the *poor* who are pure in heart, [[D&C 56.18|D&C 56:18]].
 
 feast of fat things might be prepared for the *poor*, [[D&C 58.8|D&C 58:8]].
 
-*poor* ... come in unto the marriage of the Lamb, [[D&C 58.11|D&C 58:11]].
+*poor* … come in unto the marriage of the Lamb, [[D&C 58.11|D&C 58:11]].
 
 widows and orphans shall be provided for, as also the *poor*, [[D&C 83.6|D&C 83:6]].
 
-if any man shall give ... a coat, or a suit ... cast it unto the *poor*, [[D&C 84.105|D&C 84:105]].
+if any man shall give … a coat, or a suit … cast it unto the *poor*, [[D&C 84.105|D&C 84:105]].
 
 *poor* and the meek of the earth shall inherit it, [[D&C 88.17|D&C 88:17]].
 
-in mine own way ... the *poor* shall be exalted, [[D&C 104.16|D&C 104:16]].
+in mine own way … the *poor* shall be exalted, [[D&C 104.16|D&C 104:16]].
 
 there was no *poor* among them, [[Moses 7.18|Moses 7:18]].
-
-*See also* [[Deuteronomy 24.19|Deuteronomy 24:19]]; [[Matthew 5.42|Matthew 5:42]]; [[Matthew 6.1|Matthew 6:1]]; [[Matthew 25.35|Matthew 25:35]]; [[Luke 16.20|Luke 16:20]]; [[Jacob 2.19|Jacob 2:19]]; [[Alma 1.30|Alma 1:30]].

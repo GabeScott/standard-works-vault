@@ -1,5 +1,7 @@
 # The Gift of Agency
 
+Robert D. Hales
+
 By Elder Wolfgang H. Paul - *Of the Seventy*
 
 *Given in the April session of the 2006 General Conference*
@@ -47,7 +49,7 @@ Of this I testify, in the name of Jesus Christ, amen.
 
 
 
-[^1]: [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]].
+[^1]: [[2 Nephi 2.26|2 Nephi 2:26–27]][[2 Nephi 2.27|]].
 
 [^2]: *Deseret News,* Oct. 10, 1866, 355.
 
@@ -57,8 +59,3 @@ Of this I testify, in the name of Jesus Christ, amen.
 
 [^5]: [[Moses 4.2|Moses 4:2]].
 
-
-
-
-
-#Agency #Obedience #Plan_Of_Salvation

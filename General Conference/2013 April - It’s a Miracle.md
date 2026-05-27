@@ -1,6 +1,8 @@
 # It’s a Miracle
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -16,9 +18,9 @@ Can you imagine the scene of the eleven Apostles on the mountain near Galilee wh
 
 Faith overcame doubt, and Peter lifted his voice, saying:
 
-“All ye that dwell at Jerusalem, … hearken to my words: …
+“All ye that dwell at Jerusalem, … hearken to my words: …
 
-“… Jesus of Nazareth, … \[whom\] ye have taken, and by wicked hands have crucified and slain: …
+“… Jesus of Nazareth, … \[whom\] ye have taken, and by wicked hands have crucified and slain: …
 
 “This Jesus … God \[hath\] raised up, \[and\] we all are witnesses.”[^4]
 
@@ -32,13 +34,13 @@ The Savior reassured His Latter-day Saints,[^7] but could they foresee the reach
 
 Again, faith overcame doubt, and thousands were baptized. In England, Elder Wilford Woodruff found an entire community awaiting his arrival. The Spirit of the Lord fell upon them, and he baptized 45 preachers and several hundred members during his first month at Benbow farm.[^8]
 
-Our day is no different. When Elder David A. Bednar and I were missionaries approximately 40 years ago (and I can assure you that we are not the oldest of the returned missionaries sitting in the red chairs), there were 16,000 missionaries. As President Thomas S. Monson reported yesterday, we now have 65,000—more than ever before. There were then 562 stakes. Today there are more than 3,000. At that time, our wards and branches were in 59 countries. Today we have congregations in 189 of the 224 nations and territories of the world. We are few in number, just as Nephi foretold.[^9] But at the same time, you and I are eyewitnesses of Daniel’s prophetic words: the “stone … cut … without hands … \[is filling\] the whole earth.”[^10]
+Our day is no different. When Elder David A. Bednar and I were missionaries approximately 40 years ago (and I can assure you that we are not the oldest of the returned missionaries sitting in the red chairs), there were 16,000 missionaries. As President Thomas S. Monson reported yesterday, we now have 65,000—more than ever before. There were then 562 stakes. Today there are more than 3,000. At that time, our wards and branches were in 59 countries. Today we have congregations in 189 of the 224 nations and territories of the world. We are few in number, just as Nephi foretold.[^9] But at the same time, you and I are eyewitnesses of Daniel’s prophetic words: the “stone … cut … without hands … \[is filling\] the whole earth.”[^10]
 
 Our day is a remarkable time of miracles. Six months ago as President Monson announced the age change for young men and young women desiring to serve missions, there was an undeniable spiritual outpouring. Faith overcame doubt, and young men and women moved forward. The Thursday following conference, I was assigned to recommend missionary calls to the First Presidency. I was amazed to see the applications of 18-year-old men and 19-year-old women who had already adjusted their plans, visited their doctors, been interviewed by their bishops and stake presidents, and submitted their missionary applications—all in just five days. Thousands more have now joined them. It’s a miracle.
 
 We are grateful for the energizing faith of our sisters, the growing number of missionaries from countries across the world, and the increasing number of couples ready to serve. Fifty-eight new missions have been announced, and our bulging missionary training center in Provo has amazingly found a new companion in Mexico City.
 
-President Thomas S. Monson has said: “We take most seriously the Savior’s mandate … , ‘Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.’”[^11] “This … cause … will continue to go forth, changing and blessing lives. … No force in the entire world can stop the work of God.”[^12]
+President Thomas S. Monson has said: “We take most seriously the Savior’s mandate … , ‘Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.’”[^11] “This … cause … will continue to go forth, changing and blessing lives. … No force in the entire world can stop the work of God.”[^12]
 
 We are witnessing the miracles of the Lord as His gospel is spreading across the world.
 
@@ -107,21 +109,21 @@ I testify that “the voice of the Lord \[shall be\] unto the ends of the earth,
 
 [^8]: See *Teachings of Presidents of the Church: Wilford Woodruff* (2004), 89–92.
 
-[^9]: See [[1 Nephi 14.12|1 Nephi 14:12]].
+[^9]: See [[1 Nephi 14.12|1 Nephi 14:12]].
 
 [^10]: [[Daniel 2.34|Daniel 2:34–35]][[Daniel 2.35|]].
 
-[^11]: Thomas S. Monson, “Welcome to Conference,” *Ensign* or *Liahona,* May 2009, 5.
+[^11]: Thomas S. Monson, “Welcome to Conference,” *Ensign* or *Liahona,* May 2009, 5.
 
-[^12]: Thomas S. Monson, “As We Gather Once Again,” *Ensign* or *Liahona,* May 2012, 4.
+[^12]: Thomas S. Monson, “As We Gather Once Again,” *Ensign* or *Liahona,* May 2012, 4.
 
-[^13]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^13]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
-[^14]: See Clayton M. Christensen, *The Power of Everyday Missionaries: The What and How of Sharing the Gospel* (2013).
+[^14]: See Clayton M. Christensen, *The Power of Everyday Missionaries: The What and How of Sharing the Gospel* (2013).
 
-[^15]: Thomas S. Monson, “Welcome to Conference,” *Ensign* or *Liahona,* Nov. 2009, 6.
+[^15]: Thomas S. Monson, “Welcome to Conference,” *Ensign* or *Liahona,* Nov. 2009, 6.
 
-[^16]: [[1 Peter 3.15|1 Peter 3:15]].
+[^16]: [[1 Peter 3.15|1 Peter 3:15]].
 
 [^17]: They observe long-held truths being redefined or ignored; see [[D&C 1.16|Doctrine and Covenants 1:16]]; see also [[D&C 132.8|Doctrine and Covenants 132:8]].
 
@@ -129,9 +131,9 @@ I testify that “the voice of the Lord \[shall be\] unto the ends of the earth,
 
 [^19]: [[Amos 8.12|Amos 8:12]].
 
-[^20]: The Prophet Joseph Smith said: “Have the Presbyterians any truth? Yes. Have the Baptists, Methodists, etc., any truth? Yes. … We should gather all the good and true principles in the world and treasure them up” (*History of the Church,* 5:517). “We don’t ask any people to throw away any good they have … ; we only ask them to come and get more. What if all the world should embrace this Gospel? They would then see eye to eye, and the blessings of God would be poured out upon the people, which is the desire of my whole soul” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 155). President Gordon B. Hinckley said: “Let me say that we appreciate the truth in all churches and the good which they do. We say to the people, in effect, you bring with you all the good that you have, and then let us see if we can add to it. That is the spirit of this work. That is the essence of our missionary service” (“Excerpts from Recent Addresses of President Gordon B. Hinckley,” *Ensign,* Aug. 1998, 72; “Words of the Living Prophet,” *Liahona,* Apr. 1999, 19). “We must be a friendly people. We must recognize the good in all people. We don’t go about tearing down other churches. We preach and teach in a positive and affirmative way. We say to those of other faiths, ‘you bring with you all the good that you have and let us see if we can add to it.’ That is essentially the essence of our great missionary program and it yields results” (“Messages of Inspiration from President Hinckley,” *Church News,* Nov. 7, 1998, 2; see [ldschurchnews.com](https://www.thechurchnews.com)).
+[^20]: The Prophet Joseph Smith said: “Have the Presbyterians any truth? Yes. Have the Baptists, Methodists, etc., any truth? Yes. … We should gather all the good and true principles in the world and treasure them up” (*History of the Church,* 5:517). “We don’t ask any people to throw away any good they have … ; we only ask them to come and get more. What if all the world should embrace this Gospel? They would then see eye to eye, and the blessings of God would be poured out upon the people, which is the desire of my whole soul” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 155). President Gordon B. Hinckley said: “Let me say that we appreciate the truth in all churches and the good which they do. We say to the people, in effect, you bring with you all the good that you have, and then let us see if we can add to it. That is the spirit of this work. That is the essence of our missionary service” (“Excerpts from Recent Addresses of President Gordon B. Hinckley,” *Ensign,* Aug. 1998, 72; “Words of the Living Prophet,” *Liahona,* Apr. 1999, 19). “We must be a friendly people. We must recognize the good in all people. We don’t go about tearing down other churches. We preach and teach in a positive and affirmative way. We say to those of other faiths, ‘you bring with you all the good that you have and let us see if we can add to it.’ That is essentially the essence of our great missionary program and it yields results” (“Messages of Inspiration from President Hinckley,” *Church News,* Nov. 7, 1998, 2; see [ldschurchnews.com](https://www.thechurchnews.com)).
 
-[^21]: [[3 Nephi 18.24|3 Nephi 18:24]].
+[^21]: [[3 Nephi 18.24|3 Nephi 18:24]].
 
 [^22]: See [[D&C 84.85|Doctrine and Covenants 84:85]]; [[D&C 100.6|100:6]].
 
@@ -147,18 +149,13 @@ I testify that “the voice of the Lord \[shall be\] unto the ends of the earth,
 
 [^28]: Telephone conversation with Jackson Haight on March 22, 2013.
 
-[^29]: Personal email from President Paulo V. Kretly, March 6, 2013.
+[^29]: Personal email from President Paulo V. Kretly, March 6, 2013.
 
-[^30]: Photos provided by President Paulo V. Kretly. The first group was from Maputo; they were married on November 30, 2012, and baptized on December 1, 2012. The second group was from Beira; they were married on March 1, 2013, and baptized on March 2, 2013.
+[^30]: Photos provided by President Paulo V. Kretly. The first group was from Maputo; they were married on November 30, 2012, and baptized on December 1, 2012. The second group was from Beira; they were married on March 1, 2013, and baptized on March 2, 2013.
 
-[^31]: Personal email from President Paulo V. Kretly, March 6, 2013.
+[^31]: Personal email from President Paulo V. Kretly, March 6, 2013.
 
 [^32]: [[D&C 1.4|Doctrine and Covenants 1:4–5]][[D&C 1.5|]].
 
 [^33]: [[D&C 1.11|Doctrine and Covenants 1:11]].
 
-
-
-
-
-#Missionary_Work

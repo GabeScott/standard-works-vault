@@ -1,5 +1,7 @@
 # Building the Kingdom
 
+Gordon B. Hinckley
+
 By Elder Bruce D. Porter - *Of the Seventy*
 
 *Given in the April session of the 2001 General Conference*
@@ -56,8 +58,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Children #Church_Growth #Faith #Family #Holy_Ghost #Home #Humility #Kingdom_Of_God #Teaching

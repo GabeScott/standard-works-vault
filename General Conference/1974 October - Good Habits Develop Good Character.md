@@ -1,16 +1,18 @@
 # Good Habits Develop Good Character
 
-By Elder Delbert L. Stapley - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Delbert L. Stapley - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1974/10/good-habits-develop-good-character?lang=eng)
 
-My beloved brothers, sisters, and friends, in the recent June Conference President Spencer W. Kimball counseled young people, leaders of youth, and all Church members to take a careful inventory of their habits. “Change,” he said, “comes by substituting good habits for less desirable ones.” Then he added, “You mold your character and future by good thoughts and acts.” (*New Era,* Sept. 1974, p. 7.)
+My beloved brothers, sisters, and friends, in the recent June Conference President Spencer W. Kimball counseled young people, leaders of youth, and all Church members to take a careful inventory of their habits. “Change,” he said, “comes by substituting good habits for less desirable ones.” Then he added, “You mold your character and future by good thoughts and acts.” (*New Era,* Sept. 1974, p. 7.)
 
 I will discuss the importance of good habits in building good character.
 
-A favorite saying often quoted by the late President David O. McKay was “We sow our thoughts, and we reap our actions; we sow our actions, and we reap our habits; we sow our habits, and we reap our characters; we sow our characters, and we reap our destiny.” (C. A. Hall, *The Home Book of Quotations,* New York: Dodd, Mead & Company, 1935, p. 845.)
+A favorite saying often quoted by the late President David O. McKay was “We sow our thoughts, and we reap our actions; we sow our actions, and we reap our habits; we sow our habits, and we reap our characters; we sow our characters, and we reap our destiny.” (C. A. Hall, *The Home Book of Quotations,* New York: Dodd, Mead & Company, 1935, p. 845.)
 
 The future we seek as Latter-day Saints is a life motivated by good thoughts, expressed in good works, and sustained by an inner peace and determination of righteous doing. The destiny we desire is an inheritance in the celestial mansions prepared by our Savior for the faithful of God’s children.
 
@@ -40,7 +42,7 @@ Bad habits are a reflection of our thoughts and personalities, our behavior and 
 
 Someone has observed, “When a man boasts of his bad habits, you may rest assured they are the best he has.”
 
-Lehi, an early American prophet, speaking to his people said, “Men are instructed sufficiently that they know good from evil.” ([[2 Nephi 2.5|2 Ne. 2:5]].)
+Lehi, an early American prophet, speaking to his people said, “Men are instructed sufficiently that they know good from evil.” ([[2 Nephi 2.5|2 Ne. 2:5]].)
 
 In this mortal life we have two choices: the good, which is the desire of our Heavenly Father; or the evil, which is Satan’s plan and constant persuasion.
 
@@ -58,7 +60,7 @@ The Lord can and will make us equal to the task if we earnestly call upon him. A
 
 >I need thee every hour,
 >Most gracious Lord;
->· · · · ·
+>· · · · ·
 >
 >Stay thou near by;
 >Temptations lose their power
@@ -79,7 +81,7 @@ The Lord has counseled us to repent and walk uprightly before him. *Uprightly* i
 
 Let us dare to be different from the ways of the world when its ways are not the ways of God. In a world troubled with selfish greed, dishonesty, and dishonor, let us set ourselves on a higher path, striving to develop and strengthen the qualities of unselfish service with wholehearted effort, dependability, honesty, morality, and every other good attribute that would lead us to integrity of character. We begin, then, with our thoughts and end with our eternal destiny. Our destiny is determined by our character, and our character is the sum and expression of our habits. Character is won by hard work.
 
-Ernest L. Wilkinson, speaking to the students of Brigham Young University, said: “Character … is not something to be obtained by ease and indolence or being socially agreeable. It cannot be acquired by absorption or by proxy or on the auction block. It is a reward derived from honest toil in overcoming difficulties. We grow by mastering tasks which others consider impossible.”
+Ernest L. Wilkinson, speaking to the students of Brigham Young University, said: “Character … is not something to be obtained by ease and indolence or being socially agreeable. It cannot be acquired by absorption or by proxy or on the auction block. It is a reward derived from honest toil in overcoming difficulties. We grow by mastering tasks which others consider impossible.”
 
 Yes, the character required to attain eternal life must be formed in this life with good habits supplying the building material. When the qualities that are desirable in individuals become universal in the people of a nation, that nation also will have character. Goodness either in a person or in a nation is not simply the absence of wrongdoing. It is a love of and practice of all things that are true, honest, lovely, and of good report.
 
@@ -91,13 +93,8 @@ It all starts with a single step—we decide that *we can do it.*
 
 May we forsake all evil and take that first step to shape our lives for eternity through good habits and righteous standards of good character.
 
-I bear solemn witness to the value of good habits and praiseworthy character in the lives of people. The counsel quoted earlier given by our beloved prophet-leader, President Spencer W. Kimball, is very wise, timely, and needful for us to follow. This I testify to in the name of Jesus Christ our Lord. Amen.
+I bear solemn witness to the value of good habits and praiseworthy character in the lives of people. The counsel quoted earlier given by our beloved prophet-leader, President Spencer W. Kimball, is very wise, timely, and needful for us to follow. This I testify to in the name of Jesus Christ our Lord. Amen.
 
 
 
 
-
-
-
-
-#Character #Habits

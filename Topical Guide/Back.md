@@ -1,6 +1,5 @@
 # Back
 
-
 his wife looked *back* from behind him, [[Genesis 19.26|Genesis 19:26]].
 
 thou shalt see my *back* parts, [[Exodus 33.23|Exodus 33:23]].

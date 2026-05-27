@@ -1,5 +1,7 @@
 # The Message of the Restoration
 
+Thomas S. Monson
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2007 General Conference*
@@ -32,7 +34,7 @@ The dispensation of the fulness of times was ushered in by a very special vision
 
 “I saw a pillar of light exactly over my head, above the brightness of the sun, which descended gradually until it fell upon me.
 
-“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.16|Joseph Smith—History 1:16–17]][[Joseph Smith History 1.17|]]).
+“… When the light rested upon me I saw two Personages, whose brightness and glory defy all description, standing above me in the air. One of them spake unto me, calling me by name and said, pointing to the other—*This is My Beloved Son. Hear Him!*” ([[Joseph Smith History 1.16|Joseph Smith—History 1:16–17]][[Joseph Smith History 1.17|]]).
 
 This vision revealed unto us that God our Father and Jesus Christ, His Beloved Son, are two separate personages. Each has a body of flesh and bones that is glorified and perfected, thus clearing up the misconception that had been in existence for many centuries concerning the concept of God. Is it any wonder that when Joseph Smith wrote the Articles of Faith, in the first one he declared, “We believe in God, the Eternal Father, and in His Son, Jesus Christ, and in the Holy Ghost”? ([[Articles of Faith 1.1|Articles of Faith 1:1]]).
 
@@ -52,7 +54,7 @@ Knowing that doubt, disbelief, and misinformation would immediately follow the P
 
 The translation of the Book of Mormon is a miracle in itself and gives further proof of the book’s divine origin. When Oliver Cowdery arrived in Harmony, Pennsylvania, on April 5, 1829, to serve as the Prophet’s scribe, only a few pages of the final text had been translated. That evening Joseph and Oliver sat down together and discussed the Prophet’s experiences long into the night. Two days later, on April 7, they commenced the translation of the work. Over the next three months, Joseph translated at an amazing rate—approximately 500 printed pages in about 60 working days.
 
-Oliver wrote of this remarkable experience: “These were days never to be forgotten—to sit under the sound of a voice dictated by the *inspiration* of heaven, awakened the utmost gratitude of this bosom! Day after day I continued, uninterrupted, to write from his mouth, as he translated, with the *Urim* and *Thummim,* … the history, or record, called ‘The book of Mormon’” (*Messenger and Advocate,* Oct. 1834, 14; see also [[Joseph Smith History 1.71|Joseph Smith—History 1:71]], note).
+Oliver wrote of this remarkable experience: “These were days never to be forgotten—to sit under the sound of a voice dictated by the *inspiration* of heaven, awakened the utmost gratitude of this bosom! Day after day I continued, uninterrupted, to write from his mouth, as he translated, with the *Urim* and *Thummim,* … the history, or record, called ‘The book of Mormon’” (*Messenger and Advocate,* Oct. 1834, 14; see also [[Joseph Smith History 1.71|Joseph Smith—History 1:71]], note).
 
 ## The Priesthood
 
@@ -98,7 +100,7 @@ In the Bible, in the book of Ephesians, Paul declared:
 
 “But speaking the truth in love, may grow up into him in all things, which is the head, even Christ” ([[Ephesians 4.11|Ephesians 4:11–15]][[Ephesians 4.12|]][[Ephesians 4.13|]][[Ephesians 4.14|]][[Ephesians 4.15|]]).
 
-President Hinckley has said concerning the Restoration: “After many generations had walked the earth—so many of them in conflict, hatred, darkness, and evil—there arrived the great, new day of the Restoration. This glorious gospel was ushered in with the appearance of the Father and the Son to the boy Joseph. The dawn of the dispensation of the fulness of times rose upon the world. All of the good, the beautiful, the divine of all previous dispensations was restored in this most remarkable season” (in Conference Report, Apr. 2004, 84; or *Ensign,* May 2004, 83).
+President Hinckley has said concerning the Restoration: “After many generations had walked the earth—so many of them in conflict, hatred, darkness, and evil—there arrived the great, new day of the Restoration. This glorious gospel was ushered in with the appearance of the Father and the Son to the boy Joseph. The dawn of the dispensation of the fulness of times rose upon the world. All of the good, the beautiful, the divine of all previous dispensations was restored in this most remarkable season” (in Conference Report, Apr. 2004, [[2004 April - The Dawning of a Brighter Day.md|84]]; or *Ensign,* May 2004, 83).
 
 Our message is unique. We declare to the world that the fulness of the gospel of Jesus Christ has been restored to the earth. We declare with boldness that the keys of the priesthood have been restored to man, with the power to seal on earth and in the heavens. The saving ordinances pronounced by the Lord as requirements for entering into eternal life with Him can now be performed with binding authority by those who worthily exercise the power of His holy priesthood. We declare to the world that this is the day referred to by biblical prophets as the latter days. It is the final time, before the coming of Jesus Christ to rule and reign over the earth.
 
@@ -109,5 +111,3 @@ My witness to you is that this is the Church of Jesus Christ, established in the
 
 
 
-
-#Activation #Priesthood #Restoration #Service

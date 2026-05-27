@@ -1,7 +1,6 @@
 # Strength
 
-
-*See also* [[Arm.md|Arm]]; [[Courage, Courageous.md|Courage]]; [[Health.md|Health]]; [[Might.md|Might]]; [[Power, Powerful.md|Power]]; [[Priesthood, Power of.md|Priesthood, Power of]]; [[Strengthen.md|Strengthen]]; [[Strong, Stronger, Strongest.md|Strong]]
+*See also* [[Arm.md|Arm]]; [[Courage.md|Courage]]; [[Health.md|Health]]; [[Might.md|Might]]; [[Power.md|Power]]; [[Priesthood, Power of.md|Priesthood, Power of]]; [[Strengthen.md|Strengthen]]; [[Strong.md|Strong]]
 
 Lord is my *strength*, [[Exodus 15.2|Exodus 15:2]] ([[Psalms 19.14|Psalms 19:14]]; [[Psalms 27.1|Psalms 27:1]]; [[Psalms 118.14|Psalms 118:14]]; [[Isaiah 12.2|Isaiah 12:2]]; [[Isaiah 26.4|Isaiah 26:4]]; [[2 Nephi 22.2|2 Nephi 22:2]]).
 
@@ -33,19 +32,19 @@ there remained no *strength* in me, [[Daniel 10.8|Daniel 10:8]].
 
 I will destroy the *strength* of the kingdoms, [[Haggai 2.22|Haggai 2:22]].
 
-love the Lord ... with all thy *strength*, [[Mark 12.30|Mark 12:30]] ([[Luke 10.27|Luke 10:27]]).
+love the Lord … with all thy *strength*, [[Mark 12.30|Mark 12:30]] ([[Luke 10.27|Luke 10:27]]).
 
 He hath shewed *strength* with his arm, [[Luke 1.51|Luke 1:51]].
 
-when we were yet without *strength* ... Christ died, [[Romans 5.6|Romans 5:6]].
+when we were yet without *strength* … Christ died, [[Romans 5.6|Romans 5:6]].
 
 my *strength* is made perfect in weakness, [[2 Corinthians 12.9|2 Corinthians 12:9]].
 
-receive power ... and *strength*, [[Revelation 5.12|Revelation 5:12]].
+receive power … and *strength*, [[Revelation 5.12|Revelation 5:12]].
 
 Now is come salvation, and *strength*, [[Revelation 12.10|Revelation 12:10]].
 
-not ... run faster than he has *strength*, [[Mosiah 4.27|Mosiah 4:27]] ([[D&C 10.4|D&C 10:4]]).
+not … run faster than he has *strength*, [[Mosiah 4.27|Mosiah 4:27]] ([[D&C 10.4|D&C 10:4]]).
 
 in the *strength* of the Lord did we go forth, [[Mosiah 9.17|Mosiah 9:17]].
 
@@ -61,11 +60,11 @@ I have but the *strength* of a man, [[Moroni 9.18|Moroni 9:18]].
 
 love God with all your might, mind and *strength*, [[Moroni 10.32|Moroni 10:32]] ([[D&C 98.47|D&C 98:47]]).
 
-serve him with all your ... *strength*, [[D&C 4.2|D&C 4:2]].
+serve him with all your … *strength*, [[D&C 4.2|D&C 4:2]].
 
-keep my commandments, yea, with all your ... *strength*, [[D&C 11.20|D&C 11:20]].
+keep my commandments, yea, with all your … *strength*, [[D&C 11.20|D&C 11:20]].
 
-earth ... shall bring forth in its *strength*, [[D&C 59.3|D&C 59:3]].
+earth … shall bring forth in its *strength*, [[D&C 59.3|D&C 59:3]].
 
 *run* and not be weary, [[D&C 89.20|D&C 89:20]].
 

@@ -1,9 +1,8 @@
 # Faithful
 
-
 *See also* [[Faith.md|Faith]]; [[Faithfulness.md|Faithfulness]]
 
-Moses ... is *faithful* in all mine house, [[Numbers 12.7|Numbers 12:7]] ([[Hebrews 3.2|Hebrews 3:2]]).
+Moses … is *faithful* in all mine house, [[Numbers 12.7|Numbers 12:7]] ([[Hebrews 3.2|Hebrews 3:2]]).
 
 I will raise me up a *faithful* priest, [[1 Samuel 2.35|1 Samuel 2:35]].
 
@@ -49,7 +48,7 @@ hold out *faithful* to the end, [[Mosiah 2.41|Mosiah 2:41]] ([[D&C 6.13|D&C 6:13
 
 Search these commandments, for they are true and *faithful*, [[D&C 1.37|D&C 1:37]].
 
-whoso is found a *faithful* ... steward, [[D&C 51.19|D&C 51:19]].
+whoso is found a *faithful* … steward, [[D&C 51.19|D&C 51:19]].
 
 *faithful* in tribulation, [[D&C 58.2|D&C 58:2]].
 
@@ -61,8 +60,8 @@ fail not to continue *faithful*, [[D&C 84.80|D&C 84:80]].
 
 give unto the *faithful* line upon line, [[D&C 98.12|D&C 98:12]].
 
-prove ... that ye are *faithful*, [[D&C 124.55|D&C 124:55]].
+prove … that ye are *faithful*, [[D&C 124.55|D&C 124:55]].
 
-give her unto him that ... hath been *faithful*, [[D&C 132.44|D&C 132:44]].
+give her unto him that … hath been *faithful*, [[D&C 132.44|D&C 132:44]].
 
 *faithful* in the testimony of Jesus, [[D&C 138.12|D&C 138:12]].

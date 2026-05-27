@@ -1,5 +1,7 @@
 # What the Gospel Teaches
 
+Spencer W. Kimball
+
 By Elder LeGrand Richards - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
@@ -8,7 +10,7 @@ By Elder LeGrand Richards - *Of the Quorum of the Twelve Apostles*
 
 I am proud to be a member of this great church—The Church of Jesus Christ of Latter-day Saints. What an appropriate name for the true church of Christ to bear in this, the dispensation of the fulness of times. I love the Church because of what it teaches me.
 
-Some years ago during the war, Elder John A. Widtsoe went to the land of Great Britain to preside over the European Mission. When the immigration official saw his papers and who he was, he said, “Nothing doing. We have been letting your missionaries in, but we don’t want any of your leaders—go sit down.” So Brother Widtsoe went and sat down.
+Some years ago during the war, Elder John A. Widtsoe went to the land of Great Britain to preside over the European Mission. When the immigration official saw his papers and who he was, he said, “Nothing doing. We have been letting your missionaries in, but we don’t want any of your leaders—go sit down.” So Brother Widtsoe went and sat down.
 
 In a few minutes, he called him back and he said, “If I let you enter my country, what will you teach my countrymen?”
 
@@ -30,7 +32,7 @@ The Lord stood in the midst of the spirits before this world was created. He sai
 
 Then he adds: “And they who keep their first estate shall be added upon; and they who keep not their first estate shall not have glory in the same kingdom with those who keep their first estate; and they who keep their second estate shall have glory added upon their heads for ever and ever.” ([[Abraham 3.24|Abr. 3:24–26]][[Abraham 3.25|]][[Abraham 3.26|]].)
 
-I thank the Lord that my church teaches me that I kept my first estate in that spirit world or else I would have been cast down to this earth with Satan and a third of the hosts of heaven. And the cry went out: “Woe to the inhabiters of the earth … for the devil is come down unto you,” and he “walketh about, seeking whom he may devour.” ([[Revelation 12.12|Rev. 12:12]]; [[1 Peter 5.8|1 Pet. 5:8]].) And so the fact that I kept my first estate entitled me to all the beauties and the joys of this world that have been mentioned here in this meeting today. And it gave me the right to have this body—and maybe I can’t appreciate as much what that ought to mean to me as I do by reading the scriptures.
+I thank the Lord that my church teaches me that I kept my first estate in that spirit world or else I would have been cast down to this earth with Satan and a third of the hosts of heaven. And the cry went out: “Woe to the inhabiters of the earth … for the devil is come down unto you,” and he “walketh about, seeking whom he may devour.” ([[Revelation 12.12|Rev. 12:12]]; [[1 Peter 5.8|1 Pet. 5:8]].) And so the fact that I kept my first estate entitled me to all the beauties and the joys of this world that have been mentioned here in this meeting today. And it gave me the right to have this body—and maybe I can’t appreciate as much what that ought to mean to me as I do by reading the scriptures.
 
 Then we read of when Jesus cast the devils out of the man who was possessed. And he asked his name, and he said: “Legion,” because legions had entered into the man. And so eager were those devils to get a body that they asked permission to take possession of the bodies of the swine that were feeding in the field. And Jesus permitted it, and they ran off into the sea and were drowned, as I remember about two thousand of them. (See [[Mark 5.1|Mark 5:1–17]][[Mark 5.2|]][[Mark 5.3|]][[Mark 5.4|]][[Mark 5.5|]][[Mark 5.6|]][[Mark 5.7|]][[Mark 5.8|]][[Mark 5.9|]][[Mark 5.10|]][[Mark 5.11|]][[Mark 5.12|]][[Mark 5.13|]][[Mark 5.14|]][[Mark 5.15|]][[Mark 5.16|]][[Mark 5.17|]].) Just think how eager those spirits were to get a body, and because we kept our first estate we are now in our second estate.
 
@@ -40,7 +42,7 @@ I thank Him for the many beautiful truths, many of which have been proclaimed he
 
 Then I think of my children one by one (and I have over a hundred descendants!), and I see what they are accomplishing and the nobility of their lives, and I can hardly realize that I can be their daddy. I feel that that is nearer to becoming a god than anything else I can do here in mortality. And from the days of my youth and young manhood, I have tried to live before those children and descendants of mine so that if they walked in my footsteps they would be honoring their second estate and preparing themselves to have glory added upon their heads forever and forever.
 
-Then there are so many other beautiful principles of the gospel. When I first became a missionary, I never met anybody who believed in a personal God. My, what a joy to realize that Christ gave his life for us, and took upon him the sins of the world—as Paul said: “As in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]])—and to know that his Father is as real as my father, and that they have revealed themselves as two glorified personages in this dispensation, after centuries of darkness, unto the Prophet Joseph Smith. The Lord had him in waiting thousands of years ago, according to the Book of Mormon, for his day and time to come, to bring men to a knowledge of the truth and to bring forth his truth among the people of this world. These are great truths, and many more can be taught.
+Then there are so many other beautiful principles of the gospel. When I first became a missionary, I never met anybody who believed in a personal God. My, what a joy to realize that Christ gave his life for us, and took upon him the sins of the world—as Paul said: “As in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]])—and to know that his Father is as real as my father, and that they have revealed themselves as two glorified personages in this dispensation, after centuries of darkness, unto the Prophet Joseph Smith. The Lord had him in waiting thousands of years ago, according to the Book of Mormon, for his day and time to come, to bring men to a knowledge of the truth and to bring forth his truth among the people of this world. These are great truths, and many more can be taught.
 
 When I wrote the book *A Marvelous Work and a Wonder* as a missionary tool, I chose the statement of Isaiah when he said, “Forasmuch as this people draw near me with their mouth, and with their lips do honour me, but have removed their heart far from me, and their fear toward me is taught by the precept of men.” Then he goes on: “Therefore, behold, I \[the Lord\] will proceed to do a marvellous work among this people, even a marvellous work and a wonder: for the wisdom of their wise men shall perish, and the understanding of their prudent men shall be hid.” ([[Isaiah 29.13|Isa. 29:13–14]][[Isaiah 29.14|]].) The message of this great church is that marvelous work and a wonder that Isaiah saw would come forth when men would teach for doctrine the precepts of men.
 
@@ -105,8 +107,3 @@ I think my time is up. God bless you all. I love the Lord. I love his church. I 
 
 
 
-
-
-
-
-#Missionary_Work

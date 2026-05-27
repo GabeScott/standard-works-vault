@@ -1,6 +1,5 @@
 # Pitiful
 
-
 *See also* [[Pity.md|Pity]]
 
 *pitiful* women have sodden their own children, [[Lamentations 4.10|Lamentations 4:10]].

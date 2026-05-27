@@ -1,5 +1,7 @@
 # Ears to Hear
 
+Gordon B. Hinckley
+
 By Bishop Henry B. Eyring - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1985 General Conference*
@@ -39,8 +41,3 @@ God lives, Jesus is the Christ, Joseph Smith in fact saw God and His Son and rec
 
 
 
-
-
-
-
-#Listening #Service

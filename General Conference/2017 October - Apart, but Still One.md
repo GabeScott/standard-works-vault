@@ -1,6 +1,8 @@
 # Apart, but Still One
 
-By Elder Joni L. Koch - *Of the Seventy*
+Sharon Eubank
+
+By Elder Joni L. Koch - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -59,12 +61,7 @@ Brothers and sisters, I testify that as we decide to be one with the members and
 
 [^2]: [[Mosiah 18.21|Mosiah 18:21]].
 
-[^3]: See Milton V. Backman Jr., *The Heavens Resound: A History of the Latter-day Saints in Ohio, 1830–1838* (1983), 93–94.
+[^3]: See Milton V. Backman Jr., *The Heavens Resound: A History of the Latter-day Saints in Ohio, 1830–1838* (1983), 93–94.
 
 [^4]: [[John 17.21|John 17:21]].
 
-
-
-
-
-#Criticism #Unity

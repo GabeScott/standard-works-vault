@@ -1,6 +1,8 @@
 # Build a Fortress of Spirituality and Protection
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+Ulisses Soares
+
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -24,7 +26,7 @@ So it is with us. Our homes are fortresses against the evils of the world. In ou
 
 As we live with devotion born of faith in Jesus Christ, we will feel the peaceful presence of the Holy Ghost, who guides us to truth, inspires us to live worthy of the Lord’s blessings, and bears witness that God lives and loves us. All this within the fortress of our own homes. But remember, our homes are only as powerful as the spiritual strength of each one of us within the walls.
 
-President Russell M. Nelson has taught, “In coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^6] As the Lord’s living prophet, seer, and revelator in this day, the watchman on the tower of our fortress, The Church of Jesus Christ of Latter-day Saints, he sees the advances of the enemy.
+President Russell M. Nelson has taught, “In coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^6] As the Lord’s living prophet, seer, and revelator in this day, the watchman on the tower of our fortress, The Church of Jesus Christ of Latter-day Saints, he sees the advances of the enemy.
 
 Brothers and sisters, we are at war with Satan for the souls of men. The battle lines were drawn in our pre-earth life. Satan and a third of our Father in Heaven’s children turned away from His promises of exaltation. Since that time, the adversary’s minions have been fighting the faithful who choose the Father’s plan.
 
@@ -77,19 +79,19 @@ Our testimonies of the gospel of Jesus Christ, our homes, our families, and our 
 
 [^1]: [[D&C 1.38|Doctrine and Covenants 1:38]].
 
-[^2]: [[3 Nephi 17.3|3 Nephi 17:3]].
+[^2]: [[3 Nephi 17.3|3 Nephi 17:3]].
 
-[^3]: [[2 Nephi 28.20|2 Nephi 28:20]].
+[^3]: [[2 Nephi 28.20|2 Nephi 28:20]].
 
-[^4]: *Come, Follow Me—For Individuals and Families: New Testament 2019,* v.
+[^4]: *[Come, Follow Me—For Individuals and Families: New Testament 2019](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2019/intro?lang=eng),* v.
 
-[^5]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^5]: [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
-[^6]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
+[^6]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
 
-[^7]: [[1 Nephi 17.45|1 Nephi 17:45]].
+[^7]: [[1 Nephi 17.45|1 Nephi 17:45]].
 
-[^8]: [[2 Nephi 28.21|2 Nephi 28:21]].
+[^8]: [[2 Nephi 28.21|2 Nephi 28:21]].
 
 [^9]: “A Mighty Fortress Is Our God,” *Hymns,* no. 68.
 
@@ -105,9 +107,9 @@ Our testimonies of the gospel of Jesus Christ, our homes, our families, and our 
 
 [^15]: [[Alma 26.3|Alma 26:3]].
 
-[^16]: [[1 Nephi 3.4|1 Nephi 3:4]].
+[^16]: [[1 Nephi 3.4|1 Nephi 3:4]].
 
-[^17]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^17]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
 [^18]: [[D&C 46.7|Doctrine and Covenants 46:7]].
 
@@ -125,9 +127,9 @@ Our testimonies of the gospel of Jesus Christ, our homes, our families, and our 
 
 [^25]: [[D&C 25.10|Doctrine and Covenants 25:10]].
 
-[^26]: Russell M. Nelson, in Tad Walch, “President Nelson Refers to Apostles Peter, Paul during Rome Temple Dedication,” *Deseret News,* Mar. 10, 2019, deseretnews.com.
+[^26]: Russell M. Nelson, in Tad Walch, “President Nelson Refers to Apostles Peter, Paul during Rome Temple Dedication,” *Deseret News,* Mar. 10, 2019, deseretnews.com.
 
-[^27]: [[1 Peter 5.8|1 Peter 5:8]].
+[^27]: [[1 Peter 5.8|1 Peter 5:8]].
 
 [^28]: [[Ephesians 2.21|Ephesians 2:21]].
 
@@ -139,8 +141,3 @@ Our testimonies of the gospel of Jesus Christ, our homes, our families, and our 
 
 [^32]: “I’m Trying to Be like Jesus,” *Children’s Songbook,* 78.
 
-
-
-
-
-#Spirituality #Testimony

@@ -1,6 +1,5 @@
 # Jesus Christ, Lord
 
-
 *See also* [[Jesus Christ, Jehovah.md|Jesus Christ, Jehovah]]
 
 see the place where the *Lord* lay, [[Matthew 28.6|Matthew 28:6]].
@@ -11,7 +10,7 @@ a Saviour, which is Christ the *Lord*, [[Luke 2.11|Luke 2:11]].
 
 *Lord* turned, and looked upon Peter, [[Luke 22.61|Luke 22:61]].
 
-Mary ... anointed the *Lord*, [[John 11.2|John 11:2]].
+Mary … anointed the *Lord*, [[John 11.2|John 11:2]].
 
 taken away the *Lord* out of the sepulchre, [[John 20.2|John 20:2]].
 

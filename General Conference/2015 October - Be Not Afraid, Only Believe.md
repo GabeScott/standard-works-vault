@@ -1,6 +1,8 @@
 # Be Not Afraid, Only Believe
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Rosemary M. Wixom
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -129,7 +131,7 @@ I pray that each one of us—young and old—will find renewed strength, courage
 
 
 
-[^1]: Herodotus, *The History of Herodotus,* trans. George Rawlinson, 4 vols. (1875), 1:244.
+[^1]: Herodotus, *The History of Herodotus,* trans. George Rawlinson, 4 vols. (1875), 1:244.
 
 [^2]: Shadrach, Meshach, and Abed-nego were cast into a flaming furnace (see [[Daniel 3.1|Daniel 3]][[Daniel 3.2|]][[Daniel 3.3|]][[Daniel 3.4|]][[Daniel 3.5|]][[Daniel 3.6|]][[Daniel 3.7|]][[Daniel 3.8|]][[Daniel 3.9|]][[Daniel 3.10|]][[Daniel 3.11|]][[Daniel 3.12|]][[Daniel 3.13|]][[Daniel 3.14|]][[Daniel 3.15|]][[Daniel 3.16|]][[Daniel 3.17|]][[Daniel 3.18|]][[Daniel 3.19|]][[Daniel 3.20|]][[Daniel 3.21|]][[Daniel 3.22|]][[Daniel 3.23|]][[Daniel 3.24|]][[Daniel 3.25|]][[Daniel 3.26|]][[Daniel 3.27|]][[Daniel 3.28|]][[Daniel 3.29|]][[Daniel 3.30|]]).
 
@@ -157,10 +159,5 @@ I pray that each one of us—young and old—will find renewed strength, courage
 
 [^14]: [[John 4.14|John 4:14]].
 
-[^15]: See [[2 Nephi 2.25|2 Nephi 2:25]].
+[^15]: See [[2 Nephi 2.25|2 Nephi 2:25]].
 
-
-
-
-
-#Courage #Faith #Humility #Patience #Truth

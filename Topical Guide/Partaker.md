@@ -1,7 +1,6 @@
 # Partaker
 
-
-thou ... hast been *partaker* with adulterers, [[Psalms 50.18|Psalms 50:18]].
+thou … hast been *partaker* with adulterers, [[Psalms 50.18|Psalms 50:18]].
 
 *partakers* with them in the blood of the prophets, [[Matthew 23.30|Matthew 23:30]].
 
@@ -15,7 +14,7 @@ ye are *partakers* of the sufferings, [[2 Corinthians 1.7|2 Corinthians 1:7]].
 
 *partakers* of his promise in Christ, [[Ephesians 3.6|Ephesians 3:6]].
 
-neither be *partaker* of other men's sins, [[1 Timothy 5.22|1 Timothy 5:22]].
+neither be *partaker* of other men’s sins, [[1 Timothy 5.22|1 Timothy 5:22]].
 
 laboureth must be first *partaker* of the fruits, [[2 Timothy 2.6|2 Timothy 2:6]].
 
@@ -27,7 +26,7 @@ we are made *partakers* of Christ, [[Hebrews 3.14|Hebrews 3:14]].
 
 that we might be *partakers* of his holiness, [[Hebrews 12.10|Hebrews 12:10]].
 
-ye are *partakers* of Christ's sufferings, [[1 Peter 4.13|1 Peter 4:13]].
+ye are *partakers* of Christ’s sufferings, [[1 Peter 4.13|1 Peter 4:13]].
 
 ye might be *partakers* of the divine nature, [[2 Peter 1.4|2 Peter 1:4]].
 

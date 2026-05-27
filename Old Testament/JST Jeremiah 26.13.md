@@ -4,6 +4,3 @@
 
 [JST Jeremiah 26:13](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-jer/26?lang=eng)
 
-
-
-

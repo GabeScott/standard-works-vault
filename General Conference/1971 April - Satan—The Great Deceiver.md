@@ -1,6 +1,8 @@
 # Satan—The Great Deceiver
 
-By Elder Marion G. Romney - *Of the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Marion G. Romney - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -26,15 +28,15 @@ Old Testament prophets knew about Satan and his role in the great council. As th
 
 “How art thou fallen from heaven, O Lucifer, son of the morning! how art thou cut down to the ground, which didst weaken the nations!
 
-“For thou hast said in thine heart, I will ascend into heaven, I will exalt my throne above the stars of God: …
+“For thou hast said in thine heart, I will ascend into heaven, I will exalt my throne above the stars of God: …
 
-“… I will be like the most High.
+“… I will be like the most High.
 
 “Yet thou shalt be brought down to hell, to the sides of the pit.” ([[Isaiah 14.12|Isa. 14:12–15]][[Isaiah 14.13|]][[Isaiah 14.14|]][[Isaiah 14.15|]].)
 
 In this last dispensation, the Lord has confirmed what he revealed in former dispensations concerning Satan’s role in the great council. In September 1830 he said to the Prophet Joseph:
 
-“… the devil was before Adam, for he rebelled against me, saying, Give me thine honor, which is my power; and also a third part of the hosts of heaven turned he away from me because of their agency.” ([[D&C 29.36|D&C 29:36]].)
+“… the devil was before Adam, for he rebelled against me, saying, Give me thine honor, which is my power; and also a third part of the hosts of heaven turned he away from me because of their agency.” ([[D&C 29.36|D&C 29:36]].)
 
 In February 1832 Joseph Smith and Sidney Rigdon testified that they saw in vision “that an angel of God who was in authority in the presence of God, who rebelled against the Only Begotten Son … was thrust down from the presence of God and the Son,
 
@@ -48,7 +50,7 @@ When Satan and those who followed him were “thrust down,” they came to the e
 
 During the vision given to Moses, the Lord said:
 
-“… because … Satan rebelled against me, and sought to destroy the agency of man, which I, the Lord God, had given him, and also, that I should give unto him mine own power; by the power of mine Only Begotten, I caused that he should be cast down.
+“… because … Satan rebelled against me, and sought to destroy the agency of man, which I, the Lord God, had given him, and also, that I should give unto him mine own power; by the power of mine Only Begotten, I caused that he should be cast down.
 
 “And he became Satan, yea, even the devil, the father of all lies, to deceive and to blind men, and to lead them captive at his will, even as many as would not hearken unto my voice.” ([[Moses 4.3|Moses 4:3–4]][[Moses 4.4|]].)
 
@@ -64,19 +66,19 @@ From then until now Satan has been in the earth. We read in the Book of Job:
 
 In his diary for August 11, 1831, the Prophet wrote:
 
-“… after we had encamped upon the bank of the river, at McIlwaine’s Bend, Brother Phelps, in open vision by daylight, saw the destroyer in his most horrible power, ride upon the face of the waters; others heard the noise, but saw not the vision.” (*Documentary History of the Church,* vol. 1, p. 203.)
+“… after we had encamped upon the bank of the river, at McIlwaine’s Bend, Brother Phelps, in open vision by daylight, saw the destroyer in his most horrible power, ride upon the face of the waters; others heard the noise, but saw not the vision.” (*Documentary History of the Church,* vol. 1, p. 203.)
 
 Satan is evil: totally and always. He ever seeks to defeat the gospel plan and “destroy the souls of men.” ([[D&C 10.27|D&C 10:27]].)
 
-“… he persuadeth no man to do good, no, not one; neither do his angels; neither do they who subject themselves unto him.” ([[Moroni 7.17|Moro. 7:17]].)
+“… he persuadeth no man to do good, no, not one; neither do his angels; neither do they who subject themselves unto him.” ([[Moroni 7.17|Moro. 7:17]].)
 
 At the last supper just prior to his ordeal in Gethsemane, Jesus warned Peter: “Simon, Simon, … Satan hath desired to have you, that he may sift you as wheat.” ([[Luke 22.31|Luke 22:31]].)
 
-Satan is irrevocably committed to countering and overcoming the influence of the Spirit of Christ upon men. He is the representative, promoter, and advocate of that “opposition in all things” referred to by Lehi in his instructions to his son Jacob. (See [[2 Nephi 2.11|2 Ne. 2:11, 14–18]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]].)
+Satan is irrevocably committed to countering and overcoming the influence of the Spirit of Christ upon men. He is the representative, promoter, and advocate of that “opposition in all things” referred to by Lehi in his instructions to his son Jacob. (See [[2 Nephi 2.11|2 Ne. 2:11, 14–18]][[2 Nephi 2.14|]][[2 Nephi 2.15|]][[2 Nephi 2.16|]][[2 Nephi 2.17|]][[2 Nephi 2.18|]].)
 
 Satan’s methods are various, devious, and countless.
 
-“… by every possible means he seeks to darken the minds of men and then offers them falsehood and deception in the guise of truth. Satan is a skillful imitator, and as genuine gospel truth is given the world in ever-increasing abundance, so he spreads the counterfeit coin of false doctrine. … \[As\] ‘the father of lies’ he has … become, through the ages of practice in his nefarious work,” such an adept “that were it possible he would deceive the very elect.” (Joseph F. Smith in Daniel H. Ludlow, *Latter-day Prophets Speak* \[Bookcraft, 1948\], pp. 20–21.)
+“… by every possible means he seeks to darken the minds of men and then offers them falsehood and deception in the guise of truth. Satan is a skillful imitator, and as genuine gospel truth is given the world in ever-increasing abundance, so he spreads the counterfeit coin of false doctrine. … \[As\] ‘the father of lies’ he has … become, through the ages of practice in his nefarious work,” such an adept “that were it possible he would deceive the very elect.” (Joseph F. Smith in Daniel H. Ludlow, *Latter-day Prophets Speak* \[Bookcraft, 1948\], pp. 20–21.)
 
 At the opening of every dispensation he has made a frontal attack against the advent of truth. As already noted, he deceived the sons and daughters of Adam and Eve in the first gospel dispensation.
 
@@ -86,25 +88,25 @@ In the days of Jesus, Satan attacked the Master himself. (See [[Luke 4.1|Luke 4:
 
 That Satan was present and contested the opening of this last dispensation, we learn from the Prophet’s statement:
 
-“… I was seized upon by some power which entirely overcame me, and had such an astonishing influence over me as to bind my tongue so that I could not speak. Thick darkness gathered around me, and it seemed to me for a time as if I were doomed to sudden destruction.” ([[Joseph Smith History 1.15|JS—H 1:15]].)
+“… I was seized upon by some power which entirely overcame me, and had such an astonishing influence over me as to bind my tongue so that I could not speak. Thick darkness gathered around me, and it seemed to me for a time as if I were doomed to sudden destruction.” ([[Joseph Smith History 1.15|JS—H 1:15]].)
 
 Satan’s attack against the coming forth of the Book of Mormon is detailed in the tenth section of the Doctrine and Covenants.
 
-Another evidence of the devil’s effort to thwart the spread of the gospel is Heber C. Kimball’s account of Satan’s attack upon the brethren who took the gospel to England in 1837. (Orson F. Whitney, *Life of Heber C. Kimball,* pp. 143–45.)
+Another evidence of the devil’s effort to thwart the spread of the gospel is Heber C. Kimball’s account of Satan’s attack upon the brethren who took the gospel to England in 1837. (Orson F. Whitney, *Life of Heber C. Kimball,* pp. 143–45.)
 
-The general acceptance of Satan’s declaration, “I am no devil, for there is none” ([[2 Nephi 28.22|2 Ne. 28:22]]), accounts in large measure for the decadence in our deteriorating society.
+The general acceptance of Satan’s declaration, “I am no devil, for there is none” ([[2 Nephi 28.22|2 Ne. 28:22]]), accounts in large measure for the decadence in our deteriorating society.
 
 We Latter-day Saints need not be, and we must not be, deceived by the sophistries of men concerning the reality of Satan. There is a personal devil, and we had better believe it. He and a countless host of followers, seen and unseen, are exercising a controlling influence upon men and their affairs in our world today.
 
 An ancient American prophet, envisioning our day and observing what is going on, prophesied that if Satan is not checked, he will bring this generation to destruction. Addressing himself to our present situation, Nephi said:
 
-“… the kingdom of the devil must shake, and they which belong to it must needs be stirred up unto repentance, or the devil will grasp them with his everlasting chains, and they be stirred up to anger, and perish;
+“… the kingdom of the devil must shake, and they which belong to it must needs be stirred up unto repentance, or the devil will grasp them with his everlasting chains, and they be stirred up to anger, and perish;
 
 “For behold, at that day \[that’s today\] shall he rage in the hearts of the children of men, and stir them up to anger against that which is good.
 
 “And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.
 
-“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.19|2 Ne. 28:19–22]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
+“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.19|2 Ne. 28:19–22]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
 
 Now I am not calling attention to these things to frighten, stampede, or discourage anyone. I refer to them because I know they are true, and I am persuaded that if we are to “conquer Satan, and … escape the hands of the servants of Satan that do uphold his work” ([[D&C 10.5|D&C 10:5]]), we must understand and recognize the situation as it is. This is no time for Latter-day Saints to equivocate.
 
@@ -120,7 +122,7 @@ I know that at the second advent of Christ, the signs of which are now mounting,
 
 I bear further witness to the truth of the Savior’s prediction that at the time of his coming “they that are wise and have received the truth \[that is, who have accepted the gospel\], and have taken the Holy Spirit for their guide, and have not been deceived \[by Satan and his powers\]— … shall … abide the day \[of His coming\].
 
-“And \[that\] the earth shall be given unto them for an inheritance; …
+“And \[that\] the earth shall be given unto them for an inheritance; …
 
 “For the Lord shall be in their midst, and his glory shall be upon them, and he will be their king and their lawgiver.” ([[D&C 45.57|D&C 45:57–59]][[D&C 45.58|]][[D&C 45.59|]].)
 
@@ -129,8 +131,3 @@ That we may take the Holy Spirit for our guide, recognize Satan, his representat
 
 
 
-
-
-
-
-#Evil #Satan #Temptation

@@ -1,5 +1,7 @@
 # Friend or Foe
 
+Gordon B. Hinckley
+
 By Elder Charles Didier - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
@@ -18,7 +20,7 @@ There are not many alternatives to answer the question “Friend or foe?” It i
 
 Since the beginning of humanity, history has recorded that one of the deviations of man has been and still is to create artificial divisions and to fight holy wars because of racial, religious, cultural, or political differences and to justify these crimes against humanity in the name of the Lord.
 
-Today, in our very complex world, we may well be reminded of the true message that comes from Christ himself to avoid constant battles and a final holocaust when he declared: “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them who despitefully use you and persecute you.” ([[3 Nephi 12.44|3 Ne. 12:44]].)
+Today, in our very complex world, we may well be reminded of the true message that comes from Christ himself to avoid constant battles and a final holocaust when he declared: “Love your enemies, bless them that curse you, do good to them that hate you, and pray for them who despitefully use you and persecute you.” ([[3 Nephi 12.44|3 Ne. 12:44]].)
 
 However, the essential personal question that we need to consider is whether our relationship with deity will be that of friend or foe. If well understood, because of its eternal implications, this relationship can bring eternal life; if misunderstood, misused, misapplied, misconceived, or misrepresented, it can bring mortal as well as spiritual death.
 
@@ -42,7 +44,7 @@ One might wonder, after listening to this very strong statement, if man can aban
 
 What then is a true friend of God?
 
-President David O. McKay explained the process: “That man is most truly great who is most Christlike.
+President David O. McKay explained the process: “That man is most truly great who is most Christlike.
 
 “What you sincerely in your heart think of Christ will determine what you are, will largely determine what your acts will be.” (In Conference Report, Apr. 1951, p. 93.)
 
@@ -56,19 +58,19 @@ One of the real purposes of life is to become a friend of the Mediator, our Savi
 
 “I give unto you these sayings that you may understand and know how to worship, and know what you worship, that you may come unto the Father in my name, and in due time receive of his fulness.” ([[D&C 93.19|D&C 93:19]].)
 
-Prophets and Apostles testify of the importance of Christ being our friend. The testimony of President Spencer W. Kimball last year in general conference touched my heart when he concluded his address by testifying: “I know that Jesus Christ is the Son of the living God and that He was crucified for the sins of the world. He is my friend, my Savior, my Lord, and my God. With all my heart I pray that the Saints may keep His commandments, have His Spirit to be with them, and gain an eternal inheritance with Him in celestial glory.” (*Ensign,* Nov. 1982, p. 6.)
+Prophets and Apostles testify of the importance of Christ being our friend. The testimony of President Spencer W. Kimball last year in general conference touched my heart when he concluded his address by testifying: “I know that Jesus Christ is the Son of the living God and that He was crucified for the sins of the world. He is my friend, my Savior, my Lord, and my God. With all my heart I pray that the Saints may keep His commandments, have His Spirit to be with them, and gain an eternal inheritance with Him in celestial glory.” (*Ensign,* Nov. 1982, p. 6.)
 
 To be able to say “He is our friend” means that we need to qualify as his friends, to have the same purposes, to be advocates and strong defenders of his cause.
 
 We can learn a great lesson from the friendship of David and Jonathan, which was based on a covenant to be faithful to the Lord. Let me share some excerpts of the qualities of that friendship.
 
-“The soul of Jonathan was knit with the soul of David, and Jonathan loved him as his own soul.” ([[1 Samuel 18.1|1 Sam. 18:1]].)
+“The soul of Jonathan was knit with the soul of David, and Jonathan loved him as his own soul.” ([[1 Samuel 18.1|1 Sam. 18:1]].)
 
-“Jonathan spake good of David unto Saul his father.” ([[1 Samuel 19.4|1 Sam. 19:4]].)
+“Jonathan spake good of David unto Saul his father.” ([[1 Samuel 19.4|1 Sam. 19:4]].)
 
-“And Jonathan said to David, Go in peace, forasmuch as we have sworn both of us in the name of the Lord, saying, The Lord be between me and thee, and between my seed and thy seed for ever.” ([[1 Samuel 20.42|1 Sam. 20:42]].)
+“And Jonathan said to David, Go in peace, forasmuch as we have sworn both of us in the name of the Lord, saying, The Lord be between me and thee, and between my seed and thy seed for ever.” ([[1 Samuel 20.42|1 Sam. 20:42]].)
 
-As individuals, and especially teenagers, what kinds of friends do we select, adopt, confide in, and visit with? Are we strong enough to refuse to be a friend of the world and its representatives? Are we strong enough to accept friendship with Christ? Is to be a friend to be complacent and surrender to lower standards, or is it to maintain Christlike standards and defend them? Do we consider mutual friendship as a way to maintain and develop the foundation of our testimony of Christ? “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].) The conditions are set; the model is given. Then why not become his disciple by being his witness? Why entertain the constant dilemma of your mind? Be committed to be his friend!
+As individuals, and especially teenagers, what kinds of friends do we select, adopt, confide in, and visit with? Are we strong enough to refuse to be a friend of the world and its representatives? Are we strong enough to accept friendship with Christ? Is to be a friend to be complacent and surrender to lower standards, or is it to maintain Christlike standards and defend them? Do we consider mutual friendship as a way to maintain and develop the foundation of our testimony of Christ? “Feast upon the words of Christ; for behold, the words of Christ will tell you all things what ye should do.” ([[2 Nephi 32.3|2 Ne. 32:3]].) The conditions are set; the model is given. Then why not become his disciple by being his witness? Why entertain the constant dilemma of your mind? Be committed to be his friend!
 
 We find the same challenge with teaching our children to build an eternal association of friendship and love. “But I have commanded you to bring up your children in light and truth.” ([[D&C 93.40|D&C 93:40]].) Do we treat our sons and daughters as children of God? Do we teach by example? Do we pray with them? Do we attend church with them? Do we have family home evening regularly? Our spiritual progress and qualifying to become friends with Christ and his Father depend on how faithfully we live the gospel in our homes and how diligently we impart the teachings to our children.
 
@@ -81,8 +83,3 @@ Abraham “was called the Friend of God.” ([[James 2.23|James 2:23]].) Prophet
 
 
 
-
-
-
-
-#Jesus_Christ

@@ -1,5 +1,7 @@
 # Now Is the Time
 
+Ezra Taft Benson
+
 By Elder Hugh W. Pinnock - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1989 General Conference*
@@ -12,7 +14,7 @@ This is wrong. It is not God’s way. It is not part of his great plan. Each of 
 
 Of course, heartache and pain can be spilled upon us by dishonest, manipulative, or unkind people. Accidents happen that can inflict terrible pain and sometimes lifetime disability. But to judge, blame, and not forgive always intensifies the problem. It pushes healing further into the future. It is not responsible.
 
-Why should we demand or even want another to provide what we need if we can furnish it ourselves? Father Lehi taught, “Wherefore, the Lord God gave unto man that he should act for himself.” ([[2 Nephi 2.16|2 Ne. 2:16]].)
+Why should we demand or even want another to provide what we need if we can furnish it ourselves? Father Lehi taught, “Wherefore, the Lord God gave unto man that he should act for himself.” ([[2 Nephi 2.16|2 Ne. 2:16]].)
 
 However, too many look to the government, the Church, or some other institution to carry them. Why do we not resolve to take responsibility for our own actions and thoughts? “Choose ye this day, whom ye will serve.” ([[Alma 30.8|Alma 30:8]]; see also [[Joshua 24.15|Josh. 24:15]].)
 
@@ -109,8 +111,3 @@ To these things I testify, in the name of Jesus Christ, our Savior, amen.
 
 
 
-
-
-
-
-#Courage #Obedience #Repentance #Responsibility #Self-Reliance

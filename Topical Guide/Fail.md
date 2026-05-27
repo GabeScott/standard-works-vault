@@ -1,7 +1,6 @@
 # Fail
 
-
-*See also* [[Adversity.md|Adversity]]; [[Despair.md|Despair]]; [[Opposition.md|Opposition]]; [[Perseverance.md|Perseverance]]; [[Test, Try, Prove.md|Test]]
+*See also* [[Adversity.md|Adversity]]; [[Despair.md|Despair]]; [[Opposition.md|Opposition]]; [[Perseverance.md|Perseverance]]; [[Test.md|Test]]
 
 give you for your cattle, if money *fail*, [[Genesis 47.16|Genesis 47:16]].
 
@@ -23,10 +22,10 @@ than one tittle of the law to *fail*, [[Luke 16.17|Luke 16:17]].
 
 hearts *failing* them for fear, [[Luke 21.26|Luke 21:26]] ([[D&C 45.26|D&C 45:26]]; [[D&C 88.91|D&C 88:91]]; [[Moses 7.66|Moses 7:66]]).
 
-prayed ... that thy faith *fail* not, [[Luke 22.32|Luke 22:32]].
+prayed … that thy faith *fail* not, [[Luke 22.32|Luke 22:32]].
 
 Charity never *faileth*, [[1 Corinthians 13.8|1 Corinthians 13:8]] ([[Moroni 7.46|Moroni 7:46]]).
 
 lest any man *fail* of the grace of God, [[Hebrews 12.15|Hebrews 12:15]].
 
-my words ... shall not *fail*, [[D&C 64.31|D&C 64:31]].
+my words … shall not *fail*, [[D&C 64.31|D&C 64:31]].

@@ -1,6 +1,8 @@
 # Obedience Brings Blessings
 
-By President Thomas S. Monson - *President of the Church*
+Thomas S. Monson
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -69,9 +71,9 @@ Abraham had been tried and tested, and for his faithfulness and obedience the Lo
 
 Although we are not asked to prove our obedience in such a dramatic and heart-wrenching way, obedience is required of us as well.
 
-Declared President Joseph F. Smith in October 1873, “Obedience is the first law of heaven.”[^8]
+Declared President Joseph F. Smith in October 1873, “Obedience is the first law of heaven.”[^8]
 
-Said President Gordon B. Hinckley, “The happiness of the Latter-day Saints, the peace of the Latter-day Saints, the progress of the Latter-day Saints, the prosperity of the Latter-day Saints, and the eternal salvation and exaltation of this people lie in walking in obedience to the counsels of … God.”[^9]
+Said President Gordon B. Hinckley, “The happiness of the Latter-day Saints, the peace of the Latter-day Saints, the progress of the Latter-day Saints, the prosperity of the Latter-day Saints, and the eternal salvation and exaltation of this people lie in walking in obedience to the counsels of … God.”[^9]
 
 Obedience is a hallmark of prophets; it has provided strength and knowledge to them throughout the ages. It is essential for us to realize that we, as well, are entitled to this source of strength and knowledge. It is readily available to each of us today as we obey God’s commandments.
 
@@ -124,19 +126,19 @@ It is my humble prayer that we may be blessed with the rich rewards promised to 
 
 [^2]: [[D&C 93.24|Doctrine and Covenants 93:24, 26–28]][[D&C 93.26|]][[D&C 93.27|]][[D&C 93.28|]].
 
-[^3]: [[1 Samuel 15.22|1 Samuel 15:22]].
+[^3]: [[1 Samuel 15.22|1 Samuel 15:22]].
 
 [^4]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 
-[^5]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^5]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
 [^6]: [[Genesis 22.12|Genesis 22:12]].
 
 [^7]: [[Genesis 22.18|Genesis 22:18]].
 
-[^8]: Joseph F. Smith, “Discourse,” *Deseret News,* Nov. 12, 1873, 644.
+[^8]: Joseph F. Smith, “Discourse,” *Deseret News,* Nov. 12, 1873, 644.
 
-[^9]: Gordon B. Hinckley, “If Ye Be Willing and Obedient,” *Ensign,* Dec. 1971, 125.
+[^9]: Gordon B. Hinckley, “If Ye Be Willing and Obedient,” *Ensign,* Dec. 1971, 125.
 
 [^10]: [[Abraham 3.25|Abraham 3:25]].
 
@@ -154,8 +156,3 @@ It is my humble prayer that we may be blessed with the rich rewards promised to 
 
 [^17]: [[D&C 93.28|Doctrine and Covenants 93:28]].
 
-
-
-
-
-#Commandments #Jesus_Christ #Obedience #Truth

@@ -1,5 +1,7 @@
 # Some Thoughts on Temples, Retention of Converts, and Missionary Service
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1997 General Conference*
@@ -119,5 +121,3 @@ May each of you be blessed in your vocational pursuits whatever they may be, so 
 
 
 
-
-#Activation #Blessings #Church_Growth #Dating #Education #Fellowshipping #Leadership #Missionary_Work #Priesthood #Temples #Young_Women

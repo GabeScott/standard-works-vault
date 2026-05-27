@@ -1,6 +1,8 @@
 # The Greatest Thing in My Life
 
-By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Robert E. Wells - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -23,8 +25,3 @@ I offer that witness, this testimony, in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Testimony

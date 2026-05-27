@@ -1,6 +1,8 @@
 # Your Sacred Duty to Minister
 
-By David L. Beck - *Young Men General President*
+Thomas S. Monson
+
+By David L. Beck - *Young Men General President*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -36,7 +38,7 @@ Chy’s mother calls these young men “angels in disguise.” Carson and his fr
 
 There are thousands of Chy Johnsons throughout the world—people who need to feel Heavenly Father’s love. They are in your schools, in your quorums, and even in your family. Some come to mind quickly. Others have needs that are less obvious. Virtually everyone you know could be blessed in some way by your ministering. The Lord is counting on you to reach out to them.
 
-You don’t have to be a star athlete to minister to others. You received the power, the authority, and the sacred duty to minister the moment you were ordained to the priesthood. President James E. Faust taught, “Priesthood is the authority delegated to man to *minister* in the name of God.”[^4] The Aaronic Priesthood holds the keys of the ministering of angels.[^5]
+You don’t have to be a star athlete to minister to others. You received the power, the authority, and the sacred duty to minister the moment you were ordained to the priesthood. President James E. Faust taught, “Priesthood is the authority delegated to man to *minister* in the name of God.”[^4] The Aaronic Priesthood holds the keys of the ministering of angels.[^5]
 
 As you love His children, Heavenly Father will guide you, and angels will assist you.[^6] You will be given power to bless lives and rescue souls.
 
@@ -93,7 +95,7 @@ May you experience the joy of fulfilling your sacred duty to minister, I pray in
 
 [^3]: See Trent Toone, “Kindness of Arizona High School QB Carson Jones and Teammates Has Gone Viral,” *Deseret News,* Nov. 9, 2012, deseretnews.com/article/865566351/Kindness-of-Arizona-high-school-QB-Carson-Jones-and-teammates-has-gone-viral.html.
 
-[^4]: James E. Faust, “Message to My Grandsons,” *Ensign* or *Liahona,* May 2007, 54; emphasis added.
+[^4]: James E. Faust, “Message to My Grandsons,” *Ensign* or *Liahona,* May 2007, 54; emphasis added.
 
 [^5]: See [[D&C 13.1|Doctrine and Covenants 13:1]].
 
@@ -109,8 +111,3 @@ May you experience the joy of fulfilling your sacred duty to minister, I pray in
 
 [^11]: See *Handbook 2,* 3.2.3.
 
-
-
-
-
-#Family #Priesthood #Service

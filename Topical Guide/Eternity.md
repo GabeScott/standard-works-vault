@@ -1,6 +1,5 @@
 # Eternity
 
-
 *See also* [[Eternal.md|Eternal]]; [[Eternal Life.md|Eternal Life]]; [[God, Eternal Nature of.md|God, Eternal Nature of]]
 
 from *everlasting* to everlasting, thou art God, [[Psalms 90.2|Psalms 90:2]].
@@ -25,13 +24,13 @@ to reap *eternal* happiness or *eternal* misery, [[Alma 3.26|Alma 3:26]].
 
 his course is one *eternal* round, [[Alma 7.20|Alma 7:20]].
 
-This high priesthood ... prepared from *eternity*, [[Alma 13.7|Alma 13:7]].
+This high priesthood … prepared from *eternity*, [[Alma 13.7|Alma 13:7]].
 
 Christ, which will point to you a straight course to *eternal* bliss, [[Alma 37.44|Alma 37:44]].
 
-plan of happiness, which was as *eternal* also as ... soul, [[Alma 42.16|Alma 42:16]].
+plan of happiness, which was as *eternal* also as … soul, [[Alma 42.16|Alma 42:16]].
 
-charity ... endureth *forever*, [[Moroni 7.47|Moroni 7:47]].
+charity … endureth *forever*, [[Moroni 7.47|Moroni 7:47]].
 
 God in heaven, who is infinite and *eternal*, [[D&C 20.17|D&C 20:17]].
 
@@ -60,5 +59,3 @@ him who was without beginning of days or end of years, from all *eternity*, [[Mo
 Heaven, which is broad as *eternity*, [[Moses 7.53|Moses 7:53]].
 
 *eternity* was our covering and our rock, [[Abraham 2.16|Abraham 2:16]].
-
-*See also* [[Isaiah 26.4|Isaiah 26:4]]; [[2 Thessalonians 1.9|2 Thessalonians 1:9]]; [[Alma 34.10|Alma 34:10]].

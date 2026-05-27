@@ -1,5 +1,7 @@
 # “Daughters in My Kingdom”: The History and Work of Relief Society
 
+Thomas S. Monson
+
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2010 General Conference*
@@ -81,11 +83,11 @@ I bear you my testimony of the reality of our Heavenly Father and His Son, Jesus
 
 
 
-[^1]: [[2 Peter 2.1|2 Peter 2:1]].
+[^1]: [[2 Peter 2.1|2 Peter 2:1]].
 
-[^2]: [[2 Nephi 28.20|2 Nephi 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].
+[^2]: [[2 Nephi 28.20|2 Nephi 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].
 
-[^3]: [[2 Timothy 3.6|2 Timothy 3:6]].
+[^3]: [[2 Timothy 3.6|2 Timothy 3:6]].
 
 [^4]: [[Joshua 24.23|Joshua 24:23]].
 
@@ -95,9 +97,9 @@ I bear you my testimony of the reality of our Heavenly Father and His Son, Jesus
 
 [^7]: [[D&C 25.1|Doctrine and Covenants 25:1]].
 
-[^8]: [[2 Nephi 9.51|2 Nephi 9:51]].
+[^8]: [[2 Nephi 9.51|2 Nephi 9:51]].
 
 [^9]: See [[Titus 2.4|Titus 2:4–5]][[Titus 2.5|]].
 
-[^10]: See [[Matthew 6.4|Matthew 6:4]]; [[3 Nephi 13.4|3 Nephi 13:4]].
+[^10]: See [[Matthew 6.4|Matthew 6:4]]; [[3 Nephi 13.4|3 Nephi 13:4]].
 

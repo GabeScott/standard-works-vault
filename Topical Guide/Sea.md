@@ -1,19 +1,18 @@
 # Sea
 
-
 *See also* [[Lake.md|Lake]]
 
 gathering together of the waters called he *Seas*, [[Genesis 1.10|Genesis 1:10]] ([[Moses 2.10|Moses 2:10]]).
 
-Lord caused the *sea* to go back ... and made the *sea* dry land, [[Exodus 14.21|Exodus 14:21]] ([[Psalms 66.6|Psalms 66:6]]).
+Lord caused the *sea* to go back … and made the *sea* dry land, [[Exodus 14.21|Exodus 14:21]] ([[Psalms 66.6|Psalms 66:6]]).
 
-south border shall be ... salt *sea* eastward, [[Numbers 34.3|Numbers 34:3]].
+south border shall be … salt *sea* eastward, [[Numbers 34.3|Numbers 34:3]].
 
 he made a molten *sea*, [[1 Kings 7.23|1 Kings 7:23]] ([[2 Chronicles 4.2|2 Chronicles 4:2]]).
 
 took down the *sea* from off the brasen oxen, [[2 Kings 16.17|2 Kings 16:17]] ([[2 Chronicles 4.10|2 Chronicles 4:10]]).
 
-brasen *sea* that was in the house of the Lord, [[2 Kings 25.13|2 Kings 25:13]] ([[Jeremiah 52.17|Jeremiah 52:17]], [[Jeremiah 52.20|Jeremiah 52:20]]).
+brasen *sea* that was in the house of the Lord, [[2 Kings 25.13|2 Kings 25:13]] ([[Jeremiah 52.17|Jeremiah 52:17]]; [[Jeremiah 52.20|Jeremiah 52:20]]).
 
 dominion also from *sea* to *sea*, [[Psalms 72.8|Psalms 72:8]] ([[Zechariah 9.10|Zechariah 9:10]]).
 
@@ -31,7 +30,7 @@ four great beasts came up from the *sea*, [[Daniel 7.3|Daniel 7:3]].
 
 Jonah, and cast him forth into the *sea*, [[Jonah 1.15|Jonah 1:15]].
 
-he ... rebuked the winds and the *sea*, [[Matthew 8.26|Matthew 8:26]] ([[Mark 4.39|Mark 4:39]]).
+he … rebuked the winds and the *sea*, [[Matthew 8.26|Matthew 8:26]] ([[Mark 4.39|Mark 4:39]]).
 
 heaven is like unto a net, that was cast into the *sea*, [[Matthew 13.47|Matthew 13:47]].
 
@@ -39,7 +38,7 @@ disciples saw him walking on the *sea*, [[Matthew 14.26|Matthew 14:26]] ([[Mark 
 
 ye compass *sea* and land to make one proselyte, [[Matthew 23.15|Matthew 23:15]].
 
-our fathers ... all passed through the *sea*, [[1 Corinthians 10.1|1 Corinthians 10:1]].
+our fathers … all passed through the *sea*, [[1 Corinthians 10.1|1 Corinthians 10:1]].
 
 before the throne there was a *sea* of glass, [[Revelation 4.6|Revelation 4:6]].
 

@@ -1,5 +1,7 @@
 # Holy Temples, Sacred Covenants
 
+Thomas S. Monson
+
 By Silvia H. Allred - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2008 General Conference*
@@ -81,15 +83,15 @@ I testify to you that the temples are sacred, holy places. They are a source of 
 
 [^1]: [[Exodus 25.8|Exodus 25:8]].
 
-[^2]: See [[1 Kings 5.5|1 Kings 5:5–18]][[1 Kings 5.6|]][[1 Kings 5.7|]][[1 Kings 5.8|]][[1 Kings 5.9|]][[1 Kings 5.10|]][[1 Kings 5.11|]][[1 Kings 5.12|]][[1 Kings 5.13|]][[1 Kings 5.14|]][[1 Kings 5.15|]][[1 Kings 5.16|]][[1 Kings 5.17|]][[1 Kings 5.18|]]; [[1 Kings 6.1|6]][[1 Kings 6.2|]][[1 Kings 6.3|]][[1 Kings 6.4|]][[1 Kings 6.5|]][[1 Kings 6.6|]][[1 Kings 6.7|]][[1 Kings 6.8|]][[1 Kings 6.9|]][[1 Kings 6.10|]][[1 Kings 6.11|]][[1 Kings 6.12|]][[1 Kings 6.13|]][[1 Kings 6.14|]][[1 Kings 6.15|]][[1 Kings 6.16|]][[1 Kings 6.17|]][[1 Kings 6.18|]][[1 Kings 6.19|]][[1 Kings 6.20|]][[1 Kings 6.21|]][[1 Kings 6.22|]][[1 Kings 6.23|]][[1 Kings 6.24|]][[1 Kings 6.25|]][[1 Kings 6.26|]][[1 Kings 6.27|]][[1 Kings 6.28|]][[1 Kings 6.29|]][[1 Kings 6.30|]][[1 Kings 6.31|]][[1 Kings 6.32|]][[1 Kings 6.33|]][[1 Kings 6.34|]][[1 Kings 6.35|]][[1 Kings 6.36|]][[1 Kings 6.37|]][[1 Kings 6.38|]].
+[^2]: See [[1 Kings 5.5|1 Kings 5:5–18]][[1 Kings 5.6|]][[1 Kings 5.7|]][[1 Kings 5.8|]][[1 Kings 5.9|]][[1 Kings 5.10|]][[1 Kings 5.11|]][[1 Kings 5.12|]][[1 Kings 5.13|]][[1 Kings 5.14|]][[1 Kings 5.15|]][[1 Kings 5.16|]][[1 Kings 5.17|]][[1 Kings 5.18|]]; [[1 Kings 6.1|6]][[1 Kings 6.2|]][[1 Kings 6.3|]][[1 Kings 6.4|]][[1 Kings 6.5|]][[1 Kings 6.6|]][[1 Kings 6.7|]][[1 Kings 6.8|]][[1 Kings 6.9|]][[1 Kings 6.10|]][[1 Kings 6.11|]][[1 Kings 6.12|]][[1 Kings 6.13|]][[1 Kings 6.14|]][[1 Kings 6.15|]][[1 Kings 6.16|]][[1 Kings 6.17|]][[1 Kings 6.18|]][[1 Kings 6.19|]][[1 Kings 6.20|]][[1 Kings 6.21|]][[1 Kings 6.22|]][[1 Kings 6.23|]][[1 Kings 6.24|]][[1 Kings 6.25|]][[1 Kings 6.26|]][[1 Kings 6.27|]][[1 Kings 6.28|]][[1 Kings 6.29|]][[1 Kings 6.30|]][[1 Kings 6.31|]][[1 Kings 6.32|]][[1 Kings 6.33|]][[1 Kings 6.34|]][[1 Kings 6.35|]][[1 Kings 6.36|]][[1 Kings 6.37|]][[1 Kings 6.38|]].
 
-[^3]: See [[3 Nephi 11.1|3 Nephi 11:1]].
+[^3]: See [[3 Nephi 11.1|3 Nephi 11:1]].
 
 [^4]: [[D&C 88.119|D&C 88:119]].
 
 [^5]: See [[D&C 110.1|D&C 110]][[D&C 110.2|]][[D&C 110.3|]][[D&C 110.4|]][[D&C 110.5|]][[D&C 110.6|]][[D&C 110.7|]][[D&C 110.8|]][[D&C 110.9|]][[D&C 110.10|]][[D&C 110.11|]][[D&C 110.12|]][[D&C 110.13|]][[D&C 110.14|]][[D&C 110.15|]][[D&C 110.16|]].
 
-[^6]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1971), 416.
+[^6]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1971), 416.
 
 [^7]: [[Exodus 3.5|Exodus 3:5]].
 
@@ -97,8 +99,3 @@ I testify to you that the temples are sacred, holy places. They are a source of 
 
 [^9]: See [[D&C 109.20|D&C 109:20]].
 
-
-
-
-
-#Covenants #Temples #Worthiness

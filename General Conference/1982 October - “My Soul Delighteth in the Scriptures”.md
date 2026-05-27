@@ -1,6 +1,8 @@
 # “My Soul Delighteth in the Scriptures”
 
-By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -8,7 +10,7 @@ By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 One of the most beautiful and inspiring passages in the Book of Mormon is often referred to as “The Psalm of Nephi.” It begins with these stirring words: “My soul delighteth in the scriptures, and my heart pondereth them, and writeth them for the learning and the profit of my children.
 
-“Behold, my soul delighteth in the things of the Lord.” ([[2 Nephi 4.15|2 Ne. 4:15–16]][[2 Nephi 4.16|]].)
+“Behold, my soul delighteth in the things of the Lord.” ([[2 Nephi 4.15|2 Ne. 4:15–16]][[2 Nephi 4.16|]].)
 
 These words have special meaning to me. I grew up in a small Mormon community. I was raised in a fine Latter-day Saint home. I was taught to love the Lord, to reverence His name, and to communicate with Him in prayer. I was very young when I learned that the Father and the Son had appeared to Joseph Smith. I believed as a boy and I have never doubted as a man.
 
@@ -24,15 +26,15 @@ It was a time to study, to ponder, to pray. I read all the standard works from c
 
 There is so much we can learn from the example of the young Prophet Joseph Smith, whose persistent, prayerful study of the Holy Bible compelled him to seek the God of Heaven for divine guidance. This brought him to the threshold of the greatest revelation ever given to man since the mortal ministry of the Savior Himself. Throughout the Prophet’s life, he continued to probe and ponder until he gained a mastery of the scriptures.
 
-Another young man, Spencer W. Kimball, was about fourteen when Susa Gates spoke at their stake conference. He recalls: “She gave a rousing talk on the reading of the scriptures; … then she stopped … to ask … us, ‘How many of you have read the Bible through?’
+Another young man, Spencer W. Kimball, was about fourteen when Susa Gates spoke at their stake conference. He recalls: “She gave a rousing talk on the reading of the scriptures; … then she stopped … to ask … us, ‘How many of you have read the Bible through?’
 
-“… My accusing heart said to me, ‘You, Spencer Kimball, you have never read that holy book. Why?’ I looked around me … to see if I was alone in my failure to read the sacred book. Of the thousand people, there were perhaps a half dozen who proudly raised their hands. … When the meeting closed, I … rushed home … gritting my teeth and saying to myself, ‘I will. I will.’”
+“… My accusing heart said to me, ‘You, Spencer Kimball, you have never read that holy book. Why?’ I looked around me … to see if I was alone in my failure to read the sacred book. Of the thousand people, there were perhaps a half dozen who proudly raised their hands. … When the meeting closed, I … rushed home … gritting my teeth and saying to myself, ‘I will. I will.’”
 
 He went home, got a coal-oil lamp, and climbed the stairs to his attic room. “There,” he said, “I opened my Bible and began \[with\] Genesis … and I read well into the night with Adam and Eve … and through the flood even to Abraham.” (*President Kimball Speaks Out,* Salt Lake City: Deseret Book Co., 1981, pp. 92–93.)
 
 He continued to read a little each night. Although he didn’t always understand what he was reading, he had made a commitment to himself. At the end of a year, he had finished. This achievement set a pattern for his life. The sermons and the writings of President Kimball convince us that he has labored long hours to gain his profound insights into the holy scriptures.
 
-I am convinced that families, even young children, can learn to love the scriptures. A few years ago when I was in Colorado Springs for a conference, I called on Mark McConkie, son of Elder and Sister Bruce R. McConkie, to address the question: “How did you develop a love for the scriptures?”
+I am convinced that families, even young children, can learn to love the scriptures. A few years ago when I was in Colorado Springs for a conference, I called on Mark McConkie, son of Elder and Sister Bruce R. McConkie, to address the question: “How did you develop a love for the scriptures?”
 
 As I recall, he said: “I first developed a love for the scriptures from my mother. I remember she would teach me while she did her ironing. I felt how she loved the scriptures by the way she would speak about the prophets. How much she loved them! As I grew older, I would listen to the recordings of the scriptures. I wanted to know the scriptures like my father. Sometimes he would enter the room while I was listening and it would take him just a moment to identify the exact scripture I was listening to. I wanted to be able to do that.”
 
@@ -46,25 +48,25 @@ Some time later, I was reading a Jack London book with our youngest son Brandon,
 
 All of our sacred records have come to us at high cost. When we consider the fiery furnace of conquest and persecution through which the Bible has passed, the great wonder is not whether it is complete or translated correctly, but a miracle that it has survived at all! Surely the Lord has preserved it for the salvation of his children.
 
-Laban’s life was taken by divine command that the Nephite nation not “dwindle … in unbelief.” (See [[1 Nephi 4.13|1 Ne. 4:13]].) Think of the travail of the Nephite prophets who kept the records of their people so future generations might profit from their experiences. Think of the millions of people who have lived at a time when there was no printing or translating capability or who, because of political oppression or illiteracy, have been denied access to the scriptures. Think about the blessings of living in this dispensation, when the holy scriptures are available to us. In 1981, the United Bible Societies distributed 444,000,000 complete copies or portions of the Bible throughout the world. By the end of 1982, the Book of Mormon or selected portions will be available in fifty-seven languages.
+Laban’s life was taken by divine command that the Nephite nation not “dwindle … in unbelief.” (See [[1 Nephi 4.13|1 Ne. 4:13]].) Think of the travail of the Nephite prophets who kept the records of their people so future generations might profit from their experiences. Think of the millions of people who have lived at a time when there was no printing or translating capability or who, because of political oppression or illiteracy, have been denied access to the scriptures. Think about the blessings of living in this dispensation, when the holy scriptures are available to us. In 1981, the United Bible Societies distributed 444,000,000 complete copies or portions of the Bible throughout the world. By the end of 1982, the Book of Mormon or selected portions will be available in fifty-seven languages.
 
 We are the beneficiaries of great sacrifice. What excuse do we have for not taking advantage of this? Brothers and sisters, you don’t have to be a natural student to read the scriptures; you just need to love the Lord.
 
-The value of sacred records was indelibly taught by the Savior as he ministered among the Nephites. He declared: “A commandment I give unto you that ye search these things diligently; …
+The value of sacred records was indelibly taught by the Savior as he ministered among the Nephites. He declared: “A commandment I give unto you that ye search these things diligently; …
 
-“Give heed to my words; write the things which I have told you; …
+“Give heed to my words; write the things which I have told you; …
 
 “Search the prophets, for many there be that testify of these things.
 
-“And now … after \[Jesus\] had expounded all the scriptures unto them which they had received, he said unto them: Behold, other scriptures I would that ye should write, that ye have not. …
+“And now … after \[Jesus\] had expounded all the scriptures unto them which they had received, he said unto them: Behold, other scriptures I would that ye should write, that ye have not. …
 
 “How be it that ye have not written this thing, that many saints did arise and appear unto many and did minister unto them?
 
 “And … Nephi remembered that this thing had not been written.
 
-“And … Jesus commanded that it should be written; …
+“And … Jesus commanded that it should be written; …
 
-“Now … when Jesus had expounded all the scriptures in one, which they had written, he commanded them that they should teach the things which he had expounded unto them.” ([[3 Nephi 23.1|3 Ne. 23:1, 4–6, 11–14]][[3 Nephi 23.4|]][[3 Nephi 23.5|]][[3 Nephi 23.6|]][[3 Nephi 23.11|]][[3 Nephi 23.12|]][[3 Nephi 23.13|]][[3 Nephi 23.14|]].)
+“Now … when Jesus had expounded all the scriptures in one, which they had written, he commanded them that they should teach the things which he had expounded unto them.” ([[3 Nephi 23.1|3 Ne. 23:1, 4–6, 11–14]][[3 Nephi 23.4|]][[3 Nephi 23.5|]][[3 Nephi 23.6|]][[3 Nephi 23.11|]][[3 Nephi 23.12|]][[3 Nephi 23.13|]][[3 Nephi 23.14|]].)
 
 I concur with the strong counsel of President Romney, given to a group of seminary and institute coordinators in 1973. He told them, and I quote: “I don’t know much about the gospel other than what I’ve learned from the standard works. When I drink from a spring I like to get the water where it comes out of the ground, not down the stream after the cattle have waded in it. … I appreciate other people’s interpretation, but when it comes to the gospel we ought to be acquainted with what the Lord says. … You ought to read the Book of Mormon and the Doctrine and Covenants; and … all the scriptures with the idea of finding out what’s in them and what the meaning is and not to prove some idea of your own. Just read them and plead with the Lord to let you understand what he had in mind when he wrote them.” (Address delivered at Coordinators’ Convention, Seminaries and Institutes of Religion, 13 Apr. 1973.)
 
@@ -79,8 +81,3 @@ To this I add my witness. The holy scriptures are the word of God. If we are to 
 
 
 
-
-
-
-
-#Scriptures

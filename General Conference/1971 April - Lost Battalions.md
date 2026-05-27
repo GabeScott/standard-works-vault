@@ -1,6 +1,8 @@
 # Lost Battalions
 
-By Elder Thomas S. Monson - *Of the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Thomas S. Monson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -22,7 +24,7 @@ This past November I stood on a very old bridge which spans the River Somme as i
 
 I found myself saying softly, “How strange that war brings forth the savagery of conflict, yet inspires brave deeds of courage—some prompted by love.”
 
-As a boy, I enjoyed reading the account of the “lost battalion.” The “lost battalion” was a unit of the 77th Infantry Division in World War I. During the Meuse-Argonne offensive, a major led this battalion through a gap in the enemy lines, but the troops on the flanks were unable to advance. An entire battalion was surrounded. Food and water were short; casualties could not be evacuated. Hurled back were repeated attacks. Ignored were notes from the enemy requesting the battalion to surrender. Newspapers heralded the battalion’s tenacity. Men of vision pondered its fate. After a brief but desperate period of total isolation, other units of the 77th Division advanced and relieved the “lost battalion.” Correspondents noted in their dispatches that the relieving forces seemed bent on a crusade of love to rescue their comrades in arms. Men volunteered more readily, fought more gallantly, and died more bravely. A fitting tribute echoed from that ageless sermon preached on the Mount of Olives: “Greater love hath no man than this, that a man lay down his life for his friends.” ([[John 15.13|John 15:13]].)
+As a boy, I enjoyed reading the account of the “lost battalion.” The “lost battalion” was a unit of the 77th Infantry Division in World War I. During the Meuse-Argonne offensive, a major led this battalion through a gap in the enemy lines, but the troops on the flanks were unable to advance. An entire battalion was surrounded. Food and water were short; casualties could not be evacuated. Hurled back were repeated attacks. Ignored were notes from the enemy requesting the battalion to surrender. Newspapers heralded the battalion’s tenacity. Men of vision pondered its fate. After a brief but desperate period of total isolation, other units of the 77th Division advanced and relieved the “lost battalion.” Correspondents noted in their dispatches that the relieving forces seemed bent on a crusade of love to rescue their comrades in arms. Men volunteered more readily, fought more gallantly, and died more bravely. A fitting tribute echoed from that ageless sermon preached on the Mount of Olives: “Greater love hath no man than this, that a man lay down his life for his friends.” ([[John 15.13|John 15:13]].)
 
 Forgotten is the plight of the “lost battalion.” Unremembered is the terrible price paid for its rescue. But let us turn from the past and survey the present. Are there “lost battalions” even today? If so, what is our responsibility to rescue them? Their members may not wear clothes of khaki brown nor march to the sound of drums. But they share the same doubt, feel the same despair, and know the same disillusionment that isolation brings.
 
@@ -56,9 +58,9 @@ I gazed at the faces of those wonderful women and thought to myself: “Somebody
 >“Down the street, with laughter and shout,
 >Glad in the freedom of ‘school let out,’
 >Came the boys like a flock of sheep,
->Hailing the snow piled white and deep. …
+>Hailing the snow piled white and deep. …
 >\[One\] paused beside her and whispered low,
->‘I’ll help you cross, if you wish to go? …
+>‘I’ll help you cross, if you wish to go? …
 >‘She’s somebody’s mother, boys, you know,
 >For all she’s aged and poor and slow.
 >
@@ -88,11 +90,11 @@ He arrived shortly after midnight, entered the house, and turned on the light. T
 
 We could say here was a boy who overnight became a man. Here was a father who, suppressing passion and bridling pride, rescued his son before he became one of that vast “lost battalion” resulting from fractured families and shattered homes. Love was the binding band, the healing balm. Love—so often felt; so seldom expressed.
 
-From Mt. Sinai there thunders in our ears, “Honour thy father and thy mother.” ([[Exodus 20.12|Ex. 20:12]].) And later, from that same God, the injunction, “… live together in love.” ([[D&C 42.45|D&C 42:45]].)
+From Mt. Sinai there thunders in our ears, “Honour thy father and thy mother.” ([[Exodus 20.12|Ex. 20:12]].) And later, from that same God, the injunction, “… live together in love.” ([[D&C 42.45|D&C 42:45]].)
 
 There are other “lost battalions.” Some struggle in the jungles of sin, some wander in the wilderness of ignorance. In reality, each one of us is numbered in what could well have been the lost battalion of mankind, even a battalion doomed to everlasting death.
 
-“… by man came death. … For as in Adam all die.” ([[1 Corinthians 15.21|1 Cor. 15:21–22]][[1 Corinthians 15.22|]].) Each of us is a partaker of the experience called death. None escapes. Were we to remain unrescued, lost would be paradise sought. Lost would be family loved. Lost would be friends remembered. Realizing this truth, we begin to appreciate the supreme joy which accompanied the birth of the Savior of the world. How glorious the pronouncement of the angel: Behold, a virgin “shall bring forth a son, and thou shalt call his name JESUS: for he shall save his people from their sins.” ([[Matthew 1.21|Matt. 1:21]].)
+“… by man came death. … For as in Adam all die.” ([[1 Corinthians 15.21|1 Cor. 15:21–22]][[1 Corinthians 15.22|]].) Each of us is a partaker of the experience called death. None escapes. Were we to remain unrescued, lost would be paradise sought. Lost would be family loved. Lost would be friends remembered. Realizing this truth, we begin to appreciate the supreme joy which accompanied the birth of the Savior of the world. How glorious the pronouncement of the angel: Behold, a virgin “shall bring forth a son, and thou shalt call his name JESUS: for he shall save his people from their sins.” ([[Matthew 1.21|Matt. 1:21]].)
 
 While the rivers of France witnessed the advance of those who rescued the “lost battalion” in World War I, so did yet another river witness the commencement of the formal ministry of a universal rescuer, even a divine redeemer. The scripture records, “And there came a voice from heaven, saying, Thou art my beloved Son, in whom I am well pleased.” ([[Mark 1.11|Mark 1:11]].)
 
@@ -104,7 +106,7 @@ But Jesus’ preaching in Galilee had been merely prelude. The Son of Man had al
 
 Arrested in the Garden of Gethsemane after the Last Supper, deserted by his disciples, spat upon, tried, and humiliated, Jesus staggered under his great cross toward Calvary. He progressed from triumph—to betrayal—to torture—to death on the cross.
 
-In the words of the hymn, “… the scene was changed; the morn was cold and chill, as the shadow of a cross arose upon a lonely hill.” For us our Heavenly Father gave his Son. For us our Elder Brother gave his life.
+In the words of the hymn, “… the scene was changed; the morn was cold and chill, as the shadow of a cross arose upon a lonely hill.” For us our Heavenly Father gave his Son. For us our Elder Brother gave his life.
 
 At the last moment the Master could have turned back. But he did not. He passed beneath all things that he might save all things—the human race, the earth, and all the life that ever inhabited it.
 
@@ -119,8 +121,3 @@ As his witness I testify to you that he lives. In the name of Jesus Christ. Amen
 
 
 
-
-
-
-
-#Disabilities #Elderly #Service

@@ -6,6 +6,6 @@
 
 (2) A well dug by Isaac ([[Genesis 26.22|Gen. 26:22]]).
 
-(3) A town on the Euphrates ([[Genesis 36.37|Gen. 36:37]]; [[1 Chronicles 1.48|1 Chr. 1:48]]).
+(3) A town on the Euphrates ([[Genesis 36.37|Gen. 36:37]]; [[1 Chronicles 1.48|1 Chr. 1:48]]).
 
 

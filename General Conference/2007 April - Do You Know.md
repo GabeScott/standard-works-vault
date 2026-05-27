@@ -1,5 +1,7 @@
 # Do You Know?
 
+Thomas S. Monson
+
 By Elder Glenn L. Pace - *Of the Seventy*
 
 *Given in the April session of the 2007 General Conference*
@@ -63,5 +65,3 @@ The wonderful thing about knowing it is true is that you know simultaneously tha
 
 
 
-
-#Adversity #Courage #Faith #Holy_Ghost #Joseph_Smith #Testimony

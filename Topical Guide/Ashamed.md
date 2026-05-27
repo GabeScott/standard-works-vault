@@ -1,11 +1,10 @@
 # Ashamed
 
-
-they were both naked ... and were not *ashamed*, [[Genesis 2.25|Genesis 2:25]] ([[Abraham 5.19|Abraham 5:19]]).
+they were both naked … and were not *ashamed*, [[Genesis 2.25|Genesis 2:25]] ([[Abraham 5.19|Abraham 5:19]]).
 
 none that wait on thee be *ashamed*: let them be *ashamed* which transgress, [[Psalms 25.3|Psalms 25:3]].
 
-In thee ... do I put my trust; let me never be *ashamed*, [[Psalms 31.1|Psalms 31:1]].
+In thee … do I put my trust; let me never be *ashamed*, [[Psalms 31.1|Psalms 31:1]].
 
 moon shall be confounded, and the sun *ashamed*, [[Isaiah 24.23|Isaiah 24:23]].
 
@@ -13,7 +12,7 @@ not be *ashamed* nor confounded, [[Isaiah 45.17|Isaiah 45:17]].
 
 my servants shall rejoice, but ye shall be *ashamed*, [[Isaiah 65.13|Isaiah 65:13]].
 
-As the thief is *ashamed* ... so is the house of Israel *ashamed*, [[Jeremiah 2.26|Jeremiah 2:26]].
+As the thief is *ashamed* … so is the house of Israel *ashamed*, [[Jeremiah 2.26|Jeremiah 2:26]].
 
 be *ashamed* of Egypt, as thou wast *ashamed* of Assyria, [[Jeremiah 2.36|Jeremiah 2:36]].
 

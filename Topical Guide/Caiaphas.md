@@ -1,4 +1,3 @@
 # Caiaphas
 
-
-*See* [BD Caiaphas](https://www.churchofjesuschrist.org/study/scriptures/bd/caiaphas?lang=eng)
+*See also* [[BD Caiaphas.md|BD Caiaphas]]

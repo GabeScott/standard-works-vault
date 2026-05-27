@@ -1,4 +1,3 @@
 # Thrash
 
-
-*See* [[Thresh.md|Thresh]]
+*See also* [[Thresh.md|Thresh]]

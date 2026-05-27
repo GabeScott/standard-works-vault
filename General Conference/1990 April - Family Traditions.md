@@ -1,5 +1,7 @@
 # Family Traditions
 
+Thomas S. Monson
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1990 General Conference*
@@ -12,7 +14,7 @@ The prophets have taught us that before the world was, there was a council in he
 
 “The Council … said, ‘Let there be an earth, and let there be a firmament above and beneath it,’ and it was so. They said, ‘Let there be heat and cold,’ and it was so. They said, ‘Let there be spring and summer, autumn and winter,’ and it was so.
 
-“‘Who will redeem the earth, who will go forth and make the sacrifice for the earth and all things it contains?’ The Eldest Son said: ‘Here am I’: and then he added, ‘Send me.’ But the second one, which was ‘Lucifer, \[a\] Son of the Morning,’ said, ‘Lord, here am I, send me, I will redeem every son and daughter of Adam and Eve that lives on the earth, or that ever goes on the earth.’ ‘But,’ says the Father, ‘that will not answer at all. I give \[unto\] each and every individual his agency; all must use that in order to gain exaltation in my kingdom; inasmuch as they have the power of choice they must exercise that power. They are my children; the attributes which you see in me are in my children and they must use their agency. If you undertake to save all, you must save them in unrighteousness and corruption’” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], pp. 53–54).
+“‘Who will redeem the earth, who will go forth and make the sacrifice for the earth and all things it contains?’ The Eldest Son said: ‘Here am I’: and then he added, ‘Send me.’ But the second one, which was ‘Lucifer, \[a\] Son of the Morning,’ said, ‘Lord, here am I, send me, I will redeem every son and daughter of Adam and Eve that lives on the earth, or that ever goes on the earth.’ ‘But,’ says the Father, ‘that will not answer at all. I give \[unto\] each and every individual his agency; all must use that in order to gain exaltation in my kingdom; inasmuch as they have the power of choice they must exercise that power. They are my children; the attributes which you see in me are in my children and they must use their agency. If you undertake to save all, you must save them in unrighteousness and corruption’” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], pp. 53–54).
 
 As these spirits have come forth from the council in heaven to take their “turn on earth,” they are still desiring their free agency, and, in fact, they are willing to sacrifice for that freedom. We are witnessing today remarkable events occurring throughout the world: evidence of the strength of man’s desire for freedom. The history of man’s mortal experience would indicate that the desire to be free has spiritual roots.
 
@@ -64,7 +66,7 @@ Prophets through the ages have taught us to be obedient to the laws of the Lord.
 
 President Wilford Woodruff once taught us:
 
-“The God of heaven, who created this earth and placed his children upon it, gave unto them a law whereby they might be exalted and saved in a kingdom of glory. For there is a law given unto all kingdoms, and all things are governed by law throughout the whole universe. Whatever law anyone keeps, he is preserved by that law, and he receives whatever reward that law guarantees unto him. It is the will of God that all his children should obey the highest law, that they may receive the highest glory that is ordained for all immortal beings. But God has given all his children an agency, to choose what law they will keep” (*The Discourses of Wilford Woodruff,* sel. G. Homer Durham \[Salt Lake City: Bookcraft, 1946\], p. 10).
+“The God of heaven, who created this earth and placed his children upon it, gave unto them a law whereby they might be exalted and saved in a kingdom of glory. For there is a law given unto all kingdoms, and all things are governed by law throughout the whole universe. Whatever law anyone keeps, he is preserved by that law, and he receives whatever reward that law guarantees unto him. It is the will of God that all his children should obey the highest law, that they may receive the highest glory that is ordained for all immortal beings. But God has given all his children an agency, to choose what law they will keep” (*The Discourses of Wilford Woodruff,* sel. G. Homer Durham \[Salt Lake City: Bookcraft, 1946\], p. 10).
 
 The Lord has not been so explicit in providing us religious customs along the order of feasts and festivals to remind us of the blessings we receive from Him today. However, the practice of having traditions to keep us close to the great heritage which is ours to enjoy should be something every family should try to keep alive.
 
@@ -81,8 +83,3 @@ This is the Lord’s work in which we are engaged. God lives! Jesus is the Chris
 
 
 
-
-
-
-
-#Family #Freedom #House_Of_Israel #Temples

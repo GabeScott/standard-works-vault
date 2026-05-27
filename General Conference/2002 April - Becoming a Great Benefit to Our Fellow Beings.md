@@ -1,5 +1,7 @@
 # Becoming a Great Benefit to Our Fellow Beings
 
+Gordon B. Hinckley
+
 By Elder Spencer J. Condie - *Of the Seventy*
 
 *Given in the April session of the 2002 General Conference*
@@ -36,7 +38,7 @@ Our friends and neighbors are children of a loving Father in Heaven, who desires
 
 When Joseph Smith and Oliver Cowdery received the Aaronic Priesthood under the hands of the resurrected John the Baptist, they received “the keys of the ministering of angels,”[^14] and so did you when you were ordained. I pray that you wonderful young men will not only be worthy to *receive* ministering angels, but that you, like young Wilford Woodruff, will *become* a ministering angel in the lives of others as you exercise your faith in working “mighty miracles,” thereby becoming a “great benefit” to your fellow beings.
 
-Satan would diminish your faith and dilute your priesthood power to work mighty miracles, but a loving Heavenly Father has provided you with providential protection—the gift of the Holy Ghost. In the first chapter of the Book of Mormon we learn that as Lehi read the scriptures “he was filled with the Spirit of the Lord.”[^15] Nephi later promises us that as we “feast upon the words of Christ … , the words of Christ will tell \[us\] all things what \[we\] should do.”[^16]
+Satan would diminish your faith and dilute your priesthood power to work mighty miracles, but a loving Heavenly Father has provided you with providential protection—the gift of the Holy Ghost. In the first chapter of the Book of Mormon we learn that as Lehi read the scriptures “he was filled with the Spirit of the Lord.”[^15] Nephi later promises us that as we “feast upon the words of Christ … , the words of Christ will tell \[us\] all things what \[we\] should do.”[^16]
 
 You may be facing decisions regarding a mission, your future career, and, eventually, marriage. As you read the scriptures and pray for direction, you may not actually see the answer in the form of printed words on the page, but as you read you will receive distinct impressions and promptings, and, as promised, the Holy Ghost “will show unto you all things what ye should do.”[^17]
 
@@ -80,19 +82,19 @@ My young beloved brethren, I pray that each of us, through our faith, will use o
 
 [^10]: See *Church Handbook of Instructions, Book 2: Priesthood and Auxiliary Leaders* (1998), 318–19.
 
-[^11]: [[Articles of Faith 1.13|A of F 1:13]].
+[^11]: [[Articles of Faith 1.13|A of F 1:13]].
 
 [^12]: [[Mosiah 2.17|Mosiah 2:17]].
 
-[^13]: [[2 Nephi 2.25|2 Ne. 2:25]].
+[^13]: [[2 Nephi 2.25|2 Ne. 2:25]].
 
 [^14]: [[D&C 13.1|D&C 13:1]].
 
-[^15]: See [[1 Nephi 1.8|1 Ne. 1:8–12]][[1 Nephi 1.9|]][[1 Nephi 1.10|]][[1 Nephi 1.11|]][[1 Nephi 1.12|]].
+[^15]: See [[1 Nephi 1.8|1 Ne. 1:8–12]][[1 Nephi 1.9|]][[1 Nephi 1.10|]][[1 Nephi 1.11|]][[1 Nephi 1.12|]].
 
-[^16]: [[2 Nephi 32.3|2 Ne. 32:3]].
+[^16]: [[2 Nephi 32.3|2 Ne. 32:3]].
 
-[^17]: [[2 Nephi 32.5|2 Ne. 32:5]].
+[^17]: [[2 Nephi 32.5|2 Ne. 32:5]].
 
 [^18]: [[Isaiah 58.6|Isa. 58:6]].
 
@@ -106,8 +108,3 @@ My young beloved brethren, I pray that each of us, through our faith, will use o
 
 [^23]: “Discourse by President Woodruff,” *Millennial Star,* 5 Oct. 1891, 628–29.
 
-
-
-
-
-#Faith #Preparation #Service

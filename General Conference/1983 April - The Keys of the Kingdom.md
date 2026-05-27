@@ -1,6 +1,8 @@
 # The Keys of the Kingdom
 
-By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
+Ezra Taft Benson
+
+By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -64,7 +66,7 @@ In our dispensation the Melchizedek Priesthood came in 1829; men were ordained t
 
 By way of climax, all of the keys of the kingdom are given to the Twelve in the winter of 1844. They then receive what the revelations call the fulness of the priesthood, together with the power to confer that eternal fulness upon others.
 
-After they are thus endowed and empowered, the Prophet says to the Twelve: “I have sealed upon your heads all the keys of the kingdom of God. I have sealed upon you every key, power, \[and\] principle that the God of heaven has revealed to me. Now, no matter where I may go or what I may do, the kingdom rests upon you. But, ye apostles of the Lamb of God, my brethren, upon your shoulders this kingdom rests; now you have got to round up your shoulders and bear off the kingdom. If you do not do it you will be damned.” (See the *Discourses of Wilford Woodruff,* sel. G. Homer Durham \[Salt Lake City: Bookcraft, 1946\], p. 72.)
+After they are thus endowed and empowered, the Prophet says to the Twelve: “I have sealed upon your heads all the keys of the kingdom of God. I have sealed upon you every key, power, \[and\] principle that the God of heaven has revealed to me. Now, no matter where I may go or what I may do, the kingdom rests upon you. But, ye apostles of the Lamb of God, my brethren, upon your shoulders this kingdom rests; now you have got to round up your shoulders and bear off the kingdom. If you do not do it you will be damned.” (See the *Discourses of Wilford Woodruff,* sel. G. Homer Durham \[Salt Lake City: Bookcraft, 1946\], p. 72.)
 
 And thus is fulfilled the divine word in which the Lord had said aforetime to the Twelve: “For unto you, the Twelve, and those, the First Presidency, who are appointed with you to be your counselors and your leaders, is the power of this priesthood given, for the last days and for the last time, in the which is the dispensation of the fulness of times.
 
@@ -93,8 +95,3 @@ Now, this testimony I bear for myself and for all the faithful elders of the kin
 
 
 
-
-
-
-
-#Authority #Church_Leaders #Priesthood

@@ -1,13 +1,12 @@
 # Shake, Shook, Shaken
 
-
-Uzzah put forth his hand to the ark ... for the oxen *shook* it, [[2 Samuel 6.6|2 Samuel 6:6]].
+Uzzah put forth his hand to the ark … for the oxen *shook* it, [[2 Samuel 6.6|2 Samuel 6:6]].
 
 *shaketh* the earth out of her place, [[Job 9.6|Job 9:6]].
 
 voice of the Lord *shaketh* the wilderness, [[Psalms 29.8|Psalms 29:8]] ([[Mosiah 27.15|Mosiah 27:15]]; [[Alma 29.1|Alma 29:1]]; [[Helaman 5.42|Helaman 5:42]]; [[Helaman 12.11|Helaman 12:11]]).
 
-earth *shook* ... at the presence of God, [[Psalms 68.8|Psalms 68:8]].
+earth *shook* … at the presence of God, [[Psalms 68.8|Psalms 68:8]].
 
 when he ariseth to *shake* terribly the earth, [[Isaiah 2.19|Isaiah 2:19]] ([[2 Nephi 12.19|2 Nephi 12:19]]).
 
@@ -19,7 +18,7 @@ foundations of the earth do *shake*, [[Isaiah 24.18|Isaiah 24:18]].
 
 Shall not the isles *shake* at the sound of thy fall, [[Ezekiel 26.15|Ezekiel 26:15]].
 
-all the men ... shall *shake* at my presence, [[Ezekiel 38.20|Ezekiel 38:20]].
+all the men … shall *shake* at my presence, [[Ezekiel 38.20|Ezekiel 38:20]].
 
 heavens and the earth shall *shake*, [[Joel 3.16|Joel 3:16]].
 
@@ -27,11 +26,11 @@ heavens and the earth shall *shake*, [[Joel 3.16|Joel 3:16]].
 
 *shake* off the dust of your feet, [[Matthew 10.14|Matthew 10:14]] ([[Mark 6.11|Mark 6:11]]; [[Luke 9.5|Luke 9:5]]; [[D&C 60.15|D&C 60:15]]; [[D&C 75.20|D&C 75:20]]).
 
-heavens shall be *shaken*, [[Matthew 24.29|Matthew 24:29]] ([[Mark 13.25|Mark 13:25]]; [[Luke 21.26|Luke 21:26]]; [[D&C 43.18|D&C 43:18]]; [[D&C 45.48|D&C 45:48]]; [[Moses 7.61|Moses 7:61]]; [[Joseph Smith Matthew 1.33|Joseph Smith Matthew 1:33]], [[Joseph Smith Matthew 1.36|Joseph Smith Matthew 1:36]]).
+heavens shall be *shaken*, [[Matthew 24.29|Matthew 24:29]] ([[Mark 13.25|Mark 13:25]]; [[Luke 21.26|Luke 21:26]]; [[D&C 43.18|D&C 43:18]]; [[D&C 45.48|D&C 45:48]]; [[Moses 7.61|Moses 7:61]]; [[Joseph Smith Matthew 1.33|Joseph Smith Matthew 1:33]]; [[Joseph Smith Matthew 1.36|Joseph Smith Matthew 1:36]]).
 
 for fear of him the keepers did *shake*, [[Matthew 28.4|Matthew 28:4]].
 
-stream beat ... that house, and could not *shake* it, [[Luke 6.48|Luke 6:48]].
+stream beat … that house, and could not *shake* it, [[Luke 6.48|Luke 6:48]].
 
 place was *shaken* where they were, [[Acts 4.31|Acts 4:31]].
 
@@ -49,7 +48,7 @@ voice of thunder, which did cause the earth to *shake*, [[1 Nephi 17.45|1 Nephi 
 
 make me that I may *shake* at the appearance of sin, [[2 Nephi 4.31|2 Nephi 4:31]].
 
-righteous ... love the truth and are not *shaken*, [[2 Nephi 9.40|2 Nephi 9:40]].
+righteous … love the truth and are not *shaken*, [[2 Nephi 9.40|2 Nephi 9:40]].
 
 I could not be *shaken*, [[Jacob 7.5|Jacob 7:5]].
 
@@ -59,7 +58,7 @@ prison did *shake*, [[Helaman 5.27|Helaman 5:27]].
 
 earth shall *shake* and tremble, [[Helaman 14.21|Helaman 14:21]].
 
-great and terrible tempest ... did *shake* the whole earth, [[3 Nephi 8.6|3 Nephi 8:6]].
+great and terrible tempest … did *shake* the whole earth, [[3 Nephi 8.6|3 Nephi 8:6]].
 
 in his name could they cause the earth to *shake*, [[Mormon 8.24|Mormon 8:24]].
 
@@ -71,9 +70,9 @@ heavens to *shake* for your good, [[D&C 21.6|D&C 21:6]].
 
 voice louder than that which shall *shake* the earth, [[D&C 38.30|D&C 38:30]].
 
-continue ... looking forth for the heavens to be *shaken*, [[D&C 49.23|D&C 49:23]].
+continue … looking forth for the heavens to be *shaken*, [[D&C 49.23|D&C 49:23]].
 
-request him to *shake* hands with you, [[D&C 129.4|D&C 129:4]] ([[D&C 129.7|129:7-8]][[D&C 129.8|]]).
+request him to *shake* hands with you, [[D&C 129.4|D&C 129:4]].
 
 whatsoever things are not by me shall be *shaken*, [[D&C 132.14|D&C 132:14]].
 

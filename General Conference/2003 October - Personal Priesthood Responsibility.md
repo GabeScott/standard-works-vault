@@ -1,5 +1,7 @@
 # Personal Priesthood Responsibility
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2003 General Conference*
@@ -85,7 +87,7 @@ God lives. Jesus is the Christ. He directs His Church through His prophets and a
 
 [^2]: See George Albert Smith, *Sharing the Gospel with Others,* comp. Preston Nibley (1948), 144–45.
 
-[^3]: See [[Matthew 20.16|Matthew 20:16]]; [[Matthew 22.14|22:14]]; [[1 Peter 2.9|1 Peter 2:9]]; [[Revelation 17.14|Revelation 17:14]]; [[Alma 13.3|Alma 13:3, 6, 9]][[Alma 13.6|]][[Alma 13.9|]]; [[3 Nephi 12.1|3 Nephi 12:1]]; [[D&C 3.10|D&C 3:10]]; [[D&C 52.1|52:1]]; [[D&C 95.5|95:5]]; [[D&C 121.34|121:34, 40–46]][[D&C 121.40|]][[D&C 121.41|]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]][[D&C 121.45|]][[D&C 121.46|]].
+[^3]: See [[Matthew 20.16|Matthew 20:16]]; [[Matthew 22.14|22:14]]; [[1 Peter 2.9|1 Peter 2:9]]; [[Revelation 17.14|Revelation 17:14]]; [[Alma 13.3|Alma 13:3, 6, 9]][[Alma 13.6|]][[Alma 13.9|]]; [[3 Nephi 12.1|3 Nephi 12:1]]; [[D&C 3.10|D&C 3:10]]; [[D&C 52.1|52:1]]; [[D&C 95.5|95:5]]; [[D&C 121.34|121:34, 40–46]][[D&C 121.40|]][[D&C 121.41|]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]][[D&C 121.45|]][[D&C 121.46|]].
 
 [^4]: [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]].
 
@@ -93,7 +95,7 @@ God lives. Jesus is the Christ. He directs His Church through His prophets and a
 
 [^6]: [[D&C 135.4|D&C 135:4]].
 
-[^7]: See [[3 Nephi 9.20|3 Nephi 9:20]].
+[^7]: See [[3 Nephi 9.20|3 Nephi 9:20]].
 
 [^8]: [[D&C 100.5|D&C 100:5–6]][[D&C 100.6|]].
 
@@ -135,12 +137,7 @@ God lives. Jesus is the Christ. He directs His Church through His prophets and a
 
 [^27]: See [[D&C 121.37|D&C 121:37]].
 
-[^28]: See [[2 Thessalonians 1.3|2 Thessalonians 1:3]]; [[D&C 121.41|D&C 121:41–42]][[D&C 121.42|]].
+[^28]: See [[2 Thessalonians 1.3|2 Thessalonians 1:3]]; [[D&C 121.41|D&C 121:41–42]][[D&C 121.42|]].
 
 [^29]: [[D&C 121.45|D&C 121:45]].
 
-
-
-
-
-#Obedience #Priesthood #Responsibility #Service

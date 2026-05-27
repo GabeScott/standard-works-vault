@@ -1,6 +1,5 @@
 # Ever
 
-
 *See also* [[Everlasting.md|Everlasting]]
 
 Thy throne, O God, is for *ever* and *ever*, [[Psalms 45.6|Psalms 45:6]] ([[Hebrews 1.8|Hebrews 1:8]]).

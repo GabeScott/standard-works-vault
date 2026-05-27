@@ -1,6 +1,8 @@
 # Defending Our Divinely Inspired Constitution
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Russell M. Nelson
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -24,7 +26,7 @@ God has given His children moral agency—the power to decide and to act. The mo
 
 ## II.
 
-Our belief that the United States Constitution was divinely inspired does not mean that divine revelation dictated every word and phrase, such as the provisions allocating the number of representatives from each state or the minimum age of each.[^2] The Constitution was not “a fully grown document,” said President J. Reuben Clark. “On the contrary,” he explained, “we believe it must grow and develop to meet the changing needs of an advancing world.”[^3] For example, inspired *amendments* abolished slavery and gave women the right to vote. However, we do not see inspiration in every Supreme Court decision interpreting the Constitution.
+Our belief that the United States Constitution was divinely inspired does not mean that divine revelation dictated every word and phrase, such as the provisions allocating the number of representatives from each state or the minimum age of each.[^2] The Constitution was not “a fully grown document,” said President J. Reuben Clark. “On the contrary,” he explained, “we believe it must grow and develop to meet the changing needs of an advancing world.”[^3] For example, inspired *amendments* abolished slavery and gave women the right to vote. However, we do not see inspiration in every Supreme Court decision interpreting the Constitution.
 
 I believe the United States Constitution contains at least five divinely inspired principles.[^4]
 
@@ -71,9 +73,9 @@ I testify of the divinely inspired Constitution of the United States and pray th
 
 [^2]: See United States Constitution, article 1, section 2.
 
-[^3]: J. Reuben Clark Jr., “Constitutional Government: Our Birthright Threatened,” *Vital Speeches of the Day*, Jan. 1, 1939, 177, quoted in Martin B. Hickman, “J. Reuben Clark, Jr.: The Constitution and the Great Fundamentals,” in Ray C. Hillam, ed., *By the Hands of Wise Men: Essays on the U.S. Constitution* (1979), 53. Brigham Young held a similar developmental view of the Constitution, teaching that the framers “laid the foundation, and it was for aftergenerations to rear the superstructure upon it” (*Discourses of Brigham Young*, sel. John A. Widtsoe \[1954\], 359).
+[^3]: J. Reuben Clark Jr., “Constitutional Government: Our Birthright Threatened,” *Vital Speeches of the Day*, Jan. 1, 1939, 177, quoted in Martin B. Hickman, “J. Reuben Clark, Jr.: The Constitution and the Great Fundamentals,” in Ray C. Hillam, ed., *By the Hands of Wise Men: Essays on the U.S. Constitution* (1979), 53. Brigham Young held a similar developmental view of the Constitution, teaching that the framers “laid the foundation, and it was for aftergenerations to rear the superstructure upon it” (*Discourses of Brigham Young*, sel. John A. Widtsoe \[1954\], 359).
 
-[^4]: These five are similar but not identical to those suggested in J. Reuben Clark Jr., *Stand Fast by Our Constitution* (1973), 7; Ezra Taft Benson, “[[1987 October - Our Divine Constitution.md|Our Divine Constitution]],” *Ensign*, Nov. 1987, 4–7; and Ezra Taft Benson, “[The Constitution—A Glorious Standard](https://churchofjesuschrist.org/study/ensign/1987/09/the-constitution-a-glorious-standard?lang=eng),” *Ensign*, Sept. 1987, 6–11. See, generally, Noel B. Reynolds, “The Doctrine of an Inspired Constitution,” in *By the Hands of Wise Men*, 1–28.
+[^4]: These five are similar but not identical to those suggested in J. Reuben Clark Jr., *Stand Fast by Our Constitution* (1973), 7; Ezra Taft Benson, “[[1987 October - Our Divine Constitution.md|Our Divine Constitution]],” *Ensign*, Nov. 1987, 4–7; and Ezra Taft Benson, “[The Constitution—A Glorious Standard](https://www.churchofjesuschrist.org/study/ensign/1987/09/the-constitution-a-glorious-standard?lang=eng),” *Ensign*, Sept. 1987, 6–11. See, generally, Noel B. Reynolds, “The Doctrine of an Inspired Constitution,” in *By the Hands of Wise Men*, 1–28.
 
 [^5]: United States Constitution, amendment 10.
 
@@ -83,10 +85,5 @@ I testify of the divinely inspired Constitution of the United States and pray th
 
 [^8]: See [[D&C 98.10|Doctrine and Covenants 98:10]].
 
-[^9]: See David B. Magleby, “The Necessity of Political Parties and the Importance of Compromise,” *BYU Studies*, vol. 54, no. 4 (2015), 7–23.
+[^9]: See David B. Magleby, “The Necessity of Political Parties and the Importance of Compromise,” *BYU Studies*, vol. 54, no. 4 (2015), 7–23.
 
-
-
-
-
-#Agency #Freedom #Government #Laws #U.S._Constitution

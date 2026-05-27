@@ -1,6 +1,8 @@
 # A Record of What I Have Both Seen and Heard
 
-By Elder Brent H. Nielson - *Of the Presidency of the Seventy*
+Dallin H. Oaks
+
+By Elder Brent H. Nielson - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -44,13 +46,13 @@ I am an eyewitness to the ongoing Restoration of the gospel of Jesus Christ and 
 
 Our wonderful missionaries who now cover the globe are 74,000 strong. Working together with members, they baptize over 20,000 people every month. It has recently been 18-, 19-, and 20-year-old young men and young women who, with the help of the Lord, have produced this mighty miracle of gathering. We find these young women and young men in the small villages of Vanuatu and in the large cities of New York, Paris, and London. I have watched them teach about the Savior in remote congregations in Fiji and larger gatherings in places like Texas, California, and Florida in the United States.
 
-You will find missionaries in every corner of the earth speaking 60 different languages and fulfilling the Savior’s great commission in Matthew 28: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.”[^8] I honor the past and current missionaries of the Church and remind our rising generation of President Russell M. Nelson’s invitation to come and gather Israel.[^9]
+You will find missionaries in every corner of the earth speaking 60 different languages and fulfilling the Savior’s great commission in Matthew 28: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost.”[^8] I honor the past and current missionaries of the Church and remind our rising generation of President Russell M. Nelson’s invitation to come and gather Israel.[^9]
 
 I testify today that I have observed this profound Restoration of the Savior’s gospel with my own eyes and heard it with my own ears. I am a witness of God’s work across the world. There has never been a better time to be a member of The Church of Jesus Christ of Latter-day Saints than today.
 
 Perhaps the most inspiring miracle of the Restoration that I have witnessed is you, the faithful members of the Church in every land. You, the Latter-day Saints, are described by Nephi in the Book of Mormon as he saw our day and testified, “And it came to pass that I, Nephi, beheld the power of the Lamb of God, that it descended upon the saints of the church of the Lamb, and upon the covenant people of the Lord, who were scattered upon all the face of the earth; and they were armed with righteousness and with the power of God in great glory.”[^10]
 
-I testify that I have seen with my own eyes what Nephi saw—you, the covenant Saints in every land, armed with righteousness and the power of God. As I was at the pulpit in one of these great nations of the world, the Lord impressed upon my mind something that King Benjamin taught in [[Mosiah 2.1|Mosiah 2]][[Mosiah 2.2|]][[Mosiah 2.3|]][[Mosiah 2.4|]][[Mosiah 2.5|]][[Mosiah 2.6|]][[Mosiah 2.7|]][[Mosiah 2.8|]][[Mosiah 2.9|]][[Mosiah 2.10|]][[Mosiah 2.11|]][[Mosiah 2.12|]][[Mosiah 2.13|]][[Mosiah 2.14|]][[Mosiah 2.15|]][[Mosiah 2.16|]][[Mosiah 2.17|]][[Mosiah 2.18|]][[Mosiah 2.19|]][[Mosiah 2.20|]][[Mosiah 2.21|]][[Mosiah 2.22|]][[Mosiah 2.23|]][[Mosiah 2.24|]][[Mosiah 2.25|]][[Mosiah 2.26|]][[Mosiah 2.27|]][[Mosiah 2.28|]][[Mosiah 2.29|]][[Mosiah 2.30|]][[Mosiah 2.31|]][[Mosiah 2.32|]][[Mosiah 2.33|]][[Mosiah 2.34|]][[Mosiah 2.35|]][[Mosiah 2.36|]][[Mosiah 2.37|]][[Mosiah 2.38|]][[Mosiah 2.39|]][[Mosiah 2.40|]][[Mosiah 2.41|]] in the Book of Mormon. Brent, “I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual.”[^11]
+I testify that I have seen with my own eyes what Nephi saw—you, the covenant Saints in every land, armed with righteousness and the power of God. As I was at the pulpit in one of these great nations of the world, the Lord impressed upon my mind something that King Benjamin taught in [[Mosiah 2.1|Mosiah 2]] in the Book of Mormon. Brent, “I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual.”[^11]
 
 I witness to you that I have seen this with my own eyes and heard it with my own ears as I have met you, faithful Saints of God across the earth who keep the commandments. You are the covenant children of the Father. You are disciples of Jesus Christ. You also know what I know because you have received your personal witness of the truthfulness of the restored gospel of Jesus Christ. The Savior taught, “But blessed are your eyes, for they see: and your ears, for they hear.”[^12]
 
@@ -67,26 +69,21 @@ I join all of you, my friends, as we unitedly testify that these things are true
 
 [^3]: [[Acts 4.19|Acts 4:19–20]][[Acts 4.20|]].
 
-[^4]: [[3 Nephi 17.16|3 Nephi 17:16]].
+[^4]: [[3 Nephi 17.16|3 Nephi 17:16]].
 
-[^5]: [[2 Nephi 27.26|2 Nephi 27:26]]; see also [[Isaiah 29.14|Isaiah 29:14]].
+[^5]: [[2 Nephi 27.26|2 Nephi 27:26]]; see also [[Isaiah 29.14|Isaiah 29:14]].
 
-[^6]: See [[2 Nephi 29.1|2 Nephi 29:1]].
+[^6]: See [[2 Nephi 29.1|2 Nephi 29:1]].
 
-[^7]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-38?lang=eng&id=p20#p20) (2007), 444.
+[^7]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-38?lang=eng&id=p20#p20) (2007), 444.
 
 [^8]: [[Matthew 28.19|Matthew 28:19]].
 
-[^9]: See Russell M. Nelson, “[Hope of Israel](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), Gospel Library; Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6–7.
+[^9]: See Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng)” (worldwide youth devotional, June 3, 2018), Gospel Library; Russell M. Nelson, “[[2022 April - Preaching the Gospel of Peace.md|Preaching the Gospel of Peace]],” *Liahona*, May 2022, 6–7.
 
-[^10]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^10]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
 [^11]: [[Mosiah 2.41|Mosiah 2:41]].
 
 [^12]: [[Matthew 13.16|Matthew 13:16]].
 
-
-
-
-
-#Church_Growth #Gathering #Missionary_Service #Testimony

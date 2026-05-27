@@ -1,6 +1,8 @@
 # Where Are You Really Going?
 
-By Elder Richard L. Evans - *Of the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Richard L. Evans - *Of the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -54,7 +56,7 @@ We have an obligation to safeguard children in their innocence and honesty. And 
 
 Now, as we go along in life, two things should surely be considered: the power of prevention and the power of repentance.
 
-Why run against the laws of life? Why run headlong into ill health and unhappiness? Why live contrary to conscience? Think of the heartbreak and waste and regret that could be prevented by living as we ought to live. No one can set aside consequences. As Cecil B. DeMille said: “We cannot break the … Commandments. We can only break ourselves against them.”[^4] O let us think and live and teach the power of prevention. “If it is not right,” said Marcus Aurelius, “do *not* do it; if it is not true, do *not* say it.”[^5]
+Why run against the laws of life? Why run headlong into ill health and unhappiness? Why live contrary to conscience? Think of the heartbreak and waste and regret that could be prevented by living as we ought to live. No one can set aside consequences. As Cecil B. DeMille said: “We cannot break the … Commandments. We can only break ourselves against them.”[^4] O let us think and live and teach the power of prevention. “If it is not right,” said Marcus Aurelius, “do *not* do it; if it is not true, do *not* say it.”[^5]
 
 But wherein we may have failed in this (and heaven help us not to fail), then let us turn with all our hearts to the power of repentance.
 
@@ -64,7 +66,7 @@ But thanks be to God for the principle of repentance, for a Father who understan
 
 “By this ye may know if a man repenteth of his sins—behold, he will confess them *and forsake them.*”
 
-“… he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.” ([[D&C 58.43|D&C 58:43, 42]][[D&C 58.42|]]. Italics added.)
+“… he who has repented of his sins, the same is forgiven, and I, the Lord, remember them no more.” ([[D&C 58.43|D&C 58:43, 42]][[D&C 58.42|]]. Italics added.)
 
 This you can count on. O turn from those ways which will take you where no one really wants to go. Turn to that which will bring you peace and self-respect and cleanliness and a quiet conscience.
 
@@ -87,12 +89,7 @@ I know that my Redeemer lives, and pray his peace and blessings upon all men eve
 
 [^3]: Juvenal, *Satires,* xiii.
 
-[^4]: Cecil B. DeMille, Brigham Young University Commencement Address, 1957.
+[^4]: Cecil B. DeMille, Brigham Young University Commencement Address, 1957.
 
 [^5]: Marcus Aurelius, *Meditations,* Book xii, sec. 17, line 68.
 
-
-
-
-
-#Goals

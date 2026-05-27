@@ -1,5 +1,7 @@
 # Building a Bridge of Faith
 
+Gordon B. Hinckley
+
 By Elder Charles Didier - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 2001 General Conference*
@@ -45,8 +47,3 @@ I testify that Jesus is the Christ; I put my trust in Him and in His gospel of s
 
 
 
-
-
-
-
-#Atonement #Faith #Fear #Holy_Ghost #Love #Plan_Of_Salvation #Sin #Testimony #Unity

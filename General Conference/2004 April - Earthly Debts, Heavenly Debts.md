@@ -1,5 +1,7 @@
 # Earthly Debts, Heavenly Debts
 
+Gordon B. Hinckley
+
 By Elder Joseph B. Wirthlin - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -40,9 +42,9 @@ President Ezra Taft Benson said, “Do not leave yourself or your family unprote
 
 President Harold B. Lee taught, “Not only should we teach men to get out of debt but we should teach them likewise to stay out of debt.”[^5]
 
-President Gordon B. Hinckley declared: “Many of our people are living on the very edge of their incomes. In fact, some are living on borrowings. …
+President Gordon B. Hinckley declared: “Many of our people are living on the very edge of their incomes. In fact, some are living on borrowings. …
 
-“… I urge you to be modest in your expenditures; discipline yourselves in your purchases to avoid debt to the extent possible. Pay off debt as quickly as you can, and free yourselves from bondage.”[^6]
+“… I urge you to be modest in your expenditures; discipline yourselves in your purchases to avoid debt to the extent possible. Pay off debt as quickly as you can, and free yourselves from bondage.”[^6]
 
 My brothers and sisters, many have heeded this prophetic counsel. They live within their means, they honor the debts they have incurred, and they strive to reduce the burden they owe to others. We congratulate those who are doing so, for the day will come when they will reap the blessings of their efforts and understand the value of this inspired counsel.
 
@@ -50,17 +52,17 @@ However, others struggle when it comes to finances. Some are victims of adverse 
 
 May I suggest five key steps to financial freedom for your consideration.
 
-**First, pay your tithing.** Do you want the windows of heaven opened to you? Do you wish to receive blessings so great there is not room enough to receive them?[^7] Always pay your tithing and leave the outcome in the hands of the Lord.
+***First, pay your tithing.*** Do you want the windows of heaven opened to you? Do you wish to receive blessings so great there is not room enough to receive them?[^7] Always pay your tithing and leave the outcome in the hands of the Lord.
 
 Obedience to God’s commandments is the foundation for a happy life. Surely we will be blessed with the gifts of heaven for our obedience. Failure to pay tithing by those who know the principle can lead to heartache in this life and perhaps sorrow in the next.
 
-**Second, spend less than you earn.** This is simple counsel but a powerful secret for financial happiness. All too often a family’s spending is governed more by their *yearning* than by their *earning.* They somehow believe that their life will be better if they surround themselves with an abundance of things. All too often all they are left with is avoidable anxiety and distress.
+***Second, spend less than you earn.*** This is simple counsel but a powerful secret for financial happiness. All too often a family’s spending is governed more by their *yearning* than by their *earning.* They somehow believe that their life will be better if they surround themselves with an abundance of things. All too often all they are left with is avoidable anxiety and distress.
 
 Those who live safely within their means know how much money comes in each month, and even though it is difficult, they discipline themselves to spend less than that amount.
 
 Credit is so easy to obtain. In fact, it is almost thrust upon us. Those who use credit cards to overspend unwisely should consider eliminating them. It is much better that a plastic credit card should perish than a family dwindle and perish in debt.
 
-**Third, learn to save.** Remember the lesson of Joseph of Egypt. During times of prosperity, save up for a day of want.[^8]
+***Third, learn to save.*** Remember the lesson of Joseph of Egypt. During times of prosperity, save up for a day of want.[^8]
 
 Too often people assume that they probably never will be injured, get sick, lose their jobs, or see their investments evaporate. To make matters worse, often people make purchases today based upon optimistic predictions of what they hope will happen tomorrow.
 
@@ -68,7 +70,7 @@ The wise understand the importance of saving today for a rainy day tomorrow. The
 
 Brothers and sisters, the preparations you make today may one day be to you as the stored food was to the Egyptians and to Joseph’s father’s family.
 
-**Fourth, honor your financial obligations.** From time to time we hear stories of greed and selfishness that strike us with great sorrow. We hear of fraud, defaulting on loan commitments, financial deceptions, and bankruptcies.
+***Fourth, honor your financial obligations.*** From time to time we hear stories of greed and selfishness that strike us with great sorrow. We hear of fraud, defaulting on loan commitments, financial deceptions, and bankruptcies.
 
 We hear of fathers who financially neglect their own families. We say to men and women everywhere, if you bring children into the world, it is your solemn obligation to do all within your power to provide for them. No man is fit to be called a man who gathers around himself cars, boats, and other possessions while neglecting the sacred financial obligations he has to his own wife and children.
 
@@ -86,7 +88,7 @@ Years passed, and finally the wonderful day arrived when Fred made the last paym
 
 To this day, nearly 70 years after Fred signed his name to that note, descendants of Fred and Erma Snowberger still tell this story with pride. This act of honor and nobility has lived through the decades as a cherished example of family integrity.
 
-**Fifth, teach your children to follow your example.** Too many of our youth get into financial difficulty because they never learned proper principles of financial common sense at home. Teach your children while they are young. Teach them that they cannot have something merely because they want it. Teach them the principles of hard work, frugality, and saving.
+***Fifth, teach your children to follow your example.*** Too many of our youth get into financial difficulty because they never learned proper principles of financial common sense at home. Teach your children while they are young. Teach them that they cannot have something merely because they want it. Teach them the principles of hard work, frugality, and saving.
 
 If you don’t consider yourself informed well enough to teach them, all the more reason for you to begin learning. Abundant resources are available—from classes to books to other resources.
 
@@ -119,11 +121,11 @@ Know within your hearts that Jesus the Christ lives. Be at peace, for as you dra
 
 [^3]: In Conference Report, Oct. 1921, 3.
 
-[^4]: *Pay Thy Debt, and Live … ,* Brigham Young University Speeches of the Year (Feb. 28, 1962), 10.
+[^4]: *Pay Thy Debt, and Live … ,* Brigham Young University Speeches of the Year (Feb. 28, 1962), 10.
 
 [^5]: *The Teachings of Harold B. Lee,* ed. Clyde J. Williams (1996), 315.
 
-[^6]: In Conference Report, Oct. 1998, 70, 72; or *Ensign,* Nov. 1998, 53–54.
+[^6]: In Conference Report, Oct. 1998, [[1998 October - To the Boys and to the Men.md|70, 72]]; or *Ensign,* Nov. 1998, 53–54.
 
 [^7]: See [[Malachi 3.10|Malachi 3:10]].
 
@@ -135,8 +137,3 @@ Know within your hearts that Jesus the Christ lives. Be at peace, for as you dra
 
 [^11]: [[Matthew 6.19|Matthew 6:19–20]][[Matthew 6.20|]].
 
-
-
-
-
-#Financial_Management #Honesty #Tithing

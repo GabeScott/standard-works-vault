@@ -1,6 +1,8 @@
 # The Mediator
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -110,7 +112,7 @@ Unless there is a mediator, unless we have a friend, the full weight of justice 
 
 But know this: Truth, glorious truth, proclaims there is such a Mediator.
 
-“For there is one God, and one mediator between God and men, the man Christ Jesus.” ([[1 Timothy 2.5|1 Tim. 2:5]].)
+“For there is one God, and one mediator between God and men, the man Christ Jesus.” ([[1 Timothy 2.5|1 Tim. 2:5]].)
 
 Through Him mercy can be fully extended to each of us without offending the eternal law of justice.
 
@@ -130,7 +132,7 @@ We often try to solve guilt problems by telling one another that they don’t ma
 
 Our transgressions are all added to our account, and one day if it is not properly settled, each of us, like Belshazzar of Babylon, will be weighed in the balance and found wanting.
 
-There is a Redeemer, a Mediator, who stands both willing and able to appease the demands of justice and extend mercy to those who are penitent, for “He offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered.” ([[2 Nephi 2.7|2 Ne. 2:7]].)
+There is a Redeemer, a Mediator, who stands both willing and able to appease the demands of justice and extend mercy to those who are penitent, for “He offereth himself a sacrifice for sin, to answer the ends of the law, unto all those who have a broken heart and a contrite spirit; and unto none else can the ends of the law be answered.” ([[2 Nephi 2.7|2 Ne. 2:7]].)
 
 Already He has accomplished the redemption of all mankind from mortal death; resurrection is extended to all without condition.
 
@@ -150,7 +152,7 @@ How sweet it is, on those occasions, to be reassured that He lives, and to have 
 
 I claim with my brethren of the Twelve to be a special witness of Him. My witness, and theirs, is true. I love the Lord, and I love the Father who sent Him.
 
-Eliza R. Snow, with deep spiritual inspiration, wrote these words, with which I close.
+Eliza R. Snow, with deep spiritual inspiration, wrote these words, with which I close.
 
 >How great the wisdom and the love
 >That filled the courts on high
@@ -173,8 +175,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Atonement #Jesus_Christ #Justice #Mercy

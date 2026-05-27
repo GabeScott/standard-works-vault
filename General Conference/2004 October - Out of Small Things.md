@@ -1,5 +1,7 @@
 # Out of Small Things
 
+Gordon B. Hinckley
+
 By Kathleen H. Hughes - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -12,7 +14,7 @@ The words of the grand anthem of the Restoration sung at the opening of our meet
 
 September 1832 was a busy season of preparation for the early Saints. The Prophet was preparing to move to the John Johnson home southeast of Kirtland, Ohio; other brethren were preparing to leave for Missouri. In the midst of these preparations, Joseph Smith received the revelation that we now know as section 64 of the Doctrine and Covenants. After instructing the men going to Missouri, the Lord reminded them: “But all things must come to pass in their time. Wherefore, be not weary in well-doing, for ye are laying the foundation of a great work. *And out of small things proceedeth that which is great*” ([[D&C 64.32|D&C 64:32–33]][[D&C 64.33|]]; emphasis added).
 
-These verses are a guide for us as we prepare ourselves and our families to live in “perilous times” (see [[2 Timothy 3.1|2 Timothy 3:1]]). We must not become weary of doing good, and we must not become impatient; the changes we seek will come about “in their time.” Most important, the great work we wish to do will proceed from “small things.”
+These verses are a guide for us as we prepare ourselves and our families to live in “perilous times” (see [[2 Timothy 3.1|2 Timothy 3:1]]). We must not become weary of doing good, and we must not become impatient; the changes we seek will come about “in their time.” Most important, the great work we wish to do will proceed from “small things.”
 
 One of those small things, I have learned, is that I must find the time to fill my own spiritual reservoir each day. It’s tempting to make a massive list of my failings and then to work at them, as a friend of mine says, as though I am “killing snakes.” Self-improvement may seem a kind of work project, but it is—at heart—a change of heart. When we women struggle to keep up with life—raising children, providing necessities, attending school, dealing with issues of age or ill health—our own spirituality often ends up at the bottom of our long “to do” lists.
 
@@ -37,8 +39,3 @@ I bear witness to you of the reality of the promises of the Father to us, His be
 
 
 
-
-
-
-
-#Family #Prayer #Preparation #Scripture_Study #Service

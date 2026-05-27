@@ -1,6 +1,8 @@
 # Decision
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+Spencer W. Kimball
+
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -22,7 +24,7 @@ One of the important purposes of this life of mortality is to learn how to make 
 
 The Lord has said: “This is my work and my glory—to bring to pass the immortality and eternal life of man.” ([[Moses 1.39|Moses 1:39]].)
 
-When the gospel plan was explained to Lorenzo Snow, he put the whole plan in a nice epigram: “As man now is, our God once was; as now God is, so man may be.” (Lorenzo Snow, 11 January 1892, reprinted in *Latter-day Prophets Speak,* ed. Daniel H. Ludlow, Bookcraft, 1951, p. 72.)
+When the gospel plan was explained to Lorenzo Snow, he put the whole plan in a nice epigram: “As man now is, our God once was; as now God is, so man may be.” (Lorenzo Snow, 11 January 1892, reprinted in *Latter-day Prophets Speak,* ed. Daniel H. Ludlow, Bookcraft, 1951, p. 72.)
 
 Then, if man is going to become as God now is, he will have to learn to make decisions of great importance on his own initiative.
 
@@ -69,8 +71,3 @@ Seek the guidance of the Lord in making decisions, but use that God-given right 
 
 
 
-
-
-
-
-#Agency #Youth

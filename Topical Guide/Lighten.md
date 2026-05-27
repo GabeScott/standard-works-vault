@@ -1,6 +1,5 @@
 # Lighten
 
-
 *See also* [[Enlighten.md|Enlighten]]
 
 Lord will *lighten* my darkness, [[2 Samuel 22.29|2 Samuel 22:29]].

@@ -1,5 +1,7 @@
 # Our Duty to God: The Mission of Parents and Leaders to the Rising Generation
 
+Thomas S. Monson
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -65,8 +67,3 @@ I bear my special witness that Jesus Christ lives. He is the shepherd of the los
 
 [^1]: See “Maud Muller,” in *The Complete Poetical Works of John Greenleaf Whittier* (1876), 206.
 
-
-
-
-
-#Duty #Example #Home #Parents #Youth

@@ -1,6 +1,8 @@
 # Seeking the Lord
 
-By Elder José A. Teixeira - *Of the Seventy*
+Cheryl A. Esplin
+
+By Elder José A. Teixeira - *Of the Seventy*
 
 *Given in the April session of the 2015 General Conference*
 
@@ -66,7 +68,7 @@ Just as “there is no good soil without a good farmer,”[^7] likewise will the
 
 It is refreshing to put aside our electronic devices for a while and instead turn the pages of the scriptures or take time to converse with family and friends. Especially on the Lord’s day, experience the peace of participating in a sacrament meeting without the constant urge to see if you have a new message or a new post.
 
-The habit of setting aside your mobile device for a time will enrich and broaden your view of life, for life is not confined to a four-inch (10 cm) screen.
+The habit of setting aside your mobile device for a time will enrich and broaden your view of life, for life is not confined to a four-inch (10 cm) screen.
 
 The Lord Jesus Christ said, “As the Father hath loved me, so have I loved you: continue ye in my love.”[^8] God wants us to have joy and to feel His love. Christ makes such joy a possibility for each of us. We have the means to know Him better and to live His gospel.
 
@@ -91,8 +93,3 @@ I bear my testimony of the joy that exists when we keep the commandments and of 
 
 [^8]: [[John 15.9|John 15:9]].
 
-
-
-
-
-#Jesus_Christ #Joy #Priorities #Technology

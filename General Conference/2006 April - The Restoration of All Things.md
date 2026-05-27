@@ -1,5 +1,7 @@
 # The Restoration of All Things
 
+Robert D. Hales
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -55,9 +57,9 @@ I have a personal witness of the truth of the covenants, teachings, and authorit
 
 [^1]: “Statement of the First Presidency regarding God’s Love for All Mankind,” Feb. 15, 1978.
 
-[^2]: In Conference Report, Apr. 1995, 112; or *Ensign,* May 1995, 84.
+[^2]: In Conference Report, Apr. 1995, [[1995 April - Apostasy and Restoration.md|112]]; or *Ensign,* May 1995, 84.
 
-[^3]: [[2 Thessalonians 2.3|2 Thessalonians 2:3]]; emphasis added.
+[^3]: [[2 Thessalonians 2.3|2 Thessalonians 2:3]]; emphasis added.
 
 [^4]: See [[Mark 1.9|Mark 1:9–10]][[Mark 1.10|]].
 
@@ -69,7 +71,7 @@ I have a personal witness of the truth of the covenants, teachings, and authorit
 
 [^8]: See [[Daniel 2.28|Daniel 2:28]]; [[Amos 3.7|Amos 3:7]]; [[D&C 121.26|D&C 121:26]].
 
-[^9]: See [[Obadiah 1.21|Obadiah 1:21]]; [[Malachi 4.6|Malachi 4:6]]; [[1 Corinthians 15.29|1 Corinthians 15:29]]; [[Revelation 7.15|Revelation 7:15]].
+[^9]: See [[Obadiah 1.21|Obadiah 1:21]]; [[Malachi 4.6|Malachi 4:6]]; [[1 Corinthians 15.29|1 Corinthians 15:29]]; [[Revelation 7.15|Revelation 7:15]].
 
 [^10]: [[Acts 3.20|Acts 3:20–21]][[Acts 3.21|]].
 
@@ -95,7 +97,7 @@ I have a personal witness of the truth of the covenants, teachings, and authorit
 
 [^21]: [[Moses 1.39|Moses 1:39]].
 
-[^22]: [[1 Corinthians 15.29|1 Corinthians 15:29]].
+[^22]: [[1 Corinthians 15.29|1 Corinthians 15:29]].
 
 [^23]: See [[Moses 5.58|Moses 5:58]]; [[Moses 8.19|8:19]]; [[Abraham 2.10|Abraham 2:10–11]][[Abraham 2.11|]].
 
@@ -103,8 +105,3 @@ I have a personal witness of the truth of the covenants, teachings, and authorit
 
 [^25]: First Presidency statement, Feb. 15, 1978.
 
-
-
-
-
-#Apostasy #Covenants #Restoration

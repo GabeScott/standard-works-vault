@@ -1,21 +1,20 @@
 # Spend, Spent
 
-
-We will not hide ... how that our money is *spent*, [[Genesis 47.18|Genesis 47:18]].
+We will not hide … how that our money is *spent*, [[Genesis 47.18|Genesis 47:18]].
 
 your strength shall be *spent* in vain, [[Leviticus 26.20|Leviticus 26:20]].
 
 we *spend* our years as a tale that is told, [[Psalms 90.9|Psalms 90:9]].
 
-treasure ... a foolish man *spendeth* it up, [[Proverbs 21.20|Proverbs 21:20]].
+treasure … a foolish man *spendeth* it up, [[Proverbs 21.20|Proverbs 21:20]].
 
 I have *spent* my strength for nought, [[Isaiah 49.4|Isaiah 49:4]] ([[1 Nephi 21.4|1 Nephi 21:4]]).
 
 do ye *spend* money for that which is not bread, [[Isaiah 55.2|Isaiah 55:2]].
 
-whatsoever thou *spendest* more ... I will repay thee, [[Luke 10.35|Luke 10:35]].
+whatsoever thou *spendest* more … I will repay thee, [[Luke 10.35|Luke 10:35]].
 
-Athenians ... *spent* their time in nothing else, [[Acts 17.21|Acts 17:21]].
+Athenians … *spent* their time in nothing else, [[Acts 17.21|Acts 17:21]].
 
 night is far *spent*, [[Romans 13.12|Romans 13:12]].
 

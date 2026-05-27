@@ -4,6 +4,3 @@
 
 [JST Luke 23:35](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-luke/23?lang=eng)
 
-
-
-

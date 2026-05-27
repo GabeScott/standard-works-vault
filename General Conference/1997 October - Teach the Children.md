@@ -1,5 +1,7 @@
 # Teach the Children
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1997 General Conference*
@@ -163,8 +165,3 @@ In the name of Jesus Christ, amen.
 
 [^17]: [[Mark 10.14|Mark 10:14]].
 
-
-
-
-
-#Atonement #Children #Death #Faith #Family #Home #Jesus_Christ #Parenthood #Peace #Prayer #Resurrection #Sin #Truth

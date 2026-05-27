@@ -1,5 +1,7 @@
 # We Follow Jesus Christ
 
+Thomas S. Monson
+
 By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2010 General Conference*
@@ -18,7 +20,7 @@ The Prophet Joseph Smith, speaking of these Easter events, said, “The fundamen
 
 While we rejoice in the supernal significance of Gethsemane and Calvary, our focus has always been on the resurrected Lord. Frederic Farrar, the English theologian and believer, testified that the earliest generation of believers in the primitive Christian Church celebrated the Savior as “the Risen, the Eternal, the Glorified Christ” and “contemplated Him, not as on the Cross, but as on the Throne.”[^8]
 
-President Gordon B. Hinckley taught that our message to the world is that He lives! The symbol of Christ for the Latter-day Saints will be found in the meaningful expression of our faith and the way we live His gospel.[^9]
+President Gordon B. Hinckley taught that our message to the world is that He lives! The symbol of Christ for the Latter-day Saints will be found in the meaningful expression of our faith and the way we live His gospel.[^9]
 
 As we ponder what it means to be Christians today, think about what our path of discipleship will require of us. I suggest that we contemplate and in appropriate ways emulate what the Savior did in those last two days of His mortal life.
 
@@ -40,7 +42,7 @@ The atoning trials the Savior faced in Gethsemane and on the cross are a great e
 
 We are preparing for the Second Coming of the Savior. The scriptures are clear that no one knows when this will occur. The scriptures do tell us that in the last days, among the bitter cups we will face, there will be “earthquakes, in divers places”[^18] and the “waves of the sea heaving themselves beyond their bounds.”[^19]
 
-Devastating earthquakes and tsunamis have recently occurred in diverse places, including Chile, Haiti, and the islands of the Pacific. A few weeks ago Presiding Bishop H. David Burton, Elder Tad R. Callister, and I were able to meet with the Saints who had lost family members as a result of the tsunami that hit the eastern side of Samoa last September. The chapel was full, and it was an emotional meeting. We were able to assure these choice members that because of the Atonement of Jesus Christ, they can be reunited with the loved ones they have lost.
+Devastating earthquakes and tsunamis have recently occurred in diverse places, including Chile, Haiti, and the islands of the Pacific. A few weeks ago Presiding Bishop H. David Burton, Elder Tad R. Callister, and I were able to meet with the Saints who had lost family members as a result of the tsunami that hit the eastern side of Samoa last September. The chapel was full, and it was an emotional meeting. We were able to assure these choice members that because of the Atonement of Jesus Christ, they can be reunited with the loved ones they have lost.
 
 The stake president, Sonny Purcell, was driving his car when he saw the enormous wave coming far out at sea. He honked his horn and stopped children on the road walking to school and warned them to run for higher ground and safety as fast as they could. The children followed his instruction. He frantically drove, reached his four-year-old daughter, put her in the car, and then tried to get to his mother. Before he could reach his mother, the wall of water picked up his car and swept it over 100 yards (91 m), where it lodged in a tree. He scrambled to secure his daughter on top of the car and then swam to rescue his mother, who was clinging to a branch of another tree near their house. With great effort he swam with her to the car and safety. Many were not as fortunate. They did not have time to get to higher ground and safety. Many lost their lives, particularly the young and the elderly.
 
@@ -54,9 +56,9 @@ On Easter Sunday, April 3, 1836, one week after the dedication of the Kirtland T
 
 Today on this Easter morning we rejoice in all the Savior has done for us. He has made it possible for each of us to gain our salvation and exaltation. But we, like the Samoan children, must run as fast as we can to the high ground He has provided for safety and peace.
 
-One of the ways we do this is by adhering to the teachings of our living prophet, President Thomas S. Monson. He is an excellent example of one who follows the Savior.
+One of the ways we do this is by adhering to the teachings of our living prophet, President Thomas S. Monson. He is an excellent example of one who follows the Savior.
 
-On this glorious Easter morning I resonate with the treasured words penned by Eliza R. Snow, a faithful servant in the Restoration:
+On this glorious Easter morning I resonate with the treasured words penned by Eliza R. Snow, a faithful servant in the Restoration:
 
 >How great, how glorious, how complete
 >Redemption’s grand design,
@@ -69,25 +71,25 @@ I bear my apostolic witness that Jesus Christ lives and is the Savior and Redeem
 
 
 
-[^1]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 594.
+[^1]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 594.
 
 [^2]: [[Luke 22.19|Luke 22:19]].
 
 [^3]: See [[John 13.34|John 13:34–35]][[John 13.35|]].
 
-[^4]: James E. Talmage, *Jesus the Christ,* 603; see also [[John 14.16|John 14:16–17]][[John 14.17|]].
+[^4]: James E. Talmage, *Jesus the Christ,* 603; see also [[John 14.16|John 14:16–17]][[John 14.17|]].
 
-[^5]: James E. Talmage, *Jesus the Christ,* 613.
+[^5]: James E. Talmage, *Jesus the Christ,* 613.
 
-[^6]: See [[2 Nephi 9.6|2 Nephi 9:6–24]][[2 Nephi 9.7|]][[2 Nephi 9.8|]][[2 Nephi 9.9|]][[2 Nephi 9.10|]][[2 Nephi 9.11|]][[2 Nephi 9.12|]][[2 Nephi 9.13|]][[2 Nephi 9.14|]][[2 Nephi 9.15|]][[2 Nephi 9.16|]][[2 Nephi 9.17|]][[2 Nephi 9.18|]][[2 Nephi 9.19|]][[2 Nephi 9.20|]][[2 Nephi 9.21|]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]].
+[^6]: See [[2 Nephi 9.6|2 Nephi 9:6–24]][[2 Nephi 9.7|]][[2 Nephi 9.8|]][[2 Nephi 9.9|]][[2 Nephi 9.10|]][[2 Nephi 9.11|]][[2 Nephi 9.12|]][[2 Nephi 9.13|]][[2 Nephi 9.14|]][[2 Nephi 9.15|]][[2 Nephi 9.16|]][[2 Nephi 9.17|]][[2 Nephi 9.18|]][[2 Nephi 9.19|]][[2 Nephi 9.20|]][[2 Nephi 9.21|]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]].
 
 [^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49; see also [[D&C 20.22|Doctrine and Covenants 20:22–25]][[D&C 20.23|]][[D&C 20.24|]][[D&C 20.25|]].
 
-[^8]: Frederic W. Farrar, *The Life of Lives—Further Studies in the Life of Christ* (1900), 209.
+[^8]: Frederic W. Farrar, *The Life of Lives—Further Studies in the Life of Christ* (1900), 209.
 
-[^9]: See Gordon B. Hinckley, in Conference Report, Apr. 1996, 88–92; or *Ensign,* May 1996, 65–67; “The Symbol of Our Faith,” *Liahona* and *Ensign,* Apr. 2005, 2–6.
+[^9]: See Gordon B. Hinckley, in Conference Report, Apr. 1996, [[1996 April - This Glorious Easter Morn.md|88–92]]; or *Ensign,* May 1996, 65–67; “The Symbol of Our Faith,” *Liahona* and *Ensign,* Apr. 2005, 2–6.
 
-[^10]: See [[3 Nephi 18.1|3 Nephi 18:1–11]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]].
+[^10]: See [[3 Nephi 18.1|3 Nephi 18:1–11]][[3 Nephi 18.2|]][[3 Nephi 18.3|]][[3 Nephi 18.4|]][[3 Nephi 18.5|]][[3 Nephi 18.6|]][[3 Nephi 18.7|]][[3 Nephi 18.8|]][[3 Nephi 18.9|]][[3 Nephi 18.10|]][[3 Nephi 18.11|]].
 
 [^11]: See [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -111,8 +113,3 @@ I bear my apostolic witness that Jesus Christ lives and is the Savior and Redeem
 
 [^21]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
-
-
-
-
-#Atonement #Jesus_Christ #Safety

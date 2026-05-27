@@ -1,5 +1,7 @@
 # Perseverance
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -71,9 +73,9 @@ Those who desire to be baptized into the Church are required by the Lord to have
 
 [^1]: Dan Kartchner, personal communication.
 
-[^2]: In Marvin J. Ashton, in Conference Report, Oct. 1981, 126; or *Ensign,* Nov. 1981, 89.
+[^2]: In Marvin J. Ashton, in Conference Report, Oct. 1981, [[1981 October - “Give with Wisdom That They May Receive with Dignity”.md|126]]; or *Ensign,* Nov. 1981, 89.
 
-[^3]: Sterling W. Sill, in Conference Report, Oct. 1974, 86; or *Ensign,* Nov. 1974, 62.
+[^3]: Sterling W. Sill, in Conference Report, Oct. 1974, [[1974 October - Transfusion.md|86]]; or *Ensign,* Nov. 1974, 62.
 
 [^4]: See Eliza R. Snow Smith, *Biography and Family Record of Lorenzo Snow* (1884), 276–81.
 
@@ -93,8 +95,3 @@ Those who desire to be baptized into the Church are required by the Lord to have
 
 [^12]: See [[John 8.31|John 8:31]].
 
-
-
-
-
-#Dedication #Service #Teaching

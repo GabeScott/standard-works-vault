@@ -1,6 +1,5 @@
 # Ivory
 
-
 made a great throne of *ivory*, [[1 Kings 10.18|1 Kings 10:18]] ([[2 Chronicles 9.17|2 Chronicles 9:17]]).
 
 *ivory* house which he made, [[1 Kings 22.39|1 Kings 22:39]].

@@ -1,5 +1,7 @@
 # Seek, and Ye Shall Find
 
+Gordon B. Hinckley
+
 By Elder Craig C. Christensen - *Of the Seventy*
 
 *Given in the April session of the 2003 General Conference*
@@ -49,7 +51,7 @@ As we seek Him, we find that He is “the light and the life of the world.”[^1
 
 
 
-[^1]: [[Matthew 7.7|Matthew 7:7]]; [[3 Nephi 14.7|3 Nephi 14:7]].
+[^1]: [[Matthew 7.7|Matthew 7:7]]; [[3 Nephi 14.7|3 Nephi 14:7]].
 
 [^2]: See [[D&C 9.7|D&C 9:7–8]][[D&C 9.8|]]; [[Moroni 10.3|Moroni 10:3]].
 
@@ -63,7 +65,7 @@ As we seek Him, we find that He is “the light and the life of the world.”[^1
 
 [^7]: [[Articles of Faith 1.13|Articles of Faith 1:13]].
 
-[^8]: See [[3 Nephi 20.41|3 Nephi 20:41]]; [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]].
+[^8]: See [[3 Nephi 20.41|3 Nephi 20:41]]; [[JST Matthew 6.38|Joseph Smith Translation, Matthew 6:38]].
 
 [^9]: *Teachings of Gordon B. Hinckley* (1997), 709.
 
@@ -85,8 +87,3 @@ As we seek Him, we find that He is “the light and the life of the world.”[^1
 
 [^18]: [[Mosiah 16.9|Mosiah 16:9]].
 
-
-
-
-
-#Jesus_Christ #Prayer #Spirituality

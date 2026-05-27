@@ -1,5 +1,7 @@
 # O Be Wise
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2006 General Conference*
@@ -63,8 +65,3 @@ May God bless us with wisdom to love His Son, Jesus Christ, and wisely help acco
 
 
 
-
-
-
-
-#Church_Callings #Service #Wisdom

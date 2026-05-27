@@ -1,6 +1,8 @@
 # Neither Cryptic Nor Hidden
 
-By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Theodore M. Burton - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -30,7 +32,7 @@ Which church today understands and uses an anointing to teach its members all th
 
 Now this statement, its meaning hidden from the present Christian world, must have had important meaning for those to whom John wrote. Devout members of our Church will recognize and understand this doctrine in the same way the ancient Christians did.
 
-Another example is found in the teachings of Paul in [[2 Corinthians 1.21|2 Corinthians, chapter 1, verses 21–22]][[2 Corinthians 1.22|]]:
+Another example is found in the teachings of Paul in [[2 Corinthians 1.21|2 Corinthians, chapter 1, verses 21–22]][[2 Corinthians 1.22|]]:
 
 “Now he which stablisheth us with you in Christ, and hath anointed us, is God;
 
@@ -54,7 +56,7 @@ During that period between death and resurrection, Jesus went into the spirit wo
 
 “By which also \[that is, in this spirit condition\] he went and preached unto the spirits in prison.”
 
-President Joseph F. Smith, in his remarkable vision of this visit, wrote in [[D&C 138.29|verses 29–30]][[D&C 138.30|]] in the Pearl of Great Price:
+President Joseph F. Smith, in his remarkable vision of this visit, wrote in [[D&C 138.29|verses 29–30]][[D&C 138.30|]] in the Pearl of Great Price:
 
 “And as I wondered, my eyes were opened, and my understanding quickened, and I perceived that the Lord went not in person among the wicked and the disobedient \[in the spirit world\] who had rejected the truth \[while living on the earth\], to teach them;
 
@@ -91,8 +93,3 @@ You can feel the urgency of this work in the air. You can see the hastening hand
 
 
 
-
-
-
-
-#Jesus_Christ #Missionary_Work #Plan_Of_Salvation

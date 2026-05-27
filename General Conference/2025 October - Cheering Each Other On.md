@@ -1,6 +1,8 @@
 # Cheering Each Other On
 
-By Sister J. Anette Dennis - *First Counselor in the Relief Society General Presidency*
+Dallin H. Oaks
+
+By Sister J. Anette Dennis - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2025 General Conference*
 
@@ -30,13 +32,13 @@ Just like the Masters Championship, our congregations and families can be gather
 
 Unfortunately, for some of us, attending church can be hard at times for many different reasons. It could be someone struggling with questions of faith or someone with social anxiety or depression. It could be someone from a different country or race or someone with different life experiences or ways of seeing things who may feel they don’t fit the mold. It could even be sleep-deprived and emotionally stretched parents of babies and young children or someone who is single in a congregation full of couples and families. It could also be someone mustering the courage to return after years of being away or someone with a nagging feeling that they just don’t measure up and will never belong.
 
-President Russell M. Nelson said: “If a couple in your ward gets divorced, or a young missionary returns home early, or a teenager doubts his testimony, they do not need your judgment. They need to experience the pure love of Jesus Christ reflected in your words and actions.”[^6]
+President Russell M. Nelson said: “If a couple in your ward gets divorced, or a young missionary returns home early, or a teenager doubts his testimony, they do not need your judgment. They need to experience the pure love of Jesus Christ reflected in your words and actions.”[^6]
 
 Our experience at church is meant to provide vital connections with the Lord and with each other that are so needed for our spiritual and emotional well-being. Inherent in the covenants we make with God, beginning with baptism, is our responsibility to love and care for each other[^7] as members of the family of God, members of the body of Christ,[^8] and not just to check off a box on a list of things we’re expected to do.
 
 Christlike love and care are higher and holier. The pure love of Christ is charity.[^9] As President Nelson taught, “Charity propels us ‘to bear one another’s burdens’ \[[[Mosiah 18.8|Mosiah 18:8]]\] rather than *heap* burdens *upon* each other.”[^10]
 
-The Savior said, “By *this* shall all men know that ye are my disciples, if ye have love one to another.”[^11] And President Nelson added: “Charity is the principal characteristic of a true follower of Jesus Christ.” “The Savior’s message is clear: His *true* disciples build, lift, encourage, persuade, and inspire. … How we speak to and about others … really matters.”[^12]
+The Savior said, “By *this* shall all men know that ye are my disciples, if ye have love one to another.”[^11] And President Nelson added: “Charity is the principal characteristic of a true follower of Jesus Christ.” “The Savior’s message is clear: His *true* disciples build, lift, encourage, persuade, and inspire. … How we speak to and about others … really matters.”[^12]
 
 The Savior’s teaching on this is very simple. It’s summed up in the Golden Rule: Do unto others as you would have others do unto you.[^13] Put yourself in that person’s place and treat them the way *you* would want to be treated if you were in *their* shoes.[^14]
 
@@ -56,7 +58,7 @@ Only the Lord fully knows the actual level of difficulty with which each of us i
 
 Often we even judge *ourselves* harshly, thinking we should be much farther ahead on the track. Only the Lord fully knows our individual limitations and capacity, and because of that, He is the only one *fully* qualified to judge our performance.
 
-Sisters and brothers, let’s be like those spectators in the story and cheer each other on in our journey of discipleship no matter our circumstances! That doesn’t require us to break rules or lower standards. It’s actually the second great commandment—to love our neighbor as ourselves.[^26] And as our Savior has said, “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me,”[^27] for good or for ill. He has also told us, “If ye are not one ye are not mine.”[^28]
+Sisters and brothers, let’s be like those spectators in the story and cheer each other on in our journey of discipleship no matter our circumstances! That doesn’t require us to break rules or lower standards. It’s actually the second great commandment—to love our neighbor as ourselves.[^26] And as our Savior has said, “Inasmuch as ye have done it unto one of the least of these … , ye have done it unto me,”[^27] for good or for ill. He has also told us, “If ye are not one ye are not mine.”[^28]
 
 There will be times in each of our lives when we will be the ones who need help and encouragement. Let’s commit now to *always* do that for each other. As we do, we will develop greater unity and facilitate a space for the Savior to do His sacred work of healing and transforming each of us.
 
@@ -71,53 +73,53 @@ May we all follow the Savior’s example and cheer *each other* on is my prayer 
 
 
 
-[^1]: Jeffrey C. Strong, personal correspondence; used by permission.
+[^1]: Jeffrey C. Strong, personal correspondence; used by permission.
 
 [^2]: One of the priorities of our presidency has been for our sisters to feel a sense of belonging at church and especially in Relief Society. I’ve had occasions to read letters and hear experiences that have saddened me.
 
-[^3]: See [[1 Corinthians 12.26|1 Corinthians 12:26]].
+[^3]: See [[1 Corinthians 12.26|1 Corinthians 12:26]].
 
-[^4]: See Henry B. Eyring, “[[2008 October - Our Hearts Knit as One.md|Our Hearts Knit as One]],” *Ensign* or *Liahona*, Nov. 2008, 68–71; see also Ulisses Soares, “[[2018 October - One in Christ.md|One in Christ]],” *Ensign* or *Liahona*, Nov. 2018, 37–39; “[One in Christ](https://churchofjesuschrist.org/study/video/inspirational-messages/2019-08-1000-one-in-christ-1080p?lang=eng)” (video), Gospel Library.
+[^4]: See Henry B. Eyring, “[[2008 October - Our Hearts Knit as One.md|Our Hearts Knit as One]],” *Ensign* or *Liahona*, Nov. 2008, 68–71; see also Ulisses Soares, “[[2018 October - One in Christ.md|One in Christ]],” *Ensign* or *Liahona*, Nov. 2018, 37–39; “[One in Christ](https://www.churchofjesuschrist.org/study/video/inspirational-messages/2019-08-1000-one-in-christ-1080p?lang=eng)” (video), Gospel Library.
 
-[^5]: See [[3 Nephi 11.29|3 Nephi 11:29]].
+[^5]: See [[3 Nephi 11.29|3 Nephi 11:29]].
 
-[^6]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100. In the same talk, he said that “contention drives away the Spirit—every time” ([[2023 April - Peacemakers Needed.md|page 100]]). I would add that judgmental thoughts about others can drive the Spirit away as well. When we look down on others with critical thoughts, that is evidence of pride, and President Henry B. Eyring has said that “pride is the great enemy of unity” (“[[2008 October - Our Hearts Knit as One.md|Our Hearts Knit as One]],” 70).
+[^6]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100. In the same talk, he said that “contention drives away the Spirit—every time” ([[2023 April - Peacemakers Needed.md|page 100]]). I would add that judgmental thoughts about others can drive the Spirit away as well. When we look down on others with critical thoughts, that is evidence of pride, and President Henry B. Eyring has said that “pride is the great enemy of unity” (“[[2008 October - Our Hearts Knit as One.md|Our Hearts Knit as One]],” 70).
 
-[^7]: See J. Anette Dennis, in “[Come and Take Your Place as Covenant Women](https://churchofjesuschrist.org/study/broadcasts/byu-womens-conference/2024/05/01-yee?lang=eng&id=p61#p61)” (address given by the Relief Society General Presidency at Brigham Young University Women’s Conference, May 1, 2024), Gospel Library; see also [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]].
+[^7]: See J. Anette Dennis, in “[Come and Take Your Place as Covenant Women](https://www.churchofjesuschrist.org/study/broadcasts/byu-womens-conference/2024/05/01-yee?lang=eng&id=p61#p61)” (address given by the Relief Society General Presidency at Brigham Young University Women’s Conference, May 1, 2024), Gospel Library; see also [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]].
 
-[^8]: See [[1 Corinthians 12.14|1 Corinthians 12:14–26]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]].
+[^8]: See [[1 Corinthians 12.14|1 Corinthians 12:14–26]][[1 Corinthians 12.15|]][[1 Corinthians 12.16|]][[1 Corinthians 12.17|]][[1 Corinthians 12.18|]][[1 Corinthians 12.19|]][[1 Corinthians 12.20|]][[1 Corinthians 12.21|]][[1 Corinthians 12.22|]][[1 Corinthians 12.23|]][[1 Corinthians 12.24|]][[1 Corinthians 12.25|]][[1 Corinthians 12.26|]].
 
 [^9]: See [[Moroni 7.47|Moroni 7:47]].
 
-[^10]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” 101; emphasis added.
+[^10]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” 101; emphasis added.
 
 [^11]: [[John 13.35|John 13:35]]; emphasis added.
 
-[^12]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” 100, 99.
+[^12]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” 100, 99.
 
 [^13]: See [[Matthew 7.12|Matthew 7:12]].
 
-[^14]: As we follow the Savior and desire to become like Him, we will strive to see everyone the way *He* sees them, and as we continue to pray for the gift of charity, a sincere feeling of love and care can eventually grow in our hearts. We’ll develop a *desire* to “build, lift, encourage, persuade, and inspire” others, not out of a sense of duty but because we are gradually becoming like our Savior (Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” 100). Christlike ministering to others will become who we *are*, not just what we *do*.
+[^14]: As we follow the Savior and desire to become like Him, we will strive to see everyone the way *He* sees them, and as we continue to pray for the gift of charity, a sincere feeling of love and care can eventually grow in our hearts. We’ll develop a *desire* to “build, lift, encourage, persuade, and inspire” others, not out of a sense of duty but because we are gradually becoming like our Savior (Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” 100). Christlike ministering to others will become who we *are*, not just what we *do*.
 
 [^15]: See [[Mosiah 23.15|Mosiah 23:15]].
 
 [^16]: See, for example, [[Matthew 9.10|Matthew 9:10–13]][[Matthew 9.11|]][[Matthew 9.12|]][[Matthew 9.13|]]; [[Mark 1.40|Mark 1:40–42]][[Mark 1.41|]][[Mark 1.42|]]; [[Luke 8.43|Luke 8:43–48]][[Luke 8.44|]][[Luke 8.45|]][[Luke 8.46|]][[Luke 8.47|]][[Luke 8.48|]]; [[Luke 14.13|14:13–14]][[Luke 14.14|]]; [[John 4.7|John 4:7–26]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]]; [[John 5.2|5:2–9]][[John 5.3|]][[John 5.4|]][[John 5.5|]][[John 5.6|]][[John 5.7|]][[John 5.8|]][[John 5.9|]]; [[John 8.3|8:3–11]][[John 8.4|]][[John 8.5|]][[John 8.6|]][[John 8.7|]][[John 8.8|]][[John 8.9|]][[John 8.10|]][[John 8.11|]].
 
-[^17]: See [[3 Nephi 27.27|3 Nephi 27:27]]; see also Robert C. Gay, “[[2018 October - Taking upon Ourselves the Name of Jesus Christ.md|Taking upon Ourselves the Name of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2018, 97–100.
+[^17]: See [[3 Nephi 27.27|3 Nephi 27:27]]; see also Robert C. Gay, “[[2018 October - Taking upon Ourselves the Name of Jesus Christ.md|Taking upon Ourselves the Name of Jesus Christ]],” *Ensign* or *Liahona*, Nov. 2018, 97–100.
 
-[^18]: “The only permanent solution to the differences that divide us is for all of us to follow our Savior’s teachings and to gradually become even as He is” (Dallin H. Oaks, in Joel Randall, “Following Christ Is ‘a Continuous Commitment and Way of Life,’ President Oaks Teaches European Saints from Belgium,” *Church News*, July 14, 2025, thechurchnews.com).
+[^18]: “The only permanent solution to the differences that divide us is for all of us to follow our Savior’s teachings and to gradually become even as He is” (Dallin H. Oaks, in Joel Randall, “Following Christ Is ‘a Continuous Commitment and Way of Life,’ President Oaks Teaches European Saints from Belgium,” *Church News*, July 14, 2025, thechurchnews.com).
 
-[^19]: See Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32–34; *Liahona*, Jan. 2001, 40–43.
+[^19]: See Dallin H. Oaks, “[[2000 October - The Challenge to Become.md|The Challenge to Become]],” *Ensign*, Nov. 2000, 32–34; *Liahona*, Jan. 2001, 40–43.
 
 [^20]: See [[John 13.34|John 13:34]].
 
-[^21]: “The clarion call to members of The Church of Jesus Christ of Latter-day Saints is to strive to be a Zion people who are of one heart and one mind and dwell in righteousness” (Quentin L. Cook, “[[2020 October - Hearts Knit in Righteousness and Unity.md|Hearts Knit Together in Righteousness and Unity]],” *Ensign* or *Liahona*, Nov. 2020, 21).
+[^21]: “The clarion call to members of The Church of Jesus Christ of Latter-day Saints is to strive to be a Zion people who are of one heart and one mind and dwell in righteousness” (Quentin L. Cook, “[[2020 October - Hearts Knit in Righteousness and Unity.md|Hearts Knit Together in Righteousness and Unity]],” *Ensign* or *Liahona*, Nov. 2020, 21).
 
-[^22]: See J. Anette Dennis, “[Why I Choose to Stay](https://churchofjesuschrist.org/study/broadcasts/byu-womens-conference/2024/05/07-dennisr?lang=eng&id=p51#p51)” (address given at Brigham Young University Women’s Conference, May 2, 2024), Gospel Library.
+[^22]: See J. Anette Dennis, “[Why I Choose to Stay](https://www.churchofjesuschrist.org/study/broadcasts/byu-womens-conference/2024/05/07-dennisr?lang=eng&id=p51#p51)” (address given at Brigham Young University Women’s Conference, May 2, 2024), Gospel Library.
 
-[^23]: See [[JST Matthew 7.1|Joseph Smith Translation, Matthew 7:1–2]][[JST Matthew 7.2|]] (in [[Matthew 7.1|Matthew 7:1]], footnote *a*); [[Alma 41.14|Alma 41:14]].
+[^23]: See [[JST Matthew 7.1|Joseph Smith Translation, Matthew 7:1–2]][[JST Matthew 7.2|]] (in [[Matthew 7.1|Matthew 7:1]], footnote *a*); [[Alma 41.14|Alma 41:14]].
 
-[^24]: See J. Anette Dennis, “[[2022 October - His Yoke Is Easy and His Burden Is Light.md|His Yoke Is Easy and His Burden Is Light]],” *Liahona*, Nov. 2022, 80–81.
+[^24]: See J. Anette Dennis, “[[2022 October - His Yoke Is Easy and His Burden Is Light.md|His Yoke Is Easy and His Burden Is Light]],” *Liahona*, Nov. 2022, 80–81.
 
 [^25]: See [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
@@ -129,7 +131,7 @@ May we all follow the Savior’s example and cheer *each other* on is my prayer 
 
 [^29]: See [[Psalms 145.8|Psalm 145:8–9]][[Psalms 145.9|]]; [[Ephesians 2.4|Ephesians 2:4–5]][[Ephesians 2.5|]].
 
-[^30]: See Tamara W. Runia, “[[2025 April - Your Repentance Doesn’t Burden Jesus Christ; It Brightens His Joy.md|Your Repentance Doesn’t Burden Jesus Christ; It Brightens His Joy]],” *Liahona*, May 2025, 91.
+[^30]: See Tamara W. Runia, “[[2025 April - Your Repentance Doesn’t Burden Jesus Christ; It Brightens His Joy.md|Your Repentance Doesn’t Burden Jesus Christ; It Brightens His Joy]],” *Liahona*, May 2025, 91.
 
 [^31]: See [[D&C 137.9|Doctrine and Covenants 137:9]].
 
@@ -137,12 +139,7 @@ May we all follow the Savior’s example and cheer *each other* on is my prayer 
 
 [^33]: See Patrick Kearon, “[[2024 April - God’s Intent Is to Bring You Home.md|God’s Intent Is to Bring You Home]],” *Liahona*, May 2024, 87–89.
 
-[^34]: See [[John 1.1|John 1]][[John 1.2|]][[John 1.3|]][[John 1.4|]][[John 1.5|]][[John 1.6|]][[John 1.7|]][[John 1.8|]][[John 1.9|]][[John 1.10|]][[John 1.11|]][[John 1.12|]][[John 1.13|]][[John 1.14|]][[John 1.15|]][[John 1.16|]][[John 1.17|]][[John 1.18|]][[John 1.19|]][[John 1.20|]][[John 1.21|]][[John 1.22|]][[John 1.23|]][[John 1.24|]][[John 1.25|]][[John 1.26|]][[John 1.27|]][[John 1.28|]][[John 1.29|]][[John 1.30|]][[John 1.31|]][[John 1.32|]][[John 1.33|]][[John 1.34|]][[John 1.35|]][[John 1.36|]][[John 1.37|]][[John 1.38|]][[John 1.39|]][[John 1.40|]][[John 1.41|]][[John 1.42|]][[John 1.43|]][[John 1.44|]][[John 1.45|]][[John 1.46|]][[John 1.47|]][[John 1.48|]][[John 1.49|]][[John 1.50|]][[John 1.51|]], chapter heading and [[John 1.1|verse 1]]; [[1 Nephi 11.24|1 Nephi 11:24–25]][[1 Nephi 11.25|]].
+[^34]: See [[John 1.1|John 1]][[John 1.2|]][[John 1.3|]][[John 1.4|]][[John 1.5|]][[John 1.6|]][[John 1.7|]][[John 1.8|]][[John 1.9|]][[John 1.10|]][[John 1.11|]][[John 1.12|]][[John 1.13|]][[John 1.14|]][[John 1.15|]][[John 1.16|]][[John 1.17|]][[John 1.18|]][[John 1.19|]][[John 1.20|]][[John 1.21|]][[John 1.22|]][[John 1.23|]][[John 1.24|]][[John 1.25|]][[John 1.26|]][[John 1.27|]][[John 1.28|]][[John 1.29|]][[John 1.30|]][[John 1.31|]][[John 1.32|]][[John 1.33|]][[John 1.34|]][[John 1.35|]][[John 1.36|]][[John 1.37|]][[John 1.38|]][[John 1.39|]][[John 1.40|]][[John 1.41|]][[John 1.42|]][[John 1.43|]][[John 1.44|]][[John 1.45|]][[John 1.46|]][[John 1.47|]][[John 1.48|]][[John 1.49|]][[John 1.50|]][[John 1.51|]], chapter heading and [[John 1.1|verse 1]]; [[1 Nephi 11.24|1 Nephi 11:24–25]][[1 Nephi 11.25|]].
 
-[^35]: See Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders Among You]],” *Ensign* or *Liahona*, May 2016, 127.
+[^35]: See Jeffrey R. Holland, “[[2016 April - Tomorrow the Lord Will Do Wonders among You.md|Tomorrow the Lord Will Do Wonders Among You]],” *Ensign* or *Liahona*, May 2016, 127.
 
-
-
-
-
-#Belonging #Discipleship #Judging #Love #Unity

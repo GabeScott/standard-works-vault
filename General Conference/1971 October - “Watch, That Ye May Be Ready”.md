@@ -1,6 +1,8 @@
 # “Watch, That Ye May Be Ready”
 
-By President Harold B. Lee - *First Counselor in the First Presidency*
+Joseph Fielding Smith
+
+By President Harold B. Lee - *First Counselor in the First Presidency*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -18,13 +20,13 @@ I replied by quoting the Master’s commission to his early disciples:
 
 The Master then spoke of the signs which would evidence the divinity of their callings:
 
-“So then after the Lord had spoken unto them, he was received up into heaven. …”
+“So then after the Lord had spoken unto them, he was received up into heaven. …”
 
 Then, as the gospel writers have recorded: “And they went forth, and preached every where, the Lord working with them, and confirming the word with signs following.” ([[Mark 16.15|Mark 16:15–16, 19–20]][[Mark 16.16|]][[Mark 16.19|]][[Mark 16.20|]].)
 
 I then recalled for her the words of a revelation to the Lord’s disciples in early years of this dispensation, that through their administration “the word may go forth unto the ends of the earth, unto the Gentiles first, and then, behold, and lo, they shall turn unto the Jews.
 
-“For it shall come to pass in that day, that every man shall hear the fulness of the gospel in his own tongue, and in his own language, through those who are ordained unto this power. …” ([[D&C 90.9|D&C 90:9, 11]][[D&C 90.11|]].)
+“For it shall come to pass in that day, that every man shall hear the fulness of the gospel in his own tongue, and in his own language, through those who are ordained unto this power. …” ([[D&C 90.9|D&C 90:9, 11]][[D&C 90.11|]].)
 
 We are witnessing a great expansion of the work of the Church throughout the world. It would seem that the early revelations of the Lord to the Church pointed us to a preparation for this day, when he promised:
 
@@ -46,7 +48,7 @@ In short, the demand everywhere is for a church that is holding fast to the basi
 
 There we have found a strong central authority that inspires a confidence that shows the way ahead—where the strong are marshaled to give liberally of their leadership, of their means, of their talents; where the weak are urged to maximum effort in providing for themselves; where emergency needs can be met in a way that fosters brotherhood, instead of a deadening process that is described, scripturally, as to “grind the faces of the poor.” ([[Isaiah 3.15|Isa. 3:15]].)
 
-Never has there been a greater need in the Church for training in leadership and in effective teaching to offset the clever and diabolical methods of evil powers that “pacify, and lull them away into carnal security,” stirring them up to anger, saying that all is well and with flattery telling them there is no hell nor is there a devil, for this is the way, as the ancient prophets have warned, that “the devil cheateth their souls, and leadeth them away carefully down to hell.” (See [[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
+Never has there been a greater need in the Church for training in leadership and in effective teaching to offset the clever and diabolical methods of evil powers that “pacify, and lull them away into carnal security,” stirring them up to anger, saying that all is well and with flattery telling them there is no hell nor is there a devil, for this is the way, as the ancient prophets have warned, that “the devil cheateth their souls, and leadeth them away carefully down to hell.” (See [[2 Nephi 28.20|2 Ne. 28:20–22]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
 
 It was frightening to observe that in places where there was the greater prosperity, there was the unmistakable evidence that, like the peoples of other dispensations, when they prospered they forgot God. They were seemingly rich in things that money could buy, but they were devoid of most of the precious things money could not buy.
 
@@ -126,7 +128,7 @@ Lighten your individual burdens, you leaders, by increasing the activities of ot
 
 Above all, teach the gospel of Jesus Christ with power and authority and continue to bear witness of the divine mission of our Lord and Master, Jesus Christ.
 
-And to you, our friends who are the honest in heart and who are sincere seekers after truth, we bear our solemn witness that “through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.3|A of F 1:3]]), as administered by authorized servants who hold the keys of salvation for both the living and the dead.
+And to you, our friends who are the honest in heart and who are sincere seekers after truth, we bear our solemn witness that “through the Atonement of Christ, all mankind may be saved, by obedience to the laws and ordinances of the Gospel” ([[Articles of Faith 1.3|A of F 1:3]]), as administered by authorized servants who hold the keys of salvation for both the living and the dead.
 
 I would that all who are within the sound of my voice would be comforted, in this dispensation, as those in other troublous times have been comforted and shielded from the pitfalls of the adversary. Hear the Master’s words as he referred to his people as his children:
 
@@ -149,8 +151,3 @@ To this I testify in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Jesus_Christ #Missionary_Work #Preparation

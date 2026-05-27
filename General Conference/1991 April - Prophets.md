@@ -1,5 +1,7 @@
 # Prophets
 
+Thomas S. Monson
+
 By Elder Rulon G. Craven - *Of the Seventy*
 
 *Given in the April session of the 1991 General Conference*
@@ -43,8 +45,3 @@ I leave you my special witness of the reality of our Father in Heaven, that Jesu
 
 
 
-
-
-
-
-#Adversity #Faith #Home #Leadership #Priesthood #Prophecy #Prophets #Unity

@@ -1,5 +1,7 @@
 # A Mighty Force for Righteousness
 
+Thomas S. Monson
+
 By Ardeth G. Kapp - *Recently Released as Young Women General President*
 
 *Given in the April session of the 1992 General Conference*
@@ -24,11 +26,11 @@ It is important for all of us to know who we are and what God expects of us.
 
 After Jesus had fasted forty days, the tempter came to Him and attempted to plant seeds of doubt about who He really was: “If thou be the Son of God,” he began his evil ploy ([[Matthew 4.3|Matt. 4:3]]). Jesus knew who He was. He has declared that message clearly to each of us: “Behold, I am Jesus Christ, the Son of God!” ([[D&C 6.21|D&C 6:21]]). He is our Savior, our advocate with the Father.
 
-The young women of the Church have a personal statement which declares their identity: “I am a daughter of a Heavenly Father who loves me, and I will have faith in his eternal plan, which centers in Jesus Christ, my Savior” (*Young Women Handbook* \[1989\], p. 3).
+The young women of the Church have a personal statement which declares their identity: “I am a daughter of a Heavenly Father who loves me, and I will have faith in his eternal plan, which centers in Jesus Christ, my Savior” (*Young Women Handbook* \[1989\], p. 3).
 
 Each of us, young and older, through the ordinance of baptism has covenanted to take upon us the name of Jesus Christ, to love, to care, and to serve our brothers and sisters wherever they may be.
 
-A few weeks ago I was speaking at a missionary fireside where members had brought their nonmember friends. I noticed a young girl sitting by her mother on the front row. I learned later that she was only twelve years old. I asked her if she would come up. She could hardly see over the pulpit. Unrehearsed, this young girl, with great feeling and conviction in her tender yet clear voice, repeated from memory: “We are daughters of our Heavenly Father who loves us, and we love him. We will ‘stand as witnesses of God at all times and in all things, and in all places’” (*Young Women Handbook,* p. 3).
+A few weeks ago I was speaking at a missionary fireside where members had brought their nonmember friends. I noticed a young girl sitting by her mother on the front row. I learned later that she was only twelve years old. I asked her if she would come up. She could hardly see over the pulpit. Unrehearsed, this young girl, with great feeling and conviction in her tender yet clear voice, repeated from memory: “We are daughters of our Heavenly Father who loves us, and we love him. We will ‘stand as witnesses of God at all times and in all things, and in all places’” (*Young Women Handbook,* p. 3).
 
 She continued to the end of the Young Women Theme, including the Young Women Values, while the audience listened in awe.
 
@@ -38,7 +40,7 @@ I had the privilege of visiting with a faithful family of Latter-day Saints in a
 
 It is our faith in the importance of making covenants with God and coming to understand our immense possibilities that the temple, the house of the Lord, becomes the focus for all that really matters. In the temple we participate in ordinances and covenants that span the distance between heaven and earth. They prepare us to one day return to God’s presence and enjoy the blessings of eternal families and eternal life.
 
-I have heard young women around the world repeat in many languages their commitment: “We will be prepared to make and keep sacred covenants, receive the ordinances of the temple, and enjoy the blessings of exaltation” (*Young Women Handbook,* p. 3). Those blessings can be available to all of us—to all our Father’s children. When our faith is centered in Jesus Christ, our Savior, we begin to understand our identity and our tender relationship to Him as expressed in the song:
+I have heard young women around the world repeat in many languages their commitment: “We will be prepared to make and keep sacred covenants, receive the ordinances of the temple, and enjoy the blessings of exaltation” (*Young Women Handbook,* p. 3). Those blessings can be available to all of us—to all our Father’s children. When our faith is centered in Jesus Christ, our Savior, we begin to understand our identity and our tender relationship to Him as expressed in the song:
 
 >The King of love my Shepherd is,
 >Whose goodness faileth never;
@@ -51,8 +53,3 @@ It is through the ordinances and covenants available in the temple that our Fath
 
 
 
-
-
-
-
-#Covenants #Faith #Temple_Work

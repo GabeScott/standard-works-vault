@@ -1,6 +1,5 @@
 # Poverty
 
-
 *See also* [[Poor.md|Poor]]
 
 Love not sleep, lest thou come to *poverty*, [[Proverbs 20.13|Proverbs 20:13]].

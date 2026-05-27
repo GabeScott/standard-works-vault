@@ -1,6 +1,8 @@
 # Christlike Poise
 
-By Elder Mark A. Bragg - *Of the Seventy*
+Gary E. Stevenson
+
+By Elder Mark A. Bragg - *Of the Seventy*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -16,13 +18,13 @@ Over the years, that conversation stuck with me. That counsel to be calm, cool, 
 
 But poise is not spoken about much these days and practiced even less in turbulent and divisive times. It is often referenced in sports—a player with poise is unflappable in a close game, or a team unravels due to a lack of poise. But this wonderful quality goes way beyond sports. Poise has a much broader application to life and can bless parents, leaders, missionaries, teachers, students, and everyone else facing the storms of life.
 
-Spiritual poise blesses us to stay calm and focused on what matters most, especially when we are under pressure. President Hugh B. Brown taught, “Faith in God and in the ultimate triumph of right contributes to mental and spiritual poise in the face of difficulties.”[^1]
+Spiritual poise blesses us to stay calm and focused on what matters most, especially when we are under pressure. President Hugh B. Brown taught, “Faith in God and in the ultimate triumph of right contributes to mental and spiritual poise in the face of difficulties.”[^1]
 
-President Russell M. Nelson is a wonderful example of spiritual poise. One time, while then-Dr. Nelson was performing a quadruple coronary artery bypass, the patient’s blood pressure dropped suddenly. Dr. Nelson calmly assessed the situation and identified that a clamp was accidentally removed by one of the team members. It was replaced immediately, and Dr. Nelson comforted the team member, saying, “I still love you,” and then added jokingly, “Sometimes I love you more than other times!” He showed how an emergency should be handled—with poise, focused only on what matters most—addressing the emergency. President Nelson said: “It’s a matter of extreme self-discipline. Your natural reaction is, ‘Take me out, coach! I want to go home.’ But of course you can’t. A life is totally dependent on the whole surgical team. So you’ve got to stay just as calm and relaxed and sharp as you ever were.”[^2]
+President Russell M. Nelson is a wonderful example of spiritual poise. One time, while then-Dr. Nelson was performing a quadruple coronary artery bypass, the patient’s blood pressure dropped suddenly. Dr. Nelson calmly assessed the situation and identified that a clamp was accidentally removed by one of the team members. It was replaced immediately, and Dr. Nelson comforted the team member, saying, “I still love you,” and then added jokingly, “Sometimes I love you more than other times!” He showed how an emergency should be handled—with poise, focused only on what matters most—addressing the emergency. President Nelson said: “It’s a matter of extreme self-discipline. Your natural reaction is, ‘Take me out, coach! I want to go home.’ But of course you can’t. A life is totally dependent on the whole surgical team. So you’ve got to stay just as calm and relaxed and sharp as you ever were.”[^2]
 
 Of course, the Savior is the ultimate example of poise.
 
-In the Garden of Gethsemane, in unimaginable agony, as “he sweat as it were great drops of blood,”[^3] He exemplified divine poise with the simple yet majestic statement “Not my will, but thine, be done.”[^4] Under the immense pressure to enable the salvation of all humankind, Jesus demonstrated three important conditions that help us understand His great poise. First, He knew who He was and was true to His divine mission. Next, He knew that there was a great plan of happiness. And finally, He knew that through His infinite Atonement, all who faithfully yoke themselves to Him by making and keeping sacred covenants received through priesthood ordinances will be saved, as was so beautifully taught by Elder Dale G. Renlund today.
+In the Garden of Gethsemane, in unimaginable agony, as “he sweat as it were great drops of blood,”[^3] He exemplified divine poise with the simple yet majestic statement “Not my will, but thine, be done.”[^4] Under the immense pressure to enable the salvation of all humankind, Jesus demonstrated three important conditions that help us understand His great poise. First, He knew who He was and was true to His divine mission. Next, He knew that there was a great plan of happiness. And finally, He knew that through His infinite Atonement, all who faithfully yoke themselves to Him by making and keeping sacred covenants received through priesthood ordinances will be saved, as was so beautifully taught by Elder Dale G. Renlund today.
 
 To contrast the difference between losing and maintaining poise, think about what happened as Christ and His Apostles left the Garden of Gethsemane. When confronted by soldiers seeking to arrest Jesus, Peter’s reaction was to lose his poise and lash out violently by cutting off the ear of the high priest’s servant, Malchus. Jesus Christ’s reaction, on the other hand, was to keep His poise and to bring calm to a tense situation by healing Malchus.[^5]
 
@@ -40,9 +42,9 @@ Next, remembering that there is a grand plan engenders courage and poise in chal
 
 ## Know the Enabling Power of Jesus Christ and His Atonement
 
-And finally, the enabling power of Christ, made possible by His atoning sacrifice, gives us the strength to endure and prevail. Because of Jesus Christ we can covenant with God and be strengthened in keeping that covenant. We can be bound to the Savior in joy and calm, regardless of our temporal circumstances.[^15] [[Alma 7.1|Alma chapter 7]][[Alma 7.2|]][[Alma 7.3|]][[Alma 7.4|]][[Alma 7.5|]][[Alma 7.6|]][[Alma 7.7|]][[Alma 7.8|]][[Alma 7.9|]][[Alma 7.10|]][[Alma 7.11|]][[Alma 7.12|]][[Alma 7.13|]][[Alma 7.14|]][[Alma 7.15|]][[Alma 7.16|]][[Alma 7.17|]][[Alma 7.18|]][[Alma 7.19|]][[Alma 7.20|]][[Alma 7.21|]][[Alma 7.22|]][[Alma 7.23|]][[Alma 7.24|]][[Alma 7.25|]][[Alma 7.26|]][[Alma 7.27|]] teaches beautifully about Christ’s enabling power. In addition to redeeming us from sin, the Savior can strengthen us in our weaknesses, fears, and challenges in this life.
+And finally, the enabling power of Christ, made possible by His atoning sacrifice, gives us the strength to endure and prevail. Because of Jesus Christ we can covenant with God and be strengthened in keeping that covenant. We can be bound to the Savior in joy and calm, regardless of our temporal circumstances.[^15] [[Alma 7.1|Alma chapter 7]] teaches beautifully about Christ’s enabling power. In addition to redeeming us from sin, the Savior can strengthen us in our weaknesses, fears, and challenges in this life.
 
-As we focus on Christ, we can hush our fears, as Alma’s people did in Helam.[^16] As a threatening army gathered, those faithful disciples of Christ demonstrated poise. Elder David A. Bednar has taught: “Alma counseled the believers to remember the Lord and the deliverance only He could bestow (see 2 Nephi 2:8). And knowledge of the Savior’s protecting watchcare enabled the people to hush their own fears.”[^17] This exemplifies poise.
+As we focus on Christ, we can hush our fears, as Alma’s people did in Helam.[^16] As a threatening army gathered, those faithful disciples of Christ demonstrated poise. Elder David A. Bednar has taught: “Alma counseled the believers to remember the Lord and the deliverance only He could bestow (see 2 Nephi 2:8). And knowledge of the Savior’s protecting watchcare enabled the people to hush their own fears.”[^17] This exemplifies poise.
 
 ## The Great Man in a Storm
 
@@ -57,11 +59,11 @@ May we seek the blessings of Christlike poise, not only to help ourselves in cha
 
 
 
-[^1]: Hugh B. Brown, in Conference Report, Oct. 1969, 105.
+[^1]: Hugh B. Brown, in Conference Report, Oct. 1969, 105.
 
-[^2]: See Sheri Dew, *Insights from a Prophet’s Life: Russell M. Nelson* (2019), 66–67.
+[^2]: See Sheri Dew, *Insights from a Prophet’s Life: Russell M. Nelson* (2019), 66–67.
 
-[^3]: Joseph Smith Translation, Luke 22:44 (in [[Luke 22.44|Luke 22:44]], footnote *b*).
+[^3]: Joseph Smith Translation, Luke 22:44 (in [[Luke 22.44|Luke 22:44]], footnote *b*).
 
 [^4]: [[Luke 22.42|Luke 22:42]].
 
@@ -69,33 +71,31 @@ May we seek the blessings of Christlike poise, not only to help ourselves in cha
 
 [^6]: See [[Matthew 26.34|Matthew 26:34–35, 69–75]][[Matthew 26.35|]][[Matthew 26.69|]][[Matthew 26.70|]][[Matthew 26.71|]][[Matthew 26.72|]][[Matthew 26.73|]][[Matthew 26.74|]][[Matthew 26.75|]].
 
-[^7]: See [[Acts 4.8|Acts 4:8–10]][[Acts 4.9|]][[Acts 4.10|]]; Neal A. Maxwell, “[[2000 April - Content with the Things Allotted unto Us.md|Content with the Things Allotted unto Us]],” *Ensign*, May 2000, 74; *Liahona*, July 2000, 89: “When spiritually aligned, a poise can come, even when we do not know ‘the meaning of all things’ \[[[1 Nephi 11.17|1 Nephi 11:17]]\].”
+[^7]: See [[Acts 4.8|Acts 4:8–10]][[Acts 4.9|]][[Acts 4.10|]]; Neal A. Maxwell, “[[2000 April - Content with the Things Allotted unto Us.md|Content with the Things Allotted unto Us]],” *Ensign*, May 2000, 74; *Liahona*, July 2000, 89: “When spiritually aligned, a poise can come, even when we do not know ‘the meaning of all things’ \[[[1 Nephi 11.17|1 Nephi 11:17]]\].”
 
-[^8]: See John R. Wooden, *Wooden on Leadership* (2005), 50: “I define *poise* as being true to oneself, not getting rattled, thrown off, or unbalanced regardless of the circumstance or situation. This may sound easy, but Poise can be a most elusive quality in challenging times. Leaders lacking Poise panic under pressure.
+[^8]: See John R. Wooden, *Wooden on Leadership* (2005), 50: “I define *poise* as being true to oneself, not getting rattled, thrown off, or unbalanced regardless of the circumstance or situation. This may sound easy, but Poise can be a most elusive quality in challenging times. Leaders lacking Poise panic under pressure.
 
-[^9]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 40.
+[^9]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-2?lang=eng&id=p12#p12)* (2007), 40.
 
-[^10]: Russell M. Nelson, “[Choices for Eternity](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p52#p52)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
+[^10]: Russell M. Nelson, “[Choices for Eternity](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2022/05/12nelson?lang=eng&id=p52#p52)” (worldwide devotional for young adults, May 15, 2022), broadcasts.ChurchofJesusChrist.org.
 
-[^11]: [[1 Nephi 3.7|1 Nephi 3:7]].
+[^11]: [[1 Nephi 3.7|1 Nephi 3:7]].
 
-[^12]: [[1 Nephi 4.6|1 Nephi 4:6]].
+[^12]: [[1 Nephi 4.6|1 Nephi 4:6]].
 
 [^13]: [[John 4.35|John 4:35]].
 
-[^14]: [[D&C 43.34|Doctrine and Covenants 43:34]]; see also James E. Faust, “[[1981 April - The Dignity of Self.md|The Dignity of Self]],” *Ensign*, May 1981, 10: “The dignity of self is greatly enhanced by looking upward in the search for holiness. Like the giant trees, we should reach up for the light. The most important source of light we can come to know is the gift of the Holy Ghost. It is the source of inner strength and peace.”
+[^14]: [[D&C 43.34|Doctrine and Covenants 43:34]]; see also James E. Faust, “[[1981 April - The Dignity of Self.md|The Dignity of Self]],” *Ensign*, May 1981, 10: “The dignity of self is greatly enhanced by looking upward in the search for holiness. Like the giant trees, we should reach up for the light. The most important source of light we can come to know is the gift of the Holy Ghost. It is the source of inner strength and peace.”
 
-[^15]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82: “My dear brothers and sisters, the joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.”
+[^15]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 82: “My dear brothers and sisters, the joy we feel has little to do with the circumstances of our lives and everything to do with the focus of our lives.”
 
 [^16]: See [[Mosiah 23.27|Mosiah 23:27–28]][[Mosiah 23.28|]].
 
-[^17]: David A. Bednar, “[[2015 April - Therefore They Hushed Their Fears.md|Therefore They Hushed Their Fears]],” *Ensign* or *Liahona*, May 2015, 46–47.
+[^17]: David A. Bednar, “[[2015 April - Therefore They Hushed Their Fears.md|Therefore They Hushed Their Fears]],” *Ensign* or *Liahona*, May 2015, 46–47.
 
-[^18]: See Jeffrey R. Holland, *Our Day Star Rising: Exploring the New Testament with Jeffrey R. Holland* (2022), 61–62: “Furthermore, these were experienced men on board with Him—eleven of the original Twelve were Galileans (only Judas Iscariot was a Judean). And six of those eleven were fishermen. They had lived on this lake. They had made their living by fishing on it. They had been there since they were children. Their fathers had them mending nets and making repairs on the boat when they were very young. They know this sea; they know the winds and the waves. They are experienced men—but they are terrified. And if *they* are afraid, this is a legitimate storm.”
+[^18]: See Jeffrey R. Holland, *Our Day Star Rising: Exploring the New Testament with Jeffrey R. Holland* (2022), 61–62: “Furthermore, these were experienced men on board with Him—eleven of the original Twelve were Galileans (only Judas Iscariot was a Judean). And six of those eleven were fishermen. They had lived on this lake. They had made their living by fishing on it. They had been there since they were children. Their fathers had them mending nets and making repairs on the boat when they were very young. They know this sea; they know the winds and the waves. They are experienced men—but they are terrified. And if *they* are afraid, this is a legitimate storm.”
 
 [^19]: See [[Mark 4.35|Mark 4:35–39]][[Mark 4.36|]][[Mark 4.37|]][[Mark 4.38|]][[Mark 4.39|]].
 
+[^20]: [[Mark 4.40|Mark 4:40]].
 
-
-
-#Adversity #Atonement #Discipleship #Divine_Nature #Jesus_Christ #Plan_Of_Salvation

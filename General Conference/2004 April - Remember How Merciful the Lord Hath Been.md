@@ -1,5 +1,7 @@
 # Remember How Merciful the Lord Hath Been
 
+Gordon B. Hinckley
+
 By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -10,7 +12,7 @@ By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 Brethren, please allow me to reminisce informally and gratefully. Hopefully this will be done in a relaxed, almost conversational way by citing a few remembrances, a few of life’s little lessons—nothing spectacular. There will also be several one-liners whose durability reflects their brevity. The focus of these remembrances is upon being stretched by a merciful Lord (see [[Moroni 10.3|Moroni 10:3]]).
 
-If just one of these remembrances can be “likened” unto yourselves (see [[1 Nephi 19.23|1 Nephi 19:23]]), there might be a brief father and son discussion later on.
+If just one of these remembrances can be “likened” unto yourselves (see [[1 Nephi 19.23|1 Nephi 19:23]]), there might be a brief father and son discussion later on.
 
 1. Let’s go back 60 years. The minutes of the Wandamere Ward of the Grant Stake for June 4, 1944, indicate the sacrament was administered by my friends Ward Jackson, Arthur Hicks, and me to a congregation of 141. Then it was off to war. In May of 1945, I was blessing the sacrament again—but in a foxhole on Okinawa for a congregation of only one—myself!The training of my youth took over without fanfare—something only partially appreciated by me then—including abstaining from coffee in those same circumstances when water was scarce and highly chlorinated.I do not know what lies ahead of you young men, but my advice would be to fasten your seat belts and hold on firmly to your principles!
 
@@ -45,8 +47,3 @@ I testify to you that God has known you individually, brethren, for a long, long
 
 
 
-
-
-
-
-#Dedication #Fatherhood #Humility #Mercy #Patience #Service

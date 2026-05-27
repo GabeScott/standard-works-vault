@@ -1,6 +1,8 @@
 # The Resurrection of Jesus Christ
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -26,7 +28,7 @@ As bidden by the angels, Mary Magdalene looked into the tomb, but it seems that 
 
 Peter and John left, but Mary remained behind, still in mourning. In the meantime the angels had returned and tenderly asked her, “Woman, why weepest thou? She saith unto them, Because they have taken away my Lord, and I know not where they have laid him.”[^6] At that moment the resurrected Savior, now standing behind her, spoke, “Woman, why weepest thou? whom seekest thou? She, supposing him to be the gardener, saith unto him, Sir, if thou have borne him hence, tell me where thou hast laid him, and I will take him away.”[^7]
 
-Elder James E. Talmage wrote: “It was Jesus to whom she spake, her beloved Lord, though she knew it not. One word from His living lips changed her agonized grief into ecstatic joy. ‘Jesus saith unto her, Mary.’ The voice, the tone, the tender accent she had heard and loved in the earlier days lifted her from the despairing depths into which she had sunk. She turned, and saw the Lord. In a transport of joy she reached out her arms to embrace Him, uttering only the endearing and worshipful word, ‘Rabboni,’ meaning My beloved Master.”[^8]
+Elder James E. Talmage wrote: “It was Jesus to whom she spake, her beloved Lord, though she knew it not. One word from His living lips changed her agonized grief into ecstatic joy. ‘Jesus saith unto her, Mary.’ The voice, the tone, the tender accent she had heard and loved in the earlier days lifted her from the despairing depths into which she had sunk. She turned, and saw the Lord. In a transport of joy she reached out her arms to embrace Him, uttering only the endearing and worshipful word, ‘Rabboni,’ meaning My beloved Master.”[^8]
 
 And so this blessed woman became the first mortal to see and speak to the resurrected Christ. Later that same day He appeared to Peter in or near Jerusalem;[^9] to two disciples on the road to Emmaus;[^10] and in the evening to 10 of the Apostles and others, appearing suddenly in their midst, saying, “Behold my hands and my feet, that it is I myself: handle me, and see; for a spirit hath not flesh and bones, as ye see me have.”[^11] Then to further convince them “while they yet believed not for joy, and wondered,”[^12] He ate broiled fish and honeycomb before them.[^13] Later He instructed them, “Ye shall be witnesses unto me both in Jerusalem, and in all Judea, and in Samaria, and unto the uttermost part of the earth.”[^14]
 
@@ -78,7 +80,7 @@ Given the reality of the Resurrection of Christ, doubts about the omnipotence, o
 
 Given the reality of the Resurrection of Christ, repentance of any violation of His law and commandments is both possible and urgent. The Savior’s miracles were real, as is His promise to His disciples that they might do the same and even greater works.[^32] His priesthood is necessarily a real power that “administereth the gospel and holdeth the key of the mysteries of the kingdom, even the key of the knowledge of God. Therefore, in the ordinances thereof, the power of godliness is manifest.”[^33] Given the reality of the Resurrection of Christ, death is not our end, and though “skin worms destroy \[our bodies\], yet in \[our\] flesh shall \[we\] see God.”[^34]
 
-President Thomas S. Monson tells of a Robert Blatchford who, 100 years ago “in his book *God and My Neighbor,* attacked with vigor accepted Christian beliefs, such as God, Christ, prayer, and immortality. He boldly asserted, ‘I claim to have proved everything I set out to prove so fully and decisively that no Christian, however great or able he may be, can answer my arguments or shake my case.’ He surrounded himself with a wall of skepticism. Then a surprising thing happened. His wall suddenly crumbled to dust. … Slowly he began to feel his way back to the faith he had scorned and ridiculed. What had caused this profound change in his outlook? *His wife \[had\] died.* With a broken heart, he went into the room where lay all that was mortal of her. He looked again at the face he loved so well. Coming out, he said to a friend: ‘It is she, and yet it is not she. Everything is changed. Something that was there before is taken away. She is not the same. What can be gone if it be not the soul?’”[^35]
+President Thomas S. Monson tells of a Robert Blatchford who, 100 years ago “in his book *God and My Neighbor,* attacked with vigor accepted Christian beliefs, such as God, Christ, prayer, and immortality. He boldly asserted, ‘I claim to have proved everything I set out to prove so fully and decisively that no Christian, however great or able he may be, can answer my arguments or shake my case.’ He surrounded himself with a wall of skepticism. Then a surprising thing happened. His wall suddenly crumbled to dust. … Slowly he began to feel his way back to the faith he had scorned and ridiculed. What had caused this profound change in his outlook? *His wife \[had\] died.* With a broken heart, he went into the room where lay all that was mortal of her. He looked again at the face he loved so well. Coming out, he said to a friend: ‘It is she, and yet it is not she. Everything is changed. Something that was there before is taken away. She is not the same. What can be gone if it be not the soul?’”[^35]
 
 Did the Lord in reality die and rise again? Yes. “The fundamental principles of our religion are the testimony of the Apostles and Prophets, concerning Jesus Christ, that He died, was buried, and rose again the third day, and ascended into heaven; and all other things which pertain to our religion are only appendages to it.”[^36]
 
@@ -103,9 +105,9 @@ Until then, I believe the many witnesses of the Savior’s Resurrection whose ex
 
 [^7]: [[John 20.15|John 20:15]].
 
-[^8]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 681.
+[^8]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 681.
 
-[^9]: See [[Luke 24.34|Luke 24:34]]; [[1 Corinthians 15.5|1 Corinthians 15:5]].
+[^9]: See [[Luke 24.34|Luke 24:34]]; [[1 Corinthians 15.5|1 Corinthians 15:5]].
 
 [^10]: See [[Mark 16.12|Mark 16:12]]; [[Luke 24.13|Luke 24:13–35]][[Luke 24.14|]][[Luke 24.15|]][[Luke 24.16|]][[Luke 24.17|]][[Luke 24.18|]][[Luke 24.19|]][[Luke 24.20|]][[Luke 24.21|]][[Luke 24.22|]][[Luke 24.23|]][[Luke 24.24|]][[Luke 24.25|]][[Luke 24.26|]][[Luke 24.27|]][[Luke 24.28|]][[Luke 24.29|]][[Luke 24.30|]][[Luke 24.31|]][[Luke 24.32|]][[Luke 24.33|]][[Luke 24.34|]][[Luke 24.35|]].
 
@@ -117,9 +119,9 @@ Until then, I believe the many witnesses of the Savior’s Resurrection whose ex
 
 [^14]: [[Acts 1.8|Acts 1:8]].
 
-[^15]: See [[3 Nephi 11.14|3 Nephi 11:14–15]][[3 Nephi 11.15|]].
+[^15]: See [[3 Nephi 11.14|3 Nephi 11:14–15]][[3 Nephi 11.15|]].
 
-[^16]: [[3 Nephi 11.16|3 Nephi 11:16–17]][[3 Nephi 11.17|]].
+[^16]: [[3 Nephi 11.16|3 Nephi 11:16–17]][[3 Nephi 11.17|]].
 
 [^17]: [[John 5.26|John 5:26]].
 
@@ -127,19 +129,19 @@ Until then, I believe the many witnesses of the Savior’s Resurrection whose ex
 
 [^19]: See [[Exodus 3.14|Exodus 3:14]].
 
-[^20]: [[1 Corinthians 15.21|1 Corinthians 15:21–22]][[1 Corinthians 15.22|]].
+[^20]: [[1 Corinthians 15.21|1 Corinthians 15:21–22]][[1 Corinthians 15.22|]].
 
-[^21]: *The Neal A. Maxwell Quote Book,* ed. Cory H. Maxwell (1997), 287.
+[^21]: *The Neal A. Maxwell Quote Book,* ed. Cory H. Maxwell (1997), 287.
 
-[^22]: See [[1 John 4.8|1 John 4:8]].
+[^22]: See [[1 John 4.8|1 John 4:8]].
 
 [^23]: [[Alma 42.15|Alma 42:15]]; see also [[Mosiah 15.8|Mosiah 15:8–9]][[Mosiah 15.9|]].
 
-[^24]: [[3 Nephi 27.13|3 Nephi 27:13–14]][[3 Nephi 27.14|]].
+[^24]: [[3 Nephi 27.13|3 Nephi 27:13–14]][[3 Nephi 27.14|]].
 
 [^25]: See [[Enos 1.6|Enos 1:6]].
 
-[^26]: See, for example, [[3 Nephi 9.15|3 Nephi 9:15]].
+[^26]: See, for example, [[3 Nephi 9.15|3 Nephi 9:15]].
 
 [^27]: See, for example, [[D&C 76.1|Doctrine and Covenants 76]][[D&C 76.2|]][[D&C 76.3|]][[D&C 76.4|]][[D&C 76.5|]][[D&C 76.6|]][[D&C 76.7|]][[D&C 76.8|]][[D&C 76.9|]][[D&C 76.10|]][[D&C 76.11|]][[D&C 76.12|]][[D&C 76.13|]][[D&C 76.14|]][[D&C 76.15|]][[D&C 76.16|]][[D&C 76.17|]][[D&C 76.18|]][[D&C 76.19|]][[D&C 76.20|]][[D&C 76.21|]][[D&C 76.22|]][[D&C 76.23|]][[D&C 76.24|]][[D&C 76.25|]][[D&C 76.26|]][[D&C 76.27|]][[D&C 76.28|]][[D&C 76.29|]][[D&C 76.30|]][[D&C 76.31|]][[D&C 76.32|]][[D&C 76.33|]][[D&C 76.34|]][[D&C 76.35|]][[D&C 76.36|]][[D&C 76.37|]][[D&C 76.38|]][[D&C 76.39|]][[D&C 76.40|]][[D&C 76.41|]][[D&C 76.42|]][[D&C 76.43|]][[D&C 76.44|]][[D&C 76.45|]][[D&C 76.46|]][[D&C 76.47|]][[D&C 76.48|]][[D&C 76.49|]][[D&C 76.50|]][[D&C 76.51|]][[D&C 76.52|]][[D&C 76.53|]][[D&C 76.54|]][[D&C 76.55|]][[D&C 76.56|]][[D&C 76.57|]][[D&C 76.58|]][[D&C 76.59|]][[D&C 76.60|]][[D&C 76.61|]][[D&C 76.62|]][[D&C 76.63|]][[D&C 76.64|]][[D&C 76.65|]][[D&C 76.66|]][[D&C 76.67|]][[D&C 76.68|]][[D&C 76.69|]][[D&C 76.70|]][[D&C 76.71|]][[D&C 76.72|]][[D&C 76.73|]][[D&C 76.74|]][[D&C 76.75|]][[D&C 76.76|]][[D&C 76.77|]][[D&C 76.78|]][[D&C 76.79|]][[D&C 76.80|]][[D&C 76.81|]][[D&C 76.82|]][[D&C 76.83|]][[D&C 76.84|]][[D&C 76.85|]][[D&C 76.86|]][[D&C 76.87|]][[D&C 76.88|]][[D&C 76.89|]][[D&C 76.90|]][[D&C 76.91|]][[D&C 76.92|]][[D&C 76.93|]][[D&C 76.94|]][[D&C 76.95|]][[D&C 76.96|]][[D&C 76.97|]][[D&C 76.98|]][[D&C 76.99|]][[D&C 76.100|]][[D&C 76.101|]][[D&C 76.102|]][[D&C 76.103|]][[D&C 76.104|]][[D&C 76.105|]][[D&C 76.106|]][[D&C 76.107|]][[D&C 76.108|]][[D&C 76.109|]][[D&C 76.110|]][[D&C 76.111|]][[D&C 76.112|]][[D&C 76.113|]][[D&C 76.114|]][[D&C 76.115|]][[D&C 76.116|]][[D&C 76.117|]][[D&C 76.118|]][[D&C 76.119|]].
 
@@ -147,9 +149,9 @@ Until then, I believe the many witnesses of the Savior’s Resurrection whose ex
 
 [^29]: See [[Acts 1.10|Acts 1:10–11]][[Acts 1.11|]].
 
-[^30]: [[Articles of Faith 1.10|Articles of Faith 1:10]]; see also Topical Guide, “[Jesus Christ, Millennial Reign](https://churchofjesuschrist.org/study/scriptures/tg/jesus-christ-millennial-reign?lang=eng).”
+[^30]: [[Articles of Faith 1.10|Articles of Faith 1:10]]; see also Topical Guide, “[[Jesus Christ, Millennial Reign|Jesus Christ, Millennial Reign]].”
 
-[^31]: See, for example, [[2 Nephi 9.15|2 Nephi 9:15]].
+[^31]: See, for example, [[2 Nephi 9.15|2 Nephi 9:15]].
 
 [^32]: See [[John 14.12|John 14:12]].
 
@@ -157,18 +159,13 @@ Until then, I believe the many witnesses of the Savior’s Resurrection whose ex
 
 [^34]: [[Job 19.26|Job 19:26]].
 
-[^35]: Thomas S. Monson, “I Know That My Redeemer Lives!” *Ensign* or *Liahona,* May 2007, 23.
+[^35]: Thomas S. Monson, “I Know That My Redeemer Lives!” *Ensign* or *Liahona,* May 2007, 23.
 
 [^36]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49.
 
-[^37]: See [[3 Nephi 1.15|3 Nephi 1:15–20]][[3 Nephi 1.16|]][[3 Nephi 1.17|]][[3 Nephi 1.18|]][[3 Nephi 1.19|]][[3 Nephi 1.20|]].
+[^37]: See [[3 Nephi 1.15|3 Nephi 1:15–20]][[3 Nephi 1.16|]][[3 Nephi 1.17|]][[3 Nephi 1.18|]][[3 Nephi 1.19|]][[3 Nephi 1.20|]].
 
 [^38]: [[Mosiah 27.31|Mosiah 27:31]].
 
 [^39]: [[D&C 76.22|Doctrine and Covenants 76:22–23]][[D&C 76.23|]].
 
-
-
-
-
-#Atonement #Jesus_Christ #Justice #Resurrection

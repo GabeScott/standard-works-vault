@@ -1,5 +1,7 @@
 # Questions and Answers
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1985 General Conference*
@@ -64,7 +66,7 @@ I am glad that there is a growing public awareness of this insidious evil. The e
 
 ## 7. What about fathers who fail to pay child support?
 
-Every man who fails to meet his responsibility to care for those he has fathered may find his standing in the Church in jeopardy, and particularly his eligibility for a temple recommend. Paul wrote to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
+Every man who fails to meet his responsibility to care for those he has fathered may find his standing in the Church in jeopardy, and particularly his eligibility for a temple recommend. Paul wrote to Timothy, “But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
 
 There may be extenuating circumstances in some cases, but those cases will be exceptional. We have followed the principle, in cases of men who have been excommunicated for misconduct and who later have desired to return to the Church and to again receive their former blessings, that as an evidence of sincere repentance they must demonstrate that they have been and are meeting those family support payments mandated by law and obligated by the principles of our religion.
 
@@ -82,7 +84,7 @@ But there were also 35,998,956 losers, each of whom had paid for a chance to win
 
 The question of lotteries is a moral question. That government now promotes what it once enforced laws against becomes a sad reflection on the deterioration of public and political morality in the nation.
 
-President Brigham Young spoke out against gambling. President Lorenzo Snow spoke against it. President Joseph F. Smith spoke very strongly against it; and, in 1925, President Heber J. Grant and his counselors said, “The Church has been and now is unalterably opposed to gambling in any form.” (*Improvement Era,* Sept. 1926, p. 1100.)
+President Brigham Young spoke out against gambling. President Lorenzo Snow spoke against it. President Joseph F. Smith spoke very strongly against it; and, in 1925, President Heber J. Grant and his counselors said, “The Church has been and now is unalterably opposed to gambling in any form.” (*Improvement Era,* Sept. 1926, p. 1100.)
 
 Lotteries are advocated as a means of relieving the burden of taxation. That may be a political matter. But a tax by any other name is still a tax, except in this case the burden usually falls on the poor who can least afford to pay it. As an editorial in *USA Today* stated recently: “Lotteries aren’t painless—the overwhelming majority of players always lose. The game takes bread and money from the poor. And it is one more temptation for the compulsive gamblers who ruin careers and families with their addiction.” (*USA Today,* 26 Aug. 1985.) In this context, it becomes a moral question.
 
@@ -115,5 +117,3 @@ I leave you my testimony. This is the work of the Almighty. This is the work of 
 
 
 
-
-#Abuse #Church_Growth #Church_Leaders #Church_Organization #Gambling #Parenthood #Peace #Spirituality

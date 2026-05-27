@@ -1,5 +1,7 @@
 # Closing Remarks
 
+Dallin H. Oaks
+
 By President Dallin H. Oaks - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2026 General Conference*
@@ -25,9 +27,7 @@ I promise this to each of us as we follow the directions of the servants of the 
 
 [^2]: “Redeemer of Israel,” *Hymns*, no. 6.
 
-[^3]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^3]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^4]: [[Alma 37.47|Alma 37:47]].
 
-
-#General_Conference #Jesus_Christ

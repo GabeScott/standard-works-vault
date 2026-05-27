@@ -1,6 +1,8 @@
 # Caring for the Poor and Needy
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+N. Eldon Tanner
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -16,7 +18,7 @@ To those on his right hand he will say, “Come, ye blessed of my Father, inheri
 
 In the same statement, the Master declared that the test on which the division would be made on that great day would be the care given to the poor and the needy.
 
-The Lord further emphasized this matter when he said to the rich young man, “… go and sell that thou hast, and give to the poor, and thou shalt have treasure in heaven: and come and follow me.” ([[Matthew 19.21|Matt. 19:21]].)
+The Lord further emphasized this matter when he said to the rich young man, “… go and sell that thou hast, and give to the poor, and thou shalt have treasure in heaven: and come and follow me.” ([[Matthew 19.21|Matt. 19:21]].)
 
 He stressed it again when he spake the Good Samaritan parable.
 
@@ -34,13 +36,13 @@ Amulek explained that the efficacy of one’s prayers depended upon his caring f
 
 “Therefore may God grant unto you, my brethren, that ye may begin to exercise your faith unto repentance, that ye begin to call upon his holy name, that he would have mercy upon you;
 
-“… cry unto him for mercy; for he is mighty to save.
+“… cry unto him for mercy; for he is mighty to save.
 
 “Cry unto him when ye are in your fields, yea, over all your flocks.
 
 “Cry unto him in your houses, … over all your household, both morning, mid-day, and evening.
 
-“… cry unto him against the devil, who is an enemy to all righteousness.
+“… cry unto him against the devil, who is an enemy to all righteousness.
 
 “But this is not all; ye must pour out your souls in your closets, and your secret places, and in your wilderness.
 
@@ -54,7 +56,7 @@ These ancient scriptures are impressive and edifying, but it is the modern scrip
 
 Introducing this subject in January 1831, less than a year after the Church was organized, the Lord said:
 
-“… let every man esteem his brother as himself, and practise virtue and holiness before me.
+“… let every man esteem his brother as himself, and practise virtue and holiness before me.
 
 “And again I say unto you, let every man esteem his brother as himself.
 
@@ -64,15 +66,15 @@ Introducing this subject in January 1831, less than a year after the Church was 
 
 To make it plain that he was speaking of temporal needs, the Lord continued, in the same revelation:
 
-“And now, I give unto the church in these parts a commandment, that certain men among them shall be appointed, …
+“And now, I give unto the church in these parts a commandment, that certain men among them shall be appointed, …
 
-“And they shall look to the poor and the needy, and administer to their relief that they shall not suffer. …” ([[D&C 38.34|D&C 38:34–35]][[D&C 38.35|]].)
+“And they shall look to the poor and the needy, and administer to their relief that they shall not suffer. …” ([[D&C 38.34|D&C 38:34–35]][[D&C 38.35|]].)
 
 A few weeks later, the Lord, in that great revelation recorded in the 42nd section of the Doctrine and Covenants, which he himself refers to as the law of the Church, said:
 
-“If thou lovest me … thou wilt remember the poor, and consecrate of thy properties for their support. …
+“If thou lovest me … thou wilt remember the poor, and consecrate of thy properties for their support. …
 
-“And inasmuch as ye impart of your substance unto the poor, ye will do it unto me. …” ([[D&C 42.29|D&C 42:29–31]][[D&C 42.30|]][[D&C 42.31|]].)
+“And inasmuch as ye impart of your substance unto the poor, ye will do it unto me. …” ([[D&C 42.29|D&C 42:29–31]][[D&C 42.30|]][[D&C 42.31|]].)
 
 The importance of caring for the poor and the needy is dramatically emphasized in the revelation received by the Prophet in Kirtland, June 7, 1831, in which the Lord paired off the brethren he was sending to Missouri. These brethren, all but destitute, were to make their way as best they could across four states. The Prophet himself walked almost the whole distance from St. Louis to Independence, a distance of about 300 miles. Nevertheless, and not withstanding the fact that they were facing these hardships, the Lord thus concluded his instructions to them:
 
@@ -84,17 +86,17 @@ In this modern world plagued with counterfeits for the Lord’s plan, we must no
 
 To implement his instructions to care for the poor and the needy, the Lord has in all dispensations given specific programs. To ancient Israel, he gave this very simple procedure:
 
-“… when ye reap the harvest of your land, thou shalt not wholly reap the corners of thy field, neither shalt thou gather the gleanings of thy harvest.
+“… when ye reap the harvest of your land, thou shalt not wholly reap the corners of thy field, neither shalt thou gather the gleanings of thy harvest.
 
-“And thou shalt not glean thy vineyard, neither shalt thou gather every grape of thy vineyard; thou shalt leave them for the poor and stranger. …” ([[Leviticus 19.9|Lev. 19:9–10]][[Leviticus 19.10|]].)
+“And thou shalt not glean thy vineyard, neither shalt thou gather every grape of thy vineyard; thou shalt leave them for the poor and stranger. …” ([[Leviticus 19.9|Lev. 19:9–10]][[Leviticus 19.10|]].)
 
 Simple as was this program, it was nevertheless founded upon the two basic principles of action operative in all inspired welfare programs, namely: (1) those who have are to give, and (2) those who receive are to work.
 
 Ruth was gathering in the fields of Boaz pursuant to this welfare program. Of course she had a little advantage because of Boaz’s feeling toward her, but that was the program that was in force in those days.
 
-The obligation of the receiver to labor, to the extent of his ability, to sustain himself and dependents, is just as great, in God’s economy, as is the obligation to contribute to the care of the needy. When the Lord expelled Adam from Eden, he said: “In the sweat of thy face shalt thou eat bread, till thou return unto the ground. …” ([[Genesis 3.19|Gen. 3:19]].)
+The obligation of the receiver to labor, to the extent of his ability, to sustain himself and dependents, is just as great, in God’s economy, as is the obligation to contribute to the care of the needy. When the Lord expelled Adam from Eden, he said: “In the sweat of thy face shalt thou eat bread, till thou return unto the ground. …” ([[Genesis 3.19|Gen. 3:19]].)
 
-This divine command is still in force. In the revealed “law of the church,” the Lord said in this dispensation: “Thou shalt not be idle; for he that is idle shall not eat the bread nor wear the garments of the laborer.” ([[D&C 42.42|D&C 42:42]].) Later he added: “… the idler shall not have place in the church, except he repent and mend his ways.” ([[D&C 75.29|D&C 75:29]].)
+This divine command is still in force. In the revealed “law of the church,” the Lord said in this dispensation: “Thou shalt not be idle; for he that is idle shall not eat the bread nor wear the garments of the laborer.” ([[D&C 42.42|D&C 42:42]].) Later he added: “… the idler shall not have place in the church, except he repent and mend his ways.” ([[D&C 75.29|D&C 75:29]].)
 
 As positive, however, as is this commandment against idleness, a disregard of it by the receiver does not justify Church members in failing to impart of their substance “according to the law of \[the\] gospel, unto the poor and the needy.” ([[D&C 104.18|D&C 104:18]].)
 
@@ -133,8 +135,3 @@ In the light of these scriptural teachings, it seems to me, brethren, that we sh
 
 
 
-
-
-
-
-#Welfare

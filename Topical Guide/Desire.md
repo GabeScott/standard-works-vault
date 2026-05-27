@@ -1,13 +1,12 @@
 # Desire
 
-
-*See also* [[Covet, Covetousness.md|Covet]]; [[Motivations.md|Motivations]]; [[Purpose.md|Purpose]]
+*See also* [[Covet.md|Covet]]; [[Motivations.md|Motivations]]; [[Purpose.md|Purpose]]
 
 tree to be *desired* to make one wise, [[Genesis 3.6|Genesis 3:6]] ([[Moses 4.12|Moses 4:12]]).
 
 unto thee shall be his *desire*, [[Genesis 4.7|Genesis 4:7]] ([[Moses 5.23|Moses 5:23]]).
 
-Neither shalt thou *desire* ... any thing that is thy neighbour's, [[Deuteronomy 5.21|Deuteronomy 5:21]].
+Neither shalt thou *desire* … any thing that is thy neighbour’s, [[Deuteronomy 5.21|Deuteronomy 5:21]].
 
 thou hast heard the *desire* of the humble, [[Psalms 10.17|Psalms 10:17]].
 
@@ -47,7 +46,7 @@ With *desire* I have *desired* to eat this passover, [[Luke 22.15|Luke 22:15]].
 
 Satan hath *desired* to have you, [[Luke 22.31|Luke 22:31]] ([[Moses 5.23|Moses 5:23]]).
 
-my heart's *desire* and prayer to God for Israel, [[Romans 10.1|Romans 10:1]].
+my heart’s *desire* and prayer to God for Israel, [[Romans 10.1|Romans 10:1]].
 
 *desire* spiritual gifts, [[1 Corinthians 14.1|1 Corinthians 14:1]].
 
@@ -71,13 +70,13 @@ granteth unto men according to their *desire*, [[Alma 29.4|Alma 29:4]].
 
 raised to happiness according to his *desires* of happiness, [[Alma 41.5|Alma 41:5]].
 
-whoso repenteth ... and *desireth* to be baptized, [[3 Nephi 11.23|3 Nephi 11:23]].
+whoso repenteth … and *desireth* to be baptized, [[3 Nephi 11.23|3 Nephi 11:23]].
 
-dictates of his own ... carnal *desires*, [[D&C 3.4|D&C 3:4]].
+dictates of his own … carnal *desires*, [[D&C 3.4|D&C 3:4]].
 
 what *desirest* thou? For if you shall ask, [[D&C 7.1|D&C 7:1]].
 
-by their *desires* ... you shall know them, [[D&C 18.38|D&C 18:38]].
+by their *desires* … you shall know them, [[D&C 18.38|D&C 18:38]].
 
 according to the *desire* of their hearts, [[D&C 137.9|D&C 137:9]].
 

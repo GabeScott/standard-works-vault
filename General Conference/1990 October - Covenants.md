@@ -1,5 +1,7 @@
 # Covenants
 
+Gordon B. Hinckley
+
 By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1990 General Conference*
@@ -8,7 +10,7 @@ By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 It was an experience to hear President Joseph Fielding Smith pray. Even when he was past ninety he would pray that he would “keep his *covenants* and *obligations* and endure to the end.” The word *covenant* is the subject of my message.
 
-The Lord told the ancients, “With thee will I establish my covenant” ([[Genesis 6.18|Gen. 6:18]]). He told the Nephites, “Ye are the children of the covenant” ([[3 Nephi 20.26|3 Ne. 20:26]]). And he described the restored gospel as the *“new and … everlasting covenant”* ([[D&C 22.1|D&C 22:1]]; italics added). Every Latter-day Saint is under *covenant.* Baptism is a covenant; so is the sacrament. Through it we renew the covenant of baptism and commit to “always remember him and keep his commandments” ([[D&C 20.77|D&C 20:77]]).
+The Lord told the ancients, “With thee will I establish my covenant” ([[Genesis 6.18|Gen. 6:18]]). He told the Nephites, “Ye are the children of the covenant” ([[3 Nephi 20.26|3 Ne. 20:26]]). And he described the restored gospel as the *“new and … everlasting covenant”* ([[D&C 22.1|D&C 22:1]]; italics added). Every Latter-day Saint is under *covenant.* Baptism is a covenant; so is the sacrament. Through it we renew the covenant of baptism and commit to “always remember him and keep his commandments” ([[D&C 20.77|D&C 20:77]]).
 
 ## Three Dangerous Life-Styles
 
@@ -22,11 +24,11 @@ The point I make is simply this: there is a *MORAL* and *SPIRITUAL* side to thes
 
 The commandments found in the scriptures, both the positive counsel and the “shalt nots,” form the *letter* of the law. There is also the *spirit* of the law. We are responsible for both.
 
-Some challenge us to show where the scriptures specifically forbid abortion or a gay-lesbian or drug-centered life-style. “If they are so wrong,” they ask, “why don’t the scriptures tell us so in ‘letter of the law’ plainness?” These issues are not ignored in the revelations.[*](https://churchofjesuschrist.org/study/general-conference/1990/10/covenants?lang=eng#note_asterisk) The scriptures are generally positive rather than negative in their themes, and it is a mistake to assume that anything not specifically prohibited in the “*letter* of the law” is somehow approved of the Lord. All the Lord approves is not detailed in the scriptures; neither is all that is forbidden. The Word of Wisdom, for instance, makes no specific warning against taking arsenic. Surely we don’t need a revelation to tell us that!
+Some challenge us to show where the scriptures specifically forbid abortion or a gay-lesbian or drug-centered life-style. “If they are so wrong,” they ask, “why don’t the scriptures tell us so in ‘letter of the law’ plainness?” These issues are not ignored in the revelations.[*](https://www.churchofjesuschrist.org/study/general-conference/1990/10/covenants?lang=eng#note_asterisk) The scriptures are generally positive rather than negative in their themes, and it is a mistake to assume that anything not specifically prohibited in the “*letter* of the law” is somehow approved of the Lord. All the Lord approves is not detailed in the scriptures; neither is all that is forbidden. The Word of Wisdom, for instance, makes no specific warning against taking arsenic. Surely we don’t need a revelation to tell us that!
 
-The Lord said, “It is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant” ([[D&C 58.26|D&C 58:26]]). The prophets told us in the Book of Mormon that “men are instructed sufficiently that they know good from evil” ([[2 Nephi 2.5|2 Ne. 2:5]]; see also [[Helaman 14.31|Hel. 14:31]]).
+The Lord said, “It is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant” ([[D&C 58.26|D&C 58:26]]). The prophets told us in the Book of Mormon that “men are instructed sufficiently that they know good from evil” ([[2 Nephi 2.5|2 Ne. 2:5]]; see also [[Helaman 14.31|Hel. 14:31]]).
 
-Life is meant to be a test to see if we will keep the commandments of God (see [[2 Nephi 2.5|2 Ne. 2:5]]). We are free to obey or to ignore the spirit and the letter of the law. But the agency granted to man is a *moral* agency (see [[D&C 101.78|D&C 101:78]]). We are not free to break our covenants and escape the consequences.
+Life is meant to be a test to see if we will keep the commandments of God (see [[2 Nephi 2.5|2 Ne. 2:5]]). We are free to obey or to ignore the spirit and the letter of the law. But the agency granted to man is a *moral* agency (see [[D&C 101.78|D&C 101:78]]). We are not free to break our covenants and escape the consequences.
 
 The laws of God are ordained to make us happy. Happiness cannot coexist with immorality: the prophet Alma told us in profound simplicity that “wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]).
 
@@ -115,7 +117,5 @@ God bless you who are struggling to resist or to free yourself from these terrib
 
 
 
+[^*]: See [[Genesis 13.13|Gen. 13:13]] (footnote 13*b*); [[Genesis 18.20|18:20–22]][[Genesis 18.21|]][[Genesis 18.22|]] (footnote 20*b*); [[Genesis 19.4|19:4–9]][[Genesis 19.5|]][[Genesis 19.6|]][[Genesis 19.7|]][[Genesis 19.8|]][[Genesis 19.9|]] (footnote 5*a*); [[JST Genesis 19.9|JST, Gen. 19:9–15]][[JST Genesis 19.10|]][[JST Genesis 19.11|]][[JST Genesis 19.12|]][[JST Genesis 19.13|]][[JST Genesis 19.14|]][[JST Genesis 19.15|]]; [[Leviticus 18.22|Lev. 18:22, 29]][[Leviticus 18.29|]]; [[Leviticus 20.13|20:13]] (footnote 13*a*); [[Deuteronomy 23.17|Deut. 23:17]] (footnote 17*b*); [[Romans 1.24|Rom. 1:24–27]][[Romans 1.25|]][[Romans 1.26|]][[Romans 1.27|]]; [[1 Corinthians 6.9|1 Cor. 6:9]] (footnotes 9*e*, *f*); [[1 Timothy 1.9|1 Tim. 1:9–10]][[1 Timothy 1.10|]] (footnote 10*b*, *c*).
 
-
-
-#Abortion #Agency #Covenants #Morality #Temptation #Word_Of_Wisdom

@@ -1,6 +1,8 @@
 # The Women of God
 
-By Elder Neal A. Maxwell - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Neal A. Maxwell - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -55,8 +57,3 @@ Meanwhile, there are no separate paths back to that heavenly home. Just one stra
 
 
 
-
-
-
-
-#Women

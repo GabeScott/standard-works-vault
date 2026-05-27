@@ -1,12 +1,14 @@
 # The Expanding Inheritance from Joseph Smith
 
-By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
+Gordon B. Hinckley
+
+By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1981/10/the-expanding-inheritance-from-joseph-smith?lang=eng)
 
-It was Friday morning, June 28, 1844, and already the summer sun was hot in Illinois. Since about eight o’clock that morning Dr. Willard Richards, Samuel H. Smith, and nine others had plodded along the dusty road between Carthage and Nauvoo, Illinois. Moving along the road with the solemn procession were two wagons heaped with bushes to protect their cargo from the blistering heat of the sun.
+It was Friday morning, June 28, 1844, and already the summer sun was hot in Illinois. Since about eight o’clock that morning Dr. Willard Richards, Samuel H. Smith, and nine others had plodded along the dusty road between Carthage and Nauvoo, Illinois. Moving along the road with the solemn procession were two wagons heaped with bushes to protect their cargo from the blistering heat of the sun.
 
 Laid out on the wagons were the lifeless bodies of Joseph Smith, age thirty-eight, over six feet tall, and Hyrum, his brother, age forty-four, and even larger in stature than Joseph. Wearily, Dr. Richards and Samuel Smith, brother to the two murdered men, pressed toward Nauvoo and talked of the events just the day before during which Joseph and Hyrum were gunned down by an armed mob with painted faces. The two victims, along with Dr. Richards and John Taylor, were lodged in Carthage Jail, supposedly for their protection, when the mob, numbering from 150 to 200 marauders, stormed the jail and shot to death their intended victims.
 
@@ -44,7 +46,7 @@ At the outset I mentioned Dr. Willard Richards, whose loyalty to Joseph is so ty
 
 Following the martyrdom of Joseph Smith, his successor as prophet was the practical, able Brigham Young. Of Joseph Smith, Brigham Young said:
 
-“When I first heard him preach, he brought heaven and earth together; and all the priests of the day could not tell me anything correct about heaven, hell, God, angels, or devils; they were as blind as Egyptian darkness. When I saw Joseph Smith, he took heaven, figuratively speaking, and brought it down to earth; and he took the earth, brought it up, and opened up, in plainness and simplicity, the things of God; and that is the beauty of his mission.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book, 1954, p. 458.)
+“When I first heard him preach, he brought heaven and earth together; and all the priests of the day could not tell me anything correct about heaven, hell, God, angels, or devils; they were as blind as Egyptian darkness. When I saw Joseph Smith, he took heaven, figuratively speaking, and brought it down to earth; and he took the earth, brought it up, and opened up, in plainness and simplicity, the things of God; and that is the beauty of his mission.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book, 1954, p. 458.)
 
 The results of a century and a half of this church offer great authentication to the truthfulness of Joseph Smith’s story. The work of this church moves forward in an astonishing way. The great body of the Latter-day Saints remain faithful to their testimonies of Joseph Smith and his work. Since Joseph’s day, millions have accepted by faith and have had confirmed by the Holy Spirit that Joseph’s account of seeing the Father and the Son is true and that he restored to earth the pure gospel of Jesus Christ.
 
@@ -61,8 +63,3 @@ What has been taught at this pulpit for the last two days is an extension of the
 
 
 
-
-
-
-
-#Joseph_Smith #Restoration

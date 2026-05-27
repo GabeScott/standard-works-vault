@@ -1,5 +1,7 @@
 # Priesthood Responsibilities
 
+Thomas S. Monson
+
 By Elder Claudio R. M. Costa - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -12,7 +14,7 @@ Elder Andersen, in behalf of the Seventies, I would like to say to you that we l
 
 My dear brethren, it is a sacred privilege to be part of the royal army of the Lord.[^1] I am humbled as I stand before you, imagining you assembled in locations throughout the world.
 
-In the worldwide leadership training meeting held on June 21, 2003, President Gordon B. Hinckley taught us that as priesthood holders we have a fourfold responsibility. He said: “Each of us has a fourfold responsibility. First, we have a responsibility to our families. Second, we have a responsibility to our employers. Third, we have a responsibility to the Lord’s work. Fourth, we have a responsibility to ourselves.”[^2]
+In the worldwide leadership training meeting held on June 21, 2003, President Gordon B. Hinckley taught us that as priesthood holders we have a fourfold responsibility. He said: “Each of us has a fourfold responsibility. First, we have a responsibility to our families. Second, we have a responsibility to our employers. Third, we have a responsibility to the Lord’s work. Fourth, we have a responsibility to ourselves.”[^2]
 
 The four areas of responsibility are vitally important.
 
@@ -24,7 +26,7 @@ Concerning family home evening, he said, “Keep Monday night sacred for family 
 
 Our children, just like their parents, have time demands on them in every aspect of their lives. They have activities involving church and school and friends. Many of our children are attending schools where they are the minority. Frequently the schools schedule events on Monday evenings—activities like sports, rehearsals or practices, choirs, and other events. We need to keep Monday nights free of other commitments so that we can have our family home evenings. No other activity is more important for our family.
 
-It is during the family home evening and in other family settings that we prepare our children to receive the blessings of the Lord. Elder Russell M. Nelson of the Quorum of the Twelve said: “Ours is the responsibility to ensure that we have family prayer, scripture study, and family home evening. Ours is the responsibility to prepare our children to receive the ordinances of salvation and exaltation.”[^6]
+It is during the family home evening and in other family settings that we prepare our children to receive the blessings of the Lord. Elder Russell M. Nelson of the Quorum of the Twelve said: “Ours is the responsibility to ensure that we have family prayer, scripture study, and family home evening. Ours is the responsibility to prepare our children to receive the ordinances of salvation and exaltation.”[^6]
 
 Family home evening is a very special time for us to strengthen ourselves and each family member. It is important to include the whole family in assignments for family home evening. A child could share the Primary lesson that he or she had last Sunday. Family home evening strengthened the faith and testimony of my own family.
 
@@ -40,13 +42,13 @@ President Ezra Taft Benson taught, “Priesthood holders need to provide watchca
 
 We need to be concerned about each member of the Church for whom we have responsibility. Home teaching is one of our great responsibilities.
 
-As fathers, we also have the sacred responsibility to set a worthy example for our children to help them to become better parents and leaders in their own homes. Quoting Elder M. Russell Ballard of the Quorum of the Twelve: “May we ask all priesthood leaders, especially you fathers, to help prepare your sons. Prepare them both spiritually and temporally, to look and to act as servants of the Lord.”[^10]
+As fathers, we also have the sacred responsibility to set a worthy example for our children to help them to become better parents and leaders in their own homes. Quoting Elder M. Russell Ballard of the Quorum of the Twelve: “May we ask all priesthood leaders, especially you fathers, to help prepare your sons. Prepare them both spiritually and temporally, to look and to act as servants of the Lord.”[^10]
 
 When we receive the priesthood, we make an eternal covenant to serve others.[^11] As priesthood holders, we can be a powerful influence in the lives of others.
 
-President Thomas S. Monson reminded us: “How fortunate and blessed we are to be holders of the priesthood of God. …
+President Thomas S. Monson reminded us: “How fortunate and blessed we are to be holders of the priesthood of God. …
 
-“‘… Always remember that people are looking to you for leadership and you are influencing the lives of individuals either for good or for bad, which influence will be felt for generations to come.’”[^12]
+“‘… Always remember that people are looking to you for leadership and you are influencing the lives of individuals either for good or for bad, which influence will be felt for generations to come.’”[^12]
 
 Our example will always speak loudly. During my years as a Church member, I have been influenced by the examples of many leaders and Church members. I remember a wonderful couple who were great examples to our family and to the entire ward. They were baptized in 1982. I was their bishop.
 
@@ -66,14 +68,14 @@ Our Savior extended this invitation to each and every one of us individually:
 
 When we do His work and His will, rather than our own will, we will realize that the yoke is easy and the burden is light. He will be with us always. He will reveal to us the exact portion that we need for success with our families, our career, and every responsibility that we have in His Church. He will help us to grow individually and as brethren in the priesthood.
 
-I know that the Church is true. I know that Joseph Smith is a prophet of God. I know that Thomas S. Monson is the living prophet on the earth today. I know that Jesus is the Christ, our Savior and Redeemer, in the name of Jesus Christ, amen.
+I know that the Church is true. I know that Joseph Smith is a prophet of God. I know that Thomas S. Monson is the living prophet on the earth today. I know that Jesus is the Christ, our Savior and Redeemer, in the name of Jesus Christ, amen.
 
 
 
 
 [^1]: See “Behold! A Royal Army,” *Hymns,* no. 251.
 
-[^2]: Gordon B. Hinckley, “Rejoicing in the Privilege to Serve,” *Worldwide Leadership Training Meeting,* June 21, 2003, 22.
+[^2]: Gordon B. Hinckley, “Rejoicing in the Privilege to Serve,” *Worldwide Leadership Training Meeting,* June 21, 2003, 22.
 
 [^3]: Gordon B. Hinckley, “Rejoicing in the Privilege to Serve,” 22.
 
@@ -81,7 +83,7 @@ I know that the Church is true. I know that Joseph Smith is a prophet of God. I 
 
 [^5]: Gordon B. Hinckley, “Rejoicing in the Privilege to Serve,” 23.
 
-[^6]: Russell M. Nelson, in Conference Report, Apr. 1999, 53; or *Ensign,* May 1999, 40.
+[^6]: Russell M. Nelson, in Conference Report, Apr. 1999, [[1999 April - Our Sacred Duty to Honor Women.md|53]]; or *Ensign,* May 1999, 40.
 
 [^7]: Gordon B. Hinckley, “Rejoicing in the Privilege to Serve,” 23.
 
@@ -89,20 +91,15 @@ I know that the Church is true. I know that Joseph Smith is a prophet of God. I 
 
 [^9]: Ezra Taft Benson, “Strengthen Thy Stakes,” *Tambuli,* Aug. 1991, 6; *Ensign,* Jan. 1991, 5.
 
-[^10]: M. Russell Ballard, in Conference Report, Apr. 1985, 55; or *Ensign,* May 1985, 43.
+[^10]: M. Russell Ballard, in Conference Report, Apr. 1985, [[1985 April - Prepare to Serve.md|55]]; or *Ensign,* May 1985, 43.
 
-[^11]: See M. Russell Ballard, “The Greater Priesthood: Giving a Lifetime of Service in the Kingdom,” *Ensign,* Sept. 1992, 72.
+[^11]: See M. Russell Ballard, “The Greater Priesthood: Giving a Lifetime of Service in the Kingdom,” *Ensign,* Sept. 1992, 72.
 
-[^12]: Thomas S. Monson, in Conference Report, Apr. 2008, 65–66; or *Ensign,* May 2008, 65–66; see also N. Eldon Tanner, in Conference Report, Oct. 1975, 112; or *Ensign,* Nov. 1975, 74.
+[^12]: Thomas S. Monson, in Conference Report, Apr. 2008, [[2008 April - Examples of Righteousness.md|65–66]]; or *Ensign,* May 2008, 65–66; see also N. Eldon Tanner, in Conference Report, Oct. 1975, [[1975 October - For They Loved the Praise of Men More Than the Praise of God.md|112]]; or *Ensign,* Nov. 1975, 74.
 
-[^13]: Thomas S. Monson, in Conference Report, Oct. 2008, 64; or *Ensign,* Nov. 2008, 62.
+[^13]: Thomas S. Monson, in Conference Report, Oct. 2008, [[2008 October - To Learn, to Do, to Be.md|64]]; or *Ensign,* Nov. 2008, 62.
 
 [^14]: See Gordon B. Hinckley, “Rejoicing in the Privilege to Serve,” 23.
 
 [^15]: [[Matthew 11.29|Matthew 11:29–30]][[Matthew 11.30|]].
 
-
-
-
-
-#Family_Home_Evening #Priesthood #Responsibility

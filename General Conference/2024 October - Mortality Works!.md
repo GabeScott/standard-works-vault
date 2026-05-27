@@ -1,6 +1,8 @@
 # Mortality Works!
 
-By Elder Brook P. Hales - *Of the Seventy*
+Henry B. Eyring
+
+By Elder Brook P. Hales - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -24,7 +26,7 @@ And so we should not be surprised when hard times come upon us. We will encounte
 
 “And whoso layeth down his life in my cause, for my name’s sake, shall find it again, even life eternal.
 
-“Therefore, be not afraid of your enemies \[or your problems, challenges, or the tests of this life\], for I have decreed … , saith the Lord, that I will prove you in all things, whether you will abide in my covenant … that you may be found worthy.”[^3]
+“Therefore, be not afraid of your enemies \[or your problems, challenges, or the tests of this life\], for I have decreed … , saith the Lord, that I will prove you in all things, whether you will abide in my covenant … that you may be found worthy.”[^3]
 
 When we feel distraught or anxious about our problems or feel that we might be receiving more than our fair share of life’s difficulties, we can remember what the Lord said to the children of Israel:
 
@@ -34,7 +36,7 @@ As Lehi taught his son Jacob:
 
 “Thou hast suffered afflictions and much sorrow. … Nevertheless, … \[God\] shall consecrate thine afflictions for thy gain. … Wherefore, I know that thou art redeemed, because of the righteousness of thy Redeemer.”[^5]
 
-Because this life is a testing ground and “dark clouds of trouble hang o’er us and threaten our peace to destroy,”[^6] it is helpful to remember this counsel and promise found in [[Mosiah 23.1|Mosiah 23]][[Mosiah 23.2|]][[Mosiah 23.3|]][[Mosiah 23.4|]][[Mosiah 23.5|]][[Mosiah 23.6|]][[Mosiah 23.7|]][[Mosiah 23.8|]][[Mosiah 23.9|]][[Mosiah 23.10|]][[Mosiah 23.11|]][[Mosiah 23.12|]][[Mosiah 23.13|]][[Mosiah 23.14|]][[Mosiah 23.15|]][[Mosiah 23.16|]][[Mosiah 23.17|]][[Mosiah 23.18|]][[Mosiah 23.19|]][[Mosiah 23.20|]][[Mosiah 23.21|]][[Mosiah 23.22|]][[Mosiah 23.23|]][[Mosiah 23.24|]][[Mosiah 23.25|]][[Mosiah 23.26|]][[Mosiah 23.27|]][[Mosiah 23.28|]][[Mosiah 23.29|]][[Mosiah 23.30|]][[Mosiah 23.31|]][[Mosiah 23.32|]][[Mosiah 23.33|]][[Mosiah 23.34|]][[Mosiah 23.35|]][[Mosiah 23.36|]][[Mosiah 23.37|]][[Mosiah 23.38|]][[Mosiah 23.39|]] relating to life’s challenges: “Nevertheless—whosoever putteth his trust in \[the Lord\] the same shall be lifted up at the last day.”[^7]
+Because this life is a testing ground and “dark clouds of trouble hang o’er us and threaten our peace to destroy,”[^6] it is helpful to remember this counsel and promise found in [[Mosiah 23.1|Mosiah 23]] relating to life’s challenges: “Nevertheless—whosoever putteth his trust in \[the Lord\] the same shall be lifted up at the last day.”[^7]
 
 As a youth, I personally experienced great emotional pain and shame that came as the result of the unrighteous actions of another, which for many years affected my self-worth and my sense of worthiness before the Lord. Nevertheless, I bear personal witness that the Lord can strengthen us and bear us up in whatever difficulties we are called upon to experience during our sojourn in this vale of tears.
 
@@ -75,7 +77,7 @@ I testify that as we receive the ordinances of the gospel, enter into covenants 
 
 
 
-[^1]: Shared with permission. This experience accords with the Lord’s teaching that death “shall be sweet unto” the righteous ([[D&C 42.46|Doctrine and Covenants 42:46]]). The Prophet Joseph Smith explained, “The spirits of the just are exalted to a greater and more glorious work … \[in\] the world of spirits” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 179). He further taught, “They are not far from us, and know and understand our thoughts, feelings, and motions” (in [Discourse](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-e-1-1-july-1843-30-april-1844/123), Oct. 9, 1843, as reported by *Times and Seasons*, 331, josephsmithpapers.org).
+[^1]: Shared with permission. This experience accords with the Lord’s teaching that death “shall be sweet unto” the righteous ([[D&C 42.46|Doctrine and Covenants 42:46]]). The Prophet Joseph Smith explained, “The spirits of the just are exalted to a greater and more glorious work … \[in\] the world of spirits” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-14?lang=eng&id=p34#p34)* \[2007\], 179). He further taught, “They are not far from us, and know and understand our thoughts, feelings, and motions” (in [Discourse](https://www.josephsmithpapers.org/paper-summary/history-1838-1856-volume-e-1-1-july-1843-30-april-1844/123), Oct. 9, 1843, as reported by *Times and Seasons*, 331, josephsmithpapers.org).
 
 [^2]: [[Moses 1.39|Moses 1:39]].
 
@@ -83,21 +85,19 @@ I testify that as we receive the ordinances of the gospel, enter into covenants 
 
 [^4]: [[Deuteronomy 8.2|Deuteronomy 8:2]].
 
-[^5]: [[2 Nephi 2.1|2 Nephi 2:1–3]][[2 Nephi 2.2|]][[2 Nephi 2.3|]].
+[^5]: [[2 Nephi 2.1|2 Nephi 2:1–3]][[2 Nephi 2.2|]][[2 Nephi 2.3|]].
 
-[^6]: “We Thank Thee, O God, for a Prophet,” *Hymns*, no. 19.
+[^6]: “We Thank Thee, O God, for a Prophet,” *Hymns*, no. 19.
 
 [^7]: [[Mosiah 23.22|Mosiah 23:22]].
 
-[^8]: [[2 Corinthians 12.7|2 Corinthians 12:7–9]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]].
+[^8]: [[2 Corinthians 12.7|2 Corinthians 12:7–9]][[2 Corinthians 12.8|]][[2 Corinthians 12.9|]].
 
-[^9]: Elder Richard G. Scott said, “I testify that I know victims of serious abuse who have successfully made the difficult journey to full healing through the power of the Atonement” (“[[2008 April - To Heal the Shattering Consequences of Abuse.md|To Heal the Shattering Consequences of Abuse]],” *Ensign* or *Liahona*, May 2008, 40).
+[^9]: Elder Richard G. Scott said, “I testify that I know victims of serious abuse who have successfully made the difficult journey to full healing through the power of the Atonement” (“[[2008 April - To Heal the Shattering Consequences of Abuse.md|To Heal the Shattering Consequences of Abuse]],” *Ensign* or *Liahona*, May 2008, 40).
 
 [^10]: [[D&C 138.14|Doctrine and Covenants 138:14]].
 
 [^11]: See [[Moses 1.39|Moses 1:39]].
 
+[^12]: [[Mosiah 2.41|Mosiah 2:41]].
 
-
-
-#Adversity #Atonement #Mortality #Plan_Of_Salvation

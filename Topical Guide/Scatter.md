@@ -1,11 +1,10 @@
 # Scatter
 
-
 *See also* [[Disperse.md|Disperse]]; [[Israel, Scattering of.md|Israel, Scattering of]]
 
 make us a name, lest we be *scattered*, [[Genesis 11.4|Genesis 11:4]].
 
-I will ... *scatter* them in Israel, [[Genesis 49.7|Genesis 49:7]].
+I will … *scatter* them in Israel, [[Genesis 49.7|Genesis 49:7]].
 
 Rise up, Lord, and let thine enemies be *scattered*, [[Numbers 10.35|Numbers 10:35]].
 
@@ -33,6 +32,6 @@ twelve tribes which are *scattered* abroad, [[James 1.1|James 1:1]].
 
 they are as a wild flock which fleeth from the shepherd, and *scattereth*, [[Mosiah 8.21|Mosiah 8:21]].
 
-I will hold the armies of Israel guiltless in ... *scattering* their watchmen, [[D&C 105.30|D&C 105:30]].
+I will hold the armies of Israel guiltless in … *scattering* their watchmen, [[D&C 105.30|D&C 105:30]].
 
 baptisms for the dead, by those who are *scattered* abroad, are not acceptable, [[D&C 124.35|D&C 124:35]].

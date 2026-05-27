@@ -4,6 +4,3 @@
 
 [JST Matthew 13:39](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/13?lang=eng)
 
-
-
-

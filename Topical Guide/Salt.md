@@ -1,7 +1,6 @@
 # Salt
 
-
-*See also* [[Example, Ensample.md|Example]]; [BD Dead Sea](https://www.churchofjesuschrist.org/study/scriptures/bd/dead-sea?lang=eng); [Salt, Valley of](https://www.churchofjesuschrist.org/study/scriptures/bd/salt-valley-of?lang=eng)
+*See also* [[Example.md|Example]]; [[BD Dead Sea.md|BD Dead Sea]]; [[BD Salt, Valley of.md|BD Salt, Valley of]]
 
 she became a pillar of *salt*, [[Genesis 19.26|Genesis 19:26]].
 
@@ -23,6 +22,6 @@ no fountain both yield *salt* water and fresh, [[James 3.12|James 3:12]].
 
 be as *salt* that hath lost its savor, [[3 Nephi 16.15|3 Nephi 16:15]].
 
-When men ... covenant ... they are accounted as the *salt*, [[D&C 101.39|D&C 101:39]].
+When men … covenant … they are accounted as the *salt*, [[D&C 101.39|D&C 101:39]].
 
 not the saviors of men, they are as *salt* that has lost its savor, [[D&C 103.10|D&C 103:10]].

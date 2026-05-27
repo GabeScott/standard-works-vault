@@ -1,6 +1,8 @@
 # Our Thirtieth Anniversary as Latter-day Saints
 
-By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Derek A. Cuthbert - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -44,7 +46,7 @@ What a thrill it was to see some of the reformed Egyptian characters as copied b
 
 Ninth, as one who had lived less than perfectly, and yet had no serious matters to disturb my conscience, I felt the need to make some changes in my life. I was overjoyed to learn the pure teaching of Jesus Christ concerning faith, repentance, baptism by immersion for the remission of sins, and the laying on of hands to receive the Holy Ghost. What joy to start afresh with a clean sheet, having turned away from unsound doctrines, vain traditions, and perverted ordinances.
 
-Again, this would seem to be a universal need, all men having been born into this earth life innocent and pure, and having been tainted by the things of the world. The marvelous thing is that Jesus gave his life for everyone. His resurrection was for everyone, “for as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
+Again, this would seem to be a universal need, all men having been born into this earth life innocent and pure, and having been tainted by the things of the world. The marvelous thing is that Jesus gave his life for everyone. His resurrection was for everyone, “for as in Adam all die, even so in Christ shall all be made alive” ([[1 Corinthians 15.22|1 Cor. 15:22]]).
 
 Tenth, and finally, since being baptized into this wonderful restored Church of Jesus Christ, I have felt an inner peace, “the peace of God, which passeth all understanding” ([[Philippians 4.7|Philip. 4:7]]). I have heard many people say their greatest need and desire is to obtain peace of mind. How does this come? It comes by knowing the truth, for “the truth shall make you free” ([[John 8.32|John 8:32]]). I testify that The Church of Jesus Christ of Latter-day Saints is the true Church of Jesus Christ, and teaches true principles and true ordinances.
 
@@ -55,8 +57,3 @@ May all within the sound of my voice, and all God’s children everywhere, have 
 
 
 
-
-
-
-
-#Conversion #Missionary_Work

@@ -4,6 +4,3 @@
 
 [JST Hebrews 7:26](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-heb/7?lang=eng)
 
-
-
-

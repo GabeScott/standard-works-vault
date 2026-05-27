@@ -1,6 +1,8 @@
 # Helping the Poor and Distressed
 
-By President Dallin H. Oaks - *First Counselor in the First Presidency*
+Dallin H. Oaks
+
+By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2022 General Conference*
 
@@ -8,7 +10,7 @@ By President Dallin H. Oaks - *First Counselor in the First Presidency*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2022/10/18oaks?lang=eng)
 
-Brothers and sisters, our beloved President Russell M. Nelson will address us later in this session. He has asked me to be the first speaker.
+Brothers and sisters, our beloved President Russell M. Nelson will address us later in this session. He has asked me to be the first speaker.
 
 My subject today concerns what The Church of Jesus Christ of Latter-day Saints and its members give and do for the poor and distressed. I will also speak of similar giving by other good people. Giving to those in need is a principle in all Abrahamic religions and in others as well.
 
@@ -18,7 +20,7 @@ Those figures are, of course, an incomplete report of our giving and helping. Th
 
 In 1831, less than two years after the restored Church was organized, the Lord gave this revelation to guide its members and, I believe, all of His children worldwide:
 
-“Behold, it is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant. …
+“Behold, it is not meet that I should command in all things; for he that is compelled in all things, the same is a slothful and not a wise servant. …
 
 “Verily I say, men should be anxiously engaged in a good cause, and do many things of their own free will, and bring to pass much righteousness;
 
@@ -40,7 +42,7 @@ The Book of Mormon teaches that “every thing which inviteth and enticeth to do
 
 Continuing:
 
-“For behold, the Spirit of Christ is given to every man, that he may know good from evil; wherefore, I show unto you the way to judge; for every thing which inviteth to do good, and to persuade to believe in Christ, is sent forth by the power and gift of Christ. …
+“For behold, the Spirit of Christ is given to every man, that he may know good from evil; wherefore, I show unto you the way to judge; for every thing which inviteth to do good, and to persuade to believe in Christ, is sent forth by the power and gift of Christ. …
 
 “And now, my brethren, … ye know the light by which ye may judge, which light is the light of Christ.”[^7]
 
@@ -69,13 +71,13 @@ I testify of Jesus Christ, whose light and Spirit guide all of the children of G
 
 
 
-[^1]: See *Caring for Those in Need: 2021 Annual Report of The Church of Jesus Christ of Latter-day Saints* (2022).
+[^1]: See *[Caring for Those in Need: 2021 Annual Report of The Church of Jesus Christ of Latter-day Saints](https://www.latterdaysaintcharities.org/annual-reports/2021)* (2022).
 
 [^2]: [[D&C 58.26|Doctrine and Covenants 58:26–28]][[D&C 58.27|]][[D&C 58.28|]].
 
 [^3]: [[Mosiah 2.17|Mosiah 2:17]].
 
-[^4]: Orson F. Whitney, in Conference Report, Apr. 1928, 59.
+[^4]: Orson F. Whitney, in Conference Report, Apr. 1928, 59.
 
 [^5]: [[D&C 93.2|Doctrine and Covenants 93:2]]; see also [[John 1.9|John 1:9]].
 
@@ -83,7 +85,7 @@ I testify of Jesus Christ, whose light and Spirit guide all of the children of G
 
 [^7]: [[Moroni 7.16|Moroni 7:16, 18]][[Moroni 7.18|]].
 
-[^8]: See “[Sikhs and Latter-day Saints in UAE Join for Annual Service Project](https://news-middleeast.churchofjesuschrist.org/article/sikhs-and-latter-day-saints-in-united-arab-emirates-join-together-for-annual-service-project),” Middle East Newsroom, Feb. 7, 2022, news-middleeast.ChurchofJesusChrist.org.
+[^8]: See “[Sikhs and Latter-day Saints in UAE Join for Annual Service Project](https://news-middleeast.churchofjesuschrist.org/article/sikhs-and-latter-day-saints-in-united-arab-emirates-join-together-for-annual-service-project),” Middle East Newsroom, Feb. 7, 2022, news-middleeast.ChurchofJesusChrist.org.
 
 [^9]: See “Who We Are,” MedGlobal, medglobal.org.
 
@@ -91,8 +93,3 @@ I testify of Jesus Christ, whose light and Spirit guide all of the children of G
 
 [^11]: [[Alma 1.30|Alma 1:30]].
 
-
-
-
-
-#Humanitarian_Aid #Poverty #Service

@@ -1,6 +1,5 @@
 # Jesus Christ, Judge
 
-
 *See also* [[God, Justice of.md|God, Justice of]]; [[Good Works.md|Good Works]]; [[Judge.md|Judge]]; [[Judgment.md|Judgment]]; [[Judgment, the Last.md|Judgment, the Last]]; [[Justice.md|Justice]]
 
 Shall not the *Judge* of all the earth do right, [[Genesis 18.25|Genesis 18:25]] ([[1 Samuel 2.10|1 Samuel 2:10]]; [[1 Chronicles 16.33|1 Chronicles 16:33]]; [[Psalms 58.11|Psalms 58:11]]; [[Psalms 82.8|Psalms 82:8]]; [[Psalms 94.2|Psalms 94:2]]).
@@ -27,7 +26,7 @@ shall he *judge* the poor, [[Isaiah 11.4|Isaiah 11:4]] ([[2 Nephi 21.4|2 Nephi 2
 
 Lord is our *judge*, the Lord is our lawgiver, [[Isaiah 33.22|Isaiah 33:22]].
 
-King ... shall execute *judgment* and justice, [[Jeremiah 23.5|Jeremiah 23:5]] ([[Jeremiah 33.15|Jeremiah 33:15]]).
+King … shall execute *judgment* and justice, [[Jeremiah 23.5|Jeremiah 23:5]] ([[Jeremiah 33.15|Jeremiah 33:15]]).
 
 I sit to *judge* all the heathen, [[Joel 3.12|Joel 3:12]].
 
@@ -53,7 +52,7 @@ whoremongers and adulterers God will *judge*, [[Hebrews 13.4|Hebrews 13:4]].
 
 To execute *judgment* upon all, [[Jude 1.15|Jude 1:15]] ([[1 Nephi 22.21|1 Nephi 22:21]]).
 
-Lord ... thou hast *judged* thus, [[Revelation 16.5|Revelation 16:5]].
+Lord … thou hast *judged* thus, [[Revelation 16.5|Revelation 16:5]].
 
 strong is the Lord God who *judgeth* her, [[Revelation 18.8|Revelation 18:8]].
 
@@ -69,7 +68,7 @@ Lord did visit them in great *judgment*, [[Omni 1.7|Omni 1:7]].
 
 Lord *judge* of your iniquities, [[Alma 10.20|Alma 10:20]].
 
-arraigned before the bar of Christ ... to be *judged*, [[Alma 11.44|Alma 11:44]].
+arraigned before the bar of Christ … to be *judged*, [[Alma 11.44|Alma 11:44]].
 
 restored into his presence, to be *judged*, [[Alma 42.23|Alma 42:23]].
 
@@ -79,14 +78,12 @@ until they come before me in *judgment*, [[D&C 43.33|D&C 43:33]].
 
 God and Christ are the *judge* of all, [[D&C 76.68|D&C 76:68]].
 
-will the Lord God ... *judge* all things, [[D&C 77.12|D&C 77:12]].
+will the Lord God … *judge* all things, [[D&C 77.12|D&C 77:12]].
 
-prepare ye ... for the *judgment* of our God, [[D&C 88.92|D&C 88:92]].
+prepare ye … for the *judgment* of our God, [[D&C 88.92|D&C 88:92]].
 
 I come quickly to *judgment*, [[D&C 99.5|D&C 99:5]].
 
-Lord who shall come ... with a curse to *judgment*, [[D&C 133.2|D&C 133:2]].
+Lord who shall come … with a curse to *judgment*, [[D&C 133.2|D&C 133:2]].
 
 Jesus Christ, a righteous *Judge*, [[Moses 6.57|Moses 6:57]].
-
-*See also* [[Matthew 25.32|Matthew 25:32]].

@@ -1,6 +1,5 @@
 # Command
 
-
 *See also* [[Charge.md|Charge]]; [[Instruct.md|Instruct]]; [[Order.md|Order]]
 
 Thou shalt speak all that I *command* thee, [[Exodus 7.2|Exodus 7:2]].
@@ -11,7 +10,7 @@ What thing soever I *command* you, observe to do it, [[Deuteronomy 12.32|Deutero
 
 ye shall *command* your children to observe to do, [[Deuteronomy 32.46|Deuteronomy 32:46]].
 
-As the Lord *commanded* Moses ... so did Moses *command* Joshua, [[Joshua 11.15|Joshua 11:15]].
+As the Lord *commanded* Moses … so did Moses *command* Joshua, [[Joshua 11.15|Joshua 11:15]].
 
 I have *commanded* the ravens to feed thee, [[1 Kings 17.4|1 Kings 17:4]].
 
@@ -53,7 +52,7 @@ the Father *command* me, that I should tell unto them, [[3 Nephi 15.16|3 Nephi 1
 
 the Father hath *commanded* me that I should give unto you this land, [[3 Nephi 20.14|3 Nephi 20:14]].
 
-weapons ... take them not again, save it be that God shall *command*, [[Mormon 7.4|Mormon 7:4]].
+weapons … take them not again, save it be that God shall *command*, [[Mormon 7.4|Mormon 7:4]].
 
 I *command* all men everywhere to repent, [[D&C 18.9|D&C 18:9]].
 
@@ -61,7 +60,7 @@ do as I have *commanded* concerning your teaching, [[D&C 42.15|D&C 42:15]].
 
 not meet that I should *command* in all things, [[D&C 58.26|D&C 58:26]].
 
-not go out unto battle ... save I, the Lord, *commanded*, [[D&C 98.33|D&C 98:33]].
+not go out unto battle … save I, the Lord, *commanded*, [[D&C 98.33|D&C 98:33]].
 
 Abraham was *commanded* to offer his son, [[D&C 132.36|D&C 132:36]].
 

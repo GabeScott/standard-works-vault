@@ -1,6 +1,8 @@
 # Youth’s Opportunity to Serve
 
-By Robert L. Backman - *President, Aaronic Priesthood MIA Young Men*
+Harold B. Lee
+
+By Robert L. Backman - *President, Aaronic Priesthood MIA Young Men*
 
 *Given in the April session of the 1973 General Conference*
 
@@ -32,11 +34,11 @@ An active youth committee in Cache Valley made it their project to take care of 
 
 Their deep desire to be of service and to demonstrate their love can even benefit the bishop. In Sacramento, California, while the bishop was away on vacation with his family, the youth committee determined to paint his house. These young people had the time of their lives working together and anticipating the pleasant surprise of the bishop when he returned. A real bond of love was established between the youth and their bishop with such meaningful service.
 
-Bishops, we urge you to make use of your youth committee; make it the effective instrument it should be to meet the needs of the youth of your ward. I hope every one of you will keep in mind the words President David O. McKay gave us so stirringly: “The spirituality of a ward will be commensurate with the activity of the youth.”
+Bishops, we urge you to make use of your youth committee; make it the effective instrument it should be to meet the needs of the youth of your ward. I hope every one of you will keep in mind the words President David O. McKay gave us so stirringly: “The spirituality of a ward will be commensurate with the activity of the youth.”
 
 You will note, from Bishop Brown’s explanation, that each member of the bishopric has been given a particular age group—both boys and girls—to direct. What a marvelous opportunity this gives for the presidency of the Aaronic Priesthood to help our youth leaders learn the duties and responsibilities of their respective callings. And what a blessing it will be for our youth leaders to enjoy a close relationship with the great youth leaders of the ward.
 
-To you Aaronic Priesthood quorum leaders, I hope you understand that the Lord outlined your duties as presidents of the Aaronic Priesthood quorums. He directed you to preside, to sit in council with your quorum members, and to teach them their duty. He didn’t give that assignment to your advisers; he gave it to you. You share the responsibility, with the bishopric, of blessing the lives of every member of your quorum as you fulfill your sacred calling. What a transformation takes place when young Jack Smith becomes President John Smith, deacons quorum president, entitled to revelation from the Lord in directing the affairs of that quorum, and President Smith really assumes the responsibilities of his office. You are too young for such responsibility? The apostle Paul sensed something of the inadequacy young men feel when they are thrust into leadership. He counseled his young “son in the faith,” Timothy, “Let no man despise thy youth. …” ([[1 Timothy 4.12|1 Tim. 4:12]].)
+To you Aaronic Priesthood quorum leaders, I hope you understand that the Lord outlined your duties as presidents of the Aaronic Priesthood quorums. He directed you to preside, to sit in council with your quorum members, and to teach them their duty. He didn’t give that assignment to your advisers; he gave it to you. You share the responsibility, with the bishopric, of blessing the lives of every member of your quorum as you fulfill your sacred calling. What a transformation takes place when young Jack Smith becomes President John Smith, deacons quorum president, entitled to revelation from the Lord in directing the affairs of that quorum, and President Smith really assumes the responsibilities of his office. You are too young for such responsibility? The apostle Paul sensed something of the inadequacy young men feel when they are thrust into leadership. He counseled his young “son in the faith,” Timothy, “Let no man despise thy youth. …” ([[1 Timothy 4.12|1 Tim. 4:12]].)
 
 Dana Miller was approaching his twelfth birthday, looking forward to becoming a deacon. One evening, just prior to his birthday, the front doorbell rang. Dana’s father, a high councilor in the stake, answered the door to find three young men on the porch. “We are the deacons presidency and have come to call on your son, Dana.” Admitting these quorum leaders, Brother Miller retired to another room while the presidency sat down with Dana and outlined his duties and responsibilities as a priesthood holder. That visit had more impact on a boy’s life than hours of counseling from an adult could have. Today Dana is president of the deacons quorum. What kind of a president do you think he is with that kind of an introduction to the priesthood and example from his leaders?
 
@@ -51,8 +53,3 @@ I bear my witness to you that God is our Father, that he loves you. He has given
 
 
 
-
-
-
-
-#Leadership #Priesthood #Youth

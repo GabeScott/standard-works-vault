@@ -1,4 +1,3 @@
 # Dispersion
 
-
-*See* [[Israel, Scattering of.md|Israel, Scattering of]]
+*See also* [[Israel, Scattering of.md|Israel, Scattering of]]

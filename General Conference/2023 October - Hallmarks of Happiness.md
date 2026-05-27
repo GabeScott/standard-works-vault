@@ -1,6 +1,8 @@
 # Hallmarks of Happiness
 
-By Elder Gary B. Sabin - *Of the Seventy*
+David A. Bednar
+
+By Elder Gary B. Sabin - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -58,7 +60,7 @@ Once we were seated at the back of the theater, one by one the people around us 
 
 We have laughed as we’ve recalled that experience, but what if all of our sins had an odor? What if we could smell dishonesty, lust, envy, or pride? With our own weaknesses revealed, we would hopefully be a little more considerate and careful of others and, likewise, they with us as we make the needed changes in our lives. I actually love the smell of tobacco in church because it indicates someone is trying to change. They need our welcoming arms around them.
 
-President Russell M. Nelson has wisely said, “One of the easiest ways to identify a *true follower* of Jesus Christ is how compassionately that person treats other people.”[^11]
+President Russell M. Nelson has wisely said, “One of the easiest ways to identify a *true follower* of Jesus Christ is how compassionately that person treats other people.”[^11]
 
 Paul wrote to the Ephesians, “And be ye kind one to another, tenderhearted, forgiving one another, even as God for Christ’s sake hath forgiven you.”[^12]
 
@@ -66,7 +68,7 @@ As disciples of Jesus Christ, we are asked to trust Heavenly Father and our Savi
 
 My fourth happiness hallmark is to maintain an eternal perspective. Our Father’s plan stretches into the eternities; it is easy to focus on the here and now and forget the hereafter.
 
-I was taught this lesson powerfully a number of years ago by our then-16-year-old daughter, Jennifer. She was about to have a double lung transplant, where the five diseased lobes of her lungs would be completely removed and replaced by two healthy smaller lobes, donated by two amazing Christlike friends. It was a very high-risk procedure, yet the night before her surgery, Jennifer almost preached to me with all of her 90 pounds (41 kg), saying, “Don’t worry, Dad! Tomorrow I will wake up with new lungs, or I will wake up in a better place. Either way will be great.” That is faith; that is eternal perspective! Seeing life from an eternal vantage point provides clarity, comfort, courage, and hope.
+I was taught this lesson powerfully a number of years ago by our then-16-year-old daughter, Jennifer. She was about to have a double lung transplant, where the five diseased lobes of her lungs would be completely removed and replaced by two healthy smaller lobes, donated by two amazing Christlike friends. It was a very high-risk procedure, yet the night before her surgery, Jennifer almost preached to me with all of her 90 pounds (41 kg), saying, “Don’t worry, Dad! Tomorrow I will wake up with new lungs, or I will wake up in a better place. Either way will be great.” That is faith; that is eternal perspective! Seeing life from an eternal vantage point provides clarity, comfort, courage, and hope.
 
 After the surgery, when the long-awaited day came to remove the breathing tube and turn off the ventilator that had been helping Jennifer breathe, we anxiously waited to see if her two smaller lobes would work. When she took her first breath, she immediately started crying. Seeing our concern, she quickly exclaimed, “It’s just so good to breathe.” 
 
@@ -97,11 +99,11 @@ I bear you my witness of the reality of God, our loving Father, and of His Belov
 
 [^4]: See [[Moroni 10.32|Moroni 10:32]].
 
-[^5]: [[1 Corinthians 6.20|1 Corinthians 6:20]]; see also [[1 Corinthians 7.23|1 Corinthians 7:23]].
+[^5]: [[1 Corinthians 6.20|1 Corinthians 6:20]]; see also [[1 Corinthians 7.23|1 Corinthians 7:23]].
 
 [^6]: Stephen Schwartz, “Through Heaven’s Eyes,” *The Prince of Egypt: Music from the Original Motion Picture Soundtrack* (1998), 7.
 
-[^7]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
+[^7]: [[1 Corinthians 13.12|1 Corinthians 13:12]].
 
 [^8]: [[John 13.34|John 13:34]].
 
@@ -109,11 +111,11 @@ I bear you my witness of the reality of God, our loving Father, and of His Belov
 
 [^10]: [[Proverbs 3.27|Proverbs 3:27]].
 
-[^11]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98.
+[^11]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98.
 
 [^12]: [[Ephesians 4.32|Ephesians 4:32]].
 
-[^13]: *Teachings of Russell M. Nelson* (2018), 137–38.
+[^13]: *Teachings of Russell M. Nelson* (2018), 137–38.
 
 [^14]: [[D&C 78.19|Doctrine and Covenants 78:19]].
 
@@ -121,8 +123,3 @@ I bear you my witness of the reality of God, our loving Father, and of His Belov
 
 [^16]: [[D&C 1.38|Doctrine and Covenants 1:38]].
 
-
-
-
-
-#Divine_Nature #Gratitude #Jesus_Christ #Joy #Kindness #Perspective

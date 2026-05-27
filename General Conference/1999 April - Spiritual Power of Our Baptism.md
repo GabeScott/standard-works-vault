@@ -1,5 +1,7 @@
 # Spiritual Power of Our Baptism
 
+Gordon B. Hinckley
+
 By Carol B. Thomas - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -16,7 +18,7 @@ Now, it’s probably not as hard to remember the day you were baptized—your se
 
 Baptism is our spiritual rebirth. It cleanses us from head to toe and allows us the companionship of the Savior through the gift of the Holy Ghost. He will accompany each of us along the road of life.
 
-Four things happen when we are baptized and confirmed: (1) we become members of Christ’s Church and commit to follow Him; (2) we have our sins forgiven; (3) it allows us entrance to the celestial kingdom; and (4) it is the doorway to personal sanctification (see Bible Dictionary, “Baptism,” 619). We might say we are “made holy.”
+Four things happen when we are baptized and confirmed: (1) we become members of Christ’s Church and commit to follow Him; (2) we have our sins forgiven; (3) it allows us entrance to the celestial kingdom; and (4) it is the doorway to personal sanctification (see Bible Dictionary, “[[BD Baptism|Baptism]],” 619). We might say we are “made holy.”
 
 The first three points are quite obvious. Tonight let’s focus on the fourth point: becoming holy. What does it mean to become holy? Because you have received the Holy Ghost, you are changed. You are a different person. It means you cannot be part of the world anymore; you can never go back. Elder Hales has said, “Help our young women to understand that when they are baptized, they are taken ‘out of the world’ and ‘into the kingdom’” (notes from General Young Women Board meeting, 5 Dec. 1997). You are taken out of the dark and into the light of Christ. It is the beginning of a whole new life.
 
@@ -24,7 +26,7 @@ Elder Henry B. Eyring, another member of the Quorum of the Twelve, remembers whe
 
 A story is told of the son of King Louis XVI of France. As a young man, he was kidnapped by evil men when they dethroned the king. For six months he was exposed to every filthy and vile thing that life had to offer, yet he never buckled under the pressure. This puzzled his captors, and they asked him why he had such great moral strength. His reply was simple: “I cannot do what you ask, for I was born to be a king” (see Vaughn J. Featherstone, “The King’s Son,” *New Era,* Nov. 1975, 35). You were born to be daughters of a King. By being baptized, you have been promised the blessings of royalty as you sanctify yourselves and become holy.
 
-So how do we do it? How can we become more holy so we may claim our royal heritage? Christ has said, “Follow me, … do the things which ye have seen me do” ([[2 Nephi 31.12|2 Ne. 31:12]]).
+So how do we do it? How can we become more holy so we may claim our royal heritage? Christ has said, “Follow me, … do the things which ye have seen me do” ([[2 Nephi 31.12|2 Ne. 31:12]]).
 
 Share a few stories with me of young women who are following in the light of Christ.
 
@@ -61,8 +63,3 @@ I pray that you will tend and take care of your baptismal covenants. As you say 
 
 
 
-
-
-
-
-#Holy_Ghost #Morality #Ordinances #Sacrament #Young_Women

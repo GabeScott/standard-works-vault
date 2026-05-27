@@ -1,6 +1,8 @@
 # A Higher Joy
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Dallin H. Oaks
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -145,23 +147,23 @@ May we all seek and find the higher joy that comes from devoting our lives to ou
 
 
 
-[^1]: John Gillespie Magee Jr., “High Flight,” poetryfoundation.org.
+[^1]: John Gillespie Magee Jr., “High Flight,” poetryfoundation.org.
 
-[^2]: See Christopher Klein, “10 Things You May Not Know about the Wright Brothers,” *History*, Mar. 28, 2023, history.com.
+[^2]: See Christopher Klein, “10 Things You May Not Know about the Wright Brothers,” *History*, Mar. 28, 2023, history.com.
 
 [^3]: Magee, “High Flight.”
 
-[^4]: Twenty-four hundred years ago, Aristotle observed that happiness is the one thing all humans desire most. In his treatise *Nicomachean Ethics*, he taught that the greatest good in life is the thing we pursue as an end itself (as opposed to those things we pursue that are a means to some other end). Happiness, above all else, is just such a thing. “We always desire happiness for its own sake,” he said, “and never as a means to something else” (*The Nicomachean Ethics of Aristotle*, trans. J. E. C. Weldon \[1902\], 13–14).
+[^4]: Twenty-four hundred years ago, Aristotle observed that happiness is the one thing all humans desire most. In his treatise *Nicomachean Ethics*, he taught that the greatest good in life is the thing we pursue as an end itself (as opposed to those things we pursue that are a means to some other end). Happiness, above all else, is just such a thing. “We always desire happiness for its own sake,” he said, “and never as a means to something else” (*The Nicomachean Ethics of Aristotle*, trans. J. E. C. Weldon \[1902\], 13–14).
 
-[^5]: See Harry Enten, “American Happiness Hits Record Lows,” CNN, Feb. 2, 2022, cnn.com; Tamara Lush, “Poll: Americans Are the Unhappiest They’ve Been in 50 Years,” Associated Press, June 16, 2020, apnews.com; “The Great Gloom: In 2023, Employees Are Unhappier Than Ever. Why?” BambooHR, bamboohr.com.
+[^5]: See Harry Enten, “American Happiness Hits Record Lows,” CNN, Feb. 2, 2022, cnn.com; Tamara Lush, “Poll: Americans Are the Unhappiest They’ve Been in 50 Years,” Associated Press, June 16, 2020, apnews.com; “The Great Gloom: In 2023, Employees Are Unhappier Than Ever. Why?” BambooHR, bamboohr.com.
 
 [^6]: See Wanda Mallette, Patti Ryan, and Bob Morrison, “Lookin’ for Love (in All the Wrong Places)” (1980).
 
-[^7]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^7]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^8]: See [[John 11.35|John 11:35]]; [[Moses 7.28|Moses 7:28–37]][[Moses 7.29|]][[Moses 7.30|]][[Moses 7.31|]][[Moses 7.32|]][[Moses 7.33|]][[Moses 7.34|]][[Moses 7.35|]][[Moses 7.36|]][[Moses 7.37|]].
 
-[^9]: See [[2 Nephi 2.11|2 Nephi 2:11]].
+[^9]: See [[2 Nephi 2.11|2 Nephi 2:11]].
 
 [^10]: See [[John 14.27|John 14:27]].
 
@@ -171,7 +173,7 @@ May we all seek and find the higher joy that comes from devoting our lives to ou
 
 [^13]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
-[^14]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^14]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^15]: If you have any concerns about whether or not your Father in Heaven will accept you and allow you to receive His joy, I invite you to prayerfully read Christ’s parable of the prodigal son (see [[Luke 15.11|Luke 15:11–32]][[Luke 15.12|]][[Luke 15.13|]][[Luke 15.14|]][[Luke 15.15|]][[Luke 15.16|]][[Luke 15.17|]][[Luke 15.18|]][[Luke 15.19|]][[Luke 15.20|]][[Luke 15.21|]][[Luke 15.22|]][[Luke 15.23|]][[Luke 15.24|]][[Luke 15.25|]][[Luke 15.26|]][[Luke 15.27|]][[Luke 15.28|]][[Luke 15.29|]][[Luke 15.30|]][[Luke 15.31|]][[Luke 15.32|]]). In that parable, we learn how our Heavenly Father feels about His children and how He awaits and celebrates our return after we have strayed from Him! From the moment we “come to ourselves” (see [[Luke 15.17|verse 17]]) and begin the journey home, He will see us, for He stands watching and waiting. And what is He waiting for? For us! As we draw near to Him, He will celebrate our return and call us His child.
 
@@ -181,7 +183,7 @@ May we all seek and find the higher joy that comes from devoting our lives to ou
 
 [^18]: See [[Mark 5.24|Mark 5:24–34]][[Mark 5.25|]][[Mark 5.26|]][[Mark 5.27|]][[Mark 5.28|]][[Mark 5.29|]][[Mark 5.30|]][[Mark 5.31|]][[Mark 5.32|]][[Mark 5.33|]][[Mark 5.34|]].
 
-[^19]: See Bible Dictionary, “[Clean and unclean](https://churchofjesuschrist.org/study/scriptures/bd/clean-and-unclean?lang=eng).”
+[^19]: See Bible Dictionary, “[[BD Clean And Unclean|Clean and unclean]].”
 
 [^20]: [[Mark 5.28|Mark 5:28]].
 
@@ -191,7 +193,7 @@ May we all seek and find the higher joy that comes from devoting our lives to ou
 
 [^23]: [[Acts 20.35|Acts 20:35]].
 
-[^24]: See [[1 Kings 17.8|1 Kings 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
+[^24]: See [[1 Kings 17.8|1 Kings 17:8–16]][[1 Kings 17.9|]][[1 Kings 17.10|]][[1 Kings 17.11|]][[1 Kings 17.12|]][[1 Kings 17.13|]][[1 Kings 17.14|]][[1 Kings 17.15|]][[1 Kings 17.16|]].
 
 [^25]: [[Mosiah 2.17|Mosiah 2:17]].
 
@@ -201,7 +203,5 @@ May we all seek and find the higher joy that comes from devoting our lives to ou
 
 [^28]: [[Luke 3.10|Luke 3:10]].
 
+[^29]: [[Philippians 4.7|Philippians 4:7]].
 
-
-
-#Adversity #Discipleship #Hope #Joy #Peace #Service

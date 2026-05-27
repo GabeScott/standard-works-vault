@@ -1,11 +1,10 @@
 # Whole
 
+*See also* [[Just.md|Just]]; [[Perfection.md|Perfection]]; [[Well [adjective, adverb].md|Well [adjective, adverb]]]; [[Wholly.md|Wholly]]
 
-*See also* [[Just.md|Just]]; [[Perfection, Perfect, Perfectly.md|Perfection]]; [[Well [adjective, adverb].md|Well [adjective, adverb]]]; [[Wholly.md|Wholly]]
+mist … watered the *whole* face of the ground, [[Genesis 2.6|Genesis 2:6]] ([[Moses 3.6|Moses 3:6]]; [[Abraham 5.6|Abraham 5:6]]).
 
-mist ... watered the *whole* face of the ground, [[Genesis 2.6|Genesis 2:6]] ([[Moses 3.6|Moses 3:6]]; [[Abraham 5.6|Abraham 5:6]]).
-
-Blessed are they that ... seek him with the *whole* heart, [[Psalms 119.2|Psalms 119:2]].
+Blessed are they that … seek him with the *whole* heart, [[Psalms 119.2|Psalms 119:2]].
 
 not that thy *whole* body should be cast into hell, [[Matthew 5.29|Matthew 5:29]].
 
@@ -25,7 +24,7 @@ little leaven leaveneth the *whole* lump, [[1 Corinthians 5.6|1 Corinthians 5:6]
 
 If the *whole* body were an eye, where were the hearing, [[1 Corinthians 12.17|1 Corinthians 12:17]].
 
-circumcised ... is a debtor to do the *whole* law, [[Galatians 5.3|Galatians 5:3]].
+circumcised … is a debtor to do the *whole* law, [[Galatians 5.3|Galatians 5:3]].
 
 Put on the *whole* armour of God, [[Ephesians 6.11|Ephesians 6:11]] ([[D&C 27.15|D&C 27:15]]).
 
@@ -33,13 +32,13 @@ keep the *whole* law, and yet offend in one point, [[James 2.10|James 2:10]].
 
 his *whole* heart was filled, [[1 Nephi 1.15|1 Nephi 1:15]].
 
-worship him with ... your *whole* soul, [[2 Nephi 25.29|2 Nephi 25:29]].
+worship him with … your *whole* soul, [[2 Nephi 25.29|2 Nephi 25:29]].
 
 I did pour out my *whole* soul unto God, [[Enos 1.9|Enos 1:9]] ([[Mosiah 26.14|Mosiah 26:14]]).
 
 offer your *whole* souls as an offering unto him, [[Omni 1.26|Omni 1:26]].
 
-Benjamin, by laboring with ... the faculty of his *whole* soul, [[Words of Mormon 1.18|Words of Mormon 1:18]].
+Benjamin, by laboring with … the faculty of his *whole* soul, [[Words of Mormon 1.18|Words of Mormon 1:18]].
 
 render all the thanks and praise which your *whole* soul has power to possess, [[Mosiah 2.20|Mosiah 2:20]].
 
@@ -51,9 +50,9 @@ the *whole* becoming spiritual and immortal, [[Alma 11.45|Alma 11:45]].
 
 this is the *whole* meaning of the law, [[Alma 34.14|Alma 34:14]].
 
-*whole* earth did tremble, [[Alma 36.7|Alma 36:7]] ([[Alma 38.7|Alma 38:7]]; [[3 Nephi 8.6|3 Nephi 8:6]], [[3 Nephi 8.8|3 Nephi 8:8]], [[3 Nephi 8.12|3 Nephi 8:12]]).
+*whole* earth did tremble, [[Alma 36.7|Alma 36:7]] ([[Alma 38.7|Alma 38:7]]; [[3 Nephi 8.6|3 Nephi 8:6]]; [[3 Nephi 8.8|3 Nephi 8:8]]; [[3 Nephi 8.12|3 Nephi 8:12]]).
 
-*whole* face of the land was filled with rejoicing, [[Helaman 11.18|Helaman 11:18]] ([[Helaman 11.20|Helaman 11:20]]; [[Mormon 1.7|Mormon 1:7]], [[Mormon 1.13|Mormon 1:13]]; [[Mormon 8.8|Mormon 8:8]]; [[Ether 10.21|Ether 10:21]]; [[Ether 13.17|Ether 13:17]]; [[Ether 14.21|Ether 14:21]]; [[D&C 1.30|D&C 1:30]]).
+*whole* face of the land was filled with rejoicing, [[Helaman 11.18|Helaman 11:18]] ([[Helaman 11.20|Helaman 11:20]]; [[Mormon 1.7|Mormon 1:7]]; [[Mormon 1.13|Mormon 1:13]]; [[Mormon 8.8|Mormon 8:8]]; [[Ether 10.21|Ether 10:21]]; [[Ether 13.17|Ether 13:17]]; [[Ether 14.21|Ether 14:21]]; [[D&C 1.30|D&C 1:30]]).
 
 power of his voice doth the *whole* earth shake, [[Helaman 12.11|Helaman 12:11]].
 
@@ -61,7 +60,7 @@ face of the *whole* earth became deformed, [[3 Nephi 8.17|3 Nephi 8:17]].
 
 their wickedness, which was above all the wickedness of the *whole* earth, [[3 Nephi 9.9|3 Nephi 9:9]].
 
-that ye may know that I am ... the God of the *whole* earth, [[3 Nephi 11.14|3 Nephi 11:14]] ([[3 Nephi 22.5|3 Nephi 22:5]]).
+that ye may know that I am … the God of the *whole* earth, [[3 Nephi 11.14|3 Nephi 11:14]] ([[3 Nephi 22.5|3 Nephi 22:5]]).
 
 thy *whole* body shall be full of light, [[3 Nephi 13.22|3 Nephi 13:22]].
 
@@ -69,9 +68,9 @@ eye be evil, thy *whole* body shall be full of darkness, [[3 Nephi 13.23|3 Nephi
 
 they who were *whole*, bow down at his feet, [[3 Nephi 17.10|3 Nephi 17:10]].
 
-consecrate their gain ... unto the Lord of the *whole* earth, [[3 Nephi 20.19|3 Nephi 20:19]] ([[D&C 55.1|D&C 55:1]]).
+consecrate their gain … unto the Lord of the *whole* earth, [[3 Nephi 20.19|3 Nephi 20:19]] ([[D&C 55.1|D&C 55:1]]).
 
-all stand before the judgment-seat of Christ ... the *whole* human family, [[Mormon 3.20|Mormon 3:20]].
+all stand before the judgment-seat of Christ … the *whole* human family, [[Mormon 3.20|Mormon 3:20]].
 
 little children are *whole*, [[Moroni 8.8|Moroni 8:8]].
 
@@ -81,7 +80,7 @@ that the *whole* earth may not be smitten, [[D&C 27.9|D&C 27:9]] ([[Malachi 4.6|
 
 *whole* earth shall be in commotion, [[D&C 45.26|D&C 45:26]].
 
-stone ... shall roll forth, until it has filled the *whole* earth, [[D&C 65.2|D&C 65:2]] ([[D&C 109.72|D&C 109:72]]).
+stone … shall roll forth, until it has filled the *whole* earth, [[D&C 65.2|D&C 65:2]] ([[D&C 109.72|D&C 109:72]]).
 
 *whole* world lieth in sin, [[D&C 84.49|D&C 84:49]].
 
@@ -91,10 +90,10 @@ eye be single to my glory, your *whole* bodies shall be filled with light, [[D&C
 
 a *whole* and complete and perfect union, [[D&C 128.18|D&C 128:18]].
 
-children ... are *whole* from the foundation of the world, [[Moses 6.54|Moses 6:54]].
+children … are *whole* from the foundation of the world, [[Moses 6.54|Moses 6:54]].
 
-great chain ... veiled the *whole* face of the earth, [[Moses 7.26|Moses 7:26]].
+great chain … veiled the *whole* face of the earth, [[Moses 7.26|Moses 7:26]].
 
 his *whole* person was glorious, [[Joseph Smith History 1.32|Joseph Smith History 1:32]].
 
-our interviews ... occupied the *whole* of that night, [[Joseph Smith History 1.47|Joseph Smith History 1:47]].
+our interviews … occupied the *whole* of that night, [[Joseph Smith History 1.47|Joseph Smith History 1:47]].

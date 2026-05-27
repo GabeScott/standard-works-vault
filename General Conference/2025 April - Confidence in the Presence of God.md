@@ -1,6 +1,8 @@
 # Confidence in the Presence of God
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Dallin H. Oaks
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -22,7 +24,7 @@ When we make and keep covenants with God, we can have confidence that is born of
 
 When I speak of having confidence before God, I am referring to having confidence in approaching God *right now*! I am referring to praying with confidence that Heavenly Father hears us, that He understands our needs better than we do. I am referring to having confidence that He loves us more than we can comprehend, that He sends angels to be with us and with those we love.[^3] I am referring to having confidence that He yearns to help each of us reach our highest potential.
 
-Now, how do we gain such confidence? The Lord answers this question with these words: “Let thy bowels … be full of charity towards all men, … and let virtue garnish thy thoughts unceasingly; *then* shall thy confidence wax strong in the presence of God.”[^4]
+Now, how do we gain such confidence? The Lord answers this question with these words: “Let thy bowels … be full of charity towards all men, … and let virtue garnish thy thoughts unceasingly; *then* shall thy confidence wax strong in the presence of God.”[^4]
 
 There’s the key! In the Lord’s own words, charity and virtue open the way to having confidence before God! Brothers and sisters, we can do this! Our confidence can truly wax strong in the presence of God, right now!
 
@@ -89,9 +91,9 @@ I testify that Jesus Christ, the Redeemer of Israel, leads this, His Church. He 
 
 [^3]: “For I will go before your face. I will be on your right hand and on your left, and my Spirit shall be in your hearts, and mine angels round about you, to bear you up” ([[D&C 84.88|Doctrine and Covenants 84:88]]).
 
-[^4]: [[D&C 121.45|Doctrine and Covenants 121:45]], emphasis added; see also [[D&C 121.46|verse 46]].
+[^4]: [[D&C 121.45|Doctrine and Covenants 121:45]], emphasis added; see also [[D&C 121.46|verse 46]].
 
-[^5]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98.
+[^5]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 98.
 
 [^6]: Choosing to contend with others is choosing to live without the guidance of the Holy Ghost.
 
@@ -103,7 +105,7 @@ I testify that Jesus Christ, the Redeemer of Israel, leads this, His Church. He 
 
 [^10]: See [[Isaiah 9.6|Isaiah 9:6]].
 
-[^11]: As Joseph Smith taught, “If \[we\] wish to go where God is, \[we\] must be like God, or possess the principles which God possesses” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 72). Likewise, the Apostle Paul gave the admonition that we should “come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need” ([[Hebrews 4.16|Hebrews 4:16]]).
+[^11]: As Joseph Smith taught, “If \[we\] wish to go where God is, \[we\] must be like God, or possess the principles which God possesses” (*[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-5?lang=eng&id=p8#p8)* \[2007\], 72). Likewise, the Apostle Paul gave the admonition that we should “come boldly unto the throne of grace, that we may obtain mercy, and find grace to help in time of need” ([[Hebrews 4.16|Hebrews 4:16]]).
 
 [^12]: See [[Matthew 24.36|Matthew 24:36–37]][[Matthew 24.37|]].
 
@@ -113,8 +115,3 @@ I testify that Jesus Christ, the Redeemer of Israel, leads this, His Church. He 
 
 [^15]: We may experience what King Benjamin’s people did: “They were filled with joy, having received a remission of their sins, and having peace of conscience, because of the exceeding faith which they had in Jesus Christ” ([[Mosiah 4.3|Mosiah 4:3]]).
 
-
-
-
-
-#Charity #Confidence #Peacemaking #Temples #Virtue

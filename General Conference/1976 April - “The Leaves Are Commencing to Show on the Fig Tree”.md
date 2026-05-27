@@ -1,6 +1,8 @@
 # “The Leaves Are Commencing to Show on the Fig Tree”
 
-By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Bernard P. Brockbank - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -46,7 +48,7 @@ The apostle Paul was inspired to give the following summary on the status of man
 
 “Traitors, heady, highminded, lovers of pleasures more than lovers of God;
 
-“Having a form of godliness, but denying the power thereof”; and then he warned, “from such turn away.” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
+“Having a form of godliness, but denying the power thereof”; and then he warned, “from such turn away.” ([[2 Timothy 3.1|2 Tim. 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].)
 
 Speaking of these perilous times, Jesus said, “The saints also shall hardly escape; nevertheless, I, the Lord, am with them.” ([[D&C 63.34|D&C 63:34]].)
 
@@ -72,11 +74,11 @@ Of Judah and Jerusalem in the last days the Lord promised, “Then will the Fath
 
 “Then shall they break forth into joy—Sing together, ye waste places of Jerusalem; for the Father has comforted his people, he hath redeemed Jerusalem.
 
-“The Father hath made bare his holy arm in the eyes of all the nations \[We have witnessed part of this.\], and all the ends of the earth shall see the salvation of the Father.” ([[3 Nephi 20.33|3 Ne. 20:33–35]][[3 Nephi 20.34|]][[3 Nephi 20.35|]].)
+“The Father hath made bare his holy arm in the eyes of all the nations \[We have witnessed part of this.\], and all the ends of the earth shall see the salvation of the Father.” ([[3 Nephi 20.33|3 Ne. 20:33–35]][[3 Nephi 20.34|]][[3 Nephi 20.35|]].)
 
 “And it shall come to pass that the time cometh, when the fulness of my gospel shall be preached unto them;
 
-“And they shall believe in me, that I am Jesus Christ the Son of God.” ([[3 Nephi 20.30|3 Ne. 20:30–31]][[3 Nephi 20.31|]].)
+“And they shall believe in me, that I am Jesus Christ the Son of God.” ([[3 Nephi 20.30|3 Ne. 20:30–31]][[3 Nephi 20.31|]].)
 
 “Before the great day of the Lord shall come, Jacob shall flourish in the wilderness, and the Lamanites shall blossom as the rose.
 
@@ -109,8 +111,3 @@ One percent would be approximately 36,000,000 and that is a multitude of potenti
 
 
 
-
-
-
-
-#Jesus_Christ #Last_Days

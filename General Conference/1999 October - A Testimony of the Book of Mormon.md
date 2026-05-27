@@ -1,5 +1,7 @@
 # A Testimony of the Book of Mormon
 
+Gordon B. Hinckley
+
 By Elder Russell M. Nelson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -26,7 +28,7 @@ Interesting as these matters may be, study of the Book of Mormon is most rewardi
 
 When you read the Book of Mormon, concentrate on the principal figure in the book—from its first chapter to the last—the Lord Jesus Christ, Son of the Living God.[^3] And look for a second undergirding theme: God will keep His covenants with the remnants of the house of Israel.[^4]
 
-The Book of Mormon is a crucial component of that covenant.[^5] It is holy scripture that encompasses sacred writings from the small and large plates of Nephi, the plates of Mormon, the plates of Ether, and the plates of brass, which contained “the five books of Moses, … a record of the Jews … ; and … prophecies of the holy prophets.”[^6]
+The Book of Mormon is a crucial component of that covenant.[^5] It is holy scripture that encompasses sacred writings from the small and large plates of Nephi, the plates of Mormon, the plates of Ether, and the plates of brass, which contained “the five books of Moses, … a record of the Jews … ; and … prophecies of the holy prophets.”[^6]
 
 When Mormon abridged these records, he noted that he could not write a “hundredth part” of their proceedings.[^7] Thus, *historical* aspects of the book assume *secondary* significance.
 
@@ -42,7 +44,7 @@ Not so with the Book of Mormon. It was written *anciently* for *our day.* It rev
 
 ## Content
 
-Their writings centered upon the Lord, His mission, and His ministry. Jacob, for example, repeatedly referred to the Atonement and Resurrection of Christ. “Beloved brethren,” wrote Jacob, “be reconciled unto \[God\] through the atonement of Christ, his Only Begotten Son, and ye may obtain a resurrection … and be presented as the first-fruits of Christ unto God. …
+Their writings centered upon the Lord, His mission, and His ministry. Jacob, for example, repeatedly referred to the Atonement and Resurrection of Christ. “Beloved brethren,” wrote Jacob, “be reconciled unto \[God\] through the atonement of Christ, his Only Begotten Son, and ye may obtain a resurrection … and be presented as the first-fruits of Christ unto God. …
 
 “And now, … why not speak of the atonement of Christ, and attain to a perfect knowledge of him,” and a “knowledge of a resurrection and the world to come?”[^18]
 
@@ -60,17 +62,17 @@ The Book of Mormon is the most important religious text to be revealed from God 
 
 The crowning event of this sacred record is the personal ministry of the resurrected Lord to people of ancient America. To them He made this revelatory announcement:
 
-“Behold, I am Jesus Christ the Son of God. I created the heavens and the earth, and all things that in them are. I was with the Father from the beginning. …
+“Behold, I am Jesus Christ the Son of God. I created the heavens and the earth, and all things that in them are. I was with the Father from the beginning. …
 
-“… The scriptures concerning my coming are fulfilled. …
+“… The scriptures concerning my coming are fulfilled. …
 
-“I am the light and the life of the world. …
+“I am the light and the life of the world. …
 
-“… Whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost. …
+“… Whoso cometh unto me with a broken heart and a contrite spirit, him will I baptize with fire and with the Holy Ghost. …
 
-“… I have come unto the world to bring redemption unto the world, to save the world from sin.
+“… I have come unto the world to bring redemption unto the world, to save the world from sin.
 
-“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. … I have laid down my life, and have taken it up again; therefore repent, and come unto me … , and be saved.”[^34]
+“Therefore, whoso repenteth and cometh unto me as a little child, him will I receive, for of such is the kingdom of God. … I have laid down my life, and have taken it up again; therefore repent, and come unto me … , and be saved.”[^34]
 
 After that supernal introduction, the Master reinforced His identity by allowing the multitudes to thrust their hands into His side and feel the prints of the nails in His hands and in His feet. Then they knew that the very God of Israel stood in their presence—He who had been slain for the sins of the world.[^35]
 
@@ -103,23 +105,23 @@ The Book of Mormon is true! I so testify in the name of Jesus Christ, amen.
 
 [^3]: The Book of Mormon has been organized into 6,607 verses, of which 3,925 refer to Jesus Christ, employing more than 100 titles. Thus, some form of Christ’s name is used on an average of one reference for every 1.7 verses (see Susan Easton Black, *Finding Christ through the Book of Mormon* \[1987\], 16–18).
 
-[^4]: See [[3 Nephi 16.11|3 Ne. 16:11–12]][[3 Nephi 16.12|]]; [[3 Nephi 29.3|29:3]]; [[Mormon 5.20|Morm. 5:20]]; [[Mormon 8.21|8:21]]; [[Mormon 9.37|9:37]].
+[^4]: See [[3 Nephi 16.11|3 Ne. 16:11–12]][[3 Nephi 16.12|]]; [[3 Nephi 29.3|29:3]]; [[Mormon 5.20|Morm. 5:20]]; [[Mormon 8.21|8:21]]; [[Mormon 9.37|9:37]].
 
 [^5]: See [[D&C 84.57|D&C 84:57–58]][[D&C 84.58|]].
 
-[^6]: [[1 Nephi 5.11|1 Ne. 5:11–13]][[1 Nephi 5.12|]][[1 Nephi 5.13|]]; see also [“A Brief Explanation about the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/explanation?lang=eng).”
+[^6]: [[1 Nephi 5.11|1 Ne. 5:11–13]][[1 Nephi 5.12|]][[1 Nephi 5.13|]]; see also “[A Brief Explanation about the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/explanation?lang=eng).”
 
-[^7]: [[Words of Mormon 1.5|W of M 1:5]]. This explanation was repeated five more times (see [[Jacob 3.13|Jacob 3:13]]; [[Helaman 3.14|Hel. 3:14]]; [[3 Nephi 5.8|3 Ne. 5:8]]; [[3 Nephi 26.6|26:6]]; [[Ether 15.33|Ether 15:33]]). Jacob, who received the plates from his brother Nephi, provided additional insight, noting that he “should not touch, save it were lightly, concerning the history of this people,” but he was to touch upon sacred or great things “as much as it were possible, for Christ’s sake, and for the sake of our people” ([[Jacob 1.2|Jacob 1:2, 4]][[Jacob 1.4|]]).
+[^7]: [[Words of Mormon 1.5|W of M 1:5]]. This explanation was repeated five more times (see [[Jacob 3.13|Jacob 3:13]]; [[Helaman 3.14|Hel. 3:14]]; [[3 Nephi 5.8|3 Ne. 5:8]]; [[3 Nephi 26.6|26:6]]; [[Ether 15.33|Ether 15:33]]). Jacob, who received the plates from his brother Nephi, provided additional insight, noting that he “should not touch, save it were lightly, concerning the history of this people,” but he was to touch upon sacred or great things “as much as it were possible, for Christ’s sake, and for the sake of our people” ([[Jacob 1.2|Jacob 1:2, 4]][[Jacob 1.4|]]).
 
-[^8]: Lehi, father of Nephi and Jacob, was also an eyewitness of the Lord (see [[2 Nephi 1.15|2 Ne. 1:15]]).
+[^8]: Lehi, father of Nephi and Jacob, was also an eyewitness of the Lord (see [[2 Nephi 1.15|2 Ne. 1:15]]).
 
-[^9]: See [[1 Nephi 8.10|1 Ne. 8:10–35]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]].
+[^9]: See [[1 Nephi 8.10|1 Ne. 8:10–35]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.13|]][[1 Nephi 8.14|]][[1 Nephi 8.15|]][[1 Nephi 8.16|]][[1 Nephi 8.17|]][[1 Nephi 8.18|]][[1 Nephi 8.19|]][[1 Nephi 8.20|]][[1 Nephi 8.21|]][[1 Nephi 8.22|]][[1 Nephi 8.23|]][[1 Nephi 8.24|]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]][[1 Nephi 8.29|]][[1 Nephi 8.30|]][[1 Nephi 8.31|]][[1 Nephi 8.32|]][[1 Nephi 8.33|]][[1 Nephi 8.34|]][[1 Nephi 8.35|]].
 
-[^10]: See [[1 Nephi 11.14|1 Ne. 11:14–36]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].
+[^10]: See [[1 Nephi 11.14|1 Ne. 11:14–36]][[1 Nephi 11.15|]][[1 Nephi 11.16|]][[1 Nephi 11.17|]][[1 Nephi 11.18|]][[1 Nephi 11.19|]][[1 Nephi 11.20|]][[1 Nephi 11.21|]][[1 Nephi 11.22|]][[1 Nephi 11.23|]][[1 Nephi 11.24|]][[1 Nephi 11.25|]][[1 Nephi 11.26|]][[1 Nephi 11.27|]][[1 Nephi 11.28|]][[1 Nephi 11.29|]][[1 Nephi 11.30|]][[1 Nephi 11.31|]][[1 Nephi 11.32|]][[1 Nephi 11.33|]][[1 Nephi 11.34|]][[1 Nephi 11.35|]][[1 Nephi 11.36|]].
 
 [^11]: See [[Ether 3.14|Ether 3:14]].
 
-[^12]: See [[1 Nephi 19.10|1 Ne. 19:10]].
+[^12]: See [[1 Nephi 19.10|1 Ne. 19:10]].
 
 [^13]: Many others could be listed, such as Enos, Jarom, Amaron, Amaleki, and more.
 
@@ -129,27 +131,27 @@ The Book of Mormon is true! I so testify in the name of Jesus Christ, amen.
 
 [^16]: Jaredite and Lehite.
 
-[^17]: Because Isaiah is quoted so extensively, he deserves mention as one of the major contributors to the Book of Mormon. A useful footnote to [[2 Nephi 12.2|2 Nephi 12:2]] in the current English edition of the LDS scriptures indicates that some 433 verses of Isaiah—roughly a third of the entire book—are quoted in the Book of Mormon. In the English language edition, more than half (about 233 verses) differ in some detail from their biblical counterpart, “while about 200 verses have the same wording as KJV.” One scholar of Isaiah documents that no less than 391 of the verses refer to the attributes, appearance, majesty, and mission of Jesus Christ (see Monte S. Nyman, *“Great Are the Words of Isaiah”* \[1980\], 7, 283–87).
+[^17]: Because Isaiah is quoted so extensively, he deserves mention as one of the major contributors to the Book of Mormon. A useful footnote to [[2 Nephi 12.2|2 Nephi 12:2]] in the current English edition of the LDS scriptures indicates that some 433 verses of Isaiah—roughly a third of the entire book—are quoted in the Book of Mormon. In the English language edition, more than half (about 233 verses) differ in some detail from their biblical counterpart, “while about 200 verses have the same wording as KJV.” One scholar of Isaiah documents that no less than 391 of the verses refer to the attributes, appearance, majesty, and mission of Jesus Christ (see Monte S. Nyman, *“Great Are the Words of Isaiah”* \[1980\], 7, 283–87).
 
 [^18]: [[Jacob 4.11|Jacob 4:11–12]][[Jacob 4.12|]].
 
 [^19]: [[D&C 27.5|D&C 27:5]]; see also [[D&C 20.9|D&C 20:9]]; [[Joseph Smith History 1.34|JS—H 1:34]].
 
-[^20]: [[3 Nephi 27.13|3 Ne. 27:13]]. The full text of His sermon also includes *ordinances* and *covenants* as integral aspects of the gospel.
+[^20]: [[3 Nephi 27.13|3 Ne. 27:13]]. The full text of His sermon also includes *ordinances* and *covenants* as integral aspects of the gospel.
 
-[^21]: [[3 Nephi 27.14|3 Ne. 27:14]].
+[^21]: [[3 Nephi 27.14|3 Ne. 27:14]].
 
 [^22]: Not all divine doctrines are included in the Book of Mormon. Temple work as we know it today has been revealed as part of the restoration of all things and is taught in the Doctrine and Covenants and in later revelations to living prophets.
 
 [^23]: See [[Romans 5.11|Rom. 5:11]].
 
-[^24]: *Atonement:* 28 times; *atone, atoning,* or *atoned:* 8 times; plus *atoneth:* 3 times; equals 39 times. Within several verses, the word *atonement* appears more than once (see [[2 Nephi 9.7|2 Ne. 9:7]]; [[Alma 34.9|Alma 34:9]]; [[Alma 42.23|42:23]]).
+[^24]: *Atonement:* 28 times; *atone, atoning,* or *atoned:* 8 times; plus *atoneth:* 3 times; equals 39 times. Within several verses, the word *atonement* appears more than once (see [[2 Nephi 9.7|2 Ne. 9:7]]; [[Alma 34.9|Alma 34:9]]; [[Alma 42.23|42:23]]).
 
 [^25]: The word *resurrection* appears 41 times in the King James Version of the Bible; it appears 81 times in the Book of Mormon (see also *Christ and the New Covenant,* 238).
 
 [^26]: See [[D&C 84.57|D&C 84:57]].
 
-[^27]: See [[3 Nephi 21.1|3 Ne. 21:1]]; [[3 Nephi 29.1|29]][[3 Nephi 29.2|]][[3 Nephi 29.3|]][[3 Nephi 29.4|]][[3 Nephi 29.5|]][[3 Nephi 29.6|]][[3 Nephi 29.7|]][[3 Nephi 29.8|]][[3 Nephi 29.9|]]: chapter heading.
+[^27]: See [[3 Nephi 21.1|3 Ne. 21:1]]; [[3 Nephi 29.1|29]]: chapter heading.
 
 [^28]: *Covenant* comes from the Latin *convenire,* which means “to come with,” “to agree.”
 
@@ -163,15 +165,15 @@ The Book of Mormon is true! I so testify in the name of Jesus Christ, amen.
 
 [^33]: See [[D&C 17.6|D&C 17:6]].
 
-[^34]: [[3 Nephi 9.15|3 Ne. 9:15–16, 18, 20–22]][[3 Nephi 9.16|]][[3 Nephi 9.18|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]][[3 Nephi 9.22|]].
+[^34]: [[3 Nephi 9.15|3 Ne. 9:15–16, 18, 20–22]][[3 Nephi 9.16|]][[3 Nephi 9.18|]][[3 Nephi 9.20|]][[3 Nephi 9.21|]][[3 Nephi 9.22|]].
 
-[^35]: See [[3 Nephi 11.14|3 Ne. 11:14]].
+[^35]: See [[3 Nephi 11.14|3 Ne. 11:14]].
 
-[^36]: See [[3 Nephi 15.9|3 Ne. 15:9]].
+[^36]: See [[3 Nephi 15.9|3 Ne. 15:9]].
 
-[^37]: [[2 Nephi 26.27|2 Ne. 26:27]].
+[^37]: [[2 Nephi 26.27|2 Ne. 26:27]].
 
-[^38]: [[2 Nephi 26.33|2 Ne. 26:33]].
+[^38]: [[2 Nephi 26.33|2 Ne. 26:33]].
 
 [^39]: See *Christ and the New Covenant,* 349.
 
@@ -193,8 +195,3 @@ The Book of Mormon is true! I so testify in the name of Jesus Christ, amen.
 
 [^48]: [[D&C 20.14|D&C 20:14]].
 
-
-
-
-
-#Atonement #Book_Of_Mormon #Covenants #Family #Jesus_Christ #Joseph_Smith #Prophets #Testimony

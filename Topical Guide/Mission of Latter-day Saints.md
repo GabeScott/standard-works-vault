@@ -1,6 +1,5 @@
 # Mission of Latter-day Saints
 
-
 *See also* [[Israel, Mission of.md|Israel, Mission of]]; [[Peculiar People.md|Peculiar People]]
 
 in thee shall all families of the earth be *blessed*, [[Genesis 12.3|Genesis 12:3]] ([[Galatians 3.8|Galatians 3:8]]).
@@ -13,7 +12,7 @@ set up an *ensign* for the nations, [[Isaiah 11.12|Isaiah 11:12]] ([[2 Nephi 21.
 
 put on thy *strength*, O Zion, [[Isaiah 52.1|Isaiah 52:1]].
 
-*stone* ... became a great mountain, and filled the whole earth, [[Daniel 2.35|Daniel 2:35]] ([[Daniel 2.44|Daniel 2:44]]).
+*stone* … became a great mountain, and filled the whole earth, [[Daniel 2.35|Daniel 2:35]] ([[Daniel 2.44|Daniel 2:44]]).
 
 *saviours* shall come up on mount Zion, [[Obadiah 1.21|Obadiah 1:21]].
 
@@ -21,9 +20,9 @@ put on thy *strength*, O Zion, [[Isaiah 52.1|Isaiah 52:1]].
 
 royal *priesthood*, an holy nation, a peculiar people, [[1 Peter 2.9|1 Peter 2:9]].
 
-saints ... armed with *righteousness*, [[1 Nephi 14.14|1 Nephi 14:14]].
+saints … armed with *righteousness*, [[1 Nephi 14.14|1 Nephi 14:14]].
 
-*gospel* ... from the Gentiles unto the remnant of our seed, [[1 Nephi 15.13|1 Nephi 15:13]].
+*gospel* … from the Gentiles unto the remnant of our seed, [[1 Nephi 15.13|1 Nephi 15:13]].
 
 nourished by the *Gentiles*, [[1 Nephi 22.8|1 Nephi 22:8]].
 
@@ -49,7 +48,7 @@ not sent forth to be taught, but to *teach*, [[D&C 43.15|D&C 43:15]].
 
 must needs flee unto Zion for *safety*, [[D&C 45.68|D&C 45:68]].
 
-Missouri ... consecrated for the *gathering* of the saints, [[D&C 57.1|D&C 57:1]].
+Missouri … consecrated for the *gathering* of the saints, [[D&C 57.1|D&C 57:1]].
 
 gospel must be *preached* unto every creature, [[D&C 58.64|D&C 58:64]].
 
@@ -61,7 +60,7 @@ unto whom much is given much is *required*, [[D&C 82.3|D&C 82:3]].
 
 *New Jerusalem* shall be built by the gathering of the saints, [[D&C 84.4|D&C 84:4]].
 
-bring forth *fruit* meet for their Father's kingdom, [[D&C 84.58|D&C 84:58]].
+bring forth *fruit* meet for their Father’s kingdom, [[D&C 84.58|D&C 84:58]].
 
 *light* unto the Gentiles, [[D&C 86.11|D&C 86:11]].
 
@@ -81,19 +80,19 @@ holy *house*, which my people are always commanded to build, [[D&C 124.39|D&C 12
 
 their *salvation* is necessary and essential to our salvation, [[D&C 128.15|D&C 128:15]].
 
-present ... the *records* of our dead, [[D&C 128.24|D&C 128:24]].
+present … the *records* of our dead, [[D&C 128.24|D&C 128:24]].
 
 *gather* ye out from among the nations, [[D&C 133.7|D&C 133:7]].
 
-by the hands of the ... children of *Ephraim*, [[D&C 133.32|D&C 133:32]].
+by the hands of the … children of *Ephraim*, [[D&C 133.32|D&C 133:32]].
 
 gospel shall be *preached* unto every nation, [[D&C 133.37|D&C 133:37]].
 
 *prepare* the weak for those things which are coming, [[D&C 133.58|D&C 133:58]].
 
-among the righteous ... appointed *messengers*, [[D&C 138.30|D&C 138:30]].
+among the righteous … appointed *messengers*, [[D&C 138.30|D&C 138:30]].
 
-faithful elders ... continue their labors in the *preaching*, [[D&C 138.57|D&C 138:57]].
+faithful elders … continue their labors in the *preaching*, [[D&C 138.57|D&C 138:57]].
 
 they shall bear this ministry and *Priesthood*, [[Abraham 2.9|Abraham 2:9]].
 

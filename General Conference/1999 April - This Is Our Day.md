@@ -1,5 +1,7 @@
 # This Is Our Day
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -63,7 +65,7 @@ President Gordon B. Hinckley is the prophet for our day and time. He is keenly a
 
 [^3]: In Jacob M. Braude, comp., *Braude’s Treasury of Wit and Humor* (1964), 178.
 
-[^4]: [[2 Nephi 5.27|2 Ne. 5:27]].
+[^4]: [[2 Nephi 5.27|2 Ne. 5:27]].
 
 [^5]: Evan Esar, comp., *20,000 Quips and Quotes* (1995), 812.
 
@@ -83,13 +85,13 @@ President Gordon B. Hinckley is the prophet for our day and time. He is keenly a
 
 [^13]: [[Luke 24.47|Luke 24:47]].
 
-[^14]: [[3 Nephi 10.6|3 Ne. 10:6]].
+[^14]: [[3 Nephi 10.6|3 Ne. 10:6]].
 
-[^15]: [[3 Nephi 11.37|3 Ne. 11:37]].
+[^15]: [[3 Nephi 11.37|3 Ne. 11:37]].
 
-[^16]: [[3 Nephi 12.44|3 Ne. 12:44]].
+[^16]: [[3 Nephi 12.44|3 Ne. 12:44]].
 
-[^17]: [[3 Nephi 12.48|3 Ne. 12:48]].
+[^17]: [[3 Nephi 12.48|3 Ne. 12:48]].
 
 [^18]: [[John 13.34|John 13:34]].
 
@@ -101,8 +103,3 @@ President Gordon B. Hinckley is the prophet for our day and time. He is keenly a
 
 [^22]: [[Psalms 118.23|Ps. 118:23]].
 
-
-
-
-
-#Atonement #Church_Organization #Covenants #Faith #Honesty #Jesus_Christ #Leadership #Missionary_Work #Morality #Prayer #Preparation #Priesthood #Restoration #Scripture_Study #Spirituality

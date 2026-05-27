@@ -1,6 +1,5 @@
 # Everlasting
 
-
 *See also* [[Eternal.md|Eternal]]
 
 remember the *everlasting* covenant, [[Genesis 9.16|Genesis 9:16]].
@@ -79,12 +78,12 @@ a new and an *everlasting* covenant, [[D&C 22.1|D&C 22:1]].
 
 come unto me and have *everlasting* life, [[D&C 45.5|D&C 45:5]].
 
-received not ... the *everlasting* covenant, [[D&C 76.101|D&C 76:101]].
+received not … the *everlasting* covenant, [[D&C 76.101|D&C 76:101]].
 
-tidings of great joy ... *everlasting* gospel, [[D&C 79.1|D&C 79:1]] ([[D&C 101.39|D&C 101:39]]).
+tidings of great joy … *everlasting* gospel, [[D&C 79.1|D&C 79:1]] ([[D&C 101.39|D&C 101:39]]).
 
 dominion shall be an *everlasting* dominion, [[D&C 121.46|D&C 121:46]].
 
-new and *everlasting* covenant of marriage, [[D&C 131.2|D&C 131:2]] ([[D&C 132.6|D&C 132:6]], [[D&C 132.19|D&C 132:19]]).
+new and *everlasting* covenant of marriage, [[D&C 131.2|D&C 131:2]] ([[D&C 132.6|D&C 132:6]]; [[D&C 132.19|D&C 132:19]]).
 
-Then shall they be gods ... from *everlasting* to *everlasting*, [[D&C 132.20|D&C 132:20]].
+Then shall they be gods … from *everlasting* to *everlasting*, [[D&C 132.20|D&C 132:20]].

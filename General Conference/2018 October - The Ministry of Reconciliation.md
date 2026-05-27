@@ -1,6 +1,8 @@
 # The Ministry of Reconciliation
 
-By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2018/10/the-ministry-of-reconciliation?lang=eng)
 
-Last April, when President Russell M. Nelson introduced the concept of ministering, he stressed that it was a way to keep the great commandments to love God and love each other.[^1] We, as officers of the Church, openly applaud and congratulate you on the tremendous response you have begun in that regard. We thank you for following our beloved prophet in this wonderful endeavor and suggest that you not wait for many more instructions. Just jump into the pool and swim. Head toward those in need. Don’t be immobilized wondering whether you should do the backstroke or the dog paddle. If we follow the basic principles that have been taught, stay aligned with priesthood keys, and seek the Holy Spirit to guide us, we cannot fail.
+Last April, when President Russell M. Nelson introduced the concept of ministering, he stressed that it was a way to keep the great commandments to love God and love each other.[^1] We, as officers of the Church, openly applaud and congratulate you on the tremendous response you have begun in that regard. We thank you for following our beloved prophet in this wonderful endeavor and suggest that you not wait for many more instructions. Just jump into the pool and swim. Head toward those in need. Don’t be immobilized wondering whether you should do the backstroke or the dog paddle. If we follow the basic principles that have been taught, stay aligned with priesthood keys, and seek the Holy Spirit to guide us, we cannot fail.
 
 This morning I wish to speak of an even more personal aspect of ministering that isn’t by assignment, does not involve a calendared interview, and has no reporting line except to heaven. Let me share just one homespun example of that kind of ministering.
 
@@ -40,7 +42,7 @@ Surely each of us could cite an endless array of old scars and sorrows and painf
 
 In such an invitation to be His disciple and to try to do as He did, Jesus is asking us to be instruments of His grace—to be “ambassadors for Christ” in “the ministry of reconciliation,” as Paul described it to the Corinthians.[^14] The Healer of every wound, He who rights every wrong, asks us to labor with Him in the daunting task of peacemaking in a world that won’t find it any other way.
 
-So, as Phillips Brooks wrote: “You who are letting miserable misunderstandings run on from year to year, meaning to clear them up some day; you who are keeping wretched quarrels alive because you cannot quite make up your mind that now is the day to sacrifice your pride and \[settle\] them; you who are passing men sullenly upon the street, not speaking to them out of some silly spite … ; you who are letting … \[someone’s\] heart ache for a word of appreciation or sympathy, which you mean to give … some day, … go instantly and do the thing which you might never have another chance to do.”[^15]
+So, as Phillips Brooks wrote: “You who are letting miserable misunderstandings run on from year to year, meaning to clear them up some day; you who are keeping wretched quarrels alive because you cannot quite make up your mind that now is the day to sacrifice your pride and \[settle\] them; you who are passing men sullenly upon the street, not speaking to them out of some silly spite … ; you who are letting … \[someone’s\] heart ache for a word of appreciation or sympathy, which you mean to give … some day, … go instantly and do the thing which you might never have another chance to do.”[^15]
 
 My beloved brothers and sisters, I testify that forgiving and forsaking offenses, old or new, is central to the grandeur of the Atonement of Jesus Christ. I testify that ultimately such spiritual repair can come only from our divine Redeemer, He who rushes to our aid “with healing in his wings.”[^16] We thank Him, and our Heavenly Father who sent Him, that renewal and rebirth, a future free from old sorrows and past mistakes, are not only possible, but they have already been purchased, paid for, at an excruciating cost symbolized by the blood of the Lamb who shed it.
 
@@ -63,11 +65,11 @@ My beloved friends, in our shared ministry of reconciliation, I ask us to be pea
 
 [^6]: [[D&C 42.45|Doctrine and Covenants 42:45]].
 
-[^7]: [[3 Nephi 11.22|3 Nephi 11:22]]; see also [[3 Nephi 11.28|3 Nephi 11:28]].
+[^7]: [[3 Nephi 11.22|3 Nephi 11:22]]; see also [[3 Nephi 11.28|3 Nephi 11:28]].
 
-[^8]: [[3 Nephi 11.29|3 Nephi 11:29]].
+[^8]: [[3 Nephi 11.29|3 Nephi 11:29]].
 
-[^9]: [[3 Nephi 12.23|3 Nephi 12:23–24]][[3 Nephi 12.24|]]; emphasis added.
+[^9]: [[3 Nephi 12.23|3 Nephi 12:23–24]][[3 Nephi 12.24|]]; emphasis added.
 
 [^10]: William Shakespeare, *The Tempest,* act 5, scene 1, lines 199–200.
 
@@ -77,18 +79,13 @@ My beloved friends, in our shared ministry of reconciliation, I ask us to be pea
 
 [^13]: [[Luke 18.22|Luke 18:22]].
 
-[^14]: See [[2 Corinthians 5.18|2 Corinthians 5:18–20]][[2 Corinthians 5.19|]][[2 Corinthians 5.20|]].
+[^14]: See [[2 Corinthians 5.18|2 Corinthians 5:18–20]][[2 Corinthians 5.19|]][[2 Corinthians 5.20|]].
 
 [^15]: Phillips Brooks, *The Purpose and Use of Comfort* (1906), 329.
 
-[^16]: [[Malachi 4.2|Malachi 4:2]]; see also [[2 Nephi 25.13|2 Nephi 25:13]]; [[3 Nephi 25.2|3 Nephi 25:2]].
+[^16]: [[Malachi 4.2|Malachi 4:2]]; see also [[2 Nephi 25.13|2 Nephi 25:13]]; [[3 Nephi 25.2|3 Nephi 25:2]].
 
 [^17]: [[D&C 136.23|Doctrine and Covenants 136:23]].
 
 [^18]: [[Zechariah 13.6|Zechariah 13:6]]; see also [[D&C 45.52|Doctrine and Covenants 45:52]].
 
-
-
-
-
-#Atonement #Forgiveness #Ministering #Peace

@@ -1,6 +1,8 @@
 # Burying Our Weapons of Rebellion
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -26,7 +28,7 @@ Rebellion can be active or passive. The classic example of willful rebellion is 
 
 The Book of Mormon’s unholy trio of anti-Christs—Sherem, Nehor, and Korihor—provide a classic study of active rebellion against God. The overarching thesis of Nehor and Korihor was that there is no sin; therefore, there is no need for repentance, and there is no Savior. “Every man prosper\[s\] according to his genius, and … every man conquer\[s\] according to his strength; and whatsoever a man \[does is\] no crime.”[^6] The anti-Christ rejects religious authority, characterizing ordinances and covenants as performances “laid down by ancient priests, to usurp power and authority.”[^7]
 
-A latter-day example of willful rebellion with a happier ending is the story of William W. Phelps. Phelps joined the Church in 1831 and was appointed Church printer. He edited several early Church publications, wrote numerous hymns, and served as a scribe to Joseph Smith. Unfortunately, he turned against the Church and the Prophet, even to the point of giving false testimony against Joseph Smith in a Missouri court, which contributed to the Prophet’s imprisonment there.
+A latter-day example of willful rebellion with a happier ending is the story of William W. Phelps. Phelps joined the Church in 1831 and was appointed Church printer. He edited several early Church publications, wrote numerous hymns, and served as a scribe to Joseph Smith. Unfortunately, he turned against the Church and the Prophet, even to the point of giving false testimony against Joseph Smith in a Missouri court, which contributed to the Prophet’s imprisonment there.
 
 Later, Phelps wrote to Joseph asking for forgiveness. “I know my situation, you know it, and God knows it, and I want to be saved if my friends will help me.”
 
@@ -38,7 +40,7 @@ Perhaps the more insidious form of rebellion against God, however, is the passiv
 
 Take, for instance, the Savior’s example regarding baptism. He submitted to baptism as a demonstration of loyalty to the Father and as an example to us:
 
-“He showeth unto the children of men that, according to the flesh he humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments. …
+“He showeth unto the children of men that, according to the flesh he humbleth himself before the Father, and witnesseth unto the Father that he would be obedient unto him in keeping his commandments. …
 
 “And he said unto the children of men: Follow thou me. Wherefore, my beloved brethren, can we follow Jesus save we shall be willing to keep the commandments of the Father?”[^9]
 
@@ -60,7 +62,7 @@ Consider another example of something that is essentially good but that could be
 
 Still, it is possible that devotion to career can become the paramount focus of one’s life. Then all else becomes secondary, including any claim the Savior may make on one’s time and talent. For men, and for women as well, forgoing legitimate opportunities for marriage, failing to cleave to and lift one’s spouse, failing to nurture one’s children, or even intentionally avoiding the blessing and responsibility of child-rearing solely for the sake of career advancement can convert laudable achievement into a form of rebellion.
 
-Another example concerns our physical being. Paul reminds us that we are to glorify God in both body and spirit[^14] and that this body is the temple of the Holy Ghost, “which ye have of God, and ye are not your own.”[^15] Thus, we have a legitimate interest in spending time caring for our bodies as best we can. Few of us will reach the peak of performance we have seen recently in the achievements of Olympic and Paralympic athletes, and some of us are experiencing the effects of age, or what President M. Russell Ballard called “the rivets coming loose.”
+Another example concerns our physical being. Paul reminds us that we are to glorify God in both body and spirit[^14] and that this body is the temple of the Holy Ghost, “which ye have of God, and ye are not your own.”[^15] Thus, we have a legitimate interest in spending time caring for our bodies as best we can. Few of us will reach the peak of performance we have seen recently in the achievements of Olympic and Paralympic athletes, and some of us are experiencing the effects of age, or what President M. Russell Ballard called “the rivets coming loose.”
 
 Nevertheless, I believe it pleases our Creator when we do our best to care for His wonderful gift of a physical body. It would be a mark of rebellion to deface or defile one’s body, or abuse it, or fail to do what one can to pursue a healthy lifestyle. At the same time, vanity and becoming consumed with one’s physique, appearance, or dress can be a form of rebellion at the other extreme, leading one to worship God’s gift instead of God.
 
@@ -85,9 +87,9 @@ Burying our weapons of rebellion leads to a unique joy. With all who have ever b
 
 [^7]: [[Alma 30.23|Alma 30:23]]; see also verses [[Alma 30.27|27–28]][[Alma 30.28|]].
 
-[^8]: *Saints: The Story of the Church of Jesus Christ in the Latter Days*, vol. 1, *The Standard of Truth, 1815–1846* (2018), 418; see also “[Letter from William W. Phelps, with Appended Letter from Orson Hyde and John E. Page, 29 June 1840](https://www.josephsmithpapers.org/paper-summary/letter-from-william-w-phelps-with-appended-letter-from-orson-hyde-and-john-e-page-29-june-1840/1)” and Joseph Smith, “[Letter to William W. Phelps, 22 July 1840](https://www.josephsmithpapers.org/paper-summary/letter-to-william-w-phelps-22-july-1840/1),” josephsmithpapers.org.
+[^8]: *[Saints: The Story of the Church of Jesus Christ in the Latter Days](https://www.churchofjesuschrist.org/study/history/saints-v1/35-a-beautiful-place?lang=eng&id=p13-p15#p13)*, vol. 1, *The Standard of Truth, 1815–1846* (2018), 418; see also “[Letter from William W. Phelps, with Appended Letter from Orson Hyde and John E. Page, 29 June 1840](https://www.josephsmithpapers.org/paper-summary/letter-from-william-w-phelps-with-appended-letter-from-orson-hyde-and-john-e-page-29-june-1840/1)” and Joseph Smith, “[Letter to William W. Phelps, 22 July 1840](https://www.josephsmithpapers.org/paper-summary/letter-to-william-w-phelps-22-july-1840/1),” josephsmithpapers.org.
 
-[^9]: [[2 Nephi 31.7|2 Nephi 31:7, 10]][[2 Nephi 31.10|]].
+[^9]: [[2 Nephi 31.7|2 Nephi 31:7, 10]][[2 Nephi 31.10|]].
 
 [^10]: See [[Alma 53.17|Alma 53:17–18]][[Alma 53.18|]].
 
@@ -97,9 +99,9 @@ Burying our weapons of rebellion leads to a unique joy. With all who have ever b
 
 [^13]: [[James 3.8|James 3:8]]. “Make sure your language reflects love of God and others—whether you’re communicating in person or virtually. Say things that uplift—nothing that might be divisive, hurtful, or offensive, even as a joke. Your words can be powerful. Let them be powerful for good” (*For the Strength of Youth: A Guide for Making Choices* \[2022\], 12).
 
-[^14]: See [[1 Corinthians 6.20|1 Corinthians 6:20]].
+[^14]: See [[1 Corinthians 6.20|1 Corinthians 6:20]].
 
-[^15]: [[1 Corinthians 6.19|1 Corinthians 6:19]].
+[^15]: [[1 Corinthians 6.19|1 Corinthians 6:19]].
 
 [^16]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -109,8 +111,3 @@ Burying our weapons of rebellion leads to a unique joy. With all who have ever b
 
 [^19]: See [[D&C 64.34|Doctrine and Covenants 64:34]].
 
-
-
-
-
-#Conversion #Obedience #Repentance

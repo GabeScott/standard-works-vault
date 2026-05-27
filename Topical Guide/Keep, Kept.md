@@ -1,7 +1,6 @@
 # Keep, Kept
 
-
-*See also* [[Obedience, Obedient, Obey.md|Obedience]]; [[Observe.md|Observe]]; [[Retain.md|Retain]]
+*See also* [[Obedience.md|Obedience]]; [[Observe.md|Observe]]; [[Retain.md|Retain]]
 
 garden of Eden to dress it and to *keep* it, [[Genesis 2.15|Genesis 2:15]] ([[Moses 3.15|Moses 3:15]]).
 
@@ -9,7 +8,7 @@ Abraham, Thou shalt *keep* my covenant, [[Genesis 17.9|Genesis 17:9]].
 
 they shall *keep* the way of the Lord, [[Genesis 18.19|Genesis 18:19]].
 
-mercy unto ... them that ... *keep* my commandments, [[Exodus 20.6|Exodus 20:6]] ([[Deuteronomy 5.10|Deuteronomy 5:10]]).
+mercy unto … them that … *keep* my commandments, [[Exodus 20.6|Exodus 20:6]] ([[Deuteronomy 5.10|Deuteronomy 5:10]]).
 
 Remember the sabbath day, to *keep* it holy, [[Exodus 20.8|Exodus 20:8]].
 
@@ -71,13 +70,13 @@ If ye love me, *keep* my commandments, [[John 14.15|John 14:15]] ([[D&C 42.29|D&
 
 If a man love me, he will *keep* my words, [[John 14.23|John 14:23]].
 
-even as I have *kept* my Father's commandments, [[John 15.10|John 15:10]].
+even as I have *kept* my Father’s commandments, [[John 15.10|John 15:10]].
 
-Father, *keep* through thine own name those ... given me, [[John 17.11|John 17:11]].
+Father, *keep* through thine own name those … given me, [[John 17.11|John 17:11]].
 
 *keep* them from the evil, [[John 17.15|John 17:15]].
 
-received the law ... and have not *kept* it, [[Acts 7.53|Acts 7:53]].
+received the law … and have not *kept* it, [[Acts 7.53|Acts 7:53]].
 
 command them to *keep* the law of Moses, [[Acts 15.5|Acts 15:5]].
 
@@ -89,7 +88,7 @@ I *keep* under my body, and bring it into subjection, [[1 Corinthians 9.27|1 Cor
 
 Endeavouring to *keep* the unity of the Spirit, [[Ephesians 4.3|Ephesians 4:3]].
 
-peace of God ... shall *keep* your hearts and minds, [[Philippians 4.7|Philippians 4:7]].
+peace of God … shall *keep* your hearts and minds, [[Philippians 4.7|Philippians 4:7]].
 
 stablish you, and *keep* you from evil, [[2 Thessalonians 3.3|2 Thessalonians 3:3]].
 
@@ -105,7 +104,7 @@ finished my course, I have *kept* the faith, [[2 Timothy 4.7|2 Timothy 4:7]].
 
 *kept* by the power of God through faith, [[1 Peter 1.5|1 Peter 1:5]].
 
-heavens and the earth ... by the same word are *kept* in store, [[2 Peter 3.7|2 Peter 3:7]].
+heavens and the earth … by the same word are *kept* in store, [[2 Peter 3.7|2 Peter 3:7]].
 
 we know him, if we *keep* his commandments, [[1 John 2.3|1 John 2:3]].
 
@@ -125,15 +124,15 @@ we *keep* the law of Moses, [[2 Nephi 25.24|2 Nephi 25:24]].
 
 *keep* the commandments of God, that ye may prosper, [[Mosiah 1.7|Mosiah 1:7]] ([[Mosiah 2.4|Mosiah 2:4]]).
 
-requires ... to *keep* his commandments, [[Mosiah 2.22|Mosiah 2:22]].
+requires … to *keep* his commandments, [[Mosiah 2.22|Mosiah 2:22]].
 
-these sayings ... shall be *kept* and shall be manifested, [[3 Nephi 16.4|3 Nephi 16:4]].
+these sayings … shall be *kept* and shall be manifested, [[3 Nephi 16.4|3 Nephi 16:4]].
 
 to *keep* them continually watchful unto prayer, [[Moroni 6.4|Moroni 6:4]].
 
 this is your work, to *keep* my commandments, [[D&C 11.20|D&C 11:20]].
 
-*keep* my commandments ... you shall have eternal life, [[D&C 14.7|D&C 14:7]].
+*keep* my commandments … you shall have eternal life, [[D&C 14.7|D&C 14:7]].
 
 if you *keep* not my commandments you cannot be saved, [[D&C 18.46|D&C 18:46]] ([[D&C 95.12|D&C 95:12]]; [[D&C 103.8|D&C 103:8]]).
 

@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:40](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.40?lang=eng#p40)
 
 
-[^a]: [[D&C 39.21|D&C 39:21 (20-22)]]; [[D&C 49.7|49:7.]]
+[^a]: [[D&C 39.20|D&C 39:21 (20–22)]][[D&C 39.21|]][[D&C 39.22|]]; [[D&C 49.7|49:7]].  

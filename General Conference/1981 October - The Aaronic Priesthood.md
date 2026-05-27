@@ -1,6 +1,8 @@
 # The Aaronic Priesthood
 
-By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
+Gordon B. Hinckley
+
+By Elder Boyd K. Packer - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -171,8 +173,3 @@ You—our deacons, teachers, and priests—have been given sacred authority. May
 
 
 
-
-
-
-
-#Priesthood

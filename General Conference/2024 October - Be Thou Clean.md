@@ -1,6 +1,8 @@
 # Be Thou Clean
 
-By Elder D. Martin Goury - *Of the Seventy*
+Henry B. Eyring
+
+By Elder D. Martin Goury - *Of the Seventy*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -18,9 +20,9 @@ The clarification I received at that time helped me to understand the important 
 
 Our Heavenly Father understands our mortal journey and the inevitability of sin in our lives. I am deeply thankful that He has provided a Savior to atone for our transgressions. Through the Savior’s redemptive sacrifice, each of us can repent and seek forgiveness and become clean. Repentance, a foundational principle of the gospel, is essential for our spiritual development and resilience as we navigate life’s challenges.
 
-During the April 2022 general conference, President Russell M. Nelson invited every member of the Church to experience the joy of daily repentance. He said:
+During the April 2022 general conference, President Russell M. Nelson invited every member of the Church to experience the joy of daily repentance. He said:
 
-“Please do not fear or delay repenting. Satan delights in your misery. Cut it short. Cast his influence out of your life! Start today to experience the joy of putting off the natural man. The Savior loves us always but *especially* when we repent. …
+“Please do not fear or delay repenting. Satan delights in your misery. Cut it short. Cast his influence out of your life! Start today to experience the joy of putting off the natural man. The Savior loves us always but *especially* when we repent. …
 
 “If you feel you have strayed off the covenant path too far or too long and have no way to return, that simply is not true.”[^2]
 
@@ -30,35 +32,30 @@ My eternal companion was born with a hearing impairment and as a result must wea
 
 Near the end of the Lord’s mortal ministry and before His departure to the Garden of Gethsemane, He prepared His disciples to face the upcoming trials. He assured them, saying, “But the Comforter, which is the Holy Ghost, whom the Father will send in my name, he shall teach you all things, and bring all things to your remembrance, whatsoever I have said unto you.”[^3]
 
-One of the Holy Ghost’s essential functions is to caution, lead, and guide every individual who listens to the soft, inner voice. Just as the blocked communication tubes of a hearing aid can hinder proper functionality, our spiritual connection with our Heavenly Father can also be impaired, leading to dangerous misconceptions or a failure to heed His counsel. The advent of the internet has made information more accessible than ever before. This can lead us to turn to the world for guidance rather than to God. President Russell M. Nelson taught, “In coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^4]
+One of the Holy Ghost’s essential functions is to caution, lead, and guide every individual who listens to the soft, inner voice. Just as the blocked communication tubes of a hearing aid can hinder proper functionality, our spiritual connection with our Heavenly Father can also be impaired, leading to dangerous misconceptions or a failure to heed His counsel. The advent of the internet has made information more accessible than ever before. This can lead us to turn to the world for guidance rather than to God. President Russell M. Nelson taught, “In coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^4]
 
-I am grateful that each of us can receive the gift of the Holy Ghost at the time of our confirmation. However, President Dallin H. Oaks warned that “the blessings available through the gift of the Holy Ghost are conditioned upon worthiness \[and\] ‘the Spirit of the Lord doth not dwell in unholy temples’ \[[[Helaman 4.24|Helaman 4:24]]\].”[^5]
+I am grateful that each of us can receive the gift of the Holy Ghost at the time of our confirmation. However, President Dallin H. Oaks warned that “the blessings available through the gift of the Holy Ghost are conditioned upon worthiness \[and\] ‘the Spirit of the Lord doth not dwell in unholy temples’ \[[[Helaman 4.24|Helaman 4:24]]\].”[^5]
 
 When we consciously choose to follow the guidance of prophets and apostles, our capacity to have the Holy Ghost as a constant companion grows. The Holy Ghost provides clarity in decision-making, prompting thoughts and impressions that align with our Heavenly Father’s will. Having the Holy Ghost as a constant companion is crucial for our spiritual growth.
 
-I was recently assigned to preside over a stake conference at the Salt Lake Granger West Stake in Utah. During this event, I met a stake president who has diligently developed his ability to discern the promptings of the Holy Ghost through righteous living and daily repentance. As part of our ministering efforts, we coordinated visits to three households. Upon completing our final visit, we found ourselves with approximately 30 minutes remaining before our next engagement. As we traveled back to the stake center, President Chesnut received an impression to visit one additional family. We both agreed to follow this prompting.
+I was recently assigned to preside over a stake conference at the Salt Lake Granger West Stake in Utah. During this event, I met a stake president who has diligently developed his ability to discern the promptings of the Holy Ghost through righteous living and daily repentance. As part of our ministering efforts, we coordinated visits to three households. Upon completing our final visit, we found ourselves with approximately 30 minutes remaining before our next engagement. As we traveled back to the stake center, President Chesnut received an impression to visit one additional family. We both agreed to follow this prompting.
 
 We proceeded to visit the Jones family,[^6] where we discovered Sister Jones confined to bed due to illness. It was apparent that she needed a priesthood blessing. With her permission, we administered to her. As we prepared to depart, Sister Jones asked how we knew of her urgent need for a blessing. The truth is, *we* didn’t know. However, our Heavenly Father, who was aware of her needs, *did* know and inspired President Chesnut to visit her home. When we are receptive to the guidance of the still, small voice, we are better equipped to more effectively minister to those in need.
 
-I testify of a kind and loving Heavenly Father. Jesus Christ is the Savior and Redeemer of mankind. I testify that the Atonement of Jesus Christ is real and that as we learn to follow the guidance of the Holy Ghost, He will lead us to repent and use the power of the Savior’s Atonement in our lives. President Russell M. Nelson is the true and living prophet of the Lord, with all priesthood keys on the earth today. In the name of Jesus Christ, amen.
+I testify of a kind and loving Heavenly Father. Jesus Christ is the Savior and Redeemer of mankind. I testify that the Atonement of Jesus Christ is real and that as we learn to follow the guidance of the Holy Ghost, He will lead us to repent and use the power of the Savior’s Atonement in our lives. President Russell M. Nelson is the true and living prophet of the Lord, with all priesthood keys on the earth today. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: [[3 Nephi 27.19|3 Nephi 27:19]].
+[^1]: [[3 Nephi 27.19|3 Nephi 27:19]].
 
-[^2]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98–99.
+[^2]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 98–99.
 
 [^3]: [[John 14.26|John 14:26]].
 
-[^4]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^4]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
-[^5]: Dallin H. Oaks, “[[1996 October - “Always Have His Spirit”.md|Always Have His Spirit]],” *Ensign*, Nov. 1996, 61.
+[^5]: Dallin H. Oaks, “[[1996 October - “Always Have His Spirit”.md|Always Have His Spirit]],” *Ensign*, Nov. 1996, 61.
 
 [^6]: The name *Jones* is not the name of the family visited. I have used a random name for their privacy. I have received written approval from President Chesnut to use his name as well as the name of his stake.
 
-
-
-
-
-#Holy_Ghost #Promptings #Repentance

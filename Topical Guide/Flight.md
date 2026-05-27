@@ -1,6 +1,5 @@
 # Flight
 
-
 hundred of you shall put ten thousand to *flight*, [[Leviticus 26.8|Leviticus 26:8]] ([[Deuteronomy 32.30|Deuteronomy 32:30]]; [[D&C 133.58|D&C 133:58]]).
 
 nor go by *flight*: for the Lord will go before, [[Isaiah 52.12|Isaiah 52:12]] ([[3 Nephi 20.42|3 Nephi 20:42]]; [[3 Nephi 21.29|3 Nephi 21:29]]).

@@ -1,6 +1,8 @@
 # Adversity and You
 
-By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -72,7 +74,7 @@ What a blessing it is to know that we can be supported against all the fiery dar
 
 Knowing that Satan and his hosts are relentless in their attempts to ridicule, embarrass, belittle, and cause all of us to yield and ultimately fall, what should be our attitude in today’s society? There is an important step beyond avoiding contention and strife; and that is to live with dignity. There is something sacred about living with dignity. We need not quarrel or compete with those who promote and encourage controversy. We need not spend our time in retaliation. They who would deceive, destroy, or belittle reap their own rewards. Their works are neither praiseworthy nor of good report. How disarming it must be to the enemies to see the valiant moving forward with poise and dignity under all challenging circumstances. Scorn and ridicule are two of the greatest forms of adversity we are required to face in today’s world. Doing the will of God on a daily basis leaves no time for contention or confrontation.
 
-From Harry Emerson Fosdick we read, “The most extraordinary thing about the oyster is this. Irritations get into his shell. He does not like them. But when he cannot get rid of them, he uses the irritation to do the loveliest thing an oyster ever has a chance to do. If there are irritations in our lives today, there is only one prescription: make a pearl. It may have to be a pearl of patience, but, anyhow, make a pearl. And it takes faith and love to do it.” (In *The Treasure Chest,* ed. Charles L. Wallis, New York: Harper & Row).
+From Harry Emerson Fosdick we read, “The most extraordinary thing about the oyster is this. Irritations get into his shell. He does not like them. But when he cannot get rid of them, he uses the irritation to do the loveliest thing an oyster ever has a chance to do. If there are irritations in our lives today, there is only one prescription: make a pearl. It may have to be a pearl of patience, but, anyhow, make a pearl. And it takes faith and love to do it.” (In *The Treasure Chest,* ed. Charles L. Wallis, New York: Harper & Row).
 
 Those who yield to adversity become weaker. To the valiant it is a stepping-stone to increased power. Members of The Church of Jesus Christ of Latter-day Saints and God-fearing people worldwide will not pray for freedom from trials. They will not surrender or panic. They will strive to put themselves in condition to meet and master troublesome trials.
 
@@ -87,8 +89,3 @@ Satan wants us to feel unequal to our worldly tasks. If we turn to God, He will 
 
 
 
-
-
-
-
-#Adversity

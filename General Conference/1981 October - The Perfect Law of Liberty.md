@@ -1,6 +1,8 @@
 # The Perfect Law of Liberty
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Gordon B. Hinckley
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -40,11 +42,11 @@ Free agency, however, precious as it is, is not of itself the perfect liberty we
 
 The Nephites, for example, at one time, by the exercise of their agency, brought themselves to such a state of affairs that their only course led to political bondage. This they did while living under a government providing for the freest exercise of agency. “Their laws and their governments,” says the record, “were established by the voice of the people, and they who chose evil were more numerous than they who chose good.” Therefore, “they could not be governed by the law nor justice, save it were to their destruction.” ([[Helaman 5.2|Hel. 5:2–3]][[Helaman 5.3|]].) Under these circumstances, they chose as rulers wicked men, who would certainly destroy their political liberties, to replace righteous men who had in the past protected and preserved those liberties and would have continued to do so in the future.
 
-The freewill choosing of a king by the Jaredites led directly to their captivity. (See [[Ether 6.1|Ether 6:21–7:5]][[Ether 6.2|]][[Ether 6.3|]][[Ether 6.4|]][[Ether 6.5|]][[Ether 6.6|]][[Ether 6.7|]][[Ether 6.8|]][[Ether 6.9|]][[Ether 6.10|]][[Ether 6.11|]][[Ether 6.12|]][[Ether 6.13|]][[Ether 6.14|]][[Ether 6.15|]][[Ether 6.16|]][[Ether 6.17|]][[Ether 6.18|]][[Ether 6.19|]][[Ether 6.20|]][[Ether 6.21|]][[Ether 6.22|]][[Ether 6.23|]][[Ether 6.24|]][[Ether 6.25|]][[Ether 6.26|]][[Ether 6.27|]][[Ether 6.28|]][[Ether 6.29|]][[Ether 6.30|]].)
+The freewill choosing of a king by the Jaredites led directly to their captivity. (See [[Ether 6.1|Ether 6:21–7:5]].)
 
 This sequence was repeated in the days of Israel. The people—rejecting government by judges, which God had established—clamored for Samuel to give them a king. Notwithstanding Samuel’s warning that a king would make servants of their children, lay heavy taxes and services upon their backs, and send them to war, “the people refused to obey the voice of Samuel, \[saying,\] Nay; but we will have a king over us;
 
-“That we also may be like all the nations.” ([[1 Samuel 8.19|1 Sam. 8:19–20]][[1 Samuel 8.20|]].)
+“That we also may be like all the nations.” ([[1 Samuel 8.19|1 Sam. 8:19–20]][[1 Samuel 8.20|]].)
 
 Samuel therefore anointed Saul to be their king. In due time, just as Samuel had predicted, heavy burdens were laid upon them, their sons and daughters were made servants of the king, and war came. The nation was divided into two kingdoms, Israel and Judah, both of which were, in their turn, carried away into captivity. Not only did they lose their political freedom, but their very political existence as nations was terminated.
 
@@ -62,9 +64,9 @@ With respect to the loss of personal liberty through the misuse of free agency, 
 
 Notwithstanding the fact that through its misuse, political, economic, and personal liberty are lost, free agency will always endure because it is an eternal principle. However, the free agency possessed by any one person is increased or diminished by the use to which he puts it. Every wrong decision one makes restricts the area in which he can thereafter exercise his agency. The further one goes in the making of wrong decisions in the exercise of free agency, the more difficult it is for him to recover the lost ground. One can, by persisting long enough, reach the point of no return. He then becomes an abject slave. By the exercise of his free agency, he has decreased the area in which he can act, almost to the vanishing point.
 
-Samuel, the Lamanite prophet, speaking to those who so persisted, said: “In the days of your poverty ye shall cry unto the Lord; and in vain shall ye cry, for your desolation is already come upon you, and your destruction is made sure; and then shall ye weep and howl in that day … and say: …
+Samuel, the Lamanite prophet, speaking to those who so persisted, said: “In the days of your poverty ye shall cry unto the Lord; and in vain shall ye cry, for your desolation is already come upon you, and your destruction is made sure; and then shall ye weep and howl in that day … and say: …
 
-“O that we had repented in the day that the word of the Lord came unto us. …
+“O that we had repented in the day that the word of the Lord came unto us. …
 
 “Behold, we are surrounded by demons, yea, we are encircled about by the angels of him who hath sought to destroy our souls. … O Lord, canst thou not turn away thine anger from us? And this shall be your language in those days.
 
@@ -82,13 +84,13 @@ For example, consider the Prophet Joseph Smith. Here was a man enjoying freedom 
 
 “In journeyings often, in perils of waters, in perils of robbers, in perils by mine own countrymen, in perils by the heathen, in perils in the city, in perils in the wilderness, in perils in the sea, in perils among false brethren;
 
-“In weariness and painfulness, in watchings often, in hunger and thirst, in fastings often, in cold and nakedness.” ([[2 Corinthians 11.24|2 Cor. 11:24–27]][[2 Corinthians 11.25|]][[2 Corinthians 11.26|]][[2 Corinthians 11.27|]].)
+“In weariness and painfulness, in watchings often, in hunger and thirst, in fastings often, in cold and nakedness.” ([[2 Corinthians 11.24|2 Cor. 11:24–27]][[2 Corinthians 11.25|]][[2 Corinthians 11.26|]][[2 Corinthians 11.27|]].)
 
 Notwithstanding all this, he could write to his beloved Timothy from his prison cell in Rome shortly before his death: “I am now ready to be offered, and the time of my departure is at hand.
 
 “I have fought a good fight, I have finished my course, I have kept the faith:
 
-“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.” ([[2 Timothy 4.6|2 Tim. 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].)
+“Henceforth there is laid up for me a crown of righteousness, which the Lord, the righteous judge, shall give me at that day: and not to me only, but unto all them also that love his appearing.” ([[2 Timothy 4.6|2 Tim. 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].)
 
 Surely Paul, in his soul, enjoyed perfect freedom.
 
@@ -107,8 +109,3 @@ That God may attend and prosper each of us on our way to perfect liberty, I humb
 
 
 
-
-
-
-
-#Freedom #Obedience

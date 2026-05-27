@@ -1,5 +1,7 @@
 # No Shortcuts
 
+Ezra Taft Benson
+
 By Elder Robert L. Simpson - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1987 General Conference*
@@ -36,7 +38,7 @@ And then skipping down to the thirty-eighth verse:
 
 “And he that receiveth my Father receiveth my Father’s kingdom; therefore all that my Father hath shall be given unto him.
 
-“And this is according to the oath and covenant which belongeth to the priesthood” ([[D&C 84.33|vs. 33, 38–39]][[D&C 84.38|]][[D&C 84.39|]]).
+“And this is according to the oath and covenant which belongeth to the priesthood” ([[D&C 84.33|vs. 33, 38–39]][[D&C 84.38|]][[D&C 84.39|]]).
 
 My young friends, please realize that these conditions that we just read are set. They have all been affirmed. We have already had priesthood authority conferred upon us. The Lord has promised a guaranteed destiny for all who magnify that priesthood; and that destiny is eternal life, which, according to scripture, is the greatest of all the gifts (see [[D&C 14.7|D&C 14:7]]). Because we have been ordained, we are on our way. Not only are we on our way, but it looks like we have reached the point of no return, for the Savior assures us that this is an oath and covenant of the Father “which he cannot break, neither can it be moved” ([[D&C 84.40|D&C 84:40]]).
 
@@ -44,7 +46,7 @@ Let me interject an interesting little sidelight. As we read that last scripture
 
 He was right. There has not been a violation of our free agency.
 
-I would hope that no one who has taken upon himself the sacred covenant of the priesthood would ever throw his hands up, walk away, and say, “I’m sorry, it’s just too difficult.” Nephi had problems galore: Laman, Lemuel, Laban, and so on down the list. But he realized in his hour of need that all the forces of heaven were available to him. Remember when he declared, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]).
+I would hope that no one who has taken upon himself the sacred covenant of the priesthood would ever throw his hands up, walk away, and say, “I’m sorry, it’s just too difficult.” Nephi had problems galore: Laman, Lemuel, Laban, and so on down the list. But he realized in his hour of need that all the forces of heaven were available to him. Remember when he declared, “I will go and do the things which the Lord hath commanded, for I know that the Lord giveth no commandments unto the children of men, save he shall prepare a way for them that they may accomplish the thing which he commandeth them” ([[1 Nephi 3.7|1 Ne. 3:7]]).
 
 At this point, one of the young deacons quipped, “Yeah, but Nephi didn’t have to go to my school.” He was telling us that his problem was just about as big as Nephi’s but in a little different way. And he may be right, but the point is this: the Lord didn’t forsake Nephi. He didn’t forsake the Prophet Joseph Smith in Liberty Jail. And he won’t forsake a boy with peer pressure at school or with any other problem.
 
@@ -71,8 +73,3 @@ O youth of the noble birthright, you young men of a royal priesthood, become a m
 
 
 
-
-
-
-
-#Priesthood

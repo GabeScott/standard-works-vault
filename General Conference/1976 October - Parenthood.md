@@ -1,6 +1,8 @@
 # Parenthood
 
-By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -8,7 +10,7 @@ By Elder O. Leslie Stone - *Of the First Quorum of the Seventy*
 
 My dear brothers and sisters and friends, during the few moments assigned to me, I would like to talk about the responsibilities of parents in the rearing of their children.
 
-To begin I would like to quote President David O. McKay as he had this to say about the responsibility of parents:
+To begin I would like to quote President David O. McKay as he had this to say about the responsibility of parents:
 
 “It is said that ‘to be trusted is a greater compliment than to be loved.’ The greatest trust that can come to a man and woman is the placing in their keeping the life of a little child.
 
@@ -32,19 +34,19 @@ He then asks a question and makes a suggestion: “Parents, how do you measure u
 
 This statement in the Doctrine and Covenants makes clear our responsibility in teaching our children the fundamentals of the gospel:
 
-“Inasmuch as parents have children … , that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents.
+“Inasmuch as parents have children … , that teach them not to understand the doctrine of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents.
 
 “For this shall be a law unto the inhabitants of Zion.” ([[D&C 68.25|D&C 68:25–26]][[D&C 68.26|]].)
 
 Note that this does not say the sin be upon the head of the Sunday School, the Primary, or the seminary teacher, *but upon the heads of the parents.*
 
-In speaking on this subject, on one occasion, Elder A. Theodore Tuttle made this significant statement:
+In speaking on this subject, on one occasion, Elder A. Theodore Tuttle made this significant statement:
 
 “Parental responsibility cannot go unheeded, nor can it be shifted to day-care centers, nor to the schoolroom, nor even to the Church. Family responsibility comes by divine decree. Parents may violate this decree only at the peril of their eternal salvation.” (“Altar, Tent, Well,” *Ensign,* Jan. 1973, p. 67.)
 
 Thus it is made clear to all of us that it is the solemn obligation of every Latter-day Saint parent to do everything within his or her power to instill in his or her children a knowledge of the gospel and the true purpose of life.
 
-Of course, to do this we must be converted ourselves. If we wish our children to be Latter-day Saints, then we must *be* Latter-day Saints. President Hugh B. Brown once said, “\[we\] cannot effectively teach \[what we do\] not profoundly believe. … Our lives and our teachings must not be at variance.” (*Eternal Quest,* Bookcraft, 1956, pp. 179, 181.)
+Of course, to do this we must be converted ourselves. If we wish our children to be Latter-day Saints, then we must *be* Latter-day Saints. President Hugh B. Brown once said, “\[we\] cannot effectively teach \[what we do\] not profoundly believe. … Our lives and our teachings must not be at variance.” (*Eternal Quest,* Bookcraft, 1956, pp. 179, 181.)
 
 Young parents, prepare yourselves that your children may be properly taught in the ways of the Lord. Teach them faith in the living God. Teach them to pray always, and teach them to keep the laws and commandments the Lord has given us to live by.
 
@@ -97,7 +99,7 @@ I encourage you young people to draw close to your parents—let them help you d
 
 The greatest blessings of this life are available to each of us only when we keep the commandments the Lord has given us. And the blessings promised are not just for this life only, but also for all eternity.
 
-Our prophet and leader today, President Spencer W. Kimball, has told us that the price of happiness is to *keep the commandments of God.*
+Our prophet and leader today, President Spencer W. Kimball, has told us that the price of happiness is to *keep the commandments of God.*
 
 On judgment day, would any of you parents want to be told that you failed to do your part—that you were unworthy servants of the Lord because your lives were poor examples to the spirits He entrusted to your care?
 
@@ -114,8 +116,3 @@ May we all live to bring this promise of eternal life to ourselves and our famil
 
 
 
-
-
-
-
-#Example #Parenthood

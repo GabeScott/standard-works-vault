@@ -1,6 +1,8 @@
 # A Call to Arms
 
-By Elder Rex D. Pinegar - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By Elder Rex D. Pinegar - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -16,7 +18,7 @@ In Richard Wheeler’s *Voices of 1776* we read firsthand accounts of some of th
 
 A young doctor of Barnstable, Massachusetts, recorded in his journal on the 21st of April, 1775, the following:
 
-“This event seems to have electrified all classes of people … inspiriting and rousing the people to arms! to arms! … Never was a cause more just, more sacred, than ours. We are commanded to defend the rich inheritance bequeathed to us by our virtuous ancestors; it is our bounden duty to transmit it uncontaminated to our posterity. We must fight valiantly.” (Richard Wheeler, *Voices of 1776,* New York: Thomas Y. Crowell Co., 1972, pp. 33–34.)
+“This event seems to have electrified all classes of people … inspiriting and rousing the people to arms! to arms! … Never was a cause more just, more sacred, than ours. We are commanded to defend the rich inheritance bequeathed to us by our virtuous ancestors; it is our bounden duty to transmit it uncontaminated to our posterity. We must fight valiantly.” (Richard Wheeler, *Voices of 1776,* New York: Thomas Y. Crowell Co., 1972, pp. 33–34.)
 
 From Boston, Massachusetts, a well-to-do female citizen wrote:
 
@@ -24,7 +26,7 @@ From Boston, Massachusetts, a well-to-do female citizen wrote:
 
 Also from a Pennsylvania newspaper came the report of other examples of patriotism from citizens of *all* ages:
 
-“The ladies in Bristol township have evidenced a laudable regard to the interest of their country. At their own expense they have furnished the regiment of that county with a suit of colors and drums. …
+“The ladies in Bristol township have evidenced a laudable regard to the interest of their country. At their own expense they have furnished the regiment of that county with a suit of colors and drums. …
 
 “The aged as well as the young daily march out under the banners of liberty and reveal a determined resolution to maintain her cause even until death.” (Wheeler, p. 50.)
 
@@ -36,11 +38,11 @@ As it was in Pennsylvania and Massachusetts, so it was in the other colonies. He
 
 That same fervor prevails again today—“the same spirit animates the whole” among the membership of the Church throughout the whole world—this time for the mightier cause.
 
-Today, another “call to arms” has been sounded by our prophets. In a conference address in April 1973, President Harold B. Lee declared:
+Today, another “call to arms” has been sounded by our prophets. In a conference address in April 1973, President Harold B. Lee declared:
 
 “So it is a call to arms—arms to do what? To keep the commandments of God in order that we might lay claim to the blessings we need so much in this day of uncertainty.” (*Ensign,* July 1973, p. 95.)
 
-One of the commandments of the Lord (that is being heeded today with the fervor reminiscent of our forebears) is the call to go forth and proclaim the gospel of Jesus Christ. In April 1974 President Spencer W. Kimball reaffirmed the “call to arms” in these words:
+One of the commandments of the Lord (that is being heeded today with the fervor reminiscent of our forebears) is the call to go forth and proclaim the gospel of Jesus Christ. In April 1974 President Spencer W. Kimball reaffirmed the “call to arms” in these words:
 
 “We have hardly scratched the surface … we can … approach the ideals set out by President McKay, ‘every member a missionary.’ That was inspired! I know this message is not new, and we have *talked* about it before, but I believe the time has come when we must shoulder arms. … We must change our sights and raise our goals.” (*Regional Representatives Seminar,* April 1974, p. 18.)
 
@@ -70,13 +72,8 @@ One such member is a valiant brother from Guaratengeta, Brazil. He spreads the g
 
 Another “home front” soldier for the Lord is a taxi driver. In his cab hangs a sign which reads, “I Care.” Most passengers ask “What do you care about?” This good brother then explains that he belongs to a church that cares about people. If his passengers inquire further he accommodates their interest by handing them a copy of the Book of Mormon from the supply of copies he conveniently keeps by his driver’s seat. This faithful member has participated in the conversion of more than 200 souls.
 
-Yes, “the same spirit animates the whole” today among the members of the Church as they go forth in the greater cause of the Lord. What a thrilling time to be here in the earth! As we see the work rolling forth, may each of us become a part of its progress. May we answer the call as valiantly as did those who are responsible for the rich heritage we enjoy. Through courageous, faithful service may we bring forth a fruitful harvest from the seeds planted in the vineyard of the Lord. I testify that this is the kingdom of God on earth and that his chief steward and our prophet is Spencer W. Kimball. In the name of Jesus Christ. Amen.
+Yes, “the same spirit animates the whole” today among the members of the Church as they go forth in the greater cause of the Lord. What a thrilling time to be here in the earth! As we see the work rolling forth, may each of us become a part of its progress. May we answer the call as valiantly as did those who are responsible for the rich heritage we enjoy. Through courageous, faithful service may we bring forth a fruitful harvest from the seeds planted in the vineyard of the Lord. I testify that this is the kingdom of God on earth and that his chief steward and our prophet is Spencer W. Kimball. In the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Missionary_Work #Sacrifice

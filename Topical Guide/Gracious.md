@@ -1,7 +1,6 @@
 # Gracious
 
-
-*See also* [[Kind.md|Kind]]; [[Mercy, Merciful.md|Mercy]]
+*See also* [[Kind.md|Kind]]; [[Mercy.md|Mercy]]
 
 I will hear; for I am *gracious*, [[Exodus 22.27|Exodus 22:27]].
 
@@ -13,9 +12,9 @@ Lord is *gracious*, and full of compassion, [[Psalms 145.8|Psalms 145:8]].
 
 *gracious* woman retaineth honour, [[Proverbs 11.16|Proverbs 11:16]].
 
-words of a wise man's mouth are *gracious*, [[Ecclesiastes 10.12|Ecclesiastes 10:12]].
+words of a wise man’s mouth are *gracious*, [[Ecclesiastes 10.12|Ecclesiastes 10:12]].
 
-turn unto the Lord ... he is *gracious*, [[Joel 2.13|Joel 2:13]].
+turn unto the Lord … he is *gracious*, [[Joel 2.13|Joel 2:13]].
 
 God of hosts will be *gracious* unto the remnant, [[Amos 5.15|Amos 5:15]].
 

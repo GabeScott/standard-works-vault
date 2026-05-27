@@ -1,6 +1,8 @@
 # Sacred Keys of the Aaronic Priesthood
 
-By Larry M. Gibson - *First Counselor in the Young Men General Presidency*
+Thomas S. Monson
+
+By Larry M. Gibson - *First Counselor in the Young Men General Presidency*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -26,7 +28,7 @@ He thought, then responded, “Where do I find it?”
 
 After some discussion, he realized that he would find direction from the scriptures, the words of the living prophets, and answers to prayer. We determined to find a scripture that would be a starting place for his search to learn the responsibilities of his new calling.
 
-We turned to the 107th section of the Doctrine and Covenants, [[D&C 107.85|verse 85]]. It mentions that a deacons quorum president is to sit in council with his quorum members and teach them their duties. We noted that his quorum is not only a class but also a council of young men, and they are to strengthen and edify one another under the president’s direction. I expressed confidence that he would be an outstanding president who would rely on the inspiration from the Lord and magnify his sacred calling as he taught his fellow deacons their duties.
+We turned to the 107th section of the Doctrine and Covenants, [[D&C 107.85|verse 85]]. It mentions that a deacons quorum president is to sit in council with his quorum members and teach them their duties. We noted that his quorum is not only a class but also a council of young men, and they are to strengthen and edify one another under the president’s direction. I expressed confidence that he would be an outstanding president who would rely on the inspiration from the Lord and magnify his sacred calling as he taught his fellow deacons their duties.
 
 Then I asked, “Knowing you are to teach the deacons their duties, do you know what those duties are?”
 
@@ -60,7 +62,7 @@ My thoughts turn to a scripture as I think of our wonderful young men and women 
 
 What “popped into” this young president’s head was a vision of what Heavenly Father wants his quorum to be. It was the revelation he needed to strengthen the active members of his quorum, to rescue those who were struggling, and to invite all to come unto Christ. Thus inspired, he made plans to carry out the Lord’s will.
 
-The Lord taught this young president that *priesthood* means reaching out to serve others. As our beloved prophet, President Thomas S. Monson, explains: “The priesthood is not really so much a gift as it is a commission to serve, a privilege to lift, and an opportunity to bless the lives of others” (in Conference Report, Apr. 2006, 60; or *Ensign,* May 2006, 57).
+The Lord taught this young president that *priesthood* means reaching out to serve others. As our beloved prophet, President Thomas S. Monson, explains: “The priesthood is not really so much a gift as it is a commission to serve, a privilege to lift, and an opportunity to bless the lives of others” (in Conference Report, Apr. 2006, [[2006 April - Our Sacred Priesthood Trust.md|60]]; or *Ensign,* May 2006, 57).
 
 Service is the very foundation of the priesthood—service to others as exemplified by the Savior. I testify that it is His priesthood, we are on His errand, and He has shown all priesthood holders the way of faithful priesthood service.
 
@@ -70,7 +72,7 @@ You wonderful young men hold the Aaronic Priesthood, restored by John the Baptis
 
 Why? Listen to the words of our beloved First Presidency, given to each one of you in your Duty to God:
 
-“You have the authority to administer the ordinances of the Aaronic Priesthood. … You will greatly bless the lives of those around you. …
+“You have the authority to administer the ordinances of the Aaronic Priesthood. … You will greatly bless the lives of those around you. …
 
 “Heavenly Father has great trust and confidence in you and has an important mission for you to fulfill” (*Fulfilling My Duty to God: For Aaronic Priesthood Holders* \[2010\], 5).
 
@@ -79,5 +81,3 @@ I know these words are true, and I pray that each of us will have that same witn
 
 
 
-
-#Aaronic_Priesthood #Duty #Leadership #Priesthood

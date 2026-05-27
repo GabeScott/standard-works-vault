@@ -1,6 +1,5 @@
 # Shout
 
-
 *shout* unto God with the voice of triumph, [[Psalms 47.1|Psalms 47:1]].
 
 Lord himself shall descend from heaven with a *shout*, [[1 Thessalonians 4.16|1 Thessalonians 4:16]].

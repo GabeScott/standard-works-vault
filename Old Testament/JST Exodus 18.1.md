@@ -4,6 +4,3 @@
 
 [JST Exodus 18:1](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-ex/18?lang=eng)
 
-
-
-

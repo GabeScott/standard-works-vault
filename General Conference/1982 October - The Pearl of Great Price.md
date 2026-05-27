@@ -1,6 +1,8 @@
 # The Pearl of Great Price
 
-By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -39,8 +41,3 @@ And I bear my witness, brothers and sisters, that I know that Jesus is the Chris
 
 
 
-
-
-
-
-#Nonmembers

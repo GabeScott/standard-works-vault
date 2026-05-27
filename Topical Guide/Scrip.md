@@ -1,6 +1,5 @@
 # Scrip
 
-
 Nor *scrip* for your journey, [[Matthew 10.10|Matthew 10:10]] ([[Mark 6.8|Mark 6:8]]; [[Luke 9.3|Luke 9:3]]).
 
 purse, let him take it, and likewise his *scrip*, [[Luke 22.36|Luke 22:36]].

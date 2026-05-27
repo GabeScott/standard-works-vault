@@ -1,6 +1,5 @@
 # None
 
-
 there is *none* like unto the Lord, [[Exodus 8.10|Exodus 8:10]].
 
 there is *none* that doeth good, [[Psalms 14.1|Psalms 14:1]] ([[Psalms 53.1|Psalms 53:1]]; [[Romans 3.10|Romans 3:10]]; [[D&C 82.6|D&C 82:6]]).

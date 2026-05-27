@@ -1,6 +1,8 @@
 # Repentance
 
-By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
+Ezra Taft Benson
+
+By Elder F. Burton Howard - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -18,7 +20,7 @@ Many know they are not living up to their potential but for various reasons have
 
 These, in a way, are like the crystal goblet which spent part of its existence filled with dirt. They sense that there is a higher purpose to things. They become dissatisfied and begin to search for meaning. First they look outside themselves. They sample the pleasures of the world. As they do they discover, much as did the snail who set out to look for its house, that after arriving at wherever they were going, they are no closer than before to the object of their search.
 
-Ultimately, they look within. They have really known all the time that this was where to find peace. Sin, you see, is not just a state of mind. Wickedness never was and never will be happiness. (See [[Alma 41.10|Alma 41:10]].) They discover that if they are not righteous they can never be happy. (See [[2 Nephi 2.13|2 Ne. 2:13]].) They resolve to change. Then they are confronted, figuratively, with the problem of how to turn a weathered flowerpot into a sparkling crystal goblet. Questions are asked: Can I ever be forgiven? Is it really worth the effort? Where do I begin?
+Ultimately, they look within. They have really known all the time that this was where to find peace. Sin, you see, is not just a state of mind. Wickedness never was and never will be happiness. (See [[Alma 41.10|Alma 41:10]].) They discover that if they are not righteous they can never be happy. (See [[2 Nephi 2.13|2 Ne. 2:13]].) They resolve to change. Then they are confronted, figuratively, with the problem of how to turn a weathered flowerpot into a sparkling crystal goblet. Questions are asked: Can I ever be forgiven? Is it really worth the effort? Where do I begin?
 
 In the case of the glass it is easy to understand what to do. We begin by recognizing a better use for the crystal. A convenient place for dumping the unwanted contents is selected. The dirt is left there. The goblet is carefully washed with high quality detergent to remove the stains and residue. It is lovingly polished and placed once again in the company of other crystal glasses in the china cupboard. It is put back into use and cared for regularly.
 
@@ -84,7 +86,7 @@ He didn’t say much.
 
 He looked puzzled. “What do you mean?”
 
-I said, “Well, in order to be forgiven, a transgressor must experience godly sorrow. (See [[2 Corinthians 7.10|2 Cor. 7:10]].) He must have anguish of soul and genuine regret. This sorrow must be strong enough and long enough to motivate the additional processes of repentance, or it is not deep enough. Regret must be great enough so as to bring forth a changed person. That person must demonstrate that he is different than before by doing different and better things. Have you been sorry enough?” I asked again.
+I said, “Well, in order to be forgiven, a transgressor must experience godly sorrow. (See [[2 Corinthians 7.10|2 Cor. 7:10]].) He must have anguish of soul and genuine regret. This sorrow must be strong enough and long enough to motivate the additional processes of repentance, or it is not deep enough. Regret must be great enough so as to bring forth a changed person. That person must demonstrate that he is different than before by doing different and better things. Have you been sorry enough?” I asked again.
 
 He hesitated. “I’ve changed,” he said. “I’m not the same as I was before. I keep all the commandments now. I would like somehow to make it up to my parents. I have prayed for forgiveness. I apologized to the person I wronged. I realize the seriousness of what I have done. I would give anything if it hadn’t happened. Maybe I haven’t been as good as I could be, but I don’t know what else to do. But I didn’t ever confess to anyone.”
 
@@ -112,9 +114,9 @@ Then came the question: “Do you think the Church could use a twenty-four-year-
 
 Well, that young man was like one of the glasses we spoke about. He had been out in the world and was partially filled with the wrong things. He was not content. Sin had clouded his vision and interfered with his potential. Until he could find a way to repent, he could never become what he knew he should be. It took time to change. It took prayer. It took effort, and it took help.
 
-My young friend discovered that repentance is often a lonely, silent struggle. It is not a once-in-a-lifetime thing; rather, it lasts a lifetime. As President Stephen L Richards once said, it is an “ever-recurring acknowledgement of weakness and error and \[a\] seeking and living for the higher and better.” (In Conference Report, Apr. 1956, p. 91.)
+My young friend discovered that repentance is often a lonely, silent struggle. It is not a once-in-a-lifetime thing; rather, it lasts a lifetime. As President Stephen L Richards once said, it is an “ever-recurring acknowledgement of weakness and error and \[a\] seeking and living for the higher and better.” (In Conference Report, Apr. 1956, p. 91.)
 
-This young man came to know that repentance is not a free gift. Just as faith without works is dead (see [[James 2.17|James 2:17]])—so repentance, too, demands much. It is not for the fainthearted or the lazy. It requires a complete turning away from wrongdoing and a set of new works or doings which produce a new heart and a different man. Repentance means work. It is not just stopping doing something. It is not just recognizing the wrong or knowing what should be done. It is not “a cycle of sinning and repenting and sinning again.” (Hugh B. Brown, *Eternal Quest,* Salt Lake City: Bookcraft, 1956, p. 102.)
+This young man came to know that repentance is not a free gift. Just as faith without works is dead (see [[James 2.17|James 2:17]])—so repentance, too, demands much. It is not for the fainthearted or the lazy. It requires a complete turning away from wrongdoing and a set of new works or doings which produce a new heart and a different man. Repentance means work. It is not just stopping doing something. It is not just recognizing the wrong or knowing what should be done. It is not “a cycle of sinning and repenting and sinning again.” (Hugh B. Brown, *Eternal Quest,* Salt Lake City: Bookcraft, 1956, p. 102.)
 
 It is not only remorse; rather, it is an eternal principle which, when properly applied over sufficient time, always results in renewal, cleansing, and change.
 
@@ -127,8 +129,3 @@ By repenting, my young friend became a new person. He was born again of the Spir
 
 
 
-
-
-
-
-#Forgiveness #Repentance

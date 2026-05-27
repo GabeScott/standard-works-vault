@@ -1,6 +1,8 @@
 # Finding Joy through Loving Service
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2011 General Conference*
 
@@ -30,9 +32,9 @@ The old prospector said, “Son, it seems to me you are so busy looking for larg
 
 This story illustrates the spiritual truth that Alma taught his son Helaman:
 
-“By small and simple things are great things brought to pass. …
+“By small and simple things are great things brought to pass. …
 
-“… And by very small means the Lord … bringeth about the salvation of many souls” ([[Alma 37.6|Alma 37:6–7]][[Alma 37.7|]]).
+“… And by very small means the Lord … bringeth about the salvation of many souls” ([[Alma 37.6|Alma 37:6–7]][[Alma 37.7|]]).
 
 Brothers and sisters, the gospel of Jesus Christ is simple, no matter how much we try to make it complicated. We should strive to keep our lives similarly simple, unencumbered by extraneous influences, focused on those things that matter most.
 
@@ -52,7 +54,7 @@ It is only when we love God and Christ with all of our hearts, souls, and minds 
 
 When this pure love of Christ—or charity—envelops us, we think, feel, and act more like Heavenly Father and Jesus would think, feel, and act. Our motivation and heartfelt desire are like unto that of the Savior. He shared this desire with His Apostles on the eve of His Crucifixion. He said:
 
-“A new commandment I give unto you, That ye love one another; as I have loved you. …
+“A new commandment I give unto you, That ye love one another; as I have loved you. …
 
 “By this shall all men know that ye are my disciples, if ye have love one to another” ([[John 13.34|John 13:34–35]][[John 13.35|]]).
 
@@ -64,7 +66,7 @@ First, charity begins at home. The single most important principle that should g
 
 Another place where we have ample opportunity to serve is in the Church. Our wards and branches should be places where the Golden Rule always guides our words and actions toward each other. By treating each other kindly, speaking words of support and encouragement, and being sensitive to each other’s needs, we can create loving unity among ward members. Where charity exists, there is no place for gossip or unkind words.
 
-Ward members, both adults and youth, can unite in meaningful service to bless the lives of others. Just two weeks ago, the President of the South America Northwest Area, Elder Marcus B. Nash of the Seventy, reported that by assigning “the strong in spirit to those that are weak,” they are rescuing hundreds of less-active adults and youth. Through love and service, “one by one” they are coming back. These acts of kindness create a strong and lasting bond among everyone involved—both the helpers and the helpees. So many precious memories are centered around such service.
+Ward members, both adults and youth, can unite in meaningful service to bless the lives of others. Just two weeks ago, the President of the South America Northwest Area, Elder Marcus B. Nash of the Seventy, reported that by assigning “the strong in spirit to those that are weak,” they are rescuing hundreds of less-active adults and youth. Through love and service, “one by one” they are coming back. These acts of kindness create a strong and lasting bond among everyone involved—both the helpers and the helpees. So many precious memories are centered around such service.
 
 When I think back on my many years of Church administration, some of my most profound memories are the times I joined with ward members to help someone.
 
@@ -74,7 +76,7 @@ A third area where we can serve is in our communities. As a pure expression of o
 
 Through our heartfelt kindness and service, we can make friends with those whom we serve. From these friendships come better understanding of our devotion to the gospel and a desire to learn more about us.
 
-My good friend Elder Joseph B. Wirthlin talked of the power of this principle when he said: “Kindness is the essence of greatness. … \[It\] is a passport that opens doors and fashions friends. It softens hearts and molds relationships that can last lifetimes” (in Conference Report, Apr. 2005, 27; or *Ensign,* May 2005, 26).
+My good friend Elder Joseph B. Wirthlin talked of the power of this principle when he said: “Kindness is the essence of greatness. … \[It\] is a passport that opens doors and fashions friends. It softens hearts and molds relationships that can last lifetimes” (in Conference Report, Apr. 2005, [[2005 April - The Virtue of Kindness.md|27]]; or *Ensign,* May 2005, 26).
 
 Another way we can serve Heavenly Father’s children is through missionary service—not only as full-time missionaries but also as friends and neighbors. The future growth of the Church will not happen through just knocking on strangers’ doors. It will happen when the members, along with our missionaries, filled with the love of God and Christ, discern needs and respond to those needs in the spirit of charitable service.
 
@@ -82,13 +84,13 @@ When we do this, brothers and sisters, the honest in heart will feel our sinceri
 
 In all of our service, we need to be sensitive to the promptings of the Holy Ghost. The still, small voice will let us know who needs our help and what we can do to help them.
 
-President Spencer W. Kimball said: “It is vital that we serve each other in the kingdom. … So often, our acts of service consist of simple encouragement or of giving … help with mundane tasks, but what glorious consequences can flow … from small but deliberate deeds!” (*Teachings of Presidents of the Church: Spencer W. Kimball* \[2006\], 82).
+President Spencer W. Kimball said: “It is vital that we serve each other in the kingdom. … So often, our acts of service consist of simple encouragement or of giving … help with mundane tasks, but what glorious consequences can flow … from small but deliberate deeds!” (*Teachings of Presidents of the Church: Spencer W. Kimball* \[2006\], 82).
 
-And President Thomas S. Monson has counseled:
+And President Thomas S. Monson has counseled:
 
-“The needs of others are ever present, and each of us can do something to help someone. …
+“The needs of others are ever present, and each of us can do something to help someone. …
 
-“… Unless we lose ourselves in service to others, there is little purpose to our own lives” (in Conference Report, Oct. 2009, 83; or *Ensign,* Nov. 2009, 85).
+“… Unless we lose ourselves in service to others, there is little purpose to our own lives” (in Conference Report, Oct. 2009, [[2009 October - What Have I Done for Someone Today.md|83]]; or *Ensign,* Nov. 2009, 85).
 
 Brothers and sisters, may I reemphasize that the most important attribute of Heavenly Father and of His Beloved Son that we should desire and seek to possess within our lives is the gift of charity, “the pure love of Christ” ([[Moroni 7.47|Moroni 7:47]]). From this gift springs our capacity to love and to serve others as the Savior did.
 
@@ -101,8 +103,3 @@ As we approach the Easter season, may we show our love and appreciation for the 
 
 
 
-
-
-
-
-#Family #Love #Missionary_Work #Service

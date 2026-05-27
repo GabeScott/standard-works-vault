@@ -4,6 +4,3 @@
 
 [JST Revelation 2:22](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-rev/2?lang=eng)
 
-
-
-

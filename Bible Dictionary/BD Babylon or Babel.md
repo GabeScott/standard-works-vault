@@ -6,7 +6,7 @@ The capital of Babylonia. According to [[Genesis 10.8|Gen. 10:8–10]][[Genesis 
 
 A sketch of the history of the Babylonian empire will be found under *[[BD Assyria And Babylonia|Assyria and Babylonia]].*
 
-In [[Revelation 14.8|Rev. 14:8]]; [[Revelation 16.19|16:19]]; [[Revelation 17.5|17:5]]; [[Revelation 18.2|18:2, 10, 21]][[Revelation 18.10|]][[Revelation 18.21|]], Babylon probably denotes Rome, the great antagonist of Messiah’s kingdom; or possibly, apostate Jerusalem. Such a mystical use of the name is quite in accordance with Jewish custom. In [[1 Peter 5.13|1 Pet. 5:13]] Babylon probably referred to Rome.
+In [[Revelation 14.8|Rev. 14:8]]; [[Revelation 16.19|16:19]]; [[Revelation 17.5|17:5]]; [[Revelation 18.2|18:2, 10, 21]][[Revelation 18.10|]][[Revelation 18.21|]], Babylon probably denotes Rome, the great antagonist of Messiah’s kingdom; or possibly, apostate Jerusalem. Such a mystical use of the name is quite in accordance with Jewish custom. In [[1 Peter 5.13|1 Pet. 5:13]] Babylon probably referred to Rome.
 
 In [[D&C 1.16|D&C 1:16]], Babylon means “the world.”
 

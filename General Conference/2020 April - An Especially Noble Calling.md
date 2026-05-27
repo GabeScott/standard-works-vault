@@ -1,6 +1,8 @@
 # An Especially Noble Calling
 
-By Joy D. Jones - *Primary General President*
+Russell M. Nelson
+
+By Joy D. Jones - *Primary General President*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -8,15 +10,15 @@ By Joy D. Jones - *Primary General President*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/04/14jones?lang=eng)
 
-I’m grateful to focus my remarks today on women’s continuing roles in the Restoration. It is clear that throughout history women have held a distinctive place in our Heavenly Father’s plan. President Russell M. Nelson taught, “It would be impossible to measure the influence that … women have, not only on families but also on the Lord’s Church, as wives, mothers, and grandmothers; as sisters and aunts; as teachers and leaders; and especially as exemplars and devout defenders of the faith.”[^1]
+I’m grateful to focus my remarks today on women’s continuing roles in the Restoration. It is clear that throughout history women have held a distinctive place in our Heavenly Father’s plan. President Russell M. Nelson taught, “It would be impossible to measure the influence that … women have, not only on families but also on the Lord’s Church, as wives, mothers, and grandmothers; as sisters and aunts; as teachers and leaders; and especially as exemplars and devout defenders of the faith.”[^1]
 
 In the early Relief Society in Nauvoo, 178 years ago, the Prophet Joseph Smith counseled the sisters to “live up to \[their\] privilege.”[^2] Their example teaches us today. They unitedly followed a prophet’s voice and lived with steadfast faith in Jesus Christ as they helped lay the foundation we now stand upon. Sisters, it is our turn. We have a divine errand from the Lord, and our faithful, unique contributions are vital.
 
-President Spencer W. Kimball explained: “To be a righteous woman during the winding up scenes on this earth, before the second coming of our Savior, is an especially noble calling. The righteous woman’s strength and influence today can be tenfold what it might be in more tranquil times.”[^3]
+President Spencer W. Kimball explained: “To be a righteous woman during the winding up scenes on this earth, before the second coming of our Savior, is an especially noble calling. The righteous woman’s strength and influence today can be tenfold what it might be in more tranquil times.”[^3]
 
 President Nelson has likewise implored: “I plead with my sisters of \[the\] Church … to step forward! Take your rightful and needful place in your home, in your community, and in the kingdom of God﻿—more than you ever have before.”[^4]
 
-Recently, I was privileged, along with a group of Primary children, to meet with President Russell M. Nelson in the replica of the Smith family home in Palmyra, New York. Listen as our beloved prophet teaches the children what *they* can do to step forward.
+Recently, I was privileged, along with a group of Primary children, to meet with President Russell M. Nelson in the replica of the Smith family home in Palmyra, New York. Listen as our beloved prophet teaches the children what *they* can do to step forward.
 
 **Sister Jones:** “I’m curious to know if you might have a question that you would like to ask President Nelson. You’re sitting here with the prophet. Is there anything that you’ve always wanted to ask a prophet? Yes, Pearl.”
 
@@ -72,18 +74,18 @@ My personal admission today is that as a woman I didn’t realize, earlier in my
 
 Let us boldly declare our devotion to our Heavenly Father and our Savior, “with unshaken faith in him, relying wholly upon the merits of him who is mighty to save.”[^23] Let us joyfully continue this journey toward our highest spiritual potential and help those around us to do the same through love, service, leadership, and compassion.
 
-Elder James E. Talmage tenderly reminded us, “The world’s greatest champion of woman and womanhood is Jesus the Christ.”[^24] In the final analysis of women’s continuing roles in the Restoration, and for us all, what role is preeminent? I testify that it is to *hear* Him,[^25] to follow Him,[^26] to trust Him,[^27] and to become an extension of His love.[^28] I know He lives.[^29] In the sacred name of Jesus Christ, amen.
+Elder James E. Talmage tenderly reminded us, “The world’s greatest champion of woman and womanhood is Jesus the Christ.”[^24] In the final analysis of women’s continuing roles in the Restoration, and for us all, what role is preeminent? I testify that it is to *hear* Him,[^25] to follow Him,[^26] to trust Him,[^27] and to become an extension of His love.[^28] I know He lives.[^29] In the sacred name of Jesus Christ, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[A Plea to My Sisters](https://churchofjesuschrist.org/study/liahona/2015/11/sunday-morning-session/a-plea-to-my-sisters?lang=eng),” *Ensign* or *Liahona,* Nov. 2015, 95–96.
+[^1]: Russell M. Nelson, “[A Plea to My Sisters](https://www.churchofjesuschrist.org/study/liahona/2015/11/sunday-morning-session/a-plea-to-my-sisters?lang=eng),” *Ensign* or *Liahona,* Nov. 2015, 95–96.
 
-[^2]: Joseph Smith, in “[Nauvoo Relief Society Minute Book](https://www.josephsmithpapers.org/paper-summary/nauvoo-relief-society-minute-book/35),” 38, josephsmithpapers.org.
+[^2]: Joseph Smith, in “[Nauvoo Relief Society Minute Book](https://www.josephsmithpapers.org/paper-summary/nauvoo-relief-society-minute-book/61),” 38, josephsmithpapers.org.
 
-[^3]: *Teachings of Presidents of the Church: Spencer W. Kimball* (2006), 217.
+[^3]: *[Teachings of Presidents of the Church: Spencer W. Kimball](https://www.churchofjesuschrist.org/study/manual/teachings-spencer-w-kimball/chapter-20?lang=eng&id=p14#p14)* (2006), 217.
 
-[^4]: Russell M. Nelson, “[A Plea to My Sisters](https://churchofjesuschrist.org/study/liahona/2015/11/sunday-morning-session/a-plea-to-my-sisters?lang=eng),” 97.
+[^4]: Russell M. Nelson, “[A Plea to My Sisters](https://www.churchofjesuschrist.org/study/liahona/2015/11/sunday-morning-session/a-plea-to-my-sisters?lang=eng),” 97.
 
 [^5]: See [[D&C 58.26|Doctrine and Covenants 58:26–28]][[D&C 58.27|]][[D&C 58.28|]].
 
@@ -93,9 +95,9 @@ Elder James E. Talmage tenderly reminded us, “The world’s greatest champion
 
 [^8]: [[D&C 25.8|Doctrine and Covenants 25:8, 10, 13]][[D&C 25.10|]][[D&C 25.13|]].
 
-[^9]: Russell M. Nelson, “[Revelation for the Church, Revelation for Our Lives](https://churchofjesuschrist.org/study/liahona/2018/05/sunday-morning-session/revelation-for-the-church-revelation-for-our-lives?lang=eng),” *Ensign* or *Liahona,* May 2018, 96.
+[^9]: Russell M. Nelson, “[Revelation for the Church, Revelation for Our Lives](https://www.churchofjesuschrist.org/study/liahona/2018/05/sunday-morning-session/revelation-for-the-church-revelation-for-our-lives?lang=eng),” *Ensign* or *Liahona,* May 2018, 96.
 
-[^10]: See [[2 Nephi 9.39|2 Nephi 9:39]].
+[^10]: See [[2 Nephi 9.39|2 Nephi 9:39]].
 
 [^11]: [[D&C 25.15|Doctrine and Covenants 25:15]].
 
@@ -103,9 +105,9 @@ Elder James E. Talmage tenderly reminded us, “The world’s greatest champion
 
 [^13]: See [[D&C 42.61|Doctrine and Covenants 42:61]].
 
-[^14]: President Henry B. Eyring said:
+[^14]: President Henry B. Eyring said:
 
-[^15]: See [[2 Nephi 2.16|2 Nephi 2:16]].
+[^15]: See [[2 Nephi 2.16|2 Nephi 2:16]].
 
 [^16]: [[D&C 18.18|Doctrine and Covenants 18:18]].
 
@@ -115,15 +117,15 @@ Elder James E. Talmage tenderly reminded us, “The world’s greatest champion
 
 [^19]: See [[D&C 84.19|Doctrine and Covenants 84:19–21]][[D&C 84.20|]][[D&C 84.21|]].
 
-[^20]: Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona,* Nov. 2019, 77.
+[^20]: Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona,* Nov. 2019, 77.
 
-[^21]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” 76–79; Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52; Henry B. Eyring, “[[2018 October - Women and Gospel Learning in the Home.md|Women and Gospel Learning in the Home]],” *Ensign* or *Liahona,* Nov. 2018, 58–60.
+[^21]: See Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” 76–79; Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52; Henry B. Eyring, “[[2018 October - Women and Gospel Learning in the Home.md|Women and Gospel Learning in the Home]],” *Ensign* or *Liahona,* Nov. 2018, 58–60.
 
 [^22]: [[D&C 25.13|Doctrine and Covenants 25:13]].
 
-[^23]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^23]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
-[^24]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 475.
+[^24]: James E. Talmage, *Jesus the Christ,* 3rd ed. (1916), 475.
 
 [^25]: See [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
@@ -133,10 +135,5 @@ Elder James E. Talmage tenderly reminded us, “The world’s greatest champion
 
 [^28]: See [[John 13.34|John 13:34]]; [[Moroni 7.47|Moroni 7:47]].
 
-[^29]: See [[2 Nephi 33.6|2 Nephi 33:6]]; [[D&C 76.22|Doctrine and Covenants 76:22]].
+[^29]: See [[2 Nephi 33.6|2 Nephi 33:6]]; [[D&C 76.22|Doctrine and Covenants 76:22]].
 
-
-
-
-
-#Restoration #Revelation #Women

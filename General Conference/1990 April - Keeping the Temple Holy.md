@@ -1,5 +1,7 @@
 # Keeping the Temple Holy
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -26,7 +28,7 @@ The bank card opens the door to financial credit. The temple recommend opens the
 
 I fear that some people are granted temple recommends before they are really prepared for them. I feel that sometimes we unduly rush people to the temple. Converts and those who have recently come into activity need a substantial measure of maturity in the Church. They need understanding of the grand concepts of the eternal gospel. They need to have demonstrated over a period of time their capacity to discipline their lives in such a way as to be worthy to enter the House of the Lord, for the obligations there assumed are eternal. For this reason, many years ago the First Presidency determined that a convert to the Church should wait a year following baptism before going to the house of the Lord. It was the expectation that during that year he or she would have grown in understanding as well as in capacity to exercise that measure of self-discipline which would result in personal worthiness. In 1833, the Lord revealed the following to the Prophet Joseph:
 
-“Verily I say unto you, that it is my will that a house should be built unto me … for the salvation of Zion. …
+“Verily I say unto you, that it is my will that a house should be built unto me … for the salvation of Zion. …
 
 “And inasmuch as my people build a house unto me in the name of the Lord, and do not suffer any unclean thing to come into it, that it be not defiled, my glory shall rest upon it;
 
@@ -72,13 +74,13 @@ Tithing and the Word of Wisdom deal with straightforward and easily comprehended
 
 Do we sustain our local and General Authorities? This is not concerned with an exercise in paying homage to those whom the Lord has called to preside. It is a basic question of recognition of the fact that God has called a prophet to stand at the head of His church, that he has called others to work with him on a general level, and that that which they espouse and teach comes of unitedly praying together, pondering together, seeking the will of the Lord, receiving that will, and following it.
 
-Likewise, unless there is loyalty toward the bishop and stake president on a local level, there will be an absence of harmony, there will be suspicion and hesitation to serve with fidelity, there will be that kind of division which is always destructive of faith. Let it ever be remembered that no President of this church, no Counselor in the Presidency, no General Authority, no member of a stake presidency or of a bishopric or of an elders quorum presidency is there because he wished to be there and requested the privilege. Each is there because he was “called of God, by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” ([[Articles of Faith 1.5|A of F 1:5]]).
+Likewise, unless there is loyalty toward the bishop and stake president on a local level, there will be an absence of harmony, there will be suspicion and hesitation to serve with fidelity, there will be that kind of division which is always destructive of faith. Let it ever be remembered that no President of this church, no Counselor in the Presidency, no General Authority, no member of a stake presidency or of a bishopric or of an elders quorum presidency is there because he wished to be there and requested the privilege. Each is there because he was “called of God, by prophecy, and by the laying on of hands by those who are in authority, to preach the Gospel and administer in the ordinances thereof” ([[Articles of Faith 1.5|A of F 1:5]]).
 
 Loyalty to leadership is a cardinal requirement of all who serve in the army of the Lord. A house divided against itself cannot stand (see [[Mark 3.25|Mark 3:25]]). Unity is basic and essential. Declared the Lord, “If ye are not one ye are not mine” ([[D&C 38.27|D&C 38:27]]). Failure to sustain those in authority is incompatible with service in the temple.
 
 Honesty with others, including obedience to constitutional law, is likewise a requirement.
 
-“We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law” ([[Articles of Faith 1.12|A of F 1:12]]).
+“We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law” ([[Articles of Faith 1.12|A of F 1:12]]).
 
 Occasionally we receive letters from those who openly advocate opposition to the payment of taxes, complaining that their bishops and stake presidents will not give them temple recommends because of their activities. Through the years of the history of this work, there have been occasions when the Church and its members have come up against the law of the land. In such times, we have taken a stand in the courts. In those instances where the courts have ruled against us, although the ruling was difficult to bear, we have accepted it and conformed to it. Obedience to law, when that law has been declared constitutional, is incumbent upon the Latter-day Saints and therefore becomes a standard of eligibility to enter the temples of the Church.
 
@@ -90,7 +92,7 @@ But there is another, less obvious, group of whom I wish to speak. I have in my 
 
 Brethren, when the bishop interviews you for your temple recommend, he is not likely to get into these delicate and sensitive and personal things. You must judge within your heart whether you are guilty of any practice that is unholy, impure, or in any way evil before the Lord.
 
-What a unique and remarkable thing is a temple recommend. It is only a piece of paper with a name and signatures, but in reality it is a certificate that says the bearer is “honest, true, chaste, benevolent, virtuous” and that he or she believes in doing good to all, that “if there is anything virtuous, lovely, or of good report or praiseworthy,” he or she seeks after such ([[Articles of Faith 1.13|A of F 1:13]]).
+What a unique and remarkable thing is a temple recommend. It is only a piece of paper with a name and signatures, but in reality it is a certificate that says the bearer is “honest, true, chaste, benevolent, virtuous” and that he or she believes in doing good to all, that “if there is anything virtuous, lovely, or of good report or praiseworthy,” he or she seeks after such ([[Articles of Faith 1.13|A of F 1:13]]).
 
 Most important, and above all other qualifications, is the certain knowledge on the part of a recommend holder that God our Eternal Father lives, that Jesus Christ is the living Son of the living God, and that this is Their sacred and divine work.
 
@@ -109,8 +111,3 @@ To young men who are here who have not yet been to the temple, may I suggest tha
 
 
 
-
-
-
-
-#Honesty #Temples #Worthiness

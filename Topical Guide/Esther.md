@@ -1,4 +1,3 @@
 # Esther
 
-
-*See* [BD Esther, book of](https://www.churchofjesuschrist.org/study/scriptures/bd/esther-book-of?lang=eng)
+*See also* [[BD Esther, book of.md|BD Esther, book of]]

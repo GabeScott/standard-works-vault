@@ -1,5 +1,7 @@
 # Priesthood Blessings
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1995 General Conference*
@@ -14,7 +16,7 @@ As a small boy, I remember being intrigued by my grandmother’s magnifying glas
 
 This great magnifying effect can be compared to a profound blessing that came to Jacob, who wrestled most of the night for a blessing:
 
-“And Jacob was left alone; and there wrestled \[with a messenger[^1] from God\] until the breaking of the day. …
+“And Jacob was left alone; and there wrestled \[with a messenger[^1] from God\] until the breaking of the day. …
 
 “And he said, Let me go, for the day breaketh. And he said, I will not let thee go, except thou bless me.
 
@@ -24,7 +26,7 @@ This great magnifying effect can be compared to a profound blessing that came to
 
 Jacob received his blessing in this marvelous experience, and as heirs of Abraham through the blood of Israel we also receive our blessings of divine favor. As the Lord said in the Doctrine and Covenants:
 
-“For ye are lawful heirs, according to the flesh, …
+“For ye are lawful heirs, according to the flesh, …
 
 “Therefore your life and the priesthood have remained, and must needs remain through you and your lineage until the restoration of all things spoken by the mouths of all the holy prophets since the world began.”[^3]
 
@@ -81,24 +83,19 @@ In so doing, our understanding, our faith, and our testimony in the Lord Jesus C
 
 [^3]: [[D&C 86.9|D&C 86:9–10]][[D&C 86.10|]].
 
-[^4]: John A. Widtsoe, *Evidences and Reconciliations,* arr. G. Homer Durham, 3 vols. in 1 (Salt Lake City: Bookcraft, 1960), p. 321.
+[^4]: John A. Widtsoe, *Evidences and Reconciliations,* arr. G. Homer Durham, 3 vols. in 1 (Salt Lake City: Bookcraft, 1960), p. 321.
 
 [^5]: Quoted in James R. Clark, comp., *Messages of the First Presidency of The Church of Jesus Christ of Latter-day Saints,* 6 vols. (Salt Lake City: Bookcraft, 1965–75), 5:152.
 
-[^6]: *Evidences and Reconciliations,* p. 323.
+[^6]: *Evidences and Reconciliations,* p. 323.
 
 [^7]: *Doctrines of Salvation,* 3:246.
 
 [^8]: [[Abraham 2.10|Abr. 2:10]].
 
-[^9]: [[2 Nephi 30.2|2 Ne. 30:2]].
+[^9]: [[2 Nephi 30.2|2 Ne. 30:2]].
 
 [^10]: [[Moroni 10.18|Moro. 10:18]].
 
 [^11]: [[D&C 88.33|D&C 88:33]].
 
-
-
-
-
-#Blessings #Family #God_The_Father #Jesus_Christ #Patriarchal_Blessings #Priesthood

@@ -1,4 +1,3 @@
 # Segregation
 
-
-*See* [[Separation, Separate.md|Separation]]
+*See also* [[Separation.md|Separation]]

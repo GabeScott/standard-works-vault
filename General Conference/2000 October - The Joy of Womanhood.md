@@ -1,5 +1,7 @@
 # The Joy of Womanhood
 
+Gordon B. Hinckley
+
 By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the October session of the 2000 General Conference*
@@ -20,7 +22,7 @@ God sent women to earth with some qualities in extra capacity. In speaking to yo
 
 Our outward appearance is a reflection of what we are on the inside. Our lives reflect that for which we seek. And if with all our hearts we truly seek to know the Savior and to be more like Him, we shall be, for He is our divine, eternal Brother. But He is more than that. He is our precious Savior, our dear Redeemer. We ask with Alma of old, “Have ye received his image in your countenances?” ([[Alma 5.14|Alma 5:14]]).
 
-You can recognize women who are grateful to be daughters of God by their outward appearance. These women understand their stewardship over their bodies and treat them with dignity. They care for their bodies as they would a holy temple, for they understand the Lord’s teaching: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Cor. 3:16]]). Women who love God would never abuse or deface a temple with graffiti. Nor would they throw open the doors of that holy, dedicated edifice and invite the world to look on. How even more sacred is the body, for it was not made by man. It was formed by God. We are the stewards, the keepers of the cleanliness and purity with which it came from heaven. “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.17|1 Cor. 3:17]]).
+You can recognize women who are grateful to be daughters of God by their outward appearance. These women understand their stewardship over their bodies and treat them with dignity. They care for their bodies as they would a holy temple, for they understand the Lord’s teaching: “Know ye not that ye are the temple of God, and that the Spirit of God dwelleth in you?” ([[1 Corinthians 3.16|1 Cor. 3:16]]). Women who love God would never abuse or deface a temple with graffiti. Nor would they throw open the doors of that holy, dedicated edifice and invite the world to look on. How even more sacred is the body, for it was not made by man. It was formed by God. We are the stewards, the keepers of the cleanliness and purity with which it came from heaven. “If any man defile the temple of God, him shall God destroy; for the temple of God is holy, which temple ye are” ([[1 Corinthians 3.17|1 Cor. 3:17]]).
 
 Grateful daughters of God guard their bodies carefully, for they know they are the wellspring of life and they reverence life. They don’t uncover their bodies to find favor with the world. They walk in modesty to be in favor with their Father in Heaven, for they know He loves them dearly.
 
@@ -57,12 +59,7 @@ Sisters, regardless of your age, please understand all that you are and must be,
 
 [^3]: See Bruce R. McConkie, *Mormon Doctrine,* 2nd ed. (1966), 35.
 
-[^4]: In Conference Report, Apr. 1978, 14; or *Ensign,* May 1978, 10–11.
+[^4]: In Conference Report, Apr. 1978, [[1978 April - The Women of God.md|14]]; or *Ensign,* May 1978, 10–11.
 
 [^5]: “Our Responsibility to Our Young Women,” *Ensign,* Sept. 1988, 11.
 
-
-
-
-
-#Children #Jesus_Christ #Motherhood #Plan_Of_Salvation #Priesthood #Priorities #Spirituality #Temples #Women

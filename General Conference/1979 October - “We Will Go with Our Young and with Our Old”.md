@@ -1,6 +1,8 @@
 # “We Will Go with Our Young and with Our Old”
 
-By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Hugh W. Pinnock - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -14,7 +16,7 @@ However, Moses insisted that all should go. He said, “We will go with our youn
 
 All ages would share the adventure and the dangers together, just as our own pioneers did 132 years ago during their great exodus. The solidarity of the people of all ages is God’s way of doing things. It is our way because it is his way.
 
-Life is not stationary. Seconds, minutes, hours, days, weeks, months, and years all tick away at the same clip for everyone. No age-group can be isolated. None of us can settle into infancy, youth, middle age, or old age. We all *grow* older, and, incidentally, it is an exciting thought if the accent is on *growing.* “Though our outward man perish,” said Paul, “yet the inward man is renewed *day by day*” ([[2 Corinthians 4.16|2 Cor. 4:16]]; italics added).
+Life is not stationary. Seconds, minutes, hours, days, weeks, months, and years all tick away at the same clip for everyone. No age-group can be isolated. None of us can settle into infancy, youth, middle age, or old age. We all *grow* older, and, incidentally, it is an exciting thought if the accent is on *growing.* “Though our outward man perish,” said Paul, “yet the inward man is renewed *day by day*” ([[2 Corinthians 4.16|2 Cor. 4:16]]; italics added).
 
 I cannot think on my own life without feeling deep gratitude for the older people who have walked and talked with me. A great-aunt taught me many lessons in her own sensitive way. A lovely grandmother has influenced not only her own grandchildren, but also many of their friends. A patriarch, by living righteously and by giving a beautiful blessing, changed the course of a young man’s life. Elder LeGrand Richards’s powerful voice and testimony have brought the truth of the gospel to all who will listen, and a few others besides. Our great prophet-leader, President Kimball, has influenced so many of us through his dedication and incredible energy.
 
@@ -38,7 +40,7 @@ Sixth, hold family home evening. If you are now alone, invite friends to stop by
 
 Seventh, whenever possible, walk each day. Enjoy this lovely world that the Savior has provided, and invite others to walk with you, sharing the beauties and miracles of nature together. “Add life to your years, not just years to life” (“The Problem of Old Age,” *Time,* 23 July 1966).
 
-Eighth, for heaven’s sake, forget your regrets. The many years you have lived have been filled both with success and with experiences you might change if you could. But you can’t, so stop any self-inflicted sadness or despair. When the Savior said, “Judge not,” he was speaking, in part, about your relationship with yourself (see [[Matthew 7.1|Matt. 7:1]]). Live the repentant life happily. The scripture “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]) applies to you right now.
+Eighth, for heaven’s sake, forget your regrets. The many years you have lived have been filled both with success and with experiences you might change if you could. But you can’t, so stop any self-inflicted sadness or despair. When the Savior said, “Judge not,” he was speaking, in part, about your relationship with yourself (see [[Matthew 7.1|Matt. 7:1]]). Live the repentant life happily. The scripture “Men are, that they might have joy” ([[2 Nephi 2.25|2 Ne. 2:25]]) applies to you right now.
 
 Bernard Baruch, on his eighty-fifth birthday, said (in a news report dated 20 August 1955), “To me, old age is always fifteen years older than I am.” Yes, there is much for you to do.
 
@@ -57,8 +59,3 @@ In closing, I say to you—our elder mentors, our examples, some of our dearest 
 
 
 
-
-
-
-
-#Elderly

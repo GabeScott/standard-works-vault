@@ -1,5 +1,7 @@
 # Blessed Are the Merciful
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1990 General Conference*
@@ -104,7 +106,7 @@ Every child, with few possible exceptions, is the product of a home, be it good,
 
 I speak to fathers and mothers everywhere with a plea to put harshness behind us, to bridle our anger, to lower our voices, and to deal with mercy and love and respect one toward another in our homes.
 
-As Elder James E. Talmage once wrote: “Religion without morality, professions of godliness without charity, church-membership without adequate responsibility as to individual conduct in daily life, are but as sounding brass and tinkling cymbals. … ‘Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.’ Honesty of purpose, integrity of soul, individual purity, \[absolute\] freedom of conscience, willingness to do good to all men even enemies, pure benevolence—these are some of the fruits by which the religion of Christ may be known, far exceeding in importance and value the promulgation of dogmas and the enunciation of theories” (*Articles of Faith,* 12th ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924\], p. 429).
+As Elder James E. Talmage once wrote: “Religion without morality, professions of godliness without charity, church-membership without adequate responsibility as to individual conduct in daily life, are but as sounding brass and tinkling cymbals. … ‘Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world.’ Honesty of purpose, integrity of soul, individual purity, \[absolute\] freedom of conscience, willingness to do good to all men even enemies, pure benevolence—these are some of the fruits by which the religion of Christ may be known, far exceeding in importance and value the promulgation of dogmas and the enunciation of theories” (*Articles of Faith,* 12th ed. \[Salt Lake City: The Church of Jesus Christ of Latter-day Saints, 1924\], p. 429).
 
 In that same vein the Lord in modern revelation has enjoined us, “Succor the weak, lift up the hands which hang down, and strengthen the feeble knees” ([[D&C 81.5|D&C 81:5]]).
 
@@ -133,8 +135,3 @@ Of these things I bear witness as I testify that God our Eternal Father lives, t
 
 
 
-
-
-
-
-#Family #Kindness #Love #Tolerance

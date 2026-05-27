@@ -1,6 +1,5 @@
 # Time
 
-
 *See also* [[Astronomy.md|Astronomy]]; [[Day.md|Day]]; [[Eternity.md|Eternity]]; [[Generation.md|Generation]]; [[Hour.md|Hour]]; [[Season [noun].md|Season [noun]]]
 
 In the *beginning* God created, [[Genesis 1.1|Genesis 1:1]].
@@ -9,7 +8,7 @@ God called the light *Day*, [[Genesis 1.5|Genesis 1:5]].
 
 he shall pay for the loss of his *time*, [[Exodus 21.19|Exodus 21:19]].
 
-neither ... observe *times*, [[Leviticus 19.26|Leviticus 19:26]].
+neither … observe *times*, [[Leviticus 19.26|Leviticus 19:26]].
 
 I will add unto thy *days* fifteen years, [[2 Kings 20.6|2 Kings 20:6]].
 
@@ -23,9 +22,9 @@ Remember how short my *time* is, [[Psalms 89.47|Psalms 89:47]].
 
 thousand *years* in thy sight are but as yesterday, [[Psalms 90.4|Psalms 90:4]].
 
-*time* to every purpose under the heaven, [[Ecclesiastes 3.1|Ecclesiastes 3:1]] ([[Ecclesiastes 3.1|3:1-11]][[Ecclesiastes 3.2|]][[Ecclesiastes 3.3|]][[Ecclesiastes 3.4|]][[Ecclesiastes 3.5|]][[Ecclesiastes 3.6|]][[Ecclesiastes 3.7|]][[Ecclesiastes 3.8|]][[Ecclesiastes 3.9|]][[Ecclesiastes 3.10|]][[Ecclesiastes 3.11|]]).
+*time* to every purpose under the heaven, [[Ecclesiastes 3.1|Ecclesiastes 3:1]].
 
-wise man's heart discerneth both *time* and judgment, [[Ecclesiastes 8.5|Ecclesiastes 8:5]].
+wise man’s heart discerneth both *time* and judgment, [[Ecclesiastes 8.5|Ecclesiastes 8:5]].
 
 In an acceptable *time* have I heard thee, [[Isaiah 49.8|Isaiah 49:8]] ([[2 Corinthians 6.2|2 Corinthians 6:2]]).
 
@@ -47,7 +46,7 @@ can ye not discern the signs of the *times*, [[Matthew 16.3|Matthew 16:3]] ([[Lu
 
 I say not unto thee, Until seven *times*: but, Until seventy *times* seven, [[Matthew 18.22|Matthew 18:22]].
 
-for the elect's sake those *days* shall be shortened, [[Matthew 24.22|Matthew 24:22]].
+for the elect’s sake those *days* shall be shortened, [[Matthew 24.22|Matthew 24:22]].
 
 My *time* is at hand, [[Matthew 26.18|Matthew 26:18]].
 
@@ -55,7 +54,7 @@ My *time* is at hand, [[Matthew 26.18|Matthew 26:18]].
 
 ye know not when the *time* is, [[Mark 13.33|Mark 13:33]].
 
-Jerusalem shall be trodden down ... until the *times* of the Gentiles, [[Luke 21.24|Luke 21:24]].
+Jerusalem shall be trodden down … until the *times* of the Gentiles, [[Luke 21.24|Luke 21:24]].
 
 No man hath seen God at any *time*, [[John 1.18|John 1:18]] ([[1 John 4.12|1 John 4:12]]).
 
@@ -73,7 +72,7 @@ in the dispensation of the fulness of *times*, [[Ephesians 1.10|Ephesians 1:10]]
 
 Redeeming the *time*, because the days are evil, [[Ephesians 5.16|Ephesians 5:16]].
 
-of the *times* and the seasons ... ye have no need that I write unto you, [[1 Thessalonians 5.1|1 Thessalonians 5:1]].
+of the *times* and the seasons … ye have no need that I write unto you, [[1 Thessalonians 5.1|1 Thessalonians 5:1]].
 
 in the last days perilous *times* shall come, [[2 Timothy 3.1|2 Timothy 3:1]].
 
@@ -83,13 +82,13 @@ ready to be revealed in the last *time*, [[1 Peter 1.5|1 Peter 1:5]].
 
 one *day* is with the Lord as a thousand years, [[2 Peter 3.8|2 Peter 3:8]].
 
-keep those things ... for the *time* is at hand, [[Revelation 1.3|Revelation 1:3]] ([[Revelation 22.10|Revelation 22:10]]).
+keep those things … for the *time* is at hand, [[Revelation 1.3|Revelation 1:3]] ([[Revelation 22.10|Revelation 22:10]]).
 
 there should be *time* no longer, [[Revelation 10.6|Revelation 10:6]] ([[D&C 88.110|D&C 88:110]]).
 
-devil ... knoweth that he hath but a short *time*, [[Revelation 12.12|Revelation 12:12]].
+devil … knoweth that he hath but a short *time*, [[Revelation 12.12|Revelation 12:12]].
 
-woman ... is nourished for a *time*, and *times*, and half a *time*, [[Revelation 12.14|Revelation 12:14]].
+woman … is nourished for a *time*, and *times*, and half a *time*, [[Revelation 12.14|Revelation 12:14]].
 
 according to the own due *time* of the Lord, [[1 Nephi 10.3|1 Nephi 10:3]].
 
@@ -117,28 +116,24 @@ not idle away thy *time*, [[D&C 60.13|D&C 60:13]].
 
 given to know the signs of the *times*, [[D&C 68.11|D&C 68:11]].
 
-earth during the seven thousand years of ... its *temporal* existence, [[D&C 77.6|D&C 77:6]].
+earth during the seven thousand years of … its *temporal* existence, [[D&C 77.6|D&C 77:6]].
 
 Satan is bound and *time* is no longer, [[D&C 84.100|D&C 84:100]].
 
 move in their *times* and their seasons, [[D&C 88.42|D&C 88:42]].
 
-power of this priesthood given ... for the last *time*, [[D&C 112.30|D&C 112:30]] ([[D&C 128.18|D&C 128:18]]; [[D&C 138.48|D&C 138:48]]).
+power of this priesthood given … for the last *time*, [[D&C 112.30|D&C 112:30]] ([[D&C 128.18|D&C 128:18]]; [[D&C 138.48|D&C 138:48]]).
 
-God hath set his hand ... to change the *times*, [[D&C 121.12|D&C 121:12]].
+God hath set his hand … to change the *times*, [[D&C 121.12|D&C 121:12]].
 
 Thy *days* are known, [[D&C 122.9|D&C 122:9]].
 
-God's *time*, angel's *time*, prophet's *time*, and man's *time*, [[D&C 130.4|D&C 130:4]].
+God’s *time*, angel’s *time*, prophet’s *time*, and man’s *time*, [[D&C 130.4|D&C 130:4]].
 
 anointed, both as well for *time* and for all eternity, [[D&C 132.7|D&C 132:7]].
 
 ministry among those who were dead was limited to the brief *time* intervening between the crucifixion and his resurrection, [[D&C 138.27|D&C 138:27]].
 
-This is the reckoning of the Lord's *time*, [[Abraham 3.4|Abraham 3:4]].
+This is the reckoning of the Lord’s *time*, [[Abraham 3.4|Abraham 3:4]].
 
-it was after the Lord's *time*, [[Abraham 5.13|Abraham 5:13]].
-
-celestial *time* signifies one day to a cubit,.
-
-*See also* [[D&C 64.25|D&C 64:25]].
+it was after the Lord’s *time*, [[Abraham 5.13|Abraham 5:13]].

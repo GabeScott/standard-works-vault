@@ -1,6 +1,8 @@
 # Jesus the Christ
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -10,13 +12,13 @@ Beloved brothers and sisters, we come to the close of this great conference. We 
 
 “And being made perfect, he became the author of eternal salvation unto all them that obey him.” ([[Hebrews 5.8|Heb. 5:8–9]][[Hebrews 5.9|]].)
 
-It was this same Jesus Christ who gave revelations to his prophets and revealed to them also through John the Revelator: “I am Alpha and Omega, the first and the last …
+It was this same Jesus Christ who gave revelations to his prophets and revealed to them also through John the Revelator: “I am Alpha and Omega, the first and the last …
 
 “I am he that liveth, and was dead; and, behold, I am alive for evermore, Amen; and have the keys of hell and of death.” ([[Revelation 1.11|Rev. 1:11, 18]][[Revelation 1.18|]].)
 
 It was He, Jesus Christ, in his glorified state who came to the ancestors of the Indians, who is variously known by them as the Great White Spirit, the Fair God and numerous other names.
 
-It was He, Jesus Christ, our Savior, who was introduced to surprised listeners at Jordan (see [[Matthew 3.13|Matt. 3:13–17]][[Matthew 3.14|]][[Matthew 3.15|]][[Matthew 3.16|]][[Matthew 3.17|]]), at the holy Mount of Transfiguration (see [[Matthew 17.1|Matt. 17:1–9]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]][[Matthew 17.5|]][[Matthew 17.6|]][[Matthew 17.7|]][[Matthew 17.8|]][[Matthew 17.9|]]), at the temple of the Nephites (see [[3 Nephi 11.1|3 Ne. 11–26]][[3 Nephi 11.2|]][[3 Nephi 11.3|]][[3 Nephi 11.4|]][[3 Nephi 11.5|]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]][[3 Nephi 11.12|]][[3 Nephi 11.13|]][[3 Nephi 11.14|]][[3 Nephi 11.15|]][[3 Nephi 11.16|]][[3 Nephi 11.17|]][[3 Nephi 11.18|]][[3 Nephi 11.19|]][[3 Nephi 11.20|]][[3 Nephi 11.21|]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]][[3 Nephi 11.40|]][[3 Nephi 11.41|]]), and in the grove at Palmyra, New York (see [[Joseph Smith History 1.17|JS—H 1:17–25]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]][[Joseph Smith History 1.21|]][[Joseph Smith History 1.22|]][[Joseph Smith History 1.23|]][[Joseph Smith History 1.24|]][[Joseph Smith History 1.25|]]); and the introducing person was none other than his actual Father, the holy Elohim, in whose image he was and whose will he carried out.
+It was He, Jesus Christ, our Savior, who was introduced to surprised listeners at Jordan (see [[Matthew 3.13|Matt. 3:13–17]][[Matthew 3.14|]][[Matthew 3.15|]][[Matthew 3.16|]][[Matthew 3.17|]]), at the holy Mount of Transfiguration (see [[Matthew 17.1|Matt. 17:1–9]][[Matthew 17.2|]][[Matthew 17.3|]][[Matthew 17.4|]][[Matthew 17.5|]][[Matthew 17.6|]][[Matthew 17.7|]][[Matthew 17.8|]][[Matthew 17.9|]]), at the temple of the Nephites (see [[3 Nephi 11.1|3 Ne. 11–26]]), and in the grove at Palmyra, New York (see [[Joseph Smith History 1.17|JS—H 1:17–25]][[Joseph Smith History 1.18|]][[Joseph Smith History 1.19|]][[Joseph Smith History 1.20|]][[Joseph Smith History 1.21|]][[Joseph Smith History 1.22|]][[Joseph Smith History 1.23|]][[Joseph Smith History 1.24|]][[Joseph Smith History 1.25|]]); and the introducing person was none other than his actual Father, the holy Elohim, in whose image he was and whose will he carried out.
 
 Many people have grown up with the idea that it was the Father who was in charge through the Old Testament history days whenever the title God or Lord was used.
 
@@ -36,9 +38,9 @@ And Abraham declared, “Thus I, Abraham, talked with the Lord, face to face, as
 
 And Moses said concerning his Maker: “And he \[Moses\] saw God face to face, … and the glory of God was upon Moses; therefore Moses could endure his presence.
 
-“And God spake unto Moses, saying: Behold, I am the Lord God Almighty, and Endless is my name. …” ([[Moses 1.2|Moses 1:2–3]][[Moses 1.3|]].)
+“And God spake unto Moses, saying: Behold, I am the Lord God Almighty, and Endless is my name. …” ([[Moses 1.2|Moses 1:2–3]][[Moses 1.3|]].)
 
-In the first century in this land the people who had read the scriptures and realized they were about to be fulfilled gathered in a great multitude around and about the temple in the land Bountiful. As they marveled and wondered, conversing about this Jesus Christ, of whom the sign had been given concerning his death, and “while they were thus conversing one with another, they heard a voice as if it came out of heaven …
+In the first century in this land the people who had read the scriptures and realized they were about to be fulfilled gathered in a great multitude around and about the temple in the land Bountiful. As they marveled and wondered, conversing about this Jesus Christ, of whom the sign had been given concerning his death, and “while they were thus conversing one with another, they heard a voice as if it came out of heaven …
 
 “It did pierce them to the very soul, and did cause their hearts to burn.
 
@@ -52,9 +54,9 @@ In the first century in this land the people who had read the scriptures and rea
 
 “Behold, I am Jesus Christ, whom the prophets testified shall come into the world.
 
-“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” ([[3 Nephi 11.3|3 Ne. 11:3, 6–11]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]].)
+“And behold, I am the light and the life of the world; and I have drunk out of that bitter cup which the Father hath given me, and have glorified the Father in taking upon me the sins of the world, in the which I have suffered the will of the Father in all things from the beginning.” ([[3 Nephi 11.3|3 Ne. 11:3, 6–11]][[3 Nephi 11.6|]][[3 Nephi 11.7|]][[3 Nephi 11.8|]][[3 Nephi 11.9|]][[3 Nephi 11.10|]][[3 Nephi 11.11|]].)
 
-After a long dissertation in which he explained to them the doctrines of Christianity, he said, “Behold, ye have both heard my voice, and seen me.” ([[3 Nephi 15.24|3 Ne. 15:24]].)
+After a long dissertation in which he explained to them the doctrines of Christianity, he said, “Behold, ye have both heard my voice, and seen me.” ([[3 Nephi 15.24|3 Ne. 15:24]].)
 
 “When Jesus came into the coasts of Caesarea Philippi, he asked his disciples, saying, Whom do men say that I the Son of man am?
 
@@ -90,7 +92,7 @@ Then we have the testimony of Peter: “Yea, I think it meet, as long as I am in
 
 “For he received from God the Father honour and glory, when there came such a voice to him from the excellent glory, This is my Beloved Son, in whom I am well pleased.
 
-“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.13|2 Pet. 1:13–18]][[2 Peter 1.14|]][[2 Peter 1.15|]][[2 Peter 1.16|]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
+“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.13|2 Pet. 1:13–18]][[2 Peter 1.14|]][[2 Peter 1.15|]][[2 Peter 1.16|]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
 
 These are indeed great testimonies of our Savior, Jesus Christ.
 
@@ -101,8 +103,3 @@ Now brethren and sisters, it has been glorious to be with you. May peace be with
 
 
 
-
-
-
-
-#Jesus_Christ

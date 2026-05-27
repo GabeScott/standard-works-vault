@@ -1,6 +1,8 @@
 # The Time to Labor Is Now
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the October session of the 1975 General Conference*
 
@@ -8,7 +10,7 @@ By President Spencer W. Kimball - *President of the Church*
 
 We welcome you to this general conference, whether in the building or on the air. We convey to you our best wishes and our affection.
 
-Today we announce to you the appointment of four new General Authorities to assist in the carrying forth of the work of the Lord, especially in the missionary area. Elder Gene R. Cook of Bountiful, Utah, formerly executive secretary of the First Council of the Seventy, will become a member of the First Council of the Seventy. The First Quorum of the Seventy will be gradually organized, eventually with seventy members, the presidency of which will be made up of the seven members. Three Brethren this day will be added to the First Quorum of the Seventy. They are Charles A. Didier, a native of Belgium, now of Frankfurt, Germany, a seventy; William Rawsel Bradford of San Antonio, Texas, now president of the Chile Santiago Mission, a seventy; Elder George Patrick Lee of Towaoc, Colorado, and Shiprock, New Mexico, a seventy, now serving as president of the Arizona Holbrook Mission. These four men will assume and carry out the responsibilities of General Authorities. These four General Authorities will be presented with the other General Authorities for your vote a little later in the conference.
+Today we announce to you the appointment of four new General Authorities to assist in the carrying forth of the work of the Lord, especially in the missionary area. Elder Gene R. Cook of Bountiful, Utah, formerly executive secretary of the First Council of the Seventy, will become a member of the First Council of the Seventy. The First Quorum of the Seventy will be gradually organized, eventually with seventy members, the presidency of which will be made up of the seven members. Three Brethren this day will be added to the First Quorum of the Seventy. They are Charles A. Didier, a native of Belgium, now of Frankfurt, Germany, a seventy; William Rawsel Bradford of San Antonio, Texas, now president of the Chile Santiago Mission, a seventy; Elder George Patrick Lee of Towaoc, Colorado, and Shiprock, New Mexico, a seventy, now serving as president of the Arizona Holbrook Mission. These four men will assume and carry out the responsibilities of General Authorities. These four General Authorities will be presented with the other General Authorities for your vote a little later in the conference.
 
 In February and March of this year, we held area conferences in Sao Paulo, Brazil, and Buenos Aires, Argentina. Then in August we held conferences in Taiwan, Hong Kong, the Philippine Islands, Korea, and Japan. The 114,000 estimated people in the five years of these area conferences could not possibly have come to Salt Lake to general conference, so we are taking the conferences to them.
 
@@ -40,13 +42,13 @@ We had a message from one Japanese brother who said, “Now I have planted a gar
 
 The Lord said, as he planted a garden in Eden,
 
-“… all things which I prepared for the use of man; and man saw that it was good for food.” ([[Moses 3.8|Moses 3:8–9]][[Moses 3.9|]].)
+“… all things which I prepared for the use of man; and man saw that it was good for food.” ([[Moses 3.8|Moses 3:8–9]][[Moses 3.9|]].)
 
 “And I, the Lord God, took the man, and put him into the Garden of Eden, to dress it, and to keep it.” ([[Moses 3.15|Moses 3:15]].)
 
 In our own dispensation the Lord spoke:
 
-“The fulness of the earth is yours, the beasts of the field and the fowls of the air, …
+“The fulness of the earth is yours, the beasts of the field and the fowls of the air, …
 
 “Yea, and the herb, and the good things which come of the earth, whether for food or for raiment, or for houses, or for barns, or for orchards, or for gardens, or for vineyards;
 
@@ -56,7 +58,7 @@ In our own dispensation the Lord spoke:
 
 A letter from a little girl said, “I am helping my daddy plant a garden, and my little brother is cleaning the yard.”
 
-The Bicentennial project of the *Deseret News* and the Utah State Institute of Fine Arts, also encouraged by our Utah governor, Calvin L. Rampton, was to plant a million trees for a million people. We hope you will give this serious thought. The trees can beautify and bless, and the fruit trees can help in your living requirements.
+The Bicentennial project of the *Deseret News* and the Utah State Institute of Fine Arts, also encouraged by our Utah governor, Calvin L. Rampton, was to plant a million trees for a million people. We hope you will give this serious thought. The trees can beautify and bless, and the fruit trees can help in your living requirements.
 
 A letter came from a rural area addressed to me. It said, “Following your advice, we appraised our lot and became ashamed of it. It was a pioneer rural home with the usual barn, chicken house, and sheds. The outside fence was broken.
 
@@ -96,7 +98,7 @@ We are, for many other important reasons, urging our young people to consider th
 
 We decry abortions and ask our people to refrain from this serious transgression. We have stated the following regarding this sin:
 
-“The Church \[vigorously\] opposes abortion and counsels its members not to submit to or perform an abortion. …
+“The Church \[vigorously\] opposes abortion and counsels its members not to submit to or perform an abortion. …
 
 “Abortion must be considered one of the most revolting and sinful practices in this day, when we are witnessing the frightening evidence of permissiveness leading to sexual immorality.
 
@@ -122,7 +124,7 @@ Again we repeat the stirring words of the Savior: “Why call ye me, Lord, Lord,
 
 And then again he said, “Say nothing but repentance unto this generation.” ([[D&C 6.9|D&C 6:9]].)
 
-“And I will bring distress upon men,” he says, “that they shall walk like blind men, because they have sinned against the Lord: and their blood shall be poured out as dust. …
+“And I will bring distress upon men,” he says, “that they shall walk like blind men, because they have sinned against the Lord: and their blood shall be poured out as dust. …
 
 “Neither their silver nor their gold shall be able to deliver them in the day of the Lord’s wrath; but the whole land shall be devoured by the fire of his jealousy: for he shall make even a speedy riddance of all that dwell in the land.” ([[Zephaniah 1.17|Zeph. 1:17–18]][[Zephaniah 1.18|]].)
 
@@ -135,5 +137,3 @@ As we enter into these sessions of this conference, may we invoke the blessings 
 
 
 
-
-#Abortion #Family #Loyalty #Missionary_Work #Morality #Work

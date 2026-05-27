@@ -1,6 +1,8 @@
 # Love Unconditional
 
-By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder Marion D. Hanks - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -18,11 +20,11 @@ As that happened, Alma offered to the Lord the kind of prayer that is in our hea
 
 I recently had called to my attention by Brother Joe Christensen an excerpt from Church history that I would like to share with you in part. In the *Documentary History of the Church* (vol. 5, pp. 320–21) is “A Short Sketch of the Rise of the ‘Young Gentlemen and Ladies Relief Society’ from the *Times and Seasons.*” You will observe, as the annotator says, that this has more to do with youth than with the Relief Society, but that was the heading.
 
-“In the latter part of January, 1843, a number of young people assembled at the house of Elder Heber C. Kimball \[you realize that the Prophet Joseph Smith is writing this\] who warned them against the various temptations to which youth is exposed, and gave an appointment expressly for the young at the house of Elder Billings; and another meeting was held in the ensuing week, at Brother Farr’s school-room, which was filled to overflowing. Elder Kimball delivered addresses, exhorting the young people to study the scriptures, and enable themselves to ‘give a reason for the hope within them,’ and to be ready to go on to the stage of action, when their present instructors and leaders had gone behind the scenes; also to keep good company and to keep pure and unspotted from the world.”
+“In the latter part of January, 1843, a number of young people assembled at the house of Elder Heber C. Kimball \[you realize that the Prophet Joseph Smith is writing this\] who warned them against the various temptations to which youth is exposed, and gave an appointment expressly for the young at the house of Elder Billings; and another meeting was held in the ensuing week, at Brother Farr’s school-room, which was filled to overflowing. Elder Kimball delivered addresses, exhorting the young people to study the scriptures, and enable themselves to ‘give a reason for the hope within them,’ and to be ready to go on to the stage of action, when their present instructors and leaders had gone behind the scenes; also to keep good company and to keep pure and unspotted from the world.”
 
 The Prophet then notes that the next meeting was held at his house, and though the weather was inclement, there were many there, to overflowing.
 
-“Elder Kimball,” he writes, “as usual, delivered an address, warning his hearers against giving heed to their youthful passions, and exhorting them to be obedient and to pay strict attention to the advice of their parents. …”
+“Elder Kimball,” he writes, “as usual, delivered an address, warning his hearers against giving heed to their youthful passions, and exhorting them to be obedient and to pay strict attention to the advice of their parents. …”
 
 The Prophet then says something that has touched me and I think will touch you who work with youth: “I experienced more embarrassment in standing before them than I should before kings and nobles of the earth; for I knew the crimes of which the latter were guilty, and I knew precisely how to address them; but my young friends were guilty of none of them, and therefore I hardly knew what to say. I advised them to organize themselves into a society for the relief of the poor, and recommended to them a poor lame English brother … who wanted a house built, that he might have a home amongst the Saints; that he had gathered a few materials for the purpose, but was unable to use them, and he has petitioned for aid. I advised them to choose a committee to collect funds for this purpose, and perform this charitable act as soon as the weather permitted. I gave them such advice as I deemed was calculated to guide their conduct through life and prepare them for a glorious eternity.”
 
@@ -59,8 +61,3 @@ God bless us to love them, to accept them, to give to them what they need in ord
 
 
 
-
-
-
-
-#Love #Parenthood #Youth

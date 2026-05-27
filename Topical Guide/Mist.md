@@ -1,6 +1,5 @@
 # Mist
 
-
 went up a *mist* from the earth, [[Genesis 2.6|Genesis 2:6]] ([[Moses 3.6|Moses 3:6]]; [[Abraham 5.6|Abraham 5:6]]).
 
 there fell on him a *mist* and a darkness, [[Acts 13.11|Acts 13:11]].

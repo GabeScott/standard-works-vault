@@ -1,7 +1,6 @@
 # Silver
 
-
-put my cup, the *silver* cup, in the sack's mouth, [[Genesis 44.2|Genesis 44:2]].
+put my cup, the *silver* cup, in the sack’s mouth, [[Genesis 44.2|Genesis 44:2]].
 
 borrowed of the Egyptians jewels of *silver*, [[Exodus 12.35|Exodus 12:35]].
 
@@ -35,12 +34,12 @@ Peter said, *Silver* and gold have I none, [[Acts 3.6|Acts 3:6]].
 
 silversmith, which made *silver* shrines, [[Acts 19.24|Acts 19:24]].
 
-he left ... his gold, and his *silver*, [[1 Nephi 2.4|1 Nephi 2:4]].
+he left … his gold, and his *silver*, [[1 Nephi 2.4|1 Nephi 2:4]].
 
 I also saw gold, and *silver*, [[1 Nephi 13.7|1 Nephi 13:7]].
 
 did find all manner of ore, both of gold, and of *silver*, [[1 Nephi 18.25|1 Nephi 18:25]] ([[2 Nephi 5.15|2 Nephi 5:15]]).
 
-abundance of ... *silver*, [[Alma 1.29|Alma 1:29]] ([[Helaman 6.9|Helaman 6:9]]; [[Ether 9.17|Ether 9:17]]).
+abundance of … *silver*, [[Alma 1.29|Alma 1:29]] ([[Helaman 6.9|Helaman 6:9]]; [[Ether 9.17|Ether 9:17]]).
 
 he shall sit as a refiner and purifier of *silver*, [[D&C 128.24|D&C 128:24]].

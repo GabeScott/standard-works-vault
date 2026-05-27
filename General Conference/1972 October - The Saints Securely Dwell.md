@@ -1,6 +1,8 @@
 # The Saints Securely Dwell
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+N. Eldon Tanner
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -135,8 +137,3 @@ I bear witness that Jesus is the Christ. This is his church and kingdom. We hold
 
 
 
-
-
-
-
-#Home_Teaching

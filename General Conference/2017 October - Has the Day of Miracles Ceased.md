@@ -1,6 +1,8 @@
 # Has the Day of Miracles Ceased?
 
-By Elder Donald L. Hallstrom - *Of the Seventy*
+Sharon Eubank
+
+By Elder Donald L. Hallstrom - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -10,9 +12,9 @@ By Elder Donald L. Hallstrom - *Of the Seventy*
 
 A year ago, on assignment in the state of California, I went with a stake president to visit with Clark and Holly Fales and their family in their home. I was told they recently had experienced a miracle. Upon our arrival, Clark struggled to stand and greet us as he was wearing a back brace, a neck brace, and braces on his arms.
 
-Just over two months prior, Clark, his son Ty, and about 30 other young men and leaders set out on a stake high-adventure activity, hiking to the 14,180-foot (4,322 m) summit of Mount Shasta, one of the highest peaks in California. On the second day of the arduous hike, most of the climbers reached the summit—a thrilling accomplishment made possible because of months of preparation.
+Just over two months prior, Clark, his son Ty, and about 30 other young men and leaders set out on a stake high-adventure activity, hiking to the 14,180-foot (4,322 m) summit of Mount Shasta, one of the highest peaks in California. On the second day of the arduous hike, most of the climbers reached the summit—a thrilling accomplishment made possible because of months of preparation.
 
-One of the first people to the top that day was Clark. After a brief rest near the edge of the summit, he stood and began to walk. As he did, he tripped and fell backward over the edge of a cliff, suffering a free fall of about 40 feet (12 m) and then an out-of-control tumble down the icy slope for another 300 feet (91 m). Remarkably, Clark survived, but he was severely injured and unable to move.
+One of the first people to the top that day was Clark. After a brief rest near the edge of the summit, he stood and began to walk. As he did, he tripped and fell backward over the edge of a cliff, suffering a free fall of about 40 feet (12 m) and then an out-of-control tumble down the icy slope for another 300 feet (91 m). Remarkably, Clark survived, but he was severely injured and unable to move.
 
 The miracles Clark experienced during this traumatic event were just beginning. Some of the first to reach him “happened” to be a group of hikers that included mountain rescue guides and emergency medical professionals. They immediately treated Clark for shock and provided gear to keep him warm. This group also “happened” to be testing a new communication device and sent an emergency request for help from an area where cell phones could not get a signal. A small helicopter was immediately dispatched to Mount Shasta from an hour away. After two dangerous but unsuccessful attempts to land at an altitude that pushed the limits of the aircraft, and struggling with treacherous wind conditions, the pilot began a third and final try. As the helicopter approached from a different angle, the winds “happened” to change and the aircraft landed just long enough for the group to quickly and painfully squeeze Clark into the small compartment behind the pilot’s seat.
 
@@ -40,7 +42,7 @@ These three devout disciples said: “If it be so, our God whom we serve is able
 
 They possessed full confidence that God could save them, “but if not,” they had complete faith in His plan.
 
-Similarly, Elder David A. Bednar once asked a young man who had requested a priesthood blessing, “If it is the will of our Heavenly Father that you are transferred by death in your youth to the spirit world to continue your ministry, do you have the faith to submit to His will and not be healed?”[^8] Do *we* have the faith “not \[to\] be healed” from our earthly afflictions so we might be healed eternally?
+Similarly, Elder David A. Bednar once asked a young man who had requested a priesthood blessing, “If it is the will of our Heavenly Father that you are transferred by death in your youth to the spirit world to continue your ministry, do you have the faith to submit to His will and not be healed?”[^8] Do *we* have the faith “not \[to\] be healed” from our earthly afflictions so we might be healed eternally?
 
 A critical question to ponder is “Where do we place our faith?” Is our faith focused on simply wanting to be relieved of pain and suffering, or is it firmly centered on God the Father and His holy plan and in Jesus the Christ and His Atonement? Faith in the Father and the Son allows us to understand and accept Their will as we prepare for eternity.
 
@@ -65,7 +67,7 @@ While it is good to pray for and work for physical protection and healing during
 
 [^7]: [[Daniel 3.17|Daniel 3:17–18]][[Daniel 3.18|]].
 
-[^8]: David A. Bednar, “[Accepting the Lord’s Will and Timing](https://churchofjesuschrist.org/study/liahona/2016/08/accepting-the-lords-will-and-timing?lang=eng),” *Ensign,* Aug. 2016, 31–32; *Liahona,* Aug. 2016, 19–20.
+[^8]: David A. Bednar, “[Accepting the Lord’s Will and Timing](https://www.churchofjesuschrist.org/study/liahona/2016/08/accepting-the-lords-will-and-timing?lang=eng),” *Ensign,* Aug. 2016, 31–32; *Liahona,* Aug. 2016, 19–20.
 
 [^9]: See [[Psalms 82.6|Psalm 82:6]]; [[Acts 17.29|Acts 17:29]].
 
@@ -75,7 +77,5 @@ While it is good to pray for and work for physical protection and healing during
 
 [^12]: See [[Matthew 20.28|Matthew 20:28]]; [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]]; [[D&C 76.69|Doctrine and Covenants 76:69]].
 
+[^13]: See [[John 10.28|John 10:28]]; [[Moroni 7.41|Moroni 7:41]]; [[D&C 45.8|Doctrine and Covenants 45:8]].
 
-
-
-#Adversity #Atonement #Faith #Healing #Miracles #Plan_Of_Salvation

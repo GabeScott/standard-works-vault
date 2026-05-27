@@ -1,5 +1,7 @@
 # Till We Meet Again
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2010 General Conference*
@@ -18,7 +20,7 @@ To our Brethren who have been released at this conference, may I express the hea
 
 The Tabernacle Choir and other choirs which participated in the sessions have provided truly heavenly music that has enhanced and beautified all else which has taken place. I thank you for sharing with us your musical talents and abilities.
 
-I love and appreciate my faithful counselors, President Henry B. Eyring and President Dieter F. Uchtdorf. They are truly men of wisdom and understanding, and their service is invaluable. I could not do all that I am called upon to do without their support and assistance. I love and admire my Brethren of the Quorum of the Twelve Apostles and all in the Quorums of the Seventy and in the Presiding Bishopric. They serve selflessly and effectively. I similarly express my appreciation for the women and men who serve as general auxiliary officers.
+I love and appreciate my faithful counselors, President Henry B. Eyring and President Dieter F. Uchtdorf. They are truly men of wisdom and understanding, and their service is invaluable. I could not do all that I am called upon to do without their support and assistance. I love and admire my Brethren of the Quorum of the Twelve Apostles and all in the Quorums of the Seventy and in the Presiding Bishopric. They serve selflessly and effectively. I similarly express my appreciation for the women and men who serve as general auxiliary officers.
 
 How blessed we are to have the restored gospel of Jesus Christ. It provides answers to questions concerning where we came from, why we are here, and where we will go when we pass from this life. It provides meaning and purpose and hope to our lives.
 
@@ -37,8 +39,3 @@ I love you; I pray for you. I bid you farewell till we meet again in six months�
 
 [^1]: [[Mosiah 5.2|Mosiah 5:2]].
 
-
-
-
-
-#General_Conference

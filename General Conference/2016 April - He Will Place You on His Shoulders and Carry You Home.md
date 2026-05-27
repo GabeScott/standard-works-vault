@@ -1,6 +1,8 @@
 # He Will Place You on His Shoulders and Carry You Home
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Cheryl A. Esplin
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -163,8 +165,3 @@ This is my testimony, my blessing, and my humble prayer in the sacred name of ou
 
 [^13]: See [[John 8.12|John 8:12]].
 
-
-
-
-
-#Discipleship #Divine_Nature #Faith #Heavenly_Father #Hope #Jesus_Christ #Obedience

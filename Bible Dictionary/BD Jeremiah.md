@@ -16,6 +16,6 @@ The main divisions of the books are as follows:
 
 Notable passages from Jeremiah include the following: [[Jeremiah 1.4|1:4–5]][[Jeremiah 1.5|]], an acknowledgment of man’s premortal existence, and Jeremiah’s foreordination; [[Jeremiah 3.12|3:12–19]][[Jeremiah 3.13|]][[Jeremiah 3.14|]][[Jeremiah 3.15|]][[Jeremiah 3.16|]][[Jeremiah 3.17|]][[Jeremiah 3.18|]][[Jeremiah 3.19|]], prophecy of the return of Israel from the scattered condition, gathering one of a city and two of a family to Zion, a pleasant land where Israel and Judah can dwell in safety and peace; [[Jeremiah 16.14|16:14–21]][[Jeremiah 16.15|]][[Jeremiah 16.16|]][[Jeremiah 16.17|]][[Jeremiah 16.18|]][[Jeremiah 16.19|]][[Jeremiah 16.20|]][[Jeremiah 16.21|]], a prophecy of the Lord gathering Israel from the north countries by sending many fishers and hunters to find them. This event of the latter days will supersede in proportion even the bringing of Israel out of Egypt by Moses.
 
-Some of Jeremiah’s prophecies were contained in the brass plates of Laban secured by Nephi ([[1 Nephi 5.10|1 Ne. 5:10–13]][[1 Nephi 5.11|]][[1 Nephi 5.12|]][[1 Nephi 5.13|]]). Jeremiah is also mentioned two other times in the Book of Mormon ([[1 Nephi 7.14|1 Ne. 7:14]]; [[Helaman 8.20|Hel. 8:20]]).
+Some of Jeremiah’s prophecies were contained in the brass plates of Laban secured by Nephi ([[1 Nephi 5.10|1 Ne. 5:10–13]][[1 Nephi 5.11|]][[1 Nephi 5.12|]][[1 Nephi 5.13|]]). Jeremiah is also mentioned two other times in the Book of Mormon ([[1 Nephi 7.14|1 Ne. 7:14]]; [[Helaman 8.20|Hel. 8:20]]).
 
 

@@ -5,4 +5,4 @@
 [Joseph Smith History 1:27](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-h/1.27?lang=eng#p27)
 
 
-[^a]: [[2 Corinthians 1.12|2 Cor. 1:12.]]
+[^a]: [[2 Corinthians 1.12|2 Cor. 1:12]].  

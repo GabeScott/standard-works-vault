@@ -1,5 +1,7 @@
 # Unwanted Messages
 
+Ezra Taft Benson
+
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1986 General Conference*
@@ -8,11 +10,11 @@ By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 I humbly and prayerfully hope that what I have to say will be received in the spirit that I would like to convey. We have just heard the prophet of God. He is a watchman on the tower. He has raised a warning voice. I would urge all to listen and follow his counsel. It is tremendously important always to be in harmony with those who, according to Paul, have “watch for your souls, as they that must give account, that they may do it with joy, and not with grief” ([[Hebrews 13.17|Heb. 13:17]]).
 
-Isaiah spoke of a people who did not care to listen to their prophets and seers, who were urged, “Say to the seers, See not; and to the prophets, Prophesy not unto us right things, speak unto us smooth things, prophesy deceits” ([[Isaiah 30.10|Isa. 30:10]]). Nephi explained, “The guilty taketh the truth to be hard, for it cutteth them to the very center” ([[1 Nephi 16.2|1 Ne. 16:2]]).
+Isaiah spoke of a people who did not care to listen to their prophets and seers, who were urged, “Say to the seers, See not; and to the prophets, Prophesy not unto us right things, speak unto us smooth things, prophesy deceits” ([[Isaiah 30.10|Isa. 30:10]]). Nephi explained, “The guilty taketh the truth to be hard, for it cutteth them to the very center” ([[1 Nephi 16.2|1 Ne. 16:2]]).
 
 President Spencer W. Kimball spoke of the duty of prophets. He said:
 
-“I am sure that Peter and James and Paul found it unpleasant business to constantly be calling people to repentance and warning them of dangers, but they continued unflinchingly. So we, your leaders, must be everlastingly at it; if young people do not understand, then the fault may be partly ours. But, if we make the true way clear to you, then we are blameless” (“Love Versus Lust,” *Brigham Young University Speeches of the Year,* Provo, Utah, 5 Jan. 1965, p. 6). I wish to speak today of unwanted messages. My purpose in doing so is to attempt to give strength against mistakes, suffering, heartache, and anguish.
+“I am sure that Peter and James and Paul found it unpleasant business to constantly be calling people to repentance and warning them of dangers, but they continued unflinchingly. So we, your leaders, must be everlastingly at it; if young people do not understand, then the fault may be partly ours. But, if we make the true way clear to you, then we are blameless” (“Love Versus Lust,” *Brigham Young University Speeches of the Year,* Provo, Utah, 5 Jan. 1965, p. 6). I wish to speak today of unwanted messages. My purpose in doing so is to attempt to give strength against mistakes, suffering, heartache, and anguish.
 
 May I begin by sharing with you a personal experience from a time many years ago when I received an unwelcome but valuable message from my devoted father. After World War II was over, I was married and wanted to get on with my life. My memorable mission was finished before my military service. I was not anxious to become a student again and go back to the university where I had started some eight years before. My intended course would require another three years of intensive study, discipline, and poverty. With all of this in mind I said to my father, “I don’t think I will go back to school. I’ll just get a job or start a business and go forward in my life.” Now, my father had completed law school after World War I as an older student with a wife and three children. His response was typically direct. He said bluntly, “What can you do?” His answer was so brutally honest that it hurt, but I could not ignore it. I went back to the university and completed the course. This frank but well-intentioned message changed my life.
 
@@ -46,7 +48,7 @@ Some years ago I created a stake on one of the islands in Japan. As usual, we he
 
 Besides being one of God’s commandments, the kind, thoughtful consideration of parents is a matter of common decency and self-respect. On their part, parents need to live so as to be worthy of the respect of their children.
 
-I cannot help wondering about parents who adopt the attitude with their children, “do as I say, not as I do” with respect to using harmful substances, going to inappropriate movies, and other questionable activities. Children often take license from their parents’ behavior and go beyond the values the parents wish to establish. There is one safe parental rule: do not just avoid evil, avoid the very appearance of evil (see [[1 Thessalonians 5.22|1 Thes. 5:22]]).
+I cannot help wondering about parents who adopt the attitude with their children, “do as I say, not as I do” with respect to using harmful substances, going to inappropriate movies, and other questionable activities. Children often take license from their parents’ behavior and go beyond the values the parents wish to establish. There is one safe parental rule: do not just avoid evil, avoid the very appearance of evil (see [[1 Thessalonians 5.22|1 Thes. 5:22]]).
 
 I should like to speak of one more strong message. It is frequently astounding to see the dereliction of people in keeping the standards of ordinary fairness and justice. This delinquency manifests itself in so many ways. It is sometimes evident in commercial transactions, as well as in private contacts. Injustice to others is manifest even in the way automobiles are sometimes driven. This unfairness and injustice results principally from one person seeking an advantage or an edge over another. Those who follow such a practice demean themselves greatly. How can those of us who do not practice ordinary fairness and justice have serious claim on the blessings of a just and a fair God?
 
@@ -60,7 +62,7 @@ During all of my ministry, I have been fascinated by the manner in which Jesus h
 
 There is one unerring voice that is ever true. It can always be relied upon. It should be listened to, although at times this voice too may speak unwelcome warning messages. I speak of the still, small, inner voice which comes from the divine source. As the prophet Elijah learned, “the Lord was not in the wind: and after the wind an earthquake; but the Lord was not in the earthquake:
 
-“And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice” ([[1 Kings 19.11|1 Kgs. 19:11–12]][[1 Kings 19.12|]]).
+“And after the earthquake a fire; but the Lord was not in the fire: and after the fire a still small voice” ([[1 Kings 19.11|1 Kgs. 19:11–12]][[1 Kings 19.12|]]).
 
 One single unwanted message may be a call to change our lives; it may lead to the specially tailored opportunity we need. I am grateful that it is never too late to change, to make things right, to leave old activities and habits behind.
 
@@ -69,8 +71,3 @@ I wish to testify that the prophetic messages of this conference will lead any w
 
 
 
-
-
-
-
-#Commandments #Conscience #Forgiveness #Honesty #Justice #Parenthood

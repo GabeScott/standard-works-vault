@@ -1,6 +1,8 @@
 # Church Welfare—Temporal Service in a Spiritual Setting
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1980 General Conference*
 
@@ -34,9 +36,9 @@ In October 1936, the Presidency of the Church issued this statement, which conti
 
 As a people and as a Church, we accept as fundamental truth the proposition that the responsibility for one’s own economic maintenance rests (1) upon himself; (2) upon his family; and (3) upon the Church, if he is a faithful member thereof.
 
-Welfare work divides itself into three main divisions. First is the basic doctrine of being self-sustaining to the full extent of one’s ability. By applying the principles of personal and family preparedness, sometimes referred to as temporal welfare, we are to provide our own needs. So doing puts us in position to share our surplus with others. In his April 1937 conference talk, President J. Reuben Clark outlined the course of independence which should be followed by every member of the Church. He there said:
+Welfare work divides itself into three main divisions. First is the basic doctrine of being self-sustaining to the full extent of one’s ability. By applying the principles of personal and family preparedness, sometimes referred to as temporal welfare, we are to provide our own needs. So doing puts us in position to share our surplus with others. In his April 1937 conference talk, President J. Reuben Clark outlined the course of independence which should be followed by every member of the Church. He there said:
 
-“What may we as a people and as individuals do for ourselves to prepare to meet this oncoming disaster, which God in his wisdom may not turn aside from us? …
+“What may we as a people and as individuals do for ourselves to prepare to meet this oncoming disaster, which God in his wisdom may not turn aside from us? …
 
 “Let us avoid debt as we would avoid a plague; where we are now in debt let us get out of debt; if not today, then tomorrow.
 
@@ -46,9 +48,9 @@ Welfare work divides itself into three main divisions. First is the basic doctri
 
 When circumstances combine to require help, it is Church doctrine that one rely upon his family for assistance. Obviously, no one should become a charge upon the public when his relatives are able to care for him. Every consideration of kindness, of justice, of fairness, of the common good, and of humanity requires this.
 
-President Stephen L Richards taught a principle which every family in the Church would do well to bear in mind:
+President Stephen L Richards taught a principle which every family in the Church would do well to bear in mind:
 
-“I think,” said he, that “my food would choke me if \[I\] knew that while I could procure bread my aged father or mother or near kin were on public relief. I believe a decent family pride is a salutary thing with any people and in any nation … , a family pride in wholesome, self-reliant, and enterprising living—a family pride that promotes the utmost solicitude for each member of the family. It wouldn’t hurt my feelings to hear a family boast that through all vicissitudes they had come to each other’s help and had never received public assistance. I have known brothers and sisters to put each other through school by hard, self-sacrificing toil. I cannot imagine any of these permitting their father and mother to come to public relief” (in Conference Report, Oct. 1944, pp. 138–39).
+“I think,” said he, that “my food would choke me if \[I\] knew that while I could procure bread my aged father or mother or near kin were on public relief. I believe a decent family pride is a salutary thing with any people and in any nation … , a family pride in wholesome, self-reliant, and enterprising living—a family pride that promotes the utmost solicitude for each member of the family. It wouldn’t hurt my feelings to hear a family boast that through all vicissitudes they had come to each other’s help and had never received public assistance. I have known brothers and sisters to put each other through school by hard, self-sacrificing toil. I cannot imagine any of these permitting their father and mother to come to public relief” (in Conference Report, Oct. 1944, pp. 138–39).
 
 Finally, aid is available from the Church. It has been so in all dispensations. Paul himself was a welfare worker, in a very modern sense of the term. We find him writing in Romans 15:
 
@@ -64,7 +66,7 @@ The obligation of the Church to help its poor is here placed by Paul on a par wi
 
 “That they do good, that they be rich in good works, ready to distribute, willing to communicate;
 
-“Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life” ([[1 Timothy 6.17|1 Tim. 6:17–19]][[1 Timothy 6.18|]][[1 Timothy 6.19|]]).
+“Laying up in store for themselves a good foundation against the time to come, that they may lay hold on eternal life” ([[1 Timothy 6.17|1 Tim. 6:17–19]][[1 Timothy 6.18|]][[1 Timothy 6.19|]]).
 
 In our day, the Lord has given us this charge:
 
@@ -74,11 +76,11 @@ In our day, the Lord has given us this charge:
 
 “And inasmuch as ye impart of your substance unto the poor, ye will do it unto me; and they shall be laid before the bishop of my church and his counselors, two of the elders, or high priests, such as he shall appoint or has appointed and set apart for that purpose” ([[D&C 42.29|D&C 42:29–31]][[D&C 42.30|]][[D&C 42.31|]]).
 
-The foregoing principles are true when properly applied by members and leaders alike. They bring about the desired end of establishing the Church and building up Zion. It is true, however, that when not properly applied, difficulties follow. Within two-and-a-half years after the original Church welfare plan was put in place by the First Presidency, President J. Reuben Clark made this significant statement in an address in Estes Park, Colorado, 20 June 1939:
+The foregoing principles are true when properly applied by members and leaders alike. They bring about the desired end of establishing the Church and building up Zion. It is true, however, that when not properly applied, difficulties follow. Within two-and-a-half years after the original Church welfare plan was put in place by the First Presidency, President J. Reuben Clark made this significant statement in an address in Estes Park, Colorado, 20 June 1939:
 
 The Church has found that the whole problem is essentially a question of spirituality, rather than of finance or economics \[in getting Church welfare work accomplished\]. Where the spirituality has been high, the Plan has succeeded; where the spirituality is low, the Plan has lagged. The Church has proved there is no substitute for the great commandments: ‘Thou shalt love the Lord thy God with all thy … might, mind, and strength, and thy neighbor as thyself’ \[see [[D&C 59.5|D&C 59:5–6]][[D&C 59.6|]]\]” (*Church Welfare Plan: A Discussion,* General Church Welfare Committee, 1939, pp. 32–33).
 
-While we have made great strides in the program since that day, the principle still applies. Everything we do in welfare services must be measured by its accomplishment in spiritual terms. Givers must give out of a righteous heart and with a willing spirit. Receivers must receive with thankfulness and gladness of heart. The Spirit must confirm a bishop’s evaluation regarding assistance. It must lead a home teacher and a visiting teacher to know how to respond to needs of families to whom they are assigned. With righteous intent, participating in this great work sanctifies the soul and enlarges the mind. As we spiritually mature in fulfilling our welfare responsibilities, whatever they may be, we prepare ourselves to become “partakers of the divine nature” (see [[2 Peter 1.4|2 Pet. 1:4]]). May it be our happy lot to be filled with that measure of spirit that we may be sealed with the bond of charity, which, as Moroni said, “is the pure love of Christ, and it endureth forever; and whoso is found possessed of it at the last day, it shall be well with him.
+While we have made great strides in the program since that day, the principle still applies. Everything we do in welfare services must be measured by its accomplishment in spiritual terms. Givers must give out of a righteous heart and with a willing spirit. Receivers must receive with thankfulness and gladness of heart. The Spirit must confirm a bishop’s evaluation regarding assistance. It must lead a home teacher and a visiting teacher to know how to respond to needs of families to whom they are assigned. With righteous intent, participating in this great work sanctifies the soul and enlarges the mind. As we spiritually mature in fulfilling our welfare responsibilities, whatever they may be, we prepare ourselves to become “partakers of the divine nature” (see [[2 Peter 1.4|2 Pet. 1:4]]). May it be our happy lot to be filled with that measure of spirit that we may be sealed with the bond of charity, which, as Moroni said, “is the pure love of Christ, and it endureth forever; and whoso is found possessed of it at the last day, it shall be well with him.
 
 “Wherefore, my beloved brethren, pray unto the Father with all the energy of heart, that ye may be filled with this love, which he hath bestowed upon all who are true followers of his Son, Jesus Christ; that ye may become the sons of God; that when he shall appear we shall be like him, for we shall see him as he is; that we may have this hope; that we may be purified even as he is pure” ([[Moroni 7.47|Moro. 7:47–48]][[Moroni 7.48|]]).
 
@@ -87,8 +89,3 @@ It is my prayer that each and every one of us will learn and apply these fundame
 
 
 
-
-
-
-
-#Welfare

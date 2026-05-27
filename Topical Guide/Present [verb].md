@@ -1,9 +1,8 @@
 # Present [verb]
 
+*See also* [[Give.md|Give]]; [[Offer.md|Offer]]
 
-*See also* [[Give, Gave, Given.md|Give]]; [[Offer [verb].md|Offer]]
-
-come ... unto mount Sinai, and *present* thyself, [[Exodus 34.2|Exodus 34:2]].
+come … unto mount Sinai, and *present* thyself, [[Exodus 34.2|Exodus 34:2]].
 
 *presented* unto him gifts; gold, and frankincense, [[Matthew 2.11|Matthew 2:11]].
 
@@ -21,4 +20,4 @@ that we may *present* every man perfect in Christ, [[Colossians 1.28|Colossians 
 
 to *present* you faultless before the presence of his glory, [[Jude 1.24|Jude 1:24]].
 
-let us *present* in his holy temple ... a book containing the records of our dead, [[D&C 128.24|D&C 128:24]].
+let us *present* in his holy temple … a book containing the records of our dead, [[D&C 128.24|D&C 128:24]].

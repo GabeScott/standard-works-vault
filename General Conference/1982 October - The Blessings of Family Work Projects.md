@@ -1,5 +1,7 @@
 # The Blessings of Family Work Projects
 
+Spencer W. Kimball
+
 By Dean Jarman - *President, Salt Lake University Second Stake*
 
 *Given in the October session of the 1982 General Conference*
@@ -12,7 +14,7 @@ There are several influences in my life that have instilled in me a desire to te
 
 A few years passed, and dad came home one night with another idea. “Why don’t you boys sell Christmas wreaths?” he said. And thus we were off on another venture. We would go from door to door taking orders, and then we purchased the wreaths from a wholesaler for our customers. For the next several years mom and dad spent many hours helping us in this project.
 
-During my college years I began to realize that there were more values to work than simply the money one earns. Three individuals made statements that have left indelible impressions upon my mind. The first statement came while I was attending the University of Utah. The director of the Institute of Religion, Lowell L. Bennion, shared with me a philosophy of raising children. He grew a large vegetable garden, and when asked what he was growing, his reply was not the usual tomatoes, corn, or carrots, but simply, “boys.”
+During my college years I began to realize that there were more values to work than simply the money one earns. Three individuals made statements that have left indelible impressions upon my mind. The first statement came while I was attending the University of Utah. The director of the Institute of Religion, Lowell L. Bennion, shared with me a philosophy of raising children. He grew a large vegetable garden, and when asked what he was growing, his reply was not the usual tomatoes, corn, or carrots, but simply, “boys.”
 
 The second statement came from a student at BYU when he offered an explanation as to why he alone among his high school friends had remained active in the Church. He said it was because of a cow. He went on to explain that while his friends had nothing to do after school and began to get into trouble, he had to go home every day to milk the cow. Although he resented it at the time, he since has been very grateful to wise parents and the cow.
 
@@ -55,8 +57,3 @@ I bear testimony that family work, when combined with family prayer and family s
 
 
 
-
-
-
-
-#Family #Work

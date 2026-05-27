@@ -1,5 +1,7 @@
 # Strengthen Thy Brethren
 
+Gordon B. Hinckley
+
 By Elder Robert J. Whetten - *Of the Seventy*
 
 *Given in the April session of the 2005 General Conference*
@@ -32,9 +34,9 @@ James directed his epistle “to the twelve tribes which are scattered abroad.�
 
 Mine has been the great blessing of living my life in Latin America and witnessing firsthand the unfolding of the prophecies and promises made by His prophets and the Lord Himself.
 
-“I shall gather in, from their long dispersion, my people, O house of Israel, and shall establish again among them my Zion. …
+“I shall gather in, from their long dispersion, my people, O house of Israel, and shall establish again among them my Zion. …
 
-“… I will establish my church among them, and they shall come in unto the covenant and be numbered among this the remnant of Jacob, unto whom I have given this land for their inheritance.”[^13]
+“… I will establish my church among them, and they shall come in unto the covenant and be numbered among this the remnant of Jacob, unto whom I have given this land for their inheritance.”[^13]
 
 Literally hundreds of thousands have been gathered in from practically every nation in Latin America. Prophecies assure us that this growth will continue. Growth is our greatest challenge but also the greatest opportunity for each of us.
 
@@ -58,7 +60,7 @@ Our own prophet, President Gordon B. Hinckley, has said, “I would hope, I woul
 
 Love is not just a word or a declaration, but the first and great commandment, a commandment that demands action—“If ye love me, keep my commandments”[^21] and “Lovest thou me? … Feed my sheep.”[^22]
 
-You must do what our Savior and His prophets, both past and present, have always taught: serve, strengthen the faith, and nurture those who need your love and blessing. You have the Lord’s promise: “And whoso receiveth you, there I will be also, for I will go before your face … , and my Spirit shall be in your hearts.”[^23]
+You must do what our Savior and His prophets, both past and present, have always taught: serve, strengthen the faith, and nurture those who need your love and blessing. You have the Lord’s promise: “And whoso receiveth you, there I will be also, for I will go before your face … , and my Spirit shall be in your hearts.”[^23]
 
 Brothers and sisters, as you reach out in love to bless the life of another, you both will be blessed with His Spirit. The Lord teaches that both will “understand one another, and both \[will be\] edified and rejoice together.”[^24]
 
@@ -91,7 +93,7 @@ It is my prayer that our Heavenly Father will bless each of us with that love fo
 
 [^12]: [[James 5.19|James 5:19–20]][[James 5.20|]].
 
-[^13]: [[3 Nephi 21.1|3 Nephi 21:1, 22]][[3 Nephi 21.22|]].
+[^13]: [[3 Nephi 21.1|3 Nephi 21:1, 22]][[3 Nephi 21.22|]].
 
 [^14]: [[Ephesians 2.19|Ephesians 2:19]].
 
@@ -115,7 +117,5 @@ It is my prayer that our Heavenly Father will bless each of us with that love fo
 
 [^24]: [[D&C 50.22|D&C 50:22]].
 
+[^25]: [[Moroni 7.48|Moroni 7:48]].
 
-
-
-#Activation #Church_Growth #Conversion #Kindness #Love #Service

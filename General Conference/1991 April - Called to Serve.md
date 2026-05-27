@@ -1,5 +1,7 @@
 # Called to Serve
 
+Thomas S. Monson
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -95,8 +97,3 @@ God lives! Jesus is the Christ. We are engaged in His work is my witness to you.
 
 
 
-
-
-
-
-#Missionary_Work #Morality #Priesthood #Spirituality #Word_Of_Wisdom

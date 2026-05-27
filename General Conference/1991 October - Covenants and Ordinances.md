@@ -1,5 +1,7 @@
 # Covenants and Ordinances
 
+Gordon B. Hinckley
+
 By Elder Jorge A. Rojas - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -55,8 +57,3 @@ Our dear Father in Heaven, we thank thee for thy many blessings—for the restor
 
 
 
-
-
-
-
-#Covenants #Faith #Obedience #Ordinances #Priesthood

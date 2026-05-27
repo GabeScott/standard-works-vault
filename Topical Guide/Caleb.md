@@ -1,4 +1,3 @@
 # Caleb
 
-
-*See* [BD Caleb](https://www.churchofjesuschrist.org/study/scriptures/bd/caleb?lang=eng)
+*See also* [[BD Caleb.md|BD Caleb]]

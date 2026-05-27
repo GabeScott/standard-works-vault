@@ -1,13 +1,12 @@
 # Condemnation
 
-
-*See also* [[Condemn.md|Condemn]]; [[Damnation, Damned.md|Damnation]]; [[Hell.md|Hell]]; [[Punish, Punishment.md|Punish]]
+*See also* [[Condemn.md|Condemn]]; [[Damnation.md|Damnation]]; [[Hell.md|Hell]]; [[Punish.md|Punish]]
 
 fear God, seeing thou art in the same *condemnation*, [[Luke 23.40|Luke 23:40]].
 
-this is the *condemnation*, that ... men loved darkness, [[John 3.19|John 3:19]].
+this is the *condemnation*, that … men loved darkness, [[John 3.19|John 3:19]].
 
-He that ... believeth on him ... shall not come into *condemnation*, [[John 5.24|John 5:24]].
+He that … believeth on him … shall not come into *condemnation*, [[John 5.24|John 5:24]].
 
 no *condemnation* to them which are in Christ, [[Romans 8.1|Romans 8:1]].
 
@@ -25,8 +24,8 @@ no punishment there is no *condemnation*, [[2 Nephi 9.25|2 Nephi 9:25]].
 
 say unto them by the way of *condemnation*, [[Alma 60.2|Alma 60:2]].
 
-unbelief ... shall turn to their own *condemnation*, [[D&C 20.15|D&C 20:15]].
+unbelief … shall turn to their own *condemnation*, [[D&C 20.15|D&C 20:15]].
 
 he who sins against the greater light shall receive the greater *condemnation*, [[D&C 82.3|D&C 82:3]].
 
-then come the spirits ... found under *condemnation*, [[D&C 88.100|D&C 88:100]].
+then come the spirits … found under *condemnation*, [[D&C 88.100|D&C 88:100]].

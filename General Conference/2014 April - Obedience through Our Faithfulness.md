@@ -1,6 +1,8 @@
 # Obedience through Our Faithfulness
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -38,7 +40,7 @@ The Apostle Paul taught, “Now faith is the substance of things hoped for, the 
 
 “By faith Abraham, when he was called to go out into a place which he should after receive for an inheritance, obeyed; and he went out, not knowing whither he went.
 
-“By faith he sojourned in the land of promise, as in a strange country. …
+“By faith he sojourned in the land of promise, as in a strange country. …
 
 “Through faith also Sara herself received strength to conceive seed, and was delivered of a child when she was past age, because she judged him faithful who had promised” ([[Hebrews 11.8|Hebrews 11:8–9, 11]][[Hebrews 11.9|]][[Hebrews 11.11|]]).
 
@@ -59,8 +61,3 @@ May we become heirs to the covenant and the seed of Abraham through our faithful
 
 
 
-
-
-
-
-#Agency #Faith #Holy_Ghost #Obedience

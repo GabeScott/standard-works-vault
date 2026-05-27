@@ -1,6 +1,8 @@
 # Love One Another as He Has Loved Us
 
-By Elder Jose L. Alonso - *Of the Seventy*
+Sharon Eubank
+
+By Elder Jose L. Alonso - *Of the Seventy*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -40,7 +42,7 @@ In today’s world of so much suffering because of different circumstances, send
 
 The pure love of Christ, which is charity,[^6] inspires us not only to act and provide service but also to have the strength to forgive, regardless of the situation. May I share with you an experience that has impacted and changed my life. Ted and Sharon, Cooper’s parents, who are here today, have given me permission to share what happened to their family more than nine years ago. I will tell the experience from the perspective of Ted, Cooper’s father:
 
-August 21, 2008, was the first day of school, and Cooper’s three older brothers, Ivan, Garrett, and Logan, were all at the bus stop waiting to board buses. Cooper, who was four years old, was on his bike; my wife, Sharon, had walked.
+August 21, 2008, was the first day of school, and Cooper’s three older brothers, Ivan, Garrett, and Logan, were all at the bus stop waiting to board buses. Cooper, who was four years old, was on his bike; my wife, Sharon, had walked.
 
 My wife was across the street and motioned to Cooper to cross. At the same time, a car very slowly made a left turn and rolled over Cooper.
 
@@ -66,7 +68,7 @@ Brothers and sisters, Ted knows without any doubt that our Heavenly Father loves
 
 Brothers and sisters, what a marvelous story of real love and forgiveness. We, likewise, can have joy and happiness as we serve and forgive others. Georgy, another of our grandsons, often says, “What kind of family are we?” And he responds, “We are a happy family!”
 
-President Thomas S. Monson has counseled us, saying, “Let us examine our lives and determine to follow the Savior’s example by being kind, loving, and charitable.”[^9]
+President Thomas S. Monson has counseled us, saying, “Let us examine our lives and determine to follow the Savior’s example by being kind, loving, and charitable.”[^9]
 
 I know that our Heavenly Father and His Son, Jesus Christ, love us and are willing to help us to act as we love one another as They have loved us. And I know that by serving and forgiving others with real love, we can be healed and receive the strength to overcome our own challenges. And I so declare in the name of Jesus Christ, amen.
 
@@ -89,10 +91,5 @@ I know that our Heavenly Father and His Son, Jesus Christ, love us and are willi
 
 [^8]: [[Alma 7.11|Alma 7:11]].
 
-[^9]: Thomas S. Monson, “[[2017 April - Kindness, Charity, and Love.md|Kindness, Charity, and Love]],” *Ensign* or *Liahona,* May 2017, 67.
+[^9]: Thomas S. Monson, “[[2017 April - Kindness, Charity, and Love.md|Kindness, Charity, and Love]],” *Ensign* or *Liahona,* May 2017, 67.
 
-
-
-
-
-#Forgiveness #Jesus_Christ #Love #Service

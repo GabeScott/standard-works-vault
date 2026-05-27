@@ -1,5 +1,7 @@
 # Turning Hearts to the Family
 
+Gordon B. Hinckley
+
 By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 1998 General Conference*
@@ -55,8 +57,3 @@ As I began talking to you tonight, I was remembering the family I grew up in. In
 
 
 
-
-
-
-
-#Education #Family #Women #Youth

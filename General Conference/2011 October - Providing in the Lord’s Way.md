@@ -1,6 +1,8 @@
 # Providing in the Lord’s Way
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Richard G. Scott
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -30,7 +32,7 @@ Unfortunately, there are those who overlook the temporal because they consider i
 
 For example, Enoch built a Zion society through the spiritual process of creating a people of one heart and one mind *and* the temporal work of ensuring that there were “no poor among them.”[^7]
 
-As always, we can look to our perfect example, Jesus Christ, for a pattern. As President J. Reuben Clark Jr. taught, “When the Savior came upon the earth he had two great missions; one was to work out the Messiahship, the atonement for the fall, and the fulfilment of the law; the other was the work which he did among his brethren and sisters in the flesh by way of relieving their sufferings.”[^8]
+As always, we can look to our perfect example, Jesus Christ, for a pattern. As President J. Reuben Clark Jr. taught, “When the Savior came upon the earth he had two great missions; one was to work out the Messiahship, the atonement for the fall, and the fulfilment of the law; the other was the work which he did among his brethren and sisters in the flesh by way of relieving their sufferings.”[^8]
 
 In a similar way, our spiritual progress is inseparably bound together with the temporal service we give to others.
 
@@ -40,9 +42,9 @@ The one complements the other. The one without the other is a counterfeit of God
 
 There are many good people and organizations in the world that are trying to meet the pressing needs of the poor and needy everywhere. We are grateful for this, but the Lord’s way of caring for the needy is different from the world’s way. The Lord has said, “It must needs be done in mine own way.”[^9] He is not only interested in our immediate needs; He is also concerned about our eternal progression. For this reason, the Lord’s way has always included self-reliance and service to our neighbor in addition to caring for the poor.
 
-In 1941 the Gila River overflowed and flooded the Duncan Valley in Arizona. A young stake president by the name of Spencer W. Kimball met with his counselors, assessed the damage, and sent a telegram to Salt Lake City asking for a large sum of money.
+In 1941 the Gila River overflowed and flooded the Duncan Valley in Arizona. A young stake president by the name of Spencer W. Kimball met with his counselors, assessed the damage, and sent a telegram to Salt Lake City asking for a large sum of money.
 
-Instead of sending money, President Heber J. Grant sent three men: Henry D. Moyle, Marion G. Romney, and Harold B. Lee. They visited with President Kimball and taught him an important lesson: “This isn’t a program of ‘give me,’” they said. “This is a program of ‘self-help.’”
+Instead of sending money, President Heber J. Grant sent three men: Henry D. Moyle, Marion G. Romney, and Harold B. Lee. They visited with President Kimball and taught him an important lesson: “This isn’t a program of ‘give me,’” they said. “This is a program of ‘self-help.’”
 
 Many years later, President Kimball said: “It would have been an easy thing, I think, for the Brethren to have sent us \[the money,\] and it wouldn’t have been too hard to sit in my office and distribute it; but what a lot of good came to us as we had hundreds of \[our own\] go to Duncan and build fences and haul the hay and level the ground and do all the things that needed doing. That is self-help.”[^10]
 
@@ -62,7 +64,7 @@ The Lord’s way is not to sit at the side of the stream and wait for the water 
 
 ## The Greatest Organization on Earth
 
-During the Great Depression, Harold B. Lee, serving then as a stake president, was asked by the Brethren to find an answer to the oppressive poverty, sorrow, and hunger that were so widespread across the world at that time. He struggled to find a solution and took the matter to the Lord and asked, “What kind of an organization will we have … to do this?”
+During the Great Depression, Harold B. Lee, serving then as a stake president, was asked by the Brethren to find an answer to the oppressive poverty, sorrow, and hunger that were so widespread across the world at that time. He struggled to find a solution and took the matter to the Lord and asked, “What kind of an organization will we have … to do this?”
 
 And “it was as though the Lord had said \[to him\]: ‘Look, son. You don’t need any other organization. I have given you the greatest organization there is on the face of the earth. Nothing is greater than the priesthood organization. All in the world you need to do is to put the priesthood to work. That’s all.’”[^12]
 
@@ -70,7 +72,7 @@ That is the starting point in our time as well. We already have the Lord’s org
 
 The place to begin is to familiarize ourselves with what the Lord has already revealed. We should not assume that we know. We need to approach the subject with the humility of a child. Every generation must learn anew the doctrines that undergird the Lord’s way of caring for the needy. As many prophets have instructed us over the years, the welfare principles of the Church are not simply good ideas; they are revealed truths from God—they are His way of helping the needy.
 
-Brethren, study the revealed principles and doctrines first. Read the handbooks regarding Church welfare;[^13] take advantage of the Internet website ; reread the June 2011 *Liahona* and *Ensign* article on the Church welfare plan. Find out about the Lord’s way of providing for His Saints. Learn how the principles of care for the needy, service to neighbor, and self-reliance complement each other. The Lord’s way of self-reliance involves in a balanced way many facets of life, including education, health, employment, family finances, and spiritual strength. Familiarize yourself with the modern welfare program of the Church.[^14]
+Brethren, study the revealed principles and doctrines first. Read the handbooks regarding Church welfare;[^13] take advantage of the Internet website [providentliving.org](https://providentliving.churchofjesuschrist.org); reread the June 2011 *Liahona* and *Ensign* article on the Church welfare plan. Find out about the Lord’s way of providing for His Saints. Learn how the principles of care for the needy, service to neighbor, and self-reliance complement each other. The Lord’s way of self-reliance involves in a balanced way many facets of life, including education, health, employment, family finances, and spiritual strength. Familiarize yourself with the modern welfare program of the Church.[^14]
 
 Once you have studied the doctrines and principles of the Churchwide welfare plan, seek to apply what you have learned to the needs of those within your stewardship. What this means is that, in large measure, you’re going to have to figure it out for yourself. Every family, every congregation, every area of the world is different. There is no one-size-fits-all answer in Church welfare. It is a self-help program where individuals are responsible for personal self-reliance. Our resources include personal prayer, our own God-given talents and abilities, the assets available to us through our own families and extended family members, various community resources, and of course the caring support of priesthood quorums and the Relief Society. This will lead us through the inspired pattern of self-reliance.
 
@@ -111,20 +113,15 @@ The temporal is intertwined with the spiritual. God has given us this mortal exp
 
 [^9]: [[D&C 104.16|Doctrine and Covenants 104:16]]; see also [[D&C 104.15|verse 15]].
 
-[^10]: Spencer W. Kimball, in Conference Report, Apr. 1974, 183, 184.
+[^10]: Spencer W. Kimball, in Conference Report, Apr. 1974, 183, 184.
 
 [^11]: See [[Mosiah 4.26|Mosiah 4:26]]; [[Mosiah 18.27|18:27]].
 
-[^12]: Harold B. Lee, transcript of welfare agricultural meeting, Oct. 3, 1970, 20.
+[^12]: Harold B. Lee, transcript of welfare agricultural meeting, Oct. 3, 1970, 20.
 
 [^13]: See *Handbook 1: Stake Presidents and Bishops* (2010), chapter 5, “Administering Church Welfare”; *Handbook 2: Administering the Church* (2010), chapter 6, “Welfare Principles and Leadership”; *Providing in the Lord’s Way: Summary of a Leader’s Guide to Welfare* (pamphlet, 2009).
 
-[^14]: Elder Glen L. Rudd’s book *Pure Religion: The Story of Church Welfare since 1930* (1995), available from Church Distribution Services, is a wonderful place to study the doctrines and history of the Lord’s welfare program.
+[^14]: Elder Glen L. Rudd’s book *Pure Religion: The Story of Church Welfare since 1930* (1995), available from Church Distribution Services, is a wonderful place to study the doctrines and history of the Lord’s welfare program.
 
 [^15]: [[Isaiah 58.10|Isaiah 58:10–11]][[Isaiah 58.11|]]; see also [[Isaiah 58.7|verses 7–9]][[Isaiah 58.8|]][[Isaiah 58.9|]].
 
-
-
-
-
-#Love #Self-Reliance #Service #Welfare

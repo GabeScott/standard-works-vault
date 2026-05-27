@@ -1,5 +1,7 @@
 # “God Be with You Till We Meet Again”
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1990 General Conference*
@@ -20,13 +22,13 @@ With the rapidly developing changes on the face of Europe, we remember President
 
 If President Benson were here at the pulpit at this, the conclusion of the final session of this glorious conference, he would extend to you his love, his admonitions, and his blessing. May I, with President Benson’s own words, provide you his counsel:
 
-“Let us be valiant in our testimony of Jesus all the days of our lives” (*Come unto Christ* \[Salt Lake City: Deseret Book Co., 1983\], p. 16).
+“Let us be valiant in our testimony of Jesus all the days of our lives” (*Come unto Christ* \[Salt Lake City: Deseret Book Co., 1983\], p. 16).
 
-“His word is one of the most valuable gifts He has given us. I urge you to recommit yourselves to a study of the scriptures. Immerse yourselves in them daily so you will have the power of the Spirit to attend you. … Read them in your families and teach your children to love and treasure them” (“The Power of the Word,” *Ensign,* May 1986, p. 82).
+“His word is one of the most valuable gifts He has given us. I urge you to recommit yourselves to a study of the scriptures. Immerse yourselves in them daily so you will have the power of the Spirit to attend you. … Read them in your families and teach your children to love and treasure them” (“The Power of the Word,” *Ensign,* May 1986, p. 82).
 
-“It is soul-satisfying to know that God is mindful of us and ready to respond when we place our trust in Him and do that which is right. There is no place for fear among men and women who place their trust in the Almighty and who do not hesitate to humble themselves in seeking divine guidance through prayer. Though persecutions arise, though reverses come, in prayer we can find reassurance, for God will speak peace to the soul. That peace, that spirit of serenity, is life’s greatest blessing” (“Pray Always,” *Ensign,* Feb. 1990, p. 5).
+“It is soul-satisfying to know that God is mindful of us and ready to respond when we place our trust in Him and do that which is right. There is no place for fear among men and women who place their trust in the Almighty and who do not hesitate to humble themselves in seeking divine guidance through prayer. Though persecutions arise, though reverses come, in prayer we can find reassurance, for God will speak peace to the soul. That peace, that spirit of serenity, is life’s greatest blessing” (“Pray Always,” *Ensign,* Feb. 1990, p. 5).
 
-He continues: “I am getting older and less vigorous and am so grateful for your prayers and for the support of my younger Brethren. I thank the Lord for renewing my body from time to time so that I can still help build His kingdom. … God willing, I intend to spend all my remaining days in that glorious effort” (in Conference Report, Oct. 1988, p. 5; or *Ensign,* Nov. 1988, p. 6).
+He continues: “I am getting older and less vigorous and am so grateful for your prayers and for the support of my younger Brethren. I thank the Lord for renewing my body from time to time so that I can still help build His kingdom. … God willing, I intend to spend all my remaining days in that glorious effort” (in Conference Report, Oct. 1988, [[1988 October - Flooding the Earth with the Book of Mormon.md|p. 5]]; or *Ensign,* Nov. 1988, p. 6).
 
 President Benson is a man of love, and this love he would have me extend to you in his behalf. He has a beautiful voice and has often sung the melodic strains of a favorite hymn:
 
@@ -44,8 +46,3 @@ To the membership of the Church and to God’s children everywhere, our prophet,
 
 
 
-
-
-
-
-#Example #Prophets

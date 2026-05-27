@@ -1,6 +1,8 @@
 # “Come unto Me, O Ye House of Israel”
 
-By Elder Larry Echo Hawk - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Larry Echo Hawk - *Of the Seventy*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -24,11 +26,11 @@ I have often wondered why that tough Marine Corps sergeant spared me that day. B
 
 When I was 14 years old, two missionaries, Lee Pearson and Boyd Camphuysen, taught my family the restored gospel of Jesus Christ, and I was baptized. Two years later my priests quorum adviser, Richard Boren, challenged me to read the Book of Mormon. I accepted that challenge, and I read at least 10 pages every night until I finished.
 
-On the title page I read that it is “written to the Lamanites, who are a remnant of the house of Israel; and also to Jew and Gentile.” In the introduction to the Book of Mormon: Another Testament of Jesus Christ, it says that the Lamanites “are among the ancestors of the American Indians.” As I read the Book of Mormon, it seemed to me that it was about my American Indian ancestors. It tells the story of a people, a part of which were later described as “Lamanites,” who migrated from Jerusalem to a “land of promise” ([[1 Nephi 2.20|1 Nephi 2:20]]) about 600 b.c. It is an account of God’s dealings with these ancient inhabitants located somewhere on the American continents. It includes an account of the ministry of Jesus Christ among them following His Resurrection. Passages in the Book of Mormon suggest that over time they were dispersed throughout the American continents and islands of the nearby seas (see [[Alma 63.9|Alma 63:9–10]][[Alma 63.10|]]). Their prophets foretold that many multitudes of Gentiles would eventually come to this land of promise and the wrath of God would be upon the Lamanites and they would be scattered, smitten, and nearly destroyed (see [[1 Nephi 13.10|1 Nephi 13:10–14]][[1 Nephi 13.11|]][[1 Nephi 13.12|]][[1 Nephi 13.13|]][[1 Nephi 13.14|]]).
+On the title page I read that it is “written to the Lamanites, who are a remnant of the house of Israel; and also to Jew and Gentile.” In the introduction to the Book of Mormon: Another Testament of Jesus Christ, it says that the Lamanites “are among the ancestors of the American Indians.” As I read the Book of Mormon, it seemed to me that it was about my American Indian ancestors. It tells the story of a people, a part of which were later described as “Lamanites,” who migrated from Jerusalem to a “land of promise” ([[1 Nephi 2.20|1 Nephi 2:20]]) about 600 b.c. It is an account of God’s dealings with these ancient inhabitants located somewhere on the American continents. It includes an account of the ministry of Jesus Christ among them following His Resurrection. Passages in the Book of Mormon suggest that over time they were dispersed throughout the American continents and islands of the nearby seas (see [[Alma 63.9|Alma 63:9–10]][[Alma 63.10|]]). Their prophets foretold that many multitudes of Gentiles would eventually come to this land of promise and the wrath of God would be upon the Lamanites and they would be scattered, smitten, and nearly destroyed (see [[1 Nephi 13.10|1 Nephi 13:10–14]][[1 Nephi 13.11|]][[1 Nephi 13.12|]][[1 Nephi 13.13|]][[1 Nephi 13.14|]]).
 
 My great-grandfather Echo Hawk, a Pawnee Indian, was born in the mid-1800s in what is now called Nebraska. When he was 19 years of age, the Pawnee people were forced to give up their 23-million-acre (9.3 million ha) homeland to make room for settlers. In 1874 the Pawnee people were marched several hundred miles south to a small reservation located in the Oklahoma Indian Territory. The population of Pawnee people had declined from over 12,000 to less than 700 upon their arrival in Oklahoma. The Pawnee, like other tribes, had been scattered, smitten, and nearly destroyed.
 
-The Book of Mormon has a special message for descendants of the Lamanites, a remnant of the house of Israel. Nephi expressed this message while interpreting his father’s vision of these latter days: “And at that day shall the remnant of our seed know that they are of the house of Israel, and that they are the covenant people of the Lord; and then shall they know and come to the knowledge of their forefathers, and also to the knowledge of the gospel of their Redeemer, which was ministered unto their fathers by him; wherefore, they shall come to the knowledge of their Redeemer and the very points of his doctrine, that they may know how to come unto him and be saved” ([[1 Nephi 15.14|1 Nephi 15:14]]).
+The Book of Mormon has a special message for descendants of the Lamanites, a remnant of the house of Israel. Nephi expressed this message while interpreting his father’s vision of these latter days: “And at that day shall the remnant of our seed know that they are of the house of Israel, and that they are the covenant people of the Lord; and then shall they know and come to the knowledge of their forefathers, and also to the knowledge of the gospel of their Redeemer, which was ministered unto their fathers by him; wherefore, they shall come to the knowledge of their Redeemer and the very points of his doctrine, that they may know how to come unto him and be saved” ([[1 Nephi 15.14|1 Nephi 15:14]]).
 
 The Book of Mormon is sacred scripture. It contains the fulness of the everlasting gospel. The Prophet Joseph Smith wrote that “the Book of Mormon \[is\] the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book” (*Teachings of Presidents of the Church: Joseph Smith* \[2007\], 64). Thus, it has a message for all people of the world.
 
@@ -47,8 +49,3 @@ As we come unto our Savior, Jesus Christ, and purify our hearts, we will all be 
 
 
 
-
-
-
-
-#Book_Of_Mormon #House_Of_Israel #Native_Americans

@@ -1,15 +1,14 @@
 # Generation
 
-
 *See also* [[Time.md|Time]]
 
 the *generations* of the heavens and of the earth, [[Genesis 2.4|Genesis 2:4]] ([[Moses 3.4|Moses 3:4]]; [[Abraham 5.4|Abraham 5:4]]).
 
-book of the *generations* of Adam, [[Genesis 5.1|Genesis 5:1]] ([[D&C 98.28|D&C 98:28-30]][[D&C 98.29|]][[D&C 98.30|]]; [[D&C 103.26|D&C 103:26]]; [[D&C 105.30|D&C 105:30]]; [[Moses 6.8|Moses 6:8]]).
+book of the *generations* of Adam, [[Genesis 5.1|Genesis 5:1]] ([[D&C 103.26|D&C 103:26]]; [[D&C 105.30|D&C 105:30]]; [[Moses 6.8|Moses 6:8]]).
 
 feast to the Lord throughout your *generations*, [[Exodus 12.14|Exodus 12:14]].
 
-visiting the iniquity of the fathers upon ... third and fourth *generation*, [[Deuteronomy 5.9|Deuteronomy 5:9]] ([[D&C 124.50|D&C 124:50]]).
+visiting the iniquity of the fathers upon … third and fourth *generation*, [[Deuteronomy 5.9|Deuteronomy 5:9]] ([[D&C 124.50|D&C 124:50]]).
 
 perverse and crooked *generation*, [[Deuteronomy 32.5|Deuteronomy 32:5]].
 
@@ -45,6 +44,6 @@ declare my gospel unto a crooked and perverse *generation*, [[D&C 33.2|D&C 33:2]
 
 this *generation* of Jews shall not pass away until, [[D&C 45.21|D&C 45:21]].
 
-clean from the blood of this wicked *generation*, [[D&C 88.75|D&C 88:75]] ([[D&C 88.85|D&C 88:85]], [[D&C 88.138|D&C 88:138]]).
+clean from the blood of this wicked *generation*, [[D&C 88.75|D&C 88:75]] ([[D&C 88.85|D&C 88:85]]; [[D&C 88.138|D&C 88:138]]).
 
 in us and our seed all *generations* after us should be blessed, [[D&C 110.12|D&C 110:12]].

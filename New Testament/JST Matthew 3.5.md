@@ -4,6 +4,3 @@
 
 [JST Matthew 3:5](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/3?lang=eng)
 
-
-
-

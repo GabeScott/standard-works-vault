@@ -1,4 +1,3 @@
 # Enoch, City of
 
-
-*See* [[Zion, Sion.md|Zion]]
+*See also* [[Zion.md|Zion]]

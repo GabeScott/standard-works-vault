@@ -1,4 +1,3 @@
 # Moses
 
-
-*See* [BD Moses](https://www.churchofjesuschrist.org/study/scriptures/bd/moses?lang=eng)
+*See also* [[BD Moses.md|BD Moses]]

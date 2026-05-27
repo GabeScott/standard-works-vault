@@ -1,6 +1,8 @@
 # Missionary Service Blessed My Life Forever
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -28,13 +30,13 @@ In the April 1985 general conference, I was assigned to speak in the priesthood 
 
 The Lord knows you. When you are serving your mission, you will have experiences that will help you come to know Him better. You will grow spiritually in serving Him. In His name, you will be sent on errands to serve others. He will give you experiences with promptings from the Holy Ghost. The Lord will authorize you to teach in His name. You can show Him that He can trust you and can rely on you.
 
-Just over five months ago, Elder Jeffrey R. Holland and Elder Quentin L. Cook, who had also served as missionaries in the British Isles, joined me in visiting with members and missionaries in that beautiful land. While there, I reflected on my experiences as a young missionary. I testify that my mission is where I came to know that my Heavenly Father and my Savior, Jesus Christ, know and love me.
+Just over five months ago, Elder Jeffrey R. Holland and Elder Quentin L. Cook, who had also served as missionaries in the British Isles, joined me in visiting with members and missionaries in that beautiful land. While there, I reflected on my experiences as a young missionary. I testify that my mission is where I came to know that my Heavenly Father and my Savior, Jesus Christ, know and love me.
 
-I was blessed to have two wonderful mission presidents, Selvoy J. Boyer and Stayner Richards, along with their dedicated companions, Gladys Boyer and Jane Richards. Looking back, I can see even more clearly that they trusted me and loved me. They taught me the gospel. They expected a lot from me. They gave me many challenging assignments and leadership responsibilities to help me to grow and prepare for a life of service.
+I was blessed to have two wonderful mission presidents, Selvoy J. Boyer and Stayner Richards, along with their dedicated companions, Gladys Boyer and Jane Richards. Looking back, I can see even more clearly that they trusted me and loved me. They taught me the gospel. They expected a lot from me. They gave me many challenging assignments and leadership responsibilities to help me to grow and prepare for a life of service.
 
-I have also reflected on being called by President Spencer W. Kimball to preside over the Canada Toronto Mission with my dear wife, Barbara, and our children at our sides. President Kimball called us to serve in April 1974, shortly after he gave his inspired missionary message titled “When the World Will Be Converted.”[^2] In that message President Kimball explained his vision for how the gospel would be taken to all the world. He called for many more missionaries from around the world. He reminded us of the Lord’s expectation “that every man should … lift a warning voice unto the inhabitants of the earth.”[^3] President Kimball’s teaching about the expectation for young men to serve a mission became a topic of conversation in homes around the world. That expectation has not changed. I am grateful that President Russell M. Nelson also reaffirmed the Lord’s expectation this morning.
+I have also reflected on being called by President Spencer W. Kimball to preside over the Canada Toronto Mission with my dear wife, Barbara, and our children at our sides. President Kimball called us to serve in April 1974, shortly after he gave his inspired missionary message titled “When the World Will Be Converted.”[^2] In that message President Kimball explained his vision for how the gospel would be taken to all the world. He called for many more missionaries from around the world. He reminded us of the Lord’s expectation “that every man should … lift a warning voice unto the inhabitants of the earth.”[^3] President Kimball’s teaching about the expectation for young men to serve a mission became a topic of conversation in homes around the world. That expectation has not changed. I am grateful that President Russell M. Nelson also reaffirmed the Lord’s expectation this morning.
 
-It has been almost 10 years since President Thomas S. Monson announced the lowering of the missionary age for young men and young women.[^4] In my view, a primary reason for this change was to give more of our youth the life-changing opportunity to serve as a missionary.
+It has been almost 10 years since President Thomas S. Monson announced the lowering of the missionary age for young men and young women.[^4] In my view, a primary reason for this change was to give more of our youth the life-changing opportunity to serve as a missionary.
 
 As an Apostle of the Lord Jesus Christ, I now call upon you young men—and those young women who desire to serve a mission—to begin right now to talk with your parents about serving a mission. I also invite you to talk with your friends about serving a mission, and if one of your friends is not sure about serving, encourage them to talk with their bishop.
 
@@ -57,18 +59,13 @@ May God bless the youth of the Church to desire to prepare and serve Him is my h
 
 
 
-[^1]: M. Russell Ballard, “[[1985 April - Prepare to Serve.md|Prepare to Serve]],” *Ensign*, May 1985, 41.
+[^1]: M. Russell Ballard, “[[1985 April - Prepare to Serve.md|Prepare to Serve]],” *Ensign*, May 1985, 41.
 
-[^2]: See Spencer W. Kimball, “[When the World Will Be Converted](https://churchofjesuschrist.org/study/ensign/1974/10/when-the-world-will-be-converted?lang=eng),” *Ensign*, Oct. 1974, 2–14. This address was delivered on April 4, 1974, at a regional representatives’ seminar.
+[^2]: See Spencer W. Kimball, “[When the World Will Be Converted](https://www.churchofjesuschrist.org/study/ensign/1974/10/when-the-world-will-be-converted?lang=eng),” *Ensign*, Oct. 1974, 2–14. This address was delivered on April 4, 1974, at a regional representatives’ seminar.
 
 [^3]: [[D&C 63.37|Doctrine and Covenants 63:37]].
 
-[^4]: See Thomas S. Monson, “[[2012 October - Welcome to Conference.md|Welcome to Conference]],” *Ensign* or *Liahona*, Nov. 2012, 4–5.
+[^4]: See Thomas S. Monson, “[[2012 October - Welcome to Conference.md|Welcome to Conference]],” *Ensign* or *Liahona*, Nov. 2012, 4–5.
 
 [^5]: [[Alma 17.11|Alma 17:11]].
 
-
-
-
-
-#Blessings #Missionary_Work #Service #Youth

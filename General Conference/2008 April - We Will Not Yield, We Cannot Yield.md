@@ -1,5 +1,7 @@
 # We Will Not Yield, We Cannot Yield
 
+Dieter F. Uchtdorf
+
 By Elder W. Craig Zwick - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -26,13 +28,13 @@ Ethan’s loving mother answered him with a resounding no.
 
 I, too, unequivocally answer, “Don’t do it, Ethan. Never forget that you are a son of God. He loves you. Live by your standards. Stand up for what you believe in. Sometimes it is not easy, and you may be standing alone for a while. Look for friends with integrity and character, and then go to them and express appreciation for their examples. You might even find someone who has been feeling as lonely as you. Pray for guidance and protection from the Lord. He will sustain you. He will become a trusted friend, and you will discover that your example will attract many friends who will take courage from your strength of character.”
 
-Nephi taught us a powerfully simple principle in recounting his father’s dream of the tree of life. He described a strait and narrow path leading to a tree and a great and spacious building. This building was filled with people who were dressed in exceedingly fine and fashionable clothing. They were all in an attitude of mocking and pointing fingers toward those who were partaking of the fruit. They were trying to get people off the path and into the building. From all appearances, the people inside seemed to be having a great time. What an indelible image of temptation. In Elder Neal A. Maxwell’s words, “The laughter of the world is merely loneliness pathetically trying to reassure itself.”[^4]
+Nephi taught us a powerfully simple principle in recounting his father’s dream of the tree of life. He described a strait and narrow path leading to a tree and a great and spacious building. This building was filled with people who were dressed in exceedingly fine and fashionable clothing. They were all in an attitude of mocking and pointing fingers toward those who were partaking of the fruit. They were trying to get people off the path and into the building. From all appearances, the people inside seemed to be having a great time. What an indelible image of temptation. In Elder Neal A. Maxwell’s words, “The laughter of the world is merely loneliness pathetically trying to reassure itself.”[^4]
 
 “And great was the multitude that did enter into that strange building. … They did point the finger of scorn at me and those that were partaking of the fruit also; *but we heeded them not.”*[^5]
 
 There at the end of the verse is Nephi’s powerful principle, an answer to unwanted peer pressure: “But we heeded them not.”
 
-President Boyd K. Packer has recently emphasized this guiding principle: “However out of step we may seem, however much the standards are belittled, however much others yield, we will not yield; we cannot yield.”[^6]
+President Boyd K. Packer has recently emphasized this guiding principle: “However out of step we may seem, however much the standards are belittled, however much others yield, we will not yield; we cannot yield.”[^6]
 
 Do we recognize temptation when it is so well camouflaged?
 
@@ -69,20 +71,15 @@ We must fortify ourselves. That sure spiritual fortification is found in two wor
 
 [^4]: Neal A. Maxwell, “Cleanse Us from All Unrighteousness,” *Ensign,* Feb. 1986, 19.
 
-[^5]: [[1 Nephi 8.33|1 Nephi 8:33]]; emphasis added.
+[^5]: [[1 Nephi 8.33|1 Nephi 8:33]]; emphasis added.
 
-[^6]: Boyd K. Packer, in Conference Report, Oct. 2003, 27; or *Ensign,* Nov. 2003, 26.
+[^6]: Boyd K. Packer, in Conference Report, Oct. 2003, [[2003 October - “The Standard of Truth Has Been Erected”.md|27]]; or *Ensign,* Nov. 2003, 26.
 
 [^7]: [[Ephesians 6.6|Ephesians 6:6]].
 
-[^8]: [[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]].
+[^8]: [[2 Timothy 1.7|2 Timothy 1:7–8]][[2 Timothy 1.8|]].
 
 [^9]: [[Mosiah 17.9|Mosiah 17:9]].
 
 [^10]: [[D&C 6.34|D&C 6:34, 36]][[D&C 6.36|]].
 
-
-
-
-
-#Courage #Standards #Temptation

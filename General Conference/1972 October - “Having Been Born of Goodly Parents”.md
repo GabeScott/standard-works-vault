@@ -1,14 +1,16 @@
 # “Having Been Born of Goodly Parents”
 
-By President S. Dilworth Young - *Of the First Council of the Seventy*
+N. Eldon Tanner
+
+By President S. Dilworth Young - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1972/10/having-been-born-of-goodly-parents?lang=eng)
 
-While we realize that we shall have close association with Elder Bruce R. McConkie in our future work with the missions of the Church and shall partake of his wisdom and spirituality, we also know that we shall miss him more than any of us care to admit. We assure him of our love, our loyalty, and our support.
+While we realize that we shall have close association with Elder Bruce R. McConkie in our future work with the missions of the Church and shall partake of his wisdom and spirituality, we also know that we shall miss him more than any of us care to admit. We assure him of our love, our loyalty, and our support.
 
-We also welcome Elder Rex D. Pinegar to our council and feel certain that his ability will add strength to us as we go forward.
+We also welcome Elder Rex D. Pinegar to our council and feel certain that his ability will add strength to us as we go forward.
 
 I shall speak about genealogy.
 
@@ -117,7 +119,7 @@ And so, in good time, and in his turn, there came into the family circle on a wi
 
 It is fitting this day that we speak briefly of this heritage. The Lord prepared the lineage through which President Lee came that he might inherit their bravery, their loyalty, their integrity, and their devotion to the truth.
 
-Twenty-five hundred and seventy-two years ago, give or take a year, a prophet accepted of the Lord began to write his history: “I, Nephi, having been born of goodly parents. …” And then he went on to say, “I make a record of my proceedings in my days.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
+Twenty-five hundred and seventy-two years ago, give or take a year, a prophet accepted of the Lord began to write his history: “I, Nephi, having been born of goodly parents. …” And then he went on to say, “I make a record of my proceedings in my days.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
 
 And so the first prophet of our times might have said the same words: “I, Joseph Smith, having been born of goodly parents … make my record.”
 
@@ -138,8 +140,3 @@ God our Father, through his Son, Jesus Christ, directs the work of this the true
 
 
 
-
-
-
-
-#Family_History #Harold_B._Lee

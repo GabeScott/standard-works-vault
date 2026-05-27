@@ -1,6 +1,5 @@
 # Lord of Hosts
 
-
 I come to thee in the name of the *Lord of hosts*, [[1 Samuel 17.45|1 Samuel 17:45]].
 
 *Lord of hosts* is the God over Israel, [[2 Samuel 7.26|2 Samuel 7:26]] ([[1 Chronicles 17.24|1 Chronicles 17:24]]).

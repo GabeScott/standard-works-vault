@@ -1,6 +1,8 @@
 # Three Pledges
 
-By Elder L. Tom Perry - *Assistant to the Council of the Twelve*
+N. Eldon Tanner
+
+By Elder L. Tom Perry - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -19,8 +21,3 @@ This is the Church of Jesus Christ as it has been established in the latter days
 
 
 
-
-
-
-
-#Obedience

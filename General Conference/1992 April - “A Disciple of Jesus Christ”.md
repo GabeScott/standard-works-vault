@@ -1,5 +1,7 @@
 # “A Disciple of Jesus Christ”
 
+Thomas S. Monson
+
 By Elder L. Aldin Porter - *Of the Seventy*
 
 *Given in the April session of the 1992 General Conference*
@@ -18,11 +20,11 @@ Let me share with you the recorded feelings of one who had a willing mind. Elder
 
 “The thought was overpowering. … ‘O, Lord,’” wrote Elder Kimball, “‘I am a man of stammering tongue, and altogether unfit for such a work; how can I go to preach in that land, which is so famed throughout Christendom for learning, knowledge and piety; the nursery of religion; and to a people whose intelligence is proverbial!’”
 
-Note this: “However, all these considerations did not deter me from the path of duty; the moment I understood the will of my Heavenly Father, I felt a determination to go at all hazards, believing that He would support me by His almighty power, and endow me with every qualification that I needed” (in Orson F. Whitney, *Life of Heber C. Kimball,* 3rd ed. \[Salt Lake City: Bookcraft, 1967\], pp. 103–4).
+Note this: “However, all these considerations did not deter me from the path of duty; the moment I understood the will of my Heavenly Father, I felt a determination to go at all hazards, believing that He would support me by His almighty power, and endow me with every qualification that I needed” (in Orson F. Whitney, *Life of Heber C. Kimball,* 3rd ed. \[Salt Lake City: Bookcraft, 1967\], pp. 103–4).
 
 Many months passed; this man of strong determination to duty had completed his mission and was about to return to his home:
 
-“On the morning when I left Chatburn many were in tears, thinking they should see my face no more. When I left them, my feelings were such as I cannot describe. As I walked down the street I was followed by numbers; the doors were crowded by the inmates of the houses to bid me farewell, who could only give vent to their grief in sobs. … While contemplating this scene I was constrained to take off my hat, for I felt as if the place was holy ground. The Spirit of the Lord rested down upon me and I was constrained to bless that whole region of country. … My heart was like unto theirs, and I thought my head was a fountain of tears, for I wept for several miles after I bid them adieu” (in *Life of Heber C. Kimball,* p. 187).
+“On the morning when I left Chatburn many were in tears, thinking they should see my face no more. When I left them, my feelings were such as I cannot describe. As I walked down the street I was followed by numbers; the doors were crowded by the inmates of the houses to bid me farewell, who could only give vent to their grief in sobs. … While contemplating this scene I was constrained to take off my hat, for I felt as if the place was holy ground. The Spirit of the Lord rested down upon me and I was constrained to bless that whole region of country. … My heart was like unto theirs, and I thought my head was a fountain of tears, for I wept for several miles after I bid them adieu” (in *Life of Heber C. Kimball,* p. 187).
 
 The Lord needs missionaries with a willing heart and mind.
 
@@ -30,7 +32,7 @@ Truly effective missionaries have many talents, varied and beautiful, but one qu
 
 From whence comes this power to make a decision and stay with it? I would suggest to you it comes, in most cases, long before they arrive in the mission field.
 
-Eighteen months ago, President Thomas S. Monson spoke at the general priesthood meeting concerning a very important message. It has been published for all of us in a pamphlet called *For the Strength of Youth.* Permit me to read a short paragraph: “Some people knowingly break God’s commandments. They plan to repent before they go on a mission or receive the sacred covenants and ordinances of the temple. Repentance for such behavior is difficult and painful and may take a long time. It is better to not commit the sin. Certain sins are of such gravity that they can put your membership in the Church and your eternal life at risk. Sexual sins are among those of such seriousness” (*For the Strength of Youth* \[pamphlet, 1990\], p. 17).
+Eighteen months ago, President Thomas S. Monson spoke at the general priesthood meeting concerning a very important message. It has been published for all of us in a pamphlet called *For the Strength of Youth.* Permit me to read a short paragraph: “Some people knowingly break God’s commandments. They plan to repent before they go on a mission or receive the sacred covenants and ordinances of the temple. Repentance for such behavior is difficult and painful and may take a long time. It is better to not commit the sin. Certain sins are of such gravity that they can put your membership in the Church and your eternal life at risk. Sexual sins are among those of such seriousness” (*For the Strength of Youth* \[pamphlet, 1990\], p. 17).
 
 It is my judgment that some of our youth *do not believe* that repentance for serious transgression “is difficult and painful and may take a long time.” Where has this grave misunderstanding come from?
 
@@ -54,7 +56,7 @@ Note the words of the Lord Himself as He remembers the cost of our transgression
 
 Young men, you must live righteously for many reasons. One of them is that you must be accompanied by the Spirit of the Lord as you labor in the mission field. The association of the Spirit of the Lord is dependent upon personal righteousness. If you do not strive diligently for the assistance of the Spirit, you will find your missionary work extremely difficult and your results very disappointing.
 
-President Benson’s counsel is very clear: “Our preaching and our teaching must be by the power of the Holy Ghost. We must ever remember that in this glorious work, the most essential element is the Spirit” (*The Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], p. 313).
+President Benson’s counsel is very clear: “Our preaching and our teaching must be by the power of the Holy Ghost. We must ever remember that in this glorious work, the most essential element is the Spirit” (*The Teachings of Ezra Taft Benson* \[Salt Lake City: Bookcraft, 1988\], p. 313).
 
 Listen also to the words of the Lord as He speaks of His emissaries: “Wherefore, I call upon the weak things of the world, those who are unlearned and despised, to thrash the nations by the power of my Spirit;
 
@@ -66,19 +68,14 @@ Priesthood leaders, let us be careful that we do not permit young missionaries t
 
 In addition, there is a broader issue. Time will permit just a reference to it. But our success in this endeavor will have eternal consequences for more than the missionary and the convert.
 
-Elder Boyd K. Packer has reminded us that “the safety of the Church in generations ahead rests on our success in calling missionaries. If we have concern for the future of this work, we will not rest until every able-bodied young man is made worthy and desires to receive a call to a mission” (“Principles,” *Ensign,* Mar. 1985, p. 10).
+Elder Boyd K. Packer has reminded us that “the safety of the Church in generations ahead rests on our success in calling missionaries. If we have concern for the future of this work, we will not rest until every able-bodied young man is made worthy and desires to receive a call to a mission” (“Principles,” *Ensign,* Mar. 1985, p. 10).
 
 The Lord is calling for worthy, willing workers to labor in His harvest fields.
 
-My beloved young men, will you consider what it would mean to you if you could join the prophet Mormon in saying: “Behold, I am a disciple of Jesus Christ, the Son of God. I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]).
+My beloved young men, will you consider what it would mean to you if you could join the prophet Mormon in saying: “Behold, I am a disciple of Jesus Christ, the Son of God. I have been called of him to declare his word among his people, that they might have everlasting life” ([[3 Nephi 5.13|3 Ne. 5:13]]).
 
 I am a witness that the Lord Jesus Christ is the Son of God and the Savior of the world. It is my deep conviction that He has called us to teach and testify in His name before the world. And to you young brethren, my sincere prayer is that you will respond to His call with a willing mind and worthy heart, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Repentance #Worthiness

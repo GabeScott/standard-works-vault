@@ -1,6 +1,8 @@
 # Live True to the Faith
 
-By Elder William R. Walker - *Of the Seventy*
+Thomas S. Monson
+
+By Elder William R. Walker - *Of the Seventy*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -14,7 +16,7 @@ One month ago, 12,000 wonderful youth from the Gilbert Arizona Temple District c
 
 Just as those faithful Arizona youth have done, each Latter-day Saint should commit to “live true to the faith.”
 
-The words of the hymn say, “True to the faith that our parents have cherished” (“True to the Faith,” *Hymns,* no. 254).
+The words of the hymn say, “True to the faith that our parents have cherished” (“True to the Faith,” *Hymns,* no. 254).
 
 We could add, “True to the faith that our grandparents have cherished.”
 
@@ -26,7 +28,7 @@ One of the most wonderful chapters in the history of the Church occurred when Wi
 
 Wilford Woodruff and other Apostles had focused their work in the Liverpool and Preston areas of England, with considerable success. Elder Woodruff, who later became President of the Church, was constantly praying to God to guide him in this very important work. His prayers led to the inspiration to go to a different place to teach the gospel.
 
-President Monson has taught us that when we get the inspiration from heaven to do something, we do it now—we don’t procrastinate. That is exactly what Wilford Woodruff did. With clear direction from the Spirit to “go … south,” Elder Woodruff left almost immediately and traveled to a part of England called Herefordshire—farming country in the southwest of England. Here he met a prosperous farmer named John Benbow, where he was welcomed “with glad hearts and thanksgiving” (Wilford Woodruff, in Matthias F. Cowley, *Wilford Woodruff: History of His Life and Labors as Recorded in His Daily Journals* \[1909\], 117).
+President Monson has taught us that when we get the inspiration from heaven to do something, we do it now—we don’t procrastinate. That is exactly what Wilford Woodruff did. With clear direction from the Spirit to “go … south,” Elder Woodruff left almost immediately and traveled to a part of England called Herefordshire—farming country in the southwest of England. Here he met a prosperous farmer named John Benbow, where he was welcomed “with glad hearts and thanksgiving” (Wilford Woodruff, in Matthias F. Cowley, *Wilford Woodruff: History of His Life and Labors as Recorded in His Daily Journals* \[1909\], 117).
 
 A group of over 600 people, who called themselves the United Brethren, had been “praying for light and truth” (Wilford Woodruff, in *Teachings of Presidents of the Church: Wilford Woodruff* \[2004\], 91). The Lord sent Wilford Woodruff as an answer to their prayers.
 
@@ -78,21 +80,16 @@ And so it is. Each of us will be greatly blessed if we know the stories of faith
 
 From the first time Robert and Maria heard Wilford Woodruff teach and testify of the Restoration of the gospel, they knew the gospel was true.
 
-They also knew that no matter what trials or hardships would come to them, they would be blessed for staying true to the faith. It almost seems that they had heard the words of our prophet today, who said, “No sacrifice is too great … in order to receive \[the\] blessings \[of the temple\]” (Thomas S. Monson, “The Holy Temple—a Beacon to the World,” *Ensign* or *Liahona,* May 2011, 92).
+They also knew that no matter what trials or hardships would come to them, they would be blessed for staying true to the faith. It almost seems that they had heard the words of our prophet today, who said, “No sacrifice is too great … in order to receive \[the\] blessings \[of the temple\]” (Thomas S. Monson, “The Holy Temple—a Beacon to the World,” *Ensign* or *Liahona,* May 2011, 92).
 
 The two-pound coin of the United Kingdom has inscribed on its side “Standing on the Shoulders of Giants.” When I think of our great pioneer forefathers, I feel that we are *all* standing on the shoulders of giants.
 
 Although the admonition came from a letter from Robert Harris, I believe that countless forefathers would send the same message to their children and grandchildren: First, we must not forget the experiences we have had in the temple, and we must not forget the promises and the blessings that come to each of us because of the temple. Secondly, we must not forget that we are led by a prophet of God.
 
-I testify that we *are* led by a prophet of God. The Lord restored His Church in the latter days through the Prophet Joseph Smith, and we must not forget that we have been led by an unbroken chain of prophets of God, from Joseph to Brigham and through each succeeding President of the Church to our prophet today—Thomas S. Monson. I know him, I honor him, and I love him. I testify that he is the Lord’s prophet on the earth today.
+I testify that we *are* led by a prophet of God. The Lord restored His Church in the latter days through the Prophet Joseph Smith, and we must not forget that we have been led by an unbroken chain of prophets of God, from Joseph to Brigham and through each succeeding President of the Church to our prophet today—Thomas S. Monson. I know him, I honor him, and I love him. I testify that he is the Lord’s prophet on the earth today.
 
 It is the desire of my heart that, along with my children and grandchildren, we will honor the legacy of our righteous forefathers—those faithful Mormon pioneers who were willing to put everything on the altar to sacrifice for and defend their God and their faith. I pray that each of us will live true to the faith that our parents have cherished. In the holy and sacred name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Conversion #Faith #Family_History #Pioneers #Prophets #Temples

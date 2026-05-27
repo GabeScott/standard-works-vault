@@ -1,6 +1,8 @@
 # The Answer Is Always Jesus Christ
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Gary E. Stevenson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -14,7 +16,7 @@ One week from today is Easter Sunday. It is *the* most important religious obser
 
 Savor these sacred verses and find every way you can to thank our Heavenly Father for sending us His Only Begotten Son.[^2] Because of Jesus Christ, we can repent and be forgiven of our sins. Because of Him, each of us will be resurrected.
 
-I also invite you to study again the account of the Savior’s appearance to the Nephites in the Americas, as recorded in 3 Nephi. Not long before that appearance, His voice was heard among the people, including these words of supplication:
+I also invite you to study again the account of the Savior’s appearance to the Nephites in the Americas, as recorded in 3 Nephi. Not long before that appearance, His voice was heard among the people, including these words of supplication:
 
 “Will ye not now return unto me, and repent of your sins, and be converted, that I may heal you?
 
@@ -61,16 +63,11 @@ My dear brothers and sisters, I bear witness that Jesus Christ directs the affai
 
 
 
-[^1]: See *Come, Follow Me—For Individuals and Families: New Testament 2023*, 57–60.
+[^1]: See *[Come, Follow Me—For Individuals and Families: New Testament 2023](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-new-testament-2023/15?lang=eng)*, 57–60.
 
 [^2]: See [[John 3.16|John 3:16]].
 
-[^3]: [[3 Nephi 9.13|3 Nephi 9:13–14]][[3 Nephi 9.14|]].
+[^3]: [[3 Nephi 9.13|3 Nephi 9:13–14]][[3 Nephi 9.14|]].
 
-[^4]: [[1 Nephi 14.14|1 Nephi 14:14]].
+[^4]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
-
-
-
-
-#Easter #Healing #Jesus_Christ #Temples

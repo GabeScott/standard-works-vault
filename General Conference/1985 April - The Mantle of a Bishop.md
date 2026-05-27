@@ -1,5 +1,7 @@
 # The Mantle of a Bishop
 
+Gordon B. Hinckley
+
 By Bishop Robert D. Hales - *Presiding Bishop*
 
 *Given in the April session of the 1985 General Conference*
@@ -46,9 +48,9 @@ All members of the Church can turn to their bishops when they are in need of hel
 
 In the forty-first section of the Doctrine and Covenants, on that day when Edward Partridge was called, the superscription says, “The members were striving to do the will of God so far as they knew it.” And that’s true today. We strive to do the Lord’s will so far as we know it. The section goes on to say that the Lord asks us to assemble ourselves together to agree upon his word. (See [[D&C 41.2|D&C 41:2]].) If we do that, there will be unity. That unity has been here today. May the Lord’s blessings continue, that “by the prayer of your faith,” as the Lord promises, “ye shall receive my law, that ye may know how to govern my church and have all things right before me.” ([[D&C 41.3|D&C 41:3]].)
 
-In conclusion, let’s turn to the story of Elijah and Elisha. Elijah had gone from his duties to go up to a cave. The Lord came to him, and he was called to go back to his duties. He had not had a convert for some period of years, but when he went back he found Elisha, who immediately followed him. (See [[1 Kings 19.1|1 Kgs. 19]][[1 Kings 19.2|]][[1 Kings 19.3|]][[1 Kings 19.4|]][[1 Kings 19.5|]][[1 Kings 19.6|]][[1 Kings 19.7|]][[1 Kings 19.8|]][[1 Kings 19.9|]][[1 Kings 19.10|]][[1 Kings 19.11|]][[1 Kings 19.12|]][[1 Kings 19.13|]][[1 Kings 19.14|]][[1 Kings 19.15|]][[1 Kings 19.16|]][[1 Kings 19.17|]][[1 Kings 19.18|]][[1 Kings 19.19|]][[1 Kings 19.20|]][[1 Kings 19.21|]].)
+In conclusion, let’s turn to the story of Elijah and Elisha. Elijah had gone from his duties to go up to a cave. The Lord came to him, and he was called to go back to his duties. He had not had a convert for some period of years, but when he went back he found Elisha, who immediately followed him. (See [[1 Kings 19.1|1 Kgs. 19]][[1 Kings 19.2|]][[1 Kings 19.3|]][[1 Kings 19.4|]][[1 Kings 19.5|]][[1 Kings 19.6|]][[1 Kings 19.7|]][[1 Kings 19.8|]][[1 Kings 19.9|]][[1 Kings 19.10|]][[1 Kings 19.11|]][[1 Kings 19.12|]][[1 Kings 19.13|]][[1 Kings 19.14|]][[1 Kings 19.15|]][[1 Kings 19.16|]][[1 Kings 19.17|]][[1 Kings 19.18|]][[1 Kings 19.19|]][[1 Kings 19.20|]][[1 Kings 19.21|]].)
 
-They dwelt and worked together for a few years until the time came when all the priesthood leaders knew that it was time for Elijah to be translated. Elijah and Elisha stood at the banks of the River Jordan. Fifty other priesthood holders stood in view far off as the two stood by the Jordan. “And Elijah took his mantle, and wrapped it together, and smote the waters, and they were divided hither and thither, so that they two went over on dry ground.” And Elijah said to Elisha, “Ask what I shall do for thee.” Can you imagine? Then Elijah was translated and departed in a flaming chariot, and the only thing that was left was his mantle. Elisha picked up the mantle, then turned toward the fifty priesthood leaders who were standing afar off. He had to return over the river, so he picked up the cloak, smote the River Jordan, and it parted. (See [[2 Kings 2.1|2 Kgs. 2:1–15]][[2 Kings 2.2|]][[2 Kings 2.3|]][[2 Kings 2.4|]][[2 Kings 2.5|]][[2 Kings 2.6|]][[2 Kings 2.7|]][[2 Kings 2.8|]][[2 Kings 2.9|]][[2 Kings 2.10|]][[2 Kings 2.11|]][[2 Kings 2.12|]][[2 Kings 2.13|]][[2 Kings 2.14|]][[2 Kings 2.15|]].)
+They dwelt and worked together for a few years until the time came when all the priesthood leaders knew that it was time for Elijah to be translated. Elijah and Elisha stood at the banks of the River Jordan. Fifty other priesthood holders stood in view far off as the two stood by the Jordan. “And Elijah took his mantle, and wrapped it together, and smote the waters, and they were divided hither and thither, so that they two went over on dry ground.” And Elijah said to Elisha, “Ask what I shall do for thee.” Can you imagine? Then Elijah was translated and departed in a flaming chariot, and the only thing that was left was his mantle. Elisha picked up the mantle, then turned toward the fifty priesthood leaders who were standing afar off. He had to return over the river, so he picked up the cloak, smote the River Jordan, and it parted. (See [[2 Kings 2.1|2 Kgs. 2:1–15]][[2 Kings 2.2|]][[2 Kings 2.3|]][[2 Kings 2.4|]][[2 Kings 2.5|]][[2 Kings 2.6|]][[2 Kings 2.7|]][[2 Kings 2.8|]][[2 Kings 2.9|]][[2 Kings 2.10|]][[2 Kings 2.11|]][[2 Kings 2.12|]][[2 Kings 2.13|]][[2 Kings 2.14|]][[2 Kings 2.15|]].)
 
 I now stand at the Jordan with two sweet counselors, Bishop Eyring and Bishop Pace, as we attempt to cross the River Jordan to serve together. I ask for the blessings of Bishop Brown, Bishop Clarke, and Bishop Peterson, and all those who are here, that my counselors and I might also have that river part so we may return and go about our mission.
 
@@ -61,8 +63,3 @@ May the Lord’s blessings be with each and every one of us. It is my testimony 
 
 
 
-
-
-
-
-#Bishops

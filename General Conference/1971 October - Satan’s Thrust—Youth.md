@@ -1,5 +1,7 @@
 # Satan’s Thrust—Youth
 
+Joseph Fielding Smith
+
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the October session of the 1971 General Conference*
@@ -18,17 +20,17 @@ A letter from a concerned father about the evil effects of some popular music is
 
 *“Rhythm* is the most physical element in music. It is the only element in music that can exist in bodily movement without benefit of sound. A mind dulled by drugs or alcohol can still respond to the beat.
 
-*“Loudness* adds to muddling the mind. Sound magnified to the threshold of pain is of such physical violence as to block the higher processes of thought and reason. (And turning down the volume of this destructive music does not remove the other evils.) …
+*“Loudness* adds to muddling the mind. Sound magnified to the threshold of pain is of such physical violence as to block the higher processes of thought and reason. (And turning down the volume of this destructive music does not remove the other evils.) …
 
-*“Repetition* to the extreme is another primitive rock device. …
+*“Repetition* to the extreme is another primitive rock device. …
 
-*“Gyrations,* a twin to rock rhythm, are such that even clean hands and a pure heart cannot misinterpret their insinuations. …
+*“Gyrations,* a twin to rock rhythm, are such that even clean hands and a pure heart cannot misinterpret their insinuations. …
 
 *“Darkness* \[and dimmed lights\] is another facet of the rock scene. It is a black mass that deadens the conscience in a mask of anonymity. Identity lost in darkness shrinks from the normal feelings of responsibility.
 
-*“Strobe lights* split the darkness in blinding shafts that reduce resistance like the lights of an interrogator’s third degree or the swinging pendulum of the hypnotist who would control your behavior. …
+*“Strobe lights* split the darkness in blinding shafts that reduce resistance like the lights of an interrogator’s third degree or the swinging pendulum of the hypnotist who would control your behavior. …
 
-“The whole psychedelic design \[this father continues\] is a swinging door to drugs, sex, rebellion, and Godlessness. Combined with the screaming obscenities of the lyrics, this mesmerizing music has borne the fruit of filth. Leaders of the rock society readily proclaim their degeneracy. …
+“The whole psychedelic design \[this father continues\] is a swinging door to drugs, sex, rebellion, and Godlessness. Combined with the screaming obscenities of the lyrics, this mesmerizing music has borne the fruit of filth. Leaders of the rock society readily proclaim their degeneracy. …
 
 “And the most diabolical deceit of this infamy is that it denies evil to be an absolute. Our religion is one of absolutes and cannot be rationalized into a relativistic philosophy of the ‘liberal Mormons.’ We cannot safely rationalize away righteousness.
 
@@ -48,13 +50,13 @@ All is not well in Zion. The inspired Book of Mormon prophets saw this day and, 
 
 “And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.
 
-“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance. …
+“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance. …
 
 “Therefore, wo be unto him that is at ease in Zion!
 
 “Wo be unto him that crieth: All is well!
 
-“Yea, wo be unto him that hearkeneth unto the precepts of men, and denieth the power of God, and the gift of the Holy Ghost!” ([[2 Nephi 28.20|2 Ne. 28:20–22, 24–26]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.24|]][[2 Nephi 28.25|]][[2 Nephi 28.26|]].)
+“Yea, wo be unto him that hearkeneth unto the precepts of men, and denieth the power of God, and the gift of the Holy Ghost!” ([[2 Nephi 28.20|2 Ne. 28:20–22, 24–26]][[2 Nephi 28.21|]][[2 Nephi 28.22|]][[2 Nephi 28.24|]][[2 Nephi 28.25|]][[2 Nephi 28.26|]].)
 
 The Lord, through a modern prophet, has given us a solemn charge:
 
@@ -96,7 +98,7 @@ A study of Satan’s methods can alert us to his seductions. In his cunning he k
 
 The Spirit of the Lord blesses that which edifies and leads men to Christ. Would his Spirit bless with its presence these festering festivals of human degradation cured in LSD, marijuana, and Speed? Would he be pleased by the vulgar display of unashamed nudity and immorality? The speech of the rock festival is often obscene. Its music, crushing the sensibilities in a din of primitive idolatry, is in glorification of the physical to the debasement of the spirit. In the long panorama of man’s history, these youthful rock music festivals are among Satan’s greatest successes. The legendary orgies of Greece and Rome cannot compare to the monumental obscenities found in these cesspools of drugs, immorality, rebellion, and pornophonic sound. The famed Woodstock festival was a gigantic manifestation of a sick nation. Yet the lurid movie and rock recordings of its unprecedented filth were big business in our own mountain home.
 
-The Lord said, “For my soul delighteth in the song of the heart; yea, the song of the righteous is a prayer unto me. …” ([[D&C 25.12|D&C 25:12]].) It was pleasing unto the Lord where in Third Nephi in the great Book of Mormon we read: “… they did break forth, all as one, in singing, and praising their God. …” ([[3 Nephi 4.31|3 Ne. 4:31]].) It was pleasing unto Satan when in First Nephi, Lehi’s children and the “sons of Ishmael and also their wives began to make themselves merry, insomuch that they began to dance, and to sing, and to speak with much rudeness. …” ([[1 Nephi 18.9|1 Ne. 18:9]].)
+The Lord said, “For my soul delighteth in the song of the heart; yea, the song of the righteous is a prayer unto me. …” ([[D&C 25.12|D&C 25:12]].) It was pleasing unto the Lord where in Third Nephi in the great Book of Mormon we read: “… they did break forth, all as one, in singing, and praising their God. …” ([[3 Nephi 4.31|3 Ne. 4:31]].) It was pleasing unto Satan when in First Nephi, Lehi’s children and the “sons of Ishmael and also their wives began to make themselves merry, insomuch that they began to dance, and to sing, and to speak with much rudeness. …” ([[1 Nephi 18.9|1 Ne. 18:9]].)
 
 And now a music scholar points to “a new direction in the rock-drug culture \[which is\] hailed by many ministers and the music industry as a silver lining in the clouds of gold. Religious rock is climbing up the ‘Top Ten’ charts. The growing resistance to the rock-drug scene is being diverted by this wholesome-appearing retreat from the new morality. But a review of religious rock materials unmasks an insidiously disguised anti-Christ. By reducing revealed religion to mythology, rock assumes the mantle of righteousness while rejecting the reality of sin. Without sin the new morality can continue in its Godless revel behind the pretense of religious robes. By reversing the roles of Jesus and Judas, one fast-selling album fits perfectly the warning of Isaiah \[[[Isaiah 5.20|Isa. 5:20]]\]: ‘Woe unto them that call evil good, and good evil; that put darkness for light, and light for darkness.’” (Richard Nibley.)
 
@@ -104,7 +106,7 @@ Little wonder that the leadership of the Church felt impelled to speak out again
 
 Yes, we live in the best of times when the restored gospel of Jesus Christ brings hope to all the world. And the worst of times, for Satan is raging. With relentless vigor he plunges in the harvest.
 
-How can we thwart his designs? The MIA scriptural recitation for last year gives us a pattern to follow. The [[Articles of Faith 1.13|Thirteenth Article of Faith]] of the Church contains an important key: “… If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.”
+How can we thwart his designs? The MIA scriptural recitation for last year gives us a pattern to follow. The [[Articles of Faith 1.13|Thirteenth Article of Faith]] of the Church contains an important key: “… If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.”
 
 But will we really seek? To seek requires effort.
 
@@ -131,8 +133,3 @@ God grant that we as parents and leaders of youth may have the power and the goo
 
 
 
-
-
-
-
-#Music #Satan #Youth

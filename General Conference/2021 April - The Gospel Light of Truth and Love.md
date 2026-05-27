@@ -1,6 +1,8 @@
 # The Gospel Light of Truth and Love
 
-By Elder Alan R. Walker - *Of the Seventy*
+Russell M. Nelson
+
+By Elder Alan R. Walker - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -16,7 +18,7 @@ The beautiful Latter-day Saint hymn “Hark, All Ye Nations!” unmistakably cap
 >Truth is restored again![^1]
 >
 
-Louis F. Mönch, the author of this jubilant text, was a German convert who wrote the inspired words for the hymn while living in Switzerland during his full-time missionary service in Europe.[^2] The joy that springs from witnessing the global impact of the Restoration is clearly articulated in the following words of the hymn:
+Louis F. Mönch, the author of this jubilant text, was a German convert who wrote the inspired words for the hymn while living in Switzerland during his full-time missionary service in Europe.[^2] The joy that springs from witnessing the global impact of the Restoration is clearly articulated in the following words of the hymn:
 
 >Searching in darkness, nations have wept;
 >Watching for dawn, their vigil they’ve kept.
@@ -28,7 +30,7 @@ Thanks to the commencing of the ongoing Restoration just over 200 years ago, “
 
 Shortly after the organization of the Church in this last dispensation, the Lord spoke to Joseph Smith and manifested His abounding love for us when He said:
 
-“Wherefore, I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments; …
+“Wherefore, I the Lord, knowing the calamity which should come upon the inhabitants of the earth, called upon my servant Joseph Smith, Jun., and spake unto him from heaven, and gave him commandments; …
 
 “That mine everlasting covenant might be established;
 
@@ -42,7 +44,7 @@ Soon after this revelation was received, missionaries began to be called and sen
 
 “The two-million-member mark was reached just 16 years later, in 1963, and the three-million mark in eight years more.”[^8]
 
-Highlighting the rapid growth of the Church, President Russell M. Nelson recently said: “Today, the Lord’s work in The Church of Jesus Christ of Latter-day Saints is moving forward at an accelerated pace. The Church will have an unprecedented, unparalleled future.”[^9]
+Highlighting the rapid growth of the Church, President Russell M. Nelson recently said: “Today, the Lord’s work in The Church of Jesus Christ of Latter-day Saints is moving forward at an accelerated pace. The Church will have an unprecedented, unparalleled future.”[^9]
 
 The Restoration of the fulness of the gospel of Jesus Christ, the organization of the Lord’s living Church on the earth again, and its remarkable growth since then have made the blessings of the priesthood available throughout the earth. Sacred ordinances and covenants that bind us to God and set us on the covenant path clearly manifest “the power of godliness.”[^10] As we participate in these sacred ordinances for the living and for the dead, we gather Israel on both sides of the veil and prepare the earth for the Second Coming of the Savior.
 
@@ -85,44 +87,39 @@ Brothers and sisters, may we be willing and decide today to engage ourselves and
 
 
 
-[^1]: “Hark, All Ye Nations!,” *Hymns*, no. 264.
+[^1]: “Hark, All Ye Nations!,” *Hymns*, no. 264.
 
 [^2]: See Karen Lynn Davidson, *Our Latter-Day Hymns: The Stories and the Messages* (1988), 268–69, 413.
 
-[^3]: “Hark, All Ye Nations!,” *Hymns*, no. 264.
+[^3]: “Hark, All Ye Nations!,” *Hymns*, no. 264.
 
-[^4]: “Hark, All Ye Nations!,” *Hymns*, no. 264.
+[^4]: “Hark, All Ye Nations!,” *Hymns*, no. 264.
 
 [^5]: [[James 1.5|James 1:5]].
 
 [^6]: [[D&C 1.17|Doctrine and Covenants 1:17, 22–23]][[D&C 1.22|]][[D&C 1.23|]].
 
-[^7]: [[2 Nephi 30.8|2 Nephi 30:8]].
+[^7]: [[2 Nephi 30.8|2 Nephi 30:8]].
 
 [^8]: “[Growth of the Church](https://newsroom.churchofjesuschrist.org/topic/church-growth),” newsroom.ChurchofJesusChrist.org.
 
-[^9]: Russell M. Nelson, “[The Future of the Church: Preparing the World for the Savior’s Second Coming](https://churchofjesuschrist.org/study/liahona/2020/04/the-future-of-the-church-preparing-the-world-for-the-saviors-second-coming?lang=eng),” *Ensign*, Apr. 2020, 13; *Liahona*, Apr. 2020, 7.
+[^9]: Russell M. Nelson, “[The Future of the Church: Preparing the World for the Savior’s Second Coming](https://www.churchofjesuschrist.org/study/liahona/2020/04/the-future-of-the-church-preparing-the-world-for-the-saviors-second-coming?lang=eng),” *Ensign*, Apr. 2020, 13; *Liahona*, Apr. 2020, 7.
 
 [^10]: [[D&C 84.20|Doctrine and Covenants 84:20]].
 
 [^11]: [[Jeremiah 31.33|Jeremiah 31:33]].
 
-[^12]: [[2 Nephi 1.15|2 Nephi 1:15]].
+[^12]: [[2 Nephi 1.15|2 Nephi 1:15]].
 
-[^13]: Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 79.
+[^13]: Russell M. Nelson, “[[2019 October - Spiritual Treasures.md|Spiritual Treasures]],” *Ensign* or *Liahona*, Nov. 2019, 79.
 
-[^14]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2019, 120.
+[^14]: Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona*, Nov. 2019, 120.
 
-[^15]: “Hark, All Ye Nations!,” *Hymns*, no. 264.
+[^15]: “Hark, All Ye Nations!,” *Hymns*, no. 264.
 
 [^16]: [[Isaiah 29.14|Isaiah 29:14]].
 
-[^17]: See [[2 Nephi 25.17|2 Nephi 25:17]].
+[^17]: See [[2 Nephi 25.17|2 Nephi 25:17]].
 
-[^18]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 142.
+[^18]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng)* (2007), 142.
 
-
-
-
-
-#Covenants #Gospel #Love #Missionary_Work #Restoration #Temples #Truth

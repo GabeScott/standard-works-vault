@@ -4,6 +4,3 @@
 
 [JST Romans 8:8](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-rom/8?lang=eng)
 
-
-
-

@@ -1,5 +1,7 @@
 # A Doorway Called Love
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1987 General Conference*
@@ -10,7 +12,7 @@ Recently there moved over the wires of Associated Press a catalog of crime as th
 
 The headlines were brief. They highlighted murder, rape, robbery, molestation, fraud, deceit, and corruption. I made note of several: “Man Slays Wife and Children, Then Turns Gun on Self”; “Child Identifies Molester”; “Hundreds Lose All As Multimillion-Dollar Scam Is Exposed.” The sordid list continued. Shades of Sodom, glimpses of Gomorrah.
 
-President Ezra Taft Benson has often stated, “We live in a wicked world.” The Apostle Paul warned, “Men shall be lovers of their own selves, covetous, boasters, proud, blasphemers, disobedient to parents, unthankful, unholy. … lovers of pleasures more than lovers of God” ([[2 Timothy 3.2|2 Tim. 3:2–4]][[2 Timothy 3.3|]][[2 Timothy 3.4|]]).
+President Ezra Taft Benson has often stated, “We live in a wicked world.” The Apostle Paul warned, “Men shall be lovers of their own selves, covetous, boasters, proud, blasphemers, disobedient to parents, unthankful, unholy. … lovers of pleasures more than lovers of God” ([[2 Timothy 3.2|2 Tim. 3:2–4]][[2 Timothy 3.3|]][[2 Timothy 3.4|]]).
 
 Must we suffer the same fate as those who lived in the cities of the plain? Can we not learn the lesson taught in the time of Noah? “Is there no balm in Gilead?” ([[Jeremiah 8.22|Jer. 8:22]]). Or is there a doorway that leads us from the morass of worldliness onward and upward to the high ground of righteousness? There echoes ever so gently to the honest mind that personal invitation of the Lord: “Behold, I stand at the door, and knock: if any man hear my voice, and open the door, I will come in to him” ([[Revelation 3.20|Rev. 3:20]]). Does that doorway have a name? It surely does. I have chosen to call it “the doorway of love.”
 
@@ -58,13 +60,13 @@ Little children can learn the lesson of love. Profound instruction from holy wri
 
 Home should be a haven of love. Honor, courtesy, and respect symbolize love and characterize the righteous family. Fathers in such homes will not hear the denunciation of the Lord as recorded in the book of Jacob: “Ye have broken the hearts of your tender wives, and lost the confidence of your children, because of your bad examples before them; and the sobbings of their hearts ascend up to God against you” ([[Jacob 2.35|Jacob 2:35]]).
 
-In 3 Nephi the Master instructed: “There shall be no disputations among you. …
+In 3 Nephi the Master instructed: “There shall be no disputations among you. …
 
 “For verily, verily I say unto you, he that hath the spirit of contention is not of me, but is of the devil, who is the father of contention, and he stirreth up the hearts of men to contend with anger, one with another.
 
-“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away” ([[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]).
+“Behold, this is not my doctrine, to stir up the hearts of men with anger, one against another; but this is my doctrine, that such things should be done away” ([[3 Nephi 11.28|3 Ne. 11:28–30]][[3 Nephi 11.29|]][[3 Nephi 11.30|]]).
 
-Where love is, there is no disputation. Where love is, there is no contention. Where love is, there God will be also. Each of us has the responsibility to keep His commandments. The lessons found in scripture find fulfillment in our lives. Joseph Smith taught that “happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 255–56).
+Where love is, there is no disputation. Where love is, there is no contention. Where love is, there God will be also. Each of us has the responsibility to keep His commandments. The lessons found in scripture find fulfillment in our lives. Joseph Smith taught that “happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 255–56).
 
 In the classic musical production *Camelot,* there is a line with words of warning for all. After the familiar triangle began to deepen regarding King Arthur, Lancelot, and Guenevere, King Arthur said, “We must not let our passions destroy our dreams.”
 
@@ -82,9 +84,9 @@ I extol those who, with loving care and compassionate concern, feed the hungry, 
 >Love isn’t love till you give it away.
 >
 
-From the Holy Bible we read: “And it came to pass … that \[Jesus\] went into a city called Nain. …
+From the Holy Bible we read: “And it came to pass … that \[Jesus\] went into a city called Nain. …
 
-“When he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow. …
+“When he came nigh to the gate of the city, behold, there was a dead man carried out, the only son of his mother, and she was a widow. …
 
 “And when the Lord saw her, he had compassion on her, and said unto her, Weep not.
 
@@ -158,8 +160,3 @@ The wondrous gift was given, the heavenly blessing was received, the dear Christ
 
 
 
-
-
-
-
-#Jesus_Christ #Love

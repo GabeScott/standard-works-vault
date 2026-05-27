@@ -1,12 +1,16 @@
 # Church Finance Committee Report
 
-By Presented by Wilford G. Edling
+Spencer W. Kimball
+
+By Presented by Wilford G. Edling
 
 *Given in the April session of the 1975 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1975/04/church-finance-committee-report?lang=eng)
 
-To the First Presidency of The Church of Jesus Christ of Latter-day SaintsDear Brethren:
+To the First Presidency of The Church of Jesus Christ of Latter-day Saints
+
+Dear Brethren:
 
 We have reviewed the annual financial report of the Church for the fiscal year ending August 31, 1974, which includes operations involving the general funds of the Church and funds of other organizations controlled by the Church whose accounts are maintained by the Financial Department of the Church. We have also examined the budgeting, accounting, and auditing procedures employed and the manner in which funds are received and expenditures are controlled. We have determined that expenditures of general Church funds were authorized by the First Presidency and by budgetary procedures and that the budget is authorized by the Council on Disposition of the Tithes comprised of the First Presidency, the Council of the Twelve, and the Presiding Bishopric. The Committee of Expenditures, in weekly meetings, administers the expenditure of funds under the budget.
 
@@ -16,7 +20,19 @@ The Auditing Department, which is independent of all other departments, conducts
 
 Based on our review of the annual financial report of the Church and our study of the accounting and auditing methods by which financial operations are controlled, together with continuing discussions with personnel of the Financial and Auditing Departments, we are of the opinion that the general funds of the Church have been properly accounted for and expenditures of funds during the fiscal year ending August 31, 1974, were made in accordance with established procedures outlined herein.
 
-Respectfully submitted,CHURCH FINANCE COMMITTEEWilford G. EdlingHarold H. BennettWeston E. HamiltonDavid M. KennedyWarren E. Pugh
+Respectfully submitted,
+
+CHURCH FINANCE COMMITTEE
+
+Wilford G. Edling
+
+Harold H. Bennett
+
+Weston E. Hamilton
+
+David M. Kennedy
+
+Warren E. Pugh
 
 
 

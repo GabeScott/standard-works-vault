@@ -1,5 +1,7 @@
 # Pearls from the Sand
 
+Gordon B. Hinckley
+
 By Elder E Ray Bateman - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -43,8 +45,3 @@ I know that He lives and guides His Church through His prophet, President Gordon
 
 
 
-
-
-
-
-#Fellowshipping #Holy_Ghost #Jesus_Christ #Missionary_Work

@@ -1,6 +1,8 @@
 # In the Space of Not Many Years
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -74,7 +76,7 @@ The Lamanites turned to God and were brought to a knowledge of the truth by beli
 
 “Therefore, as many as have come to this, ye know of yourselves are firm and steadfast in the faith, and in the thing wherewith they have been made free.”[^28]
 
-“Ye should behold that the more part of \[the Lamanites\] are in the path of their duty, and they do walk circumspectly before God, and they do observe to keep his commandments and his statutes and his judgments. …
+“Ye should behold that the more part of \[the Lamanites\] are in the path of their duty, and they do walk circumspectly before God, and they do observe to keep his commandments and his statutes and his judgments. …
 
 “… They are striving with unwearied diligence that they may bring the remainder of their brethren to the knowledge of the truth.”[^29]
 
@@ -90,7 +92,7 @@ Please remember that the Book of Mormon looks to the future and contains importa
 
 Apostasy can occur at two basic levels—institutional and individual. At the institutional level, The Church of Jesus Christ of Latter-day Saints will not be lost through apostasy or taken from the earth.
 
-The Prophet Joseph Smith proclaimed: “The Standard of Truth has been erected; no unhallowed hand can stop the work from progressing … ; the truth of God will go forth boldly, nobly, and independent, till it has penetrated every continent, visited every clime, swept every country, and sounded in every ear, till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done.”[^32]
+The Prophet Joseph Smith proclaimed: “The Standard of Truth has been erected; no unhallowed hand can stop the work from progressing … ; the truth of God will go forth boldly, nobly, and independent, till it has penetrated every continent, visited every clime, swept every country, and sounded in every ear, till the purposes of God shall be accomplished, and the Great Jehovah shall say the work is done.”[^32]
 
 At the individual level, each of us must “beware of pride, lest \[we\] become as the Nephites of old.”[^33]
 
@@ -115,7 +117,7 @@ I joyfully witness that God the Eternal Father is our Father. Jesus Christ is Hi
 
 [^5]: [[Helaman 6.32|Helaman 6:32]].
 
-[^6]: [[Helaman 3.33|Helaman 3:33, 36]][[Helaman 3.36|]].
+[^6]: [[Helaman 3.33|Helaman 3:33, 36]][[Helaman 3.36|]].
 
 [^7]: [[Helaman 7.21|Helaman 7:21]].
 
@@ -143,7 +145,7 @@ I joyfully witness that God the Eternal Father is our Father. Jesus Christ is Hi
 
 [^19]: See [[Helaman 6.31|Helaman 6:31]].
 
-[^20]: See [[1 Nephi 8.28|1 Nephi 8:28]].
+[^20]: See [[1 Nephi 8.28|1 Nephi 8:28]].
 
 [^21]: [[Helaman 6.31|Helaman 6:31]].
 
@@ -167,13 +169,13 @@ I joyfully witness that God the Eternal Father is our Father. Jesus Christ is Hi
 
 [^31]: [[Mormon 8.34|Mormon 8:34–35]][[Mormon 8.35|]].
 
-[^32]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 142.
+[^32]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng&id=p24#p24)* (2007), 142.
 
 [^33]: [[D&C 38.39|Doctrine and Covenants 38:39]].
 
 [^34]: See [[Genesis 25.29|Genesis 25:29–34]][[Genesis 25.30|]][[Genesis 25.31|]][[Genesis 25.32|]][[Genesis 25.33|]][[Genesis 25.34|]].
 
-[^35]: See [[1 Nephi 16.29|1 Nephi 16:29]]; [[Alma 37.6|Alma 37:6–7]][[Alma 37.7|]]; [[D&C 64.32|Doctrine and Covenants 64:32–33]][[D&C 64.33|]].
+[^35]: See [[1 Nephi 16.29|1 Nephi 16:29]]; [[Alma 37.6|Alma 37:6–7]][[Alma 37.7|]]; [[D&C 64.32|Doctrine and Covenants 64:32–33]][[D&C 64.33|]].
 
 [^36]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -185,8 +187,3 @@ I joyfully witness that God the Eternal Father is our Father. Jesus Christ is Hi
 
 [^40]: See [[D&C 19.23|Doctrine and Covenants 19:23]].
 
-
-
-
-
-#Apostasy #Book_Of_Mormon #Pride

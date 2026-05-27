@@ -1,7 +1,6 @@
 # Garnish
 
-
-*See also* [[Adorn, Adorning.md|Adorn]]
+*See also* [[Adorn.md|Adorn]]
 
 By his spirit he hath *garnished* the heavens, [[Job 26.13|Job 26:13]].
 

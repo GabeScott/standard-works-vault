@@ -1,6 +1,8 @@
 # Only upon the Principles of Righteousness
 
-By Elder Larry Y. Wilson - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Larry Y. Wilson - *Of the Seventy*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -44,9 +46,9 @@ Mary had received answers to her prayers in other, earlier situations, and so we
 
 An additional and tragic side effect of unrighteous dominion can be a loss of trust in God’s love. I have known some people who were subject to demanding and controlling leaders or parents, and they have found it hard to feel the very love from their Heavenly Father that would sustain them and motivate them along the path of righteousness.
 
-If we are going to help those in our stewardships make the all-important link with heaven, we must be the kind of parent and leader described in Doctrine and Covenants, section 121. We must act “only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned.”[^9] President Henry B. Eyring has said, “Of all the help we can give … young people, the greatest will be to let them feel our confidence that they are on the path home to God and that they can make it.”[^10]
+If we are going to help those in our stewardships make the all-important link with heaven, we must be the kind of parent and leader described in Doctrine and Covenants, section 121. We must act “only by persuasion, by long-suffering, by gentleness and meekness, and by love unfeigned.”[^9] President Henry B. Eyring has said, “Of all the help we can give … young people, the greatest will be to let them feel our confidence that they are on the path home to God and that they can make it.”[^10]
 
-As we consider the principles that should guide us in the Church and at home, let me close with an illustration from the biography of President Thomas S. Monson. Ann Dibb, the Monsons’ daughter, says that to this day, when she walks in the front door of the house where she was raised, her father will say, “Oh, look who’s here. And aren’t we glad, and isn’t she beautiful?” She goes on to say: “My parents always give me some compliment; it doesn’t matter what I look like or what I’ve been doing. … When I go and visit my parents, I know I am loved, I am complimented, I am made welcome, I am home.”[^11]
+As we consider the principles that should guide us in the Church and at home, let me close with an illustration from the biography of President Thomas S. Monson. Ann Dibb, the Monsons’ daughter, says that to this day, when she walks in the front door of the house where she was raised, her father will say, “Oh, look who’s here. And aren’t we glad, and isn’t she beautiful?” She goes on to say: “My parents always give me some compliment; it doesn’t matter what I look like or what I’ve been doing. … When I go and visit my parents, I know I am loved, I am complimented, I am made welcome, I am home.”[^11]
 
 Brothers and sisters, this is the Lord’s way. Even if you’ve been mistreated in the past, I know the Lord wants you to come unto Him.[^12] *All* are loved. *All* are welcomed. In the name of Jesus Christ, amen.
 
@@ -57,7 +59,7 @@ Brothers and sisters, this is the Lord’s way. Even if you’ve been mistreated
 
 [^2]: [[D&C 121.37|Doctrine and Covenants 121:37]]; emphasis added.
 
-[^3]: See Neal A. Maxwell, “Put Off the Natural Man, and Come Off Conqueror,” *Tambuli,* Jan. 1991, 13–14; *Ensign,* Nov. 1990, 14–16.
+[^3]: See Neal A. Maxwell, “Put Off the Natural Man, and Come Off Conqueror,” *Tambuli,* Jan. 1991, 13–14; *Ensign,* Nov. 1990, 14–16.
 
 [^4]: See [[D&C 121.37|Doctrine and Covenants 121:37]].
 
@@ -71,14 +73,9 @@ Brothers and sisters, this is the Lord’s way. Even if you’ve been mistreated
 
 [^9]: [[D&C 121.41|Doctrine and Covenants 121:41]].
 
-[^10]: Henry B. Eyring, “Help Them on Their Way Home,” *Liahona* and *Ensign,* May 2010, 25.
+[^10]: Henry B. Eyring, “Help Them on Their Way Home,” *Liahona* and *Ensign,* May 2010, 25.
 
-[^11]: See Heidi S. Swinton, *To the Rescue: The Biography of Thomas S. Monson* (2010), 372.
+[^11]: See Heidi S. Swinton, *To the Rescue: The Biography of Thomas S. Monson* (2010), 372.
 
 [^12]: See [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-
-#Leadership #Obedience #Parenthood #Priesthood

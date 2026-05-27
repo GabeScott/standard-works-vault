@@ -1,5 +1,7 @@
 # Jesus Christ, Our Redeemer
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1997 General Conference*
@@ -14,7 +16,7 @@ Paul testified, “Being made perfect, he became the author of eternal salvation
 
 Eternal salvation—how precious! But you must obey Him to obtain it.
 
-“Jesus said … , I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live:
+“Jesus said … , I am the resurrection, and the life: he that believeth in me, though he were dead, yet shall he live:
 
 “And whosoever liveth and believeth in me shall never die.”[^3]
 
@@ -65,7 +67,7 @@ I witness that “remission of sins \[through the Atonement\] bringeth meekness,
 
 [^4]: [[D&C 14.7|D&C 14:7]].
 
-[^5]: See [[2 Nephi 9.21|2 Ne. 9:21–24]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]].
+[^5]: See [[2 Nephi 9.21|2 Ne. 9:21–24]][[2 Nephi 9.22|]][[2 Nephi 9.23|]][[2 Nephi 9.24|]].
 
 [^6]: [[Helaman 5.9|Hel. 5:9]].
 
@@ -73,17 +75,17 @@ I witness that “remission of sins \[through the Atonement\] bringeth meekness,
 
 [^8]: See John Taylor, *The Mediation and Atonement* (1882), 179–83; see also [[Revelation 3.21|Rev. 3:21]]; [[Revelation 21.7|21:7]].
 
-[^9]: [[2 Nephi 9.7|2 Ne. 9:7–9]][[2 Nephi 9.8|]][[2 Nephi 9.9|]].
+[^9]: [[2 Nephi 9.7|2 Ne. 9:7–9]][[2 Nephi 9.8|]][[2 Nephi 9.9|]].
 
-[^10]: [[2 Nephi 2.6|2 Ne. 2:6–7]][[2 Nephi 2.7|]]; emphasis added.
+[^10]: [[2 Nephi 2.6|2 Ne. 2:6–7]][[2 Nephi 2.7|]]; emphasis added.
 
-[^11]: [[2 Nephi 2.8|2 Ne. 2:8]]; emphasis added.
+[^11]: [[2 Nephi 2.8|2 Ne. 2:8]]; emphasis added.
 
-[^12]: [[2 Nephi 25.23|2 Ne. 25:23]].
+[^12]: [[2 Nephi 25.23|2 Ne. 25:23]].
 
 [^13]: [[Omni 1.26|Omni 1:26]].
 
-[^14]: [[3 Nephi 12.19|3 Ne. 12:19]].
+[^14]: [[3 Nephi 12.19|3 Ne. 12:19]].
 
 [^15]: See *Melvin J. Ballard—Crusader for Righteousness* (1966), 212–13.
 
@@ -93,8 +95,3 @@ I witness that “remission of sins \[through the Atonement\] bringeth meekness,
 
 [^18]: See Spencer W. Kimball, *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 252.
 
-
-
-
-
-#Atonement #Covenants #Jesus_Christ #Joy #Mercy #Ordinances #Plan_Of_Salvation #Premortal_Existence #Priorities #Temples

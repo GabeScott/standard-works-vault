@@ -1,7 +1,6 @@
 # Conscience
 
-
-*See also* [[God, Gifts of.md|God, Gifts of]]; [[God, Spirit of.md|God, Spirit of]]; [[Heart.md|Heart]]; [[Inspiration, Inspire.md|Inspiration]]; [[Mind, Minded.md|Mind]]; [BD Conscience](https://www.churchofjesuschrist.org/study/scriptures/bd/conscience?lang=eng)
+*See also* [[God, Gifts of.md|God, Gifts of]]; [[God, Spirit of.md|God, Spirit of]]; [[Heart.md|Heart]]; [[Inspiration.md|Inspiration]]; [[Mind.md|Mind]]; [[BD Conscience.md|BD Conscience]]
 
 be as gods, *knowing* good and evil, [[Genesis 3.5|Genesis 3:5]] ([[Genesis 3.22|Genesis 3:22]]; [[Moses 4.11|Moses 4:11]]; [[Moses 4.28|Moses 4:28]]).
 
@@ -13,17 +12,17 @@ lived in all good *conscience* before God, [[Acts 23.1|Acts 23:1]].
 
 *conscience* void of offence toward God, [[Acts 24.16|Acts 24:16]].
 
-their *conscience* also bearing witness, [[Romans 2.15|Romans 2:15]] ([[Romans 9.1|9:1-2]][[Romans 9.2|]]).
+their *conscience* also bearing witness, [[Romans 2.15|Romans 2:15]].
 
-ye must needs be subject ... for *conscience* sake, [[Romans 13.5|Romans 13:5]].
+ye must needs be subject … for *conscience* sake, [[Romans 13.5|Romans 13:5]].
 
 their *conscience* being weak is defiled, [[1 Corinthians 8.7|1 Corinthians 8:7]].
 
-why is my liberty judged of another man's *conscience*, [[1 Corinthians 10.29|1 Corinthians 10:29]].
+why is my liberty judged of another man’s *conscience*, [[1 Corinthians 10.29|1 Corinthians 10:29]].
 
-commending ourselves to every man's *conscience*, [[2 Corinthians 4.2|2 Corinthians 4:2]].
+commending ourselves to every man’s *conscience*, [[2 Corinthians 4.2|2 Corinthians 4:2]].
 
-we ... are made manifest in your *consciences*, [[2 Corinthians 5.11|2 Corinthians 5:11]].
+we … are made manifest in your *consciences*, [[2 Corinthians 5.11|2 Corinthians 5:11]].
 
 being past *feeling* have given themselves over unto lasciviousness, [[Ephesians 4.19|Ephesians 4:19]].
 
@@ -49,13 +48,13 @@ Having a good *conscience*, [[1 Peter 3.16|1 Peter 3:16]].
 
 answer a clear *conscience* before God, [[Mosiah 2.15|Mosiah 2:15]].
 
-filled with joy ... having peace of *conscience*, [[Mosiah 4.3|Mosiah 4:3]].
+filled with joy … having peace of *conscience*, [[Mosiah 4.3|Mosiah 4:3]].
 
 tremble under a *consciousness* of his guilt, [[Alma 12.1|Alma 12:1]].
 
 harrowed up under a *consciousness* of his own guilt, [[Alma 14.6|Alma 14:6]].
 
-whether he desireth ... joy or remorse of *conscience*, [[Alma 29.5|Alma 29:5]].
+whether he desireth … joy or remorse of *conscience*, [[Alma 29.5|Alma 29:5]].
 
 law given, which brought remorse of *conscience* unto man, [[Alma 42.18|Alma 42:18]].
 
@@ -72,5 +71,3 @@ secure to each individual the free exercise of *conscience*, [[D&C 134.2|D&C 134
 I have a *conscience* void of offense towards God, [[D&C 135.4|D&C 135:4]].
 
 the privilege of worshiping Almighty God according to the dictates of our own *conscience*, [[Articles of Faith 1.11|Articles of Faith 1:11]].
-
-*See also* [[Psalms 73.21|Psalms 73:21]]; [[Isaiah 57.21|Isaiah 57:21]]; [[John 16.13|John 16:13]]; [[D&C 1.3|D&C 1:3]]; [[D&C 93.2|D&C 93:2]].

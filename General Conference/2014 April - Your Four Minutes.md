@@ -1,6 +1,8 @@
 # Your Four Minutes
 
-By Bishop Gary E. Stevenson - *Presiding Bishop*
+Thomas S. Monson
+
+By Bishop Gary E. Stevenson - *Presiding Bishop*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -32,7 +34,7 @@ In a sense, your four minutes have already begun. The clock is ticking. The word
 
 In the same way that certain steps are essential in the very brief performance of an Olympic athlete—jumps or maneuvers for ice skaters and snowboarders, negotiating the turns of a bobsled run, or carving through the gates of a downhill slalom course—so it is in our lives, where certain things are absolutely essential—checkpoints which move us through our spiritual performance on earth. These spiritual markers are the essential God-given ordinances of the gospel: baptism, receiving the gift of the Holy Ghost, priesthood ordinations, temple ordinances, and partaking of the sacrament each week.
 
-“In the\[se\] ordinances … , the power of godliness is manifest.”[^7]
+“In the\[se\] ordinances … , the power of godliness is manifest.”[^7]
 
 And in the same way that the discipline of training prepares an athlete to perform elements in his or her sport at the highest level, keeping the commandments will qualify you to receive these saving ordinances.
 
@@ -48,7 +50,7 @@ It is not yet too late to repent. But it soon may be, because no one really know
 
 Now, you may be thinking to yourself, “I already blew it. My four minutes are already a disaster. I may as well give up.” If so, stop thinking that, and never think it again. The miracle of the Atonement can make up for imperfections in our performance. As Elder Jeffrey R. Holland has taught:
 
-“To those of you … who may still be hanging back, … I testify of the renewing power of God’s love and the miracle of His grace. …
+“To those of you … who may still be hanging back, … I testify of the renewing power of God’s love and the miracle of His grace. …
 
 “… It is *never* too late so long as the Master … says there is time. … Don’t delay.”[^10]
 
@@ -83,7 +85,7 @@ I conclude with my testimony of the blessing we have in a living prophet, Presid
 
 [^5]: [[Alma 34.32|Alma 34:32]].
 
-[^6]: See [[1 Corinthians 9.24|1 Corinthians 9:24]].
+[^6]: See [[1 Corinthians 9.24|1 Corinthians 9:24]].
 
 [^7]: [[D&C 84.20|Doctrine and Covenants 84:20]].
 
@@ -91,7 +93,7 @@ I conclude with my testimony of the blessing we have in a living prophet, Presid
 
 [^9]: [[Hebrews 12.1|Hebrews 12:1]].
 
-[^10]: Jeffrey R. Holland, “The Laborers in the Vineyard,” *Ensign* or *Liahona,* May 2012, 33.
+[^10]: Jeffrey R. Holland, “The Laborers in the Vineyard,” *Ensign* or *Liahona,* May 2012, 33.
 
 [^11]: See [[John 14.18|John 14:18]].
 
@@ -99,8 +101,3 @@ I conclude with my testimony of the blessing we have in a living prophet, Presid
 
 [^13]: Vidya Rao, “Snowboarder Kelly Clark: Hug from Competitor Helped Me Win Bronze,” today.com/sochi/snowboarder-kelly-clark-hug-competitor-helped-me-win-bronze-2D12108132.
 
-
-
-
-
-#Ordinances

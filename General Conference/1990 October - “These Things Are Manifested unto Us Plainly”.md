@@ -1,5 +1,7 @@
 # “These Things Are Manifested unto Us Plainly”
 
+Gordon B. Hinckley
+
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1990 General Conference*
@@ -82,7 +84,7 @@ Our focus in Relief Society for this new decade reflects our quest for things th
 
 First: Build personal testimony. This means leading lives of faith and hope, and becoming thoughtful, prayerful disciples of our Savior.
 
-Second: Bless the individual woman. I believe in you. I delight in our diversity as Relief Society women and the joy we find in righteous living. The prophet Nephi tells us: “Behold, the Lord esteemeth all flesh in one; he that is righteous is favored of God.” ([[1 Nephi 17.35|1 Ne. 17:35]].)
+Second: Bless the individual woman. I believe in you. I delight in our diversity as Relief Society women and the joy we find in righteous living. The prophet Nephi tells us: “Behold, the Lord esteemeth all flesh in one; he that is righteous is favored of God.” ([[1 Nephi 17.35|1 Ne. 17:35]].)
 
 Third: Develop and exercise charity. Our Relief Society motto, Charity Never Faileth, is worth living by. The challenge ahead is to become more active in meeting the real needs of the world around us—loneliness, neglect, illiteracy, homelessness.
 
@@ -101,8 +103,3 @@ I pray for the blessings of our Father in Heaven, who loves us, to continue to b
 
 
 
-
-
-
-
-#Compassion #Family #Individual_Worth #Jesus_Christ #Testimony #Women

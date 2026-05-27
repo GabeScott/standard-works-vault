@@ -1,6 +1,8 @@
 # Continuity of Service
 
-By President N. Eldon Tanner - *Second Counselor in the First Presidency*
+Joseph Fielding Smith
+
+By President N. Eldon Tanner - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -55,8 +57,3 @@ May the Lord bless us that we might realize the importance of a soul; that right
 
 
 
-
-
-
-
-#Military #Missionary_Work #Service

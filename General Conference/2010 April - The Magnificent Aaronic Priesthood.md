@@ -1,5 +1,7 @@
 # The Magnificent Aaronic Priesthood
 
+Thomas S. Monson
+
 By David L. Beck - *Young Men General President*
 
 *Given in the April session of the 2010 General Conference*
@@ -24,11 +26,11 @@ For example, the world would not have the Book of Mormon’s powerful witness of
 
 The Book of Mormon was translated and published by Joseph Smith, who was called to his great work at age 14, when he was visited by Heavenly Father and Jesus Christ.
 
-President Thomas S. Monson has said: “Great things are expected of you. … Like a clarion call comes the word of the Lord to you, to me, and to priesthood holders everywhere: ‘Wherefore, now let every man learn his duty, and to act in the office in which he is appointed, in all diligence’ \[[[D&C 107.99|D&C 107:99]]\]” (in Conference Report, Apr. 2004, 57, 61; or *Ensign,* May 2004, 54, 57).
+President Thomas S. Monson has said: “Great things are expected of you. … Like a clarion call comes the word of the Lord to you, to me, and to priesthood holders everywhere: ‘Wherefore, now let every man learn his duty, and to act in the office in which he is appointed, in all diligence’ \[[[D&C 107.99|D&C 107:99]]\]” (in Conference Report, Apr. 2004, [[2004 April - The Call for Courage.md|57, 61]]; or *Ensign,* May 2004, 54, 57).
 
 ## II. The New Duty to God Program
 
-To help you respond to that urgent call, the Church is introducing a new Duty to God program, as President Henry B. Eyring announced earlier today. I am excited about this program. Materials will be sent to your bishops and branch presidents beginning in June. You should begin using them as soon as you receive them.
+To help you respond to that urgent call, the Church is introducing a new Duty to God program, as President Henry B. Eyring announced earlier today. I am excited about this program. Materials will be sent to your bishops and branch presidents beginning in June. You should begin using them as soon as you receive them.
 
 As a deacon, teacher, and priest, you will participate in activities that will help you build spiritual strength and learn and fulfill your priesthood duties. Each activity follows this simple pattern:
 
@@ -77,8 +79,3 @@ I pray that we may all understand the magnificent Aaronic Priesthood and trust, 
 
 
 
-
-
-
-
-#Duty #Priesthood

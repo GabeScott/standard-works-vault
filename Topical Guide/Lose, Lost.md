@@ -1,6 +1,5 @@
 # Lose, Lost
 
-
 I have gone astray like a *lost* sheep, [[Psalms 119.176|Psalms 119:176]].
 
 My people hath been *lost* sheep, [[Jeremiah 50.6|Jeremiah 50:6]].
@@ -29,7 +28,7 @@ none of them is *lost*, but the son of perdition, [[John 17.12|John 17:12]].
 
 Of them which thou gavest me have I *lost* none, [[John 18.9|John 18:9]].
 
-our gospel ... hid to them that are *lost*, [[2 Corinthians 4.3|2 Corinthians 4:3]].
+our gospel … hid to them that are *lost*, [[2 Corinthians 4.3|2 Corinthians 4:3]].
 
 they wandered off and were *lost*, [[1 Nephi 8.23|1 Nephi 8:23]].
 
@@ -37,15 +36,15 @@ all mankind were in a *lost* and in a fallen state, [[1 Nephi 10.6|1 Nephi 10:6]
 
 shall have the words of the *lost* tribes of Israel, [[2 Nephi 29.13|2 Nephi 29:13]].
 
-Ye have ... *lost* the confidence of your children, [[Jacob 2.35|Jacob 2:35]].
+Ye have … *lost* the confidence of your children, [[Jacob 2.35|Jacob 2:35]].
 
-better that we should be in bondage than ... *lose* our lives, [[Mosiah 20.22|Mosiah 20:22]].
+better that we should be in bondage than … *lose* our lives, [[Mosiah 20.22|Mosiah 20:22]].
 
 not one soul of them had been *lost*, [[Alma 16.8|Alma 16:8]].
 
-go ... to show myself unto the *lost* tribes of Israel, [[3 Nephi 17.4|3 Nephi 17:4]].
+go … to show myself unto the *lost* tribes of Israel, [[3 Nephi 17.4|3 Nephi 17:4]].
 
-work of the Father commence among ... tribes which have been *lost*, [[3 Nephi 21.26|3 Nephi 21:26]].
+work of the Father commence among … tribes which have been *lost*, [[3 Nephi 21.26|3 Nephi 21:26]].
 
 inasmuch as men do good they shall in nowise *lose* their reward, [[D&C 58.28|D&C 58:28]] ([[D&C 84.90|D&C 84:90]]; [[D&C 127.4|D&C 127:4]]).
 

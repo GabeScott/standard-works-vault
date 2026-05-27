@@ -1,5 +1,7 @@
 # What Latter-day Saint Women Do Best: Stand Strong and Immovable
 
+Gordon B. Hinckley
+
 By Julie B. Beck - *Relief Society General President*
 
 *Given in the October session of the 2007 General Conference*
@@ -94,11 +96,11 @@ You have the privilege to counsel in unity with priesthood leaders to plan a def
 
 When we gather for any purpose under the banner of Relief Society, we must spend our precious time and consecrated funds for the purpose of helping sisters do what we should do best. In our Sunday Relief Society meetings, openings should be brief and invite the Spirit to be with us. We need every possible minute to study the gospel together so we can be best in our responsibilities. All Relief Society conferences, activities, gatherings, and meetings must focus on helping sisters do what they should do best. President Hinckley’s plea to us is:
 
-“We have a greater challenge than we realize. …
+“We have a greater challenge than we realize. …
 
-“… ‘Do the best you can.’ But I want to emphasize that it be the very best. … We are capable of doing so much better. …
+“… ‘Do the best you can.’ But I want to emphasize that it be the very best. … We are capable of doing so much better. …
 
-“… We must get on our knees and plead with the Lord for help and strength and direction. We must then stand on our feet and move forward.”[^10]
+“… We must get on our knees and plead with the Lord for help and strength and direction. We must then stand on our feet and move forward.”[^10]
 
 My dear sisters, our prophet, whom I sustain with all my heart, has said that there is a better way than the way of the world. He has called upon the women of the Church to stand together for righteousness. He has said that if we are united and speak with one voice, our strength will be incalculable. I have expressed to him my confidence that the women of this Church will stand strong and immovable in our faith in Jesus Christ and His restored gospel; strong and immovable in upholding, nourishing, and protecting our families; and strong and immovable in providing relief. May the Lord bless us as we do this most essential work of women is my prayer in the name of Jesus Christ, amen.
 
@@ -121,12 +123,7 @@ My dear sisters, our prophet, whom I sustain with all my heart, has said that th
 
 [^8]: See Richard G. Scott, “The Doctrinal Foundation of the Auxiliaries,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 8; see also *Ensign,* Aug. 2005, 67.
 
-[^9]: [[Matthew 24.8|Matthew 24:8]]; see also [[Matthew 24.3|vv. 3–7]][[Matthew 24.4|]][[Matthew 24.5|]][[Matthew 24.6|]][[Matthew 24.7|]]; [[1 Timothy 4.1|1 Timothy 4:1–2]][[1 Timothy 4.2|]]; [[2 Timothy 3.1|2 Timothy 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].
+[^9]: [[Matthew 24.8|Matthew 24:8]]; see also [[Matthew 24.3|vv. 3–7]][[Matthew 24.4|]][[Matthew 24.5|]][[Matthew 24.6|]][[Matthew 24.7|]]; [[1 Timothy 4.1|1 Timothy 4:1–2]][[1 Timothy 4.2|]]; [[2 Timothy 3.1|2 Timothy 3:1–5]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]].
 
 [^10]: *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 21.
 
-
-
-
-
-#Faith #Family #Motherhood #Relief_Society #Service

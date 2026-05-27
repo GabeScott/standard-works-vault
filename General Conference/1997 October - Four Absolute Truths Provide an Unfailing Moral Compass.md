@@ -1,5 +1,7 @@
 # Four Absolute Truths Provide an Unfailing Moral Compass
 
+Gordon B. Hinckley
+
 By Elder Richard B. Wirthlin - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -32,7 +34,7 @@ We cannot cope with the confusions and the challenges of this world unless we us
 
 ## Four Absolute Truths
 
-This moral compass is built around four absolute truths. The first absolute truth is that there is a loving Father in Heaven, and His Son, Jesus Christ, is our personal Savior—a more certain truth than any worldly fact. This concept is expressed with unmatched eloquence in 1 John: “Hereby perceive we the *love* of God, because he laid down his life for us: and we ought to lay down our lives for the brethren.”[^6] Nothing could provide a truer “north” for every person’s own moral compass.
+This moral compass is built around four absolute truths. The first absolute truth is that there is a loving Father in Heaven, and His Son, Jesus Christ, is our personal Savior—a more certain truth than any worldly fact. This concept is expressed with unmatched eloquence in 1 John: “Hereby perceive we the *love* of God, because he laid down his life for us: and we ought to lay down our lives for the brethren.”[^6] Nothing could provide a truer “north” for every person’s own moral compass.
 
 The second absolute truth is that there is an adversary—Satan, the tempter—who would lead us away from God and His infinite peace.
 
@@ -63,7 +65,7 @@ In closing, I would like to express my sincere gratitude to our prophet, Preside
 
 
 
-[^1]: [[2 Timothy 3.1|2 Tim. 3:1–4, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.7|]].
+[^1]: [[2 Timothy 3.1|2 Tim. 3:1–4, 7]][[2 Timothy 3.2|]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.7|]].
 
 [^2]: See Richard Saul Wurman, *Information Anxiety* (1989), 32.
 
@@ -73,24 +75,19 @@ In closing, I would like to express my sincere gratitude to our prophet, Preside
 
 [^5]: 1990 Wirthlin Worldwide study.
 
-[^6]: [[1 John 3.16|1 Jn. 3:16]]; emphasis added.
+[^6]: [[1 John 3.16|1 Jn. 3:16]]; emphasis added.
 
-[^7]: Bible Dictionary, “[Devil](https://churchofjesuschrist.org/study/scriptures/bd/devil?lang=eng),” 656; see also Robert Young, *Analytical Concordance to the Bible* (1970), 252.
+[^7]: Bible Dictionary, “[[BD Devil|Devil]],” 656; see also Robert Young, *Analytical Concordance to the Bible* (1970), 252.
 
-[^8]: [[2 Nephi 2.18|2 Ne. 2:18]]; see also [[Ether 8.25|Ether 8:25]].
+[^8]: [[2 Nephi 2.18|2 Ne. 2:18]]; see also [[Ether 8.25|Ether 8:25]].
 
-[^9]: [[2 Nephi 2.27|2 Ne. 2:27]].
+[^9]: [[2 Nephi 2.27|2 Ne. 2:27]].
 
 [^10]: Anonymous, quoted in John Bartlett, ed., *Familiar Quotations,* 14th ed. (1968), 1100.
 
 [^11]: [[John 17.15|John 17:15]].
 
-[^12]: [[2 Corinthians 4.6|2 Cor. 4:6, 8–9]][[2 Corinthians 4.8|]][[2 Corinthians 4.9|]].
+[^12]: [[2 Corinthians 4.6|2 Cor. 4:6, 8–9]][[2 Corinthians 4.8|]][[2 Corinthians 4.9|]].
 
-[^13]: [[1 Corinthians 1.25|1 Cor. 1:25]].
+[^13]: [[1 Corinthians 1.25|1 Cor. 1:25]].
 
-
-
-
-
-#Agency #God_The_Father #Jesus_Christ #Joy #Morality #Repentance #Truth #Wisdom

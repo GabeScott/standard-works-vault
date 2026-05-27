@@ -1,13 +1,12 @@
 # Where
 
+God called unto Adam … *Where* art thou, [[Genesis 3.9|Genesis 3:9]] ([[Moses 4.15|Moses 4:15]]).
 
-God called unto Adam ... *Where* art thou, [[Genesis 3.9|Genesis 3:9]] ([[Moses 4.15|Moses 4:15]]).
-
-none saith, *Where* is God my maker, [[Job 35.10|Job 35:10]] ([[Psalms 42.3|Psalms 42:3]], [[Psalms 42.10|Psalms 42:10]]; [[Psalms 79.10|Psalms 79:10]]; [[Psalms 115.2|Psalms 115:2]]; [[D&C 105.8|D&C 105:8]]).
+none saith, *Where* is God my maker, [[Job 35.10|Job 35:10]] ([[Psalms 42.3|Psalms 42:3]]; [[Psalms 42.10|Psalms 42:10]]; [[Psalms 79.10|Psalms 79:10]]; [[Psalms 115.2|Psalms 115:2]]; [[D&C 105.8|D&C 105:8]]).
 
 *where* Christ should be born, [[Matthew 2.4|Matthew 2:4]].
 
-*where* moth and rust doth corrupt, [[Matthew 6.19|Matthew 6:19]] ([[3 Nephi 13.19|3 Ne. 13:19-20]][[3 Nephi 13.20|]]).
+*where* moth and rust doth corrupt, [[Matthew 6.19|Matthew 6:19]].
 
 *where* two or three are gathered together in my name, [[Matthew 18.20|Matthew 18:20]] ([[D&C 6.32|D&C 6:32]]).
 

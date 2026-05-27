@@ -1,6 +1,8 @@
 # Be Not Deceived
 
-By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
+Gordon B. Hinckley
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -20,7 +22,7 @@ Any boy who indulges in illegitimate sexual activity, as we define that in the d
 
 I know that this is strong language, plainly spoken. But I feel the trends of our times call for strong language and plain words. Jehovah did not speak ambiguously when he said, “Thou shalt not commit adultery.” ([[Exodus 20.14|Ex. 20:14]].) Nor did the Lord when He said in modern revelation, “Thou shalt not steal; neither commit adultery, nor kill, nor do anything like unto it.” ([[D&C 59.6|D&C 59:6]].)
 
-Before leaving this matter I should like to add that if there be any here who have so sinned, there is repentance and there is forgiveness, provided there is “godly sorrow.” (See [[2 Corinthians 7.10|2 Cor. 7:10]].) All is not lost. Each of you has a bishop, who has been ordained and set apart under the authority of the holy priesthood and who, in the exercise of his office, is entitled to the inspiration of the Lord. He is a man of experience, he is a man of understanding, he is a man who carries in his heart a love for the youth of his ward. He is a servant of God who understands his obligation of confidentiality and who will help you with your problem. Do not be afraid to talk with him.
+Before leaving this matter I should like to add that if there be any here who have so sinned, there is repentance and there is forgiveness, provided there is “godly sorrow.” (See [[2 Corinthians 7.10|2 Cor. 7:10]].) All is not lost. Each of you has a bishop, who has been ordained and set apart under the authority of the holy priesthood and who, in the exercise of his office, is entitled to the inspiration of the Lord. He is a man of experience, he is a man of understanding, he is a man who carries in his heart a love for the youth of his ward. He is a servant of God who understands his obligation of confidentiality and who will help you with your problem. Do not be afraid to talk with him.
 
 Now, while I am speaking of youth, I wish to say parenthetically just a word about education. I have great respect and appreciation for teachers. I am pleased to note that there is a public awakening to the need to prioritize our educational resources and programs. We live in a competitive world, and those who are now being trained will need the very best of schooling if they are to be qualified for the society into which they will move within a very short time.
 
@@ -38,7 +40,7 @@ A thought-provoking study was recently published in *Public Opinion* magazine. I
 
 “A survey of influential television writers and executives in Hollywood has shown that they are far less religious than the general public and ‘diverge sharply from traditional values’ on such issues as abortion, homosexual rights and extramarital sex. … While nearly all of the 104 Hollywood professionals interviewed had a religious background, 45 percent now say they have no religion, and of the other 55 percent only 7 percent say they attend a religious service as much as once a month.
 
-“‘This group has had a major role in shaping the shows whose themes and stars have become staples in our popular culture.’ …
+“‘This group has had a major role in shaping the shows whose themes and stars have become staples in our popular culture.’ …
 
 “Eighty percent of the respondents said they did not regard homosexual relations as wrong, and 51 percent did not deem adultery as wrong. Of the 49 percent who called extramarital affairs wrong, only 17 percent felt that way strongly, the study said. Nearly all—97 percent—favored the right of a woman to choose an abortion, 91 percent holding that view strongly.
 
@@ -54,7 +56,7 @@ We are not immune to these influences. Centuries ago Nephi foresaw our day and s
 
 “And others will he pacify, and lull them away into carnal security, that they will say: All is well in Zion; yea, Zion prospereth, all is well—and thus the devil cheateth their souls, and leadeth them away carefully down to hell.
 
-“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.19|2 Ne. 28:19–22]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
+“And behold, others he flattereth away, and telleth them there is no hell; and he saith unto them: I am no devil, for there is none—and thus he whispereth in their ears, until he grasps them with his awful chains, from whence there is no deliverance.” ([[2 Nephi 28.19|2 Ne. 28:19–22]][[2 Nephi 28.20|]][[2 Nephi 28.21|]][[2 Nephi 28.22|]].)
 
 Those are interesting and descriptive words—“leadeth them away carefully down to hell,” and “he whispereth in their ears.” How descriptive of the seductive and beguiling ways of the purveyors of filth and violence and evil.
 
@@ -70,7 +72,7 @@ We have those critics who appear to wish to cull out of a vast panorama of infor
 
 We recognize that our forebears were human. They doubtless made mistakes. … But the mistakes were minor, when compared with the marvelous work which they accomplished. To highlight the mistakes and gloss over the greater good is to draw a caricature. Caricatures are amusing, but they are often ugly and dishonest. A man may have a blemish on his cheek and still have a face of beauty and strength, but if the blemish is emphasized unduly in relation to his other features, the portrait is lacking in integrity.
 
-There was only one perfect man who ever walked the earth. The Lord has used imperfect people in the process of building his perfect society. If some of them occasionally stumbled, or if their characters may have been slightly flawed in one way or another, the wonder is the greater that they accomplished so much. …
+There was only one perfect man who ever walked the earth. The Lord has used imperfect people in the process of building his perfect society. If some of them occasionally stumbled, or if their characters may have been slightly flawed in one way or another, the wonder is the greater that they accomplished so much. …
 
 I do not fear truth. I welcome it. But I wish all of my facts in their proper context, with emphasis on those elements which explain the great growth and power of this organization.
 
@@ -78,7 +80,7 @@ There is promise, given under inspiration from the Almighty, set forth in these 
 
 “God shall give unto you knowledge by his Holy Spirit, yea, by the unspeakable gift of the Holy Ghost.” ([[D&C 121.26|D&C 121:26]].)
 
-The humanists who criticize us, the so-called intellectuals who demean us, speak only from ignorance of this manifestation. … They have not heard it because they have not sought after it and prepared themselves to be worthy of it. …
+The humanists who criticize us, the so-called intellectuals who demean us, speak only from ignorance of this manifestation. … They have not heard it because they have not sought after it and prepared themselves to be worthy of it. …
 
 Do not be trapped by the sophistry of the world which for the most part is negative and which seldom, if ever, bears good fruit. … Rather, “look to God and live.” ([[Alma 37.47|Alma 37:47]].)
 
@@ -89,8 +91,3 @@ Brethren, if we live worthy of his inspiration, there will never be doubt in our
 
 
 
-
-
-
-
-#Media

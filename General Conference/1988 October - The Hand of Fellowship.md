@@ -1,5 +1,7 @@
 # The Hand of Fellowship
 
+Ezra Taft Benson
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -73,8 +75,3 @@ I bear my testimony that “God is no respecter of persons”; we should follow 
 
 
 
-
-
-
-
-#Fellowshipping #Love #Mission_Of_The_Church #Missionary_Work

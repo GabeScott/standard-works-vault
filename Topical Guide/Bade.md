@@ -1,4 +1,3 @@
 # Bade
 
-
-*See* [[Bid.md|Bid]]
+*See also* [[Bid.md|Bid]]

@@ -1,11 +1,10 @@
 # Swine
 
+*See also* [[BD Swine.md|BD Swine]]
 
-*See also* [BD Swine](https://www.churchofjesuschrist.org/study/scriptures/bd/swine?lang=eng)
+*swine* … is unclean to you, [[Leviticus 11.7|Leviticus 11:7]] ([[Deuteronomy 14.8|Deuteronomy 14:8]]).
 
-*swine* ... is unclean to you, [[Leviticus 11.7|Leviticus 11:7]] ([[Deuteronomy 14.8|Deuteronomy 14:8]]).
-
-As a jewel of gold in a *swine's* snout, [[Proverbs 11.22|Proverbs 11:22]].
+As a jewel of gold in a *swine’s* snout, [[Proverbs 11.22|Proverbs 11:22]].
 
 neither cast ye your pearls before *swine*, [[Matthew 7.6|Matthew 7:6]] ([[3 Nephi 14.6|3 Nephi 14:6]]; [[D&C 41.6|D&C 41:6]]).
 

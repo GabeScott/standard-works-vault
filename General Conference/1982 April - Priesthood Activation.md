@@ -1,6 +1,8 @@
 # Priesthood Activation
 
-By Bishop Victor L. Brown - *Presiding Bishop*
+Spencer W. Kimball
+
+By Bishop Victor L. Brown - *Presiding Bishop*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -24,7 +26,7 @@ It is so easy to love those who are active and responsive and sometimes so diffi
 
 You will remember that a father divided his wealth between his two sons, the younger of whom “took his journey into a far country, and there wasted his substance with riotous living.” When famine came, he tended hogs for a rich man, eating from what he fed the animals.
 
-“And when he came to himself, he said, How many hired servants of my father’s have bread enough and to spare, and I perish with hunger! …
+“And when he came to himself, he said, How many hired servants of my father’s have bread enough and to spare, and I perish with hunger! …
 
 “And he arose, and came to his father. But when he was yet a great way off, his father saw him, and had compassion, and ran, and fell on his neck, and kissed him.
 
@@ -88,11 +90,4 @@ May we be so perceptive as to look through the window of each boy’s heart and 
 
 
 
-#Activation #Priesthood
 
-
-
-
-
-
-#Miracles #Priesthood

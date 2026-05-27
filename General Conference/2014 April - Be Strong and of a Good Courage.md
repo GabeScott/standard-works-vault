@@ -1,6 +1,8 @@
 # Be Strong and of a Good Courage
 
-By President Thomas S. Monson - *President of the Church*
+Thomas S. Monson
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -20,7 +22,7 @@ Because of these and other challenges, decisions are constantly before us which 
 
 Inasmuch as the trend in society today is rapidly moving away from the values and principles the Lord has given us, we will almost certainly be called upon to defend that which we believe. Will we have the courage to do so?
 
-Said President J. Reuben Clark Jr., who for many years was a member of the First Presidency: “Not unknown are cases where \[those\] of presumed faith … have felt that, since by affirming their full faith they might call down upon themselves the ridicule of their unbelieving colleagues, they must either modify or explain away their faith, or destructively dilute it, or even pretend to cast it away. Such are hypocrites.”[^1] None of us would wish to wear such a label, and yet are we reluctant to declare our faith in some circumstances?
+Said President J. Reuben Clark Jr., who for many years was a member of the First Presidency: “Not unknown are cases where \[those\] of presumed faith … have felt that, since by affirming their full faith they might call down upon themselves the ridicule of their unbelieving colleagues, they must either modify or explain away their faith, or destructively dilute it, or even pretend to cast it away. Such are hypocrites.”[^1] None of us would wish to wear such a label, and yet are we reluctant to declare our faith in some circumstances?
 
 We can help ourselves in our desire to do what is right if we put ourselves in places and participate in activities where our thoughts are influenced for good and where the Spirit of the Lord will be comfortable.
 
@@ -48,7 +50,7 @@ Who can help but be inspired by the lives of the 2,000 stripling sons of Helaman
 
 Perhaps each of these scriptural accounts is crowned by the example of Moroni, who had the courage to persevere in righteousness to the very end.[^8]
 
-Throughout his life, the Prophet Joseph Smith provided countless examples of courage. One of the most dramatic occurred as he and other brethren were chained together—imagine, chained together—and held in an unfinished cabin next to the courthouse in Richmond, Missouri. Parley P. Pratt, who was among those held captive, wrote of one particular night: “We had lain as if in sleep till the hour of midnight had passed, and our ears and hearts had been pained, while we had listened for hours to the obscene jests, the horrid oaths, the dreadful blasphemies and filthy language of our guards.”
+Throughout his life, the Prophet Joseph Smith provided countless examples of courage. One of the most dramatic occurred as he and other brethren were chained together—imagine, chained together—and held in an unfinished cabin next to the courthouse in Richmond, Missouri. Parley P. Pratt, who was among those held captive, wrote of one particular night: “We had lain as if in sleep till the hour of midnight had passed, and our ears and hearts had been pained, while we had listened for hours to the obscene jests, the horrid oaths, the dreadful blasphemies and filthy language of our guards.”
 
 Continued Elder Pratt:
 
@@ -64,7 +66,7 @@ It is impossible to stand upright when one plants his roots in the shifting sand
 
 We will all face fear, experience ridicule, and meet opposition. Let us—all of us—have the courage to defy the consensus, the courage to stand for principle. Courage, not compromise, brings the smile of God’s approval. Courage becomes a living and an attractive virtue when it is regarded not only as a willingness to die manfully but also as the determination to live decently. As we move forward, striving to live as we should, we will surely receive help from the Lord and can find comfort in His words. I love His promise recorded in the book of Joshua:
 
-“I will not fail thee, nor forsake thee. …
+“I will not fail thee, nor forsake thee. …
 
 “… Be strong and of a good courage; be not afraid, neither be thou dismayed: for the Lord thy God is with thee whithersoever thou goest.”[^10]
 
@@ -77,40 +79,35 @@ May each one leave here tonight with the determination and the courage to say, w
 
 
 
-[^1]: J. Reuben Clark Jr., *The Charted Course of the Church in Education,* rev. ed. (1994), 7.
+[^1]: J. Reuben Clark Jr., *The Charted Course of the Church in Education,* rev. ed. (1994), 7.
 
 [^2]: Robert Louis Stevenson, in Hal Urban, *Choices That Change Lives* (2006), 122.
 
 [^3]: Charles Swindoll, in Urban, *Choices That Change Lives,* 122.
 
-[^4]: Jabari Parker, in “10 Questions,” *Time,* Mar. 17, 2014, 76.
+[^4]: Jabari Parker, in “10 Questions,” *Time,* Mar. 17, 2014, 76.
 
 [^5]: See [[Daniel 6.1|Daniel 6]][[Daniel 6.2|]][[Daniel 6.3|]][[Daniel 6.4|]][[Daniel 6.5|]][[Daniel 6.6|]][[Daniel 6.7|]][[Daniel 6.8|]][[Daniel 6.9|]][[Daniel 6.10|]][[Daniel 6.11|]][[Daniel 6.12|]][[Daniel 6.13|]][[Daniel 6.14|]][[Daniel 6.15|]][[Daniel 6.16|]][[Daniel 6.17|]][[Daniel 6.18|]][[Daniel 6.19|]][[Daniel 6.20|]][[Daniel 6.21|]][[Daniel 6.22|]][[Daniel 6.23|]][[Daniel 6.24|]][[Daniel 6.25|]][[Daniel 6.26|]][[Daniel 6.27|]][[Daniel 6.28|]].
 
 [^6]: See [[Mosiah 11.20|Mosiah 11:20]]; [[Mosiah 17.20|17:20]].
 
-[^7]: See [[Alma 53.20|Alma 53:20–21]][[Alma 53.21|]]; [[Alma 56.1|56]][[Alma 56.2|]][[Alma 56.3|]][[Alma 56.4|]][[Alma 56.5|]][[Alma 56.6|]][[Alma 56.7|]][[Alma 56.8|]][[Alma 56.9|]][[Alma 56.10|]][[Alma 56.11|]][[Alma 56.12|]][[Alma 56.13|]][[Alma 56.14|]][[Alma 56.15|]][[Alma 56.16|]][[Alma 56.17|]][[Alma 56.18|]][[Alma 56.19|]][[Alma 56.20|]][[Alma 56.21|]][[Alma 56.22|]][[Alma 56.23|]][[Alma 56.24|]][[Alma 56.25|]][[Alma 56.26|]][[Alma 56.27|]][[Alma 56.28|]][[Alma 56.29|]][[Alma 56.30|]][[Alma 56.31|]][[Alma 56.32|]][[Alma 56.33|]][[Alma 56.34|]][[Alma 56.35|]][[Alma 56.36|]][[Alma 56.37|]][[Alma 56.38|]][[Alma 56.39|]][[Alma 56.40|]][[Alma 56.41|]][[Alma 56.42|]][[Alma 56.43|]][[Alma 56.44|]][[Alma 56.45|]][[Alma 56.46|]][[Alma 56.47|]][[Alma 56.48|]][[Alma 56.49|]][[Alma 56.50|]][[Alma 56.51|]][[Alma 56.52|]][[Alma 56.53|]][[Alma 56.54|]][[Alma 56.55|]][[Alma 56.56|]][[Alma 56.57|]].
+[^7]: See [[Alma 53.20|Alma 53:20–21]][[Alma 53.21|]]; [[Alma 56.1|56]].
 
-[^8]: See [[Moroni 1.1|Moroni 1–10]][[Moroni 1.2|]][[Moroni 1.3|]][[Moroni 1.4|]].
+[^8]: See [[Moroni 1.1|Moroni 1–10]].
 
-[^9]: See *Autobiography of Parley P. Pratt,* ed. Parley P. Pratt Jr. (1938), 210–11.
+[^9]: See *Autobiography of Parley P. Pratt,* ed. Parley P. Pratt Jr. (1938), 210–11.
 
 [^10]: [[Joshua 1.5|Joshua 1:5, 9]][[Joshua 1.9|]].
 
 [^11]: [[Romans 1.16|Romans 1:16]].
 
-[^12]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^12]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^13]: [[D&C 107.99|Doctrine and Covenants 107:99]].
 
-[^14]: [[1 Peter 2.9|1 Peter 2:9]].
+[^14]: [[1 Peter 2.9|1 Peter 2:9]].
 
 [^15]: See [[D&C 105.11|Doctrine and Covenants 105:11]].
 
 [^16]: [[Job 27.3|Job 27:3, 5]][[Job 27.5|]].
 
-
-
-
-
-#Courage #Spirituality

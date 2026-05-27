@@ -1,5 +1,7 @@
 # “Watchman, Warn the Wicked”
 
+Harold B. Lee
+
 By Elder Ezra Taft Benson - *Of the Council of the Twelve*
 
 *Given in the April session of the 1973 General Conference*
@@ -18,17 +20,17 @@ The inspired Book of Mormon prophets saw our day and warned us of the strategy o
 
 “For behold, at that day shall he \[the devil\] rage in the hearts of the children of men, and stir them up to anger against that which is good.
 
-“And others will he pacify, and lull them away into carnal security. …
+“And others will he pacify, and lull them away into carnal security. …
 
-“… wo be unto him that hearkeneth unto the precepts of men, and denieth the power of God. …” ([[2 Nephi 28.20|2 Ne. 28:20–21, 26]][[2 Nephi 28.21|]][[2 Nephi 28.26|]].)
+“… wo be unto him that hearkeneth unto the precepts of men, and denieth the power of God. …” ([[2 Nephi 28.20|2 Ne. 28:20–21, 26]][[2 Nephi 28.21|]][[2 Nephi 28.26|]].)
 
 Through a modern prophet, Joseph Smith, the Lord has given this further warning: “Wherefore the voice of the Lord is unto the ends of the earth, that all that will hear may hear:
 
-“… and the day cometh that they who will not hear the voice of the Lord, neither the voice of his servants, neither give heed to the words of the prophets and apostles, shall be cut off from among the people;
+“… and the day cometh that they who will not hear the voice of the Lord, neither the voice of his servants, neither give heed to the words of the prophets and apostles, shall be cut off from among the people;
 
 “For they have strayed from mine ordinances, and have broken mine everlasting covenant;
 
-“They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world. …
+“They seek not the Lord to establish his righteousness, but every man walketh in his own way, and after the image of his own God, whose image is in the likeness of the world. …
 
 “What I the Lord have spoken, I have spoken, and I excuse not myself; and though the heavens and the earth pass away, my word shall not pass away, but shall all be fulfilled, whether by mine own voice, or by the voice of my servants, it is the same.” ([[D&C 1.11|D&C 1:11, 14–16, 38]][[D&C 1.14|]][[D&C 1.15|]][[D&C 1.16|]][[D&C 1.38|]].)
 
@@ -48,9 +50,9 @@ One of these modern Church watchmen has given this sound warning:
 
 “A milk-and-water allegiance kills; while a passionate devotion gives life and soul to any cause and its adherents. The troubles of the world may largely be laid at the doors of those who are neither hot nor cold; who always follow the line of least resistance; whose timid hearts flutter at taking sides for truth. As in the great Council in the heavens, so in the Church of Christ on earth, there can be no neutrality. We are, or we are not, on the side of the Lord. An unrelenting faith, contemptuous of all compromise, will lead the Church and every member of it, to triumph and the achievement of our high destiny.
 
-“The final conquerors of the world will be the men and women, few or many matters not, who fearlessly and unflinchingly cling to truth, and who are able to say no, as well as yes, on whose lofty banner is inscribed: No compromise with error. …
+“The final conquerors of the world will be the men and women, few or many matters not, who fearlessly and unflinchingly cling to truth, and who are able to say no, as well as yes, on whose lofty banner is inscribed: No compromise with error. …
 
-“Tolerance is not conformity to the world’s view and practices. *We must not surrender our beliefs to get along with people,* however beloved or influential they may be. Too high a price may be paid for social standing or even for harmony. … The Gospel rests upon eternal truth; and truth can never be deserted safely.” (John A. Widtsoe, *Conference Report,* April 1941, pp. 117, 116.)
+“Tolerance is not conformity to the world’s view and practices. *We must not surrender our beliefs to get along with people,* however beloved or influential they may be. Too high a price may be paid for social standing or even for harmony. … The Gospel rests upon eternal truth; and truth can never be deserted safely.” (John A. Widtsoe, *Conference Report,* April 1941, pp. 117, 116.)
 
 It has been well said that “our greatest national problem is erosion. Not erosion of the soil, but erosion of the national morality.”
 
@@ -58,7 +60,7 @@ It has been well said that “our greatest national problem is erosion. Not eros
 
 In the year 1831 Alexis de Tocqueville, the famous French historian, came to our country at the request of the French government to study our penal institutions. He also made a close study of our political and social institutions. In less than ten years, de Tocqueville had become world-famous, as the result of the four-volume work that he wrote, entitled *Democracy in America.* Here is his own stirring explanation of the greatness of America:
 
-“I sought for the greatness and genius of America in her commodious harbors and her ample rivers, and it was not there; in her fertile fields and boundless prairies, and it was not there; in her rich mines and her vast world commerce, and it was not there. Not until I went to the churches of America and heard her pulpits aflame with righteousness did I understand the secret of her genius and power. *America is great because she is good, and if America ever ceases to be good, America will cease to be great.”* (*Prophets, Principles and National Survival,* compiled by Jerreld L. Newquist \[Salt Lake City, Publishers Press, 1964\], p. 60.)
+“I sought for the greatness and genius of America in her commodious harbors and her ample rivers, and it was not there; in her fertile fields and boundless prairies, and it was not there; in her rich mines and her vast world commerce, and it was not there. Not until I went to the churches of America and heard her pulpits aflame with righteousness did I understand the secret of her genius and power. *America is great because she is good, and if America ever ceases to be good, America will cease to be great.”* (*Prophets, Principles and National Survival,* compiled by Jerreld L. Newquist \[Salt Lake City, Publishers Press, 1964\], p. 60.)
 
 How strong is our will to remain free—to be good? False thinking and false ideologies, dressed in the most pleasing forms, quietly—almost without our knowing it—seek to reduce our moral defenses and to captivate our minds. They entice with bright promises of security, cradle-to-grave guarantees of many kinds. They masquerade under various names, but all may be recognized by one thing—one thing they all have in common: to erode away character and man’s freedom to think and act for himself.
 
@@ -68,7 +70,7 @@ Freedom can be killed by neglect as well as by direct attack.
 
 Too long have too many Americans, and people of the free world generally, stood by as silent accessories to the crimes of assault against freedom—assault against basic economic and spiritual principles and traditions that have made nations strong.
 
-Let us strive for progress down the road of goodness and freedom. With the help and blessings of the Lord, the free people of the United States and the free world can and will face tomorrow without fear, without doubt, and with full confidence. We do not fear the phony population explosion, nor do we fear a shortage of food, if we can be free and good. The Lord has declared, “… the earth is full, and there is enough and to spare. …” ([[D&C 104.17|D&C 104:17]].) We can accept this promise with confidence.
+Let us strive for progress down the road of goodness and freedom. With the help and blessings of the Lord, the free people of the United States and the free world can and will face tomorrow without fear, without doubt, and with full confidence. We do not fear the phony population explosion, nor do we fear a shortage of food, if we can be free and good. The Lord has declared, “… the earth is full, and there is enough and to spare. …” ([[D&C 104.17|D&C 104:17]].) We can accept this promise with confidence.
 
 President Calvin Coolidge pinpointed the problem some years ago with these words:
 
@@ -76,7 +78,7 @@ President Calvin Coolidge pinpointed the problem some years ago with these words
 
 As a free people, we are following very closely in many respects the pattern which led to the downfall of the great Roman Empire. A group of well-known historians has summarized those conditions leading to the downfall of Rome in these words:
 
-“… Rome had known a pioneer beginning not unlike our own pioneer heritage, and then entered into two centuries of greatness, reaching its pinnacle in the second of those centuries, going into the decline and collapse in the third. Yet, the sins of decay were becoming apparent in the latter years of that second century.
+“… Rome had known a pioneer beginning not unlike our own pioneer heritage, and then entered into two centuries of greatness, reaching its pinnacle in the second of those centuries, going into the decline and collapse in the third. Yet, the sins of decay were becoming apparent in the latter years of that second century.
 
 “It is written that there were vast increases in the number of the idle rich, and the idle poor. The latter (the idle poor) were put on a permanent dole, a welfare system not unlike our own. As this system became permanent, the recipients of public largesse (welfare) increased in number. They organized into a political block with sizable power. They were not hesitant about making their demands known. Nor was the government hesitant about agreeing to their demands … and with ever-increasing frequency. Would-be emperors catered to them. The great, solid middle class—Rome’s strength then as ours is today—was taxed more and more to support a bureaucracy that kept growing larger, and even more powerful. Surtaxes were imposed upon incomes to meet emergencies. The government engaged in deficit spending. The denarius, a silver coin similar to our half dollar, began to lose its silvery hue. It took on a copper color as the government reduced the silver content.
 
@@ -141,8 +143,3 @@ God help us, as free men, to recognize the source of our blessings, the threat t
 
 
 
-
-
-
-
-#Freedom #Patriotism #Prayer #Standards #Youth

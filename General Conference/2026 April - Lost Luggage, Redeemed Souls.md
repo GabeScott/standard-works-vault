@@ -1,5 +1,7 @@
 # Lost Luggage, Redeemed Souls
 
+Dallin H. Oaks
+
 By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -139,7 +141,7 @@ That we may fulfill that mission for ourselves and diligently care for others as
 
 [^12]: See [[D&C 20.69|Doctrine and Covenants 20:69]]; [[D&C 46.7|46:7]].
 
-[^13]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^13]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^14]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p9#p9)” (worldwide youth devotional, June 3, 2018), Gospel Library.
 
@@ -147,5 +149,3 @@ That we may fulfill that mission for ourselves and diligently care for others as
 
 [^16]: “God’s love is so great that, except for the few who deliberately become sons of perdition, He has provided a destiny of glory for all of His children (see [[D&C 76.43|Doctrine and Covenants 76:43]])” (Dallin H. Oaks, “[[2020 April - The Great Plan.md|The Great Plan]],” *Liahona*, May 2020, 95).
 
-
-#Children #Love #Ministering #Redemption #Young_Adults #Youth

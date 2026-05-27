@@ -1,5 +1,7 @@
 # The Plan of Salvation: A Flight Plan for Life
 
+Gordon B. Hinckley
+
 By Elder Duane B. Gerrard - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -71,7 +73,7 @@ I know God lives, and I testify of Jesus Christ; He is God’s Only Begotten Son
 
 [^1]: [[Moses 1.39|Moses 1:39]].
 
-[^2]: [[2 Nephi 2.25|2 Ne. 2:25]].
+[^2]: [[2 Nephi 2.25|2 Ne. 2:25]].
 
 [^3]: [[Exodus 20.12|Ex. 20:12]].
 
@@ -79,8 +81,3 @@ I know God lives, and I testify of Jesus Christ; He is God’s Only Begotten Son
 
 [^5]: *History of the Church,* 4:227.
 
-
-
-
-
-#Adversity #Atonement #Family #Holy_Ghost #Parenthood #Plan_Of_Salvation #Repentance

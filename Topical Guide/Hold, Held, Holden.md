@@ -1,7 +1,6 @@
 # Hold, Held, Holden
 
-
-*See also* [[Keep, Kept.md|Keep]]
+*See also* [[Keep.md|Keep]]
 
 Lord will not *hold* him guiltless, [[Exodus 20.7|Exodus 20:7]] ([[Deuteronomy 5.11|Deuteronomy 5:11]]; [[Mosiah 13.15|Mosiah 13:15]]).
 
@@ -15,7 +14,7 @@ fool, when he *holdeth* his peace, is counted wise, [[Proverbs 17.28|Proverbs 17
 
 Lord thy God will *hold* thy right hand, [[Isaiah 41.13|Isaiah 41:13]].
 
-two masters ... *hold* to the one, and despise the other, [[Matthew 6.24|Matthew 6:24]] ([[Luke 16.13|Luke 16:13]]; [[3 Nephi 13.24|3 Nephi 13:24]]).
+two masters … *hold* to the one, and despise the other, [[Matthew 6.24|Matthew 6:24]] ([[Luke 16.13|Luke 16:13]]; [[3 Nephi 13.24|3 Nephi 13:24]]).
 
 ye *hold* the tradition of men, [[Mark 7.8|Mark 7:8]].
 
@@ -35,13 +34,13 @@ speak, and *hold* not thy peace, [[Acts 18.9|Acts 18:9]].
 
 let us *hold* fast our profession, [[Hebrews 4.14|Hebrews 4:14]] ([[Hebrews 10.23|Hebrews 10:23]]).
 
-others ... came forth and caught *hold* ... of the rod, [[1 Nephi 8.24|1 Nephi 8:24]].
+others … came forth and caught *hold* … of the rod, [[1 Nephi 8.24|1 Nephi 8:24]].
 
-word of God ... *hold* fast unto it, [[1 Nephi 15.24|1 Nephi 15:24]].
+word of God … *hold* fast unto it, [[1 Nephi 15.24|1 Nephi 15:24]].
 
-Satan had gotten great *hold* upon ... the people, [[Alma 8.9|Alma 8:9]] ([[Alma 27.12|Alma 27:12]]; [[D&C 10.20|D&C 10:20]]).
+Satan had gotten great *hold* upon … the people, [[Alma 8.9|Alma 8:9]] ([[Alma 27.12|Alma 27:12]]; [[D&C 10.20|D&C 10:20]]).
 
-riches ... become slippery, that ye cannot *hold* them, [[Helaman 13.31|Helaman 13:31]].
+riches … become slippery, that ye cannot *hold* them, [[Helaman 13.31|Helaman 13:31]].
 
 lay *hold* upon every good thing, [[Moroni 7.19|Moroni 7:19]].
 

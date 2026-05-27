@@ -1,5 +1,7 @@
 # Avoiding the Trap of Sin
 
+Thomas S. Monson
+
 By Elder Jairo Mazzagardi - *Of the Seventy*
 
 *Given in the October session of the 2010 General Conference*
@@ -70,7 +72,7 @@ A few months after our walk near the lake, my granddaughter was interviewed by h
 
 Bishops, I hope you take that response seriously. It seems to me that my granddaughter grew a lot in understanding in a very short time.
 
-Just as the tree I have described brought sadness, pain, suffering, and entrapment, another tree can bring the opposite. It is mentioned in [[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]:
+Just as the tree I have described brought sadness, pain, suffering, and entrapment, another tree can bring the opposite. It is mentioned in [[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]]:
 
 “And it came to pass that I beheld a tree, whose fruit was desirable to make one happy.
 
@@ -91,8 +93,3 @@ Of these truths I bear my testimony in the holy name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Repentance #Sin

@@ -1,6 +1,8 @@
 # Medicine for the Soul
 
-By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
+Wilford G. Edling
+
+By Elder Sterling W. Sill - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -16,9 +18,9 @@ One of the tragedies of our times is the increase, to epidemic proportions, of t
 
 One of the most effective cures for all of our present-day problems is found in the literary remedy that comes from thinking uplifting thoughts and living the great principles of the gospel. The science of writing has probably made books our greatest invention. Writing is preserved speech; it is potential ambition. By effective study we can acquire knowledge, build faith, and develop an enthusiasm that will lead us to any desired accomplishment.
 
-It was the Savior of the world who said: “Man shall not live by bread alone. …” ([[Matthew 4.4|Matt. 4:4]].) And because of the wonders of our day, every family may have its own library of great books, including the word of God himself. But before anyone can be benefited by any of our great literature, he must effectively believe in it.
+It was the Savior of the world who said: “Man shall not live by bread alone. …” ([[Matthew 4.4|Matt. 4:4]].) And because of the wonders of our day, every family may have its own library of great books, including the word of God himself. But before anyone can be benefited by any of our great literature, he must effectively believe in it.
 
-Abraham Lincoln once said, “What I want to know is in books.” The two most powerful books in Lincoln’s life were, first, the Holy Bible, which even in his youth he hungrily devoured before the open fire, and second, *The Life and Memorable Actions of George Washington* by Mason L. Weems.
+Abraham Lincoln once said, “What I want to know is in books.” The two most powerful books in Lincoln’s life were, first, the Holy Bible, which even in his youth he hungrily devoured before the open fire, and second, *The Life and Memorable Actions of George Washington* by Mason L. Weems.
 
 Washington was able to serve as Lincoln’s ideal, and out of his heart Lincoln said, “Washington is the mightiest name on earth, long since mightiest in the cause of civil liberty, still mightiest in moral reformation. On that name a eulogy is expected that cannot be. To add brightness to the sun or glory to the name of Washington is alike impossible. Let none attempt it. In solemn awe pronounce the name, and in its naked, deathless splendor leave it shining on.”
 
@@ -61,8 +63,3 @@ For this I humbly pray in the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Literature

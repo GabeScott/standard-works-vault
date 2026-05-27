@@ -1,6 +1,5 @@
 # Wave
 
-
 shalt *wave* them for a *wave* offering, [[Exodus 29.24|Exodus 29:24]] ([[Leviticus 8.27|Leviticus 8:27]]).
 
 he shall *wave* the sheaf before the Lord, [[Leviticus 23.11|Leviticus 23:11]].

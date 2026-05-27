@@ -1,13 +1,12 @@
 # Judgment
 
-
 *See also* [[Accountability.md|Accountability]]; [[Condemnation.md|Condemnation]]; [[Discernment, Spiritual.md|Discernment, Spiritual]]; [[Equity.md|Equity]]; [[Excommunication.md|Excommunication]]; [[God, Justice of.md|God, Justice of]]; [[Jesus Christ, Judge.md|Jesus Christ, Judge]]; [[Judge.md|Judge]]; [[Judgment, the Last.md|Judgment, the Last]]; [[Just.md|Just]]; [[Justice.md|Justice]]; [[Law.md|Law]]; [[Ordinance.md|Ordinance]]
 
 keep the way of the Lord, to do justice and *judgment*, [[Genesis 18.19|Genesis 18:19]].
 
 I will execute *judgment*: I am the Lord, [[Exodus 12.12|Exodus 12:12]].
 
-Thou shalt not ... decline after many to wrest *judgment*, [[Exodus 23.2|Exodus 23:2]].
+Thou shalt not … decline after many to wrest *judgment*, [[Exodus 23.2|Exodus 23:2]].
 
 Thou shalt not wrest the *judgment* of thy poor, [[Exodus 23.6|Exodus 23:6]].
 
@@ -15,9 +14,9 @@ Ye shall do my *judgments*, and keep mine ordinances, [[Leviticus 18.4|Leviticus
 
 Ye shall do no unrighteousness in *judgment*, [[Leviticus 19.15|Leviticus 19:15]].
 
-not respect persons in *judgment* ... *judgment* is God's, [[Deuteronomy 1.17|Deuteronomy 1:17]].
+not respect persons in *judgment* … *judgment* is God’s, [[Deuteronomy 1.17|Deuteronomy 1:17]].
 
-hearken ... unto the statutes and unto the *judgments*, [[Deuteronomy 4.1|Deuteronomy 4:1]].
+hearken … unto the statutes and unto the *judgments*, [[Deuteronomy 4.1|Deuteronomy 4:1]].
 
 Thou shalt not wrest *judgment*, [[Deuteronomy 16.19|Deuteronomy 16:19]].
 
@@ -31,7 +30,7 @@ took bribes, and perverted *judgment*, [[1 Samuel 8.3|1 Samuel 8:3]].
 
 Lord looketh on the *heart*, [[1 Samuel 16.7|1 Samuel 16:7]].
 
-ye judge ... for the Lord, who is with you in the *judgment*, [[2 Chronicles 19.6|2 Chronicles 19:6]].
+ye judge … for the Lord, who is with you in the *judgment*, [[2 Chronicles 19.6|2 Chronicles 19:6]].
 
 Doth God pervert *judgment*, [[Job 8.3|Job 8:3]].
 
@@ -53,9 +52,9 @@ Which executeth *judgment* for the oppressed, [[Psalms 146.7|Psalms 146:7]].
 
 Evil men understand not *judgment*, [[Proverbs 28.5|Proverbs 28:5]].
 
-every man's *judgment* cometh from the Lord, [[Proverbs 29.26|Proverbs 29:26]].
+every man’s *judgment* cometh from the Lord, [[Proverbs 29.26|Proverbs 29:26]].
 
-If thou seest the ... violent perverting of *judgment*, [[Ecclesiastes 5.8|Ecclesiastes 5:8]].
+If thou seest the … violent perverting of *judgment*, [[Ecclesiastes 5.8|Ecclesiastes 5:8]].
 
 seek *judgment*, relieve the oppressed, [[Isaiah 1.17|Isaiah 1:17]].
 
@@ -85,11 +84,11 @@ correct me, but with *judgment*, [[Jeremiah 10.24|Jeremiah 10:24]].
 
 Lord *search* the heart, I try the reins, [[Jeremiah 17.10|Jeremiah 17:10]].
 
-King ... shall execute *judgment* and justice, [[Jeremiah 23.5|Jeremiah 23:5]].
+King … shall execute *judgment* and justice, [[Jeremiah 23.5|Jeremiah 23:5]].
 
 I will feed them with *judgment*, [[Ezekiel 34.16|Ezekiel 34:16]].
 
-stand in *judgment* ... shall judge it according to my *judgments*, [[Ezekiel 44.24|Ezekiel 44:24]].
+stand in *judgment* … shall judge it according to my *judgments*, [[Ezekiel 44.24|Ezekiel 44:24]].
 
 whose works are truth, and his ways *judgment*, [[Daniel 4.37|Daniel 4:37]].
 
@@ -135,9 +134,9 @@ Now is the *judgment* of this world, [[John 12.31|John 12:31]].
 
 world of sin, and of righteousness, and of *judgment*, [[John 16.8|John 16:8]].
 
-led they Jesus ... unto the hall of *judgment*, [[John 18.28|John 18:28]].
+led they Jesus … unto the hall of *judgment*, [[John 18.28|John 18:28]].
 
-Pilate ... sat down in the *judgment* seat, [[John 19.13|John 19:13]].
+Pilate … sat down in the *judgment* seat, [[John 19.13|John 19:13]].
 
 In his humiliation his *judgment* was taken away, [[Acts 8.33|Acts 8:33]].
 
@@ -157,7 +156,7 @@ resurrection of the dead, and of eternal *judgment*, [[Hebrews 6.2|Hebrews 6:2]]
 
 a certain fearful looking for of *judgment*, [[Hebrews 10.27|Hebrews 10:27]].
 
-*judgment* without mercy ... mercy rejoiceth against *judgment*, [[James 2.13|James 2:13]].
+*judgment* without mercy … mercy rejoiceth against *judgment*, [[James 2.13|James 2:13]].
 
 that *judgment* must begin at the house of God, [[1 Peter 4.17|1 Peter 4:17]].
 
@@ -177,13 +176,13 @@ shew unto thee the *judgment* of the great whore, [[Revelation 17.1|Revelation 1
 
 righteous are his *judgments*, [[Revelation 19.2|Revelation 19:2]].
 
-I saw thrones ... and *judgment* was given unto them, [[Revelation 20.4|Revelation 20:4]].
+I saw thrones … and *judgment* was given unto them, [[Revelation 20.4|Revelation 20:4]].
 
 thou shalt be brought into *judgment*, [[1 Nephi 10.20|1 Nephi 10:20]].
 
 judged according to the holy *judgment* of God, [[2 Nephi 9.15|2 Nephi 9:15]].
 
-justice shall be administered ... even the day of *judgment*, [[2 Nephi 9.46|2 Nephi 9:46]].
+justice shall be administered … even the day of *judgment*, [[2 Nephi 9.46|2 Nephi 9:46]].
 
 shall confess before God that his *judgments* are just, [[Mosiah 16.1|Mosiah 16:1]].
 
@@ -191,15 +190,15 @@ shall confess before God that his *judgments* are just, [[Mosiah 16.1|Mosiah 16:
 
 after death, they must come to *judgment*, [[Alma 12.27|Alma 12:27]].
 
-heaping up ... wrath against the day of *judgment*, [[Helaman 8.25|Helaman 8:25]].
+heaping up … wrath against the day of *judgment*, [[Helaman 8.25|Helaman 8:25]].
 
 God would execute *judgment* against them, [[Ether 11.20|Ether 11:20]].
 
 same *judgment* which ye judge ye shall also be judged, [[Moroni 7.18|Moroni 7:18]].
 
-Lord ... shall come down in *judgment* upon Idumea, [[D&C 1.36|D&C 1:36]].
+Lord … shall come down in *judgment* upon Idumea, [[D&C 1.36|D&C 1:36]].
 
-turn to their shame ... in the day of *judgment*, [[D&C 10.23|D&C 10:23]].
+turn to their shame … in the day of *judgment*, [[D&C 10.23|D&C 10:23]].
 
 until the *judgment* of the great day, [[D&C 38.5|D&C 38:5]].
 
@@ -215,21 +214,21 @@ cannot be sanctified by law, neither by mercy, justice, nor *judgment*, [[D&C 88
 
 accountable for his own sins in the day of *judgment*, [[D&C 101.78|D&C 101:78]].
 
-high council was appointed ... for the purpose of *settling* important difficulties, [[D&C 102.2|D&C 102:2]] ([[D&C 102.1|102:1-34]][[D&C 102.2|]][[D&C 102.3|]][[D&C 102.4|]][[D&C 102.5|]][[D&C 102.6|]][[D&C 102.7|]][[D&C 102.8|]][[D&C 102.9|]][[D&C 102.10|]][[D&C 102.11|]][[D&C 102.12|]][[D&C 102.13|]][[D&C 102.14|]][[D&C 102.15|]][[D&C 102.16|]][[D&C 102.17|]][[D&C 102.18|]][[D&C 102.19|]][[D&C 102.20|]][[D&C 102.21|]][[D&C 102.22|]][[D&C 102.23|]][[D&C 102.24|]][[D&C 102.25|]][[D&C 102.26|]][[D&C 102.27|]][[D&C 102.28|]][[D&C 102.29|]][[D&C 102.30|]][[D&C 102.31|]][[D&C 102.32|]][[D&C 102.33|]][[D&C 102.34|]]).
+high council was appointed … for the purpose of *settling* important difficulties, [[D&C 102.2|D&C 102:2]].
 
-president shall give a *decision* ... and call upon the twelve councilors to sanction, [[D&C 102.19|D&C 102:19]].
+president shall give a *decision* … and call upon the twelve councilors to sanction, [[D&C 102.19|D&C 102:19]].
 
 Lord, should make every man *accountable*, [[D&C 104.13|D&C 104:13]].
 
-to sit in *judgment* upon transgressors, [[D&C 107.72|D&C 107:72]] ([[D&C 107.72|D&C 107:72]], [[D&C 107.73|D&C 107:73]], [[D&C 107.74|D&C 107:74]][[D&C 107.78|D&C 107:78]]).
+to sit in *judgment* upon transgressors, [[D&C 107.72|D&C 107:72]] ([[D&C 107.78|D&C 107:78]]).
 
-those who cry *transgression* ... are the servants of sin, [[D&C 121.17|D&C 121:17]].
+those who cry *transgression* … are the servants of sin, [[D&C 121.17|D&C 121:17]].
 
 swift *judgment* in the season thereof, [[D&C 121.24|D&C 121:24]].
 
 he holds men *accountable* for their acts, [[D&C 134.1|D&C 134:1]].
 
-given to abide in you ... truth, justice, and *judgment*, [[Moses 6.61|Moses 6:61]].
+given to abide in you … truth, justice, and *judgment*, [[Moses 6.61|Moses 6:61]].
 
 looking forth with fear for the *judgments*, [[Moses 7.66|Moses 7:66]].
 

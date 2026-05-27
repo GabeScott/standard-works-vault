@@ -1,6 +1,8 @@
 # Decisions
 
-By Elder Eldred G. Smith - *Patriarch to the Church*
+Joseph Fielding Smith
+
+By Elder Eldred G. Smith - *Patriarch to the Church*
 
 *Given in the October session of the 1971 General Conference*
 
@@ -91,8 +93,3 @@ I pray for the blessings of the Lord upon all who seek to do his will, in the na
 
 
 
-
-
-
-
-#Agency #Satan

@@ -1,5 +1,7 @@
 # “True to the Faith”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 1997 General Conference*
@@ -20,7 +22,7 @@ Permit me to quote to you from Wallace Stegner, not a member of the Church but a
 
 “They built a commonwealth, or as they would have put it, a Kingdom. But the story of their migration is more than the story of the founding of Utah. In their hegira they opened up southern Iowa from Locust Creek to the Missouri, made the first roads, built the first bridges, established the first communities. They transformed the Missouri at Council Bluffs from a trading post and an Indian agency into an outpost of civilization, founded settlements on both sides of the river and made Winter Quarters … and later Kanesville … into outfitting points that rivaled Independence, Westport, and St. Joseph. … Their guide books and trail markers, their bridges and ferries, though made for the Saints scheduled to come later, served also for the Gentiles.”
 
-He continues: “The Mormons were one of the principal forces in the settlement of the West. Their main body opened southern Iowa, the Missouri frontier, Nebraska, Wyoming, Utah. Samuel Brannan’s group of eastern Saints who sailed around the Horn in the ship *Brooklyn,* and the Mormon Battalion that marched 2,000 miles overland from Fort Leavenworth to San Diego, were secondary prongs of the Mormon movement; between them, they contributed to the opening of the Southwest and of California. Battalion members were at Coloma when gold gleamed up from the bedrock of Sutter’s millrace. … Brigham Young’s colonizing Mormons, taking to wheels again after the briefest stay, radiated outward from the Salt Lake, Utah, and Weber Valleys and planted settlements that reached from Northern Arizona to the Lemhi River in Idaho, and from Fort Bridger in Wyoming to Genoa in Carson Valley … , and in the Southwest down through St. George and Las Vegas to San Bernardino.”[^1]
+He continues: “The Mormons were one of the principal forces in the settlement of the West. Their main body opened southern Iowa, the Missouri frontier, Nebraska, Wyoming, Utah. Samuel Brannan’s group of eastern Saints who sailed around the Horn in the ship *Brooklyn,* and the Mormon Battalion that marched 2,000 miles overland from Fort Leavenworth to San Diego, were secondary prongs of the Mormon movement; between them, they contributed to the opening of the Southwest and of California. Battalion members were at Coloma when gold gleamed up from the bedrock of Sutter’s millrace. … Brigham Young’s colonizing Mormons, taking to wheels again after the briefest stay, radiated outward from the Salt Lake, Utah, and Weber Valleys and planted settlements that reached from Northern Arizona to the Lemhi River in Idaho, and from Fort Bridger in Wyoming to Genoa in Carson Valley … , and in the Southwest down through St. George and Las Vegas to San Bernardino.”[^1]
 
 That is a capsule account of their remarkable achievements.
 
@@ -105,14 +107,9 @@ For this I humbly pray, as I both look back to the past and forward to the futur
 
 [^4]: [[Mark 16.15|Mark 16:15]].
 
-[^5]: [[Articles of Faith 1.13|A of F 1:13]].
+[^5]: [[Articles of Faith 1.13|A of F 1:13]].
 
 [^6]: [[Jacob 6.7|Jacob 6:7]].
 
-[^7]: [[1 Peter 2.9|1 Pet. 2:9]].
+[^7]: [[1 Peter 2.9|1 Pet. 2:9]].
 
-
-
-
-
-#Brigham_Young #Church_Growth #Gratitude #Jesus_Christ #Joseph_Smith #Missionary_Work #Pioneers #Temples

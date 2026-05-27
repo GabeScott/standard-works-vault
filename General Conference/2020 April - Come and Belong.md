@@ -1,6 +1,8 @@
 # Come and Belong
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -42,7 +44,7 @@ And how do we start? There are many possible ways.
 
 We invite you to read the Book of Mormon. If you don’t have a copy, you can read it on ChurchofJesusChrist.org[^4] or download the Book of Mormon app. The Book of Mormon is another testament of Jesus Christ and a companion to the Old and New Testaments. We love all of these holy scriptures and learn from them.
 
-We invite you to spend some time at  to find out what members of the Church teach and believe.
+We invite you to spend some time at [ComeuntoChrist.org](https://www.comeuntochrist.org) to find out what members of the Church teach and believe.
 
 Invite the missionaries to visit with you online or in the privacy of your home where this is possible—they have a message of hope and healing. These missionaries are our precious sons and daughters who serve in many places around the world on their own time and money.
 
@@ -110,7 +112,7 @@ If He had, He would still be waiting.
 
 Joseph was a lot like you and me. Though Joseph made mistakes, God used him to accomplish His great purposes.
 
-President Thomas S. Monson often repeated these words of advice: “Whom the Lord calls, the Lord qualifies.”[^13]
+President Thomas S. Monson often repeated these words of advice: “Whom the Lord calls, the Lord qualifies.”[^13]
 
 The Apostle Paul reasoned with the Saints in Corinth: “Consider your own call, brothers and sisters: not many of you were wise by human standards, not many were powerful, not many were of noble birth.”[^14]
 
@@ -149,11 +151,11 @@ Of this I testify and leave you my blessing in deep gratitude and love for each 
 
 [^2]: See [[Luke 4.18|Luke 4:18]].
 
-[^3]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^3]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
-[^4]: See the Book of Mormon at [ChurchofJesusChrist.org/study/scriptures/bofm](https://churchofjesuschrist.org/study/scriptures/bofm/_recordable-toc?lang=eng&id=title1#title1).
+[^4]: See the Book of Mormon at [ChurchofJesusChrist.org/study/scriptures/bofm](https://www.churchofjesuschrist.org/study/scriptures/bofm/_recordable-toc?lang=eng&id=title1#title1).
 
-[^5]: [[1 Timothy 6.15|1 Timothy 6:15]].
+[^5]: [[1 Timothy 6.15|1 Timothy 6:15]].
 
 [^6]: See [[Matthew 16.15|Matthew 16:15–17]][[Matthew 16.16|]][[Matthew 16.17|]].
 
@@ -167,18 +169,13 @@ Of this I testify and leave you my blessing in deep gratitude and love for each 
 
 [^11]: [[Alma 41.10|Alma 41:10]].
 
-[^12]: For example, of the 138 sections of the Doctrine and Covenants, more than 100 are revelations that Joseph Smith received before his 30th birthday, on December 23, 1835.
+[^12]: For example, of the 138 sections of the Doctrine and Covenants, more than 100 are revelations that Joseph Smith received before his 30th birthday, on December 23, 1835.
 
-[^13]: Thomas S. Monson, “[[1996 April - Duty Calls.md|Duty Calls]],” *Ensign,* May 1996, 44.
+[^13]: Thomas S. Monson, “[[1996 April - Duty Calls.md|Duty Calls]],” *Ensign,* May 1996, 44.
 
-[^14]: 1 Corinthians 1:26, New Revised Standard Version.
+[^14]: 1 Corinthians 1:26, New Revised Standard Version.
 
-[^15]: See [[1 Corinthians 1.28|1 Corinthians 1:28–29]][[1 Corinthians 1.29|]]; [[2 Corinthians 4.7|2 Corinthians 4:7]].
+[^15]: See [[1 Corinthians 1.28|1 Corinthians 1:28–29]][[1 Corinthians 1.29|]]; [[2 Corinthians 4.7|2 Corinthians 4:7]].
 
 [^16]: [[Joseph Smith History 1.17|Joseph Smith—History 1:17]].
 
-
-
-
-
-#Belonging #Discipleship #Jesus_Christ #Restoration

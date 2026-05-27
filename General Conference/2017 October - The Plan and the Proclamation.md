@@ -1,6 +1,8 @@
 # The Plan and the Proclamation
 
-By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
+Sharon Eubank
+
+By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2017 General Conference*
 
@@ -14,13 +16,13 @@ As is evident in our family proclamation, members of The Church of Jesus Christ 
 
 In a parable, Jesus described those who “\[hear\] the word” but become “unfruitful” when that word is “choke\[d\]” by “the care of this world, and the deceitfulness of riches” ([[Matthew 13.22|Matthew 13:22]]). Later, Jesus corrected Peter for not savoring “the things that be of God, but those that be of men,” declaring, “For what is a man profited, if he shall gain the whole world, and lose his own soul?” ([[Matthew 16.23|Matthew 16:23, 26]][[Matthew 16.26|]]). In His final teachings in mortality, He told His Apostles, “If ye were of the world, the world would love his own: but because ye are not of the world, … the world hateth you” ([[John 15.19|John 15:19]]; see also [[John 17.14|John 17:14, 16]][[John 17.16|]]).
 
-Similarly, the writings of Jesus’s early Apostles frequently use the image of “the world” to represent opposition to gospel teachings. “Be not conformed to this world” ([[Romans 12.2|Romans 12:2]]), the Apostle Paul taught. “For the wisdom of this world is foolishness with God” ([[1 Corinthians 3.19|1 Corinthians 3:19]]). And, “Beware,” he warned, “lest any man spoil you … after the tradition of men, after the rudiments of the world, and not after Christ” ([[Colossians 2.8|Colossians 2:8]]). The Apostle James taught that “the friendship of the world is enmity with God\[.\] Whosoever therefore will be a friend of the world is the enemy of God” ([[James 4.4|James 4:4]]).
+Similarly, the writings of Jesus’s early Apostles frequently use the image of “the world” to represent opposition to gospel teachings. “Be not conformed to this world” ([[Romans 12.2|Romans 12:2]]), the Apostle Paul taught. “For the wisdom of this world is foolishness with God” ([[1 Corinthians 3.19|1 Corinthians 3:19]]). And, “Beware,” he warned, “lest any man spoil you … after the tradition of men, after the rudiments of the world, and not after Christ” ([[Colossians 2.8|Colossians 2:8]]). The Apostle James taught that “the friendship of the world is enmity with God\[.\] Whosoever therefore will be a friend of the world is the enemy of God” ([[James 4.4|James 4:4]]).
 
-The Book of Mormon often uses this image of the opposition of “the world.” Nephi prophesied the ultimate destruction of “those who are built up to become popular in the eyes of the world, and those who seek … the things of the world” ([[1 Nephi 22.23|1 Nephi 22:23]]; see also [[2 Nephi 9.30|2 Nephi 9:30]]). Alma condemned those who were “puffed up … with the vain things of the world” ([[Alma 31.27|Alma 31:27]]). Lehi’s dream shows that those who seek to follow the iron rod, the word of God, will encounter the opposition of the world. The occupants of the “great and spacious building” Lehi saw were “mocking and pointing” the “finger of scorn” ([[1 Nephi 8.26|1 Nephi 8:26–27, 33]][[1 Nephi 8.27|]][[1 Nephi 8.33|]]). In his vision interpreting this dream, Nephi learned that this ridicule and opposition came from “the multitudes of the earth, … the world and the wisdom thereof; … the pride of the world” ([[1 Nephi 11.34|1 Nephi 11:34–36]][[1 Nephi 11.35|]][[1 Nephi 11.36|]]).
+The Book of Mormon often uses this image of the opposition of “the world.” Nephi prophesied the ultimate destruction of “those who are built up to become popular in the eyes of the world, and those who seek … the things of the world” ([[1 Nephi 22.23|1 Nephi 22:23]]; see also [[2 Nephi 9.30|2 Nephi 9:30]]). Alma condemned those who were “puffed up … with the vain things of the world” ([[Alma 31.27|Alma 31:27]]). Lehi’s dream shows that those who seek to follow the iron rod, the word of God, will encounter the opposition of the world. The occupants of the “great and spacious building” Lehi saw were “mocking and pointing” the “finger of scorn” ([[1 Nephi 8.26|1 Nephi 8:26–27, 33]][[1 Nephi 8.27|]][[1 Nephi 8.33|]]). In his vision interpreting this dream, Nephi learned that this ridicule and opposition came from “the multitudes of the earth, … the world and the wisdom thereof; … the pride of the world” ([[1 Nephi 11.34|1 Nephi 11:34–36]][[1 Nephi 11.35|]][[1 Nephi 11.36|]]).
 
-What is the meaning of these scriptural cautions and commandments not to be “of the world” or the modern commandment to “forsake the world”? ([[D&C 53.2|D&C 53:2]]). President Thomas S. Monson summarized these teachings: “We must be vigilant in a world which has moved so far from that which is spiritual. It is essential that we reject anything that does not conform to our standards, refusing in the process to surrender that which we desire most: eternal life in the kingdom of God.”[^1]
+What is the meaning of these scriptural cautions and commandments not to be “of the world” or the modern commandment to “forsake the world”? ([[D&C 53.2|D&C 53:2]]). President Thomas S. Monson summarized these teachings: “We must be vigilant in a world which has moved so far from that which is spiritual. It is essential that we reject anything that does not conform to our standards, refusing in the process to surrender that which we desire most: eternal life in the kingdom of God.”[^1]
 
-God created this earth according to His plan to provide His spirit children a place to experience mortality as a necessary step toward the glories He desires for all His children. While there are various kingdoms and glories, our Heavenly Father’s ultimate desire for His children is what President Monson called “eternal life in the kingdom of God,” which is exaltation in families. This is more than salvation. President Russell M. Nelson has reminded us, “In God’s eternal plan, salvation is an individual matter; \[but\] exaltation is a family matter.”[^2]
+God created this earth according to His plan to provide His spirit children a place to experience mortality as a necessary step toward the glories He desires for all His children. While there are various kingdoms and glories, our Heavenly Father’s ultimate desire for His children is what President Monson called “eternal life in the kingdom of God,” which is exaltation in families. This is more than salvation. President Russell M. Nelson has reminded us, “In God’s eternal plan, salvation is an individual matter; \[but\] exaltation is a family matter.”[^2]
 
 The restored gospel of Jesus Christ and the inspired family proclamation, which I will discuss later, are essential teachings to guide mortal preparation for exaltation. Even as we must live with the marriage laws and other traditions of a declining world, those who strive for exaltation must make personal choices in family life according to the Lord’s way whenever that differs from the world’s way.
 
@@ -30,7 +32,7 @@ In this mortal life, we have no memory of what preceded our birth, and we now ex
 
 Latter-day Saints who understand God’s plan of salvation have a unique worldview that helps them see the reason for God’s commandments, the unchangeable nature of His required ordinances, and the fundamental role of our Savior, Jesus Christ. Our Savior’s Atonement reclaims us from death and, subject to our repentance, saves us from sin. With that worldview, Latter-day Saints have distinctive priorities and practices and are blessed with the strength to endure the frustrations and pains of mortal life.
 
-Inevitably, the actions of those who try to follow God’s plan of salvation can cause misunderstanding or even conflict with family members or friends who do not believe its principles. Such conflict is always so. Every generation that has sought to follow God’s plan has had challenges. Anciently, the prophet Isaiah gave strength to the Israelites, whom he called “ye that know righteousness, … in whose heart is my law.” To them he said, “Fear ye not the reproach of men, neither be ye afraid of their revilings” ([[Isaiah 51.7|Isaiah 51:7]]; see also [[2 Nephi 8.7|2 Nephi 8:7]]). But whatever the cause of conflict with those who do not understand or believe God’s plan, those who do understand are always commanded to choose the Lord’s way instead of the world’s way.
+Inevitably, the actions of those who try to follow God’s plan of salvation can cause misunderstanding or even conflict with family members or friends who do not believe its principles. Such conflict is always so. Every generation that has sought to follow God’s plan has had challenges. Anciently, the prophet Isaiah gave strength to the Israelites, whom he called “ye that know righteousness, … in whose heart is my law.” To them he said, “Fear ye not the reproach of men, neither be ye afraid of their revilings” ([[Isaiah 51.7|Isaiah 51:7]]; see also [[2 Nephi 8.7|2 Nephi 8:7]]). But whatever the cause of conflict with those who do not understand or believe God’s plan, those who do understand are always commanded to choose the Lord’s way instead of the world’s way.
 
 ## III.
 
@@ -50,43 +52,38 @@ In 1995 a President of the Church and 14 other Apostles of the Lord issued these
 
 The inspiration identifying the need for a proclamation on the family came to the leadership of the Church over 23 years ago. It was a surprise to some who thought the doctrinal truths about marriage and the family were well understood without restatement.[^8] Nevertheless, we felt the confirmation and we went to work. Subjects were identified and discussed by members of the Quorum of the Twelve for nearly a year. Language was proposed, reviewed, and revised. Prayerfully we continually pleaded with the Lord for His inspiration on what we should say and how we should say it. We all learned “line upon line, precept upon precept,” as the Lord has promised ([[D&C 98.12|D&C 98:12]]).
 
-During this revelatory process, a proposed text was presented to the First Presidency, who oversee and promulgate Church teachings and doctrine. After the Presidency made further changes, the proclamation on the family was announced by the President of the Church, Gordon B. Hinckley. In the women’s meeting of September 23, 1995, he introduced the proclamation with these words: “With so much of sophistry that is passed off as truth, with so much of deception concerning standards and values, with so much of allurement and enticement to take on the slow stain of the world, we have felt to warn and forewarn.”[^9]
+During this revelatory process, a proposed text was presented to the First Presidency, who oversee and promulgate Church teachings and doctrine. After the Presidency made further changes, the proclamation on the family was announced by the President of the Church, Gordon B. Hinckley. In the women’s meeting of September 23, 1995, he introduced the proclamation with these words: “With so much of sophistry that is passed off as truth, with so much of deception concerning standards and values, with so much of allurement and enticement to take on the slow stain of the world, we have felt to warn and forewarn.”[^9]
 
 I testify that the proclamation on the family is a statement of eternal truth, the will of the Lord for His children who seek eternal life. It has been the basis of Church teaching and practice for the last 22 years and will continue so for the future. Consider it as such, teach it, live by it, and you will be blessed as you press forward toward eternal life.
 
 Forty years ago, President Ezra Taft Benson taught that “every generation has its tests and its chance to stand and prove itself.”[^10] I believe our attitude toward and use of the family proclamation is one of those tests for this generation. I pray for all Latter-day Saints to stand firm in that test.
 
-I close with President Gordon B. Hinckley’s teachings uttered two years after the family proclamation was announced. He said: “I see a wonderful future in a very uncertain world. If we will cling to our values, if we will build on our inheritance, if we will walk in obedience before the Lord, if we will simply live the gospel, we will be blessed in a magnificent and wonderful way. We will be looked upon as a peculiar people who have found the key to a peculiar happiness.”[^11]
+I close with President Gordon B. Hinckley’s teachings uttered two years after the family proclamation was announced. He said: “I see a wonderful future in a very uncertain world. If we will cling to our values, if we will build on our inheritance, if we will walk in obedience before the Lord, if we will simply live the gospel, we will be blessed in a magnificent and wonderful way. We will be looked upon as a peculiar people who have found the key to a peculiar happiness.”[^11]
 
 I testify of the truth and eternal importance of the family proclamation, revealed by the Lord Jesus Christ to His Apostles for the exaltation of the children of God (see [[D&C 131.1|Doctrine and Covenants 131:1–4]][[D&C 131.2|]][[D&C 131.3|]][[D&C 131.4|]]), in the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Thomas S. Monson, “[[2011 October - Stand in Holy Places.md|Stand in Holy Places]],” *Ensign* or *Liahona,* Nov. 2011, 83.
+[^1]: Thomas S. Monson, “[[2011 October - Stand in Holy Places.md|Stand in Holy Places]],” *Ensign* or *Liahona,* Nov. 2011, 83.
 
-[^2]: Russell M. Nelson, “[[2008 April - Salvation and Exaltation.md|Salvation and Exaltation]],” *Ensign* or *Liahona,* May 2008, 10.
+[^2]: Russell M. Nelson, “[[2008 April - Salvation and Exaltation.md|Salvation and Exaltation]],” *Ensign* or *Liahona,* May 2008, 10.
 
-[^3]: See “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^3]: See “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^4]: See Dallin H. Oaks, “[[2009 October - Love and Law.md|Love and Law]],” *Ensign* or *Liahona,* Nov. 2009, 26–29.
+[^4]: See Dallin H. Oaks, “[[2009 October - Love and Law.md|Love and Law]],” *Ensign* or *Liahona,* Nov. 2009, 26–29.
 
-[^5]: See “‘Disastrous’ Illegitimacy Trends,” *Washington Times,* Dec. 1, 2006, washingtontimes.com.
+[^5]: See “‘Disastrous’ Illegitimacy Trends,” *Washington Times,* Dec. 1, 2006, washingtontimes.com.
 
-[^6]: See Stephanie J. Ventura and others, “Report of Final Natality Statistics, 1996,” *Monthly Vital Statistics Report,* June 30, 1998, 9.
+[^6]: See Stephanie J. Ventura and others, “Report of Final Natality Statistics, 1996,” *Monthly Vital Statistics Report,* June 30, 1998, 9.
 
-[^7]: See Brady E. Hamilton and others, “Births: Provisional Data for 2016,” *Vital Statistics Rapid Release,* June 2017, 10.
+[^7]: See Brady E. Hamilton and others, “Births: Provisional Data for 2016,” *Vital Statistics Rapid Release,* June 2017, 10.
 
-[^8]: Our Young Women General President said it well 20 years later: “Little did we realize then how very desperately we would need these basic declarations in today’s world as the criteria by which we could judge each new wind of worldly dogma coming at us from the media, the Internet, scholars, TV and films, and even legislators. The proclamation on the family has become our benchmark for judging the philosophies of the world, and I testify that the principles set forth within this statement are as true today as they were when they were given to us by a prophet of God nearly 20 years ago” (Bonnie L. Oscarson, “[[2015 April - Defenders of the Family Proclamation.md|Defenders of the Family Proclamation]],” *Ensign* or *Liahona,* May 2015, 14–15).
+[^8]: Our Young Women General President said it well 20 years later: “Little did we realize then how very desperately we would need these basic declarations in today’s world as the criteria by which we could judge each new wind of worldly dogma coming at us from the media, the Internet, scholars, TV and films, and even legislators. The proclamation on the family has become our benchmark for judging the philosophies of the world, and I testify that the principles set forth within this statement are as true today as they were when they were given to us by a prophet of God nearly 20 years ago” (Bonnie L. Oscarson, “[[2015 April - Defenders of the Family Proclamation.md|Defenders of the Family Proclamation]],” *Ensign* or *Liahona,* May 2015, 14–15).
 
-[^9]: Gordon B. Hinckley, “[[1995 October - Stand Strong against the Wiles of the World.md|Stand Strong against the Wiles of the World]],” *Ensign,* Nov. 1995, 100.
+[^9]: Gordon B. Hinckley, “[[1995 October - Stand Strong against the Wiles of the World.md|Stand Strong against the Wiles of the World]],” *Ensign,* Nov. 1995, 100.
 
-[^10]: Ezra Taft Benson, “Our Obligation and Challenge” (address given at the regional representatives’ seminar, Sept. 30, 1977), 2; in David A. Bednar, “[On the Lord’s Side: Lessons from Zion’s Camp](https://churchofjesuschrist.org/study/liahona/2017/07/on-the-lords-side-lessons-from-zions-camp?lang=eng),” *Ensign,* July 2017, 31; *Liahona,* July 2017, 19.
+[^10]: Ezra Taft Benson, “Our Obligation and Challenge” (address given at the regional representatives’ seminar, Sept. 30, 1977), 2; in David A. Bednar, “[On the Lord’s Side: Lessons from Zion’s Camp](https://www.churchofjesuschrist.org/study/liahona/2017/07/on-the-lords-side-lessons-from-zions-camp?lang=eng),” *Ensign,* July 2017, 31; *Liahona,* July 2017, 19.
 
-[^11]: *Teachings of Presidents of the Church: Gordon B. Hinckley* (2016), 186; see also Gordon B. Hinckley, “[[1997 October - Look to the Future.md|Look to the Future]],” *Ensign,* Nov. 1997, 69.
+[^11]: *[Teachings of Presidents of the Church: Gordon B. Hinckley](https://www.churchofjesuschrist.org/study/manual/teachings-of-presidents-of-the-church-gordon-b-hinckley/chapter-12-obedience-simply-live-the-gospel?lang=eng)* (2016), 186; see also Gordon B. Hinckley, “[[1997 October - Look to the Future.md|Look to the Future]],” *Ensign,* Nov. 1997, 69.
 
-
-
-
-
-#Family #Plan_Of_Salvation

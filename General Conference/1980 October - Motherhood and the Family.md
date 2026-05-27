@@ -1,6 +1,8 @@
 # Motherhood and the Family
 
-By Mary F. Foulger - *Of the Relief Society General Board*
+Spencer W. Kimball
+
+By Mary F. Foulger - *Of the Relief Society General Board*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -18,7 +20,7 @@ As a mother I have made mistakes. Regardless of culture or country, we all make 
 
 To mothers raising children alone, remember that you and the Lord constitute a majority. As your arms encircle your little ones, his arms are there, too. Feel secure, for his arms are lengthened out toward us all the day long.
 
-Elder John A. Widtsoe said: “Motherhood may be exercised as universally and vicariously as Priesthood” (*Priesthood and Church Government,* rev. ed., Salt Lake City: Deseret Book Company, 1954, p. 85).
+Elder John A. Widtsoe said: “Motherhood may be exercised as universally and vicariously as Priesthood” (*Priesthood and Church Government,* rev. ed., Salt Lake City: Deseret Book Company, 1954, p. 85).
 
 For those who have not yet borne a child—exercise motherhood. Let your arms be an extension of the Savior’s in providing love and security for all his children.
 
@@ -35,8 +37,3 @@ Let us learn and then teach that the Lord has given us a prophet to guide us bac
 
 
 
-
-
-
-
-#Family #Motherhood

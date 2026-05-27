@@ -1,7 +1,6 @@
 # Order
 
-
-*See also* [[Charge.md|Charge]]; [[Church Organization.md|Church Organization]]; [[Command.md|Command]]; [[Consecration.md|Consecration]]; [[Decree.md|Decree]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Govern.md|Govern]]; [[Law.md|Law]]; [[Ordinance.md|Ordinance]]; [[Peace.md|Peace]]; [[Statute.md|Statute]]; [[Unity.md|Unity]]; [[Zion, Sion.md|Zion]]
+*See also* [[Charge.md|Charge]]; [[Church Organization.md|Church Organization]]; [[Command.md|Command]]; [[Consecration.md|Consecration]]; [[Decree.md|Decree]]; [[Family, Children, Responsibilities toward.md|Family, Children, Responsibilities toward]]; [[Govern.md|Govern]]; [[Law.md|Law]]; [[Ordinance.md|Ordinance]]; [[Peace.md|Peace]]; [[Statute.md|Statute]]; [[Unity.md|Unity]]; [[Zion.md|Zion]]
 
 seed was in itself, after his *kind*, [[Genesis 1.12|Genesis 1:12]] ([[Genesis 1.24|Genesis 1:24]]; [[Moses 2.12|Moses 2:12]]; [[Abraham 4.12|Abraham 4:12]]).
 
@@ -11,39 +10,39 @@ set the bread in *order* upon it, [[Exodus 40.23|Exodus 40:23]].
 
 lay the wood in *order* upon the fire, [[Leviticus 1.7|Leviticus 1:7]].
 
-in the tabernacle ... shall Aaron *order* it, [[Leviticus 24.3|Leviticus 24:3]].
+in the tabernacle … shall Aaron *order* it, [[Leviticus 24.3|Leviticus 24:3]].
 
 they waited on their office according to their *order*, [[1 Chronicles 6.32|1 Chronicles 6:32]].
 
-service of the house ... was set in *order*, [[2 Chronicles 29.35|2 Chronicles 29:35]].
+service of the house … was set in *order*, [[2 Chronicles 29.35|2 Chronicles 29:35]].
 
-land of darkness ... without any *order*, [[Job 10.22|Job 10:22]].
+land of darkness … without any *order*, [[Job 10.22|Job 10:22]].
 
 steps of a good man are *ordered* by the Lord, [[Psalms 37.23|Psalms 37:23]].
 
-a priest for ever after the *order* of Melchizedek, [[Psalms 110.4|Psalms 110:4]] ([[Hebrews 5.6|Hebrews 5:6]], [[Hebrews 5.10|Hebrews 5:10]]; [[Hebrews 6.20|Hebrews 6:20]]; [[Hebrews 7.11|Hebrews 7:11]], [[Hebrews 7.17|Hebrews 7:17]], [[Hebrews 7.21|Hebrews 7:21]]; [[D&C 76.57|D&C 76:57]]).
+a priest for ever after the *order* of Melchizedek, [[Psalms 110.4|Psalms 110:4]] ([[Hebrews 5.6|Hebrews 5:6]]; [[Hebrews 5.10|Hebrews 5:10]]; [[Hebrews 6.20|Hebrews 6:20]]; [[Hebrews 7.11|Hebrews 7:11]]; [[Hebrews 7.17|Hebrews 7:17]]; [[Hebrews 7.21|Hebrews 7:21]]; [[D&C 76.57|D&C 76:57]]).
 
 *Order* my steps in thy word, [[Psalms 119.133|Psalms 119:133]].
 
 to *order* it, and to establish it with judgment, [[Isaiah 9.7|Isaiah 9:7]] ([[2 Nephi 19.7|2 Nephi 19:7]]).
 
-and hath determined the times ... and the *bounds*, [[Acts 17.26|Acts 17:26]].
+and hath determined the times … and the *bounds*, [[Acts 17.26|Acts 17:26]].
 
 Let all things be done decently and in *order*, [[1 Corinthians 14.40|1 Corinthians 14:40]].
 
 every man in his own *order*, [[1 Corinthians 15.23|1 Corinthians 15:23]] ([[D&C 88.60|D&C 88:60]]).
 
-am I with you in the spirit ... beholding your *order*, [[Colossians 2.5|Colossians 2:5]].
+am I with you in the spirit … beholding your *order*, [[Colossians 2.5|Colossians 2:5]].
 
 thou shouldest set in *order* the things that are wanting, [[Titus 1.5|Titus 1:5]].
 
 ordained after the manner of his holy *order*, [[2 Nephi 6.2|2 Nephi 6:2]].
 
-see that all these things are done in ... *order*, [[Mosiah 4.27|Mosiah 4:27]].
+see that all these things are done in … *order*, [[Mosiah 4.27|Mosiah 4:27]].
 
-Alma ... confined himself wholly to the high priesthood of the holy *order* of God, [[Alma 4.20|Alma 4:20]].
+Alma … confined himself wholly to the high priesthood of the holy *order* of God, [[Alma 4.20|Alma 4:20]].
 
-Alma ... established the *order* of the church, [[Alma 8.1|Alma 8:1]].
+Alma … established the *order* of the church, [[Alma 8.1|Alma 8:1]].
 
 ordained priests, after his holy *order*, [[Alma 13.1|Alma 13:1]].
 
@@ -57,7 +56,7 @@ there was great *order* in the land, [[3 Nephi 6.4|3 Nephi 6:4]].
 
 called after the holy *order* of God, [[Ether 12.10|Ether 12:10]].
 
-depravity ... without *order*, [[Moroni 9.18|Moroni 9:18]].
+depravity … without *order*, [[Moroni 9.18|Moroni 9:18]].
 
 so that all things may be done in *order*, [[D&C 20.68|D&C 20:68]] ([[D&C 28.13|D&C 28:13]]; [[D&C 58.55|D&C 58:55]]).
 
@@ -73,7 +72,7 @@ Set in *order* your houses, [[D&C 90.18|D&C 90:18]] ([[D&C 93.43|D&C 93:43]]).
 
 set in *order* his family, [[D&C 93.50|D&C 93:50]].
 
-dedicated unto the Lord ... according to the *order* of the priesthood, [[D&C 94.6|D&C 94:6]].
+dedicated unto the Lord … according to the *order* of the priesthood, [[D&C 94.6|D&C 94:6]].
 
 I commanded to be organized and established, to be a united *order*, [[D&C 104.1|D&C 104:1]].
 
@@ -91,9 +90,9 @@ let all the records be had in *order*, [[D&C 127.9|D&C 127:9]].
 
 contrary to the *order* of heaven, [[D&C 129.7|D&C 129:7]].
 
-things ... of a lower *order*, will be manifest, [[D&C 130.9|D&C 130:9]].
+things … of a lower *order*, will be manifest, [[D&C 130.9|D&C 130:9]].
 
-Urim and Thummim ... whereby things pertaining to a higher *order* of kingdoms will be made known, [[D&C 130.10|D&C 130:10]].
+Urim and Thummim … whereby things pertaining to a higher *order* of kingdoms will be made known, [[D&C 130.10|D&C 130:10]].
 
 man must enter into this *order* of the priesthood, [[D&C 131.2|D&C 131:2]].
 

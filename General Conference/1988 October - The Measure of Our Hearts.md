@@ -1,5 +1,7 @@
 # The Measure of Our Hearts
 
+Ezra Taft Benson
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1988 General Conference*
@@ -10,11 +12,11 @@ I would like to share some thoughts about measurements. A measurement is a stand
 
 If I say, “She is a three-point student,” you have a pretty good idea of this person’s scholastic ability. A measurement may also be an estimate of what is expected.
 
-Human measurement, of course, is subject to human fallibility. My generation, for example, was taught that a person’s I.Q. was supposedly a fixed measurement of a person’s capacity to learn. Such a notion is now generally discredited by the teaching profession. Interestingly, the Prophet Joseph Smith taught in the nineteenth century: “We consider that God has created man with a mind capable of instruction, and a faculty which may be enlarged in proportion to the heed and diligence given to the light communicated from heaven to the intellect.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 51.) He was obviously ahead of his time!
+Human measurement, of course, is subject to human fallibility. My generation, for example, was taught that a person’s I.Q. was supposedly a fixed measurement of a person’s capacity to learn. Such a notion is now generally discredited by the teaching profession. Interestingly, the Prophet Joseph Smith taught in the nineteenth century: “We consider that God has created man with a mind capable of instruction, and a faculty which may be enlarged in proportion to the heed and diligence given to the light communicated from heaven to the intellect.” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, p. 51.) He was obviously ahead of his time!
 
 We also tend to evaluate others on the basis of physical, outward appearance: their “good looks,” their social status, their family pedigrees, their degrees, or their economic situations.
 
-The Lord, however, has a different standard by which he measures a person. When it came time to choose a king to replace King Saul, the Lord gave this criteria to his prophet Samuel: “Look not on his countenance, or on the height of his stature; … for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
+The Lord, however, has a different standard by which he measures a person. When it came time to choose a king to replace King Saul, the Lord gave this criteria to his prophet Samuel: “Look not on his countenance, or on the height of his stature; … for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart.” ([[1 Samuel 16.7|1 Sam. 16:7]].)
 
 When the Lord measures an individual, He does not take a tape measure around the person’s head to determine his mental capacity, nor his chest to determine his manliness, but He measures the heart as an indicator of the person’s capacity and potential to bless others.
 
@@ -26,7 +28,7 @@ A question I suggest to you is this: How do you measure up? Ultimately you and I
 
 “All who have died without a knowledge of this gospel, who would have received it if they had been permitted to tarry, shall be heirs of the celestial kingdom of God; …
 
-“For I, the Lord, will judge all men according to their works, according to the desire of their hearts.” ([[D&C 137.7|Vs. 7, 9]][[D&C 137.9|]].)
+“For I, the Lord, will judge all men according to their works, according to the desire of their hearts.” ([[D&C 137.7|Vs. 7, 9]][[D&C 137.9|]].)
 
 If our works and the desires of our hearts are the ultimate criteria of our character, how do we measure up? What kind of heart should we seek? For what kind of heart should we pray? How should we measure the worth of other people?
 
@@ -42,7 +44,7 @@ An honest heart will lead to a change of heart. Spiritually speaking, a change o
 
 The Book of Mormon is a study of interesting contrasts between those who hardened their hearts and those whose hearts were softened by the Spirit of the Lord. How does one have his or her heart softened under the influence of the Holy Ghost?
 
-Nephi’s testimony provides an answer: “Having great desires to know of the mysteries of God, wherefore, I did cry unto the Lord; and behold *he did* … *soften my heart* that I did believe all the words which had been spoken by my father.” ([[1 Nephi 2.16|1 Ne. 2:16]]; italics added.)
+Nephi’s testimony provides an answer: “Having great desires to know of the mysteries of God, wherefore, I did cry unto the Lord; and behold *he did* … *soften my heart* that I did believe all the words which had been spoken by my father.” ([[1 Nephi 2.16|1 Ne. 2:16]]; italics added.)
 
 After obtaining a testimony of the gospel and the Lord’s church, we should then strive to become pure in heart. This will result in happiness and eventually the promise of a society without contention. It is the Savior’s way to peace.
 
@@ -84,7 +86,7 @@ What does the Lord require for service? A willing heart and intense desire.
 
 ## Third Question: Do I have an understanding, loving heart?
 
-An understanding, loving heart is the pinnacle of all human emotions. As the Apostle Paul said, charity “beareth all things, believeth all things, hopeth all things, endureth all things.” ([[1 Corinthians 13.7|1 Cor. 13:7]].) We come closest to becoming Christlike when we are charitable and understanding of others.
+An understanding, loving heart is the pinnacle of all human emotions. As the Apostle Paul said, charity “beareth all things, believeth all things, hopeth all things, endureth all things.” ([[1 Corinthians 13.7|1 Cor. 13:7]].) We come closest to becoming Christlike when we are charitable and understanding of others.
 
 One may have many talents and knowledge but never acquire wisdom because he does not learn to be compassionate with his fellow man.
 
@@ -115,8 +117,3 @@ We are led by a living prophet today. President Ezra Taft Benson has a pure, gen
 
 
 
-
-
-
-
-#Conversion #Honesty #Judging #Love

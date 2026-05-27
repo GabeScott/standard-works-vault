@@ -1,6 +1,8 @@
 # “Of You It Is Required to Forgive”
 
-By Elder Gordon B. Hinckley - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Gordon B. Hinckley - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -38,7 +40,7 @@ With variations of characters and circumstances that story could be repeated man
 
 Paul speaks of “the weak and beggarly elements” of our lives (see [[Galatians 4.9|Gal. 4:9]]). Is there anything more weak or beggarly than the disposition to wear out one’s life in an unending round of bitter thoughts and scheming gestures toward those who may have affronted us?
 
-Joseph F. Smith presided over the Church at a time of great bitterness toward our people. He was the target of vile accusations, of a veritable drumbeat of criticism by editorial writers even in this community. He was lampooned, cartooned, and ridiculed. Listen to his response to those who made sport of demeaning him: “Let them alone. Let them go. Give them the liberty of speech they want. Let them tell their own story and write their own doom.” (*Gospel Doctrine,* 5th ed., Salt Like City: Deseret Book Co., 1939, p. 339.) And then with an outreaching spirit of forgiving and forgetting, he went ahead with the great and positive work of leading the Church forward to new growth and remarkable accomplishments. At the time of his death, many of those who had ridiculed him wrote tributes of praise concerning him.
+Joseph F. Smith presided over the Church at a time of great bitterness toward our people. He was the target of vile accusations, of a veritable drumbeat of criticism by editorial writers even in this community. He was lampooned, cartooned, and ridiculed. Listen to his response to those who made sport of demeaning him: “Let them alone. Let them go. Give them the liberty of speech they want. Let them tell their own story and write their own doom.” (*Gospel Doctrine,* 5th ed., Salt Like City: Deseret Book Co., 1939, p. 339.) And then with an outreaching spirit of forgiving and forgetting, he went ahead with the great and positive work of leading the Church forward to new growth and remarkable accomplishments. At the time of his death, many of those who had ridiculed him wrote tributes of praise concerning him.
 
 Not long ago I listened at length to a couple who sat across the desk from me. There was bitterness between them. I know that at one time their love was deep and true. But each had developed a habit of speaking of the faults of the other. Unwilling to forgive the kind of mistakes we all make, and unwilling to forget them and live above them with forbearance, they had carped at one another until the love they once knew had been smothered. It had turned to ashes with the decree of a so-called no fault divorce. Now there is only loneliness and recrimination. I am satisfied that had there been even a small measure of repentance and forgiveness, they would still be together, enjoying the companionship that had so richly blessed their earlier years.
 
@@ -60,7 +62,7 @@ His Beloved Son, our Redeemer, reaches out to us in forgiveness and mercy, but i
 
 “But if they would not repent they must suffer even as I;
 
-“Which suffering caused myself, even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit. …
+“Which suffering caused myself, even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit. …
 
 “Learn of me, and listen to my words; walk in the meekness of my Spirit, and you shall have peace in me.” ([[D&C 19.15|D&C 19:15–18, 23]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.23|]].)
 
@@ -75,8 +77,3 @@ My brothers and sisters, as we conclude this great season of jubilee, let us bin
 
 
 
-
-
-
-
-#Forgiveness

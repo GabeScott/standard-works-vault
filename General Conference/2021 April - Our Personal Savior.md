@@ -1,6 +1,8 @@
 # Our Personal Savior
 
-By Elder Michael John U. Teh - *Of the Seventy*
+Russell M. Nelson
+
+By Elder Michael John U. Teh - *Of the Seventy*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -16,7 +18,7 @@ Thirty-four years ago, my missionary companion and I met and taught a very intel
 
 ## Increasingly Coming to Know Him
 
-“What think ye of Christ?” I am realizing that how intimately I know the Savior significantly influences my ability to hear Him as well as how I respond. A few years ago, Elder David A. Bednar asked the following questions as part of his remarks: “Do we only know about the Savior, or are we increasingly coming to know Him? How do we come to know the Lord?”[^3]
+“What think ye of Christ?” I am realizing that how intimately I know the Savior significantly influences my ability to hear Him as well as how I respond. A few years ago, Elder David A. Bednar asked the following questions as part of his remarks: “Do we only know about the Savior, or are we increasingly coming to know Him? How do we come to know the Lord?”[^3]
 
 As I studied and pondered, I came to the stark realization that what I know about the Savior greatly outweighed how much I really know Him. I resolved then to put forth more effort to know Him. I am very grateful for the scriptures and testimonies of faithful men and women disciples of Jesus Christ. My own journey over the last few years has taken me down many roads of study and discovery. I pray that the Holy Ghost will convey to you today a message far greater than the inadequate words that I have written.
 
@@ -38,11 +40,11 @@ Third, an increasing understanding that the Atonement of Jesus Christ applies to
 
 The Savior’s only desire, His only purpose from the very beginning, was to do the will of the Father. The will of the Father was for Him to assist in “\[bringing\] to pass the immortality and eternal life of man”[^9] by becoming our “advocate with the Father.”[^10] Hence, “though he were a Son, yet learned he obedience by the things which he suffered; and being made perfect, he became the author of eternal salvation unto all them that obey him.”[^11]
 
-“And he shall go forth, suffering pains and afflictions and temptations of every kind. …
+“And he shall go forth, suffering pains and afflictions and temptations of every kind. …
 
 “And he will take upon him death, that he may loose the bands of death … and he will take upon him their infirmities, that his bowels may be filled with mercy, … that he may know according to the flesh how to succor his people according to their infirmities.
 
-“… The Son of God suffereth according to the flesh that he might take upon him the sins of his people, that he might blot out their transgressions according to the power of his deliverance.”[^12]
+“… The Son of God suffereth according to the flesh that he might take upon him the sins of his people, that he might blot out their transgressions according to the power of his deliverance.”[^12]
 
 I would like to share a simple experience that illustrates the struggle we sometimes have to embrace the personal nature of the Lord’s Atonement.
 
@@ -58,11 +60,19 @@ Third, I expected it to be perfect, a summary to end all summaries—a final sum
 
 As a young man, I learned a lot from my conversations with my bishop. During those tender years, I learned to love these words from a favorite hymn:
 
-I stand all amazed at the love Jesus offers me,Confused at the grace that so fully he proffers me.I tremble to know that for me he was crucified,That for me, a sinner, he suffered, he bled and died.Oh, it is wonderful that he should care for meEnough to die for me!Oh, it is wonderful, wonderful to me![^14]
+>I stand all amazed at the love Jesus offers me,
+>Confused at the grace that so fully he proffers me.
+>I tremble to know that for me he was crucified,
+>That for me, a sinner, he suffered, he bled and died.
+>
+>Oh, it is wonderful that he should care for me
+>Enough to die for me!
+>Oh, it is wonderful, wonderful to me![^14]
+>
 
 The prophet Moroni invited us: “And now, I would commend you to seek this Jesus of whom the prophets and apostles have written.”[^15]
 
-President Russell M. Nelson promised that “if \[we\] proceed to learn *all* \[we\] can about Jesus Christ, … \[our\] ability to turn away from sin will increase. \[Our\] desire to keep the commandments will soar.”[^16]
+President Russell M. Nelson promised that “if \[we\] proceed to learn *all* \[we\] can about Jesus Christ, … \[our\] ability to turn away from sin will increase. \[Our\] desire to keep the commandments will soar.”[^16]
 
 On this Easter Sunday, just as the Savior came forth from His stone grave, may we awake from our spiritual slumber and rise above the clouds of doubt, the clutches of fear, the intoxication of pride, and the lull of complacency. Jesus Christ and Heavenly Father live. I testify of Their perfect love for us. In the name of Jesus Christ, amen.
 
@@ -73,7 +83,7 @@ On this Easter Sunday, just as the Savior came forth from His stone grave, may w
 
 [^2]: [[Matthew 22.42|Matthew 22:42]].
 
-[^3]: David A. Bednar, “[[2016 October - “If Ye Had Known Me”.md|If Ye Had Known Me]],” *Ensign* or *Liahona*, Nov. 2016, 103.
+[^3]: David A. Bednar, “[[2016 October - “If Ye Had Known Me”.md|If Ye Had Known Me]],” *Ensign* or *Liahona*, Nov. 2016, 103.
 
 [^4]: [[John 17.3|John 17:3]].
 
@@ -87,22 +97,17 @@ On this Easter Sunday, just as the Savior came forth from His stone grave, may w
 
 [^9]: [[Moses 1.39|Moses 1:39]].
 
-[^10]: [[1 John 2.1|1 John 2:1]].
+[^10]: [[1 John 2.1|1 John 2:1]].
 
 [^11]: [[Hebrews 5.8|Hebrews 5:8–9]][[Hebrews 5.9|]].
 
 [^12]: [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
-[^13]: [[2 Nephi 31.3|2 Nephi 31:3]].
+[^13]: [[2 Nephi 31.3|2 Nephi 31:3]].
 
-[^14]: “I Stand All Amazed,” *Hymns*, no. 193.
+[^14]: “I Stand All Amazed,” *Hymns*, no. 193.
 
 [^15]: [[Ether 12.41|Ether 12:41]].
 
-[^16]: Russell M. Nelson, “[Prophets, Leadership, and Divine Law](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults-an-evening-with-president-nelson/2017/01/prophets-leadership-and-divine-law?lang=eng)” (worldwide devotional for young adults, Jan. 8, 2017), broadcasts.ChurchofJesusChrist.org.
+[^16]: Russell M. Nelson, “[Prophets, Leadership, and Divine Law](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults-an-evening-with-president-nelson/2017/01/prophets-leadership-and-divine-law?lang=eng)” (worldwide devotional for young adults, Jan. 8, 2017), broadcasts.ChurchofJesusChrist.org.
 
-
-
-
-
-#Atonement #Jesus_Christ

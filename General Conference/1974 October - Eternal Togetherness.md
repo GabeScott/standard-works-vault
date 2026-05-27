@@ -1,6 +1,8 @@
 # Eternal Togetherness
 
-By Elder Mark E. Petersen - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Mark E. Petersen - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -28,7 +30,7 @@ Oh, I know that you don’t like to bring up unpleasant things. And yet you are 
 
 Recently I passed a beautiful stone church. In front of it was a neat little bulletin board announcing the pastor’s sermon topic for the next Sunday and asking the question “Where are you going to spend eternity?”
 
-It made me stop and think and reminded me of a few years back when I was in the Dulles airport near Washington, D.C., with Elder Richard L. Evans. We watched the people hurrying by, some running for planes, others looking for taxis or friends to take them somewhere else.
+It made me stop and think and reminded me of a few years back when I was in the Dulles airport near Washington, D.C., with Elder Richard L. Evans. We watched the people hurrying by, some running for planes, others looking for taxis or friends to take them somewhere else.
 
 Brother Evans looked at them and then at me and asked, “Where do they think they are really going?”
 
@@ -68,7 +70,7 @@ Let us note just a few things which he has said, keeping in mind that he cannot 
 
 Let us read a few of the things he has told us about obedience. Said the Savior to the Nephites:
 
-“Come unto me and be ye saved; for verily I say unto you, that except ye shall keep my commandments, which I have commanded you at this time, ye shall in no case enter into the kingdom of heaven.” ([[3 Nephi 12.20|3 Ne. 12:20]].)
+“Come unto me and be ye saved; for verily I say unto you, that except ye shall keep my commandments, which I have commanded you at this time, ye shall in no case enter into the kingdom of heaven.” ([[3 Nephi 12.20|3 Ne. 12:20]].)
 
 Stop and think what those words can mean to you and your family. Study them. Ponder over them. They are most serious—“except ye shall keep my commandments, which I have commanded you at this time, ye shall in no case enter into the kingdom of heaven.”
 
@@ -118,7 +120,7 @@ We all want family happiness, but there is no happiness in disobedience nor in i
 
 To obtain the eternal togetherness of which we speak, a temple marriage is required. It is frightening to think of the alternative, for if we reject it the Lord says we cannot be enlarged in the world to come, but rather we shall remain separately and singly, without our togetherness, through all eternity.
 
-President Spencer W. Kimball discussed this matter one day and among other things said:
+President Spencer W. Kimball discussed this matter one day and among other things said:
 
 “Are you willing to jeopardize your eternities, your great continuing happiness, your privilege to see God and dwell in his presence? For the want of investigation and study and contemplation; or because of prejudice, misunderstanding, or lack of knowledge, are you willing to forego these great blessings and privileges?
 
@@ -141,8 +143,3 @@ And that this may be our happy privilege, I earnestly pray in the sacred name of
 
 
 
-
-
-
-
-#Marriage #Plan_Of_Salvation

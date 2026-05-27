@@ -1,6 +1,8 @@
 # Be an Example and a Light
 
-By President Thomas S. Monson - *President of the Church*
+Rosemary M. Wixom
+
+By President Thomas S. Monson - *President of the Church*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -8,9 +10,9 @@ By President Thomas S. Monson - *President of the Church*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/10/be-an-example-and-a-light?lang=eng)
 
-Brothers and sisters, how good it is to be with you once again. As you know, since we were together in April, we have been saddened by the loss of three of our beloved Apostles: President Boyd K. Packer, Elder L. Tom Perry, and Elder Richard G. Scott. They have returned to their heavenly home. We miss them. How grateful we are for their examples of Christlike love and for the inspired teachings they have left to all of us.
+Brothers and sisters, how good it is to be with you once again. As you know, since we were together in April, we have been saddened by the loss of three of our beloved Apostles: President Boyd K. Packer, Elder L. Tom Perry, and Elder Richard G. Scott. They have returned to their heavenly home. We miss them. How grateful we are for their examples of Christlike love and for the inspired teachings they have left to all of us.
 
-We extend a heartfelt welcome to our newest Apostles, Elder Ronald A. Rasband, Elder Gary E. Stevenson, and Elder Dale G. Renlund. These are men dedicated to the work of the Lord. They are well qualified to fill the important positions to which they have been called.
+We extend a heartfelt welcome to our newest Apostles, Elder Ronald A. Rasband, Elder Gary E. Stevenson, and Elder Dale G. Renlund. These are men dedicated to the work of the Lord. They are well qualified to fill the important positions to which they have been called.
 
 Recently, as I have been reading and pondering the scriptures, two passages in particular have stayed with me. Both are familiar to us. The first is from the Sermon on the Mount: “Let your light so shine before men, that they may see your good works, and glorify your Father which is in heaven.”[^1] The second scripture is one which came to my mind as I pondered the meaning of the first. It is from the Apostle Paul’s Epistle to Timothy: “Be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity.”[^2]
 
@@ -71,11 +73,11 @@ How reassuring are the Savior’s words: “I am the light of the world: he that
 
 [^1]: [[Matthew 5.16|Matthew 5:16]].
 
-[^2]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^2]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^3]: [[Moroni 7.47|Moroni 7:47]].
 
-[^4]: See James E. Faust, [“The Light in Their Eyes,”](https://churchofjesuschrist.org/study/ensign/2005/11/the-light-in-their-eyes?lang=eng) *Ensign* or *Liahona,* Nov. 2005, 20.
+[^4]: See James E. Faust, “[The Light in Their Eyes](https://www.churchofjesuschrist.org/study/ensign/2005/11/the-light-in-their-eyes?lang=eng),” *Ensign* or *Liahona,* Nov. 2005, 20.
 
 [^5]: [[D&C 90.24|Doctrine and Covenants 90:24]].
 
@@ -89,8 +91,3 @@ How reassuring are the Savior’s words: “I am the light of the world: he that
 
 [^10]: [[D&C 6.21|Doctrine and Covenants 6:21]].
 
-
-
-
-
-#Charity #Example #Faith #Jesus_Christ #Morality #Profanity #Scriptures

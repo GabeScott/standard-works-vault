@@ -1,6 +1,5 @@
 # Revolt
 
-
 Edom *revolted* from under the hand of Judah, [[2 Kings 8.20|2 Kings 8:20]] ([[2 Chronicles 21.8|2 Chronicles 21:8]]).
 
 ye will *revolt* more and more, [[Isaiah 1.5|Isaiah 1:5]].

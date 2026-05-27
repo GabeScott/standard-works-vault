@@ -1,5 +1,7 @@
 # One among the Crowd
 
+Dieter F. Uchtdorf
+
 By Elder Dennis B. Neuenschwander - *Of the Seventy*
 
 *Given in the April session of the 2008 General Conference*
@@ -26,7 +28,7 @@ Struggling through the crowds of the world can be lonely and hard. Their pull an
 
 Who better than the Savior can reach, support, and ultimately rescue the one among the crowd? He understands what it is to persevere among a disrespectful crowd and still remain true. The worldly crowds do not recognize Him, saying that “he hath no form nor comeliness” and that “there is no beauty that we should desire him.”[^9] King Benjamin says that the world “shall consider him a man.”[^10] Isaiah further describes Christ’s place among the crowds of the world with these words:
 
-“He is despised and rejected of men; a man of sorrows, and acquainted with grief … ; he was despised, and we esteemed him not.
+“He is despised and rejected of men; a man of sorrows, and acquainted with grief … ; he was despised, and we esteemed him not.
 
 “Surely he hath borne our griefs, and carried our sorrows: yet we did esteem him stricken, smitten of God, and afflicted.”[^11]
 
@@ -47,11 +49,11 @@ My dear brothers and sisters, I pray that each one of us can pass safely through
 
 [^4]: [[Mosiah 17.2|Mosiah 17:2]].
 
-[^5]: See [[1 Nephi 8.27|1 Nephi 8:27]].
+[^5]: See [[1 Nephi 8.27|1 Nephi 8:27]].
 
-[^6]: [[1 Nephi 8.28|1 Nephi 8:28]].
+[^6]: [[1 Nephi 8.28|1 Nephi 8:28]].
 
-[^7]: See [[1 Nephi 8.33|1 Nephi 8:33]].
+[^7]: See [[1 Nephi 8.33|1 Nephi 8:33]].
 
 [^8]: See [[Luke 4.18|Luke 4:18]].
 
@@ -61,12 +63,7 @@ My dear brothers and sisters, I pray that each one of us can pass safely through
 
 [^11]: [[Isaiah 53.3|Isaiah 53:3–4]][[Isaiah 53.4|]].
 
-[^12]: [[1 Nephi 19.9|1 Nephi 19:9]].
+[^12]: [[1 Nephi 19.9|1 Nephi 19:9]].
 
 [^13]: [[Matthew 21.42|Matthew 21:42]].
 
-
-
-
-
-#Courage #Faith #Individual_Worth #Jesus_Christ

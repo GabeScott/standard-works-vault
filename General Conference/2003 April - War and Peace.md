@@ -1,5 +1,7 @@
 # War and Peace
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the April session of the 2003 General Conference*
@@ -84,7 +86,7 @@ We know that some have died, and others may yet die in this hot and deadly conte
 
 “Let not your heart be troubled: ye believe in God, believe also in me.
 
-“In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you, … that where I am, there ye may be also. …
+“In my Father’s house are many mansions: if it were not so, I would have told you. I go to prepare a place for you, … that where I am, there ye may be also. …
 
 “Peace I leave with you, my peace I give unto you: not as the world giveth, give I unto you. Let not your heart be troubled, neither let it be afraid” ([[John 14.1|John 14:1–3, 27]][[John 14.2|]][[John 14.3|]][[John 14.27|]]).
 
@@ -111,8 +113,3 @@ And there, my brothers and sisters, we rest our faith. Regardless of the circums
 
 
 
-
-
-
-
-#Contention #Faith #Military #Peace

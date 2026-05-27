@@ -1,6 +1,8 @@
 # Promptings of the Spirit
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+David A. Bednar
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -26,7 +28,7 @@ What are the fruits of exercising spiritual gifts? They include promptings from 
 
 The constant companionship of the Holy Ghost is one of the greatest spiritual gifts Latter-day Saints enjoy.
 
-How important is this gift? President Russell M. Nelson answered this question categorically when he stated that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^5]
+How important is this gift? President Russell M. Nelson answered this question categorically when he stated that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^5]
 
 ## How to Invite and Recognize the Promptings of the Spirit
 
@@ -62,7 +64,7 @@ As you seek and take opportunities to share your testimony with others, you will
 
 The final principle is to listen to the Holy Spirit. He can be our constant companion, but He speaks in subtle, quiet tones. The prophet Elijah found that the voice of the Lord was not in the wind, the earthquake, or the fire but was “a still small voice.”[^8] It is “not a voice of thunder” but rather “a still voice of perfect mildness, as if it had been a whisper,” and yet it can “pierce even to the very soul.”[^9]
 
-President Boyd K. Packer stated: “The Spirit does not get our attention by shouting or shaking us with a heavy hand. Rather it whispers. It caresses so gently that if we are preoccupied we may not feel it at all.”[^10] I have observed that sometimes His voice is so subtle, or I am so preoccupied, that a loved one captures it for me. Many have been the times when promptings of the Holy Ghost have come to me through my wife, Lesa. Righteous parents or leaders may also receive inspired guidance for you.
+President Boyd K. Packer stated: “The Spirit does not get our attention by shouting or shaking us with a heavy hand. Rather it whispers. It caresses so gently that if we are preoccupied we may not feel it at all.”[^10] I have observed that sometimes His voice is so subtle, or I am so preoccupied, that a loved one captures it for me. Many have been the times when promptings of the Holy Ghost have come to me through my wife, Lesa. Righteous parents or leaders may also receive inspired guidance for you.
 
 The noise, clamor, and contention prevalent in the world may overpower still, quiet impressions of the Holy Spirit. Find a quiet place, a holy space where you can seek to receive direction from the Spirit.
 
@@ -76,9 +78,9 @@ As you consider these principles to invite and recognize the Spirit, consider th
 
 **Spiritual matters cannot be forced.** You can cultivate an attitude and an environment that invite the Spirit, and you can prepare yourself, but you cannot dictate how or when inspiration comes. Be patient and trust that you will receive what you need when the time is right.
 
-**Use your own best judgment.** Sometimes we want to be led by the Spirit in all things. However, often the Lord wants us to use our God-given intelligence and act in ways that are consistent with our best understanding. President Dallin H. Oaks taught:
+**Use your own best judgment.** Sometimes we want to be led by the Spirit in all things. However, often the Lord wants us to use our God-given intelligence and act in ways that are consistent with our best understanding. President Dallin H. Oaks taught:
 
-“A desire to be led by the Lord is a strength, but it needs to be accompanied by an understanding that our Heavenly Father leaves many decisions for our personal choices. … Persons who try to shift all decision making to the Lord and plead for revelation in every choice will soon find circumstances in which they pray for guidance and don’t receive it. …
+“A desire to be led by the Lord is a strength, but it needs to be accompanied by an understanding that our Heavenly Father leaves many decisions for our personal choices. … Persons who try to shift all decision making to the Lord and plead for revelation in every choice will soon find circumstances in which they pray for guidance and don’t receive it. …
 
 “We should study things out in our minds. … Then we should pray for guidance and act upon it. … If we do not receive guidance, we should act upon our best judgment.”[^12]
 
@@ -109,32 +111,27 @@ I add my testimony to you, gifted Latter-day Saints, of God the Father, Jesus Ch
 
 [^1]: See [[D&C 46.13|Doctrine and Covenants 46:13–25]][[D&C 46.14|]][[D&C 46.15|]][[D&C 46.16|]][[D&C 46.17|]][[D&C 46.18|]][[D&C 46.19|]][[D&C 46.20|]][[D&C 46.21|]][[D&C 46.22|]][[D&C 46.23|]][[D&C 46.24|]][[D&C 46.25|]].
 
-[^2]: See [[D&C 46.8|Doctrine and Covenants 46:8–9, 26]][[D&C 46.9|]][[D&C 46.26|]]; *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), [103](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=title10#title10).
+[^2]: See [[D&C 46.8|Doctrine and Covenants 46:8–9, 26]][[D&C 46.9|]][[D&C 46.26|]]; *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), [103](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=title10#title10).
 
-[^3]: *Preach My Gospel*, [101](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=p2#p2).
+[^3]: *Preach My Gospel*, [101](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=p2#p2).
 
-[^4]: See *Preach My Gospel*, [101](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=title3#title3).
+[^4]: See *Preach My Gospel*, [101](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=title3#title3).
 
-[^5]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
+[^5]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 96.
 
 [^6]: See [[D&C 87.8|Doctrine and Covenants 87:8]].
 
 [^7]: [[Matthew 18.20|Matthew 18:20]].
 
-[^8]: [[1 Kings 19.12|1 Kings 19:12]].
+[^8]: [[1 Kings 19.12|1 Kings 19:12]].
 
 [^9]: [[Helaman 5.30|Helaman 5:30]].
 
-[^10]: Boyd K. Packer, “[The Candle of the Lord](https://churchofjesuschrist.org/study/ensign/1983/01/the-candle-of-the-lord?lang=eng&id=p36#p36),” *Ensign*, Jan. 1983, 53.
+[^10]: Boyd K. Packer, “[The Candle of the Lord](https://www.churchofjesuschrist.org/study/ensign/1983/01/the-candle-of-the-lord?lang=eng&id=p36#p36),” *Ensign*, Jan. 1983, 53.
 
-[^11]: Much of the content in this section is taken from [chapter 4](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng) of *Preach My Gospel*.
+[^11]: Much of the content in this section is taken from [chapter 4](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng) of *Preach My Gospel*.
 
-[^12]: Dallin H. Oaks, “[Our Strengths Can Become Our Downfall](https://churchofjesuschrist.org/study/ensign/1994/10/our-strengths-can-become-our-downfall?lang=eng&id=p16-p17#p16),” *Ensign*, Oct. 1994, 13–14.
+[^12]: Dallin H. Oaks, “[Our Strengths Can Become Our Downfall](https://www.churchofjesuschrist.org/study/ensign/1994/10/our-strengths-can-become-our-downfall?lang=eng&id=p16-p17#p16),” *Ensign*, Oct. 1994, 13–14.
 
-[^13]: *Preach My Gospel*, [106](https://churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=p43#p43).
+[^13]: *Preach My Gospel*, [106](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=p43#p43).
 
-
-
-
-
-#Gifts_Of_The_Spirit #Holy_Ghost #Promptings #Testimony

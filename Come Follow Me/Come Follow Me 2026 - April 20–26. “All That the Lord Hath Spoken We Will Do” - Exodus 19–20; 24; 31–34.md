@@ -13,17 +13,17 @@ But while Moses was at the top of the mountain learning how the Israelites could
 
 President Russell M. Nelson taught: “In the Old Testament, the Hebrew term from which *peculiar* was translated is *segullah*, which means ‘valued property,’ or ‘treasure.’ … For us to be identified by servants of the Lord as his *peculiar* people is a compliment of the highest order” (“[[1995 April - Children of the Covenant.md|Children of the Covenant]],” *Ensign*, May 1995, 34). How do President Nelson’s words affect the way you understand [[Exodus 19.3|Exodus 19:3–6]][[Exodus 19.4|]][[Exodus 19.5|]][[Exodus 19.6|]]? How has the Lord shown you that He treasures you?
 
-[[Exodus 19.10|Exodus 19:10–11, 17]][[Exodus 19.11|]][[Exodus 19.17|]]
+[[Exodus 19.10|Exodus 19:10–11, 17]][[Exodus 19.11|]][[Exodus 19.17|]]
 ### Sacred experiences require preparation.
 
-The Lord told Moses that the children of Israel needed to be prepared before they could “meet with God” ([[Exodus 19.10|Exodus 19:10–11, 17]][[Exodus 19.11|]][[Exodus 19.17|]]) and keep a covenant with Him (see [[Exodus 19.5|Exodus 19:5]]). How do you prepare for spiritual experiences, including the sacrament and temple ordinances? How can you help others prepare? What do you learn about preparation from [[Luke 6.12|Luke 6:12–13]][[Luke 6.13|]]; [[Enos 1.2|Enos 1:2–6]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]]; [[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]]?
+The Lord told Moses that the children of Israel needed to be prepared before they could “meet with God” ([[Exodus 19.10|Exodus 19:10–11, 17]][[Exodus 19.11|]][[Exodus 19.17|]]) and keep a covenant with Him (see [[Exodus 19.5|Exodus 19:5]]). How do you prepare for spiritual experiences, including the sacrament and temple ordinances? How can you help others prepare? What do you learn about preparation from [[Luke 6.12|Luke 6:12–13]][[Luke 6.13|]]; [[Enos 1.2|Enos 1:2–6]][[Enos 1.3|]][[Enos 1.4|]][[Enos 1.5|]][[Enos 1.6|]]; [[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]]?
 
 [[Exodus 20.1|Exodus 20:1–17]][[Exodus 20.2|]][[Exodus 20.3|]][[Exodus 20.4|]][[Exodus 20.5|]][[Exodus 20.6|]][[Exodus 20.7|]][[Exodus 20.8|]][[Exodus 20.9|]][[Exodus 20.10|]][[Exodus 20.11|]][[Exodus 20.12|]][[Exodus 20.13|]][[Exodus 20.14|]][[Exodus 20.15|]][[Exodus 20.16|]][[Exodus 20.17|]]
 ### Obedience to God’s commandments brings blessings.
 
 While the Israelites were gathered at the base of Mount Sinai, they heard the voice of God give the Ten Commandments (see [[Deuteronomy 4.12|Deuteronomy 4:12–13]][[Deuteronomy 4.13|]]). These, of course, aren’t God’s only commandments—there are many others in the scriptures. So as you read [[Exodus 20.1|Exodus 20:1–17]][[Exodus 20.2|]][[Exodus 20.3|]][[Exodus 20.4|]][[Exodus 20.5|]][[Exodus 20.6|]][[Exodus 20.7|]][[Exodus 20.8|]][[Exodus 20.9|]][[Exodus 20.10|]][[Exodus 20.11|]][[Exodus 20.12|]][[Exodus 20.13|]][[Exodus 20.14|]][[Exodus 20.15|]][[Exodus 20.16|]][[Exodus 20.17|]], ask yourself why God emphasized these ten in particular. Here’s a sample table you could use as you ponder the importance of the Ten Commandments in your life:
 
-| Commandment | In other words, the Lord is asking me to … | Blessings that come from living this commandment |
+| Commandment | In other words, the Lord is asking me to … | Blessings that come from living this commandment |
 | --- | --- | --- |
 |  |  |  |
 |  |  |  |
@@ -49,7 +49,7 @@ See also “[The Great Commandment—Love the Lord](https://churchofjesuschrist.
 [[Exodus 24.1|Exodus 24:1–11]][[Exodus 24.2|]][[Exodus 24.3|]][[Exodus 24.4|]][[Exodus 24.5|]][[Exodus 24.6|]][[Exodus 24.7|]][[Exodus 24.8|]][[Exodus 24.9|]][[Exodus 24.10|]][[Exodus 24.11|]]
 ### Making covenants shows my willingness to obey God’s law.
 
-As you read [[Exodus 24.3|Exodus 24:3–8]][[Exodus 24.4|]][[Exodus 24.5|]][[Exodus 24.6|]][[Exodus 24.7|]][[Exodus 24.8|]], consider the covenants you have made with God. While Israel’s covenant included rituals that are different from what God requires today, you may notice some similarities. For example, [[Exodus 24.4|verses 4, 5, and 8]][[Exodus 24.5|]][[Exodus 24.8|]] mention an altar, animal sacrifices, and blood. What could these things represent, and how do they relate to your covenants?
+As you read [[Exodus 24.3|Exodus 24:3–8]][[Exodus 24.4|]][[Exodus 24.5|]][[Exodus 24.6|]][[Exodus 24.7|]][[Exodus 24.8|]], consider the covenants you have made with God. While Israel’s covenant included rituals that are different from what God requires today, you may notice some similarities. For example, [[Exodus 24.4|verses 4, 5, and 8]][[Exodus 24.5|]][[Exodus 24.8|]] mention an altar, animal sacrifices, and blood. What could these things represent, and how do they relate to your covenants?
 
 [[Exodus 32.1|Exodus 32–34]][[Exodus 32.2|]][[Exodus 32.3|]][[Exodus 32.4|]][[Exodus 32.5|]][[Exodus 32.6|]][[Exodus 32.7|]][[Exodus 32.8|]][[Exodus 32.9|]][[Exodus 32.10|]][[Exodus 32.11|]][[Exodus 32.12|]][[Exodus 32.13|]][[Exodus 32.14|]][[Exodus 32.15|]][[Exodus 32.16|]][[Exodus 32.17|]][[Exodus 32.18|]][[Exodus 32.19|]][[Exodus 32.20|]][[Exodus 32.21|]][[Exodus 32.22|]][[Exodus 32.23|]][[Exodus 32.24|]][[Exodus 32.25|]][[Exodus 32.26|]][[Exodus 32.27|]][[Exodus 32.28|]][[Exodus 32.29|]][[Exodus 32.30|]][[Exodus 32.31|]][[Exodus 32.32|]][[Exodus 32.33|]][[Exodus 32.34|]][[Exodus 32.35|]]
 ### Sin is turning away from God; repentance is turning toward Him and away from evil.
@@ -61,7 +61,7 @@ While the Israelites’ sin was serious, this story also includes a message of G
 [[Exodus 31.13|Exodus 31:13–16]][[Exodus 31.14|]][[Exodus 31.15|]][[Exodus 31.16|]]
 ### The Sabbath is a sign.
 
-President Russell M. Nelson explained: “In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father \[see [[Exodus 31.13|Exodus 31:13]]; [[Ezekiel 20.12|Ezekiel 20:12, 20]][[Ezekiel 20.20|]]\]. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘What *sign* do I want to give to God?’ That question made my choices about the Sabbath day crystal clear” (“[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 130). Ponder what sign you want to give God with your observance of the Sabbath.
+President Russell M. Nelson explained: “In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father \[see [[Exodus 31.13|Exodus 31:13]]; [[Ezekiel 20.12|Ezekiel 20:12, 20]][[Ezekiel 20.20|]]\]. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘What *sign* do I want to give to God?’ That question made my choices about the Sabbath day crystal clear” (“[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 130). Ponder what sign you want to give God with your observance of the Sabbath.
 
 [[Exodus 34.1|Exodus 34:1–4]][[Exodus 34.2|]][[Exodus 34.3|]][[Exodus 34.4|]]
 ### What was the difference between the two sets of stone tables Moses made?

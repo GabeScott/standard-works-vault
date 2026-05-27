@@ -1,4 +1,3 @@
 # Barnabas
 
-
-*See* [BD Barnabas](https://www.churchofjesuschrist.org/study/scriptures/bd/barnabas?lang=eng)
+*See also* [[BD Barnabas.md|BD Barnabas]]

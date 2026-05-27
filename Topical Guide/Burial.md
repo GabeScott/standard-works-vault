@@ -1,6 +1,5 @@
 # Burial
 
-
 *See also* [[Bury.md|Bury]]
 
 He shall be buried with the *burial* of an ass, [[Jeremiah 22.19|Jeremiah 22:19]].

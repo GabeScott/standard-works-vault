@@ -1,6 +1,8 @@
 # Roots and Branches
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -28,13 +30,13 @@ Christians and Jews the world over accept the Old Testament account of Elijah.[^
 
 ## Elijah Restores Keys
 
-Elijah’s return occurred in the Kirtland Temple on April 3, 1836. He declared he was fulfilling Malachi’s promise. He committed the priesthood keys for sealing families in this dispensation.[^9] Elijah’s mission is facilitated by what is sometimes called the spirit of Elijah, which, as Elder Russell M. Nelson has taught, is “a manifestation of the Holy Ghost bearing witness of the divine nature of the family.”[^10]
+Elijah’s return occurred in the Kirtland Temple on April 3, 1836. He declared he was fulfilling Malachi’s promise. He committed the priesthood keys for sealing families in this dispensation.[^9] Elijah’s mission is facilitated by what is sometimes called the spirit of Elijah, which, as Elder Russell M. Nelson has taught, is “a manifestation of the Holy Ghost bearing witness of the divine nature of the family.”[^10]
 
 The Savior was emphatic about the necessity of baptism. He taught, “Except a man be born of water and of the Spirit, he cannot enter into the kingdom of God.”[^11] The Savior was personally baptized to set the example. What about the deceased who have not been baptized?
 
 ## Doctrine of Temple and Family History Work
 
-On October 11, 1840, in Nauvoo, Vilate Kimball wrote a letter to her husband, Elder Heber C. Kimball, who with other members of the Twelve was serving a mission in Great Britain. The October general conference had been held a few days before.
+On October 11, 1840, in Nauvoo, Vilate Kimball wrote a letter to her husband, Elder Heber C. Kimball, who with other members of the Twelve was serving a mission in Great Britain. The October general conference had been held a few days before.
 
 I quote from parts of Vilate’s personal letter: “We had the largest and most interesting conference that ever has been since the Church was organized. … President \[Joseph\] Smith has opened a new and glorious subject. … That is, being baptized for the dead. Paul speaks of it, in [[1 Corinthians 15.29|First Corinthians 15th chapter 29th verse]]. Joseph has received a more full explanation of it by revelation. He says it is the privilege of \[members of\] this Church to be baptized for all their kinsfolk that have died before this gospel came forth. … By so doing, we act as agents for them, and give them the privilege of coming forth in the First Resurrection. He says they will have the gospel preached to them in prison.”
 
@@ -54,13 +56,13 @@ This is simply stated by President Wilford Woodruff: “There is hardly any prin
 
 What a great time to be alive. This is the last dispensation, and we can feel the hastening of the work of salvation in every area where a saving ordinance is involved.[^19] We now have temples across much of the world to provide these saving ordinances. Attending the temple for spiritual renewal, peace, safety, and direction in our lives is also a great blessing.[^20]
 
-Less than a year after President Thomas S. Monson was called as an Apostle, he dedicated the Los Angeles Temple Genealogical Library. He spoke of deceased ancestors “waiting \[for\] the day when you and I will do the research which is necessary to clear the way, … \[and\] likewise go into the house of God and perform that work … that they … cannot perform.”[^21]
+Less than a year after President Thomas S. Monson was called as an Apostle, he dedicated the Los Angeles Temple Genealogical Library. He spoke of deceased ancestors “waiting \[for\] the day when you and I will do the research which is necessary to clear the way, … \[and\] likewise go into the house of God and perform that work … that they … cannot perform.”[^21]
 
-When then-Elder Monson delivered those dedicatory remarks on June 20, 1964, there were only 12 operating temples. During the period President Monson has served in the senior councils of the Church, 130 of our 142 operating temples have had their initial dedication. It is nothing short of miraculous to see the hastening of the work of salvation in our day. Twenty-eight more temples have been announced and are in various stages of completion. Eighty-five percent of the Church members now live within 200 miles (320 km) of a temple.
+When then-Elder Monson delivered those dedicatory remarks on June 20, 1964, there were only 12 operating temples. During the period President Monson has served in the senior councils of the Church, 130 of our 142 operating temples have had their initial dedication. It is nothing short of miraculous to see the hastening of the work of salvation in our day. Twenty-eight more temples have been announced and are in various stages of completion. Eighty-five percent of the Church members now live within 200 miles (320 km) of a temple.
 
 ## Family History Technology
 
-Family history technology has also advanced dramatically. President Howard W. Hunter declared in November 1994: “We have begun using information technology to hasten the sacred work of providing ordinances for the deceased. The role of technology … has been accelerated by the Lord himself. … However, we stand only on the threshold of what we can do with these tools.”[^22]
+Family history technology has also advanced dramatically. President Howard W. Hunter declared in November 1994: “We have begun using information technology to hasten the sacred work of providing ordinances for the deceased. The role of technology … has been accelerated by the Lord himself. … However, we stand only on the threshold of what we can do with these tools.”[^22]
 
 In the 19 years since this prophetic statement, the acceleration of technology is almost unbelievable. A 36-year-old mother of young children recently exclaimed to me, “Just think—we have gone from microfilm readers in dedicated family history centers to sitting at my kitchen table with my computer doing family history after my children are finally asleep.” Brothers and sisters, family history centers are now in our homes.
 
@@ -87,7 +89,7 @@ I bear witness of the Savior’s atoning sacrifice and the certainty of the Fath
 
 
 
-[^1]: William Saroyan, in Henry Allen, “Raging against Aging,” *Wall Street Journal,* Dec. 31, 2011–Jan. 1, 2012, C9.
+[^1]: William Saroyan, in Henry Allen, “Raging against Aging,” *Wall Street Journal,* Dec. 31, 2011–Jan. 1, 2012, C9.
 
 [^2]: [[Job 14.14|Job 14:14]].
 
@@ -101,35 +103,35 @@ I bear witness of the Savior’s atoning sacrifice and the certainty of the Fath
 
 [^7]: The Jews have been waiting for Elijah’s return for 2,400 years. To this day, at their annual Passover Seders, or dinners, they set a place for him and go to the door hoping he has arrived to herald the coming of the Messiah.
 
-[^8]: See [Bible Dictionary, “Elijah.”](https://churchofjesuschrist.org/study/scriptures/bd/elijah?lang=eng)
+[^8]: See Bible Dictionary, “[[BD Elijah|Elijah]].”
 
 [^9]: See [[D&C 110.14|Doctrine and Covenants 110:14–16]][[D&C 110.15|]][[D&C 110.16|]]; see also [[D&C 2.1|Doctrine and Covenants 2]][[D&C 2.2|]][[D&C 2.3|]].
 
-[^10]: Russell M. Nelson, “A New Harvest Time,” *Ensign,* May 1998, 34.
+[^10]: Russell M. Nelson, “A New Harvest Time,” *Ensign,* May 1998, 34.
 
 [^11]: [[John 3.5|John 3:5]].
 
-[^12]: Vilate M. Kimball to Heber C. Kimball, Oct. 11, 1840, Vilate M. Kimball letters, Church History Library; spelling and capitalization standardized.
+[^12]: Vilate M. Kimball to Heber C. Kimball, Oct. 11, 1840, Vilate M. Kimball letters, Church History Library; spelling and capitalization standardized.
 
 [^13]: [[D&C 127.5|Doctrine and Covenants 127:5]]; emphasis added.
 
 [^14]: See *Teachings of Presidents of the Church: Joseph Fielding Smith* (2013), 68.
 
-[^15]: See First Presidency letter, Oct. 8, 2012.
+[^15]: See First Presidency letter, Oct. 8, 2012.
 
-[^16]: See *The Discourses of Wilford Woodruff,* sel. G. Homer Durham (1946), 147.
+[^16]: See *The Discourses of Wilford Woodruff,* sel. G. Homer Durham (1946), 147.
 
-[^17]: Brigham Young stated, “All I want is to see this people devote their means and interests to the building up of the kingdom of God, erecting temples, and in them officiate for the living and the dead … that they may be crowned sons and daughters of the Almighty” (*Deseret News,* Sept. 6, 1876, 498). Baptisms for the dead commenced on January 9, 1877, and endowments for the dead were performed two days later. The joy of this was expressed by Lucy B. Young, who said that “her heart was full in the prospect of being received by \[her dead relatives\] with open arms, as all would be by those who could not do the work for themselves” (in Richard E. Bennett, “‘Which Is the Wisest Course?’ The Transformation in Mormon Temple Consciousness, 1870–1898,” *BYU Studies Quarterly,* vol. 52, no. 2 \[2013\], 22).
+[^17]: Brigham Young stated, “All I want is to see this people devote their means and interests to the building up of the kingdom of God, erecting temples, and in them officiate for the living and the dead … that they may be crowned sons and daughters of the Almighty” (*Deseret News,* Sept. 6, 1876, 498). Baptisms for the dead commenced on January 9, 1877, and endowments for the dead were performed two days later. The joy of this was expressed by Lucy B. Young, who said that “her heart was full in the prospect of being received by \[her dead relatives\] with open arms, as all would be by those who could not do the work for themselves” (in Richard E. Bennett, “‘Which Is the Wisest Course?’ The Transformation in Mormon Temple Consciousness, 1870–1898,” *BYU Studies Quarterly,* vol. 52, no. 2 \[2013\], 22).
 
 [^18]: *Teachings of Presidents of the Church: Wilford Woodruff* (2004), 192–93.
 
 [^19]: President Wilford Woodruff (who is known to be one of the greatest missionaries of all time to the living), speaking of work for the dead, said: “I look upon this portion of our ministry as a mission of as much importance as preaching to the living; the dead will hear the voice of the servants of God in the spirit-world, and they cannot come forth in the morning of the \[first\] resurrection, unless certain ordinances are performed, for \[them\].” He also said, “It takes just as much to save a dead man … as a living man” (*Teachings of Presidents of the Church: Wilford Woodruff,* 188).
 
-[^20]: President Howard W. Hunter invited Church members to go to the temple often “for the personal blessing of temple worship, for the sanctity and safety which is provided within those hallowed and consecrated walls. … It is holy unto the Lord. It should be holy unto us” (“The Great Symbol of Our Membership,” *Ensign,* Oct. 1994, 5; *Tambuli,* Nov. 1994, 6).
+[^20]: President Howard W. Hunter invited Church members to go to the temple often “for the personal blessing of temple worship, for the sanctity and safety which is provided within those hallowed and consecrated walls. … It is holy unto the Lord. It should be holy unto us” (“The Great Symbol of Our Membership,” *Ensign,* Oct. 1994, 5; *Tambuli,* Nov. 1994, 6).
 
-[^21]: “Messages of Inspiration from President Thomas S. Monson,” *Church News,* Dec. 29, 2013, 2.
+[^21]: “Messages of Inspiration from President Thomas S. Monson,” *Church News,* Dec. 29, 2013, 2.
 
-[^22]: Howard W. Hunter, “We Have a Work to Do,” *Ensign,* Mar. 1995, 65.
+[^22]: Howard W. Hunter, “We Have a Work to Do,” *Ensign,* Mar. 1995, 65.
 
 [^23]: *Merriam-Webster’s Collegiate Dictionary,* 11th ed. (2003), “prison.”
 
@@ -137,18 +139,13 @@ I bear witness of the Savior’s atoning sacrifice and the certainty of the Fath
 
 [^25]: [[D&C 128.24|Doctrine and Covenants 128:24]].
 
-[^26]: See First Presidency letter, Oct. 8, 2012; see also David A. Bednar, [“The Hearts of the Children Shall Turn,”](https://churchofjesuschrist.org/study/ensign/2011/11/saturday-afternoon-session/the-hearts-of-the-children-shall-turn?lang=eng) *Ensign* or *Liahona,* Nov. 2011, 24–27; R. Scott Lloyd, “‘Find Our Cousins’: Apostle \[Neil L. Andersen\] Counsels LDS Youth at RootsTech Conference,” *Church News,* Feb. 16, 2014, 8–9.
+[^26]: See First Presidency letter, Oct. 8, 2012; see also David A. Bednar, “[The Hearts of the Children Shall Turn](https://www.churchofjesuschrist.org/study/ensign/2011/11/saturday-afternoon-session/the-hearts-of-the-children-shall-turn?lang=eng),” *Ensign* or *Liahona,* Nov. 2011, 24–27; R. Scott Lloyd, “‘Find Our Cousins’: Apostle \[Neil L. Andersen\] Counsels LDS Youth at RootsTech Conference,” *Church News,* Feb. 16, 2014, 8–9.
 
-[^27]: One recent study indicated that a major emphasis for this generation is living a meaningful life where they “give to others, and orient themselves to a larger purpose” (Emily Esfahani Smith and Jennifer L. Aaker, “Millennial Searchers,” *New York Times Sunday Review,* Dec. 1, 2013, 6).
+[^27]: One recent study indicated that a major emphasis for this generation is living a meaningful life where they “give to others, and orient themselves to a larger purpose” (Emily Esfahani Smith and Jennifer L. Aaker, “Millennial Searchers,” *New York Times Sunday Review,* Dec. 1, 2013, 6).
 
-[^28]: See Howard W. Hunter, [“A Temple-Motivated People,”](https://churchofjesuschrist.org/study/ensign/2004/03/a-temple-motivated-people?lang=eng) *Ensign,* Feb. 1995, 2–5; *Liahona,* May 1995, 2–7.
+[^28]: See Howard W. Hunter, “[A Temple-Motivated People](https://www.churchofjesuschrist.org/study/ensign/2004/03/a-temple-motivated-people?lang=eng),” *Ensign,* Feb. 1995, 2–5; *Liahona,* May 1995, 2–7.
 
 [^29]: Statistics provided by Family History Department.
 
 [^30]: See [[Obadiah 1.21|Obadiah 1:21]].
 
-
-
-
-
-#Family_History #Temples

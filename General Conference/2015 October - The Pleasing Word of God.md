@@ -1,6 +1,8 @@
 # The Pleasing Word of God
 
-By Elder Francisco J. Viñas - *Of the Seventy*
+Rosemary M. Wixom
+
+By Elder Francisco J. Viñas - *Of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -34,11 +36,11 @@ In those difficult moments in our lives, the pleasing word of God that heals the
 
 The pleasing word of God fills us with hope, because we know that those who are faithful in tribulation will have the greater reward in the kingdom of heaven and that “after much tribulation come the blessings” (see [[D&C 58.3|D&C 58:3–4]][[D&C 58.4|]]).
 
-The pleasing word of God, as spoken through the prophets, gives us the security that our eternal sealing, sustained by our faithfulness to the divine promises that we were given for our valiant service in the cause of truth, will bless us and our posterity (see Orson F. Whitney, in Conference Report, Apr. 1929, 110).
+The pleasing word of God, as spoken through the prophets, gives us the security that our eternal sealing, sustained by our faithfulness to the divine promises that we were given for our valiant service in the cause of truth, will bless us and our posterity (see Orson F. Whitney, in Conference Report, Apr. 1929, 110).
 
-It also gives us the security that, after we have lived a faithful life, we will not lose any blessing for not having done certain things if we were never given the opportunity to do them. If we have lived faithfully until the time of our death, we “will have all the blessings, exaltation, and glory that any man or woman \[who has had that opportunity\] will have.” (See *The Teachings of Lorenzo Snow,* ed. Clyde J. Williams \[1984\], 138.)
+It also gives us the security that, after we have lived a faithful life, we will not lose any blessing for not having done certain things if we were never given the opportunity to do them. If we have lived faithfully until the time of our death, we “will have all the blessings, exaltation, and glory that any man or woman \[who has had that opportunity\] will have.” (See *The Teachings of Lorenzo Snow,* ed. Clyde J. Williams \[1984\], 138.)
 
-Now, it is important to understand that some suffering and affliction can also enter our lives if we fail to truly repent of our sins. President Marion G. Romney taught: “The suffering and distress endured by people of this earth is the result of unrepented and unremitted sin. … Just as suffering and sorrow attend sin, so happiness and joy attend forgiveness of sins” (in Conference Report, Apr. 1959, 11).
+Now, it is important to understand that some suffering and affliction can also enter our lives if we fail to truly repent of our sins. President Marion G. Romney taught: “The suffering and distress endured by people of this earth is the result of unrepented and unremitted sin. … Just as suffering and sorrow attend sin, so happiness and joy attend forgiveness of sins” (in Conference Report, Apr. 1959, 11).
 
 Why does lack of repentance cause suffering and pain?
 
@@ -54,13 +56,13 @@ For example, when we partake of the sacrament, we show the Lord that we are goin
 
 The moment we begin to remember Him and keep His commandments every day—and not just on the Sabbath day—is when the remission of our sins begins to gradually take effect and His promise of having His Spirit with us begins to be fulfilled.
 
-Without the proper obedience that must accompany our intent, the effect of remission may disappear before long and the companionship of the Spirit begins to withdraw. We will run the risk of honoring Him with our lips while removing our hearts from Him (see [[2 Nephi 27.25|2 Nephi 27:25]]).
+Without the proper obedience that must accompany our intent, the effect of remission may disappear before long and the companionship of the Spirit begins to withdraw. We will run the risk of honoring Him with our lips while removing our hearts from Him (see [[2 Nephi 27.25|2 Nephi 27:25]]).
 
 In addition to comforting us, the pleasing word of God warns us that this process of receiving a remission of our sins can be interrupted when we become entangled “in the vanities of the world,” and it can be resumed through faith if we sincerely repent and humble ourselves (see [[D&C 20.5|D&C 20:5–6]][[D&C 20.6|]]).
 
 What might be some of those vanities that can interfere in the process of receiving a remission of our sins and that are associated with keeping the Sabbath day holy?
 
-Some examples include arriving late for sacrament meeting without a valid reason; arriving, without previously having examined ourselves, to eat the bread and drink from the cup unworthily (see [[1 Corinthians 11.28|1 Corinthians 11:28]]); and arriving without first having confessed our sins and having asked God for forgiveness for them.
+Some examples include arriving late for sacrament meeting without a valid reason; arriving, without previously having examined ourselves, to eat the bread and drink from the cup unworthily (see [[1 Corinthians 11.28|1 Corinthians 11:28]]); and arriving without first having confessed our sins and having asked God for forgiveness for them.
 
 Other examples: being irreverent by exchanging messages on our electronic devices, leaving the meeting after partaking of the sacrament, and engaging in activities in our homes that are inappropriate for that sacred day.
 
@@ -70,7 +72,7 @@ In the book of Isaiah, we can find an answer that, though related to the Sabbath
 
 The key words are “turn away … from doing thy pleasure,” or in other words, doing God’s will. Oftentimes, our will—shaped by the desires, appetites, and passions of the natural man—conflicts with the will of God. The prophet Brigham Young taught that “when the will, passions, and feelings of a person are perfectly submissive to God and his requirements, that person is sanctified.—It is, for my will to be swallowed up in the will of God, that will lead me into all good, and crown me ultimately with immortality and eternal lives” (*Deseret News,* Sept. 7, 1854, 1).
 
-The pleasing word of God invites us to use the power of the Atonement of Christ to apply it to ourselves and become reconciled with His will—and not with the will of the devil and the flesh—so we, through His grace, can be saved (see [[2 Nephi 10.24|2 Nephi 10:24–25]][[2 Nephi 10.25|]]).
+The pleasing word of God invites us to use the power of the Atonement of Christ to apply it to ourselves and become reconciled with His will—and not with the will of the devil and the flesh—so we, through His grace, can be saved (see [[2 Nephi 10.24|2 Nephi 10:24–25]][[2 Nephi 10.25|]]).
 
 The pleasing word of God that we share today shows us the need for continuous repentance in our lives so we can keep the influence of the Holy Ghost for as long as possible.
 
@@ -85,5 +87,3 @@ It is my prayer that we may experience the joy that comes from striving to live 
 
 
 
-
-#Adversity #Atonement #Holy_Ghost #Prophets #Repentance #Sabbath

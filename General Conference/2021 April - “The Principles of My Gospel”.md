@@ -1,8 +1,8 @@
 # “The Principles of My Gospel”
 
-([[D&C 42.12|Doctrine and Covenants 42:12]])
+Russell M. Nelson
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2021 General Conference*
 
@@ -40,7 +40,7 @@ The statement by the Prophet Joseph Smith about teaching correct principles is p
 
 ### The Principle of Non-Distraction
 
-President Dallin H. Oaks spoke in general conference in 1998 about Aaronic Priesthood holders’ duties related to preparing and administering the sacrament. He described *the principle of non-distraction* and indicated that a holder of the Aaronic Priesthood would never want anything in his appearance or behavior to distract any member of the Church from his or her worship and renewal of covenants. President Oaks also emphasized the related principles of orderliness, cleanliness, reverence, and dignity.
+President Dallin H. Oaks spoke in general conference in 1998 about Aaronic Priesthood holders’ duties related to preparing and administering the sacrament. He described *the principle of non-distraction* and indicated that a holder of the Aaronic Priesthood would never want anything in his appearance or behavior to distract any member of the Church from his or her worship and renewal of covenants. President Oaks also emphasized the related principles of orderliness, cleanliness, reverence, and dignity.
 
 Interestingly, President Oaks did not provide for the young men a lengthy list of things to do and not to do. Rather, he explained the principle with the expectation that the young men and their parents and teachers could and should use their own judgment and inspiration to follow the guideline.
 
@@ -48,7 +48,7 @@ He explained: “I will not suggest detailed rules, since the circumstances in v
 
 ### The Principle of the Sabbath as a Sign
 
-In the April 2015 general conference, President Russell M. Nelson taught us that “the Sabbath is a delight.”[^8] He also explained how he personally had come to understand a basic principle about honoring the Sabbath day:
+In the April 2015 general conference, President Russell M. Nelson taught us that “the Sabbath is a delight.”[^8] He also explained how he personally had come to understand a basic principle about honoring the Sabbath day:
 
 “How do we *hallow* the Sabbath day? In my much younger years, I studied the work of others who had compiled lists of things to do and things *not* to do on the Sabbath. It wasn’t until later that I learned from the scriptures that my conduct and my attitude on the Sabbath constituted a *sign* between me and my Heavenly Father. With that understanding, I no longer needed lists of dos and don’ts. When I had to make a decision whether or not an activity was appropriate for the Sabbath, I simply asked myself, ‘*What sign do I want to give to God*?’ That question made my choices about the Sabbath day crystal clear.”[^9]
 
@@ -97,7 +97,7 @@ I know that the doctrine and principles of the gospel of Jesus Christ are the fo
 
 
 
-[^1]: John Taylor, in *Teachings of Presidents of the Church: Joseph Smith* (2007), 284.
+[^1]: John Taylor, in *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-24?lang=eng&id=p8#p8)* (2007), 284.
 
 [^2]: [[D&C 42.12|Doctrine and Covenants 42:12]].
 
@@ -109,26 +109,21 @@ I know that the doctrine and principles of the gospel of Jesus Christ are the fo
 
 [^6]: [[D&C 89.3|Doctrine and Covenants 89:3–4]][[D&C 89.4|]].
 
-[^7]: Dallin H. Oaks, “[[1998 October - The Aaronic Priesthood and the Sacrament.md|The Aaronic Priesthood and the Sacrament]],” *Ensign*, Nov. 1998, 39; *Liahona*, Jan. 1999, 45–46.
+[^7]: Dallin H. Oaks, “[[1998 October - The Aaronic Priesthood and the Sacrament.md|The Aaronic Priesthood and the Sacrament]],” *Ensign*, Nov. 1998, 39; *Liahona*, Jan. 1999, 45–46.
 
-[^8]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 129–32.
+[^8]: See Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” *Ensign* or *Liahona*, May 2015, 129–32.
 
-[^9]: Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” 130; emphasis added.
+[^9]: Russell M. Nelson, “[[2015 April - The Sabbath Is a Delight.md|The Sabbath Is a Delight]],” 130; emphasis added.
 
-[^10]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92.
+[^10]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92.
 
-[^11]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 94.
+[^11]: Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” 94.
 
 [^12]: [[D&C 123.16|Doctrine and Covenants 123:16]].
 
-[^13]: President Harold B. Lee (1899–1973) urged members to let the conference talks “be the guide to their walk and talk during the next six months.” He explained, “These are the important matters the Lord sees fit to reveal to this people in this day” (in Conference Report, Apr. 1946, 68).
+[^13]: President Harold B. Lee (1899–1973) urged members to let the conference talks “be the guide to their walk and talk during the next six months.” He explained, “These are the important matters the Lord sees fit to reveal to this people in this day” (in Conference Report, Apr. 1946, 68).
 
 [^14]: Ezra Taft Benson, “[[1988 April - “Come unto Christ, and Be Perfected in Him”.md|Come unto Christ, and Be Perfected in Him]],” *Ensign*, May 1988, 84.
 
 [^15]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
-
-
-
-
-#Church_Doctrine #Gospel #Principles #Sabbath #Standards #Truth

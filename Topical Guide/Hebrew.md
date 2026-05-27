@@ -1,11 +1,10 @@
 # Hebrew
 
-
-*See also* [[Israelite.md|Israelite]]; [BD Hebrew](https://www.churchofjesuschrist.org/study/scriptures/bd/hebrew?lang=eng)
+*See also* [[Israelite.md|Israelite]]; [[BD Hebrew.md|BD Hebrew]]
 
 told Abram the *Hebrew*, [[Genesis 14.13|Genesis 14:13]].
 
-an *Hebrew* ... interpreted to us our dreams, [[Genesis 41.12|Genesis 41:12]].
+an *Hebrew* … interpreted to us our dreams, [[Genesis 41.12|Genesis 41:12]].
 
 king of Egypt spake to the *Hebrew* midwives, [[Exodus 1.15|Exodus 1:15]].
 
@@ -21,7 +20,7 @@ he spake unto them in the *Hebrew*, [[Acts 21.40|Acts 21:40]].
 
 saying in the *Hebrew* tongue, Saul, Saul, [[Acts 26.14|Acts 26:14]].
 
-Are they *Hebrews* ? so am I, [[2 Corinthians 11.22|2 Corinthians 11:22]].
+Are they *Hebrews*? so am I, [[2 Corinthians 11.22|2 Corinthians 11:22]].
 
 of the tribe of Benjamin, an *Hebrew* of the *Hebrews*, [[Philippians 3.5|Philippians 3:5]].
 

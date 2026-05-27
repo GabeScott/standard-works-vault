@@ -1,6 +1,8 @@
 # Whatsoever He Saith unto You, Do It
 
-By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
+Bonnie H. Cordon
+
+By Elder L. Whitney Clayton - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -34,7 +36,7 @@ When we decide to do “whatsoever \[God\] saith unto” us, we earnestly commit
 
 A few years ago, I spoke with a young bishop who was spending hours each week counseling with members of his ward. He made a striking observation. The problems that members of his ward faced, he said, were those faced by Church members everywhere—issues such as how to establish a happy marriage; struggles with balancing work, family, and Church duties; challenges with the Word of Wisdom, with employment, or with pornography; or trouble gaining peace about a Church policy or historical question they didn’t understand.
 
-His counsel to ward members very often included getting back to simple practices of faith, such as studying the Book of Mormon—as we were counseled by President Thomas S. Monson to do—paying tithing, and serving in the Church with devotion. Frequently, however, their response to him was one of skepticism: “I don’t agree with you, Bishop. We *all* know those are good things to do. We talk about those things *all the time* in the Church. But I’m not sure you’re understanding me. What does doing any of *those* things have to do with the issues *I’m* facing?”
+His counsel to ward members very often included getting back to simple practices of faith, such as studying the Book of Mormon—as we were counseled by President Thomas S. Monson to do—paying tithing, and serving in the Church with devotion. Frequently, however, their response to him was one of skepticism: “I don’t agree with you, Bishop. We *all* know those are good things to do. We talk about those things *all the time* in the Church. But I’m not sure you’re understanding me. What does doing any of *those* things have to do with the issues *I’m* facing?”
 
 It’s a fair question. Over time, that young bishop and I have observed that those who are deliberate about doing the “small and simple things”[^7]—obeying in seemingly little ways—are blessed with faith and strength that go far beyond the actual acts of obedience themselves and, in fact, may seem totally unrelated to them. It may seem hard to draw a connection between the basic daily acts of obedience and solutions to the big, complicated problems we face. But they *are* related. In my experience, getting the little daily habits of faith right is the single best way to fortify ourselves against the troubles of life, whatever they may be. Small acts of faith, even when they seem insignificant or entirely disconnected from the specific problems that vex us, bless us in *all* we do.
 
@@ -61,7 +63,7 @@ Every day, consciously or otherwise, we all choose “whom \[we\] will serve.”
 
 [^3]: Joseph Smith Translation, Matthew 3:25 (in the Bible appendix).
 
-[^4]: See Jeffrey R. Holland, *Christ and the New Covenant: The Messianic Message of the Book of Mormon* (1997), 18.
+[^4]: See Jeffrey R. Holland, *Christ and the New Covenant: The Messianic Message of the Book of Mormon* (1997), 18.
 
 [^5]: See [[Luke 1.26|Luke 1:26–38]][[Luke 1.27|]][[Luke 1.28|]][[Luke 1.29|]][[Luke 1.30|]][[Luke 1.31|]][[Luke 1.32|]][[Luke 1.33|]][[Luke 1.34|]][[Luke 1.35|]][[Luke 1.36|]][[Luke 1.37|]][[Luke 1.38|]].
 
@@ -69,23 +71,21 @@ Every day, consciously or otherwise, we all choose “whom \[we\] will serve.”
 
 [^7]: [[Alma 37.6|Alma 37:6]].
 
-[^8]: See [[2 Kings 5.1|2 Kings 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
+[^8]: See [[2 Kings 5.1|2 Kings 5:1–14]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]].
 
 [^9]: See [[Moses 5.5|Moses 5:5–11]][[Moses 5.6|]][[Moses 5.7|]][[Moses 5.8|]][[Moses 5.9|]][[Moses 5.10|]][[Moses 5.11|]].
 
 [^10]: See [[Ether 12.6|Ether 12:6]].
 
-[^11]: See Boyd K. Packer, “[[1983 April - Agency and Control.md|Agency and Control]],” *Ensign,* May 1983, 66–68; Robert C. Oaks, “[Believe All Things](https://churchofjesuschrist.org/study/ensign/2005/07/believe-all-things?lang=eng),” *Ensign,* July 2005, 30–33.
+[^11]: See Boyd K. Packer, “[[1983 April - Agency and Control.md|Agency and Control]],” *Ensign,* May 1983, 66–68; Robert C. Oaks, “[Believe All Things](https://www.churchofjesuschrist.org/study/ensign/2005/07/believe-all-things?lang=eng),” *Ensign,* July 2005, 30–33.
 
 [^12]: [[Alma 32.43|Alma 32:43]].
 
-[^13]: See Jeffrey R. Holland, *Christ and the New Covenant,* 18.
+[^13]: See Jeffrey R. Holland, *Christ and the New Covenant,* 18.
 
 [^14]: [[Joshua 24.15|Joshua 24:15]].
 
 [^15]: See [[Proverbs 3.6|Proverbs 3:6]].
 
+[^16]: [[John 14.6|John 14:6]].
 
-
-
-#Adversity #Faith #Jesus_Christ #Obedience #Trust

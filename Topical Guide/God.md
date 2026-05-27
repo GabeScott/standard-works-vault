@@ -1,7 +1,6 @@
 # God
 
-
-*See also* [[Father.md|Father]]; [[god.md|god]]; [[God, Access to.md|God, Access to]]; [[God, Body of, Corporeal Nature.md|God, Body of, Corporeal Nature]]; [[God, Creator.md|God, Creator]]; [[God, Eternal Nature of.md|God, Eternal Nature of]]; [[God, Foreknowledge of.md|God, Foreknowledge of]]; [[God, Gifts of.md|God, Gifts of]]; [[God, Glory of.md|God, Glory of]]; [[God, Indignation of.md|God, Indignation of]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Justice of.md|God, Justice of]]; [[God, Knowledge about.md|God, Knowledge about]]; [[God, Law of.md|God, Law of]]; [[God, Love of.md|God, Love of]]; [[God, Manifestations of.md|God, Manifestations of]]; [[God, Mercy of.md|God, Mercy of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Perfection of.md|God, Perfection of]]; [[God, Power of.md|God, Power of]]; [[God, Presence of.md|God, Presence of]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[God, Spirit of.md|God, Spirit of]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[God, Will of.md|God, Will of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[God, Works of.md|God, Works of]]; [[Godhead.md|Godhead]]; [[Godliness, Godly.md|Godliness]]; [[God the Father, Elohim.md|God the Father, Elohim]]; [[God the Father, Jehovah.md|God the Father, Jehovah]]; [[Jesus Christ.md|Jesus Christ]]; [BD God](https://www.churchofjesuschrist.org/study/scriptures/bd/god?lang=eng)
+*See also* [[Father.md|Father]]; [[god.md|god]]; [[God, Access to.md|God, Access to]]; [[God, Body of, Corporeal Nature.md|God, Body of, Corporeal Nature]]; [[God, Creator.md|God, Creator]]; [[God, Eternal Nature of.md|God, Eternal Nature of]]; [[God, Foreknowledge of.md|God, Foreknowledge of]]; [[God, Gifts of.md|God, Gifts of]]; [[God, Glory of.md|God, Glory of]]; [[God, Indignation of.md|God, Indignation of]]; [[God, Intelligence of.md|God, Intelligence of]]; [[God, Justice of.md|God, Justice of]]; [[God, Knowledge about.md|God, Knowledge about]]; [[God, Law of.md|God, Law of]]; [[God, Love of.md|God, Love of]]; [[God, Manifestations of.md|God, Manifestations of]]; [[God, Mercy of.md|God, Mercy of]]; [[God, Omniscience of.md|God, Omniscience of]]; [[God, Perfection of.md|God, Perfection of]]; [[God, Power of.md|God, Power of]]; [[God, Presence of.md|God, Presence of]]; [[God, Privilege of Seeing.md|God, Privilege of Seeing]]; [[God, Spirit of.md|God, Spirit of]]; [[God, the Standard of Righteousness.md|God, the Standard of Righteousness]]; [[God, Will of.md|God, Will of]]; [[God, Wisdom of.md|God, Wisdom of]]; [[God, Works of.md|God, Works of]]; [[Godhead.md|Godhead]]; [[Godliness.md|Godliness]]; [[God the Father, Elohim.md|God the Father, Elohim]]; [[God the Father, Jehovah.md|God the Father, Jehovah]]; [[Jesus Christ.md|Jesus Christ]]; [[BD God.md|BD God]]
 
 In the beginning *God* created the heaven, [[Genesis 1.1|Genesis 1:1]] ([[Moses 2.1|Moses 2:1]]; [[Abraham 4.1|Abraham 4:1]]).
 
@@ -49,9 +48,9 @@ if the Lord be *God*, follow him, [[1 Kings 18.21|1 Kings 18:21]].
 
 great is our *God* above all gods, [[2 Chronicles 2.5|2 Chronicles 2:5]].
 
-The wicked ... *God* is not in all his thoughts, [[Psalms 10.4|Psalms 10:4]].
+The wicked … *God* is not in all his thoughts, [[Psalms 10.4|Psalms 10:4]].
 
-fool hath said ... There is no *God*, [[Psalms 14.1|Psalms 14:1]] ([[Psalms 53.1|Psalms 53:1]]).
+fool hath said … There is no *God*, [[Psalms 14.1|Psalms 14:1]] ([[Psalms 53.1|Psalms 53:1]]).
 
 my *God*, why hast thou forsaken me, [[Psalms 22.1|Psalms 22:1]] ([[Matthew 27.46|Matthew 27:46]]; [[Mark 15.34|Mark 15:34]]).
 
@@ -73,7 +72,7 @@ my *God*; in him will I trust, [[Psalms 91.2|Psalms 91:2]].
 
 conclusion of the whole matter: Fear *God*, [[Ecclesiastes 12.13|Ecclesiastes 12:13]].
 
-his name shall be called ... The mighty *God*, [[Isaiah 9.6|Isaiah 9:6]] ([[2 Nephi 19.6|2 Nephi 19:6]]).
+his name shall be called … The mighty *God*, [[Isaiah 9.6|Isaiah 9:6]] ([[2 Nephi 19.6|2 Nephi 19:6]]).
 
 Egyptians are men, and not *God*, [[Isaiah 31.3|Isaiah 31:3]].
 
@@ -95,7 +94,7 @@ your *God* is a *God* of gods, [[Daniel 2.47|Daniel 2:47]].
 
 our *God* whom we serve is able to deliver us, [[Daniel 3.17|Daniel 3:17]].
 
-*God*, is ... able to deliver thee from the lions, [[Daniel 6.20|Daniel 6:20]].
+*God*, is … able to deliver thee from the lions, [[Daniel 6.20|Daniel 6:20]].
 
 prepare to meet thy *God*, O Israel, [[Amos 4.12|Amos 4:12]].
 
@@ -107,11 +106,11 @@ Emmanuel, which being interpreted is, *God* with us, [[Matthew 1.23|Matthew 1:23
 
 Ye cannot serve *God* and mammon, [[Matthew 6.24|Matthew 6:24]] ([[Luke 16.13|Luke 16:13]]).
 
-none good but ... *God*, [[Matthew 19.17|Matthew 19:17]] ([[Mark 10.18|Mark 10:18]]; [[Luke 18.19|Luke 18:19]]).
+none good but … *God*, [[Matthew 19.17|Matthew 19:17]] ([[Mark 10.18|Mark 10:18]]; [[Luke 18.19|Luke 18:19]]).
 
 with *God* all things are possible, [[Matthew 19.26|Matthew 19:26]] ([[Mark 10.27|Mark 10:27]]; [[Luke 18.27|Luke 18:27]]).
 
-Render ... unto *God* the things that are *God's*, [[Matthew 22.21|Matthew 22:21]] ([[Mark 12.17|Mark 12:17]]; [[Luke 20.25|Luke 20:25]]).
+Render … unto *God* the things that are *God’s*, [[Matthew 22.21|Matthew 22:21]] ([[Mark 12.17|Mark 12:17]]; [[Luke 20.25|Luke 20:25]]).
 
 *God* hath visited his people, [[Luke 7.16|Luke 7:16]].
 
@@ -119,11 +118,11 @@ Render ... unto *God* the things that are *God's*, [[Matthew 22.21|Matthew 22:21
 
 Word was with *God*, and the Word was *God*, [[John 1.1|John 1:1]].
 
-a teacher come from *God*: for no man can do these miracles ... except *God* be with him, [[John 3.2|John 3:2]].
+a teacher come from *God*: for no man can do these miracles … except *God* be with him, [[John 3.2|John 3:2]].
 
 *God* so loved the world, that he gave his only begotten Son, [[John 3.16|John 3:16]].
 
-*God* is a Spirit ... must worship him in spirit, [[John 4.24|John 4:24]].
+*God* is a Spirit … must worship him in spirit, [[John 4.24|John 4:24]].
 
 said also that *God* was his Father, making himself equal with *God*, [[John 5.18|John 5:18]].
 
@@ -135,9 +134,9 @@ believe in *God*, believe also in me, [[John 14.1|John 14:1]].
 
 that they might know thee the only true *God*, [[John 17.3|John 17:3]].
 
-I ascend ... to my *God*, and your *God*, [[John 20.17|John 20:17]].
+I ascend … to my *God*, and your *God*, [[John 20.17|John 20:17]].
 
-Thomas answered ... My Lord and my *God*, [[John 20.28|John 20:28]].
+Thomas answered … My Lord and my *God*, [[John 20.28|John 20:28]].
 
 This Jesus hath *God* raised up, [[Acts 2.32|Acts 2:32]].
 
@@ -149,7 +148,7 @@ if it be of *God*, ye cannot overthrow it, [[Acts 5.39|Acts 5:39]].
 
 *God* is no respecter of persons, [[Acts 10.34|Acts 10:34]] ([[Romans 2.11|Romans 2:11]]; [[Galatians 2.6|Galatians 2:6]]).
 
-incredible ... that *God* should raise the dead, [[Acts 26.8|Acts 26:8]].
+incredible … that *God* should raise the dead, [[Acts 26.8|Acts 26:8]].
 
 *God* shall judge the secrets of men, [[Romans 2.16|Romans 2:16]].
 
@@ -209,7 +208,7 @@ our *God* is a consuming fire, [[Hebrews 12.29|Hebrews 12:29]].
 
 tempted of *God*: for *God* cannot be tempted, [[James 1.13|James 1:13]].
 
-Abraham ... was called the Friend of *God*, [[James 2.23|James 2:23]].
+Abraham … was called the Friend of *God*, [[James 2.23|James 2:23]].
 
 friend of the world is the enemy of *God*, [[James 4.4|James 4:4]].
 
@@ -243,7 +242,7 @@ should love and serve him, the only living and true *God*, [[D&C 20.19|D&C 20:19
 
 Lord is *God*, and beside him there is no Savior, [[D&C 76.1|D&C 76:1]].
 
-That I may testify unto ... your *God*, and my *God*, [[D&C 88.75|D&C 88:75]].
+That I may testify unto … your *God*, and my *God*, [[D&C 88.75|D&C 88:75]].
 
 there is no *God* beside me, [[Moses 1.6|Moses 1:6]].
 

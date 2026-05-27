@@ -1,6 +1,8 @@
 # Thoughts on the Sacrament
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -48,7 +50,7 @@ While thinking about this, the admonition of Paul in his letter to the church in
 
 “But let a man examine himself, and so let him eat of that bread, and drink of that cup.
 
-“For he that eateth and drinketh unworthily, eateth and drinketh damnation to himself, not discerning the Lord’s body.” ([[1 Corinthians 11.27|1 Cor. 11:27–29]][[1 Corinthians 11.28|]][[1 Corinthians 11.29|]].)
+“For he that eateth and drinketh unworthily, eateth and drinketh damnation to himself, not discerning the Lord’s body.” ([[1 Corinthians 11.27|1 Cor. 11:27–29]][[1 Corinthians 11.28|]][[1 Corinthians 11.29|]].)
 
 I was troubled. I asked myself this question: “Do I place God above all other things and keep all of His commandments?” Then came reflection and resolution. To make a covenant with the Lord to always keep His commandments is a serious obligation, and to renew that covenant by partaking of the sacrament is equally serious. The solemn moments of thought while the sacrament is being served have great significance. They are moments of self-examination, introspection, self-discernment—a time to reflect and to resolve.
 
@@ -58,7 +60,7 @@ There was quiet meditation, the silence broken only by the voice of a tiny babe 
 
 The young men concluded serving the sacrament. Then followed words of encouragement and instruction, a closing hymn and prayer; and the sacred moments “unmarred by earthly care” had come to a close. On the way home we saw several boys playing ball in the street and a family returning in their motor home from a weekend in the mountains. This thought came to my mind: What a wonderful thing it would be if all persons had an understanding of the purpose of baptism and the willingness to accept of it; the desire to keep the covenants made in that ordinance to serve the Lord and live His commandments; and, in addition, the desire to partake of the sacrament on the Sabbath day to renew those covenants to serve Him and be faithful to the end.
 
-In speaking of the covenants one makes when he partakes of the sacrament, a former president of the Church once stated: “Who can measure the responsibility of such a covenant? How far reaching! How comprehensive! It excludes from man’s life, profanity, vulgarity, idleness, enmity, jealousy, drunkenness, dishonesty, hatred, selfishness, and every form of vice. It obligates him to sobriety, to industry, to kindness, to the performance of every duty in church and state. He binds himself to respect his fellowmen, to honor the Priesthood, to pay his tithes and offerings and to consecrate his life to the service of humanity.” (David O. McKay, *Millennial Star* 85:778.)
+In speaking of the covenants one makes when he partakes of the sacrament, a former president of the Church once stated: “Who can measure the responsibility of such a covenant? How far reaching! How comprehensive! It excludes from man’s life, profanity, vulgarity, idleness, enmity, jealousy, drunkenness, dishonesty, hatred, selfishness, and every form of vice. It obligates him to sobriety, to industry, to kindness, to the performance of every duty in church and state. He binds himself to respect his fellowmen, to honor the Priesthood, to pay his tithes and offerings and to consecrate his life to the service of humanity.” (David O. McKay, *Millennial Star* 85:778.)
 
 Having attended sacrament meeting and partaken of the sacrament made the day more meaningful, and I felt that I better understood the reason why the Lord said, “And that thou mayest more fully keep thyself unspotted from the world, thou shalt go to the house of prayer and offer up thy sacraments upon my holy day;
 
@@ -69,8 +71,3 @@ I know that Jesus is the Christ and that He lives, having been put to death as t
 
 
 
-
-
-
-
-#Sacrament

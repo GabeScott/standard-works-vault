@@ -1,6 +1,5 @@
 # Precept
 
-
 *See also* [[Commandments of God.md|Commandments of God]]; [[Law.md|Law]]; [[Statute.md|Statute]]
 
 I will keep thy *precepts* with my whole heart, [[Psalms 119.69|Psalms 119:69]].

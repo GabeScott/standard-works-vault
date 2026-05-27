@@ -1,9 +1,8 @@
 # Remembrance
 
-
 *See also* [[Memorial.md|Memorial]]; [[Memory.md|Memory]]; [[Remember.md|Remember]]
 
-offering ... bringing iniquity to *remembrance*, [[Numbers 5.15|Numbers 5:15]].
+offering … bringing iniquity to *remembrance*, [[Numbers 5.15|Numbers 5:15]].
 
 I would make the *remembrance* of them to cease, [[Deuteronomy 32.26|Deuteronomy 32:26]].
 

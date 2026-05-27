@@ -1,5 +1,7 @@
 # “Witnesses unto Me”
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2001 General Conference*
@@ -22,9 +24,9 @@ Indeed, one of the axioms of our day is that no mission or missionaries can ulti
 
 Just over 24 months ago President Gordon B. Hinckley said in a Churchwide broadcast:
 
-“My heart reaches out to you missionaries. You simply cannot do it alone and do it well. You must have the help of others. That power to help lies within each of us. …
+“My heart reaches out to you missionaries. You simply cannot do it alone and do it well. You must have the help of others. That power to help lies within each of us. …
 
-“Now, my brethren and sisters, we can let the missionaries try to do it alone, or we can help them. If they do it alone, they will knock on doors day after day and the harvest will be meager. Or as members we can assist them in finding and teaching investigators. …
+“Now, my brethren and sisters, we can let the missionaries try to do it alone, or we can help them. If they do it alone, they will knock on doors day after day and the harvest will be meager. Or as members we can assist them in finding and teaching investigators. …
 
 “Brothers and sisters, all of you out in the wards and stakes and in the districts and branches, I invite you to become a vast army with enthusiasm for this work and a great overarching desire to assist the missionaries in the tremendous responsibility they have to carry the gospel to every nation, kindred, tongue, and people.”[^4]
 
@@ -87,7 +89,5 @@ Like all prophets and apostles, the Prophet Joseph Smith understood the deep mea
 
 [^12]: See [[Moses 1.39|Moses 1:39]].
 
+[^13]: See [[Jeremiah 16.14|Jer. 16:14–16]][[Jeremiah 16.15|]][[Jeremiah 16.16|]].
 
-
-
-#Activation #Couple_Missionaries #Duty #Example #Holy_Ghost #Love #Missionary_Work #Obedience #Prayer #Sacrifice

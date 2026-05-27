@@ -1,12 +1,14 @@
 # Hallmarks of a Happy Home
 
+Ezra Taft Benson
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1988 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1988/10/hallmarks-of-a-happy-home?lang=eng)
 
-I pray for the Spirit of the Lord to be with me. “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God.” (Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 255–56.)
+I pray for the Spirit of the Lord to be with me. “Happiness is the object and design of our existence; and will be the end thereof, if we pursue the path that leads to it; and this path is virtue, uprightness, faithfulness, holiness, and keeping all the commandments of God.” (Joseph Smith, *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith, Salt Lake City: Deseret Book Co., 1938, pp. 255–56.)
 
 This description of such a universal goal was provided by the Prophet Joseph Smith. It was relevant then. It is relevant now. With such a clear road map to follow, why then are there so many unhappy people? Frequently, frowns outnumber smiles and despair dampens joy. We live so far below the level of our divine possibilities. Some become confused by materialism, entangled by sin, and lost among the passing parade of humanity. Others cry out in the words of the convert of Philip of old: “How can I \[find my way\], except some man should guide me?” ([[Acts 8.31|Acts 8:31]].)
 
@@ -14,9 +16,9 @@ Happiness does not consist of a glut of luxury, the world’s idea of a “good 
 
 All of us remember the home of our childhood. Interestingly, our thoughts do not dwell on whether the house was large or small, the neighborhood fashionable or downtrodden. Rather, we delight in the experiences we shared as a family. The home is the laboratory of our lives, and what we learn there largely determines what we do when we leave there.
 
-Mrs. Margaret Thatcher, prime minister of Great Britain, expressed the profound philosophy: “The family is the building block of society. It is a nursery, a school, a hospital, a leisure centre, a place of refuge and a place of rest. It encompasses the whole of the society. It fashions our beliefs; it is the preparation for the rest of our life.” (Nicholas Wood, “Thatcher Champions the Family,” *London Times,* 26 May 1988, p. 24.)
+Mrs. Margaret Thatcher, prime minister of Great Britain, expressed the profound philosophy: “The family is the building block of society. It is a nursery, a school, a hospital, a leisure centre, a place of refuge and a place of rest. It encompasses the whole of the society. It fashions our beliefs; it is the preparation for the rest of our life.” (Nicholas Wood, “Thatcher Champions the Family,” *London Times,* 26 May 1988, p. 24.)
 
-“Home is where the heart is.” It *does* take “a heap o’ livin’” to make a house a home (Edgar A. Guest, “Home,” in *The Family Book of Best-Loved Poems,* ed. David L. George, Garden City, N.Y.: Doubleday, 1952, p. 151–52.) “Home, home, sweet, sweet home, Be it ever so humble, there’s no place like home.” (*Hymns,* 1948, no. 185.) We turn from the reverie of such pleasant recollections. We contemplate parents gone, family grown, childhood vanished. Slowly but surely we face the truth: We are responsible for the home we build. We must build wisely, for eternity is not a short voyage. There will be calm and wind, sunlight and shadows, joy and sorrow. But if we really try, our home can be a bit of heaven here on earth. The thoughts we think, the deeds we do, the lives we live influence not only the success of our earthly journey; they mark the way to our eternal goals.
+“Home is where the heart is.” It *does* take “a heap o’ livin’” to make a house a home (Edgar A. Guest, “Home,” in *The Family Book of Best-Loved Poems,* ed. David L. George, Garden City, N.Y.: Doubleday, 1952, p. 151–52.) “Home, home, sweet, sweet home, Be it ever so humble, there’s no place like home.” (*Hymns,* 1948, no. 185.) We turn from the reverie of such pleasant recollections. We contemplate parents gone, family grown, childhood vanished. Slowly but surely we face the truth: We are responsible for the home we build. We must build wisely, for eternity is not a short voyage. There will be calm and wind, sunlight and shadows, joy and sorrow. But if we really try, our home can be a bit of heaven here on earth. The thoughts we think, the deeds we do, the lives we live influence not only the success of our earthly journey; they mark the way to our eternal goals.
 
 Happy homes come in a variety of appearances. Some feature large families with father, mother, brothers, and sisters living together in a spirit of love. Others consist of a single parent with one or two children, while other homes have but one occupant. There are, however, identifying features which are to be found in a happy home, whatever the number or description of its family members. I refer to these as “Hallmarks of a Happy Home.” They consist of:
 
@@ -86,7 +88,7 @@ For a beautiful example of “love at home,” we need not look beyond the famil
 
 These are pictures which portray a legacy of love as a hallmark of a happy home.
 
-A fourth hallmark of a happy home is a treasury of testimony. “The first and foremost opportunity for teaching in the Church lies in the home,” observed President David O. McKay. “A true Mormon home is one in which if Christ should chance to enter, he would be pleased to linger and to rest.” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, p. 169.)
+A fourth hallmark of a happy home is a treasury of testimony. “The first and foremost opportunity for teaching in the Church lies in the home,” observed President David O. McKay. “A true Mormon home is one in which if Christ should chance to enter, he would be pleased to linger and to rest.” (*Gospel Ideals,* Salt Lake City: Improvement Era, 1953, p. 169.)
 
 What are we doing to ensure that our homes meet this description? It isn’t enough for parents alone to have strong testimonies. Children can ride only so long on the coattails of a parent’s conviction.
 
@@ -123,8 +125,3 @@ That our loving Heavenly Father may bless all of us in our quest for such happy 
 
 
 
-
-
-
-
-#Home #Love #Parenthood

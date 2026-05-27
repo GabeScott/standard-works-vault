@@ -1,6 +1,5 @@
 # Lump
 
-
 same *lump* to make one vessel unto honour, [[Romans 9.21|Romans 9:21]].
 
 firstfruit be holy, the *lump* is also holy, [[Romans 11.16|Romans 11:16]].

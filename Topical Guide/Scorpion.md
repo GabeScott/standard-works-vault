@@ -1,6 +1,5 @@
 # Scorpion
 
-
 wilderness, wherein were fiery serpents, and *scorpions*, [[Deuteronomy 8.15|Deuteronomy 8:15]].
 
 I will chastise you with *scorpions*, [[1 Kings 12.11|1 Kings 12:11]] ([[2 Chronicles 10.11|2 Chronicles 10:11]]).

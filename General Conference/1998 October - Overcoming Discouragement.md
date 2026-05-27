@@ -1,5 +1,7 @@
 # Overcoming Discouragement
 
+Gordon B. Hinckley
+
 By Elder Val R. Christensen - *Of the Seventy*
 
 *Given in the October session of the 1998 General Conference*
@@ -49,8 +51,3 @@ I pray all of us may appreciate the challenges we have and try to improve our at
 
 
 
-
-
-
-
-#Adversity #Attitude #Trust

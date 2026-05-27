@@ -1,5 +1,7 @@
 # Out of the Darkness
 
+Joseph Fielding Smith
+
 By President Joseph Fielding Smith - *President of the Church*
 
 *Given in the April session of the 1971 General Conference*
@@ -46,7 +48,7 @@ We believe the Holy Ghost is a revelator and that he will bear testimony to hone
 
 There is no need for anyone to remain in darkness; the light of the everlasting gospel is here; and every sincere investigator on earth can gain a personal witness from the Holy Spirit of the truth and divine nature of the Lord’s work.
 
-Peter said: “… God is no respecter of persons: But in every nation he that feareth him, and worketh righteousness, is accepted” by him ([[Acts 10.34|Acts 10:34–35]][[Acts 10.35|]]), which means that the Lord will pour out his Spirit upon the faithful so they will know of themselves of the truths of this religion.
+Peter said: “… God is no respecter of persons: But in every nation he that feareth him, and worketh righteousness, is accepted” by him ([[Acts 10.34|Acts 10:34–35]][[Acts 10.35|]]), which means that the Lord will pour out his Spirit upon the faithful so they will know of themselves of the truths of this religion.
 
 Now, as one among you who has come to know, by the power of the Holy Ghost, that the Lord has restored his gospel and set up his kingdom again on the earth for the last time, I bear my testimony to the truth of these things.
 
@@ -59,8 +61,3 @@ I say this in the name of the Lord Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Atonement #Church_Doctrine #Plan_Of_Salvation #Restoration

@@ -1,10 +1,12 @@
 # Sustaining a New Prophet
 
+Thomas S. Monson
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1995 General Conference*
 
-[Link](https://www.churchofjesuschrist.org/study/general-conference/1995/04/sustaining-a-new-prophet)
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1995/04/sustaining-a-new-prophet?lang=eng)
 
 My brothers and sisters, this has been a historic and blessed day. As I have witnessed the inspired manner in which President Gordon B. Hinckley fulfilled his calling as a counselor to Presidents Spencer W. Kimball, Ezra Taft Benson, and finally to Howard W. Hunter—during their periods of declining health—I rejoice with you in sustaining him as God’s anointed prophet.
 
@@ -20,7 +22,7 @@ These words of the prophet Alma are most appropriate at this time:
 
 “And this is the manner after which they were ordained—being called and prepared from the foundation of the world according to the foreknowledge of God, on account of their exceeding faith and good works; … therefore they having chosen good, and exercising exceedingly great faith, are called with a holy calling” ([[Alma 13.3|Alma 13:3]]).
 
-The Prophet Joseph Smith taught, “Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was.” The Prophet Joseph continued, “I suppose I was ordained to this very office in that Grand Council” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 365).
+The Prophet Joseph Smith taught, “Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was.” The Prophet Joseph continued, “I suppose I was ordained to this very office in that Grand Council” (*Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith \[Salt Lake City: Deseret Book Co., 1938\], p. 365).
 
 President Gordon B. Hinckley now wears the mantle given to the Prophet Joseph Smith. He was foreordained to this high and holy calling in premortal councils.
 
@@ -38,7 +40,7 @@ On April 6, 1830—the date of the organization of Christ’s restored church (1
 
 “For his word ye shall receive, as if from mine own mouth, in all patience and faith.
 
-“… Him have I inspired to move the cause of Zion in mighty power for good, and his diligence I know, and his prayers I have heard” ([[D&C 21.4|D&C 21:4–5, 7]][[D&C 21.5|]][[D&C 21.7|]]).
+“… Him have I inspired to move the cause of Zion in mighty power for good, and his diligence I know, and his prayers I have heard” ([[D&C 21.4|D&C 21:4–5, 7]][[D&C 21.5|]][[D&C 21.7|]]).
 
 This revelation given to the Prophet Joseph is relevant for each prophet and President of the Church, as well as the members of the Church, for all of us to heed.
 
@@ -75,8 +77,3 @@ This work is true. It will move forward to carry out all the divine plans of our
 
 
 
-
-
-
-
-#Church_Leaders #Gordon_B._Hinckley #Howard_W._Hunter

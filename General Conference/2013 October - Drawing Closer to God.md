@@ -1,6 +1,8 @@
 # Drawing Closer to God
 
-By Elder Terence M. Vinson - *Of the Seventy*
+Thomas S. Monson
+
+By Elder Terence M. Vinson - *Of the Seventy*
 
 *Given in the October session of the 2013 General Conference*
 
@@ -42,7 +44,7 @@ His father corrected him: “No you haven’t. You haven’t had my help yet!”
 
 They then bent down together and moved the rock easily.
 
-The father of my friend Vaiba Rome, Papua New Guinea’s first stake president, was also taught that he could turn to his Father in Heaven in times of need. He and his fellow villagers could survive only through the crops they grew. One day he lit a fire to clear his portion of the village farmland for planting. However, the fire had been preceded by a long hot period, and the vegetation was very dry. So his fire became of the President Thomas S. Monson variety, as our prophet himself described at the last general conference (see  *Ensign* or *Liahona,* May 2013, 89–90). It began to spread to the grassland and bushes, and in the words of his son, “a big monster of fire” resulted. He feared for his fellow villagers and the possible loss of their crops. If they were destroyed, he would be subject to village justice. Being unable to extinguish the fire, he then remembered the Lord.
+The father of my friend Vaiba Rome, Papua New Guinea’s first stake president, was also taught that he could turn to his Father in Heaven in times of need. He and his fellow villagers could survive only through the crops they grew. One day he lit a fire to clear his portion of the village farmland for planting. However, the fire had been preceded by a long hot period, and the vegetation was very dry. So his fire became of the President Thomas S. Monson variety, as our prophet himself described at the last general conference (see [“Obedience Brings Blessings,”](https://www.churchofjesuschrist.org/study/ensign/2013/05/sunday-morning-session/obedience-brings-blessings?lang=eng) *Ensign* or *Liahona,* May 2013, 89–90). It began to spread to the grassland and bushes, and in the words of his son, “a big monster of fire” resulted. He feared for his fellow villagers and the possible loss of their crops. If they were destroyed, he would be subject to village justice. Being unable to extinguish the fire, he then remembered the Lord.
 
 I now quote from his son, my friend: “He knelt on the hill in the bushes and started to pray to Heavenly Father to stop the fire. Suddenly there appeared a big black cloud above where he was praying, and it rained so hard—but only where the fire was burning. When he looked around, there was clear sky everywhere except where the flames burned. He couldn’t believe the Lord would answer a simple man like him, and he again knelt down and cried like a child. He said it was the sweetest feeling” (see [[Alma 36.3|Alma 36:3]]).
 
@@ -52,7 +54,7 @@ In *Life of Pi,* the fictional book by Yann Martel, the hero voices his feelings
 
 That’s exactly how I feel about the Savior. He is always near, especially in sacred places and in times of need; and sometimes, when I least expect, I feel almost like He taps me on the shoulder to let me know He loves me. I can return that love in my own imperfect way by giving Him my heart (see [[D&C 64.22|D&C 64:22, 34]][[D&C 64.34|]]).
 
-Just a few months ago I sat with Elder Jeffrey R. Holland as he assigned missionaries to their missions. As we left he waited for me, and as we walked he draped his arm around my shoulder. I commented to him on his doing the same thing once before in Australia. He said, “That’s because I love you!” And I knew that was true.
+Just a few months ago I sat with Elder Jeffrey R. Holland as he assigned missionaries to their missions. As we left he waited for me, and as we walked he draped his arm around my shoulder. I commented to him on his doing the same thing once before in Australia. He said, “That’s because I love you!” And I knew that was true.
 
 I believe that if we could have the privilege of walking physically with the Savior, that we would feel His arm draped over our shoulder just like that. Like the disciples heading toward Emmaus, our hearts would “burn within us” ([[Luke 24.32|Luke 24:32]]). This is His message: “Come and see” ([[John 1.39|John 1:39]]). It is personal, inviting, and embracing in its invitation to walk with His arm around our shoulders.
 
@@ -63,5 +65,3 @@ Because of the multiplicity of experiences and the power with which the Spirit h
 
 
 
-
-#Adversity #Faith #Love

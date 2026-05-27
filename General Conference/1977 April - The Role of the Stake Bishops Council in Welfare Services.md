@@ -1,6 +1,8 @@
 # The Role of the Stake Bishops Council in Welfare Services
 
-By Elder L. Tom Perry - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder L. Tom Perry - *Of the Council of the Twelve*
 
 *Given in the April session of the 1977 General Conference*
 
@@ -20,7 +22,7 @@ The first responsibility of the stake bishops council is to make certain that th
 
 Most important, the stake bishops council encourages uniformity in distribution practices by the bishops to those in need of assistance throughout the stake.
 
-All this implies, of course, that bishops have a stewardship regarding the storehouse. When Harold B. Lee was president of the Pioneer Stake in the days of the depression, he organized a welfare committee and they built a storehouse. After completion, they dedicated the building. In this special meeting, President Lee gave the storehouse keys to the bishops and in substance said, “Brethren, here are the keys to the Lord’s storehouse. You now have a stewardship regarding the storehouse. We have done the work in getting it established. It is now your stewardship to watch and see that it provides quality commodities in a timely and proper fashion to care for the poor and the needy.”
+All this implies, of course, that bishops have a stewardship regarding the storehouse. When Harold B. Lee was president of the Pioneer Stake in the days of the depression, he organized a welfare committee and they built a storehouse. After completion, they dedicated the building. In this special meeting, President Lee gave the storehouse keys to the bishops and in substance said, “Brethren, here are the keys to the Lord’s storehouse. You now have a stewardship regarding the storehouse. We have done the work in getting it established. It is now your stewardship to watch and see that it provides quality commodities in a timely and proper fashion to care for the poor and the needy.”
 
 The storehouse is the Lord’s storehouse. It serves the bishops in their role of caring for those in need. That is the concept of the storehouse. Each storehouse is a sacred temporal facility essential to the bishop’s efforts to care for those in need. While many of you do not have access to a storehouse, it is the doctrine of the Church that each bishop have a physical storehouse available from which he may draw goods. Working through proper priesthood channels and with the Welfare Services Department, you may receive assistance and direction in establishing a storehouse in your area.
 
@@ -71,8 +73,3 @@ To all the Bishop Perrys there are in this world, I ask that the Lord’s choice
 
 
 
-
-
-
-
-#Councils #Welfare

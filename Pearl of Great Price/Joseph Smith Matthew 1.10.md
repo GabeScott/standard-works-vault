@@ -5,4 +5,4 @@
 [Joseph Smith Matthew 1:10](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.10?lang=eng#p10)
 
 
-[^a]: [[D&C 45.27|D&C 45:27.]]
+[^a]: [[D&C 45.27|D&C 45:27]].  

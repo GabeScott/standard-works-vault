@@ -1,5 +1,7 @@
 # Finding Faith in Every Footstep
 
+Gordon B. Hinckley
+
 By Bonnie D. Parkin - *Second Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1997 General Conference*
@@ -37,8 +39,3 @@ Our prayer tonight is that every one of us will gain strength from the pioneerin
 
 
 
-
-
-
-
-#Agency #Faith #Gratitude #Jesus_Christ #Pioneers

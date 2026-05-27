@@ -1,6 +1,5 @@
 # God, Love of
 
-
 *See also* [[Compassion.md|Compassion]]; [[God, Mercy of.md|God, Mercy of]]; [[Love.md|Love]]
 
 because he *loved* thy fathers, therefore he chose their seed, [[Deuteronomy 4.37|Deuteronomy 4:37]].
@@ -15,7 +14,7 @@ he will *love* thee, [[Deuteronomy 7.13|Deuteronomy 7:13]].
 
 Lord had a delight in thy fathers to *love* them, [[Deuteronomy 10.15|Deuteronomy 10:15]].
 
-He ... *loveth* the stranger, in giving him food, [[Deuteronomy 10.18|Deuteronomy 10:18]].
+He … *loveth* the stranger, in giving him food, [[Deuteronomy 10.18|Deuteronomy 10:18]].
 
 *love* the Lord, all ye his saints, [[Psalms 31.23|Psalms 31:23]].
 
@@ -47,7 +46,7 @@ As the Father hath *loved* me, so have I *loved* you, [[John 15.9|John 15:9]].
 
 Father himself *loveth* you, because ye have *loved*, [[John 16.27|John 16:27]].
 
-world may know that thou ... hast *loved* them, [[John 17.23|John 17:23]].
+world may know that thou … hast *loved* them, [[John 17.23|John 17:23]].
 
 *love* wherewith thou hast *loved* me, [[John 17.26|John 17:26]].
 
@@ -67,15 +66,15 @@ encircled about eternally in the arms of his *love*, [[2 Nephi 1.15|2 Nephi 1:15
 
 all men should have charity, which charity is *love*, [[2 Nephi 26.30|2 Nephi 26:30]].
 
-having a perfect ... *love of God* and of all men, [[2 Nephi 31.20|2 Nephi 31:20]].
+having a perfect … *love of God* and of all men, [[2 Nephi 31.20|2 Nephi 31:20]].
 
 peace and the *love of God* was restored again, [[Jacob 7.23|Jacob 7:23]].
 
-do this ye shall always ... be filled with the *love of God*, [[Mosiah 4.12|Mosiah 4:12]].
+do this ye shall always … be filled with the *love of God*, [[Mosiah 4.12|Mosiah 4:12]].
 
 having the *love of God* always in your hearts, [[Alma 13.29|Alma 13:29]].
 
-no contention ... because of the *love of God*, [[4 Nephi 1.15|4 Nephi 1:15]].
+no contention … because of the *love of God*, [[4 Nephi 1.15|4 Nephi 1:15]].
 
 commandments that they should *love* and serve him, [[D&C 20.19|D&C 20:19]].
 
@@ -84,5 +83,3 @@ Holy Spirit, which God bestows on those who *love* him, [[D&C 76.116|D&C 76:116]
 whom I *love* I also chasten, [[D&C 95.1|D&C 95:1]].
 
 wonderful *love* made manifest by the Father and the Son, [[D&C 138.3|D&C 138:3]].
-
-*See also* [[Alma 26.37|Alma 26:37]].

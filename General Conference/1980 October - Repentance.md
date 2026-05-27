@@ -1,6 +1,8 @@
 # Repentance
 
-By President Marion G. Romney - *Second Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President Marion G. Romney - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1980 General Conference*
 
@@ -14,9 +16,9 @@ This great truth is clearly and beautifully taught in the Book of Mormon. Alma, 
 
 “Repent ye, for the kingdom of heaven is nigh at hand;
 
-“And not many days hence the Son of God. …
+“And not many days hence the Son of God. …
 
-“… cometh to redeem those who will be baptized unto repentance, through faith on his name.” ([[Alma 9.25|Alma 9:25–27]][[Alma 9.26|]][[Alma 9.27|]].)
+“… cometh to redeem those who will be baptized unto repentance, through faith on his name.” ([[Alma 9.25|Alma 9:25–27]][[Alma 9.26|]][[Alma 9.27|]].)
 
 Alma did not say that Jesus would redeem everybody. The promise was restricted to those who, because of their faith in Christ, would repent and be baptized.
 
@@ -30,7 +32,7 @@ Jesus, speaking to his Nephite disciples, said:
 
 “No unclean thing can enter into his \[speaking of his Father’s\] kingdom; therefore nothing entereth into his rest save it be those who have washed their garments in my blood, because of their faith, and the repentance of all their sins, and their faithfulness unto the end.
 
-“Now this is the commandment: Repent, all ye ends of the earth, and come unto me.” ([[3 Nephi 27.19|3 Ne. 27:19–20]][[3 Nephi 27.20|]].)
+“Now this is the commandment: Repent, all ye ends of the earth, and come unto me.” ([[3 Nephi 27.19|3 Ne. 27:19–20]][[3 Nephi 27.20|]].)
 
 It is this repentance, based upon faith in Jesus and “hope through the atonement of Christ and the power of his resurrection, to be raised unto life eternal” of which I speak today (see [[Moroni 7.41|Moro. 7:41]]). This is the repentance which would lead men to a solution of all their problems, individual and collective. This is the repentance to which Jesus Christ, our Lord, calls us.
 
@@ -62,7 +64,7 @@ There doesn’t seem to be much uncertainty about the meaning of *forsake.* Howe
 
 We are to confess all our sins to the Lord. For transgressions which are wholly personal, affecting none but ourselves and the Lord, confession to ourselves and him would seem to be sufficient.
 
-As a matter of fact, no good can come from confessing to anyone else. President Brigham Young once said, “Keep your follies that do not concern others to yourselves, and keep your private wickedness as still as possible; hide it from the eyes of the public gaze as far as you can” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 158).
+As a matter of fact, no good can come from confessing to anyone else. President Brigham Young once said, “Keep your follies that do not concern others to yourselves, and keep your private wickedness as still as possible; hide it from the eyes of the public gaze as far as you can” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 158).
 
 For misconduct which affects another, confession should also be made to the offended one and his forgiveness sought.
 
@@ -147,8 +149,3 @@ That we may all, through repentance and by enduring to the end, obtain that rest
 
 
 
-
-
-
-
-#Repentance

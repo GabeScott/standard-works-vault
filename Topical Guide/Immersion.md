@@ -1,4 +1,3 @@
 # Immersion
 
-
-*See* [[Baptism, Immersion.md|Baptism, Immersion]]
+*See also* [[Baptism, Immersion.md|Baptism, Immersion]]

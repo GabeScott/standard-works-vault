@@ -1,6 +1,8 @@
 # We Have Been There All the Time
 
-By Elder Paul H. Dunn - *Of the Presidency of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Paul H. Dunn - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -20,13 +22,13 @@ My father used to teach us that life is a journey, not a camp, and he indicated 
 
 I remember a grandmother who had been widowed early in her life and was moving out of her home. Her granddaughter, about to be married herself, was carefully helping her pack the boxes of dishes and the faded towels. “See that sewing machine over there in the corner?” the grandmother asked. “Your grandfather always left his hat there when he came home in the evening. I used to scold him all the time about it. ‘Just put your hat on the hook,’ I’d say. ‘Why does your hat always have to be on the sewing machine messing everything up?’ Then one day he got pneumonia and died, leaving four little children and me to miss him for a lifetime. How many times through the years I’ve thought, What I’d give to see that hat on the sewing machine, placed there by his own hand!”
 
-Like the grandmother in this story, we too often let trifles cloud our vision. We get caught up in nonessentials or in a multitude of meetings, both in and out of the Church, that have no particular meaning or purpose. We sometimes nag the people we love the best over little inattentions, small faults, mere nothings in the whole scheme of things. Instead of treasuring the all-too-rare moments we share with our dear ones, we pick at faults, imagined or otherwise. How many of us say to our wives, our husbands, our children: “Why can’t you do this?” “Why don’t you do that?” Or “Someday when I have the time …”
+Like the grandmother in this story, we too often let trifles cloud our vision. We get caught up in nonessentials or in a multitude of meetings, both in and out of the Church, that have no particular meaning or purpose. We sometimes nag the people we love the best over little inattentions, small faults, mere nothings in the whole scheme of things. Instead of treasuring the all-too-rare moments we share with our dear ones, we pick at faults, imagined or otherwise. How many of us say to our wives, our husbands, our children: “Why can’t you do this?” “Why don’t you do that?” Or “Someday when I have the time …”
 
 Our last daughter left for college this past month, and the eighteen years of daily living with her were suddenly over. Where had they gone? What minute, what hour, what day or night had swallowed up all those joyous, giggling, growing-up years? The first night she was away, I slipped into her bedroom, looked at her record player, and thought of all those times I had mechanically said, “Would you turn down the music!” And I thought, too, how often in the days ahead we’d be longing to hear the music. Thank God she and her parents have many wonderful memories to savor in the years ahead.
 
 Our daughter Janet lies in a hospital bed at this very moment, and she and we know what great moments we have to share. And you know, Janet, our great faith and our feeling.
 
-Why do those sudden moments of clarity, when we realize how precious our loved ones are, come so rarely? How do we let ourselves get caught up in faultfinding, digging, or scolding at those who are nearest our hearts? Is it ever worth it? As C. S. Lewis once advised, “Take care. It is so easy to break eggs without making omelettes.” (Cited in Richard L. Evans, *Richard Evans’ Quote Book,* Salt Lake City: Publisher’s Press, 1971, p. 169.)
+Why do those sudden moments of clarity, when we realize how precious our loved ones are, come so rarely? How do we let ourselves get caught up in faultfinding, digging, or scolding at those who are nearest our hearts? Is it ever worth it? As C. S. Lewis once advised, “Take care. It is so easy to break eggs without making omelettes.” (Cited in Richard L. Evans, *Richard Evans’ Quote Book,* Salt Lake City: Publisher’s Press, 1971, p. 169.)
 
 Maybe each of us needs to stop amidst our busy, dashing, breathless lives—even amidst our many meetings. It recalls to mind an experience—perhaps you know it—of a little inquisitive boy who came to church with his father, and as they walked into the foyer, the boy noticed the usual trophy case over which were placed several large plaques. Curiosity got to the little boy. He pulled on his dad’s coattail and said, “Dad, what’s that one?”
 
@@ -69,8 +71,3 @@ You remember what President Kimball said: “Prevention is far better than redem
 
 
 
-
-
-
-
-#Family #Love

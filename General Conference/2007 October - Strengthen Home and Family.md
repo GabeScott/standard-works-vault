@@ -1,5 +1,7 @@
 # Strengthen Home and Family
 
+Gordon B. Hinckley
+
 By Mary N. Cook - *Second Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2007 General Conference*
@@ -30,13 +32,13 @@ President Hinckley taught us, “While tithing is paid with money, more importan
 
 How can attending your meetings—particularly sacrament meeting—bless you and your family? Regularly partaking of the sacrament will help you keep your baptismal covenant. As you live worthily and renew this covenant weekly, you will qualify for the guidance of the Spirit. The Holy Ghost will guide you and will teach you what you should do to bless your family.
 
-As you commit to these patterns of righteousness, you will be blessed throughout your life and will develop the spiritual foundation from which you can strengthen your family by example. In 1 Timothy, Paul teaches us about example: “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Timothy 4:12]]).
+As you commit to these patterns of righteousness, you will be blessed throughout your life and will develop the spiritual foundation from which you can strengthen your family by example. In 1 Timothy, Paul teaches us about example: “Let no man despise thy youth; but be thou an example of the believers, in word, in conversation, in charity, in spirit, in faith, in purity” ([[1 Timothy 4.12|1 Timothy 4:12]]).
 
 The family section in *For the Strength of Youth* gives some great ways you can be “an example of the believers” in your own home:
 
-“Be cheerful, helpful, and considerate of others. … Concern yourself with the needs of other family members. …
+“Be cheerful, helpful, and considerate of others. … Concern yourself with the needs of other family members. …
 
-“Honor your parents by showing love and respect for them and by being obedient. … Participate in family activities and traditions, including family prayer, family home evenings, and family scripture reading. These traditions strengthen and unify families. …
+“Honor your parents by showing love and respect for them and by being obedient. … Participate in family activities and traditions, including family prayer, family home evenings, and family scripture reading. These traditions strengthen and unify families. …
 
 “Strengthen your relationships with your brothers and sisters. They can become your closest friends” (10–11).
 
@@ -44,7 +46,7 @@ Example is often the best teacher. Who in your family could benefit from your ex
 
 Let me tell you an experience from my own life and how my brother’s patterns of righteousness and example resulted in our family being blessed eternally.
 
-My brother and I were “born of goodly parents” ([[1 Nephi 1.1|1 Nephi 1:1]]), who loved and made great sacrifices for the two of us, but our family had not been blessed with the sacred ordinances of the temple.
+My brother and I were “born of goodly parents” ([[1 Nephi 1.1|1 Nephi 1:1]]), who loved and made great sacrifices for the two of us, but our family had not been blessed with the sacred ordinances of the temple.
 
 Many years ago on a day in late December, we received a letter from my brother, who was serving in the California North Mission. The outside of the envelope cautioned, “*Do not* open until you are *all* together!!”
 
@@ -58,7 +60,7 @@ The new year was an opportunity for our family to make some changes. In the many
 
 Can you make a difference in your family? Yes, you can! I often wonder about my family’s eternal progression if my brother had not written that powerful letter. His patterns of righteousness and example changed our lives.
 
-Elder Robert D. Hales said: “If the example we have received from our parents was not good, it is our responsibility to break the cycle. … Each person can learn a better way and in so doing bless the lives of family members now and teach correct traditions for the generations that follow” (in Conference Report, Oct. 1993, 10–11; or *Ensign,* Nov. 1993, 10).
+Elder Robert D. Hales said: “If the example we have received from our parents was not good, it is our responsibility to break the cycle. … Each person can learn a better way and in so doing bless the lives of family members now and teach correct traditions for the generations that follow” (in Conference Report, Oct. 1993, [[1993 October - How Will Our Children Remember Us.md|10–11]]; or *Ensign,* Nov. 1993, 10).
 
 Remember, “the family is central to the Creator’s plan for the eternal destiny of His children” (“The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102). Eternal families are made up of individuals. “Do your part to build a happy home” (*For the Strength of Youth,* 10). Establish patterns of righteousness in your life. And be an example of the believers. The Lord is depending on you to assist in the exaltation of your eternal family.
 
@@ -67,8 +69,3 @@ I know that Jesus Christ lives. He knows you and loves you. He has blessed me an
 
 
 
-
-
-
-
-#Example #Family #Temples #Youth

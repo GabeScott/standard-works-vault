@@ -1,6 +1,8 @@
 # The Master Healer
 
-By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
+Jean B. Bingham
+
+By Carole M. Stephens - *First Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -12,17 +14,17 @@ One of my most rewarding opportunities is to travel—to learn from my sisters t
 
 During one such experience, a Relief Society leader asked, “Is there something specific that women should focus on?”
 
-I answered, “Yes!” as President Russell M. Nelson’s talk “A Plea to My Sisters” entered my mind. President Nelson taught, “We need women who have a bedrock understanding of the doctrine of Christ.”[^1]
+I answered, “Yes!” as President Russell M. Nelson’s talk “A Plea to My Sisters” entered my mind. President Nelson taught, “We need women who have a bedrock understanding of the doctrine of Christ.”[^1]
 
 Nephi described the doctrine of Christ this way:
 
-“For the gate by which ye should enter is *repentance* and *baptism* by water; and then cometh a remission of your sins by fire and by the *Holy Ghost*. …
+“For the gate by which ye should enter is *repentance* and *baptism* by water; and then cometh a remission of your sins by fire and by the *Holy Ghost*. …
 
 “And now … I would ask if all is done? Behold, I say unto you, Nay; for ye have not come thus far save it were by the word of Christ with unshaken *faith* in him, relying wholly upon the merits of him who is mighty to save.
 
 “Wherefore, ye must press forward with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men. Wherefore, if ye shall press forward, feasting upon the word of Christ, and *endure to the end,* behold, thus saith the Father: Ye shall have eternal life.
 
-“… This is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God. And now, behold, *this is the doctrine of Christ.*”[^2]
+“… This is the way; and there is none other way nor name given under heaven whereby man can be saved in the kingdom of God. And now, behold, *this is the doctrine of Christ.*”[^2]
 
 Why do we need a bedrock understanding of these principles?
 
@@ -54,13 +56,13 @@ When we come to Him with humble and teachable hearts—even if our hearts are he
 
 These experiences, though no fault of their own, have left many feeling guilty and ashamed. Not understanding how to manage the powerful emotions they experience, many try to bury them, pushing them deeper into themselves.
 
-Hope and healing are not found in the dark abyss of secrecy but in the light and love of our Savior, Jesus Christ.[^11] Elder Richard G. Scott counseled: “If you are free \[from\] serious sin yourself, don’t suffer needlessly the consequences of another’s sins. … You can feel compassion. … Yet you should not take upon yourself a feeling of responsibility. … When you have done what is reasonable to help one you love, lay the burden at the feet of the Savior. … As you so act, not only will you find peace but will demonstrate your faith in the power of the Savior to lift the burden of sin from a loved one through his repentance and obedience.”
+Hope and healing are not found in the dark abyss of secrecy but in the light and love of our Savior, Jesus Christ.[^11] Elder Richard G. Scott counseled: “If you are free \[from\] serious sin yourself, don’t suffer needlessly the consequences of another’s sins. … You can feel compassion. … Yet you should not take upon yourself a feeling of responsibility. … When you have done what is reasonable to help one you love, lay the burden at the feet of the Savior. … As you so act, not only will you find peace but will demonstrate your faith in the power of the Savior to lift the burden of sin from a loved one through his repentance and obedience.”
 
 He continued: “Complete healing will come through your faith in Jesus Christ and His power and capacity, through His Atonement, to heal the scars of that which is unjust and undeserved.”[^12]
 
 If you find yourself in this situation, sisters, healing may be a long process. It will require that you prayerfully seek guidance and appropriate help, including counseling with properly ordained priesthood holders. As you learn to communicate openly, set appropriate boundaries and perhaps seek professional counseling. Maintaining spiritual health throughout the process is vital! Remember your divine identity: you are a beloved daughter of Heavenly Parents. Trust your Father’s eternal plan for you. Continue daily to increase your understanding of the doctrine of Jesus Christ. Exercise faith each day to drink deeply from the Savior’s well of living water. Rely on the endowment of power made available to each of us through ordinances and covenants. And allow the healing power of the Savior and His Atonement into your life.
 
-**Third, the Master Healer can comfort and sustain us as we experience painful “realities of mortality,” such as disaster, mental illness, disease, chronic pain, and death.** I have recently become acquainted with a remarkable young woman named Josie who suffers from bipolar disorder. Here is just a little of her journey toward healing as she shared it with me:
+**Third, the Master Healer can comfort and sustain us as we experience painful “realities of mortality,”[^13] such as disaster, mental illness, disease, chronic pain, and death.** I have recently become acquainted with a remarkable young woman named Josie who suffers from bipolar disorder. Here is just a little of her journey toward healing as she shared it with me:
 
 “The worst of the darkness occurs on what my family and I have deemed ‘floor days.’ It begins with sensory overload and acute sensitivity and resistance to any type of sound, touch, or light. It is the apex of mental anguish. There is one day in particular that I will never forget.
 
@@ -90,44 +92,42 @@ The Savior pleads:
 
 “Will ye not now return unto me, and repent of your sins, and be converted, that I may heal you?
 
-“… If ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come … will I receive.”[^16]
+“… If ye will come unto me ye shall have eternal life. Behold, mine arm of mercy is extended towards you, and whosoever will come … will I receive.”[^16]
 
 “\[He\] would do anything to take this from you.” In fact, “\[He\] already has.” In the name of Jesus Christ, the Master Healer, amen.
 
 
 
 
-[^1]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 97.
+[^1]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 97.
 
-[^2]: [[2 Nephi 31.17|2 Nephi 31:17, 19–21]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; emphasis added.
+[^2]: [[2 Nephi 31.17|2 Nephi 31:17, 19–21]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; emphasis added.
 
-[^3]: [[1 Nephi 11.36|1 Nephi 11:36]].
+[^3]: [[1 Nephi 11.36|1 Nephi 11:36]].
 
 [^4]: [[Alma 42.8|Alma 42:8]].
 
-[^5]: Dale G. Renlund, “[[2015 April - Latter-day Saints Keep on Trying.md|Latter-day Saints Keep on Trying]],” *Ensign* or *Liahona,* May 2015, 57–58.
+[^5]: Dale G. Renlund, “[[2015 April - Latter-day Saints Keep on Trying.md|Latter-day Saints Keep on Trying]],” *Ensign* or *Liahona,* May 2015, 57–58.
 
 [^6]: [[Helaman 5.12|Helaman 5:12]].
 
-[^7]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^7]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
-[^8]: [[1 Samuel 16.7|1 Samuel 16:7]].
+[^8]: [[1 Samuel 16.7|1 Samuel 16:7]].
 
 [^9]: See [[John 4.5|John 4:5–30, 39–42]][[John 4.6|]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]][[John 4.27|]][[John 4.28|]][[John 4.29|]][[John 4.30|]][[John 4.39|]][[John 4.40|]][[John 4.41|]][[John 4.42|]].
 
 [^10]: [[Alma 34.18|Alma 34:18]].
 
-[^11]: For additional help for individuals, spouses and families, and Church leaders, see [overcomingpornography.org](https://www.overcomingpornography.org) and [mentalhealth.lds.org](https://www.lds.org/mentalhealth?lang=eng).
+[^11]: For additional help for individuals, spouses and families, and Church leaders, see [overcomingpornography.org](https://www.churchofjesuschrist.org/study/life-help/pornography?lang=eng) and [mentalhealth.lds.org](https://www.lds.org/mentalhealth?lang=eng).
 
-[^12]: Richard G. Scott, “[[2002 October - To Be Free of Heavy Burdens.md|To Be Free of Heavy Burdens]],” *Ensign* or *Liahona,* Nov. 2002, 88.
+[^12]: Richard G. Scott, “[[2002 October - To Be Free of Heavy Burdens.md|To Be Free of Heavy Burdens]],” *Ensign* or *Liahona,* Nov. 2002, 88.
 
-[^13]: See Paul B. Pieper, “[Revealed Realities of Mortality](https://churchofjesuschrist.org/study/liahona/2016/01/young-adults/revealed-realities-of-mortality?lang=eng),” *Ensign,* Jan. 2016, 18; *Liahona,* Jan. 2016, 44.
+[^13]: See Paul B. Pieper, “[Revealed Realities of Mortality](https://www.churchofjesuschrist.org/study/liahona/2016/01/young-adults/revealed-realities-of-mortality?lang=eng),” *Ensign,* Jan. 2016, 18; *Liahona,* Jan. 2016, 44.
 
 [^14]: “Lord, I Would Follow Thee,” *Hymns,* no. 220.
 
-[^15]: For more about Josie’s journey toward healing, see Morgan Jones, “Bipolar Disorder Can’t Stop LDS Woman from Spreading Light, Joy through the 444 Project,” *Deseret News,* Mar. 21, 2016, deseretnews.com.
+[^15]: For more about Josie’s journey toward healing, see Morgan Jones, “Bipolar Disorder Can’t Stop LDS Woman from Spreading Light, Joy through the 444 Project,” *Deseret News,* Mar. 21, 2016, deseretnews.com.
 
+[^16]: [[3 Nephi 9.13|3 Nephi 9:13–14]][[3 Nephi 9.14|]].
 
-
-
-#Adversity #Atonement #Faith #Healing #Holy_Ghost #Jesus_Christ #Repentance

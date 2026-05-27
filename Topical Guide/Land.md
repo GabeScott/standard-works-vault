@@ -1,23 +1,22 @@
 # Land
 
-
 *See also* [[Country.md|Country]]; [[Earth.md|Earth]]; [[Ground.md|Ground]]
 
 let the dry *land* appear, [[Genesis 1.9|Genesis 1:9]] ([[Moses 2.9|Moses 2:9]]).
 
 divided in their *lands*; every one after his tongue, [[Genesis 10.5|Genesis 10:5]].
 
-bring them up out of that *land* unto a good *land* ... a *land* flowing with milk and honey, [[Exodus 3.8|Exodus 3:8]].
+bring them up out of that *land* unto a good *land* … a *land* flowing with milk and honey, [[Exodus 3.8|Exodus 3:8]].
 
-east wind ... made the sea dry *land*, [[Exodus 14.21|Exodus 14:21]].
+east wind … made the sea dry *land*, [[Exodus 14.21|Exodus 14:21]].
 
-*land* is defiled ... *land* itself vomiteth, [[Leviticus 18.25|Leviticus 18:25]].
+*land* is defiled … *land* itself vomiteth, [[Leviticus 18.25|Leviticus 18:25]].
 
 seventh year shall be a sabbath of rest unto the *land*, [[Leviticus 25.4|Leviticus 25:4]].
 
 men which Moses sent to spy out the *land*, [[Numbers 13.16|Numbers 13:16]].
 
-blood it defileth the *land* ... *land* cannot be cleansed, [[Numbers 35.33|Numbers 35:33]].
+blood it defileth the *land* … *land* cannot be cleansed, [[Numbers 35.33|Numbers 35:33]].
 
 Israel came over this Jordan on dry *land*, [[Joshua 4.22|Joshua 4:22]].
 

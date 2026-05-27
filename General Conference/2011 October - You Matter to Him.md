@@ -1,6 +1,8 @@
 # You Matter to Him
 
-By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
+Richard G. Scott
+
+By President Dieter F. Uchtdorf - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -40,7 +42,11 @@ The great deceiver knows that one of his most effective tools in leading the chi
 
 Abraham Lincoln is said to have loved a poem that reads:
 
-Oh why should the spirit of mortal be proud?Like a swift-flitting meteor, a fast-flying cloud,A flash of the lightning, a break of the wave,Man passeth from life to his rest in the grave.[^9]
+>Oh why should the spirit of mortal be proud?
+>Like a swift-flitting meteor, a fast-flying cloud,
+>A flash of the lightning, a break of the wave,
+>Man passeth from life to his rest in the grave.[^9]
+>
 
 Disciples of Jesus Christ understand that compared to eternity, our existence in this mortal sphere is only “a small moment” in space and time.[^10] They know that a person’s true value has little to do with what the world holds in high esteem. They know you could pile up the accumulated currency of the entire world and it could not buy a loaf of bread in the economy of heaven.
 
@@ -127,7 +133,7 @@ May we ever believe, trust, and align our lives so that we will understand our t
 
 [^10]: [[D&C 121.7|Doctrine and Covenants 121:7]].
 
-[^11]: [[3 Nephi 11.38|3 Nephi 11:38]].
+[^11]: [[3 Nephi 11.38|3 Nephi 11:38]].
 
 [^12]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -135,7 +141,7 @@ May we ever believe, trust, and align our lives so that we will understand our t
 
 [^14]: [[Mosiah 2.17|Mosiah 2:17]].
 
-[^15]: Dieter F. Uchtdorf graduated first in his class.
+[^15]: Dieter F. Uchtdorf graduated first in his class.
 
 [^16]: See [[Acts 10.38|Acts 10:38]].
 
@@ -145,14 +151,9 @@ May we ever believe, trust, and align our lives so that we will understand our t
 
 [^19]: [[D&C 1.19|Doctrine and Covenants 1:19]].
 
-[^20]: [[1 Corinthians 1.27|1 Corinthians 1:27]].
+[^20]: [[1 Corinthians 1.27|1 Corinthians 1:27]].
 
 [^21]: See [[Hebrews 13.5|Hebrews 13:5]].
 
-[^22]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
+[^22]: [[1 Corinthians 2.9|1 Corinthians 2:9]].
 
-
-
-
-
-#Divine_Nature #Hope #Humility #Individual_Worth

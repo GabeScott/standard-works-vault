@@ -1,5 +1,7 @@
 # Light and Knowledge to the World
 
+N. Eldon Tanner
+
 By Elder Joseph Anderson - *Assistant to the Council of the Twelve*
 
 *Given in the October session of the 1972 General Conference*
@@ -24,7 +26,7 @@ When Jesus was baptized in the River Jordan, as he came up out of the water a vo
 
 At the time of the transfiguration, the voice of the Father was again heard: “This is my beloved Son, in whom I am well pleased; hear ye him.” ([[Matthew 17.5|Matt. 17:5]].)
 
-When the resurrected Christ was introduced by the Father to the Nephites on the Western Hemisphere, the following language was used: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
+When the resurrected Christ was introduced by the Father to the Nephites on the Western Hemisphere, the following language was used: “Behold my Beloved Son, in whom I am well pleased, in whom I have glorified my name—hear ye him.” ([[3 Nephi 11.7|3 Ne. 11:7]].)
 
 Since the Savior’s appearance to the Nephites, there is no scriptural account of the voice of the Father being heard again among men until the Father and the Son appeared unto the boy Joseph in the spring of 1820, at which time, according to Joseph Smith, the Father again bore testimony in the following language: *“This is My Beloved Son. Hear Him!”* ([[Joseph Smith History 1.17|JS—H 1:17]].)
 
@@ -44,7 +46,7 @@ Before the Church was organized April 6, 1830, the Lord gave a revelation throug
 
 Similar advice and counsel was given to others at about the same time through revelation from the Lord.
 
-To Joseph Smith was given the commission and the authorization from heaven to restore to earth the doctrine, organization, and authority of Christ’s church to a people who had lost the fundamentals of true religion. Joseph Smith’s successors have built and are building upon the foundation that Joseph laid through revelation from God in proclaiming its truth to all the world and in preparing a people to meet the Savior when he shall come to reign upon the earth a thousand years in peace and righteousness. Elder Harold B. Lee, whom we have sustained in this conference as a prophet, seer, and revelator and President of this church, is God’s representative, the mouthpiece of the Lord to his people today, a man whom we love, a man whom we can sustain and support with all our hearts.
+To Joseph Smith was given the commission and the authorization from heaven to restore to earth the doctrine, organization, and authority of Christ’s church to a people who had lost the fundamentals of true religion. Joseph Smith’s successors have built and are building upon the foundation that Joseph laid through revelation from God in proclaiming its truth to all the world and in preparing a people to meet the Savior when he shall come to reign upon the earth a thousand years in peace and righteousness. Elder Harold B. Lee, whom we have sustained in this conference as a prophet, seer, and revelator and President of this church, is God’s representative, the mouthpiece of the Lord to his people today, a man whom we love, a man whom we can sustain and support with all our hearts.
 
 The revealed word of God to Joseph, and particularly the words of the Prophet Joel, have been and are being fulfilled relative to the pouring out of the Spirit of the Lord upon all flesh. I quote from our late President Joseph Fielding Smith:
 
@@ -91,8 +93,3 @@ I testify to these truths in the name of the Lord Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Education #Joseph_Smith #Restoration #Spirituality

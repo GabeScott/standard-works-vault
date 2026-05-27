@@ -1,5 +1,7 @@
 # The Home: A Refuge and Sanctuary
 
+Gordon B. Hinckley
+
 By Elder Eran A. Call - *Of the Seventy*
 
 *Given in the October session of the 1997 General Conference*
@@ -65,7 +67,7 @@ May we join with John of old who said, “I have no greater joy than to hear tha
 
 [^1]: See [[D&C 50.22|D&C 50:22]].
 
-[^2]: [[1 Nephi 1.1|1 Ne. 1:1]].
+[^2]: [[1 Nephi 1.1|1 Ne. 1:1]].
 
 [^3]: Barbara Dafoe Whitehead, “Dan Quayle Was Right,” *Atlantic Monthly,* Apr. 1993, 47.
 
@@ -81,16 +83,11 @@ May we join with John of old who said, “I have no greater joy than to hear tha
 
 [^9]: [[Moses 6.58|Moses 6:58]].
 
-[^10]: See [[1 Nephi 8.37|1 Ne. 8:37]].
+[^10]: See [[1 Nephi 8.37|1 Ne. 8:37]].
 
-[^11]: In Conference Report, Apr. 1973, 130.
+[^11]: In Conference Report, Apr. 1973, [[1973 April - Follow the Leadership of the Church.md|130]].
 
 [^12]: Quoting J. E. McCulloch, *Home: The Savior of Civilization* (1924), 42; in Conference Report, Apr. 1964, 5.
 
-[^13]: [[3 John 1.4|3 Jn. 1:4]].
+[^13]: [[3 John 1.4|3 Jn. 1:4]].
 
-
-
-
-
-#Children #Family #Home #Parenthood #Safety

@@ -1,11 +1,10 @@
 # Beginning
 
-
-*See also* [[Creation, Create.md|Creation]]; [[First.md|First]]
+*See also* [[Creation.md|Creation]]; [[First.md|First]]
 
 In the *beginning* God created, [[Genesis 1.1|Genesis 1:1]] ([[Moses 2.1|Moses 2:1]]; [[D&C 112.25|D&C 112:25]]).
 
-This month shall be ... the *beginning* of months, [[Exodus 12.2|Exodus 12:2]].
+This month shall be … the *beginning* of months, [[Exodus 12.2|Exodus 12:2]].
 
 fear of the Lord is the *beginning* of knowledge, [[Proverbs 1.7|Proverbs 1:7]].
 
@@ -25,7 +24,7 @@ Jesus knew from the *beginning* who they were, [[John 6.64|John 6:64]].
 
 because ye have been with me from the *beginning*, [[John 15.27|John 15:27]].
 
-he ... is the *beginning*, the firstborn from the dead, [[Colossians 1.18|Colossians 1:18]].
+he … is the *beginning*, the firstborn from the dead, [[Colossians 1.18|Colossians 1:18]].
 
 God hath from the *beginning* chosen you to salvation, [[2 Thessalonians 2.13|2 Thessalonians 2:13]].
 
@@ -37,9 +36,9 @@ That which was from the *beginning*, [[1 John 1.1|1 John 1:1]] ([[1 John 2.24|1 
 
 as ye have heard from the *beginning*, ye should walk in it, [[2 John 1.6|2 John 1:6]].
 
-I am ... the *beginning* and the ending, [[Revelation 1.8|Revelation 1:8]] ([[Revelation 21.6|Revelation 21:6]]; [[Revelation 22.13|Revelation 22:13]]).
+I am … the *beginning* and the ending, [[Revelation 1.8|Revelation 1:8]] ([[Revelation 21.6|Revelation 21:6]]; [[Revelation 22.13|Revelation 22:13]]).
 
-Amen ... the *beginning* of the creation of God, [[Revelation 3.14|Revelation 3:14]].
+Amen … the *beginning* of the creation of God, [[Revelation 3.14|Revelation 3:14]].
 
 *beginning* and the end, the first and the last, [[Revelation 22.13|Revelation 22:13]].
 
@@ -49,10 +48,10 @@ my works have no end, neither *beginning*, [[D&C 29.33|D&C 29:33]].
 
 Alpha and Omega, the *beginning* and the end, [[D&C 38.1|D&C 38:1]].
 
-Son, who was in the bosom of the Father ... from the *beginning*, [[D&C 76.13|D&C 76:13]].
+Son, who was in the bosom of the Father … from the *beginning*, [[D&C 76.13|D&C 76:13]].
 
 without *beginning* of days or end of years, [[D&C 84.17|D&C 84:17]].
 
-Man was ... in the *beginning* with God, [[D&C 93.29|D&C 93:29]].
+Man was … in the *beginning* with God, [[D&C 93.29|D&C 93:29]].
 
-mine Only Begotten ... was with me from the *beginning*, [[Moses 2.26|Moses 2:26]].
+mine Only Begotten … was with me from the *beginning*, [[Moses 2.26|Moses 2:26]].

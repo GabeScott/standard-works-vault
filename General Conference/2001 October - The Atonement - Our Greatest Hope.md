@@ -1,5 +1,7 @@
 # The Atonement: Our Greatest Hope
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 2001 General Conference*
@@ -32,9 +34,9 @@ Some years ago, President Gordon B. Hinckley told “something of a parable” a
 
 President Hinckley then quoted Isaiah:
 
-“Surely he hath borne our griefs, and carried our sorrows. …
+“Surely he hath borne our griefs, and carried our sorrows. …
 
-“… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.”[^9]
+“… He was wounded for our transgressions, he was bruised for our iniquities: the chastisement of our peace was upon him; and with his stripes we are healed.”[^9]
 
 No man knows the full weight of what our Savior bore, but by the power of the Holy Ghost we can know something of the supernal gift He gave us.[^10] In the words of our sacrament hymn:
 
@@ -54,7 +56,7 @@ The Atonement and the Resurrection accomplish many things. The Atonement cleanse
 
 With reference to our mortal acts and the Atonement, President J. Reuben Clark Jr. contributed this valuable insight when he said:
 
-“I feel that \[the Savior\] will give that punishment which is the very least that our transgression will justify. I believe that he will bring into his justice all of the infinite love and blessing and mercy and kindness and understanding which he has. …
+“I feel that \[the Savior\] will give that punishment which is the very least that our transgression will justify. I believe that he will bring into his justice all of the infinite love and blessing and mercy and kindness and understanding which he has. …
 
 “And on the other hand, I believe that when it comes to making the rewards for our good conduct, he will give us the maximum that it is possible to give, having in mind the offense which we have committed.”[^30]
 
@@ -66,7 +68,7 @@ Our Redeemer took upon Himself all the sins, pains, infirmities, and sicknesses 
 
 The Atonement not only benefits the sinner but also benefits those sinned against—that is, the victims. By our forgiving “those who trespass against us” (JST, Matt. 6:13 \[The Holy Scriptures: Inspired Version\]), the Atonement brings a measure of peace and comfort to those who have been innocently victimized by the sins of others. The basic source for the healing of the soul is the Atonement of Jesus Christ. This is true whether it be from the pain of a personal tragedy or a terrible national calamity such as we have recently experienced in New York and Washington, D.C., and near Pittsburgh.
 
-A sister who had been through a painful divorce wrote of her experience in drawing from the Atonement. She said: “Our divorce … did not release me from the obligation to forgive. I truly wanted to do it, but it was as if I had been commanded to do something of which I was simply incapable.” Her bishop gave her some sound advice: “Keep a place in your heart for forgiveness, and when it comes, welcome it in.” Many months passed as this struggle to forgive continued. She recalled: “During those long, prayerful moments … I tapped into a life-giving source of comfort from my loving Heavenly Father. I sense that he was not standing by glaring at me for not having accomplished forgiveness yet; rather he was sorrowing with me as I wept. …
+A sister who had been through a painful divorce wrote of her experience in drawing from the Atonement. She said: “Our divorce … did not release me from the obligation to forgive. I truly wanted to do it, but it was as if I had been commanded to do something of which I was simply incapable.” Her bishop gave her some sound advice: “Keep a place in your heart for forgiveness, and when it comes, welcome it in.” Many months passed as this struggle to forgive continued. She recalled: “During those long, prayerful moments … I tapped into a life-giving source of comfort from my loving Heavenly Father. I sense that he was not standing by glaring at me for not having accomplished forgiveness yet; rather he was sorrowing with me as I wept. …
 
 “In the final analysis, what happened in my heart is for me an amazing and miraculous evidence of the Atonement of Christ. I had always viewed the Atonement as a means of making repentance work for the sinner. I had not realized that it also makes it possible for the one sinned against to receive into his or her heart the sweet peace of forgiving.”[^33]
 
@@ -83,21 +85,21 @@ The evil influence of Satan would destroy any hope we have in overcoming our mis
 
 [^2]: See [[Moroni 10.32|Moro. 10:32]].
 
-[^3]: See [[2 Nephi 25.23|2 Ne. 25:23]].
+[^3]: See [[2 Nephi 25.23|2 Ne. 25:23]].
 
-[^4]: [[1 Corinthians 15.22|1 Cor. 15:22]].
+[^4]: [[1 Corinthians 15.22|1 Cor. 15:22]].
 
-[^5]: See Bible Dictionary, “Atonement,” 617.
+[^5]: See Bible Dictionary, “[[BD Atonement|Atonement]],” 617.
 
 [^6]: See [[Jacob 4.12|Jacob 4:12]].
 
-[^7]: [[2 Nephi 25.23|2 Ne. 25:23]]; emphasis added.
+[^7]: [[2 Nephi 25.23|2 Ne. 25:23]]; emphasis added.
 
 [^8]: “Pres. Hinckley: Christmas a Result of Redeeming Christ,” *Church News,* 10 Dec. 1994, 4.
 
 [^9]: [[Isaiah 53.4|Isa. 53:4–5]][[Isaiah 53.5|]].
 
-[^10]: See [[1 Corinthians 12.3|1 Cor. 12:3]].
+[^10]: See [[1 Corinthians 12.3|1 Cor. 12:3]].
 
 [^11]: “There Is a Green Hill Far Away,” *Hymns,* no. 194.
 
@@ -129,7 +131,7 @@ The evil influence of Satan would destroy any hope we have in overcoming our mis
 
 [^25]: See [[Alma 42.22|Alma 42:22–25]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]].
 
-[^26]: See [[2 Nephi 25.23|2 Ne. 25:23]]; [[Alma 34.15|Alma 34:15–16]][[Alma 34.16|]]; [[Alma 42.22|42:22–24]][[Alma 42.23|]][[Alma 42.24|]]; [[Moroni 10.32|Moro. 10:32–33]][[Moroni 10.33|]].
+[^26]: See [[2 Nephi 25.23|2 Ne. 25:23]]; [[Alma 34.15|Alma 34:15–16]][[Alma 34.16|]]; [[Alma 42.22|42:22–24]][[Alma 42.23|]][[Alma 42.24|]]; [[Moroni 10.32|Moro. 10:32–33]][[Moroni 10.33|]].
 
 [^27]: [[John 11.25|John 11:25]].
 
@@ -137,7 +139,7 @@ The evil influence of Satan would destroy any hope we have in overcoming our mis
 
 [^29]: *The Gospel Kingdom,* sel. G. Homer Durham (1943), 118; see also [[John 5.28|John 5:28–29]][[John 5.29|]].
 
-[^30]: *“As Ye Sow … ,”* Brigham Young University Speeches of the Year (3 May 1955), 7.
+[^30]: *“As Ye Sow … ,”* Brigham Young University Speeches of the Year (3 May 1955), 7.
 
 [^31]: [[Isaiah 55.7|Isa. 55:7]].
 
@@ -151,8 +153,3 @@ The evil influence of Satan would destroy any hope we have in overcoming our mis
 
 [^36]: See [[Alma 26.15|Alma 26:15]]; [[Mormon 5.11|Morm. 5:11]]; [[Mormon 6.17|6:17]]; [[Moses 7.63|Moses 7:63]].
 
-
-
-
-
-#Atonement #Forgiveness #Grace #Holy_Ghost #Jesus_Christ #Love #Mercy #Peace #Plan_Of_Salvation #Repentance #Resurrection #Sacrament #Satan

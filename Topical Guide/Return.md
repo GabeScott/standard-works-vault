@@ -1,7 +1,6 @@
 # Return
 
-
-*See also* [[Israel, Gathering of.md|Israel, Gathering of]]; [[Israel, Restoration of.md|Israel, Restoration of]]; [[Lands of Inheritance.md|Lands of Inheritance]]; [[Repent, Repentance.md|Repent]]; [[Turn.md|Turn]]
+*See also* [[Israel, Gathering of.md|Israel, Gathering of]]; [[Israel, Restoration of.md|Israel, Restoration of]]; [[Lands of Inheritance.md|Lands of Inheritance]]; [[Repent.md|Repent]]; [[Turn.md|Turn]]
 
 unto dust shalt thou *return*, [[Genesis 3.19|Genesis 3:19]] ([[Moses 4.25|Moses 4:25]]).
 
@@ -39,7 +38,7 @@ dog *returneth* to his vomit, so a fool *returneth* to his folly, [[Proverbs 26.
 
 naked shall he *return* to go as he came, [[Ecclesiastes 5.15|Ecclesiastes 5:15]].
 
-dust *return* to the earth ... spirit shall *return* unto God, [[Ecclesiastes 12.7|Ecclesiastes 12:7]].
+dust *return* to the earth … spirit shall *return* unto God, [[Ecclesiastes 12.7|Ecclesiastes 12:7]].
 
 in it shall be a tenth, and it shall *return*, [[Isaiah 6.13|Isaiah 6:13]] ([[2 Nephi 16.13|2 Nephi 16:13]]).
 
@@ -61,7 +60,7 @@ If thou *return*, then will I bring thee again, [[Jeremiah 15.19|Jeremiah 15:19]
 
 they shall *return* unto me, [[Jeremiah 24.7|Jeremiah 24:7]].
 
-after seventy years ... *return* to this place, [[Jeremiah 29.10|Jeremiah 29:10]].
+after seventy years … *return* to this place, [[Jeremiah 29.10|Jeremiah 29:10]].
 
 I will cause them to *return* to the land, [[Jeremiah 30.3|Jeremiah 30:3]].
 
@@ -83,7 +82,7 @@ seventy *returned* again with joy, [[Luke 10.17|Luke 10:17]].
 
 not found that *returned* to give glory to God, [[Luke 17.18|Luke 17:18]].
 
-ye ... are now *returned* unto the Shepherd, [[1 Peter 2.25|1 Peter 2:25]].
+ye … are now *returned* unto the Shepherd, [[1 Peter 2.25|1 Peter 2:25]].
 
 they should *return* again, yea, even be brought back, [[1 Nephi 10.3|1 Nephi 10:3]].
 

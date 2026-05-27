@@ -1,6 +1,8 @@
 # Wanted: Hands and Hearts to Hasten the Work
 
-By Linda K. Burton - *Relief Society General President*
+Thomas S. Monson
+
+By Linda K. Burton - *Relief Society General President*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -28,7 +30,7 @@ Now, sisters, let’s not start beating ourselves up because the Savior spoke to
 
 Like the rich young man in Jesus’s day, sometimes we are tempted to give up or turn back because maybe we think we can’t do it alone. And we are right! We cannot do the difficult things we have been asked to do without help. Help comes through the Atonement of Jesus Christ, the guidance of the Holy Ghost, and the helping hands of others.
 
-A faithful single sister recently testified that through the Atonement, she found strength to use her helping hands and willing heart to raise the four children her sister had left behind when she died of cancer. That reminded me of something Elder Neal A. Maxwell said: “All the easy things that the Church has had to do have been done. From now on, it’s high adventure, and followership is going to be tested in some interesting ways.”[^6] You have been sent to earth in this dispensation of time because of who you are and what you have been prepared to do! Regardless of what Satan would try to persuade us to think about who we are, our true identity is that of a disciple of Jesus Christ!
+A faithful single sister recently testified that through the Atonement, she found strength to use her helping hands and willing heart to raise the four children her sister had left behind when she died of cancer. That reminded me of something Elder Neal A. Maxwell said: “All the easy things that the Church has had to do have been done. From now on, it’s high adventure, and followership is going to be tested in some interesting ways.”[^6] You have been sent to earth in this dispensation of time because of who you are and what you have been prepared to do! Regardless of what Satan would try to persuade us to think about who we are, our true identity is that of a disciple of Jesus Christ!
 
 Mormon was a true disciple who lived in a day when “every heart was hardened, … and there never had been so great wickedness among all the children of Lehi.”[^7] How would you like to have lived in that day? And yet Mormon boldly declared, “Behold, I am a disciple of Jesus Christ, the Son of God.”[^8]
 
@@ -36,7 +38,7 @@ Don’t you love Mormon? He knew who he was and what his mission was and was not
 
 Think what a blessing it is to be called to give our gift of daily discipleship to the Lord, declaring in word and deed, “Behold, I am a disciple of Jesus Christ!”
 
-I love the story President Boyd K. Packer told of a dear sister who was ridiculed for following the prophet’s counsel to store food. The one who criticized suggested that if times became desperate, her leaders would ask her to share her food storage with others. Her simple and resolute response as a true disciple was, “At least I will have something to bring.”[^10]
+I love the story President Boyd K. Packer told of a dear sister who was ridiculed for following the prophet’s counsel to store food. The one who criticized suggested that if times became desperate, her leaders would ask her to share her food storage with others. Her simple and resolute response as a true disciple was, “At least I will have something to bring.”[^10]
 
 I love the women of the Church, young and old. I have seen your strength. I have seen your faith. You have something to give and are willing to give it. You do this without fanfare or publicity, drawing attention to the God we worship, not yourselves, and with no thought of what you will receive.[^11] That’s what disciples do!
 
@@ -68,7 +70,7 @@ Mormon Helping Hands vests and shirts have been worn by hundreds of thousands of
 
 - Help wanted: true disciples of the Lord Jesus Christ
 
-Years ago, Elder M. Russell Ballard issued a clarion call to the sisters of the Church when he said:
+Years ago, Elder M. Russell Ballard issued a clarion call to the sisters of the Church when he said:
 
 “Between now and the day the Lord comes again, He needs women in every family, in every ward, in every community, in every nation who will step forward in righteousness and say by their words and their actions, ‘Here am I, send me.’
 
@@ -91,32 +93,27 @@ As true disciples, may we offer our willing hearts and our helping hands to hast
 
 [^2]: [[John 7.17|John 7:17]].
 
-[^3]: “I Am a Child of God,” *Hymns,* no. 301; or *Children’s Songbook,* 2–3.
+[^3]: “I Am a Child of God,” *Hymns,* no. 301; or *Children’s Songbook,* 2–3.
 
 [^4]: See [[Matthew 19.16|Matthew 19:16–22]][[Matthew 19.17|]][[Matthew 19.18|]][[Matthew 19.19|]][[Matthew 19.20|]][[Matthew 19.21|]][[Matthew 19.22|]].
 
 [^5]: [[D&C 25.10|Doctrine and Covenants 25:10, 13]][[D&C 25.13|]].
 
-[^6]: Neal A. Maxwell, “The Old Testament: Relevancy within Antiquity” (address to Church Educational System religious educators, Aug. 16, 1979), 4; [si.lds.org](https://www.churchofjesuschrist.org/church-education).
+[^6]: Neal A. Maxwell, “The Old Testament: Relevancy within Antiquity” (address to Church Educational System religious educators, Aug. 16, 1979), 4; [si.lds.org](https://www.churchofjesuschrist.org/church-education).
 
 [^7]: [[Mormon 4.11|Mormon 4:11–12]][[Mormon 4.12|]].
 
-[^8]: [[3 Nephi 5.13|3 Nephi 5:13]].
+[^8]: [[3 Nephi 5.13|3 Nephi 5:13]].
 
 [^9]: See [[Moroni 7.2|Moroni 7:2]].
 
-[^10]: In Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 111.
+[^10]: In Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 111.
 
-[^11]: See [[2 Nephi 26.29|2 Nephi 26:29–30]][[2 Nephi 26.30|]].
+[^11]: See [[2 Nephi 26.29|2 Nephi 26:29–30]][[2 Nephi 26.30|]].
 
 [^12]: “Love Is Spoken Here,” *Children’s Songbook,* 190–91.
 
-[^13]: M. Russell Ballard, “Women of Righteousness,” *Ensign,* Apr. 2002, 70; *Liahona,* Dec. 2002, 39.
+[^13]: M. Russell Ballard, “Women of Righteousness,” *Ensign,* Apr. 2002, 70; *Liahona,* Dec. 2002, 39.
 
 [^14]: “Holding Hands around the World,” *Friend,* July 2002, 44–45; *Liahona,* Oct. 2003, F12–13.
 
-
-
-
-
-#Discipleship #Service

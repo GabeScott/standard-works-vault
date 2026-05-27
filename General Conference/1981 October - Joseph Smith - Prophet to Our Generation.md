@@ -1,5 +1,7 @@
 # Joseph Smith: Prophet to Our Generation
 
+Gordon B. Hinckley
+
 By President Ezra Taft Benson - *President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
@@ -62,9 +64,9 @@ As every schoolboy knows, the Civil War began with the secession of South Caroli
 
 The desire of the Prophet Joseph Smith was to save the Union from that bloody conflict. He recognized the iniquity of slavery and urged Congress to abolish it and to pay the slaveholders from the sale of public lands. The message went unheeded, and nearly one-half million souls died in the Civil War.
 
-In another prophecy, one of the most remarkable pronounced on the head of one man, Joseph Smith said to a young judge named Stephen A. Douglas, in the presence of several others: “Judge, you will aspire to the presidency of the United States; and if ever you turn your hand against me or the Latter-day Saints, you will feel the weight of the hand of Almighty upon you; and you will live to see and know that I have testified the truth to you; for the conversation of this day will stick to you through life.” (*History of the Church,* 5:394.)
+In another prophecy, one of the most remarkable pronounced on the head of one man, Joseph Smith said to a young judge named Stephen A. Douglas, in the presence of several others: “Judge, you will aspire to the presidency of the United States; and if ever you turn your hand against me or the Latter-day Saints, you will feel the weight of the hand of Almighty upon you; and you will live to see and know that I have testified the truth to you; for the conversation of this day will stick to you through life.” (*History of the Church,* 5:394.)
 
-Stephen A. Douglas did aspire to the presidency of the United States. He did have opportunity to defend the Church. But in a political speech in 1857, he viciously attacked the Church as “a loathsome, disgusting ulcer in the body politic” and recommended that Congress cut it out.
+Stephen A. Douglas did aspire to the presidency of the United States. He did have opportunity to defend the Church. But in a political speech in 1857, he viciously attacked the Church as “a loathsome, disgusting ulcer in the body politic” and recommended that Congress cut it out.
 
 Some have asserted that no one had better prospects for the presidency than did Douglas, but when the results of the election were tallied, he received only twelve electoral votes. The election victory went to an obscure backwoodsman by the name of Abraham Lincoln.
 
@@ -90,13 +92,13 @@ Today there are about thirty thousand missionaries laboring in seventy-one natio
 
 Joseph Smith and his successors have stressed education for all Church members. That emphasis has produced some remarkable results. Dr. Clark Kerr, chairman of the Carnegie Council in Policy Studies in Higher Education, noted:
 
-“Utah is the leadership state in education in the nation, and thus in the world. …
+“Utah is the leadership state in education in the nation, and thus in the world. …
 
 “Utah stands first in the percentage of total population age 3 to 34 enrolled in school.
 
-“Utah stands first in the percentage of the total population enrolled in school at every age level except ages 16–17. …
+“Utah stands first in the percentage of the total population enrolled in school at every age level except ages 16–17. …
 
-“Utah stands first in the average years of school completed for all of its citizens age 25 and older. …
+“Utah stands first in the average years of school completed for all of its citizens age 25 and older. …
 
 “Utah, overall, has been … a model for educational development, a rich source for leadership.” (“New Areas for Leadership,” *1974 University of Utah Commencement Address,* Salt Lake City: University of Utah, 1974, pp. 2–4.)
 
@@ -129,8 +131,3 @@ As God lives, I know these things are true and bear this witness to you, in the 
 
 
 
-
-
-
-
-#Joseph_Smith #Restoration

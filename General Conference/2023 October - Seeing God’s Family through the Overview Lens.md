@@ -1,6 +1,8 @@
 # Seeing God’s Family through the Overview Lens
 
-By Sister Tamara W. Runia - *First Counselor in the Young Women General Presidency*
+David A. Bednar
+
+By Sister Tamara W. Runia - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -36,7 +38,7 @@ Dad exemplified Lehi’s dream. Like Lehi, he knew that you don’t chase after 
 
 This visual image has helped me during low moments when I find myself at the tree, eating the fruit and crying because I’m worried; and really, how helpful is that? Instead, let’s choose hope—hope in our Creator and in one another, fueling our ability to be better than we are right now.
 
-Shortly after Elder Neal A. Maxwell passed away, a reporter asked his son what he’d miss most. He said dinners at his parents’ house because he always left feeling like his dad believed in him.
+Shortly after Elder Neal A. Maxwell passed away, a reporter asked his son what he’d miss most. He said dinners at his parents’ house because he always left feeling like his dad believed in him.
 
 This was around the time our adult children were starting to come home for Sunday dinners with their spouses. During the week, I found myself making lists in my mind of things I could remind them of on Sunday, like “Maybe try and help out more with the kids when you’re home” or “Don’t forget to be a good listener.”
 
@@ -101,11 +103,11 @@ I bear my testimony that this—all of this—is going to turn out so much bette
 
 [^2]: [[Ether 12.19|Ether 12:19]]; emphasis added.
 
-[^3]: See Jody Moore, “How to Say Hard Things,” *Better Than Happy* (podcast), Sept. 18, 2020, episode 270.
+[^3]: See Jody Moore, “How to Say Hard Things,” *Better Than Happy* (podcast), Sept. 18, 2020, episode 270.
 
-[^4]: Ronald E. Bartholomew, used with permission; see also [[1 Nephi 8.10|1 Nephi 8:10]]; [[1 Nephi 11.21|11:21–22]][[1 Nephi 11.22|]].
+[^4]: Ronald E. Bartholomew, used with permission; see also [[1 Nephi 8.10|1 Nephi 8:10]]; [[1 Nephi 11.21|11:21–22]][[1 Nephi 11.22|]].
 
-[^5]: See James D. MacArthur, “The Functional Family,” *Marriage and Families*, vol. 16 (2005), 14.
+[^5]: See James D. MacArthur, “The Functional Family,” *Marriage and Families*, vol. 16 (2005), 14.
 
 [^6]: Made possible as we “pray unto the Father with all the energy of heart, that \[we\] may be filled with this love” ([[Moroni 7.48|Moroni 7:48]]).
 
@@ -119,24 +121,19 @@ I bear my testimony that this—all of this—is going to turn out so much bette
 
 [^11]: See Robert Frost, “Birches,” in *Mountain Interval* (1916), 39.
 
-[^12]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 81–84; see also Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
+[^12]: See Russell M. Nelson, “[[2016 October - Joy and Spiritual Survival.md|Joy and Spiritual Survival]],” *Ensign* or *Liahona*, Nov. 2016, 81–84; see also Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 92–95.
 
 [^13]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
 [^14]: [[D&C 98.3|Doctrine and Covenants 98:3]]; emphasis added.
 
-[^15]: Wayne E. Brickey, *Inviting Him In: How the Atonement Can Change Your Family* (2003), 144.
+[^15]: Wayne E. Brickey, *Inviting Him In: How the Atonement Can Change Your Family* (2003), 144.
 
-[^16]: See Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
+[^16]: See Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
 
-[^17]: *Teachings of Presidents of the Church: Harold B. Lee* (2000), 134.
+[^17]: *[Teachings of Presidents of the Church: Harold B. Lee](https://www.churchofjesuschrist.org/study/manual/teachings-harold-b-lee/chapter-14?lang=eng)* (2000), 134.
 
-[^18]: See Paul E. Koelliker, “[[2012 April - He Truly Loves Us.md|He Truly Loves Us]],” *Ensign* or *Liahona*, May 2012, 18.
+[^18]: See Paul E. Koelliker, “[[2012 April - He Truly Loves Us.md|He Truly Loves Us]],” *Ensign* or *Liahona*, May 2012, 18.
 
 [^19]: [[Revelation 22.16|Revelation 22:16]].
 
-
-
-
-
-#Faith #Family #Hope #Love #Perspective

@@ -1,5 +1,7 @@
 # Now Is the Time
 
+Gordon B. Hinckley
+
 By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2000 General Conference*
@@ -49,8 +51,3 @@ Lucifer is unleashing vulgar, revolting, violent, and sleazy filth with the desi
 
 
 
-
-
-
-
-#Councils #Duty #Family #Friendship #Holy_Ghost #Jesus_Christ #Joy #Missionary_Work #Prayer #Reverence #Service #Teaching #Testimony #Truth #Women

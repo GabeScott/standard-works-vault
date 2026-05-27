@@ -1,6 +1,8 @@
 # “Thou Shalt Not Commit Adultery”
 
-By President Milton R. Hunter - *Of the First Council of the Seventy*
+Joseph Fielding Smith
+
+By President Milton R. Hunter - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -10,7 +12,7 @@ We still hear the voice of Jehovah as it thundered down from Mount Sinai, comman
 
 Many people throughout the Church and, generally speaking, throughout the world have now abandoned the anciently cherished Hebraic-Christian moral standard of chastity. Frequently married people commit adultery and single people indulge their passions in acts of fornication. The results are unhappiness, the loss of love, breaking up of homes and destroying of family life, increase in the number of divorces, shame, loss of spirituality, apostasy, and eventually loss of eternal salvation.
 
-Let us cite only a few of the numerous cases that have come to my personal attention recently. A few months ago a mother of five children came to my office. She wept bitterly as she told me that her husband had spent most of his time during the past year with another man’s wife. She explained that on a number of occasions she followed him in her car to the other woman’s place. Naturally, the sinful husband was miserable, the wife was very sorrowful, and the children were brokenhearted. “… wickedness never was happiness.” ([[Alma 41.10|Alma 41:10]].)
+Let us cite only a few of the numerous cases that have come to my personal attention recently. A few months ago a mother of five children came to my office. She wept bitterly as she told me that her husband had spent most of his time during the past year with another man’s wife. She explained that on a number of occasions she followed him in her car to the other woman’s place. Naturally, the sinful husband was miserable, the wife was very sorrowful, and the children were brokenhearted. “… wickedness never was happiness.” ([[Alma 41.10|Alma 41:10]].)
 
 About a year ago a young man came to my office and wept as if his heart would break. He said, “I committed adultery about two years ago. The sin is causing me such mental anguish that I cannot bear it any longer. If I must be excommunicated, please have the Church take action soon. My suffering is beyond description. I want to do what I can to pay for that terrible sin.”
 
@@ -24,7 +26,7 @@ On May 17, 1970, certain newspapers reported that several prominent Christian mi
 
 “We recognize that there may be exceptional circumstances where extra-marital activity may not be contrary to the interests of a faithful concern for the well-being of the marriage partner.
 
-“… the difficult decision must be made ‘by and on the responsibility of the person taking the exception.’ But a principal point is that the final judge is not the Bible or the church or even God—it is the individual and his or her conscience.” (Will Oursler, “Religious Storm Center: New Sex Code,” *Parade,* May 17, 1970, p. 28.)
+“… the difficult decision must be made ‘by and on the responsibility of the person taking the exception.’ But a principal point is that the final judge is not the Bible or the church or even God—it is the individual and his or her conscience.” (Will Oursler, “Religious Storm Center: New Sex Code,” *Parade,* May 17, 1970, p. 28.)
 
 The new permissiveness, or new morality, as it is often called, is nothing more than ancient immorality dressed in new clothing. In ancient times, the people worshiped fertility gods and goddesses. Many of their ceremonies were centered in gross immorality against which Israel’s prophets denounced continuously.
 
@@ -34,17 +36,17 @@ The Bible contains excellent examples of men who otherwise would have been great
 
 David, whom the Lord loved and who is regarded by many people as Israel’s greatest king, spent the latter part of his life in brokenhearted sorrow over his sin against Uriah and his adultery with Bathsheba. His deep feelings were expressed in one of the most pitiful prayers in the holy scriptures:
 
-“Have mercy upon me, O God, according to thy loving kindness: …
+“Have mercy upon me, O God, according to thy loving kindness: …
 
 “Wash me thoroughly from mine iniquity, and cleanse me from my sin.
 
 “For I acknowledge my transgressions: and my sin is ever before me.” ([[Psalms 51.1|Ps. 51:1–3]][[Psalms 51.2|]][[Psalms 51.3|]].)
 
-Having an understanding of the plan of salvation and a thorough knowledge of the seriousness of the gross sins of adultery and murder which he had committed, King David in anguish cried out unto the Lord: “… thou wilt not leave my soul in hell.” ([[Psalms 16.10|Ps. 16:10]].)
+Having an understanding of the plan of salvation and a thorough knowledge of the seriousness of the gross sins of adultery and murder which he had committed, King David in anguish cried out unto the Lord: “… thou wilt not leave my soul in hell.” ([[Psalms 16.10|Ps. 16:10]].)
 
 More than two thousand years after King David’s death and only 127 years ago, Jesus Christ spoke from heaven and informed us that because of David’s sin against him in the case of Uriah and his wife, David “hath fallen from his exaltation” and his wives have been given to another. ([[D&C 132.39|D&C 132:39]].)
 
-Perhaps the most famous Bible example of a stalwart and noble man who was tempted but retained his chastity was Joseph, the young, handsome servant of Potiphar, the Egyptian ruler. He resisted the vile allurements of Potiphar’s wife, refusing to commit adultery with her. Joseph’s reply was: “… how … can I do this great wickedness, and sin against God? …” ([[Genesis 39.9|Gen. 39:9, 12]][[Genesis 39.12|]].) And then he fled from her presence.
+Perhaps the most famous Bible example of a stalwart and noble man who was tempted but retained his chastity was Joseph, the young, handsome servant of Potiphar, the Egyptian ruler. He resisted the vile allurements of Potiphar’s wife, refusing to commit adultery with her. Joseph’s reply was: “… how … can I do this great wickedness, and sin against God? …” ([[Genesis 39.9|Gen. 39:9, 12]][[Genesis 39.12|]].) And then he fled from her presence.
 
 Rather than betray his ideals, he went to jail, where he was confined in a dungeon for several years.
 
@@ -80,15 +82,15 @@ For example, to the people of his church, through the Prophet Joseph Smith, Jesu
 
 Joseph Smith and Sidney Rigdon were shown the fate of adulterers after death in the world to come in telestial glory. The Lord told them:
 
-“These are they who are liars, and sorcerers, and adulterers, and whoremongers. …
+“These are they who are liars, and sorcerers, and adulterers, and whoremongers. …
 
-“These are they who are cast down to hell to suffer the wrath of the Almighty God. …” ([[D&C 76.103|D&C 76:103, 106]][[D&C 76.106|]].)
+“These are they who are cast down to hell to suffer the wrath of the Almighty God. …” ([[D&C 76.103|D&C 76:103, 106]][[D&C 76.106|]].)
 
 The Lord commanded the priesthood holders in our dispensation as follows:
 
-“… let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
+“… let virtue garnish thy thoughts unceasingly; then shall thy confidence wax strong in the presence of God; and the doctrine of the priesthood shall distil upon thy soul as the dews from heaven.
 
-“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth. …” ([[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]].)
+“The Holy Ghost shall be thy constant companion, and thy scepter an unchanging scepter of righteousness and truth. …” ([[D&C 121.45|D&C 121:45–46]][[D&C 121.46|]].)
 
 May we think clean thoughts and refrain from all impure actions, living by every word that proceedeth forth from the mouth of God. Then shall we have joy in this life and prepare to come back into the presence of the Lord to be crowned with glory and eternal life.
 
@@ -97,8 +99,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Marriage #Morality

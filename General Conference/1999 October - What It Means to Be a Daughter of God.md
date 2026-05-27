@@ -1,5 +1,7 @@
 # What It Means to Be a Daughter of God
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1999 General Conference*
@@ -123,7 +125,7 @@ My beloved sisters, I pray that the divine gifts in each of you may fully flower
 
 [^12]: [[Moses 5.11|Moses 5:11]].
 
-[^13]: [[2 Nephi 2.24|2 Ne. 2:24–25]][[2 Nephi 2.25|]].
+[^13]: [[2 Nephi 2.24|2 Ne. 2:24–25]][[2 Nephi 2.25|]].
 
 [^14]: [[D&C 138.39|D&C 138:39]].
 
@@ -131,7 +133,5 @@ My beloved sisters, I pray that the divine gifts in each of you may fully flower
 
 [^16]: “The Glorious Moments,” Sipuao Matuauto, *Ensign,* Aug. 1974, 64.
 
+[^17]: [[D&C 25.1|D&C 25:1]].
 
-
-
-#Adam_And_Eve #Divine_Nature #Education #God_The_Father #Individual_Worth #Plan_Of_Salvation #Relief_Society #Temple_Work #Women

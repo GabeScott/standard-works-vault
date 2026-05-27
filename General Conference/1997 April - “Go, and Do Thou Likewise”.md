@@ -1,5 +1,7 @@
 # “Go, and Do Thou Likewise”
 
+Gordon B. Hinckley
+
 By Bishop H. David Burton - *Presiding Bishop*
 
 *Given in the April session of the 1997 General Conference*
@@ -18,7 +20,7 @@ Having failed to confound the Master, the lawyer was embarrassed. He sought just
 
 You remember the setting: “A certain man went down from Jerusalem to Jericho, and fell among thieves, which stripped him of his raiment, and wounded him, … leaving him half dead” ([[Luke 10.30|Luke 10:30]]). Since our Primary days, we have heard about this certain man. We wonder at the failure of the priest and the Levite to render aid, and we say: “Surely, I would have helped. Surely, I would have stopped. Surely, I would not have looked the other way.”
 
-The parable continues: “But a certain Samaritan, as he journeyed, came where he was: and when he saw him, he had compassion on him” ([[Luke 10.33|Luke 10:33]]). The prophet Moroni was granted a vision of our day. The Book of Mormon record states: “For behold, ye do love money, and your substance, and your fine apparel … more than ye love the poor and the needy, the sick and the afflicted. …
+The parable continues: “But a certain Samaritan, as he journeyed, came where he was: and when he saw him, he had compassion on him” ([[Luke 10.33|Luke 10:33]]). The prophet Moroni was granted a vision of our day. The Book of Mormon record states: “For behold, ye do love money, and your substance, and your fine apparel … more than ye love the poor and the needy, the sick and the afflicted. …
 
 “Why do ye adorn yourselves with that which hath no life, and yet suffer the hungry, and the needy, and the naked, and the sick and the afflicted to pass by you, and notice them not?” ([[Mormon 8.37|Morm. 8:37, 39]][[Mormon 8.39|]]).
 
@@ -36,7 +38,7 @@ Cambodia has suffered nearly 30 years of war. Thousands perished, and survivors 
 
 Many of us regularly *“go, and do … likewise”* when we dispatch our surplus clothing to Deseret Industries. In 1996, over 8.5 million pounds of clothing were sorted and distributed to those in great need. Much clothing has been sent to needy populations in Russia—coats to provide warmth in freezing weather; gloves to prevent frostbite; dresses, shirts, and sweaters. A Russian official wrote, “We do thank God and each one of you for the great help you have been to our people.”
 
-The prophet Alma, in describing his day, said, “They did impart of their substance, every man according to that which he had, to the poor, and the needy, and the sick, and the afflicted” ([[Alma 1.27|Alma 1:27]]). Even when they prospered, “they did not send away any who were naked, or that were hungry, or that were athirst … ; they were liberal to all, … whether out of the church or in the church, having no respect to persons as to those who stood in need” ([[Alma 1.30|Alma 1:30]]).
+The prophet Alma, in describing his day, said, “They did impart of their substance, every man according to that which he had, to the poor, and the needy, and the sick, and the afflicted” ([[Alma 1.27|Alma 1:27]]). Even when they prospered, “they did not send away any who were naked, or that were hungry, or that were athirst … ; they were liberal to all, … whether out of the church or in the church, having no respect to persons as to those who stood in need” ([[Alma 1.30|Alma 1:30]]).
 
 Good Samaritanism is contagious. Providing in the Lord’s way humbles the rich, it exalts the poor, and sanctifies both (see [[D&C 104.15|D&C 104:15–18]][[D&C 104.16|]][[D&C 104.17|]][[D&C 104.18|]]). The giver helps those in need by sharing what he has received. The receiver accepts the offering with gratitude. As the receiver rises to his full potential, he then is able to reach out to help others.
 
@@ -52,7 +54,7 @@ In a mountain valley, a small community is the home of a monastery with a declin
 
 Bishops regularly call upon volunteer labor to grow and process commodities to fill bishops’ storehouses. Last year, nearly 270,000 days of labor were volunteered in keeping shelves filled and available for use by bishops. Many of us have fond remembrances of our time volunteering on welfare projects. I can still hear a farm manager’s cries of anguish as he observed the damage done to several acres of sugar beets because we had mistaken newly emerging beet plants for weeds. The blessings we received for our service turned out to be a “Scotch blessing.”
 
-President Monson said, “We have a responsibility to extend help as well as hope to the hungry, to the homeless, and to the downtrodden both at home and abroad” (in Conference Report, Apr. 1990, 3; or *Ensign,* May 1990, 4).
+President Monson said, “We have a responsibility to extend help as well as hope to the hungry, to the homeless, and to the downtrodden both at home and abroad” (in Conference Report, Apr. 1990, [[1990 April - Conference Is Here.md|3]]; or *Ensign,* May 1990, 4).
 
 Picture a small, one-room apartment which is home for a family of six. The room is dirty and cluttered. The family has not been to church in years.
 
@@ -64,7 +66,7 @@ Slowly the family began to believe their life could be different. The apartment,
 
 A wounded family was found by the side of the road, a family suffering just as much as the traveler from Jerusalem in Jesus’ day. The family’s cries were heard, and their wounds were bound. The modern good Samaritans followed the divine injunction to *“go, and do thou likewise.”* Spiritual lives were also rescued. Today, this family is active in the Church and preparing to receive the blessings of the temple.
 
-Bishops use consecrated fast offerings to supply needs beyond those which can be provided by the storehouse. President Hinckley suggested we think “of what would happen if the principles of \[the\] fast day and the fast offering were observed throughout the world. The hungry would be fed, the naked clothed, the homeless sheltered. … The giver would not suffer but would be blessed by his small abstinence. A new measure of concern and unselfishness would grow in the hearts of people everywhere” (in Conference Report, Apr. 1991, 73; or *Ensign,* May 1991, 52–53).
+Bishops use consecrated fast offerings to supply needs beyond those which can be provided by the storehouse. President Hinckley suggested we think “of what would happen if the principles of \[the\] fast day and the fast offering were observed throughout the world. The hungry would be fed, the naked clothed, the homeless sheltered. … The giver would not suffer but would be blessed by his small abstinence. A new measure of concern and unselfishness would grow in the hearts of people everywhere” (in Conference Report, Apr. 1991, [[1991 April - The State of the Church.md|73]]; or *Ensign,* May 1991, 52–53).
 
 To help relieve suffering is to cultivate a Christlike character. We are charged, as were those who listened at the feet of the Savior 2,000 years ago, to *“go, and do thou likewise.”* The Prophet Joseph Smith taught that it is our responsibility “to feed the hungry, to clothe the naked, to provide for the widow, to dry up the tear of the orphan, to comfort the afflicted, whether in this church, or in any other, or in no church at all, wherever he finds them” (*Times and Seasons,* 15 Mar. 1842, 732).
 
@@ -73,8 +75,3 @@ May we be generous with our time and liberal in our contributions for the care o
 
 
 
-
-
-
-
-#Bishops #Fasting #Good_Samaritan #Jesus_Christ #Joy #Neighbors #Service #Welfare

@@ -1,6 +1,8 @@
 # Worthy of Proper Recommendation
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1978 General Conference*
 
@@ -88,15 +90,10 @@ Now, young men, if you were to ask me for my help in seeking employment, what ki
 
 If it is so important to be highly recommended or to have adequate references in order to get employment, how much more important it is that we live worthy of a good or satisfactory recommendation from our Church authorities so that we can progress in the various offices and functions of the priesthood, and eventually gain admission to the kingdom of heaven.
 
-As holders of the priesthood we should know that God is our Father; that his Son Jesus Christ is our Savior; that through his atoning sacrifice we can be resurrected, and by following his teachings gain eternal life; that through revelation The Church of Jesus Christ of Latter-day Saints was established; that Spencer W. Kimball is a prophet of God and President of the church of Jesus Christ; and that the priesthood which we hold is the power of God delegated to us to act in his name.
+As holders of the priesthood we should know that God is our Father; that his Son Jesus Christ is our Savior; that through his atoning sacrifice we can be resurrected, and by following his teachings gain eternal life; that through revelation The Church of Jesus Christ of Latter-day Saints was established; that Spencer W. Kimball is a prophet of God and President of the church of Jesus Christ; and that the priesthood which we hold is the power of God delegated to us to act in his name.
 
 May we strive every day to live worthy in every way of this great privilege and blessing, I humbly pray in the name of the Lord Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Character #Worthiness #Youth

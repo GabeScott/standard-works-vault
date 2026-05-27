@@ -1,10 +1,12 @@
 # Sustaining the Living Prophets
 
+James E. Faust
+
 By Janette Hales Beckham - *Young Women General President*
 
 *Given in the April session of the 1996 General Conference*
 
-[Link](https://www.churchofjesuschrist.org/study/general-conference/1996/04/sustaining-the-living-prophets)
+[Link](https://www.churchofjesuschrist.org/study/general-conference/1996/04/sustaining-the-living-prophets?lang=eng)
 
 There is always a feeling of excitement for me as I know young women are gathering for our annual Young Women meeting. Tonight my excitement feels more like a whisper—the witness of the Holy Ghost whispering to me that a prophet of God has a message just for young women.
 
@@ -41,8 +43,3 @@ It is my prayer that we will show by our behavior that we are a covenant people,
 
 
 
-
-
-
-
-#Church_Leaders #Prophets #Testimony

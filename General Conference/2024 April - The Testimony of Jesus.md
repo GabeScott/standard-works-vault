@@ -1,6 +1,8 @@
 # The Testimony of Jesus
 
-By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
+Dallin H. Oaks
+
+By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -8,13 +10,13 @@ By Elder D. Todd Christofferson - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2024/04/51christofferson?lang=eng)
 
-In 1832, Joseph Smith and Sidney Rigdon received a remarkable vision concerning the eternal destiny of God’s children. This revelation spoke of three heavenly kingdoms. President Dallin H. Oaks spoke about these “kingdoms of glory” last October,[^1] noting that “through the triumph and the glory of the Lamb,”[^2] all but a relatively few individuals are eventually redeemed into one of these kingdoms, “according to the desires manifested through their choices.”[^3] God’s plan of redemption constitutes a universal opportunity for all His children, whenever and wherever they may have lived on the earth.
+In 1832, Joseph Smith and Sidney Rigdon received a remarkable vision concerning the eternal destiny of God’s children. This revelation spoke of three heavenly kingdoms. President Dallin H. Oaks spoke about these “kingdoms of glory” last October,[^1] noting that “through the triumph and the glory of the Lamb,”[^2] all but a relatively few individuals are eventually redeemed into one of these kingdoms, “according to the desires manifested through their choices.”[^3] God’s plan of redemption constitutes a universal opportunity for all His children, whenever and wherever they may have lived on the earth.
 
-While the glory of even the least of the three kingdoms, the telestial, “surpasses all understanding,”[^4] our Father’s hope is that we will choose—and, through the grace of His Son, qualify for—the highest and most glorious of these kingdoms, the celestial, where we may enjoy eternal life as “joint-heirs with Christ.”[^5] President Russell M. Nelson has urged us to “think celestial,” making the celestial kingdom our eternal goal and then “carefully considering where each of \[our\] decisions while here on earth will place \[us\] in the next world.”[^6]
+While the glory of even the least of the three kingdoms, the telestial, “surpasses all understanding,”[^4] our Father’s hope is that we will choose—and, through the grace of His Son, qualify for—the highest and most glorious of these kingdoms, the celestial, where we may enjoy eternal life as “joint-heirs with Christ.”[^5] President Russell M. Nelson has urged us to “think celestial,” making the celestial kingdom our eternal goal and then “carefully considering where each of \[our\] decisions while here on earth will place \[us\] in the next world.”[^6]
 
 Those in the celestial kingdom are “*they who received the testimony of Jesus*, … who are just men made perfect through Jesus the mediator of the new covenant.”[^7] The inhabitants of the second, or terrestrial, kingdom are described as essentially good, including the “honorable men of the earth, who were blinded by the craftiness of men.” Their principal limiting trait is that they “*are not valiant in the testimony of Jesus*.”[^8] By contrast, those in the lower, telestial kingdom are those who “received not the gospel, *neither the testimony of Jesus*.”[^9]
 
-Note that the distinguishing characteristic for the inhabitants of each kingdom is how they relate to “the testimony of Jesus,” ranging from (1) wholehearted devotion to (2) not being valiant to (3) outright rejection. On each person’s reaction hangs his or her eternal future.
+Note that the distinguishing characteristic for the inhabitants of each kingdom is how they relate to “the testimony of Jesus,” ranging from (1) wholehearted devotion to (2) not being valiant to (3) outright rejection. On each person’s reaction hangs his or her eternal future.
 
 ## I.
 
@@ -42,9 +44,9 @@ Being valiant also suggests being open and public about one’s witness. In bapt
 
 One aspect of being valiant in the testimony of Jesus is to heed His messengers. God does not force us into the better path, the covenant path, but He instructs His prophets to make us fully aware of the consequences of our choices. And it is not just the members of His Church. Through His prophets and apostles, He lovingly pleads with all the world to heed the truth that will make them free,[^22] spare them needless suffering, and bring them enduring joy.
 
-Being valiant in the testimony of Jesus means encouraging others, by word and example, to likewise be valiant, especially those of our own families. Elder Neal A. Maxwell once addressed “the essentially ‘honorable’ members \[of the Church\] who are skimming over the surface instead of deepening their discipleship and who are casually engaged rather than ‘anxiously engaged’ \[[[D&C 76.75|Doctrine and Covenants 76:75]]; [[D&C 58.27|58:27]]\].”[^23] Noting that all are free to choose, Elder Maxwell lamented: “Unfortunately, however, when some choose slackness, they are choosing not only for themselves, but for the next generation and the next. Small equivocations in parents can produce large deviations in their children! Earlier generations in a family may have reflected dedication, while some in the current generation evidence equivocation. Sadly, in the next, some may choose dissension, as erosion takes its toll.”[^24]
+Being valiant in the testimony of Jesus means encouraging others, by word and example, to likewise be valiant, especially those of our own families. Elder Neal A. Maxwell once addressed “the essentially ‘honorable’ members \[of the Church\] who are skimming over the surface instead of deepening their discipleship and who are casually engaged rather than ‘anxiously engaged’ \[[[D&C 76.75|Doctrine and Covenants 76:75]]; [[D&C 58.27|58:27]]\].”[^23] Noting that all are free to choose, Elder Maxwell lamented: “Unfortunately, however, when some choose slackness, they are choosing not only for themselves, but for the next generation and the next. Small equivocations in parents can produce large deviations in their children! Earlier generations in a family may have reflected dedication, while some in the current generation evidence equivocation. Sadly, in the next, some may choose dissension, as erosion takes its toll.”[^24]
 
-Years ago, Elder John H. Groberg related the story of a young family living in a small branch in Hawaii in the early 1900s. They had been members of the Church for about two years when one of their daughters fell ill with an undiagnosed disease and was hospitalized. At church the next Sunday, the father and his son prepared the sacrament as they did most weeks, but as the young father knelt to bless the bread, the branch president, suddenly realizing who was at the sacrament table, jumped up and cried, “Stop. You can’t touch the sacrament. Your daughter has an unknown disease. Leave immediately while someone else fixes new sacrament bread. We can’t have you here. Go.” The stunned father searchingly looked at the branch president and then the congregation and, sensing the depth of anxiety and embarrassment from all, motioned to his family, and they quietly filed out of the chapel.
+Years ago, Elder John H. Groberg related the story of a young family living in a small branch in Hawaii in the early 1900s. They had been members of the Church for about two years when one of their daughters fell ill with an undiagnosed disease and was hospitalized. At church the next Sunday, the father and his son prepared the sacrament as they did most weeks, but as the young father knelt to bless the bread, the branch president, suddenly realizing who was at the sacrament table, jumped up and cried, “Stop. You can’t touch the sacrament. Your daughter has an unknown disease. Leave immediately while someone else fixes new sacrament bread. We can’t have you here. Go.” The stunned father searchingly looked at the branch president and then the congregation and, sensing the depth of anxiety and embarrassment from all, motioned to his family, and they quietly filed out of the chapel.
 
 Not a word was said as, dejectedly, the family walked along the trail to their small home. There they sat in a circle, and the father said, “Please be silent until I am ready to speak.” The young son wondered what they would do to get revenge for the shame they had suffered: would they kill the branch president’s pigs, or burn his house, or join another church? Five, ten, fifteen, twenty-five minutes passed in silence.
 
@@ -65,17 +67,17 @@ Our Father wants all His children who will to enjoy eternal life with Him in His
 
 
 
-[^1]: See Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” *Liahona*, Nov. 2023, 26–29.
+[^1]: See Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” *Liahona*, Nov. 2023, 26–29.
 
 [^2]: [[D&C 76.39|Doctrine and Covenants 76:39]].
 
-[^3]: Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” 26.
+[^3]: Dallin H. Oaks, “[[2023 October - Kingdoms of Glory.md|Kingdoms of Glory]],” 26.
 
 [^4]: [[D&C 76.89|Doctrine and Covenants 76:89]].
 
 [^5]: [[Romans 8.17|Romans 8:17]].
 
-[^6]: Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 118.
+[^6]: Russell M. Nelson, “[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 118.
 
 [^7]: [[D&C 76.51|Doctrine and Covenants 76:51, 69]][[D&C 76.69|]]; emphasis added.
 
@@ -85,11 +87,11 @@ Our Father wants all His children who will to enjoy eternal life with Him in His
 
 [^10]: [[JST John 1.4|Joseph Smith Translation, John 1:4]] (in the Bible appendix); see also [[John 1.1|John 1:1–3]][[John 1.2|]][[John 1.3|]].
 
-[^11]: *Teachings of Presidents of the Church: Joseph Smith* (2011), 49.
+[^11]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18)* (2011), 49.
 
 [^12]: [[Mosiah 5.8|Mosiah 5:8]].
 
-[^13]: [[D&C 76.22|Doctrine and Covenants 76:22–24]][[D&C 76.23|]][[D&C 76.24|]]. The testimony of Jesus comes by the Holy Ghost, the spirit of prophecy and revelation (see [[Revelation 19.10|Revelation 19:10]]; *Teachings: Joseph Smith*, 384–85).
+[^13]: [[D&C 76.22|Doctrine and Covenants 76:22–24]][[D&C 76.23|]][[D&C 76.24|]]. The testimony of Jesus comes by the Holy Ghost, the spirit of prophecy and revelation (see [[Revelation 19.10|Revelation 19:10]]; *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-33?lang=eng&id=p22-p26#p22)*, 384–85).
 
 [^14]: See [[D&C 76.51|Doctrine and Covenants 76:51–53]][[D&C 76.52|]][[D&C 76.53|]].
 
@@ -103,21 +105,21 @@ Our Father wants all His children who will to enjoy eternal life with Him in His
 
 [^19]: [[Mosiah 16.12|Mosiah 16:12]].
 
-[^20]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 99.
+[^20]: Russell M. Nelson, “[[2022 April - The Power of Spiritual Momentum.md|The Power of Spiritual Momentum]],” *Liahona*, May 2022, 99.
 
 [^21]: [[Mosiah 18.9|Mosiah 18:9]].
 
 [^22]: See [[John 8.31|John 8:31–32]][[John 8.32|]].
 
-[^23]: Neal A. Maxwell, “[[1992 October - “Settle This in Your Hearts”.md|Settle This in Your Hearts]],” *Ensign*, Nov. 1992, 65. In addition to these remarks by Elder Maxwell, other general conference speakers in recent years have addressed this subject, including Quentin L. Cook (“[[2016 October - Valiant in the Testimony of Jesus.md|Valiant in the Testimony of Jesus]],” *Ensign* or *Liahona*, Nov. 2016, 40–44) and Rebecca L. Craven (“[[2019 April - Careful versus Casual.md|Careful versus Casual]],” *Ensign* or *Liahona*, May 2019, 9–11).
+[^23]: Neal A. Maxwell, “[[1992 October - “Settle This in Your Hearts”.md|Settle This in Your Hearts]],” *Ensign*, Nov. 1992, 65. In addition to these remarks by Elder Maxwell, other general conference speakers in recent years have addressed this subject, including Quentin L. Cook (“[[2016 October - Valiant in the Testimony of Jesus.md|Valiant in the Testimony of Jesus]],” *Ensign* or *Liahona*, Nov. 2016, 40–44) and Rebecca L. Craven (“[[2019 April - Careful versus Casual.md|Careful versus Casual]],” *Ensign* or *Liahona*, May 2019, 9–11).
 
-[^24]: Neal A. Maxwell, “[[1992 October - “Settle This in Your Hearts”.md|Settle This in Your Hearts]],” 65–66.
+[^24]: Neal A. Maxwell, “[[1992 October - “Settle This in Your Hearts”.md|Settle This in Your Hearts]],” 65–66.
 
-[^25]: See John H. Groberg, “[[1980 April - Writing Your Personal and Family History.md|Writing Your Personal and Family History]],” *Ensign*, May 1980, 48–49.
+[^25]: See John H. Groberg, “[[1980 April - Writing Your Personal and Family History.md|Writing Your Personal and Family History]],” *Ensign*, May 1980, 48–49.
 
 [^26]: “He hath power given unto him from the Father to redeem \[us\] from \[our\] sins because of repentance; therefore he hath sent his angels to declare the \[glad\] tidings of the conditions of repentance, which bringeth unto the power of the Redeemer, unto the salvation of \[our\] souls” ([[Helaman 5.11|Helaman 5:11]]). See also [[Helaman 5.10|Helaman 5:10]]: Jesus redeems us *from* our sins, not *in* our sins.
 
-[^27]: [[3 Nephi 27.20|3 Nephi 27:20]]; see also [[3 Nephi 27.16|verses 16–21]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[3 Nephi 11.31|3 Nephi 11:31–36]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]].
+[^27]: [[3 Nephi 27.20|3 Nephi 27:20]]; see also [[3 Nephi 27.16|verses 16–21]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]; [[3 Nephi 11.31|3 Nephi 11:31–36]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]].
 
 [^28]: [[Helaman 3.34|Helaman 3:34]].
 
@@ -137,8 +139,3 @@ Our Father wants all His children who will to enjoy eternal life with Him in His
 
 [^36]: [[Moroni 7.27|Moroni 7:27]].
 
-
-
-
-
-#Example #Jesus_Christ #Plan_Of_Salvation #Testimony

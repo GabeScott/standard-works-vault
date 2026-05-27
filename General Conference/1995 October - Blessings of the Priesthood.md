@@ -1,5 +1,7 @@
 # Blessings of the Priesthood
 
+Gordon B. Hinckley
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -8,11 +10,11 @@ By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 A few weeks ago, I was in Santiago, Chile, participating in priesthood training meetings. In the Saturday meeting, we had a discussion about the importance of brethren receiving the priesthood after baptism. Early Sunday morning I was awakened with a moving testimony of the power of the priesthood in our lives. For a few hours before dawn, I reflected and pondered upon what the priesthood means to me, to my family, and to all the world.
 
-Brothers and sisters, can you imagine how dark and empty mortality would be if there were no priesthood? If the power of the priesthood were not upon the earth, the adversary would have freedom to roam and reign without restraint. There would be no gift of the Holy Ghost to direct and enlighten us; no prophets to speak in the name of the Lord; no temples where we could make sacred, eternal covenants; no authority to bless or baptize, to heal or comfort. Without the power of the priesthood, “the whole earth would be utterly wasted” (see [[D&C 2.3|D&C 2:3]]; see also [[D&C 2.1|vv. 1–2]][[D&C 2.2|]]). There would be no light, no hope—only darkness.
+Brothers and sisters, can you imagine how dark and empty mortality would be if there were no priesthood? If the power of the priesthood were not upon the earth, the adversary would have freedom to roam and reign without restraint. There would be no gift of the Holy Ghost to direct and enlighten us; no prophets to speak in the name of the Lord; no temples where we could make sacred, eternal covenants; no authority to bless or baptize, to heal or comfort. Without the power of the priesthood, “the whole earth would be utterly wasted” (see [[D&C 2.3|D&C 2:3]]; see also [[D&C 2.1|vv. 1–2]][[D&C 2.2|]]). There would be no light, no hope—only darkness.
 
 What a dark world this would be without priesthood blessings for you and me.
 
-A loving Father in Heaven has sent His sons and daughters here to mortality to gain experience and to be tested. He has provided the way back to Him and has given us enough spiritual light to see our way. The priesthood of God gives light to His children in this dark and troubled world. Through priesthood power we can receive the gift of the Holy Ghost to lead us to truth, testimony, and revelation. This gift is available on an equal basis to men, women, and children. Through the blessings of the priesthood, we can be equipped with “the whole armour of God, that \[we\] may be able to stand against the wiles of the devil” (see [[Ephesians 6.11|Eph. 6:11]]; see also [[Ephesians 6.12|vv. 12–18]][[Ephesians 6.13|]][[Ephesians 6.14|]][[Ephesians 6.15|]][[Ephesians 6.16|]][[Ephesians 6.17|]][[Ephesians 6.18|]]). This protection is available to every one of us.
+A loving Father in Heaven has sent His sons and daughters here to mortality to gain experience and to be tested. He has provided the way back to Him and has given us enough spiritual light to see our way. The priesthood of God gives light to His children in this dark and troubled world. Through priesthood power we can receive the gift of the Holy Ghost to lead us to truth, testimony, and revelation. This gift is available on an equal basis to men, women, and children. Through the blessings of the priesthood, we can be equipped with “the whole armour of God, that \[we\] may be able to stand against the wiles of the devil” (see [[Ephesians 6.11|Eph. 6:11]]; see also [[Ephesians 6.12|vv. 12–18]][[Ephesians 6.13|]][[Ephesians 6.14|]][[Ephesians 6.15|]][[Ephesians 6.16|]][[Ephesians 6.17|]][[Ephesians 6.18|]]). This protection is available to every one of us.
 
 Through the priesthood many other blessings are also available to all of the sons and daughters of God, making it possible for us to make sacred covenants and receive holy ordinances that enable us to travel that strait and narrow way back to our Father in Heaven (see [[Matthew 7.13|Matt. 7:13–14]][[Matthew 7.14|]]).
 
@@ -26,7 +28,7 @@ Originally this priesthood “was called *the Holy Priesthood, after the Order o
 
 One who received the priesthood at the hands of Melchizedek was Abraham (see [[D&C 84.14|D&C 84:14]]). The Lord later covenanted with Abraham that “in thee (that is, in thy Priesthood) and in thy seed … shall all the families of the earth be blessed, even with the blessings of the Gospel, which are the blessings of salvation, even of life eternal” ([[Abraham 2.11|Abr. 2:11]]).
 
-It was through the priesthood that the Son of God, the Savior Jesus Christ, established His church—both in the Old World and in the New World. On both continents, He established sacred covenants and ordinances as a means for entering “in at the strait gate … which leadeth unto life \[eternal\]” ([[Matthew 7.13|Matt. 7:13–14]][[Matthew 7.14|]]; [[3 Nephi 14.13|3 Ne. 14:13–14]][[3 Nephi 14.14|]]). In both places, He ordained twelve special witnesses to govern the affairs of the Church and to carry His word to the sons and daughters of God.
+It was through the priesthood that the Son of God, the Savior Jesus Christ, established His church—both in the Old World and in the New World. On both continents, He established sacred covenants and ordinances as a means for entering “in at the strait gate … which leadeth unto life \[eternal\]” ([[Matthew 7.13|Matt. 7:13–14]][[Matthew 7.14|]]; [[3 Nephi 14.13|3 Ne. 14:13–14]][[3 Nephi 14.14|]]). In both places, He ordained twelve special witnesses to govern the affairs of the Church and to carry His word to the sons and daughters of God.
 
 Jesus Christ atoned for the sins of all who will repent and be baptized through the power of the holy priesthood. Through the Atonement, our Savior broke the bands of death and became “the author of eternal salvation unto all them that obey him” ([[Hebrews 5.9|Heb. 5:9]]).
 
@@ -38,7 +40,7 @@ Later, additional heavenly messengers—John the Baptist; Peter, James, and John
 
 Think of it, brothers and sisters—the priesthood has been restored. It is here on the earth today. President Gordon B. Hinckley is the living prophet. The First Presidency and Quorum of the Twelve are modern-day Apostles of the Lord Jesus Christ. Under the direction of these prophets, seers, and revelators, who hold the keys in this dispensation, priesthood holders in the Church today have the legitimate right to act in the name of God. As His authorized agents, they are commissioned to go forth and bless others through the power and authority of the priesthood, making all priesthood covenants, ordinances, and blessings available today.
 
-And the blessings of the priesthood are available to *everyone.* Indeed, the Father “inviteth … all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; … all are alike unto God” ([[2 Nephi 26.33|2 Ne. 26:33]]).
+And the blessings of the priesthood are available to *everyone.* Indeed, the Father “inviteth … all to come unto him and partake of his goodness; and he denieth none that come unto him, black and white, bond and free, male and female; … all are alike unto God” ([[2 Nephi 26.33|2 Ne. 26:33]]).
 
 What are some of the blessings of the priesthood? Come with me as we follow a child’s ideal spiritual journey through life. Let us see many of the possibilities he or she has during a lifetime to receive blessings through the priesthood.
 
@@ -64,7 +66,7 @@ In the temple, the plan of salvation is explained and sacred covenants are made.
 
 In the culminating temple ordinance—eternal marriage—bride and groom are promised that if they are faithful, they will enjoy a family union with one another, with their children, and with the Lord throughout all eternity. It is called eternal life.
 
-As this righteous man or woman establishes a home with his or her eternal companion, they continue to enjoy blessings of the priesthood. Revelation from God is made known to them throughout their lives as they listen to and follow the counsel of living prophets, seers, and revelators. The husband dedicates the family’s home “as a sanctuary … where family members can worship, find safety from the world, grow spiritually, and prepare for eternal family relationships” (*Lay Hold upon the Word of God* \[Melchizedek Priesthood personal study guide 1, 1988\], p. 155).
+As this righteous man or woman establishes a home with his or her eternal companion, they continue to enjoy blessings of the priesthood. Revelation from God is made known to them throughout their lives as they listen to and follow the counsel of living prophets, seers, and revelators. The husband dedicates the family’s home “as a sanctuary … where family members can worship, find safety from the world, grow spiritually, and prepare for eternal family relationships” (*Lay Hold upon the Word of God* \[Melchizedek Priesthood personal study guide 1, 1988\], p. 155).
 
 As their children grow, the parents teach them the gospel in family home evening. They teach their children to pray individually and as a family. They study the scriptures individually and as a family—including the Book of Mormon and other scriptures of the Restoration—written and preserved through the generations of time by holy prophets. They teach them the plan of salvation. They help each son and daughter prepare to receive the same priesthood blessings and ordinances that they themselves have received.
 
@@ -102,8 +104,3 @@ I promise that the bounteous blessings of the priesthood can be ours through our
 
 
 
-
-
-
-
-#Apostasy #Atonement #Blessings #Family #Jesus_Christ #Missionary_Work #Patriarchal_Blessings #Prayer #Priesthood #Restoration #Sacrament

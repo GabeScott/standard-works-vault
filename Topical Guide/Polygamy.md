@@ -1,4 +1,3 @@
 # Polygamy
 
-
-*See* [[Marriage, Plural.md|Marriage, Plural]]
+*See also* [[Marriage, Plural.md|Marriage, Plural]]

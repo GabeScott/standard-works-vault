@@ -1,5 +1,7 @@
 # If Ye Are Prepared Ye Shall Not Fear
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2004 General Conference*
@@ -127,8 +129,3 @@ I bear to you, my beloved sisters, my witness that Heavenly Father lives, that J
 
 [^13]: [[D&C 38.30|D&C 38:30]].
 
-
-
-
-
-#Literacy #Preparation #Relief_Society #Teaching #Women

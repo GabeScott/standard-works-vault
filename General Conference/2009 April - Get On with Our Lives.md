@@ -1,5 +1,7 @@
 # Get On with Our Lives
 
+Thomas S. Monson
+
 By Elder Steven E. Snow - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2009 General Conference*
@@ -24,15 +26,15 @@ First, follow the prophets. Listen to and abide by the counsel of the Brethren. 
 
 Second, keep an eternal perspective. Understand that change and challenges are part of God’s plan. By design this mortal existence is a time of testing or a time “to see if they will do all things whatsoever the Lord their God shall command them” ([[Abraham 3.25|Abraham 3:25]]). In order to test our use of our God-given agency, we as mortals undergo a series of changes, challenges, trials, and temptations as we proceed through life. Only then are we properly tested.
 
-In 2 Nephi we read: “For it must needs be, that there is an opposition in all things. If not so, … righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad” ([[2 Nephi 2.11|2 Nephi 2:11]]).
+In 2 Nephi we read: “For it must needs be, that there is an opposition in all things. If not so, … righteousness could not be brought to pass, neither wickedness, neither holiness nor misery, neither good nor bad” ([[2 Nephi 2.11|2 Nephi 2:11]]).
 
 Life’s challenges and changes provide opportunities for us to grow as we exercise our agency in making righteous decisions.
 
-Third, have faith. President Gordon B. Hinckley always encouraged members of the Church to move forward with faith (see “God Hath Not Given Us the Spirit of Fear,” *Ensign,* Oct. 1984, 4). As we daily confront a world full of negativity, doubt, fear, and even dread can creep into our hearts. President Thomas S. Monson has counseled us that “faith and doubt cannot exist in the same mind at the same time, for one will dispel the other” (“Come unto Him in Prayer and Faith,” *Liahona,* Mar. 2009, 4; *Ensign,* Mar. 2009, 6). In Moroni we read that “without faith there cannot be any hope” ([[Moroni 7.42|Moroni 7:42]]). We must exercise faith to take on life’s challenges and changes. It is how we learn and progress.
+Third, have faith. President Gordon B. Hinckley always encouraged members of the Church to move forward with faith (see “God Hath Not Given Us the Spirit of Fear,” *Ensign,* Oct. 1984, 4). As we daily confront a world full of negativity, doubt, fear, and even dread can creep into our hearts. President Thomas S. Monson has counseled us that “faith and doubt cannot exist in the same mind at the same time, for one will dispel the other” (“Come unto Him in Prayer and Faith,” *Liahona,* Mar. 2009, 4; *Ensign,* Mar. 2009, 6). In Moroni we read that “without faith there cannot be any hope” ([[Moroni 7.42|Moroni 7:42]]). We must exercise faith to take on life’s challenges and changes. It is how we learn and progress.
 
 Fourth, be of good cheer. Many of our members across the globe are facing challenges, economic and otherwise. At such times it is easy to feel despondent and forgotten. During the early, difficult days of the Church, the Lord counseled the Saints to be happy: “Be of good cheer, little children; for I am in your midst, and I have not forsaken you” ([[D&C 61.36|D&C 61:36]]).
 
-In his last conference talk, six months ago, Elder Joseph B. Wirthlin taught how to respond to adversity. Part of his counsel included: “The next time you’re tempted to groan, you might try to laugh instead. It will extend your life and make the lives of all those around you more enjoyable” (in Conference Report, Oct. 2008, 25; or *Ensign,* Nov. 2008, 27). Laughter and a good sense of humor can soften the bumps along life’s journey.
+In his last conference talk, six months ago, Elder Joseph B. Wirthlin taught how to respond to adversity. Part of his counsel included: “The next time you’re tempted to groan, you might try to laugh instead. It will extend your life and make the lives of all those around you more enjoyable” (in Conference Report, Oct. 2008, [[2008 October - Come What May, and Love It.md|25]]; or *Ensign,* Nov. 2008, 27). Laughter and a good sense of humor can soften the bumps along life’s journey.
 
 It would be nice if we could anticipate all the changes that would occur in a lifetime. Some changes we see coming. Certainly all Latter-day Saint young men are taught to prepare for a full-time mission, a life-changing experience. Every worthy young single adult understands the importance of choosing a spouse and being sealed in the holy temple. We know these changes are coming, and we can plan for them. But what about the changes which are thrust upon us rather unexpectedly? These are changes over which we seemingly have no control. Economic downturn, unemployment, debilitating sickness or injury, divorce, and death are examples of change we do not expect, anticipate, or welcome. How do we deal with such unexpected setbacks in life’s journey?
 
@@ -61,5 +63,3 @@ Robert Gardner knew what it meant to deal with change in his life. He followed t
 
 
 
-
-#Adversity #Faith #Hope #Perspective #Prophets

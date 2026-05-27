@@ -1,5 +1,7 @@
 # To Act for Ourselves: The Gift and Blessings of Agency
 
+Robert D. Hales
+
 By Elder Robert D. Hales - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2006 General Conference*
@@ -16,7 +18,7 @@ If we could leave one lesson of greatest importance for *our* children and grand
 
 He taught that “men are instructed sufficiently that they know good from evil.”[^5] This sacred instruction began in the heavens. There, in a Grand Council, our Heavenly Father would continue the gift of agency to prove us here in mortality, “to see if \[we\] will do all things whatsoever the Lord \[our\] God shall command.”[^6]
 
-But Satan opposed God and His plan, saying, “I will redeem all mankind … ; wherefore give me thine honor.”[^7] “Wherefore, because … Satan rebelled against me, and sought to destroy the agency of man, which I, the Lord God, had given him, … I caused that he should be cast down.”[^8] “And, at that day, many followed after him.”[^9] Indeed, “a third part of the hosts of heaven”[^10] used their agency to reject God’s plan.
+But Satan opposed God and His plan, saying, “I will redeem all mankind … ; wherefore give me thine honor.”[^7] “Wherefore, because … Satan rebelled against me, and sought to destroy the agency of man, which I, the Lord God, had given him, … I caused that he should be cast down.”[^8] “And, at that day, many followed after him.”[^9] Indeed, “a third part of the hosts of heaven”[^10] used their agency to reject God’s plan.
 
 You and I were among those who used their agency to accept Heavenly Father’s plan to come to earth, to have a mortal life, to progress. “We shouted for joy … to have the opportunity of coming to the earth to receive bodies \[for we knew\] that we might become, through faithfulness, like unto our Father, God.”[^11]
 
@@ -69,15 +71,15 @@ To all who desire to enjoy the supernal blessings of agency, I testify that agen
 
 
 
-[^1]: [[1 Nephi 2.2|1 Nephi 2:2]].
+[^1]: [[1 Nephi 2.2|1 Nephi 2:2]].
 
-[^2]: [[2 Nephi 1.17|2 Nephi 1:17]].
+[^2]: [[2 Nephi 1.17|2 Nephi 1:17]].
 
-[^3]: See [[2 Nephi 1.14|2 Nephi 1:14]].
+[^3]: See [[2 Nephi 1.14|2 Nephi 1:14]].
 
-[^4]: [[2 Nephi 1.23|2 Nephi 1:23]].
+[^4]: [[2 Nephi 1.23|2 Nephi 1:23]].
 
-[^5]: [[2 Nephi 2.5|2 Nephi 2:5]].
+[^5]: [[2 Nephi 2.5|2 Nephi 2:5]].
 
 [^6]: See [[Abraham 3.24|Abraham 3:24–25]][[Abraham 3.25|]].
 
@@ -91,38 +93,33 @@ To all who desire to enjoy the supernal blessings of agency, I testify that agen
 
 [^11]: Joseph Fielding Smith, *Man, His Origin and Destiny* (1965), 277.
 
-[^12]: [[2 Nephi 2.11|2 Nephi 2:11]].
+[^12]: [[2 Nephi 2.11|2 Nephi 2:11]].
 
-[^13]: [[2 Nephi 2.15|2 Nephi 2:15–16]][[2 Nephi 2.16|]].
+[^13]: [[2 Nephi 2.15|2 Nephi 2:15–16]][[2 Nephi 2.16|]].
 
-[^14]: [[2 Nephi 2.18|2 Nephi 2:18]].
+[^14]: [[2 Nephi 2.18|2 Nephi 2:18]].
 
-[^15]: [[2 Nephi 2.19|2 Nephi 2:19]].
+[^15]: [[2 Nephi 2.19|2 Nephi 2:19]].
 
-[^16]: [[2 Nephi 2.20|2 Nephi 2:20]].
+[^16]: [[2 Nephi 2.20|2 Nephi 2:20]].
 
-[^17]: [[2 Nephi 2.21|2 Nephi 2:21]].
+[^17]: [[2 Nephi 2.21|2 Nephi 2:21]].
 
-[^18]: [[2 Nephi 2.24|2 Nephi 2:24–25]][[2 Nephi 2.25|]].
+[^18]: [[2 Nephi 2.24|2 Nephi 2:24–25]][[2 Nephi 2.25|]].
 
-[^19]: [[3 Nephi 9.2|3 Nephi 9:2]].
+[^19]: [[3 Nephi 9.2|3 Nephi 9:2]].
 
 [^20]: See [[Genesis 4.7|Genesis 4:7]]; [[Moses 5.23|Moses 5:23]].
 
-[^21]: [[2 Nephi 2.26|2 Nephi 2:26]].
+[^21]: [[2 Nephi 2.26|2 Nephi 2:26]].
 
 [^22]: [[D&C 95.6|D&C 95:6]].
 
-[^23]: See [[2 Nephi 1.13|2 Nephi 1:13]].
+[^23]: See [[2 Nephi 1.13|2 Nephi 1:13]].
 
 [^24]: [[D&C 58.42|D&C 58:42]].
 
-[^25]: [[2 Nephi 2.27|2 Nephi 2:27]].
+[^25]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
 [^26]: See [[D&C 50.24|D&C 50:24]].
 
-
-
-
-
-#Agency #Holy_Ghost #Temptation

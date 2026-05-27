@@ -1,4 +1,3 @@
 # Alpha
 
-
-*See* [BD Alpha](https://www.churchofjesuschrist.org/study/scriptures/bd/alpha?lang=eng)
+*See also* [[BD Alpha.md|BD Alpha]]

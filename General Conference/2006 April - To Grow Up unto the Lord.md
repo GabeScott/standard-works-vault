@@ -1,5 +1,7 @@
 # To Grow Up unto the Lord
 
+Robert D. Hales
+
 By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -32,7 +34,7 @@ In time, together the sisters prepared the visiting teaching message to share in
 
 Besides steadfast, determined service, another way we choose to grow up unto the Lord is through *our willingness to “press forward”[^7] in faith—*even when we don’t quite know what to do. Consider Nephi’s account of being commanded to build a ship. He recounted the circumstance:
 
-“And it came to pass that the Lord spake unto me, saying: Thou shalt construct a ship, after the manner which I shall show thee. …
+“And it came to pass that the Lord spake unto me, saying: Thou shalt construct a ship, after the manner which I shall show thee. …
 
 “And I said: Lord, whither shall I go that I may find ore to molten, that I may make tools?”[^8]
 
@@ -49,26 +51,21 @@ As that faithful bishop, those dedicated sisters, and I might attest, in this on
 
 [^1]: [[Helaman 3.21|Helaman 3:21]].
 
-[^2]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
+[^2]: [[1 Corinthians 13.11|1 Corinthians 13:11]].
 
 [^3]: [[D&C 20.37|D&C 20:37]].
 
 [^4]: [[Mosiah 5.15|Mosiah 5:15]].
 
-[^5]: [[1 Thessalonians 2.7|1 Thessalonians 2:7–8]][[1 Thessalonians 2.8|]]; emphasis added.
+[^5]: [[1 Thessalonians 2.7|1 Thessalonians 2:7–8]][[1 Thessalonians 2.8|]]; emphasis added.
 
 [^6]: [[Mosiah 18.21|Mosiah 18:21]].
 
-[^7]: [[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added.
+[^7]: [[2 Nephi 31.20|2 Nephi 31:20]]; emphasis added.
 
-[^8]: [[1 Nephi 17.8|1 Nephi 17:8–9]][[1 Nephi 17.9|]].
+[^8]: [[1 Nephi 17.8|1 Nephi 17:8–9]][[1 Nephi 17.9|]].
 
-[^9]: [[1 Nephi 17.3|1 Nephi 17:3]].
+[^9]: [[1 Nephi 17.3|1 Nephi 17:3]].
 
-[^10]: [[1 Nephi 18.3|1 Nephi 18:3]].
+[^10]: [[1 Nephi 18.3|1 Nephi 18:3]].
 
-
-
-
-
-#Faith #Service #Spirituality

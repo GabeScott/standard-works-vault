@@ -1,6 +1,8 @@
 # A New Normal
 
-By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of The Church of Jesus Christ of Latter-day Saints*
 
 *Given in the October session of the 2020 General Conference*
 
@@ -8,7 +10,7 @@ By President Russell M. Nelson - *President of The Church of Jesus Christ of La
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2020/10/58nelson?lang=eng)
 
-My dear brothers and sisters, these two days of general conference have been glorious! I agree with Elder Jeffrey R. Holland. As he mentioned, the messages, the prayers, and the music have all been inspired by the Lord. I am grateful to all who have participated in any way.
+My dear brothers and sisters, these two days of general conference have been glorious! I agree with Elder Jeffrey R. Holland. As he mentioned, the messages, the prayers, and the music have all been inspired by the Lord. I am grateful to all who have participated in any way.
 
 Throughout the proceedings, I have pictured you in my mind listening to conference. I have asked the Lord to help me understand what you are feeling, worrying about, or trying to resolve. I have wondered what I might say to conclude this conference that would send you forth with the optimism about the future that I know the Lord wants you to feel.
 
@@ -35,7 +37,7 @@ May we go forward together to fulfill our divine mandate—that of preparing our
 
 [^2]: See [[D&C 45.26|Doctrine and Covenants 45:26]]; [[D&C 88.91|88:91]].
 
-[^3]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-44?lang=eng&id=p24#p24) (2007), 513.
+[^3]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-44?lang=eng&id=p24#p24) (2007), 513.
 
 [^4]: See [[Alma 12.24|Alma 12:24]]; [[Alma 34.32|34:32]].
 
@@ -43,8 +45,3 @@ May we go forward together to fulfill our divine mandate—that of preparing our
 
 [^6]: See [[Philippians 4.7|Philippians 4:7]].
 
-
-
-
-
-#Peace #Preparation #Spirituality #Temples

@@ -1,5 +1,7 @@
 # The Royal Law of Love
 
+Ezra Taft Benson
+
 By Elder Marion D. Hanks - *Of the Presidency of the First Quorum of the Seventy*
 
 *Given in the October session of the 1988 General Conference*
@@ -24,7 +26,7 @@ I speak of that second commandment, linked inseparably by the Lord Jesus Christ 
 
 The Apostle James called the second commandment the “royal law” ([[James 2.8|James 2:8]]). Paul wrote to the Corinthians that “all the law is fulfilled in one word, even in this; Thou shalt love thy neighbour as thyself” ([[Galatians 5.14|Gal. 5:14]]).
 
-Christ’s ministry and his teachings leave no room to doubt with what seriousness we must accept and apply this sacred instruction. As he taught the law of love, Jesus was asked, “And who is my neighbour?” ([[Luke 10.29|Luke 10:29]]). In answer he told the story of a man traveling from Jerusalem to Jericho who fell among thieves and was robbed and wounded and left at the wayside half dead. A priest and a Levite came by, and “looked on him, and passed by on the other side” ([[Luke 10.32|Luke 10:32]]; see also [[Luke 10.31|v. 31]]).
+Christ’s ministry and his teachings leave no room to doubt with what seriousness we must accept and apply this sacred instruction. As he taught the law of love, Jesus was asked, “And who is my neighbour?” ([[Luke 10.29|Luke 10:29]]). In answer he told the story of a man traveling from Jerusalem to Jericho who fell among thieves and was robbed and wounded and left at the wayside half dead. A priest and a Levite came by, and “looked on him, and passed by on the other side” ([[Luke 10.32|Luke 10:32]]; see also [[Luke 10.31|v. 31]]).
 
 Into this scene came a Samaritan, a man to whose people and cities the Twelve had been forbidden to go (see [[Matthew 10.5|Matt. 10:5–6]][[Matthew 10.6|]]), and he stopped and gave immediate and continuing aid to the troubled man. Jesus said: “Which now of these three, thinkest thou, was neighbour unto him that fell among the thieves?
 
@@ -77,8 +79,3 @@ That we may do so, I humbly pray, in the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Compassion #Love #Service

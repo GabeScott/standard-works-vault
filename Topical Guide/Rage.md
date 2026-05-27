@@ -1,6 +1,5 @@
 # Rage
 
-
 *See also* [[Anger.md|Anger]]; [[Fury.md|Fury]]; [[Indignation.md|Indignation]]; [[Passion.md|Passion]]; [[Wrath.md|Wrath]]
 
 Why do the heathen *rage*, [[Psalms 2.1|Psalms 2:1]] ([[Psalms 46.6|Psalms 46:6]]; [[Acts 4.25|Acts 4:25]]).

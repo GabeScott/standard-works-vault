@@ -1,6 +1,8 @@
 # What Do We Hear?
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -12,9 +14,9 @@ The Prophet Joseph Smith spoke concerning the solemn assembly:
 
 “Tarry ye, tarry ye in this place, and call a solemn assembly, even of those who are the first laborers in this last kingdom.” ([[D&C 88.70|D&C 88:70]].)
 
-Joseph Smith and Brigham Young were first sustained by a congregation, including a fully organized priesthood. Brigham Young was sustained on March 27, 1846, and was “unanimously elected president over the whole Camp of Israel …” by the council. (B. H. Roberts, *A Comprehensive History of the Church,* vol. 3, p. 52.) Later he was sustained, and the Hosanna Shout was given.
+Joseph Smith and Brigham Young were first sustained by a congregation, including a fully organized priesthood. Brigham Young was sustained on March 27, 1846, and was “unanimously elected president over the whole Camp of Israel …” by the council. (B. H. Roberts, *A Comprehensive History of the Church,* vol. 3, p. 52.) Later he was sustained, and the Hosanna Shout was given.
 
-Each of the presidents of the Church has been sustained by the priesthood of the Church in solemn assembly down to and including President Harold B. Lee, who was sustained October 6, 1972.
+Each of the presidents of the Church has been sustained by the priesthood of the Church in solemn assembly down to and including President Harold B. Lee, who was sustained October 6, 1972.
 
 Joseph Smith led the first solemn assembly, and after closing his discourse, he called upon the several quorums, commencing with the presidency, to manifest by rising, their willingness to acknowledge him as the prophet and seer and uphold him as such by their prayers and faith. All the quorums in turn cheerfully complied with this request. He then called upon all the congregation of Saints also to give their assent by rising to their feet.
 
@@ -30,7 +32,7 @@ Those of us who have this day been sustained by you enter into our duties with f
 
 As we incline our hearts to our Heavenly Father and his Son Jesus Christ, we hear a symphony of sweet music sung by heavenly voices proclaiming the gospel of peace.
 
-As representatives of the people, we follow the suggestion of Paul, the apostle of long ago, as he urged the Colossian saints to “… Seek those things which are above, where Christ sitteth on the right hand of God.
+As representatives of the people, we follow the suggestion of Paul, the apostle of long ago, as he urged the Colossian saints to “… Seek those things which are above, where Christ sitteth on the right hand of God.
 
 “Set your affection on things above, not on things on the earth.” ([[Colossians 3.1|Col. 3:1–2]][[Colossians 3.2|]].)
 
@@ -42,17 +44,17 @@ Now as we listen to the sweet melody of eternity, what do we hear?
 
 We hear the voice of God calling on our father Adam, person to person, saying:
 
-“I am God; I made the world, and men before they were in the flesh. …” ([[Moses 6.51|Moses 6:51]].)
+“I am God; I made the world, and men before they were in the flesh. …” ([[Moses 6.51|Moses 6:51]].)
 
-And our father Adam gave unto us truths which have been basic since the foundation of the world. The gospel is the same yesterday, today, and forever. It is eternal. He proclaimed to us: “… the Son of God hath atoned for original guilt, wherein the sins of the parents cannot be answered upon the heads of the children, for they are whole from the foundation of the world.” ([[Moses 6.54|Moses 6:54]].)
+And our father Adam gave unto us truths which have been basic since the foundation of the world. The gospel is the same yesterday, today, and forever. It is eternal. He proclaimed to us: “… the Son of God hath atoned for original guilt, wherein the sins of the parents cannot be answered upon the heads of the children, for they are whole from the foundation of the world.” ([[Moses 6.54|Moses 6:54]].)
 
 Adam was baptized and received the Holy Ghost.
 
-And from Adam we learned of the ultimate coming of the Son, Jehovah. We learned of the redemption of fallen man from the grave. We hear Adam say, “… In this life I shall have joy, and again in the flesh I shall see God.” ([[Moses 5.10|Moses 5:10]].)
+And from Adam we learned of the ultimate coming of the Son, Jehovah. We learned of the redemption of fallen man from the grave. We hear Adam say, “… In this life I shall have joy, and again in the flesh I shall see God.” ([[Moses 5.10|Moses 5:10]].)
 
-Mortality made it possible for them to have seed, and as a result, the families of the earth have eternity in their grasp. This prophet and his wife “… ceased not to call upon God.” ([[Moses 5.16|Moses 5:16]].)
+Mortality made it possible for them to have seed, and as a result, the families of the earth have eternity in their grasp. This prophet and his wife “… ceased not to call upon God.” ([[Moses 5.16|Moses 5:16]].)
 
-“And thus all things were confirmed unto Adam, by an holy ordinance, and the Gospel preached, and a decree sent forth, that it should be in the world, until the end thereof; and thus it was. …” ([[Moses 5.59|Moses 5:59]].)
+“And thus all things were confirmed unto Adam, by an holy ordinance, and the Gospel preached, and a decree sent forth, that it should be in the world, until the end thereof; and thus it was. …” ([[Moses 5.59|Moses 5:59]].)
 
 And thus it is eternal.
 
@@ -66,31 +68,31 @@ Again, we thank thee, O God, for another prophet who helped to set the lines str
 
 This holy prophet did walk with God and beheld his creations back to the beginning and forward to the resurrection of Christ and of all men, and the scripture says:
 
-“And Enoch and all his people walked with God, and he dwelt in the midst of Zion; and it came to pass that Zion was not, for God received it up into his own bosom. …” ([[Moses 7.69|Moses 7:69]].)
+“And Enoch and all his people walked with God, and he dwelt in the midst of Zion; and it came to pass that Zion was not, for God received it up into his own bosom. …” ([[Moses 7.69|Moses 7:69]].)
 
 Again, what do we hear as we listen? The voice of righteous Abraham, the father of a race. We thank thee, O God, for this prophet Abraham, a holy and righteous man. He was our ancestor. He had close communion with our Lord, Jehovah.
 
 He became an astronomer and was entrusted with numerous of the secrets of the heavens and the universe and conversed with the leading scientists of Egypt, the center of astronomy in those days. To Abraham was entrusted the history of the preexistent life which antedated the creation of this earth, and the peopling of this earth became a well-known story to this prophet-patriarch. He taught us pure trust in God.
 
-When asked to sacrifice his son Isaac, with a superhuman faith, he offered the son, even though he had been promised that Isaac would live and would have an immense posterity, for Abraham had the unshakable faith to assure him that even if Isaac’s life were taken, “… God was able to raise him up, even from the dead. …” ([[Hebrews 11.19|Heb. 11:19]].) So we thank thee, O God, for this great prophet.
+When asked to sacrifice his son Isaac, with a superhuman faith, he offered the son, even though he had been promised that Isaac would live and would have an immense posterity, for Abraham had the unshakable faith to assure him that even if Isaac’s life were taken, “… God was able to raise him up, even from the dead. …” ([[Hebrews 11.19|Heb. 11:19]].) So we thank thee, O God, for this great prophet.
 
 Again we listen and what do we hear?
 
-We hear the voice of Moses, the prophet. We hear him plead for the freedom of Israel from cursed bondage. We see Moses’ acceptance by his Lord when the voice from the burning bush arrested his attention and commanded: “… put off thy shoes from off thy feet, for the place whereon thou standest is holy ground.
+We hear the voice of Moses, the prophet. We hear him plead for the freedom of Israel from cursed bondage. We see Moses’ acceptance by his Lord when the voice from the burning bush arrested his attention and commanded: “… put off thy shoes from off thy feet, for the place whereon thou standest is holy ground.
 
-“… I am the God of thy father, the God of Abraham, the God of Isaac, and the God of Jacob. …” ([[Exodus 3.5|Ex. 3:5–6]][[Exodus 3.6|]].)
+“… I am the God of thy father, the God of Abraham, the God of Isaac, and the God of Jacob. …” ([[Exodus 3.5|Ex. 3:5–6]][[Exodus 3.6|]].)
 
 And we sing again, “We thank thee, O God,”—for the prophet, the great Moses, who lighted the lamps before the Lord.
 
 Again as we listen, what do we hear?
 
-We hear the voice of Jehovah addressing Peter, the president of his church, and when asked: “… Whom do men say that I the Son of man am?” ([[Matthew 16.13|Matt. 16:13]]), we hear the great prophet Peter saying with a conviction that knew no doubt: “… Thou art the Christ, the Son of the living God.” ([[Matthew 16.16|Matt. 16:16]].) And we hear him again giving his never waning testimony, recalling his experience on the Mount of Transfiguration, and he said:
+We hear the voice of Jehovah addressing Peter, the president of his church, and when asked: “… Whom do men say that I the Son of man am?” ([[Matthew 16.13|Matt. 16:13]]), we hear the great prophet Peter saying with a conviction that knew no doubt: “… Thou art the Christ, the Son of the living God.” ([[Matthew 16.16|Matt. 16:16]].) And we hear him again giving his never waning testimony, recalling his experience on the Mount of Transfiguration, and he said:
 
 “For we have not followed cunningly devised fables, when we made known unto you the power and coming of our Lord Jesus Christ, but were eyewitnesses of his majesty.
 
 “For he received from God the Father honour and glory, when there came such a voice to him from the excellent glory, this is my beloved Son, in whom I am well pleased.
 
-“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.16|2 Pet. 1:16–18]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
+“And this voice which came from heaven we heard, when we were with him in the holy mount.” ([[2 Peter 1.16|2 Pet. 1:16–18]][[2 Peter 1.17|]][[2 Peter 1.18|]].)
 
 There followed an apostasy after the crucifixion, and centuries were to pass when gross spiritual darkness covered the earth. And then when the time was ripe, there came a great awakening, with visions and revelations as in early days.
 
@@ -115,8 +117,3 @@ We shall serve you, our people, and love you and do our utmost to guide you to y
 
 
 
-
-
-
-
-#Church_Leaders #Prophets

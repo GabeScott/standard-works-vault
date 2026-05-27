@@ -1,5 +1,7 @@
 # Prayer
 
+Gordon B. Hinckley
+
 By Elder Henry B. Eyring - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2001 General Conference*
@@ -38,7 +40,7 @@ And now, from the next words of that same scripture, we learn why it is we forge
 
 “Behold, they do not desire that the Lord their God, who hath created them, should rule and reign over them; notwithstanding his great goodness and his mercy towards them, they do set at naught his counsels, and they will not that he should be their guide.”[^4]
 
-From those three short verses of scripture, we see three causes for the sad drift away from humble prayer. First, while God implores us to pray, the enemy of our souls belittles and then derides it. The warning from 2 Nephi is true: “And now, my beloved brethren, I perceive that ye ponder still in your hearts; and it grieveth me that I must speak concerning this thing. For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray, but teacheth him that he must not pray.”[^5]
+From those three short verses of scripture, we see three causes for the sad drift away from humble prayer. First, while God implores us to pray, the enemy of our souls belittles and then derides it. The warning from 2 Nephi is true: “And now, my beloved brethren, I perceive that ye ponder still in your hearts; and it grieveth me that I must speak concerning this thing. For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray, but teacheth him that he must not pray.”[^5]
 
 Second, God is forgotten out of vanity. A little prosperity and peace, or even a turn slightly for the better, can bring us feelings of self-sufficiency. We can feel quickly that we are in control of our lives, that the change for the better is our own doing, not that of a God who communicates to us through the still, small voice of the Spirit. Pride creates a noise within us which makes the quiet voice of the Spirit hard to hear. And soon, in our vanity, we no longer even listen for it. We can come quickly to think we don’t need it.
 
@@ -95,7 +97,7 @@ In the sacred name of Jesus Christ, amen.
 
 [^4]: [[Helaman 12.4|Hel. 12:4–6]][[Helaman 12.5|]][[Helaman 12.6|]].
 
-[^5]: [[2 Nephi 32.8|2 Ne. 32:8]].
+[^5]: [[2 Nephi 32.8|2 Ne. 32:8]].
 
 [^6]: [[Mosiah 3.19|Mosiah 3:19]].
 
@@ -107,8 +109,3 @@ In the sacred name of Jesus Christ, amen.
 
 [^10]: [[Mosiah 5.13|Mosiah 5:13]].
 
-
-
-
-
-#Agency #Courage #Dedication #Faith #God_The_Father #Obedience #Ordinances #Prayer #Prophets #Satan #Scriptures #Spirituality

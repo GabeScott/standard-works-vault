@@ -4,6 +4,3 @@
 
 [JST Revelation 19:15](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-rev/19?lang=eng)
 
-
-
-

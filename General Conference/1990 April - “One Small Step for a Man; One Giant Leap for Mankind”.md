@@ -1,5 +1,7 @@
 # “One Small Step for a Man; One Giant Leap for Mankind”
 
+Thomas S. Monson
+
 By Elder Carlos E. Asay - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 1990 General Conference*
@@ -30,7 +32,7 @@ We are told that the spin-off effects of the moon mission were many. Such benefi
 
 Joseph did not emerge from the grove with lunar rocks in his pocket or with moon dust on his shoes. He emerged with a changed countenance and with a gold mine of truth lodged in his mind and heart:
 
-1. Joseph learned that there are no winners in wars of words or tumults of opinion regarding religious matters (see [[Joseph Smith History 1.12|JS—H 1:12]]). Such contention plays into the hands of Satan because he is the “father of contention” ([[3 Nephi 11.29|3 Ne. 11:29]]).Moreover, Joseph verified the fact that critical issues pertaining to the Spirit cannot be settled alone by “an appeal to the Bible” so long as teachers of religion understand the same passage of scripture so differently (see [[Joseph Smith History 1.12|JS—H 1:12]]).
+1. Joseph learned that there are no winners in wars of words or tumults of opinion regarding religious matters (see [[Joseph Smith History 1.12|JS—H 1:12]]). Such contention plays into the hands of Satan because he is the “father of contention” ([[3 Nephi 11.29|3 Ne. 11:29]]).Moreover, Joseph verified the fact that critical issues pertaining to the Spirit cannot be settled alone by “an appeal to the Bible” so long as teachers of religion understand the same passage of scripture so differently (see [[Joseph Smith History 1.12|JS—H 1:12]]).
 
 2. Joseph learned of “the power of some actual being from the unseen world” which bound his tongue and enveloped him in thick darkness as he began to pray (see [[Joseph Smith History 1.16|JS—H 1:16]]). This power was exerted by the evil one, who viewed Joseph Smith as a threat to his realm of sin and error.Few men have disturbed and annoyed the adversary more than Joseph; few have felt the combined powers of darkness more than he; and few have triumphed over Satan more nobly (see [[Joseph Smith History 1.20|JS—H 1:20]]).
 
@@ -40,7 +42,7 @@ Joseph did not emerge from the grove with lunar rocks in his pocket or with moon
 
 5. Joseph learned that none of the churches of the day were right and that he should not join any of them. He recounts:“My object in going to inquire of the Lord was to know which of all the sects was right, that I might know which to join. No sooner, therefore, did I get possession of myself, so as to be able to speak, than I asked the Personages who stood above me in the light, which of all the sects was right … and which I should join.“I was answered that I must join none of them, for they were all wrong” ([[Joseph Smith History 1.18|JS—H 1:18–19]][[Joseph Smith History 1.19|]]).This pronouncement may have troubled Joseph at first because members of his family had affiliated with a specific faith and he, himself, had leanings toward another. But God had spoken, and who was he to dispute?
 
-6. Joseph learned why he must not align himself with an existing church. His words are:“The Personage who addressed me said that all their creeds were an abomination in his sight; that those professors were all corrupt; that: ‘they draw near to me with their lips, but their hearts are far from me, they teach for doctrines the commandments of men, having a form of godliness, but they deny the power thereof’” ([[Joseph Smith History 1.19|JS—H 1:19]]).Having seen what he had seen and having heard what he had heard, how could he possibly join a sect unacceptable to the Almighty? Perhaps some of the professors were “humble followers of Christ; nevertheless, they \[were\] led, that in many instances they \[did\] err because they \[were\] taught by the precepts of men” ([[2 Nephi 28.14|2 Ne. 28:14]]).Perhaps some honest efforts were being made by a few, but whatever was being done was insufficient “to teach any man the right way” ([[2 Nephi 25.28|2 Ne. 25:28–29]][[2 Nephi 25.29|]]).
+6. Joseph learned why he must not align himself with an existing church. His words are:“The Personage who addressed me said that all their creeds were an abomination in his sight; that those professors were all corrupt; that: ‘they draw near to me with their lips, but their hearts are far from me, they teach for doctrines the commandments of men, having a form of godliness, but they deny the power thereof’” ([[Joseph Smith History 1.19|JS—H 1:19]]).Having seen what he had seen and having heard what he had heard, how could he possibly join a sect unacceptable to the Almighty? Perhaps some of the professors were “humble followers of Christ; nevertheless, they \[were\] led, that in many instances they \[did\] err because they \[were\] taught by the precepts of men” ([[2 Nephi 28.14|2 Ne. 28:14]]).Perhaps some honest efforts were being made by a few, but whatever was being done was insufficient “to teach any man the right way” ([[2 Nephi 25.28|2 Ne. 25:28–29]][[2 Nephi 25.29|]]).
 
 7. Joseph learned that “the testimony of James \[was\] true—that a man who lacked wisdom might ask of God, and obtain, and not be upbraided” ([[Joseph Smith History 1.26|JS—H 1:26]]).He also learned that a soul in the early nineteenth century was just as precious unto God as a soul in Moses’ time or in the meridian of time, else why would the Lord appear? (see [[Alma 39.17|Alma 39:17]]).
 
@@ -52,7 +54,7 @@ Yes, it all started so quietly, so simply, and so very wonderfully. A believing 
 
 All the towers ever built and all the spaceships ever launched pale in comparison with Joseph Smith’s first vision. Though men fly higher and higher into the heavens, they will not find God or see his face unless they humble themselves, pray, and heed the truths revealed through the Prophet of the Restoration.
 
-Some have foolishly said, “Take away Joseph Smith and his prayer in the grove and the First Vision and we can accept your message.” Such people would have us bury the treasure of saving truths already cited, and many more, and turn our backs to “the most important event that had taken place in all world history from the day of Christ’s ministry to the glorious hour when it occurred” (Bruce R. McConkie, *Mormon Doctrine,* 2d ed. \[Salt Lake City: Bookcraft, 1968\], p. 285).
+Some have foolishly said, “Take away Joseph Smith and his prayer in the grove and the First Vision and we can accept your message.” Such people would have us bury the treasure of saving truths already cited, and many more, and turn our backs to “the most important event that had taken place in all world history from the day of Christ’s ministry to the glorious hour when it occurred” (Bruce R. McConkie, *Mormon Doctrine,* 2d ed. \[Salt Lake City: Bookcraft, 1968\], p. 285).
 
 Joseph Smith “lived great” and “died great in the eyes of God” ([[D&C 135.3|D&C 135:3]]). He “has done more, save Jesus only, for the salvation of men in this world, than any other man that ever lived in it” ([[D&C 135.3|135:3]]).
 
@@ -73,8 +75,3 @@ I know that Joseph Smith was a prophet, for the fruits of his labors are sweet a
 
 
 
-
-
-
-
-#Joseph_Smith #Prophets

@@ -1,6 +1,5 @@
 # Talebearer
 
-
 *See also* [[Gossip.md|Gossip]]
 
 Thou shalt not go up and down as a *talebearer*, [[Leviticus 19.16|Leviticus 19:16]].

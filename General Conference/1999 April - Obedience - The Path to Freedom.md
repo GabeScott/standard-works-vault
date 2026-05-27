@@ -1,5 +1,7 @@
 # Obedience: The Path to Freedom
 
+Gordon B. Hinckley
+
 By President James E. Faust - *Second Counselor in the First Presidency*
 
 *Given in the April session of the 1999 General Conference*
@@ -12,13 +14,13 @@ My beloved brethren, I come to this pulpit this evening with profound feelings o
 
 Tonight I speak to the priesthood of this Church, and particularly to the young men of the Aaronic Priesthood, about how to become really free. Obedience leads to true freedom. The more we obey revealed truth, the more we become liberated. President David O. McKay spoke about his horse Dandy, who wanted complete freedom and no restraints. President McKay said:
 
-“Under the saddle he was as willing, responsive, and cooperative as a horse could be. …
+“Under the saddle he was as willing, responsive, and cooperative as a horse could be. …
 
-“But Dandy resented restraint. He was ill-contented when tied and would nibble at the tie-rope until he was free. He would not run away—he just wanted to be free. Thinking other horses felt the same, he would proceed to untie their ropes. …
+“But Dandy resented restraint. He was ill-contented when tied and would nibble at the tie-rope until he was free. He would not run away—he just wanted to be free. Thinking other horses felt the same, he would proceed to untie their ropes. …
 
-“… His curiosity and desire to explore the neighborhood led him and me into trouble. Once on the highway he was hit by an automobile. …
+“… His curiosity and desire to explore the neighborhood led him and me into trouble. Once on the highway he was hit by an automobile. …
 
-“Recovering from that, and still impelled with a feeling of wanderlust, he inspected the fence throughout the entire boundary. He even found the gates wired. …
+“Recovering from that, and still impelled with a feeling of wanderlust, he inspected the fence throughout the entire boundary. He even found the gates wired. …
 
 “One day, however, somebody left the gate unwired. Detecting this, Dandy unlatched it and took another horse … with him, and together they … went to an old house used for storage. Dandy’s curiosity prompted him to push open the door. … There was a sack of grain. What a find! Yes, and what a tragedy. The grain was bait for rodents! In a few minutes Dandy and the other horse were in spasmodic pain, and shortly afterwards both were dead.”
 
@@ -85,8 +87,3 @@ I testify to you of the importance of obedience. I also wish to testify to you, 
 
 [^10]: See Sidney Alvarus Hanks and Ephraim K. Hanks, *Scouting for the Mormons on the Great Frontier* (1948), 132–33, 135–36, 140.
 
-
-
-
-
-#Commandments #Creation #Freedom #Holy_Ghost #Jesus_Christ #Laws #Obedience #Word_Of_Wisdom

@@ -1,4 +1,3 @@
 # Decay
 
-
-*See* [[Evil.md|Evil]]; [[Filthiness, Filthy.md|Filthiness]]; [[Pollution, Pollute.md|Pollution]]; [[Wickedness, Wicked.md|Wickedness]]
+*See also* [[Evil.md|Evil]]; [[Filthiness.md|Filthiness]]; [[Pollution.md|Pollution]]; [[Wickedness.md|Wickedness]]

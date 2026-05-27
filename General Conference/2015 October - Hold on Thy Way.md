@@ -1,5 +1,7 @@
 # Hold on Thy Way
 
+Rosemary M. Wixom
+
 By Elder Koichi Aoyagi - *Emeritus Member of the Seventy*
 
 *Given in the October session of the 2015 General Conference*
@@ -40,7 +42,7 @@ The principle is that the God who created the heavens and the earth knows the gr
 
 And the Lord said the following to Joseph Smith:
 
-“Know thou, my son, that all these things shall give thee experience, and shall be for thy good. …
+“Know thou, my son, that all these things shall give thee experience, and shall be for thy good. …
 
 “Therefore, *hold on thy way … ,* for God shall be with you forever and ever.”[^2]
 
@@ -48,7 +50,7 @@ The trials of this earth—including illness and death—are a part of the plan 
 
 However, the purpose of our lives is not merely to endure trials. Heavenly Father sent His Beloved Son, Jesus Christ, as our Savior and Redeemer so we could overcome the trials we face on this earth; in other words, He makes our weak things become strong,[^3] He atones for our sins and our imperfections, and He makes it possible for us to obtain immortality and eternal life.
 
-President Henry B. Eyring stated: “The test a loving God has set before us is not to see if we can endure difficulty. It is to see if we can endure it well. We pass the test by showing that we remembered Him and the commandments He gave us.”[^4]
+President Henry B. Eyring stated: “The test a loving God has set before us is not to see if we can endure difficulty. It is to see if we can endure it well. We pass the test by showing that we remembered Him and the commandments He gave us.”[^4]
 
 “Hold on thy way” is a key choice during times of trial. Turn your heart to God, especially when you face trials. Humbly obey the commandments of God. Show faith to reconcile your wishes with the will of God.
 
@@ -67,11 +69,9 @@ I sincerely testify that God the Father and His Beloved Son, Jesus Christ, live 
 
 [^3]: See [[Ether 12.27|Ether 12:27]].
 
-[^4]: Henry B. Eyring, “In the Strength of the Lord,” *Ensign* or *Liahona,* May 2004, 17.
+[^4]: Henry B. Eyring, “In the Strength of the Lord,” *Ensign* or *Liahona,* May 2004, 17.
 
 [^5]: See [[Hebrews 12.7|Hebrews 12:7–9]][[Hebrews 12.8|]][[Hebrews 12.9|]].
 
+[^6]: [[Moroni 10.32|Moroni 10:32]].
 
-
-
-#Adversity #Faith #Plan_Of_Salvation

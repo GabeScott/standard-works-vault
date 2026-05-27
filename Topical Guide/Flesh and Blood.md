@@ -1,6 +1,5 @@
 # Flesh and Blood
 
-
 *See also* [[Blood.md|Blood]]; [[Flesh.md|Flesh]]; [[Mortality.md|Mortality]]
 
 burnt offerings, the *flesh and* the *blood*, [[Deuteronomy 12.27|Deuteronomy 12:27]].

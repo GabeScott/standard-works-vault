@@ -1,5 +1,7 @@
 # How to Live Well amid Increasing Evil
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2004 General Conference*
@@ -69,7 +71,7 @@ Your security is in God your Father and His Beloved Son, Jesus Christ. As one of
 
 [^1]: “Standing Strong and Immovable,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20.
 
-[^2]: In Conference Report, Oct. 2003, 3, 5; or *Ensign,* Nov. 2003, 4, 7.
+[^2]: In Conference Report, Oct. 2003, [[2003 October - The State of the Church.md|3, 5]]; or *Ensign,* Nov. 2003, 4, 7.
 
 [^3]: [[D&C 64.32|D&C 64:32–34]][[D&C 64.33|]][[D&C 64.34|]].
 
@@ -85,8 +87,3 @@ Your security is in God your Father and His Beloved Son, Jesus Christ. As one of
 
 [^9]: [[Alma 41.10|Alma 41:10]].
 
-
-
-
-
-#Agency #Repentance #Service #Temptation

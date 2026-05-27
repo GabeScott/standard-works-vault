@@ -1,13 +1,12 @@
 # Set
 
-
 *See also* [[Pitch.md|Pitch]]; [[Place.md|Place]]; [[Put.md|Put]]
 
-Pharaoh said ... I have *set* thee over all the land of Egypt, [[Genesis 41.41|Genesis 41:41]].
+Pharaoh said … I have *set* thee over all the land of Egypt, [[Genesis 41.41|Genesis 41:41]].
 
 *set* in order the things that are to be *set* in order, [[Exodus 40.4|Exodus 40:4]].
 
-Let the Lord ... *set* a man over the congregation, [[Numbers 27.16|Numbers 27:16]].
+Let the Lord … *set* a man over the congregation, [[Numbers 27.16|Numbers 27:16]].
 
 *set* him before Eleazar, [[Numbers 27.19|Numbers 27:19]].
 
@@ -33,7 +32,7 @@ I have *set* before thee an open door, [[Revelation 3.8|Revelation 3:8]].
 
 they *set* him at naught, [[1 Nephi 19.7|1 Nephi 19:7]].
 
-I will ... *set* up my standard to the people, [[1 Nephi 21.22|1 Nephi 21:22]] ([[1 Nephi 22.6|1 Nephi 22:6]]).
+I will … *set* up my standard to the people, [[1 Nephi 21.22|1 Nephi 21:22]] ([[1 Nephi 22.6|1 Nephi 22:6]]).
 
 priestcrafts are that men preach and *set* themselves up for a light, [[2 Nephi 26.29|2 Nephi 26:29]].
 
@@ -45,11 +44,11 @@ Lord God *set* a mark upon them, [[Alma 3.7|Alma 3:7]].
 
 ye have *set* at defiance the commandments of God, [[Alma 5.18|Alma 5:18]].
 
-will ye still persist in ... *setting* your hearts upon the vain things, [[Alma 5.53|Alma 5:53]].
+will ye still persist in … *setting* your hearts upon the vain things, [[Alma 5.53|Alma 5:53]].
 
 *set* at naught the commandments, [[Helaman 4.21|Helaman 4:21]].
 
-quick ... to *set* their hearts upon the vain things, [[Helaman 12.4|Helaman 12:4]].
+quick … to *set* their hearts upon the vain things, [[Helaman 12.4|Helaman 12:4]].
 
 *set* at naught his counsels, [[Helaman 12.6|Helaman 12:6]] ([[D&C 3.7|D&C 3:7]]).
 
@@ -69,4 +68,4 @@ Lord *set* a mark upon Cain, [[Moses 5.40|Moses 5:40]].
 
 their hearts were *set* to do evil, [[Abraham 1.6|Abraham 1:6]].
 
-given unto thee to know ... the *set* time of the earth, [[Abraham 3.6|Abraham 3:6]].
+given unto thee to know … the *set* time of the earth, [[Abraham 3.6|Abraham 3:6]].

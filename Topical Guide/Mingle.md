@@ -1,6 +1,5 @@
 # Mingle
 
-
 shalt not sow thy field with *mingled* seed: neither shall a garment *mingled* of linen and woollen, [[Leviticus 19.19|Leviticus 19:19]].
 
 holy seed have *mingled* themselves with the people, [[Ezra 9.2|Ezra 9:2]].

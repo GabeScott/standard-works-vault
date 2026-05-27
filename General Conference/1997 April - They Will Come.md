@@ -1,5 +1,7 @@
 # They Will Come
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1997 General Conference*
@@ -121,7 +123,5 @@ My beloved brethren, let us, with faith unwavering and with love unstinting, be 
 
 [^4]: [[Ephesians 2.19|Eph. 2:19]].
 
+[^5]: “Put Your Shoulder to the Wheel,” *Hymns,* no. 252.
 
-
-
-#Activation #Covenants #Faith #Fellowshipping #Jesus_Christ #Missionary_Work #Priesthood

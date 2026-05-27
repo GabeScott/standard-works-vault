@@ -1,6 +1,8 @@
 # The Spirit of Missionary Work
 
-By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
+Spencer W. Kimball
+
+By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1976 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Carlos E. Asay - *Of the First Quorum of the Seventy*
 
 I want to take this opportunity to express my love and appreciation to the members of the First Council of the Seventy who were released yesterday. I’ve appreciated so much their leadership and support these past six months. I also sustain the new members, the new presidents of the First Council, and pledge my full support.
 
-A few years ago, in a mission presidents seminar, President Hugh B. Brown said: “If God would grant me one wish—just one—it would be this: that each missionary felt and enjoyed the spirit of his calling.” He also stated that if all missionaries were blessed to feel this spirit, miraculous things would occur in the world.
+A few years ago, in a mission presidents seminar, President Hugh B. Brown said: “If God would grant me one wish—just one—it would be this: that each missionary felt and enjoyed the spirit of his calling.” He also stated that if all missionaries were blessed to feel this spirit, miraculous things would occur in the world.
 
 If I were granted one wish, it would be similar to President Brown’s. My wish, however, would apply to all members of the Church, not just the full-time missionaries. Within my heart is the compelling desire that all members of the Church, young and old, be influenced and motivated by that special spirit which accompanies the sharing of the gospel of Jesus Christ. Would that all Latter-day Saints had intimate and continuous association with the missionary spirit!
 
@@ -20,7 +22,7 @@ The spirit of which I speak is best understood by reading the accounts of great 
 
 This and other scriptures describe a marvelous phenomenon which occurs among men when the light of the gospel illuminates their lives. Almost instinctively, it seems, that light of truth sparks a desire to share. When our minds are expanded by new knowledge, we want others to know; when our spirits are elevated by heavenly influence, we want others to feel; and when our lives are filled with goodness, we want others, particularly those whom we love, to enjoy similar experiences.
 
-You will recall that in Lehi’s dream he “beheld a tree, whose fruit was desirable to make one happy.” So he went forth, partook of the fruit, and was filled with joy. Then, according to the record, he “began to be desirous that his family should partake of it also; for,” he said, “I knew that it was desirable above all other fruit.” This fruit motivated Lehi to beckon to his family and “with a loud voice” invite them to come to him and partake. (See [[1 Nephi 8.10|1 Ne. 8:10–12, 15]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.15|]].)
+You will recall that in Lehi’s dream he “beheld a tree, whose fruit was desirable to make one happy.” So he went forth, partook of the fruit, and was filled with joy. Then, according to the record, he “began to be desirous that his family should partake of it also; for,” he said, “I knew that it was desirable above all other fruit.” This fruit motivated Lehi to beckon to his family and “with a loud voice” invite them to come to him and partake. (See [[1 Nephi 8.10|1 Ne. 8:10–12, 15]][[1 Nephi 8.11|]][[1 Nephi 8.12|]][[1 Nephi 8.15|]].)
 
 Not too long ago, I heard the testimony of a new convert—a young man obviously touched by the Spirit. Among other things, he indicated that it was his great desire to share the restored gospel with his family and friends. With tears in his eyes and a quiver in his voice, he said:
 
@@ -50,7 +52,7 @@ I then inquired, “Do you pray now?”
 
 “Oh yes,” he said. “We pray all the time. We bless the food before each meal; we have family prayers; and I pray frequently about my work.”
 
-I commended him for cultivating this habit and invited him to read with me this scripture: “For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray.” ([[2 Nephi 32.8|2 Ne. 32:8]].)
+I commended him for cultivating this habit and invited him to read with me this scripture: “For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray; for the evil spirit teacheth not a man to pray.” ([[2 Nephi 32.8|2 Ne. 32:8]].)
 
 My friend quickly admitted that he had been listening to the right spirit.
 
@@ -93,8 +95,3 @@ In the name of Jesus Christ. Amen.
 
 
 
-
-
-
-
-#Missionary_Work #Testimony

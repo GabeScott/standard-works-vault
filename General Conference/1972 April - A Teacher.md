@@ -1,6 +1,8 @@
 # A Teacher
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+Wilford G. Edling
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1972 General Conference*
 
@@ -19,8 +21,3 @@ God bless the good people who teach our children and our youth, I humbly pray, i
 
 
 
-
-
-
-
-#Teaching

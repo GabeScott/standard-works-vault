@@ -1,7 +1,6 @@
 # God, Access to
 
-
-*See also* [[Prayer, Pray.md|Prayer]]
+*See also* [[Prayer.md|Prayer]]
 
 Enoch *walked* with God, [[Genesis 5.24|Genesis 5:24]].
 
@@ -19,9 +18,9 @@ I will *meet* with thee, and I will commune with thee, [[Exodus 25.22|Exodus 25:
 
 congregation *drew near* and stood before the Lord, [[Leviticus 9.5|Leviticus 9:5]].
 
-if ... thou shalt *seek* the Lord thy God, thou shalt find him, [[Deuteronomy 4.29|Deuteronomy 4:29]].
+if … thou shalt *seek* the Lord thy God, thou shalt find him, [[Deuteronomy 4.29|Deuteronomy 4:29]].
 
-when they ... *sought* him, he was found of them, [[2 Chronicles 15.4|2 Chronicles 15:4]].
+when they … *sought* him, he was found of them, [[2 Chronicles 15.4|2 Chronicles 15:4]].
 
 Will God *hear* his cry when trouble cometh upon him, [[Job 27.9|Job 27:9]].
 
@@ -81,8 +80,6 @@ Lord thy God shall *lead* thee by the hand, [[D&C 112.10|D&C 112:10]].
 
 thy God, and will be *with* thee even unto the end, [[D&C 132.49|D&C 132:49]].
 
-Lord ... *talked* with me ... face to face, [[Moses 7.4|Moses 7:4]].
+Lord … *talked* with me … face to face, [[Moses 7.4|Moses 7:4]].
 
 Abraham, *talked* with the Lord, face to face, [[Abraham 3.11|Abraham 3:11]].
-
-*See also* [[Isaiah 5.25|Isaiah 5:25]]; [[Romans 2.11|Romans 2:11]]; [[3 Nephi 11.20|3 Nephi 11:20]].

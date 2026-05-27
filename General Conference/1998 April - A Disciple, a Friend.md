@@ -1,5 +1,7 @@
 # A Disciple, a Friend
 
+Gordon B. Hinckley
+
 By Bishop Richard C. Edgley - *First Counselor in the Presiding Bishopric*
 
 *Given in the April session of the 1998 General Conference*
@@ -28,9 +30,9 @@ I responded that I would be interested in hearing his further feelings and under
 
 My friend took the time to learn for himself before forming a judgment. He did not try to influence others based on lack of understanding or misconception. This seemed responsible to me—seeking understanding before judging, and certainly before trying to persuade another to one’s own misconceptions.
 
-To my friend Darlene, may I again point out that Jesus Christ is central to every doctrine, every ordinance, and every principle of the Church—as its very name suggests. The Book of Mormon testifies of Jesus Christ, giving emphasis and clarification to His teachings. The Book of Mormon prophet Nephi declared to the world, “And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Ne. 25:26]]).
+To my friend Darlene, may I again point out that Jesus Christ is central to every doctrine, every ordinance, and every principle of the Church—as its very name suggests. The Book of Mormon testifies of Jesus Christ, giving emphasis and clarification to His teachings. The Book of Mormon prophet Nephi declared to the world, “And we talk of Christ, we rejoice in Christ, we preach of Christ, we prophesy of Christ, and we write according to our prophecies, that our children may know to what source they may look for a remission of their sins” ([[2 Nephi 25.26|2 Ne. 25:26]]).
 
-Nephi further stated, “There is none other name given under heaven save it be this Jesus Christ, of which I have spoken, whereby man can be saved” ([[2 Nephi 25.20|2 Ne. 25:20]]).
+Nephi further stated, “There is none other name given under heaven save it be this Jesus Christ, of which I have spoken, whereby man can be saved” ([[2 Nephi 25.20|2 Ne. 25:20]]).
 
 Over the years I have pondered this experience with my friend Darlene, bothered by its conclusion. However, I have since concluded that viewpoints based on misunderstandings and fallacious teachings should not trouble me, except as I have a responsibility to attempt to clarify such misconceptions. The real issue is not how others define us but how the Savior defines us. So the question is, how does He personally view each and every one of us?
 
@@ -38,7 +40,7 @@ Therefore, as members of The Church of Jesus Christ of Latter-day Saints, we nee
 
 In the last moments of my father’s righteous and exemplary life, with all of the strength he could muster, he uttered in a hardly audible voice, “I only hope the Savior will find me worthy to call me His friend.” Oh, to be called a friend of the Savior! As my father yearned, I also wondered: Would Christ count me as one of His sheep? Would He see me striving to exemplify His teachings and live His divine principles? Would He call me a disciple? Would He call me a friend? This is what really matters.
 
-The Savior gave the criteria for His friendship in the 15th chapter of John, in which He stated, “Ye are my friends, if ye do whatsoever I command you” ([[John 15.14|John 15:14]]). He further gave the acid test when He said, “Ye shall know them by their fruits” ([[Matthew 7.16|Matt. 7:16]]; see also [[Matthew 7.17|vv. 17–18, 20]][[Matthew 7.18|]][[Matthew 7.20|]]). This is how we will all be judged—by our fruits, good or bad. In the final judgment, if our fruits so warrant, we will be invited to sit on the right hand of God. There I believe will be His friends.
+The Savior gave the criteria for His friendship in the 15th chapter of John, in which He stated, “Ye are my friends, if ye do whatsoever I command you” ([[John 15.14|John 15:14]]). He further gave the acid test when He said, “Ye shall know them by their fruits” ([[Matthew 7.16|Matt. 7:16]]; see also [[Matthew 7.17|vv. 17–18, 20]][[Matthew 7.18|]][[Matthew 7.20|]]). This is how we will all be judged—by our fruits, good or bad. In the final judgment, if our fruits so warrant, we will be invited to sit on the right hand of God. There I believe will be His friends.
 
 So, if we, even in our weak and stumbling way, are earnestly striving to live a Christlike life, how others choose to characterize us should be of little consequence. The responsibility for our Christianity is ours. Others may characterize us as they will, but the true and righteous Judge will judge us as we are. Our discipleship is for us to determine, not someone else.
 
@@ -68,7 +70,7 @@ Today we might add to these questions:
 
 - Are we following the admonition and the teachings of the prophet?
 
-Yes, the question is, do our outward devotions translate into a Christlike life? It is not enough that we just talk of Christ, preach of Christ, or even prophesy of Christ (see [[2 Nephi 25.26|2 Ne. 25:26]]). We must live of Christ, for it is by our own personal, everyday living that the Savior will determine whether we are one of His true disciples, a friend.
+Yes, the question is, do our outward devotions translate into a Christlike life? It is not enough that we just talk of Christ, preach of Christ, or even prophesy of Christ (see [[2 Nephi 25.26|2 Ne. 25:26]]). We must live of Christ, for it is by our own personal, everyday living that the Savior will determine whether we are one of His true disciples, a friend.
 
 To the Darlenes of the world, I would hope that our fruits would merit the term *Christian.* And to us who are members of The Church of Jesus Christ of Latter-day Saints, I would hope that our deeds, our actions, our hearts, and our countenances exemplify the teachings of the Savior and display our gratitude for His great sacrifice for all of us.
 
@@ -79,8 +81,3 @@ It is my testimony that He lived, He died, and He lives. He atoned for our sins.
 
 
 
-
-
-
-
-#Atonement #Book_Of_Mormon #Commandments #Conversion #Covenants #Discipleship #Jesus_Christ #Ordinances #Prayer #Sacrament

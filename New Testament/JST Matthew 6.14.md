@@ -4,6 +4,3 @@
 
 [JST Matthew 6:14](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-matt/6?lang=eng)
 
-
-
-

@@ -1,4 +1,3 @@
 # Smith, Joseph
 
-
-*See* [[Joseph Smith.md|Joseph Smith]]
+*See also* [[Joseph Smith.md|Joseph Smith]]

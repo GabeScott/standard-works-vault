@@ -1,5 +1,7 @@
 # The Joy of the Penetrating Light
 
+Gordon B. Hinckley
+
 By Elder F. Enzio Busche - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1984 General Conference*
@@ -42,7 +44,7 @@ He understands, in the light and the power of the Holy Ghost, what a privilege i
 
 No, it is not difficult to say good-bye to the world with its craving for lust, its thirst for pleasure, and its quest for power, leaving the world groping in the mire of egoism. He understands that, as he is placing his life in the hand of Heavenly Father, he has now become a disciple of Christ, and he has experienced the sweetness of the divine light in its fullness—the light and power of the Holy Ghost. No longer can he be satisfied by the light he can find in this world. No, he will not be able to forget his Savior and Master anymore!
 
-He appreciates so much the special privilege of being invited every Sabbath day to renew his covenant in the sacred setting of the sacrament. The power of this light gives him the knowledge that he will always listen to that Spirit that teaches a man to pray, about which Nephi, the prophet of whom he has just learned, testified: “For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray.” ([[2 Nephi 32.8|2 Ne. 32:8]].)
+He appreciates so much the special privilege of being invited every Sabbath day to renew his covenant in the sacred setting of the sacrament. The power of this light gives him the knowledge that he will always listen to that Spirit that teaches a man to pray, about which Nephi, the prophet of whom he has just learned, testified: “For if ye would hearken unto the Spirit which teacheth a man to pray ye would know that ye must pray.” ([[2 Nephi 32.8|2 Ne. 32:8]].)
 
 He now understands that by the authority of this Spirit he was led to grow in reverence, that the words of his prayers became fewer and fewer until he became quiet and was changed from someone who was speaking to someone who was listening—listening to the still, soft, sweet voice whose word is quick and powerful, and “sharper than a two-edged sword.” ([[D&C 6.2|D&C 6:2]].)
 
@@ -63,8 +65,3 @@ I say this humbly in His name, amen.
 
 
 
-
-
-
-
-#Conversion #Repentance #Truth

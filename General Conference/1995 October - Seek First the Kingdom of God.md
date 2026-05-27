@@ -1,5 +1,7 @@
 # Seek First the Kingdom of God
 
+Gordon B. Hinckley
+
 By Elder David B. Haight - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1995 General Conference*
@@ -38,7 +40,7 @@ A few weeks ago, Ruby and I were up in Oakley, Idaho, for a couple of days, rest
 
 After I hung up the phone, I walked up the street from our old family home. I walked across the canal over to the area where the Romneys used to live. George’s father’s name was Gaskell Romney. My father was their bishop. I looked at the area. The house wasn’t there anymore. Then I walked along the old irrigation canal bank. I looked at the area where my father baptized me. I looked at where George and I used to swim. Swimming suits in those days were a pair of bib overalls, not the high-fashioned kind you see today but the real denim, old-fashioned bib overalls. We cut the legs off and cut the pockets out so we wouldn’t drown. That’s all we had for swimming suits. We used to sit on the canal bank in a little bit of sunshine and shiver because it was so cold. But swimming was our main recreation. George and I were about the same age. He was my friend. He was my pal.
 
-As I walked along the canal bank, thinking about George, I thought of a poem by Rosemary and Stephen Vincent Benét that they had written about Nancy Hanks, the mother of Abraham Lincoln. Abraham Lincoln was only seven when Nancy Hanks died, and they loved each other very much. But in that tender poem, the Benéts reflected that if Nancy Hanks came back today, she might ask, Whatever happened to my boy, Abe? Did he get to town? Did he learn to read? Did he ever amount to anything? (See “Nancy Hanks,” in Edwin Markham, comp., *The Book of American Poetry* \[New York: Wm. H. Wise and Co., 1936\], p. 791–92).
+As I walked along the canal bank, thinking about George, I thought of a poem by Rosemary and Stephen Vincent Benét that they had written about Nancy Hanks, the mother of Abraham Lincoln. Abraham Lincoln was only seven when Nancy Hanks died, and they loved each other very much. But in that tender poem, the Benéts reflected that if Nancy Hanks came back today, she might ask, Whatever happened to my boy, Abe? Did he get to town? Did he learn to read? Did he ever amount to anything? (See “Nancy Hanks,” in Edwin Markham, comp., *The Book of American Poetry* \[New York: Wm. H. Wise and Co., 1936\], pp. 791–92).
 
 George’s mother had died while he was a teenager. She didn’t get to see what he became. At the funeral, I was honored to be there with the governor of the state of Michigan—a state of some nine million people, where George had been elected governor three times. The governor said George Romney was a great man who never allowed service to man to obscure service to God. The *Detroit News* said George Romney used his religion as a compass to chart his public life.
 
@@ -47,8 +49,3 @@ I leave you my love, my witness, and my testimony that this work is true. You yo
 
 
 
-
-
-
-
-#Kingdom_Of_God #Music #Obedience #Temples

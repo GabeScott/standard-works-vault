@@ -4,6 +4,3 @@
 
 [JST John 4:26](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-john/4?lang=eng)
 
-
-
-

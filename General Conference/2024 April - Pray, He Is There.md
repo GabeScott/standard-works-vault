@@ -1,6 +1,8 @@
 # Pray, He Is There
 
-By President Susan H. Porter - *Primary General President*
+Dallin H. Oaks
+
+By President Susan H. Porter - *Primary General President*
 
 *Given in the April session of the 2024 General Conference*
 
@@ -38,7 +40,7 @@ There is a song about prayer that Primary children sing all over the world. It s
 
 How can you know that Heavenly Father is really there, even when you can’t see Him?
 
-President Russell M. Nelson has invited you to “pour out your heart to your Heavenly Father. … And then listen!”[^3] Listen to what you feel in your heart and to thoughts that come to your mind.[^4]
+President Russell M. Nelson has invited you to “pour out your heart to your Heavenly Father. … And then listen!”[^3] Listen to what you feel in your heart and to thoughts that come to your mind.[^4]
 
 Heavenly Father has a glorified body of flesh and bones and is the Father of your spirit. Because Heavenly Father has all power and knows all things, He can see all His children[^5] and can hear and answer every prayer. You can come to *know* for yourself that He is there and that He loves you.
 
@@ -83,38 +85,33 @@ I invite you to *pray to know* Heavenly Father is there, *pray to grow* to becom
 
 
 
-[^1]: [[John 16.24|John 16:24]]; see also [[3 Nephi 27.29|3 Nephi 27:29]].
+[^1]: [[John 16.24|John 16:24]]; see also [[3 Nephi 27.29|3 Nephi 27:29]].
 
-[^2]: “A Child’s Prayer,” *Children’s Songbook*, 12.
+[^2]: “A Child’s Prayer,” *Children’s Songbook*, 12.
 
-[^3]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 95.
+[^3]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 95.
 
 [^4]: See [[D&C 11.13|Doctrine and Covenants 11:13]].
 
-[^5]: See [[Moses 1.6|Moses 1:6–8, 27–29, 35]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.27|]][[Moses 1.28|]][[Moses 1.29|]][[Moses 1.35|]].
+[^5]: See [[Moses 1.6|Moses 1:6–8, 27–29, 35]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.27|]][[Moses 1.28|]][[Moses 1.29|]][[Moses 1.35|]].
 
-[^6]: “A Child’s Prayer,” 12.
+[^6]: “A Child’s Prayer,” 12.
 
-[^7]: See [[1 Nephi 16.18|1 Nephi 16:18, 23–24]][[1 Nephi 16.23|]][[1 Nephi 16.24|]].
+[^7]: See [[1 Nephi 16.18|1 Nephi 16:18, 23–24]][[1 Nephi 16.23|]][[1 Nephi 16.24|]].
 
 [^8]: See [[John 3.16|John 3:16–17]][[John 3.17|]].
 
-[^9]: “A Child’s Prayer,” 12.
+[^9]: “A Child’s Prayer,” 12.
 
 [^10]: Personal correspondence.
 
 [^11]: See [[John 13.34|John 13:34–35]][[John 13.35|]].
 
-[^12]: See [[Alma 20.26|Alma 20:26–27]][[Alma 20.27|]]; [[Alma 22.1|22]][[Alma 22.2|]][[Alma 22.3|]][[Alma 22.4|]][[Alma 22.5|]][[Alma 22.6|]][[Alma 22.7|]][[Alma 22.8|]][[Alma 22.9|]][[Alma 22.10|]][[Alma 22.11|]][[Alma 22.12|]][[Alma 22.13|]][[Alma 22.14|]][[Alma 22.15|]][[Alma 22.16|]][[Alma 22.17|]][[Alma 22.18|]][[Alma 22.19|]][[Alma 22.20|]][[Alma 22.21|]][[Alma 22.22|]][[Alma 22.23|]][[Alma 22.24|]][[Alma 22.25|]][[Alma 22.26|]][[Alma 22.27|]][[Alma 22.28|]][[Alma 22.29|]][[Alma 22.30|]][[Alma 22.31|]][[Alma 22.32|]][[Alma 22.33|]][[Alma 22.34|]][[Alma 22.35|]].
+[^12]: See [[Alma 20.26|Alma 20:26–27]][[Alma 20.27|]]; [[Alma 22.1|22]].
 
-[^13]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Helaman 14.30|Helaman 14:30]].
+[^13]: See [[2 Nephi 2.27|2 Nephi 2:27]]; [[Helaman 14.30|Helaman 14:30]].
 
 [^14]: See [[Mosiah 24.12|Mosiah 24:12]]; [[Alma 37.37|Alma 37:37]].
 
 [^15]: See [[D&C 19.38|Doctrine and Covenants 19:38]].
 
-
-
-
-
-#God_The_Father #Jesus_Christ #Love #Prayer #Revelation #Spiritual_Growth

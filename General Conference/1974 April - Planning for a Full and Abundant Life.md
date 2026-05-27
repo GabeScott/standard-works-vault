@@ -1,6 +1,8 @@
 # Planning for a Full and Abundant Life
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1974 General Conference*
 
@@ -99,7 +101,7 @@ Ralph Waldo Emerson said, “Every man takes care that his neighbor shall not ch
 
 This boy did not know how our acts follow us and how that which we sow we are sure to reap. And every experience we have adds to or draws from our lives. We cannot think ugly thoughts or do ugly things without retribution.
 
-Recently in a paper was an account of a girl who found a very large check in excess of two million dollars. She immediately began spending it in her own mind, she said. But finally she returned the check to its owner, and the newspaper account revealed the reward was very much smaller than her dreams. Why should she want a reward for doing right? Why should she be disappointed in the amount offered? Must people be rewarded for doing right? Would you expect a reward if you returned a lost article? All of you boys are learning or have learned the Thirteenth Article of Faith: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men. …”
+Recently in a paper was an account of a girl who found a very large check in excess of two million dollars. She immediately began spending it in her own mind, she said. But finally she returned the check to its owner, and the newspaper account revealed the reward was very much smaller than her dreams. Why should she want a reward for doing right? Why should she be disappointed in the amount offered? Must people be rewarded for doing right? Would you expect a reward if you returned a lost article? All of you boys are learning or have learned the Thirteenth Article of Faith: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men. …”
 
 I wish to say a few words about shoplifting, but time will not permit. It is a terrible disgrace that in our communities firms must set aside a rather distressing percentage of their profits to take care of the shoplifting. It is a horrible thing that in a Latter-day Saint community, where part of us at least are Latter-day Saints, this should be the case.
 
@@ -126,8 +128,3 @@ Brethren, it is wonderful to be with you here tonight. And may peace be with you
 
 
 
-
-
-
-
-#Commitment #Covenants #Obedience #Spirituality

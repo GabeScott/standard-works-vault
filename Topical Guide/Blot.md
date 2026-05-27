@@ -1,7 +1,6 @@
 # Blot
 
-
-if not, *blot* me ... out of thy book, [[Exodus 32.32|Exodus 32:32]].
+if not, *blot* me … out of thy book, [[Exodus 32.32|Exodus 32:32]].
 
 *blot* out their name from under heaven, [[Deuteronomy 9.14|Deuteronomy 9:14]].
 
@@ -19,8 +18,8 @@ converted, that your sins may be *blotted* out, [[Acts 3.19|Acts 3:19]].
 
 *Blotting* out the handwriting of ordinances, [[Colossians 2.14|Colossians 2:14]].
 
-He that overcometh ... I will not *blot* out his name out of the book, [[Revelation 3.5|Revelation 3:5]].
+He that overcometh … I will not *blot* out his name out of the book, [[Revelation 3.5|Revelation 3:5]].
 
-not confess ... and repent ... their names were *blotted* out, [[Mosiah 26.36|Mosiah 26:36]].
+not confess … and repent … their names were *blotted* out, [[Mosiah 26.36|Mosiah 26:36]].
 
 hearts of many were hardened, and their names were *blotted* out, [[Alma 1.24|Alma 1:24]] ([[Alma 5.57|Alma 5:57]]; [[Alma 6.3|Alma 6:3]]; [[Moroni 6.7|Moroni 6:7]]; [[D&C 20.83|D&C 20:83]]).

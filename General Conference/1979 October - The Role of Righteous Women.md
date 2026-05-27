@@ -1,6 +1,8 @@
 # The Role of Righteous Women
 
-By President Spencer W. Kimball - *Read by his wife, Sister Camilla Kimball*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *Read by his wife, Sister Camilla Kimball*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -12,11 +14,11 @@ The counsel given at our meeting last year is still appropriate. Whenever I refl
 
 The scriptures and the prophets have taught us clearly that God, who is perfect in his attribute of justice, “is no respecter of persons” ([[Acts 10.34|Acts 10:34]]). We know also that God is perfect in his love for each and all of us as his spirit children. When we know these truths, my sisters and associates in this divine cause, it should help us greatly as we all experience much less than perfect love and perfect justice in the world. If, in the short term, we are sometimes dealt with insensitively and thoughtlessly by others, by imperfect men and women, it may still cause us pain, but such pain and disappointment are not the whole of life. The ways of the world will not prevail, for the ways of God will triumph.
 
-We had full equality as his spirit children. We have equality as recipients of God’s perfected love for each of us. The late Elder John A. Widtsoe wrote:
+We had full equality as his spirit children. We have equality as recipients of God’s perfected love for each of us. The late Elder John A. Widtsoe wrote:
 
 “The place of woman in the Church is to walk beside the man, not in front of him nor behind him. In the Church there is full equality between man and woman. The gospel, which is the only concern of the Church, was devised by the Lord for men and women alike” (*Improvement Era,* Mar. 1942, p. 161).
 
-Within those great assurances, however, our roles and assignments differ. These are eternal differences—with women being given many tremendous responsibilities of motherhood and sisterhood and men being given the tremendous responsibilities of fatherhood and the priesthood—but the man is not without the woman nor the woman without the man in the Lord (see [[1 Corinthians 11.11|1 Cor. 11:11]]). Both a righteous man and a righteous woman are a blessing to all those their lives touch.
+Within those great assurances, however, our roles and assignments differ. These are eternal differences—with women being given many tremendous responsibilities of motherhood and sisterhood and men being given the tremendous responsibilities of fatherhood and the priesthood—but the man is not without the woman nor the woman without the man in the Lord (see [[1 Corinthians 11.11|1 Cor. 11:11]]). Both a righteous man and a righteous woman are a blessing to all those their lives touch.
 
 Remember, in the world before we came here, faithful women were given certain assignments while faithful men were foreordained to certain priesthood tasks. While we do not now remember the particulars, this does not alter the glorious reality of what we once agreed to. You are accountable for those things which long ago were expected of you just as are those we sustain as prophets and apostles!
 
@@ -58,7 +60,7 @@ Among the real heroines in the world who will come into the Church are women who
 
 Thus it will be that female exemplars of the Church will be a significant force in both the numerical and the spiritual growth of the Church in the last days.
 
-No wonder the adversary strives, even now, to prevent this from happening! Regardless of who is getting the adversary’s special attention at any given time, he seeks to make all people “miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]). Indeed, he seeks “the misery of all mankind” ([[2 Nephi 2.18|2 Ne. 2:18]]). He is undeviating in his purposes and is clever and relentless in his pursuit of them.
+No wonder the adversary strives, even now, to prevent this from happening! Regardless of who is getting the adversary’s special attention at any given time, he seeks to make all people “miserable like unto himself” ([[2 Nephi 2.27|2 Ne. 2:27]]). Indeed, he seeks “the misery of all mankind” ([[2 Nephi 2.18|2 Ne. 2:18]]). He is undeviating in his purposes and is clever and relentless in his pursuit of them.
 
 As we approach the general conference with its priesthood session, we will be no less loving or direct with the brethren, for our counsel will be similar.
 
@@ -71,8 +73,3 @@ I know that God lives, that Jesus is his Only Begotten Son, the Redeemer of the 
 
 
 
-
-
-
-
-#Women

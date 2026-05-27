@@ -1,6 +1,8 @@
 # If They Will But Serve the God of the Land
 
-By President N. Eldon Tanner - *First Counselor in the First Presidency*
+Spencer W. Kimball
+
+By President N. Eldon Tanner - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -30,19 +32,19 @@ Just as Noah was directed, these people too were instructed to build ships to ca
 
 The account states, “And when they had set their feet upon the shores of the promised land they bowed themselves down upon the face of the land, and did humble themselves before the Lord, and did shed tears of joy before the Lord, because of the multitude of his tender mercies over them.” ([[Ether 6.12|Ether 6:12]].)
 
-Then, six hundred years before the birth of Christ, a prophet by the name of Lehi, who had been crying repentance unto the inhabitants of Jerusalem, was commanded by the Lord to depart with his family into the wilderness. Because of the things which he had testified concerning the wickedness of the people and the pending destruction of Jerusalem, he was mocked and scorned, and the people sought to take his life. In obedience to the Lord’s instructions, he departed with his family and others, and after a period in the wilderness, they too were instructed to build a ship and sail for the promised land. We read, “And it came to pass that after we had sailed for the space of many days we did arrive at the promised land; and we went forth upon the land, and did pitch our tents; and we did call it the promised land.” ([[1 Nephi 18.23|1 Ne. 18:23]].)
+Then, six hundred years before the birth of Christ, a prophet by the name of Lehi, who had been crying repentance unto the inhabitants of Jerusalem, was commanded by the Lord to depart with his family into the wilderness. Because of the things which he had testified concerning the wickedness of the people and the pending destruction of Jerusalem, he was mocked and scorned, and the people sought to take his life. In obedience to the Lord’s instructions, he departed with his family and others, and after a period in the wilderness, they too were instructed to build a ship and sail for the promised land. We read, “And it came to pass that after we had sailed for the space of many days we did arrive at the promised land; and we went forth upon the land, and did pitch our tents; and we did call it the promised land.” ([[1 Nephi 18.23|1 Ne. 18:23]].)
 
-While in the wilderness Nephi, the son of Lehi, was permitted to see in vision the things that would transpire concerning the destiny of America—the promised land. He said, “And I looked and beheld a man among the Gentiles, who was separated from the seed of my brethren by the many waters; and I beheld the Spirit of God, that it came down and wrought upon the man; and he went forth upon the many waters, even unto the seed of my brethren, who were in the promised land.” ([[1 Nephi 13.12|1 Ne. 13:12]].)
+While in the wilderness Nephi, the son of Lehi, was permitted to see in vision the things that would transpire concerning the destiny of America—the promised land. He said, “And I looked and beheld a man among the Gentiles, who was separated from the seed of my brethren by the many waters; and I beheld the Spirit of God, that it came down and wrought upon the man; and he went forth upon the many waters, even unto the seed of my brethren, who were in the promised land.” ([[1 Nephi 13.12|1 Ne. 13:12]].)
 
 This, as we know, refers to Christopher Columbus, who was impelled by the Spirit of God to cross the ocean for the rediscovery of America, thus assisting in the furthering of God’s purposes.
 
-Columbus himself, in a letter to the Spanish hierarchy, wrote, “Our Lord unlocked my mind, sent me upon the sea, and gave me fire for the deed. Those who heard of my emprise called it foolish, mocked me, and laughed. But who can doubt but that the Holy Ghost inspired me?” (Quoted in Mark E. Petersen, *The Great Prologue,* Deseret Book Co., 1975, p. 26.)
+Columbus himself, in a letter to the Spanish hierarchy, wrote, “Our Lord unlocked my mind, sent me upon the sea, and gave me fire for the deed. Those who heard of my emprise called it foolish, mocked me, and laughed. But who can doubt but that the Holy Ghost inspired me?” (Quoted in Mark E. Petersen, *The Great Prologue,* Deseret Book Co., 1975, p. 26.)
 
 During the voyage, after weeks of sailing with no sign of land, mutiny raised its head. Finally, Columbus promised the captains of the *Pinta* and the *Niña,* both of whom wanted to turn back, that if no land was sighted in forty-eight hours, they would turn back. Then he went to his cabin and, in his words, “prayed mightily to the Lord.” On October 12, the very next day, they sighted land.
 
 Nephi saw in vision also the coming of the Pilgrims, who came to escape religious persecution. He foresaw the coming to America of peoples from many nations, their wars and contentions. As Nephi said, they did humble themselves before the Lord and “the power of God was with them, and also that the wrath of God was upon all those that were gathered together against them to battle.
 
-“And I, Nephi, beheld that the Gentiles that had gone out of captivity were delivered by the power of God out of the hands of all other nations.” ([[1 Nephi 13.18|1 Ne. 13:18–19]][[1 Nephi 13.19|]].)
+“And I, Nephi, beheld that the Gentiles that had gone out of captivity were delivered by the power of God out of the hands of all other nations.” ([[1 Nephi 13.18|1 Ne. 13:18–19]][[1 Nephi 13.19|]].)
 
 Thus the American colonies attained their independence and set up the government of the United States, all under the divine intervention of God in preparing this land for its divine destiny.
 
@@ -70,11 +72,11 @@ Significantly, the early Americans to whom we have referred were aware of the bi
 
 Referring to these same early Americans, the Lord said, as recorded in the New Testament, “And other sheep I have, which are not of this fold: them also I must bring and they shall hear my voice; and there shall be one fold, and one shepherd.” ([[John 10.16|John 10:16]].)
 
-In the Book of Mormon we have a beautiful account of Christ’s visit to these “other sheep” following his resurrection, when they heard his voice and recognized him as he showed the nail prints in his hands and feet. We know these were the “other sheep” because he said, “Ye are they of whom I said: Other sheep I have which are not of this fold.” ([[3 Nephi 15.21|3 Ne. 15:21]].) He taught them the gospel. He instituted the sacrament and ordained disciples. He gave authority to confer the Holy Ghost, healed the sick, and blessed the little children. He prayed unto the Father for them.
+In the Book of Mormon we have a beautiful account of Christ’s visit to these “other sheep” following his resurrection, when they heard his voice and recognized him as he showed the nail prints in his hands and feet. We know these were the “other sheep” because he said, “Ye are they of whom I said: Other sheep I have which are not of this fold.” ([[3 Nephi 15.21|3 Ne. 15:21]].) He taught them the gospel. He instituted the sacrament and ordained disciples. He gave authority to confer the Holy Ghost, healed the sick, and blessed the little children. He prayed unto the Father for them.
 
 We read, “The eye hath never seen, neither hath the ear heard, before, so great and marvelous things as we saw and heard Jesus speak unto the Father;
 
-“… and no one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father.” ([[3 Nephi 17.16|3 Ne. 17:16–17]][[3 Nephi 17.17|]].)
+“… and no one can conceive of the joy which filled our souls at the time we heard him pray for us unto the Father.” ([[3 Nephi 17.16|3 Ne. 17:16–17]][[3 Nephi 17.17|]].)
 
 Now, what of America’s future? How can we best show our appreciation to God for these marvelous blessings of freedom, of a place where his true and everlasting gospel was restored, of the preparation and divine guidance in every event leading to that most significant event? We must remember what the Lord told the Jaredites when they were first brought to this land: “Behold, this is a choice land, and whatsoever nation shall possess it shall be free from bondage, and from captivity, and from all other nations under heaven, *if they will but serve the God of the land, who is Jesus Christ,* who hath been manifested by the things which we have written.” ([[Ether 2.12|Ether 2:12]]; italics added.)
 
@@ -84,7 +86,7 @@ Many years ago in a volume entitled *Beacon Lights of History,* Dr. John Lord, r
 
 “But has America no higher destiny than to repeat the old experiments and improve upon them and become rich and powerful? Has she no higher and nobler mission? If America has a great mission to declare and to fulfil, she must put forth altogether new forces, and these not material. And these alone will save her and save the world. … The real glory of America is to be something entirely different from that of which the ancients boasted. And this is to be moral and spiritual—that which the ancients lacked.”
 
-We are all a part of America’s future. Our job is to learn and benefit from the past and to go forward in righteousness, keeping the commandments of God. In this connection the prophet Lehi said, “Wherefore, this land is consecrated unto him whom he shall bring. And if it so be that they shall serve him according to the commandments which he hath given, it shall be a land of liberty unto them; wherefore, they shall never be brought down into captivity; if so, it shall be because of iniquity; for if iniquity shall abound cursed shall be the land for their sakes, but unto the righteous it shall be blessed forever.” ([[2 Nephi 1.7|2 Ne. 1:7]].)
+We are all a part of America’s future. Our job is to learn and benefit from the past and to go forward in righteousness, keeping the commandments of God. In this connection the prophet Lehi said, “Wherefore, this land is consecrated unto him whom he shall bring. And if it so be that they shall serve him according to the commandments which he hath given, it shall be a land of liberty unto them; wherefore, they shall never be brought down into captivity; if so, it shall be because of iniquity; for if iniquity shall abound cursed shall be the land for their sakes, but unto the righteous it shall be blessed forever.” ([[2 Nephi 1.7|2 Ne. 1:7]].)
 
 As we pray daily to God for guidance, we should all make the same plea as George Washington did in his prayer for our country:
 
@@ -102,19 +104,14 @@ As we pray daily to God for guidance, we should all make the same plea as George
 
 “All of which we ask through Jesus Christ, our Lord. Amen.”
 
-We encourage our people to be good, loyal, law-abiding citizens. “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].)
+We encourage our people to be good, loyal, law-abiding citizens. “We believe in being subject to kings, presidents, rulers, and magistrates, in obeying, honoring, and sustaining the law.” ([[Articles of Faith 1.12|A of F 1:12]].)
 
-Also, it is our duty to seek diligently for and support and uphold good, honest, honorable, and wise representatives to govern us. Let me reiterate the message left with the Saints nearly sixty years ago at the general conference in April 1917 when Elder Anthony W. Ivins, after discussing religious liberty and the Constitution, said, “I feel authorized to say, here this afternoon, that these liberties which have come to men, both religious and civil, have not been established by the Lord to be destroyed, but that they are here to remain until liberty shall prevail from the rivers to the ends of the earth, until God’s kingdom shall be established among men, and his will done upon earth as it is done in heaven. Until the universal Fatherhood of God, and brotherhood of man shall be recognized, and the kingdoms of this world become the kingdoms of Christ, who shall reign as Prince of Peace.” (*Conference Reports,* April 1917, pp. 54–55.)
+Also, it is our duty to seek diligently for and support and uphold good, honest, honorable, and wise representatives to govern us. Let me reiterate the message left with the Saints nearly sixty years ago at the general conference in April 1917 when Elder Anthony W. Ivins, after discussing religious liberty and the Constitution, said, “I feel authorized to say, here this afternoon, that these liberties which have come to men, both religious and civil, have not been established by the Lord to be destroyed, but that they are here to remain until liberty shall prevail from the rivers to the ends of the earth, until God’s kingdom shall be established among men, and his will done upon earth as it is done in heaven. Until the universal Fatherhood of God, and brotherhood of man shall be recognized, and the kingdoms of this world become the kingdoms of Christ, who shall reign as Prince of Peace.” (*Conference Reports,* April 1917, pp. 54–55.)
 
-And I bear testimony that The Church of Jesus Christ of Latter-day Saints *is* the kingdom of God here upon the earth, with the Lord directing the work through our prophet, President Spencer W. Kimball. May I urge everyone everywhere to help bring to pass righteousness, in whatever country you may reside, by obedience to the laws and ordinances of the gospel. If you are active members of the Church you will know what they are. If you are not, may I invite you to avail yourselves of the opportunity to investigate and gain a knowledge and testimony for yourselves that the gospel in its fulness has been restored, with the authority to administer the ordinances thereof, and is here upon the earth.
+And I bear testimony that The Church of Jesus Christ of Latter-day Saints *is* the kingdom of God here upon the earth, with the Lord directing the work through our prophet, President Spencer W. Kimball. May I urge everyone everywhere to help bring to pass righteousness, in whatever country you may reside, by obedience to the laws and ordinances of the gospel. If you are active members of the Church you will know what they are. If you are not, may I invite you to avail yourselves of the opportunity to investigate and gain a knowledge and testimony for yourselves that the gospel in its fulness has been restored, with the authority to administer the ordinances thereof, and is here upon the earth.
 
 Only as we accept and live the teachings of the gospel can the destiny which God planned for America be realized and the world united in peace and brotherhood. That this may speedily come to pass I humbly pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Commandments #Prophecy #U.S._Constitution

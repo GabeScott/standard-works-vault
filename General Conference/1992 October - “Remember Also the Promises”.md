@@ -1,5 +1,7 @@
 # “Remember Also the Promises”
 
+Gordon B. Hinckley
+
 By Elder Jay E. Jensen - *Of the Seventy*
 
 *Given in the October session of the 1992 General Conference*
@@ -12,9 +14,9 @@ I am so thankful for my wife and children. To enjoy their love, confidence, and 
 
 I love the scriptures. I testify that they are the word of God. I have likened a verse from Alma to my life: the scriptures have had a great tendency to lead me to do that which is just; yea, they have had a more powerful effect upon my mind than the sword or anything else which has happened unto me; therefore I have tried the virtue of the word of God (see [[Alma 31.5|Alma 31:5]]).
 
-President Benson counseled, “Immerse yourselves in \[the scriptures\] daily so you will have the power of the Spirit” ().
+President Benson counseled, “Immerse yourselves in \[the scriptures\] daily so you will have the power of the Spirit” (“[The Power of the Word](https://www.churchofjesuschrist.org/study/ensign/1986/05/the-power-of-the-word?lang=eng&id=p35#p35),” *Ensign,* May 1986, p. 82).
 
-President Kimball said, “I find that when I get casual in my relationships with divinity and when it seems that no divine ear is listening and no divine voice is speaking, that I am far, far away. If I immerse myself in the scriptures, the distance narrows and the spirituality returns” ().
+President Kimball said, “I find that when I get casual in my relationships with divinity and when it seems that no divine ear is listening and no divine voice is speaking, that I am far, far away. If I immerse myself in the scriptures, the distance narrows and the spirituality returns” (*The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball \[Salt Lake City: Bookcraft, 1982\], [p. 135](https://www.churchofjesuschrist.org/study/manual/teachings-spencer-w-kimball/chapter-6?lang=eng)).
 
 ## Remember Also the Promises
 
@@ -32,7 +34,7 @@ I had with me on the airplane that day a copy of my patriarchal blessing. I read
 
 The Lord has promised us specific blessings for reading and studying the scriptures. To identify these promises, a helpful exercise for me has been to make two columns on a sheet of paper and at the top of one column write the words “Promises for This Life” and in the other column the words “Promises for the Next Life.” When I find a promise, I note the reference and the promise under one of the two columns.
 
-I have found repeated in different places in the scriptures two major promises for reading and studying the scriptures that pertain to the next life: one is exaltation, and the other is eternal life. For example, Nephi said, “Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, … Ye shall have eternal life” ([[2 Nephi 31.20|2 Ne. 31:20]]).
+I have found repeated in different places in the scriptures two major promises for reading and studying the scriptures that pertain to the next life: one is exaltation, and the other is eternal life. For example, Nephi said, “Wherefore, if ye shall press forward, feasting upon the word of Christ, and endure to the end, behold, … Ye shall have eternal life” ([[2 Nephi 31.20|2 Ne. 31:20]]).
 
 The surprising discovery was that most promises that come to us for reading and studying the scriptures pertain to mortality. Three categories of promises to consider are promises of power, promises of increase, and other promises. Time will permit me to cite but a few of these.
 
@@ -40,25 +42,25 @@ The surprising discovery was that most promises that come to us for reading and 
 
 Consider the following five promises of power:
 
-1. *Power to overcome evil.* Nephi taught, “Whoso would hearken unto the word of God, and would hold fast unto it, … the fiery darts of the adversary \[could not\] overpower them unto blindness” ([[1 Nephi 15.24|1 Ne. 15:24]]; see also [[Psalms 17.4|Ps. 17:4]]; [[Psalms 119.98|119:98–101, 104]][[Psalms 119.99|]][[Psalms 119.100|]][[Psalms 119.101|]][[Psalms 119.104|]]; [[Helaman 3.29|Hel. 3:29–30]][[Helaman 3.30|]]).
+1. *Power to overcome evil.* Nephi taught, “Whoso would hearken unto the word of God, and would hold fast unto it, … the fiery darts of the adversary \[could not\] overpower them unto blindness” ([[1 Nephi 15.24|1 Ne. 15:24]]; see also [[Psalms 17.4|Ps. 17:4]]; [[Psalms 119.98|119:98–101, 104]][[Psalms 119.99|]][[Psalms 119.100|]][[Psalms 119.101|]][[Psalms 119.104|]]; [[Helaman 3.29|Hel. 3:29–30]][[Helaman 3.30|]]).
 
-2. *Power to live righteously.* Alma “did … preach the word of God unto them, to stir them up in remembrance of their duty” ([[Alma 4.19|Alma 4:19]]). The Psalmist said, “Thy word is a lamp unto my feet, and a light unto my path” ([[Psalms 119.105|Ps. 119:105]]; see also [[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]]; [[Helaman 15.7|Hel. 15:7–8]][[Helaman 15.8|]]).
+2. *Power to live righteously.* Alma “did … preach the word of God unto them, to stir them up in remembrance of their duty” ([[Alma 4.19|Alma 4:19]]). The Psalmist said, “Thy word is a lamp unto my feet, and a light unto my path” ([[Psalms 119.105|Ps. 119:105]]; see also [[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]]; [[Helaman 15.7|Hel. 15:7–8]][[Helaman 15.8|]]).
 
-3. *Power to teach convincingly.* Alma and the sons of Mosiah “had searched the scriptures diligently … and when they taught, they taught with power and authority of God” ([[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]]; see also [[2 Timothy 3.16|2 Tim. 3:16]]). To Hyrum Smith the Lord said, “First seek to obtain my word … ; then, if you desire, you shall have my Spirit and my word, yea, the power of God unto the convincing of men” ([[D&C 11.21|D&C 11:21]]; see also [[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]]; [[Alma 4.19|Alma 4:19]]; [[Alma 31.5|31:5]]; [[D&C 84.85|D&C 84:85]]).
+3. *Power to teach convincingly.* Alma and the sons of Mosiah “had searched the scriptures diligently … and when they taught, they taught with power and authority of God” ([[Alma 17.2|Alma 17:2–3]][[Alma 17.3|]]; see also [[2 Timothy 3.16|2 Tim. 3:16]]). To Hyrum Smith the Lord said, “First seek to obtain my word … ; then, if you desire, you shall have my Spirit and my word, yea, the power of God unto the convincing of men” ([[D&C 11.21|D&C 11:21]]; see also [[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]]; [[Alma 4.19|Alma 4:19]]; [[Alma 31.5|31:5]]; [[D&C 84.85|D&C 84:85]]).
 
 4. *Power to call down the powers of heaven.* Jacob said that “we search the prophets … and our faith becometh unshaken, insomuch that we truly can command in the name of Jesus and the very trees obey us, or the mountains, or the waves of the sea” ([[Jacob 4.6|Jacob 4:6]]; see also [[Helaman 10.4|Hel. 10:4–5]][[Helaman 10.5|]]).
 
-5. *Power to change the heart and disposition.* Samuel taught the Nephites that the Lamanites were “led to believe the holy scriptures, … which are written, which leadeth them to faith on the Lord, and unto repentance, which faith and repentance bringeth a change of heart unto them” ([[Helaman 15.7|Hel. 15:7]]; see also [[1 Nephi 15.20|1 Ne. 15:20]]). Three marvelous promises.
+5. *Power to change the heart and disposition.* Samuel taught the Nephites that the Lamanites were “led to believe the holy scriptures, … which are written, which leadeth them to faith on the Lord, and unto repentance, which faith and repentance bringeth a change of heart unto them” ([[Helaman 15.7|Hel. 15:7]]; see also [[1 Nephi 15.20|1 Ne. 15:20]]). Three marvelous promises.
 
 ## Promises of Increase
 
 Consider now the following promises of increase:
 
-1. *Increase in hope and joy.* The Apostle Paul taught that “we through patience and comfort of the scriptures might have hope” ([[Romans 15.4|Rom. 15:4]]; see also [[1 Nephi 11.25|1 Ne. 11:25]]; [[Jacob 2.8|Jacob 2:8]]; [[Jacob 4.6|4:6]]; [[Alma 44.5|Alma 44:5]]; [[D&C 19.23|D&C 19:23]]).
+1. *Increase in hope and joy.* The Apostle Paul taught that “we through patience and comfort of the scriptures might have hope” ([[Romans 15.4|Rom. 15:4]]; see also [[1 Nephi 11.25|1 Ne. 11:25]]; [[Jacob 2.8|Jacob 2:8]]; [[Jacob 4.6|4:6]]; [[Alma 44.5|Alma 44:5]]; [[D&C 19.23|D&C 19:23]]).
 
-2. *Increase in spirituality.* “The preaching of the word had a great tendency to lead the people to do that which was just” ([[Alma 31.5|Alma 31:5]]; see also [[2 Nephi 4.15|2 Ne. 4:15–16]][[2 Nephi 4.16|]]; [[Moroni 6.4|Moro. 6:4]]).
+2. *Increase in spirituality.* “The preaching of the word had a great tendency to lead the people to do that which was just” ([[Alma 31.5|Alma 31:5]]; see also [[2 Nephi 4.15|2 Ne. 4:15–16]][[2 Nephi 4.16|]]; [[Moroni 6.4|Moro. 6:4]]).
 
-3. *Increase in knowledge and understanding.* Nephi taught that “the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Ne. 32:3]]). To Joseph Smith the Lord said, “The holy scriptures are given of me for your instruction” ([[D&C 33.16|D&C 33:16]]; see also [[Psalms 19.7|Ps. 19:7]]; [[Psalms 119.98|119:98–101]][[Psalms 119.99|]][[Psalms 119.100|]][[Psalms 119.101|]]; [[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]]; [[Alma 12.10|Alma 12:10]]; [[Alma 17.2|17:2–3]][[Alma 17.3|]]; [[D&C 18.34|D&C 18:34–36]][[D&C 18.35|]][[D&C 18.36|]]).
+3. *Increase in knowledge and understanding.* Nephi taught that “the words of Christ will tell you all things what ye should do” ([[2 Nephi 32.3|2 Ne. 32:3]]). To Joseph Smith the Lord said, “The holy scriptures are given of me for your instruction” ([[D&C 33.16|D&C 33:16]]; see also [[Psalms 19.7|Ps. 19:7]]; [[Psalms 119.98|119:98–101]][[Psalms 119.99|]][[Psalms 119.100|]][[Psalms 119.101|]]; [[2 Timothy 3.15|2 Tim. 3:15–17]][[2 Timothy 3.16|]][[2 Timothy 3.17|]]; [[Alma 12.10|Alma 12:10]]; [[Alma 17.2|17:2–3]][[Alma 17.3|]]; [[D&C 18.34|D&C 18:34–36]][[D&C 18.35|]][[D&C 18.36|]]).
 
 4. *Increase in the power of discernment.* “The word of God … is quick and powerful, which shall divide asunder all the cunning and the snares and the wiles of the devil” ([[Helaman 3.29|Hel. 3:29]]). “And whoso treasureth up my word, shall not be deceived” ([[Joseph Smith Matthew 1.37|JS—M 1:37]]; see also [[Hebrews 4.12|Heb. 4:12]]).
 
@@ -68,15 +70,10 @@ Consider now the following promises of increase:
 
 In addition to these general categories of promises of power and increase, there are other promises, such as “for then thou shalt make thy way prosperous, and then thou shalt have good success” ([[Joshua 1.8|Josh. 1:8]]) and as Joseph Smith said, “Faith comes by hearing the word of God” (*History of the Church,* 3:379).
 
-President Howard W. Hunter has said: “When we … read and study the scriptures, benefits and blessings of many kinds come to us. This is the most profitable of all study in which we could engage” (in Conference Report, Oct. 1979, p. 90; or ).
+President Howard W. Hunter has said: “When we … read and study the scriptures, benefits and blessings of many kinds come to us. This is the most profitable of all study in which we could engage” (in Conference Report, Oct. 1979, [[1979 October - Reading the Scriptures.md|p. 90]]; or *Ensign,* Nov. 1979, [p. 64](https://www.churchofjesuschrist.org/study/ensign/1979/11/reading-the-scriptures?lang=eng)).
 
 May we “remember also the promises.” I testify that the scriptures are the word of God. I love them. I testify that God lives. He is our Father. Jesus Christ is the Son of God. They appeared to the Prophet Joseph Smith just as he said they did. President Ezra Taft Benson is God’s prophet today. In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Covenants #Scriptures

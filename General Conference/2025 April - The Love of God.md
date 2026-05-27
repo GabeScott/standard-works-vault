@@ -1,6 +1,8 @@
 # The Love of God
 
-By Elder Benjamin M. Z. Tai - *Of the Seventy*
+Dallin H. Oaks
+
+By Elder Benjamin M. Z. Tai - *Of the Seventy*
 
 *Given in the April session of the 2025 General Conference*
 
@@ -18,11 +20,11 @@ Jesus Christ embodies Heavenly Father’s love for us.[^6] Through His atoning s
 
 While the love of God is accessible to all, many search earnestly for it, while others desire to feel God’s love but do not believe that they deserve it. Some others are desperately trying to hang on to it.[^9] The scriptures and the Lord’s prophet teach us that we can consistently experience God’s love when, through the grace of Jesus Christ, we repeatedly repent, frankly forgive, strive to keep His commandments, and selflessly serve others.[^10] We feel God’s love when we do things that draw us closer to Him, such as conversing with Him daily through prayer and scripture study, and stop doing things that distance us from Him, such as being prideful, contentious, and rebellious.[^11]
 
-President Russell M. Nelson has invited us to “remove, with the Savior’s help, the old debris in our lives”[^12] and to “lay aside bitterness.”[^13] He has encouraged us to “bolster our spiritual foundations” through “centering our lives on \[the Savior\] and on the ordinances and covenants of His temple.”[^14] He promised that “as we keep our temple covenants, we gain greater access to the Lord’s strengthening power. … We experience the pure love of Jesus Christ and our Heavenly Father in great abundance!”[^15]
+President Russell M. Nelson has invited us to “remove, with the Savior’s help, the old debris in our lives”[^12] and to “lay aside bitterness.”[^13] He has encouraged us to “bolster our spiritual foundations” through “centering our lives on \[the Savior\] and on the ordinances and covenants of His temple.”[^14] He promised that “as we keep our temple covenants, we gain greater access to the Lord’s strengthening power. … We experience the pure love of Jesus Christ and our Heavenly Father in great abundance!”[^15]
 
 I have a friend who was blessed with a beautiful family and a promising career. This changed when an illness left him unable to work, which was followed by a divorce. The years since have been difficult, but his love for his children and the covenants he has made with God have sustained him. One day he learned that his former spouse had remarried and had requested a cancellation of their temple sealing. He was troubled and confused. He sought peace and understanding in the house of the Lord. The day after his visit, I received the following message from him:
 
-“I had an amazing experience in the temple last night. I think it was obvious that I still held quite a bit of resentment. … I knew that I must change, and I have been praying all week to do so. … Last night in the temple I literally felt the Spirit remove the resentment from my heart. … It was such a relief to be freed from it. … An ominous physical burden bearing down on me has been lifted.”
+“I had an amazing experience in the temple last night. I think it was obvious that I still held quite a bit of resentment. … I knew that I must change, and I have been praying all week to do so. … Last night in the temple I literally felt the Spirit remove the resentment from my heart. … It was such a relief to be freed from it. … An ominous physical burden bearing down on me has been lifted.”
 
 While he still has his challenges, my friend treasures that experience in the house of the Lord, where the liberating power of the love of God has helped him to feel closer to God, more optimistic about life, and less anxious about his future.
 
@@ -63,37 +65,37 @@ Dear friends, as one who has experienced God’s love, I joyfully witness that t
 
 [^2]: [[Hebrews 11.1|Hebrews 11:1]].
 
-[^3]: See [[John 10.14|John 10:14]]; [[1 Corinthians 8.3|1 Corinthians 8:3]]; [[Ether 12.6|Ether 12:6, 12]][[Ether 12.12|]].
+[^3]: See [[John 10.14|John 10:14]]; [[1 Corinthians 8.3|1 Corinthians 8:3]]; [[Ether 12.6|Ether 12:6, 12]][[Ether 12.12|]].
 
-[^4]: See [[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
+[^4]: See [[1 Nephi 8.10|1 Nephi 8:10–12]][[1 Nephi 8.11|]][[1 Nephi 8.12|]].
 
-[^5]: See [[1 Nephi 11.21|1 Nephi 11:21–22, 25]][[1 Nephi 11.22|]][[1 Nephi 11.25|]].
+[^5]: See [[1 Nephi 11.21|1 Nephi 11:21–22, 25]][[1 Nephi 11.22|]][[1 Nephi 11.25|]].
 
-[^6]: See [[John 3.16|John 3:16]]; [[1 John 4.9|1 John 4:9–10]][[1 John 4.10|]].
+[^6]: See [[John 3.16|John 3:16]]; [[1 John 4.9|1 John 4:9–10]][[1 John 4.10|]].
 
 [^7]: See [[Isaiah 53.4|Isaiah 53:4–5]][[Isaiah 53.5|]]; [[Alma 7.11|Alma 7:11–13]][[Alma 7.12|]][[Alma 7.13|]].
 
 [^8]: See [[John 14.26|John 14:26]]; [[Galatians 5.22|Galatians 5:22–23]][[Galatians 5.23|]]; [[Mosiah 3.19|Mosiah 3:19]]; [[Moroni 8.26|Moroni 8:26]].
 
-[^9]: See [[2 Nephi 26.33|2 Nephi 26:33]].
+[^9]: See [[2 Nephi 26.33|2 Nephi 26:33]].
 
 [^10]: See [[D&C 6.20|Doctrine and Covenants 6:20]].
 
-[^11]: See [[Proverbs 13.10|Proverbs 13:10]]; [[Proverbs 28.25|28:25]]; [[James 4.8|James 4:8]]; [[1 Peter 5.5|1 Peter 5:5]]; [[2 Nephi 12.11|2 Nephi 12:11]]; [[Mosiah 18.21|Mosiah 18:21–22]][[Mosiah 18.22|]]; [[D&C 38.27|Doctrine and Covenants 38:27]].
+[^11]: See [[Proverbs 13.10|Proverbs 13:10]]; [[Proverbs 28.25|28:25]]; [[James 4.8|James 4:8]]; [[1 Peter 5.5|1 Peter 5:5]]; [[2 Nephi 12.11|2 Nephi 12:11]]; [[Mosiah 18.21|Mosiah 18:21–22]][[Mosiah 18.22|]]; [[D&C 38.27|Doctrine and Covenants 38:27]].
 
-[^12]: Russell M. Nelson, “[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 7.
+[^12]: Russell M. Nelson, “[[2021 April - Welcome Message.md|Welcome Message]],” *Liahona*, May 2021, 7.
 
-[^13]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 101.
+[^13]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 101.
 
-[^14]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 95.
+[^14]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 95.
 
-[^15]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121.
+[^15]: Russell M. Nelson, “[[2024 October - The Lord Jesus Christ Will Come Again.md|The Lord Jesus Christ Will Come Again]],” *Liahona*, Nov. 2024, 121.
 
 [^16]: See [[Mosiah 24.13|Mosiah 24:13–16]][[Mosiah 24.14|]][[Mosiah 24.15|]][[Mosiah 24.16|]].
 
-[^17]: See [[1 Nephi 8.12|1 Nephi 8:12]]; [[Enos 1.8|Enos 1:8–9]][[Enos 1.9|]]; [[Mosiah 4.11|Mosiah 4:11–12]][[Mosiah 4.12|]].
+[^17]: See [[1 Nephi 8.12|1 Nephi 8:12]]; [[Enos 1.8|Enos 1:8–9]][[Enos 1.9|]]; [[Mosiah 4.11|Mosiah 4:11–12]][[Mosiah 4.12|]].
 
-[^18]: See [[Matthew 22.37|Matthew 22:37–40]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; [[John 13.34|John 13:34–35]][[John 13.35|]]; [[1 John 4.11|1 John 4:11]].
+[^18]: See [[Matthew 22.37|Matthew 22:37–40]][[Matthew 22.38|]][[Matthew 22.39|]][[Matthew 22.40|]]; [[John 13.34|John 13:34–35]][[John 13.35|]]; [[1 John 4.11|1 John 4:11]].
 
 [^19]: See [[Matthew 14.22|Matthew 14:22–32]][[Matthew 14.23|]][[Matthew 14.24|]][[Matthew 14.25|]][[Matthew 14.26|]][[Matthew 14.27|]][[Matthew 14.28|]][[Matthew 14.29|]][[Matthew 14.30|]][[Matthew 14.31|]][[Matthew 14.32|]]; [[Mark 6.45|Mark 6:45–51]][[Mark 6.46|]][[Mark 6.47|]][[Mark 6.48|]][[Mark 6.49|]][[Mark 6.50|]][[Mark 6.51|]]; [[John 6.15|John 6:15–21]][[John 6.16|]][[John 6.17|]][[John 6.18|]][[John 6.19|]][[John 6.20|]][[John 6.21|]].
 
@@ -109,10 +111,5 @@ Dear friends, as one who has experienced God’s love, I joyfully witness that t
 
 [^25]: See [[Psalms 46.10|Psalm 46:10]]; [[Acts 17.29|Acts 17:29]]; [[Alma 34.38|Alma 34:38]]; [[Moses 1.4|Moses 1:4, 6–7]][[Moses 1.6|]][[Moses 1.7|]].
 
-[^26]: See [[Psalms 40.11|Psalm 40:11]]; [[John 15.4|John 15:4–12]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.8|]][[John 15.9|]][[John 15.10|]][[John 15.11|]][[John 15.12|]]; [[1 John 4.16|1 John 4:16]].
+[^26]: See [[Psalms 40.11|Psalm 40:11]]; [[John 15.4|John 15:4–12]][[John 15.5|]][[John 15.6|]][[John 15.7|]][[John 15.8|]][[John 15.9|]][[John 15.10|]][[John 15.11|]][[John 15.12|]]; [[1 John 4.16|1 John 4:16]].
 
-
-
-
-
-#Faith #God_The_Father #Jesus_Christ #Love #Prayer #Service

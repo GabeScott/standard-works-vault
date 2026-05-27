@@ -1,4 +1,3 @@
 # Ahab
 
-
-*See* [BD Ahab](https://www.churchofjesuschrist.org/study/scriptures/bd/ahab?lang=eng)
+*See also* [[BD Ahab.md|BD Ahab]]

@@ -1,6 +1,8 @@
 # Giving Holiness to the Lord
 
-By Bishop L. Todd Budge - *Second Counselor in the Presiding Bishopric*
+Russell M. Nelson
+
+By Bishop L. Todd Budge - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 2021 General Conference*
 
@@ -8,7 +10,7 @@ By Bishop L. Todd Budge - *Second Counselor in the Presiding Bishopric*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2021/10/52budge?lang=eng)
 
-Last year, while serving in the Asia North Area Presidency, I received a phone call from President Russell M. Nelson inviting me to serve as the Second Counselor in the Presiding Bishopric. He graciously invited my wife, Lori, to join the conversation. After the call was finished, we were still in a state of disbelief when my wife asked, “What does the Presiding Bishopric do anyway?” After a moment’s reflection, I responded, “I don’t know exactly!”
+Last year, while serving in the Asia North Area Presidency, I received a phone call from President Russell M. Nelson inviting me to serve as the Second Counselor in the Presiding Bishopric. He graciously invited my wife, Lori, to join the conversation. After the call was finished, we were still in a state of disbelief when my wife asked, “What does the Presiding Bishopric do anyway?” After a moment’s reflection, I responded, “I don’t know exactly!”
 
 A year later—and after profound feelings of humility and gratitude—I can answer my wife’s question with greater understanding. Among many other things, the Presiding Bishopric oversees the welfare and humanitarian work of the Church. This work now spans the entire globe and blesses more of God’s children than ever before.
 
@@ -28,7 +30,7 @@ In modern usage, the term *sacrifice* has come to connote the concept of “givi
 
 The Lord said, “I desired \[charity\], and not sacrifice; and the knowledge of God more than burnt offerings.”[^4] The Lord wants us to become holy,[^5] to be possessed of charity,[^6] and to come to know Him.[^7] As the Apostle Paul taught, “And though I bestow all my goods to feed the poor, and though I give my body to be burned, and have not charity, it profiteth me nothing.”[^8] Ultimately, the Lord wants our hearts; He wants us to become new creatures in Christ.[^9] As He instructed the Nephites, “Ye shall offer for a sacrifice *unto* me a broken heart and a contrite spirit.”[^10]
 
-Sacrifice is less about “giving *up*” and more about “giving *to*” the Lord. Engraved upon the entrance to each of our temples are the words “Holiness to the Lord; the House of the Lord.” As we observe our covenants by sacrifice, we are made holy through the grace of Jesus Christ; and at the altars of the holy temple, with broken hearts and contrite spirits, we give our holiness to the Lord. Elder Neal A. Maxwell taught: “The submission of one’s will \[or heart[^11]\] is really the only uniquely personal thing we have to place on God’s altar. … However, when you and I finally submit ourselves, by letting our individual wills be swallowed up in God’s will, then we are really giving something *to* Him!”[^12]
+Sacrifice is less about “giving *up*” and more about “giving *to*” the Lord. Engraved upon the entrance to each of our temples are the words “Holiness to the Lord; the House of the Lord.” As we observe our covenants by sacrifice, we are made holy through the grace of Jesus Christ; and at the altars of the holy temple, with broken hearts and contrite spirits, we give our holiness to the Lord. Elder Neal A. Maxwell taught: “The submission of one’s will \[or heart[^11]\] is really the only uniquely personal thing we have to place on God’s altar. … However, when you and I finally submit ourselves, by letting our individual wills be swallowed up in God’s will, then we are really giving something *to* Him!”[^12]
 
 When our sacrifices on behalf of others are viewed from the perspective of “giving up,” we may see them as a burden and become discouraged when our sacrifices are not recognized or rewarded. However, when viewed from the perspective of “giving to” the Lord, our sacrifices on behalf of others become gifts, and the joy of generously giving becomes its own reward. Freed from the need for love, approval, or appreciation from others, our sacrifices become the purest and deepest expressions of our gratitude and love for the Savior and our fellow men. Any prideful sense of self-sacrifice gives way to feelings of gratitude, generosity, contentment, and joy.[^13]
 
@@ -65,11 +67,11 @@ I testify that God lives. “Man of Holiness is his name.”[^17] Jesus Christ i
 
 
 
-[^1]: See “Global Trends: Forced Displacement in 2020,” UNHCR report, June 18, 2021, unhcr.org.
+[^1]: See “Global Trends: Forced Displacement in 2020,” UNHCR report, June 18, 2021, unhcr.org.
 
 [^2]: *Sacrifice* is derived from the Latin *sacrificium*, which is comprised of the two Latin roots *sacer* and *facere*, according to the *Merriam-Webster Dictionary* (see merriam-webster.com). The word *sacer* means “sacred” or “holy,” and the word *facere* means “to make or do,” according to the *Latin-English Dictionary* (see latin-english.com).
 
-[^3]: Guide to the Scriptures, “[Sacrifice](https://churchofjesuschrist.org/study/scriptures/gs/sacrifice?lang=eng),” scriptures.ChurchofJesusChrist.org.
+[^3]: Guide to the Scriptures, “[Sacrifice](https://www.churchofjesuschrist.org/study/scriptures/gs/sacrifice?lang=eng),” scriptures.ChurchofJesusChrist.org.
 
 [^4]: [[Hosea 6.6|Hosea 6:6]]; see footnote *b*, indicating that *mercy* in Hebrew means “charity” or “lovingkindness.” See also [[Matthew 9.10|Matthew 9:10–13]][[Matthew 9.11|]][[Matthew 9.12|]][[Matthew 9.13|]]; [[Matthew 12.7|12:7]].
 
@@ -79,15 +81,15 @@ I testify that God lives. “Man of Holiness is his name.”[^17] Jesus Christ i
 
 [^7]: See [[Mosiah 5.13|Mosiah 5:13]].
 
-[^8]: [[1 Corinthians 13.3|1 Corinthians 13:3]]; see also [[Mosiah 2.21|Mosiah 2:21]].
+[^8]: [[1 Corinthians 13.3|1 Corinthians 13:3]]; see also [[Mosiah 2.21|Mosiah 2:21]].
 
-[^9]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
+[^9]: See [[2 Corinthians 5.17|2 Corinthians 5:17]].
 
-[^10]: [[3 Nephi 9.20|3 Nephi 9:20]], emphasis added; see also [[3 Nephi 9.19|verse 19]].
+[^10]: [[3 Nephi 9.20|3 Nephi 9:20]], emphasis added; see also [[3 Nephi 9.19|verse 19]].
 
 [^11]: The word *heart* is added here as a synonym for *will*.
 
-[^12]: Neal A. Maxwell, “[[1995 October - “Swallowed Up in the Will of the Father”.md|Swallowed Up in the Will of the Father]],” *Ensign*, Nov. 1995, 24; emphasis added. See also [[Omni 1.26|Omni 1:26]]; [[Romans 12.1|Romans 12:1]].
+[^12]: Neal A. Maxwell, “[[1995 October - “Swallowed Up in the Will of the Father”.md|Swallowed Up in the Will of the Father]],” *Ensign*, Nov. 1995, 24; emphasis added. See also [[Omni 1.26|Omni 1:26]]; [[Romans 12.1|Romans 12:1]].
 
 [^13]: See [[Moroni 10.3|Moroni 10:3]].
 
@@ -103,8 +105,3 @@ I testify that God lives. “Man of Holiness is his name.”[^17] Jesus Christ i
 
 [^19]: See [[D&C 97.8|Doctrine and Covenants 97:8]].
 
-
-
-
-
-#Consecration #Holiness #Humanitarian_Aid #Sacrifice

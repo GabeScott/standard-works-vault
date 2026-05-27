@@ -1,6 +1,8 @@
 # Do I Believe?
 
-By Bonnie L. Oscarson - *Young Women General President*
+Cheryl A. Esplin
+
+By Bonnie L. Oscarson - *Young Women General President*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -48,7 +50,7 @@ What is most heartrending to me is the description of those who have already fou
 
 “And *after they had tasted of the fruit* they were ashamed, because of those that were scoffing at them; and they fell away into forbidden paths and were lost.”[^5]
 
-These verses describe those of us who already have the gospel of Jesus Christ in our lives. Whether we were born into it or had to fight our way through mists of darkness to find it, we have tasted of this fruit, which “is most precious and most desirable” and has the potential to bring us eternal life, “the greatest of all the gifts of God.”[^6] We need only to keep feasting and not heed those who would make fun of our beliefs or those who delight to create doubts or those who find fault with Church leaders and doctrine. It is a choice we make daily—to choose faith over doubt. Elder M. Russell Ballard has urged us to “stay in the boat, use your life jackets, and hold on with both hands.”[^7]
+These verses describe those of us who already have the gospel of Jesus Christ in our lives. Whether we were born into it or had to fight our way through mists of darkness to find it, we have tasted of this fruit, which “is most precious and most desirable” and has the potential to bring us eternal life, “the greatest of all the gifts of God.”[^6] We need only to keep feasting and not heed those who would make fun of our beliefs or those who delight to create doubts or those who find fault with Church leaders and doctrine. It is a choice we make daily—to choose faith over doubt. Elder M. Russell Ballard has urged us to “stay in the boat, use your life jackets, and hold on with both hands.”[^7]
 
 As members of the Lord’s true Church, we are already in the boat. We don’t have to go searching through the philosophies of the world for truth that will give us comfort, help, and direction to get us safely through the trials of life—we already have it! Just as Ethan’s mother could examine her long-held beliefs and declare confidently in a moment of crisis, “I do believe it,” so can we!
 
@@ -57,22 +59,17 @@ I bear witness that our membership in the Lord’s kingdom is a gift of immeasur
 
 
 
-[^1]: Personal journal entry shared with Bonnie L. Oscarson.
+[^1]: Personal journal entry shared with Bonnie L. Oscarson.
 
 [^2]: [[D&C 14.7|Doctrine and Covenants 14:7]].
 
 [^3]: [[Mosiah 5.2|Mosiah 5:2]].
 
-[^4]: [[1 Nephi 8.26|1 Nephi 8:26]].
+[^4]: [[1 Nephi 8.26|1 Nephi 8:26]].
 
-[^5]: [[1 Nephi 8.27|1 Nephi 8:27–28]][[1 Nephi 8.28|]]; emphasis added.
+[^5]: [[1 Nephi 8.27|1 Nephi 8:27–28]][[1 Nephi 8.28|]]; emphasis added.
 
-[^6]: [[1 Nephi 15.36|1 Nephi 15:36]].
+[^6]: [[1 Nephi 15.36|1 Nephi 15:36]].
 
-[^7]: M. Russell Ballard, “[[2014 October - Stay in the Boat and Hold On!.md|Stay in the Boat and Hold On!]]” *Ensign* or *Liahona,* Nov. 2014, 92.
+[^7]: M. Russell Ballard, “[[2014 October - Stay in the Boat and Hold On!.md|Stay in the Boat and Hold On!]]” *Ensign* or *Liahona,* Nov. 2014, 92.
 
-
-
-
-
-#Conversion #Discipleship #Faith #Family #Kingdom_Of_God #Ordinances #Priesthood #Prophets #Temples

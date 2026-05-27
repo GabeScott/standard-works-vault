@@ -4,6 +4,3 @@
 
 [JST Romans 4:2](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-rom/4?lang=eng)
 
-
-
-

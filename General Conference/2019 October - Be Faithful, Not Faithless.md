@@ -1,6 +1,8 @@
 # Be Faithful, Not Faithless
 
-By Stephen W. Owen - *Young Men General President*
+Jeffrey R. Holland
+
+By Stephen W. Owen - *Young Men General President*
 
 *Given in the October session of the 2019 General Conference*
 
@@ -14,11 +16,11 @@ Not long ago I woke up and prepared to study the scriptures. I picked up my smar
 
 I’m sure many of you can relate. Modern technologies bless us in many ways. They can connect us with friends and family, with information, and with news about current events around the world. However, they can also distract us from the most important connection: our connection with heaven.
 
-I repeat what our prophet, President Russell M. Nelson, has said: “We live in a world that is complex and increasingly contentious. The constant availability of social media and a 24-hour news cycle bombard us with relentless messages. If we are to have any hope of sifting through the myriad of voices and the philosophies of men that attack truth, we must learn to receive revelation.”
+I repeat what our prophet, President Russell M. Nelson, has said: “We live in a world that is complex and increasingly contentious. The constant availability of social media and a 24-hour news cycle bombard us with relentless messages. If we are to have any hope of sifting through the myriad of voices and the philosophies of men that attack truth, we must learn to receive revelation.”
 
 President Nelson went on to warn that “in coming days, it will not be possible to survive spiritually without the guiding, directing, comforting, and constant influence of the Holy Ghost.”[^1]
 
-Years ago, President Boyd K. Packer told of a herd of deer that, because of heavy snowfall, was trapped outside its natural habitat and faced possible starvation. Some well-meaning people, in an effort to save the deer, dumped truckloads of hay around the area—it wasn’t what deer would normally eat, but they hoped it would at least get the deer through the winter. Sadly, most of the deer were later found dead. They had eaten the hay, but it did not nourish them, and they starved to death with their stomachs full.[^2]
+Years ago, President Boyd K. Packer told of a herd of deer that, because of heavy snowfall, was trapped outside its natural habitat and faced possible starvation. Some well-meaning people, in an effort to save the deer, dumped truckloads of hay around the area—it wasn’t what deer would normally eat, but they hoped it would at least get the deer through the winter. Sadly, most of the deer were later found dead. They had eaten the hay, but it did not nourish them, and they starved to death with their stomachs full.[^2]
 
 Many of the messages that bombard us in the information age are the spiritual equivalent of feeding hay to deer—we can eat it all day long, but it will not nourish us.
 
@@ -59,28 +61,23 @@ Brothers and sisters, I testify that Jesus Christ is at the head of this Church.
 
 
 
-[^1]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
+[^1]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 96.
 
-[^2]: See Jeffrey R. Holland, “[Teaching and Learning in the Church](https://churchofjesuschrist.org/study/liahona/2007/06/teaching-and-learning-in-the-church?lang=eng),” *Ensign,* June 2007, 96; *Liahona,* June 2007, 64.
+[^2]: See Jeffrey R. Holland, “[Teaching and Learning in the Church](https://www.churchofjesuschrist.org/study/liahona/2007/06/teaching-and-learning-in-the-church?lang=eng),” *Ensign,* June 2007, 96; *Liahona,* June 2007, 64.
 
-[^3]: [[1 Nephi 8.30|1 Nephi 8:30]].
+[^3]: [[1 Nephi 8.30|1 Nephi 8:30]].
 
-[^4]: See [[1 Nephi 8.24|1 Nephi 8:24–28]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]; [[1 Nephi 11.36|11:36]].
+[^4]: See [[1 Nephi 8.24|1 Nephi 8:24–28]][[1 Nephi 8.25|]][[1 Nephi 8.26|]][[1 Nephi 8.27|]][[1 Nephi 8.28|]]; [[1 Nephi 11.36|11:36]].
 
-[^5]: [[1 Nephi 8.28|1 Nephi 8:28]].
+[^5]: [[1 Nephi 8.28|1 Nephi 8:28]].
 
 [^6]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
-[^7]: See Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7.
+[^7]: See Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona,* Nov. 2018, 7.
 
-[^8]: Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona,* Nov. 2018, 113.
+[^8]: Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona,* Nov. 2018, 113.
 
 [^9]: [[Luke 10.41|Luke 10:41–42]][[Luke 10.42|]].
 
-[^10]: [[1 Nephi 1.1|1 Nephi 1:1]].
+[^10]: [[1 Nephi 1.1|1 Nephi 1:1]].
 
-
-
-
-
-#Conversion #Faith

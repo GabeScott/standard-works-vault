@@ -1,6 +1,8 @@
 # Except Ye Are One
 
-By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
+Gordon B. Hinckley
+
+By President Gordon B. Hinckley - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -10,7 +12,7 @@ To Latter-day Saints throughout the world, and to men and women of goodwill ever
 
 We affirm before all men our belief in God the Eternal Father and in his Son, Jesus Christ, and in the Holy Ghost. This is the first article of our faith and the foundation of all of our work.
 
-We are particularly pleased to have with us—yes, pleased and honored—this remarkable man whom we sustain as a prophet of God, our prophet, seer, and revelator, our friend and leader, President Spencer W. Kimball.
+We are particularly pleased to have with us—yes, pleased and honored—this remarkable man whom we sustain as a prophet of God, our prophet, seer, and revelator, our friend and leader, President Spencer W. Kimball.
 
 We regret that the condition of his health does not permit him to speak to us. We have heard him many times in the past as he has spoken from this pulpit, and the memories of his great testimonies continue to encourage and strengthen all of us.
 
@@ -37,8 +39,3 @@ And so, as we open this great conference, from which there will be radiated acro
 
 
 
-
-
-
-
-#Love #Unity

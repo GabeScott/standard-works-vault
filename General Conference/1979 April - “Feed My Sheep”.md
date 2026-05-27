@@ -1,12 +1,14 @@
 # “Feed My Sheep”
 
-By Elder David B. Haight - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder David B. Haight - *Of the Council of the Twelve*
 
 *Given in the April session of the 1979 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1979/04/feed-my-sheep?lang=eng)
 
-I must admit that my heart beat a little faster with spiritual emotion as the choir was singing “The Morning Breaks; the Shadows Flee,” one of the great, stirring hymns of the Church. You will recall that Parley P. Pratt, one of the Twelve sent to Great Britain by the Prophet Joseph Smith to assist in opening the work abroad, composed those words. They were to help explain the true gospel message to the world. He penned,
+I must admit that my heart beat a little faster with spiritual emotion as the choir was singing “The Morning Breaks; the Shadows Flee,” one of the great, stirring hymns of the Church. You will recall that Parley P. Pratt, one of the Twelve sent to Great Britain by the Prophet Joseph Smith to assist in opening the work abroad, composed those words. They were to help explain the true gospel message to the world. He penned,
 
 >“The morning breaks; the shadows flee;
 >Lo, Zion’s standard is unfurled!
@@ -88,8 +90,3 @@ May many of us who are fully prepared and needing the blessings put aside the th
 
 
 
-
-
-
-
-#Missionary_Work

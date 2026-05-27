@@ -1,5 +1,7 @@
 # Stand as a Witness
 
+Dieter F. Uchtdorf
+
 By Susan W. Tanner - *Young Women General President*
 
 *Given in the April session of the 2008 General Conference*
@@ -18,7 +20,7 @@ When the appointed meeting came, these missionaries began teaching JieLei about 
 
 Righteous King Benjamin in the Book of Mormon gathered his people to come to the temple so that he could talk of Christ and preach of Christ. He taught his people about the Lord’s goodness, power, wisdom, patience, and, most of all, Atonement. As he stood as a witness, the Spirit bore witness to them that Jesus Christ is the Savior, as it had to JieLei. King Benjamin then admonished his people to stand steadfast in their faith in Christ. The people all cried out:
 
-“We believe all the words which thou hast spoken unto us … because of the Spirit of the Lord … , which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually. …
+“We believe all the words which thou hast spoken unto us … because of the Spirit of the Lord … , which has wrought a mighty change in us, or in our hearts, that we have no more disposition to do evil, but to do good continually. …
 
 “And we are willing to enter into a covenant with our God … to be obedient to his commandments in all things.”[^4]
 
@@ -42,7 +44,7 @@ She said that years earlier she was at home one day ironing, watching a soap ope
 
 She said, “I remember shouting in the air in anger, but then I couldn’t resist the urge to read the manual. In fact, I was so curious, I read it from cover to cover and then memorized every word of that lesson.
 
-“By Wednesday I was still not going to go, but I found myself driving to church, scared to death. I had never been scared of anything before. I had grown up in the slums, been in detention once myself, and rescued my father from the ‘drunk tank.’ And all of a sudden there I was at Mutual being introduced as the new Laurel adviser. I sat before two Laurels and gave the lesson word for word, even the parts that said ‘Now ask them …’ I left immediately after the lesson and cried all the way home.
+“By Wednesday I was still not going to go, but I found myself driving to church, scared to death. I had never been scared of anything before. I had grown up in the slums, been in detention once myself, and rescued my father from the ‘drunk tank.’ And all of a sudden there I was at Mutual being introduced as the new Laurel adviser. I sat before two Laurels and gave the lesson word for word, even the parts that said ‘Now ask them …’ I left immediately after the lesson and cried all the way home.
 
 “A few days later there was another knock at the door, and I thought, ‘Good. It’s the bishop here to retrieve his manual.’ I opened the door, and standing there were those two lovely Laurels, one with flowers, the other with cookies. They invited me to go to church with them on Sunday, which I did. I liked those girls. They began by teaching me about the Church, the ward, the class. They taught me how to sew, read scriptures, and smile.
 
@@ -65,7 +67,7 @@ May we press forward with steadfast faith in Christ, standing as witnesses of Hi
 
 [^2]: [[John 14.26|John 14:26]]; [[John 15.26|15:26]].
 
-[^3]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^3]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^4]: [[Mosiah 5.2|Mosiah 5:2, 5]][[Mosiah 5.5|]].
 
@@ -85,8 +87,3 @@ May we press forward with steadfast faith in Christ, standing as witnesses of Hi
 
 [^12]: “How Firm a Foundation,” *Hymns,* no. 85.
 
-
-
-
-
-#Example #Holy_Ghost #Jesus_Christ #Testimony

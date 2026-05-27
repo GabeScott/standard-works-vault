@@ -1,6 +1,8 @@
 # Now Is the Time to Arise and Shine!
 
-By Elaine S. Dalton - *Young Women General President*
+Thomas S. Monson
+
+By Elaine S. Dalton - *Young Women General President*
 
 *Given in the April session of the 2012 General Conference*
 
@@ -18,7 +20,7 @@ When our daughter, Emi, was a little girl, she liked to watch my every move as I
 
 I wish every young woman assembled here tonight would know and understand that your beauty—your “shine”—does not lie in makeup, gooey cream, or the latest clothing or hairstyles. It lies in your personal purity. When you live the standards and qualify for the constant companionship of the Holy Ghost, you can have a powerful impact in the world. Your example, even the light in your eyes, will influence others who see your “shine,” and they will want to be like you. Where do you get this light? The Lord is the light, “and the Spirit enlighteneth every man through the world, that hearkeneth to the voice of the Spirit.”[^8] A divine light comes into your eyes and countenances when you draw close to your Heavenly Father and His Son, Jesus Christ. That’s how we get the “shiney”! And besides, as all of you can see, the “shiney cream” didn’t really work on my wrinkles anyway!
 
-The call to “arise and shine forth” is a call to each of you to lead the world in a mighty cause—to raise the standard—and lead this generation in virtue, purity, and temple worthiness. If you desire to make a difference in the world, *you must be different from the world.* I echo the words of President Joseph F. Smith, who said to the women of his day: “It is not for you to be led by the \[young\] women of the world; it is for you to lead … the \[young\] women of the world, in everything that is … purifying to the children of men.”[^9] These words ring true today. As daughters of God, you were born to lead.
+The call to “arise and shine forth” is a call to each of you to lead the world in a mighty cause—to raise the standard—and lead this generation in virtue, purity, and temple worthiness. If you desire to make a difference in the world, *you must be different from the world.* I echo the words of President Joseph F. Smith, who said to the women of his day: “It is not for you to be led by the \[young\] women of the world; it is for you to lead … the \[young\] women of the world, in everything that is … purifying to the children of men.”[^9] These words ring true today. As daughters of God, you were born to lead.
 
 In the world in which we live, your ability to lead will require the guidance and constant companionship of the Holy Ghost, who will tell you “all things what ye should do”[^10] as you recognize and rely on His guidance and promptings. And since the Holy Ghost does not dwell in unclean temples, each of us will need to take inventory of our habits and our hearts. All of us will need to change something—to repent. As King Lamoni’s father stated in the Book of Mormon, “I will give away *all* my sins to know thee.”[^11] Are we, you and I, willing to do the same?
 
@@ -32,13 +34,13 @@ Later she attempted the swim again, and once more, a thick fog set in. But this 
 
 For Florence Chadwick, the coastline was her goal. For each of us, the temple is our goal. Young women, stay focused. Don’t lose sight of your goals. Don’t let the thick fog of moral pollution and the detracting voices of the world keep you from reaching your goals, living the standards, enjoying the companionship of the Holy Ghost, and being worthy to enter holy temples. Retain the vision of the temple—the Savior’s holy house—ever in your hearts and minds.
 
-Several weeks ago I stood in the celestial room of the Reno Nevada Temple. The light streaming into that room was brilliant and was made even more so by the crystal chandelier, which reflected the light on its many carved facets into rainbows of illumination everywhere. It took my breath away as I realized that the Savior is “the light and the life of the world,”[^16] that it is *His* light we must hold up and reflect. *We* are the tiny crystals that reflect His light, and in order to do that, we must be clean and free from the dust of the world. As I stood in the temple that day, I heard again in my mind Moroni’s call to us—the daughters of Zion: “Awake, and arise from the dust.”[^17] “And touch not the evil gift, nor the unclean thing.”[^18] “Awake, and arise … , and put on thy beautiful garments, O daughter of Zion … , that the covenants of the Eternal Father which he hath made unto thee, O house of Israel, may be fulfilled.”[^19]
+Several weeks ago I stood in the celestial room of the Reno Nevada Temple. The light streaming into that room was brilliant and was made even more so by the crystal chandelier, which reflected the light on its many carved facets into rainbows of illumination everywhere. It took my breath away as I realized that the Savior is “the light and the life of the world,”[^16] that it is *His* light we must hold up and reflect. *We* are the tiny crystals that reflect His light, and in order to do that, we must be clean and free from the dust of the world. As I stood in the temple that day, I heard again in my mind Moroni’s call to us—the daughters of Zion: “Awake, and arise from the dust.”[^17] “And touch not the evil gift, nor the unclean thing.”[^18] “Awake, and arise … , and put on thy beautiful garments, O daughter of Zion … , that the covenants of the Eternal Father which he hath made unto thee, O house of Israel, may be fulfilled.”[^19]
 
 The promised blessings of the temple extend not only to you but to all generations. As you make the temple your goal, your influence for good will transcend time and place, and the work you perform for those who have gone before will be the fulfillment of prophecy!
 
-Last general conference I thrilled as I listened to Elder David A. Bednar invite each of you to become anxiously engaged in doing your own family history and temple work for those who have passed on without the blessings of the restored gospel of Jesus Christ.[^20] As he issued this invitation to you, my heart leapt inside. In the Doctrine and Covenants we read of “other choice spirits who were reserved to come forth in the fulness of times to take part in laying the foundations of the great latter-day work, including the building of … temples and the performance of ordinances therein for the redemption of the dead.”[^21] This is your day, and your work has begun! Now is the time to be worthy of and obtain a temple recommend. As you do this work, you will become saviors on Mount Zion.[^22]
+Last general conference I thrilled as I listened to Elder David A. Bednar invite each of you to become anxiously engaged in doing your own family history and temple work for those who have passed on without the blessings of the restored gospel of Jesus Christ.[^20] As he issued this invitation to you, my heart leapt inside. In the Doctrine and Covenants we read of “other choice spirits who were reserved to come forth in the fulness of times to take part in laying the foundations of the great latter-day work, including the building of … temples and the performance of ordinances therein for the redemption of the dead.”[^21] This is your day, and your work has begun! Now is the time to be worthy of and obtain a temple recommend. As you do this work, you will become saviors on Mount Zion.[^22]
 
-Elder Russell M. Nelson said of you, “The influence of \[the\] young women of the Church, like a sleeping giant, will awaken, arise, and inspire the inhabitants of the earth as a mighty force for righteousness.”[^23] Young women, arise and take your place in the glorious events that will shape your future and the future of the world. Now is the time!
+Elder Russell M. Nelson said of you, “The influence of \[the\] young women of the Church, like a sleeping giant, will awaken, arise, and inspire the inhabitants of the earth as a mighty force for righteousness.”[^23] Young women, arise and take your place in the glorious events that will shape your future and the future of the world. Now is the time!
 
 “High on the mountain top a banner is unfurled. Ye nations, now look up; it waves to all the world”![^24] Young women, you are the banner! Be virtuous and pure, seek the companionship of the Holy Ghost, bury your sins and transgressions, maintain your focus, and don’t let the fog of moral pollution obscure your goals. Be worthy to enter the temple now. Put on your “shiney”! I testify with all my heart that God lives and that He will enlighten our lives as we draw close to His Beloved Son—our Savior, Jesus Christ. And I pray that, like Moroni, we will “arise and shine forth, that \[our\] light may be a standard for the nations”![^25] In the sacred name of Jesus Christ, amen.
 
@@ -47,9 +49,9 @@ Elder Russell M. Nelson said of you, “The influence of \[the\] young women of
 
 [^1]: [[D&C 115.5|Doctrine and Covenants 115:5]].
 
-[^2]: [[Isaiah 2.3|Isaiah 2:3]]; [[2 Nephi 12.3|2 Nephi 12:3]].
+[^2]: [[Isaiah 2.3|Isaiah 2:3]]; [[2 Nephi 12.3|2 Nephi 12:3]].
 
-[^3]: Gordon B. Hinckley, “Standing Strong and Immovable,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20.
+[^3]: Gordon B. Hinckley, “Standing Strong and Immovable,” *Worldwide Leadership Training Meeting,* Jan. 10, 2004, 20.
 
 [^4]: Oliver Cowdery, in Joseph Smith—History 1:71, note.
 
@@ -61,9 +63,9 @@ Elder Russell M. Nelson said of you, “The influence of \[the\] young women of
 
 [^8]: [[D&C 84.46|Doctrine and Covenants 84:46]].
 
-[^9]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 184.
+[^9]: *Teachings of Presidents of the Church: Joseph F. Smith* (1998), 184.
 
-[^10]: [[2 Nephi 32.5|2 Nephi 32:5]].
+[^10]: [[2 Nephi 32.5|2 Nephi 32:5]].
 
 [^11]: [[Alma 22.18|Alma 22:18]]; emphasis added.
 
@@ -71,11 +73,11 @@ Elder Russell M. Nelson said of you, “The influence of \[the\] young women of
 
 [^13]: See [[D&C 58.42|Doctrine and Covenants 58:42]].
 
-[^14]: See Sterling W. Sill, in Conference Report, Apr. 1955, 117.
+[^14]: See Sterling W. Sill, in Conference Report, Apr. 1955, 117.
 
 [^15]: See Randy Alcom, “Florence Chadwick and the Fog,” epm.org/resources/2010/Jan/21/florence-chadwick-and-fog. See also “Florence Chadwick,” in *Encyclopedia of World Biography,* vol. 19 (2004): 64–66; “Navigation Information” and “Swim Successes,” Catalina Channel Swimming Federation, swimcatalina.com, accessed Mar. 27, 2012. Additional varying accounts about Florence Chadwick exist.
 
-[^16]: [[3 Nephi 9.18|3 Nephi 9:18]].
+[^16]: [[3 Nephi 9.18|3 Nephi 9:18]].
 
 [^17]: [[Moroni 10.31|Moroni 10:31]].
 
@@ -83,20 +85,15 @@ Elder Russell M. Nelson said of you, “The influence of \[the\] young women of
 
 [^19]: [[Moroni 10.31|Moroni 10:31]].
 
-[^20]: See David A. Bednar, “The Hearts of the Children Shall Turn,” *Liahona* and *Ensign,* Nov. 2011, 24–27.
+[^20]: See David A. Bednar, “The Hearts of the Children Shall Turn,” *Liahona* and *Ensign,* Nov. 2011, 24–27.
 
 [^21]: [[D&C 138.53|Doctrine and Covenants 138:53–54]][[D&C 138.54|]].
 
-[^22]: See [[Obadiah 1.21|Obadiah 1:21]]; [[D&C 103.9|Doctrine and Covenants 103:9]]; *Teachings of Presidents of the Church: Joseph Smith* (2007), 472–73.
+[^22]: See [[Obadiah 1.21|Obadiah 1:21]]; [[D&C 103.9|Doctrine and Covenants 103:9]]; *Teachings of Presidents of the Church: Joseph Smith* (2007), 472–73.
 
-[^23]: Russell M. Nelson, “Daughters of Zion,” *New Era Young Women Special Issue,* YW Nov. 1985, 9.
+[^23]: Russell M. Nelson, “Daughters of Zion,” *New Era Young Women Special Issue,* YW Nov. 1985, 9.
 
-[^24]: “High on the Mountain Top,” *Hymns,* no. 5.
+[^24]: “High on the Mountain Top,” *Hymns,* no. 5.
 
 [^25]: [[D&C 115.5|Doctrine and Covenants 115:5]].
 
-
-
-
-
-#Example #Temples #Virtue

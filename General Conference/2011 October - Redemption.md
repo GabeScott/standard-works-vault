@@ -1,6 +1,8 @@
 # Redemption
 
-By Elder LeGrand R. Curtis Jr. - *Of the Seventy*
+Richard G. Scott
+
+By Elder LeGrand R. Curtis Jr. - *Of the Seventy*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -14,13 +16,13 @@ The title “Redeemer” provides similar insights. “To redeem” is to buy or
 
 A prominent scriptural use of the word *redeem* concerns the delivery of the children of Israel out of their bondage in Egypt. After that deliverance, Moses told them, “Because the Lord loved you, … hath \[He\] brought you out with a mighty hand, and redeemed you out of the house of bondmen, from the hand of Pharaoh king of Egypt” ([[Deuteronomy 7.8|Deuteronomy 7:8]]).
 
-The theme of Jehovah redeeming the people of Israel from bondage is repeated many times in the scriptures. Often this is done to remind the people of the Lord’s goodness in delivering the children of Israel from the Egyptians. But it is also done to teach them that there would be another, more important, redemption for Israel. Lehi taught, “And the Messiah cometh in the fulness of time, that he may redeem the children of men from the fall” ([[2 Nephi 2.26|2 Nephi 2:26]]).
+The theme of Jehovah redeeming the people of Israel from bondage is repeated many times in the scriptures. Often this is done to remind the people of the Lord’s goodness in delivering the children of Israel from the Egyptians. But it is also done to teach them that there would be another, more important, redemption for Israel. Lehi taught, “And the Messiah cometh in the fulness of time, that he may redeem the children of men from the fall” ([[2 Nephi 2.26|2 Nephi 2:26]]).
 
 The Psalmist wrote, “But God will redeem my soul from the power of the grave” ([[Psalms 49.15|Psalm 49:15]]).
 
 The Lord declared through Isaiah, “I have blotted out, as a thick cloud, thy transgressions, and, as a cloud, thy sins: return unto me; for I have redeemed thee” ([[Isaiah 44.22|Isaiah 44:22]]).
 
-The redemption referred to in these three scriptures, of course, is the Atonement of Jesus Christ. This is the “plenteous redemption” provided by our loving God ([[Psalms 130.7|Psalm 130:7]]). Unlike the redemptions under the law of Moses or in modern legal arrangements, this redemption does not come by “corruptible things, as silver and gold” ([[1 Peter 1.18|1 Peter 1:18]]). “In \[Christ\] we have redemption through his blood, the forgiveness of sins, according to the riches of his grace” ([[Ephesians 1.7|Ephesians 1:7]]). President John Taylor taught that because of the Redeemer’s sacrifice, “the debt is paid, the redemption made, the covenant fulfilled, justice satisfied, the will of God done, and all power is … given into the hands of the Son of God” (*Teachings of Presidents of the Church: John Taylor* \[2001\], 44).
+The redemption referred to in these three scriptures, of course, is the Atonement of Jesus Christ. This is the “plenteous redemption” provided by our loving God ([[Psalms 130.7|Psalm 130:7]]). Unlike the redemptions under the law of Moses or in modern legal arrangements, this redemption does not come by “corruptible things, as silver and gold” ([[1 Peter 1.18|1 Peter 1:18]]). “In \[Christ\] we have redemption through his blood, the forgiveness of sins, according to the riches of his grace” ([[Ephesians 1.7|Ephesians 1:7]]). President John Taylor taught that because of the Redeemer’s sacrifice, “the debt is paid, the redemption made, the covenant fulfilled, justice satisfied, the will of God done, and all power is … given into the hands of the Son of God” (*Teachings of Presidents of the Church: John Taylor* \[2001\], 44).
 
 The effects of this redemption include the overcoming of physical death for all of God’s children. That is, temporal death is overcome, and all will be resurrected. Another aspect of this redemption by Christ is the victory over spiritual death. Through His suffering and death, Christ paid for the sins of all mankind on condition of individual repentance.
 
@@ -32,7 +34,7 @@ Thus, if we repent, we can be forgiven of our sins, the price having been paid b
 >In harmony divine!
 >
 
-President Boyd K. Packer taught, “There is a Redeemer, a Mediator, who stands both willing and able to appease the demands of justice and extend mercy to those who are penitent” (in Conference Report, Apr. 1977, 81; or *Ensign,* May 1977, 56).
+President Boyd K. Packer taught, “There is a Redeemer, a Mediator, who stands both willing and able to appease the demands of justice and extend mercy to those who are penitent” (in Conference Report, Apr. 1977, [[1977 April - The Mediator.md|81]]; or *Ensign,* May 1977, 56).
 
 The scriptures, literature, and the experiences of life are filled with stories of redemption. Through Christ, people can and do change their lives and obtain redemption. I love stories of redemption.
 
@@ -40,7 +42,7 @@ I have a friend who did not follow the teachings of the Church in his youth. Whe
 
 I once interviewed a woman for baptism who had been guilty of a very grievous sin. During the interview I asked if she understood that she could never repeat that sin. With deep emotion in her eyes and in her voice, she said, “Oh, President, I could never do that sin again. That is the reason I want to be baptized—to cleanse me from the effects of that terrible sin.” Hers is a story of redemption.
 
-As I have visited stake conferences and other meetings in recent years, I have carried President Thomas S. Monson’s call to rescue the less-active members of the Church. At one stake conference I told a story of a less-active member who returned to full activity after his bishop and other leaders visited him in his home, told him he was needed, and called him to serve in the ward. The man in the story not only accepted the call but also changed his life and habits and became fully active in the Church.
+As I have visited stake conferences and other meetings in recent years, I have carried President Thomas S. Monson’s call to rescue the less-active members of the Church. At one stake conference I told a story of a less-active member who returned to full activity after his bishop and other leaders visited him in his home, told him he was needed, and called him to serve in the ward. The man in the story not only accepted the call but also changed his life and habits and became fully active in the Church.
 
 A friend of mine was in the congregation to which I told that story. His countenance visibly changed as the story was told. He sent me an e-mail the next day telling me that his emotional reaction to the story was because his father-in-law’s story of returning to activity in the Church was very similar to the one that I had told. He told me that as a result of a similar visit by a bishop and an invitation to serve in the Church, his father-in-law reevaluated his life and his testimony, made major changes in his life, and accepted the call. That reactivated man now has 88 descendants who are active members of the Church.
 
@@ -48,7 +50,7 @@ At a meeting a few days later, I told both stories. The next day I received anot
 
 A few weeks later I told all three stories in another stake conference. After the meeting a man came to me and told me that that was *not* his father’s story. It was *his* story. He told me of the events that led him to repent and come back to full involvement in the Church. And so it went. As I carried the call to rescue the less active, I saw and heard story after story of people who responded to invitations to come back and change their lives. I heard story after story of redemption.
 
-Although we can never repay the Redeemer what He paid on our behalf, the plan of redemption calls for our best efforts to fully repent and do the will of God. The Apostle Orson F. Whitney wrote:
+Although we can never repay the Redeemer what He paid on our behalf, the plan of redemption calls for our best efforts to fully repent and do the will of God. The Apostle Orson F. Whitney wrote:
 
 >Savior, Redeemer of my soul,
 >Whose mighty hand hath made me whole,
@@ -70,8 +72,3 @@ I bear my testimony of the power of Christ’s Atonement. When we repent and com
 
 
 
-
-
-
-
-#Atonement #Forgiveness #Jesus_Christ #Plan_Of_Salvation #Repentance

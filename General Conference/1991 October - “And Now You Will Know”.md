@@ -1,5 +1,7 @@
 # “And Now You Will Know”
 
+Gordon B. Hinckley
+
 By Elder Joseph C. Muren - *Of the Seventy*
 
 *Given in the October session of the 1991 General Conference*
@@ -18,13 +20,13 @@ The next day I arrived promptly and anxiously read through the marked pages. I w
 
 Elder Eddington had carefully recorded in his journal that he and Elder Asay had held a special fast and had prayed that day so that “young Joe Muren might know for himself.”
 
-The Book of Mormon records well what occurred to me that evening in 1954. As those servants of the Lord “did minister with power and with great authority,” it was not possible that I could disbelieve their words (see [[3 Nephi 7.17|3 Ne. 7:17–18]][[3 Nephi 7.18|]]).
+The Book of Mormon records well what occurred to me that evening in 1954. As those servants of the Lord “did minister with power and with great authority,” it was not possible that I could disbelieve their words (see [[3 Nephi 7.17|3 Ne. 7:17–18]][[3 Nephi 7.18|]]).
 
 As the years have passed, I have recognized more fully that it was not just a spiritual experience of the moment, but rather, I was a recipient of a testimony, a gift from Heavenly Father, that when nourished and cherished would have lasting effects upon me every day of my life.
 
 Now, as we look behind me at this array of missionaries, we are often asked by nonmembers why the Church continues to send out the Elder Asays and the Elder Eddingtons—the tens of thousands of missionaries every year. They inquire, “Why do you send them even to those nations which already know of the Bible and Jesus Christ?” Why did Elder Asay, in his sixties, leave his bride of many years to serve a mission in California? Why did Elder Eddington, a retired teacher and principal, not remain in Idaho and enjoy his family during those “golden years”?
 
-Again the answer is clear in the scriptures. After the Lord had been crucified, He returned to the earth to bear witness of His resurrection and to give a sacred charge to His Apostles. From the twenty-eighth chapter of the Gospel of Matthew, we read: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: Teaching them to observe all things whatsoever I have commanded you” ([[Matthew 28.19|v. 19–20]][[Matthew 28.20|]]).
+Again the answer is clear in the scriptures. After the Lord had been crucified, He returned to the earth to bear witness of His resurrection and to give a sacred charge to His Apostles. From the twenty-eighth chapter of the Gospel of Matthew, we read: “Go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: Teaching them to observe all things whatsoever I have commanded you” ([[Matthew 28.19|v. 19–20]][[Matthew 28.20|]]).
 
 Today, The Church of Jesus Christ of Latter-day Saints continues with this sacred charge—that is, to go and to teach all nations to observe all things whatsoever He, the Savior, has commanded us (see [[Matthew 28.20|Matt. 28:20]]). These thousands of missionaries who have been called by a prophet are visual evidence that our Heavenly Father has not forgotten His children. We bear witness to the world that He lives, that He knows each one of us individually. He has a plan, a divine plan, to bring you and to bring me back into His presence. The Savior has returned to the earth, by way of modern-day prophets, all of those teachings, all of those ordinances, and His holy priesthood to bring happiness in this life and eternal joy in the life to come—a plan with solutions, a divine plan with guidance to all of the challenges of this life.
 
@@ -36,15 +38,10 @@ Now, there are friends of mine here today who are not members. I know you search
 
 Heavenly Father offers to you through His servants a new life. The scriptures call it a rebirth. Not only did the Lord Jesus Christ tell His apostles to “go … and teach,” but to baptize them “in the name of the Father, and of the Son, and of the Holy Ghost” ([[Matthew 28.19|Matt. 28:19]]).
 
-I bear testimony, paraphrasing the words of Peter in his second epistle, that we do not follow cunningly devised fables when we make known unto you the power and the coming of our Lord Jesus Christ (see [[2 Peter 2.16|2 Pet. 2:16]]).
+I bear testimony, paraphrasing the words of Peter in his second epistle, that we do not follow cunningly devised fables when we make known unto you the power and the coming of our Lord Jesus Christ (see [[2 Peter 2.16|2 Pet. 2:16]]).
 
 Heavenly Father and Jesus Christ did return to the earth in 1820. They did restore the priesthood of God and His plan of salvation to a modern-day prophet, Joseph Smith. I know that! I cannot deny what I have felt and what I have seen. I bear this witness to you in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Education #Missionary_Work #Testimony

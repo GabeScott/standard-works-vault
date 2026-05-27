@@ -1,5 +1,7 @@
 # Stand as a Witness
 
+Gordon B. Hinckley
+
 By Margaret D. Nadauld - *Young Women General President*
 
 *Given in the April session of the 2000 General Conference*
@@ -65,8 +67,3 @@ When we think of the magnificence of His gift to us, what small thing could we d
 
 
 
-
-
-
-
-#Agency #Evil #Morality #Temptation

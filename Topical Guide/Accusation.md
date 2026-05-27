@@ -1,6 +1,5 @@
 # Accusation
 
-
 *See also* [[Charge.md|Charge]]
 
 over his head his *accusation* written, [[Matthew 27.37|Matthew 27:37]] ([[Mark 15.26|Mark 15:26]]).

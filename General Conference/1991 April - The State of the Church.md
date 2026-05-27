@@ -1,5 +1,7 @@
 # The State of the Church
 
+Thomas S. Monson
+
 By President Gordon B. Hinckley - *First Counselor in the First Presidency*
 
 *Given in the April session of the 1991 General Conference*
@@ -62,7 +64,7 @@ As you know, we have followed for a year a program under which all operating cos
 
 As you can realize, this has involved a very substantial outlay from the tithing resources. After a year’s experience, we have received numerous expressions of gratitude and appreciation. They have come from far and wide. Let me read to you part of a letter from a stake president which recently came to one of our Brethren:
 
-“At the beginning of 1990,” he wrote, “when we were introduced to the new budgeting program, there were many members in our stake that were anxious and even a few that were critical. Throughout the year … we have emphasized the importance of conserving the financial resources of our people, along with their energies and time. Further to that, we have tried to focus on areas that could enhance the teaching and fellowshipping of members. …
+“At the beginning of 1990,” he wrote, “when we were introduced to the new budgeting program, there were many members in our stake that were anxious and even a few that were critical. Throughout the year … we have emphasized the importance of conserving the financial resources of our people, along with their energies and time. Further to that, we have tried to focus on areas that could enhance the teaching and fellowshipping of members. …
 
 “As we concluded the year 1990, as a presidency, as bishops, and as high councilors, we recognized the prophetic nature of the new budget program. A review of our statistics indicated that at year-end, we had only expended approximately 70 percent of the funds budgeted to us.
 
@@ -143,8 +145,3 @@ May the Lord smile with favor upon each of you. May each of us ever be grateful 
 
 
 
-
-
-
-
-#Church_Growth #Tithing

@@ -1,6 +1,8 @@
 # “O, Divine Redeemer”
 
-By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
+Gordon B. Hinckley
+
+By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1981 General Conference*
 
@@ -32,7 +34,7 @@ Can we educate Him regarding injustice or compare failures of judicial systems w
 
 And when we feel so alone, can we presume to teach Him who trod “the wine-press alone” anything at all about feeling forsaken? ([[D&C 76.107|D&C 76:107]]; see also [[Matthew 27.46|Matt. 27:46]].)
 
-Cannot the childless who crave children count on His empathy? For He loved children and said, “Of such is the kingdom of heaven”; and “one by one, \[He\] blessed them,” and “he wept … and prayed unto the Father for them. And when he had done this he wept again.” ([[Matthew 19.14|Matt. 19:14]]; [[3 Nephi 17.21|3 Ne. 17:21–22]][[3 Nephi 17.22|]].)
+Cannot the childless who crave children count on His empathy? For He loved children and said, “Of such is the kingdom of heaven”; and “one by one, \[He\] blessed them,” and “he wept … and prayed unto the Father for them. And when he had done this he wept again.” ([[Matthew 19.14|Matt. 19:14]]; [[3 Nephi 17.21|3 Ne. 17:21–22]][[3 Nephi 17.22|]].)
 
 Do we presume to instruct Him in either compassion or mercy? Even at the apogee of His agony upon the cross, He, nevertheless, consoled a thief beside Him, saying, “To day shalt thou be with me in paradise.” ([[Luke 23.43|Luke 23:43]].)
 
@@ -56,7 +58,7 @@ Can scientists, whose discipline brings the discovery of the interweavings in th
 
 Should we seek to counsel Him in courage? Should we rush forth eagerly to show Him our mortal medals—our scratches and bruises—He who bears His five special wounds?
 
-Does not His “word of power” actually bring entire new worlds into being and cause others to pass away? (See [[Moses 1.35|Moses 1:35–38]][[Moses 1.36|]][[Moses 1.37|]][[Moses 1.38|]].) Yet in the midst of such galactic governance, He interviewed His Twelve unhurriedly “one by one” ([[3 Nephi 28.1|3 Ne. 28:1]]) and later called a farm boy in rural New York.
+Does not His “word of power” actually bring entire new worlds into being and cause others to pass away? (See [[Moses 1.35|Moses 1:35–38]][[Moses 1.36|]][[Moses 1.37|]][[Moses 1.38|]].) Yet in the midst of such galactic governance, He interviewed His Twelve unhurriedly “one by one” ([[3 Nephi 28.1|3 Ne. 28:1]]) and later called a farm boy in rural New York.
 
 Has He not invited us to observe His cosmic craftsmanship in the heavens that we might see “God moving in His majesty and power”? ([[D&C 88.47|D&C 88:47]].) But do we not also see Him “moving in His majesty and power” as each prodigal finally completes his homeward orbit?
 
@@ -64,7 +66,7 @@ Though His creations are so vast as to be numberless even to computerized man, h
 
 Did not the resurrected Jesus stand by an imprisoned Paul, telling him to be of good cheer and calling him on his mission to Rome? (See [[Acts 23.11|Acts 23:11]].) Likewise, Jesus stands by the righteous in all their individual ordeals.
 
-Did not this good and true Shepherd forego repose after the glorious but awful Atonement in order to establish His work among the lost sheep, disobedient in the days of Noah? (See [[1 Peter 3.18|1 Pet. 3:18–20]][[1 Peter 3.19|]][[1 Peter 3.20|]].) Did He not then visit still other lost sheep in the Americas? (See [[John 10.16|John 10:16]]; [[3 Nephi 15.17|3 Ne. 15:17, 21]][[3 Nephi 15.21|]].) Then still other lost sheep? (See [[3 Nephi 16.1|3 Ne. 16:1–3]][[3 Nephi 16.2|]][[3 Nephi 16.3|]].) What can we tell Him about conscientiousness?
+Did not this good and true Shepherd forego repose after the glorious but awful Atonement in order to establish His work among the lost sheep, disobedient in the days of Noah? (See [[1 Peter 3.18|1 Pet. 3:18–20]][[1 Peter 3.19|]][[1 Peter 3.20|]].) Did He not then visit still other lost sheep in the Americas? (See [[John 10.16|John 10:16]]; [[3 Nephi 15.17|3 Ne. 15:17, 21]][[3 Nephi 15.21|]].) Then still other lost sheep? (See [[3 Nephi 16.1|3 Ne. 16:1–3]][[3 Nephi 16.2|]][[3 Nephi 16.3|]].) What can we tell Him about conscientiousness?
 
 Indeed, we cannot teach Him anything! But we can listen to Him. We can love Him, we can honor Him, we can worship Him! We can keep His commandments, and we can feast upon His scriptures! Yes, we who are so forgetful and even rebellious are never forgotten by Him! We *are* His “work” and His “glory,” and He is *never* distracted! (See [[Moses 1.39|Moses 1:39]].)
 
@@ -82,7 +84,7 @@ Soon, He who was once mockingly dressed in purple will come again, attired in re
 
 All will then acknowledge the completeness of His justice and His mercy (see [[Alma 12.15|Alma 12:15]]) and will see how human indifference to God—not God’s indifference to humanity—accounts for so much suffering.
 
-Then we will see the true story of mankind—and not through glass darkly. (See [[1 Corinthians 13.12|1 Cor. 13:12]].) The great military battles will appear as mere bonfires which blazed briefly, and the mortal accounts of the human experience will be but graffiti on the walls of time.
+Then we will see the true story of mankind—and not through glass darkly. (See [[1 Corinthians 13.12|1 Cor. 13:12]].) The great military battles will appear as mere bonfires which blazed briefly, and the mortal accounts of the human experience will be but graffiti on the walls of time.
 
 Before that reckoning moment, however, both your ministry and mine will unfold in the grim but also glorious circumstances of the last days.
 
@@ -90,11 +92,11 @@ Yes, there will be wrenching polarization on this planet, but also the remarkabl
 
 Meanwhile, did not Jesus tell us what to expect by way of heat in the final summer? Did He not also say that He would prove our faith and patience by trial?
 
-Did He not provide needed proportion when He spoke of the comparative few who will find the narrow way leading to the strait gate? (See [[Matthew 7.13|Matt. 7:13–14]][[Matthew 7.14|]].) Did He not also say that His Saints, scattered upon all the face of the earth, would, in the midst of wickedness, commotion, and persecution, be “armed with righteousness and with the power of God,” for He is determined to have “a pure people”? ([[1 Nephi 14.12|1 Ne. 14:12–14]][[1 Nephi 14.13|]][[1 Nephi 14.14|]]; [[D&C 100.16|D&C 100:16]].)
+Did He not provide needed proportion when He spoke of the comparative few who will find the narrow way leading to the strait gate? (See [[Matthew 7.13|Matt. 7:13–14]][[Matthew 7.14|]].) Did He not also say that His Saints, scattered upon all the face of the earth, would, in the midst of wickedness, commotion, and persecution, be “armed with righteousness and with the power of God,” for He is determined to have “a pure people”? ([[1 Nephi 14.12|1 Ne. 14:12–14]][[1 Nephi 14.13|]][[1 Nephi 14.14|]]; [[D&C 100.16|D&C 100:16]].)
 
 His work proceeds forward almost as if in the comparative calmness of the eye of a storm. First, He reigns in the midst of His saints; soon, in all the world! (See [[D&C 1.36|D&C 1:36]]; [[D&C 133.2|133:2–3]][[D&C 133.3|]].)
 
-So as the shutters of human history begin to close as if before a gathering storm, and as events scurry across the human scene like so many leaves before a wild wind—those who stand before the warm glow of the gospel fire can be permitted a shiver of the soul. Yet in our circle of certitude, we know, even in the midst of all these things, that there will be no final frustration of God’s purposes. God has known “all things from the beginning; wherefore he prepareth a way to accomplish all his works among the children of men.” ([[1 Nephi 9.6|1 Ne. 9:6]].)
+So as the shutters of human history begin to close as if before a gathering storm, and as events scurry across the human scene like so many leaves before a wild wind—those who stand before the warm glow of the gospel fire can be permitted a shiver of the soul. Yet in our circle of certitude, we know, even in the midst of all these things, that there will be no final frustration of God’s purposes. God has known “all things from the beginning; wherefore he prepareth a way to accomplish all his works among the children of men.” ([[1 Nephi 9.6|1 Ne. 9:6]].)
 
 Humbly, therefore, I promise to go whithersoever I am sent, striving to speak the words He would have me say and acknowledging in the tremblings of my soul that I cannot fully be His Special Witness unless my life is fully special. I close with pleadings from the hymn “O, Divine Redeemer!” which pleadings are my pleadings:
 
@@ -115,8 +117,3 @@ In the holy name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Jesus_Christ

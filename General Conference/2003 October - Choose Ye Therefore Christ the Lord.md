@@ -1,5 +1,7 @@
 # Choose Ye Therefore Christ the Lord
 
+Gordon B. Hinckley
+
 By Anne C. Pingree - *Second Counselor in the Relief Society General Presidency*
 
 *Given in the October session of the 2003 General Conference*
@@ -37,7 +39,7 @@ Dear sisters, I have felt the love of the Lord often in my life. On the good day
 
 
 
-[^1]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
+[^1]: [[2 Corinthians 3.3|2 Corinthians 3:3]].
 
 [^2]: Gordon B. Hinckley, “The Times in Which We Live,” *Liahona,* Jan. 2002, 83; *Ensign,* Nov. 2001, 72.
 
@@ -47,7 +49,7 @@ Dear sisters, I have felt the love of the Lord often in my life. On the good day
 
 [^5]: [[Galatians 5.22|Galatians 5:22]].
 
-[^6]: [[2 Nephi 25.26|2 Nephi 25:26]].
+[^6]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^7]: “A Prayer for the Children,” *Liahona* and *Ensign,* May 2003, 87.
 
@@ -59,8 +61,3 @@ Dear sisters, I have felt the love of the Lord often in my life. On the good day
 
 [^11]: [[Joshua 24.15|Joshua 24:15]]; emphasis added.
 
-
-
-
-
-#Agency #Faith #Family #Home #Jesus_Christ

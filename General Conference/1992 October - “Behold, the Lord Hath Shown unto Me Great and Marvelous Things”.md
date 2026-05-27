@@ -1,5 +1,7 @@
 # “Behold, the Lord Hath Shown unto Me Great and Marvelous Things”
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -8,7 +10,7 @@ By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 Brigham Young once counseled us to use the scriptures as follows:
 
-“Do you read the Scriptures, my brethren and sisters, as though you were writing them a thousand, two thousand, or five thousand years ago? Do you read them as though you stood in the place of the men who wrote them? If you do not feel thus, it is your privilege to do so, that you may be as familiar with the spirit and meaning of the written word of God as you are with your daily walk and conversation” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], p. 128).
+“Do you read the Scriptures, my brethren and sisters, as though you were writing them a thousand, two thousand, or five thousand years ago? Do you read them as though you stood in the place of the men who wrote them? If you do not feel thus, it is your privilege to do so, that you may be as familiar with the spirit and meaning of the written word of God as you are with your daily walk and conversation” (*Discourses of Brigham Young,* sel. John A. Widtsoe \[Salt Lake City: Deseret Book Co., 1941\], p. 128).
 
 The Book of Mormon has many special accounts with lessons which can be applied to all ages. It is a book of great passion and feeling. Let us take Brigham Young’s advice and imagine we are standing in the place where Moroni, the last of the great Nephite prophets, stood. The assignment his father gave to him to complete the record, which was entrusted to his care, was very difficult. He must have been in a state of shock as he described the total destruction of his people.
 
@@ -30,11 +32,11 @@ He writes first to the members of the Church and then to those who have not embr
 
 I guess one of the greatest mysteries of mortality is why mankind fails to learn from history. Why do those who profess to be true followers of Christ so often become victims of the enticements of the world? The evidence is so strong regarding the blessings which accrue to those who trust in and follow the ways the Lord has prescribed for us.
 
-Several recent articles in the news and business press have reported on the success of Utah, the place where we still have the greatest concentration of members of the Church. They emphasize that “we are here a repository of old-fashioned values, an American success story” (Peter Steinfels, “Despite Growth, Mormons Find New Hurdles,” *New York Times,* 15 Sept. 1991, sec. 1, p. 1).
+Several recent articles in the news and business press have reported on the success of Utah, the place where we still have the greatest concentration of members of the Church. They emphasize that “we are here a repository of old-fashioned values, an American success story” (Peter Steinfels, “Despite Growth, Mormons Find New Hurdles,” *New York Times,* 15 Sept. 1991, sec. 1, p. 1).
 
-One article reported: “If religion, as Karl Marx once wrote, is ‘the opium of the people,’ in Utah it is the amphetamine. Thanks largely to the influence of the Church of Jesus Christ of Latter-day Saints … Utah has become the envy of its neighbors” (Sally B. Donnelly, “Mixing Business and Faith,” *Time,* 29 July 1991, p. 22).
+One article reported: “If religion, as Karl Marx once wrote, is ‘the opium of the people,’ in Utah it is the amphetamine. Thanks largely to the influence of the Church of Jesus Christ of Latter-day Saints … Utah has become the envy of its neighbors” (Sally B. Donnelly, “Mixing Business and Faith,” *Time,* 29 July 1991, p. 22).
 
-From another magazine, *Business Week,* we read: “Utah at its best. Of the 50 states, Utah has the highest literacy rate, the youngest population, the highest percent of high school graduates, the highest percent of persons with college education, the ninth highest percent of college graduates, a state’s population with the highest average number of years of school completed, the highest birth rate, the lowest death rate, the fourth longest life expectancy, one of the three lowest cancer rates, one of the lowest heart disease rates, the lowest consumption of alcohol, the lowest consumption of tobacco, the shortest average hospital stays, the healthiest population, … \[and\] the best-run state government” (*Business Week,* 16 Dec. 1991, p. 118J).
+From another magazine, *Business Week,* we read: “Utah at its best. Of the 50 states, Utah has the highest literacy rate, the youngest population, the highest percent of high school graduates, the highest percent of persons with college education, the ninth highest percent of college graduates, a state’s population with the highest average number of years of school completed, the highest birth rate, the lowest death rate, the fourth longest life expectancy, one of the three lowest cancer rates, one of the lowest heart disease rates, the lowest consumption of alcohol, the lowest consumption of tobacco, the shortest average hospital stays, the healthiest population, … \[and\] the best-run state government” (*Business Week,* 16 Dec. 1991, p. 118J).
 
 Notice both what is being said and not being said in these articles. They are honoring collective accomplishments, not individual achievements. It is noteworthy of what the citizens of Utah have been able to do together. As communities, they have become a beacon to the world. As a people, they have demonstrated an ability to overcome much of the divisiveness of special interests, uncontrolled individualism, and selfishness.
 
@@ -52,7 +54,7 @@ Part of what Moroni was feeling should also be translated into a renewed desire 
 
 “Behold, will ye believe in the day of your visitation—behold, when the Lord shall come, yea, even that great day when the earth shall be rolled together as a scroll, and the elements shall melt with fervent heat, yea, in that great day when ye shall be brought to stand before the Lamb of God—then will ye say that there is no God?
 
-“Then will ye longer deny the Christ, or can ye behold the Lamb of God? Do ye suppose that ye shall dwell with him under a consciousness of your guilt? Do ye suppose that ye could be happy to dwell with that holy Being, when your souls are racked with a consciousness of guilt that ye have ever abused his laws? …
+“Then will ye longer deny the Christ, or can ye behold the Lamb of God? Do ye suppose that ye shall dwell with him under a consciousness of your guilt? Do ye suppose that ye could be happy to dwell with that holy Being, when your souls are racked with a consciousness of guilt that ye have ever abused his laws? …
 
 “O then ye unbelieving, turn ye unto the Lord; cry mightily unto the Father in the name of Jesus, that perhaps ye may be found spotless, pure, fair, and white, having been cleansed by the blood of the Lamb, at that great and last day” ([[Mormon 9.1|Morm. 9:1–3, 6]][[Mormon 9.2|]][[Mormon 9.3|]][[Mormon 9.6|]]).
 
@@ -66,7 +68,7 @@ We are here to declare that the restored gospel of our Lord and Savior is here t
 
 “Our objective is to bring the gospel to all the world.
 
-“Brethren, this is an ambitious project we have, but as you know, we are but planning to do what the Lord has already seen and which He has charged us with” (Spencer W. Kimball, Regional Representatives’ Seminar, 5 Apr. 1976, p. 1).
+“Brethren, this is an ambitious project we have, but as you know, we are but planning to do what the Lord has already seen and which He has charged us with” (Spencer W. Kimball, Regional Representatives’ Seminar, 5 Apr. 1976, p. 1).
 
 We invite you to come and join with us to find the real fulfillment life has to offer.
 
@@ -87,8 +89,3 @@ It is my witness to you that God lives, that Jesus is the Christ, the Son of the
 
 
 
-
-
-
-
-#Pride #Prophecy #Scriptures

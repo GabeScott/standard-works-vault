@@ -1,6 +1,8 @@
 # Lift Up Your Head and Rejoice
 
-By M. Joseph Brough - *Second Counselor in the Young Men General Presidency*
+Russell M. Nelson
+
+By M. Joseph Brough - *Second Counselor in the Young Men General Presidency*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -28,7 +30,7 @@ To help us travel and triumph over our hard times with such glimpses of eternity
 
 Forgiving those who may have caused our hard thing and reconciling “\[our\]selves to the will of God”[^6] can be very difficult. It can hurt most when our hard thing is caused by a family member, a close friend, or even ourselves.
 
-As a young bishop, I learned of forgiveness when my stake president, Bruce M. Cook, shared the following story. He explained:
+As a young bishop, I learned of forgiveness when my stake president, Bruce M. Cook, shared the following story. He explained:
 
 “During the late 1970s, some associates and I started a business. Although we did nothing illegal, some poor decisions, combined with the challenging economic times, resulted in our failure.
 
@@ -36,7 +38,7 @@ As a young bishop, I learned of forgiveness when my stake president, Bruce M. C
 
 “In 2002, my wife and I learned that the stake presidency in which I served as a counselor was being reorganized. As we traveled on a short vacation prior to the release, she asked me whom I would choose as my counselors if I were called as the new stake president. I did not want to speak about it, but she persisted. Eventually, one name came to my mind. She then mentioned the name of the attorney we considered to have been at the center of our difficulties 20 years earlier. As she spoke, the Spirit confirmed that he should be the other counselor. Could I forgive the man?
 
-“When Elder David E. Sorensen extended to me the call to serve as stake president, he gave me an hour to select counselors. Through tears, I indicated that the Lord had already provided that revelation. As I spoke the name of the man I had considered my enemy, the anger, animosity, and hate I had harbored disappeared. In that moment, I learned of the peace that comes with forgiveness through the Atonement of Christ.”
+“When Elder David E. Sorensen extended to me the call to serve as stake president, he gave me an hour to select counselors. Through tears, I indicated that the Lord had already provided that revelation. As I spoke the name of the man I had considered my enemy, the anger, animosity, and hate I had harbored disappeared. In that moment, I learned of the peace that comes with forgiveness through the Atonement of Christ.”
 
 In other words, my stake president did “frankly forgive” him, like Nephi of old.[^7] I knew President Cook and his counselor as two righteous priesthood leaders who loved one another. I determined to be like them.
 
@@ -64,7 +66,7 @@ She said, “Yes, Dad. You know I have to serve a mission. I do not want to go, 
 
 Because she gave her will to Heavenly Father, she served Him with all of her heart, might, mind, and strength. She has taught her father how to do a hard thing.
 
-In President Russell M. Nelson’s worldwide devotional for youth, he requested some hard things of the youth. President Nelson said: “My fifth invitation is for you to stand out; be different from the world. … The Lord needs you to look like, sound like, act like, and dress like a true disciple of Jesus Christ.”[^9] That can be a hard thing, yet I know you can do it—with joy.
+In President Russell M. Nelson’s worldwide devotional for youth, he requested some hard things of the youth. President Nelson said: “My fifth invitation is for you to stand out; be different from the world. … The Lord needs you to look like, sound like, act like, and dress like a true disciple of Jesus Christ.”[^9] That can be a hard thing, yet I know you can do it—with joy.
 
 Remember that “men are, that they might have joy.”[^10] With all that Lehi faced, he still found joy. Remember when Alma was “weighed down with sorrow”[^11] because of the people of Ammonihah? The angel told him, “Blessed art thou, Alma; therefore, lift up thy head and rejoice, … for thou hast been faithful in keeping the commandments of God.”[^12] Alma learned a great truth: we can always rejoice when we keep the commandments. Remember that during the wars and challenges faced during the time of Captain Moroni, “there never was a happier time among the people of Nephi.”[^13] We can and should find joy when we face hard things.
 
@@ -79,23 +81,23 @@ As we face hard things in the Lord’s way, may we lift up our heads and rejoice
 
 [^1]: [[D&C 122.7|Doctrine and Covenants 122:7]].
 
-[^2]: [[1 Nephi 3.5|1 Nephi 3:5]].
+[^2]: [[1 Nephi 3.5|1 Nephi 3:5]].
 
-[^3]: [[1 Nephi 7.16|1 Nephi 7:16]].
+[^3]: [[1 Nephi 7.16|1 Nephi 7:16]].
 
 [^4]: [[D&C 121.1|Doctrine and Covenants 121:1]].
 
-[^5]: Neal A. Maxwell, “Revelation,” *First Worldwide Leadership Training Meeting,* Jan. 11, 2003, 6.
+[^5]: Neal A. Maxwell, “Revelation,” *First Worldwide Leadership Training Meeting,* Jan. 11, 2003, 6.
 
-[^6]: [[2 Nephi 10.24|2 Nephi 10:24]].
+[^6]: [[2 Nephi 10.24|2 Nephi 10:24]].
 
-[^7]: [[1 Nephi 7.21|1 Nephi 7:21]].
+[^7]: [[1 Nephi 7.21|1 Nephi 7:21]].
 
 [^8]: [[Luke 1.37|Luke 1:37]].
 
-[^9]: Russell M. Nelson, “[Hope of Israel](https://www.lds.org/languages/eng/content/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.lds.org.
+[^9]: Russell M. Nelson, “[Hope of Israel](https://www.lds.org/languages/eng/content/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel)” (worldwide youth devotional, June 3, 2018), HopeofIsrael.lds.org.
 
-[^10]: [[2 Nephi 2.25|2 Nephi 2:25]].
+[^10]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
 [^11]: [[Alma 8.14|Alma 8:14]].
 
@@ -103,9 +105,7 @@ As we face hard things in the Lord’s way, may we lift up our heads and rejoice
 
 [^13]: [[Alma 50.23|Alma 50:23]].
 
-[^14]: [[1 Nephi 19.9|1 Nephi 19:9]].
+[^14]: [[1 Nephi 19.9|1 Nephi 19:9]].
 
+[^15]: [[John 16.33|John 16:33]].
 
-
-
-#Adversity #Discipleship #Forgiveness #Joy

@@ -1,5 +1,7 @@
 # Personal Purity
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1998 General Conference*
@@ -55,7 +57,7 @@ I bear witness of the great plan of life, of the powers of godliness, of mercy a
 
 
 
-[^1]: [[Jacob 2.7|Jacob 2:7]]; see [[Jacob 2.1|Jacob 2]][[Jacob 2.2|]][[Jacob 2.3|]][[Jacob 2.4|]][[Jacob 2.5|]][[Jacob 2.6|]][[Jacob 2.7|]][[Jacob 2.8|]][[Jacob 2.9|]][[Jacob 2.10|]][[Jacob 2.11|]][[Jacob 2.12|]][[Jacob 2.13|]][[Jacob 2.14|]][[Jacob 2.15|]][[Jacob 2.16|]][[Jacob 2.17|]][[Jacob 2.18|]][[Jacob 2.19|]][[Jacob 2.20|]][[Jacob 2.21|]][[Jacob 2.22|]][[Jacob 2.23|]][[Jacob 2.24|]][[Jacob 2.25|]][[Jacob 2.26|]][[Jacob 2.27|]][[Jacob 2.28|]][[Jacob 2.29|]][[Jacob 2.30|]][[Jacob 2.31|]][[Jacob 2.32|]][[Jacob 2.33|]][[Jacob 2.34|]][[Jacob 2.35|]] and [[Jacob 3.1|3]][[Jacob 3.2|]][[Jacob 3.3|]][[Jacob 3.4|]][[Jacob 3.5|]][[Jacob 3.6|]][[Jacob 3.7|]][[Jacob 3.8|]][[Jacob 3.9|]][[Jacob 3.10|]][[Jacob 3.11|]][[Jacob 3.12|]][[Jacob 3.13|]][[Jacob 3.14|]] for the full context of his sermon on chastity.
+[^1]: [[Jacob 2.7|Jacob 2:7]]; see [[Jacob 2.1|Jacob 2]] and [[Jacob 3.1|3]] for the full context of his sermon on chastity.
 
 [^2]: *The Lessons of History* (1968), 35–36.
 
@@ -67,17 +69,17 @@ I bear witness of the great plan of life, of the powers of godliness, of mercy a
 
 [^6]: [[D&C 93.34|D&C 93:34]].
 
-[^7]: In Conference Report, Apr. 1972, 139; or *Ensign,* July 1972, 113.
+[^7]: In Conference Report, Apr. 1972, [[1972 April - Why Stay Morally Clean.md|139]]; or *Ensign,* July 1972, 113.
 
 [^8]: See [[Hebrews 6.6|Heb. 6:6]].
 
-[^9]: [[1 Corinthians 6.18|1 Cor. 6:18]].
+[^9]: [[1 Corinthians 6.18|1 Cor. 6:18]].
 
 [^10]: [[D&C 59.6|D&C 59:6]]; emphasis added.
 
 [^11]: See especially [[D&C 19.15|D&C 19:15–20]][[D&C 19.16|]][[D&C 19.17|]][[D&C 19.18|]][[D&C 19.19|]][[D&C 19.20|]].
 
-[^12]: [[1 Corinthians 6.19|1 Cor. 6:19–20]][[1 Corinthians 6.20|]]; emphasis added; see also [[1 Corinthians 6.13|vv. 13–18]][[1 Corinthians 6.14|]][[1 Corinthians 6.15|]][[1 Corinthians 6.16|]][[1 Corinthians 6.17|]][[1 Corinthians 6.18|]].
+[^12]: [[1 Corinthians 6.19|1 Cor. 6:19–20]][[1 Corinthians 6.20|]]; emphasis added; see also [[1 Corinthians 6.13|vv. 13–18]][[1 Corinthians 6.14|]][[1 Corinthians 6.15|]][[1 Corinthians 6.16|]][[1 Corinthians 6.17|]][[1 Corinthians 6.18|]].
 
 [^13]: See [[Genesis 2.23|Gen. 2:23–24]][[Genesis 2.24|]].
 
@@ -89,8 +91,3 @@ I bear witness of the great plan of life, of the powers of godliness, of mercy a
 
 [^17]: See James E. Talmage, in Conference Report, Oct. 1913, 117.
 
-
-
-
-
-#Atonement #Fatherhood #Forgiveness #Honesty #Love #Marriage #Morality #Repentance #Sin #Youth

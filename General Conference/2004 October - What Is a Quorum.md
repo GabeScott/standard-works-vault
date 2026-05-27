@@ -1,5 +1,7 @@
 # What Is a Quorum?
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2004 General Conference*
@@ -30,7 +32,7 @@ The account of Heber C. Kimball and Brigham Young leaving their homes for Englan
 
 Heber C. Kimball’s family were also ill. Charles Hubbard sent his boy with a team and wagon to help them on their way. Elder Kimball records: “It appeared to me as though my very inmost parts would melt within me at leaving my family in such a condition, as it were almost in the arms of death. I felt as though I could not endure it. I asked the teamster to stop, and said to Brother Brigham, ‘This is pretty tough, isn’t it; let’s rise up and give them a cheer.’ We arose, and swinging our hats three times over our heads, shouted: ‘Hurrah, hurrah for Israel.’” Sister Young and Sister Kimball came to the door and waved a farewell which gave Brother Brigham and Brother Heber much comfort as they continued “without purse or scrip” toward England. (See *Life of Heber C. Kimball,* 265–66.)
 
-The Bible Dictionary states that *Apostle* “means ‘one sent forth.’ … The calling of an apostle is to be a special witness of the name of Jesus Christ in all the world, particularly of his divinity and of his bodily resurrection from the dead. … Twelve men with this high calling constitute an administrative council in the work of the ministry. … Today twelve men with this same divine calling and ordination constitute the Quorum of the Twelve Apostles in The Church of Jesus Christ of Latter-day Saints” (“Apostle,” 612).
+The Bible Dictionary states that *Apostle* “means ‘one sent forth.’ … The calling of an apostle is to be a special witness of the name of Jesus Christ in all the world, particularly of his divinity and of his bodily resurrection from the dead. … Twelve men with this high calling constitute an administrative council in the work of the ministry. … Today twelve men with this same divine calling and ordination constitute the Quorum of the Twelve Apostles in The Church of Jesus Christ of Latter-day Saints” (“[[BD Apostle|Apostle]],” 612).
 
 An Apostle today continues to be “one sent forth.” The conditions we face are different from those of the early Brethren as we make our journeys to fulfill our assignment. Our manner of travel to all corners of the earth is very different from that of the early Brethren. However, our assignment remains the same as that which was given by the Savior as He instructed His called Twelve to “go ye therefore, and teach all nations, baptizing them in the name of the Father, and of the Son, and of the Holy Ghost: teaching them to observe all things whatsoever I have commanded you: and, lo, I am with you alway, even unto the end of the world” ([[Matthew 28.19|Matthew 28:19–20]][[Matthew 28.20|]]).
 
@@ -61,8 +63,3 @@ And so I say to you two Brethren who have joined us in our quorum, and to all of
 
 
 
-
-
-
-
-#Priesthood #Quorum_Of_The_Twelve_Apostles #Service

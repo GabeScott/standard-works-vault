@@ -1,6 +1,8 @@
 # Train Up a Child
 
-By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
+Ezra Taft Benson
+
+By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1983 General Conference*
 
@@ -40,13 +42,13 @@ In the New Testament, Paul, writing to the Ephesians, counseled them:
 
 The Book of Mormon begins with a son giving credit to the training of goodly parents:
 
-“I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
+“I, Nephi, having been born of goodly parents, therefore I was taught somewhat in all the learning of my father.” ([[1 Nephi 1.1|1 Ne. 1:1]].)
 
 Instructions through the Prophet Joseph Smith to members of the Church in this day are explicit regarding the responsibilities of parents to children:
 
 “And again, inasmuch as parents have children in Zion, or in any of her stakes which are organized, that teach them not to understand the doctrines of repentance, faith in Christ the Son of the living God, and of baptism and the gift of the Holy Ghost by the laying on of the hands, when eight years old, the sin be upon the heads of the parents.” ([[D&C 68.25|D&C 68:25]].)
 
-At the time I was a new parent, President David O. McKay presided over the Church. His counsel was clear and direct regarding our responsibilities to our children. He taught us the most precious gift a man and woman can receive is a child of God, and that the raising of a child is basically, fundamentally, and most exclusively a *spiritual* process.
+At the time I was a new parent, President David O. McKay presided over the Church. His counsel was clear and direct regarding our responsibilities to our children. He taught us the most precious gift a man and woman can receive is a child of God, and that the raising of a child is basically, fundamentally, and most exclusively a *spiritual* process.
 
 He directed us to basic principles we need to teach our children. The first and most important inner quality you can instill in a child is *faith in God.* The first and most important action a child can learn is *obedience.* And the most powerful tool you have with which to teach a child is *love.* (See *Instructor,* Vol. 84, Dec. 1949, p. 620.)
 
@@ -95,8 +97,3 @@ We who have embraced the gospel of Jesus Christ ought to have the devotion and t
 
 
 
-
-
-
-
-#Family #Parenthood

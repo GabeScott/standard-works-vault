@@ -1,12 +1,14 @@
 # Ward and Branch Families: Part of Heavenly Father’s Plan for Us
 
+Gordon B. Hinckley
+
 By Virginia H. Pearce - *First Counselor in the Young Women General Presidency*
 
 *Given in the October session of the 1993 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1993/10/ward-and-branch-families-part-of-heavenly-fathers-plan-for-us?lang=eng)
 
-It is good to gather in this inspiring setting in the presence of thousands and thousands who are brought together through the satellite network. I believe that Heavenly Father recognized that even though our relationship with him and our accountability to him are intensely personal, we gather strength when we meet in groups. We need to be reminded often that we are a part of something big and grand as we continue to do our own part. Each Sunday in gatherings around the world, young women stand and say aloud together, not “*I,*” but “*We* are daughters of *our* Heavenly Father who loves *us,* and *we* love him. *We* will ‘stand as witnesses,’” and so on (Young Women Theme, *Young Women Leadership Handbook* \[1992\], p. 4; emphasis added).
+It is good to gather in this inspiring setting in the presence of thousands and thousands who are brought together through the satellite network. I believe that Heavenly Father recognized that even though our relationship with him and our accountability to him are intensely personal, we gather strength when we meet in groups. We need to be reminded often that we are a part of something big and grand as we continue to do our own part. Each Sunday in gatherings around the world, young women stand and say aloud together, not “*I,*” but “*We* are daughters of *our* Heavenly Father who loves *us,* and *we* love him. *We* will ‘stand as witnesses,’” and so on (Young Women Theme, *Young Women Leadership Handbook* \[1992\], p. 4; emphasis added).
 
 Learning in groups is so important that Heavenly Father planned for us to be born into a group—the most basic, most hallowed, and most powerful group on earth: the family. We have heard good counsel about the family in these past two days. I would like to build on that by talking about the *ward* or *branch* family—the basic ecclesiastical unit to which we all belong as members of the Church of Jesus Christ. For simplicity this afternoon, I will use the word *ward* to include both wards and branches, since they both serve the same purposes. Wards are not designed to replace the family unit but to support the family and its righteous teachings. A ward is another place where there is enough commitment and energy to form a sort of “safety net” family for each of us when our families cannot or do not provide all of the teaching and growing experiences we need to return to Heavenly Father.
 
@@ -24,11 +26,11 @@ A ward is “something you somehow haven’t to deserve.” Membership in the Ch
 
 “For by one Spirit are we all baptized into one body, whether we be Jews or Gentiles, whether we be bond or free; …
 
-“For the body is not one member, but many” ([[1 Corinthians 12.13|1 Cor. 12:13–14]][[1 Corinthians 12.14|]]). The Savior instructed that we should meet together often and forbid no one (see [[3 Nephi 18.22|3 Ne. 18:22]]).
+“For the body is not one member, but many” ([[1 Corinthians 12.13|1 Cor. 12:13–14]][[1 Corinthians 12.14|]]). The Savior instructed that we should meet together often and forbid no one (see [[3 Nephi 18.22|3 Ne. 18:22]]).
 
 Several months ago while visiting our children in another state, I walked with our two-and-one-half-year-old grandson from the chapel to the nursery. As he moved rather energetically down the hall, at least five people called him by name—teenagers, children, adults. “Hi, Benjamin,” “Hey, Benjamin,” “Morning, Benjamin.” My heart overflowed with gratitude that Benjamin is learning that he, as an individual, belongs to a ward family. Over a lifetime, ward families will do for him what his family alone cannot do.
 
-In April 1992 conference, Young Women General President Janette C. Hales asked adult members to “learn the names of the young people in \[their\] ward or branch and call them by name” (in Conference Report, Apr. 1992, p. 112; or *Ensign,* May 1992, p. 80). Now, I would enlarge her invitation, inviting you young men and young women to learn the names of the adults and the children. Overcome your natural timidity and greet as many people as you can by name each week. Our wards will be better places if, like Benjamin, everyone hears his own name four or five times between the chapel and the classroom. We can each help that to happen.
+In April 1992 conference, Young Women General President Janette C. Hales asked adult members to “learn the names of the young people in \[their\] ward or branch and call them by name” (in Conference Report, Apr. 1992, [[1992 April - You Are Not Alone.md|p. 112]]; or *Ensign,* May 1992, p. 80). Now, I would enlarge her invitation, inviting you young men and young women to learn the names of the adults and the children. Overcome your natural timidity and greet as many people as you can by name each week. Our wards will be better places if, like Benjamin, everyone hears his own name four or five times between the chapel and the classroom. We can each help that to happen.
 
 *Next, ward families provide the reassurance of listening ears.* Someone has said that people would rather be understood than be loved. In truth, the surest way to increase our love for someone is to listen with patience and respect. I believe that our baptismal covenant demands this. How can we “mourn with those that mourn” and “bear one another’s burdens” ([[Mosiah 18.8|Mosiah 18:8–9]][[Mosiah 18.9|]]) if we don’t listen to know what those burdens are?
 
@@ -46,7 +48,7 @@ A mother was busily preparing dinner when her little boy burst into the kitchen.
 
 “Wonderful, wonderfuls,” notes, handshakes, hugs—all work so well in ward settings. Positive reinforcement changes behavior for the better, while criticism stabilizes negative behaviors and blocks change.
 
-George Eliot, a nineteenth-century English novelist, said, “What do we live for, if it is not to make life less difficult to each other?” (*Middlemarch,* London: Penguin Books, 1965, p. 789). We can make life less difficult for each other as we make our wards emotionally safer places: by being kind, accepting, tolerant, supportive, and positive. Those of us who teach children and youth have a special responsibility to insist—in respectful and kind ways—that class members use language and behavior which shows respect for others. No one should be belittled or made to feel less than he is within the walls of a Church classroom.
+George Eliot, a nineteenth-century English novelist, said, “What do we live for, if it is not to make life less difficult to each other?” (*Middlemarch,* London: Penguin Books, 1965, p. 789). We can make life less difficult for each other as we make our wards emotionally safer places: by being kind, accepting, tolerant, supportive, and positive. Those of us who teach children and youth have a special responsibility to insist—in respectful and kind ways—that class members use language and behavior which shows respect for others. No one should be belittled or made to feel less than he is within the walls of a Church classroom.
 
 **Ward families are a refuge.** I know a young family that lived in south Los Angeles during the violent summer of 1992. They could feel the heat from the fires as they sat terrified in their little apartment. They telephoned their parents in Salt Lake. Their families offered encouragement and their prayers. They could do no more at such a distance. It was a ward member who made arrangements for the Parkins to get themselves and their baby out safely. They stayed with members until they could go back to their apartment. They were safe.
 
@@ -77,8 +79,3 @@ I bear witness that ward and branch families are a great and miraculous part of 
 
 
 
-
-
-
-
-#Church_Organization #Family #Fellowshipping #Service

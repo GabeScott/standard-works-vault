@@ -1,6 +1,5 @@
 # Sow, Sown
 
-
 *sowed* it with salt, [[Judges 9.45|Judges 9:45]].
 
 they that plow iniquity, and *sow* wickedness, [[Job 4.8|Job 4:8]].
@@ -23,7 +22,7 @@ They have *sown* wheat, but shall reap thorns, [[Jeremiah 12.13|Jeremiah 12:13]]
 
 I will *sow* the house of Israel, [[Jeremiah 31.27|Jeremiah 31:27]].
 
-*sown* the wind ... reap the whirlwind, [[Hosea 8.7|Hosea 8:7]].
+*sown* the wind … reap the whirlwind, [[Hosea 8.7|Hosea 8:7]].
 
 *Sow* to yourselves in righteousness, reap in mercy, [[Hosea 10.12|Hosea 10:12]].
 

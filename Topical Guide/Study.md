@@ -1,7 +1,6 @@
 # Study
 
-
-*See also* [[Education.md|Education]]; [[Knowledge.md|Knowledge]]; [[Learn, Learning.md|Learn]]; [[Meditation, Meditate.md|Meditation]]; [[Read.md|Read]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Search.md|Search]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
+*See also* [[Education.md|Education]]; [[Knowledge.md|Knowledge]]; [[Learn.md|Learn]]; [[Meditation.md|Meditation]]; [[Read.md|Read]]; [[Scriptures, Study of.md|Scriptures, Study of]]; [[Search.md|Search]]; [[Understanding.md|Understanding]]; [[Wisdom.md|Wisdom]]
 
 heart of the righteous *studieth* to answer, [[Proverbs 15.28|Proverbs 15:28]].
 
@@ -13,7 +12,7 @@ give attendance to *reading*, [[1 Timothy 4.13|1 Timothy 4:13]].
 
 *Study* to shew thyself approved unto God, [[2 Timothy 2.15|2 Timothy 2:15]].
 
-add to your ... virtue *knowledge*, [[2 Peter 1.5|2 Peter 1:5]].
+add to your … virtue *knowledge*, [[2 Peter 1.5|2 Peter 1:5]].
 
 whoso *knocketh*, to him will he open, [[2 Nephi 9.42|2 Nephi 9:42]].
 
@@ -37,10 +36,8 @@ let your time be devoted to the *studying* of the scriptures, [[D&C 26.1|D&C 26:
 
 *treasure* up in your minds continually the words of life, [[D&C 84.85|D&C 84:85]].
 
-seek learning, even by *study* and also by faith, [[D&C 88.118|D&C 88:118]] ([[D&C 109.7|D&C 109:7]], [[D&C 109.14|D&C 109:14]]).
+seek learning, even by *study* and also by faith, [[D&C 88.118|D&C 88:118]] ([[D&C 109.7|D&C 109:7]]; [[D&C 109.14|D&C 109:14]]).
 
 *study* and learn, and become acquainted with all good books, [[D&C 90.15|D&C 90:15]].
 
 *treasureth* up my word, shall not be deceived, [[Joseph Smith Matthew 1.37|Joseph Smith Matthew 1:37]].
-
-*See also* [[Matthew 7.7|Matthew 7:7]]; [[Luke 2.52|Luke 2:52]]; [[1 Corinthians 8.2|1 Corinthians 8:2]]; [[1 Thessalonians 5.21|1 Thessalonians 5:21]]; [[Mosiah 21.36|Mosiah 21:36]]; [[Alma 13.20|Alma 13:20]].

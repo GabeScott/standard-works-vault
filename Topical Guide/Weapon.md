@@ -1,7 +1,6 @@
 # Weapon
 
-
-How are ... the *weapons* of war perished, [[2 Samuel 1.27|2 Samuel 1:27]].
+How are … the *weapons* of war perished, [[2 Samuel 1.27|2 Samuel 1:27]].
 
 with the other hand held a *weapon*, [[Nehemiah 4.17|Nehemiah 4:17]].
 
@@ -19,19 +18,19 @@ draw near, even every man with his destroying *weapon*, [[Ezekiel 9.1|Ezekiel 9:
 
 *weapons* of our warfare are not carnal, [[2 Corinthians 10.4|2 Corinthians 10:4]].
 
-arm them with ... all manner of *weapons*, [[Mosiah 9.16|Mosiah 9:16]] ([[Alma 2.12|Alma 2:12]], [[Alma 2.14|Alma 2:14]]; [[Alma 43.18|Alma 43:18]]; [[Alma 60.2|Alma 60:2]]; [[Mormon 6.9|Mormon 6:9]]; [[Ether 10.27|Ether 10:27]]).
+arm them with … all manner of *weapons*, [[Mosiah 9.16|Mosiah 9:16]] ([[Alma 2.12|Alma 2:12]]; [[Alma 2.14|Alma 2:14]]; [[Alma 43.18|Alma 43:18]]; [[Alma 60.2|Alma 60:2]]; [[Mormon 6.9|Mormon 6:9]]; [[Ether 10.27|Ether 10:27]]).
 
 did lay down the *weapons* of their rebellion, [[Alma 23.7|Alma 23:7]].
 
-testimony ... that they never would use *weapons* again, [[Alma 24.18|Alma 24:18]] ([[Alma 56.6|56:6-7]][[Alma 56.7|]]; [[Alma 62.16|Alma 62:16]]).
+testimony … that they never would use *weapons* again, [[Alma 24.18|Alma 24:18]] ([[Alma 62.16|Alma 62:16]]).
 
-they buried their ... *weapons* of war, [[Alma 24.19|Alma 24:19]] ([[Alma 25.14|Alma 25:14]]; [[Alma 26.32|Alma 26:32]]).
+they buried their … *weapons* of war, [[Alma 24.19|Alma 24:19]] ([[Alma 25.14|Alma 25:14]]; [[Alma 26.32|Alma 26:32]]).
 
 many came forth and threw down their *weapons*, [[Alma 44.15|Alma 44:15]] ([[Alma 44.6|Alma 44:6]]).
 
 they did lift their *weapons* of war to fight, [[Alma 51.18|Alma 51:18]].
 
-slew ... all those who would not yield up their *weapons*, [[Alma 52.25|Alma 52:25]] ([[Alma 52.32|Alma 52:32]]).
+slew … all those who would not yield up their *weapons*, [[Alma 52.25|Alma 52:25]] ([[Alma 52.32|Alma 52:32]]).
 
 not entered into a covenant that they would not take their *weapons*, [[Alma 53.16|Alma 53:16]].
 

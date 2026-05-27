@@ -1,9 +1,8 @@
 # Justice
 
+*See also* [[Equity.md|Equity]]; [[God, Justice of.md|God, Justice of]]; [[God, Mercy of.md|God, Mercy of]]; [[Jesus Christ, Judge.md|Jesus Christ, Judge]]; [[Judgment.md|Judgment]]; [[Just.md|Just]]; [[Mercy.md|Mercy]]
 
-*See also* [[Equity.md|Equity]]; [[God, Justice of.md|God, Justice of]]; [[God, Mercy of.md|God, Mercy of]]; [[Jesus Christ, Judge.md|Jesus Christ, Judge]]; [[Judgment.md|Judgment]]; [[Just.md|Just]]; [[Mercy, Merciful.md|Mercy]]
-
-command his children ... to do *justice* and judgment, [[Genesis 18.19|Genesis 18:19]].
+command his children … to do *justice* and judgment, [[Genesis 18.19|Genesis 18:19]].
 
 *visiting* the iniquity of the fathers upon the children, [[Exodus 20.5|Exodus 20:5]].
 
@@ -73,7 +72,7 @@ works of *justice* could not be destroyed, [[Alma 12.32|Alma 12:32]].
 
 *justice* of God that men should be judged according to their works, [[Alma 41.3|Alma 41:3]].
 
-atonement ... to appease the demands of *justice*, [[Alma 42.15|Alma 42:15]].
+atonement … to appease the demands of *justice*, [[Alma 42.15|Alma 42:15]].
 
 do ye suppose that mercy can rob *justice*, [[Alma 42.25|Alma 42:25]].
 
@@ -81,13 +80,13 @@ ye should deny the *justice* of God no more, [[Alma 42.30|Alma 42:30]].
 
 *justice* and judgment may come upon the wicked, [[Alma 60.13|Alma 60:13]].
 
-according to the ... *justice* ... which is in Christ, [[3 Nephi 26.5|3 Nephi 26:5]].
+according to the … *justice* … which is in Christ, [[3 Nephi 26.5|3 Nephi 26:5]].
 
 to be *judged* of their works, whether they be good, [[3 Nephi 27.14|3 Nephi 27:14]].
 
 sword of his *justice* is in his right hand, [[3 Nephi 29.4|3 Nephi 29:4]].
 
-that lieth to deceive ... not exempt from the *justice* of God, [[D&C 10.28|D&C 10:28]].
+that lieth to deceive … not exempt from the *justice* of God, [[D&C 10.28|D&C 10:28]].
 
 that Spirit which leadeth to do good—yea, to do *justly*, [[D&C 11.12|D&C 11:12]].
 
@@ -99,6 +98,6 @@ that Spirit which leadeth to do good—yea, to do *justly*, [[D&C 11.12|D&C 11:1
 
 none shall be exempted from the *justice* and the laws, [[D&C 107.84|D&C 107:84]].
 
-*judge* all men ... according to the desire of their hearts, [[D&C 137.9|D&C 137:9]].
+*judge* all men … according to the desire of their hearts, [[D&C 137.9|D&C 137:9]].
 
 *reward* according to their works, [[D&C 138.59|D&C 138:59]].

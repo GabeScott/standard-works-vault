@@ -1,11 +1,10 @@
 # Measure
 
-
 *See also* [[Weight.md|Weight]]
 
 shalt not have in thine house divers *measures*, [[Deuteronomy 25.14|Deuteronomy 25:14]].
 
-Lord, make me to know ... the *measure* of my days, [[Psalms 39.4|Psalms 39:4]].
+Lord, make me to know … the *measure* of my days, [[Psalms 39.4|Psalms 39:4]].
 
 saith the Lord; If heaven above can be *measured*, [[Jeremiah 31.37|Jeremiah 31:37]].
 
@@ -21,7 +20,7 @@ God giveth not the Spirit by *measure* unto him, [[John 3.34|John 3:34]].
 
 hath dealt to every man the *measure* of faith, [[Romans 12.3|Romans 12:3]].
 
-*measuring* themselves by themselves ... are not wise, [[2 Corinthians 10.12|2 Corinthians 10:12]].
+*measuring* themselves by themselves … are not wise, [[2 Corinthians 10.12|2 Corinthians 10:12]].
 
 *measure* of the stature of the fulness of Christ, [[Ephesians 4.13|Ephesians 4:13]].
 

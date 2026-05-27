@@ -1,5 +1,7 @@
 # Learning to Recognize Answers to Prayer
 
+Ezra Taft Benson
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1989 General Conference*
@@ -36,7 +38,7 @@ Perhaps Oliver Cowdery’s experiences were recorded for us to understand how to
 
 When we receive an impression in our *heart,* we can use our *mind* either to rationalize it away or to accomplish it. Be careful what you do with an impression from the Lord.
 
-Oliver was further taught: “Remember that without *faith* you can do nothing; therefore ask in *faith.* Trifle not with these things; do not ask for that which you ought not. …
+Oliver was further taught: “Remember that without *faith* you can do nothing; therefore ask in *faith.* Trifle not with these things; do not ask for that which you ought not. …
 
 “According to your *faith* shall it be done unto you.” ([[D&C 8.10|D&C 8:10–11]][[D&C 8.11|]]; italics added.)
 
@@ -68,11 +70,11 @@ When He *withholds an answer,* it is to have us grow through faith in Him, obedi
 
 Most often what we have chosen to do is right. He will confirm the correctness of our choices His way. That confirmation generally comes through packets of help found along the way. We discover them by being spiritually sensitive. They are like notes from a loving Father as evidence of His approval. If, in trust, we begin something which is not right, He will let us know before we have gone too far. We sense that help by recognizing troubled or uneasy feelings.
 
-Nephi’s efforts to obtain the plates of brass show how the principles work. When the older brethren were asked to go, they murmured and received no help. Nephi was assured, “Thou shalt be favored of the Lord, because thou hast not murmured.” ([[1 Nephi 3.6|1 Ne. 3:6]].) Nephi’s words “I will go and do” reveal a positive commitment to act and to succeed by using spiritual law. ([[1 Nephi 3.7|1 Ne. 3:7]].)
+Nephi’s efforts to obtain the plates of brass show how the principles work. When the older brethren were asked to go, they murmured and received no help. Nephi was assured, “Thou shalt be favored of the Lord, because thou hast not murmured.” ([[1 Nephi 3.6|1 Ne. 3:6]].) Nephi’s words “I will go and do” reveal a positive commitment to act and to succeed by using spiritual law. ([[1 Nephi 3.7|1 Ne. 3:7]].)
 
-After two unsuccessful attempts, Nephi remained confident. He crept into the city toward the house of Laban without all the answers. He observed, “I was led by the Spirit, not knowing beforehand the things which I should do,” significantly adding, *“Nevertheless I went forth.”* ([[1 Nephi 4.6|1 Ne. 4:6–7]][[1 Nephi 4.7|]]; italics added.)
+After two unsuccessful attempts, Nephi remained confident. He crept into the city toward the house of Laban without all the answers. He observed, “I was led by the Spirit, not knowing beforehand the things which I should do,” significantly adding, *“Nevertheless I went forth.”* ([[1 Nephi 4.6|1 Ne. 4:6–7]][[1 Nephi 4.7|]]; italics added.)
 
-Nephi was willing to try time and again, using his best efforts. He expressed faith that he would be helped. He refused to be discouraged. But because he acted, had confidence in the Lord, was obedient, and properly used his agency, he received guidance. He was inspired step after step to success, and in his mother’s words was “given … *power* \[to\] accomplish the thing which the Lord hath commanded.” ([[1 Nephi 5.8|1 Ne. 5:8]]; italics added.)
+Nephi was willing to try time and again, using his best efforts. He expressed faith that he would be helped. He refused to be discouraged. But because he acted, had confidence in the Lord, was obedient, and properly used his agency, he received guidance. He was inspired step after step to success, and in his mother’s words was “given … *power* \[to\] accomplish the thing which the Lord hath commanded.” ([[1 Nephi 5.8|1 Ne. 5:8]]; italics added.)
 
 Nephi knew he was required to confide in God, to exercise faith, and to act so that he could receive help, step by step. He did not murmur nor ask for a full explanation. But, observe particularly, he did not wait passively for help. He acted! By following spiritual law, he was inspired and given power to act.
 
@@ -97,8 +99,3 @@ In the name of Jesus Christ, amen.
 
 
 
-
-
-
-
-#Faith #Gratitude #Prayer #Spirituality

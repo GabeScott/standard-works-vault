@@ -1,11 +1,10 @@
 # Burning
 
-
 *Burning* for *burning*, [[Exodus 21.25|Exodus 21:25]].
 
 *Burning* lips and a wicked heart, [[Proverbs 26.23|Proverbs 26:23]].
 
-purged the blood of Jerusalem ... by the spirit of *burning*, [[Isaiah 4.4|Isaiah 4:4]] ([[2 Nephi 14.4|2 Nephi 14:4]]).
+purged the blood of Jerusalem … by the spirit of *burning*, [[Isaiah 4.4|Isaiah 4:4]] ([[2 Nephi 14.4|2 Nephi 14:4]]).
 
 who among us shall dwell with everlasting *burnings*, [[Isaiah 33.14|Isaiah 33:14]].
 

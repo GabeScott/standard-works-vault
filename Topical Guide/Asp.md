@@ -1,4 +1,3 @@
 # Asp
 
-
-*See* [BD Asp](https://www.churchofjesuschrist.org/study/scriptures/bd/asp?lang=eng)
+*See also* [[BD Asp.md|BD Asp]]

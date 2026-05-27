@@ -1,5 +1,7 @@
 # Things Pertaining to Righteousness
 
+Thomas S. Monson
+
 By Elder Francisco J. Viñas - *Of the Seventy*
 
 *Given in the April session of the 2010 General Conference*
@@ -20,7 +22,7 @@ Immediate help was sent by the Church to members and nonmembers and was distribu
 
 Different prophets in different times warned us of another tragedy that is less perceptible but not less important, and this is the “awful death \[that\] cometh upon the wicked; for they die as to things pertaining to things of righteousness; for they are unclean, and no unclean thing can inherit the kingdom of God” ([[Alma 40.26|Alma 40:26]]).
 
-Nephi taught this principle to his brothers, saying to them that those who “die in their wickedness … must be cast off also, as to the things which are spiritual, which are pertaining to righteousness” ([[1 Nephi 15.33|1 Nephi 15:33]]).
+Nephi taught this principle to his brothers, saying to them that those who “die in their wickedness … must be cast off also, as to the things which are spiritual, which are pertaining to righteousness” ([[1 Nephi 15.33|1 Nephi 15:33]]).
 
 Samuel the Lamanite prophet taught that “whosoever repenteth not is hewn down and cast into the fire; and there cometh upon them again a spiritual death, yea, a second death, for they are cut off again as to things pertaining to righteousness” ([[Helaman 14.18|Helaman 14:18]]).
 
@@ -69,8 +71,3 @@ This can be achieved more effectively if revelation is facilitated during the te
 
 
 
-
-
-
-
-#Obedience #Parents #Scriptures #Teaching

@@ -1,5 +1,7 @@
 # Aligning Our Will with His
 
+Henry B. Eyring
+
 By Elder Ulisses Soares - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
@@ -24,7 +26,7 @@ In a gospel sense, “\[doing\] always those things that please \[the Lord\]” 
 
 The Savior achieved a perfect and divine level of submission to the Father by allowing His will to be swallowed up in the Father’s will.[^8] He once said, “And he that sent me is with me: the Father hath not left me alone; for I do always those things that please him.”[^9] In teaching the Prophet Joseph Smith about the anguish and agonies of the Atonement, the Savior said:
 
-“For behold, I, God, have suffered these things for all, that they might not suffer if they would repent; …
+“For behold, I, God, have suffered these things for all, that they might not suffer if they would repent; …
 
 “Which suffering caused myself, even God, the greatest of all, to tremble because of pain, and to bleed at every pore, and to suffer both body and spirit—and would that I might not drink the bitter cup, and shrink—
 
@@ -34,7 +36,7 @@ During our sojourn in mortality, we often wrestle with what we think we know, wh
 
 One sign that indicates fulfillment of this prophecy is the current growing trend in the world, adopted by so many, of people becoming consumed with themselves and constantly proclaiming, “No matter what, I live my own truth or I do what works for me.” As Paul the Apostle said, they “seek their own, not the things which are Jesus Christ’s.”[^12] This way of thinking is often justified as being “authentic” by those who indulge in self-centered pursuits, focus on personal preferences, or want to justify certain types of behavior that frequently don’t match God’s loving plan and His will for them. If we let our heart and mind embrace this way of thinking, we can create significant stumbling blocks for ourselves in acquiring the most priceless pearl that God has lovingly prepared for His children—eternal life.[^13]
 
-While it is true that each of us travels an individualized discipleship journey on the covenant path, striving to keep our hearts and minds centered on Christ Jesus,[^14] we need to be careful and constantly vigilant to not be tempted[^15] to adopt this type of worldly philosophy in our life. Elder Quentin L. Cook said that “being sincerely Christlike is an even more important goal than being authentic.”[^16]
+While it is true that each of us travels an individualized discipleship journey on the covenant path, striving to keep our hearts and minds centered on Christ Jesus,[^14] we need to be careful and constantly vigilant to not be tempted[^15] to adopt this type of worldly philosophy in our life. Elder Quentin L. Cook said that “being sincerely Christlike is an even more important goal than being authentic.”[^16]
 
 My dear friends, when we choose to let God be the most powerful influence in our life over our self-serving pursuits, we can make progress in our discipleship and increase our capacity to unite our mind and heart with the Savior. On the other hand, when we don’t allow God’s way to prevail in our life, we are left to ourselves, and without the Lord’s inspiring guidance, we can justify almost anything we do or don’t do. We can also make excuses for ourselves by doing things our own way, saying in effect, “I am just doing things my way.”
 
@@ -61,15 +63,15 @@ I testify to you that following the Lord’s will in our life will enable us to 
 
 [^1]: See [[Matthew 13.45|Matthew 13:45–46]][[Matthew 13.46|]].
 
-[^2]: See Guide to the Scriptures, “[Kingdom of God or Kingdom of Heaven](https://churchofjesuschrist.org/study/scriptures/gs/kingdom-of-god-or-kingdom-of-heaven?lang=eng)” and “[Eternal Life](https://churchofjesuschrist.org/study/scriptures/gs/eternal-life?lang=eng),” Gospel Library.
+[^2]: See Guide to the Scriptures, “[Kingdom of God or Kingdom of Heaven](https://www.churchofjesuschrist.org/study/scriptures/gs/kingdom-of-god-or-kingdom-of-heaven?lang=eng)” and “[Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/gs/eternal-life?lang=eng),” Gospel Library.
 
 [^3]: See [[D&C 68.4|Doctrine and Covenants 68:4]].
 
-[^4]: See Guide to the Scriptures, “[Endure](https://churchofjesuschrist.org/study/scriptures/gs/endure?lang=eng),” Gospel Library.
+[^4]: See Guide to the Scriptures, “[Endure](https://www.churchofjesuschrist.org/study/scriptures/gs/endure?lang=eng),” Gospel Library.
 
-[^5]: [[1 Corinthians 2.16|1 Corinthians 2:16]]; see also [[Philippians 4.1|Philippians 4:1]].
+[^5]: [[1 Corinthians 2.16|1 Corinthians 2:16]]; see also [[Philippians 4.1|Philippians 4:1]].
 
-[^6]: [[John 8.29|John 8:29]]; see also [[1 John 3.22|1 John 3:22]].
+[^6]: [[John 8.29|John 8:29]]; see also [[1 John 3.22|1 John 3:22]].
 
 [^7]: [[John 6.38|John 6:38–40]][[John 6.39|]][[John 6.40|]].
 
@@ -79,34 +81,29 @@ I testify to you that following the Lord’s will in our life will enable us to 
 
 [^10]: [[D&C 19.16|Doctrine and Covenants 19:16, 18–19]][[D&C 19.18|]][[D&C 19.19|]].
 
-[^11]: [[2 Timothy 3.1|2 Timothy 3:1–2, 4]][[2 Timothy 3.2|]][[2 Timothy 3.4|]].
+[^11]: [[2 Timothy 3.1|2 Timothy 3:1–2, 4]][[2 Timothy 3.2|]][[2 Timothy 3.4|]].
 
 [^12]: [[Philippians 2.21|Philippians 2:21]].
 
-[^13]: See Guide to the Scriptures, “[Eternal Life](https://churchofjesuschrist.org/study/scriptures/gs/eternal-life?lang=eng),” Gospel Library.
+[^13]: See Guide to the Scriptures, “[Eternal Life](https://www.churchofjesuschrist.org/study/scriptures/gs/eternal-life?lang=eng),” Gospel Library.
 
 [^14]: See [[Philippians 4.7|Philippians 4:7]]; [[D&C 43.34|Doctrine and Covenants 43:34]].
 
-[^15]: See Guide to the Scriptures, “[Tempt, Temptation](https://churchofjesuschrist.org/study/scriptures/gs/tempt-temptation?lang=eng),” Gospel Library.
+[^15]: See Guide to the Scriptures, “[Tempt, Temptation](https://www.churchofjesuschrist.org/study/scriptures/gs/tempt-temptation?lang=eng),” Gospel Library.
 
-[^16]: Quentin L. Cook, “[‘Fear Not … in Me Your Joy Is Full’ (D&C 101:36)](https://churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults-an-evening-with-elder-cook/2016/09/fear-not-in-me-your-joy-is-full-d-and-c-101-36?lang=eng)” (worldwide devotional for young adults, Sept. 11, 2016), Gospel Library.
+[^16]: Quentin L. Cook, “[‘Fear Not … in Me Your Joy Is Full’ (D&C 101:36)](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults-an-evening-with-elder-cook/2016/09/fear-not-in-me-your-joy-is-full-d-and-c-101-36?lang=eng)” (worldwide devotional for young adults, Sept. 11, 2016), Gospel Library.
 
 [^17]: See [[Proverbs 3.5|Proverbs 3:5]]; [[John 8.33|John 8:33–42]][[John 8.34|]][[John 8.35|]][[John 8.36|]][[John 8.37|]][[John 8.38|]][[John 8.39|]][[John 8.40|]][[John 8.41|]][[John 8.42|]]; see also the works of Abraham: Abraham converted others to the gospel ([[Genesis 12.5|Genesis 12:5)]]; he avoided strife ([[Genesis 13.7|Genesis 13:7–9)]][[Genesis 13.8|]][[Genesis 13.9|]]; he was obedient to God ([[Genesis 12.1|Genesis 12:1–9]][[Genesis 12.2|]][[Genesis 12.3|]][[Genesis 12.4|]][[Genesis 12.5|]][[Genesis 12.6|]][[Genesis 12.7|]][[Genesis 12.8|]][[Genesis 12.9|]]; [[Genesis 15.1|15:1–6]][[Genesis 15.2|]][[Genesis 15.3|]][[Genesis 15.4|]][[Genesis 15.5|]][[Genesis 15.6|]]; [[Genesis 22.1|22:1–19]][[Genesis 22.2|]][[Genesis 22.3|]][[Genesis 22.4|]][[Genesis 22.5|]][[Genesis 22.6|]][[Genesis 22.7|]][[Genesis 22.8|]][[Genesis 22.9|]][[Genesis 22.10|]][[Genesis 22.11|]][[Genesis 22.12|]][[Genesis 22.13|]][[Genesis 22.14|]][[Genesis 22.15|]][[Genesis 22.16|]][[Genesis 22.17|]][[Genesis 22.18|]][[Genesis 22.19|]]); he welcomed heavenly messengers ([[Genesis 18.1|Genesis 18:1–8)]][[Genesis 18.2|]][[Genesis 18.3|]][[Genesis 18.4|]][[Genesis 18.5|]][[Genesis 18.6|]][[Genesis 18.7|]][[Genesis 18.8|]]; and he exercised tremendous faith ([[Genesis 22.1|Genesis 22:1–19]][[Genesis 22.2|]][[Genesis 22.3|]][[Genesis 22.4|]][[Genesis 22.5|]][[Genesis 22.6|]][[Genesis 22.7|]][[Genesis 22.8|]][[Genesis 22.9|]][[Genesis 22.10|]][[Genesis 22.11|]][[Genesis 22.12|]][[Genesis 22.13|]][[Genesis 22.14|]][[Genesis 22.15|]][[Genesis 22.16|]][[Genesis 22.17|]][[Genesis 22.18|]][[Genesis 22.19|]]).
 
 [^18]: See [[Proverbs 3.5|Proverbs 3:5–7]][[Proverbs 3.6|]][[Proverbs 3.7|]].
 
-[^19]: See [[2 Nephi 28.21|2 Nephi 28:21–23, 26]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.26|]].
+[^19]: See [[2 Nephi 28.21|2 Nephi 28:21–23, 26]][[2 Nephi 28.22|]][[2 Nephi 28.23|]][[2 Nephi 28.26|]].
 
-[^20]: See Guide to the Scriptures, “[Agency](https://churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” Gospel Library.
+[^20]: See Guide to the Scriptures, “[Agency](https://www.churchofjesuschrist.org/study/scriptures/gs/agency?lang=eng),” Gospel Library.
 
-[^21]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
+[^21]: “How Great the Wisdom and the Love,” *Hymns*, no. 195.
 
 [^22]: [[Matthew 4.4|Matthew 4:4]].
 
-[^23]: See Guide to the Scriptures, “[Consecrate, Law of Consecration](https://churchofjesuschrist.org/study/scriptures/gs/consecrate-law-of-consecration?lang=eng),” Gospel Library.
+[^23]: See Guide to the Scriptures, “[Consecrate, Law of Consecration](https://www.churchofjesuschrist.org/study/scriptures/gs/consecrate-law-of-consecration?lang=eng),” Gospel Library.
 
-
-
-
-
-#Agency #Discipleship #Eternal_Life #Humility #Jesus_Christ

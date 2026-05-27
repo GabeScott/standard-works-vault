@@ -1,11 +1,10 @@
 # Voice
 
-
 *See also* [[Noise.md|Noise]]; [[Sound [noun, verb].md|Sound [noun, verb]]]
 
 they heard the *voice* of the Lord, [[Genesis 3.8|Genesis 3:8]] ([[Moses 4.14|Moses 4:14]]).
 
-*voice* is Jacob's *voice*, but the hands are ... of Esau, [[Genesis 27.22|Genesis 27:22]].
+*voice* is Jacob’s *voice*, but the hands are … of Esau, [[Genesis 27.22|Genesis 27:22]].
 
 hearken to the *voice* of the Lord, [[Exodus 15.26|Exodus 15:26]].
 
@@ -13,7 +12,7 @@ God answered him by a *voice*, [[Exodus 19.19|Exodus 19:19]].
 
 all the people answered with one *voice*, [[Exodus 24.3|Exodus 24:3]].
 
-Moses ... heard the *voice* of one speaking, [[Numbers 7.89|Numbers 7:89]].
+Moses … heard the *voice* of one speaking, [[Numbers 7.89|Numbers 7:89]].
 
 Lord hearkened to the *voice* of Israel, [[Numbers 21.3|Numbers 21:3]].
 
@@ -25,11 +24,11 @@ heard his *voice* out of the midst of the fire, [[Deuteronomy 5.24|Deuteronomy 5
 
 after the fire a still small *voice*, [[1 Kings 19.12|1 Kings 19:12]].
 
-To day if ye will hear his *voice*, [[Psalms 95.7|Psalms 95:7]] ([[Hebrews 3.7|Hebrews 3:7]], [[Hebrews 3.15|Hebrews 3:15]]; [[Hebrews 4.7|Hebrews 4:7]]).
+To day if ye will hear his *voice*, [[Psalms 95.7|Psalms 95:7]] ([[Hebrews 3.7|Hebrews 3:7]]; [[Hebrews 3.15|Hebrews 3:15]]; [[Hebrews 4.7|Hebrews 4:7]]).
 
 hearkened not unto the *voice* of the Lord, [[Psalms 106.25|Psalms 106:25]].
 
-fool's *voice* is known by multitude of words, [[Ecclesiastes 5.3|Ecclesiastes 5:3]].
+fool’s *voice* is known by multitude of words, [[Ecclesiastes 5.3|Ecclesiastes 5:3]].
 
 I heard the *voice* of the Lord, [[Isaiah 6.8|Isaiah 6:8]].
 
@@ -63,9 +62,9 @@ even the *voice* of the day of the Lord, [[Zephaniah 1.14|Zephaniah 1:14]].
 
 *voice* from heaven, saying, This is my beloved Son, [[Matthew 3.17|Matthew 3:17]] ([[Mark 1.11|Mark 1:11]]; [[Luke 3.22|Luke 3:22]]).
 
-*voice* out of the cloud ... This is my beloved Son, [[Matthew 17.5|Matthew 17:5]] ([[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]]).
+*voice* out of the cloud … This is my beloved Son, [[Matthew 17.5|Matthew 17:5]] ([[Mark 9.7|Mark 9:7]]; [[Luke 9.35|Luke 9:35]]).
 
-rejoiceth greatly because of the bridegroom's *voice*, [[John 3.29|John 3:29]].
+rejoiceth greatly because of the bridegroom’s *voice*, [[John 3.29|John 3:29]].
 
 dead shall hear the *voice* of the Son, [[John 5.25|John 5:25]].
 
@@ -95,9 +94,9 @@ came a *voice* to him, Rise, Peter, [[Acts 10.13|Acts 10:13]] ([[Acts 11.7|Acts 
 
 they heard not the *voice* of him that spake to me, [[Acts 22.9|Acts 22:9]].
 
-There are ... so many kinds of *voices* in the world, [[1 Corinthians 14.10|1 Corinthians 14:10]].
+There are … so many kinds of *voices* in the world, [[1 Corinthians 14.10|1 Corinthians 14:10]].
 
-Lord ... with the *voice* of the archangel, [[1 Thessalonians 4.16|1 Thessalonians 4:16]].
+Lord … with the *voice* of the archangel, [[1 Thessalonians 4.16|1 Thessalonians 4:16]].
 
 *voice* they that heard entreated, [[Hebrews 12.19|Hebrews 12:19]].
 
@@ -105,7 +104,7 @@ came such a *voice* to him, [[2 Peter 1.17|2 Peter 1:17]].
 
 *voice* which came from heaven we heard, [[2 Peter 1.18|2 Peter 1:18]].
 
-dumb ass speaking with man's *voice* forbad ... the prophet, [[2 Peter 2.16|2 Peter 2:16]].
+dumb ass speaking with man’s *voice* forbad … the prophet, [[2 Peter 2.16|2 Peter 2:16]].
 
 if any man hear my *voice*, and open the door, [[Revelation 3.20|Revelation 3:20]].
 
@@ -135,13 +134,13 @@ well doth he cry unto this people, by the *voice* of his angels, [[Alma 10.20|Al
 
 still *voice* of perfect mildness, [[Helaman 5.30|Helaman 5:30]].
 
-as he was thus pondering ... a *voice* came unto him, [[Helaman 10.3|Helaman 10:3]].
+as he was thus pondering … a *voice* came unto him, [[Helaman 10.3|Helaman 10:3]].
 
 at his *voice* do the hills and the mountains tremble, [[Helaman 12.9|Helaman 12:9]].
 
 being a small *voice* it did pierce them, [[3 Nephi 11.3|3 Nephi 11:3]].
 
-Other sheep ... shall hear my *voice*, [[3 Nephi 15.21|3 Nephi 15:21]].
+Other sheep … shall hear my *voice*, [[3 Nephi 15.21|3 Nephi 15:21]].
 
 *voice* of the Lord is unto all men, [[D&C 1.2|D&C 1:2]].
 
@@ -151,7 +150,7 @@ by mine own *voice* or by the *voice* of my servants, [[D&C 1.38|D&C 1:38]].
 
 my *voice* which speaketh them unto you, [[D&C 18.35|D&C 18:35]].
 
-know that these things are true ... by ... the *voice* of God, [[D&C 20.35|D&C 20:35]].
+know that these things are true … by … the *voice* of God, [[D&C 20.35|D&C 20:35]].
 
 Listen to the *voice* of Jesus Christ, [[D&C 27.1|D&C 27:1]].
 
@@ -163,23 +162,23 @@ appointed by the *voice* of the church, [[D&C 38.34|D&C 38:34]].
 
 preaching be the warning *voice*, [[D&C 38.41|D&C 38:41]].
 
-How oft have I called upon you ... by mine own *voice*, [[D&C 43.25|D&C 43:25]] ([[D&C 88.90|D&C 88:90]]).
+How oft have I called upon you … by mine own *voice*, [[D&C 43.25|D&C 43:25]] ([[D&C 88.90|D&C 88:90]]).
 
 give ear to the *voice* of the living God, [[D&C 50.1|D&C 50:1]].
 
-speak when moved upon by the Holy Ghost ... shall be the *voice* of the Lord, [[D&C 68.4|D&C 68:4]].
+speak when moved upon by the Holy Ghost … shall be the *voice* of the Lord, [[D&C 68.4|D&C 68:4]].
 
 who speak even by the *voice* of my Spirit, [[D&C 75.1|D&C 75:1]].
 
 heard the *voice* bearing record, [[D&C 76.23|D&C 76:23]].
 
-confirm upon you ... by mine own *voice*, [[D&C 84.42|D&C 84:42]].
+confirm upon you … by mine own *voice*, [[D&C 84.42|D&C 84:42]].
 
 receiveth not my *voice* is not acquainted with my *voice*, [[D&C 84.52|D&C 84:52]].
 
 still small *voice*, which whispereth through, [[D&C 85.6|D&C 85:6]].
 
-obeyeth my *voice* ... shall see my face, [[D&C 93.1|D&C 93:1]].
+obeyeth my *voice* … shall see my face, [[D&C 93.1|D&C 93:1]].
 
 made known to him by the *voice* of the Spirit, [[D&C 104.36|D&C 104:36]].
 
@@ -195,7 +194,7 @@ his *voice* shall be heard, [[D&C 133.50|D&C 133:50]].
 
 Thus came the *voice* of the Lord, [[D&C 137.7|D&C 137:7]].
 
-among the ungodly ... his *voice* was not raised, [[D&C 138.20|D&C 138:20]].
+among the ungodly … his *voice* was not raised, [[D&C 138.20|D&C 138:20]].
 
 but few who hearkened to his *voice*, [[D&C 138.26|D&C 138:26]].
 

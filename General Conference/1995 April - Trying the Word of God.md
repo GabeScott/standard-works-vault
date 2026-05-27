@@ -1,5 +1,7 @@
 # Trying the Word of God
 
+Thomas S. Monson
+
 By Virginia H. Pearce - *First Counselor in the Young Women General Presidency*
 
 *Given in the April session of the 1995 General Conference*
@@ -30,17 +32,12 @@ Every song, every scripture read, every story told, and all counsel given tonigh
 
 \[Sister Pearce’s remarks ended with six young women reading from [[Alma 32.27|Alma 32:27–28, 42]][[Alma 32.28|]][[Alma 32.42|]]:\]
 
-“Behold, if ye will awake and arouse your faculties, even to an experiment upon my words, and exercise a particle of faith, yea, even if ye can no more than desire to believe, let this desire work in you. …
+“Behold, if ye will awake and arouse your faculties, even to an experiment upon my words, and exercise a particle of faith, yea, even if ye can no more than desire to believe, let this desire work in you. …
 
-“Now, … compare the word unto a seed. … If ye give place, that a seed may be planted in your heart, behold, if it be a true seed, or a good seed, if ye do not cast it out by your unbelief, that ye will resist the Spirit of the Lord, behold, it will begin to swell … ; and when you feel these swelling motions, ye will begin to say within yourselves—It must needs be that this is a good seed, or that the word is good, for it beginneth to enlarge my soul; yea, it beginneth to enlighten my understanding, … it beginneth to be delicious to me. …
+“Now, … compare the word unto a seed. … If ye give place, that a seed may be planted in your heart, behold, if it be a true seed, or a good seed, if ye do not cast it out by your unbelief, that ye will resist the Spirit of the Lord, behold, it will begin to swell … ; and when you feel these swelling motions, ye will begin to say within yourselves—It must needs be that this is a good seed, or that the word is good, for it beginneth to enlarge my soul; yea, it beginneth to enlighten my understanding, … it beginneth to be delicious to me. …
 
 “And because of your diligence and your faith and your patience with the word in nourishing it, that it may take root in you, behold, by and by ye shall pluck the fruit thereof, which is most precious, which is sweet above all that is sweet, … and pure above all that is pure; and ye shall feast upon this fruit even until ye are filled, that ye hunger not, neither shall ye thirst.” In the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Scripture_Study #Scriptures #Young_Women

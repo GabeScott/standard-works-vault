@@ -1,5 +1,7 @@
 # The Revelations of Heaven
 
+Gordon B. Hinckley
+
 By Elder L. Aldin Porter - *Of the Presidency of the Seventy*
 
 *Given in the October session of the 1994 General Conference*
@@ -40,7 +42,7 @@ One’s intentions may be of the purest kind. The sincerity may be total and com
 
 The prophets are not only called to receive the doctrine and direct the ordinances through the keys they hold. They are also responsible to keep the saving doctrine pure so that people can hear and feel that doctrine in its sure and certain form.
 
-Occasionally we have those who become a law unto themselves in these matters. Sadly, their pride leads them down a road which President Spencer W. Kimball warned us about: “Apostasy usually begins with question and doubt and criticism. …
+Occasionally we have those who become a law unto themselves in these matters. Sadly, their pride leads them down a road which President Spencer W. Kimball warned us about: “Apostasy usually begins with question and doubt and criticism. …
 
 “They who garnish the sepulchres of the dead prophets begin now by stoning the living ones. They return to the pronouncements of the dead leaders and interpret them to be incompatible with present programs. They convince themselves that there are discrepancies between the practices of the deceased and the leaders of the present. … They allege love for the gospel and the Church but charge that leaders are a little ‘off the beam’! … Next they say that while the gospel and the Church are divine, the leaders are fallen. Up to this time it may be a passive thing, but now it becomes an active resistance, and frequently the blooming apostate begins to air his views and to crusade. … He now begins to expect persecution and adopts a martyr complex, and when finally excommunication comes he associates himself with other apostates to develop and strengthen cults. At this stage he is likely to claim revelation for himself, revelations from the Lord directing him in his interpretations and his actions. These manifestations are superior to anything from living leaders, he claims.”[^3]
 
@@ -75,11 +77,11 @@ In the name of Jesus Christ, amen.
 
 
 
-[^1]: In Conference Report, Apr. 1972, p. 99; or *Ensign,* July 1972, p. 88.
+[^1]: In Conference Report, Apr. 1972, [[1972 April - Eternal Keys and the Right to Preside.md|p. 99]]; or *Ensign,* July 1972, p. 88.
 
-[^2]: “When Are Church Leaders’ Words Entitled to Claim of Scripture?” *Church News,* 31 July 1954, pp. 9–10.
+[^2]: “When Are Church Leaders’ Words Entitled to Claim of Scripture?” *Church News,* 31 July 1954, pp. 9–10.
 
-[^3]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), p. 462.
+[^3]: *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (Salt Lake City: Bookcraft, 1982), p. 462.
 
 [^4]: [[D&C 36.2|D&C 36:2]].
 
@@ -87,8 +89,3 @@ In the name of Jesus Christ, amen.
 
 [^6]: [[D&C 21.9|D&C 21:9]]; emphasis added.
 
-
-
-
-
-#Apostasy #Church_Leaders #Faith #Joseph_Smith #Music #Obedience #Prophets #Spirituality

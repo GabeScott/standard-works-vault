@@ -1,6 +1,8 @@
 # The Doctrine of Christ
 
-By Brian K. Ashton - *Second Counselor in the Sunday School General Presidency*
+Jean B. Bingham
+
+By Brian K. Ashton - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2016 General Conference*
 
@@ -38,13 +40,13 @@ In the ordinances of baptism and the sacrament, we covenant to keep the commandm
 
 Douglas D. Holmes, First Counselor in the Young Men General Presidency, has written: “The ordinances of baptism and the sacrament symbolize both the end result and process of being born again. In baptism, we bury the old man of flesh and come forth to a newness of life.[^41] In the sacrament, we learn that this change is a step-by-step process, \[where\] little by little, week by week, we are transformed as we repent, covenant, and through increased endowments of the Spirit \[become like the Savior\].”[^42]
 
-Ordinances and covenants are essential within the doctrine of Christ. It is through worthily receiving the ordinances of the priesthood and keeping the associated covenants that the power of godliness is manifest in our lives.[^43] Elder D. Todd Christofferson explained that “this ‘power of godliness’ comes in the person and by the influence of the Holy Ghost.”[^44]
+Ordinances and covenants are essential within the doctrine of Christ. It is through worthily receiving the ordinances of the priesthood and keeping the associated covenants that the power of godliness is manifest in our lives.[^43] Elder D. Todd Christofferson explained that “this ‘power of godliness’ comes in the person and by the influence of the Holy Ghost.”[^44]
 
 **Fourth, the gift of the Holy Ghost.** After baptism we are given the gift of the Holy Ghost through the ordinance of confirmation.[^45] This gift, if we receive it, allows us to have the constant companionship of a God[^46] and continual access to the grace that inherently comes with His influence.
 
 As our constant companion, the Holy Ghost gives us additional power or strength to keep our covenants.[^47] He also sanctifies us,[^48] which means to make us “free from sin, pure, clean, and holy through the atonement of Jesus Christ.”[^49] The process of sanctification not only cleanses us, but it also endows us with needed spiritual gifts or divine attributes of the Savior[^50] and changes our very nature,[^51] such “that we have no more disposition to do evil.”[^52] Each time we receive the Holy Ghost into our lives through faith, repentance, ordinances, Christlike service, and other righteous endeavors, we are changed until step by step, little by little we become like Christ.[^53]
 
-**Fifth, enduring to the end.** The prophet Nephi taught that after receiving the gift of the Holy Ghost, we must “endure to the end, in following the example of the Son of the living God.”[^54] Elder Dale G. Renlund described the process of enduring to the end as follows: “We may be perfected by repeatedly and iteratively … exercising faith in \[Christ\], repenting, partaking of the sacrament to renew the covenants and blessings of baptism, and receiving the Holy Ghost as a constant companion to a greater degree. As we do so, we become more like Christ and are able to endure to the end, with all that that entails.”[^55]
+**Fifth, enduring to the end.** The prophet Nephi taught that after receiving the gift of the Holy Ghost, we must “endure to the end, in following the example of the Son of the living God.”[^54] Elder Dale G. Renlund described the process of enduring to the end as follows: “We may be perfected by repeatedly and iteratively … exercising faith in \[Christ\], repenting, partaking of the sacrament to renew the covenants and blessings of baptism, and receiving the Holy Ghost as a constant companion to a greater degree. As we do so, we become more like Christ and are able to endure to the end, with all that that entails.”[^55]
 
 In other words, the reception of the Holy Ghost and the change that reception creates in us further builds our faith. Increased faith leads to additional repentance. As we then symbolically sacrifice our hearts and our sins upon the sacrament altar, we receive the Holy Ghost to a greater degree. Receiving the Holy Ghost to a greater degree further moves us along the path of being born again. As we continue in this process and obtain all the saving ordinances and covenants of the gospel, we receive “grace for grace” until we receive a fulness.[^56]
 
@@ -61,17 +63,17 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 
 
-[^1]: [[3 Nephi 11.7|3 Nephi 11:7]].
+[^1]: [[3 Nephi 11.7|3 Nephi 11:7]].
 
-[^2]: See [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
+[^2]: See [[3 Nephi 11.10|3 Nephi 11:10–11]][[3 Nephi 11.11|]].
 
-[^3]: See [[3 Nephi 11.14|3 Nephi 11:14–15]][[3 Nephi 11.15|]].
+[^3]: See [[3 Nephi 11.14|3 Nephi 11:14–15]][[3 Nephi 11.15|]].
 
-[^4]: See [[3 Nephi 11.21|3 Nephi 11:21–39]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
+[^4]: See [[3 Nephi 11.21|3 Nephi 11:21–39]][[3 Nephi 11.22|]][[3 Nephi 11.23|]][[3 Nephi 11.24|]][[3 Nephi 11.25|]][[3 Nephi 11.26|]][[3 Nephi 11.27|]][[3 Nephi 11.28|]][[3 Nephi 11.29|]][[3 Nephi 11.30|]][[3 Nephi 11.31|]][[3 Nephi 11.32|]][[3 Nephi 11.33|]][[3 Nephi 11.34|]][[3 Nephi 11.35|]][[3 Nephi 11.36|]][[3 Nephi 11.37|]][[3 Nephi 11.38|]][[3 Nephi 11.39|]].
 
-[^5]: See [[2 Nephi 31.1|2 Nephi 31]][[2 Nephi 31.2|]][[2 Nephi 31.3|]][[2 Nephi 31.4|]][[2 Nephi 31.5|]][[2 Nephi 31.6|]][[2 Nephi 31.7|]][[2 Nephi 31.8|]][[2 Nephi 31.9|]][[2 Nephi 31.10|]][[2 Nephi 31.11|]][[2 Nephi 31.12|]][[2 Nephi 31.13|]][[2 Nephi 31.14|]][[2 Nephi 31.15|]][[2 Nephi 31.16|]][[2 Nephi 31.17|]][[2 Nephi 31.18|]][[2 Nephi 31.19|]][[2 Nephi 31.20|]][[2 Nephi 31.21|]]; [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]. The doctrine of Christ is found throughout the scriptures but is most prevalent in the Book of Mormon.
+[^5]: See [[2 Nephi 31.1|2 Nephi 31]]; [[3 Nephi 27.16|3 Nephi 27:16–20]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]]. The doctrine of Christ is found throughout the scriptures but is most prevalent in the Book of Mormon.
 
-[^6]: [[2 Nephi 2.8|2 Nephi 2:8]].
+[^6]: [[2 Nephi 2.8|2 Nephi 2:8]].
 
 [^7]: [[Moroni 10.32|Moroni 10:32]].
 
@@ -79,17 +81,17 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^9]: See [[D&C 132.23|Doctrine and Covenants 132:23]].
 
-[^10]: The Atonement of Christ and the doctrine of Christ together constitute the gospel of Christ (see [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]).
+[^10]: The Atonement of Christ and the doctrine of Christ together constitute the gospel of Christ (see [[3 Nephi 27.13|3 Nephi 27:13–21]][[3 Nephi 27.14|]][[3 Nephi 27.15|]][[3 Nephi 27.16|]][[3 Nephi 27.17|]][[3 Nephi 27.18|]][[3 Nephi 27.19|]][[3 Nephi 27.20|]][[3 Nephi 27.21|]]).
 
-[^11]: D. Todd Christofferson, “[[2008 April - Born Again.md|Born Again]],” *Ensign* or *Liahona,* May 2008, 78.
+[^11]: D. Todd Christofferson, “[[2008 April - Born Again.md|Born Again]],” *Ensign* or *Liahona,* May 2008, 78.
 
-[^12]: See [[Romans 10.17|Romans 10:17]]; [[2 Nephi 31.19|2 Nephi 31:19]]; [[Alma 32.27|Alma 32:27–29]][[Alma 32.28|]][[Alma 32.29|]]; [[Moroni 7.25|Moroni 7:25]].
+[^12]: See [[Romans 10.17|Romans 10:17]]; [[2 Nephi 31.19|2 Nephi 31:19]]; [[Alma 32.27|Alma 32:27–29]][[Alma 32.28|]][[Alma 32.29|]]; [[Moroni 7.25|Moroni 7:25]].
 
-[^13]: See [[2 Nephi 32.3|2 Nephi 32:3]].
+[^13]: See [[2 Nephi 32.3|2 Nephi 32:3]].
 
-[^14]: See [[2 Nephi 31.10|2 Nephi 31:10, 13]][[2 Nephi 31.13|]].
+[^14]: See [[2 Nephi 31.10|2 Nephi 31:10, 13]][[2 Nephi 31.13|]].
 
-[^15]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^15]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
 [^16]: See [[John 1.1|John 1:1–3]][[John 1.2|]][[John 1.3|]]; [[Moses 7.47|Moses 7:47]]; [[Abraham 3.24|Abraham 3:24–27]][[Abraham 3.25|]][[Abraham 3.26|]][[Abraham 3.27|]].
 
@@ -97,7 +99,7 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^18]: See [[Alma 34.16|Alma 34:16]].
 
-[^19]: See [[2 Nephi 9.21|2 Nephi 9:21–22]][[2 Nephi 9.22|]]; Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52.
+[^19]: See [[2 Nephi 9.21|2 Nephi 9:21–22]][[2 Nephi 9.22|]]; Dallin H. Oaks, “[[2014 April - The Keys and Authority of the Priesthood.md|The Keys and Authority of the Priesthood]],” *Ensign* or *Liahona,* May 2014, 49–52.
 
 [^20]: See [[Alma 34.15|Alma 34:15–16]][[Alma 34.16|]].
 
@@ -107,11 +109,11 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^23]: [[Helaman 14.13|Helaman 14:13]].
 
-[^24]: See Russell M. Nelson, “[[2007 April - Repentance and Conversion.md|Repentance and Conversion]],” *Ensign* or *Liahona,* May 2007, 102–5.
+[^24]: See Russell M. Nelson, “[[2007 April - Repentance and Conversion.md|Repentance and Conversion]],” *Ensign* or *Liahona,* May 2007, 102–5.
 
-[^25]: See Neil L. Andersen, “[[2009 October - “Repent … That I May Heal You”.md|Repent … That I May Heal You]],” *Ensign* or *Liahona,* Nov. 2009, 40–43.
+[^25]: See Neil L. Andersen, “[[2009 October - “Repent … That I May Heal You”.md|Repent … That I May Heal You]],” *Ensign* or *Liahona,* Nov. 2009, 40–43.
 
-[^26]: See Jeffrey R. Holland, “[[2006 April - Broken Things to Mend.md|Broken Things to Mend]],” *Ensign* or *Liahona,* May 2006, 69–71; Anthony D. Perkins, “[[2006 October - “The Great and Wonderful Love”.md|The Great and Wonderful Love]],” *Ensign* or *Liahona,* Nov. 2006, 76–78.
+[^26]: See Jeffrey R. Holland, “[[2006 April - Broken Things to Mend.md|Broken Things to Mend]],” *Ensign* or *Liahona,* May 2006, 69–71; Anthony D. Perkins, “[[2006 October - “The Great and Wonderful Love”.md|The Great and Wonderful Love]],” *Ensign* or *Liahona,* Nov. 2006, 76–78.
 
 [^27]: [[Moroni 7.48|Moroni 7:48]].
 
@@ -121,17 +123,17 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^30]: See [[Mosiah 4.5|Mosiah 4:5–7]][[Mosiah 4.6|]][[Mosiah 4.7|]].
 
-[^31]: See [[2 Nephi 10.24|2 Nephi 10:24]]; [[2 Nephi 25.23|25:23]].
+[^31]: See [[2 Nephi 10.24|2 Nephi 10:24]]; [[2 Nephi 25.23|25:23]].
 
 [^32]: See [[Helaman 5.11|Helaman 5:11]]; [[Ether 12.27|Ether 12:27]]; [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
-[^33]: Bible Dictionary, “[Grace](https://churchofjesuschrist.org/study/scriptures/bd/grace?lang=eng).”
+[^33]: Bible Dictionary, “[[BD Grace|Grace]].”
 
 [^34]: [[Moroni 8.25|Moroni 8:25]].
 
-[^35]: When we partake of the sacrament worthily, we renew all of our covenants with God (see Delbert L. Stapley, in Conference Report, Oct. 1965, 14; L. Tom Perry, “[[2006 April - As Now We Take the Sacrament.md|As Now We Take the Sacrament]],” *Ensign* or *Liahona,* May 2006, 41).
+[^35]: When we partake of the sacrament worthily, we renew all of our covenants with God (see Delbert L. Stapley, in Conference Report, Oct. 1965, 14; L. Tom Perry, “[[2006 April - As Now We Take the Sacrament.md|As Now We Take the Sacrament]],” *Ensign* or *Liahona,* May 2006, 41).
 
-[^36]: See Dallin H. Oaks, “Testimony” (address given at the seminar for new mission presidents, June 25, 2014), 1–2.
+[^36]: See Dallin H. Oaks, “Testimony” (address given at the seminar for new mission presidents, June 25, 2014), 1–2.
 
 [^37]: See [[Moroni 4.3|Moroni 4:3]]; see also [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]]; [[D&C 20.37|Doctrine and Covenants 20:37]] for additional covenants that we make at baptism.
 
@@ -139,7 +141,7 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^39]: [[Mosiah 18.10|Mosiah 18:10]].
 
-[^40]: See [[2 Corinthians 3.18|2 Corinthians 3:18]]; [[Ether 12.27|Ether 12:27]]; [[D&C 35.2|Doctrine and Covenants 35:2]]; [[Moses 1.39|Moses 1:39]].
+[^40]: See [[2 Corinthians 3.18|2 Corinthians 3:18]]; [[Ether 12.27|Ether 12:27]]; [[D&C 35.2|Doctrine and Covenants 35:2]]; [[Moses 1.39|Moses 1:39]].
 
 [^41]: See [[Romans 6.4|Romans 6:4]].
 
@@ -147,29 +149,29 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^43]: See [[D&C 84.19|Doctrine and Covenants 84:19–21]][[D&C 84.20|]][[D&C 84.21|]].
 
-[^44]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona,* May 2009, 22.
+[^44]: D. Todd Christofferson, “[[2009 April - The Power of Covenants.md|The Power of Covenants]],” *Ensign* or *Liahona,* May 2009, 22.
 
 [^45]: Confirmation occurs by the laying on of hands (see, for example, [[Acts 8.17|Acts 8:17]]).
 
-[^46]: See [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[Holy Ghost,](https://churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng)” scriptures.lds.org.
+[^46]: See [[D&C 20.28|Doctrine and Covenants 20:28]]; Guide to the Scriptures, “[Holy Ghost,](https://www.churchofjesuschrist.org/study/scriptures/gs/holy-ghost?lang=eng)” scriptures.lds.org.
 
-[^47]: See [[2 Corinthians 3.18|2 Corinthians 3:18]]; [[1 Nephi 14.14|1 Nephi 14:14]]; [[D&C 93.20|Doctrine and Covenants 93:20]].
+[^47]: See [[2 Corinthians 3.18|2 Corinthians 3:18]]; [[1 Nephi 14.14|1 Nephi 14:14]]; [[D&C 93.20|Doctrine and Covenants 93:20]].
 
-[^48]: See [[3 Nephi 27.20|3 Nephi 27:20]].
+[^48]: See [[3 Nephi 27.20|3 Nephi 27:20]].
 
-[^49]: Guide to the Scriptures, “[Sanctification,](https://churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng)” scriptures.lds.org.
+[^49]: Guide to the Scriptures, “[Sanctification,](https://www.churchofjesuschrist.org/study/scriptures/gs/sanctification?lang=eng)” scriptures.lds.org.
 
 [^50]: See [[Moroni 7.48|Moroni 7:48]]; [[Moroni 8.26|8:26]]; [[Moroni 10.8|10:8–18.]][[Moroni 10.9|]][[Moroni 10.10|]][[Moroni 10.11|]][[Moroni 10.12|]][[Moroni 10.13|]][[Moroni 10.14|]][[Moroni 10.15|]][[Moroni 10.16|]][[Moroni 10.17|]][[Moroni 10.18|]]
 
-[^51]: See [[Mosiah 4.14|Mosiah 4:14]]; [[D&C 84.33|Doctrine and Covenants 84:33]]; Bruce R. McConkie, “[[1977 October - The Ten Blessings of the Priesthood.md|The Ten Blessings of the Priesthood]],” *Ensign,* Nov. 1977, 33–35.
+[^51]: See [[Mosiah 4.14|Mosiah 4:14]]; [[D&C 84.33|Doctrine and Covenants 84:33]]; Bruce R. McConkie, “[[1977 October - The Ten Blessings of the Priesthood.md|The Ten Blessings of the Priesthood]],” *Ensign,* Nov. 1977, 33–35.
 
 [^52]: [[Mosiah 5.2|Mosiah 5:2]].
 
-[^53]: The Holy Ghost also guides us back to our Father in Heaven (see [[2 Nephi 32.5|2 Nephi 32:5]]; [[D&C 45.57|Doctrine and Covenants 45:57]]) by helping us know what we must do to become like Christ (see [[2 Corinthians 3.18|2 Corinthians 3:18]]; [[Ether 12.27|Ether 12:27]]; [[D&C 84.46|Doctrine and Covenants 84:46–48]][[D&C 84.47|]][[D&C 84.48|]]).
+[^53]: The Holy Ghost also guides us back to our Father in Heaven (see [[2 Nephi 32.5|2 Nephi 32:5]]; [[D&C 45.57|Doctrine and Covenants 45:57]]) by helping us know what we must do to become like Christ (see [[2 Corinthians 3.18|2 Corinthians 3:18]]; [[Ether 12.27|Ether 12:27]]; [[D&C 84.46|Doctrine and Covenants 84:46–48]][[D&C 84.47|]][[D&C 84.48|]]).
 
-[^54]: [[2 Nephi 31.16|2 Nephi 31:16]]. Enduring to the end is aptly named, as it requires both time and endurance (see [[James 1.2|James 1:2–4]][[James 1.3|]][[James 1.4|]]). The fact is that we cannot develop some Christlike attributes without facing opposition and difficulties. For example, how can we become long-suffering if we are never required to suffer for a long time?
+[^54]: [[2 Nephi 31.16|2 Nephi 31:16]]. Enduring to the end is aptly named, as it requires both time and endurance (see [[James 1.2|James 1:2–4]][[James 1.3|]][[James 1.4|]]). The fact is that we cannot develop some Christlike attributes without facing opposition and difficulties. For example, how can we become long-suffering if we are never required to suffer for a long time?
 
-[^55]: Dale G. Renlund, “[[2015 April - Latter-day Saints Keep on Trying.md|Latter-day Saints Keep on Trying]],” *Ensign* or *Liahona,* May 2015, 56.
+[^55]: Dale G. Renlund, “[[2015 April - Latter-day Saints Keep on Trying.md|Latter-day Saints Keep on Trying]],” *Ensign* or *Liahona,* May 2015, 56.
 
 [^56]: See [[D&C 93.12|Doctrine and Covenants 93:12, 19]][[D&C 93.19|]].
 
@@ -177,22 +179,17 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^58]: See [[D&C 39.4|Doctrine and Covenants 39:4–6]][[D&C 39.5|]][[D&C 39.6|]].
 
-[^59]: See [[2 Nephi 9.24|2 Nephi 9:24]].
+[^59]: See [[2 Nephi 9.24|2 Nephi 9:24]].
 
-[^60]: [[2 John 1.9|2 John 1:9]].
+[^60]: [[2 John 1.9|2 John 1:9]].
 
-[^61]: [[3 Nephi 27.17|3 Nephi 27:17]].
+[^61]: [[3 Nephi 27.17|3 Nephi 27:17]].
 
-[^62]: One might frequently bring the same sacrifice for weeks at a time until, with the help of the Savior, and as Elder Neal A. Maxwell taught, “it \[is\] consumed” (“[[1995 April - “Deny Yourselves of All Ungodliness”.md|Deny Yourselves of All Ungodliness]],” *Ensign,* May 1995, 68).
+[^62]: One might frequently bring the same sacrifice for weeks at a time until, with the help of the Savior, and as Elder Neal A. Maxwell taught, “it \[is\] consumed” (“[[1995 April - “Deny Yourselves of All Ungodliness”.md|Deny Yourselves of All Ungodliness]],” *Ensign,* May 1995, 68).
 
-[^63]: See [[2 Nephi 25.20|2 Nephi 25:20]].
+[^63]: See [[2 Nephi 25.20|2 Nephi 25:20]].
 
 [^64]: See [[Moroni 7.24|Moroni 7:24]].
 
 [^65]: [[Moroni 7.25|Moroni 7:25]].
 
-
-
-
-
-#Atonement #Baptism #Endurance #Faith #Holy_Ghost #Jesus_Christ #Repentance #Sacrament

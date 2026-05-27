@@ -1,6 +1,8 @@
 # Seeking Answers to Spiritual Questions
 
-By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
+Henry B. Eyring
+
+By Sister Tracy Y. Browning - *Second Counselor in the Primary General Presidency*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -20,7 +22,7 @@ What is striking to me about this period of space exploration history are some p
 
 Asking questions and searching for meaning are a natural and normal part of our mortal experience. At times, not readily having complete answers can bring us to the edge of our understanding, and those limitations can feel frustrating or overwhelming. Wondrously, Heavenly Father’s plan of happiness for all of us is designed to help us progress despite our limitations and accomplish what we cannot accomplish on our own, *even without a complete knowledge of all things*. God’s plan is merciful toward the limitations of our humanity; provides us with our Savior, Jesus Christ, to be our Good Shepherd; and inspires us to use our agency to choose Him.
 
-Elder Dieter F. Uchtdorf has taught that “asking questions isn’t a sign of weakness,” but rather “it’s a precursor of growth.”[^5] Speaking directly to our personal effort as seekers of truth, our prophet, President Russell M. Nelson, has taught that we must have “a deep desire” and “ask with a sincere heart \[and\] real intent, having faith in \[Jesus\] Christ.” He has further taught that “‘real intent’ means that one *really intends* to follow the divine direction given.”[^6]
+Elder Dieter F. Uchtdorf has taught that “asking questions isn’t a sign of weakness,” but rather “it’s a precursor of growth.”[^5] Speaking directly to our personal effort as seekers of truth, our prophet, President Russell M. Nelson, has taught that we must have “a deep desire” and “ask with a sincere heart \[and\] real intent, having faith in \[Jesus\] Christ.” He has further taught that “‘real intent’ means that one *really intends* to follow the divine direction given.”[^6]
 
 Our personal effort to grow in wisdom may lead us to examine our questions, complex or otherwise, through the lens of cause and effect, seeking out and recognizing patterns and then forming narratives to give shape to our understanding and fill in perceived gaps in knowledge. When we consider our pursuit of spiritual knowledge, however, these thoughtful processes may be helpful at times but on their own can be incomplete as we look to discern things pertaining to Heavenly Father and our Savior, Jesus Christ, Their gospel, Their Church, and Their plan for all of us.
 
@@ -32,7 +34,7 @@ Our covenant relationship with Heavenly Father and Jesus Christ signals our prev
 
 ## Obedience
 
-One key principle taught throughout the Book of Mormon is when God’s children choose to demonstrate obedience and keep their covenants, they receive continual spiritual guidance and direction. The Lord has told us that through our obedience and diligence, we may gain knowledge and intelligence.[^13] God’s laws and commandments are not designed to be an obstacle in our life but a powerful gateway to personal revelation and spiritual education. President Nelson has taught the crucial truth that “revelation from God is always compatible with His eternal law” and further that “it never contradicts His doctrine.”[^14] Your willing obedience to God’s commands, despite not having a complete knowledge of His reasons, places you in the company of His prophets. Moses 5 teaches us about a particular interaction between Adam and an angel of the Lord.
+One key principle taught throughout the Book of Mormon is when God’s children choose to demonstrate obedience and keep their covenants, they receive continual spiritual guidance and direction. The Lord has told us that through our obedience and diligence, we may gain knowledge and intelligence.[^13] God’s laws and commandments are not designed to be an obstacle in our life but a powerful gateway to personal revelation and spiritual education. President Nelson has taught the crucial truth that “revelation from God is always compatible with His eternal law” and further that “it never contradicts His doctrine.”[^14] Your willing obedience to God’s commands, despite not having a complete knowledge of His reasons, places you in the company of His prophets. Moses 5 teaches us about a particular interaction between Adam and an angel of the Lord.
 
 After the Lord gave Adam and Eve “commandments, that they should worship the Lord their God, and should offer the firstlings of their flocks, for an offering unto the Lord,” the scriptures say that “Adam was *obedient* unto the commandments of the Lord.” We go on to read that “after many days an angel of the Lord appeared unto Adam, saying: Why dost thou offer sacrifices unto the Lord? And Adam said unto him: *I know not, save the Lord commanded me.*”[^15]
 
@@ -52,7 +54,7 @@ We may find that some of our spiritual petitions have reasonably discernible ans
 
 One significant caution from Naaman’s account is that resisting obedience to God’s laws and commandments may prolong or delay our growth. We are blessed to have Jesus Christ as our Master Healer. Our obedience to God’s laws and commandments can open the way for our Savior to provide the understanding and healing He knows we need, according to His prescribed treatment plan for us.
 
-Elder Richard G. Scott taught that “this life is an experience in profound trust—trust in Jesus Christ, trust in His teachings, trust in our capacity as led by the Holy Spirit to obey those teachings for happiness now and for a purposeful, supremely happy eternal existence. To trust means to obey willingly without knowing the end from the beginning (see [[Proverbs 3.5|Prov. 3:5–7]][[Proverbs 3.6|]][[Proverbs 3.7|]]). To produce fruit, your trust in the Lord must be more powerful and enduring than your confidence in your own personal feelings and experience.”
+Elder Richard G. Scott taught that “this life is an experience in profound trust—trust in Jesus Christ, trust in His teachings, trust in our capacity as led by the Holy Spirit to obey those teachings for happiness now and for a purposeful, supremely happy eternal existence. To trust means to obey willingly without knowing the end from the beginning (see [[Proverbs 3.5|Prov. 3:5–7]][[Proverbs 3.6|]][[Proverbs 3.7|]]). To produce fruit, your trust in the Lord must be more powerful and enduring than your confidence in your own personal feelings and experience.”
 
 Elder Scott continues: “To exercise faith is to trust that the Lord knows what He is doing with you and that He can accomplish it for your eternal good even though you cannot understand how He can possibly do it.”[^21]
 
@@ -71,19 +73,19 @@ I testify that placing your trust in Heavenly Father and in His prophets, whom H
 
 [^3]: See “Kuiper Belt: In Depth,” science.nasa.gov.
 
-[^4]: Alan Stern, in “Expanding the Horizons of Knowledge,” *APPEL News*, Apr. 12, 2016, appel.nasa.gov.
+[^4]: Alan Stern, in “Expanding the Horizons of Knowledge,” *APPEL News*, Apr. 12, 2016, appel.nasa.gov.
 
-[^5]: Dieter F. Uchtdorf, “[The Reflection in the Water](https://www.churchofjesuschrist.org/broadcasts/watch/ces-devotionals/2009/01?lang=eng&vid=2176253771001)” (Church Educational System fireside for young adults, Nov. 1, 2009), CESdevotionals.ChurchofJesusChrist.org.
+[^5]: Dieter F. Uchtdorf, “[The Reflection in the Water](https://www.churchofjesuschrist.org/broadcasts/watch/ces-devotionals/2009/01?lang=eng&vid=2176253771001)” (Church Educational System fireside for young adults, Nov. 1, 2009), CESdevotionals.ChurchofJesusChrist.org.
 
-[^6]: Russell M. Nelson, “[[2009 October - Ask, Seek, Knock.md|Ask, Seek, Knock]],” *Ensign* or *Liahona*, Nov. 2009, 81.
+[^6]: Russell M. Nelson, “[[2009 October - Ask, Seek, Knock.md|Ask, Seek, Knock]],” *Ensign* or *Liahona*, Nov. 2009, 81.
 
-[^7]: Russell M. Nelson, “[[2009 October - Ask, Seek, Knock.md|Ask, Seek, Knock]],” 81.
+[^7]: Russell M. Nelson, “[[2009 October - Ask, Seek, Knock.md|Ask, Seek, Knock]],” 81.
 
 [^8]: [[Matthew 7.7|Matthew 7:7]].
 
 [^9]: [[Matthew 7.11|Matthew 7:11]].
 
-[^10]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^10]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
 [^11]: [[Isaiah 40.31|Isaiah 40:31]].
 
@@ -91,7 +93,7 @@ I testify that placing your trust in Heavenly Father and in His prophets, whom H
 
 [^13]: See [[D&C 130.18|Doctrine and Covenants 130:18–19]][[D&C 130.19|]].
 
-[^14]: Russell M. Nelson, “[[2009 October - Ask, Seek, Knock.md|Ask, Seek, Knock]],” 83.
+[^14]: Russell M. Nelson, “[[2009 October - Ask, Seek, Knock.md|Ask, Seek, Knock]],” 83.
 
 [^15]: [[Moses 5.5|Moses 5:5–6]][[Moses 5.6|]]; emphasis added.
 
@@ -101,14 +103,9 @@ I testify that placing your trust in Heavenly Father and in His prophets, whom H
 
 [^18]: See [[Mosiah 4.9|Mosiah 4:9]].
 
-[^19]: See [[2 Kings 5.1|2 Kings 5:1–15]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]].
+[^19]: See [[2 Kings 5.1|2 Kings 5:1–15]][[2 Kings 5.2|]][[2 Kings 5.3|]][[2 Kings 5.4|]][[2 Kings 5.5|]][[2 Kings 5.6|]][[2 Kings 5.7|]][[2 Kings 5.8|]][[2 Kings 5.9|]][[2 Kings 5.10|]][[2 Kings 5.11|]][[2 Kings 5.12|]][[2 Kings 5.13|]][[2 Kings 5.14|]][[2 Kings 5.15|]].
 
 [^20]: [[Alma 26.35|Alma 26:35]].
 
-[^21]: Richard G. Scott, “[[1995 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign*, Nov. 1995, 17.
+[^21]: Richard G. Scott, “[[1995 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign*, Nov. 1995, 17.
 
-
-
-
-
-#Answering_Questions #Learning #Obedience #Patience #Spiritual_Growth #Trust #Truth

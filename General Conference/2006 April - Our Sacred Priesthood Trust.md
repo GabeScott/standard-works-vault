@@ -1,5 +1,7 @@
 # Our Sacred Priesthood Trust
 
+Robert D. Hales
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2006 General Conference*
@@ -58,7 +60,7 @@ Came my response: “No.”
 
 Then he instructed, “Brother Monson, repeat from memory the 13th section of the Doctrine and Covenants.”
 
-I began, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels …”
+I began, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels …”
 
 “Stop,” President Child directed. Then in a calm, kindly tone, he counseled, “Brother Monson, never forget that as a holder of the Aaronic Priesthood you are entitled to the ministering of angels. Now continue the passage.”
 
@@ -86,7 +88,7 @@ This oath and covenant is set forth by the Lord in these words:
 
 “And he that receiveth my Father receiveth my Father’s kingdom; therefore all that my Father hath shall be given unto him.”[^7]
 
-The late Elder Delbert L. Stapley of the Quorum of the Twelve once observed: “There are two main requirements of this oath and covenant. First is faithfulness, which denotes obedience to the laws of God and connotes true observance of all gospel standards. …
+The late Elder Delbert L. Stapley of the Quorum of the Twelve once observed: “There are two main requirements of this oath and covenant. First is faithfulness, which denotes obedience to the laws of God and connotes true observance of all gospel standards. …
 
 “The second requirement … is to magnify one’s calling. To magnify is to honor, to exalt and glorify, and cause to be held in greater esteem or respect. It also means to increase the importance of, to enlarge and make greater.”[^8]
 
@@ -121,7 +123,7 @@ May our Heavenly Father ever bless, ever inspire, and ever lead all who hold His
 
 
 
-[^1]: [[1 Peter 3.15|1 Peter 3:15]].
+[^1]: [[1 Peter 3.15|1 Peter 3:15]].
 
 [^2]: See David O. McKay, *Stepping Stones to an Abundant Life* (1971), 375.
 
@@ -141,8 +143,3 @@ May our Heavenly Father ever bless, ever inspire, and ever lead all who hold His
 
 [^10]: [[Ether 12.27|Ether 12:27]].
 
-
-
-
-
-#Example #Priesthood #Restoration

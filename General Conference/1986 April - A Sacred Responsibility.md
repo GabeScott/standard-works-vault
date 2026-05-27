@@ -1,5 +1,7 @@
 # A Sacred Responsibility
 
+Ezra Taft Benson
+
 By President Ezra Taft Benson - *President of the Church*
 
 *Given in the April session of the 1986 General Conference*
@@ -70,7 +72,7 @@ Now, in our day, the Lord has revealed the need to reemphasize the Book of Mormo
 
 Now, as we come to the close of this great conference, I want you to know that I know that Christ is at the helm. This is His world. This is His Church. His purposes will be accomplished.
 
-Christ is our ideal. He is our exemplar. What manner of men and women should we be? Even as He is. (See [[3 Nephi 27.27|3 Ne. 27:27]].) The best measure of true greatness is how Christlike we are.
+Christ is our ideal. He is our exemplar. What manner of men and women should we be? Even as He is. (See [[3 Nephi 27.27|3 Ne. 27:27]].) The best measure of true greatness is how Christlike we are.
 
 The Book of Mormon declares that “every thing which inviteth and enticeth to do good, and to love God, and to serve him, is inspired of God.” And “whatsoever thing persuadeth men to do evil, and believe not in Christ, and deny him, and serve not God, then ye may know with a perfect knowledge it is of the devil.” ([[Moroni 7.13|Moro. 7:13, 17]][[Moroni 7.17|]].)
 
@@ -87,8 +89,3 @@ I testify that the Book of Mormon is the word of God. Jesus is the Christ. Josep
 
 
 
-
-
-
-
-#Book_Of_Mormon #Mission_Of_The_Church

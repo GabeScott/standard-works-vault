@@ -1,6 +1,8 @@
 # Women for the Latter Day
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1979 General Conference*
 
@@ -18,13 +20,13 @@ With every step she must have wondered, “Will he hold out the royal sceptre?�
 
 Each woman in today’s world has responsibilities akin to those which Esther faced. The circumstances of each life are significantly different, yet each woman faces the challenge of being true to the principles of the gospel if she would improve the quality of her mortal life and make herself worthy of the opportunity of eternal progression. She should begin by understanding who she is and that she has a magnificent potential as a daughter of God. Her goal then should be lofty. The scriptures say: “Be ye therefore perfect, even as your Father which is in heaven is perfect” ([[Matthew 5.48|Matt. 5:48]]). Quickly I caution that this is not an obtainable goal in one step or one day or one year. It takes a lifetime of conscious effort, of striving and learning and living, to become an holy woman.
 
-It was in 1874 that Eliza R. Snow said, “Paul the apostle anciently spoke of holy women. It is the duty of each one of us to be a holy woman. We shall have elevated aims, if we are holy women. We shall feel that we are called to perform important duties. No one is exempt from them. There is no sister so isolated, and her sphere so narrow but what she can do a great deal towards establishing the Kingdom of God upon the earth” (*Woman’s Exponent,* 15 Sept. 1873, p. 62).
+It was in 1874 that Eliza R. Snow said, “Paul the apostle anciently spoke of holy women. It is the duty of each one of us to be a holy woman. We shall have elevated aims, if we are holy women. We shall feel that we are called to perform important duties. No one is exempt from them. There is no sister so isolated, and her sphere so narrow but what she can do a great deal towards establishing the Kingdom of God upon the earth” (*Woman’s Exponent,* 15 Sept. 1873, p. 62).
 
 The method outlined by the Lord is to learn line upon line, precept upon precept. Set realistic, achievable goals so that you can feel the joy of a victory over yourself.
 
 Such a victory is being won by my friend with a large family of twelve children who, although having days of discouragement, generally speaking is (1) out of bed early to exercise. She hates to exercise so she hurries to get it out of the way. (2) She reads the scriptures. She enjoys that so much she has to make herself stop at her determined one-half hour. (3) She prays, sharing her gratitude and her concerns, and in this way she feels the Lord’s guidance and direction even when things don’t work out the way she had planned. (4) She has a positive, happy attitude as she greets her children.
 
-I wish all of us could attend to our homemaking responsibilities with the vision of my friend. She certainly hasn’t obtained perfection in her home, but she does realize that even though her children don’t practice the piano every day, if they continue to practice they will at least develop the recognition necessary to love music and enrich their lives through it. She knows the challenge of living within her husband’s paycheck, but she also knows the importance of loving him and their children and laughing with them. She may not know that C. S. Lewis has wisely said that homemaking “is surely in reality the most important work in the world. What do ships, railways, mines, cars, and governments, etc. exist for except that people may be fed, warmed, and safe in their own homes? … We wage war in order to have peace, we work in order to have leisure, we produce food in order to eat it. So your job is the one for which all others exist” (*Letters of C. S. Lewis,* Warren H. Lewis, ed., London: Geoffrey Bles Ltd., 1956, p. 62).
+I wish all of us could attend to our homemaking responsibilities with the vision of my friend. She certainly hasn’t obtained perfection in her home, but she does realize that even though her children don’t practice the piano every day, if they continue to practice they will at least develop the recognition necessary to love music and enrich their lives through it. She knows the challenge of living within her husband’s paycheck, but she also knows the importance of loving him and their children and laughing with them. She may not know that C. S. Lewis has wisely said that homemaking “is surely in reality the most important work in the world. What do ships, railways, mines, cars, and governments, etc. exist for except that people may be fed, warmed, and safe in their own homes? … We wage war in order to have peace, we work in order to have leisure, we produce food in order to eat it. So your job is the one for which all others exist” (*Letters of C. S. Lewis,* Warren H. Lewis, ed., London: Geoffrey Bles Ltd., 1956, p. 62).
 
 If we could listen to the earnest pleadings of the prayers of my friend we would probably find them to be much like yours and mine, even though I am well aware of the fact that all women cannot stay in the home but must seek employment to supplement or supply the family income. They should be commended, because it is not an easy role but one that is vitally important. I hope their prayers are raised to the Lord for his affirmation of their decision to accept employment away from their small children only when necessary. When employment away from the home is secured for the right reasons, a woman should feel confident and serve happily.
 
@@ -38,13 +40,8 @@ The haunting challenge of Mordecai rings out to us today: “Who knoweth whether
 
 We can rejoice in being among those whom the Lord has sent to the kingdom to accomplish his work, to raise children unto him, to spread his gospel, to prepare a generation to greet him on his return.
 
-May we all rise to the challenge of being holy women in these latter days, that this “chosen generation … an holy nation … \[might\] shew forth the praises of him who hath called \[us\] out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]). For he lives and loves us, I so testify, in the name of Jesus Christ, amen.
+May we all rise to the challenge of being holy women in these latter days, that this “chosen generation … an holy nation … \[might\] shew forth the praises of him who hath called \[us\] out of darkness into his marvellous light” ([[1 Peter 2.9|1 Pet. 2:9]]). For he lives and loves us, I so testify, in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Women

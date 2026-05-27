@@ -4,6 +4,3 @@
 
 [JST 1 Chronicles 21:15](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-1-chr/21?lang=eng)
 
-
-
-

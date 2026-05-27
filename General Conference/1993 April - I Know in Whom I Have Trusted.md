@@ -1,5 +1,7 @@
 # I Know in Whom I Have Trusted
 
+Thomas S. Monson
+
 By Elder D. Todd Christofferson - *Of the Seventy*
 
 *Given in the April session of the 1993 General Conference*
@@ -16,15 +18,10 @@ Today I honor and express my love to those who taught me the covenants and in so
 
 As I have agonized in recent hours over the acceptability and adequacy of my offering upon the altar of him who gave his all, it has come to me that I must focus outwardly, that as I seek the interest of his flock and lose myself in their service, his grace shall be sufficient for me. I so commit myself unreservedly.
 
-I readily attest to the reality and greatness of our God, to his goodness and grace, to his justice and mercy, to the truth of his gospel and the power of his priesthood and the authenticity of the calling of his latter-day seers. At the outset of this ministry, I acknowledge that anything I may achieve will be by virtue of the power and the grace and the gift of God. I am not, in Isaiah’s words, “the axe \[that shall\] boast itself against him that heweth therewith”; I am not the saw that shall “magnify itself against him that shaketh it” ([[Isaiah 10.15|Isa. 10:15]]). With Nephi, “I know in whom I have trusted” ([[2 Nephi 4.19|2 Ne. 4:19]]).
+I readily attest to the reality and greatness of our God, to his goodness and grace, to his justice and mercy, to the truth of his gospel and the power of his priesthood and the authenticity of the calling of his latter-day seers. At the outset of this ministry, I acknowledge that anything I may achieve will be by virtue of the power and the grace and the gift of God. I am not, in Isaiah’s words, “the axe \[that shall\] boast itself against him that heweth therewith”; I am not the saw that shall “magnify itself against him that shaketh it” ([[Isaiah 10.15|Isa. 10:15]]). With Nephi, “I know in whom I have trusted” ([[2 Nephi 4.19|2 Ne. 4:19]]).
 
 I am particularly gratified, and it is of great significance to me, that I may at any moment and in any circumstance approach through prayer the throne of grace, that my Heavenly Father will hear my petition, and that my Advocate, he who did no sin, whose blood was shed, will plead my cause (see [[D&C 45.3|D&C 45:3–5]][[D&C 45.4|]][[D&C 45.5|]]). I rely heavily on that access to God, which he gives to all his children, for he is indeed no respecter of persons, and he that asks shall receive. I so witness in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Commitment #Service #Testimony

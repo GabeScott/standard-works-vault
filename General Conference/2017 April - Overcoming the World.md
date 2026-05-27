@@ -1,6 +1,8 @@
 # Overcoming the World
 
-By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
+Bonnie H. Cordon
+
+By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -8,7 +10,7 @@ By Elder Neil L. Andersen - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2017/04/overcoming-the-world?lang=eng)
 
-Many years ago, President David O. McKay told of a beautiful experience he had while sailing on a boat toward Samoa. After falling asleep, he “beheld in vision something infinitely sublime. In the distance,” he said, “I beheld a beautiful white city. … Trees with luscious fruit … and flowers in perfect bloom abounded everywhere. … A great concourse of people \[was\] approaching the city. Each one wore a white flowing robe. … Instantly my attention … centered upon their leader, and though I could see only the profile of his features … , I recognized him at once as my Savior! The … radiance of his countenance \[was\] glorious. … \[The\] peace about him … was divine!”
+Many years ago, President David O. McKay told of a beautiful experience he had while sailing on a boat toward Samoa. After falling asleep, he “beheld in vision something infinitely sublime. In the distance,” he said, “I beheld a beautiful white city. … Trees with luscious fruit … and flowers in perfect bloom abounded everywhere. … A great concourse of people \[was\] approaching the city. Each one wore a white flowing robe. … Instantly my attention … centered upon their leader, and though I could see only the profile of his features … , I recognized him at once as my Savior! The … radiance of his countenance \[was\] glorious. … \[The\] peace about him … was divine!”
 
 President McKay continues, “The city … was his … the City Eternal; and the people following him were to abide there in peace and eternal happiness.”
 
@@ -16,7 +18,7 @@ President McKay wondered, “Who \[are\] they? \[Who are these people?\]”
 
 He explains what happened next:
 
-“As if the Savior read my thoughts, he answered by pointing to \[words in\] a semicircle that … appeared above \[the people\], … written in gold … :
+“As if the Savior read my thoughts, he answered by pointing to \[words in\] a semicircle that … appeared above \[the people\], … written in gold … :
 
 *“‘These Are They Who Have Overcome the World—*
 
@@ -58,7 +60,7 @@ Overcoming the world is not a global invasion but a private, personal battle, re
 
 Overcoming the world means treasuring the greatest commandment: “Thou shalt love the Lord thy God with all thy heart, and with all thy soul, and with all thy mind, and with all thy strength.”[^12]
 
-The Christian writer C. S. Lewis described it this way: “Christ says ‘Give me All. I don’t want so much of your time and so much of your money and so much of your work: I want You.’”[^13]
+The Christian writer C. S. Lewis described it this way: “Christ says ‘Give me All. I don’t want so much of your time and so much of your money and so much of your work: I want You.’”[^13]
 
 Overcoming the world is keeping our promises to God—our baptismal and temple covenants and our oath of faithfulness to our eternal companion. Overcoming the world leads us humbly to the sacrament table each week, asking for forgiveness and pledging to “remember him and keep his commandments,” that we “may always have his Spirit to be with \[us\].”[^14]
 
@@ -92,11 +94,11 @@ Overcoming the world is being less concerned with our online connections and mor
 
 The Lord gives us safety as we heed the guidance from His living prophets and apostles.
 
-President Thomas S. Monson has said: “The world can be … challenging. … \[As we go to the temple\], … we will be more able to bear every trial and to overcome each temptation. … We will be renewed and fortified.”[^21]
+President Thomas S. Monson has said: “The world can be … challenging. … \[As we go to the temple\], … we will be more able to bear every trial and to overcome each temptation. … We will be renewed and fortified.”[^21]
 
 With increasing temptations, distractions, and distortions, the world attempts to beguile the faithful into dismissing the rich spiritual experiences of one’s past, redefining them as foolish deceptions.
 
-Overcoming the world is remembering, even when we are discouraged, the times we have felt the love and light of the Savior. Elder Neal A. Maxwell explained one of these experiences this way: “I had been blessed, and I knew that God knew that I knew I had been blessed.”[^22] Although we may temporarily feel forgotten, we do not forget.
+Overcoming the world is remembering, even when we are discouraged, the times we have felt the love and light of the Savior. Elder Neal A. Maxwell explained one of these experiences this way: “I had been blessed, and I knew that God knew that I knew I had been blessed.”[^22] Although we may temporarily feel forgotten, we do not forget.
 
 Overcoming the world does not mean we live a cloistered life, protected from the unfairness and difficulties of mortality. Rather, it opens the more expansive view of faith, drawing us to the Savior and His promises.
 
@@ -104,7 +106,7 @@ While perfection is not complete in this life, overcoming the world keeps our ho
 
 ## The Example of Elder Bruce D. Porter
 
-On December 28 of this past year, our dear friend and beloved General Authority Elder Bruce D. Porter completed his mortality. He was 64 years old.
+On December 28 of this past year, our dear friend and beloved General Authority Elder Bruce D. Porter completed his mortality. He was 64 years old.
 
 I first met Bruce when we were students at Brigham Young University. He was one of the best and the brightest. After he received his doctoral degree from Harvard University, emphasizing Russian affairs, Bruce’s thinking and writing brought prominence that could have derailed him, but the wealth and praise of the world never clouded his view.[^25] His loyalty was to his Savior, Jesus Christ; to his eternal companion, Susan; to his children and grandchildren.
 
@@ -120,9 +122,9 @@ For more than 12 years of his service as a General Authority, Bruce was on dialy
 
 In 2010, Bruce received a kidney from his son David. This time his body did not reject the transplant. It was a miracle, bringing renewed health and eventually allowing him and Susan to return to their beloved Russia, with him serving in the Area Presidency.
 
-On December 26 of last year, after fighting continuous infections in a hospital in Salt Lake City, he asked the doctors to leave the room. Bruce told Susan “that he knew through the Spirit that there was nothing the doctors could do that would save his life. He knew … that Heavenly Father would take him home. He was filled with peace.”[^27]
+On December 26 of last year, after fighting continuous infections in a hospital in Salt Lake City, he asked the doctors to leave the room. Bruce told Susan “that he knew through the Spirit that there was nothing the doctors could do that would save his life. He knew … that Heavenly Father would take him home. He was filled with peace.”[^27]
 
-On December 28, Bruce returned to his family home. A few hours later, surrounded by loved ones, he peacefully returned to his heavenly home.
+On December 28, Bruce returned to his family home. A few hours later, surrounded by loved ones, he peacefully returned to his heavenly home.
 
 Years ago, Bruce Porter wrote these words to his children:
 
@@ -139,7 +141,7 @@ May we each try a little harder in our efforts to overcome the world, not excusi
 
 
 
-[^1]: *Teachings of Presidents of the Church: David O. McKay* (2003), 1–2.
+[^1]: *[Teachings of Presidents of the Church: David O. McKay](https://www.churchofjesuschrist.org/study/manual/teachings-david-o-mckay/chapter-1?lang=eng)* (2003), 1–2.
 
 [^2]: [[Revelation 3.5|Revelation 3:5]].
 
@@ -149,7 +151,7 @@ May we each try a little harder in our efforts to overcome the world, not excusi
 
 [^5]: [[Revelation 3.12|Revelation 3:12]].
 
-[^6]: [[1 John 4.19|1 John 4:19]].
+[^6]: [[1 John 4.19|1 John 4:19]].
 
 [^7]: [[John 16.33|John 16:33]].
 
@@ -163,11 +165,11 @@ May we each try a little harder in our efforts to overcome the world, not excusi
 
 [^12]: [[Mark 12.30|Mark 12:30]].
 
-[^13]: C. S. Lewis, *Mere Christianity* (1960), 153.
+[^13]: C. S. Lewis, *Mere Christianity* (1960), 153.
 
 [^14]: [[D&C 20.77|Doctrine and Covenants 20:77]].
 
-[^15]: See James E. Faust, “[The Voice of the Spirit](https://speeches.byu.edu/talks/james-e-faust_voice-spirit)” (Brigham Young University fireside, Sept. 5, 1993), speeches.byu.edu.
+[^15]: See James E. Faust, “[The Voice of the Spirit](https://speeches.byu.edu/talks/james-e-faust_voice-spirit)” (Brigham Young University fireside, Sept. 5, 1993), speeches.byu.edu.
 
 [^16]: [[John 14.27|John 14:27]].
 
@@ -177,11 +179,11 @@ May we each try a little harder in our efforts to overcome the world, not excusi
 
 [^19]: [[John 15.18|John 15:18–19]][[John 15.19|]].
 
-[^20]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona,* May 2017, 40.
+[^20]: Russell M. Nelson, “[[2017 April - Drawing the Power of Jesus Christ into Our Lives.md|Drawing the Power of Jesus Christ into Our Lives]],” *Ensign* or *Liahona,* May 2017, 40.
 
-[^21]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 93.
+[^21]: Thomas S. Monson, “[[2011 April - The Holy Temple—a Beacon to the World.md|The Holy Temple—a Beacon to the World]],” *Ensign* or *Liahona,* May 2011, 93.
 
-[^22]: Personal conversation with Elder Neal A. Maxwell referring to a story shared in his April 2004 conference talk, “[[2004 April - Remember How Merciful the Lord Hath Been.md|Remember How Merciful the Lord Hath Been]]” (see *Ensign* or *Liahona,* May 2004, 44–46).
+[^22]: Personal conversation with Elder Neal A. Maxwell referring to a story shared in his April 2004 conference talk, “[[2004 April - Remember How Merciful the Lord Hath Been.md|Remember How Merciful the Lord Hath Been]]” (see *Ensign* or *Liahona,* May 2004, 44–46).
 
 [^23]: [[Enos 1.27|Enos 1:27]].
 
@@ -193,14 +195,9 @@ May we each try a little harder in our efforts to overcome the world, not excusi
 
 [^27]: Personal correspondence from Susan Porter, dated Mar. 6, 2017.
 
-[^28]: Bruce D. Porter, *The King of Kings* (2000), 14, 15.
+[^28]: Bruce D. Porter, *The King of Kings* (2000), 14, 15.
 
-[^29]: Bruce D. Porter, *The King of Kings,* 7.
+[^29]: Bruce D. Porter, *The King of Kings,* 7.
 
-[^30]: Bruce D. Porter, *The King of Kings,* 18.
+[^30]: Bruce D. Porter, *The King of Kings,* 18.
 
-
-
-
-
-#Covenants #Discipleship #Jesus_Christ #Sabbath #Worldliness

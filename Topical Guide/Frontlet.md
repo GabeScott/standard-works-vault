@@ -1,7 +1,6 @@
 # Frontlet
 
-
-*See also* [BD Frontlets](https://www.churchofjesuschrist.org/study/scriptures/bd/frontlets?lang=eng)
+*See also* [[BD Frontlets.md|BD Frontlets]]
 
 for *frontlets* between thine eyes, [[Exodus 13.16|Exodus 13:16]].
 

@@ -1,6 +1,8 @@
 # Faith—The First Step
 
-By Elder Howard W. Hunter - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Howard W. Hunter - *Of the Council of the Twelve*
 
 *Given in the April session of the 1975 General Conference*
 
@@ -32,7 +34,7 @@ The gospel, as brought to the earth by the Savior, is the good news of salvation
 
 “Behold I have given unto you my gospel, and this is the gospel which I have given unto you—that I came into the world to do the will of my Father, because my Father sent me.
 
-“And my Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might draw all men unto me, that as I have been lifted up by men even so should men be lifted up by the Father, to stand before me, to be judged of their works, whether they be good or whether they be evil.” ([[3 Nephi 27.12|3 Ne. 27:12–14]][[3 Nephi 27.13|]][[3 Nephi 27.14|]].)
+“And my Father sent me that I might be lifted up upon the cross; and after that I had been lifted up upon the cross, that I might draw all men unto me, that as I have been lifted up by men even so should men be lifted up by the Father, to stand before me, to be judged of their works, whether they be good or whether they be evil.” ([[3 Nephi 27.12|3 Ne. 27:12–14]][[3 Nephi 27.13|]][[3 Nephi 27.14|]].)
 
 As we study the scriptures carefully, the understanding comes to us that the basic elements or principles of the gospel taught by the Master consist of the following steps:
 
@@ -83,8 +85,3 @@ The nations of the world will be blessed by the message of the gospel they carry
 
 
 
-
-
-
-
-#Faith

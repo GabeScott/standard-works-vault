@@ -1,48 +1,43 @@
 # How the Priesthood Blesses Youth
 
-By Laudy Ruth Kaouk - *Member of the Slate Canyon 14th Ward (Spanish), Provo Utah Stake*
+Russell M. Nelson
+
+By Enzo Serge Petelo - *Member of the Meadow Wood Ward, Provo Utah Edgemont Stake*
 
 *Given in the April session of the 2020 General Conference*
 
->*Through the priesthood, we can be lifted. The priesthood brings light into our world.*
+>*We are given the opportunity to minister like angels, to preach the gospel on all the continents of the earth, and to help souls come unto Christ.*
 
-[Link](https://www.churchofjesuschrist.org/study/general-conference/2020/04/32alvarez?lang=eng)
+[Link](https://www.churchofjesuschrist.org/study/general-conference/2020/04/33petelo?lang=eng)
 
-I am grateful to be here. When I first found out I would have the opportunity to speak to you today, I felt very excited but at the same time very humbled. I have spent a lot of time thinking about what I could share, and I hope the Spirit speaks to you directly through my message.
+Brothers and sisters, I am truly grateful to speak to you on this historic evening about the sacred gift of the priesthood and the marvelous power it has to bless the youth in this dispensation. I pray that despite my imperfections, the Spirit will assist me in teaching truth.
 
-In the Book of Mormon, Lehi gives a blessing to each of his sons before he passes away that helps them to see their strengths and eternal potential. I am the youngest of eight children, and this past year I have been the only child at home for the first time. Not having my siblings close by and not always having someone to talk to has been hard for me. There have been nights when I have felt very lonely. I’m grateful for my parents, who have tried their best to help me. An example of this is when my dad offered to give me a priesthood blessing of comfort during a particularly challenging time. After his blessing, things didn’t change right away, but I was able to feel peace and love from my Heavenly Father and from my dad. I feel blessed to have a worthy father who can provide priesthood blessings whenever I need them and who helps me to see my strengths and eternal potential, just as Lehi did when he blessed his children.
+The First Presidency has reminded holders of the Aaronic Priesthood that “you live in a day of great opportunities and challenges—a day in which the priesthood has been restored. You have the authority to administer the ordinances of the Aaronic Priesthood. As you prayerfully and worthily exercise that authority, you will greatly bless the lives of those around you.”[^1] As the young men of the Church, we are also reminded that we are “beloved \[sons\] of God, and He has a work for \[us\] to do,”[^2] and we assist in His work “to bring to pass the immortality and eternal life of man” ([[Moses 1.39|Moses 1:39]]).
 
-Regardless of your circumstances, you can always have access to priesthood blessings. Through family members, friends, ministering brothers, priesthood leaders, and a Heavenly Father who will never fail you, you can receive the blessings of the priesthood. Elder Neil L. Andersen said: “The blessings of the priesthood are infinitely greater than the one who is asked to administer the gift. … As we are worthy, the ordinances of the priesthood enrich our lives.”[^1]
+The priesthood is the authority to administer the ordinances and covenants of the Savior’s gospel to those who are worthy to receive them. Through these priesthood ordinances and sacred covenants come the full blessings of the Savior’s Atonement, which helps us achieve our divine destiny.
 
-Don’t hesitate to ask for a blessing when you need extra guidance. It is in our difficult moments that we need the Spirit to help us the most. No one is perfect, and we all experience hardships. Some of us might suffer with anxiety, depression, addiction, or feelings that we are not enough. Priesthood blessings can help us overcome these challenges and receive peace as we move forward into the future. I hope that we strive to live worthy of receiving these blessings.
+Joseph Smith was a young man who was called of God to restore the gospel of Jesus Christ and, for that purpose, was given the priesthood, which he used to bless all mankind. [[D&C 135.1|Doctrine and Covenants 135]][[D&C 135.2|]][[D&C 135.3|]][[D&C 135.4|]][[D&C 135.5|]][[D&C 135.6|]][[D&C 135.7|]] cites many of the blessings Joseph has given the youth of this dispensation. We read: “Joseph Smith … has done more, save Jesus only, for the salvation of men in this world, than any other man that ever lived in it. … He has brought forth the Book of Mormon … ; has sent the fulness of the everlasting gospel … to the four quarters of the earth; has brought forth the revelations and commandments which compose \[the\] Doctrine and Covenants … ; gathered many thousands of the Latter-day Saints, … and left a fame and name that cannot be slain” ([[D&C 135.3|Doctrine and Covenants 135:3]]).
 
-Another way the priesthood blesses us is through patriarchal blessings. I have learned to turn to my patriarchal blessing whenever I feel sad or lonely. My blessing helps me to see my potential and the specific plan God has for me. It comforts me and helps me to see beyond my earthly perspective. It reminds me of my gifts and of the blessings I will receive if I live worthily. It also helps me to remember and feel at peace that God will provide answers and open doors for me at exactly the right moment when I need it most.
+To effectively serve like Joseph did, we must worthily qualify to use the Lord’s priesthood power. While translating the Book of Mormon, Joseph and Oliver Cowdery wanted to be baptized, but they lacked the proper authority. On May 15, 1829, they knelt in prayer and were visited by John the Baptist, who gave them the keys and authority of the Aaronic Priesthood, saying, “Upon you my fellow servants, in the name of Messiah I confer the Priesthood of Aaron, which holds the keys of the ministering of angels, and of the gospel of repentance, and of baptism by immersion for the remission of sins” ([[D&C 13.1|Doctrine and Covenants 13:1]]).
 
-Patriarchal blessings help prepare us to return to live with our Heavenly Father. I know patriarchal blessings come from God and can help us turn our weaknesses into strengths. These are not messages from fortune-tellers; these blessings tell us what we need to hear. They are like a Liahona for each one of us. When we put God first and have faith in Him, He will lead us through our own wilderness.
+We are given the opportunity to minister like angels, to preach the gospel on all the continents of the earth, and to help souls come unto Christ. This service places us in joint labor with John the Baptist, Moroni, Joseph Smith, President Russell M. Nelson, and other diligent servants of the Lord.
 
-Just like God blessed Joseph Smith with the priesthood so that the blessings of the gospel could be restored, we can receive the blessings of the gospel in our lives through the priesthood. Each week we are given the privilege and opportunity of taking the sacrament. Through this priesthood ordinance, we can have the Spirit to always be with us, which can cleanse and purify us. If you feel the need to eliminate something from your life, reach out to a trusted leader who can help you get on the right path. Your leaders can help you to access the full power of the Atonement of Jesus Christ.
+Our service in and with His priesthood brings together those who are dedicated to following and living the Lord’s teachings with exactness, which I personally know can be difficult as we face the challenges of youth. But uniting with these fellow servants of the Lord in accomplishing His work will help to strengthen us against the adversary’s temptations and deceptions. You can be a beacon of light to all those who are unsure of themselves. The light within you will shine so bright that everyone you interact with will be blessed by just being in your company. It may be hard at times to acknowledge the presence of our spiritual companions, but I am grateful to know that I am a member of a faithful priesthood quorum with whom I can work to grow closer to Christ.
 
-Thanks to the priesthood, we can also receive the blessings of ordinances of the temple. Ever since I’ve been able to enter the temple, I have made it a goal and priority to attend regularly. By taking the time and making the sacrifices necessary to be closer to my Heavenly Father in His holy house, I have been blessed with receiving revelation and promptings that have really helped me throughout my life.
+Along with our friends and family, the Holy Ghost is one of our most loyal and reliable companions. But in order to invite His constant companionship, we must place ourselves in situations and places where He will want to be present. This can begin in our own homes as we work to make them holy places by participating in daily scripture study and prayer as a family and, more important, as we personally study the scriptures and pray on our own.
 
-Through the priesthood, we can be lifted. The priesthood brings light into our world. Elder Robert D. Hales said: “Without the power of the priesthood, ‘the whole earth would be utterly wasted’ (see [[D&C 2.1|D&C 2:1–3]][[D&C 2.2|]][[D&C 2.3|]]). There would be no light, no hope—only darkness.”[^2]
+Earlier this year, I was provided with an exciting yet humbling opportunity to help my little sister, Oceane, progress on the covenant path by accepting the invitation to be baptized and fulfill one of the prescribed requirements to enter the celestial kingdom. She postponed her baptism one month, until I was ordained a priest, to give me the privilege to perform the ordinance, while our other sisters were also privileged to work under priesthood assignment and stand as witnesses. As we stood on opposite sides of the font and prepared to enter the water, I noticed her excitement, as it matched mine. And I felt united with her, seeing that she was making the right decision. This opportunity to exercise the priesthood required me to be more careful and less casual in my gospel living. In order to prepare, I went to the temple every day that week, supported by my mom, grandma, and sister, to perform baptisms for the dead.
 
-God is cheering for us. He wants us to return to Him. He knows us personally. He knows you. He loves us. He is always aware of us and blesses us even when we feel we don’t deserve it. He knows what we need and when we need it.
+This experience taught me a lot about the priesthood and how I could exercise it worthily. I know that all priesthood holders can feel the same things I felt if we follow Nephi’s example to “go and do” (see [[1 Nephi 3.7|1 Nephi 3:7]]). We cannot sit idly and expect the Lord to use us in His great work. We must not wait for those who need our aid to seek us out; it is our duty as priesthood holders to exemplify and stand as witnesses of God. If we are making decisions that inhibit us from our eternal progression, we must change now. Satan will try his hardest to keep us in a carnal state of seeking simple pleasures. But I know that if we put in the effort, find those who will support us, and repent each day, the resulting blessings will be incredible and our lives will be forever changed as we press forward on the covenant path.
 
-“Ask, and it shall be given you; seek, and ye shall find; knock, and it shall be opened unto you:
+I know that this is the true Church of Jesus Christ, who is our Savior and has delegated the keys of the priesthood to His Apostles, who use it to guide us, especially in these challenging days, and to prepare the world for His return.
 
-“For every one that asketh receiveth; and he that seeketh findeth; and to him that knocketh it shall be opened” ([[Matthew 7.7|Matthew 7:7–8]][[Matthew 7.8|]]).
-
-If you don’t already have a testimony about the priesthood, I encourage you to pray and ask to know for yourself of its power, then read the scriptures to hear God’s words. I know that if we make an effort to experience the power of God’s priesthood in our lives, we will be blessed. In the name of Jesus Christ, amen.
+I know that Joseph Smith was the prophet of the Restoration and that President Nelson is our living prophet today. I invite all of us to study the lives of these great priesthood holders and seek to improve ourselves daily so we can be ready to meet our Maker. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: Neil L. Andersen, “[[2013 October - Power in the Priesthood.md|Power in the Priesthood]],” *Ensign* or *Liahona,* Nov. 2013, 92.
+[^1]: The First Presidency, in *Fulfilling My Duty to God* (booklet, 2010), 5.
 
-[^2]: Robert D. Hales, “[Blessings of the Priesthood](https://churchofjesuschrist.org/study/ensign/1995/11/blessings-of-the-priesthood?lang=eng),” *Ensign,* Nov. 1995, 32.
+[^2]: Aaronic Priesthood quorum theme, in *[General Handbook: Serving in The Church of Jesus Christ of Latter-day Saints](https://www.churchofjesuschrist.org/study/manual/general-handbook/10-aaronic-priesthood?lang=eng&id=title4#title4),* 10.1.2, ChurchofJesusChrist.org.
 
-
-
-
-
-#Patriarchal_Blessings #Priesthood #Priesthood_Blessings

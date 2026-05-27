@@ -1,6 +1,8 @@
 # Discovering the Divinity Within
 
-By Rosemary M. Wixom - *Primary General President*
+Rosemary M. Wixom
+
+By Rosemary M. Wixom - *Primary General President*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -34,11 +36,11 @@ We identify with our divine nature as we feel and give the love of our Father in
 
 Looking out through a window, not just into a mirror, allows us to see ourselves as His. We naturally turn to Him in prayer, and we are eager to read His words and to do His will. We are able to take our validation vertically from Him, not horizontally from the world around us or from those on Facebook or Instagram.
 
-If you ever question that spark of divinity within you, kneel in prayer and ask Heavenly Father, “Am I really Thy daughter, and dost Thou love me?” Elder M. Russell Ballard said, “One of the sweetest messages the Spirit will relay is how the Lord feels about you.”[^6]
+If you ever question that spark of divinity within you, kneel in prayer and ask Heavenly Father, “Am I really Thy daughter, and dost Thou love me?” Elder M. Russell Ballard said, “One of the sweetest messages the Spirit will relay is how the Lord feels about you.”[^6]
 
 We are His. Paul said, “The Spirit itself beareth witness with our spirit, that we are the children of God.”[^7] Often the first Primary song we learn is “I Am a Child of God.”[^8] Now it is time to take that beloved phrase “I am a child of God” and add the words “Therefore, what?” We might even ask questions such as these: “What will I do to live my life as a child of God?” “How can I develop the divine nature that is within me?”
 
-President Dieter F. Uchtdorf said, “God sent you here to prepare for a future greater than anything you can imagine.”[^9] That future, a day at a time, comes alive when you do more than just exist; it comes alive when you live your life to fill the measure of your creation. This invites the Lord into your life, and you begin to let His will become yours.
+President Dieter F. Uchtdorf said, “God sent you here to prepare for a future greater than anything you can imagine.”[^9] That future, a day at a time, comes alive when you do more than just exist; it comes alive when you live your life to fill the measure of your creation. This invites the Lord into your life, and you begin to let His will become yours.
 
 ## We Learn Because of Our Divine Nature
 
@@ -50,7 +52,7 @@ She continued: “Good friends are sometimes hard to find. Even when you think y
 
 Amy went on to say: “One night I was troubled. I told my sister I didn’t know what to do.”
 
-Later that night her sister sent her a text and quoted Elder Jeffrey R. Holland when he said: “Don’t give up. … Don’t you quit. You keep walking. You keep trying. There is help and happiness ahead. … It will be all right in the end. Trust God and believe in good things to come.”[^10]
+Later that night her sister sent her a text and quoted Elder Jeffrey R. Holland when he said: “Don’t give up. … Don’t you quit. You keep walking. You keep trying. There is help and happiness ahead. … It will be all right in the end. Trust God and believe in good things to come.”[^10]
 
 Amy explained: “I remembered reading that and just praying that I would feel love from God if He really was there for me.”
 
@@ -62,7 +64,7 @@ Because you are His child, He knows who you can become. He knows your fears and 
 
 Divine nature breathes into us the desire to serve others.
 
-Recently, Sharon Eubank, the director of Humanitarian Services and LDS Charities, told of an experience shared by Elder Glenn L. Pace. There was widespread drought and extreme famine in Ethiopia in the mid-1980s. To provide relief, feeding stations with water and food were created for those who could get to them. An old man who was starving was walking a long distance to get to a feeding station. He was passing a village when he heard the cry of a baby. He searched until he found the baby sitting on the ground next to his dead mother. Picking up the baby, the man continued to walk 25 miles (40 km) to the feeding station. When he arrived, his first words were not “I’m hungry” or “Help me.” They were “What can be done for this baby?”[^11]
+Recently, Sharon Eubank, the director of Humanitarian Services and LDS Charities, told of an experience shared by Elder Glenn L. Pace. There was widespread drought and extreme famine in Ethiopia in the mid-1980s. To provide relief, feeding stations with water and food were created for those who could get to them. An old man who was starving was walking a long distance to get to a feeding station. He was passing a village when he heard the cry of a baby. He searched until he found the baby sitting on the ground next to his dead mother. Picking up the baby, the man continued to walk 25 miles (40 km) to the feeding station. When he arrived, his first words were not “I’m hungry” or “Help me.” They were “What can be done for this baby?”[^11]
 
 The divine nature within us ignites our desire to reach out to others and prompts us to act. Heavenly Father and Jesus Christ can help us find the strength to do so. Could the Lord be asking us, “What can be done for this daughter, this brother, this father, or this friend?”
 
@@ -83,26 +85,21 @@ I promise that as you seek to discover the depth of the divine nature that lies 
 
 [^3]: “The Family: A Proclamation to the World,” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^4]: Elaine Cannon, in “‘Let Me Soar,’ Women Counseled,” *Church News,* Oct. 17, 1981, 3.
+[^4]: Elaine Cannon, in “‘Let Me Soar,’ Women Counseled,” *Church News,* Oct. 17, 1981, 3.
 
-[^5]: [[2 Peter 1.4|2 Peter 1:4]].
+[^5]: [[2 Peter 1.4|2 Peter 1:4]].
 
-[^6]: M. Russell Ballard, “Women of Righteousness,” *Ensign,* Apr. 2002, 72; *Liahona,* Dec. 2002, 42.
+[^6]: M. Russell Ballard, “Women of Righteousness,” *Ensign,* Apr. 2002, 72; *Liahona,* Dec. 2002, 42.
 
 [^7]: [[Romans 8.16|Romans 8:16]].
 
 [^8]: See “I Am a Child of God,” *Hymns,* no. 301.
 
-[^9]: Dieter F. Uchtdorf, “Living the Gospel Joyful,” *Ensign* or *Liahona,* Nov. 2014, 121.
+[^9]: Dieter F. Uchtdorf, “Living the Gospel Joyful,” *Ensign* or *Liahona,* Nov. 2014, 121.
 
-[^10]: Jeffrey R. Holland, “An High Priest of Good Things to Come,” *Ensign,* Nov. 1999, 38; *Liahona,* Jan. 2000, 45.
+[^10]: Jeffrey R. Holland, “An High Priest of Good Things to Come,” *Ensign,* Nov. 1999, 38; *Liahona,* Jan. 2000, 45.
 
-[^11]: See Glenn L. Pace, [“Infinite Needs and Finite Resources,”](https://churchofjesuschrist.org/study/ensign/1993/06/infinite-needs-and-finite-resources?lang=eng) *Ensign,* June 1993, 52; *Tambuli,* Mar. 1995, 18–19.
+[^11]: See Glenn L. Pace, “[Infinite Needs and Finite Resources](https://www.churchofjesuschrist.org/study/ensign/1993/06/infinite-needs-and-finite-resources?lang=eng),” *Ensign,* June 1993, 52; *Tambuli,* Mar. 1995, 18–19.
 
-[^12]: [[2 Nephi 9.26|2 Nephi 9:26]].
+[^12]: [[2 Nephi 9.26|2 Nephi 9:26]].
 
-
-
-
-
-#Divine_Nature #Education #Love #Service

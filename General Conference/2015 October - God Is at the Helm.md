@@ -1,6 +1,8 @@
 # God Is at the Helm
 
-By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
+Rosemary M. Wixom
+
+By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2015 General Conference*
 
@@ -8,7 +10,7 @@ By Elder M. Russell Ballard - *Of the Quorum of the Twelve Apostles*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2015/10/god-is-at-the-helm?lang=eng)
 
-In last October’s general conference, I invited listeners to follow Brigham Young’s counsel to stay on the Old Ship Zion, which is The Church of Jesus Christ of Latter-day Saints, and to hold on with both hands.[^1] Since then, I am happy to know that some of my family and others were listening and have asked me this question: “What’s in the Old Ship Zion that we should hang on to?” I reminded them of what President Brigham Young said: “We are on the old ship Zion. … \[God\] is at the helm and will stay there. … He dictates, guides and directs. If the people will have implicit confidence in their God, never forsake their covenants nor their God, He will guide us right.”[^2]
+In last October’s general conference, I invited listeners to follow Brigham Young’s counsel to stay on the Old Ship Zion, which is The Church of Jesus Christ of Latter-day Saints, and to hold on with both hands.[^1] Since then, I am happy to know that some of my family and others were listening and have asked me this question: “What’s in the Old Ship Zion that we should hang on to?” I reminded them of what President Brigham Young said: “We are on the old ship Zion. … \[God\] is at the helm and will stay there. … He dictates, guides and directs. If the people will have implicit confidence in their God, never forsake their covenants nor their God, He will guide us right.”[^2]
 
 Clearly, our Heavenly Father and the Lord Jesus Christ have outfitted the Old Ship Zion with clear and simple eternal truths that will help us stay the course through the troubled waters of mortal life. Here are just a few.
 
@@ -81,9 +83,9 @@ Hold tight, brothers and sisters, and sail on within the glorious ship, The Chur
 
 
 
-[^1]: See M. Russell Ballard, [“Stay in the Boat and Hold On!”](https://churchofjesuschrist.org/study/ensign/2014/11/sunday-afternoon-session/stay-in-the-boat-and-hold-on?lang=eng) *Ensign* or *Liahona,* Nov. 2014, 89–92.
+[^1]: See M. Russell Ballard, “[Stay in the Boat and Hold On!](https://www.churchofjesuschrist.org/study/ensign/2014/11/sunday-afternoon-session/stay-in-the-boat-and-hold-on?lang=eng)” *Ensign* or *Liahona,* Nov. 2014, 89–92.
 
-[^2]: Brigham Young, “Remarks,” *Deseret News,* Nov. 18, 1857, 291.
+[^2]: Brigham Young, “Remarks,” *Deseret News,* Nov. 18, 1857, 291.
 
 [^3]: [[John 13.20|John 13:20]].
 
@@ -95,8 +97,3 @@ Hold tight, brothers and sisters, and sail on within the glorious ship, The Chur
 
 [^7]: See [[Isaiah 58.13|Isaiah 58:13–14]][[Isaiah 58.14|]].
 
-
-
-
-
-#Atonement #Church_Leaders #Death #Divine_Nature #Family #Jesus_Christ #Plan_Of_Salvation #Prophets #Sabbath #Testimony #Truth

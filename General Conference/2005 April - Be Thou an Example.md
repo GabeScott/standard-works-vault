@@ -1,5 +1,7 @@
 # Be Thou an Example
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *First Counselor in the First Presidency*
 
 *Given in the April session of the 2005 General Conference*
@@ -91,7 +93,7 @@ Tomorrow is Easter. On this Easter eve, may our thoughts turn to Him who atoned 
 
 
 
-[^1]: [[1 Timothy 4.12|1 Timothy 4:12]].
+[^1]: [[1 Timothy 4.12|1 Timothy 4:12]].
 
 [^2]: [[Exodus 20.12|Exodus 20:12]].
 
@@ -109,14 +111,9 @@ Tomorrow is Easter. On this Easter eve, may our thoughts turn to Him who atoned 
 
 [^9]: “Testimony,” *Ensign,* May 1998, 69–70.
 
-[^10]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]].
+[^10]: [[1 Corinthians 3.16|1 Corinthians 3:16–17]][[1 Corinthians 3.17|]].
 
 [^11]: [[D&C 84.88|D&C 84:88]].
 
 [^12]: Samuel Medley, “I Know That My Redeemer Lives,” *Hymns,* no. 136.
 
-
-
-
-
-#Example #Family #Temptation #Testimony #Truth

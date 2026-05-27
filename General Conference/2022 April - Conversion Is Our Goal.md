@@ -1,6 +1,8 @@
 # Conversion Is Our Goal
 
-By Mark L. Pace - *Sunday School General President*
+Russell M. Nelson
+
+By Mark L. Pace - *Sunday School General President*
 
 *Given in the April session of the 2022 General Conference*
 
@@ -16,11 +18,11 @@ On any journey, it’s good to pause occasionally to assess our progress and to 
 
 Consider this profound statement from the introduction to *Come, Follow Me*:
 
-“The aim of all gospel learning and teaching is to deepen our conversion to Heavenly Father and Jesus Christ. …
+“The aim of all gospel learning and teaching is to deepen our conversion to Heavenly Father and Jesus Christ. …
 
 “… The kind of gospel learning that strengthens our faith and leads to the miracle of conversion doesn’t happen all at once. It extends beyond a classroom into our hearts and homes. It requires consistent, daily efforts to understand and live the gospel. Gospel learning that leads to true conversion requires the influence of the Holy Ghost.”[^1]
 
-That is the miracle we seek—when one person has an experience in the scriptures[^2] and that experience is blessed by the influence of the Holy Ghost. Such experiences are precious foundation stones for our conversion to the Savior. And as President Russell M. Nelson recently reminded us, spiritual foundations must be constantly reinforced.[^3] Long-lasting conversion is a lifelong process.[^4] Conversion is our goal.
+That is the miracle we seek—when one person has an experience in the scriptures[^2] and that experience is blessed by the influence of the Holy Ghost. Such experiences are precious foundation stones for our conversion to the Savior. And as President Russell M. Nelson recently reminded us, spiritual foundations must be constantly reinforced.[^3] Long-lasting conversion is a lifelong process.[^4] Conversion is our goal.
 
 To be most effective, your experiences with the scriptures must be your own.[^5] Reading or hearing about another person’s experiences and insights can be helpful, but that won’t bring the same converting power. There is no substitute for the time *you* spend in the scriptures, hearing the Holy Ghost speak directly to *you*.
 
@@ -96,28 +98,28 @@ And then finally, from a mother of several children: “As we study the word of 
 
 These and many other faithful followers of Christ have symbolically placed the blood of the Lamb of God on the entrance to their homes. They are demonstrating their inward commitment to follow the Savior. Their faith precedes the miracle. It is the miracle of one person having an experience in the scriptures and that experience being blessed by the influence of the Holy Ghost.
 
-When we study the scriptures, there is no spiritual famine in the land. As Nephi said, “Whoso would hearken unto the word of God, and would hold fast unto it, they would never perish; neither could the temptations and the fiery darts of the adversary overpower them unto blindness, to lead them away to destruction” ([[1 Nephi 15.24|1 Nephi 15:24]]).
+When we study the scriptures, there is no spiritual famine in the land. As Nephi said, “Whoso would hearken unto the word of God, and would hold fast unto it, they would never perish; neither could the temptations and the fiery darts of the adversary overpower them unto blindness, to lead them away to destruction” ([[1 Nephi 15.24|1 Nephi 15:24]]).
 
 In ancient times, as the children of Israel followed the Lord’s direction given through the prophet Moses, they were blessed with safety and freedom. Today, as we follow the Lord’s direction given through our living prophet, President Nelson, we are equally blessed with conversion in our hearts and protection in our homes.
 
-I testify that Jesus Christ lives. This is His Church, restored to the earth through the Prophet Joseph Smith. President Russell M. Nelson is the Lord’s prophet today. I love and sustain him. In the name of Jesus Christ, amen.
+I testify that Jesus Christ lives. This is His Church, restored to the earth through the Prophet Joseph Smith. President Russell M. Nelson is the Lord’s prophet today. I love and sustain him. In the name of Jesus Christ, amen.
 
 
 
 
-[^1]: [Come, Follow Me—For Individuals and Families: Old Testament 2022](https://churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-old-testament-2022/intro?lang=eng&id=p1#p1), vii.
+[^1]: [Come, Follow Me—For Individuals and Families: Old Testament 2022](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-old-testament-2022/intro?lang=eng&id=p1#p1), vii.
 
-[^2]: “We are each responsible for our individual spiritual growth” (Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 8).
+[^2]: “We are each responsible for our individual spiritual growth” (Russell M. Nelson, “[[2018 October - Opening Remarks.md|Opening Remarks]],” *Ensign* or *Liahona*, Nov. 2018, 8).
 
-[^3]: See Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–96.
+[^3]: See Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–96.
 
 [^4]: This is an important reason why President Nelson has pleaded with us to “make time for the Lord! Make your own spiritual foundation firm and able to stand the test of time by doing those things that allow the Holy Ghost to be with you *always*” (“[[2021 October - Make Time for the Lord.md|Make Time for the Lord]],” *Liahona*, Nov. 2021, 120).
 
-[^5]: “Regardless of what others may say or do, no one can ever take away a witness borne to your heart and mind about what is true” (Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 95).
+[^5]: “Regardless of what others may say or do, no one can ever take away a witness borne to your heart and mind about what is true” (Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 95).
 
-[^6]: See Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 113–14. President Nelson repeated this invitation last April: “Your commitment to make your home your *primary* sanctuary of faith should *never* end. As faith and holiness decrease in this fallen world, your need for holy places will increase. I urge you to continue to make your home a truly holy place ‘and *be not moved*’ \[[[D&C 87.8|Doctrine and Covenants 87:8]]; emphasis added\] from that essential goal” (“[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 79).
+[^6]: See Russell M. Nelson, “[[2018 October - Becoming Exemplary Latter-day Saints.md|Becoming Exemplary Latter-day Saints]],” *Ensign* or *Liahona*, Nov. 2018, 113–14. President Nelson repeated this invitation last April: “Your commitment to make your home your *primary* sanctuary of faith should *never* end. As faith and holiness decrease in this fallen world, your need for holy places will increase. I urge you to continue to make your home a truly holy place ‘and *be not moved*’ \[[[D&C 87.8|Doctrine and Covenants 87:8]]; emphasis added\] from that essential goal” (“[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 79).
 
-[^7]: Personal correspondence; see also [[2 Nephi 25.26|2 Nephi 25:26]].
+[^7]: Personal correspondence; see also [[2 Nephi 25.26|2 Nephi 25:26]].
 
 [^8]: Personal correspondence.
 
@@ -137,8 +139,3 @@ I testify that Jesus Christ lives. This is His Church, restored to the earth thr
 
 [^16]: Personal correspondence.
 
-
-
-
-
-#Conversion #Holy_Ghost #Passover #Prophets #Scripture_Study

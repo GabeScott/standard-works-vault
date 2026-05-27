@@ -1,6 +1,8 @@
 # Becoming Exemplary Latter-day Saints
 
-By President Russell M. Nelson - *President of the Church*
+Russell M. Nelson
+
+By President Russell M. Nelson - *President of the Church*
 
 *Given in the October session of the 2018 General Conference*
 
@@ -41,12 +43,7 @@ I bless you with increased faith in Him and in His holy work, with faith and pat
 
 [^3]: See [[Mosiah 4.29|Mosiah 4:29]].
 
-[^4]: See Wilford Woodruff, “The Law of Adoption,” discourse delivered at the general conference of the Church, Apr. 8, 1894. President Woodruff said: “We have not got through \[with\] revelation. We have not got through \[with\] the work of God. … There will be no end to this work until it is perfected” (*Deseret Evening News,* Apr. 14, 1894, 9).
+[^4]: See Wilford Woodruff, “The Law of Adoption,” discourse delivered at the general conference of the Church, Apr. 8, 1894. President Woodruff said: “We have not got through \[with\] revelation. We have not got through \[with\] the work of God. … There will be no end to this work until it is perfected” (*Deseret Evening News,* Apr. 14, 1894, 9).
 
-[^5]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng) (2007), 142.
+[^5]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng) (2007), 142.
 
-
-
-
-
-#Curriculum #Family #Home #Temples

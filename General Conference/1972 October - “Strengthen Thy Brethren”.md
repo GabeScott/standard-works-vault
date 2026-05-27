@@ -1,6 +1,8 @@
 # “Strengthen Thy Brethren”
 
-By President Paul H. Dunn - *Of the First Council of the Seventy*
+N. Eldon Tanner
+
+By President Paul H. Dunn - *Of the First Council of the Seventy*
 
 *Given in the October session of the 1972 General Conference*
 
@@ -12,11 +14,11 @@ The other night I was somewhat amused as I looked through an evening copy of the
 
 I couldn’t help but think of that as I have listened to the real warning of the Lord and the counsel from his servants during these two great days.
 
-When the Lord appeared to the Nephites he said, “And again I say unto you, ye must repent, and be baptized in my name, and become as a little child, or ye can in nowise inherit the kingdom of God.” ([[3 Nephi 11.38|3 Ne. 11:38]].) That was his real warning.
+When the Lord appeared to the Nephites he said, “And again I say unto you, ye must repent, and be baptized in my name, and become as a little child, or ye can in nowise inherit the kingdom of God.” ([[3 Nephi 11.38|3 Ne. 11:38]].) That was his real warning.
 
-Just twenty-three years ago this fall, I entered Chapman College in Southern California as a student. I came under the wonderful influence of Dr. Guy M. Davis, philosopher, educator, and teacher. Twenty-three years later, just three weeks ago last Friday evening, I saw this magnificent man, with so brilliant a mind, become as a little child, as he entered the waters of baptism and became a member of the Church.
+Just twenty-three years ago this fall, I entered Chapman College in Southern California as a student. I came under the wonderful influence of Dr. Guy M. Davis, philosopher, educator, and teacher. Twenty-three years later, just three weeks ago last Friday evening, I saw this magnificent man, with so brilliant a mind, become as a little child, as he entered the waters of baptism and became a member of the Church.
 
-I thought of another scripture as I witnessed that baptism experience of my friend. The Lord, admonishing his chief apostle Peter, as Luke records it, gave this simple counsel and direction: “… when thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].) I pray the good bishop, the home teacher, the congregation of the ward to which Guy and his family have now been assigned will strengthen my brother.
+I thought of another scripture as I witnessed that baptism experience of my friend. The Lord, admonishing his chief apostle Peter, as Luke records it, gave this simple counsel and direction: “… when thou art converted, strengthen thy brethren.” ([[Luke 22.32|Luke 22:32]].) I pray the good bishop, the home teacher, the congregation of the ward to which Guy and his family have now been assigned will strengthen my brother.
 
 Permit a personal experience for just a moment. Strengthening one’s brother, I think, comes closer to home when we think of fellowshiping and friendshiping our family. Some time ago when my youngest daughter was faced with the reality of attending a different school, she looked forward to the new experience with great anticipation and excitement but with the usual anxieties and concerns. Her mom and dad tried to make her experience meaningful, and one that would be positive, and we spent several hours attempting to prepare her mind for the new experience. We even planned a time when we could shop for new clothes and other special school supplies.
 
@@ -55,8 +57,3 @@ I testify to the divinity of this church. It is true. I sustain President Lee as
 
 
 
-
-
-
-
-#Fellowshipping #Teaching

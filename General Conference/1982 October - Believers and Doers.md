@@ -1,6 +1,8 @@
 # Believers and Doers
 
-By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Mark E. Petersen - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1982 General Conference*
 
@@ -34,7 +36,7 @@ As one of our poets described it:
 
 Jesus the Savior is the supreme example of how we should build our souls.
 
-“What manner of men ought ye to be?” He asked, and then replied, “Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
+“What manner of men ought ye to be?” He asked, and then replied, “Even as I am.” ([[3 Nephi 27.27|3 Ne. 27:27]].)
 
 Becoming like Him is not something we can achieve overnight. It is a lifelong and an eternal process, nothing less. In every hour and every day we must strive to become like Him.
 
@@ -76,13 +78,13 @@ No man should quarrel with his wife or give her any cause to quarrel in return. 
 
 To be like the Savior we can hardly be without true charity, either. How did the Apostle Paul express it?
 
-“Though I speak with the tongues of men and of angels. …
+“Though I speak with the tongues of men and of angels. …
 
-“And though I have the gift of prophecy, and understand all mysteries, and all knowledge. …
+“And though I have the gift of prophecy, and understand all mysteries, and all knowledge. …
 
-“And though I bestow all my goods to feed the poor, and *though I give my body to be burned,* and have not charity \[and have not the love of Christ toward my family and other people\], it profiteth me nothing.” ([[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]]; italics added.)
+“And though I bestow all my goods to feed the poor, and *though I give my body to be burned,* and have not charity \[and have not the love of Christ toward my family and other people\], it profiteth me nothing.” ([[1 Corinthians 13.1|1 Cor. 13:1–3]][[1 Corinthians 13.2|]][[1 Corinthians 13.3|]]; italics added.)
 
-In fact, he says we would be *as* nothing, except of course that we would resemble sounding brass and tinkling cymbals. (See [[1 Corinthians 13.1|1 Cor. 13:1]].)
+In fact, he says we would be *as* nothing, except of course that we would resemble sounding brass and tinkling cymbals. (See [[1 Corinthians 13.1|1 Cor. 13:1]].)
 
 The Savior said, “Blessed are the pure in heart: for they shall see God.” ([[Matthew 5.8|Matt. 5:8]].)
 
@@ -90,7 +92,7 @@ Will any others see Him—or come into His presence? Can anything that is impure
 
 What did He say about impurity?
 
-“Touch not that which is unclean; … be ye clean that bear the vessels of the Lord.” ([[3 Nephi 20.41|3 Ne. 20:41]].) That is what He said, and that is what He meant.
+“Touch not that which is unclean; … be ye clean that bear the vessels of the Lord.” ([[3 Nephi 20.41|3 Ne. 20:41]].) That is what He said, and that is what He meant.
 
 It is a divine commandment. If you believe in Christ, touch not the unclean thing!
 
@@ -98,7 +100,7 @@ Lust and covetousness are completely destructive. Sex sin is deadly. Intoxicatio
 
 But what did He say about purity?
 
-He prayed that those who follow Him will be so purified by righteous living that they will be pure as He is pure, so that, as He said, “I may be in them as thou, Father, art in me, that we may be one, that I may be glorified in them.” ([[3 Nephi 19.29|3 Ne. 19:29]].) Think of it! If we are pure, our righteousness will add glory to His name!
+He prayed that those who follow Him will be so purified by righteous living that they will be pure as He is pure, so that, as He said, “I may be in them as thou, Father, art in me, that we may be one, that I may be glorified in them.” ([[3 Nephi 19.29|3 Ne. 19:29]].) Think of it! If we are pure, our righteousness will add glory to His name!
 
 And He taught something else. If we have offended others, we are to seek a reconciliation with them and not allow ill feelings to persist.
 
@@ -128,9 +130,9 @@ Do His simple laws seem overly strict? Are they too difficult for us to live? Bu
 
 It is inspiring to read the Lord’s own description of the traits which make up His own character. He lists them this way:
 
-“Faith, hope, charity and love, with an eye single to the glory of God. …
+“Faith, hope, charity and love, with an eye single to the glory of God. …
 
-“… virtue, knowledge, temperance, patience, brotherly kindness, godliness, charity, humility, diligence.” ([[D&C 4.5|D&C 4:5–6]][[D&C 4.6|]].)
+“… virtue, knowledge, temperance, patience, brotherly kindness, godliness, charity, humility, diligence.” ([[D&C 4.5|D&C 4:5–6]][[D&C 4.6|]].)
 
 These are the traits of character of the Lord Jesus Christ. How earnestly do we try to build them into our own souls?
 
@@ -167,8 +169,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Plan_Of_Salvation

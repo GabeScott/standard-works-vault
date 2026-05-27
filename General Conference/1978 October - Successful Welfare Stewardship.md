@@ -1,6 +1,8 @@
 # Successful Welfare Stewardship
 
-By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
+Spencer W. Kimball
+
+By Bishop J. Richard Clarke - *Second Counselor in the Presiding Bishopric*
 
 *Given in the October session of the 1978 General Conference*
 
@@ -10,7 +12,7 @@ Brothers and sisters, I am so thankful to be involved in the great welfare plan 
 
 We have come a long way since the early days of welfare, but we have an enormous distance yet to travel. With the great expansion of missionary work throughout the earth, the ministering to temporal needs will likewise expand. To meet this magnificent challenge successfully, we must be wise and faithful stewards.
 
-Modern scripture reminds us that all things belong to the Lord. He declared, “I, the Lord, stretched out the heavens, and built the earth, my very handiwork; and all things therein are mine, … all these properties. …
+Modern scripture reminds us that all things belong to the Lord. He declared, “I, the Lord, stretched out the heavens, and built the earth, my very handiwork; and all things therein are mine, … all these properties. …
 
 “And if the properties are mine, then ye are stewards.” ([[D&C 104.14|D&C 104:14, 55–56]][[D&C 104.55|]][[D&C 104.56|]].)
 
@@ -28,7 +30,7 @@ Second, a good steward operates efficiently. Two years ago, President Kimball sa
 
 “Do what you can to make our projects economically viable, so that we don’t rationalize that the welfare project is good simply … for the priesthood to labor side by side; we can have the brotherhood of labor and the economic efficiency too.” (*Ensign,* May 1976, pp. 125–26.)
 
-Addressing a welfare conference in 1960, President J. Reuben Clark, Jr., counseled:
+Addressing a welfare conference in 1960, President J. Reuben Clark, Jr., counseled:
 
 “It is my humble judgment today that it would be better for us never to have acquired a welfare project than to fail to take care of it now that we have it. The Lord will not hold us blameless, those of us who lead in the wards and the stakes, … if we take of the funds of the people, those sacred trust funds, and purchase projects and then do not utilize those projects as the Lord would have us.” (Welfare agricultural meeting, 4 Apr. 1960.)
 
@@ -59,5 +61,3 @@ My brothers and sisters, the Lord loves you for your devotion and untiring effor
 
 
 
-
-#Accountability #Welfare

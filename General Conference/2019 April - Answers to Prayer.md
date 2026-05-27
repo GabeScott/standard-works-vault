@@ -1,6 +1,8 @@
 # Answers to Prayer
 
-By Elder Brook P. Hales - *Of the Seventy*
+Ulisses Soares
+
+By Elder Brook P. Hales - *Of the Seventy*
 
 *Given in the April session of the 2019 General Conference*
 
@@ -68,9 +70,9 @@ I’ve known Pat for many years and recently told her that I admired the fact th
 
 In this case, Pat’s desire to regain her sight will not be granted in this life. But her motto, learned from her father, is “This too shall pass.”[^10]
 
-President Henry B. Eyring stated, “The Father is at this moment aware of you, your feelings, and the spiritual and temporal needs of everyone around you.”[^11] This great and comforting truth can be found in the three experiences I have recounted.
+President Henry B. Eyring stated, “The Father is at this moment aware of you, your feelings, and the spiritual and temporal needs of everyone around you.”[^11] This great and comforting truth can be found in the three experiences I have recounted.
 
-Brothers and sisters, sometimes our prayers are answered quickly with the outcome we hope for. Sometimes our prayers are not answered in the way we hope for, yet with time we learn that God had greater blessings prepared for us than we initially anticipated. And sometimes our righteous petitions to God will not be granted in this life.[^12] As Elder Neal A. Maxwell said, “Faith also includes trust in God’s timing.”[^13]
+Brothers and sisters, sometimes our prayers are answered quickly with the outcome we hope for. Sometimes our prayers are not answered in the way we hope for, yet with time we learn that God had greater blessings prepared for us than we initially anticipated. And sometimes our righteous petitions to God will not be granted in this life.[^12] As Elder Neal A. Maxwell said, “Faith also includes trust in God’s timing.”[^13]
 
 We have the assurance that in His own way and in His own time, Heavenly Father will bless us and resolve all of our concerns, injustices, and disappointments.
 
@@ -81,9 +83,9 @@ I know that God hears our prayers.[^15] I know that as an all-knowing, loving Fa
 
 
 
-[^1]: [[1 Nephi 11.17|1 Nephi 11:17]]; see also [[1 John 4.8|1 John 4:8]].
+[^1]: [[1 Nephi 11.17|1 Nephi 11:17]]; see also [[1 John 4.8|1 John 4:8]].
 
-[^2]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 93–96.
+[^2]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona,* May 2018, 93–96.
 
 [^3]: [[Matthew 6.8|Matthew 6:8]].
 
@@ -99,20 +101,15 @@ I know that God hears our prayers.[^15] I know that as an all-knowing, loving Fa
 
 [^9]: [[Genesis 45.5|Genesis 45:5–8]][[Genesis 45.6|]][[Genesis 45.7|]][[Genesis 45.8|]].
 
-[^10]: From a personal interview with Patricia Parkinson, Dec. 10, 2018.
+[^10]: From a personal interview with Patricia Parkinson, Dec. 10, 2018.
 
-[^11]: Henry B. Eyring, “[[2018 April - His Spirit to Be with You.md|His Spirit to Be with You]],” *Ensign* or *Liahona,* May 2018, 88.
+[^11]: Henry B. Eyring, “[[2018 April - His Spirit to Be with You.md|His Spirit to Be with You]],” *Ensign* or *Liahona,* May 2018, 88.
 
-[^12]: See Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 36–38; *Liahona,* Jan. 2000, 42–45.
+[^12]: See Jeffrey R. Holland, “[[1999 October - “An High Priest of Good Things to Come”.md|An High Priest of Good Things to Come]],” *Ensign,* Nov. 1999, 36–38; *Liahona,* Jan. 2000, 42–45.
 
-[^13]: Neal A. Maxwell, “[[1991 April - “Lest Ye Be Wearied and Faint in Your Minds”.md|Lest Ye Be Wearied and Faint in Your Minds]],” *Ensign,* May 1991, 90.
+[^13]: Neal A. Maxwell, “[[1991 April - “Lest Ye Be Wearied and Faint in Your Minds”.md|Lest Ye Be Wearied and Faint in Your Minds]],” *Ensign,* May 1991, 90.
 
 [^14]: [[Mosiah 2.41|Mosiah 2:41]].
 
 [^15]: See “[Power of Prayer](https://www.mormon.org/site/god/power-of-prayer),” mormon.org/beliefs/power-of-prayer.
 
-
-
-
-
-#Prayer

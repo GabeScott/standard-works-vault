@@ -1,5 +1,7 @@
 # The Clarion Call of Prophets
 
+Gordon B. Hinckley
+
 By Elder Shirley D. Christensen - *Of the Seventy*
 
 *Given in the October session of the 2003 General Conference*
@@ -18,7 +20,7 @@ We live in wonderful but perilous times. Throughout the earth, the fabric of nat
 
 As we consider the role of prophets, it is vital to understand that, first, prophets are called of God and He testifies to the world of their calling. The ancient book of Abraham describes an event that occurred in the premortal existence as God looked over the spirits He had created: “And God saw these souls that they were good, and he stood in the midst of them, and he said: These I will make my rulers; for he stood among those that were spirits, and he saw that they were good; and he said unto me: Abraham, thou art one of them; thou wast chosen before thou wast born” ([[Abraham 3.23|Abraham 3:23]]).
 
-Of Samuel, the Old Testament prophet, the scriptures record that “Samuel grew, and the Lord was with him, and did let none of his words fall to the ground. And all Israel from Dan even to Beer-sheba knew that Samuel was established to be a prophet of the Lord” ([[1 Samuel 3.19|1 Samuel 3:19–20]][[1 Samuel 3.20|]]).
+Of Samuel, the Old Testament prophet, the scriptures record that “Samuel grew, and the Lord was with him, and did let none of his words fall to the ground. And all Israel from Dan even to Beer-sheba knew that Samuel was established to be a prophet of the Lord” ([[1 Samuel 3.19|1 Samuel 3:19–20]][[1 Samuel 3.20|]]).
 
 The Book of Mormon quotes the Savior in ancient America when He emphasized the value of Isaiah’s Old Testament prophecies:
 
@@ -26,9 +28,9 @@ The Book of Mormon quotes the Savior in ancient America when He emphasized the v
 
 “For surely he spake as touching all things concerning my people which are of the house of Israel; …
 
-“And all things that he spake have been and shall be, even according to the words which he spake. …
+“And all things that he spake have been and shall be, even according to the words which he spake. …
 
-“… Search the prophets, for many there be that testify of these things” ([[3 Nephi 23.1|3 Nephi 23:1–3, 5]][[3 Nephi 23.2|]][[3 Nephi 23.3|]][[3 Nephi 23.5|]]).
+“… Search the prophets, for many there be that testify of these things” ([[3 Nephi 23.1|3 Nephi 23:1–3, 5]][[3 Nephi 23.2|]][[3 Nephi 23.3|]][[3 Nephi 23.5|]]).
 
 Second, the role of prophets is to teach of Christ and testify of His divinity and His mission. Adam, the first prophet, with his wife, Eve, heard the voice of the Lord and initiated the pattern for the dispensations that would follow. Of that momentous event it is recorded that “Adam blessed God and was filled, and began to prophesy concerning all the families of the earth, saying: Blessed be the name of God, for because of my transgression my eyes are opened, and in this life I shall have joy, and again in the flesh I shall see God.
 
@@ -50,15 +52,15 @@ The third characteristic of prophets is that their teachings are recorded and ar
 
 The Lord’s living prophets today have given an equally compelling testimony when in 1995 they testified to the world of the sacred nature of marriage and the family:
 
-“We, the First Presidency and the Council of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints, solemnly proclaim that marriage between a man and a woman is ordained of God and that the family is central to the Creator’s plan for the eternal destiny of His children. …
+“We, the First Presidency and the Council of the Twelve Apostles of The Church of Jesus Christ of Latter-day Saints, solemnly proclaim that marriage between a man and a woman is ordained of God and that the family is central to the Creator’s plan for the eternal destiny of His children. …
 
-“We declare the means by which mortal life is created to be divinely appointed. We affirm the sanctity of life and of its importance in God’s eternal plan. …
+“We declare the means by which mortal life is created to be divinely appointed. We affirm the sanctity of life and of its importance in God’s eternal plan. …
 
 “We call upon responsible citizens and officers of government everywhere to promote those measures designed to maintain and strengthen the family as the fundamental unit of society” (“The Family: A Proclamation to the World,” *Liahona,* Oct. 1998, 24; *Ensign,* Nov. 1995, 102).
 
 Later they also gave their personal witness, as the Lord’s Apostles, to the mission of Jesus Christ:
 
-“We solemnly testify that His life, which is central to all human history, neither began in Bethlehem nor concluded on Calvary. He was the Firstborn of the Father, the Only Begotten Son in the flesh, the Redeemer of the world. …
+“We solemnly testify that His life, which is central to all human history, neither began in Bethlehem nor concluded on Calvary. He was the Firstborn of the Father, the Only Begotten Son in the flesh, the Redeemer of the world. …
 
 “We testify that He will someday return to earth. … He will rule as King of Kings and reign as Lord of Lords, and every knee shall bend and every tongue shall speak in worship before Him. Each of us will stand to be judged of Him according to our works and the desires of our hearts” (“The Living Christ: The Testimony of the Apostles,” *Liahona* and *Ensign,* Apr. 2000, 2–3).
 
@@ -67,8 +69,3 @@ At their very core, the doctrines of The Church of Jesus Christ of Latter-day Sa
 
 
 
-
-
-
-
-#Jesus_Christ #Prophets #Teaching #Testimony

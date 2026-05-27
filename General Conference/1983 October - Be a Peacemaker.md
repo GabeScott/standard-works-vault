@@ -1,6 +1,8 @@
 # Be a Peacemaker
 
-By Elder Franklin D. Richards - *Of the First Quorum of the Seventy*
+Gordon B. Hinckley
+
+By Elder Franklin D. Richards - *Of the First Quorum of the Seventy*
 
 *Given in the October session of the 1983 General Conference*
 
@@ -94,15 +96,10 @@ Brothers and sisters, it is important to appreciate that the gospel has to be li
 
 I bear you my testimony that peace can be enjoyed by individuals, families, and society in general, as well as by nations as we live the principles of the restored gospel of Jesus Christ.
 
-I rejoice in my knowledge that God the Father and his Son, Jesus Christ, live and appeared to the Prophet Joseph Smith, and that through the instrumentality of the Prophet Joseph Smith the fulness of the gospel of Jesus Christ and the power to act in the name of God has been restored and the Church reestablished on the earth and, further, that President Spencer W. Kimball is a living prophet. May the Lord’s choicest blessings be with him and may we have the courage and good judgment to follow his counsel and advice.
+I rejoice in my knowledge that God the Father and his Son, Jesus Christ, live and appeared to the Prophet Joseph Smith, and that through the instrumentality of the Prophet Joseph Smith the fulness of the gospel of Jesus Christ and the power to act in the name of God has been restored and the Church reestablished on the earth and, further, that President Spencer W. Kimball is a living prophet. May the Lord’s choicest blessings be with him and may we have the courage and good judgment to follow his counsel and advice.
 
 May each of us in our daily lives assume the role of peacemaker that we may enjoy the peace that surpasseth all understanding, I pray in the name of Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Peace

@@ -1,4 +1,3 @@
 # Hebron
 
-
-*See* [BD Hebron](https://www.churchofjesuschrist.org/study/scriptures/bd/hebron?lang=eng)
+*See also* [[BD Hebron.md|BD Hebron]]

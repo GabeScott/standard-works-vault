@@ -1,11 +1,10 @@
 # Upright
 
-
-*See also* [[Correct.md|Correct]]; [[Honesty.md|Honesty]]; [[Just.md|Just]]; [[Perfection, Perfect, Perfectly.md|Perfection]]; [[Righteous.md|Righteous]]; [[True.md|True]]; [[Uprightly.md|Uprightly]]; [[Uprightness.md|Uprightness]]
+*See also* [[Correct.md|Correct]]; [[Honesty.md|Honesty]]; [[Just.md|Just]]; [[Perfection.md|Perfection]]; [[Righteous.md|Righteous]]; [[True.md|True]]; [[Uprightly.md|Uprightly]]; [[Uprightness.md|Uprightness]]
 
 Levites were more *upright* in heart, [[2 Chronicles 29.34|2 Chronicles 29:34]].
 
-Job ... was perfect and *upright*, [[Job 1.1|Job 1:1]].
+Job … was perfect and *upright*, [[Job 1.1|Job 1:1]].
 
 *upright* shall dwell in the land, [[Proverbs 2.21|Proverbs 2:21]].
 

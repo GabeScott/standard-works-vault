@@ -1,5 +1,7 @@
 # Love All; Love Each
 
+Dallin H. Oaks
+
 By Elder Gérald Caussé - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2026 General Conference*
@@ -87,7 +89,7 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 [^2]: [[Psalms 8.3|Psalm 8:3–4]][[Psalms 8.4|]].
 
-[^3]: [[Psalms 8.5|Psalm 8:5]]; see also [[1 Nephi 11.17|1 Nephi 11:17]]; [[Moses 1.24|Moses 1:24–39]][[Moses 1.25|]][[Moses 1.26|]][[Moses 1.27|]][[Moses 1.28|]][[Moses 1.29|]][[Moses 1.30|]][[Moses 1.31|]][[Moses 1.32|]][[Moses 1.33|]][[Moses 1.34|]][[Moses 1.35|]][[Moses 1.36|]][[Moses 1.37|]][[Moses 1.38|]][[Moses 1.39|]].
+[^3]: [[Psalms 8.5|Psalm 8:5]]; see also [[1 Nephi 11.17|1 Nephi 11:17]]; [[Moses 1.24|Moses 1:24–39]][[Moses 1.25|]][[Moses 1.26|]][[Moses 1.27|]][[Moses 1.28|]][[Moses 1.29|]][[Moses 1.30|]][[Moses 1.31|]][[Moses 1.32|]][[Moses 1.33|]][[Moses 1.34|]][[Moses 1.35|]][[Moses 1.36|]][[Moses 1.37|]][[Moses 1.38|]][[Moses 1.39|]].
 
 [^4]: See Gérald Caussé, “[We Are the Architects of Our Own Happiness](https://www.churchofjesuschrist.org/study/broadcasts/article/ces-devotionals/2012/01/we-are-the-architects-of-our-own-happiness?lang=eng&id=p27-p34#p27)” (Church Educational System devotional for young adults, Nov. 4, 2012), Gospel Library.
 
@@ -99,7 +101,7 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 [^8]: See Neal A. Maxwell, “[[2002 October - Encircled in the Arms of His Love.md|Encircled in the Arms of His Love]],” *Liahona*, Nov. 2002, 18; emphasis added.
 
-[^9]: [[Mosiah 27.30|Mosiah 27:30]], emphasis added; see also [[Deuteronomy 33.3|Deuteronomy 33:3]]; [[Mark 16.15|Mark 16:15]]; [[Luke 4.40|Luke 4:40]]; [[John 6.45|John 6:45]]; [[Romans 14.10|Romans 14:10–12]][[Romans 14.11|]][[Romans 14.12|]]; [[2 Corinthians 5.10|2 Corinthians 5:10]]; [[Ephesians 4.6|Ephesians 4:6–7]][[Ephesians 4.7|]]; [[1 Nephi 19.17|1 Nephi 19:17]]; [[2 Nephi 9.21|2 Nephi 9:21]]; [[Mosiah 16.1|Mosiah 16:1]]; [[Mosiah 27.31|27:31]]; [[Alma 26.37|Alma 26:37]]; [[Mormon 3.20|Mormon 3:20]]; [[Mormon 9.22|9:22]]; [[D&C 18.28|Doctrine and Covenants 18:28]]; [[D&C 58.64|58:64]].
+[^9]: [[Mosiah 27.30|Mosiah 27:30]], emphasis added; see also [[Deuteronomy 33.3|Deuteronomy 33:3]]; [[Mark 16.15|Mark 16:15]]; [[Luke 4.40|Luke 4:40]]; [[John 6.45|John 6:45]]; [[Romans 14.10|Romans 14:10–12]][[Romans 14.11|]][[Romans 14.12|]]; [[2 Corinthians 5.10|2 Corinthians 5:10]]; [[Ephesians 4.6|Ephesians 4:6–7]][[Ephesians 4.7|]]; [[1 Nephi 19.17|1 Nephi 19:17]]; [[2 Nephi 9.21|2 Nephi 9:21]]; [[Mosiah 16.1|Mosiah 16:1]]; [[Mosiah 27.31|27:31]]; [[Alma 26.37|Alma 26:37]]; [[Mormon 3.20|Mormon 3:20]]; [[Mormon 9.22|9:22]]; [[D&C 18.28|Doctrine and Covenants 18:28]]; [[D&C 58.64|58:64]].
 
 [^10]: See Gérald Caussé, “[[2025 April - Compensating Blessings.md|Compensating Blessings]],” *Liahona*, May 2025, 95.
 
@@ -121,7 +123,7 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 [^19]: See [[John 4.5|John 4:5–29]][[John 4.6|]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]][[John 4.16|]][[John 4.17|]][[John 4.18|]][[John 4.19|]][[John 4.20|]][[John 4.21|]][[John 4.22|]][[John 4.23|]][[John 4.24|]][[John 4.25|]][[John 4.26|]][[John 4.27|]][[John 4.28|]][[John 4.29|]].
 
-[^20]: See [[Matthew 18.1|Matthew 18:1–5]][[Matthew 18.2|]][[Matthew 18.3|]][[Matthew 18.4|]][[Matthew 18.5|]]; [[Mark 9.36|Mark 9:36–37]][[Mark 9.37|]]; [[Luke 9.47|Luke 9:47–48]][[Luke 9.48|]]; [[3 Nephi 17.21|3 Nephi 17:21–24]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]].
+[^20]: See [[Matthew 18.1|Matthew 18:1–5]][[Matthew 18.2|]][[Matthew 18.3|]][[Matthew 18.4|]][[Matthew 18.5|]]; [[Mark 9.36|Mark 9:36–37]][[Mark 9.37|]]; [[Luke 9.47|Luke 9:47–48]][[Luke 9.48|]]; [[3 Nephi 17.21|3 Nephi 17:21–24]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]].
 
 [^21]: See Neal A. Maxwell, “[[2002 October - Encircled in the Arms of His Love.md|Encircled in the Arms of His Love]],” 18.
 
@@ -129,5 +131,3 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 [^23]: “His Eye Is on the Sparrow,” *Hymns for Home and Church*, Gospel Library.
 
-
-#Individual_Worth #Love

@@ -1,6 +1,8 @@
 # “A Brother Offended”
 
-By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
+Spencer W. Kimball
+
+By Elder Neal A. Maxwell - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1982 General Conference*
 
@@ -48,7 +50,7 @@ Quickly forgotten by those who are offended is the fact that the Church is “fo
 
 Likewise, unremembered by some is the reality that in the kingdom we are each other’s clinical material; the Lord allows us to practice on each other, even in our imperfections. And each of us knows what it is like to be worked on by a “student” rather than a senior surgeon. Each of us, however unintentionally, has also inflicted some pain.
 
-Often unallowed for, too, are the differing styles of leadership we experience in the kingdom. Paul was thoughtfully sensitive to the need not to offend weak members by eating meat (see [[1 Corinthians 8.13|1 Cor. 8:13]]), while John the Baptist’s diet of locusts and wild honey may not have proven contagious—surely not with Jerusalem’s country club set.
+Often unallowed for, too, are the differing styles of leadership we experience in the kingdom. Paul was thoughtfully sensitive to the need not to offend weak members by eating meat (see [[1 Corinthians 8.13|1 Cor. 8:13]]), while John the Baptist’s diet of locusts and wild honey may not have proven contagious—surely not with Jerusalem’s country club set.
 
 It is our individual and constant responsibility to avoid “looking beyond the mark.” ([[Jacob 4.14|Jacob 4:14]].) My focus is my responsibility! What is most to be focused on—the fact that Peter walked briefly on the water or that he did not continue? Has any other mortal so walked, even that briefly?
 
@@ -66,7 +68,7 @@ Besides, if the choice is between reforming other Church members or ourselves, i
 
 People who spend their time searching for feet of clay will miss not only the heavens wherein God moves in His majesty and power, but God’s majesty as He improves and shapes a soul.
 
-So in the give-and-take in the kingdom, we jostle and are jostled. Offenses will come. (See [[Matthew 18.7|Matt. 18:7]].) Once ego is unwisely committed, no cause seems too trivial for some. In a dispute over milk, Thomas B. Marsh soon let himself become offended at the Prophet Joseph.
+So in the give-and-take in the kingdom, we jostle and are jostled. Offenses will come. (See [[Matthew 18.7|Matt. 18:7]].) Once ego is unwisely committed, no cause seems too trivial for some. In a dispute over milk, Thomas B. Marsh soon let himself become offended at the Prophet Joseph.
 
 Lorenzo Snow, Marsh’s contemporary, said that while he, too, noticed some minor imperfections in the Prophet Joseph, he was grateful that the Lord could use Joseph Smith for so very significant a work. Thus, there might be some hope for him, Lorenzo Snow. Indeed, there was hope for President Snow, who viewed others charitably, as if through the “windows of heaven.”
 
@@ -102,7 +104,7 @@ Likewise, I appeal to us all to consider anew this counsel from Jesus: “Moreov
 
 Let us all take extra care to avoid both giving and taking offense.
 
-Let us be loving, kind, and forgiving—helping these friends to become, as Peter and Paul said, grounded, rooted, established, and settled! (See [[Ephesians 3.17|Eph. 3:17]]; [[1 Peter 5.10|1 Pet. 5:10]].) “The time is far spent.” (*Hymns,* no. 184.)
+Let us be loving, kind, and forgiving—helping these friends to become, as Peter and Paul said, grounded, rooted, established, and settled! (See [[Ephesians 3.17|Eph. 3:17]]; [[1 Peter 5.10|1 Pet. 5:10]].) “The time is far spent.” (*Hymns,* no. 184.)
 
 Savor these words quoted by a magnanimous and forgiving Prophet Joseph Smith to a repentant and returning W. W. Phelps:
 
@@ -115,5 +117,3 @@ Such is my counsel, brethren. Such is my prayer. It is given in the name of Him 
 
 
 
-
-#Activation #Offense

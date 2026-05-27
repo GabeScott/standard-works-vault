@@ -1,5 +1,7 @@
 # I Glory in My Jesus
 
+Dallin H. Oaks
+
 By Elder Aaron T. Hall - *Of the Seventy*
 
 *Given in the April session of the 2026 General Conference*
@@ -69,7 +71,7 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 
 
-[^1]: [[2 Nephi 33.6|2 Nephi 33:6]].
+[^1]: [[2 Nephi 33.6|2 Nephi 33:6]].
 
 [^2]: See [[D&C 35.2|Doctrine and Covenants 35:2]].
 
@@ -79,19 +81,19 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^5]: The Hebrew meaning of the name *Jesus* is “Jehovah saves” or “Jehovah is salvation” (see [[Matthew 1.21|Matthew 1:21]]; [New Testament Student Manual](https://www.churchofjesuschrist.org/study/manual/new-testament-student-manual/introduction-to-matthew/chapter-2?lang=eng&id=p14#p14) \[2018\], 14).
 
-[^6]: [[2 Nephi 31.21|2 Nephi 31:21]].
+[^6]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
-[^7]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^7]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^8]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^8]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^9]: [[2 Nephi 4.20|2 Nephi 4:20]].
+[^9]: [[2 Nephi 4.20|2 Nephi 4:20]].
 
-[^10]: [[2 Nephi 4.21|2 Nephi 4:21]].
+[^10]: [[2 Nephi 4.21|2 Nephi 4:21]].
 
-[^11]: [[2 Nephi 4.34|2 Nephi 4:34]].
+[^11]: [[2 Nephi 4.34|2 Nephi 4:34]].
 
-[^12]: [[2 Nephi 31.19|2 Nephi 31:19]].
+[^12]: [[2 Nephi 31.19|2 Nephi 31:19]].
 
 [^13]: See [[Mosiah 28.4|Mosiah 28:4]].
 
@@ -117,11 +119,11 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^24]: See [[Alma 5.60|Alma 5:60]].
 
-[^25]: See [[3 Nephi 10.6|3 Nephi 10:6]].
+[^25]: See [[3 Nephi 10.6|3 Nephi 10:6]].
 
 [^26]: See [[Luke 19.10|Luke 19:10]].
 
-[^27]: See [[2 Nephi 26.24|2 Nephi 26:24]].
+[^27]: See [[2 Nephi 26.24|2 Nephi 26:24]].
 
 [^28]: See Patrick Kearon, “[[2024 April - God’s Intent Is to Bring You Home.md|God’s Intent Is to Bring You Home]],” *Liahona*, May 2024, 87–89.
 
@@ -131,7 +133,7 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^31]: See [[Psalms 46.10|Psalm 46:10]].
 
-[^32]: See [[2 Nephi 1.15|2 Nephi 1:15]].
+[^32]: See [[2 Nephi 1.15|2 Nephi 1:15]].
 
 [^33]: See [[D&C 45.3|Doctrine and Covenants 45:3]].
 
@@ -149,7 +151,7 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^40]: See [[Romans 11.26|Romans 11:26]].
 
-[^41]: See [[2 Nephi 9.10|2 Nephi 9:10]].
+[^41]: See [[2 Nephi 9.10|2 Nephi 9:10]].
 
 [^42]: See [[Alma 7.11|Alma 7:11]].
 
@@ -171,5 +173,3 @@ Brothers and sisters, “Who can glory too much in the Lord?”! I joyfully test
 
 [^51]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” Gospel Library.
 
-
-#Atonement_Of_Jesus_Christ #Jesus_Christ #Joy #Love #Mercy

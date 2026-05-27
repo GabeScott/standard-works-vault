@@ -1,5 +1,7 @@
 # “An High Priest of Good Things to Come”
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1999 General Conference*
@@ -87,8 +89,3 @@ I testify that God lives, that He is our Eternal Father, that He loves each of u
 
 [^15]: [[D&C 81.5|D&C 81:5]].
 
-
-
-
-
-#Adversity #Children #Faith #Health #Hope #Jesus_Christ #Missionary_Work #Trust

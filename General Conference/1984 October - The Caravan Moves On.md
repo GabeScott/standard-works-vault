@@ -1,5 +1,7 @@
 # The Caravan Moves On
 
+Gordon B. Hinckley
+
 By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1984 General Conference*
@@ -8,7 +10,7 @@ By Elder Bruce R. McConkie - *Of the Quorum of the Twelve Apostles*
 
 I propose some simple tests that all of us may take to determine if we are true to the faith. They consist of a few basic questions, all of which must be answered correctly in order to gain the full blessings of the gospel in this life and inherit eternal life in the realms ahead.
 
-Our well-beloved brother Paul, an Apostle of old, counsels us in these words: “Examine yourselves, whether ye be in the faith; prove your own selves.” ([[2 Corinthians 13.5|2 Cor. 13:5]].)
+Our well-beloved brother Paul, an Apostle of old, counsels us in these words: “Examine yourselves, whether ye be in the faith; prove your own selves.” ([[2 Corinthians 13.5|2 Cor. 13:5]].)
 
 And we may well ask ourselves: Do we believe all of the doctrines of salvation? Are we keeping the commandments? Are we valiant in the cause of truth and righteousness? Will we be saved in the kingdom of God?
 
@@ -32,9 +34,9 @@ There is no salvation in a system of religion that rejects the doctrine of the F
 
 True believers know that this earth and man and all forms of life were created in an Edenic, or paradisiacal, state in which there was no mortality, no procreation, no death.
 
-In that primeval day Adam and Eve were “in a state of innocence, having no joy, for they knew no misery; doing no good, for they knew no sin.” ([[2 Nephi 2.23|2 Ne. 2:23]].)
+In that primeval day Adam and Eve were “in a state of innocence, having no joy, for they knew no misery; doing no good, for they knew no sin.” ([[2 Nephi 2.23|2 Ne. 2:23]].)
 
-But in the providences of the Lord, “Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
+But in the providences of the Lord, “Adam fell that men might be; and men are, that they might have joy.” ([[2 Nephi 2.25|2 Ne. 2:25]].)
 
 By his fall, Adam introduced temporal and spiritual death into the world and caused this earth life to become a probationary estate.
 
@@ -42,7 +44,7 @@ By his fall, Adam introduced temporal and spiritual death into the world and cau
 
 As to this question, I give my own personal answer. It is:
 
-I know that my Redeemer lives; with Job I testify. What though the ravages of disease destroy my body; what though I am slain by the sword of death—yet I know that he who bought me with his blood shall soon reign on earth and that “in my flesh shall I see God.” ([[Job 19.26|Job 19:26]]; see also [[Job 19.25|v. 25]].)
+I know that my Redeemer lives; with Job I testify. What though the ravages of disease destroy my body; what though I am slain by the sword of death—yet I know that he who bought me with his blood shall soon reign on earth and that “in my flesh shall I see God.” ([[Job 19.26|Job 19:26]]; see also [[Job 19.25|v. 25]].)
 
 I am a witness that he was lifted up upon the cross of Calvary; that he was crucified, died, and rose again the third day; that he ascended into heaven, where, sitting on the right hand of God, the Father Almighty, he now reigns in everlasting glory; and that he will soon come again among the sons of men.
 
@@ -90,19 +92,19 @@ I, for one, want to seek counsel, and authority, and blessings constantly from t
 
 *Test eight: Am I enduring to the end, growing in grace, and gaining the attributes of godliness?*
 
-That is to say: Am I growing in faith, virtue, knowledge, temperance, patience, godliness, brotherly kindness, and charity—as Peter exhorted? (See [[2 Peter 1.5|2 Pet. 1:5–7]][[2 Peter 1.6|]][[2 Peter 1.7|]].)
+That is to say: Am I growing in faith, virtue, knowledge, temperance, patience, godliness, brotherly kindness, and charity—as Peter exhorted? (See [[2 Peter 1.5|2 Pet. 1:5–7]][[2 Peter 1.6|]][[2 Peter 1.7|]].)
 
 Am I working out my salvation with fear and trembling before the Lord—as Paul counseled? (See [[Philippians 2.12|Philip. 2:12]].)
 
-Am I walking in the light, as God is in the light, enjoying fellowship with the Saints, so that “the blood of Jesus Christ his Son” will cleanse me from all sin—as John promised? ([[1 John 1.7|1 Jn. 1:7]].)
+Am I walking in the light, as God is in the light, enjoying fellowship with the Saints, so that “the blood of Jesus Christ his Son” will cleanse me from all sin—as John promised? ([[1 John 1.7|1 Jn. 1:7]].)
 
-Am I pressing forward “with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men, … feasting upon the word of Christ” and enduring to the end—as Nephi taught? ([[2 Nephi 31.20|2 Ne. 31:20]].)
+Am I pressing forward “with a steadfastness in Christ, having a perfect brightness of hope, and a love of God and of all men, … feasting upon the word of Christ” and enduring to the end—as Nephi taught? ([[2 Nephi 31.20|2 Ne. 31:20]].)
 
 Do I have a special and holy love for the Saints, thus identifying me as a true disciple—according to the word of the Lord Jesus? (See [[John 13.35|John 13:35]].)
 
 *Test nine: Do I put first in my life the things of God’s kingdom? Is it with me and mine the kingdom of God or nothing?*
 
-President Brigham Young—of blessed memory who now reigns in heavenly courts—devised this rallying cry: “The Kingdom of God or nothing.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 444; see also *Journal of Discourses,* 11:249.)
+President Brigham Young—of blessed memory who now reigns in heavenly courts—devised this rallying cry: “The Kingdom of God or nothing.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 444; see also *Journal of Discourses,* 11:249.)
 
 It was echoed by his associates and might well be revived among us.
 
@@ -126,7 +128,7 @@ There is, in fact, no such thing as neutrality where the gospel is concerned.
 
 Jesus said: “He that is not with me is against me; and he that gathered not with me scattereth abroad.” ([[Matthew 12.30|Matt. 12:30]].)
 
-And it was Jacob who said: “They who are not for me are against me, saith our God.” ([[2 Nephi 10.16|2 Ne. 10:16]].)
+And it was Jacob who said: “They who are not for me are against me, saith our God.” ([[2 Nephi 10.16|2 Ne. 10:16]].)
 
 If we do not sustain and uphold and support the kingdom of God in all things, we are thereby aiding a cause other than the Lord’s.
 
@@ -157,8 +159,3 @@ In the name of the Lord Jesus Christ, amen.
 
 
 
-
-
-
-
-#Church_Growth #Faith #Opposition #Plan_Of_Salvation #Truth

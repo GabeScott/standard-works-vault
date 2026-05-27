@@ -1,6 +1,5 @@
 # Ingratitude
 
-
 *See also* [[Thanksgiving.md|Thanksgiving]]
 
 chief butler remember Joseph, but *forgat* him, [[Genesis 40.23|Genesis 40:23]].
@@ -30,5 +29,3 @@ how you ought to *thank* your heavenly King, [[Mosiah 2.19|Mosiah 2:19]].
 give *thanks* unto God in the Spirit, [[D&C 46.32|D&C 46:32]].
 
 wrath kindled, save those who *confess* not his hand, [[D&C 59.21|D&C 59:21]].
-
-*See also* [[Numbers 16.2|Numbers 16:2]]; [[1 Kings 11.6|1 Kings 11:6]]; [[Hosea 11.7|Hosea 11:7]]; [[Matthew 18.33|Matthew 18:33]]; [[Luke 17.10|Luke 17:10]]; [[Alma 38.14|Alma 38:14]].

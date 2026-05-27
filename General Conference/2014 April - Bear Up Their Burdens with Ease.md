@@ -1,6 +1,8 @@
 # Bear Up Their Burdens with Ease
 
-By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
+Thomas S. Monson
+
+By Elder David A. Bednar - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2014 General Conference*
 
@@ -46,7 +48,7 @@ A yoke is a wooden beam, normally used between a pair of oxen or other animals t
 
 Consider the Lord’s uniquely individual invitation to “take my yoke upon you.” Making and keeping sacred covenants yokes us to and with the Lord Jesus Christ. In essence, the Savior is beckoning us to rely upon and pull together with Him, even though our best efforts are not equal to and cannot be compared with His. As we trust in and pull our load with Him during the journey of mortality, truly His yoke is easy and His burden is light.
 
-We are not and never need be alone. We can press forward in our daily lives with heavenly help. Through the Savior’s Atonement we can receive capacity and “strength beyond \[our\] own” (“Lord, I Would Follow Thee,” *Hymns,* no. 220). As the Lord declared, “Therefore, continue your journey and let your hearts rejoice; for behold, and lo, I am with you even unto the end” ([[D&C 100.12|D&C 100:12]]).
+We are not and never need be alone. We can press forward in our daily lives with heavenly help. Through the Savior’s Atonement we can receive capacity and “strength beyond \[our\] own” (“Lord, I Would Follow Thee,” *Hymns,* no. 220). As the Lord declared, “Therefore, continue your journey and let your hearts rejoice; for behold, and lo, I am with you even unto the end” ([[D&C 100.12|D&C 100:12]]).
 
 Consider the example in the Book of Mormon as Amulon persecuted Alma and his people. The voice of the Lord came to these disciples in their afflictions: “Lift up your heads and be of good comfort, for I know of the covenant which ye have made unto me; and I will covenant with my people and deliver them out of bondage” ([[Mosiah 24.13|Mosiah 24:13]]).
 
@@ -86,12 +88,10 @@ For my friend, the load of wood provided life-saving traction. The empty truck c
 
 It was the load. It was the load that provided the traction that enabled my friend to get unstuck, to get back on the road, to press forward, and to return to his family.
 
-The unique burdens in each of our lives help us to rely upon the merits, mercy, and grace of the Holy Messiah (see [[2 Nephi 2.8|2 Nephi 2:8]]). I testify and promise the Savior will help us to bear up our burdens with ease (see [[Mosiah 24.15|Mosiah 24:15]]). As we are yoked with Him through sacred covenants and receive the enabling power of His Atonement in our lives, we increasingly will seek to understand and live according to His will. We also will pray for the strength to learn from, change, or accept our circumstances rather than praying relentlessly for God to change our circumstances according to our will. We will become agents who act rather than objects that are acted upon (see [[2 Nephi 2.14|2 Nephi 2:14]]). We will be blessed with spiritual traction.
+The unique burdens in each of our lives help us to rely upon the merits, mercy, and grace of the Holy Messiah (see [[2 Nephi 2.8|2 Nephi 2:8]]). I testify and promise the Savior will help us to bear up our burdens with ease (see [[Mosiah 24.15|Mosiah 24:15]]). As we are yoked with Him through sacred covenants and receive the enabling power of His Atonement in our lives, we increasingly will seek to understand and live according to His will. We also will pray for the strength to learn from, change, or accept our circumstances rather than praying relentlessly for God to change our circumstances according to our will. We will become agents who act rather than objects that are acted upon (see [[2 Nephi 2.14|2 Nephi 2:14]]). We will be blessed with spiritual traction.
 
-May each of us do and become better through the Savior’s Atonement. Today is April 6. We know by revelation that today is the actual and accurate date of the Savior’s birth. April 6 also is the day on which The Church of Jesus Christ of Latter-day Saints was organized. (See [[D&C 20.1|D&C 20:1]]; Harold B. Lee, “Strengthen the Stakes of Zion,” *Ensign,* July 1973, 2; Spencer W. Kimball, “Why Call Me Lord, Lord, and Do Not the Things Which I Say?” *Ensign,* May 1975, 4; Spencer W. Kimball, “Remarks and Dedication of the Fayette, New York, Buildings,” *Ensign,* May 1980, 54; *Discourses of President Gordon B. Hinckley, Volume 1: 1995–1999* \[2005\], 409.) On this special and sacred Sabbath day, I declare my witness that Jesus the Christ is our Redeemer. He lives and will cleanse, heal, guide, protect, and strengthen us. Of these things I joyfully testify in the sacred name of Jesus Christ, amen.
-
-
+May each of us do and become better through the Savior’s Atonement. Today is April 6. We know by revelation that today is the actual and accurate date of the Savior’s birth. April 6 also is the day on which The Church of Jesus Christ of Latter-day Saints was organized. (See [[D&C 20.1|D&C 20:1]]; Harold B. Lee, “Strengthen the Stakes of Zion,” *Ensign,* July 1973, 2; Spencer W. Kimball, “Why Call Me Lord, Lord, and Do Not the Things Which I Say?” *Ensign,* May 1975, 4; Spencer W. Kimball, “Remarks and Dedication of the Fayette, New York, Buildings,” *Ensign,* May 1980, 54; *Discourses of President Gordon B. Hinckley, Volume 1: 1995–1999* \[2005\], 409.) On this special and sacred Sabbath day, I declare my witness that Jesus the Christ is our Redeemer. He lives and will cleanse, heal, guide, protect, and strengthen us. Of these things I joyfully testify in the sacred name of Jesus Christ, amen.
 
 
 
-#Adversity #Atonement #Jesus_Christ
+

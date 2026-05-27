@@ -1,6 +1,8 @@
 # He That Shall Endure unto the End, the Same Shall Be Saved
 
-By Elder Claudio D. Zivic - *Of the Seventy*
+Henry B. Eyring
+
+By Elder Claudio D. Zivic - *Of the Seventy*
 
 *Given in the April session of the 2018 General Conference*
 
@@ -10,7 +12,7 @@ By Elder Claudio D. Zivic - *Of the Seventy*
 
 Dear brothers and sisters, I appreciate very much the opportunity to express to you some of my feelings.
 
-Several years ago, my wife and I were present at the inaugural ceremony of the interactive children’s exhibit in the Church History Museum in Salt Lake City. At the end of the ceremony, President Thomas S. Monson walked toward us, and as he shook our hands, he said, “Endure, and you shall triumph”—a profound teaching and one whose truth, of course, we can all affirm.
+Several years ago, my wife and I were present at the inaugural ceremony of the interactive children’s exhibit in the Church History Museum in Salt Lake City. At the end of the ceremony, President Thomas S. Monson walked toward us, and as he shook our hands, he said, “Endure, and you shall triumph”—a profound teaching and one whose truth, of course, we can all affirm.
 
 Jesus Christ assured us that “he that shall endure unto the end, the same shall be saved.”[^1]
 
@@ -89,7 +91,7 @@ Whatever our personal situations may be, I testify that our Heavenly Father is c
 
 [^1]: [[Matthew 24.13|Matthew 24:13]].
 
-[^2]: Guide to the Scriptures, “[Endure](https://churchofjesuschrist.org/study/scriptures/gs/endure?lang=eng),” scriptures.lds.org.
+[^2]: Guide to the Scriptures, “[Endure](https://www.churchofjesuschrist.org/study/scriptures/gs/endure?lang=eng),” scriptures.lds.org.
 
 [^3]: [[John 6.66|John 6:66–67]][[John 6.67|]].
 
@@ -97,7 +99,7 @@ Whatever our personal situations may be, I testify that our Heavenly Father is c
 
 [^5]: [[D&C 20.37|Doctrine and Covenants 20:37]].
 
-[^6]: See [[3 Nephi 18.7|3 Nephi 18:7]].
+[^6]: See [[3 Nephi 18.7|3 Nephi 18:7]].
 
 [^7]: [[Alma 38.11|Alma 38:11–12]][[Alma 38.12|]].
 
@@ -105,8 +107,3 @@ Whatever our personal situations may be, I testify that our Heavenly Father is c
 
 [^9]: [[Ether 12.27|Ether 12:27]].
 
-
-
-
-
-#Covenants #Endurance #Obedience #Sacrament

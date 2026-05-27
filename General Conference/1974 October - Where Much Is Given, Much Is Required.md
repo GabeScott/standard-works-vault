@@ -1,6 +1,8 @@
 # Where Much Is Given, Much Is Required
 
-By Elder Boyd K. Packer - *Of the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder Boyd K. Packer - *Of the Council of the Twelve*
 
 *Given in the October session of the 1974 General Conference*
 
@@ -112,7 +114,7 @@ In the late 1850s many converts from Europe were struggling to reach the Great S
 
 One such company was commanded by a Brother McArthur. Archer Walters, an English convert who was with the company, recorded in his diary under July 2, 1856, this sentence:
 
-“Brother Parker’s little boy, age six, was lost, and the father went back to hunt him.” (LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion,* Pioneers Ed. Glendale, California, The Arthur H. Clark Co., 1960, p. 61.)
+“Brother Parker’s little boy, age six, was lost, and the father went back to hunt him.” (LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion,* Pioneers Ed. Glendale, California, The Arthur H. Clark Co., 1960, p. 61.)
 
 The boy, Arthur, was next youngest of four children of Robert and Ann Parker. Three days earlier the company had hurriedly made camp in the face of a sudden thunderstorm. It was then the boy was missed. The parents had thought him to be playing along the way with the other children.
 
@@ -157,8 +159,3 @@ This is His church. I have that witness. Jesus is the Christ; he lives. It’s c
 
 
 
-
-
-
-
-#Missionary_Work #Tithing

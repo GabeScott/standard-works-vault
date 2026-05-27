@@ -1,7 +1,6 @@
 # Draw, Drew, Drawn
 
-
-Moses ... Because I *drew* him out of the water, [[Exodus 2.10|Exodus 2:10]].
+Moses … Because I *drew* him out of the water, [[Exodus 2.10|Exodus 2:10]].
 
 *Draw* nigh unto my soul, [[Psalms 69.18|Psalms 69:18]].
 

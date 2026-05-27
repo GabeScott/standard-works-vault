@@ -5,6 +5,6 @@
 [Joseph Smith Matthew 1:33](https://www.churchofjesuschrist.org/study/scriptures/pgp/js-m/1.33?lang=eng#p33)
 
 
-[^a]: [[Joel 2.10|Joel 2:10]]; [[D&C 29.14|D&C 29:14.]]
-[^b]: [[Amos 5.18|Amos 5:18.]]
-[^c]: [[Ezekiel 32.7|Ezek. 32:7 (7-9).]]
+[^a]: [[Joel 2.10|Joel 2:10]]; [[D&C 29.14|D&C 29:14]].  
+[^b]: [[Amos 5.18|Amos 5:18]].  
+[^c]: [[Ezekiel 32.7|Ezek. 32:7 (7–9)]][[Ezekiel 32.8|]][[Ezekiel 32.9|]].  

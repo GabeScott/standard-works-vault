@@ -1,5 +1,7 @@
 # As Doves to Our Windows
 
+Gordon B. Hinckley
+
 By Elder Jeffrey R. Holland - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2000 General Conference*
@@ -48,15 +50,15 @@ Once when he was home on the weekend, one of his cows bolted during milking and 
 
 With the faith of our fathers and mothers so evident on every side today, may I close with the remainder of the passage I cited at the outset of my remarks. It seems particularly relevant in our wonderful circumstances today. After Moses had told that earlier generation of the blessings they enjoyed because of the faithfulness of those who had gone before them, he said:
 
-“Then beware lest thou forget the Lord, which brought thee forth. …
+“Then beware lest thou forget the Lord, which brought thee forth. …
 
-“Ye shall not go after other gods, … the gods of the people which are round about you. …
+“Ye shall not go after other gods, … the gods of the people which are round about you. …
 
-“For thou art an holy people unto the Lord thy God: \[he\] hath chosen thee to be a special people unto himself. …
+“For thou art an holy people unto the Lord thy God: \[he\] hath chosen thee to be a special people unto himself. …
 
 “\[He\] did not … choose you, because ye were more in number than any \[other\] people; for ye were the fewest of all people:
 
-“But because \[he\] loved you, and because he would keep the oath which he had sworn unto your fathers. …
+“But because \[he\] loved you, and because he would keep the oath which he had sworn unto your fathers. …
 
 “Know therefore that the Lord … is God, the faithful God, which keepeth covenant and mercy with them that love him and keep his commandments to a thousand generations.”[^9]
 
@@ -87,8 +89,3 @@ I know that Joseph Smith beheld the Father and the Son and that this day is a di
 
 [^9]: [[Deuteronomy 6.12|Deut. 6:12, 14, 18]][[Deuteronomy 6.14|]][[Deuteronomy 6.18|]]; [[Deuteronomy 7.6|7:6–9]][[Deuteronomy 7.7|]][[Deuteronomy 7.8|]][[Deuteronomy 7.9|]].
 
-
-
-
-
-#Church_Growth #Commandments #Faith #Family_History #General_Conference #God_The_Father #Gratitude #Pioneers #Sacrifice #Spirituality

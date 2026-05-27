@@ -1,5 +1,7 @@
 # Do You Want to Be Happy?
 
+David A. Bednar
+
 By Elder Yoon Hwan Choi - *Of the Seventy*
 
 *Given in the October session of the 2023 General Conference*
@@ -8,11 +10,11 @@ By Elder Yoon Hwan Choi - *Of the Seventy*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/2023/10/26choi?lang=eng)
 
-Do you want to be happy? What makes you unhappy? President Russell M. Nelson said: “If you want to be miserable, break the commandments—and never repent. If you want joy, stay on the covenant path.”[^1] Isn’t it simple to be happy? Just make covenants and keep them in your lives. Let us review some things that can help us to stay on the covenant path and make us happy.
+Do you want to be happy? What makes you unhappy? President Russell M. Nelson said: “If you want to be miserable, break the commandments—and never repent. If you want joy, stay on the covenant path.”[^1] Isn’t it simple to be happy? Just make covenants and keep them in your lives. Let us review some things that can help us to stay on the covenant path and make us happy.
 
 ## 1. What Is the Covenant Path?
 
-According to Elder Dale G. Renlund, “the term *covenant path* refers to a series of covenants whereby we come to Christ and connect to Him. Through this covenant bond, we have access to His eternal power. The path begins with faith in Jesus Christ and repentance, followed by baptism and receiving the Holy Ghost.”[^2] We renew these covenants every time we partake of the sacrament.
+According to Elder Dale G. Renlund, “the term *covenant path* refers to a series of covenants whereby we come to Christ and connect to Him. Through this covenant bond, we have access to His eternal power. The path begins with faith in Jesus Christ and repentance, followed by baptism and receiving the Holy Ghost.”[^2] We renew these covenants every time we partake of the sacrament.
 
 Beginning with the baptismal covenant, we make more covenants throughout our lives. Again, Elder Renlund said: “The covenant path leads to the ordinances of the temple, such as the temple endowment. The endowment is God’s gift of sacred covenants that connect us more fully to Him.”[^3]
 
@@ -24,7 +26,7 @@ A little over a month ago, I received a message from a returned missionary who h
 
 Now he is doing very well. You also may ask Heavenly Father for peace, but the answer may be different than what you anticipate it will be. As long as you seek to know of the Savior and pray to Heavenly Father, He will give you a customized answer for you.
 
-President Thomas S. Monson taught:
+President Thomas S. Monson taught:
 
 “The greatest lesson we can learn in mortality is that when God speaks and we obey, we will always be right.”[^4]
 
@@ -38,7 +40,7 @@ On the Sunday when I was released, my wife heard a voice while she was receiving
 
 We learned that when we think it is not a good time for us to receive a calling, it may be the time we need that calling the most. Whenever the Lord asks us to serve in any calling, whether it is a lighter or heavier calling, He sees our needs. He provides the strength we need and has blessings ready to be poured out upon us as we faithfully serve.
 
-There are many other things that distract us from staying on the covenant path. No matter what it is, it is never too late to turn our hearts to Heavenly Father for help. Elder Paul V. Johnson taught us: “When we follow Satan, we give him power. When we follow God, He gives us power.”[^6]
+There are many other things that distract us from staying on the covenant path. No matter what it is, it is never too late to turn our hearts to Heavenly Father for help. Elder Paul V. Johnson taught us: “When we follow Satan, we give him power. When we follow God, He gives us power.”[^6]
 
 King Benjamin in the Book of Mormon testifies: “I would desire that ye should consider on the blessed and happy state of those that keep the commandments of God. For behold, they are blessed in all things, both temporal and spiritual; and if they hold out faithful to the end they are received into heaven, that thereby they may dwell with God in a state of never-ending happiness.”[^7]
 
@@ -46,7 +48,7 @@ King Benjamin in the Book of Mormon testifies: “I would desire that ye should 
 
 My wife says that our marriage yokes us together, and because of that she can do things she couldn’t do before. For example, ever since she was young, she has had a hard time going out in the dark, but it is not hard anymore because I go with her. She is short and cannot reach to the high shelves unless she uses a chair or ladder, but I can reach the things from high shelves for her because I am taller than her. Taking our Savior’s yoke upon us is like that. As we yoke ourselves to Him, we can do things we couldn’t do on our own because He can do the things we cannot do for ourselves.
 
-Elder David A. Bednar said: “Making and keeping sacred covenants yokes us to and with the Lord Jesus Christ. In essence, the Savior is beckoning us to rely upon and pull together with Him, even though our best efforts are not equal to and cannot be compared with His. As we trust in and pull our load with Him during the journey of mortality, truly His yoke is easy and His burden is light.”[^8]
+Elder David A. Bednar said: “Making and keeping sacred covenants yokes us to and with the Lord Jesus Christ. In essence, the Savior is beckoning us to rely upon and pull together with Him, even though our best efforts are not equal to and cannot be compared with His. As we trust in and pull our load with Him during the journey of mortality, truly His yoke is easy and His burden is light.”[^8]
 
 President Nelson also taught:
 
@@ -61,32 +63,27 @@ My dear brothers and sisters, do you want to be happy? Stay on the covenant path
 
 
 
-[^1]: Russell M. Nelson, in Sarah Jane Weaver, “In Orlando, President Nelson Shares 7 Truths That Have the Power to Change Lives,” *Church News*, June 9, 2019, thechurchnews.com.
+[^1]: Russell M. Nelson, in Sarah Jane Weaver, “In Orlando, President Nelson Shares 7 Truths That Have the Power to Change Lives,” *Church News*, June 9, 2019, thechurchnews.com.
 
-[^2]: Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power through Covenants]],” *Liahona*, May 2023, 36.
+[^2]: Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power through Covenants]],” *Liahona*, May 2023, 36.
 
-[^3]: Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power through Covenants]],” 36.
+[^3]: Dale G. Renlund, “[[2023 April - Accessing God’s Power through Covenants.md|Accessing God’s Power through Covenants]],” 36.
 
-[^4]: Thomas S. Monson, “[[2002 October - Models to Follow.md|Models to Follow]],” *Ensign* or *Liahona*, Nov. 2002, 61.
+[^4]: Thomas S. Monson, “[[2002 October - Models to Follow.md|Models to Follow]],” *Ensign* or *Liahona*, Nov. 2002, 61.
 
-[^5]: Thomas S. Monson, “[[2015 October - Keep the Commandments.md|Keep the Commandments]],” *Ensign* or *Liahona*, Nov. 2015, 83.
+[^5]: Thomas S. Monson, “[[2015 October - Keep the Commandments.md|Keep the Commandments]],” *Ensign* or *Liahona*, Nov. 2015, 83.
 
-[^6]: Paul V. Johnson, “[[2022 October - Be Perfected in Him.md|Be Perfected in Him]],” *Liahona*, Nov. 2022, 40.
+[^6]: Paul V. Johnson, “[[2022 October - Be Perfected in Him.md|Be Perfected in Him]],” *Liahona*, Nov. 2022, 40.
 
 [^7]: [[Mosiah 2.41|Mosiah 2:41]].
 
-[^8]: David A. Bednar, “[[2014 April - Bear Up Their Burdens with Ease.md|Bear Up Their Burdens with Ease]],” *Ensign* or *Liahona*, May 2014, 88.
+[^8]: David A. Bednar, “[[2014 April - Bear Up Their Burdens with Ease.md|Bear Up Their Burdens with Ease]],” *Ensign* or *Liahona*, May 2014, 88.
 
-[^9]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
+[^9]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” *Liahona*, Nov. 2022, 97.
 
-[^10]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
+[^10]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
 
-[^11]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
+[^11]: Russell M. Nelson, “[[2022 October - Overcome the World and Find Rest.md|Overcome the World and Find Rest]],” 96.
 
 [^12]: [[Matthew 11.28|Matthew 11:28]].
 
-
-
-
-
-#Church_Callings #Covenants #Joy #Obedience #Service

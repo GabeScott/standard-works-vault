@@ -1,5 +1,7 @@
 # Welcome to Conference
 
+Thomas S. Monson
+
 By President Thomas S. Monson - *President of the Church*
 
 *Given in the April session of the 2010 General Conference*
@@ -29,8 +31,3 @@ It is my prayer that we may be filled with His Spirit as we listen and learn. Th
 
 
 
-
-
-
-
-#Church_Growth #General_Conference #Service #Temples

@@ -1,4 +1,3 @@
 # Joel
 
-
-*See* [BD Joel](https://www.churchofjesuschrist.org/study/scriptures/bd/joel?lang=eng)
+*See also* [[BD Joel.md|BD Joel]]

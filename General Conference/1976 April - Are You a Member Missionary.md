@@ -1,6 +1,8 @@
 # Are You a Member Missionary?
 
-By Elder Gene R. Cook - *Of the First Council of the Seventy*
+Spencer W. Kimball
+
+By Elder Gene R. Cook - *Of the First Council of the Seventy*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -49,8 +51,3 @@ I bear my testimony that the gospel will be sounded in every ear. This is the on
 
 
 
-
-
-
-
-#Missionary_Work

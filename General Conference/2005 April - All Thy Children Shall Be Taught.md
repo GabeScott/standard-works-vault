@@ -1,5 +1,7 @@
 # All Thy Children Shall Be Taught
 
+Gordon B. Hinckley
+
 By Coleen K. Menlove - *Recently Released Primary General President*
 
 *Given in the April session of the 2005 General Conference*
@@ -63,7 +65,7 @@ Your influence upon me is greater than you can imagine. Thank you for the joy an
 
 
 
-[^1]: [[3 Nephi 22.13|3 Nephi 22:13]].
+[^1]: [[3 Nephi 22.13|3 Nephi 22:13]].
 
 [^2]: “Teach Me to Walk in the Light,” *Children’s Songbook,* 177.
 
@@ -73,10 +75,5 @@ Your influence upon me is greater than you can imagine. Thank you for the joy an
 
 [^5]: *Children’s Songbook,* 177.
 
-[^6]: [[3 Nephi 22.13|3 Nephi 22:13]].
+[^6]: [[3 Nephi 22.13|3 Nephi 22:13]].
 
-
-
-
-
-#Children #Holy_Ghost #Peace #Teaching #Testimony

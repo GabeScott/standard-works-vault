@@ -1,4 +1,3 @@
 # Cooperation
 
-
-*See* [[Brotherhood and Sisterhood.md|Brotherhood and Sisterhood]]; [[Self-Sacrifice.md|Self-Sacrifice]]; [[Service.md|Service]]; [[Unity.md|Unity]]
+*See also* [[Brotherhood and Sisterhood.md|Brotherhood and Sisterhood]]; [[Self-Sacrifice.md|Self-Sacrifice]]; [[Service.md|Service]]; [[Unity.md|Unity]]

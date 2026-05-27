@@ -1,9 +1,8 @@
 # Myrrh
 
+*See also* [[BD Myrrh.md|BD Myrrh]]
 
-*See also* [BD Myrrh](https://www.churchofjesuschrist.org/study/scriptures/bd/myrrh?lang=eng)
-
-camels bearing spicery ... and *myrrh*, [[Genesis 37.25|Genesis 37:25]].
+camels bearing spicery … and *myrrh*, [[Genesis 37.25|Genesis 37:25]].
 
 principal spices, of pure *myrrh*, [[Exodus 30.23|Exodus 30:23]].
 

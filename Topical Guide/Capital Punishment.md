@@ -1,9 +1,8 @@
 # Capital Punishment
 
+*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Murder.md|Murder]]
 
-*See also* [[Blood, Shedding of.md|Blood, Shedding of]]; [[Murder, Murderer.md|Murder]]
-
-Whoso sheddeth man's blood, by man shall his *blood* be shed, [[Genesis 9.6|Genesis 9:6]].
+Whoso sheddeth man’s blood, by man shall his *blood* be shed, [[Genesis 9.6|Genesis 9:6]].
 
 his *blood* is required, [[Genesis 42.22|Genesis 42:22]].
 
@@ -15,15 +14,15 @@ murderer shall surely be put to *death*, [[Numbers 35.16|Numbers 35:16]].
 
 revenger of blood *kill* the slayer, [[Numbers 35.27|Numbers 35:27]].
 
-shalt stone them ... till they *die*, [[Deuteronomy 17.5|Deuteronomy 17:5]].
+shalt stone them … till they *die*, [[Deuteronomy 17.5|Deuteronomy 17:5]].
 
 he that is worthy of death be put to *death*, [[Deuteronomy 17.6|Deuteronomy 17:6]].
 
 stone her with stones that she *die*, [[Deuteronomy 22.21|Deuteronomy 22:21]].
 
-rebel ... shall be put to *death*, [[Joshua 1.18|Joshua 1:18]].
+rebel … shall be put to *death*, [[Joshua 1.18|Joshua 1:18]].
 
-judgment be executed ... whether it be unto *death*, [[Ezra 7.26|Ezra 7:26]].
+judgment be executed … whether it be unto *death*, [[Ezra 7.26|Ezra 7:26]].
 
 there is one law of his to put him to *death*, [[Esther 4.11|Esther 4:11]].
 
@@ -40,5 +39,3 @@ he that murdered was punished unto *death*, [[Alma 1.18|Alma 1:18]] ([[Alma 30.1
 *executed* according to the law, [[Alma 62.9|Alma 62:9]].
 
 he that killeth shall *die*, [[D&C 42.19|D&C 42:19]].
-
-*See also* [[Exodus 21.29|Exodus 21:29]]; [[Exodus 35.2|Exodus 35:2]]; [[Deuteronomy 13.5|Deuteronomy 13:5]]; [[1 Kings 2.24|1 Kings 2:24]]; [[Acts 26.31|Acts 26:31]]; [[Alma 42.19|Alma 42:19]]; [[Helaman 1.12|Helaman 1:12]].

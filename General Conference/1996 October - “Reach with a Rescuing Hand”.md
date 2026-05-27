@@ -1,5 +1,7 @@
 # “Reach with a Rescuing Hand”
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 1996 General Conference*
@@ -32,9 +34,9 @@ The next morning he came to the old Tabernacle which stood on this square. He sa
 
 “I will now give this people the subject and the text for the Elders who may speak. … It is this. … Many of our brethren and sisters are on the plains with handcarts, and probably many are now seven hundred miles from this place, and they must be brought here, we must send assistance to them. The text will be, ‘to get them here.’
 
-“That is my religion; that is the dictation of the Holy Ghost that I possess. It is to save the people. …
+“That is my religion; that is the dictation of the Holy Ghost that I possess. It is to save the people. …
 
-“I shall call upon the Bishops this day. I shall not wait until tomorrow, nor until the next day, for 60 good mule teams and 12 or 15 wagons. I do not want to send oxen. I want good horses and mules. They are in this Territory, and we must have them. Also 12 tons of flour and 40 good teamsters, besides those that drive the teams. …
+“I shall call upon the Bishops this day. I shall not wait until tomorrow, nor until the next day, for 60 good mule teams and 12 or 15 wagons. I do not want to send oxen. I want good horses and mules. They are in this Territory, and we must have them. Also 12 tons of flour and 40 good teamsters, besides those that drive the teams. …
 
 “I will tell you all that your faith, religion, and profession of religion, will never save one soul of you in the Celestial Kingdom of our God, unless you carry out just such principles as I am now teaching you. *Go and bring in those people now on the plains”* (in LeRoy R. Hafen and Ann W. Hafen, *Handcarts to Zion* \[1960\], 120–21).
 
@@ -61,5 +63,3 @@ I leave with you my beloved friends, my coworkers in this wonderful cause, my te
 
 
 
-
-#Activation #General_Conference #Pioneers #Youth

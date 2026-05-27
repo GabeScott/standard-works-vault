@@ -1,6 +1,8 @@
 # A Good Foundation against the Time to Come
 
-By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
+Russell M. Nelson
+
+By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2020 General Conference*
 
@@ -10,17 +12,17 @@ By Elder Gary E. Stevenson - *Of the Quorum of the Twelve Apostles*
 
 ## History of the Salt Lake Temple
 
-Let’s travel back to a hot afternoon on July 24, 1847, around 2:00 p.m. Following an arduous 111-day journey with 148 members of the Church who comprised the first party to head west, Brigham Young, then President of the Quorum of the Twelve Apostles, sick and weak from mountain fever, entered the Salt Lake Valley.
+Let’s travel back to a hot afternoon on July 24, 1847, around 2:00 p.m. Following an arduous 111-day journey with 148 members of the Church who comprised the first party to head west, Brigham Young, then President of the Quorum of the Twelve Apostles, sick and weak from mountain fever, entered the Salt Lake Valley.
 
 Two days later, while recovering from his illness, Brigham Young led several members of the Quorum of the Twelve Apostles and others on an exploring expedition. William Clayton recorded, “About three-quarters of a mile north of the camp, we arrived on a beautiful table of land, level and nicely sloping to the west.”[^1]
 
 While surveying the spot with the group, Brigham Young suddenly stopped and stuck his cane in the ground, exclaiming, “Here shall stand the Temple of our God.” One of his companions was Elder Wilford Woodruff, who said this statement “went through \[him\] like lightning,” and he drove a branch into the ground to mark the spot made by President Young’s cane. Forty acres (16 ha) were selected for the temple, and it was decided that the city should be laid out “perfectly square North & South, east & west” with the temple being the center spot.[^2]
 
-At general conference in April 1851, members of the Church voted unanimously to sustain a motion to build a temple “to the name of the Lord.”[^3] Two years later, on February 14, 1853, the site was dedicated by Heber C. Kimball in a public ceremony attended by several thousand Saints, and ground was broken for the foundation of the Salt Lake Temple. A few months later, on April 6, the massive cornerstones of the temple were laid and dedicated with elaborate ceremonies that included a color guard and bands and a procession led by Church leaders from the old tabernacle to the temple site, where remarks and prayers were offered at each of the four stones.[^4]
+At general conference in April 1851, members of the Church voted unanimously to sustain a motion to build a temple “to the name of the Lord.”[^3] Two years later, on February 14, 1853, the site was dedicated by Heber C. Kimball in a public ceremony attended by several thousand Saints, and ground was broken for the foundation of the Salt Lake Temple. A few months later, on April 6, the massive cornerstones of the temple were laid and dedicated with elaborate ceremonies that included a color guard and bands and a procession led by Church leaders from the old tabernacle to the temple site, where remarks and prayers were offered at each of the four stones.[^4]
 
 At the groundbreaking ceremony, President Young recalled that he had seen a vision when he first set foot upon the ground as they surveyed the valley floor, stating, “I knew \[then\], just as well as I now know, that this was the ground on which to erect a temple—it was before me.”[^5]
 
-Ten years later, Brigham Young offered the following prophetic insight at general conference in October 1863: “I want to see \[the\] temple built in a manner that it will endure through the millennium. This is not the only temple we shall build; there will be hundreds of them built and dedicated to the Lord. This temple will be known as the first temple built in the mountains by the Latter Day Saints. … I want that temple … to stand as a proud monument of the faith, perseverance and industry of the saints of God in the mountains.”[^6]
+Ten years later, Brigham Young offered the following prophetic insight at general conference in October 1863: “I want to see \[the\] temple built in a manner that it will endure through the millennium. This is not the only temple we shall build; there will be hundreds of them built and dedicated to the Lord. This temple will be known as the first temple built in the mountains by the Latter Day Saints. … I want that temple … to stand as a proud monument of the faith, perseverance and industry of the saints of God in the mountains.”[^6]
 
 In reviewing this brief history, I am in awe of the seership of Brigham Young—first, his ensuring that, to the extent possible and, using construction methods available at that time and place, the Salt Lake Temple would be built in a manner to endure throughout the Millennium and, second, his prophesying of the growth of future temples worldwide, *even to number them in the hundreds.*
 
@@ -58,7 +60,7 @@ What might spiritual cornerstones of our personal and family lives be? They may 
 
 For me, the principles included in the questions discussed as part of receiving a temple recommend serve as a strong basis for a spiritual foundation—particularly the first four questions. I see them as spiritual cornerstones.
 
-We, of course, are familiar with these questions, as President Russell M. Nelson read them to us one by one in the last general conference.
+We, of course, are familiar with these questions, as President Russell M. Nelson read them to us one by one in the last general conference.
 
 1. Do you have faith in and a testimony of God, the Eternal Father; His Son, Jesus Christ; and the Holy Ghost?
 
@@ -84,7 +86,11 @@ These are the devoted souls who understand the profound meaning of the lyrics �
 
 I don’t think we can overstate the importance of such a firm foundation in our personal lives. Even at an early age, our Primary children are taught as they sing of this very truth:
 
-The wise man built his house upon the rock,And the rains came tumbling down*. …*The rains came down, and the floods came up,And the house on the rock stood still.[^12]
+>The wise man built his house upon the rock,
+>And the rains came tumbling down*. …*
+>The rains came down, and the floods came up,
+>And the house on the rock stood still.[^12]
+>
 
 Scripture reinforces this foundational doctrine. The Savior taught the people of the Americas:
 
@@ -99,36 +105,31 @@ We will do so as we fulfill the charge of the Apostle Paul to “\[lay\] up in s
 
 
 
-[^1]: William Clayton journal, July 26, 1847, Church History Library, Salt Lake City.
+[^1]: William Clayton journal, July 26, 1847, Church History Library, Salt Lake City.
 
-[^2]: See “At the Tabernacle, Presidents Woodruff and Smith Address the Saints Yesterday Afternoon,” *Deseret Evening News,* Aug. 30, 1897, 5; “Pioneers’ Day,” *Deseret Evening News,* July 26, 1880, 2; Wilford Woodruff journal, July 28, 1847, Church History Library, Salt Lake City.
+[^2]: See “At the Tabernacle, Presidents Woodruff and Smith Address the Saints Yesterday Afternoon,” *Deseret Evening News,* Aug. 30, 1897, 5; “Pioneers’ Day,” *Deseret Evening News,* July 26, 1880, 2; Wilford Woodruff journal, July 28, 1847, Church History Library, Salt Lake City.
 
-[^3]: “Minutes of the General Conference of the Church of Jesus Christ of Latter-day Saints, held at Great Salt Lake City, State of Deseret, April 6, 1851,” *Deseret News,* Apr. 19, 1851, 241.
+[^3]: “Minutes of the General Conference of the Church of Jesus Christ of Latter-day Saints, held at Great Salt Lake City, State of Deseret, April 6, 1851,” *Deseret News,* Apr. 19, 1851, 241.
 
-[^4]: See “The Temple,” *Deseret News,* Feb. 19, 1853, 130; “Minutes of the General Conference,” *Deseret News,* Apr. 16, 1853, 146; “Minutes of the General Conference,” *Deseret News,* Apr. 30, 1853, 150.
+[^4]: See “The Temple,” *Deseret News,* Feb. 19, 1853, 130; “Minutes of the General Conference,” *Deseret News,* Apr. 16, 1853, 146; “Minutes of the General Conference,” *Deseret News,* Apr. 30, 1853, 150.
 
-[^5]: “Address by President Brigham Young,” *Millennial Star,* Apr. 22, 1854, 241.
+[^5]: “Address by President Brigham Young,” *Millennial Star,* Apr. 22, 1854, 241.
 
-[^6]: “Remarks by President Brigham Young,” *Deseret News,* Oct. 14, 1863, 97.
+[^6]: “Remarks by President Brigham Young,” *Deseret News,* Oct. 14, 1863, 97.
 
 [^7]: Presiding Bishopric presentation on the Salt Lake Temple to the First Presidency, Oct. 2015.
 
-[^8]: See Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona,* Nov. 2019, 121.
+[^8]: See Russell M. Nelson, “[[2019 October - Closing Remarks.md|Closing Remarks]],” *Ensign* or *Liahona,* Nov. 2019, 121.
 
 [^9]: [[Ephesians 2.20|Ephesians 2:20–21]][[Ephesians 2.21|]].
 
 [^10]: Social media post by Kim Olsen White.
 
-[^11]: “How Firm a Foundation,” *Hymns,* no. 85.
+[^11]: “How Firm a Foundation,” *Hymns,* no. 85.
 
 [^12]: “The Wise Man and the Foolish Man,” *Children’s Songbook,* 281; emphasis in original was removed in this instance.
 
-[^13]: [[3 Nephi 18.12|3 Nephi 18:12–13]][[3 Nephi 18.13|]]; emphasis added.
+[^13]: [[3 Nephi 18.12|3 Nephi 18:12–13]][[3 Nephi 18.13|]]; emphasis added.
 
-[^14]: [[1 Timothy 6.19|1 Timothy 6:19]]; emphasis added.
+[^14]: [[1 Timothy 6.19|1 Timothy 6:19]]; emphasis added.
 
-
-
-
-
-#Spirituality #Testimony

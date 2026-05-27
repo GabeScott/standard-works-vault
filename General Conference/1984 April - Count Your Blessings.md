@@ -1,5 +1,7 @@
 # Count Your Blessings
 
+Gordon B. Hinckley
+
 By Elder Yoshihiko Kikuchi - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1984 General Conference*
@@ -16,11 +18,11 @@ The mother of an eleven-year-old boy became very seriously ill. His father broug
 
 “We all feel now we will take better care of Mama if she comes home soon.”
 
-Later he wrote: “We are very lonely without you. … We are very busy around here. We received the telegram and were very glad to know that Mama was out of danger. … I think I will close for it is getting bed time. Sister Allen told us in Religion Class that we should go to bed at eight o’clock so we could have enough sleep. Now it is nearly half past eight. Good bye. Your loving Son. Spencer Kimball.” (Quoted in Edward L. Kimball and Andrew E. Kimball, Jr., *Spencer W. Kimball,* Salt Lake City: Bookcraft, 1977, p. 45.)
+Later he wrote: “We are very lonely without you. … We are very busy around here. We received the telegram and were very glad to know that Mama was out of danger. … I think I will close for it is getting bed time. Sister Allen told us in Religion Class that we should go to bed at eight o’clock so we could have enough sleep. Now it is nearly half past eight. Good bye. Your loving Son. Spencer Kimball.” (Quoted in Edward L. Kimball and Andrew E. Kimball, Jr., *Spencer W. Kimball,* Salt Lake City: Bookcraft, 1977, p. 45.)
 
 The very next day after he mailed this letter his mother passed away. The next day their bishop received a telegram, and all of the Kimball children were called out of school. They all ran home, and the bishop told them, “Your Ma is dead.” President Kimball later told of that incident:
 
-“It came as a thunderbolt. I ran from the house out in the backyard to be alone in my deluge of tears. Out of sight and sound, away from everybody, I sobbed and sobbed. Each time I said the word ‘Ma’ fresh floods of tears gushed forth until I was drained dry. Ma—dead! But she couldn’t be! Life couldn’t go on for us. … My eleven-year-old heart seemed to burst.” (*Spencer W. Kimball,* p. 46.)
+“It came as a thunderbolt. I ran from the house out in the backyard to be alone in my deluge of tears. Out of sight and sound, away from everybody, I sobbed and sobbed. Each time I said the word ‘Ma’ fresh floods of tears gushed forth until I was drained dry. Ma—dead! But she couldn’t be! Life couldn’t go on for us. … My eleven-year-old heart seemed to burst.” (*Spencer W. Kimball,* p. 46.)
 
 Why death? Why sickness? Why tragedies? Why must I have suffering, and disappointment? Why must I have to face the “deep waters” of life? Why must I go through “the rivers of sorrow”? (See “How Firm a Foundation,” *Hymns,* no. 66.)
 
@@ -30,7 +32,7 @@ We know little of the will of the Lord, yet we judge the Lord often with our sma
 
 ## Suffering Can Make Saints
 
-Elder Spencer W. Kimball said: “Being human, we would expel from our lives physical pain and mental anguish and assure ourselves of continual ease and comfort, but if we were to close the doors upon sorrow and distress, we might be excluding our greatest friends and benefactors. Suffering can make saints of people as they learn patience, long-suffering, and self-mastery.” (*Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 98.)
+Elder Spencer W. Kimball said: “Being human, we would expel from our lives physical pain and mental anguish and assure ourselves of continual ease and comfort, but if we were to close the doors upon sorrow and distress, we might be excluding our greatest friends and benefactors. Suffering can make saints of people as they learn patience, long-suffering, and self-mastery.” (*Faith Precedes the Miracle,* Salt Lake City: Deseret Book Co., 1972, p. 98.)
 
 I repeat: “Suffering can make saints of people as they learn patience, long-suffering, and self-mastery,” as long as we live righteously.
 
@@ -44,7 +46,11 @@ Finally, he graduated from law school, passed the Utah bar exam, and became a li
 
 In the hymn “How Firm a Foundation” we sing these words:
 
-When through the deep waters I call thee to go,The rivers of sorrow shall not thee o’erflow,For I will be with thee, thy troubles to bless,And sanctify to thee thy deepest distress.(*Hymns,* no. 66.)
+>When through the deep waters I call thee to go,
+>The rivers of sorrow shall not thee o’erflow,
+>For I will be with thee, thy troubles to bless,
+>And sanctify to thee thy deepest distress.
+>
 
 My friend Mick met a most beautiful lady, Cheryl. They married and now the greatest joy has come to their lives. His wife is expecting a baby. It is a miracle. The Lord said, “I will be with thee, thy troubles to bless.” Last Friday, they were sealed in the temple for time and for all eternity. It was my privilege to perform the ceremony for this beautiful couple.
 
@@ -54,13 +60,46 @@ His stake president, President Banks, described him as “a most humble person w
 
 The Lord said, “The power is in us.” (See [[D&C 58.28|D&C 58:28]].) You and I have that power, the greatest power, the power of love. We can feel the Lord’s love if we but listen. Our kindly Heavenly Father gave us—
 
-The power to love!The power to think!The power to have faith!The power to pray!The power to create!The power to see!The power to feel!The power to touch!The power to speak!The power to care!The power to have concern!The power to share!The power to give!The power to thank!(Yoshihiko Kikuchi, “Blessings,” 1978.)
+>The power to love!
+>The power to think!
+>The power to have faith!
+>The power to pray!
+>The power to create!
+>The power to see!
+>The power to feel!
+>The power to touch!
+>The power to speak!
+>The power to care!
+>The power to have concern!
+>The power to share!
+>The power to give!
+>The power to thank!
+>
 
 Especially the power to love! Love is the greatest gift of God. Brothers and sisters, if you and I have this power, the power of love, we can walk with His Spirit, even through the “troubled waters.”
 
 Let us count our blessings:
 
-When upon life’s billows you are tempest-tossed,When you are discouraged, thinking all is lost,Count your many blessings; name them one by one,And it will surprise you what the Lord has done.Count your blessings;Name them one by one.Count your blessings;See what God hath done.Count your blessings;Name them one by one.Count your many blessings;See what God hath done.Are you ever burdened with a load of care?Does the cross seem heavy you are called to bear?Count your many blessings; every doubt will fly,And you will be singing as the days go by.So amid the conflict, whether great or small,Do not be discouraged; God is over all.Count your many blessings; angels will attend,Help and comfort give you to your journey’s end.(“When Upon Life’s Billows,” *Hymns,* no. 202.)
+>When upon life’s billows you are tempest-tossed,
+>When you are discouraged, thinking all is lost,
+>Count your many blessings; name them one by one,
+>And it will surprise you what the Lord has done.
+>
+>Count your blessings;
+>Name them one by one.
+>See what God hath done.
+>Count your many blessings;
+>
+>Are you ever burdened with a load of care?
+>Does the cross seem heavy you are called to bear?
+>Count your many blessings; every doubt will fly,
+>And you will be singing as the days go by.
+>
+>So amid the conflict, whether great or small,
+>Do not be discouraged; God is over all.
+>Count your many blessings; angels will attend,
+>Help and comfort give you to your journey’s end.
+>
 
 Let us not judge the Lord’s great wisdom with our small minds.
 
@@ -74,15 +113,10 @@ Are you unloved? Are you unhappy? Are you handicapped? Divorced? Are you paralyz
 
 “For my yoke is easy, and my burden is light.” ([[Matthew 11.28|Matt. 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].)
 
-I bear you my testimony that Jesus is the Christ, the Son of the Living God. He himself testified of his great, sacred mission when he appeared to the Nephites: “Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world.” ([[3 Nephi 11.14|3 Ne. 11:14]].)
+I bear you my testimony that Jesus is the Christ, the Son of the Living God. He himself testified of his great, sacred mission when he appeared to the Nephites: “Arise and come forth unto me, that ye may thrust your hands into my side, and also that ye may feel the prints of the nails in my hands and in my feet, that ye may know that I am the God of Israel, and the God of the whole earth, and have been slain for the sins of the world.” ([[3 Nephi 11.14|3 Ne. 11:14]].)
 
 I know that he lives; I know that he loves us; and I bear you my witness in the name of the Lord Jesus Christ, amen.
 
 
 
 
-
-
-
-
-#Adversity #Blessings

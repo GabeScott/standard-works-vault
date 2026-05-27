@@ -4,6 +4,3 @@
 
 [JST James 1:2](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-james/1?lang=eng)
 
-
-
-

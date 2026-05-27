@@ -1,6 +1,8 @@
 # Marriage Is Intended to Be Forever
 
-By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
+Joseph Fielding Smith
+
+By Elder James A. Cullimore - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1971 General Conference*
 
@@ -30,7 +32,7 @@ Divorce is usually the result of one or both not living the gospel. I suppose th
 
 If, in marriage, both parties would make gospel standards and principles the basis of their marriage, few problems would arise they could not handle. When one or the other or both begin to compromise gospel standards, problems follow. Marriage is a sacred relationship, and good members of the Church would know that it is entered into primarily for the rearing of a family. Other important desires and plans in marriage should be well understood by both parties as well.
 
-President McKay said, in reference to the seriousness with which we enter the marriage contract: “… to look upon marriage as a mere contract that may be entered into at pleasure in response to a romantic whim, or for selfish purposes, and severed at the first difficulty or misunderstanding that may arise, is an evil meriting severe condemnation, especially in cases wherein children are made to suffer because of such separation.” (Quoted in Blaine R. Porter, *The Latter-day Saint Family* \[Deseret Book Co., 1966\], pp. 402–403.)
+President McKay said, in reference to the seriousness with which we enter the marriage contract: “… to look upon marriage as a mere contract that may be entered into at pleasure in response to a romantic whim, or for selfish purposes, and severed at the first difficulty or misunderstanding that may arise, is an evil meriting severe condemnation, especially in cases wherein children are made to suffer because of such separation.” (Quoted in Blaine R. Porter, *The Latter-day Saint Family* \[Deseret Book Co., 1966\], pp. 402–403.)
 
 Possibly to list some of the most common causes for which civil divorces are sought might be helpful in avoiding these problems: incompatibility, adultery, money matters, physical abuse, dishonesty, not living the gospel, infidelity, not honoring priesthood, desertion, constant bickering, apathy, drunkenness, uncontrolled temper.
 
@@ -40,7 +42,7 @@ President McKay said of incompatibility, “For a couple who have basked in the 
 
 I have been shocked in learning the extent to which men are physically abusive to women. In the October conference of 1951 President McKay said, “I cannot imagine a man’s being cruel to a woman. I cannot imagine her so conducting herself as to merit such treatment. Perhaps there are women in the world who exasperate their husbands, but no man is justified in resorting to physical force or in exploding his feelings in profanity. There are men, undoubtedly, in the world who are thus beastly, but no man who holds the priesthood of God should so debase himself.” (*Gospel Ideals,* p. 476.)
 
-The matter of disinterest, lack of voluntary expression, lack of affection are common causes for breakdown of marriage. President Harold B. Lee recently said this to a group of priesthood leaders: “I say to you brethren the most dangerous thing that can happen between you and your wife or between me and my wife is apathy, … for them to feel that we are not interested in their affairs, that we are not expressing our love and showing our affection in countless ways. Women to be happy have to be loved and so do men.” (Seminar for Regional Representatives of the Twelve, December 12, 1970, p. 6.)
+The matter of disinterest, lack of voluntary expression, lack of affection are common causes for breakdown of marriage. President Harold B. Lee recently said this to a group of priesthood leaders: “I say to you brethren the most dangerous thing that can happen between you and your wife or between me and my wife is apathy, … for them to feel that we are not interested in their affairs, that we are not expressing our love and showing our affection in countless ways. Women to be happy have to be loved and so do men.” (Seminar for Regional Representatives of the Twelve, December 12, 1970, p. 6.)
 
 To take lightly the law of chastity or to violate the moral teachings of the Savior is a sober matter. It seems incredible that priesthood holders and women who have been considered worthy to hold a recommend to the temple and be married therein are so often guilty of adultery, infidelity, and other sex sins.
 
@@ -52,7 +54,7 @@ No matter what the reason for divorce, those usually hurt most are the children.
 
 President McKay said there are three fundamental things to which every child is entitled: (1) a respected name, (2) a sense of security, (3) opportunities for development. (*The LDS Family,* p. 406.) The possibility of any of these is lessened in divorce.
 
-As Sister Cullimore and I went to the temple to be married, President George H. Brimhall \[of Brigham Young University\] called us into his office. He gave us some direction we have appreciated through the years. He said: “The four fountains that will keep your ‘Garden of Eden’ from becoming a desert are constant confidence, constant counsel, constant compromise, constant courtship.”
+As Sister Cullimore and I went to the temple to be married, President George H. Brimhall \[of Brigham Young University\] called us into his office. He gave us some direction we have appreciated through the years. He said: “The four fountains that will keep your ‘Garden of Eden’ from becoming a desert are constant confidence, constant counsel, constant compromise, constant courtship.”
 
 Important to any marriage is complete confidence—trust in all things. The confidence born of true love, never doubting, never questioning the integrity of each other. Someone has said: “Society is built upon trust, and trust upon confidence in one another’s integrity.”
 
@@ -66,15 +68,10 @@ Henry Watterson has said: “I would compromise war. I would compromise glory. I
 
 *Constant courtship.* President McKay has said: “The seeds of a happy married life are sown in youth. Happiness does not begin at the altar: it begins during the period of youth and courtship.” (*Pathways to Happiness* \[Bookcraft, 1957\], p. 49.)
 
-Neither should courtship end at the altar. How important it is to constantly be conscious of our marriage and work at it every day we live, keeping alive our courtship by kind acts, thoughtfulness, and consideration always. Archibald F. Bennett, in his writings on family exaltation, expresses this beautifully: “Too many couples have come to the altar of marriage looking upon the marriage ceremony as the end of courtship instead of the beginning of an eternal courtship. Let us not forget that during the burdens of home life … that tender words of appreciation, courteous acts are even more appreciated than during those sweet days and months of courtship. It is after the ceremony and during the trials that daily arise in the home, that a word of ‘thank you,’ or ‘pardon me,’ ‘if you please,’ … will contribute to that love which brought you to the altar. … The wedding ring gives no man the right to be cruel or inconsiderate, and no woman the right to be slovenly, cross or disagreeable.” (*The LDS Family,* p. 236.)
+Neither should courtship end at the altar. How important it is to constantly be conscious of our marriage and work at it every day we live, keeping alive our courtship by kind acts, thoughtfulness, and consideration always. Archibald F. Bennett, in his writings on family exaltation, expresses this beautifully: “Too many couples have come to the altar of marriage looking upon the marriage ceremony as the end of courtship instead of the beginning of an eternal courtship. Let us not forget that during the burdens of home life … that tender words of appreciation, courteous acts are even more appreciated than during those sweet days and months of courtship. It is after the ceremony and during the trials that daily arise in the home, that a word of ‘thank you,’ or ‘pardon me,’ ‘if you please,’ … will contribute to that love which brought you to the altar. … The wedding ring gives no man the right to be cruel or inconsiderate, and no woman the right to be slovenly, cross or disagreeable.” (*The LDS Family,* p. 236.)
 
 May we keep sacred our marriage vows and live so that we might enjoy its eternal blessings, I pray in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Marriage

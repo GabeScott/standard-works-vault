@@ -1,5 +1,7 @@
 # Receive the Temple Blessings
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -47,8 +49,3 @@ I testify that with unimaginable suffering and agony at an incalculable price, t
 
 
 
-
-
-
-
-#Atonement #Dating #God_The_Father #Jesus_Christ #Marriage #Ordinances #Single_Members #Temple_Work #Temples #Worthiness

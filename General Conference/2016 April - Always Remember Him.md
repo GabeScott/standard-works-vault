@@ -1,6 +1,8 @@
 # Always Remember Him
 
-By Elder Gerrit W. Gong - *Of the Presidency of the Seventy*
+Cheryl A. Esplin
+
+By Elder Gerrit W. Gong - *Of the Presidency of the Seventy*
 
 *Given in the April session of the 2016 General Conference*
 
@@ -21,7 +23,7 @@ Remembering—and forgetting—are also part of our eternal journey. Time, agenc
 In the words of a favorite hymn:
 
 >We’ll sing all hail to Jesus’ name,
->And praise and honor give. …
+>And praise and honor give. …
 >Ye Saints, partake and testify
 >Ye do remember him.[^1]
 >
@@ -76,7 +78,7 @@ If we have unkind feelings, grudges, or resentments or if we have cause to ask f
 
 Fourth, He invites us to remember that He is always welcoming us home.
 
-We learn by asking and searching. But please do not cease exploration until you arrive—in the words of T. S. Eliot—“where \[you\] started and know the place for the first time.”[^17] When you are ready, please open your heart to the Book of Mormon, again, for the first time. Please pray with real intent, again, for the first time.
+We learn by asking and searching. But please do not cease exploration until you arrive—in the words of T. S. Eliot—“where \[you\] started and know the place for the first time.”[^17] When you are ready, please open your heart to the Book of Mormon, again, for the first time. Please pray with real intent, again, for the first time.
 
 Trust that early or faint memory. Let it enlarge your faith. With God, there is no point of no return.
 
@@ -121,11 +123,11 @@ I humbly testify and pray that we will always remember Him—in all times, all t
 
 [^6]: “Be Still, My Soul,” *Hymns,* no. 124.
 
-[^7]: [[2 Timothy 3.1|2 Timothy 3:1]]; see also [[2 Timothy 3.2|verses 2–7]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]].
+[^7]: [[2 Timothy 3.1|2 Timothy 3:1]]; see also [[2 Timothy 3.2|verses 2–7]][[2 Timothy 3.3|]][[2 Timothy 3.4|]][[2 Timothy 3.5|]][[2 Timothy 3.6|]][[2 Timothy 3.7|]].
 
 [^8]: [[D&C 3.3|Doctrine and Covenants 3:3]].
 
-[^9]: *Kierkegaard’s Journals and Notebooks: Volume 2, Journals EE–KK,* Bruce H. Kirmmse and others, ed. (2008), 2:179; emphasis in original.
+[^9]: *Kierkegaard’s Journals and Notebooks: Volume 2, Journals EE–KK,* Bruce H. Kirmmse and others, ed. (2008), 2:179; emphasis in original.
 
 [^10]: See “Count Your Blessings,” *Hymns,* no. 241.
 
@@ -141,13 +143,13 @@ I humbly testify and pray that we will always remember Him—in all times, all t
 
 [^16]: [[Psalms 24.3|Psalm 24:3]]; see also [[Psalms 24.4|verse 4]]; experience used with permission.
 
-[^17]: T. S. Eliot, “Little Gidding,” in *Four Quartets* (1943), section 5, lines 241–42.
+[^17]: T. S. Eliot, “Little Gidding,” in *Four Quartets* (1943), section 5, lines 241–42.
 
-[^18]: See, for example, [[Ether 12.23|Ether 12:23–28]][[Ether 12.24|]][[Ether 12.25|]][[Ether 12.26|]][[Ether 12.27|]][[Ether 12.28|]]; Dieter F. Uchtdorf, “[[2013 October - Come, Join with Us.md|Come, Join with Us]],” *Ensign* or *Liahona,* Nov. 2013, 21–24.
+[^18]: See, for example, [[Ether 12.23|Ether 12:23–28]][[Ether 12.24|]][[Ether 12.25|]][[Ether 12.26|]][[Ether 12.27|]][[Ether 12.28|]]; Dieter F. Uchtdorf, “[[2013 October - Come, Join with Us.md|Come, Join with Us]],” *Ensign* or *Liahona,* Nov. 2013, 21–24.
 
 [^19]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 522. He continues here, “Must I, then, be thrown away as a thing of naught?”
 
-[^20]: See [[D&C 27.2|Doctrine and Covenants 27:2–4]][[D&C 27.3|]][[D&C 27.4|]] for modern revelation on the use of water instead of wine.
+[^20]: See [[D&C 27.2|Doctrine and Covenants 27:2–4]][[D&C 27.3|]][[D&C 27.4|]] for modern revelation on the use of water instead of wine.
 
 [^21]: [[JST Mark 14.21|Joseph Smith Translation, Mark 14:21]] (in the Bible appendix).
 
@@ -155,22 +157,17 @@ I humbly testify and pray that we will always remember Him—in all times, all t
 
 [^23]: See [[Alma 34.20|Alma 34:20–21, 28–29]][[Alma 34.21|]][[Alma 34.28|]][[Alma 34.29|]]. In modern revelation, the Lord likewise enjoins us, “Remember in all things the poor and the needy, the sick and the afflicted” ([[D&C 52.40|Doctrine and Covenants 52:40]]).
 
-[^24]: See [[3 Nephi 11.14|3 Nephi 11:14–15]][[3 Nephi 11.15|]].
+[^24]: See [[3 Nephi 11.14|3 Nephi 11:14–15]][[3 Nephi 11.15|]].
 
 [^25]: [[Alma 40.23|Alma 40:23]].
 
 [^26]: See [[D&C 6.37|Doctrine and Covenants 6:37]].
 
-[^27]: See [[3 Nephi 27.14|3 Nephi 27:14]]; see also, for example, [[John 12.32|John 12:32–33]][[John 12.33|]]; [[1 Nephi 11.33|1 Nephi 11:33]]; [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 13.29|Alma 13:29]]; [[Alma 33.19|33:19]]; [[Helaman 8.14|Helaman 8:14–15]][[Helaman 8.15|]].
+[^27]: See [[3 Nephi 27.14|3 Nephi 27:14]]; see also, for example, [[John 12.32|John 12:32–33]][[John 12.33|]]; [[1 Nephi 11.33|1 Nephi 11:33]]; [[Mosiah 23.22|Mosiah 23:22]]; [[Alma 13.29|Alma 13:29]]; [[Alma 33.19|33:19]]; [[Helaman 8.14|Helaman 8:14–15]][[Helaman 8.15|]].
 
-[^28]: [[Isaiah 49.15|Isaiah 49:15–16]][[Isaiah 49.16|]]; see also [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]].
+[^28]: [[Isaiah 49.15|Isaiah 49:15–16]][[Isaiah 49.16|]]; see also [[1 Nephi 21.15|1 Nephi 21:15–16]][[1 Nephi 21.16|]].
 
 [^29]: [[D&C 45.52|Doctrine and Covenants 45:52]].
 
 [^30]: See [[Mosiah 18.9|Mosiah 18:9]].
 
-
-
-
-
-#Atonement #Forgiveness #Gratitude #Jesus_Christ #Offense #Prayer #Repentance #Sabbath #Sacrament #Trust

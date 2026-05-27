@@ -1,6 +1,8 @@
 # Teaching after the Manner of the Spirit
 
-By Matthew O. Richardson - *Second Counselor in the Sunday School General Presidency*
+Richard G. Scott
+
+By Matthew O. Richardson - *Second Counselor in the Sunday School General Presidency*
 
 *Given in the October session of the 2011 General Conference*
 
@@ -47,18 +49,13 @@ My life has been blessed by *real teachers,* who have taught with the Spirit and
 
 [^4]: [[Moroni 10.5|Moroni 10:5]]; see also [[D&C 50.14|Doctrine and Covenants 50:14]]; *True to the Faith: A Gospel Reference* (2004), 82.
 
-[^5]: [[2 Nephi 28.30|2 Nephi 28:30]].
+[^5]: [[2 Nephi 28.30|2 Nephi 28:30]].
 
-[^6]: See David A. Bednar, “Seek Learning by Faith,” *Liahona,* Sept. 2007, 16–24; *Ensign,* Sept. 2007, 61–68.
+[^6]: See David A. Bednar, “Seek Learning by Faith,” *Liahona,* Sept. 2007, 16–24; *Ensign,* Sept. 2007, 61–68.
 
 [^7]: See [[Luke 12.12|Luke 12:12]].
 
 [^8]: See [[John 7.17|John 7:17]].
 
-[^9]: See [[2 Nephi 32.1|2 Nephi 32:1–5]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]].
+[^9]: See [[2 Nephi 32.1|2 Nephi 32:1–5]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]].
 
-
-
-
-
-#Holy_Ghost #Teaching

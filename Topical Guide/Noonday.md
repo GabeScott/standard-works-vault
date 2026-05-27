@@ -1,6 +1,5 @@
 # Noonday
 
-
 thou shalt grope at *noonday*, as the blind gropeth, [[Deuteronomy 28.29|Deuteronomy 28:29]].
 
 we stumble at *noonday* as in the night, [[Isaiah 59.10|Isaiah 59:10]].

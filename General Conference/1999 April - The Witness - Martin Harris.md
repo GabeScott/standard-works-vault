@@ -1,5 +1,7 @@
 # The Witness: Martin Harris
 
+Gordon B. Hinckley
+
 By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1999 General Conference*
@@ -10,9 +12,9 @@ By Elder Dallin H. Oaks - *Of the Quorum of the Twelve Apostles*
 
 ## The Law of Witnesses
 
-Witnesses and witnessing are vital in God’s plan for the salvation of His children. In the Godhead, the function of the Holy Ghost is to bear witness of the Father and the Son (see [[2 Nephi 31.18|2 Ne. 31:18]]). The Father has borne witness of the Son (see [[Matthew 3.17|Matt. 3:17]]; [[Matthew 17.5|17:5]]; [[John 5.31|John 5:31–39]][[John 5.32|]][[John 5.33|]][[John 5.34|]][[John 5.35|]][[John 5.36|]][[John 5.37|]][[John 5.38|]][[John 5.39|]]), and the Son has borne witness of the Father (see [[John 17.1|John 17]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.7|]][[John 17.8|]][[John 17.9|]][[John 17.10|]][[John 17.11|]][[John 17.12|]][[John 17.13|]][[John 17.14|]][[John 17.15|]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.19|]][[John 17.20|]][[John 17.21|]][[John 17.22|]][[John 17.23|]][[John 17.24|]][[John 17.25|]][[John 17.26|]]). The Lord has commanded His servants to testify of Him (see [[Isaiah 43.10|Isa. 43:10]]; [[Mosiah 18.9|Mosiah 18:9]]; [[D&C 84.62|D&C 84:62]]), and all of the prophets have borne witness of Jesus Christ (see [[Acts 10.42|Acts 10:42–43]][[Acts 10.43|]]; [[Revelation 19.10|Rev. 19:10]]).
+Witnesses and witnessing are vital in God’s plan for the salvation of His children. In the Godhead, the function of the Holy Ghost is to bear witness of the Father and the Son (see [[2 Nephi 31.18|2 Ne. 31:18]]). The Father has borne witness of the Son (see [[Matthew 3.17|Matt. 3:17]]; [[Matthew 17.5|17:5]]; [[John 5.31|John 5:31–39]][[John 5.32|]][[John 5.33|]][[John 5.34|]][[John 5.35|]][[John 5.36|]][[John 5.37|]][[John 5.38|]][[John 5.39|]]), and the Son has borne witness of the Father (see [[John 17.1|John 17]][[John 17.2|]][[John 17.3|]][[John 17.4|]][[John 17.5|]][[John 17.6|]][[John 17.7|]][[John 17.8|]][[John 17.9|]][[John 17.10|]][[John 17.11|]][[John 17.12|]][[John 17.13|]][[John 17.14|]][[John 17.15|]][[John 17.16|]][[John 17.17|]][[John 17.18|]][[John 17.19|]][[John 17.20|]][[John 17.21|]][[John 17.22|]][[John 17.23|]][[John 17.24|]][[John 17.25|]][[John 17.26|]]). The Lord has commanded His servants to testify of Him (see [[Isaiah 43.10|Isa. 43:10]]; [[Mosiah 18.9|Mosiah 18:9]]; [[D&C 84.62|D&C 84:62]]), and all of the prophets have borne witness of Jesus Christ (see [[Acts 10.42|Acts 10:42–43]][[Acts 10.43|]]; [[Revelation 19.10|Rev. 19:10]]).
 
-The scriptures state that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Cor. 13:1]]; [[D&C 6.28|D&C 6:28]]; see also [[Deuteronomy 19.15|Deut. 19:15]]). The most important ordinances of salvation—baptism, marriage, and other ordinances of the temple—are required to have witnesses (see [[D&C 127.6|D&C 127:6]]; [[D&C 128.3|128:3]]).
+The scriptures state that “in the mouth of two or three witnesses shall every word be established” ([[2 Corinthians 13.1|2 Cor. 13:1]]; [[D&C 6.28|D&C 6:28]]; see also [[Deuteronomy 19.15|Deut. 19:15]]). The most important ordinances of salvation—baptism, marriage, and other ordinances of the temple—are required to have witnesses (see [[D&C 127.6|D&C 127:6]]; [[D&C 128.3|128:3]]).
 
 The Bible witnesses of Jesus Christ by prophecies of His coming, by accounts of His ministry, and by the testimonies of those who carried His message to the world. The Book of Mormon has the same content: witnesses preceding, during, and following the ministry of the Messiah. Appropriately, it is now subtitled “Another Testament of Jesus Christ.”
 
@@ -20,7 +22,7 @@ The Bible witnesses of Jesus Christ by prophecies of His coming, by accounts of 
 
 There are witnesses of the Book of Mormon itself. I have chosen to speak about the significance of their testimonies and about the life of one of them.
 
-While Joseph Smith was translating the Book of Mormon, the Lord revealed that in addition to the Prophet’s testimony, the world would have “the testimony of three of my servants, whom I shall call and ordain, unto whom I will show these things” ([[D&C 5.11|D&C 5:11]]; see also [[2 Nephi 27.12|2 Ne. 27:12–13]][[2 Nephi 27.13|]]; [[Ether 5.2|Ether 5:2–4]][[Ether 5.3|]][[Ether 5.4|]]). “They shall know of a surety that these things are true,” the Lord declared, “for from heaven will I declare it unto them” ([[D&C 5.12|D&C 5:12]]).
+While Joseph Smith was translating the Book of Mormon, the Lord revealed that in addition to the Prophet’s testimony, the world would have “the testimony of three of my servants, whom I shall call and ordain, unto whom I will show these things” ([[D&C 5.11|D&C 5:11]]; see also [[2 Nephi 27.12|2 Ne. 27:12–13]][[2 Nephi 27.13|]]; [[Ether 5.2|Ether 5:2–4]][[Ether 5.3|]][[Ether 5.4|]]). “They shall know of a surety that these things are true,” the Lord declared, “for from heaven will I declare it unto them” ([[D&C 5.12|D&C 5:12]]).
 
 There were also eight witnesses, but their testimony is a subject for another time.
 
@@ -52,7 +54,7 @@ About nine months after Martin’s rebuke, the Prophet Joseph received a revelat
 
 One of Martin Harris’s greatest contributions to the Church, for which he should be honored for all time, was his financing the publication of the Book of Mormon. In August 1829 he mortgaged his home and farm to Egbert B. Grandin to secure payment on the printer’s contract. Seven months later the 5,000 copies of the first printing of the Book of Mormon were completed. Later, when the mortgage note fell due, the home and a portion of the farm were sold for $3,000. In this way Martin Harris was obedient to the Lord’s revelation:
 
-“Thou shalt not covet thine own property, but impart it freely to the printing of the Book of Mormon. …
+“Thou shalt not covet thine own property, but impart it freely to the printing of the Book of Mormon. …
 
 “Pay the debt thou hast contracted with the printer. Release thyself from bondage” ([[D&C 19.26|D&C 19:26, 35]][[D&C 19.35|]]).
 
@@ -78,7 +80,7 @@ When he reiterated his testimony of the Book of Mormon in the closing days of hi
 
 Martin Harris died in Clarkston, Utah, in 1875, at age 92. His life is commemorated in the memorable pageant *Martin Harris: The Man Who Knew,* produced each summer in Clarkston, Utah.
 
-What do we learn from this example? (1) Witnesses are important, and the testimony of the Three Witnesses to the Book of Mormon is impressive and reliable. (2) Happiness and spiritual progress lie in following the leaders of the Church. (3) There is hope for each of us, even if we have sinned and strayed from a favored position.
+What do we learn from this example? (1) Witnesses are important, and the testimony of the Three Witnesses to the Book of Mormon is impressive and reliable. (2) Happiness and spiritual progress lie in following the leaders of the Church. (3) There is hope for each of us, even if we have sinned and strayed from a favored position.
 
 The Lord’s invitation is warm and loving: “Come back and feast at the table of the Lord, and taste again the sweet and satisfying fruits of fellowship with the saints” (The First Presidency, “An Invitation to Come Back,” *Church News,* 22 Dec. 1985, 3). I testify that this is the word of the Lord and the work of the Lord, in the name of Jesus Christ, amen.
 
@@ -99,8 +101,3 @@ The Lord’s invitation is warm and loving: “Come back and feast at the table 
 
 
 
-
-
-
-
-#Book_Of_Mormon #Church_Leaders #God_The_Father #Holy_Ghost #Jesus_Christ #Plan_Of_Salvation #Testimony

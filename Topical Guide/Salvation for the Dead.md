@@ -1,6 +1,5 @@
 # Salvation for the Dead
 
-
 *See also* [[Baptism.md|Baptism]]; [[Baptism for the Dead.md|Baptism for the Dead]]; [[Genealogy and Temple Work.md|Genealogy and Temple Work]]; [[Salvation.md|Salvation]]
 
 in the *prison*, and after many days shall they be visited, [[Isaiah 24.22|Isaiah 24:22]].
@@ -15,7 +14,7 @@ proclaim *liberty* to the captives, [[Isaiah 61.1|Isaiah 61:1]] ([[Luke 4.18|Luk
 
 sent forth thy *prisoners* out of the pit, [[Zechariah 9.11|Zechariah 9:11]].
 
-turn ... the heart of the *children* to their fathers, [[Malachi 4.6|Malachi 4:6]] ([[Luke 1.17|Luke 1:17]]; [[3 Nephi 25.6|3 Nephi 25:6]]; [[D&C 2.2|D&C 2:2]]; [[D&C 110.15|D&C 110:15]]; [[Joseph Smith History 1.39|Joseph Smith History 1:39]]).
+turn … the heart of the *children* to their fathers, [[Malachi 4.6|Malachi 4:6]] ([[Luke 1.17|Luke 1:17]]; [[3 Nephi 25.6|3 Nephi 25:6]]; [[D&C 2.2|D&C 2:2]]; [[D&C 110.15|D&C 110:15]]; [[Joseph Smith History 1.39|Joseph Smith History 1:39]]).
 
 *bind* on earth shall be bound in heaven, [[Matthew 16.19|Matthew 16:19]] ([[D&C 128.8|D&C 128:8]]).
 
@@ -37,11 +36,11 @@ gospel preached also to them that are *dead*, [[1 Peter 4.6|1 Peter 4:6]].
 
 plant in the hearts of the children the *promises* made to the fathers, [[D&C 2.2|D&C 2:2]] ([[Joseph Smith History 1.39|Joseph Smith History 1:39]]).
 
-spirits ... in *prison*, whom the Son visited, [[D&C 76.73|D&C 76:73]].
+spirits … in *prison*, whom the Son visited, [[D&C 76.73|D&C 76:73]].
 
 received not the *testimony* of Jesus in the flesh, [[D&C 76.74|D&C 76:74]].
 
-redemption of those who ... have received their part in that *prison*, [[D&C 88.99|D&C 88:99]].
+redemption of those who … have received their part in that *prison*, [[D&C 88.99|D&C 88:99]].
 
 baptized for those who are *dead*, [[D&C 124.29|D&C 124:29]].
 
@@ -49,11 +48,11 @@ in relation to the baptism for your *dead*, [[D&C 127.5|D&C 127:5]].
 
 *salvation* of the *dead* who should die without a knowledge of the gospel, [[D&C 128.5|D&C 128:5]].
 
-*salvation* ... for the *dead* as for the living, [[D&C 128.11|D&C 128:11]].
+*salvation* … for the *dead* as for the living, [[D&C 128.11|D&C 128:11]].
 
 book containing the records of our *dead*, [[D&C 128.24|D&C 128:24]].
 
-died without a knowledge of this gospel, who would have received it ... shall be *heirs*, [[D&C 137.7|D&C 137:7]].
+died without a knowledge of this gospel, who would have received it … shall be *heirs*, [[D&C 137.7|D&C 137:7]].
 
 Son of God appeared, declaring *liberty* to the captives, [[D&C 138.18|D&C 138:18]].
 

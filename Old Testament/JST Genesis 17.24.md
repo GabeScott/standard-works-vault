@@ -4,6 +4,3 @@
 
 [JST Genesis 17:24](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-gen/17?lang=eng)
 
-
-
-

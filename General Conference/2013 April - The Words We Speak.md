@@ -1,6 +1,8 @@
 # The Words We Speak
 
-By Rosemary M. Wixom - *Primary General President*
+Thomas S. Monson
+
+By Rosemary M. Wixom - *Primary General President*
 
 *Given in the April session of the 2013 General Conference*
 
@@ -56,7 +58,7 @@ The answer to our prayer of how to meet our children’s needs may be to more of
 
 We can also influence our children through the words we write to them. Nephi writes, “We labor diligently to write, to persuade our children … to believe in Christ, and to be reconciled to God.”[^6]
 
-President Thomas S. Monson shared the experience of Jay Hess, an airman who was shot down over North Vietnam in the 1960s: “For two years his family had no idea whether he was dead or alive. His captors in Hanoi eventually allowed him to write home but limited his message to less than 25 words.” President Monson asks: “What would you and I say to our families if we were in the same situation—not having seen them for over two years and not knowing if we would ever see them again? Wanting to provide something his family could recognize as having come from him and also wanting to give them valuable counsel, Brother Hess wrote \[the following words\]: ‘These things are important: temple marriage, mission, college. Press on, set goals, write history, take pictures twice a year.’”[^7]
+President Thomas S. Monson shared the experience of Jay Hess, an airman who was shot down over North Vietnam in the 1960s: “For two years his family had no idea whether he was dead or alive. His captors in Hanoi eventually allowed him to write home but limited his message to less than 25 words.” President Monson asks: “What would you and I say to our families if we were in the same situation—not having seen them for over two years and not knowing if we would ever see them again? Wanting to provide something his family could recognize as having come from him and also wanting to give them valuable counsel, Brother Hess wrote \[the following words\]: ‘These things are important: temple marriage, mission, college. Press on, set goals, write history, take pictures twice a year.’”[^7]
 
 What words would you write to your children if you had 25 words or less?
 
@@ -77,16 +79,11 @@ May the words we speak and write to our children reflect the love our Heavenly F
 
 [^4]: [[D&C 100.5|Doctrine and Covenants 100:5–6]][[D&C 100.6|]].
 
-[^5]: Lois M. Collins, “Baby’s Development Potentially Harmed by Parents Texting,” *Deseret News,* June 4, 2012, deseretnews.com/article/print/865556895/Babys-development-potentially-harmed-by-parents-texting.html.
+[^5]: Lois M. Collins, “Baby’s Development Potentially Harmed by Parents Texting,” *Deseret News,* June 4, 2012, deseretnews.com/article/print/865556895/Babys-development-potentially-harmed-by-parents-texting.html.
 
-[^6]: [[2 Nephi 25.23|2 Nephi 25:23]].
+[^6]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
-[^7]: Thomas S. Monson, “Finding Joy in the Journey,” *Ensign* or *Liahona,* Nov. 2008, 86.
+[^7]: Thomas S. Monson, “Finding Joy in the Journey,” *Ensign* or *Liahona,* Nov. 2008, 86.
 
 [^8]: [[Matthew 3.17|Matthew 3:17]].
 
-
-
-
-
-#Children #Communication #Listening

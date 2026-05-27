@@ -6,6 +6,6 @@ This term arises out of [[Revelation 12.7|Rev. 12:7]] and refers to the conflict
 
 The warfare is continued in mortality in the conflict between right and wrong, between the gospel and false principles, etc. The same contestants and the same issues are doing battle, and the same salvation is at stake.
 
-Although one-third of the spirits became devils, the remaining two-thirds were not all equally valiant, there being every degree of devotion to Christ and the Father among them. The most diligent were chosen to be rulers in the kingdom ([[Abraham 3.22|Abr. 3:22–23]][[Abraham 3.23|]]). The nature of the conflict, however, is such that there could be no neutrals, then or now ([[Matthew 12.30|Matt. 12:30]]; [[1 Nephi 14.10|1 Ne. 14:10]]; [[Alma 5.38|Alma 5:38–40]][[Alma 5.39|]][[Alma 5.40|]]).
+Although one-third of the spirits became devils, the remaining two-thirds were not all equally valiant, there being every degree of devotion to Christ and the Father among them. The most diligent were chosen to be rulers in the kingdom ([[Abraham 3.22|Abr. 3:22–23]][[Abraham 3.23|]]). The nature of the conflict, however, is such that there could be no neutrals, then or now ([[Matthew 12.30|Matt. 12:30]]; [[1 Nephi 14.10|1 Ne. 14:10]]; [[Alma 5.38|Alma 5:38–40]][[Alma 5.39|]][[Alma 5.40|]]).
 
 

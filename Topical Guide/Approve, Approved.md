@@ -1,6 +1,5 @@
 # Approve, Approved
 
-
 man *approved* of God among you by miracles, [[Acts 2.22|Acts 2:22]].
 
 *approvest* the things that are more excellent, [[Romans 2.18|Romans 2:18]].

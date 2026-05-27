@@ -1,5 +1,7 @@
 # Closing Remarks
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2007 General Conference*
@@ -19,8 +21,3 @@ Now the conference is adjourned for six months. We look forward to seeing you ag
 
 
 
-
-
-
-
-#Family_Home_Evening #General_Conference

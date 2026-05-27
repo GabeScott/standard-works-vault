@@ -1,5 +1,7 @@
 # Climbing to Higher Spirituality
 
+Ezra Taft Benson
+
 By Elder Jacob de Jager - *Of the First Quorum of the Seventy*
 
 *Given in the April session of the 1983 General Conference*
@@ -79,8 +81,3 @@ The same is true for all of us! How do I know this? Because I know with all my h
 
 
 
-
-
-
-
-#Charity #Spirituality

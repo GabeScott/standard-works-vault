@@ -1,5 +1,7 @@
 # “Ponder the Path of Thy Feet”
 
+Gordon B. Hinckley
+
 By Elaine L. Jack - *Relief Society General President*
 
 *Given in the October session of the 1993 General Conference*
@@ -24,7 +26,7 @@ Sisters, the time is past when we can merely believe. We must be passionate in o
 
 Today we see all around us the adversary at work—and he is succeeding. He has twisted truths to his purposes, and throngs have followed. Either we are holding fast to the iron rod or, perhaps, unconsciously, we are letting go by just a few fingers and are slowly slipping away. “Not me,” you might say, but none of us is exempt. Nor are we immune to sidesteps in a frantic rush to do it all, the desire to have it all, and the justification to need it all—now. Satan is ruthless, and his efforts are never ending.
 
-Eliza R. Snow said: “We stand in a different position … ; we have made covenant with God, we understand his order” (*Millennial Star,* Sept. 1871, p. 578). These covenants include the counsel to Emma Smith recorded in the Doctrine and Covenants to “lay aside the things of this world, and seek for the things of a better” ([[D&C 25.10|D&C 25:10]]).
+Eliza R. Snow said: “We stand in a different position … ; we have made covenant with God, we understand his order” (*Millennial Star,* Sept. 1871, p. 578). These covenants include the counsel to Emma Smith recorded in the Doctrine and Covenants to “lay aside the things of this world, and seek for the things of a better” ([[D&C 25.10|D&C 25:10]]).
 
 I am dedicated to that charge.
 
@@ -36,7 +38,7 @@ There are times when we do have helping hands and times when there are no hands 
 
 A 93-year-old sister in Idaho describes her path with, “I have had happiness and much trouble, much sorrow.” Our experiences help us understand where she’s been. Though our Lord Jesus Christ could have called down the powers of heaven, his paths were often solitary and his agony—in the end—borne by him alone.
 
-Christ’s cause was singular and focused, for he proclaimed, “I came into the world to do the will of my Father” ([[3 Nephi 27.13|3 Ne. 27:13]]). And so must we. Our willingness to take seriously our covenants brings comfort amid sorrows, joy amid pain, blessings amid suffering.
+Christ’s cause was singular and focused, for he proclaimed, “I came into the world to do the will of my Father” ([[3 Nephi 27.13|3 Ne. 27:13]]). And so must we. Our willingness to take seriously our covenants brings comfort amid sorrows, joy amid pain, blessings amid suffering.
 
 All around the Church are wonderful women who exert great influence. Sisters, we have much to share: our spiritual strength, our sense of purpose, our commitment to the gospel, our blessings as a result of the holy priesthood. Look closely with me at these four areas where we make such a difference.
 
@@ -44,7 +46,7 @@ All around the Church are wonderful women who exert great influence. Sisters, we
 
 We have within us the Spirit of the Lord to guide us on the path of righteousness. Daily, we choose between temptation and sanctification. We seek spiritual moments as we read the scriptures. We pray and carry that prayer in our hearts. We know the peace that comes from hearing not applause or an answering machine but that still small voice that whispers ever so softly. We listen less to the world and more to the promptings from on high.
 
-Remember that the spirit is not the same as self. The spirit is not enhanced by selfishness, self-pity, self-pride, and self-deception. “To be spiritually-minded is life eternal” ([[2 Nephi 9.39|2 Ne. 9:39]]).
+Remember that the spirit is not the same as self. The spirit is not enhanced by selfishness, self-pity, self-pride, and self-deception. “To be spiritually-minded is life eternal” ([[2 Nephi 9.39|2 Ne. 9:39]]).
 
 Our spirituality is also recharged by each other. Show charity for each other. Show understanding, not judgment; kindness, not blame; joy, not envy. Love as the Lord loves.
 
@@ -70,15 +72,15 @@ She was committed to her covenants, and she valued the blessings of the priestho
 
 *We are women who know the blessings of the priesthood.*
 
-We have the blessings of the priesthood in these latter days to help us see clearly and act accordingly. As disciples of Christ we are blessed with more than common sense, good ideas, and righteous inclinations. We must always remember that “Jesus Christ is the great High Priest of God; Christ is therefore the source of all true priesthood authority and power on this earth” (*Encyclopedia of Mormonism,* New York: Macmillan, 1992, p. 1133).
+We have the blessings of the priesthood in these latter days to help us see clearly and act accordingly. As disciples of Christ we are blessed with more than common sense, good ideas, and righteous inclinations. We must always remember that “Jesus Christ is the great High Priest of God; Christ is therefore the source of all true priesthood authority and power on this earth” (*Encyclopedia of Mormonism,* New York: Macmillan, 1992, p. 1133).
 
 We know what it is to place our faith, our prayers, our confidence, and our esteem in those whom God has appointed to lead. The Lord has told us that “whether by mine own voice or by the voice of my servants, it is the same” ([[D&C 1.38|D&C 1:38]]).
 
-I want you to know that I, as the general president of the Relief Society, embrace the blessings that come from serving under the direction of leaders who hold the priesthood. We must stand united as a people for the Lord to call us one. Elder John A. Widtsoe spoke of men and women yoked together in their joint devotion to righteous principles when he said: “In the ordinances of the Priesthood man and woman share alike. … In the Church of Christ, woman is not an adjunct to, but an equal partner with man” (*Relief Society Magazine,* June-July 1943, p. 373).
+I want you to know that I, as the general president of the Relief Society, embrace the blessings that come from serving under the direction of leaders who hold the priesthood. We must stand united as a people for the Lord to call us one. Elder John A. Widtsoe spoke of men and women yoked together in their joint devotion to righteous principles when he said: “In the ordinances of the Priesthood man and woman share alike. … In the Church of Christ, woman is not an adjunct to, but an equal partner with man” (*Relief Society Magazine,* June-July 1943, p. 373).
 
 Women and men have available every priesthood blessing essential for salvation—the blessings of being baptized, receiving the Holy Ghost, renewing our covenants through taking the sacrament, and making and keeping temple covenants. As women of covenant, we know and understand the guidance in the Doctrine and Covenants, which is counsel for women as well as for men: “Their hearts are set so much upon the things of this world, and aspire to the honors of men, that they do not learn this one lesson—
 
-“… the powers of heaven cannot be controlled nor handled only upon the principles of righteousness” ([[D&C 121.35|D&C 121:35–36]][[D&C 121.36|]]).
+“… the powers of heaven cannot be controlled nor handled only upon the principles of righteousness” ([[D&C 121.35|D&C 121:35–36]][[D&C 121.36|]]).
 
 Now, once again, may I say, “Ponder the path of thy feet.” Look to the Lord for direction and guidance as my choice counselors and this faithful sister have testified here tonight.
 
@@ -89,8 +91,3 @@ I ask that each of you take to heart these messages and know that they come from
 
 
 
-
-
-
-
-#Commitment #Covenants #Spirituality

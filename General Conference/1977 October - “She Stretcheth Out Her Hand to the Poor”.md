@@ -1,6 +1,8 @@
 # “She Stretcheth Out Her Hand to the Poor”
 
-By Barbara B. Smith - *Relief Society General President*
+Spencer W. Kimball
+
+By Barbara B. Smith - *Relief Society General President*
 
 *Given in the October session of the 1977 General Conference*
 
@@ -44,6 +46,16 @@ The stake Relief Society president can help the ward presidents in many ways to 
 
 1. By making use of the files
 
+In giving Relief Society service assignments to women;
+
+
+In recommending homemaking minicourses or special training in managerial or organizational skills so that women will have more time for service; and
+
+
+In recommending sisters to community service projects;
+
+
+
 2. By helping women who desire to serve to evaluate their circumstances, commitments, time, and physical strength (married women might like to do this in consultation with their husbands); and
 
 3. By encouraging women to enlist the cooperation of family members and others in order to make service easier.
@@ -65,8 +77,3 @@ It is my prayer that women may, with discernment, minister to the poor and needy
 
 
 
-
-
-
-
-#Service #Women

@@ -1,5 +1,7 @@
 # At Parting
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1992 General Conference*
@@ -39,20 +41,15 @@ The work is true. Jesus is the Christ. Ezra Taft Benson is a prophet of God. I s
 
 
 
-[^1]: In Conference Report, 3 Oct. 1965, p. 144; or *Improvement Era,* Dec. 1965, p. 1160.
+[^1]: In Conference Report, 3 Oct. 1965, p. 144; or *Improvement Era,* Dec. 1965, p. 1160.
 
-[^2]: In Conference Report, Apr. 1971, p. 162; or *Ensign,* June 1971, p. 110.
+[^2]: In Conference Report, Apr. 1971, [[1971 April - A Witness and a Blessing.md|p. 162]]; or *Ensign,* June 1971, p. 110.
 
-[^3]: In Conference Report, Oct. 1972, p. 176; or *Ensign,* Jan. 1973, p. 134.
+[^3]: In Conference Report, Oct. 1972, [[1972 October - A Blessing for the Saints.md|p. 176]]; or *Ensign,* Jan. 1973, p. 134.
 
-[^4]: In Conference Report, Oct. 1977, p. 113; or *Ensign,* Nov. 1977, p. 75.
+[^4]: In Conference Report, Oct. 1977, [[1977 October - Jesus the Christ.md|p. 113]]; or *Ensign,* Nov. 1977, p. 75.
 
-[^5]: In Conference Report, Apr. 1988, p. 97; or *Ensign,* May 1988, p. 84.
+[^5]: In Conference Report, Apr. 1988, [[1988 April - “Come unto Christ, and Be Perfected in Him”.md|p. 97]]; or *Ensign,* May 1988, p. 84.
 
 [^6]: *Hymns,* 1985, no. 156.
 
-
-
-
-
-#Ezra_Taft_Benson #Obedience #Prophets

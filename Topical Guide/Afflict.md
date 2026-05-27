@@ -1,17 +1,16 @@
 # Afflict
 
-
-*See also* [[Oppression, Oppress.md|Oppression]]; [[Persecution, Persecute.md|Persecution]]
+*See also* [[Oppression.md|Oppression]]; [[Persecution.md|Persecution]]
 
 shall not *afflict* any widow, or fatherless child, [[Exodus 22.22|Exodus 22:22]].
 
-*afflict* your souls, [[Leviticus 16.29|Leviticus 16:29]] ([[Leviticus 16.31|Leviticus 16:31]]; [[Leviticus 23.27|Leviticus 23:27]], [[Leviticus 23.32|Leviticus 23:32]]; [[Numbers 29.7|Numbers 29:7]]).
+*afflict* your souls, [[Leviticus 16.29|Leviticus 16:29]] ([[Leviticus 16.31|Leviticus 16:31]]; [[Leviticus 23.27|Leviticus 23:27]]; [[Leviticus 23.32|Leviticus 23:32]]; [[Numbers 29.7|Numbers 29:7]]).
 
 that we might *afflict* ourselves before our God, [[Ezra 8.21|Ezra 8:21]].
 
 God shall hear, and *afflict* them, [[Psalms 55.19|Psalms 55:19]].
 
-Fools ... because of their iniquities, are *afflicted*, [[Psalms 107.17|Psalms 107:17]].
+Fools … because of their iniquities, are *afflicted*, [[Psalms 107.17|Psalms 107:17]].
 
 Before I was *afflicted* I went astray, [[Psalms 119.67|Psalms 119:67]].
 

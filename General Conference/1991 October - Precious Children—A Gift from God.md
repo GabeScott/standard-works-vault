@@ -1,5 +1,7 @@
 # Precious Children—A Gift from God
 
+Gordon B. Hinckley
+
 By President Thomas S. Monson - *Second Counselor in the First Presidency*
 
 *Given in the October session of the 1991 General Conference*
@@ -32,7 +34,7 @@ Our children have three classrooms of learning which are quite distinct one from
 
 The Church has always had a vital interest in public education and encourages its members to participate in parent-teacher activities and other events designed to improve the education of our youth.
 
-There is no more important aspect of public education than the teacher who has the opportunity to love, to teach, and to inspire eager boys and girls and young men and young women. President David O. McKay said: “Teaching is the noblest profession in the world. Upon the proper education of youth depend the permanency and purity of home, the safety and perpetuity of the nation. The parent gives the child an opportunity to live; the teacher enables the child to live well” (*Gospel Ideals* \[Salt Lake City: Improvement Era, 1953\], p. 436). I trust we shall recognize their importance and their vital mission by providing adequate facilities, the finest of books, and salaries which show our gratitude and our trust.
+There is no more important aspect of public education than the teacher who has the opportunity to love, to teach, and to inspire eager boys and girls and young men and young women. President David O. McKay said: “Teaching is the noblest profession in the world. Upon the proper education of youth depend the permanency and purity of home, the safety and perpetuity of the nation. The parent gives the child an opportunity to live; the teacher enables the child to live well” (*Gospel Ideals* \[Salt Lake City: Improvement Era, 1953\], p. 436). I trust we shall recognize their importance and their vital mission by providing adequate facilities, the finest of books, and salaries which show our gratitude and our trust.
 
 Each of us remembers with affection the teachers of our youth. I think it amusing that my elementary school music teacher was a Miss Sharp. She had the capacity to infuse within her pupils a love for music and taught us to identify musical instruments and their sounds. I well recall the influence of a Miss Ruth Crow who taught the subject of health. Though these were depression times, she ensured that each sixth-grade student had a dental health chart. She personally checked each pupil for dental health and made certain that through public or private resources, no child went without proper dental care. As Miss Burkhaus, who taught geography, rolled down the maps of the world and with her pointer marked the capital cities of nations and the distinctive features of each country, language, and culture, little did I anticipate or dream that one day I would visit these lands and peoples.
 
@@ -46,7 +48,7 @@ The humble and inspired teacher in the church classroom can instill in her pupil
 
 Perhaps most significant of all classrooms is the classroom of the home. It is in the home that we form our attitudes, our deeply held beliefs. It is in the home that hope is fostered or destroyed. Our homes are the laboratories of our lives. What we do there determines the course of our lives when we leave home. Dr. Stuart E. Rosenberg wrote in his book *The Road to Confidence,* “Despite all new inventions and modern designs, fads and fetishes, no one has yet invented, or will ever invent, a satisfying substitute for one’s own family.”
 
-A happy home is but an earlier heaven. President George Albert Smith asked, “\[Do\] we want our homes to be happy\[?\] If we do, let them be the abiding place of prayer, thanksgiving and gratitude” (in Conference Report, Apr. 1944, p. 32).
+A happy home is but an earlier heaven. President George Albert Smith asked, “\[Do\] we want our homes to be happy\[?\] If we do, let them be the abiding place of prayer, thanksgiving and gratitude” (in Conference Report, Apr. 1944, p. 32).
 
 There are those situations where children come to mortality with a physical or mental handicap. Try as we will, it is not possible to know why or how such events occur. I salute those parents who without complaint take such a child into their arms and into their lives and provide that added measure of sacrifice and love to one of Heavenly Father’s children.
 
@@ -68,7 +70,7 @@ When doing so, the truth of the words of Charles M. Dickinson come to mind:
 
 In our daily experiences with children, we discover they are most perceptive and often utter profound truths. Charles Dickens, the author of the classic *A Christmas Carol,* illustrated this fact when he described the humble Bob Cratchit family assembling for a rather meager but long-anticipated Christmas dinner. Bob, the father, was returning home with his frail son Tiny Tim upon his shoulder. Tiny Tim “bore a little crutch, and had his limbs supported by an iron frame.” Bob’s wife asked of him, “And how did little Tim behave?”
 
-“‘As good as gold,’ said Bob, ‘and better. Somehow he gets thoughtful, sitting by himself so much, and thinks the strangest things you ever heard. He told me, coming home, that he hoped the people saw him in the church, because he was a cripple, and it might be pleasant to them to remember upon Christmas Day who made lame beggars walk, and blind men see’” (*Christmas Carol and Cricket on the Hearth* \[New York: Grosset and Dunlop, n.d.\], pp. 50–51).
+“‘As good as gold,’ said Bob, ‘and better. Somehow he gets thoughtful, sitting by himself so much, and thinks the strangest things you ever heard. He told me, coming home, that he hoped the people saw him in the church, because he was a cripple, and it might be pleasant to them to remember upon Christmas Day who made lame beggars walk, and blind men see’” (*Christmas Carol and Cricket on the Hearth* \[New York: Grosset and Dunlop, n.d.\], pp. 50–51).
 
 Charles Dickens himself said, “I love these little people, and it is not a slight thing when they who are so fresh from God love us.”
 
@@ -82,7 +84,7 @@ Children seem to be endowed with abiding faith in their Heavenly Father and His 
 
 Let me share with you the experience of Barry Bonnell and Dale Murphy, well-known professional baseball players formerly with the Atlanta Braves baseball club. Each is a convert to the Church, Dale Murphy having been baptized by Barry Bonnell.
 
-“An experience occurred during the 1978 season that Barry described as ‘life changing.’ He was struggling terribly, batting about .200. Because of his poor performance, he was down on himself and felt miserable. He really didn’t want to go when Dale Murphy asked him to ‘come along to the hospital,’ but he went anyway. There he met Ricky Little, a stalwart \[Atlanta\] Braves’ supporter, but a youngster afflicted with leukemia. It was readily apparent that Ricky was near death. Barry felt a deep desire to think of something comforting to say but nothing seemed adequate. Finally, he asked if there was anything they could do. The youngster hesitated, and then asked if they would each hit a home run for him during the next game. Barry said \[later\], ‘That request wasn’t such a hard thing for Dale, who in fact hit two homers that night, but I was struggling at the plate and hadn’t hit a homer all year. Then I felt a warm feeling come over me and I told Ricky to count on it.’” That night, Barry hit his only home run of the season. (Jim Ison, *Mormons in the Major Leagues* \[Cincinnati: Action Sports, 1991\], p. 21.) A child’s prayer had been answered; a child’s wish had been fulfilled.
+“An experience occurred during the 1978 season that Barry described as ‘life changing.’ He was struggling terribly, batting about .200. Because of his poor performance, he was down on himself and felt miserable. He really didn’t want to go when Dale Murphy asked him to ‘come along to the hospital,’ but he went anyway. There he met Ricky Little, a stalwart \[Atlanta\] Braves’ supporter, but a youngster afflicted with leukemia. It was readily apparent that Ricky was near death. Barry felt a deep desire to think of something comforting to say but nothing seemed adequate. Finally, he asked if there was anything they could do. The youngster hesitated, and then asked if they would each hit a home run for him during the next game. Barry said \[later\], ‘That request wasn’t such a hard thing for Dale, who in fact hit two homers that night, but I was struggling at the plate and hadn’t hit a homer all year. Then I felt a warm feeling come over me and I told Ricky to count on it.’” That night, Barry hit his only home run of the season. (Jim Ison, *Mormons in the Major Leagues* \[Cincinnati: Action Sports, 1991\], p. 21.) A child’s prayer had been answered; a child’s wish had been fulfilled.
 
 If only all children had loving parents, safe homes, and caring friends, what a wonderful world would be theirs. Unfortunately, not all children are so bounteously blessed. Some children witness their fathers savagely beating their mothers, while others are on the receiving end of such abuse. What cowardice, what depravity, what shame!
 
@@ -92,7 +94,7 @@ A district judge, in a letter to me, declared: “Sexual abuse of children is on
 
 The Church does not condone such heinous and vile conduct. Rather, we condemn in the harshest of terms such treatment of God’s precious children. Let the child be rescued, nurtured, loved, and healed. Let the offender be brought to justice, to accountability for his actions and receive professional treatment to curtail such wicked and devilish conduct. When you and I know of such conduct and fail to take action to eradicate it, we become part of the problem. We share part of the guilt. We experience part of the punishment.
 
-I trust I have not spoken too harshly, but I love these little ones and know that the Lord loves them too. No more touching account of this love can be found than the experience of Jesus blessing the children as described in 3 Nephi. It tells of Jesus healing the sick, teaching the people, and praying to Heavenly Father for them. But then let me quote the precious words:
+I trust I have not spoken too harshly, but I love these little ones and know that the Lord loves them too. No more touching account of this love can be found than the experience of Jesus blessing the children as described in 3 Nephi. It tells of Jesus healing the sick, teaching the people, and praying to Heavenly Father for them. But then let me quote the precious words:
 
 “\[Jesus\] took their little children, one by one, and blessed them, and prayed unto the Father for them.
 
@@ -100,7 +102,7 @@ I trust I have not spoken too harshly, but I love these little ones and know tha
 
 “And he spake unto the multitude, and said unto them: Behold your little ones.
 
-“And as they looked to behold they cast their eyes towards heaven, and they saw the heavens open, and they saw angels descending out of the heaven as it were in the midst of fire; … and the angels did minister unto them” ([[3 Nephi 17.21|3 Ne. 17:21–24]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
+“And as they looked to behold they cast their eyes towards heaven, and they saw the heavens open, and they saw angels descending out of the heaven as it were in the midst of fire; … and the angels did minister unto them” ([[3 Nephi 17.21|3 Ne. 17:21–24]][[3 Nephi 17.22|]][[3 Nephi 17.23|]][[3 Nephi 17.24|]]).
 
 You may ask, “Do such things occur even today?” Let me share with you the beautiful account of a grandmother and a grandfather now serving a mission and the manner in which their little grandson was blessed. The missionary grandfather wrote:
 
@@ -121,5 +123,3 @@ My dear brothers and sisters, may the laughter of children gladden our hearts. M
 
 
 
-
-#Abuse #Family #Teaching

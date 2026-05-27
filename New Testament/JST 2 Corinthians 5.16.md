@@ -4,6 +4,3 @@
 
 [JST 2 Corinthians 5:16](https://www.churchofjesuschrist.org/study/scriptures/jst/jst-2-cor/5?lang=eng)
 
-
-
-

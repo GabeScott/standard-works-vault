@@ -1,12 +1,14 @@
 # Three Important Questions
 
-By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
+Spencer W. Kimball
+
+By Elder ElRay L. Christiansen - *Assistant to the Council of the Twelve*
 
 *Given in the April session of the 1974 General Conference*
 
 [Link](https://www.churchofjesuschrist.org/study/general-conference/1974/04/three-important-questions?lang=eng)
 
-I’m grateful, my brothers and sisters, for the much-needed down-to-earth counsel given us this morning by the Lord’s spokesman, President Spencer W. Kimball, as well as for the timely and helpful remarks of the other speakers who have preceded me. Timely, because the Lord has said, “For I will raise up unto myself a pure people, that will serve me in righteousness.” ([[D&C 100.16|D&C 100:16]].) “Purge ye out the iniquity which is among you; sanctify yourselves before me, … and ye shall be endowed with power.” ([[D&C 43.11|D&C 43:11, 16]][[D&C 43.16|]].)
+I’m grateful, my brothers and sisters, for the much-needed down-to-earth counsel given us this morning by the Lord’s spokesman, President Spencer W. Kimball, as well as for the timely and helpful remarks of the other speakers who have preceded me. Timely, because the Lord has said, “For I will raise up unto myself a pure people, that will serve me in righteousness.” ([[D&C 100.16|D&C 100:16]].) “Purge ye out the iniquity which is among you; sanctify yourselves before me, … and ye shall be endowed with power.” ([[D&C 43.11|D&C 43:11, 16]][[D&C 43.16|]].)
 
 Brothers and sisters, you will soon see that our subjects are not assigned. All I can say, since I will talk about the same things Elder Hinckley has talked about, is somebody here needs a double dose. On that premise, I shall proceed. And in what I shall say I also have in mind those of you particularly who have yet to answer and resolve three important questions:
 
@@ -22,7 +24,7 @@ Probably the most consequential event in your lives takes place when you are uni
 
 In a matter of such vast importance, it is imperative that sober thought be given to marriage long before it takes place.
 
-We must realize that marriage is designed by the Lord for a divine purpose, whereby a servant and handmaiden of the Lord may prepare themselves in righteousness to receive chosen spirits coming from our Eternal Father, and give them bodies of flesh for their mortal probation, and then undertake with all the power at their command to lead these spirit children entrusted into their care back into the presence of God from whence they came. Such “… children are legal heirs to the Kingdom and to all its blessings and promises. …” (*Discourses of Brigham Young,* p. 195.)
+We must realize that marriage is designed by the Lord for a divine purpose, whereby a servant and handmaiden of the Lord may prepare themselves in righteousness to receive chosen spirits coming from our Eternal Father, and give them bodies of flesh for their mortal probation, and then undertake with all the power at their command to lead these spirit children entrusted into their care back into the presence of God from whence they came. Such “… children are legal heirs to the Kingdom and to all its blessings and promises. …” (*Discourses of Brigham Young,* p. 195.)
 
 True love is not earthbound. It is as eternal as our spirits, which never die. A continuing association in this life, as well as in the next, with those we love, should be the great desire of every person. It is the ultimate. It is the great purpose of mortality.
 
@@ -57,8 +59,3 @@ You who stand on the threshold of marriage, you who have been taught the eternit
 
 
 
-
-
-
-
-#Marriage

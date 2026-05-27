@@ -1,6 +1,8 @@
 # Help Them Aim High
 
-By President Henry B. Eyring - *First Counselor in the First Presidency*
+Thomas S. Monson
+
+By President Henry B. Eyring - *First Counselor in the First Presidency*
 
 *Given in the October session of the 2012 General Conference*
 
@@ -38,7 +40,7 @@ I carved “Bold as a Lion” on his board, beneath an image of a large lion’s
 
 That can happen for the young man you are leading. You need to build his faith that the Lord can transform him into a servant braver than the timid boy you now see.
 
-We know the Lord makes His servants bold. The young boy Joseph who saw God the Father and His Son, Jesus Christ, in a grove of trees was transformed into a spiritual giant. Parley P. Pratt saw that when the Prophet Joseph Smith rebuked the vile guards who held them captive. Elder Pratt recorded:
+We know the Lord makes His servants bold. The young boy Joseph who saw God the Father and His Son, Jesus Christ, in a grove of trees was transformed into a spiritual giant. Parley P. Pratt saw that when the Prophet Joseph Smith rebuked the vile guards who held them captive. Elder Pratt recorded:
 
 “On a sudden he arose to his feet, and spoke in a voice of thunder, or as the roaring lion, uttering, as near as I can recollect, the following words:
 
@@ -76,7 +78,7 @@ When my daughters were young, I saw that we could help others feel the love of t
 
 So we carved breadboards on which we placed a loaf of homemade bread and went together to deliver our offering to widows, widowers, and families. The legend I carved on each of those breadboards read, “J’aime et J’espere,” French for “I love and I hope.” The evidence of their unique spiritual gifts appeared not just on the boards I carved but more clearly as we distributed them to those who needed, in the midst of pain or loss, reassurance that the love of the Savior and His Atonement could produce a perfect brightness of hope. This is life eternal for my daughters and for each of us.
 
-Now, you may be thinking, “Brother Eyring, are you saying that I have to learn how to carve?” The answer is no. I learned to carve only with the help of a kind and gifted mentor, then-Elder Boyd K. Packer. What little skill I achieved can be attributed to his great gift as a carver and his patience as a teacher. Only heaven can provide such a mentor as President Packer. But there are many ways you can shape children’s hearts without carving wooden boards or height boards for them.
+Now, you may be thinking, “Brother Eyring, are you saying that I have to learn how to carve?” The answer is no. I learned to carve only with the help of a kind and gifted mentor, then-Elder Boyd K. Packer. What little skill I achieved can be attributed to his great gift as a carver and his patience as a teacher. Only heaven can provide such a mentor as President Packer. But there are many ways you can shape children’s hearts without carving wooden boards or height boards for them.
 
 For example, new communication technologies allow sharing messages of faith and hope across the miles that separate us, instantaneously and at little or no cost. My wife helps me do this. We begin by talking by telephone with grandchildren or children we can reach. We ask them to share stories of their personal successes and their service rendered. We also invite them to send photos of those activities. We use those photos to illustrate a few paragraphs of text. We add one or two verses from the Book of Mormon. Perhaps Nephi and Mormon wouldn’t be very impressed by the spiritual quality of our content or the limited effort required to create what we call “The Family Journal: The Small Plates.” But Sister Eyring and I are blessed by the effort. We feel inspired in selecting the passages of scripture and the brief messages of testimony we write. And we see evidence in their lives of their hearts being turned toward us and to the Savior and upward.
 
@@ -103,7 +105,7 @@ I promise you that if you ask, you will be blessed to help and lift others to th
 
 [^2]: [[Proverbs 28.1|Proverbs 28:1]].
 
-[^3]: *Autobiography of Parley P. Pratt,* ed. Parley P. Pratt Jr. (1938), 211.
+[^3]: *Autobiography of Parley P. Pratt,* ed. Parley P. Pratt Jr. (1938), 211.
 
 [^4]: [[D&C 62.3|Doctrine and Covenants 62:3]].
 
@@ -113,8 +115,3 @@ I promise you that if you ask, you will be blessed to help and lift others to th
 
 [^7]: [[D&C 46.11|Doctrine and Covenants 46:11]].
 
-
-
-
-
-#Priesthood #Spirituality #Talents #Youth

@@ -1,5 +1,7 @@
 # Closing Remarks
 
+Gordon B. Hinckley
+
 By President Gordon B. Hinckley - *President of the Church*
 
 *Given in the October session of the 2006 General Conference*
@@ -23,8 +25,3 @@ For this we pray as we bid you good-bye for another six months, in the sacred an
 
 
 
-
-
-
-
-#General_Conference #Peace

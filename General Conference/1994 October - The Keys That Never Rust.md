@@ -1,5 +1,7 @@
 # The Keys That Never Rust
 
+Gordon B. Hinckley
+
 By Elder James E. Faust - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1994 General Conference*
@@ -69,9 +71,9 @@ As we conclude this historic conference, I am pleased to testify to the world of
 
 
 
-[^1]: Quoted in “Joseph Smith, the Prophet,” *Young Woman’s Journal,* Dec. 1906, p. 543; see also Don L. Searle, “A Disciple in Deed,” *Ensign,* June 1994, p. 15.
+[^1]: Quoted in “Joseph Smith, the Prophet,” *Young Woman’s Journal,* Dec. 1906, p. 543; see also Don L. Searle, “A Disciple in Deed,” *Ensign,* June 1994, p. 15.
 
-[^2]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 158; see also [[Matthew 17.1|Matt. 17:1–3]][[Matthew 17.2|]][[Matthew 17.3|]].
+[^2]: *Teachings of the Prophet Joseph Smith,* sel. Joseph Fielding Smith (Salt Lake City: Deseret Book Co., 1938), p. 158; see also [[Matthew 17.1|Matt. 17:1–3]][[Matthew 17.2|]][[Matthew 17.3|]].
 
 [^3]: See [[D&C 27.12|D&C 27:12–13]][[D&C 27.13|]].
 
@@ -79,34 +81,29 @@ As we conclude this historic conference, I am pleased to testify to the world of
 
 [^5]: Joseph Fielding Smith, *Doctrines of Salvation,* comp. Bruce R. McConkie, 3 vols. (Salt Lake City: Bookcraft, 1954–56), 1:259.
 
-[^6]: “The Keys of the Kingdom,” *Millennial Star,* 2 Sept. 1889, p. 546.
+[^6]: “The Keys of the Kingdom,” *Millennial Star,* 2 Sept. 1889, p. 546.
 
 [^7]: *History of the Church,* 7:233.
 
 [^8]: *Doctrines of Salvation,* 3:156.
 
-[^9]: *Millennial Star,* 2 Sept. 1889, p. 547.
+[^9]: *Millennial Star,* 2 Sept. 1889, p. 547.
 
-[^10]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), p. 142.
+[^10]: Joseph F. Smith, *Gospel Doctrine,* 5th ed. (Salt Lake City: Deseret Book Co., 1939), p. 142.
 
 [^11]: See [[D&C 13.1|D&C 13]]; [[D&C 107.20|107:20]].
 
 [^12]: [[D&C 84.19|D&C 84:19]].
 
-[^13]: See Giorgio Tourn, *The Waldensians: The First 800 Years,* trans. Camillo P. Merlino (Torino: Claudiana, 1980), pp. 3–4.
+[^13]: See Giorgio Tourn, *The Waldensians: The First 800 Years,* trans. Camillo P. Merlino (Torino: Claudiana, 1980), pp. 3–4.
 
-[^14]: Archibald F. Bennett, “The Vaudois Revisited,” *Improvement Era,* Jan. 1948, p. 12.
+[^14]: Archibald F. Bennett, “The Vaudois Revisited,” *Improvement Era,* Jan. 1948, p. 12.
 
 [^15]: Lines 1–2.
 
 [^16]: “For the Strength of the Hills,” *Hymns,* 1985, no. 35. Original text was a poem titled “Hymn of the Vaudois Mountaineers in Times of Persecution.”
 
-[^17]: Archibald F. Bennett, “The Vaudois of the Alpine Valleys and Their Contribution to Utah and Latter-day Saint History” (student paper, Brigham Young University, 1960), pp. 8–9, 16; in Historical Department, The Church of Jesus Christ of Latter-day Saints, Salt Lake City.
+[^17]: Archibald F. Bennett, “The Vaudois of the Alpine Valleys and Their Contribution to Utah and Latter-day Saint History” (student paper, Brigham Young University, 1960), pp. 8–9, 16; in Historical Department, The Church of Jesus Christ of Latter-day Saints, Salt Lake City.
 
-[^18]: [[2 Peter 1.20|2 Pet. 1:20]].
+[^18]: [[2 Peter 1.20|2 Pet. 1:20]].
 
-
-
-
-
-#Authority #Obedience #Priesthood #Prophets

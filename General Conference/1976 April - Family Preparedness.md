@@ -1,6 +1,8 @@
 # Family Preparedness
 
-By President Spencer W. Kimball - *President of the Church*
+Spencer W. Kimball
+
+By President Spencer W. Kimball - *President of the Church*
 
 *Given in the April session of the 1976 General Conference*
 
@@ -24,7 +26,7 @@ Brethren and sisters, we’ve gathered here this morning to consider the importa
 
 The story came from England during their siege of strikes, power blackouts, and three-day work weeks. A shop in a small British town carried a banner on its front window: “By candle power, battery power, and willpower, we will open six days a week.” That willpower apparently is the most important.
 
-There are some countries which prohibit savings or surpluses. We do not understand it, but it is true. And we honor, obey, and sustain the laws of the country which is ours. (See [[Articles of Faith 1.12|A of F 1:12]].) Where it is permitted, though, which is most of the world, we should listen to the counsel of the Brethren and to the Lord.
+There are some countries which prohibit savings or surpluses. We do not understand it, but it is true. And we honor, obey, and sustain the laws of the country which is ours. (See [[Articles of Faith 1.12|A of F 1:12]].) Where it is permitted, though, which is most of the world, we should listen to the counsel of the Brethren and to the Lord.
 
 Recognizing that the family is the basic unit of both the Church and society generally, we call upon Latter-day Saints everywhere to strengthen and beautify the home with renewed effort in these specific areas: food production, preservation, storage; the production and storage of nonfood items; fixup and cleanup of homes and surroundings. We wish to say another word about this in the next meeting.
 
@@ -50,9 +52,9 @@ It was Paul who wrote, “Neither did we eat any man’s bread for nought; but w
 
 “For we hear that there are some which walk among you disorderly, working not at all, but are busybodies.
 
-“Now them that are such, we command and exhort by our Lord Jesus Christ, that with quietness they work, and eat their own bread.” ([[2 Thessalonians 3.8|2 Thes. 3:8, 10–12]][[2 Thessalonians 3.10|]][[2 Thessalonians 3.11|]][[2 Thessalonians 3.12|]].)
+“Now them that are such, we command and exhort by our Lord Jesus Christ, that with quietness they work, and eat their own bread.” ([[2 Thessalonians 3.8|2 Thes. 3:8, 10–12]][[2 Thessalonians 3.10|]][[2 Thessalonians 3.11|]][[2 Thessalonians 3.12|]].)
 
-“But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse \[worse!\] than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
+“But if any provide not for his own, and specially for those of his own house, he hath denied the faith, and is worse \[worse!\] than an infidel.” ([[1 Timothy 5.8|1 Tim. 5:8]].)
 
 I’m so grateful for the inspiration of the Brethren who have helped once again to fasten our attention on the particular matters involved in the Priesthood Welfare Program. I appreciate the long-time devotion and leadership of President Romney in this important cause. I cannot think of the Priesthood Welfare Program and how we would do things without him.
 
@@ -86,15 +88,10 @@ I’m always distressed when I see clerks in stores and banks and offices who co
 
 Only a week or so ago we sat in a restaurant and for a long time received no attention. Finally we heard one girl say to the other, “Why don’t you wait on those people?” The answer was, “They’re not in my assignment.” But there they were, standing over there, without anything apparently to do.
 
-Perhaps we need the compelling urgency of our forefathers. They had to work hard to survive. We have securities of this and that sort to make sure that we do not starve. Dr. D. Ewen Cameron, a psychiatrist, wrote *This Life Is for Living,* and in it he said, “For half a century we have heard the most moving of lamentations from employers over the passing of the old-time worker, the fellow who really loved his work, who hung around until he was satisfied that the job was done, who would think out ways to do it better. This kind of worker has not disappeared from the job; it is his kind of job that has done the disappearing.”
+Perhaps we need the compelling urgency of our forefathers. They had to work hard to survive. We have securities of this and that sort to make sure that we do not starve. Dr. D. Ewen Cameron, a psychiatrist, wrote *This Life Is for Living,* and in it he said, “For half a century we have heard the most moving of lamentations from employers over the passing of the old-time worker, the fellow who really loved his work, who hung around until he was satisfied that the job was done, who would think out ways to do it better. This kind of worker has not disappeared from the job; it is his kind of job that has done the disappearing.”
 
 Brethren and sisters, I’m sure it is time that I should close. But I want to commend the words of Sister Smith and the Presiding Bishopric and President Romney to you and say that this is a gospel of action and whatever we learn we should put into action. God bless us that we may have the determination to carry forward all of these commandments of the Lord which have been conveyed to us. I say this in the name of Jesus Christ. Amen.
 
 
 
 
-
-
-
-
-#Family #Self-Reliance #Work

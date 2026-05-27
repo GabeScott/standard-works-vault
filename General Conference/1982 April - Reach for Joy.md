@@ -1,5 +1,7 @@
 # Reach for Joy
 
+Spencer W. Kimball
+
 By Elaine Cannon - *General President of the Young Women*
 
 *Given in the April session of the 1982 General Conference*
@@ -57,8 +59,3 @@ We love you. We pray for you. We find comfort in your example. And I pray this d
 
 
 
-
-
-
-
-#Adversity #Joy

@@ -1,6 +1,8 @@
 # Brighter and Brighter until the Perfect Day
 
-By Elder Mark A. Bragg - *Of the Seventy*
+Bonnie H. Cordon
+
+By Elder Mark A. Bragg - *Of the Seventy*
 
 *Given in the April session of the 2017 General Conference*
 
@@ -16,9 +18,9 @@ Paul shared a wonderful message of hope with the Corinthians:
 
 What was the source of Paul’s hope? Listen to his explanation: “For God, who commanded the light to shine out of darkness, hath shined in our hearts, to give the light of the knowledge of the glory of God in the face of Jesus Christ.”[^2]
 
-Even in the most difficult and darkest of times, there is light and goodness all around us. Last October, President Dieter F. Uchtdorf reminded us, “We are surrounded by such an astonishing wealth of light and truth that I wonder if we truly appreciate what we have.”[^3]
+Even in the most difficult and darkest of times, there is light and goodness all around us. Last October, President Dieter F. Uchtdorf reminded us, “We are surrounded by such an astonishing wealth of light and truth that I wonder if we truly appreciate what we have.”[^3]
 
-However, the adversary would rather have us focus on “mists of darkness … which blindeth the eyes, … hardeneth … hearts … , and … leadeth … away.”[^4]
+However, the adversary would rather have us focus on “mists of darkness … which blindeth the eyes, … hardeneth … hearts … , and … leadeth … away.”[^4]
 
 Nevertheless, with perfect understanding of the challenges of our day, the Lord promises, “That which is of God is light; and he that receiveth light, and continueth in God, receiveth more light; and that light groweth brighter and brighter until the perfect day.”[^5]
 
@@ -32,7 +34,7 @@ Brothers and sisters, please take comfort that there is light available to us. M
 
 ## 1. The Light of the Church
 
-The Church is a beacon of light to a darkening world. This is a wonderful time to be a member of The Church of Jesus Christ of Latter-day Saints! The Church is stronger than it has ever been[^8] and quite literally grows stronger each day as new members join us, new congregations are formed, new missionaries are called, and new territories are opened to the gospel. We see those who have slipped from activity in the Church for a time returning as the rescue envisioned by President Thomas S. Monson brings daily miracles.
+The Church is a beacon of light to a darkening world. This is a wonderful time to be a member of The Church of Jesus Christ of Latter-day Saints! The Church is stronger than it has ever been[^8] and quite literally grows stronger each day as new members join us, new congregations are formed, new missionaries are called, and new territories are opened to the gospel. We see those who have slipped from activity in the Church for a time returning as the rescue envisioned by President Thomas S. Monson brings daily miracles.
 
 I recently visited with youth in Paraguay, Uruguay, Chile, and Argentina during their For the Strength of Youth conferences. Thousands and thousands of young men and women spent a week strengthening their love of the Savior and then returned home to their families and friends, radiating the light and love of Christ.
 
@@ -52,7 +54,7 @@ In a darkening world, the *light of the gospel* will shine brighter and brighter
 
 ## 3. The Light of Christ
 
-You cannot speak of the light *in* the world without speaking of the Light *of* the World, Jesus Christ. A manifestation of a loving Heavenly Father is that everyone who comes to this life is blessed with the Light of Christ to help them return home. President Boyd K. Packer taught: “The Spirit of Christ is always there. … The Light of Christ is as universal as sunlight itself. Wherever there is human life, there is the Spirit of Christ.”[^13] The Light of Christ “inviteth and enticeth to do good continually”[^14] and prepares all who seek goodness and truth to receive the Holy Ghost.
+You cannot speak of the light *in* the world without speaking of the Light *of* the World, Jesus Christ. A manifestation of a loving Heavenly Father is that everyone who comes to this life is blessed with the Light of Christ to help them return home. President Boyd K. Packer taught: “The Spirit of Christ is always there. … The Light of Christ is as universal as sunlight itself. Wherever there is human life, there is the Spirit of Christ.”[^13] The Light of Christ “inviteth and enticeth to do good continually”[^14] and prepares all who seek goodness and truth to receive the Holy Ghost.
 
 The Savior teaches that He is the light that “enlighteneth your eyes,” “quickeneth your understandings,” and “giveth life to all things.”[^15] The Light of Christ will help us see others through the Savior’s eyes. We will be more loving and understanding of the struggles of others. It will help us be more patient with those who may not worship as we do or serve as we might. It will help us understand the great plan of happiness more fully and see how we all fit into that great loving plan. It gives life, meaning, and purpose to all that we do. Now, with all the happiness that will come to us as we more fully understand the Light of Christ, it will not match the joy that we feel when we see the Light of Christ working in others: family, friends, and even complete strangers.
 
@@ -65,31 +67,31 @@ I again echo the words of Paul: “Let us put on the armour of light.”[^16] I 
 
 
 
-[^1]: [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
+[^1]: [[2 Corinthians 4.8|2 Corinthians 4:8–9]][[2 Corinthians 4.9|]].
 
-[^2]: [[2 Corinthians 4.6|2 Corinthians 4:6]].
+[^2]: [[2 Corinthians 4.6|2 Corinthians 4:6]].
 
-[^3]: Dieter F. Uchtdorf, “[[2016 October - O How Great the Plan of Our God!.md|O How Great the Plan of Our God!]]” *Ensign* or *Liahona,* Nov. 2016, 20.
+[^3]: Dieter F. Uchtdorf, “[[2016 October - O How Great the Plan of Our God!.md|O How Great the Plan of Our God!]]” *Ensign* or *Liahona,* Nov. 2016, 20.
 
-[^4]: [[1 Nephi 12.17|1 Nephi 12:17]].
+[^4]: [[1 Nephi 12.17|1 Nephi 12:17]].
 
 [^5]: [[D&C 50.24|Doctrine and Covenants 50:24]].
 
-[^6]: Kim Cameron, *Positive Leadership: Strategies for Extraordinary Performance,* 2nd ed. (2012), xii; see also Kim S. Cameron, “Leading with Energy,” Wheatley Institution Fellow Notes, Feb. 17, 2017, wheatley.byu.edu.
+[^6]: Kim Cameron, *Positive Leadership: Strategies for Extraordinary Performance,* 2nd ed. (2012), xii; see also Kim S. Cameron, “Leading with Energy,” Wheatley Institution Fellow Notes, Feb. 17, 2017, wheatley.byu.edu.
 
 [^7]: See Cameron, *Positive Leadership,* 33, 36, 39.
 
-[^8]: See Quentin L. Cook, “[[2015 April - The Lord Is My Light.md|The Lord Is My Light]],” *Ensign* or *Liahona,* May 2015, 65.
+[^8]: See Quentin L. Cook, “[[2015 April - The Lord Is My Light.md|The Lord Is My Light]],” *Ensign* or *Liahona,* May 2015, 65.
 
 [^9]: [[Proverbs 4.18|Proverbs 4:18]].
 
-[^10]: *Preach My Gospel: A Guide to Missionary Service* (2004), 3.
+[^10]: *[Preach My Gospel: A Guide to Missionary Service](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-a-guide-to-missionary-service/what-is-my-purpose-as-a-missionary?lang=eng)* (2004), 3.
 
-[^11]: “[The Family: A Proclamation to the World](https://churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
+[^11]: “[The Family: A Proclamation to the World](https://www.churchofjesuschrist.org/study/scriptures/the-family-a-proclamation-to-the-world/the-family-a-proclamation-to-the-world?lang=eng),” *Ensign* or *Liahona,* Nov. 2010, 129.
 
-[^12]: Bible Dictionary, “[Temple](https://churchofjesuschrist.org/study/scriptures/bd/temple?lang=eng).”
+[^12]: Bible Dictionary, “[[BD Temple|Temple]].”
 
-[^13]: Boyd K. Packer, “[The Light of Christ](https://churchofjesuschrist.org/study/liahona/2005/04/the-light-of-christ?lang=eng),” *Ensign* or *Liahona,* Apr. 2005, 13.
+[^13]: Boyd K. Packer, “[The Light of Christ](https://www.churchofjesuschrist.org/study/liahona/2005/04/the-light-of-christ?lang=eng),” *Ensign* or *Liahona,* Apr. 2005, 13.
 
 [^14]: [[Moroni 7.13|Moroni 7:13]].
 
@@ -99,8 +101,3 @@ I again echo the words of Paul: “Let us put on the armour of light.”[^16] I 
 
 [^17]: [[James 1.17|James 1:17]]; [[D&C 67.9|Doctrine and Covenants 67:9]].
 
-
-
-
-
-#Church_Activity #Family #Holy_Ghost #Jesus_Christ #Light_Of_Christ #Temple_Work

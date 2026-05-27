@@ -1,5 +1,7 @@
 # Healing Your Damaged Life
 
+Gordon B. Hinckley
+
 By Elder Richard G. Scott - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 1992 General Conference*
@@ -22,9 +24,9 @@ I have no interest but to help you. Will you listen? I may challenge some of you
 
 You may be tired of others trying to run your life—always telling you what to do. After all, you have the right to make your own choices. That is correct. You have that right. It is your agency. The secret to solving problems in your life will be found in understanding and using the eternally beneficial interaction of your *agency* and His *truth.*
 
-The Master said: “He that keepeth \[the\] commandments receiveth truth and light. …
+The Master said: “He that keepeth \[the\] commandments receiveth truth and light. …
 
-“Light and truth forsake that evil one. …
+“Light and truth forsake that evil one. …
 
 *“And that wicked one cometh and taketh away light and truth, through disobedience, from the children of men”* ([[D&C 93.28|D&C 93:28, 37, 39]][[D&C 93.37|]][[D&C 93.39|]]; emphasis added).
 
@@ -72,11 +74,11 @@ This comment, used by permission of one someone else helped, shows how the Lord 
 
 I testify that the Savior heals permanently. He said:
 
-“Have ye any *that … are afflicted in any manner?* Bring them hither and I will heal them. …
+“Have ye any *that … are afflicted in any manner?* Bring them hither and I will heal them. …
 
-“For I see that your faith is sufficient that I should heal you. …
+“For I see that your faith is sufficient that I should heal you. …
 
-“And he did heal them every one” ([[3 Nephi 17.7|3 Ne. 17:7–9]][[3 Nephi 17.8|]][[3 Nephi 17.9|]]; emphasis added).
+“And he did heal them every one” ([[3 Nephi 17.7|3 Ne. 17:7–9]][[3 Nephi 17.8|]][[3 Nephi 17.9|]]; emphasis added).
 
 I testify that the Savior will heal you as you choose to obey truth and use your agency according to His counsel.
 
@@ -85,8 +87,3 @@ May the Lord soften your heart that you may know the things we have discussed ar
 
 
 
-
-
-
-
-#Agency #Healing #Truth

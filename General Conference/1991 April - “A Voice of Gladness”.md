@@ -1,5 +1,7 @@
 # “A Voice of Gladness”
 
+Thomas S. Monson
+
 By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1991 General Conference*
@@ -8,7 +10,7 @@ By Elder Marvin J. Ashton - *Of the Quorum of the Twelve Apostles*
 
 Less than four months after The Church of Jesus Christ of Latter-day Saints was organized, the leaders were subject to intense persecution. Partial seclusion had become necessary. During this trying period Joseph Smith had the following revealed to him:
 
-“Behold, thou wast called and chosen to write the Book of Mormon, and to my ministry; and I have lifted thee up out of thine afflictions, and have counseled thee, that thou hast been delivered from all thine enemies, and thou hast been delivered from the powers of Satan and from darkness! …
+“Behold, thou wast called and chosen to write the Book of Mormon, and to my ministry; and I have lifted thee up out of thine afflictions, and have counseled thee, that thou hast been delivered from all thine enemies, and thou hast been delivered from the powers of Satan and from darkness! …
 
 “Be patient in afflictions, for thou shalt have many; but endure them, for, lo, I am with thee, even unto the end of thy days” ([[D&C 24.1|D&C 24:1, 8]][[D&C 24.8|]]).
 
@@ -44,11 +46,11 @@ One sixteen-year-old boy said, “Man, without a sense of humor I wouldn’t hav
 
 The author interviewed the youths with cancer and read many letters from them. She found one word constantly surfacing: *attitude.*
 
-“They took personal pride in the fact that they were fighting something bigger than they were and stronger than they were—something that might even overpower them. But they still had something their enemies couldn’t take away—hope. It is a formidable weapon. … When all else fails, pull out the big artillery, HOPE, and hang on” (Bombeck, pp. 5–6).
+“They took personal pride in the fact that they were fighting something bigger than they were and stronger than they were—something that might even overpower them. But they still had something their enemies couldn’t take away—hope. It is a formidable weapon. … When all else fails, pull out the big artillery, HOPE, and hang on” (Bombeck, pp. 5–6).
 
 Words of hope and gladness are often repeated in the scriptures to help us think and perform positively.
 
-Isaiah says of Jesus Christ: “And when we shall see him, there is no beauty that we should desire him … ; a man of sorrows, and acquainted with grief: and … he was despised, and we esteemed him not” ([[Isaiah 53.2|Isa. 53:2–3]][[Isaiah 53.3|]]).
+Isaiah says of Jesus Christ: “And when we shall see him, there is no beauty that we should desire him … ; a man of sorrows, and acquainted with grief: and … he was despised, and we esteemed him not” ([[Isaiah 53.2|Isa. 53:2–3]][[Isaiah 53.3|]]).
 
 But even though His suffering was beyond our comprehension, His voice of gladness reminds us, “Be of good cheer; I have overcome the world” ([[John 16.33|John 16:33]]). Jesus challenges all of us to be happy and optimistic. As the cancer patients learned and medical research has proven: “A merry heart doeth good like a medicine: but a broken spirit drieth the bones” ([[Proverbs 17.22|Prov. 17:22]]).
 
@@ -100,7 +102,7 @@ The voices of gladness were not always available to the masses. Death by fire wa
 
 Little by little, customs were changed by valiant people. Now we have scriptures and words of prophets for us to study. With the help of the Holy Ghost, it is our opportunity to understand and live by the doctrine of salvation.
 
-The voices of gladness from the scriptures remind us that we don’t have to walk through life alone. Christ came that we might have life and have it more abundantly. “For we know that it is by grace that we are saved, *after* all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]; italics added).
+The voices of gladness from the scriptures remind us that we don’t have to walk through life alone. Christ came that we might have life and have it more abundantly. “For we know that it is by grace that we are saved, *after* all we can do” ([[2 Nephi 25.23|2 Ne. 25:23]]; italics added).
 
 Let us remember that acts of kindness with pure motives and righteous purposes can be and are encouraged to be done in quietness, gentle voices, and in privacy. We can program ourselves to build, encourage, and give strength.
 
@@ -111,8 +113,3 @@ May I share my witness and testimony that I know God is pleased when we declare 
 
 
 
-
-
-
-
-#Adversity #Attitude #Faith #Gratitude #Hope

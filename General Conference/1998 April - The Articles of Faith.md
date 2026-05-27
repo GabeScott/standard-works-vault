@@ -1,5 +1,7 @@
 # The Articles of Faith
 
+Gordon B. Hinckley
+
 By Elder L. Tom Perry - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 1998 General Conference*
@@ -24,9 +26,9 @@ Perhaps a brief review of the content of each of the thirteen Articles of Faith 
 
 The first article anchors our belief in God our Eternal Father, in His Son, Jesus Christ, and in the Holy Ghost. How grateful we are for a knowledge of Supreme Beings that rule and govern this world. Our belief does not come from the speculations of men about the existence and nature of God, but from firsthand experience from the Prophet Joseph Smith in the Sacred Grove. His experience clarified for mankind the existence of God the Father, God the Son, and God the Holy Ghost. Thus to the world came the vision that three personages comprise this great presiding council of the universe and have revealed themselves to mankind as three separate beings, physically distinct from each other as demonstrated by the accepted records of their divine dealings with mankind. We know the occasions where they have been in evidence to mankind as three distinct personages. It is clear that the Father is a personal being possessing a definite form of body, parts, and spiritual passions, that Jesus Christ was with the Father in spirit before coming to dwell in the flesh, and that through Him worlds were made. He lived among men as a man, with all of the physical characteristics of a human being. After His Resurrection He appeared in that same form. The Holy Ghost, also called Spirit or Spirit of the Lord, Spirit of God, Comforter, or the Spirit of the Truth, is not tabernacled in a body of flesh and bones but is a personage of spirit. The Holy Ghost is a witness of the Father and of the Son, declaring to man their attributes, bearing record of the other personages of the Godhead.
 
-The second and third articles announce our belief in the Atonement of our Lord and Savior, that through Him all mankind will be blessed with immortality. They state that we have the responsibility for accepting Him as our Savior and we will only be responsible for our “own sins, and not for Adam’s transgression” ([[Articles of Faith 1.2|A of F 1:2]]).
+The second and third articles announce our belief in the Atonement of our Lord and Savior, that through Him all mankind will be blessed with immortality. They state that we have the responsibility for accepting Him as our Savior and we will only be responsible for our “own sins, and not for Adam’s transgression” ([[Articles of Faith 1.2|A of F 1:2]]).
 
-The fourth and fifth articles refer to our belief in the first principles of the gospel. They are faith in the Lord Jesus Christ and repentance. We also learn that the first ordinances of the gospel are baptism and the gift of the Holy Ghost. These ordinances are bestowed by men “called of God, by prophecy, and by the laying on of hands by those” who have the authority to administer them ([[Articles of Faith 1.5|A of F 1:5]]).
+The fourth and fifth articles refer to our belief in the first principles of the gospel. They are faith in the Lord Jesus Christ and repentance. We also learn that the first ordinances of the gospel are baptism and the gift of the Holy Ghost. These ordinances are bestowed by men “called of God, by prophecy, and by the laying on of hands by those” who have the authority to administer them ([[Articles of Faith 1.5|A of F 1:5]]).
 
 We believe that from the very beginning the Lord established a plan for His children on earth. He would, in times and seasons, have the priesthood on earth to bless mankind with the authority to perform the sacred ordinances that would prove man’s obedience to His will. There were tests to be conducted as we progressed in each step towards achieving God’s greatest gift, the gift of life eternal. Fundamental, then, is to have faith in His plan, in His law; to be clean and holy and to repent of our sins; and to partake of the sacred ordinance of baptism required for admission into His celestial kingdom; and after baptism to be given the great gift, that Comforter, to abide with us, to lead and guide and direct us as we progress through mortality—all of these done under the authority given to mankind from God. Each man who officiates can trace that authority directly back to the Lord Himself, who bestowed that right on mankind.
 
@@ -38,7 +40,7 @@ The eighth article states our belief in the Bible as the “word of God as far a
 
 Article ten tells of our belief “in the literal gathering of Israel,” that Zion will be built again and Christ will return and “reign personally upon the earth.” It was in June of 1830 that Samuel Smith, the brother of the Prophet, embarked on the first missionary journey to proclaim the truthfulness of the Book of Mormon. Thus began the gathering of Zion. The word went forth from Mount Zion to the peoples of the earth that the gospel had been restored. Today the work of uniting our Father in Heaven’s children continues as we prepare for His ultimate return, for His millennial reign over the earth. We are anxiously and personally engaged in that great literal gathering when we profess His everlasting gospel to our friends, our neighbors, and the other peoples of the earth.
 
-The eleventh and twelfth articles profess our belief in religious liberty, tolerance, and agency. Agency is one of the great gifts of God to His children. It allows all men and women the right to choose for themselves and to earn their own individual salvation. Also declared is our belief in secular governments and “in obeying, honoring, and sustaining the law” of the land ([[Articles of Faith 1.12|A of F 1:12]]).
+The eleventh and twelfth articles profess our belief in religious liberty, tolerance, and agency. Agency is one of the great gifts of God to His children. It allows all men and women the right to choose for themselves and to earn their own individual salvation. Also declared is our belief in secular governments and “in obeying, honoring, and sustaining the law” of the land ([[Articles of Faith 1.12|A of F 1:12]]).
 
 The thirteenth article provides a special insight into how we should conduct our lives and present ourselves before the peoples of the earth. It reads: “We believe in being honest, true, chaste, benevolent, virtuous, and in doing good to all men; indeed, we may say that we follow the admonition of Paul—We believe all things, we hope all things, we have endured many things, and hope to be able to endure all things. If there is anything virtuous, lovely, or of good report or praiseworthy, we seek after these things.”
 
@@ -51,8 +53,3 @@ I add my testimony to the truthfulness of these special revealed truths, in the 
 
 
 
-
-
-
-
-#Agency #Articles_Of_Faith #Atonement #Book_Of_Mormon #Covenants #Faith #Godhead #Government #Obedience #Ordinances #Priesthood #Repentance #Sin #Spirituality #Zion

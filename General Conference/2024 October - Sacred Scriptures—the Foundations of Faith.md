@@ -1,6 +1,8 @@
 # Sacred Scriptures—the Foundations of Faith
 
-By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Quentin L. Cook - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -52,13 +54,13 @@ In many significant respects, the Book of Mormon provides fundamental doctrine t
 
 The Bible provides an accurate account of the mortal ministry of Jesus Christ, including His death and Resurrection. The Book of Mormon is more explicit about the Atonement of Jesus Christ,[^14] something prophets explained in detail prior to His death.
 
-The heading to [[Alma 42.1|Alma chapter 42]][[Alma 42.2|]][[Alma 42.3|]][[Alma 42.4|]][[Alma 42.5|]][[Alma 42.6|]][[Alma 42.7|]][[Alma 42.8|]][[Alma 42.9|]][[Alma 42.10|]][[Alma 42.11|]][[Alma 42.12|]][[Alma 42.13|]][[Alma 42.14|]][[Alma 42.15|]][[Alma 42.16|]][[Alma 42.17|]][[Alma 42.18|]][[Alma 42.19|]][[Alma 42.20|]][[Alma 42.21|]][[Alma 42.22|]][[Alma 42.23|]][[Alma 42.24|]][[Alma 42.25|]][[Alma 42.26|]][[Alma 42.27|]][[Alma 42.28|]][[Alma 42.29|]][[Alma 42.30|]][[Alma 42.31|]] reflects the doctrinal significance of the Atonement of Jesus Christ.
+The heading to [[Alma 42.1|Alma chapter 42]] reflects the doctrinal significance of the Atonement of Jesus Christ.
 
 It reads: “Mortality is a probationary time to enable man to repent and serve God—The Fall brought temporal and spiritual death upon all mankind—Redemption comes through repentance—God Himself atones for the sins of the world—Mercy is for those who repent—All others are subject to God’s justice—Mercy comes because of the Atonement—Only the truly penitent are saved.”
 
-President Russell M. Nelson has said, “I promise that as you prayerfully study the Book of Mormon *every day*, you will make better decisions—*every day*.” He also promises that if “you daily immerse yourself in the Book of Mormon, you can be immunized against the evils of the day.”[^15]
+President Russell M. Nelson has said, “I promise that as you prayerfully study the Book of Mormon *every day*, you will make better decisions—*every day*.” He also promises that if “you daily immerse yourself in the Book of Mormon, you can be immunized against the evils of the day.”[^15]
 
-As I mentioned, I was impressed with the concept of the original handheld device—a book. However, I recognize the incredible significance of the internet in the world today. One modern handheld device can provide the information that historically has filled a major library. We are grateful to live in such a time as this. I am particularly grateful that it allows sacred books and Church materials to be available digitally. The internet is a powerful tool for studying the gospel.[^16] Today, many people share scriptures with friends using technology. The , for example, is a wonderful way to introduce friends to the Book of Mormon and can easily be shared in normal and natural ways wherever you may be.
+As I mentioned, I was impressed with the concept of the original handheld device—a book. However, I recognize the incredible significance of the internet in the world today. One modern handheld device can provide the information that historically has filled a major library. We are grateful to live in such a time as this. I am particularly grateful that it allows sacred books and Church materials to be available digitally. The internet is a powerful tool for studying the gospel.[^16] Today, many people share scriptures with friends using technology. The [Book of Mormon app](https://go.churchofjesuschrist.org/bookofmormonapp), for example, is a wonderful way to introduce friends to the Book of Mormon and can easily be shared in normal and natural ways wherever you may be.
 
 While the internet provides many blessings, unfortunately, like the written pamphlets critical of the Church I described earlier, it has also been used to create doubt and undermine faith in precious gospel principles. It can be part of the “evils of the day” that President Nelson mentioned.
 
@@ -79,35 +81,35 @@ I bear my sure witness of the divinity of Jesus Christ and the reality of His At
 
 
 
-[^1]: See [[2 Timothy 3.16|2 Timothy 3:16]].
+[^1]: See [[2 Timothy 3.16|2 Timothy 3:16]].
 
-[^2]: See *Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ* (2023), 28; see also [[2 Nephi 2.7|2 Nephi 2:7]]; [[3 Nephi 12.19|3 Nephi 12:19]]; [[D&C 20.37|Doctrine and Covenants 20:37]]; Ezra Taft Benson, “[A Mighty Change of Heart](https://churchofjesuschrist.org/study/ensign/1989/10/a-mighty-change-of-heart?lang=eng),” *Ensign*, Oct. 1989, 2–5.
+[^2]: See *[Preach My Gospel: A Guide to Sharing the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/04-chapter-3/07-chapter-3-invite?lang=eng&id=p3#p3)* (2023), 28; see also [[2 Nephi 2.7|2 Nephi 2:7]]; [[3 Nephi 12.19|3 Nephi 12:19]]; [[D&C 20.37|Doctrine and Covenants 20:37]]; Ezra Taft Benson, “[A Mighty Change of Heart](https://www.churchofjesuschrist.org/study/ensign/1989/10/a-mighty-change-of-heart?lang=eng),” *Ensign*, Oct. 1989, 2–5.
 
 [^3]: Sisters Beverly Bridge and Cheryl Morgan were the sister missionaries.
 
-[^4]: The son, William E. Mussman III, had graduated from Stanford and was attending law school at the University of California, in San Francisco. His sister, Ann C. Mussman, was attending Stanford University.
+[^4]: The son, William E. Mussman III, had graduated from Stanford and was attending law school at the University of California, in San Francisco. His sister, Ann C. Mussman, was attending Stanford University.
 
 [^5]: Sisters Eleanor Mehr and Louise Johnson were the stake missionaries.
 
-[^6]: The New York Latter-day Saint Professional Association (NYLDSPA) honored Reverend A. R. Bernard and Coach Andrew “Andy” W. Reid at the historic interdenominational Riverside Church in Manhattan. Church leaders from our faith and many other faiths were also present, including prior honoree Rabbi Joseph Potasnik.
+[^6]: The New York Latter-day Saint Professional Association (NYLDSPA) honored Reverend A. R. Bernard and Coach Andrew “Andy” W. Reid at the historic interdenominational Riverside Church in Manhattan. Church leaders from our faith and many other faiths were also present, including prior honoree Rabbi Joseph Potasnik.
 
-[^7]: See Tad Walch, “How Andy Reid’s Beliefs in Jesus Christ and a Second Chance for Michael Vick Guide the Kansas City Chiefs,” *Deseret News*, July 3, 2024, deseret.com.
+[^7]: See Tad Walch, “How Andy Reid’s Beliefs in Jesus Christ and a Second Chance for Michael Vick Guide the Kansas City Chiefs,” *Deseret News*, July 3, 2024, deseret.com.
 
-[^8]: Over 198,000 new converts have been baptized between January 1, 2024, through August 30, 2024 (information provided by the Missionary Department).
+[^8]: Over 198,000 new converts have been baptized between January 1, 2024, through August 30, 2024 (information provided by the Missionary Department).
 
-[^9]: *Preach My Gospel* chapter 5 describes why the Book of Mormon is the keystone of our religion.
+[^9]: *[Preach My Gospel](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/13-chapter-5?lang=eng)* chapter 5 describes why the Book of Mormon is the keystone of our religion.
 
-[^10]: [Introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
+[^10]: [Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
 
-[^11]: The Prophet Joseph Smith testified that a man would get nearer to God by abiding by the precepts taught in the Book of Mormon than by any other book (see the [introduction to the Book of Mormon](https://churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)).
+[^11]: The Prophet Joseph Smith testified that a man would get nearer to God by abiding by the precepts taught in the Book of Mormon than by any other book (see the [introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng)).
 
 [^12]: See [[Moroni 10.4|Moroni 10:4]].
 
-[^13]: See [[Ezekiel 37.15|Ezekiel 37:15–17]][[Ezekiel 37.16|]][[Ezekiel 37.17|]]; see also [[2 Nephi 3.12|2 Nephi 3:12]].
+[^13]: See [[Ezekiel 37.15|Ezekiel 37:15–17]][[Ezekiel 37.16|]][[Ezekiel 37.17|]]; see also [[2 Nephi 3.12|2 Nephi 3:12]].
 
-[^14]: The word *Atonement*, referring to the Atonement of Jesus Christ, is mentioned only once in the New Testament (see [[Romans 5.11|Romans 5:11]]). In the Book of Mormon, the word *Atonement* is referenced 24 times. [[2 Nephi 2.10|2 Nephi 2:10]] describes “the happiness” which is affixed through the Atonement (see also index to the Book of Mormon, “Jesus Christ, Atonement through”).
+[^14]: The word *Atonement*, referring to the Atonement of Jesus Christ, is mentioned only once in the New Testament (see [[Romans 5.11|Romans 5:11]]). In the Book of Mormon, the word *Atonement* is referenced 24 times. [[2 Nephi 2.10|2 Nephi 2:10]] describes “the happiness” which is affixed through the Atonement (see also index to the Book of Mormon, “Jesus Christ, Atonement through”).
 
-[^15]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]],” *Ensign* or *Liahona*, Nov. 2017, 62–63.
+[^15]: Russell M. Nelson, “[[2017 October - The Book of Mormon - What Would Your Life Be Like without It.md|The Book of Mormon: What Would Your Life Be Like without It?]],” *Ensign* or *Liahona*, Nov. 2017, 62–63.
 
 [^16]: Just think how blessed we are every week as we study from *Come, Follow Me* online.
 
@@ -117,8 +119,3 @@ I bear my sure witness of the divinity of Jesus Christ and the reality of His At
 
 [^19]: The Church has experienced significant growth and increased attendance in recent years. The percent leaving the Church is less than in the past, but we need every member.
 
-
-
-
-
-#Book_Of_Mormon #Conversion #Scriptures

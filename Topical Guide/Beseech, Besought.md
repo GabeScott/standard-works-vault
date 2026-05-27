@@ -1,6 +1,5 @@
 # Beseech, Besought
 
-
 *See also* [[Ask.md|Ask]]; [[Beg.md|Beg]]; [[Entreat.md|Entreat]]; [[Petition.md|Petition]]; [[Plead.md|Plead]]; [[Request.md|Request]]
 
 when he *besought* us, and we would not hear, [[Genesis 42.21|Genesis 42:21]].
@@ -19,7 +18,7 @@ came a leper to him, *beseeching* him, [[Mark 1.40|Mark 1:40]].
 
 *besought* him that he would cast forth the devil, [[Mark 7.26|Mark 7:26]].
 
-*beseeching* ... that he would come and heal his servant, [[Luke 7.3|Luke 7:3]].
+*beseeching* … that he would come and heal his servant, [[Luke 7.3|Luke 7:3]].
 
 Master, I *beseech* thee, look upon my son, [[Luke 9.38|Luke 9:38]].
 
@@ -29,7 +28,7 @@ they *besought* him that he would tarry with them, [[John 4.40|John 4:40]].
 
 I *beseech* you, be ye followers of me, [[1 Corinthians 4.16|1 Corinthians 4:16]].
 
-*beseech* you also that ye receive not ... in vain, [[2 Corinthians 6.1|2 Corinthians 6:1]].
+*beseech* you also that ye receive not … in vain, [[2 Corinthians 6.1|2 Corinthians 6:1]].
 
 For this thing I *besought* the Lord thrice, [[2 Corinthians 12.8|2 Corinthians 12:8]].
 
@@ -37,4 +36,4 @@ Brethren, I *beseech* you, be as I am, [[Galatians 4.12|Galatians 4:12]].
 
 *beseech* you that ye walk worthy of the vocation, [[Ephesians 4.1|Ephesians 4:1]].
 
-I *beseech* you ... abstain from fleshly lusts, [[1 Peter 2.11|1 Peter 2:11]].
+I *beseech* you … abstain from fleshly lusts, [[1 Peter 2.11|1 Peter 2:11]].

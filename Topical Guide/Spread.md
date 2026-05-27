@@ -1,7 +1,6 @@
 # Spread
 
-
-eagle ... *spreadeth* abroad her wings, [[Deuteronomy 32.11|Deuteronomy 32:11]].
+eagle … *spreadeth* abroad her wings, [[Deuteronomy 32.11|Deuteronomy 32:11]].
 
 *spread* forth his hands toward heaven, [[1 Kings 8.22|1 Kings 8:22]].
 
@@ -23,7 +22,7 @@ did not put an end to the *spreading* of priestcraft, [[Alma 1.16|Alma 1:16]].
 
 adversary *spreadeth* his dominions, [[D&C 82.5|D&C 82:5]].
 
-Zion ... shall prosper, and *spread*, [[D&C 97.18|D&C 97:18]].
+Zion … shall prosper, and *spread*, [[D&C 97.18|D&C 97:18]].
 
 fame of this house shall *spread* to foreign lands, [[D&C 110.10|D&C 110:10]].
 

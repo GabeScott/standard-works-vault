@@ -1,6 +1,8 @@
 # Hosanna to the Most High God
 
-By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
+Gary E. Stevenson
+
+By Elder Ronald A. Rasband - *Of the Quorum of the Twelve Apostles*
 
 *Given in the April session of the 2023 General Conference*
 
@@ -16,15 +18,15 @@ Scriptures tell us that the week began with throngs standing at the gates of the
 
 That biblical account of so long ago reminds me of being on a Church assignment in Takoradi, Ghana. Remarkably, I was there on Palm Sunday.
 
-I was to divide the Takoradi Ghana Stake to create the Mpintsin Ghana Stake. Today, there are over 100,000 members of the Church in Ghana.[^4] (We welcome the Ga Mantse, His Majesty King Nii Tackie Teiko Tsuru II of Accra, Ghana, who is with us today.) Meeting with these Saints, I felt their profound love and devotion to the Lord. I expressed my great love for them and that the President of the Church loved them. I referred to the Savior’s words recorded by John: “That ye love one another, as I have loved you.”[^5] They deemed it the “I love you conference.”[^6]
+I was to divide the Takoradi Ghana Stake to create the Mpintsin Ghana Stake. Today, there are over 100,000 members of the Church in Ghana.[^4] (We welcome the Ga Mantse, His Majesty King Nii Tackie Teiko Tsuru II of Accra, Ghana, who is with us today.) Meeting with these Saints, I felt their profound love and devotion to the Lord. I expressed my great love for them and that the President of the Church loved them. I referred to the Savior’s words recorded by John: “That ye love one another, as I have loved you.”[^5] They deemed it the “I love you conference.”[^6]
 
 As I looked up and down the rows of those dear brothers and sisters and their families in the chapel, I could see in their faces the glow of testimony and faith in Jesus Christ. I felt their desire to be counted as part of His far-reaching Church. And when the choir sang, they sang like angels.
 
-Like on Palm Sunday of old, these were disciples of Jesus Christ gathered to pay tribute to Him as did those at the gates of Jerusalem who, with palms in their hands, exclaimed, “Hosanna … : Blessed is he that cometh in the name of the Lord.”[^7]
+Like on Palm Sunday of old, these were disciples of Jesus Christ gathered to pay tribute to Him as did those at the gates of Jerusalem who, with palms in their hands, exclaimed, “Hosanna … : Blessed is he that cometh in the name of the Lord.”[^7]
 
 Even the parishioners in a church nearby were honoring Palm Sunday. As I was speaking from the pulpit, I noticed out the window they were joyfully walking down the street waving palms in their hands, much like those in this photo. It was a sight I will never forget—all of us that day worshipping the King of kings.
 
-President Russell M. Nelson has admonished us to make Palm Sunday “truly holy by remembering, not just the palms that were waved to honor the entrance of Jesus into Jerusalem, but by remembering the palms of His hands.” Then President Nelson referred to Isaiah, who spoke of the Savior’s promising, “I will never forget you,” with these words: “Behold, I have graven thee upon the palms of my hands.”[^8]
+President Russell M. Nelson has admonished us to make Palm Sunday “truly holy by remembering, not just the palms that were waved to honor the entrance of Jesus into Jerusalem, but by remembering the palms of His hands.” Then President Nelson referred to Isaiah, who spoke of the Savior’s promising, “I will never forget you,” with these words: “Behold, I have graven thee upon the palms of my hands.”[^8]
 
 The Lord knows firsthand that mortality is hard. His wounds remind us that He “descended below … all”[^9] that He might succor us when we suffer and be our example to “hold on thy way,”[^10] His way, that “God shall be with \[us\] forever and ever.”[^11]
 
@@ -81,7 +83,7 @@ I leave with you my blessing as an Apostle of Jesus Christ that you will diligen
 
 [^7]: [[Matthew 21.9|Matthew 21:9]].
 
-[^8]: See Russell M. Nelson, “[The Peace and Hope of Easter](https://www.churchofjesuschrist.org/media/video/2021-03-0100-the-peace-and-hope-of-easter)” (video), Apr. 2021, ChurchofJesusChrist.org/media; [[Isaiah 49.16|Isaiah 49:16]].
+[^8]: See Russell M. Nelson, “[The Peace and Hope of Easter](https://www.churchofjesuschrist.org/media/video/2021-03-0100-the-peace-and-hope-of-easter)” (video), Apr. 2021, ChurchofJesusChrist.org/media; [[Isaiah 49.16|Isaiah 49:16]].
 
 [^9]: [[D&C 122.8|Doctrine and Covenants 122:8]]. In December 1838 the Prophet Joseph and a handful of other Church leaders were unjustly imprisoned in Liberty Jail. The conditions were dreadful. After months in wretched circumstances, he wrote to the members in March of 1839, including prayers where he had petitioned the Lord to have compassion on his situation and the “suffering saints.” He also shared the Lord’s response to those prayers as recorded in [[D&C 121.1|Doctrine and Covenants 121–23]][[D&C 121.2|]][[D&C 121.3|]][[D&C 121.4|]][[D&C 121.5|]][[D&C 121.6|]][[D&C 121.7|]][[D&C 121.8|]][[D&C 121.9|]][[D&C 121.10|]][[D&C 121.11|]][[D&C 121.12|]][[D&C 121.13|]][[D&C 121.14|]][[D&C 121.15|]][[D&C 121.16|]][[D&C 121.17|]][[D&C 121.18|]][[D&C 121.19|]][[D&C 121.20|]][[D&C 121.21|]][[D&C 121.22|]][[D&C 121.23|]][[D&C 121.24|]][[D&C 121.25|]][[D&C 121.26|]][[D&C 121.27|]][[D&C 121.28|]][[D&C 121.29|]][[D&C 121.30|]][[D&C 121.31|]][[D&C 121.32|]][[D&C 121.33|]][[D&C 121.34|]][[D&C 121.35|]][[D&C 121.36|]][[D&C 121.37|]][[D&C 121.38|]][[D&C 121.39|]][[D&C 121.40|]][[D&C 121.41|]][[D&C 121.42|]][[D&C 121.43|]][[D&C 121.44|]][[D&C 121.45|]][[D&C 121.46|]].
 
@@ -91,9 +93,9 @@ I leave with you my blessing as an Apostle of Jesus Christ that you will diligen
 
 [^12]: See [[Zechariah 9.9|Zechariah 9:9]].
 
-[^13]: [[Matthew 20.18|Matthew 20:18–19]][[Matthew 20.19|]]. James E. Talmage writes in *Jesus the Christ*: “It is … an astounding fact that the Twelve failed to comprehend His meaning. … To them there was some dreadful incongruity, some dire inconsistency or inexplicable contradiction in the sayings of their beloved Master. They knew Him to be the Christ, the Son of the living God; and how could such a One be brought into subjection and be slain?” (\[1916\], 502–3).
+[^13]: [[Matthew 20.18|Matthew 20:18–19]][[Matthew 20.19|]]. James E. Talmage writes in *[Jesus the Christ](https://www.churchofjesuschrist.org/study/manual/jesus-the-christ/chapter-29?lang=eng&id=p2#p2)*: “It is … an astounding fact that the Twelve failed to comprehend His meaning. … To them there was some dreadful incongruity, some dire inconsistency or inexplicable contradiction in the sayings of their beloved Master. They knew Him to be the Christ, the Son of the living God; and how could such a One be brought into subjection and be slain?” (\[1916\], 502–3).
 
-[^14]: Joseph Smith made this declaration to the Female Relief Society of Nauvoo, April 28, 1842, as quoted in “History of Joseph Smith,” *Deseret News*, Sept. 19, 1855, 218. Referring to the twelfth chapter of 1 Corinthians, he clarified the [[1 Corinthians 12.3|third verse]], “No man can *say* that Jesus is the Lord, but by the Holy Ghost,” revising it to say, “No man can *know* that Jesus is the Lord, but by the Holy Ghost.” (See *The First Fifty Years of Relief Society: Key Documents in Latter-day Saint Women’s History* \[2016\], 2.2, churchhistorianspress.org.)
+[^14]: Joseph Smith made this declaration to the Female Relief Society of Nauvoo, April 28, 1842, as quoted in “History of Joseph Smith,” *Deseret News*, Sept. 19, 1855, 218. Referring to the twelfth chapter of 1 Corinthians, he clarified the [[1 Corinthians 12.3|third verse]], “No man can *say* that Jesus is the Lord, but by the Holy Ghost,” revising it to say, “No man can *know* that Jesus is the Lord, but by the Holy Ghost.” (See *[The First Fifty Years of Relief Society: Key Documents in Latter-day Saint Women’s History](https://www.churchhistorianspress.org/the-first-fifty-years-of-relief-society/part-2/2-2)* \[2016\], 2.2, churchhistorianspress.org.)
 
 [^15]: Jesus shared the Last Supper with His disciples (see [[Mark 14.12|Mark 14:12–18]][[Mark 14.13|]][[Mark 14.14|]][[Mark 14.15|]][[Mark 14.16|]][[Mark 14.17|]][[Mark 14.18|]]). The Twelve included Peter, Andrew, James, John, Matthew, Philip, Thomas, Bartholomew, James (son of Alphaeus), Judas Iscariot, Judas (brother of James), and Simon (see [[Luke 6.13|Luke 6:13–16]][[Luke 6.14|]][[Luke 6.15|]][[Luke 6.16|]]).
 
@@ -109,11 +111,11 @@ I leave with you my blessing as an Apostle of Jesus Christ that you will diligen
 
 [^21]: [[Moroni 10.5|Moroni 10:5]].
 
-[^22]: The Bible Dictionary explains, *hosanna* means “save now.” The word is taken from [[Psalms 118.25|Psalm 118:25]]. “The chanting of this psalm was connected at the Feast of the Tabernacles with the waving of palm branches; hence the use of the word by the multitudes at our Lord’s triumphal entry into Jerusalem” (Bible Dictionary, “[Hosanna](https://churchofjesuschrist.org/study/scriptures/bd/hosanna?lang=eng)”). See [[Matthew 21.9|Matthew 21:9, 15]][[Matthew 21.15|]]; [[Mark 11.9|Mark 11:9–10]][[Mark 11.10|]]; [[John 12.13|John 12:13]].
+[^22]: The Bible Dictionary explains, *hosanna* means “save now.” The word is taken from [[Psalms 118.25|Psalm 118:25]]. “The chanting of this psalm was connected at the Feast of the Tabernacles with the waving of palm branches; hence the use of the word by the multitudes at our Lord’s triumphal entry into Jerusalem” (Bible Dictionary, “[[BD Hosanna|Hosanna]]”). See [[Matthew 21.9|Matthew 21:9, 15]][[Matthew 21.15|]]; [[Mark 11.9|Mark 11:9–10]][[Mark 11.10|]]; [[John 12.13|John 12:13]].
 
 [^23]: [[Mark 15.14|Mark 15:14]]; [[Luke 23.21|Luke 23:21]].
 
-[^24]: The centerpiece of our Heavenly Father’s plan of salvation was an infinite atonement that would ensure immortality for all His children and exaltation for those worthy to receive that blessing. When the Father said, “Whom shall I send?” Jesus Christ stepped forward: “Here am I, send me” ([[Abraham 3.27|Abraham 3:27]]). President Russell M. Nelson has taught: “\[Jesus Christ’s\] mission was the Atonement. That mission was uniquely His. Born of a mortal mother and an immortal Father, He was the only one who could voluntarily lay down His life and take it up again (see [[John 10.14|John 10:14–18]][[John 10.15|]][[John 10.16|]][[John 10.17|]][[John 10.18|]]). The glorious consequences of His Atonement were infinite and eternal. He took the sting out of death and made temporary the grief of the grave (see [[1 Corinthians 15.54|1 Corinthians 15:54–55]][[1 Corinthians 15.55|]]). His responsibility for the Atonement was known even before the Creation and the Fall. Not only was it to provide for the resurrection and immortality of all humankind, but it was also to enable us to be forgiven of our sins—upon conditions established by Him. Thus His Atonement opened the way by which we could be united with Him and with our families eternally” (“[The Mission and Ministry of Jesus Christ](https://churchofjesuschrist.org/study/liahona/2013/04/the-mission-and-ministry-of-jesus-christ?lang=eng),” *Ensign*, Apr. 2013, 34; *Liahona*, Apr. 2013, 20).
+[^24]: The centerpiece of our Heavenly Father’s plan of salvation was an infinite atonement that would ensure immortality for all His children and exaltation for those worthy to receive that blessing. When the Father said, “Whom shall I send?” Jesus Christ stepped forward: “Here am I, send me” ([[Abraham 3.27|Abraham 3:27]]). President Russell M. Nelson has taught: “\[Jesus Christ’s\] mission was the Atonement. That mission was uniquely His. Born of a mortal mother and an immortal Father, He was the only one who could voluntarily lay down His life and take it up again (see [[John 10.14|John 10:14–18]][[John 10.15|]][[John 10.16|]][[John 10.17|]][[John 10.18|]]). The glorious consequences of His Atonement were infinite and eternal. He took the sting out of death and made temporary the grief of the grave (see [[1 Corinthians 15.54|1 Corinthians 15:54–55]][[1 Corinthians 15.55|]]). His responsibility for the Atonement was known even before the Creation and the Fall. Not only was it to provide for the resurrection and immortality of all humankind, but it was also to enable us to be forgiven of our sins—upon conditions established by Him. Thus His Atonement opened the way by which we could be united with Him and with our families eternally” (“[The Mission and Ministry of Jesus Christ](https://www.churchofjesuschrist.org/study/liahona/2013/04/the-mission-and-ministry-of-jesus-christ?lang=eng),” *Ensign*, Apr. 2013, 34; *Liahona*, Apr. 2013, 20).
 
 [^25]: Resurrection consists of reuniting the body and the spirit in an immortal state, the body and spirit being inseparable and no longer bound to maladies of mortality or death (see [[Alma 11.45|Alma 11:45]]; [[Alma 40.23|40:23]]).
 
@@ -133,14 +135,9 @@ I leave with you my blessing as an Apostle of Jesus Christ that you will diligen
 
 [^33]: [[Matthew 25.12|Matthew 25:12]]. In the Sermon on the Mount, the Lord refers to those who presume to have “done many wonderful works,” saying, as suggested in the account of the five foolish virgins, “I know you not” (see [[Matthew 7.22|Matthew 7:22–23]][[Matthew 7.23|]]).
 
-[^34]: Just as water is critical to mortal life, Jesus Christ and His teachings (living water) are critical for eternal life (see Guide to the Scriptures, “[Living Water](https://churchofjesuschrist.org/study/scriptures/gs/living-water?lang=eng),” scriptures.ChurchofJesusChrist.org; see also [[Isaiah 12.3|Isaiah 12:3]]; [[Jeremiah 2.13|Jeremiah 2:13]]; [[John 4.6|John 4:6–15]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]]; [[John 7.37|7:37]]; [[1 Nephi 11.25|1 Nephi 11:25]]; [[D&C 10.66|Doctrine and Covenants 10:66]]; [[D&C 63.23|63:23]]).
+[^34]: Just as water is critical to mortal life, Jesus Christ and His teachings (living water) are critical for eternal life (see Guide to the Scriptures, “[Living Water](https://www.churchofjesuschrist.org/study/scriptures/gs/living-water?lang=eng),” scriptures.ChurchofJesusChrist.org; see also [[Isaiah 12.3|Isaiah 12:3]]; [[Jeremiah 2.13|Jeremiah 2:13]]; [[John 4.6|John 4:6–15]][[John 4.7|]][[John 4.8|]][[John 4.9|]][[John 4.10|]][[John 4.11|]][[John 4.12|]][[John 4.13|]][[John 4.14|]][[John 4.15|]]; [[John 7.37|7:37]]; [[1 Nephi 11.25|1 Nephi 11:25]]; [[D&C 10.66|Doctrine and Covenants 10:66]]; [[D&C 63.23|63:23]]).
 
-[^35]: [[3 Nephi 4.32|3 Nephi 4:32]].
+[^35]: [[3 Nephi 4.32|3 Nephi 4:32]].
 
 [^36]: [[Revelation 7.9|Revelation 7:9]].
 
-
-
-
-
-#Atonement #Discipleship #Holy_Ghost #Jesus_Christ #Prophecy

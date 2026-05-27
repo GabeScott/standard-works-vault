@@ -1,6 +1,8 @@
 # Praise to the Man
 
-By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
+David A. Bednar
+
+By President M. Russell Ballard - *Acting President of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2023 General Conference*
 
@@ -46,7 +48,7 @@ I marvel, and I’m sure that many of you do too, at how blessed we are to know 
 
 That’s getting a little closer for me. I’ll soon be 95. My children tell me they think I’m a lot older than that some days, but that’s OK. I’m doing the best I can.
 
-But for nearly 50 years, brothers and sisters, I’ve had the privilege to cover the world in my assignment as a General Authority of the Church. It’s been a wonderful blessing. I think I’ve gotten pretty close to almost all parts of the world. I’ve met with members of the Church all over the world.
+But for nearly 50 years, brothers and sisters, I’ve had the privilege to cover the world in my assignment as a General Authority of the Church. It’s been a wonderful blessing. I think I’ve gotten pretty close to almost all parts of the world. I’ve met with members of the Church all over the world.
 
 Oh, how I love you. What a glorious experience that’s been—to look into your faces, be in your presence, and feel your love that you have for the Lord and for the Restoration of the gospel of Jesus Christ.
 
@@ -57,8 +59,3 @@ I leave you my witness and testimony that I know that Jesus is the Christ. He is
 
 
 
-
-
-
-
-#Book_Of_Mormon #First_Vision #Jesus_Christ #Joseph_Smith #Restoration

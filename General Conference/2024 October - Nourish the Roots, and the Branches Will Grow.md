@@ -1,6 +1,8 @@
 # Nourish the Roots, and the Branches Will Grow
 
-By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
+Henry B. Eyring
+
+By Elder Dieter F. Uchtdorf - *Of the Quorum of the Twelve Apostles*
 
 *Given in the October session of the 2024 General Conference*
 
@@ -99,19 +101,19 @@ It is my sincere prayer and blessing that we will constantly nourish the roots o
 
 
 
-[^1]: The year 2024 also marks 30 years since my call as a General Authority and 25 years since our family had to move from Germany to the United States as a result of that calling. And almost exactly 20 years ago—on October 2, 2004—I was sustained as a member of the Quorum of the Twelve Apostles and a special witness “of the name of Christ in all the world” ([[D&C 107.23|Doctrine and Covenants 107:23]]).
+[^1]: The year 2024 also marks 30 years since my call as a General Authority and 25 years since our family had to move from Germany to the United States as a result of that calling. And almost exactly 20 years ago—on October 2, 2004—I was sustained as a member of the Quorum of the Twelve Apostles and a special witness “of the name of Christ in all the world” ([[D&C 107.23|Doctrine and Covenants 107:23]]).
 
 [^2]: In some ways, my feelings about that building are like what Alma’s people felt about the Waters of Mormon—it was a beautiful place to them because “there \[they\] came to the knowledge of their Redeemer” ([[Mosiah 18.30|Mosiah 18:30]]).
 
 [^3]: [[Matthew 24.35|Matthew 24:35]]; see also [[Joseph Smith Matthew 1.35|Joseph Smith—Matthew 1:35]].
 
-[^4]: [[Isaiah 54.10|Isaiah 54:10]]; see also [[3 Nephi 22.10|3 Nephi 22:10]].
+[^4]: [[Isaiah 54.10|Isaiah 54:10]]; see also [[3 Nephi 22.10|3 Nephi 22:10]].
 
-[^5]: President Thomas S. Monson taught this same truth with these words: “I believe that among the greatest lessons we are to learn in this short sojourn upon the earth are lessons that help us distinguish between what is important and what is not. I plead with you not to let those most important things pass you by” (“[[2008 October - Finding Joy in the Journey.md|Finding Joy in the Journey]],” *Ensign* or *Liahona*, Nov. 2008, 85). Similarly, when President Russell M. Nelson recently encouraged us to “think celestial,” he said, “Mortality is a master class in learning to choose the things of greatest eternal import” (“[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 118).
+[^5]: President Thomas S. Monson taught this same truth with these words: “I believe that among the greatest lessons we are to learn in this short sojourn upon the earth are lessons that help us distinguish between what is important and what is not. I plead with you not to let those most important things pass you by” (“[[2008 October - Finding Joy in the Journey.md|Finding Joy in the Journey]],” *Ensign* or *Liahona*, Nov. 2008, 85). Similarly, when President Russell M. Nelson recently encouraged us to “think celestial,” he said, “Mortality is a master class in learning to choose the things of greatest eternal import” (“[[2023 October - Think Celestial!.md|Think Celestial!]],” *Liahona*, Nov. 2023, 118).
 
-[^6]: [Teachings of Presidents of the Church: Joseph Smith](https://churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-22?lang=eng&id=p8#p8) (2007), 264; see also [Teachings of Presidents of the Church: Brigham Young](https://churchofjesuschrist.org/study/manual/teachings-brigham-young/chapter-2?lang=eng&id=title4#title4) (1997), 16–18.
+[^6]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-22?lang=eng&id=p8#p8) (2007), 264; see also [Teachings of Presidents of the Church: Brigham Young](https://www.churchofjesuschrist.org/study/manual/teachings-brigham-young/chapter-2?lang=eng&id=title4#title4) (1997), 16–18.
 
-[^7]: *Teachings: Joseph Smith*, 49.
+[^7]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-3?lang=eng&id=p18#p18)*, 49.
 
 [^8]: [[John 15.4|John 15:4]].
 
@@ -121,7 +123,7 @@ It is my sincere prayer and blessing that we will constantly nourish the roots o
 
 [^11]: See [[D&C 84.19|Doctrine and Covenants 84:19–20]][[D&C 84.20|]].
 
-[^12]: See Joy D. Jones, “[[2018 October - For Him.md|For Him]],” *Ensign* or *Liahona*, Nov. 2018, 50–52.
+[^12]: See Joy D. Jones, “[[2018 October - For Him.md|For Him]],” *Ensign* or *Liahona*, Nov. 2018, 50–52.
 
 [^13]: See [[Genesis 3.18|Genesis 3:18]].
 
@@ -143,8 +145,3 @@ It is my sincere prayer and blessing that we will constantly nourish the roots o
 
 [^22]: [[Alma 32.37|Alma 32:37, 41–43]][[Alma 32.41|]][[Alma 32.42|]][[Alma 32.43|]].
 
-
-
-
-
-#Faith #Jesus_Christ #Testimony #Truth

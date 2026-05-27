@@ -1,6 +1,5 @@
 # Supplant
 
-
 Jacob? for he hath *supplanted* me these two times, [[Genesis 27.36|Genesis 27:36]].
 
 every brother will utterly *supplant*, [[Jeremiah 9.4|Jeremiah 9:4]].
