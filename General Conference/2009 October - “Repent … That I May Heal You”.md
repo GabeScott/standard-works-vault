@@ -145,3 +145,4 @@ He loves us. We are members of His Church. He invites each of us to repent, turn
 
 [^31]: [[Alma 34.33|Alma 34:33]].
 
+#Atonement #Forgiveness #Repentance

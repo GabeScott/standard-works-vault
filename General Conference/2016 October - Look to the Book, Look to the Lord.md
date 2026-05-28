@@ -93,3 +93,4 @@ Within the book’s pages, you will discover the infinite love and incomprehensi
 
 [^10]: [[Moroni 10.4|Moroni 10:4]]; see also [[Moroni 10.3|verses 3, 5]][[Moroni 10.5|]].
 
+#BookOfMormon #ChurchHistory #HolyGhost #JosephSmith #Testimony

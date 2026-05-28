@@ -137,3 +137,4 @@ I bear solemn witness of the reality of God the Father; His Son, Jesus Christ; t
 
 [^8]: See [[Matthew 9.22|Matthew 9:22]].
 
+#ChurchHistory #Faith #FamilyHistory #GodTheFather

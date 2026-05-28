@@ -79,3 +79,4 @@ My remarks today have been addressed primarily to parents, but the principles ap
 
 [^3]: See *Preach My Gospel: A Guide to Missionary Service* (2004), 115.
 
+#Children #JesusChrist #Obedience #Parenthood #Responsibility

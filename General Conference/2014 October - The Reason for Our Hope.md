@@ -73,3 +73,4 @@ As one of the Twelve Apostles, I bear witness of the Lord Jesus Christ. He lives
 
 
 
+#Atonement #Forgiveness #Hope #JesusChrist #Repentance #Testimony

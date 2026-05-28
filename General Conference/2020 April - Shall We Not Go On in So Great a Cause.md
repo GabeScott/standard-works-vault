@@ -157,3 +157,4 @@ I know that the Savior is pleased when we present Him an offering from our heart
 
 [^24]: [[D&C 128.22|Doctrine and Covenants 128:22, 24]][[D&C 128.24|]]; emphasis added.
 
+#JosephSmith #Restoration

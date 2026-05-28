@@ -159,3 +159,4 @@ As one of His Apostles, authorized to bear witness of Him, I solemnly testify th
 
 [^24]: [[Alma 5.43|Alma 5:43–46]][[Alma 5.44|]][[Alma 5.45|]][[Alma 5.46|]].
 
+#Activation #Agency #Gratitude #Habits #HolyGhost #JesusChrist #Obedience #PlanOfSalvation #Repentance #ScriptureStudy

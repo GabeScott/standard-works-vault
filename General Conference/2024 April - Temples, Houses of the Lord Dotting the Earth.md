@@ -127,3 +127,4 @@ In this day of confusion and commotion, I testify that the temple is His holy ho
 
 [^25]: Elder David B. Haight said:
 
+#LastDays #Ordinances #Temples #TempleWork

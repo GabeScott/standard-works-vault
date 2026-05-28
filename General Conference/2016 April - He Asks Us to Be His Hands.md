@@ -109,3 +109,4 @@ I testify to the reality of President Henry B. Eyring’s promise “that if \[w
 
 [^14]: Henry B. Eyring, *To Draw Closer to God* (1997), 88.
 
+#JesusChrist #Love #Service

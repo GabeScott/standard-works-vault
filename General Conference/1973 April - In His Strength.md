@@ -117,3 +117,4 @@ God lives. He too is someone—real and eternal—and he wants us to be someone 
 
 
 
+#IndividualWorth #Teaching

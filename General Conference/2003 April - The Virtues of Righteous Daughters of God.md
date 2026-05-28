@@ -131,3 +131,4 @@ I testify that if you practice these virtues, you will be able to “press forwa
 
 [^18]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
+#Character #Example #Faith #Grace #Morality #Women

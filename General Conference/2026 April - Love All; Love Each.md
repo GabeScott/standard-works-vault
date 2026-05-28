@@ -129,3 +129,4 @@ May we follow the Lord’s perfect example and learn to love *all* and to love *
 
 [^23]: “His Eye Is on the Sparrow,” *Hymns for Home and Church*, Gospel Library.
 
+#IndividualWorth #Love

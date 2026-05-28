@@ -109,3 +109,4 @@ Our Father in Heaven has given us a perfect direction. May we have the faith and
 
 [^6]: *Ensign,* Nov. 1980, 110.
 
+#Adversity #Curriculum #Faith #ReliefSociety #Women

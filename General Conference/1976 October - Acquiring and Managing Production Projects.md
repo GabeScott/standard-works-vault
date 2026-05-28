@@ -38,19 +38,6 @@ Finally, how can a ward or stake acquire a production project? Regarding the nee
 
 6. Further, the proposal should answer such questions as these:
 
-Will the project be accessible to the members? (For example, a ward project may be a better alternative than a stake or regional project if the stake is spread over a large geographical area.)
-
-
-Will the size and type of the project be suitable for the ward or stake members? (The skill and talent needed to manage the project should be available. There should also be enough manpower to keep the project operating efficiently.)
-
-
-Is there a history of successful production of the commodity? (It is important to follow proven local agricultural and business practices.)
-
-
-Will the commodity promote local self-sufficiency? (An area is becoming self-sufficient with regard to food when such items as dairy products, grains, vegetables, fruits, honey, meats, eggs, fats and oil, citrus products or their substitutes, and livestock feed are produced locally.) There should be a basic need for the item to be produced.
-
-
-
 After full discussion of the proposal, priesthood leaders responsible should make the decision a matter of prayer. Once the unit has made a decision, it should be discussed in the appropriate welfare services committee meetings as outlined in the handbook. Ward and/or stake approval by the priesthood body is needed. After all local discussion and approvals are secured, application should be made with the General Welfare Services Committee of the Church.
 
 All production projects must be approved by the General Welfare Services Committee. Application forms and information may be obtained by writing to Church headquarters.
@@ -102,3 +89,4 @@ May the Lord bless us to do this. In the name of Jesus Christ. Amen.
 
 
 
+#Welfare

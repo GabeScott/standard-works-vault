@@ -83,3 +83,4 @@ I know Heavenly Father loves you and me, and He sent His Beloved Son, Jesus Chri
 
 [^17]: [[Jacob 4.6|Jacob 4:6]].
 
+#Atonement #JesusChrist #Repentance

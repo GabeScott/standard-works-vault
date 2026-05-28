@@ -75,3 +75,4 @@ As with all commandments, gratitude is a description of a successful mode of liv
 
 
 
+#Adversity #Faith #Gratitude #Pioneers #Service

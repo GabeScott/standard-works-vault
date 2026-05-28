@@ -135,3 +135,4 @@ I bear my special witness that our Savior is Jesus Christ, that He lives, that o
 
 [^32]: [[D&C 88.4|Doctrine and Covenants 88:4]].
 
+#GodTheFather #HolyGhost #JesusChrist #Love #Testimony #Unity

@@ -85,3 +85,4 @@ Jesus is the Christ. This is His Church. Of this I testify in the name of Jesus 
 
 [^4]: Russell M. Nelson, “[[2015 October - A Plea to My Sisters.md|A Plea to My Sisters]],” *Ensign* or *Liahona,* Nov. 2015, 96; emphasis added.
 
+#BookOfMormon #DivineNature #Gathering #Media #Ministering #Motherhood #Teaching #TempleWork

@@ -79,3 +79,4 @@ I testify to you that if you pay the price of revelation, humble yourself, read,
 
 
 
+#BookOfMormon #ChurchMeetings #Conversion #MissionaryWork #Repentance

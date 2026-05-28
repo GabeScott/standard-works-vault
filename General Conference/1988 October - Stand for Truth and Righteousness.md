@@ -63,3 +63,4 @@ God is our Father, and we are His daughters. Just think of that! He knows us and
 
 
 
+#Commitment #PeerPressure #YoungWomen

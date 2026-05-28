@@ -87,3 +87,4 @@ May each of us, brothers and sisters, navigate that straight and narrow way, lan
 
 
 
+#Christianity #Discipleship

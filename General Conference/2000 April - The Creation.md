@@ -203,3 +203,4 @@ I testify that God lives! Jesus is the Christ and Creator! He is Lord over all t
 
 [^57]: See [[Romans 2.7|Rom. 2:7]]; [[D&C 75.5|D&C 75:5]]; [[D&C 128.12|128:12]]; [[D&C 132.19|132:19–24]][[D&C 132.20|]][[D&C 132.21|]][[D&C 132.22|]][[D&C 132.23|]][[D&C 132.24|]].
 
+#Atonement #Commandments #Creation #Family #GodTheFather #PlanOfSalvation #Responsibility #Scriptures #Temples

@@ -149,3 +149,4 @@ I bear to you, my beloved sisters, my witness that Heavenly Father lives, that J
 
 [^10]: See [[D&C 76.6|D&C 76:6]].
 
+#Goals #JesusChrist #Parents #PatriarchalBlessings #Prayer #Service #YoungWomen

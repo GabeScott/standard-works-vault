@@ -93,3 +93,4 @@ I testify of the Savior Jesus Christ, by whom we have the gospel and promise of 
 
 [^16]: See [[Jacob 5.57|Jacob 5:57–68]][[Jacob 5.58|]][[Jacob 5.59|]][[Jacob 5.60|]][[Jacob 5.61|]][[Jacob 5.62|]][[Jacob 5.63|]][[Jacob 5.64|]][[Jacob 5.65|]][[Jacob 5.66|]][[Jacob 5.67|]][[Jacob 5.68|]].
 
+#Covenants #MissionaryWork #Restoration

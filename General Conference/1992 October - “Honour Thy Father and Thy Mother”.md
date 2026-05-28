@@ -45,3 +45,4 @@ I testify that Joseph Smith was a prophet of God and that through him the fulnes
 
 
 
+#Commandments #Obedience #Parenthood

@@ -123,3 +123,4 @@ Young men of the Aaronic Priesthood, your future beckons; prepare for it. May He
 
 [^7]: Paraphrasing James Barrie, in *Peter’s Quotations: Ideas for Our Time,* comp. Laurence J. Peter (1977), 335.
 
+#ChurchCallings #Duty #Faith #Priesthood #Service

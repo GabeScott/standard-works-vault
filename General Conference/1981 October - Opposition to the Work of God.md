@@ -62,11 +62,15 @@ At the same time—
 
 1. I assure you that opposition to our cause testifies of its divinity. Would satanic powers combine against us if we were not posing a threat to such powers?
 
-2. I assure you that opposition, if met and overcome, has a refining influence upon our lives. A verse in one of our hymns reads:When through fiery trials thy pathway shall lie,My grace, all sufficient, shall be thy supply.The flame shall not hurt thee; I only designThy dross to consume and thy gold to refine.(“How Firm a Foundation,” *Hymns,* no. 66.)The Savior learned obedience by the things which he suffered. (See [[Hebrews 5.8|Heb. 5:8]].) Joseph Smith’s oppositions gave him experience and worked for his good. (See [[D&C 122.7|D&C 122:7]].)
+2. I assure you that opposition, if met and overcome, has a refining influence upon our lives. A verse in one of our hymns reads:
+
+The Savior learned obedience by the things which he suffered. (See [[Hebrews 5.8|Heb. 5:8]].) Joseph Smith’s oppositions gave him experience and worked for his good. (See [[D&C 122.7|D&C 122:7]].)
 
 3. I assure you that the waters in which we are wont to swim are but little puddles when compared with the deep rivers of opposition in which the Prophet Joseph and others swam. (See [[D&C 127.2|D&C 127:2]].)
 
-4. I assure you that our cause is just and it will succeed, regardless of the opposition exerted against us. Earlier Saints were bolstered by these words: “As well might man stretch forth his puny arm to stop the Missouri river in its decreed course, or to turn it up stream, as to hinder the Almighty from pouring down knowledge from heaven upon the heads of the Latter-day Saints.” ([[D&C 121.33|D&C 121:33]].)President Brigham Young said: “Every time you kick ‘Mormonism’ you kick it upstairs; you never kick it downstairs. The Lord Almighty so orders it.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 351.)
+4. I assure you that our cause is just and it will succeed, regardless of the opposition exerted against us. Earlier Saints were bolstered by these words: “As well might man stretch forth his puny arm to stop the Missouri river in its decreed course, or to turn it up stream, as to hinder the Almighty from pouring down knowledge from heaven upon the heads of the Latter-day Saints.” ([[D&C 121.33|D&C 121:33]].)
+
+President Brigham Young said: “Every time you kick ‘Mormonism’ you kick it upstairs; you never kick it downstairs. The Lord Almighty so orders it.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 351.)
 
 With all my heart I implore those who are walking on the fringes of our faith to seek the safety of the center. This can be done best by counseling with your leaders and remaining within the fellowshipping circle of the Saints, and receiving nourishment from the good word of God. Do not permit faithless people to turn you out of the right way or to put you out of existence. (See [[Moroni 6.1|Moro. 6]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]][[Moroni 6.5|]][[Moroni 6.6|]][[Moroni 6.7|]][[Moroni 6.8|]][[Moroni 6.9|]].)
 
@@ -77,3 +81,4 @@ God help us all in our war against sin. Though our numbers may be few and our do
 
 
 
+#Apostasy

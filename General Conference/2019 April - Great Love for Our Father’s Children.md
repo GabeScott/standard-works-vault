@@ -135,3 +135,4 @@ I promise that as we focus on our love for the Savior and His Atonement, make Hi
 
 [^32]: See [[John 17.3|John 17:3]]; [[2 Nephi 31.20|2 Nephi 31:20]]; [[Moroni 7.47|Moroni 7:47]].
 
+#Family #FamilyHistory #Love #MissionaryWork #Teaching #TempleWork

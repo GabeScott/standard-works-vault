@@ -119,3 +119,4 @@ May we not shrink when we discover, paradoxically, how dear a price we must pay 
 
 [^28]: [[Moroni 7.48|Moroni 7:48]]; [[1 John 3.2|1 John 3:2]]; emphasis added.
 
+#Adversity #Atonement #Repentance #Sacrifice

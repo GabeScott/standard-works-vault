@@ -175,3 +175,4 @@ Of this I bear my solemn witness as an Apostle of the Lord Jesus Christ and leav
 
 [^24]: [[Luke 18.22|Luke 18:22]].
 
+#Choices #JesusChrist #Standards #Truth #Youth

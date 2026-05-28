@@ -112,3 +112,4 @@ I declare that God lives and that He hears and answers our prayers. His Son, Jes
 
 [^9]: [[2 Nephi 9.18|2 Nephi 9:18]].
 
+#Adversity #Dedication #Hope #Joy

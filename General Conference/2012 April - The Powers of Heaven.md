@@ -83,3 +83,4 @@ I testify the holy priesthood indeed has been restored to the earth in these lat
 
 
 
+#Authority #Fatherhood #Priesthood

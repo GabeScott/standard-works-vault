@@ -57,3 +57,4 @@ Brethren, I pray that we might keep our hearts full of thanks and appreciation f
 
 
 
+#Blessings #Friendship #Gratitude #Joy #Love #Prayer

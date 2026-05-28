@@ -189,3 +189,4 @@ I testify, with the Apostle John, “There is no fear in \[Christ’s\] love.”
 
 [^24]: [[John 15.10|John 15:10]].
 
+#Adversity #Fear #JesusChrist #Love #SecondComing

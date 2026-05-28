@@ -71,3 +71,4 @@ Brothers and sisters, let us work together as never before in our stewardships t
 
 
 
+#Bishops #ChurchMeetings #Councils #Family #Fellowshipping #Priesthood #Reverence #Welfare #Work

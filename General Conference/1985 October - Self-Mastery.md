@@ -98,3 +98,4 @@ Christ is our great Exemplar. I declare, as a special witness, that he is the So
 
 [^*]: [[Matthew 10.22|Matt. 10:22]]; [[Matthew 24.13|24:13]]; [[Mark 13.13|Mark 13:13]]; [[1 Nephi 13.37|1 Ne. 13:37]]; [[1 Nephi 22.31|22:31]]; [[2 Nephi 9.24|2 Ne. 9:24]]; [[2 Nephi 31.15|31:15–16, 20]][[2 Nephi 31.16|]][[2 Nephi 31.20|]]; [[2 Nephi 33.4|33:4]]; [[Omni 1.26|Omni 1:26]]; [[Alma 32.13|Alma 32:13, 15]][[Alma 32.15|]]; [[Alma 38.2|38:2]]; [[3 Nephi 15.9|3 Ne. 15:9]]; [[3 Nephi 27.6|27:6, 16–17]][[3 Nephi 27.16|]][[3 Nephi 27.17|]]; [[Mormon 9.29|Morm. 9:29]]; [[Moroni 8.26|Moro. 8:26]]; [[D&C 10.69|D&C 10:69]]; [[D&C 14.7|14:7]]; [[D&C 18.22|18:22]]; [[D&C 20.25|20:25]]; [[D&C 20.29|20:29]]; [[D&C 53.7|53:7]].
 
+#Self-control

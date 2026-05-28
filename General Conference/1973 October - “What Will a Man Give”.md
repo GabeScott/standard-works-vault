@@ -187,3 +187,4 @@ And this is my testimony to you, in the sacred name of the Lord Jesus Christ. Am
 
 
 
+#Agency #Commandments #Obedience

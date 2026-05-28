@@ -165,3 +165,4 @@ It was an appropriate season of the year for our visit together, when all Christ
 
 [^11]: [[Ecclesiastes 11.1|Eccl. 11:1]].
 
+#Activation #Endurance #MissionaryWork #Service

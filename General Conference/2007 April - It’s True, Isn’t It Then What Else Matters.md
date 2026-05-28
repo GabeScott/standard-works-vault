@@ -79,3 +79,4 @@ I testify that it’s true and that it does matter. In the name of Jesus Christ,
 
 [^6]: [[Matthew 6.33|Matthew 6:33]].
 
+#Faith #Priorities

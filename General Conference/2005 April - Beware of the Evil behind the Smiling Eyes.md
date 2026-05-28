@@ -117,3 +117,4 @@ I know that Jesus Christ is our Savior. Words cannot describe His greatness and 
 
 [^22]: See [[Moses 1.1|Moses 1:1–22]][[Moses 1.2|]][[Moses 1.3|]][[Moses 1.4|]][[Moses 1.5|]][[Moses 1.6|]][[Moses 1.7|]][[Moses 1.8|]][[Moses 1.9|]][[Moses 1.10|]][[Moses 1.11|]][[Moses 1.12|]][[Moses 1.13|]][[Moses 1.14|]][[Moses 1.15|]][[Moses 1.16|]][[Moses 1.17|]][[Moses 1.18|]][[Moses 1.19|]][[Moses 1.20|]][[Moses 1.21|]][[Moses 1.22|]].
 
+#Agency #HolyGhost #Obedience #Prayer #Temptation

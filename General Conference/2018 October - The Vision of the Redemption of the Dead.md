@@ -117,3 +117,4 @@ How grateful I am to know where my precious Barbara is and that we will be toget
 
 [^19]: Although sons of perdition will be resurrected, they may not give love and praise to Heavenly Father and Jesus Christ as will those who receive a kingdom of glory. See [[Alma 11.41|Alma 11:41]]; [[D&C 88.32|Doctrine and Covenants 88:32–35]][[D&C 88.33|]][[D&C 88.34|]][[D&C 88.35|]].
 
+#Adversity #Death #HolyGhost #JesusChrist #Revelation

@@ -97,3 +97,4 @@ Dear brothers and sisters, I express my deep love for you, along with my testimo
 
 [^14]: See [[Alma 17.3|Alma 17:3]].
 
+#Fasting #JesusChrist #NameOfChurch #Restoration

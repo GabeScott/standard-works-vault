@@ -179,3 +179,4 @@ Today is Easter. We rejoice with Christians all over the world in His glorious R
 
 [^38]: [[Matthew 6.10|Matthew 6:10]].
 
+#Adversity #ChurchGrowth #JesusChrist #Perspective #SecondComing

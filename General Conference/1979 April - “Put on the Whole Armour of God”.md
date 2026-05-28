@@ -174,3 +174,4 @@ I exhort all of you to listen closely to his messages and follow him. In the nam
 
 
 
+#Faith #Obedience #Safety

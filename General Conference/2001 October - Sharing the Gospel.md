@@ -97,3 +97,4 @@ I testify of Jesus Christ, our Savior, and of His desire that we join wholeheart
 
 
 
+#Conversion #Love #MissionaryWork #Preparation #Prayer #Prophets #Teaching

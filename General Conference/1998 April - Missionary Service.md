@@ -91,3 +91,4 @@ I bear witness of this great privilege we all have in the Church—to be mission
 
 [^8]: *Discourses of Brigham Young,* sel. John A. Widtsoe (1954), 328.
 
+#JesusChrist #MissionaryWork #Priesthood

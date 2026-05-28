@@ -104,3 +104,4 @@ Let us express our love to our spouse and children and our brothers and sisters 
 
 [^10]: See www.heartwhispers.net; printed with permission.
 
+#Family #Love #Teaching

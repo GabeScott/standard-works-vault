@@ -103,3 +103,4 @@ Brothers and sisters, our Father in Heaven desires all His children to come home
 
 [^22]: See Dallin H. Oaks, “[Coming Closer to Jesus Christ](https://speeches.byu.edu/talks/dallin-h-oaks/coming-closer-to-jesus-christ)” (Brigham Young University devotional, Feb. 10, 2026), speeches.byu.edu.
 
+#Adversity #Covenants #Discipleship #JesusChrist #Prophets

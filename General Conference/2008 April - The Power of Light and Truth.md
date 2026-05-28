@@ -77,3 +77,4 @@ To be at peace in these wonderful yet challenging times, we must learn true doct
 
 [^19]: [[Joshua 24.15|Joshua 24:15]].
 
+#HolyGhost #JesusChrist #Testimony #Truth

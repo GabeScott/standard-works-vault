@@ -100,3 +100,4 @@ I testify of our Savior, Jesus Christ, whose teachings and example we seek to fo
 
 [^7]: *Hymns,* no. 116.
 
+#JesusChrist #Obedience

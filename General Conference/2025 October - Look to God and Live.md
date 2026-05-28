@@ -111,3 +111,4 @@ I bear testimony of the Father, Son, and Holy Ghost, who in perfect unity of wor
 
 [^25]: [[3 Nephi 15.9|3 Nephi 15:9]].
 
+#Adversity #Commandments #Healing #JesusChrist

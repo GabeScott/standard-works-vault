@@ -77,3 +77,4 @@ In the celestial glory, we are told, “God shall wipe away all tears from their
 
 
 
+#Healing #HolyGhost #Sacrament

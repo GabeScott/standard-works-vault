@@ -79,3 +79,4 @@ We, too, can resolve this day to declare ourselves, give ourselves, devote ourse
 
 
 
+#Commitment

@@ -83,3 +83,4 @@ I bear witness that he is a prophet of God. I have a witness that Jesus is the C
 
 [^1]: “To an Atheist,” in *The Search* (Trilogy Arts, 1970), p. 34.
 
+#ChurchOrganization

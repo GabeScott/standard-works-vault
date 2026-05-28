@@ -123,3 +123,4 @@ My dear brethren, may we set righteous goals and work to achieve them, do what i
 
 [^4]: In Conference Report, Apr. 1995, [[1995 April - This Is the Work of the Master.md|95]]; or *Ensign,* May 1995, 71.
 
+#Courage #Dedication #Goals #Honesty #Obedience #Service

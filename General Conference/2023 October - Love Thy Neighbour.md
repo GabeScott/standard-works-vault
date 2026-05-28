@@ -61,3 +61,4 @@ May we be forever looking to the well-being of others and show in word and deed 
 
 
 
+#Compassion #HumanitarianAid #Love #Neighbors #Poverty

@@ -69,3 +69,4 @@ May God bless us with the wisdom to follow the counsel we have received as we pr
 
 
 
+#Education #Employment #FinancialManagement #Goals #Preparation #Self-reliance #Worldliness

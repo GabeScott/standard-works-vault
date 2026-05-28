@@ -69,3 +69,4 @@ I wish all of you could have an experience similar to the one I had with my firs
 
 
 
+#Faith #Marriage #MissionaryWork #Morality #Prayer #ScriptureStudy #Scriptures #Teaching

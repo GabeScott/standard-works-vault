@@ -67,3 +67,4 @@ Brethren, as sons of God holding his holy priesthood, we have an obligation to b
 
 
 
+#Character #Morality

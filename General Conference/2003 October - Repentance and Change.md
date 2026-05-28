@@ -99,3 +99,4 @@ I testify that this is what our Lord and Savior would have us do so that we may 
 
 
 
+#CoupleMissionaries #Covenants #Honesty #Morality #Repentance #Worship

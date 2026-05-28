@@ -14,26 +14,47 @@ The two parties to the priesthood covenant are man and God. Man covenants to do 
 
 ## Man’s Covenant
 
-1. *Receive the Melchizedek Priesthood in Good Faith.* When a man has the Melchizedek Priesthood conferred upon him, he is expected to *receive* it in good faith. The word *receive* is used generously in the Doctrine and Covenants verses that describe the oath and covenant of the priesthood:“All they who receive this priesthood receive me, saith the Lord; …“And he that receiveth me receiveth my Father;“And he that receiveth my Father receiveth my Father’s kingdom.” ([[D&C 84.35|D&C 84:35, 37–38]][[D&C 84.37|]][[D&C 84.38|]].)As people are confirmed members of the Church, those in authority lay hands upon their heads and command, “Receive the Holy Ghost.” Does not the same apply to the conferral of priesthood power? Several years ago, my father laid his hands upon my head to confer upon me the Melchizedek Priesthood and, as described in the Old Testament, to “put some of \[his\] honour upon \[me\] … and gave \[me\] a charge.” (See [[Numbers 27.18|Num. 27:18–23]][[Numbers 27.19|]][[Numbers 27.20|]][[Numbers 27.21|]][[Numbers 27.22|]][[Numbers 27.23|]].) I knew that he had power to bestow, I knew that that power was real, and I knew the ultimate source of that power. So I received the holy priesthood in good faith.
+1. *Receive the Melchizedek Priesthood in Good Faith.* When a man has the Melchizedek Priesthood conferred upon him, he is expected to *receive* it in good faith. The word *receive* is used generously in the Doctrine and Covenants verses that describe the oath and covenant of the priesthood:
 
-2. *Magnify Callings.* President Kimball defines *priesthood,* in part, as “the means whereby the Lord acts through men to save souls.” (*Ensign,* June 1975, p. 3.) This definition suggests action, not inaction. It implies that priesthood power is to be exercised in behalf of other people; it is not something to sit upon or to simply glory in. It suggests that priesthood callings are to be *magnified.*The transcendent blessings of the priesthood do not come by ordination alone. We are instructed:“Ordination to the priesthood is a prerequisite to receiving \[blessings\], but it does not guarantee them. For a man actually to obtain them, he must faithfully discharge the obligation which is placed upon him when he receives the priesthood.” (Marion G. Romney, in Conference Report, Apr. 1962, p. 17.)What does it mean to magnify one’s calling? According to *Webster’s Third New International Dictionary,* “to magnify” is “to increase the importance of: cause to be held in greater esteem or respect … to make greater.” One magnifies a calling—
+“All they who receive this priesthood receive me, saith the Lord; …
 
-By learning one’s duty and executing it fully. (See D&C 107:99–100.)
+“And he that receiveth me receiveth my Father;
 
+“And he that receiveth my Father receiveth my Father’s kingdom.” ([[D&C 84.35|D&C 84:35, 37–38]][[D&C 84.37|]][[D&C 84.38|]].)
 
-By giving one’s best effort in assigned fields of labor.
+As people are confirmed members of the Church, those in authority lay hands upon their heads and command, “Receive the Holy Ghost.” Does not the same apply to the conferral of priesthood power? Several years ago, my father laid his hands upon my head to confer upon me the Melchizedek Priesthood and, as described in the Old Testament, to “put some of \[his\] honour upon \[me\] … and gave \[me\] a charge.” (See [[Numbers 27.18|Num. 27:18–23]][[Numbers 27.19|]][[Numbers 27.20|]][[Numbers 27.21|]][[Numbers 27.22|]][[Numbers 27.23|]].) I knew that he had power to bestow, I knew that that power was real, and I knew the ultimate source of that power. So I received the holy priesthood in good faith.
 
+2. *Magnify Callings.* President Kimball defines *priesthood,* in part, as “the means whereby the Lord acts through men to save souls.” (*Ensign,* June 1975, p. 3.) This definition suggests action, not inaction. It implies that priesthood power is to be exercised in behalf of other people; it is not something to sit upon or to simply glory in. It suggests that priesthood callings are to be *magnified.*
 
-By consecrating one’s time, talents, and means to the Lord’s work as called upon by our leaders and the whisperings of the Spirit. (See Spencer W. Kimball, Ensign, Mar. 1985, p. 5.)
+The transcendent blessings of the priesthood do not come by ordination alone. We are instructed:
 
+“Ordination to the priesthood is a prerequisite to receiving \[blessings\], but it does not guarantee them. For a man actually to obtain them, he must faithfully discharge the obligation which is placed upon him when he receives the priesthood.” (Marion G. Romney, in Conference Report, Apr. 1962, p. 17.)
 
-By teaching and exemplifying truth.
+What does it mean to magnify one’s calling? According to *Webster’s Third New International Dictionary,* “to magnify” is “to increase the importance of: cause to be held in greater esteem or respect … to make greater.” One magnifies a calling—
 
-Jacob, the Book of Mormon prophet, testified, “We did magnify our office unto the Lord, taking upon us the responsibility, … \[teaching\] them the word of God with all diligence; … \[and\] laboring with our might.” ([[Jacob 1.19|Jacob 1:19]].)I underscore the words *taking responsibility, teaching the word of God,* and *laboring with might* in this inspired quotation. These are critical actions related to the exercise of priesthood power.
+Jacob, the Book of Mormon prophet, testified, “We did magnify our office unto the Lord, taking upon us the responsibility, … \[teaching\] them the word of God with all diligence; … \[and\] laboring with our might.” ([[Jacob 1.19|Jacob 1:19]].)
 
-3. *Obey the Commandments.* In the revelation on priesthood, we read, “And I now give unto you a commandment … to give diligent heed to the words of eternal life.” ([[D&C 84.43|D&C 84:43]].) “To give diligent heed,” I believe, includes to *obey* the commandments.No commandment or requirement of the gospel is nonessential. Each has its place, and all are to be respected. Not one is to be trifled with or placed aside as inconvenient.A person who chooses to obey one commandment and ignore others is as foolish as the driver who adheres strictly to the posted speed limit but runs every stop sign and flaunts other rules of the road.Let us remember that with every commandment, God has promised a blessing. If we expect to claim the blessing, we must keep the commandment. Otherwise, if we ignore or break the commandment, we are cursed by losing the blessing. (See [[Deuteronomy 11.26|Deut. 11:26–28]][[Deuteronomy 11.27|]][[Deuteronomy 11.28|]].) It is a very simple but serious arrangement.
+I underscore the words *taking responsibility, teaching the word of God,* and *laboring with might* in this inspired quotation. These are critical actions related to the exercise of priesthood power.
 
-4. *Live by Every Word of God.* Addressing priesthood bearers, the Lord says, “For you shall *live* by every word that proceedeth forth from the mouth of God.” ([[D&C 84.44|D&C 84:44]]; italics added.) This statement reinforces the need for obedience. It also suggests the need to know the word of the Lord.Words of eternal life come from one source: God. They are made available to us through the fountain of the holy scriptures and the fountain of living prophets and reconfirmed by personal revelation through the power of the Holy Ghost.When we search the scriptures, we sit at the feet of prophets like Abraham, Isaiah, Peter, Paul, Nephi, Moroni, and Joseph Smith. These men received revelations in a former day and have much wisdom to share with us. Their counsel may be likened to a light positioned behind us. That light helps us understand things of the past and gives us partial vision for the future.To receive added light, light positioned over and ahead of us, we must sit at the feet of living prophets, just as we are doing tonight. None of us need stumble along the way or depart from the path in the presence of such light. All we need to do is keep our eyes upon the prophets, heed their warnings, and live by their inspired words.Men of the priesthood should burn these words into their minds:“What I the Lord have spoken, I have spoken, and I excuse not myself; … my word … shall all be fulfilled, whether by mine own voice or by the voice of my servants, it is the same.” ([[D&C 1.38|D&C 1:38]]; see also [[D&C 1.11|D&C 1:11–14]][[D&C 1.12|]][[D&C 1.13|]][[D&C 1.14|]].)
+3. *Obey the Commandments.* In the revelation on priesthood, we read, “And I now give unto you a commandment … to give diligent heed to the words of eternal life.” ([[D&C 84.43|D&C 84:43]].) “To give diligent heed,” I believe, includes to *obey* the commandments.
+
+No commandment or requirement of the gospel is nonessential. Each has its place, and all are to be respected. Not one is to be trifled with or placed aside as inconvenient.
+
+A person who chooses to obey one commandment and ignore others is as foolish as the driver who adheres strictly to the posted speed limit but runs every stop sign and flaunts other rules of the road.
+
+Let us remember that with every commandment, God has promised a blessing. If we expect to claim the blessing, we must keep the commandment. Otherwise, if we ignore or break the commandment, we are cursed by losing the blessing. (See [[Deuteronomy 11.26|Deut. 11:26–28]][[Deuteronomy 11.27|]][[Deuteronomy 11.28|]].) It is a very simple but serious arrangement.
+
+4. *Live by Every Word of God.* Addressing priesthood bearers, the Lord says, “For you shall *live* by every word that proceedeth forth from the mouth of God.” ([[D&C 84.44|D&C 84:44]]; italics added.) This statement reinforces the need for obedience. It also suggests the need to know the word of the Lord.
+
+Words of eternal life come from one source: God. They are made available to us through the fountain of the holy scriptures and the fountain of living prophets and reconfirmed by personal revelation through the power of the Holy Ghost.
+
+When we search the scriptures, we sit at the feet of prophets like Abraham, Isaiah, Peter, Paul, Nephi, Moroni, and Joseph Smith. These men received revelations in a former day and have much wisdom to share with us. Their counsel may be likened to a light positioned behind us. That light helps us understand things of the past and gives us partial vision for the future.
+
+To receive added light, light positioned over and ahead of us, we must sit at the feet of living prophets, just as we are doing tonight. None of us need stumble along the way or depart from the path in the presence of such light. All we need to do is keep our eyes upon the prophets, heed their warnings, and live by their inspired words.
+
+Men of the priesthood should burn these words into their minds:
+
+“What I the Lord have spoken, I have spoken, and I excuse not myself; … my word … shall all be fulfilled, whether by mine own voice or by the voice of my servants, it is the same.” ([[D&C 1.38|D&C 1:38]]; see also [[D&C 1.11|D&C 1:11–14]][[D&C 1.12|]][[D&C 1.13|]][[D&C 1.14|]].)
 
 I have indicated that a man who receives the Melchizedek Priesthood agrees (1) to receive it in good faith, (2) to magnify callings given, (3) to obey all the commandments, and (4) to live by every word of God. These four expectations compose man’s covenant as applied to the oath and covenant of the priesthood.
 
@@ -96,3 +117,4 @@ I pray that we will do so, in the name of Jesus Christ, amen.
 
 
 
+#Covenants #Priesthood

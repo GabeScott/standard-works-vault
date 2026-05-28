@@ -123,3 +123,4 @@ I testify to you that following our Master’s footsteps and waiting on Him who 
 
 [^29]: See [[Matthew 11.30|Matthew 11:30]]; [[Mosiah 24.14|Mosiah 24:14]].
 
+#Discipleship #Endurance #Grace #Hope #Spirituality

@@ -59,3 +59,4 @@ In these times when so much of our daily experience seems to point to a world mo
 
 [^8]: [[D&C 64.33|D&C 64:33]].
 
+#GoodSamaritan #JesusChrist #Sacrifice #Service

@@ -45,3 +45,4 @@ I testify and declare that our Heavenly Father expects His children to exercise 
 
 
 
+#Character #Example #Honesty #Virtue

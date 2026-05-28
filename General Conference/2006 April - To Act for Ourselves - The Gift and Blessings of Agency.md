@@ -121,3 +121,4 @@ To all who desire to enjoy the supernal blessings of agency, I testify that agen
 
 [^26]: See [[D&C 50.24|D&C 50:24]].
 
+#Agency #HolyGhost #Temptation

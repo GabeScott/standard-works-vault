@@ -109,3 +109,4 @@ I add my testimony to that of our beloved prophet-president. I testify that we h
 
 [^12]: Thomas S. Monson, “[[2016 October - The Perfect Path to Happiness.md|The Perfect Path to Happiness]],” *Ensign* or *Liahona,* Nov. 2016, 80–81.
 
+#Fall #GodTheFather #Godhead #HolyGhost #JesusChrist #PlanOfSalvation #PremortalExistence

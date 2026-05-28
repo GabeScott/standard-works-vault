@@ -104,3 +104,4 @@ I bear my witness that as you do His will, you will feel close to Him and begin 
 
 [^16]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
+#Agency #HolyGhost #JesusChrist #Peace #Testimony

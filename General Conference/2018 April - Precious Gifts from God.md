@@ -113,3 +113,4 @@ I testify that Jesus Christ is our Savior. What we will be taught at this genera
 
 [^16]: See [[James 1.27|James 1:27]].
 
+#Faith #JesusChrist #Prophets #Sabbath #Sacrament #Service

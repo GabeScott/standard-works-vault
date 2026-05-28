@@ -91,3 +91,4 @@ Of these sacred things I offer my solemn testimony and invoke the blessings of t
 
 
 
+#Self-control #Testimony

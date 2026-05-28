@@ -73,3 +73,4 @@ May the Lord bless all the Saints of God throughout the world. May He bless all 
 
 
 
+#Adversity #JesusChrist

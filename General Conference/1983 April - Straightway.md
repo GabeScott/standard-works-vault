@@ -111,3 +111,4 @@ The gospel of Jesus Christ is true. Jesus Christ is our Redeemer and Savior. Hap
 
 
 
+#Repentance #Self-control #TimeManagement

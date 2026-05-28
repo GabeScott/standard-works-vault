@@ -63,3 +63,4 @@ We know the path; in fact, we know it well. The prophet Nephi promised, “If ye
 
 
 
+#BookOfMormon #Charity #Example #PlanOfSalvation #Pride #Service #Spirituality #Women

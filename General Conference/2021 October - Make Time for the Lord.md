@@ -43,3 +43,4 @@ May God be with you until we meet again, I pray in the sacred name of Jesus Chri
 
 [^4]: See [[Exodus 31.13|Exodus 31:13, 16]][[Exodus 31.16|]]; [[Isaiah 58.13|Isaiah 58:13]].
 
+#HolyGhost #JesusChrist #Temples

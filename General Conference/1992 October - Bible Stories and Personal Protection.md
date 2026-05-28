@@ -133,3 +133,4 @@ These and all promises to the faithful children of God are made by the voice and
 
 
 
+#Faith #Obedience #Safety #ScriptureStudy

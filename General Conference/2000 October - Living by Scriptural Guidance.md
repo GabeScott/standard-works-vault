@@ -139,3 +139,4 @@ We all *need* guidance through life. We *obtain* it best from the standard works
 
 [^28]: Personal and family scripture study can employ books, recordings, or other material. Those who will establish a time for scripture study and endure in that endeavor will maintain a positive spirit throughout their days.
 
+#Endurance #Gratitude #HolyGhost #Honesty #JesusChrist #Obedience #Peace #PlanOfSalvation #Prayer #Repentance #ScriptureStudy #Scriptures #Spirituality #Truth

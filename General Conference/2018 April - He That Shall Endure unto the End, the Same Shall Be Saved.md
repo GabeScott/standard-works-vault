@@ -105,3 +105,4 @@ Whatever our personal situations may be, I testify that our Heavenly Father is c
 
 [^9]: [[Ether 12.27|Ether 12:27]].
 
+#Covenants #Endurance #Obedience #Sacrament

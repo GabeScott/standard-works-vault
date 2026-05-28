@@ -123,3 +123,4 @@ The only way we can accomplish this is by seeking, receiving, and acting on pers
 
 [^21]: Spencer W. Kimball, “Relief Society—Its Promise and Potential,” *Ensign,* Mar. 1976, 4.
 
+#Faith #Family #ReliefSociety #Service #Women

@@ -75,3 +75,4 @@ May we “remember also the promises.” I testify that the scriptures are the w
 
 
 
+#Covenants #Scriptures

@@ -75,3 +75,4 @@ Can we do too much for the Lord? Certainly we all love Him. Therefore, I implore
 
 
 
+#Apostasy #JesusChrist #Love #PlanOfSalvation #Restoration

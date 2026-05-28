@@ -111,3 +111,4 @@ May God, who has blessed all of us so mercifully and many of us so abundantly, b
 
 [^17]: Drusilla Dorris Hendricks, “Historical Sketch of James Hendricks and Drusilla Dorris Hendricks,” Historical Department, Archives Division, The Church of Jesus Christ of Latter-day Saints, Salt Lake City, typescript, 19–23.
 
+#Atonement #Faith #Generosity #HolyGhost #JesusChrist #Neighbors

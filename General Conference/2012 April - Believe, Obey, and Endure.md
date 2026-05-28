@@ -91,3 +91,4 @@ You are precious, precious daughters of our Heavenly Father sent to earth at thi
 
 [^6]: [[3 Nephi 15.9|3 Nephi 15:9]].
 
+#Endurance #Faith #Obedience

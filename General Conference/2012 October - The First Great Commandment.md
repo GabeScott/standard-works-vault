@@ -83,3 +83,4 @@ To all within the sound of my voice, the voice of Christ comes ringing down thro
 
 [^17]: [[Luke 9.62|Luke 9:62]].
 
+#Discipleship #Loyalty #Love

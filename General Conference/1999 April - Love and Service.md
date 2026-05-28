@@ -91,3 +91,4 @@ May we live the principles of the gospel. May we use our time effectively, all o
 
 
 
+#JesusChrist #Love #MissionaryWork #Obedience #Service

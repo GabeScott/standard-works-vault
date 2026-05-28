@@ -97,3 +97,4 @@ I say these things in the sacred name of Jesus Christ, amen.
 
 [^14]: “Not Now but in the Coming Years,” translated from “Agora Não, mas Logo Mais,” *Hymns* (Portuguese), no. 156.
 
+#Adversity #Faith #JesusChrist #Trust

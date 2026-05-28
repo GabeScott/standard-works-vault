@@ -127,3 +127,4 @@ President Hinckley, we the priesthood brethren of the Church do love and sustain
 
 [^7]: [[James 1.5|James 1:5]].
 
+#Commitment #Duty #Faith #HomeTeaching #Honesty #Media #Peace #Prayer #Priesthood

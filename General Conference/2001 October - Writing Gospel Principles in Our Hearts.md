@@ -27,3 +27,4 @@ Making time in our lives to learn, to ponder, and especially to practice gospel 
 
 
 
+#BookOfMormon #Discipleship #Education #Gratitude #Joy #MissionaryWork #Peace #Prayer #Priorities

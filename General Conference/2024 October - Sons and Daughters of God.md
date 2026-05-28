@@ -119,3 +119,4 @@ I testify as with the Apostle Paul that “the Spirit itself beareth witness wit
 
 [^22]: [[Romans 8.16|Romans 8:16–17]][[Romans 8.17|]].
 
+#DivineNature #GodTheFather #JesusChrist #Satan #Temptation #Truth

@@ -89,3 +89,4 @@ Like the young deacon I spoke of earlier, I admire President Monson for his test
 
 [^15]: Thomas S. Monson, *Ensign* or *Liahona,* Nov. 2011, 67.
 
+#JosephSmith #Testimony

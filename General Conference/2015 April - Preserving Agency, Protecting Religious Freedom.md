@@ -133,3 +133,4 @@ Of our Savior, we sing, “His precious blood he freely spilt; His life he freel
 
 [^24]: [[2 Nephi 2.27|2 Nephi 2:27]].
 
+#Agency #JesusChrist #MissionaryWork #PlanOfSalvation #ReligiousFreedom

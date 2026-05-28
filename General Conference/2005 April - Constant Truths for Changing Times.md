@@ -125,3 +125,4 @@ Now is the time. This is the place. May we follow Him, I pray, in the name of Je
 
 [^10]: [[Acts 10.38|Acts 10:38]].
 
+#Children #FamilyHomeEvening #FamilyHistory #FinancialManagement #Truth

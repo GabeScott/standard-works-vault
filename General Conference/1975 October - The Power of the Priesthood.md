@@ -63,3 +63,4 @@ In missionary work some stakes have raised their sights so much that each ward i
 
 
 
+#Fellowshipping #Priesthood

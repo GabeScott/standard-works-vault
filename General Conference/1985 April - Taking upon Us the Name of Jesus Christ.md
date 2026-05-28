@@ -81,3 +81,4 @@ That is what we should ponder as we partake of the sacred emblems of the sacrame
 
 
 
+#Ordinances #Sacrament

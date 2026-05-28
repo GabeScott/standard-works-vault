@@ -89,3 +89,4 @@ I bear witness of the living reality of the Father and the Son. I testify the Ho
 
 
 
+#Baptism #HolyGhost #Obedience #Restoration #Revelation

@@ -23,3 +23,4 @@ No matter where you live or what kind of family you come from, Heavenly Father l
 
 
 
+#Adversity #Disabilities #ScriptureStudy

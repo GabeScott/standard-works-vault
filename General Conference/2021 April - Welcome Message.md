@@ -41,3 +41,4 @@ I love you, my dear brothers and sisters, and testify that our Heavenly Father a
 
 [^3]: See [[D&C 13.1|Doctrine and Covenants 13:1]].
 
+#GeneralConference #Gospel #Repentance #Worthiness

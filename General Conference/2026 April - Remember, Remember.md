@@ -69,3 +69,4 @@ Let us remember, remember our Savior, especially in this Easter season. He is re
 
 [^2]: David A. Bednar, “[[2024 April - “Be Still, and Know That I Am God”.md|Be Still, and Know That I Am God]],” *Liahona*, May 2024, 29–30.
 
+#Agency #BookOfMormon #Commandments #JesusChrist

@@ -103,3 +103,4 @@ I pray that you may find peace, help many others to find it, and pass it along. 
 
 [^6]: Russell M. Nelson, “[Look Forward to the Future with Faith](https://www.churchofjesuschrist.org/study/new-era/2018/06/look-forward-to-the-future-with-faith?lang=eng&id=p12#p12),” *New Era*, June 2018, 5.
 
+#Activation #Children #HolyGhost #Love #Obedience #Optimism #Peace

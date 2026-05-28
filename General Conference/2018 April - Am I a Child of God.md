@@ -149,3 +149,4 @@ That every one of us might truly understand and cherish our â€œnoble birthrightâ
 
 [^40]: [[John 17.3|John 17:3]].
 
+#Adversity #BookOfMormon #Children #DivineNature #GodTheFather #JosephSmith #JesusChrist #Motherhood

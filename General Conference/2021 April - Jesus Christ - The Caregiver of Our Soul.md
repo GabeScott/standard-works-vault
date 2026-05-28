@@ -111,3 +111,4 @@ My dear brothers and sisters, on this Easter Sunday, I bear my solemn witness th
 
 [^30]: See [[John 11.25|John 11:25]].
 
+#Adversity #Atonement #JesusChrist #Repentance

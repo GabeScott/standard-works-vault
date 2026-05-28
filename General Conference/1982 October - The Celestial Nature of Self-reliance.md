@@ -107,3 +107,4 @@ Again, I say the principle of self-reliance is spiritual, as are all the princip
 
 
 
+#Spirituality #Welfare

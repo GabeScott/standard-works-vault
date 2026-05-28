@@ -51,3 +51,4 @@ I bear my witness that Joseph Smith was the prophet of the Restoration, just as 
 
 
 
+#Godhead #JosephSmith #Restoration

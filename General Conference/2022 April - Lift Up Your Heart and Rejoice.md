@@ -85,3 +85,4 @@ For all these reasons, I am not surprised that the Lord said to Thomas B. Marsh 
 
 [^5]: Russell M. Nelson, “[Hope of Israel](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2018/06/hope-of-israel?lang=eng&id=p79-p80#p79).”
 
+#Blessings #Gathering #MissionaryWork #Youth

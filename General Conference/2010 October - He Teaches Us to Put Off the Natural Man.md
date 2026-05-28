@@ -81,3 +81,4 @@ He is “the Lamb of God,”[^9] He is “the Holy and Righteous One,”[^10] �
 
 [^11]: [[Isaiah 9.6|Isaiah 9:6]].
 
+#Atonement #Family #Humility #Love #Patience #Repentance #Righteousness

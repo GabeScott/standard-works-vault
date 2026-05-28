@@ -121,3 +121,4 @@ Fathers, be good men, that your wives will speak of you with love and appreciati
 
 
 
+#Obedience #PeerPressure #Preparation #Standards #Work

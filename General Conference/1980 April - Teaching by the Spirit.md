@@ -51,3 +51,4 @@ That’s the process. Alma did the same thing when he had explained to the peopl
 
 
 
+#Activation #HolyGhost

@@ -115,3 +115,4 @@ I testify that we are children of a Heavenly Father, who loves us. I feel Presid
 
 [^9]: [[John 19.26|John 19:26–27]][[John 19.27|]].
 
+#Adversity #Atonement #Faith #JesusChrist #PlanOfSalvation

@@ -147,3 +147,4 @@ In the name of Jesus Christ, amen.
 
 [^34]: “When the Savior Comes Again,” *Hymns—For Home and Church*, Gospel Library.
 
+#Fear #JesusChrist #Parables #Preparation #SecondComing #Service

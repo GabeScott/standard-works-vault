@@ -121,3 +121,4 @@ I pray that we may ever respond to His gentle invitation, “Follow thou me.”[
 
 [^8]: [[John 21.22|John 21:22]].
 
+#Love #MissionaryWork #Preparation #ScriptureStudy

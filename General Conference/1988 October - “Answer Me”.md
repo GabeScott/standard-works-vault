@@ -91,3 +91,4 @@ These observations describe only in small part Him who said, “Answer me,” re
 
 
 
+#Atonement #Discipleship #JesusChrist

@@ -109,3 +109,4 @@ I leave you my blessing and love and my testimony of these things in the name of
 
 
 
+#Authority #ChurchOrganization #Covenants #FirstPresidency #JesusChrist #Priesthood #Unity

@@ -65,3 +65,4 @@ My brothers and sisters, I testify of the 15 men whom we sustain as prophets, se
 
 
 
+#Discipleship #FamilyHistory #Prayer #Sacrament #ScriptureStudy #TempleWork #Traditions

@@ -36,7 +36,13 @@ Let me review the invitation:
 
 2. Next, identify, with the help of the Holy Ghost, a personal message—the little corrections you should make in your swing. Like the young woman whose letter I have just read, there will be an idea or a few words that you will feel are spoken just for you. Their interpretation will be yours alone. This is the process of personal revelation. It is simple. Don’t brush it aside.
 
-3. Put the message into action. Practice. “Be ye doers of the word, and not hearers only” ([[James 1.22|James 1:22]]). This is the whole point of revelation. It doesn’t matter how often the Lord chooses to speak to us if we fail to do anything about it.A Laurel wrote of her desire to respond to President Hinckley’s words about missionary work. Her personal message was to be a missionary by being a better example to her friends. At first she found this difficult to do, but she didn’t give up. Finally, she changed her habits successfully.She writes: “We got out of school early and all went to a friend’s house to watch a video. They wanted to watch one that was rated R and they said it wasn’t that bad. I was going to go along with it because I was sick of being the one to always be good. Luckily, one of the guys spoke up against it, refusing to watch it. I felt an overwhelming relief. But then they watched a PG-13 movie that was probably just as bad. I tried my hardest to talk them out of it, but couldn’t. I should have gone home, but didn’t. I regret it. That night in my prayers I promised the Lord to be a better example to my friends. Since then I’ve cut some words out of my speech. I’ve quit sluffing \[skipping school\], and some of my friends have stopped now too. I suggest better movies, and every time they choose something I’d rather not see, I leave.”Don’t be discouraged—keep trying until you succeed. We are entitled to the help of the Lord when we are trying to do his will. Pray for that help and keep trying.
+3. Put the message into action. Practice. “Be ye doers of the word, and not hearers only” ([[James 1.22|James 1:22]]). This is the whole point of revelation. It doesn’t matter how often the Lord chooses to speak to us if we fail to do anything about it.
+
+A Laurel wrote of her desire to respond to President Hinckley’s words about missionary work. Her personal message was to be a missionary by being a better example to her friends. At first she found this difficult to do, but she didn’t give up. Finally, she changed her habits successfully.
+
+She writes: “We got out of school early and all went to a friend’s house to watch a video. They wanted to watch one that was rated R and they said it wasn’t that bad. I was going to go along with it because I was sick of being the one to always be good. Luckily, one of the guys spoke up against it, refusing to watch it. I felt an overwhelming relief. But then they watched a PG-13 movie that was probably just as bad. I tried my hardest to talk them out of it, but couldn’t. I should have gone home, but didn’t. I regret it. That night in my prayers I promised the Lord to be a better example to my friends. Since then I’ve cut some words out of my speech. I’ve quit sluffing \[skipping school\], and some of my friends have stopped now too. I suggest better movies, and every time they choose something I’d rather not see, I leave.”
+
+Don’t be discouraged—keep trying until you succeed. We are entitled to the help of the Lord when we are trying to do his will. Pray for that help and keep trying.
 
 4. Notice the changes in your life and feelings. Good feelings will come when we conform our lives to the will of God as expressed through his chosen prophets.
 
@@ -47,3 +53,4 @@ I echo her testimony in the name of Jesus Christ, amen.
 
 
 
+#HolyGhost #Listening #Prophets #Spirituality #YoungWomen

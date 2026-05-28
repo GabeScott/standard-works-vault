@@ -95,3 +95,4 @@ Despite the good works that can be accomplished without a church, the fulness of
 
 [^15]: [[D&C 84.46|Doctrine and Covenants 84:46]]; emphasis added; see also [[D&C 58.27|Doctrine and Covenants 58:27–28]][[D&C 58.28|]].
 
+#ChurchAttendance #ChurchMembership #Priesthood #Service #Unity #Worship

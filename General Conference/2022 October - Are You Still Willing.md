@@ -93,3 +93,4 @@ May we always be willing. In the sacred name of the Lord Jesus Christ, amen.
 
 [^18]: [[D&C 64.34|Doctrine and Covenants 64:34]].
 
+#Discipleship #HolyGhost #JesusChrist #Sacrament

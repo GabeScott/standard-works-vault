@@ -123,3 +123,4 @@ God lives. Jesus is the Christ. Joseph Smith is the revelator and prophet of thi
 
 [^25]: See [[John 15.16|John 15:16]].
 
+#ArticlesOfFaith #Conversion #Endurance #Family #FamilyHistory

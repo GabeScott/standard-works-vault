@@ -123,3 +123,4 @@ I testify that the Lord Jesus Christ sacrificed His life to bring this salvation
 
 [^21]: “A Poor Wayfaring Man of Grief,” *Hymns,* no. 29.
 
+#Blessings #Faith #Obedience #Tithing

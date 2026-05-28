@@ -129,3 +129,4 @@ Although the Savior has power to mend what we cannot fix, He commands us to do a
 
 [^37]: See [[John 15.12|John 15:12–13]][[John 15.13|]]; [[1 John 4.18|1 John 4:18]]; Dieter F. Uchtdorf, “[[2017 April - Perfect Love Casteth Out Fear.md|Perfect Love Casteth Out Fear]],” *Ensign* or *Liahona,* May 2017, 107.
 
+#Atonement #Repentance

@@ -83,3 +83,4 @@ We give thanks for the Savior, who made this great goal attainable, for His prie
 
 
 
+#ChurchOrganization #Priesthood #ReliefSociety #Women

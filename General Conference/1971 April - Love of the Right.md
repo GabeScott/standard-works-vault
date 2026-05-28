@@ -71,3 +71,4 @@ As we unitedly work to help our youth in combatting and avoiding all of the temp
 
 
 
+#Family #WordOfWisdom

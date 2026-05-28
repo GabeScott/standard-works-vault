@@ -67,3 +67,4 @@ In closing, I join with the first prophet of this latter-day dispensation in dec
 
 
 
+#GodTheFather #HolyGhost #JesusChrist

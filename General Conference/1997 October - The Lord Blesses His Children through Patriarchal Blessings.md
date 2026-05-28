@@ -41,3 +41,4 @@ It is my sincere prayer that all who desire a blessing at the Lord’s hand may 
 
 
 
+#JosephSmith #PatriarchalBlessings #Priesthood

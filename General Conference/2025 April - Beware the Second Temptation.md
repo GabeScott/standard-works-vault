@@ -105,3 +105,4 @@ Instead, avail yourself of the miraculous healing power of the Atonement of Jesu
 
 [^9]: See [[2 Peter 1.2|2 Peter 1:2–4]][[2 Peter 1.3|]][[2 Peter 1.4|]].
 
+#AdamAndEve #Atonement #Repentance #Sin #Temptation

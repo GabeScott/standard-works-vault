@@ -139,3 +139,4 @@ But through the lights and shadows of my life, I also have the assurance that ai
 
 
 
+#Agency #Conscience #Standards

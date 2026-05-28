@@ -109,3 +109,4 @@ Burying our weapons of rebellion leads to a unique joy. With all who have ever b
 
 [^19]: See [[D&C 64.34|Doctrine and Covenants 64:34]].
 
+#Conversion #Obedience #Repentance

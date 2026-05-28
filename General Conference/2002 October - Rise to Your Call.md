@@ -77,3 +77,4 @@ In the name of Jesus Christ, amen.
 
 [^4]: [[D&C 123.17|D&C 123:17]].
 
+#ChurchCallings #HolyGhost #Service #Spirituality

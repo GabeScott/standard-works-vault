@@ -59,3 +59,4 @@ May we become heirs to the covenant and the seed of Abraham through our faithful
 
 
 
+#Agency #Faith #HolyGhost #Obedience

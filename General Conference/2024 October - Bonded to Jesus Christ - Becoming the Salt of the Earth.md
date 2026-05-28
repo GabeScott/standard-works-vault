@@ -59,3 +59,4 @@ As we remain bonded to the Lord, our lives will naturally reflect His light, and
 
 [^3]: Russell M. Nelson, “[[2021 April - What We Are Learning and Will Never Forget.md|What We Are Learning and Will Never Forget]],” *Liahona*, May 2021, 79.
 
+#Discipleship #Faith #JesusChrist #Service

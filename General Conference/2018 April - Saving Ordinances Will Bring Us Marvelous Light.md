@@ -95,3 +95,4 @@ I invite each of us to ask ourselves, “What ordinances, including the sacramen
 
 [^5]: Boyd K. Packer, “[[1985 October - The Only True Church.md|The Only True Church]],” *Ensign,* Nov. 1985, 82.
 
+#Atonement #Covenants #JesusChrist #Ordinances #Sacrament

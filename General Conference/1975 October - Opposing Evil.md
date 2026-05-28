@@ -87,3 +87,4 @@ God lives. He is our strength and our helper. As we strive, we shall discover th
 
 
 
+#Evil #Repentance #Standards #Youth

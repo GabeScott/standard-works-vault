@@ -63,3 +63,4 @@ I testify that God the Father lives and He loves you. He will answer your prayer
 
 [^5]: Russell M. Nelson, “[[1989 October - Woman—Of Infinite Worth.md|Woman—Of Infinite Worth]],” 22.
 
+#Covenants #Motherhood #Service #Women

@@ -47,3 +47,4 @@ That we may all go forth willingly, effectively, full of faith, with an eye sing
 
 
 
+#ChurchCallings #Service

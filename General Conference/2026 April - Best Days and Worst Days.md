@@ -145,3 +145,4 @@ Jesus Christ is our strength. This I know. Of this I bear witness in the name of
 
 [^23]: See [[John 20.5|John 20:5–7]][[John 20.6|]][[John 20.7|]].
 
+#Adversity #Blessings #Faith #JesusChrist

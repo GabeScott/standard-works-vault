@@ -129,3 +129,4 @@ I joyfully declare my witness of the divinity and living reality of the Eternal 
 
 [^27]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
+#Conversion #Gathering #Home #JesusChrist

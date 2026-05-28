@@ -105,3 +105,4 @@ I bear my witness that the Book of Mormon is indeed the word of God. I testify t
 
 [^26]: [Introduction to the Book of Mormon](https://www.churchofjesuschrist.org/study/scriptures/bofm/introduction?lang=eng).
 
+#BookOfMormon

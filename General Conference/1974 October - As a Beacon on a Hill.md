@@ -67,3 +67,4 @@ Remember, the brightest light and the clearest signal come from the cleanest ins
 
 
 
+#Leadership #Priesthood #Responsibility #Service

@@ -119,3 +119,4 @@ God is our Eternal Father, and Jesus is the Christ. We worship Them. Nothing com
 
 [^19]: [[D&C 65.2|Doctrine and Covenants 65:2]].
 
+#ChurchHistory #JosephSmith

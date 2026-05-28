@@ -71,3 +71,4 @@ The Merrie Miss motto is I Will Follow God’s Plan for Me. God’s plan for us 
 
 
 
+#JesusChrist #Kindness #Women #Youth

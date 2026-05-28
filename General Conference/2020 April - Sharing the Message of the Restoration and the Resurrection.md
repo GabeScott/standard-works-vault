@@ -97,3 +97,4 @@ Joseph Smith, the great prophet of the Restoration, offers the overarching testi
 
 [^15]: “The Restoration of the Fulness of the Gospel of Jesus Christ: A Bicentennial Proclamation to the World,” Apr. 5, 2020, in Russell M. Nelson, “[[2020 April - Hear Him.md|Hear Him]],” *Ensign* or *Liahona,* May 2020, 91–92.
 
+#BookOfMormon #MissionaryWork #Restoration #Resurrection

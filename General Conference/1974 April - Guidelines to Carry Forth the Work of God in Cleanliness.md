@@ -203,3 +203,4 @@ I know this is true and right. I love our Heavenly Father and I love his Son, an
 
 
 
+#Abortion #Loyalty #Marriage #Morality

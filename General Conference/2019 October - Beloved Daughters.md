@@ -135,3 +135,4 @@ I pray that the same Spirit that has guided these adjustments will guide you as 
 
 [^26]: If you have only one class and one class presidency, the full presidency can participate in ward youth council with the Aaronic Priesthood quorum presidents so there is a balance of young women and young men (see *Handbook 2,* [18.2.9](https://www.churchofjesuschrist.org/study/manual/handbook-2-administering-the-church/meetings-in-the-church/meetings-in-the-church?lang=eng&id=title_number12#title_number12)).
 
+#DivineNature #YoungWomen #Youth

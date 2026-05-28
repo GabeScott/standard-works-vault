@@ -87,3 +87,4 @@ It is my prayer that we may honor the commitments and covenants that we make wit
 
 [^14]: *Finding Peace in Our Lives* (1995), 193–94.
 
+#Covenants #Honesty #JesusChrist #PlanOfSalvation #Temples

@@ -129,3 +129,4 @@ The Savior pleads:
 
 [^16]: [[3 Nephi 9.13|3 Nephi 9:13–14]][[3 Nephi 9.14|]].
 
+#Adversity #Atonement #Faith #Healing #HolyGhost #JesusChrist #Repentance

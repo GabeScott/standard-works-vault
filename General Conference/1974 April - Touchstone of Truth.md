@@ -75,3 +75,4 @@ May we ponder the privilege of being members of the Church of Jesus Christ and l
 
 
 
+#BookOfMormon #Godhead #JosephSmith #Truth

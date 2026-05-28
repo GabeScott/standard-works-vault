@@ -79,3 +79,4 @@ Brothers and sisters, I join with you in saluting every block teacher and ward t
 
 [^15]: See [[John 15.12|John 15:12]].
 
+#ChurchOrganization #Love #Ministering #Service

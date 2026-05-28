@@ -45,3 +45,4 @@ Wherever two or three of us are gathered together, I pray that the Savior may be
 
 
 
+#JesusChrist #Obedience

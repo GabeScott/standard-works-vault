@@ -85,3 +85,4 @@ May God help us so to train our desires, in the name of Jesus Christ, amen!
 
 
 
+#Agency #Adversity #Parenthood #Satan

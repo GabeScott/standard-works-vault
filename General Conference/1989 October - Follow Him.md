@@ -79,3 +79,4 @@ Just as food satisfies our physical hunger, we can partake with satisfaction and
 
 
 
+#JesusChrist #Obedience #PlanOfSalvation #Spirituality #Women #Youth

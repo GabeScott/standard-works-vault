@@ -117,3 +117,4 @@ Dear friends, the Book of Mormon is the word of God, and we will draw nearer to 
 
 [^33]: See [[2 Corinthians 5.17|2 Corinthians 5:17]]; [[Mosiah 3.19|Mosiah 3:19]]; [[Mosiah 5.2|5:2]]; [[Alma 5.14|Alma 5:14, 19]][[Alma 5.19|]].
 
+#BookOfMormon #Conversion

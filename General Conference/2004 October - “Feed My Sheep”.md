@@ -45,3 +45,4 @@ May we be anxiously engaged in gathering in His sheep who have gone astray, so t
 
 
 
+#Activation #Forgiveness #Fellowshipping #JesusChrist

@@ -69,3 +69,4 @@ I bear my witness that Jesus is the Christ, the Son of God. This is his church; 
 
 
 
+#MissionOfTheChurch #Priesthood #Responsibility

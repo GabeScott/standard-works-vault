@@ -179,3 +179,4 @@ I love the Sabbath, the sacrament, and what they mean. I love the Savior with al
 
 [^30]: [[Matthew 7.7|Matthew 7:7]].
 
+#JesusChrist #Revelation #Sabbath #Sacrament

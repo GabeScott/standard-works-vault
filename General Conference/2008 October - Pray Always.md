@@ -93,3 +93,4 @@ I witness Heavenly Father lives and that He hears and answers every earnest pray
 
 
 
+#Faith #Gratitude #Prayer

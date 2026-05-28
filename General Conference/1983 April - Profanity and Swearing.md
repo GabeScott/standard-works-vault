@@ -143,3 +143,4 @@ We are in the presence of and being directed by living prophets. This is an abso
 
 
 
+#Attitude #Profanity

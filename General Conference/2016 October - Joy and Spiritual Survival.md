@@ -139,3 +139,4 @@ Heed these words of the Psalmist: “I have set the Lord always before me: becau
 
 [^34]: See [[Isaiah 35.10|Isaiah 35:10]]; [[2 Nephi 8.3|2 Nephi 8:3]].
 
+#Adversity #Joy #JesusChrist #PlanOfSalvation

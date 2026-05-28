@@ -91,3 +91,4 @@ I testify of God the Father; of our Savior and Redeemer, Jesus Christ; of the Ho
 
 [^12]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
+#Authority #Covenants #FamilyHistory #MissionaryWork #Ordinances #Priesthood #TempleWork

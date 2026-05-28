@@ -37,3 +37,4 @@ I again testify that the restored gospel of Jesus Christ is true. I feel very de
 
 
 
+#CoupleMissionaries #JesusChrist #MissionaryWork #Ordinances #Temples #TempleWork

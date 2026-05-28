@@ -83,3 +83,4 @@ What a blessing it is to bear the Lord’s holy priesthood and have that power a
 
 
 
+#Example #HolyGhost #Priesthood #Prophets

@@ -173,3 +173,4 @@ His mission, His ministry among men, His teachings of truth, His acts of mercy, 
 
 [^34]: [[D&C 76.22|D&C 76:22–23]][[D&C 76.23|]].
 
+#Apostasy #Atonement #Bible #BookOfMormon #GodTheFather #JosephSmith #JesusChrist #Pioneers #Restoration

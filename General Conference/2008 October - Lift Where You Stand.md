@@ -121,3 +121,4 @@ For this I pray, and I leave you my blessing and my love in the name of Jesus Ch
 
 [^5]: In Gene A. Sessions, ed., “Biographies and Reminiscences from the James Henry Moyle Collection,” typescript, Church Archives, The Church of Jesus Christ of Latter-day Saints, 203.
 
+#ChurchCallings #Priesthood #Service

@@ -83,3 +83,4 @@ In the holy name of Jesus Christ, amen.
 
 
 
+#JosephSmith #Priesthood #Restoration

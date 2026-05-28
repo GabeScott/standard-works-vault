@@ -107,3 +107,4 @@ I invite you to live the doctrine of Christ repeatedly, iteratively, and intenti
 
 [^29]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
+#Baptism #ChurchDoctrine #Covenants #Discipleship #Endurance #Faith #HolyGhost #JesusChrist #Repentance

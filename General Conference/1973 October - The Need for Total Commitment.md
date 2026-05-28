@@ -57,3 +57,4 @@ As the coming of the Lord approaches, Satan’s pressure on us will increase. We
 
 
 
+#Attitude #Commitment

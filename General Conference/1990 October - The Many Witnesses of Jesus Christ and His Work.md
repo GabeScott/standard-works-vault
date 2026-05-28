@@ -65,3 +65,4 @@ Ken, no, God has not forgotten His children, even though they leave His presence
 
 
 
+#JesusChrist #Scriptures #Testimony

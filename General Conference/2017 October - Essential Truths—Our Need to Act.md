@@ -89,3 +89,4 @@ May we all continue to act upon these essential truths and knowledge, offering o
 
 [^13]: [[2 Nephi 9.10|2 Nephi 9:10]].
 
+#Conversion #Family #GodTheFather #JosephSmith #JesusChrist #PlanOfSalvation #Prophets

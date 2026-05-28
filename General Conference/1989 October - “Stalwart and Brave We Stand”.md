@@ -94,3 +94,4 @@ Jesus is the Christ. He is our Redeemer, our Lord and Savior and friend. We cons
 
 
 
+#Courage #Endurance #Faith #Obedience

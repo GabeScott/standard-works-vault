@@ -69,3 +69,4 @@ This is my witness on this beautiful Sabbath morning. May we write it on our hea
 
 [^1]: [Come, Follow Me—For Individuals and Families: Old Testament 2022](https://www.churchofjesuschrist.org/study/manual/come-follow-me-for-individuals-and-families-old-testament-2022/12?lang=eng), 51.
 
+#GodTheFather #JesusChrist #Love #OldTestament #PlanOfSalvation

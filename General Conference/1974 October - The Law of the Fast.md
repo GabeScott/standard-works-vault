@@ -55,3 +55,4 @@ I firmly believe that the paying of fast offerings does result in rich blessings
 
 
 
+#Fasting #Welfare

@@ -183,3 +183,4 @@ I testify that through our prophet, seer, and revelator, President Gordon B. Hin
 
 [^21]: [[Romans 5.1|Romans 5:1]].
 
+#Faith #FinancialManagement #Humility #Work

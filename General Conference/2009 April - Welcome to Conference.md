@@ -49,3 +49,4 @@ To those of you who are new in the Church, we welcome you. To those of you who a
 
 [^1]: [[Matthew 28.19|Matthew 28:19]].
 
+#Education #MissionaryWork #Temples

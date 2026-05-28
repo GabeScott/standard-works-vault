@@ -105,3 +105,4 @@ Oh, God our Father, wilt thou look upon thy children everywhere in love and merc
 
 
 
+#IdolWorship #Restoration

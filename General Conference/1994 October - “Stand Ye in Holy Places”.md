@@ -35,3 +35,4 @@ Pat’s eyes met mine. For a brief moment I was transported back across the year
 
 
 
+#Marriage #Temples #Zion

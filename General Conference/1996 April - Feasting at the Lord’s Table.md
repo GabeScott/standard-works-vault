@@ -89,3 +89,4 @@ I testify to you that Jesus is the Christ. He lives and invites everyone to part
 
 [^12]: [[Revelation 3.20|Rev. 3:20]].
 
+#ChurchMeetings #Family #HolyGhost #IndividualWorth #JesusChrist #Love #Prophets #Spirituality #TempleWork #Testimony #Youth

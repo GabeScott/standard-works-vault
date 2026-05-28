@@ -129,3 +129,4 @@ I witness that Jesus is the Christ. He is the source of all joy.[^27] His grace 
 
 [^30]: See [[1 Nephi 1.14|1 Nephi 1:14]].
 
+#Adversity #BookOfMormon #Trust

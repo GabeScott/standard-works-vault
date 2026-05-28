@@ -75,3 +75,4 @@ That you may experience the blessings of missionary service for you and your fam
 
 
 
+#Charity #CoupleMissionaries #Example #Family #Fear #Joy #Marriage #Sacrifice #Service #Teaching #Testimony

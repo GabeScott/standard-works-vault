@@ -95,3 +95,4 @@ Brothers and sisters, I encourage you to slow down a bit and think about where y
 
 [^12]: Russell M. Nelson, “[[2019 April - We Can Do Better and Be Better.md|We Can Do Better and Be Better]],” *Ensign* or *Liahona,* May 2019, 67.
 
+#Family #Self-control #Spirituality

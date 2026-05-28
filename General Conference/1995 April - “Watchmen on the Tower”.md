@@ -73,3 +73,4 @@ I bear this testimony in the sacred name of Jesus Christ, amen.
 
 
 
+#EzraTaftBenson #HomeTeaching #Priesthood

@@ -105,3 +105,4 @@ I am grateful that my parents taught me to pay tithing. I bear my humble testimo
 
 [^8]: *Gospel Doctrine,* 229.
 
+#Blessings #Obedience #Testimony #Tithing

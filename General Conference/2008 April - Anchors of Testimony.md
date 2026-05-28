@@ -91,3 +91,4 @@ I testify that the Lord loves each of you and will bless you in your efforts to 
 
 [^12]: [[Alma 36.3|Alma 36:3]].
 
+#Morality #Obedience #Testimony

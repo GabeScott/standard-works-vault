@@ -117,3 +117,4 @@ In the name of Jesus Christ. Amen.
 
 
 
+#Obedience #PlanOfSalvation #Repentance

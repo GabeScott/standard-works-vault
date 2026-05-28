@@ -55,3 +55,4 @@ May we do so is my prayer in the name of Jesus Christ, amen.
 
 
 
+#Commitment #Endurance

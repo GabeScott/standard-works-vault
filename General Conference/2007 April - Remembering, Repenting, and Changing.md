@@ -103,3 +103,4 @@ It is through repenting that I have come to know the Savior, and it is as I seek
 
 [^20]: [[3 Nephi 27.16|3 Nephi 27:16]].
 
+#Activation #Example #Faith #JesusChrist #Repentance #Sacrifice #YoungWomen

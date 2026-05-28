@@ -69,3 +69,4 @@ My brothers and sisters, we must help all people, including our own members, und
 
 
 
+#Bible #JosephSmith #JesusChrist #Sacrifice #Scriptures

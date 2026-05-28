@@ -107,3 +107,4 @@ That experience in Africa was another reminder for me to follow the Guide. I fol
 
 
 
+#Agency #Obedience

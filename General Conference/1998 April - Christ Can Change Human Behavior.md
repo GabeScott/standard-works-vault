@@ -47,3 +47,4 @@ I pray we’ll make missionary work our business and not let other less importan
 
 
 
+#Agency #Blessings #Conversion #JesusChrist #MissionaryWork #Obedience

@@ -87,3 +87,4 @@ My beloved friends, in our shared ministry of reconciliation, I ask us to be pea
 
 [^18]: [[Zechariah 13.6|Zechariah 13:6]]; see also [[D&C 45.52|Doctrine and Covenants 45:52]].
 
+#Atonement #Forgiveness #Ministering #Peace

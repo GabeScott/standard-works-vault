@@ -69,3 +69,4 @@ It is my prayer that we will devote our hearts and our hands to helping all of H
 
 [^2]: Boyd K. Packer, “[[1995 October - The Brilliant Morning of Forgiveness.md|The Brilliant Morning of Forgiveness]],” *Ensign,* Nov. 1995, 20.
 
+#Atonement #BookOfMormon #DivineNature #Family #JesusChrist #Motherhood #Parenthood #ScriptureStudy

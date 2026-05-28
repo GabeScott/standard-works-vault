@@ -141,3 +141,4 @@ I bear my sure and certain apostolic witness of the divinity of Jesus Christ and
 
 [^32]: [[D&C 138.57|Doctrine and Covenants 138:57]].
 
+#Blessings #BookOfMormon #Gathering #HouseOfIsrael #MissionaryWork

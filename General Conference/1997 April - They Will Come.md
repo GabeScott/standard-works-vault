@@ -123,3 +123,4 @@ My beloved brethren, let us, with faith unwavering and with love unstinting, be 
 
 [^5]: “Put Your Shoulder to the Wheel,” *Hymns,* no. 252.
 
+#Activation #Covenants #Faith #Fellowshipping #JesusChrist #MissionaryWork #Priesthood

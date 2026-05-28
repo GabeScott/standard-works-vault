@@ -53,3 +53,4 @@ Our bodies are our temples. We are not less but *more* like Heavenly Father beca
 
 
 
+#Morality #PlanOfSalvation #Self-esteem #Temples #WordOfWisdom

@@ -69,3 +69,4 @@ Jesus is the Christ, the promised Messiah, who came to earth in the most humble 
 
 
 
+#Agency #ChurchOrganization #IndividualWorth #JesusChrist #Priesthood

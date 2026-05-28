@@ -147,3 +147,4 @@ In those responsible roles, may we go forward in faith, led by Jesus Christ, who
 
 [^26]: See [[Alma 12.24|Alma 12:24]].
 
+#Family #PlanOfSalvation

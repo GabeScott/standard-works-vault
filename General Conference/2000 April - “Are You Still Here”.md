@@ -85,3 +85,4 @@ Before I was a member of this Church, I asked God, the Eternal Father, in ferven
 
 [^15]: “Now Let Us Rejoice,” *Hymns,* no. 3.
 
+#Atonement #Authority #BookOfMormon #Faith #GodTheFather #HolyGhost #JosephSmith #JesusChrist #PlanOfSalvation #PremortalExistence #Prophets #Resurrection #Scriptures #Spirituality #Testimony #Truth

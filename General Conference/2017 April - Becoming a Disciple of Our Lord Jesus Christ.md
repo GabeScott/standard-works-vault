@@ -113,3 +113,4 @@ Brothers and sisters, we are all called to be disciples of our Savior. Let this 
 
 [^25]: [[Mormon 9.27|Mormon 9:27]].
 
+#Adversity #Charity #Discipleship #Faith #JesusChrist #Obedience #Patience

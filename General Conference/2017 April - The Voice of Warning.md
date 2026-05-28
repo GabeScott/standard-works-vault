@@ -163,3 +163,4 @@ May we each be able to say to the Lord with David: “I have not hid thy righteo
 
 [^36]: [[Psalms 40.10|Psalm 40:10–11]][[Psalms 40.11|]].
 
+#Accountability #JesusChrist #Love #Parenthood #Prophets #Standards

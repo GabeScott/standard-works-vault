@@ -137,3 +137,4 @@ Brothers and sisters, I conclude by sharing my personal witness, which I conside
 
 [^30]: [[2 Nephi 31.21|2 Nephi 31:21]].
 
+#Atonement #Joy #JesusChrist #Repentance #Sin

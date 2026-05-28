@@ -175,3 +175,4 @@ Of this I testify in the name of the One who loved so well and so completely tha
 
 [^19]: See [[Romans 3.23|Romans 3:23]].
 
+#Forgiveness #Judging #Love #Mercy

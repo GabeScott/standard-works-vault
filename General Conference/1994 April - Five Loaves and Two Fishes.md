@@ -63,3 +63,4 @@ I testify that the gospel we teach is the “power of God unto salvation” for 
 
 
 
+#Adversity #ChurchOrganization #Education #GodTheFather #Love #PlanOfSalvation #Pride #Service #Talents

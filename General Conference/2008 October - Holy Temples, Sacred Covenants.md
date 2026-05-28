@@ -97,3 +97,4 @@ I testify to you that the temples are sacred, holy places. They are a source of 
 
 [^9]: See [[D&C 109.20|D&C 109:20]].
 
+#Covenants #Temples #Worthiness

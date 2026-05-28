@@ -83,3 +83,4 @@ If we undertake this effort and quench not the Spirit, our inner being is quicke
 
 [^6]: [[Galatians 5.25|Galatians 5:25]].
 
+#Commitment #HolyGhost #Temples

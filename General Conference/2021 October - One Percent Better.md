@@ -77,3 +77,4 @@ To this end, Elder Neal A. Maxwell taught, “Each assertion of a righteous desi
 
 [^16]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
+#Faith #Habits #JesusChrist #Repentance #Righteousness

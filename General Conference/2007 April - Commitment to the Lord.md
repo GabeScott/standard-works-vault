@@ -41,3 +41,4 @@ As you commit now to do the will of the Lord, He will help and strengthen you. Y
 
 
 
+#Commitment #Obedience #Standards #WordOfWisdom #Youth

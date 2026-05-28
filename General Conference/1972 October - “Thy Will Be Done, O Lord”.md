@@ -109,3 +109,4 @@ I bear you this witness in the name of Jesus Christ. Amen.
 
 
 
+#Joy #Obedience

@@ -79,3 +79,4 @@ How can we have the Spirit of the Lord to guide our choices so that we will rema
 
 
 
+#ChurchMeetings #Reverence #Sacrament

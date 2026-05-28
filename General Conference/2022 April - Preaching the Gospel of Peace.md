@@ -45,3 +45,4 @@ May this conference be a time of peace and spiritual feasting for you. May you s
 
 [^6]: [[Philippians 4.7|Philippians 4:7]].
 
+#Adversity #Gathering #GeneralConference #JesusChrist #MissionaryWork #Peace

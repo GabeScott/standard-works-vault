@@ -91,3 +91,4 @@ Our high responsibility is to become women who follow the Savior, nurture with i
 
 [^6]: Julie B. Beck, “[[2010 April - “And upon the Handmaids in Those Days Will I Pour Out My Spirit”.md|And upon the Handmaids in Those Days Will I Pour Out My Spirit]],” *Ensign* or *Liahona,* May 2010, 11.
 
+#Faith #JesusChrist #KingdomOfGod #Love #Motherhood #Revelation #Sacrifice #Women

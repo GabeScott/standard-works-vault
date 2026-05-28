@@ -141,3 +141,4 @@ I testify that we can hear the voice of Deity through the scriptures; I testify 
 
 
 
+#JesusChrist #Prophets #Scriptures #Spirituality

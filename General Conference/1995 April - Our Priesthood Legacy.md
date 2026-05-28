@@ -67,3 +67,4 @@ To such fathers of our families and fathers of our faith, to those who have live
 
 
 
+#ChurchHistory #GordonB.Hinckley #Honesty #HowardW.Hunter #Priesthood #Tithing

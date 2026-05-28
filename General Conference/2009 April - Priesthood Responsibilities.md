@@ -101,3 +101,4 @@ I know that the Church is true. I know that Joseph Smith is a prophet of God. I 
 
 [^15]: [[Matthew 11.29|Matthew 11:29–30]][[Matthew 11.30|]].
 
+#FamilyHomeEvening #Priesthood #Responsibility

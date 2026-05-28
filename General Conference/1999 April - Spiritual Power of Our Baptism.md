@@ -61,3 +61,4 @@ I pray that you will tend and take care of your baptismal covenants. As you say 
 
 
 
+#HolyGhost #Morality #Ordinances #Sacrament #YoungWomen

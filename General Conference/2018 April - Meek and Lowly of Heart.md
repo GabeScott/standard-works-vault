@@ -179,3 +179,4 @@ I testify that Jesus Christ is our resurrected and living Redeemer. And I promis
 
 [^31]: [[Matthew 5.5|Matthew 5:5]].
 
+#DivineNature #Humility #JesusChrist #Meekness #Prophets

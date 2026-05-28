@@ -91,3 +91,4 @@ I pray that we will heed the counsel of our prophet and have the faith to follow
 
 
 
+#BookOfMormon #Children #Duty #FamilyHomeEvening #Family #HomeTeaching #Obedience #Prayer

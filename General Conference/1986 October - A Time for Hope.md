@@ -84,3 +84,4 @@ With daily prayer, scripture study, and our feet firmly planted on the road to t
 
 
 
+#Adversity #Hope

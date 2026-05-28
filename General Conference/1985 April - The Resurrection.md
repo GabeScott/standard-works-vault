@@ -109,3 +109,4 @@ To all we say, “May Christ lift thee up, and may … the hope of his glory and
 
 
 
+#Discipleship #JesusChrist #Resurrection

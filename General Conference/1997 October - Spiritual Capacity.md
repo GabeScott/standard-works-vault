@@ -115,3 +115,4 @@ While we follow prophetic teachings, we can develop our spiritual capacities by 
 
 [^25]: [[D&C 68.4|D&C 68:4]].
 
+#Agency #Attitude #Commandments #GeneralConference #GordonB.Hinckley #JesusChrist #Prophets #Spirituality

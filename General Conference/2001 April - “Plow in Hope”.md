@@ -77,3 +77,4 @@ In the holy name of Jesus Christ, amen!
 
 
 
+#Adversity #Atonement #Discipleship #Faith #Family #Hope #JesusChrist #Media #Patience #Peace #Perspective #Satan #ScriptureStudy #Understanding

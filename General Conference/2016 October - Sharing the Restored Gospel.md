@@ -50,7 +50,9 @@ Here are some other things we can do to share the gospel effectively:
 
 3. When we seek to introduce people to the restored gospel, we should do this in ways that are authentic and in loving concern for the individual. This happens when we are trying to help others with problems they have identified or when we are working with them in community service activities, such as relieving suffering, caring for the poor and needy, or enhancing the quality of life of others.
 
-4. Our efforts to share the gospel should not be limited to our circle of friends and associates. During the Olympics we learned of an LDS taxi driver in Rio de Janeiro who carried copies of the Book of Mormon in seven different languages and gave one to whoever would receive them. He called himself the “cab driving missionary.” He said, “The streets of Rio de Janeiro … are \[my\] mission field.”[^8]Clayton M. Christensen, who has impressive experience as a member missionary, states that “over the past twenty years, we have observed no correlation between the depth of a relationship and the probability that a person will be interested in learning about the gospel.”[^9]
+4. Our efforts to share the gospel should not be limited to our circle of friends and associates. During the Olympics we learned of an LDS taxi driver in Rio de Janeiro who carried copies of the Book of Mormon in seven different languages and gave one to whoever would receive them. He called himself the “cab driving missionary.” He said, “The streets of Rio de Janeiro … are \[my\] mission field.”[^8]
+
+Clayton M. Christensen, who has impressive experience as a member missionary, states that “over the past twenty years, we have observed no correlation between the depth of a relationship and the probability that a person will be interested in learning about the gospel.”[^9]
 
 5. Ward bishoprics can plan a special sacrament meeting to which members are urged to bring interested persons. Ward members will be less hesitant to bring their acquaintances to such a meeting because they will be more assured that the content of the meeting will be well planned to enlist interest and represent the Church well.
 
@@ -87,3 +89,4 @@ I testify of Jesus Christ, who is the Light and Life of the World (see [[3 Nephi
 
 [^11]: M. Russell Ballard, “[[2000 October - Now Is the Time.md|Now Is the Time]],” *Ensign,* Nov. 2000, 75; *Liahona,* Jan. 2001, 89.
 
+#Conversion #MissionaryWork #Obedience #Prayer

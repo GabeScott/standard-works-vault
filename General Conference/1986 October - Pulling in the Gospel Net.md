@@ -77,3 +77,4 @@ In closing, brothers and sisters, I want to say that this is the way we tried to
 
 
 
+#Faith #MissionaryWork #Temples #Testimony

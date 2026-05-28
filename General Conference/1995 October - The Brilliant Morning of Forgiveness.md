@@ -165,3 +165,4 @@ I bear witness of Christ and of the power of His atonement. And I know that “h
 
 [^24]: [JST, Ps. 30:5](https://www.churchofjesuschrist.org/study/scriptures/ot/ps/30?lang=eng&id=note5a#note5a); see also [[D&C 61.20|D&C 61:20]].
 
+#Atonement #Forgiveness #JesusChrist #Love #Repentance #Sin

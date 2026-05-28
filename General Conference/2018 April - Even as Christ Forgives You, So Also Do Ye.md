@@ -97,3 +97,4 @@ The tomb is empty. Christ lives. I know Him. I love Him. I am grateful for His g
 
 [^9]: [[John 14.27|John 14:27]].
 
+#Forgiveness #JesusChrist

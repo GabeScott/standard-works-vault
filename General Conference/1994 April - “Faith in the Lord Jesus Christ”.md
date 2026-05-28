@@ -77,3 +77,4 @@ I testify that these things are true. I invoke the blessings of Almighty God upo
 
 
 
+#Atonement #Death #Faith #JesusChrist #Love #PlanOfSalvation #Prayer #Trust #Women

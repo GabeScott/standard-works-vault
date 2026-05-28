@@ -85,3 +85,4 @@ May all of us seek to perfect our lives in the pattern of the Savior, and may we
 
 
 
+#Activation #Fellowshipping

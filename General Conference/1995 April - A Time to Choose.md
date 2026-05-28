@@ -85,3 +85,4 @@ That our Heavenly Father may ever bless you precious young women, that He may in
 
 [^3]: [[Luke 18.22|Luke 18:22]].
 
+#Agency #Dedication #Friendship #GodTheFather #Perspective #Prayer #ScriptureStudy #Scriptures #Wisdom #Youth

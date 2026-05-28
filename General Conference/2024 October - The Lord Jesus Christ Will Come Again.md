@@ -143,3 +143,4 @@ Through the power of the sacred priesthood keys I hold, I declare this truth to 
 
 [^20]: [[Omni 1.26|Omni 1:26]].
 
+#Atonement #JesusChrist #Preparation #SecondComing #Temples

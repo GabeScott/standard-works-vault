@@ -51,3 +51,4 @@ May we always find it easy to believe His word. May you with easiness declare, a
 
 
 
+#Conversion #Faith #Humility #Obedience

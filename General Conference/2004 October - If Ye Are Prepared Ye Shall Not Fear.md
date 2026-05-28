@@ -127,3 +127,4 @@ I bear to you, my beloved sisters, my witness that Heavenly Father lives, that J
 
 [^13]: [[D&C 38.30|D&C 38:30]].
 
+#Literacy #Preparation #ReliefSociety #Teaching #Women

@@ -77,3 +77,4 @@ I pray that we may all understand the magnificent Aaronic Priesthood and trust, 
 
 
 
+#Duty #Priesthood

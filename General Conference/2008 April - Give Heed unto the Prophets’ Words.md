@@ -101,3 +101,4 @@ I am grateful for our Father in Heaven, who loves us, and for His Son, Jesus Chr
 
 [^16]: [[D&C 81.3|D&C 81:3–5]][[D&C 81.4|]][[D&C 81.5|]].
 
+#Family #Prophets #WordOfWisdom

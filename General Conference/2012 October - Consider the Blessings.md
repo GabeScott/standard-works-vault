@@ -85,3 +85,4 @@ My brothers and sisters, the Lord is in all of our lives. He loves us. He wants 
 
 [^4]: Proctor, *Meridian Magazine,* May 9, 2012.
 
+#Prayer #Spirituality

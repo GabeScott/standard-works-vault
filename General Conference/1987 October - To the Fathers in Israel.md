@@ -117,3 +117,4 @@ To this end I pray, in the name of Jesus Christ, amen.
 
 
 
+#Children #Fatherhood #Marriage #Motherhood #Priesthood #Responsibility

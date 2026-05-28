@@ -103,3 +103,4 @@ Of Him and His good tidings, of the publication of His peace in this conference 
 
 [^18]: [[3 Nephi 22.10|3 Ne. 22:10]].
 
+#Adversity #Forgiveness #JesusChrist #Obedience #Opposition #Peace #Prayer #Repentance

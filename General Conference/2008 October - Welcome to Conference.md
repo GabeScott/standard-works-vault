@@ -37,3 +37,4 @@ Our Heavenly Father is mindful of each one of us and our needs. May we be filled
 
 
 
+#ChurchGrowth #Temples

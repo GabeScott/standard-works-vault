@@ -69,3 +69,4 @@ May the Lord bless us in our quest to be true disciples and good neighbors. I pr
 
 
 
+#Discipleship #Love

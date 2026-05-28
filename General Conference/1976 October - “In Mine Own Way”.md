@@ -139,3 +139,4 @@ That the Lord will give us the wisdom and the courage to understand and live by 
 
 
 
+#Self-reliance #Service #Welfare

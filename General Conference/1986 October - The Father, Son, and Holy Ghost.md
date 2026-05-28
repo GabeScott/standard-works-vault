@@ -149,3 +149,4 @@ I bear witness of these great, transcendent truths. I do so by the gift and powe
 
 
 
+#GodTheFather #Godhead #HolyGhost #JesusChrist

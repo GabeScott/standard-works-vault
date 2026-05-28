@@ -195,3 +195,4 @@ If we will be true to the truth, accept the invitation to walk with President Go
 
 [^38]: [[D&C 59.23|D&C 59:23]].
 
+#Accountability #Atonement #ChurchGrowth #Covenants #Employment #HomeTeaching #JesusChrist #Peace #Pioneers #PlanOfSalvation #Repentance #Sacrament #Temples #Truth

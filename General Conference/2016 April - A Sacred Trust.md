@@ -33,3 +33,4 @@ As we now conclude this general priesthood session, I say to you that you “are
 
 
 
+#DivineNature #Priesthood #Worthiness

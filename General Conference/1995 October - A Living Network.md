@@ -55,3 +55,4 @@ So may it be, I pray in the name of Jesus Christ, amen.
 
 
 
+#Blessings #GodTheFather #IndividualWorth #JesusChrist #ReliefSociety #Service #Women

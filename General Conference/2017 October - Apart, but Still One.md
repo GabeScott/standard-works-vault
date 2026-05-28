@@ -63,3 +63,4 @@ Brothers and sisters, I testify that as we decide to be one with the members and
 
 [^4]: [[John 17.21|John 17:21]].
 
+#Criticism #Unity

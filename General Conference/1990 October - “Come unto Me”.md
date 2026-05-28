@@ -51,3 +51,4 @@ May we do so in appreciation for the loving gift of eternal joy he offers us I p
 
 
 
+#Adversity #Faith #Humility #JesusChrist #Pride

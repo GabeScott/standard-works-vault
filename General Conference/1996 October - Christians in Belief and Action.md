@@ -157,3 +157,4 @@ I add my personal testimony to others you have heard. Jesus is the Christ, the S
 
 [^41]: In Conference Report, Apr. 1996, [[1996 April - This Glorious Easter Morn.md|92]]; or *Ensign,* May 1996, 67.
 
+#Atonement #Christianity #Commandments #Conversion #Faith #HolyGhost #JesusChrist #Ordinances #Repentance #Restoration #Scriptures

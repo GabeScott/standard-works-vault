@@ -69,3 +69,4 @@ My beloved brothers and sisters, I encourage each of you to deepen your study of
 
 [^1]: Russell M. Nelson, “Sacrament Meeting” (address given at the seminar for new mission leaders, June 23, 2025).
 
+#BookOfMormon #Conversion #MissionaryService #ScriptureStudy #Testimony

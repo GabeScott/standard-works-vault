@@ -87,3 +87,4 @@ I bear testimony that these truths are given to us by a loving Heavenly Father. 
 
 
 
+#Education #HolyGhost #JesusChrist #Literacy #ReliefSociety #Truth

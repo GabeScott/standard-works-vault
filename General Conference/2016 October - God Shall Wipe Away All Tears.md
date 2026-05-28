@@ -103,3 +103,4 @@ I testify that God our Father and His Son, Jesus Christ, live and that They are 
 
 [^21]: [[Revelation 7.17|Revelation 7:17]]; see also [[Revelation 21.4|Revelation 21:4]].
 
+#Adversity #Discipleship #Endurance #Faith #Joy #JesusChrist #PlanOfSalvation

@@ -57,3 +57,4 @@ I testify that the Savior lives and He will bless each one of us if we will do a
 
 
 
+#Apostasy #BookOfMormon #ChurchGrowth #ChurchOrganization #Commitment #Discipleship #Example #Faith #Family #GeneralConference #HolyGhost #Hope #Love #MissionaryWork #PlanOfSalvation #Preparation #PremortalExistence #Responsibility #Service #Spirituality #Temples #Testimony

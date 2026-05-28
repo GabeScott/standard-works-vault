@@ -99,3 +99,4 @@ Christ is risen. Truly, He is risen. In the name of Jesus Christ, amen.
 
 [^13]: See [[Mosiah 3.19|Mosiah 3:19.]]
 
+#Adversity #Covenants #Discipleship #Joy #JesusChrist #Love

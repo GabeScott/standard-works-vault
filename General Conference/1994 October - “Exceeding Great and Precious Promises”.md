@@ -77,3 +77,4 @@ I pledge my life, my strength, and the full measure of my soul to serving him. M
 
 
 
+#Family #FamilyHistory #JesusChrist #Prophets #Temples

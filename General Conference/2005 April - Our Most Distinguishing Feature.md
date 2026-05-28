@@ -93,3 +93,4 @@ With gratitude for such blessings, I join you and a choir of the living and the 
 
 [^17]: See [[D&C 84.19|D&C 84:19–21]][[D&C 84.20|]][[D&C 84.21|]].
 
+#Priesthood #Restoration

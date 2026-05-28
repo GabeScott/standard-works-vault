@@ -165,3 +165,4 @@ I joyfully witness that Jesus Christ is our loving and living Savior and Redeeme
 
 [^30]: See [[John 15.5|John 15:5]].
 
+#Covenants #Discipleship #Endurance #JesusChrist

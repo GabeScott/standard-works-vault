@@ -107,3 +107,4 @@ My greatest desires are to stand with Mormon as a true disciple of Jesus Christ 
 
 [^4]: See John Stuart Mill, *Inaugural Address: Delivered to the University of St. Andrews, Feb. 1, 1867* (1867), 36.
 
+#Adversity #Faith #Godhead #JesusChrist #PlanOfSalvation #Sacrifice #Trust

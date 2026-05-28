@@ -57,3 +57,4 @@ I testify of the sacred mantle of our prophet, President Dallin H. Oaks, as a pr
 
 [^5]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” 96.
 
+#AtonementOfJesusChrist #HolyGhost #JesusChrist #Love #Sacrament

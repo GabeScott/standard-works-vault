@@ -101,3 +101,4 @@ With the help of the Holy Ghost, all truths will be brought to our remembrance. 
 
 [^3]: [[Alma 42.13|Alma 42:13]].
 
+#Atonement #ChurchCallings #Family #Joy #Obedience

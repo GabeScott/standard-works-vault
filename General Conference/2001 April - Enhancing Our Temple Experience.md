@@ -58,9 +58,15 @@ Second, we must seek to gain added light and knowledge.
 
 *Leave the world behind.* When we enter the temple, we should leave the world behind. We should feel what it would be like when we enter the presence of the Lord. We may consider what thoughts we would think and what communications we would have in His holy presence. If we can catch the vision of this eventual event, it will help us in preparing to enter His presence and in leaving the world behind as we enter His temple.
 
-1. ThoughtsAs we enter the temple grounds, we should leave our worldly thoughts behind and focus on the sacred responsibilities that are ours as we serve in the house of the Lord.Our thoughts should be spiritual in nature. We must remember that the Lord is aware of our thoughts. He spoke to Ezekiel and said, “I know the things that come into your mind, every one of them” ([[Ezekiel 11.5|Ezek. 11:5]]).
+1. Thoughts
 
-2. CommunicationsThe Savior has given us great counsel concerning our communications in the temple. He said: “Therefore, cease from all your light speeches, from all laughter, … from all your pride and light-mindedness” ([[D&C 88.121|D&C 88:121]]).
+As we enter the temple grounds, we should leave our worldly thoughts behind and focus on the sacred responsibilities that are ours as we serve in the house of the Lord.
+
+Our thoughts should be spiritual in nature. We must remember that the Lord is aware of our thoughts. He spoke to Ezekiel and said, “I know the things that come into your mind, every one of them” ([[Ezekiel 11.5|Ezek. 11:5]]).
+
+2. Communications
+
+The Savior has given us great counsel concerning our communications in the temple. He said: “Therefore, cease from all your light speeches, from all laughter, … from all your pride and light-mindedness” ([[D&C 88.121|D&C 88:121]]).
 
 Just as we leave our worldly thoughts behind as we enter the temple grounds, we should also leave our worldly discussions behind. It is inappropriate to discuss matters of business, pleasure, or current events in the temple.
 
@@ -87,3 +93,4 @@ May we enhance our temple experience with a spirit of reverence, treating it as 
 
 
 
+#HolyGhost #Morality #Ordinances #Preparation #Reverence #Spirituality #Temples #TempleWork #Worship #Worldliness

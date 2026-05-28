@@ -99,3 +99,4 @@ I testify that as we receive the ordinances of the gospel, enter into covenants 
 
 [^12]: [[Mosiah 2.41|Mosiah 2:41]].
 
+#Adversity #Atonement #Mortality #PlanOfSalvation

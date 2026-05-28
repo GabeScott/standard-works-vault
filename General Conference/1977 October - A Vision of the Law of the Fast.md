@@ -58,13 +58,25 @@ Alma fasted to gain the strength and wisdom to accomplish a mission in which he 
 
 Praying with a purpose is very important to the living of the law. It is not enough simply to refrain from two consecutive meals, whether the fast is the regular monthly fast or another, private fast. There are many appropriate purposes for fasting. Some are:
 
-1. To overcome the temptations of Satan as the Savior did:“Is not this the fast that I have chosen? to loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free, and that ye break every yoke?” ([[Isaiah 58.6|Isa. 58:6]].)
+1. To overcome the temptations of Satan as the Savior did:
 
-2. To assist the poor and the needy.“Is it not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him; and that thou hide not thyself from thine own flesh?” ([[Isaiah 58.7|Isa. 58:7]].)
+“Is not this the fast that I have chosen? to loose the bands of wickedness, to undo the heavy burdens, and to let the oppressed go free, and that ye break every yoke?” ([[Isaiah 58.6|Isa. 58:6]].)
 
-3. To achieve success in life:“Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the Lord shall be thy rereward.” ([[Isaiah 58.8|Isa. 58:8]].)
+2. To assist the poor and the needy.
 
-4. To humble and prepare ourselves to communicate with the Lord:Again in Isaiah we read, “Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. If thou take away from the midst of thee the yoke, the putting forth of the finger, and speaking vanity;“And if thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness be as the noonday:“And the Lord shall guide thee continually, and satisfy thy soul in drought, and make fat thy bones: and thou shalt be like a watered garden, and like a spring of water, whose waters fail not.” ([[Isaiah 58.9|Isa. 58:9–11]][[Isaiah 58.10|]][[Isaiah 58.11|]].)
+“Is it not to deal thy bread to the hungry, and that thou bring the poor that are cast out to thy house? when thou seest the naked, that thou cover him; and that thou hide not thyself from thine own flesh?” ([[Isaiah 58.7|Isa. 58:7]].)
+
+3. To achieve success in life:
+
+“Then shall thy light break forth as the morning, and thine health shall spring forth speedily: and thy righteousness shall go before thee; the glory of the Lord shall be thy rereward.” ([[Isaiah 58.8|Isa. 58:8]].)
+
+4. To humble and prepare ourselves to communicate with the Lord:
+
+Again in Isaiah we read, “Then shalt thou call, and the Lord shall answer; thou shalt cry, and he shall say, Here I am. If thou take away from the midst of thee the yoke, the putting forth of the finger, and speaking vanity;
+
+“And if thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness be as the noonday:
+
+“And the Lord shall guide thee continually, and satisfy thy soul in drought, and make fat thy bones: and thou shalt be like a watered garden, and like a spring of water, whose waters fail not.” ([[Isaiah 58.9|Isa. 58:9–11]][[Isaiah 58.10|]][[Isaiah 58.11|]].)
 
 Fasting and prayer is a positive experience. It is a form of worship especially commended by the Lord. As we fast with prayer, we demonstrate our deep purpose, commit that we will do all in our power, and consign the outcome to the Lord.
 
@@ -87,3 +99,4 @@ May we, the Priesthood and Relief Society officers of the Church throughout the 
 
 
 
+#Fasting

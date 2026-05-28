@@ -155,3 +155,4 @@ I close with this prayer from my heart, that all of us, every one, will look unt
 
 [^38]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
+#Covenants #GodTheFather #JesusChrist #Ministering #Priesthood

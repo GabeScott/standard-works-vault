@@ -107,3 +107,4 @@ In the sacred name of Jesus Christ, amen.
 
 [^10]: [[Mosiah 5.13|Mosiah 5:13]].
 
+#Agency #Courage #Dedication #Faith #GodTheFather #Obedience #Ordinances #Prayer #Prophets #Satan #Scriptures #Spirituality

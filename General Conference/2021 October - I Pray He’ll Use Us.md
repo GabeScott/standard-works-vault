@@ -121,3 +121,4 @@ Let me conclude by repeating the question Jesus asked His Apostle Simon Peter: â
 
 [^12]: [[John 21.15|John 21:15â€“17]][[John 21.16|]][[John 21.17|]].
 
+#Adversity #HumanitarianAid #Love #Service

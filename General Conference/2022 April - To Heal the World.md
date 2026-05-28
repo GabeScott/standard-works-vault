@@ -157,3 +157,4 @@ I witness that Russell M. Nelson is God’s living prophet. I testify that Jesus
 
 [^28]: See [[1 Corinthians 15.4|1 Corinthians 15:4]].
 
+#Healing #HumanitarianAid #JosephSmith #JesusChrist #ReligiousFreedom #Service

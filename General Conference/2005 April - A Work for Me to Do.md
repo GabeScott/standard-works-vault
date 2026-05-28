@@ -47,3 +47,4 @@ The Lord sent an angel to Joseph Smith to tell him that he had a work to do. Tha
 
 
 
+#JosephSmith #MissionaryWork #Service #Testimony

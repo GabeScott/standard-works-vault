@@ -83,3 +83,4 @@ Now, my dear grandsons and all special young men within the sound of my voice, g
 
 [^14]: *The Teachings of Howard W. Hunter,* ed. Clyde J. Williams (1997), 117.
 
+#Education #Family #Obedience #Priesthood #Responsibility #Testimony

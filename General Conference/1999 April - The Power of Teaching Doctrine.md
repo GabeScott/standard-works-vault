@@ -89,3 +89,4 @@ I am grateful to live in a time when we and our families have the fulness of the
 
 
 
+#ChurchDoctrine #Faith #GodTheFather #JesusChrist #Parenthood #Priesthood #Resurrection #Satan #Teaching

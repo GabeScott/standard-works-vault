@@ -69,3 +69,4 @@ O Father, look with mercy upon this, our own nation, and its friends in this tim
 
 
 
+#Faith #Fatherhood #GodTheFather #Gratitude #Home #Kindness #Motherhood #Prayer #Respect #Safety #Spirituality #Women

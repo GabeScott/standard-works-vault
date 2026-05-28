@@ -87,3 +87,4 @@ In the name of Jesus Christ, amen.
 
 [^6]: [[D&C 21.9|D&C 21:9]]; emphasis added.
 
+#Apostasy #Faith #JosephSmith #Music #Obedience #Prophets #Spirituality

@@ -137,3 +137,4 @@ As you walk toward the hope of God’s light, you will discover the compassion, 
 
 [^9]: [[1 John 1.5|1 John 1:5]].
 
+#Adversity #Healing #Hope #JesusChrist

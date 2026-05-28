@@ -49,3 +49,4 @@ I know that God is our Father, that Jesus Christ is our Redeemer, and that They 
 
 
 
+#Adversity #ChurchMembership #Faith #HolyGhost #Honesty #JesusChrist #Priesthood #ReliefSociety #Satan #Scriptures #Women

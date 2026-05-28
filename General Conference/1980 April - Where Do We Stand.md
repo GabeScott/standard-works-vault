@@ -137,3 +137,4 @@ For this I humbly pray in the sacred name of the Lord, Jesus Christ, amen.
 
 
 
+#Obedience #Spirituality

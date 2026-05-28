@@ -119,3 +119,4 @@ I bear witness of these absolute truths. Your loving Heavenly Father and His Son
 
 [^21]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
+#Atonement #Faith #JesusChrist #Repentance #Sabbath #Sacrament

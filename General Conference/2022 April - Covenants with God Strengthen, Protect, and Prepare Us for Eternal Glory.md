@@ -75,3 +75,4 @@ I testify that as we choose to make covenants with Heavenly Father and access th
 
 [^13]: See “[The Living Christ: The Testimony of the Apostles](https://www.churchofjesuschrist.org/study/scriptures/the-living-christ-the-testimony-of-the-apostles/the-living-christ-the-testimony-of-the-apostles?lang=eng),” ChurchofJesusChrist.org.
 
+#Adversity #Covenants #Joy #JesusChrist #Service #Temples

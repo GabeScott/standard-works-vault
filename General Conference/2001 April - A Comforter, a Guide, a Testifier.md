@@ -55,3 +55,4 @@ I began with a song reminding us of the days when the Savior lived on earth amon
 
 
 
+#Activation #Atonement #HolyGhost #Humility #JesusChrist #Peace #Prayer #Spirituality #Testimony #YoungWomen

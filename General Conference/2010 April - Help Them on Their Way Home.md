@@ -93,3 +93,4 @@ I testify that the Lord loves you and every child of God. This is His kingdom, r
 
 [^4]: [[Matthew 25.21|Matthew 25:21]].
 
+#Activation #Children #Priesthood #Teaching #YoungWomen

@@ -117,3 +117,4 @@ Revelation continues with us today. The promptings of the Spirit, the dreams, an
 
 
 
+#HolyGhost #Leadership #Spirituality #WordOfWisdom

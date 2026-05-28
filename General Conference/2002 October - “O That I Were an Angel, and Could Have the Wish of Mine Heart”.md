@@ -65,3 +65,4 @@ May the blessings of heaven rest upon you, my beloved brethren and sisters. May 
 
 
 
+#ChurchHistory #Sacrifice #Temples #TempleWork

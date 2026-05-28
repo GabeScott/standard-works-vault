@@ -103,3 +103,4 @@ I bear my special witness that He lives and loves us with a perfect love. This i
 
 [^23]: See [[Jacob 6.4|Jacob 6:4.]]
 
+#JesusChrist #Love #Parenthood #Service #Teaching

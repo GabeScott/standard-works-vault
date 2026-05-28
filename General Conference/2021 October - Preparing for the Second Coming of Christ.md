@@ -93,3 +93,4 @@ I conclude my remarks with a truly inspiring prophetic declaration from the Prop
 
 [^14]: [[D&C 128.22|Doctrine and Covenants 128:22]].
 
+#JesusChrist #Preparation #Prophets #SecondComing

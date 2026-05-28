@@ -53,3 +53,4 @@ I testify to the divinity of this work. Jesus is the Christ. He stands at the he
 
 
 
+#Covenants #Faith #Miracles #Ordinances #Peace #Preparation #Satan #Temples #TempleWork

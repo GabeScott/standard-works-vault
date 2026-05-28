@@ -103,3 +103,4 @@ May we ever follow in the footsteps of Jesus Christ and, with faith in our every
 
 [^17]: [[3 Nephi 18.32|3 Nephi 18:32]].
 
+#Adversity #Faith #JosephSmith #JesusChrist #MissionaryWork #Pioneers

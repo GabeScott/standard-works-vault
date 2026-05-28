@@ -27,3 +27,4 @@ My dear brothers and sisters, may you focus on the temple in ways you never have
 
 [^2]: As of October 1, 2022, four more temples are being renovated (St. George Utah, Manti Utah, Salt Lake, and Columbus Ohio), and three are awaiting dedication (Hamilton New Zealand, Quito Ecuador, and Belém Brazil).
 
+#JesusChrist #Temples

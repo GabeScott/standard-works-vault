@@ -167,3 +167,4 @@ But let us remember that his yoke cannot be separated from his church, and his b
 
 
 
+#Apostasy #PlanOfSalvation

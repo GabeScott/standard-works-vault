@@ -95,3 +95,4 @@ Our Father in Heaven will answer your prayers, especially your prayers offered d
 
 [^19]: See Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93–96.
 
+#DivineNature #Foreordination #Gathering #MissionaryService #PlanOfSalvation #PremortalExistence #Service #Youth

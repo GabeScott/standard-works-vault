@@ -18,7 +18,9 @@ This announcement will make sweeping changes in the mechanics of genealogical re
 
 First, I mention some things which have not changed:
 
-1. The Lord’s mandate given in section 128 of the Doctrine and Covenants has not changed: “Brethren, shall we not go on in so great a cause? …“Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple … a book containing the records of our dead, which shall be worthy of all acceptation.” ([[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]].)
+1. The Lord’s mandate given in section 128 of the Doctrine and Covenants has not changed: “Brethren, shall we not go on in so great a cause? …
+
+“Let us, therefore, as a church and a people, and as Latter-day Saints, offer unto the Lord an offering in righteousness; and let us present in his holy temple … a book containing the records of our dead, which shall be worthy of all acceptation.” ([[D&C 128.22|D&C 128:22, 24]][[D&C 128.24|]].)
 
 2. Our responsibility to keep a journal and to write our own personal histories and those of our ancestors, particularly those who belong to the first four generations of our pedigree, has not changed.
 
@@ -69,3 +71,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Family #FamilyHistory #TempleWork

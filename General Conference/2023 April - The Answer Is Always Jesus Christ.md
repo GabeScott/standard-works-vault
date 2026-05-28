@@ -69,3 +69,4 @@ My dear brothers and sisters, I bear witness that Jesus Christ directs the affai
 
 [^4]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
+#Easter #Healing #JesusChrist #Temples

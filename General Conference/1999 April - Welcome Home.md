@@ -81,3 +81,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Agency #Adversity #JesusChrist #Justice #Mercy #PlanOfSalvation #Repentance #Sin

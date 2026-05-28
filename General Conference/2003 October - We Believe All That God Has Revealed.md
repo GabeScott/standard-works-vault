@@ -147,3 +147,4 @@ God grant that we may always have the will and the courage to be obedient to Him
 
 [^17]: [[1 Nephi 4.15|1 Nephi 4:15–16]][[1 Nephi 4.16|]].
 
+#Commandments #HolyGhost #Obedience #Prophets #Spirituality

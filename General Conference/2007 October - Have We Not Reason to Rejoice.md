@@ -94,3 +94,4 @@ Of this I bear witness with all my heart and mind in the sacred name of Jesus Ch
 
 
 
+#ChurchMembership #Endurance #Gratitude #Joy

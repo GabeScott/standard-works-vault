@@ -69,3 +69,4 @@ Put first things first. Do the best you can while on earth to have an *ideal fam
 
 
 
+#AdamAndEve #Children #Evil #Family #HolyGhost #Joy #MissionaryWork #Obedience #Ordinances #Parents #PlanOfSalvation #Priorities #Satan #TimeManagement

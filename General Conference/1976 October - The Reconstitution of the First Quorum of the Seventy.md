@@ -23,3 +23,4 @@ President N. Eldon Tanner, first counselor in the First Presidency of the Church
 
 
 
+#QuorumsOfSeventy

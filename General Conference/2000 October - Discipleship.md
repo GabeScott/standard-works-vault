@@ -87,3 +87,4 @@ Moreover, may God bless us that we will earnestly desire to do our spiritual hou
 
 
 
+#Discipleship #Education #Example #Home #JesusChrist #Obedience #Repentance #Worldliness

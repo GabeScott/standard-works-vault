@@ -60,26 +60,9 @@ The steps of repentance have been clearly defined in the scriptures:
 
 4. Make restitution for the wrongs we have committed by—
 
-Repenting in prayer to the Lord.
-
-
-Confessing to our bishop, an ordained common judge in Israel and the presiding high priest in our ward.
-
-
-Apologizing to those we have offended.
-
-
-
 5. The depth of our repentance must be as deep as the sin we have committed. There is no easy way. It hurts, but it also cleanses.
 
 6. Time is the next element of repentance and restitution:
-
-Time to prove to ourselves, to our Lord, to our fellowmen that we have committed ourselves to a new way of life.
-
-
-Time to study the scriptures and dedicate our lives to the commandments we learn we must live to be happy and have joy.
-
-
 
 7. Complete forgiveness of ourselves and forgiveness without any feelings of retribution toward those who have offended us.
 
@@ -96,3 +79,4 @@ May our Heavenly Father bless us to dedicate our lives today. There is no better
 
 
 
+#Repentance

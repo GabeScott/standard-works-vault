@@ -65,3 +65,4 @@ I conclude by making the testimony of Mormon my own: “Behold, I am a disciple 
 
 [^4]: First Presidency letter, Dec. 1, 1983.
 
+#Adversity #Courage #Discipleship #Example #Spirituality

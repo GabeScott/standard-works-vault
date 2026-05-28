@@ -115,3 +115,4 @@ Welcome to the church of joy! In the name of Jesus Christ, amen.
 
 [^15]: [[Alma 26.35|Alma 26:35–37]][[Alma 26.36|]][[Alma 26.37|]].
 
+#Hymns #Joy #JesusChrist #Reverence #Sacrament #SacramentMeeting #Worship

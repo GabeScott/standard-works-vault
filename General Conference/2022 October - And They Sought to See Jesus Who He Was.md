@@ -127,3 +127,4 @@ I witness that Jesus lives, that He knows us, and that He has the power to heal,
 
 [^30]: Oscar W. McConkie, in Conference Report, Oct. 1952, 57.
 
+#Discipleship #Faith #Forgiveness #Healing #JesusChrist #Scriptures

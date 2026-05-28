@@ -123,3 +123,4 @@ God lives! Jesus is the Christ. He stands at the head of this Church. We are His
 
 [^24]: [[2 Nephi 26.33|2 Nephi 26:33]].
 
+#Anger #Charity #Contention #Discipleship #JesusChrist #Love #Peace #Peacemaking

@@ -89,3 +89,4 @@ I testify that Jesus Christ is our loving Savior, our Redeemer, the Master Heale
 
 [^4]: Tad R. Callister, *The Infinite Atonement* (2000), 206–7.
 
+#Atonement #JesusChrist

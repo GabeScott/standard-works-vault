@@ -137,3 +137,4 @@ I am profoundly grateful to be a member of The Church of Jesus Christ of Latter-
 
 [^32]: See brief biographies of James Sawyer Holman and Naomi Roxina LeBaron Holman by their granddaughter Grace H. Sainsbury in the possession of the speaker (Charles C. Rich diary, Sept. 28, 1847, Church History Library, Salt Lake City; Journal History of The Church of Jesus Christ of Latter-day Saints, June 21, 1847, 49, Church History Library). Holman was a captain in the 1847 Charles C. Rich company.
 
+#Blessings #Conversion #Faith #JesusChrist

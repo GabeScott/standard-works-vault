@@ -125,3 +125,4 @@ How great is the power of prayer, and how needed are our prayers of faith in God
 
 [^14]: [[Luke 21.36|Luke 21:36]], emphasis added; see also [[3 Nephi 18.15|3 Nephi 18:15]].
 
+#Adversity #Prayer

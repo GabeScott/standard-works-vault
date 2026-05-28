@@ -139,3 +139,4 @@ As His witness, I testify to you that He lives! In His holy name—even Jesus Ch
 
 [^7]: [[D&C 110.4|D&C 110:4]].
 
+#Activation #Home #JesusChrist #Leadership #Responsibility

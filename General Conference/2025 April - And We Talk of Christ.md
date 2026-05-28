@@ -161,3 +161,4 @@ I add my testimony to his—and to yours and to that of angels and prophets—th
 
 [^32]: [[Mosiah 16.8|Mosiah 16:8]].
 
+#Easter #JesusChrist #LightOfChrist #Resurrection

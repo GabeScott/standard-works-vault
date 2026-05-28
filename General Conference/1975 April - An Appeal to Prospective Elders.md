@@ -164,3 +164,4 @@ God grant that you who are fathers, who are without that inspiration in your hom
 
 
 
+#Activation #Conversion #Priesthood

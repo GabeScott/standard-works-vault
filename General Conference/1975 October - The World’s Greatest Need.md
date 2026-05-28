@@ -77,3 +77,4 @@ All that is needed is to hearken unto the voice of him whom the Lord has chosen 
 
 
 
+#Family #Government #Prophets #WordOfWisdom #Work

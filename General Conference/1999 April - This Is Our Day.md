@@ -101,3 +101,4 @@ President Gordon B. Hinckley is the prophet for our day and time. He is keenly a
 
 [^22]: [[Psalms 118.23|Ps. 118:23]].
 
+#Atonement #ChurchOrganization #Covenants #Faith #Honesty #JesusChrist #Leadership #MissionaryWork #Morality #Preparation #Prayer #Priesthood #Restoration #ScriptureStudy #Spirituality

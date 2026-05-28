@@ -41,3 +41,4 @@ May we all stand tall on the side of righteousness, I pray in the sacred name of
 
 
 
+#Courage #Family #Joy #JesusChrist #Motherhood #Neighbors #Profanity #Satan #Sin #Spirituality #Worldliness #Youth

@@ -77,3 +77,4 @@ May we be blessed to provide the leadership throughout the Church that will caus
 
 
 
+#Charity #Welfare

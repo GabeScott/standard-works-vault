@@ -135,3 +135,4 @@ That we may always have eyes to see and a heart to feel the wonder and joy of th
 
 [^15]: [[D&C 4.2|Doctrine and Covenants 4:2]].
 
+#Joy #Priesthood #Service

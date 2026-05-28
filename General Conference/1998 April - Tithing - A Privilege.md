@@ -73,3 +73,4 @@ Finally, and most importantly, I testify that I know that God lives, is our Fath
 
 
 
+#Adversity #Blessings #Obedience #Sacrifice #Temples #Tithing

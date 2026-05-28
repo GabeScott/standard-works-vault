@@ -87,3 +87,4 @@ We invite all to hear this message, and we invite all who receive the confirming
 
 
 
+#Covenants #Death #Endurance #JesusChrist #MissionaryWork #Ordinances #PlanOfSalvation #Priesthood #Resurrection #Sacrament #Sin

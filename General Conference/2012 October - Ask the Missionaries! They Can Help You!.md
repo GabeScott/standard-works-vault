@@ -95,3 +95,4 @@ I know that God lives. Jesus is the Christ. His Church has been restored. Ferven
 
 [^14]: See Ram Cnaan, Van Evans, and Daniel W. Curtis, *Called to Serve: The Prosocial Behavior of Active Latter-day Saints* (University of Pennsylvania School of Social Policy and Practice, 2012); “Mormon Volunteerism Highlighted in New Study” (Mar. 16, 2012), http://www.mormonnewsroom.org/article/mormon-volunteerism-report; *Mormons in America: Certain in Their Beliefs, Uncertain of Their Place in Society* (Pew Forum on Religion and Public Life, Jan. 12, 2012), 43; Robert D. Putnam and David E. Campbell, *American Grace: How Religion Divides and Unites Us* (2010), 444–54.
 
+#JesusChrist #MissionaryWork #Restoration #Teaching

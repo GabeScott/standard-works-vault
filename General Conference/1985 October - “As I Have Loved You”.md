@@ -58,7 +58,17 @@ Consider the happiness generated in both the giver and the receiver by these exa
 
 2. Concerned for the youth of his ward, a good bishop in Bountiful challenged his young people to taste the sweetness of beautiful service. Reluctantly at first, they put aside their entertainment. One project was making quilts for the mentally retarded at the American Fork Training School. Upon completion of their quilts, the girls delivered them. They arrived at the school in time to help feed supper to the “children.” And that was an experience. As they left the school, with mashed potatoes, gravy, and assorted vegetables in their hair and on their outfits, one girl, touched by the sweetness of the “child” she had fed, said, “I’ll never forget Billy.”
 
-3. In a recent letter to the editor, I read:“One is continually hearing about the ‘Terrible Teenagers’ with their obnoxious dress and deplorable actions. How refreshing it was to have a most thrilling experience with—yes, four teenagers.“One evening I was hosting a special guest from New York City. We were on our beautiful Temple Square, admiring the Seagull Monument. As we turned to go, four teenagers approached us. I immediately felt the \[in\]security of my gentleman guest, when one of the group stepped forward and said, ‘Lady, we would like to present you with this rose to make you happy, and hope that you will have a nice evening.’“There clutched in his hand was a beautiful, long-stemmed American Beauty red rose, with a spray of fern, artistically wrapped in cellophane.“‘We bought this rose to give to someone, and when we saw you, we thought you were the one.’“As they turned to leave, I quickly got their names, expressing my most profound appreciation and admiration for their thoughtfulness and kindness to me, which was so unusual, and how I was quite overwhelmed to think that four teenagers would have the desire for such a gracious act, and that no one would appreciate it more than I would, a little grandmother, as I gave each one a big hug.” (Irene E. Staples, *Deseret News,* 22 Sept. 1985, p. A-19.)
+3. In a recent letter to the editor, I read:
+
+“One is continually hearing about the ‘Terrible Teenagers’ with their obnoxious dress and deplorable actions. How refreshing it was to have a most thrilling experience with—yes, four teenagers.
+
+“One evening I was hosting a special guest from New York City. We were on our beautiful Temple Square, admiring the Seagull Monument. As we turned to go, four teenagers approached us. I immediately felt the \[in\]security of my gentleman guest, when one of the group stepped forward and said, ‘Lady, we would like to present you with this rose to make you happy, and hope that you will have a nice evening.’
+
+“There clutched in his hand was a beautiful, long-stemmed American Beauty red rose, with a spray of fern, artistically wrapped in cellophane.
+
+“‘We bought this rose to give to someone, and when we saw you, we thought you were the one.’
+
+“As they turned to leave, I quickly got their names, expressing my most profound appreciation and admiration for their thoughtfulness and kindness to me, which was so unusual, and how I was quite overwhelmed to think that four teenagers would have the desire for such a gracious act, and that no one would appreciate it more than I would, a little grandmother, as I gave each one a big hug.” (Irene E. Staples, *Deseret News,* 22 Sept. 1985, p. A-19.)
 
 4. With the knowledge that her little brother had leukemia, Michelle went to Bear River High School sad and despondent. She struggled through the school day, grateful when the dismissal bell rang. As she collected her books, a friend approached, “Michelle, come into the music room with me.” Half-heartedly, Michelle accompanied her. Entering the music room, she was surprised to find the entire a cappella choir. In the straightforward manner of youth, they told Michelle they had been fasting for her little brother and wanted her to join them as they prayed together to end their fast.
 
@@ -103,3 +113,4 @@ And therein lies happiness. In the name of Jesus Christ, amen.
 
 
 
+#Charity #Love #Service

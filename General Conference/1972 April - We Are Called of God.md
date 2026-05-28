@@ -77,3 +77,4 @@ May the Lord so bless us now that we may sustain those whom he has called and do
 
 
 
+#Authority #ChurchCallings

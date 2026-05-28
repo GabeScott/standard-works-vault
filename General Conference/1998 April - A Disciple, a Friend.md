@@ -79,3 +79,4 @@ It is my testimony that He lived, He died, and He lives. He atoned for our sins.
 
 
 
+#Atonement #BookOfMormon #Commandments #Conversion #Covenants #Discipleship #JesusChrist #Ordinances #Prayer #Sacrament

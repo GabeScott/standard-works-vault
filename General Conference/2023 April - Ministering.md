@@ -149,3 +149,4 @@ Wherever we are in this Easter season, let us reach out and care as our Savior w
 
 [^35]: [[2 Corinthians 9.6|2 Corinthians 9:6]].
 
+#JesusChrist #Love #Ministering #Service

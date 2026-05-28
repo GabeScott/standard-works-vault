@@ -59,3 +59,4 @@ In the Lord’s wisdom, he has not left any of us dependent on another’s testi
 
 
 
+#Criticism #Obedience

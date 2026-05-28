@@ -75,3 +75,4 @@ Brothers and sisters, given all of the foregoing, “what can I say more” exce
 
 
 
+#Atonement #BookOfMormon #JosephSmith #JesusChrist #Restoration

@@ -73,3 +73,4 @@ I bear witness that God lives, that Jesus is the Christ, that the Atonement is n
 
 
 
+#Children #Family #Love #Morality #PlanOfSalvation #Temples

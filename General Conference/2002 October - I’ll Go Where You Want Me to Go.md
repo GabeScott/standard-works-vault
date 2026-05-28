@@ -134,3 +134,4 @@ I testify of Jesus Christ, who beckons us to His path and His service, and pray 
 
 
 
+#ChurchCallings #CoupleMissionaries #MissionaryWork #Obedience #Service

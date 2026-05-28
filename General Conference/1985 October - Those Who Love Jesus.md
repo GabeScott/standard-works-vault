@@ -107,3 +107,4 @@ Such is the blessing reserved for those who love Jesus. May each of us qualify f
 
 
 
+#Discipleship #Teaching

@@ -217,3 +217,4 @@ I joyfully witness that Jesus Christ is our living Savior. Alma’s promise is t
 
 [^58]: [[Alma 41.13|Alma 41:13–14]][[Alma 41.14|]].
 
+#Agency #Atonement #Fear #Judging #PlanOfSalvation

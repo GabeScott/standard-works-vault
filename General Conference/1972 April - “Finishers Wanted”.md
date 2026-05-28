@@ -88,13 +88,17 @@ Times change, circumstances vary, but the true marks of a finisher remain. Note 
 
 1. *The Mark of Vision.* It has been said that the doorways of history turn on small hinges, and so do people’s lives. We are constantly making small decisions. The outcome determines the success or failure of our lives. That is why it is worthwhile to look ahead, set a course, and at least be partly ready when the moment of decision comes. True finishers have the capacity to visualize their objective.
 
-2. *The Mark of Effort.* Vision without effort is daydreaming, effort without vision is drudgery; but vision, coupled with effort, will obtain the prize.Needed is the capacity to make the second effort when life’s challenges lay us low.“Stick to your task ’til it sticks to you;Beginners are many, but enders are few.Honor, power, place and praiseWill always come to the one who stays.“Stick to your task ’til it sticks to you;Bend at it, sweat at it, smile at it, too;For out of the bend and the sweat and the smileWill come life’s victories after a while.”—Author Unknown
+2. *The Mark of Effort.* Vision without effort is daydreaming, effort without vision is drudgery; but vision, coupled with effort, will obtain the prize.
+
+Needed is the capacity to make the second effort when life’s challenges lay us low.
 
 3. *The Mark of Faith.* Long years ago the psalmist wrote: “It is better to trust in the Lord than to put confidence in man: It is better to trust in the Lord than to put confidence in princes.” ([[Psalms 118.8|Ps. 118:8–9]][[Psalms 118.9|]].) Recognize that faith and doubt cannot exist in the same mind at the same time, for one will dispel the other.
 
 4. *The Mark of Virtue.* “… let virtue garnish thy thoughts unceasingly. …” ([[D&C 121.45|D&C 121:45]].) This counsel from the Lord will provide staying power in the race we run.
 
-5. *The Mark of Courage.* Courage becomes a living and attractive virtue when it is regarded not as a willingness to die manfully, but the determination to live decently. Have the courage—“To dream the impossible dream;To fight the unbeatable foe;To bear with unbearable sorrow:To run where the brave dare not go.“To right the unrightable wrong;To love, pure and chaste, from afar;To try when your arms are too wearyTo reach the unreachable star.”[^1]—and you will thus become a finisher.
+5. *The Mark of Courage.* Courage becomes a living and attractive virtue when it is regarded not as a willingness to die manfully, but the determination to live decently. Have the courage—
+
+—and you will thus become a finisher.
 
 6. *The Mark of Prayer.* When the burdens of life become heavy, when trials test one’s faith, when pain, sorrow, and despair cause the light of hope to flicker and burn low, communication with our Heavenly Father provides peace.
 
@@ -121,3 +125,4 @@ I pray humbly that each one of us may be a finisher in the race of life and thus
 
 [^1]: Joe Darion, “The Impossible Dream,” Sam Fox, Publisher, New York, 1965.
 
+#Dedication #Example #Goals

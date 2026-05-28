@@ -135,3 +135,4 @@ Each can receive assurance which comes through inspiration and testifies that Je
 
 [^8]: *Hymns,* no. 83.
 
+#BookOfMormon #ChurchGrowth #JesusChrist #Preparation #ScriptureStudy #Spirituality

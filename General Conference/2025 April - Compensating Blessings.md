@@ -79,3 +79,4 @@ I testify that while many circumstances in life may be beyond our control, none 
 
 [^13]: [[2 Nephi 25.23|2 Nephi 25:23]].
 
+#Adversity #Blessings #TempleWork

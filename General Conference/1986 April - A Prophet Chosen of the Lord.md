@@ -83,3 +83,4 @@ May God bless each of us with listening ears, to heed the counsel of our new Fir
 
 
 
+#Prophets #Spirituality

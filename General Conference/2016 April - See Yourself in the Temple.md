@@ -155,3 +155,4 @@ Brothers and sisters, I pray that each of us will honor the Savior and make any 
 
 [^30]: Gordon B. Hinckley, “[Four Cornerstones of Faith](https://www.churchofjesuschrist.org/study/liahona/2004/02/four-cornerstones-of-faith?lang=eng),” *Ensign* or *Liahona,* Feb. 2004, 4–5.
 
+#Covenants #FamilyHistory #Ordinances #Repentance #Temples #TempleWork

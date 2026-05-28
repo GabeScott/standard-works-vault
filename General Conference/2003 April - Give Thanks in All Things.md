@@ -83,3 +83,4 @@ I pray that we will be blessed to understand the truth and purpose of the doctri
 
 
 
+#Adversity #Gratitude #JesusChrist #PlanOfSalvation #Teaching

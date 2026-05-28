@@ -61,3 +61,4 @@ A few days after David left us, my daughter learned that she was pregnant again.
 
 
 
+#Adversity #Faith #JesusChrist #PlanOfSalvation #Prayer

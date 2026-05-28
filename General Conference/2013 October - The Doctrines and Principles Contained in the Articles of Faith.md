@@ -79,3 +79,4 @@ I add my testimony to the truthfulness of the thirteen Articles of Faith in the 
 
 
 
+#ArticlesOfFaith #Priesthood #ScriptureStudy

@@ -97,3 +97,4 @@ I pray that these brethren may be blessed with inspiration at all times. Further
 
 
 
+#Commandments #Obedience

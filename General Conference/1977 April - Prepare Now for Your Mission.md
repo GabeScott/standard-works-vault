@@ -8,7 +8,7 @@ By Elder J. Thomas Fyans - *Of the Presidency of the First Quorum of the Seventy
 
 Young men, I should like to talk to you about your progress toward the eternities. One of the greatest opportunities of this life is the refining influence that comes into your soul as you make preparations to touch hearts when you are on His sacred errand as a missionary. May I suggest six things you might do:
 
-1. Pray fervently to your Father in heaven at least twice each day—perhaps appropriate times would be as the day begins and as it closes. This will build a close personal relationship with him. Listen to these thoughts titled, “Proof”:If radio’s slim fingers can pluck a melodyFrom night—and toss it over a continent or sea;If the petalled white notes of a violinAre blown across the mountains or the city’s din;If songs, like crimson roses, are culled from thin blue air—Why should mortals wonder if God hears prayer?(Ethel Romig Fuller, “Proof,” in *Masterpieces of Religious Verse,* ed. James Dalton Morrison, New York: Harper and Bros., 1948, p. 407.)
+1. Pray fervently to your Father in heaven at least twice each day—perhaps appropriate times would be as the day begins and as it closes. This will build a close personal relationship with him. Listen to these thoughts titled, “Proof”:
 
 2. Have your own personal copies of the scriptures. Young men, will you put forth sufficient effort to secure them?
 
@@ -75,3 +75,4 @@ As you make your decision, will you remember this? The Lord lives. Jesus is the 
 
 
 
+#MissionaryWork #Preparation

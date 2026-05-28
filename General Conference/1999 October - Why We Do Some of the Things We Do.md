@@ -93,3 +93,4 @@ Brethren, what a tremendous organization we are all a part of. We shall go forwa
 
 
 
+#ChurchOrganization #Communication #Education #Generosity #Government #Homosexuality #Marriage #Media #Morality #Priesthood #Sacrifice #Service #WordOfWisdom #Work

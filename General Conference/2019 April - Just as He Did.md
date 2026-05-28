@@ -99,3 +99,4 @@ I testify that because He “finished,” there is always hope. In the name of J
 
 [^17]: [[D&C 19.18|Doctrine and Covenants 19:18–19]][[D&C 19.19|]].
 
+#Conversion #JesusChrist #Ministering #Service

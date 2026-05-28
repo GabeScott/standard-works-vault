@@ -83,3 +83,4 @@ Tonight, and tomorrow night, you might pray and ponder, asking the questions: Di
 
 [^7]: [[Moroni 7.16|Moroni 7:16–17, 19]][[Moroni 7.17|]][[Moroni 7.19|]].
 
+#Blessings #FamilyHistory #Gratitude #HolyGhost #Testimony

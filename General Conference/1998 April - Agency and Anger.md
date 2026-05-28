@@ -55,3 +55,4 @@ May each child’s dream of having a family here on earth that is good to them c
 
 
 
+#Abuse #Agency #Accountability #Anger #Family #JesusChrist #Satan

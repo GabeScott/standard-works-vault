@@ -83,3 +83,4 @@ I am not suggesting that all of life’s struggles will disappear as you do thes
 
 [^10]: See [[2 Nephi 2.2|2 Nephi 2:2]].
 
+#FamilyHomeEvening #Prayer #ScriptureStudy #TempleWork

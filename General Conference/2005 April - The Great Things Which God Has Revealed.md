@@ -123,3 +123,4 @@ To this I add my solemn witness of the divinity of his calling, of the virtue of
 
 
 
+#BookOfMormon #ChurchHistory #GodTheFather #JosephSmith #Priesthood

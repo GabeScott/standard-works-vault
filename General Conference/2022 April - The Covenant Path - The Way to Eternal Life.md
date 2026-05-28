@@ -51,3 +51,4 @@ I testify that covenant keepers are promised “peace in this world, and eternal
 
 
 
+#Covenants #HolyGhost #JesusChrist #Ordinances #Sacrament

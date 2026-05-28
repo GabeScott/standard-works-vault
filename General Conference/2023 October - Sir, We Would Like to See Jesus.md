@@ -175,3 +175,4 @@ May we seek His loving face and then be vessels of His mercy to His children.[^3
 
 [^32]: See [[Romans 9.23|Romans 9:23]].
 
+#Covenants #JesusChrist #Love #Service

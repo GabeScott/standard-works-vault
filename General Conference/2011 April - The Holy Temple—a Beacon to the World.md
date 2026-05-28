@@ -107,3 +107,4 @@ My beloved brothers and sisters, may we make whatever sacrifices are necessary t
 
 [^7]: Janice Kapp Perry, “I Love to See the Temple,” *Children’s Songbook,* 95.
 
+#Covenants #Sacrifice #Temples #TempleWork

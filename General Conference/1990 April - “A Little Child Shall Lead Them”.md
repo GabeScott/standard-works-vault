@@ -127,3 +127,4 @@ Peace will then be their blessing. It will be our blessing, also, as we remember
 
 
 
+#Abuse #Example #Love #MissionaryWork #Service

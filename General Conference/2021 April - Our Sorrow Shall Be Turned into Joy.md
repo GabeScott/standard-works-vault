@@ -73,3 +73,4 @@ How I look forward to the day I will meet my sister Ann. I look forward to a joy
 
 [^9]: See [[Matthew 16.19|Matthew 16:19]].
 
+#Adversity #Conversion #Faith #Joy #JesusChrist #Resurrection

@@ -93,3 +93,4 @@ In [[3 Nephi 27.27|chapter 27 of 3 Nephi]], the risen Lord asked, “What manner
 
 [^9]: [[3 Nephi 27.27|3 Nephi 27:27]].
 
+#Fasting #Self-reliance #Service #Welfare

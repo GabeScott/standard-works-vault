@@ -45,3 +45,4 @@ I bless you with increased faith in Him and in His holy work, with faith and pat
 
 [^5]: [Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng) (2007), 142.
 
+#Curriculum #Family #Home #Temples

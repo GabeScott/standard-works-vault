@@ -149,3 +149,4 @@ In the name of Jesus Christ, amen.
 
 [^16]: “A Creed,” in James Dalton, ed., *Masterpieces of Religious Verse* (1948), 464.
 
+#Activation #HomeTeaching #MissionaryWork #Priesthood

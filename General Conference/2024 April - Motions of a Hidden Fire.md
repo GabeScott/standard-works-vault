@@ -113,3 +113,4 @@ Brothers and sisters, as we repent of our sins and come boldly to the “throne 
 
 [^30]: [[Job 42.3|Job 42:3]].
 
+#Adversity #Gratitude #JesusChrist #Prayer

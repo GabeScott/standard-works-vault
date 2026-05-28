@@ -139,3 +139,4 @@ Now and always hereafter, ordinary men will leave their teams standing in an unf
 
 [^8]: First Presidency letter, 11 Feb. 1999, cited in *Church News,* 27 Feb. 1999, 3.
 
+#Bishops #ChurchOrganization #Family #JesusChrist #Parents #PlanOfSalvation

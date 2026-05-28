@@ -83,3 +83,4 @@ May the Lord inspire you to understand and use the principles that lead to perso
 
 [^4]: [[D&C 6.14|Doctrine and Covenants 6:14–15]][[D&C 6.15|]].
 
+#HolyGhost #Humility #Prayer #Spirituality

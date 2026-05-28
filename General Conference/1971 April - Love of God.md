@@ -89,3 +89,4 @@ I express love for my Heavenly Father and for my Savior, Jesus Christ, and for t
 
 
 
+#Charity #Tithing

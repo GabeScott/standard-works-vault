@@ -161,3 +161,4 @@ These priceless blessings can be ours if we set our houses in order now and fait
 
 [^33]: [[D&C 132.19|D&C 132:19]].
 
+#Children #Commandments #Example #Family #Home #JesusChrist #Marriage #Media #Parenthood #PlanOfSalvation #Sacrifice #Satan #Sin #Teaching #Temples #Truth #Worldliness

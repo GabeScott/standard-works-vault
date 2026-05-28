@@ -121,3 +121,4 @@ I bear testimony that we can find peace, security, and joy and happiness in the 
 
 [^19]: [[Ether 2.7|Ether 2:7, 9]][[Ether 2.9|]].
 
+#Adversity #HolyGhost #JesusChrist #MissionaryWork #Morality #Resurrection #Satan #Self-control #Spirituality #WordOfWisdom

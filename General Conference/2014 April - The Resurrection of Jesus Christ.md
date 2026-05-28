@@ -167,3 +167,4 @@ Until then, I believe the many witnesses of the Savior’s Resurrection whose ex
 
 [^39]: [[D&C 76.22|Doctrine and Covenants 76:22–23]][[D&C 76.23|]].
 
+#Atonement #JesusChrist #Justice #Resurrection

@@ -113,3 +113,4 @@ Only as we accept and live the teachings of the gospel can the destiny which God
 
 
 
+#Commandments #Prophecy #U.s.Constitution

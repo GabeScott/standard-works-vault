@@ -81,3 +81,4 @@ Oh, how I love Him. How grateful we are for His infinite Atonement, which has �
 
 [^5]: Russell M. Nelson, “[[2018 April - Revelation for the Church, Revelation for Our Lives.md|Revelation for the Church, Revelation for Our Lives]],” *Ensign* or *Liahona*, May 2018, 93.
 
+#Discipleship #HolyGhost #JesusChrist #Testimony

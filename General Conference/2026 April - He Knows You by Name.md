@@ -115,3 +115,4 @@ I testify that Jesus Christ restored His Church, *The Church of Jesus Christ of 
 
 [^18]: [[3 Nephi 25.2|3 Nephi 25:2]].
 
+#Adversity #IndividualWorth #JesusChrist

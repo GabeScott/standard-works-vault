@@ -99,3 +99,4 @@ God the Father lives and will answer your prayers for the help you need to serve
 
 [^3]: [[Moses 1.37|Moses 1:37–39]][[Moses 1.38|]][[Moses 1.39|]].
 
+#Example #Honesty #Prayer #Priesthood #Service

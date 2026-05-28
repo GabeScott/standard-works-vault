@@ -53,3 +53,4 @@ At your earthly home, you will find your father’s arms have always been open f
 
 
 
+#Agency #Standards #Temptation #Worldliness #Youth

@@ -41,3 +41,4 @@ The Samaritan woman looked into the face of Christ, listened to His voice, and r
 
 
 
+#Healing #HolyGhost #Joy #JesusChrist #Peace

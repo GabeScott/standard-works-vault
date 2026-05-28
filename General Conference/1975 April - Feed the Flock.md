@@ -47,3 +47,4 @@ I pray that as you close the drapes on each day, you will rest peacefully knowin
 
 
 
+#Military #Service

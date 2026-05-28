@@ -69,3 +69,4 @@ In the name of Jesus Christ, amen.
 
 [^5]: *Children’s Songbook,* 173.
 
+#Covenants #Faith #Family #Honesty #Prayer #Scriptures

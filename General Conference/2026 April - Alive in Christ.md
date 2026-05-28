@@ -81,3 +81,4 @@ My brothers and sisters, as followers of Christ, let us follow Him by forgoing c
 
 [^4]: Russell M. Nelson, “[[2023 April - Peacemakers Needed.md|Peacemakers Needed]],” *Liahona*, May 2023, 100.
 
+#Easter #JesusChrist #Love #Peacemaking #Resurrection

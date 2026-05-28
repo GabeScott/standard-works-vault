@@ -89,3 +89,4 @@ And so now with an unbroken line of priesthood authority, an unbroken line of pr
 
 
 
+#Authority #Faith #EzraTaftBenson #Joy #Priesthood #QuorumOfTheTwelveApostles #Teaching #Unity

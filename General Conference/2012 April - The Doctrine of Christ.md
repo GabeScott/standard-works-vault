@@ -93,3 +93,4 @@ As our Easter celebration approaches, I express my own witness that Jesus of Naz
 
 [^7]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 49.
 
+#ChurchDoctrine #JesusChrist #Prophets

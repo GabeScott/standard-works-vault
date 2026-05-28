@@ -147,3 +147,4 @@ Of these simple but foundational truths I testify in the name of Jesus Christ, a
 
 [^30]: See [[Mark 8.27|Mark 8:27–29]][[Mark 8.28|]][[Mark 8.29|]].
 
+#Atonement #DivineNature #GodTheFather #JesusChrist #Love

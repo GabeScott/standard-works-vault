@@ -73,3 +73,4 @@ May God sustain you in your striving to meet His high expectations and grant you
 
 [^5]: Hugh B. Brown, “The Currant Bush,” *New Era,* Jan. 1973, 14–15; see *Liahona,* Mar. 2002, 22, 24.
 
+#Obedience #Repentance

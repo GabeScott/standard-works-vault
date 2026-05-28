@@ -103,3 +103,4 @@ That we may all qualify to be his disciples, his friends, I pray in the name of 
 
 
 
+#Example #Family #Fellowshipping #JesusChrist #Love #Obedience #WordOfWisdom

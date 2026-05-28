@@ -63,3 +63,4 @@ I testify that the great plan of the Eternal God is true. God lives. Jesus is Hi
 
 
 
+#Activation #Adversity #Anger #Commandments #Conversion #Faith #MissionaryWork #Music #Perspective #PlanOfSalvation #Repentance #Seminary #Standards #Teaching #Testimony

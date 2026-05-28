@@ -67,3 +67,4 @@ I thank my Heavenly Father for Shiblon-like souls whose examples offer me—and 
 
 [^7]: From my earliest recollection, I wanted to please my father. As I grew and gained a testimony, I also gained the desire to please Heavenly Father. Later in my life, I learned about Shiblon and added to my life’s goals to be more like him.
 
+#Discipleship #Humility #Service

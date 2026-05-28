@@ -141,3 +141,4 @@ The Savior said, “I will not leave you comfortless: I will come to you.”[^25
 
 [^25]: [[John 14.18|John 14:18]].
 
+#Adversity #Atonement #Obedience

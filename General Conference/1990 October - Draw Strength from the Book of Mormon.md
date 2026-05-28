@@ -69,3 +69,4 @@ My dear brothers and sisters, I testify that by prayerfully reading and ponderin
 
 
 
+#BookOfMormon #Scriptures

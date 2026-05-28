@@ -87,3 +87,4 @@ I bear witness of the power and comfort the gift of the Holy Ghost is to those w
 
 
 
+#Apostasy #Commandments #HolyGhost #JesusChrist #Priesthood #Spirituality #Temptation

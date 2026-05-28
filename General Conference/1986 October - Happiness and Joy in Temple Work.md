@@ -67,3 +67,4 @@ May we leave this conference strengthened and motivated with a greater desire to
 
 
 
+#PlanOfSalvation #Temples

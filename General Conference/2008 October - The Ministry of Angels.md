@@ -87,3 +87,4 @@ May we all believe more readily in, and have more gratitude for, the Lord’s pr
 
 [^15]: [[D&C 90.24|D&C 90:24]].
 
+#Angels #Peace #Safety #Service

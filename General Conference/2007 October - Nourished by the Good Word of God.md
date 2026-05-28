@@ -57,3 +57,4 @@ My dear brothers and sisters, with all of my heart I pray that each of us will t
 
 [^6]: *Teachings of Gordon B. Hinckley* (1997), 619–20.
 
+#HolyGhost #Teaching #Trust

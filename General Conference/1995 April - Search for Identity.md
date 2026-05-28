@@ -85,3 +85,4 @@ For our own families comes this magnificent promise:
 
 [^9]: [[D&C 86.8|D&C 86:8–10]][[D&C 86.9|]][[D&C 86.10|]].
 
+#Example #FamilyHistory #Pioneers

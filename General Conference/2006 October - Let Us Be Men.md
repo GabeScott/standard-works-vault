@@ -85,3 +85,4 @@ Brethren, let us be men, even as He is. In the name of Jesus Christ, amen.
 
 [^6]: In the late 1830s, after the Saints had abandoned Kirtland, the Lord called a man named Oliver Granger to go back and try to settle some unfinished matters for the First Presidency. In a revelation to the Prophet Joseph Smith, the Lord said: “Therefore, let \[Oliver Granger\] contend earnestly for the redemption of the First Presidency of my Church, saith the Lord; and when he falls he shall rise again, *for his sacrifice shall be more sacred unto me than his increase, saith the Lord. …* Therefore let no man despise my servant Oliver Granger, but let the blessings of my people be on him forever and ever” ([[D&C 117.13|D&C 117:13, 15]][[D&C 117.15|]]; emphasis added).
 
+#Honesty #JesusChrist #Priesthood #Responsibility

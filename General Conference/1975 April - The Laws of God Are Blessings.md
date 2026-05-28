@@ -63,3 +63,4 @@ May the world take heed while the day yet lasts, for when the night cometh, no m
 
 
 
+#Commandments #Laws #Obedience

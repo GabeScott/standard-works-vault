@@ -111,3 +111,4 @@ May I share my witness and testimony that I know God is pleased when we declare 
 
 
 
+#Adversity #Attitude #Faith #Gratitude #Hope

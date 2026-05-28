@@ -181,3 +181,4 @@ Bathed in His light, you’ll see people all around you who have felt alone too,
 
 [^28]: From a personal letter from Vincent Alma Wood, my father, while I was attending Brigham Young University in 1979.
 
+#Forgiveness #Hope #IndividualWorth #Joy #JesusChrist #Love #Obedience #Repentance

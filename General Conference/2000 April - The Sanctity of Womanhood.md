@@ -61,3 +61,4 @@ This printed text includes segments that were not delivered due to time constrai
 
 [^3]: [[2 Nephi 28.21|2 Ne. 28:21]].
 
+#Accountability #Bishops #Creation #Covenants #Example #Family #Fatherhood #Greed #IndividualWorth #Joy #JesusChrist #Love #Media #Morality #Priesthood #Repentance #Responsibility #Satan #Spirituality #Women

@@ -207,3 +207,4 @@ I bear solemn witness that Jesus is the Christ, the Only Begotten of the Father 
 
 
 
+#DivineNature #Family #GodTheFather #Opposition #Scriptures #Truth

@@ -61,3 +61,4 @@ I leave you with my witness that Jesus is the Christ, our Savior and Redeemer. T
 
 [^4]: [[D&C 31.5|D&C 31:5]].
 
+#Activation #Atonement #Fellowshipping #JesusChrist #Priesthood #Talents

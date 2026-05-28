@@ -249,3 +249,4 @@ I bear witness of the power of the Spirit and thank God that this incomparable g
 
 [^39]: [[John 14.15|John 14:15–18]][[John 14.16|]][[John 14.17|]][[John 14.18|]].
 
+#Education #Faith #HolyGhost #Prayer #Reverence #Spirituality #WordOfWisdom

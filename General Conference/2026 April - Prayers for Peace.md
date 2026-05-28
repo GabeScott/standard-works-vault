@@ -87,3 +87,4 @@ I testify that I know that Jesus Christ lives. He loves us and blesses us. He co
 
 [^11]: [[John 14.27|John 14:27]].
 
+#Adversity #Peace #Prayer

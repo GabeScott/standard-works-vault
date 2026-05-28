@@ -57,3 +57,4 @@ My life has been blessed by *real teachers,* who have taught with the Spirit and
 
 [^9]: See [[2 Nephi 32.1|2 Nephi 32:1–5]][[2 Nephi 32.2|]][[2 Nephi 32.3|]][[2 Nephi 32.4|]][[2 Nephi 32.5|]].
 
+#HolyGhost #Teaching

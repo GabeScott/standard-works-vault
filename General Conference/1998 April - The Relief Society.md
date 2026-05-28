@@ -123,3 +123,4 @@ I conclude where I began—it is my purpose to endorse the Relief Society, to be
 
 [^7]: “As Sisters in Zion,” *Hymns,* no. 309.
 
+#ChurchCallings #Councils #Family #Home #Marriage #Priesthood #ReliefSociety #Temples #Women

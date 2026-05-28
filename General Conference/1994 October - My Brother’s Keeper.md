@@ -135,3 +135,4 @@ Brethren, may the Lord strengthen each of us who holds the priesthood, that each
 
 [^9]: [[Psalms 41.1|Ps. 41:1–3]][[Psalms 41.2|]][[Psalms 41.3|]].
 
+#Charity #Compassion #EzraTaftBenson #IndividualWorth #Welfare

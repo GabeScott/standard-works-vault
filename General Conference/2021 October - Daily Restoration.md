@@ -151,3 +151,4 @@ That we will seek daily restoration and continually strive to walk in the Way of
 
 [^17]: [[Deuteronomy 28.8|Deuteronomy 28:8–9]][[Deuteronomy 28.9|]]; see also [[Deuteronomy 28.1|verses 1–7]][[Deuteronomy 28.2|]][[Deuteronomy 28.3|]][[Deuteronomy 28.4|]][[Deuteronomy 28.5|]][[Deuteronomy 28.6|]][[Deuteronomy 28.7|]].
 
+#Discipleship #JesusChrist #Repentance

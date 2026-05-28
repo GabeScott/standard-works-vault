@@ -139,3 +139,4 @@ Across the world, those who now come by the tens of thousands will inevitably co
 
 [^14]: [[Psalms 127.3|Ps. 127:3]].
 
+#Abuse #Abortion #Agency #Curriculum #Divorce #FamilyHomeEvening #Family #Freedom #Home #Joy #Marriage #Morality #Parenthood #Satan #Scriptures #Teaching

@@ -99,3 +99,4 @@ May there be instilled in each of us an increased reverence for the Sabbath. May
 
 
 
+#Covenants #Priesthood #Sacrament

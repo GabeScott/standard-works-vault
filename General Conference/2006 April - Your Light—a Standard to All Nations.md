@@ -91,3 +91,4 @@ I hope and pray that the Lord’s choicest blessings will be with you wonderful 
 
 [^9]: See [[2 Peter 1.4|2 Peter 1:4]].
 
+#Conscience #DivineNature #Preparation #Spirituality

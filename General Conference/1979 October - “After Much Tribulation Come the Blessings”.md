@@ -79,3 +79,4 @@ May we endure our trials and sufferings well. May we look to the Lord with faith
 
 
 
+#Adversity #Blessings

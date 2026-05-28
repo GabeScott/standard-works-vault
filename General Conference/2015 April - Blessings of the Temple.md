@@ -57,3 +57,4 @@ May our Heavenly Father bless us that we may have the spirit of temple worship, 
 
 [^2]: Correspondence in the possession of Thomas S. Monson.
 
+#MissionaryWork #Peace #Temples #TempleWork

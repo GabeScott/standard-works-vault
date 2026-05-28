@@ -69,3 +69,4 @@ In teaching his Apostles, Christ made known to them “that the Son of Man must 
 
 
 
+#JesusChrist #QuorumOfTheTwelveApostles #Resurrection

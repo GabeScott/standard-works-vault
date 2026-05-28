@@ -105,3 +105,4 @@ O God, our Eternal Father, bless the parents to teach with love and patience and
 
 
 
+#Courage #Family #Morality #Motherhood #Parenthood #Priesthood

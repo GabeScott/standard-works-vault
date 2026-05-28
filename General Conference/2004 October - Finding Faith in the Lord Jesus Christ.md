@@ -147,3 +147,4 @@ Jesus Christ did come. He did live. And He will come again. This I know and give
 
 [^36]: [[Ether 12.41|Ether 12:41]].
 
+#Faith #JesusChrist #Prayer #Prophets #Testimony

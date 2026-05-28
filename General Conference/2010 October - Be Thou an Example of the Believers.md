@@ -113,3 +113,4 @@ I know that God lives. Jesus is the Christ. This is His Church. The Book of Morm
 
 [^22]: See [[Malachi 4.5|Malachi 4:5]]; [[3 Nephi 25.5|3 Nephi 25:5]]; [[D&C 2.1|Doctrine and Covenants 2:1]]; [[D&C 110.14|110:14–16]][[D&C 110.15|]][[D&C 110.16|]]; [[D&C 128.17|128:17]]; [[D&C 138.46|138:46]]; [[Joseph Smith History 1.38|Joseph Smith—History 1:38]].
 
+#Example #Fellowshipping #MissionaryWork

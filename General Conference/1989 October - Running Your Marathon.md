@@ -87,3 +87,4 @@ My dear young friends, I pray that the Lord will guide and strengthen each of yo
 
 
 
+#Endurance #JesusChrist #Leadership #Service #Spirituality #Youth

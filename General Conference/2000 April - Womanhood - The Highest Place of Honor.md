@@ -79,3 +79,4 @@ I pray that the Lord will bless each of you that you can come to know your indiv
 
 [^7]: David O. McKay, *Gospel Ideals* (1953), 459–60.
 
+#DivineNature #Education #Family #Goals #HolyGhost #Joy #Morality #Peace #Responsibility #Self-esteem #Service #Standards #Spirituality #Women #Worthiness

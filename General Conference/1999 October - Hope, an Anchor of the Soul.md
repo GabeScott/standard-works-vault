@@ -109,3 +109,4 @@ There has come with my apostolic calling a sure witness of the life and ministry
 
 [^18]: [[Job 16.19|Job 16:19]].
 
+#Adversity #Accountability #HolyGhost #Hope #JesusChrist #Peace

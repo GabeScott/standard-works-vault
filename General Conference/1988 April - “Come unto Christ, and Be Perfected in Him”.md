@@ -85,3 +85,4 @@ Let us all come unto Christ and be perfected in Him, I humbly pray in the name o
 
 
 
+#JesusChrist #MissionaryWork #ScriptureStudy #TempleWork

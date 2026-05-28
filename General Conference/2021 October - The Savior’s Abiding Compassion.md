@@ -87,3 +87,4 @@ I pray that we will become more long-suffering and understanding of others and t
 
 [^19]: See Guide to the Scriptures, “[Peacemaker](https://www.churchofjesuschrist.org/study/scriptures/gs/peacemaker?lang=eng).”
 
+#Compassion #Judging #JesusChrist #Mercy

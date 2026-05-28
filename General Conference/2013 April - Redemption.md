@@ -75,3 +75,4 @@ As disciples of Jesus Christ, we ought to do all we can to redeem others from su
 
 [^6]: See Victor Hugo, *Les Misérables* (1992), 91–92.
 
+#Atonement #JesusChrist #Repentance #Service

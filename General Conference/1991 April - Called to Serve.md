@@ -95,3 +95,4 @@ God lives! Jesus is the Christ. We are engaged in His work is my witness to you.
 
 
 
+#MissionaryWork #Morality #Priesthood #Spirituality #WordOfWisdom

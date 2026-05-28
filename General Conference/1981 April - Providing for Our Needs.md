@@ -58,7 +58,13 @@ The third key is to practice *self-discipline* both at our work and as we attemp
 
 1. Avoid debt-pooling where exorbitant fees are charged. We may want to consolidate debts using a bank or credit union loan that can be repaid at a sensible interest rate over a reasonable length of time. We may need to stop using our credit cards.
 
-2. Exercise self-discipline by telling ourselves “We can’t afford it” and refusing to take on further credit obligations.An argument was overheard one day. One spouse said, while scolding the other for extravagant spending, “How many times do I have to tell you that spending money before you get it is economically unsound?”“Oh,” said the other spouse, “I don’t know about that. This way, if you don’t get the money, at least you have something to show for it.”Please be patient and carefully control your purchases so that you will not become enslaved to your creditors.
+2. Exercise self-discipline by telling ourselves “We can’t afford it” and refusing to take on further credit obligations.
+
+An argument was overheard one day. One spouse said, while scolding the other for extravagant spending, “How many times do I have to tell you that spending money before you get it is economically unsound?”
+
+“Oh,” said the other spouse, “I don’t know about that. This way, if you don’t get the money, at least you have something to show for it.”
+
+Please be patient and carefully control your purchases so that you will not become enslaved to your creditors.
 
 3. Make a budget and stick to it.
 
@@ -81,3 +87,4 @@ May the Lord bless all of us to this end, I pray humbly, in the name of Jesus Ch
 
 
 
+#FinancialManagement #Preparation #Self-reliance

@@ -108,3 +108,4 @@ My brethren, I bear witness and testimony of these things. I bear testimony of t
 
 
 
+#Obedience #Priesthood

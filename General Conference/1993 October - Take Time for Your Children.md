@@ -22,7 +22,9 @@ Parents should be the master teachers of their children. The Church will assist 
 
 As we bear this great responsibility of parenthood, may I share with you, in the spirit of trying to be helpful, a few thoughts that parents might use to strengthen their families against worldly temptations and to bring the love, unity, and success that all desire.
 
-1. *Start early.* “Columnist Sydney Harris was once asked by an anxious parent, ‘How can I get my 16-year-old son to mind me?’ He answered simply, ‘Shrink him down to six months and start over, differently.’“This may not be encouraging advice to those with problem teenagers, but to those just starting on the adventure of parenthood, it may serve as a reminder that love and training cannot be postponed” (Jon M. Taylor, “Fortify Your Children against Temptation,” *Ensign,* Oct. 1972, p. 9). In a revelation given through the Prophet Joseph Smith, the Lord explained that all children are innocent before God because of the redemption of Christ (see [[D&C 93.38|D&C 93:38]]). He further said, “But I have commanded you to bring up your children in light and truth” ([[D&C 93.40|D&C 93:40]]).
+1. *Start early.* “Columnist Sydney Harris was once asked by an anxious parent, ‘How can I get my 16-year-old son to mind me?’ He answered simply, ‘Shrink him down to six months and start over, differently.’
+
+“This may not be encouraging advice to those with problem teenagers, but to those just starting on the adventure of parenthood, it may serve as a reminder that love and training cannot be postponed” (Jon M. Taylor, “Fortify Your Children against Temptation,” *Ensign,* Oct. 1972, p. 9). In a revelation given through the Prophet Joseph Smith, the Lord explained that all children are innocent before God because of the redemption of Christ (see [[D&C 93.38|D&C 93:38]]). He further said, “But I have commanded you to bring up your children in light and truth” ([[D&C 93.40|D&C 93:40]]).
 
 2. *Communicate effectively.* Parents should spend a great deal of time listening, not just telling. This listening should be done with an open mind and heart. When children feel they can talk freely about their feelings, problems, and successes, wonderful relationships develop between parents and children.
 
@@ -36,7 +38,9 @@ As we bear this great responsibility of parenthood, may I share with you, in the
 
 7. *Service.* In his great farewell address, King Benjamin taught, “When ye are in the service of your fellow beings ye are only in the service of your God” ([[Mosiah 2.17|Mosiah 2:17]]). There are few rewards in life that bring greater feelings of satisfaction, joy, and peace than when one gives meaningful service to a fellow being standing in need.
 
-8. *The last and most important is to establish a “house of God.”* The instruction the Lord gave the Prophet Joseph Smith in the 88th section of the Doctrine and Covenants referred to building a temple. Yet this verse of scripture also beautifully describes the type of home we ought to have:“Organize yourselves; prepare every needful thing; and establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God” ([[D&C 88.119|D&C 88:119]]).
+8. *The last and most important is to establish a “house of God.”* The instruction the Lord gave the Prophet Joseph Smith in the 88th section of the Doctrine and Covenants referred to building a temple. Yet this verse of scripture also beautifully describes the type of home we ought to have:
+
+“Organize yourselves; prepare every needful thing; and establish a house, even a house of prayer, a house of fasting, a house of faith, a house of learning, a house of glory, a house of order, a house of God” ([[D&C 88.119|D&C 88:119]]).
 
 It is not easy for children to stay clean and pure in today’s world. There are times when it becomes hard for them to tell right from wrong. We need to teach our children, as Alma taught his son Corianton, “Wickedness never was happiness” ([[Alma 41.10|Alma 41:10]]). Teach them to stay on the Lord’s side of the line. Hold family home evening regularly. Hold family prayer twice a day, if possible. Teach them to love the scriptures and how to experience the sweet answer to individual prayer. Teach them to understand and recognize how the Holy Ghost communicates with us through promptings, thoughts, impressions, and feelings. Teach the sacred significance of the atoning sacrifice of our Savior, Jesus Christ.
 
@@ -49,3 +53,4 @@ That all who are parents might be successful in convincing their children that t
 
 
 
+#Children #Family #Parenthood #Teaching

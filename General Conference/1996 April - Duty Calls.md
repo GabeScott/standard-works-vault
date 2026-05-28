@@ -186,3 +186,4 @@ Brethren of the priesthood, may all of us remember our duty to prepare and our d
 
 [^19]: [[Matthew 25.21|Matt. 25:21]].
 
+#ChurchCallings #Duty #Evil #HomeTeaching #JesusChrist #Priesthood #Teaching #Worldliness

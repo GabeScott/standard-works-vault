@@ -85,3 +85,4 @@ We want you to know of our love and support for you. We are grateful to the Lord
 
 
 
+#Leadership #Priesthood

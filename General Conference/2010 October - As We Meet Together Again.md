@@ -37,3 +37,4 @@ Now, my brothers and sisters, may you be attuned to the Spirit of the Lord as we
 
 
 
+#GeneralConference #MissionaryWork #Temples

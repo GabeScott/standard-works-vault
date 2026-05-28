@@ -111,3 +111,4 @@ Covenant promises and blessings are possible only because of our Savior, Jesus C
 
 [^16]: See [[D&C 43.9|Doctrine and Covenants 43:9]]; [[D&C 82.10|82:10]].
 
+#BookOfMormon #Covenants #JosephSmith #JesusChrist #Ordinances

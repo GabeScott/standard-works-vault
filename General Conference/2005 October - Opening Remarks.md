@@ -49,3 +49,4 @@ I pray, my brethren and sisters, that the choicest blessings of heaven may rest 
 
 
 
+#ChurchGrowth #Obedience #Temples

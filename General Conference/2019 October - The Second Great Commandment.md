@@ -119,3 +119,4 @@ I know that God lives. Jesus is the Christ. His Church has been restored in thes
 
 [^11]: “The most effective tract we will carry will be the goodness of our own lives and example” (Gordon B. Hinckley, “[[1999 April - Find the Lambs, Feed the Sheep.md|Find the Lambs, Feed the Sheep]],” *Ensign,* May 1999, 107; *Liahona,* July 1999, 121).
 
+#HumanitarianAid #Love #Service

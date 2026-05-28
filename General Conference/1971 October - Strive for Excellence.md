@@ -30,7 +30,9 @@ From this philosophy I distill four thoughts that I offer for the special attent
 
 1. Rigorous standards and high achievement in any field of learning are not at odds with faith and devotion to the gospel of Jesus Christ. Strive for excellence, use the talents that the Lord has given you, meet and master the learning of men.
 
-2. In approaching any field of learning, remember the Lord’s direction to “seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].)Your faith will sustain you and give added meaning and increased accomplishment to your secular studies if you will live to deserve the blessings of the Lord.
+2. In approaching any field of learning, remember the Lord’s direction to “seek learning, even by study and also by faith.” ([[D&C 88.118|D&C 88:118]].)
+
+Your faith will sustain you and give added meaning and increased accomplishment to your secular studies if you will live to deserve the blessings of the Lord.
 
 3. Cherish and nourish your spiritual life. Seek spiritual growth at the same time that you are seeking to enlarge your learning in other areas. Nourish your spirit just as regularly as you nourish your body or mind. Don’t neglect study of the gospel and activity in the Church during the period of your schooling. It is needed then as much as or more than at any time during your life. If you are not in a Church school—BYU, Ricks, Church College of Hawaii—make the institute or seminary or home study part of your program.
 
@@ -43,3 +45,4 @@ I bear this testimony to you and ask your prayers and the blessings of our Fathe
 
 
 
+#Education

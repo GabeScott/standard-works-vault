@@ -106,3 +106,4 @@ We must be “fixed in \[our\] purpose”[^13] as we seek to increase in faith a
 
 [^13]: “The Time Is Far Spent,” *Hymns,* no. 266.
 
+#Faith #Family #Service

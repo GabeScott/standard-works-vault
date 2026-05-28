@@ -69,3 +69,4 @@ My dear sisters, I am so grateful for the Relief Society and the great strength 
 
 [^3]: “Valiant Servant of the Lord,” *Church News,* 11 June 1994, p. 4.
 
+#Education #Faith #Judging #Motherhood #Self-reliance #Spirituality #Welfare #Women

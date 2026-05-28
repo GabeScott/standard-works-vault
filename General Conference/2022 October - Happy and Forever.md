@@ -117,3 +117,4 @@ Dear brothers and sisters, God our Heavenly Father and His Beloved Son live. The
 
 [^23]: See [[D&C 132.23|Doctrine and Covenants 132:23–24]][[D&C 132.24|]]; see also [[D&C 29.29|Doctrine and Covenants 29:29]], which says, “For where I am they cannot come, for they have no power.”
 
+#Atonement #Forgiveness #Happiness #Healing #JesusChrist #Ordinances #Repentance #TempleWork

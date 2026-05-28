@@ -51,3 +51,4 @@ In closing, I bear solemn witness that God, our Eternal Father, lives; that Jesu
 
 
 
+#Attitude #Joy

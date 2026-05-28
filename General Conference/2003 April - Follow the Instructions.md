@@ -81,3 +81,4 @@ May we do this, I pray, in the name of Jesus Christ, amen.
 
 
 
+#Agency #Obedience #Prayer #Prophets #ScriptureStudy

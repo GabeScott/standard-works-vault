@@ -101,3 +101,4 @@ As an Apostle of the Lord Jesus Christ, I bear witness and testimony of these th
 
 
 
+#Adversity #Atonement #Death #JesusChrist #Resurrection

@@ -131,3 +131,4 @@ May we take seriously the Lord’s call to “be of good cheer, for I will lead 
 
 [^21]: [[D&C 78.18|Doctrine and Covenants 78:18]].
 
+#GodTheFather #Godhead #HolyGhost #JesusChrist #Promptings #Worthiness

@@ -205,3 +205,4 @@ Of this I testify and bear witness in the sacred name of Jesus Christ, amen.
 
 [^31]: See [[D&C 88.63|Doctrine and Covenants 88:63]].
 
+#Adversity #GodTheFather #Hope #JesusChrist #Love #PlanOfSalvation #Repentance

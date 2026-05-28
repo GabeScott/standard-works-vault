@@ -71,3 +71,4 @@ Through this priesthood power which has been again restored to prophets of God, 
 
 
 
+#Priesthood #TempleWork

@@ -73,3 +73,4 @@ I know this Church is true. I know God lives and Jesus is the Christ. I know tha
 
 
 
+#Covenants #Morality #Repentance

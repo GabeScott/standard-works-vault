@@ -141,3 +141,4 @@ Brothers and sisters, my sincere prayer is that we may adapt to the changes in o
 
 [^17]: [[D&C 11.6|D&C 11:6]].
 
+#Gratitude #Joy #JesusChrist #Opposition

@@ -93,3 +93,4 @@ That we may do so, brothers and sisters, each of us, as we have the opportunity,
 
 
 
+#Adversity #Charity #ReliefSociety #Service

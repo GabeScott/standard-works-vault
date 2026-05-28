@@ -66,7 +66,13 @@ I do not know how our Savior actually performs the sanctifying miracle of the At
 
 3. The Atonement must be infinite and eternal, available to all mankind.
 
-4. I believe, to use an insurance phrase, we must pay the deductible. We must experience sorrow enough, suffering enough, guilt enough so we are conscious and appreciative of the heavier burden borne by the Savior.My soul pains when His atonement is treated lightly, when the blessing of repentance is reduced to simply “taking care of it with the bishop,” when there is brief confession without humility or godly sorrow. This attitude of entitlement rather than privilege was recently expressed by a young Church member who wrote:“I have done bad things that I knew were bad because I’ve been taught that ever since I can remember. … I know repentance is a great gift. Without it I would be lost. I am not ready to repent of my sins; but I know that when I am ready, I can.”Such indulgence in premeditated sin shows pitiful misunderstanding of repentance. As Amulek warned, we must not procrastinate the day of our repentance until the end (see [[Alma 34.32|Alma 34:32–35]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]]). Judgment for us could be today or tomorrow. We must not risk our opportunity to repent. Salvation is not just an escape from the penalty of sin but deliverance from sinfulness. The truly penitent not only seek forgiveness for past sins but plead for the Savior to purge their hearts of the desire or appetite for sin.
+4. I believe, to use an insurance phrase, we must pay the deductible. We must experience sorrow enough, suffering enough, guilt enough so we are conscious and appreciative of the heavier burden borne by the Savior.
+
+My soul pains when His atonement is treated lightly, when the blessing of repentance is reduced to simply “taking care of it with the bishop,” when there is brief confession without humility or godly sorrow. This attitude of entitlement rather than privilege was recently expressed by a young Church member who wrote:
+
+“I have done bad things that I knew were bad because I’ve been taught that ever since I can remember. … I know repentance is a great gift. Without it I would be lost. I am not ready to repent of my sins; but I know that when I am ready, I can.”
+
+Such indulgence in premeditated sin shows pitiful misunderstanding of repentance. As Amulek warned, we must not procrastinate the day of our repentance until the end (see [[Alma 34.32|Alma 34:32–35]][[Alma 34.33|]][[Alma 34.34|]][[Alma 34.35|]]). Judgment for us could be today or tomorrow. We must not risk our opportunity to repent. Salvation is not just an escape from the penalty of sin but deliverance from sinfulness. The truly penitent not only seek forgiveness for past sins but plead for the Savior to purge their hearts of the desire or appetite for sin.
 
 5. Finally, we must acknowledge the gift and comply with the conditions so that redemption might be complete. Love motivates our obedience to God. To express our love and gratitude for the Atonement, we covenant with our Heavenly Father to take upon us the name of His Son and to bear witness of Him at all times and in all places, observing His commandments (see [[Mosiah 18.8|Mosiah 18:8–10]][[Mosiah 18.9|]][[Mosiah 18.10|]]).
 
@@ -75,3 +81,4 @@ I bear my solemn witness that full acceptance of the Atonement, with the saving 
 
 
 
+#Atonement #Conversion #JesusChrist #Repentance

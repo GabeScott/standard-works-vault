@@ -50,69 +50,17 @@ Remember, not only the teacher but the learner must have the Spirit of the Lord.
 
 1. *Pray.* Pray for the Spirit. Ask those you teach to pray for you and for themselves while you are teaching. Ask for discernment to understand the needs of those you visit. (See [[3 Nephi 17.2|3 Ne. 17:2–3]][[3 Nephi 17.3|]]; [[3 Nephi 20.1|20:1]]; [[D&C 136.29|D&C 136:29, 32]][[D&C 136.32|]].) For example:
 
-During a visit, upon bended knee, two priesthood leaders pray that a wayward daughter will be blessed. Her parents are touched by the prayer and repent that very evening. They begin to attend church and a temple preparation seminar and now have been sealed as a family.
-
-
-A seven-year-old responds to his less-active father, who says he won’t pray, with “Please pray, Dad. Take Mom and me to the temple.” That family has since been sealed.
-
-
-
 2. *Use the Scriptures.* They are the words of the Lord to us, and the Spirit of the Lord will speak through them to all, both young and old. (See [[2 Nephi 32.3|2 Ne. 32:3]]; [[Alma 31.5|Alma 31:5]]; [[D&C 32.4|D&C 32:4]].) For example:
-
-In one of the visits, a testimony is given of a verse relating to baptism. An investigator says, “I do believe God sent you. I’ll be baptized.”
-
-
-A scripture is read on another visit about multiplying and replenishing the earth. A young couple with one child humbly confesses their unrighteous decision to have no more children.
-
-
 
 3. *Testify.* If you follow His promptings, the Lord will direct you to testify frequently throughout these visits. Testify that the Lord has sent you. As you do, “the Holy Ghost carrieth it unto the hearts of the children of men.” ([[2 Nephi 33.1|2 Ne. 33:1]]; see also [[Alma 5.44|Alma 5:44–47]][[Alma 5.45|]][[Alma 5.46|]][[Alma 5.47|]].) Let me again illustrate:
 
-In his testimony, a priesthood leader unknowingly quotes a sentence verbatim from a sister’s patriarchal blessing.
-
-
-Another visit: one member testifies to a couple of life after death from the scriptures only to learn later of the recent loss of their little one.
-
-
-
 4. *Use music.* Using recorded hymns or singing the songs of Zion with or to the Saints in their homes, as prompted, will always bring the Spirit of the Lord. (See [[D&C 25.12|D&C 25:12]]; [[Matthew 26.30|Matt. 26:30]]; [[Colossians 3.16|Col. 3:16]]; [[1 Samuel 16.23|1 Sam. 16:23]].) For example:
-
-A priesthood leader said with a smile, “I could never sing. I have a terrible voice. But we were prompted to do so. My voice was as the voice of an angel.” The less-active man wept and returned to the Church.
-
-
-A home teacher said, “I sang with his children. The crusty old fellow cried and humbled himself for the first time in years.”
-
-
 
 5. *Express love and gratitude to God and man.* Express love openly for God and for His children, and the Spirit will be felt profoundly. (See [[John 13.34|John 13:34–35]][[John 13.35|]]; [[1 Nephi 11.21|1 Ne. 11:21–23]][[1 Nephi 11.22|]][[1 Nephi 11.23|]]; [[Moroni 7.47|Moro. 7:47–48]][[Moroni 7.48|]].) Let me illustrate:
 
-Touched by the spirit of a visit, a less-active teenager expresses love for his parents, by whose love his heart is turned to God.
-
-
-A priesthood leader expresses love to a dissident group of less-active members, and twenty return to sacrament meeting that same day.
-
-
-
 6. *Share spiritual experiences.* Spiritual experiences have great impact upon men’s souls. Share them as prompted by the Spirit. (See [[D&C 50.21|D&C 50:21–22]][[D&C 50.22|]]; [[Luke 10.25|Luke 10:25–37]][[Luke 10.26|]][[Luke 10.27|]][[Luke 10.28|]][[Luke 10.29|]][[Luke 10.30|]][[Luke 10.31|]][[Luke 10.32|]][[Luke 10.33|]][[Luke 10.34|]][[Luke 10.35|]][[Luke 10.36|]][[Luke 10.37|]]; [[Acts 26.1|Acts 26:1–32]][[Acts 26.2|]][[Acts 26.3|]][[Acts 26.4|]][[Acts 26.5|]][[Acts 26.6|]][[Acts 26.7|]][[Acts 26.8|]][[Acts 26.9|]][[Acts 26.10|]][[Acts 26.11|]][[Acts 26.12|]][[Acts 26.13|]][[Acts 26.14|]][[Acts 26.15|]][[Acts 26.16|]][[Acts 26.17|]][[Acts 26.18|]][[Acts 26.19|]][[Acts 26.20|]][[Acts 26.21|]][[Acts 26.22|]][[Acts 26.23|]][[Acts 26.24|]][[Acts 26.25|]][[Acts 26.26|]][[Acts 26.27|]][[Acts 26.28|]][[Acts 26.29|]][[Acts 26.30|]][[Acts 26.31|]][[Acts 26.32|]].) For example:
 
-A less-active husband tells two priesthood leaders of last night’s dream. He repents that very evening as he recounts the experience.
-
-
-Two priesthood leaders tell an inspiring missionary story. As a result, two less-active sons are now serving missions.
-
-
-
 7. *Perform priesthood ordinances.* “In the ordinances … , the power of godliness is manifest.” ([[D&C 84.20|D&C 84:20]].) Bless the Saints. Bless the sick. Bless the homes of the Saints. Encourage others to seek for priesthood blessings. (See [[3 Nephi 20.2|3 Ne. 20:2–9]][[3 Nephi 20.3|]][[3 Nephi 20.4|]][[3 Nephi 20.5|]][[3 Nephi 20.6|]][[3 Nephi 20.7|]][[3 Nephi 20.8|]][[3 Nephi 20.9|]].) For example:
-
-In an unscheduled visit by an institute director, a blessing is received by a college woman who has strayed into transgression. She is caused to remember God and returns to the institute.
-
-
-Another man is raised directly from his sickbed.
-
-
-A daughter receives a priesthood blessing and finds the peace that has eluded her since her father’s death.
-
-
 
 Brethren, these seven suggestions—one or more as needed—will always bring the Spirit of the Lord into your visits. Are these not some of the *spiritual gifts* that Christ gave that prepared the way for the Holy Ghost to testify and *change men’s hearts?* Spiritually give of yourself, and your visits will not then be routine, but you will discern the needs of the Saints. You will commit them in the Spirit to act. They will repent and come unto Christ.
 
@@ -144,22 +92,6 @@ May I then summarize:
 
 5. The process described for inviting the Spirit works the same with:
 
-a rebellious child at home
-
-
-a discouraged individual
-
-
-an associate and
-
-
-even yourself
-
-
-as well as in visits to homes.
-
-
-
 6. Let us commit as one leader did: “There will not be one less-active member who has turned from God in my quorum or class. I will do all in my power to see that mighty change come into his heart.”
 
 In conclusion, may I remind each of us that our motivation must not be just for duty, for the Church, or as a result of a calling we have, but our *divine motivation* must be for the love of God. Then will the miraculous results occur.
@@ -181,3 +113,4 @@ May that gift, even charity, be ours. May we give of ourselves to the spirituall
 
 
 
+#Activation #HomeTeaching #Responsibility #Teaching

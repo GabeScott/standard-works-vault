@@ -79,3 +79,4 @@ I leave you my testimony, my brothers and sisters, that this Church is led by a 
 
 
 
+#Blessings #Covenants

@@ -73,3 +73,4 @@ God grant that we may make it so. In the name of Jesus Christ. Amen.
 
 
 
+#Compassion #Love

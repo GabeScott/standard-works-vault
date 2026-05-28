@@ -59,3 +59,4 @@ Brothers and sisters, the missionaries need our faith and prayers. Pray ferventl
 
 
 
+#Adversity #MissionaryWork

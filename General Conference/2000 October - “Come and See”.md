@@ -27,3 +27,4 @@ Of that I testify, as one of His servants, in the name of Jesus Christ, amen.
 
 
 
+#Greed #Healing #JesusChrist #Love #Service

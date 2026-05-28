@@ -105,3 +105,4 @@ With unwavering conviction, I declare these truths in the name of Jesus Christ, 
 
 [^18]: [[2 Nephi 29.7|2 Nephi 29:7]].
 
+#Conversion #Covenants #Healing #Temples #TempleWork

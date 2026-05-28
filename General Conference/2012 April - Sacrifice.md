@@ -107,3 +107,4 @@ I know that Jesus Christ is the Only Begotten Son of God the Eternal Father. I k
 
 [^13]: *Lectures on Faith* (1985), 69.
 
+#MissionaryWork #Sacrifice #Service #TempleWork

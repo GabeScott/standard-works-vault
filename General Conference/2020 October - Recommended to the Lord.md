@@ -99,3 +99,4 @@ I promise you as an Apostle of the Lord Jesus Christ that as you strive to redou
 
 [^13]: [[D&C 127.4|Doctrine and Covenants 127:4]].
 
+#Temples

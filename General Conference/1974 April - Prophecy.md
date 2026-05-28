@@ -115,3 +115,4 @@ God bless you, brothers and sisters. I don’t know why we should hesitate to ra
 
 
 
+#Prophecy #Scriptures

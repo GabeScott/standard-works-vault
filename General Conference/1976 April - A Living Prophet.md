@@ -53,3 +53,4 @@ I bear you my witness that that prophet today is Spencer W. Kimball. I know that
 
 
 
+#MissionaryWork #Prophets

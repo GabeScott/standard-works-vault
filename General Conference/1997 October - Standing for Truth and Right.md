@@ -81,3 +81,4 @@ These are difficult times in which we are living. In some respects, it is perhap
 
 [^13]: “History of the Church,” *Juvenile Instructor,* 30 Sept. 1871, 158.
 
+#Children #Commandments #Covenants #Example #Fellowshipping #JesusChrist #Parenthood #Priesthood #Satan #Sin #Truth #Youth

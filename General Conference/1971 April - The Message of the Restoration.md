@@ -65,3 +65,4 @@ Now, what is the destiny of this church? It will go forward. It cannot fail. It 
 
 
 
+#ChurchOrganization #Restoration

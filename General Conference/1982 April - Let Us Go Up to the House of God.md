@@ -77,3 +77,4 @@ May God bless us that we may find the joy and satisfaction that come from learni
 
 
 
+#Blessings #Covenants #PlanOfSalvation #Temples

@@ -95,3 +95,4 @@ In the name of Jesus Christ, amen.
 
 [^6]: See [[D&C 50.41|D&C 50:41–42]][[D&C 50.42|]].
 
+#Fear #Love #MissionaryWork #Prayer #Testimony

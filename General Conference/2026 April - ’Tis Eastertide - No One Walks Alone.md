@@ -151,3 +151,4 @@ As we walk our dusty roads to Emmaus, He will be with us. If you see someone wal
 
 [^38]: “I Know That My Redeemer Lives,” *Hymns*, no. 136.
 
+#Covenants #Easter #JesusChrist

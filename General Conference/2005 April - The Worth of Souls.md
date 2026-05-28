@@ -45,3 +45,4 @@ I pray we all might consider what we can do individually to assist those who wil
 
 
 
+#Activation #Forgiveness #IndividualWorth #Obedience

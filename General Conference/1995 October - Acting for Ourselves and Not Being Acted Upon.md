@@ -97,3 +97,4 @@ May you be equal to it, I pray humbly in the name of Jesus Christ, amen.
 
 [^9]: [[Abraham 3.22|Abr. 3:22–23]][[Abraham 3.23|]].
 
+#Agency #Evil #GodTheFather #JesusChrist #Priesthood #Responsibility #WordOfWisdom

@@ -133,3 +133,4 @@ But most of what I know about how our Father in Heaven really feels about us, Hi
 
 [^11]: [[D&C 68.25|D&C 68:25]].
 
+#ChurchOrganization #Councils #Family #Morality #Parenthood #PlanOfSalvation #Prayer #Temples

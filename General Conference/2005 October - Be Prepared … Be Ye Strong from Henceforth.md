@@ -125,3 +125,4 @@ In the name of Jesus Christ, amen.
 
 [^21]: [[Philippians 4.7|Philippians 4:7]].
 
+#Faith #JesusChrist #Obedience #Preparation

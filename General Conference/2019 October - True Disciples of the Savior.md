@@ -97,3 +97,4 @@ Are we true followers of Him who gave His all for us? He who is our Redeemer and
 
 [^10]: [[2 Nephi 33.6|2 Nephi 33:6]].
 
+#Commitment #Discipleship

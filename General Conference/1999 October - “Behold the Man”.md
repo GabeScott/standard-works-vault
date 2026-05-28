@@ -49,3 +49,4 @@ Moses, in a moment of both motivation and rebuke, charged the Israelites, “Who
 
 
 
+#Atonement #Character #Example #Humility #JesusChrist #Priesthood #Repentance #Satan #Sin #WordOfWisdom

@@ -29,3 +29,4 @@ Now, my brothers and sisters, we are anxious to listen to the messages which wil
 
 [^1]: Joseph F. Smith, in Conference Report, Oct. 1916, 6.
 
+#MissionaryWork #Temples

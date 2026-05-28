@@ -225,3 +225,4 @@ I testify that your Heavenly Father loves *you* and wants *you* to live with Him
 
 [^67]: [[D&C 78.17|Doctrine and Covenants 78:17–18]][[D&C 78.18|]].
 
+#GodTheFather #HolyGhost #JesusChrist #PremortalExistence #Resurrection

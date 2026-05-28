@@ -101,3 +101,4 @@ With all the strength of my soul, I testify that God lives and loves us, that Hi
 
 [^10]: [[Joshua 1.5|Joshua 1:5]].
 
+#Adversity #Gratitude

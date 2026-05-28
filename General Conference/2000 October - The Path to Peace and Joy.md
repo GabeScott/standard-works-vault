@@ -105,3 +105,4 @@ Have you wandered from the path of joy and now find yourself where you do not wa
 
 [^18]: [[Alma 26.20|Alma 26:20]].
 
+#Atonement #Commitment #Faith #Forgiveness #Joy #JesusChrist #Morality #Obedience #Peace #Repentance #Satan #Sin #Spirituality

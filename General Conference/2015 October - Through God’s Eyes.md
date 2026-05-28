@@ -47,3 +47,4 @@ I testify that on a day in 1820 in a grove in upstate New York, the risen Lord a
 
 [^8]: “The Living Christ: The Testimony of the Apostles,” *Ensign* or *Liahona,* Apr. 2000, 3. In citing this here, I figuratively add my signature to the document, witnessing to the selfsame testimony provided by those Apostles.
 
+#ChurchCallings #DivineNature #JesusChrist #Service

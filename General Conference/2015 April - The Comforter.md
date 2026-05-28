@@ -147,3 +147,4 @@ As His witness, I extend gratitude for what you do so well to help the living Lo
 
 [^12]: See [[D&C 81.5|Doctrine and Covenants 81:5]].
 
+#Adversity #Atonement #Baptism #Compassion #Covenants #HolyGhost #JesusChrist

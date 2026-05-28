@@ -73,3 +73,4 @@ I know that God the Father lives. He hears and answers our prayers. I testify th
 
 
 
+#ChurchCallings #Faith #HolyGhost #Miracles #Morality #Prayer #Responsibility #Service #Sin #Spirituality #Trust

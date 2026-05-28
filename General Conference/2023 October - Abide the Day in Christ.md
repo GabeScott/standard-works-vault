@@ -173,3 +173,4 @@ Look to Jesus Christ and live[^29] is my testimony in the sacred and holy name o
 
 [^30]: [[1 Peter 2.25|1 Peter 2:25]].
 
+#Adversity #Hope #JesusChrist #Parables #SecondComing

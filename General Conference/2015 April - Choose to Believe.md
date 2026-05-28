@@ -73,3 +73,4 @@ I testify that Jesus Christ is the source of light and hope for all of us. I pra
 
 [^6]: [[D&C 59.23|Doctrine and Covenants 59:23]].
 
+#Agency #Adversity #Faith #Hope #JesusChrist

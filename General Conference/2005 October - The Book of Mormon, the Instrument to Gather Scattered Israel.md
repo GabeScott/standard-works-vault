@@ -77,3 +77,4 @@ I testify that Joseph Smith is the prophet of the Restoration. The Book of Mormo
 
 [^7]: [[3 Nephi 21.7|3 Nephi 21:7]]; emphasis added.
 
+#BookOfMormon #Covenants #Example #MissionaryWork #Testimony

@@ -139,3 +139,4 @@ And may we have the protection of Him who is our Father and our God, and may we 
 
 
 
+#Abuse #Marriage #Morality #Repentance

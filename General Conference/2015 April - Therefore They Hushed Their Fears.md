@@ -111,3 +111,4 @@ I love and revere the Lord. His power and peace are real. He is our Redeemer, an
 
 
 
+#Covenants #Faith #Fear #Judging #JesusChrist #Ordinances

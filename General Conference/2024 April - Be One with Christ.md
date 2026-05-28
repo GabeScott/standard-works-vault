@@ -140,3 +140,4 @@ I bear my sure and certain witness that Jesus Christ lives, and because of His A
 
 [^29]: Russell M. Nelson, “[Building Bridges](https://www.churchofjesuschrist.org/study/liahona/2018/12/youth/be-one/building-bridges?lang=eng),” *New Era*, Aug. 2018, 6; *Liahona*, Dec. 2018, 51.
 
+#Agency #Atonement #ChurchDoctrine #JesusChrist #Unity

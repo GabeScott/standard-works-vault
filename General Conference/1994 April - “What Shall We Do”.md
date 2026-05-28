@@ -47,3 +47,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Adversity #Commandments #Faith #GodTheFather #Honesty #IdolWorship #Joy #PlanOfSalvation #Prophets #Service #Temptation

@@ -173,3 +173,4 @@ At noon today four young men, all grandsons, came to visit us. Three of them had
 
 [^22]: [[Alma 42.8|Alma 42:8]].
 
+#Faith #Priesthood #Responsibility #WordOfWisdom

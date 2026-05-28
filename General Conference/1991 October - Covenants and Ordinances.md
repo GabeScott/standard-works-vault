@@ -55,3 +55,4 @@ Our dear Father in Heaven, we thank thee for thy many blessings—for the restor
 
 
 
+#Covenants #Faith #Obedience #Ordinances #Priesthood

@@ -99,3 +99,4 @@ I testify of Him whose priesthood it is. Through His atoning suffering and sacri
 
 [^10]: *[Teachings: Harold B. Lee](https://www.churchofjesuschrist.org/study/manual/teachings-harold-b-lee/chapter-10?lang=eng),* 97.
 
+#Family #Fatherhood #MelchizedekPriesthood #Priesthood

@@ -91,3 +91,4 @@ I know that our Heavenly Father and His Son, Jesus Christ, love us and are willi
 
 [^9]: Thomas S. Monson, “[[2017 April - Kindness, Charity, and Love.md|Kindness, Charity, and Love]],” *Ensign* or *Liahona,* May 2017, 67.
 
+#Forgiveness #JesusChrist #Love #Service

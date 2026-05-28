@@ -99,3 +99,4 @@ God does live. Jesus is the Christ. One of His marks of greatness, His endurance
 
 
 
+#Adversity #Opposition

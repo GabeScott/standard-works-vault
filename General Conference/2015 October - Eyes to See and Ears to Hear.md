@@ -91,3 +91,4 @@ Brothers and sisters, I bear witness of Jesus Christ. I know He lives. He is our
 
 [^19]: [[Alma 27.17|Alma 27:17]]; see also [[Alma 31.38|Alma 31:38]].
 
+#Adversity #HolyGhost #JesusChrist #Obedience #Prophets

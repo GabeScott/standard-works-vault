@@ -59,3 +59,4 @@ As we pass through the trials of life, let us keep an eternal perspective, let u
 
 [^11]: [[2 Nephi 2.25|2 Nephi 2:25]].
 
+#Adversity #JesusChrist #Perspective

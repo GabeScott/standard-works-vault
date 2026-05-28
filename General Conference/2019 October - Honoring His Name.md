@@ -105,3 +105,4 @@ As members of The Church of Jesus Christ of Latter-day Saints, may we “gladly 
 
 [^22]: [[1 Nephi 11.21|1 Nephi 11:21]].
 
+#Covenants #JesusChrist

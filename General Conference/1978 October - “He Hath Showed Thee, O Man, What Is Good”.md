@@ -71,3 +71,4 @@ This dual obedience, faithfully kept, is our surest way of bearing testimony tha
 
 
 
+#Commandments #Obedience

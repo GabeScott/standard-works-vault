@@ -79,3 +79,4 @@ These things I say in the name of Jesus Christ, amen.
 
 
 
+#Adversity #Faith #Patience

@@ -137,3 +137,4 @@ I testify that Jesus is the Christ, this is His Church led by living prophets, a
 
 [^15]: [[John 3.16|John 3:16]].
 
+#Children #Covetousness #Faith #FinancialManagement #Generosity #Greed #JesusChrist #Love #Parenthood #Self-reliance #Success #Spirituality #Wealth

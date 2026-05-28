@@ -121,3 +121,4 @@ My dear brothers and sisters, I testify of the truth of these things. I testify 
 
 [^29]: [[Hebrews 12.2|Hebrews 12:2]]; see also [[Moroni 6.4|Moroni 6:4]].
 
+#Agency #ChurchDoctrine #Covenants #Ordinances #PlanOfSalvation

@@ -95,3 +95,4 @@ Since all of you Latter-day Saints have been asked to be missionaries, and the L
 
 
 
+#Authority #JesusChrist #PlanOfSalvation

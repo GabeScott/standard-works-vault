@@ -67,3 +67,4 @@ I am grateful that I know as surely as did the Apostles Peter, James, and John t
 
 
 
+#Covenants #Example #FamilyHomeEvening #Family #Fasting #HolyGhost #Love #MissionaryWork #Parenthood #Testimony

@@ -147,3 +147,4 @@ May we give heed to the Prophet and follow him, I humbly pray in the name of Jes
 
 
 
+#JosephSmith #Prophets #Restoration #Spirituality

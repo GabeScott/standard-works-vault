@@ -69,3 +69,4 @@ Brethren, this is your phone call. This is our phone call. May the Lord bless us
 
 [^4]: Brigham Young, *Deseret News,* Oct. 15, 1856, 252.
 
+#Brotherhood #Employment #Priesthood #Service

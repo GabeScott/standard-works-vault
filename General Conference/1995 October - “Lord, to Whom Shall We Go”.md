@@ -43,3 +43,4 @@ I testify to you that Joseph Smith saw the Father and the Son. They are real. Je
 
 
 
+#Authority #Commandments #GodTheFather #Joy #JesusChrist #Peace

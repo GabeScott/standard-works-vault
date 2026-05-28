@@ -97,3 +97,4 @@ My dear brethren, we have been given a sacred trust—the authority of God to bl
 
 [^16]: See [[D&C 45.33|Doctrine and Covenants 45:33]].
 
+#Authority #DivineNature #Prayer #Priesthood #ScriptureStudy #Service #TempleWork

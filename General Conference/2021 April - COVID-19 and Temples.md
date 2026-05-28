@@ -39,3 +39,4 @@ As we close this conference, we again express our love for you. We pray that God
 
 
 
+#Blessings #Covenants #Temples #TempleWork

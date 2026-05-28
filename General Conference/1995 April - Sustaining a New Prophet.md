@@ -75,3 +75,4 @@ This work is true. It will move forward to carry out all the divine plans of our
 
 
 
+#GordonB.Hinckley #HowardW.Hunter

@@ -75,3 +75,4 @@ Jesus is the Christ. Joseph Smith is the prophet of the Restoration. President G
 
 [^7]: [[Moses 6.36|Moses 6:36]].
 
+#Adversity #Faith #Obedience #Peace #Trust

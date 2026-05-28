@@ -117,3 +117,4 @@ May the priesthood of God be prepared and worthy for any calls that may come, I 
 
 [^12]: [[D&C 20.37|D&C 20:37]].
 
+#Contention #HolyGhost #JesusChrist #Love #MissionaryWork #Opposition #Priesthood #ScriptureStudy #Service #Testimony #Work

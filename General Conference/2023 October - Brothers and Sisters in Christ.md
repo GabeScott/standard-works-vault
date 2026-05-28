@@ -123,3 +123,4 @@ I testify to you that as we continue to flow this way during our mortal life, a 
 
 [^29]: See [[Acts 17.26|Acts 17:26]].
 
+#DivineNature #Love #Prejudice #Respect #Unity

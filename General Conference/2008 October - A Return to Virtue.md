@@ -86,3 +86,4 @@ I testify that a return to virtue is possible because of the Savior’s example 
 
 [^23]: [[Moroni 7.48|Moroni 7:48]]; emphasis added.
 
+#Morality #Safety #Temples

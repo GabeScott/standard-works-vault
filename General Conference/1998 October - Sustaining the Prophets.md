@@ -66,3 +66,4 @@ It’s as simple, it’s as pure and as clean as that little, simple song. It te
 
 
 
+#Agency #Adversity #Blessings #JosephSmith #JesusChrist #Prophets

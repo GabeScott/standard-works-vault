@@ -89,3 +89,4 @@ Again, let’s remember my friend Scott’s description of the Book of Mormon: �
 
 
 
+#Adversity #BookOfMormon #Scriptures

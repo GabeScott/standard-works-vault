@@ -102,3 +102,4 @@ As we leave this general priesthood meeting, let us all determine to shed any ba
 
 
 
+#Priesthood #Repentance #Worthiness

@@ -85,3 +85,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Accountability #Family #HolyGhost #KingdomOfGod #Media #Obedience #Perspective #Prayer #Priorities #ScriptureStudy #Spirituality #Teaching #Temples #TimeManagement #Wisdom

@@ -77,3 +77,4 @@ Sisters and brothers, through the incessant din and drumbeat of our day, may we 
 
 [^13]: [[Luke 18.42|Luke 18:42]].
 
+#FirstVision #GeneralConference #JesusChrist #TempleWork

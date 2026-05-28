@@ -75,3 +75,4 @@ I testify that patriarchal blessings do provide inspired direction from Heavenly
 
 [^12]: Inspired by James E. Faust, “[[1995 October - Priesthood Blessings.md|Priesthood Blessings]],” *Ensign*, Nov. 1995, 62–64.
 
+#Courage #DivineNature #PatriarchalBlessings

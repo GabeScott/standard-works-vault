@@ -103,3 +103,4 @@ I testify that God, our Heavenly Father, and His Son, Jesus Christ, live and lov
 
 [^24]: Boyd K. Packer, “The Circle of Sisters,” *Ensign,* Nov. 1980, 110.
 
+#Example #ReliefSociety #Service #Teaching #Women

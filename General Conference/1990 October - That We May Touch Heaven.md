@@ -161,3 +161,4 @@ Brethren, it is my prayer that we may so live that we, too, may touch heaven and
 
 
 
+#Morality #Repentance #Sabbath #Temptation #WordOfWisdom #Youth

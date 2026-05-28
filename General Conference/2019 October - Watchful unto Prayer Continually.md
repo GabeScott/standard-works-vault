@@ -123,3 +123,4 @@ I testify that pressing forward on the covenant path provides spiritual safety a
 
 [^14]: [[D&C 27.15|Doctrine and Covenants 27:15]].
 
+#Spirituality #Temptation

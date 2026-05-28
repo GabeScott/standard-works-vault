@@ -45,3 +45,4 @@ No other institution has the divine character as does The Church of Jesus Christ
 
 
 
+#Authority #JosephSmith #JesusChrist #Priesthood

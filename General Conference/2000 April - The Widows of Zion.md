@@ -101,3 +101,4 @@ May we be more caring and considerate to the widows of Zion is my humble prayer.
 
 [^12]: [[Mark 12.41|Mark 12:41–44]][[Mark 12.42|]][[Mark 12.43|]][[Mark 12.44|]]; see also [[Luke 21.1|Luke 21:1–4]][[Luke 21.2|]][[Luke 21.3|]][[Luke 21.4|]].
 
+#Faith #Kindness #Loneliness #Prayer #Religion #Responsibility #Service #SingleMembers #Trust

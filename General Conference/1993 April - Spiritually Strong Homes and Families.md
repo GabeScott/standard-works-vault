@@ -107,3 +107,4 @@ I testify of the divinity of the Savior, Jesus Christ, the Son of God. We are th
 
 [^7]: Joseph L. Wirthlin, *A Heritage of Faith,* comp. Richard B. Wirthlin (Salt Lake City: Deseret Book Co., 1964), pp. 41–43.
 
+#FamilyHomeEvening #Family #Home

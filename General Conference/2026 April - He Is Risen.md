@@ -147,3 +147,4 @@ As a special witness of the name of Jesus Christ[^45]—the King of glory, the M
 
 [^45]: See [[D&C 107.23|Doctrine and Covenants 107:23]].
 
+#JesusChrist #Resurrection

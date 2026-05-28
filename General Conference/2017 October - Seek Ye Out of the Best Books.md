@@ -51,3 +51,4 @@ Let each of us live so that the menacing jaws of camouflaged caterpillars find n
 
 
 
+#BookOfMormon #Conversion #Faith #Patience #Sabbath #ScriptureStudy

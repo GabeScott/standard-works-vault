@@ -109,3 +109,4 @@ I further testify to you that these wonderful men who have today been speaking t
 
 [^2]: See George Q. Cannon, in “Minutes of a Conference,” *Millennial Star,* May 2, 1863, 275–76.
 
+#Death #HolyGhost #Revelation #Sacrament #Truth

@@ -117,3 +117,4 @@ Joyfully, I witness that our Heavenly Father and His Beloved Son, Jesus Christ, 
 
 [^18]: [[Colossians 2.7|Colossians 2:7]].
 
+#MissionaryWork #Preparation #Priesthood #Temples #Worthiness

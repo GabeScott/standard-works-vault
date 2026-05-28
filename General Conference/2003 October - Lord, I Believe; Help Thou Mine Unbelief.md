@@ -107,3 +107,4 @@ I believe that every person’s individual testimony of Jesus as the Christ come
 
 [^23]: [[Mosiah 5.5|Mosiah 5:5, 7]][[Mosiah 5.7|]].
 
+#BookOfMormon #Faith #HolyGhost #JosephSmith #TempleWork #Testimony

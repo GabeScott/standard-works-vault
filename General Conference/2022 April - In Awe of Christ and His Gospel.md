@@ -109,3 +109,4 @@ Jesus is the Redeemer of the world, and this is His Church. I bear witness of th
 
 [^32]: [[D&C 78.18|Doctrine and Covenants 78:18–19]][[D&C 78.19|]].
 
+#Apathy #Diligence #JesusChrist #Learning #Love #Peace #Spirituality

@@ -79,3 +79,4 @@ It is my prayer that each of us will derive from this session of conference toda
 
 
 
+#Charity #PlanOfSalvation #Welfare

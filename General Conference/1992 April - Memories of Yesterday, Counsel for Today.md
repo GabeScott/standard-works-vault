@@ -36,7 +36,7 @@ Thinking of the example of his own mother and that of his beloved and faithful w
 
 2. Take time to be a real friend to your children.
 
-3. Take time to read to your children. Remember what the poet wrote:You may have tangible wealth untold;Caskets of jewels and coffers of gold.Richer than I you can never be—I had a mother who read to me.[^4]
+3. Take time to read to your children. Remember what the poet wrote:
 
 4. Take time to pray with your children.
 
@@ -83,3 +83,4 @@ God bless you, President Benson, in the name of Jesus Christ, amen.
 
 [^6]: “The Honored Place of Woman,” *Ensign,* Nov. 1981, p. 107; poem quoted from *The Writings of Charles Sprague* (New York: Charles S. Francis, 1841), p. 73.
 
+#Family #Parents #Prophets #ReliefSociety #Service

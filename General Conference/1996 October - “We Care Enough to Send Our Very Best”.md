@@ -49,3 +49,4 @@ I add my solemn testimony to that of our missionaries, their parents, and millio
 
 [^1]: Hallmark Cards, Inc.
 
+#Love #MissionaryWork #Service

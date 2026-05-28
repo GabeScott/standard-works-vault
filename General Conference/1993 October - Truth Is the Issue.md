@@ -47,3 +47,4 @@ Let us therefore listen, my dear brothers and sisters, to the voice of warning. 
 
 
 
+#PlanOfSalvation #Repentance #Truth

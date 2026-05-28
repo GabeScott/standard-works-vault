@@ -143,3 +143,4 @@ I bear witness that this is a holy office, a sacred office, a blessing to this C
 
 [^9]: Patriarchal blessing of Boyd K. Packer, 15 Jan. 1944, 2.
 
+#ChurchCallings #IndividualWorth #PatriarchalBlessings #Prophecy

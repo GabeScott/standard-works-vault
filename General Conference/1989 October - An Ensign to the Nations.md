@@ -113,3 +113,4 @@ While grubbing the sagebrush of these western valleys to lay the foundations for
 
 
 
+#Commitment #Example #MissionaryWork #PlanOfSalvation #Responsibility

@@ -85,3 +85,4 @@ Now may I bear a solemn witness, one borne of the Spirit, that these doctrines a
 
 
 
+#Spirituality

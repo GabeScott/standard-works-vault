@@ -138,3 +138,4 @@ May we follow His example is my prayer. In the name of Jesus Christ, amen.
 
 [^16]: [[D&C 81.5|D&C 81:5]].
 
+#Bishops #Covetousness #Education #FinancialManagement #Generosity #JesusChrist #Preparation #Sacrifice #Self-reliance #Welfare #Work

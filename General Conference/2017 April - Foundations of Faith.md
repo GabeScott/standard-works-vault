@@ -141,3 +141,4 @@ I am grateful for the fortification of the foundations of faith that has come fr
 
 [^24]: [[Helaman 5.12|Helaman 5:12]].
 
+#Adversity #Faith #HolyGhost #JosephSmith #JesusChrist

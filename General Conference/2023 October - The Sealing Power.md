@@ -105,3 +105,4 @@ I testify that the sealing power and authority restored to earth through Joseph 
 
 [^26]: David A. Bednar, “[A Welding Link](https://www.churchofjesuschrist.org/study/broadcasts/worldwide-devotional-for-young-adults/2017/09/a-welding-link?lang=eng)” (worldwide devotional for young adults, Sept. 10, 2017), Gospel Library.
 
+#Family #Gathering #Marriage #Ordinances #PriesthoodKeys #PriesthoodPower #Sealings #TempleWork

@@ -44,3 +44,4 @@ I bear testimony that the Lord Jesus Christ has paid the price of our sins upon 
 
 
 
+#GodTheFather #JesusChrist #Pride #Sin

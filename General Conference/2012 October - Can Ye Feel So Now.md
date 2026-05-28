@@ -129,3 +129,4 @@ My sincere prayer is that each of us will take any necessary action to feel the 
 
 [^28]: [[Isaiah 1.18|Isaiah 1:18]].
 
+#Atonement #Conversion #Morality #Pornography

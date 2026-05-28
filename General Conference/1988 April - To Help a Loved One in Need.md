@@ -67,3 +67,4 @@ I know they live. I know that Jesus is the Christ, our Savior and Redeemer. I lo
 
 
 
+#Adversity #Atonement #Forgiveness #Love

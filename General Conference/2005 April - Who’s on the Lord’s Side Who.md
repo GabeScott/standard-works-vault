@@ -81,3 +81,4 @@ Brethren, this is His work. The gospel of Jesus Christ has been restored in its 
 
 
 
+#Covenants #Morality #Obedience #Priesthood

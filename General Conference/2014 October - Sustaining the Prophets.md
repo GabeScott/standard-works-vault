@@ -99,3 +99,4 @@ President Monson, we thank you for those truths! And we thank you for your lifet
 
 [^20]: “We Ever Pray for Thee,” *Hymns,* no. 23.
 
+#ChurchOrganization #FirstPresidency #Leadership #QuorumOfTheTwelveApostles #Prophets #ThomasS.Monson

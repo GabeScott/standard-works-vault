@@ -147,3 +147,4 @@ I testify that ministering not only “brings forth the blessings of heaven,”[
 
 [^44]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
+#AtonementOfJesusChrist #Covenants #Faith #JesusChrist #Love #Ministering

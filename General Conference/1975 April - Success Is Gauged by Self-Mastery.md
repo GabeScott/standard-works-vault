@@ -117,3 +117,4 @@ May we apply the principles of self-mastery and discipline, so as to prove worth
 
 
 
+#Self-control

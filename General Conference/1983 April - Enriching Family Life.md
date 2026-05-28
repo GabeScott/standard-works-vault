@@ -32,7 +32,9 @@ May I suggest other ways to enrich family life:
 
 1. *Hold family prayer night and morning.* The source of our enormous individual strength and potential is no mystery. It is an endowment from God. We need not consume addicting chemicals found in drugs, including alcohol, to make us capable of meeting life’s problems. We need only to draw constantly from the power source through humble prayer. It often takes a superhuman effort for parents of a busy family to get everyone out of bed and together for family prayer and scripture study. You may not always feel like praying when you finally get together, but it will pay great dividends if you persevere.
 
-2. *Study the scriptures.* All of us need the strength that comes from daily reading of the scriptures. Parents must have a knowledge of the standard works to teach them to their children. A child who has been taught from the scriptures has a priceless legacy. Children are fortified when they become acquainted with the heroic figures and stories of the scriptures such as Daniel in the lions’ den, David and Goliath, Nephi, Helaman and the stripling warriors, and all the others.Having prayer, scripture study, and meals together gives incredibly important time to talk and listen as parents and children, brothers and sisters.
+2. *Study the scriptures.* All of us need the strength that comes from daily reading of the scriptures. Parents must have a knowledge of the standard works to teach them to their children. A child who has been taught from the scriptures has a priceless legacy. Children are fortified when they become acquainted with the heroic figures and stories of the scriptures such as Daniel in the lions’ den, David and Goliath, Nephi, Helaman and the stripling warriors, and all the others.
+
+Having prayer, scripture study, and meals together gives incredibly important time to talk and listen as parents and children, brothers and sisters.
 
 3. *Teach children to work.* Every household has routine daily chores that children can be responsible for.
 
@@ -79,3 +81,4 @@ If we are united and go forward under the leadership of those who have the keys 
 
 
 
+#Family #Parenthood

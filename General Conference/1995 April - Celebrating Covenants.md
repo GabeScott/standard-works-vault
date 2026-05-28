@@ -49,3 +49,4 @@ If you remember only one thing I say today, remember to *hold on to your covenan
 
 
 
+#Atonement #Covenants #Ordinances #Repentance #Sacrament #ScriptureStudy #YoungWomen

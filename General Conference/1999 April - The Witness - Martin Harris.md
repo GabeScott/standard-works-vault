@@ -90,7 +90,13 @@ The Lord’s invitation is warm and loving: “Come back and feast at the table 
 
 3. James, Rhett Stephens. *The Man Who Knew: The Early Years.* 1983. “Dramatic Biography Annotations.” 95–169.
 
-4. Ludlow, Daniel H., ed. *Encyclopedia of Mormonism.* 5 vols. 1992.Anderson, Richard Lloyd. “Book of Mormon Witnesses.” 1:214–16.James, Rhett Stephens. “Martin Harris.” 2:574–76.Marriott, Robert L. “Witnesses, Law of.” 4:1569–70.
+4. Ludlow, Daniel H., ed. *Encyclopedia of Mormonism.* 5 vols. 1992.
+
+Anderson, Richard Lloyd. “Book of Mormon Witnesses.” 1:214–16.
+
+James, Rhett Stephens. “Martin Harris.” 2:574–76.
+
+Marriott, Robert L. “Witnesses, Law of.” 4:1569–70.
 
 5. Roberts, B. H. *A Comprehensive History of The Church of Jesus Christ of Latter-day Saints.* 6 vols. 1930. 1:371–76.
 
@@ -99,3 +105,4 @@ The Lord’s invitation is warm and loving: “Come back and feast at the table 
 
 
 
+#BookOfMormon #GodTheFather #HolyGhost #JesusChrist #PlanOfSalvation #Testimony

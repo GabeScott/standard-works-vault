@@ -61,3 +61,4 @@ May the Lord bless all of us not to be fooled by illusions created by the devil.
 
 
 
+#Honesty #Teaching

@@ -83,3 +83,4 @@ In the name of Jesus Christ, amen.
 
 [^13]: [[3 Nephi 25.2|3 Nephi 25:2]].
 
+#Charity #JesusChrist #Repentance

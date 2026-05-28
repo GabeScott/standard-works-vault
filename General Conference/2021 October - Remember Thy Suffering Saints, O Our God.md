@@ -121,3 +121,4 @@ For all who suffer, I pray, “May God grant unto you that your burdens may be l
 
 [^27]: [[Alma 33.23|Alma 33:23]].
 
+#Adversity #Covenants #Hope #Joy #JesusChrist

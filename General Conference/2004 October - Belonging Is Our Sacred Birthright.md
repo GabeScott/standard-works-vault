@@ -91,3 +91,4 @@ In the name of Jesus Christ, amen.
 
 [^14]: Roger Hoffman, “Consider the Lilies.”
 
+#Preparation #ReliefSociety #Service #Sisterhood

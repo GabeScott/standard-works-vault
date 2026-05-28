@@ -125,3 +125,4 @@ I testify that God the Father lives and that His Beloved Son is our Redeemer. Th
 
 [^10]: See [[D&C 84.88|Doctrine and Covenants 84:88]].
 
+#Adversity #Faith #JesusChrist

@@ -147,3 +147,4 @@ I bear my special witness that They live. When we exercise our agency in righteo
 
 [^30]: [[Mosiah 27.31|Mosiah 27:31]].
 
+#Agency #PlanOfSalvation #Repentance

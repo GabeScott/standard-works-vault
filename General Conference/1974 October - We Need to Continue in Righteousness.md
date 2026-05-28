@@ -59,3 +59,4 @@ May the Lord bless each of us with the strength, courage, and faith to continue 
 
 
 
+#Commitment #Endurance

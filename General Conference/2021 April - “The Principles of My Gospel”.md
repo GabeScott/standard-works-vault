@@ -127,3 +127,4 @@ I know that the doctrine and principles of the gospel of Jesus Christ are the fo
 
 [^15]: [[D&C 123.17|Doctrine and Covenants 123:17]].
 
+#ChurchDoctrine #Gospel #Principles #Sabbath #Standards #Truth

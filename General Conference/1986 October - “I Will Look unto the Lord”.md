@@ -85,3 +85,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Agency #Adversity #Morality #Repentance

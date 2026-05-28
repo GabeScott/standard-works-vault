@@ -107,3 +107,4 @@ May the promise of Nephi be fulfilled in your behalf: “And they were armed wit
 
 [^14]: [[1 Nephi 14.14|1 Nephi 14:14]].
 
+#Charity #Family #Home #Obedience #Preparation #ReliefSociety #Women

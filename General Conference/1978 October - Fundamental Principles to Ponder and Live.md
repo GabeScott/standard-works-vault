@@ -148,3 +148,4 @@ And now in closing, I wish to express appreciation for all that has been said by
 
 
 
+#Animals #Profanity #Women

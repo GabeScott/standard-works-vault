@@ -143,3 +143,4 @@ I leave with you my testimony that this work in which we are engaged is true. Th
 
 [^13]: Personal correspondence; emphasis added.
 
+#Duty #Education #Example #Priesthood

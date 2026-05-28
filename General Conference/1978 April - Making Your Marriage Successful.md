@@ -36,11 +36,17 @@ Sometimes our ladies don’t allow us time to perform such courtesies. My advice
 
 Money management is very important. I’d like to give you four guides that I think would be helpful in this respect.
 
-1. *First, always pay your tithing.* Keep yourself eligible for the great blessings the Lord has promised to those who obey this commandment. He made this statement in the scriptures:“Bring ye all the tithes into the storehouse that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.” ([[Malachi 3.10|Mal. 3:10]].) I testify to you that this is true.
+1. *First, always pay your tithing.* Keep yourself eligible for the great blessings the Lord has promised to those who obey this commandment. He made this statement in the scriptures:
 
-2. *Next, pay yourself something off the top.* Save something out of every dollar you earn. I suggest your goal be no less than ten percent of your income after you have paid the Lord His share.Brigham Young once said: “If you wish to get rich, save what you get. A fool can earn money; but it takes a wise man to save and dispose of it to his own advantage.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 292.)
+“Bring ye all the tithes into the storehouse that there may be meat in mine house, and prove me now herewith, saith the Lord of hosts, if I will not open the windows of heaven, and pour you out a blessing, that there shall not be room enough to receive it.” ([[Malachi 3.10|Mal. 3:10]].) I testify to you that this is true.
 
-3. *Next, avoid using credit cards and charge accounts* for installment purchases. We are all being urged to “buy now pay later.” This makes it sound easy and even glamorous to surround ourselves with luxuries before they are earned. My advice to all is to *save* now and *buy* later. This will not only save a high interest charge, but it will also keep couples out of financial bondage.Our late President J. Reuben Clark, Jr., advised us: “Let us avoid debt as we would avoid a plague; where we are now in debt let us get out of debt; if not today, then tomorrow. Let us straitly and strictly live within our incomes, and save a little.” (*Conference Report,* Apr. 1937, p. 26.)
+2. *Next, pay yourself something off the top.* Save something out of every dollar you earn. I suggest your goal be no less than ten percent of your income after you have paid the Lord His share.
+
+Brigham Young once said: “If you wish to get rich, save what you get. A fool can earn money; but it takes a wise man to save and dispose of it to his own advantage.” (*Discourses of Brigham Young,* sel. John A. Widtsoe, Salt Lake City: Deseret Book Co., 1941, p. 292.)
+
+3. *Next, avoid using credit cards and charge accounts* for installment purchases. We are all being urged to “buy now pay later.” This makes it sound easy and even glamorous to surround ourselves with luxuries before they are earned. My advice to all is to *save* now and *buy* later. This will not only save a high interest charge, but it will also keep couples out of financial bondage.
+
+Our late President J. Reuben Clark, Jr., advised us: “Let us avoid debt as we would avoid a plague; where we are now in debt let us get out of debt; if not today, then tomorrow. Let us straitly and strictly live within our incomes, and save a little.” (*Conference Report,* Apr. 1937, p. 26.)
 
 4. *Budget your income and outgo and do not live beyond your means.* To consistently spend more than you earn makes it impossible to keep solvent and difficult to control your “wants.”
 
@@ -95,3 +101,4 @@ May our Heavenly Father bless you abundantly in your efforts to make your marria
 
 
 
+#Marriage

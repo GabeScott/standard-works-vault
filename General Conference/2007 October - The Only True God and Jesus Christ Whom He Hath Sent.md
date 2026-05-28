@@ -81,3 +81,4 @@ I testify that my witness of these things is true and that the heavens are open 
 
 [^20]: [[John 17.3|John 17:3]].
 
+#Atonement #Godhead #JesusChrist #Restoration

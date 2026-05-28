@@ -85,3 +85,4 @@ I so bless you, adding once more my expression of love for each of you, in the s
 
 [^8]: See [[3 Nephi 27.27|3 Nephi 27:27]].
 
+#Covenants #Faith #JesusChrist #Peace #Restoration #Temples

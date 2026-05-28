@@ -47,3 +47,4 @@ As we come unto our Savior, Jesus Christ, and purify our hearts, we will all be 
 
 
 
+#BookOfMormon #HouseOfIsrael #NativeAmericans

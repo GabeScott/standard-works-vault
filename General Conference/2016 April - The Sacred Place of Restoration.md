@@ -117,3 +117,4 @@ Because of His great love, Jesus Christ atoned for our sins. He is the Savior of
 
 [^7]: See introduction to the Book of Mormon.
 
+#BookOfMormon #JosephSmith #Prayer #Restoration

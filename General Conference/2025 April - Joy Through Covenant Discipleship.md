@@ -79,3 +79,4 @@ As we bind ourselves to act as covenant disciples, in whatever our level of capa
 
 [^12]: See “[Hesed, God’s Covenant Love, Is the Reason We Build Temples and Perform Ordinances: Instruction from President Russell M. Nelson](https://www.churchofjesuschrist.org/study/manual/leadership-instruction-october-2024/01-nelson?lang=eng),” general conference leadership meeting, Oct. 2024, Gospel Library.
 
+#Covenants #Discipleship #GodTheFather #Joy #JesusChrist #Love

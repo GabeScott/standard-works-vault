@@ -79,3 +79,4 @@ I am thankful for the Restoration of the gospel of Jesus Christ through the Prop
 
 
 
+#Attitude #Blessings #Faith #HolyGhost #Mercy #Obedience #Peace #Spirituality

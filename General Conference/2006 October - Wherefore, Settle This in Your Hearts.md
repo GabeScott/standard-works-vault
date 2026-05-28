@@ -95,3 +95,4 @@ I know that President Gordon B. Hinckley is the Lord’s prophet today. I am gra
 
 [^11]: See [[Alma 41.10|Alma 41:10]].
 
+#Commitment #Commandments #Morality #Standards

@@ -87,3 +87,4 @@ Through all mortal opposition, we have God’s assurance that He will “consecr
 
 [^6]: See Sarah Jane Weaver, “Rededication Goes Forward,” *Church News,* Feb. 28, 2016, 3–4.
 
+#Agency #Atonement #Faith #Fall #JesusChrist #Opposition #PlanOfSalvation

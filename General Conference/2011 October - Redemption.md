@@ -70,3 +70,4 @@ I bear my testimony of the power of Christ’s Atonement. When we repent and com
 
 
 
+#Atonement #Forgiveness #JesusChrist #PlanOfSalvation #Repentance

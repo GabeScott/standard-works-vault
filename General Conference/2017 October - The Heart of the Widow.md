@@ -61,3 +61,4 @@ I bear my testimony of the great love that we can share as disciples and followe
 
 [^5]: [[3 Nephi 11.11|3 Nephi 11:11]].
 
+#Consecration #Conversion #Gratitude #JesusChrist #Sacrifice #Temples

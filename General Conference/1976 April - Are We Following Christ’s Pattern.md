@@ -69,3 +69,4 @@ I testify that Jesus Christ directs the righteous affairs of this earth, that Sp
 
 
 
+#Example #JesusChrist

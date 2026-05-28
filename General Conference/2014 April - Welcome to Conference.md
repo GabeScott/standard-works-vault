@@ -27,3 +27,4 @@ May we—all of us, here and elsewhere—be filled with the Spirit of the Lord a
 
 
 
+#GeneralConference #Temples

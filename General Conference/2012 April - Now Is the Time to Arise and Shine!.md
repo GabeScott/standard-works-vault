@@ -95,3 +95,4 @@ Elder Russell M. Nelson said of you, “The influence of \[the\] young women of 
 
 [^25]: [[D&C 115.5|Doctrine and Covenants 115:5]].
 
+#Example #Temples #Virtue

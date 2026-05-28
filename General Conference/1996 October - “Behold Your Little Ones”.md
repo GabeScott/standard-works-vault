@@ -39,3 +39,4 @@ It is this testimony I leave with you, praying that we will treat each one of ou
 
 
 
+#Atonement #BookOfMormon #Children #HolyGhost #IndividualWorth #JesusChrist

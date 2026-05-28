@@ -117,3 +117,4 @@ I testify that by divine design the Book of Mormon was prepared in ancient Ameri
 
 [^33]: [[1 Nephi 13.37|1 Nephi 13:37]].
 
+#BookOfMormon #MissionaryWork

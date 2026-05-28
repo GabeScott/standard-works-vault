@@ -77,3 +77,4 @@ Decide now to do all you can to fill your lamps, that your strong testimony and 
 
 [^8]: Robert D. Hales, “How Will Our Children Remember Us?” *Ensign,* Nov. 1993, 10.
 
+#Adversity #Death #Family #FamilyHistory

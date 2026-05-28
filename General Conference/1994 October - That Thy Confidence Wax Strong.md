@@ -45,3 +45,4 @@ Brethren of the priesthood, let us hit our foul shots, *let us do our duty*—ev
 
 
 
+#Duty #Faith #JosephSmith #Priesthood #Repentance #Satan #Sin

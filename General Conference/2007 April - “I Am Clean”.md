@@ -85,3 +85,4 @@ God bless you, my beloved brethren. Speak with the Lord in prayer. Cultivate kin
 
 
 
+#Honesty #Morality #Obedience

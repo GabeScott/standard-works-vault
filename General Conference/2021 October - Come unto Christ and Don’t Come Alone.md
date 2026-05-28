@@ -121,3 +121,4 @@ I boldly testify that the Lord knows who you are and He loves you! Together, we 
 
 [^17]: Russell M. Nelson, *Accomplishing the Impossible: What God Does, What We Can Do* (2015), 147.
 
+#DivineNature #JesusChrist #Youth

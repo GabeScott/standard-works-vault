@@ -123,3 +123,4 @@ With all the energy of my soul, I witness the resurrected and living Christ dire
 
 
 
+#ChurchOrganization #Prophets

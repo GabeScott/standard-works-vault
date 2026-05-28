@@ -45,3 +45,4 @@ Brethren, I pray we may often recall, and perhaps even hum and sing, that simple
 
 
 
+#Attitude #Commandments #Family #Obedience #Parenthood #Priesthood #Prophets #Sabbath #Teaching

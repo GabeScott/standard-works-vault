@@ -121,3 +121,4 @@ As we consider the “pressing calls” of those who need our help, let’s ask 
 
 [^21]: [[Mark 14.6|Mark 14:6, 8]][[Mark 14.8|]].
 
+#DivineNature #Love #ReliefSociety #Service #Women

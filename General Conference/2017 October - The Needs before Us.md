@@ -65,3 +65,4 @@ President Spencer W. Kimball taught: “God does notice us, and he watches over 
 
 [^6]: *[Teachings of Presidents of the Church: Spencer W. Kimball](https://www.churchofjesuschrist.org/study/manual/teachings-spencer-w-kimball/chapter-8?lang=eng)* (2006), 82.
 
+#Family #Service

@@ -95,3 +95,4 @@ This is my solemn witness in the name of Jesus Christ, amen.
 
 [^18]: [[Acts 4.10|Acts 4:10]].
 
+#Angels #Duty #JesusChrist #Ordinances #Priesthood #Satan #Spirituality

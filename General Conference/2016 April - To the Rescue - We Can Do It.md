@@ -113,3 +113,4 @@ I solemnly testify that I know Jesus is the Good Shepherd, that He loves us, and
 
 [^9]: Henry B. Eyring, “[[2013 April - We Are One.md|We Are One]],” *Ensign* or *Liahona,* May 2013, 62.
 
+#Activation #Fellowshipping #Friendship #MissionaryWork

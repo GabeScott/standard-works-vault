@@ -57,3 +57,4 @@ I know that God lives. I know that Jesus is the Christ. I know that Joseph Smith
 
 
 
+#MissionaryWork #Preparation

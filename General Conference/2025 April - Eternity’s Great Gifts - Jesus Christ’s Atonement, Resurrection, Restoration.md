@@ -145,3 +145,4 @@ May we each find in Jesus Christ atonement, resurrection, and restoration—peac
 
 [^31]: [[John 3.16|John 3:16]].
 
+#Atonement #Easter #JesusChrist #Restoration #Resurrection

@@ -77,3 +77,4 @@ In an even more serious kind of spiritual warfare, brethren, the day may come—
 
 [^9]: “The World Is Too Much with Us,” line 1.
 
+#Faith #Media #Morality #Preparation #Prayer #Priesthood #Priorities #Self-control #Service #Worldliness

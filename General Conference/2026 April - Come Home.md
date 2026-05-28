@@ -111,3 +111,4 @@ I witness that Christ is our Redeemer. When we fall short, He repairs the breach
 
 [^19]: “Softly and Tenderly Jesus Is Calling,” *Hymns for Home and Church*, Gospel Library.
 
+#Activation #Ministering

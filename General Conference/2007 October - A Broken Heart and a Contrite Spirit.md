@@ -49,3 +49,4 @@ As we make the sacrifice to Him of all that we have and all that we are, the Lor
 
 
 
+#Gratitude #Repentance #Sacrifice

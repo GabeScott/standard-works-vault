@@ -87,3 +87,4 @@ I testify that an abiding and exalting relationship with the Master is establish
 
 
 
+#MissionaryWork #Priesthood #Worthiness

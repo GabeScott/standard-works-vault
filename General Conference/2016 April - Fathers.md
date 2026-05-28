@@ -137,3 +137,4 @@ That is the ministry of fathers today. God bless and make them equal to it, in t
 
 [^23]: [[Alma 39.15|Alma 39:15–16]][[Alma 39.16|]].
 
+#Discipline #Education #Example #Fatherhood #Love #Marriage #Teaching

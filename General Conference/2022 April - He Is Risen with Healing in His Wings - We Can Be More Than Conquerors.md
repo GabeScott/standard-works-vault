@@ -161,3 +161,4 @@ Jesus specializes in the seemingly impossible. He came here to make the impossib
 
 [^22]: See [[Luke 4.16|Luke 4:16–19]][[Luke 4.17|]][[Luke 4.18|]][[Luke 4.19|]].
 
+#Abuse #Adversity #Atonement #Healing #JesusChrist

@@ -122,3 +122,4 @@ Brethren, *be strong in your testimony of Jesus Christ,* the Son of God. He is t
 
 
 
+#Faith #Priesthood

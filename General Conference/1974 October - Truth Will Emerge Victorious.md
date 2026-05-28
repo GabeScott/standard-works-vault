@@ -83,3 +83,4 @@ After reading that passage of scripture Joseph Smith sought a grove of trees in 
 
 
 
+#Prophecy #Scriptures #Testimony

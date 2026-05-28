@@ -163,3 +163,4 @@ In the name of Jesus Christ, amen.
 
 [^17]: [[Mark 10.14|Mark 10:14]].
 
+#Atonement #Children #Death #Faith #Family #Home #JesusChrist #Parenthood #Peace #Prayer #Resurrection #Sin #Truth

@@ -61,3 +61,4 @@ I testify he is ready and waiting to help us. For our own good we must take the 
 
 
 
+#Adversity #Prayer

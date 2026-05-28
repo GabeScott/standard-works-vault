@@ -115,3 +115,4 @@ Tomorrow is Easter. On this Easter eve, may our thoughts turn to Him who atoned 
 
 [^12]: Samuel Medley, “I Know That My Redeemer Lives,” *Hymns,* no. 136.
 
+#Example #Family #Temptation #Testimony #Truth

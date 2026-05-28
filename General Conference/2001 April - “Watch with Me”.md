@@ -95,3 +95,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Example #Faith #HolyGhost #JesusChrist #Leadership #Love #Prayer #Priesthood #Service #Sin #Spirituality

@@ -65,3 +65,4 @@ I know He lives. I know He loves us. I know we can feel His love here and now. I
 
 
 
+#Charity #GodTheFather #JesusChrist #Love #Sacrament

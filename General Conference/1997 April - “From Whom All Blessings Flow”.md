@@ -39,3 +39,4 @@ In the holy name of Jesus Christ, amen.
 
 
 
+#Adversity #Atonement #Blessings #Death #Faith #HolyGhost #JesusChrist #Prayer

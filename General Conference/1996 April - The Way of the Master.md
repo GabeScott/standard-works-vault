@@ -199,3 +199,4 @@ This Easter morning, as His witness, I testify to you that He lives and that thr
 
 [^24]: [[D&C 110.4|D&C 110:4]].
 
+#Atonement #Commandments #Compassion #JesusChrist #Love #Neighbors #Service

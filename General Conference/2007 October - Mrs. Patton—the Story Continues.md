@@ -165,3 +165,4 @@ Will we listen for that knock? Will we hear that voice? Will we open that door t
 
 [^16]: [[Revelation 3.20|Revelation 3:20]].
 
+#Death #JesusChrist #Resurrection

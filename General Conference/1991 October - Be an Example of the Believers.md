@@ -83,3 +83,4 @@ I testify to you that Jesus Christ lives and that He presides over this Church. 
 
 
 
+#Adversity #Example #Faith #Family #Women

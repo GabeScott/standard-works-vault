@@ -135,3 +135,4 @@ I bear my witness of the *Holy One of Israel*—even the name of Jesus Christ. I
 
 [^16]: “True to the Faith,” *Hymns,* no. 254.
 
+#Commandments #Satan #Spirituality

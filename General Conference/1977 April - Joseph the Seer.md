@@ -71,3 +71,4 @@ That testimony I reaffirm to you this day, as I also affirm that he who presides
 
 
 
+#JosephSmith #Restoration

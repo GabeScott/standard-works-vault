@@ -108,3 +108,4 @@ One of the wisest of the ancient Romans once spoke a great gospel truth and prob
 
 
 
+#Adversity #Faith #Opposition

@@ -135,3 +135,4 @@ This we declare “in solemnity of heart, in the spirit of meekness,”[^25] and
 
 [^25]: [[D&C 100.7|Doctrine and Covenants 100:7]].
 
+#LightOfChrist #Morality #Religion #Spirituality #Truth

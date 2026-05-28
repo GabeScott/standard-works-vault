@@ -102,3 +102,4 @@ King David instructed his son Solomon, “Be thou strong … and shew thyself *a
 
 
 
+#Character #Example #Priesthood

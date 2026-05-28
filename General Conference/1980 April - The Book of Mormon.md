@@ -123,3 +123,4 @@ That we will seek these blessings through reading the Book of Mormon, I humbly p
 
 
 
+#BookOfMormon #ScriptureStudy

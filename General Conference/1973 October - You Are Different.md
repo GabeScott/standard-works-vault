@@ -77,3 +77,4 @@ President Lee recently said in a most moving address to the Brigham Young Univer
 
 
 
+#Covenants #Obedience #Standards #Temptation #Youth

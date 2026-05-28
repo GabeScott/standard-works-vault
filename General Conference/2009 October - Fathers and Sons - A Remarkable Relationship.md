@@ -59,3 +59,4 @@ I’m grateful for my sons and my sons-in-law, who have taught me so much, and I
 
 
 
+#Communication #Fatherhood #Priesthood #Trust #Youth

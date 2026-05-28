@@ -67,3 +67,4 @@ On this special Easter Day, I close with my solemn declaration, born of the Spir
 
 
 
+#Communication #Criticism #Evil #Love

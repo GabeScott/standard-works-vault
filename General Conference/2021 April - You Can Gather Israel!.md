@@ -125,3 +125,4 @@ In the name of Jesus Christ, amen.
 
 [^36]: [[2 Nephi 26.8|2 Nephi 26:8–9]][[2 Nephi 26.9|]].
 
+#Faith #Gathering #JesusChrist #MissionaryWork #PlanOfSalvation #Youth

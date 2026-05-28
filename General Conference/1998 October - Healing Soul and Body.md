@@ -87,3 +87,4 @@ Our Savior waits for us to come to Him through our scripture study, pondering, a
 
 
 
+#Adversity #Death #Faith #Healing #JesusChrist #Love #Prayer #Repentance #Resurrection #Spirituality

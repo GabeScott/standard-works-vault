@@ -65,3 +65,4 @@ Finally, as to these sacred things, may I add my personal witness and assurance 
 
 [^11]: See [[Moroni 6.1|Moroni 6]][[Moroni 6.2|]][[Moroni 6.3|]][[Moroni 6.4|]][[Moroni 6.5|]][[Moroni 6.6|]][[Moroni 6.7|]][[Moroni 6.8|]][[Moroni 6.9|]].
 
+#BookOfMormon #Conversion #Testimony

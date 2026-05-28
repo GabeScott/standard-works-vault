@@ -156,3 +156,4 @@ My sincere prayer is that we may, in our individual lives, reflect that marvelou
 
 [^2]: Louise N. Parter.
 
+#Gratitude #JesusChrist #Kindness #Parents #Teaching

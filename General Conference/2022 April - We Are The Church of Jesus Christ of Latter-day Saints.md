@@ -117,3 +117,4 @@ May we respond to this divine invitation and joyfully assemble, organize, prepar
 
 [^24]: [[D&C 88.73|Doctrine and Covenants 88:73–74]][[D&C 88.74|]].
 
+#ChurchMembership #Discipleship #Healing #JesusChrist #ReliefSociety

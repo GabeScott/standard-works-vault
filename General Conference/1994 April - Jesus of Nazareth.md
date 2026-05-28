@@ -145,3 +145,4 @@ The prophet Alma taught that the plan of mercy required an atonement to be made 
 
 
 
+#JesusChrist #Love #Resurrection #Sacrament

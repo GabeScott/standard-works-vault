@@ -145,3 +145,4 @@ It is my prayer that we may all grow into the priesthood and be the kind of men 
 
 [^12]: *Church News,* 4 Sept. 1999, 3.
 
+#Commandments #GodTheFather #Gratitude #HolyGhost #JosephSmith #JesusChrist #Media #Music #Priesthood #Priorities #Prophets #Sacrament #ScriptureStudy #WordOfWisdom

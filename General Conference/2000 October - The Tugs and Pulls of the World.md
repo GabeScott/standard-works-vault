@@ -99,3 +99,4 @@ May God bless us to see things as they really are and as they really will be (se
 
 
 
+#Atonement #Discipleship #Family #Friendship #Greed #Humility #JesusChrist #Love #Marriage #Morality #Prayer #Self-control #Spirituality #Temptation #Tolerance #Worldliness

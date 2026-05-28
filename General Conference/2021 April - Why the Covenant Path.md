@@ -143,3 +143,4 @@ With Nephi, “my soul delighteth in the covenants of the Lord.”[^30] On this 
 
 [^30]: [[2 Nephi 11.5|2 Nephi 11:5]].
 
+#Choices #Covenants #Gathering #HolyGhost #Obedience #Ordinances

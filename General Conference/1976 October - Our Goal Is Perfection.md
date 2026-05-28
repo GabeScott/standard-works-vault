@@ -63,3 +63,4 @@ May we be successful in this, our greatest responsibility, is my humble prayer, 
 
 
 
+#Dedication #PlanOfSalvation #Self-control

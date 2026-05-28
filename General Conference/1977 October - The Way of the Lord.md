@@ -65,3 +65,4 @@ To all within the sound of my voice I declare that the welfare plan of The Churc
 
 
 
+#Service #Welfare

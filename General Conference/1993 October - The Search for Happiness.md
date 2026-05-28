@@ -83,3 +83,4 @@ Oh, that we could become as a people like those referred to in the Book of Mormo
 
 
 
+#Joy #Obedience

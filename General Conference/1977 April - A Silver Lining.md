@@ -129,3 +129,4 @@ Now, my brothers and sisters, I bear you my witness that I know these things are
 
 
 
+#Adversity #Prophecy

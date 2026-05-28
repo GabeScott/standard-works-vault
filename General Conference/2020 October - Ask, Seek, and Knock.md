@@ -75,3 +75,4 @@ It is my testimony that this is the dispensation of the fulness of the gospel. W
 
 [^8]: See [[Alma 8.10|Alma 8:10–18]][[Alma 8.11|]][[Alma 8.12|]][[Alma 8.13|]][[Alma 8.14|]][[Alma 8.15|]][[Alma 8.16|]][[Alma 8.17|]][[Alma 8.18|]].
 
+#Faith #Prayer #Revelation

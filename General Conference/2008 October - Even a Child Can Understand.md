@@ -67,3 +67,4 @@ I pray that we will know how to open our hearts like a little child and take ple
 
 
 
+#Children #Education #Priorities #Scriptures

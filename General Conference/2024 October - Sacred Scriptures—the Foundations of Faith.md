@@ -117,3 +117,4 @@ I bear my sure witness of the divinity of Jesus Christ and the reality of His At
 
 [^19]: The Church has experienced significant growth and increased attendance in recent years. The percent leaving the Church is less than in the past, but we need every member.
 
+#BookOfMormon #Conversion #Scriptures

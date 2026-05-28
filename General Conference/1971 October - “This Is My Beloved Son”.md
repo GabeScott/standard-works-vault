@@ -90,3 +90,4 @@ May we strive to rededicate and strengthen our relationships with our children a
 
 [^1]: “Sunrise, Sunset,” from *Fiddler on the Roof,* lyrics by Sheldon Harnick (New York: Sunbeam Music Corp., 1964). Used by permission.
 
+#Bishops #Children #FamilyHomeEvening #Parents #Teaching

@@ -107,3 +107,4 @@ You *are* a child of God. This is not just a nice song we sing.[^16] Will you pl
 
 [^18]: See [[2 Nephi 2.25|2 Nephi 2:25.]]
 
+#DivineNature #GodTheFather #JesusChrist #Love

@@ -75,3 +75,4 @@ May God bless you that this will be your desire as you leave this priesthood ses
 
 
 
+#MissionaryWork #Preparation #Standards #Worthiness

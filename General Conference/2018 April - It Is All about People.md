@@ -69,3 +69,4 @@ I bear witness that this Church is the Church of Jesus Christ. Its strength and 
 
 [^5]: Russell M. Nelson, “[The Doctrinal Importance of Marriage and Children](https://www.lds.org/broadcasts/article/worldwide-leadership-training/2012/01/the-doctrinal-importance-of-marriage-and-children)” (worldwide leadership training meeting, Feb. 2012), broadcasts.lds.org.
 
+#Covenants #Discipleship #Home

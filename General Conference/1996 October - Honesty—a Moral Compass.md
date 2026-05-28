@@ -124,3 +124,4 @@ Holding and exercising the priesthood of God is a marvelous blessing. We are pri
 
 [^9]: “Four Simple Things to Help Our Families and Our Nations,” *Ensign,* Sept. 1996, 7.
 
+#Honesty #Priesthood #Truth

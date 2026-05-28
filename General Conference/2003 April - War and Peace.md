@@ -111,3 +111,4 @@ And there, my brothers and sisters, we rest our faith. Regardless of the circums
 
 
 
+#Contention #Faith #Military #Peace

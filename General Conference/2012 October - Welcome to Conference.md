@@ -41,3 +41,4 @@ Now, my brothers and sisters, may we listen attentively to the messages which wi
 
 
 
+#CoupleMissionaries #MissionaryWork #Temples

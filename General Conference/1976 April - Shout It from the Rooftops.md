@@ -39,3 +39,4 @@ This conference will touch our hearts and change our lives, and I bear witness t
 
 
 
+#MissionaryWork #Preparation

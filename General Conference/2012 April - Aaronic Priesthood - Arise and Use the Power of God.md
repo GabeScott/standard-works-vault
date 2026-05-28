@@ -49,3 +49,4 @@ I testify to you that the power of the priesthood is real. I gained my witness e
 
 
 
+#AaronicPriesthood #Example #Worthiness

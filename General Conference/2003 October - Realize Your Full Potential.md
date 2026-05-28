@@ -53,3 +53,4 @@ You are a precious young man or woman. Realize your full potential. Be the leade
 
 
 
+#MissionaryWork #Patience #ScriptureStudy #Service #Testimony

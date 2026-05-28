@@ -57,3 +57,4 @@ Gratefully and joyfully, I am a witness that this is the great kingdom of God on
 
 
 
+#ChurchOrganization #Consecration #Family #Home #JesusChrist #Obedience #Parenthood #PlanOfSalvation #Pride #Priorities #Sin #Unity #Zion

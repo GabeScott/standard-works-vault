@@ -114,3 +114,4 @@ I testify that Heavenly Father does lead us, guide us, and walk beside us. As we
 
 [^15]: See “A Child’s Prayer,” *Children’s Songbook,* 12–13.
 
+#Bishops #Commandments #JesusChrist #Parenthood #Sacrifice #ScriptureStudy #Youth

@@ -125,3 +125,4 @@ I know with all my heart and soul that God lives. I believe He will enlighten ou
 
 [^28]: *Discourses of Brigham Young,* 31.
 
+#Covenants #HolyGhost #Joy #JesusChrist #Spirituality

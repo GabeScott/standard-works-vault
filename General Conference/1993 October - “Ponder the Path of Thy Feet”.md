@@ -89,3 +89,4 @@ I ask that each of you take to heart these messages and know that they come from
 
 
 
+#Commitment #Covenants #Spirituality

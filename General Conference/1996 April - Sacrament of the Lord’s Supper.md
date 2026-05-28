@@ -81,3 +81,4 @@ I encourage each of you to be faithful in your attendance at sacrament meeting. 
 
 
 
+#Atonement #ChurchOrganization #Covenants #JesusChrist #PlanOfSalvation #Sacrament #Sacrifice

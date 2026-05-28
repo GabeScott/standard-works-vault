@@ -61,3 +61,4 @@ Because of His priesthood, we are empowered. We are royalty. And we have the pow
 
 
 
+#Joy #Media #Morality #Priesthood #Prophets #Satan #Spirituality #Temptation #Truth #WordOfWisdom

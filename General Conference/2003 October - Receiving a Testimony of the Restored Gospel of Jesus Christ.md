@@ -149,3 +149,4 @@ Jesus Christ lives. This is His work. Of this I bear my special witness, in the 
 
 [^30]: [[1 Nephi 15.11|1 Nephi 15:11]].
 
+#Conversion #HolyGhost #JosephSmith #Prayer #Restoration #ScriptureStudy #Testimony #Worthiness

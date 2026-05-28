@@ -137,3 +137,4 @@ I bear witness of the reality of our Heavenly Father and our Redeemer, Jesus Chr
 
 [^32]: [[Revelation 22.14|Revelation 22:14]].
 
+#Commandments #GodTheFather #JesusChrist #Love #Prophets #Redemption #Repentance

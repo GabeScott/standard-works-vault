@@ -65,3 +65,4 @@ I testify that the Lord is always there to help you. The example of His life and
 
 
 
+#Goals #JesusChrist #Preparation #Prayer #ScriptureStudy #Service #YoungWomen

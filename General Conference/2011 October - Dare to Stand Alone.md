@@ -129,3 +129,4 @@ That we may ever follow that light and hold it up for all the world to see is my
 
 [^11]: [[3 Nephi 18.24|3 Nephi 18:24]].
 
+#Priesthood #Testimony #Worthiness

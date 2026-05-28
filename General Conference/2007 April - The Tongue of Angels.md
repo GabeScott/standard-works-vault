@@ -91,3 +91,4 @@ So, brothers and sisters, in this long eternal quest to be more like our Savior,
 
 [^14]: See [[Matthew 25.40|Matthew 25:40]].
 
+#Abuse #Attitude #Family #Marriage #Respect

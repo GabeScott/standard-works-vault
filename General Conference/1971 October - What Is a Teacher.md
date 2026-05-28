@@ -105,3 +105,4 @@ Such is the gospel of Jesus Christ, to which I bear solemn testimony in the name
 
 
 
+#Teaching

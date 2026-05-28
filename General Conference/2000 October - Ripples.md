@@ -71,3 +71,4 @@ God lives. His Son, Jesus Christ, provides the way for us to return and live wit
 
 
 
+#Dedication #Faith #Family #Home #Humility #Joy #MissionaryWork #Obedience #Satan #VisitingTeaching #Work #Women

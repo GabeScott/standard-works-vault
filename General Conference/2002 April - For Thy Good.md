@@ -45,3 +45,4 @@ I believe in prayer. I believe in faith. I believe in repentance. I believe in t
 
 
 
+#Adversity #Atonement #Faith #PlanOfSalvation

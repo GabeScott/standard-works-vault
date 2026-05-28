@@ -56,3 +56,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Children #Commandments #FamilyHomeEvening #Family #JesusChrist #Parents #Prophets #Repentance #Responsibility #Sacrament #ScriptureStudy #Sin #Spirituality

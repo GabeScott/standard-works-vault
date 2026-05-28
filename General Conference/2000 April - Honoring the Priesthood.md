@@ -47,3 +47,4 @@ I testify we are on the Lord’s errand. He is our Savior. He is our Redeemer. H
 
 
 
+#Communication #Covenants #Example #Family #GeneralConference #Media #MissionaryWork #Priesthood #Profanity #Responsibility #Standards #Teaching #WordOfWisdom

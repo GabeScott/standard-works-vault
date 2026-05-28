@@ -89,3 +89,4 @@ I testify that He lives and extends His loving hand to each of us. In the name o
 
 
 
+#Faith #JesusChrist #PlanOfSalvation #Prayer #Trust

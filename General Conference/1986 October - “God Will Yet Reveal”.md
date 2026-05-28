@@ -97,3 +97,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#PlanOfSalvation #Prophets #Scriptures #Spirituality

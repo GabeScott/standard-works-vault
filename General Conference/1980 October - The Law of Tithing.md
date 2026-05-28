@@ -45,3 +45,4 @@ I bear my testimony, brothers and sisters, and witness to the divinity of this i
 
 
 
+#Tithing

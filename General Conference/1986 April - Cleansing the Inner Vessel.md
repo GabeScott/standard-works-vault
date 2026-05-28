@@ -91,3 +91,4 @@ We can do it. I know we can. That we will do so is my prayer for all of us. God 
 
 
 
+#BookOfMormon #Pride #Repentance #Spirituality

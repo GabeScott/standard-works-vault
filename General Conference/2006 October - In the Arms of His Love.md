@@ -103,3 +103,4 @@ May the Lord bless each of you with these marvelous qualities that come of activ
 
 
 
+#Education #Faith #JesusChrist #Love #ReliefSociety #Self-reliance #Tithing

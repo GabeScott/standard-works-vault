@@ -67,3 +67,4 @@ May God bless the youth of the Church to desire to prepare and serve Him is my h
 
 [^5]: [[Alma 17.11|Alma 17:11]].
 
+#Blessings #MissionaryWork #Service #Youth

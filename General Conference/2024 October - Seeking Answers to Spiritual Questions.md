@@ -107,3 +107,4 @@ I testify that placing your trust in Heavenly Father and in His prophets, whom H
 
 [^21]: Richard G. Scott, “[[1995 October - Trust in the Lord.md|Trust in the Lord]],” *Ensign*, Nov. 1995, 17.
 
+#AnsweringQuestions #Learning #Obedience #Patience #SpiritualGrowth #Trust #Truth

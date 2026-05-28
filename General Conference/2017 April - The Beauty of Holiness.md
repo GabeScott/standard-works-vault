@@ -115,3 +115,4 @@ Heavenly Father has given each of us the capacity to become holy. May we do our 
 
 [^27]: [[Mosiah 4.2|Mosiah 4:2]].
 
+#Atonement #Covenants #DivineNature #HolyGhost #JesusChrist

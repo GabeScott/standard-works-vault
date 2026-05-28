@@ -65,3 +65,4 @@ As we hear from President Hinckley, President Monson, and President Faust, I bea
 
 
 
+#Covenants #Healing #Priesthood #Worthiness

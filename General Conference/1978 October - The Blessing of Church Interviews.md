@@ -143,3 +143,4 @@ Now, brethren, we are about to hear from our beloved president, Spencer W. Kimba
 
 
 
+#Morality #Worthiness

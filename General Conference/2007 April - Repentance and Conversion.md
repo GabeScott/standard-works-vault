@@ -171,3 +171,4 @@ I know that God lives. Jesus is the Christ. This is His Church. His prophet toda
 
 [^50]: See [[D&C 2.2|D&C 2:2–3]][[D&C 2.3|]]; [[D&C 132.19|132:19]]; [[D&C 138.47|138:47–48]][[D&C 138.48|]]; [[Joseph Smith History 1.39|Joseph Smith—History 1:39]].
 
+#Conversion #Hope #Repentance

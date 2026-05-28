@@ -133,3 +133,4 @@ I have felt the love of the Father and of His Beloved Son for all the children o
 
 [^1]: “Abide with Me; ’Tis Eventide,” *Hymns,* no. 165.
 
+#Adversity #HolyGhost #Inspiration #JosephSmith #Love

@@ -77,3 +77,4 @@ In the name of Jesus Christ, amen.
 
 [^4]: [[Psalms 24.3|Ps. 24:3–4]][[Psalms 24.4|]].
 
+#Example #Family #Fatherhood #Healing #JesusChrist #Leadership #Morality #Obedience #Ordinances #Priesthood #Sacrifice #Satan #Service #Sin

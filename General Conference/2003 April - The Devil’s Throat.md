@@ -79,3 +79,4 @@ Brethren, we are living in a challenging time, and it is a time for us to stand 
 
 [^9]: [[James 1.6|James 1:6]].
 
+#Agency #HolyGhost #Obedience #Temptation

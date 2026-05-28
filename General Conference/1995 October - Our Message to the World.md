@@ -53,3 +53,4 @@ I pray that we each will see how great the importance is to gain an understandin
 
 
 
+#Apostasy #Atonement #BookOfMormon #JosephSmith #JesusChrist #PlanOfSalvation #Restoration

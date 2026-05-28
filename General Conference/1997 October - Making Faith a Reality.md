@@ -53,3 +53,4 @@ May I, in concluding my service, express my love and appreciation to the many wh
 
 
 
+#Atonement #Evil #Faith #Family #HolyGhost #Home #Repentance #Scriptures #YoungWomen

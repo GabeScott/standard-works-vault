@@ -69,3 +69,4 @@ What spiritual submissiveness for one so young! What an unselfish understanding 
 
 
 
+#Family #Generosity #Greed #Humility #Leadership #Love #Sin

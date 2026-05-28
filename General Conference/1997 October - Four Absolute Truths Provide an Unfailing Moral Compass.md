@@ -89,3 +89,4 @@ In closing, I would like to express my sincere gratitude to our prophet, Preside
 
 [^13]: [[1 Corinthians 1.25|1 Cor. 1:25]].
 
+#Agency #GodTheFather #Joy #JesusChrist #Morality #Repentance #Truth #Wisdom

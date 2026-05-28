@@ -41,3 +41,4 @@ To all of you of whom I have made mention—unbelievers; nonmembers; members of 
 
 
 
+#Obedience #Prophets

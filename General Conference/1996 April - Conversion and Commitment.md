@@ -57,3 +57,4 @@ I believe in Jesus Christ with all my soul. May we understand and follow His tea
 
 
 
+#Commitment #Conversion #Covenants #Discipleship #GeneralConference

@@ -109,3 +109,4 @@ This Church will prosper. It will prevail. Of this I am absolutely certain. I be
 
 [^2]: “The Family: A Proclamation to the World,” *Liahona,* Oct. 2004, 49; *Ensign,* Nov. 1995, 102.
 
+#Adversity #Family #Standards

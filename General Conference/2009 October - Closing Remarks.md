@@ -39,3 +39,4 @@ I bid you farewell until we meet again in six months’ time, and do so in the n
 
 [^2]: [[Mosiah 5.2|Mosiah 5:2]].
 
+#JesusChrist #Obedience #Testimony

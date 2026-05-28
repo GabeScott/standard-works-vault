@@ -103,3 +103,4 @@ The sure way to have life’s joys and blessings come to you is to follow our li
 
 [^18]: See [[John 20.29|John 20:29]].
 
+#Faith #IndividualWorth #Self-control #Temptation

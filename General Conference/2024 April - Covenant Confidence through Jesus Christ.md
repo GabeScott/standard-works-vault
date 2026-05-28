@@ -73,3 +73,4 @@ The ongoing and accelerating building of temples will continue to excite, inspir
 
 [^12]: Russell M. Nelson, “[[2021 October - The Temple and Your Spiritual Foundation.md|The Temple and Your Spiritual Foundation]],” *Liahona*, Nov. 2021, 93–94.
 
+#Adversity #Confidence #Covenants #JesusChrist #Temples

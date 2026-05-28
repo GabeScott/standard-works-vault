@@ -78,3 +78,4 @@ This, my brothers and sisters, is my invitation to you this morning. I extend my
 
 
 
+#ChurchGrowth #Education #Faith #Gratitude

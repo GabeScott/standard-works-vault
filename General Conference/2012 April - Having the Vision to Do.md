@@ -51,3 +51,4 @@ Just as the Savior saw great potential in His early disciples, He also sees the 
 
 
 
+#Discipleship #Fasting #MissionaryWork #Perspective #Prayer

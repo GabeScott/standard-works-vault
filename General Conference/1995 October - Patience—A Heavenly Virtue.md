@@ -131,3 +131,4 @@ In the name of Jesus Christ, amen.
 
 [^13]: “God of Our Fathers, Known of Old,” *Hymns,* 1985, no. 80.
 
+#Adversity #Example #JesusChrist #Patience #Resurrection #Scriptures #Service

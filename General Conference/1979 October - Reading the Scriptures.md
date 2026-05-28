@@ -59,3 +59,4 @@ May the Lord bless us in our study and righteous quest to seek him, I pray in th
 
 
 
+#ScriptureStudy

@@ -87,3 +87,4 @@ I testify that this is the Church of the resurrected Jesus Christ. He is risen. 
 
 [^3]: “Sweet Is the Work,” *Hymns,* no. 147.
 
+#HolyGhost #Humility #JesusChrist #Love #Service

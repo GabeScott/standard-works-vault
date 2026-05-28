@@ -115,3 +115,4 @@ It is true. It is our Father’s work. It is the church of our Redeemer. The pri
 
 
 
+#ChurchGrowth #FinancialManagement #JesusChrist #MissionaryWork #Prayer #Temples #TempleWork #Tithing #Worship

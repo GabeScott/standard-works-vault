@@ -71,3 +71,4 @@ May we deeply desire that victory, I pray in the name of Jesus Christ, amen.
 
 
 
+#Consecration #Joy #JesusChrist #Obedience #Opposition #Sin

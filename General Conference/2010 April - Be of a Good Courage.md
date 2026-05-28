@@ -63,3 +63,4 @@ I want to leave you with my testimony that Heavenly Father knows and loves each 
 
 
 
+#Courage #Faith #Obedience #Prayer #Prophets #Scriptures

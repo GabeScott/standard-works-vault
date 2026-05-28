@@ -47,3 +47,4 @@ God bless you, parents. We love you. We know it is not easy to do what you are d
 
 
 
+#Adversity #Atonement #HolyGhost #JesusChrist #Obedience #Parenthood #Peace #Spirituality #Teaching #Temples #Testimony #Truth

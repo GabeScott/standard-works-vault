@@ -53,3 +53,4 @@ How grateful I am, in these perilous times, for the protection and guidance give
 
 
 
+#JesusChrist #Prophets #Testimony

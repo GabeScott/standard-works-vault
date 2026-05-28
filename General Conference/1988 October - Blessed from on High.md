@@ -88,3 +88,4 @@ I testify of the divinity of Jesus Christ. God does live and imparts to us his S
 
 
 
+#Prayer #ScriptureStudy #Spirituality

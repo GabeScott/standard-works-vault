@@ -59,3 +59,4 @@ I testify of the Lord Jesus Christ, whose Church this is and whose servants they
 
 
 
+#Bishops #HomeTeaching #JesusChrist #Self-reliance #VisitingTeaching

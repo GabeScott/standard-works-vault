@@ -72,3 +72,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Children #Commandments #Death #HolyGhost #Home #Hope #JesusChrist #Obedience #Peace #Primary #Trust

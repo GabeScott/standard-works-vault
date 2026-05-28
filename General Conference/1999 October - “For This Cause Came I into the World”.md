@@ -45,3 +45,4 @@ I finish where I began, with Christ’s majestic words to Pilate: “For this ca
 
 
 
+#Children #Death #DivineNature #Generosity #JesusChrist #Languages #PlanOfSalvation #Resurrection #Sacrifice #Service #Standards

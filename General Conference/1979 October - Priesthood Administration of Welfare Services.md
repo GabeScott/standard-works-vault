@@ -77,3 +77,4 @@ I bear my witness of the divinity of this, and I do so in the name of Jesus Chri
 
 
 
+#Priesthood #Welfare

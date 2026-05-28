@@ -119,3 +119,4 @@ I testify of the living reality of God the Father and of His Beloved Son, our Sa
 
 [^20]: [[Hebrews 2.18|Hebrews 2:18]].
 
+#Children #DivineNature #Family #Marriage #PlanOfSalvation #Service

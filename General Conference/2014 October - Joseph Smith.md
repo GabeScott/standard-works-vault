@@ -139,3 +139,4 @@ In our society beyond the veil of death, we will clearly understand the sacred c
 
 [^24]: “Praise to the Man,” *Hymns,* no. 27.
 
+#JosephSmith #Testimony

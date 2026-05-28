@@ -132,3 +132,4 @@ The Good Shepherd willingly gave His life for His sheep, for you and me—yes, f
 
 
 
+#Activation #Children #Commitment #Fellowshipping #IndividualWorth #Love #Parenthood #Teaching #Testimony #Youth

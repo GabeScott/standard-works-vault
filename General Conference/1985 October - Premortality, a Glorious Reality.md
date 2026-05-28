@@ -132,3 +132,4 @@ May we so believe, so trust, so submit, and so behave, I pray in the name of Him
 
 
 
+#Foreordination #PremortalExistence

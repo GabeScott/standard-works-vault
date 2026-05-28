@@ -137,3 +137,4 @@ I bear witness that Jesus Christ fulfilled Heavenly Father’s plan as our Savio
 
 [^29]: See [[2 Nephi 10.14|2 Nephi 10:14]].
 
+#Faith #HolyGhost #JesusChrist #LightOfChrist

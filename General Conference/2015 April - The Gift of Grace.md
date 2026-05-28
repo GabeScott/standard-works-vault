@@ -225,3 +225,4 @@ I pray that we will see with new eyes and a new heart the eternal significance o
 
 [^38]: [[Romans 6.4|Romans 6:4]].
 
+#Atonement #Grace #JesusChrist #Obedience #Repentance #Resurrection

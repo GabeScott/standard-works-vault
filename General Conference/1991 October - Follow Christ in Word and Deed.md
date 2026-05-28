@@ -81,3 +81,4 @@ I pray that we, who have taken upon us His name and His marvelous priesthood aut
 
 
 
+#Example #Faith #JesusChrist #Love #Obedience #Priesthood #Temptation

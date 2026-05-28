@@ -63,3 +63,4 @@ May God bless us with wisdom to love His Son, Jesus Christ, and wisely help acco
 
 
 
+#ChurchCallings #Service #Wisdom

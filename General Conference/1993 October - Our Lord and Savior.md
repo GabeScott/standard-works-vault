@@ -121,3 +121,4 @@ I am humbly grateful to be one of the “special witnesses of the name of Christ
 
 [^6]: Bruce R. McConkie, *Doctrinal New Testament Commentary,* 3 vols. \[Salt Lake City: Bookcraft, 1965–73\], 1:762.
 
+#Atonement #JesusChrist #Testimony

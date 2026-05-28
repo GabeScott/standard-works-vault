@@ -87,3 +87,4 @@ God bless us to look up and to look around and to kneel down, and to be worthy, 
 
 
 
+#Charity #Compassion #Love

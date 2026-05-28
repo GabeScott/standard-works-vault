@@ -63,3 +63,4 @@ As my grandfather so eloquently stated 74 years ago: “I rejoice to bear my tes
 
 
 
+#Anger #Faith #Friendship #Honesty #JesusChrist #Prayer #Priesthood #Prophets #Sacrifice #ScriptureStudy #SundaySchool #Tithing

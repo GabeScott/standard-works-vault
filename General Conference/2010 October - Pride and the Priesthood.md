@@ -161,3 +161,4 @@ My beloved brethren, let us follow the example of our Savior and reach out to se
 
 [^27]: [[1 Timothy 6.11|1 Timothy 6:11]].
 
+#Humility #Pride #Priesthood #Service

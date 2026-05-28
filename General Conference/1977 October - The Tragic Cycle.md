@@ -175,3 +175,4 @@ To all of these things which the Lord has spoken, I bear my solemn witness in th
 
 
 
+#Prophecy #Repentance

@@ -83,3 +83,4 @@ When we offer our broken heart to Jesus Christ, He accepts our offering. He take
 
 [^10]: “I’ll Go Where You Want Me to Go,” *Hymns,* no. 270.
 
+#Adversity #Conversion #Healing #PlanOfSalvation #Prayer #Sacrament

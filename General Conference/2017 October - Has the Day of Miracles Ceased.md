@@ -77,3 +77,4 @@ While it is good to pray for and work for physical protection and healing during
 
 [^13]: See [[John 10.28|John 10:28]]; [[Moroni 7.41|Moroni 7:41]]; [[D&C 45.8|Doctrine and Covenants 45:8]].
 
+#Adversity #Atonement #Faith #Healing #Miracles #PlanOfSalvation

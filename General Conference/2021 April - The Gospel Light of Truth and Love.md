@@ -121,3 +121,4 @@ Brothers and sisters, may we be willing and decide today to engage ourselves and
 
 [^18]: *[Teachings of Presidents of the Church: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-11?lang=eng)* (2007), 142.
 
+#Covenants #Gospel #Love #MissionaryWork #Restoration #Temples #Truth

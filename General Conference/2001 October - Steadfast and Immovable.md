@@ -81,3 +81,4 @@ That we may finish gloriously, that we may focus our energies on those things of
 
 [^8]: *Ensign,* Nov. 1999, 92.
 
+#Faith #Family #Joy #Motherhood #Peace #Prayer #Priorities #ReliefSociety #ScriptureStudy

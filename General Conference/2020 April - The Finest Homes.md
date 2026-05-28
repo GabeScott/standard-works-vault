@@ -81,3 +81,4 @@ I gratefully testify that the God and Father of us all lives. His Son, the Lord 
 
 [^13]: [[Psalms 127.1|Psalm 127:1]].
 
+#Family #JesusChrist #Temples

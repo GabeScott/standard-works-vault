@@ -133,3 +133,4 @@ I add my testimony to you, gifted Latter-day Saints, of God the Father, Jesus Ch
 
 [^13]: *Preach My Gospel*, [106](https://www.churchofjesuschrist.org/study/manual/preach-my-gospel-2023/12-chapter-4?lang=eng&id=p43#p43).
 
+#GiftsOfTheSpirit #HolyGhost #Promptings #Testimony

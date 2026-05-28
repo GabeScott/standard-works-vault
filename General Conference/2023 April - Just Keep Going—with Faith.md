@@ -109,3 +109,4 @@ As the Prophet Joseph Smith said, “Stand fast, ye Saints of God, hold on a lit
 
 [^19]: *[Teachings: Joseph Smith](https://www.churchofjesuschrist.org/study/manual/teachings-joseph-smith/chapter-19?lang=eng&id=p33#p33)*, 235.
 
+#Adversity #Courage #Faith #HolyGhost #JosephSmith #Perseverance

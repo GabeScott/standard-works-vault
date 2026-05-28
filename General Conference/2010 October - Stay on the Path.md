@@ -55,3 +55,4 @@ Jacob said, “O how great the plan of our God!”[^3] The Savior has “marked 
 
 [^4]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
+#Children #Example #PlanOfSalvation #Prayer #ScriptureStudy

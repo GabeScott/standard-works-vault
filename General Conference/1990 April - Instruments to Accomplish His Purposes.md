@@ -16,7 +16,9 @@ Luther Burbank wrote: “Like the year \[at the end of summer,\] I pause now, to
 
 - “The harvested experiences and lessons that have moulded and impressed … my … life. …
 
-- “\[And\] the harvest of dear friendships, happy memories. …“\[And\] the harvest is rich and heavy and abundant” (*The Harvest of the Years* \[Cambridge, Mass.: Houghton Mifflin Co., 1931\], pp. 280–81).
+- “\[And\] the harvest of dear friendships, happy memories. …
+
+“\[And\] the harvest is rich and heavy and abundant” (*The Harvest of the Years* \[Cambridge, Mass.: Houghton Mifflin Co., 1931\], pp. 280–81).
 
 The harvest of work accomplished: The work of Relief Society is focused on the pure and simple part of the gospel, to develop faith and bear testimony; to render compassionate service as we care for the needy; to strengthen our families here and in eternity; and to work with our “hearts knit together in unity and love one towards another” ([[Mosiah 18.21|Mosiah 18:21]]).
 
@@ -59,3 +61,4 @@ May we all feel his strength as we seek to serve him. In the name of Jesus Chris
 
 
 
+#Fellowshipping #Service

@@ -75,3 +75,4 @@ I testify that Heavenly Father knows and loves you. Jesus is the living Christ. 
 
 [^2]: See [[D&C 35.2|Doctrine and Covenants 35:2]].
 
+#Faith #Family

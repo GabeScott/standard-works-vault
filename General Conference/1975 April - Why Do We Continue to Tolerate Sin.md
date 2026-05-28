@@ -93,3 +93,4 @@ And I bear this witness to you in the name of Jesus Christ, our Master. Amen.
 
 
 
+#Morality #Repentance

@@ -85,3 +85,4 @@ My other plea at Easter time is that these scenes of Christ’s lonely sacrifice
 
 [^21]: [[Mosiah 18.9|Mosiah 18:9]].
 
+#Atonement #JesusChrist #Loneliness

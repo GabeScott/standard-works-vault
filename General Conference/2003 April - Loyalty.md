@@ -100,3 +100,4 @@ May the blessings of heaven rest upon you and your families, my dear brethren. M
 
 
 
+#Loyalty #Marriage #Media #Morality #Priesthood

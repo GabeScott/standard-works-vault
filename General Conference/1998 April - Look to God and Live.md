@@ -224,3 +224,4 @@ That we may shoulder our sorrows, bear our burdens, and face our fears—as did 
 
 [^22]: [[Philippians 4.7|Philip. 4:7]].
 
+#Adversity #Atonement #HolyGhost #JesusChrist #Patience #Resurrection

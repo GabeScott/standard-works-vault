@@ -91,3 +91,4 @@ That the Saints will accept this priesthood, receive its ordinances, and keep th
 
 
 
+#ChurchMembership #Covenants

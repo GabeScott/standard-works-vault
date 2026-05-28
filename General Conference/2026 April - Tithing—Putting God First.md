@@ -65,3 +65,4 @@ I witness that Jesus Christ is the perfect example of how to put God first in ou
 
 
 
+#Obedience #Sacrifice #Tithing

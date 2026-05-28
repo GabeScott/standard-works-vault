@@ -139,3 +139,4 @@ Our testimonies of the gospel of Jesus Christ, our homes, our families, and our 
 
 [^32]: “I’m Trying to Be like Jesus,” *Children’s Songbook,* 78.
 
+#Spirituality #Testimony

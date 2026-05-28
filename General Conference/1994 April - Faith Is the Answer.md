@@ -115,3 +115,4 @@ Did you notice how you felt? Even talking about faith brings feelings of peace a
 
 
 
+#Faith #GodTheFather #PatriarchalBlessings #YoungWomen

@@ -149,3 +149,4 @@ This great and last dispensation is building steadily to its climax—Zion on ea
 
 [^38]: See [[1 Nephi 16.29|1 Nephi 16:29]].
 
+#Gathering #JesusChrist #SecondComing #Zion

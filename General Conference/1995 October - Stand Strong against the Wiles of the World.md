@@ -85,3 +85,4 @@ May the Lord bless you, my beloved sisters. You are the guardians of the hearth.
 
 
 
+#Children #Commitment #Family #Homosexuality #JesusChrist #Morality #Motherhood #Prophets #Responsibility #SingleMembers #Women

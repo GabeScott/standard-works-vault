@@ -89,3 +89,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Adversity #Attitude #Love #Parenthood

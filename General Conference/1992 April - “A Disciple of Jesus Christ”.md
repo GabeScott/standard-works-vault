@@ -77,3 +77,4 @@ I am a witness that the Lord Jesus Christ is the Son of God and the Savior of th
 
 
 
+#Repentance #Worthiness

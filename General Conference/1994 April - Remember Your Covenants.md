@@ -55,3 +55,4 @@ I testify that Jesus lives, that this is the only true church, that the priestho
 
 
 
+#Covenants #Marriage #Priesthood #Sacrament #Temples

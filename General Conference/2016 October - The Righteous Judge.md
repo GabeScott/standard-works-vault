@@ -105,3 +105,4 @@ There is only one way to judge righteous judgment, as Jesus Christ does, and tha
 
 [^11]: Thomas S. Monson, “[[2008 October - Finding Joy in the Journey.md|Finding Joy in the Journey]],” *Ensign* or *Liahona,* Nov. 2008, 86.
 
+#Atonement #Discipline #Judging #JesusChrist #Parenthood #Repentance #Sacrifice

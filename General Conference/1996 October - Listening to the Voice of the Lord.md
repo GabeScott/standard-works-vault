@@ -49,3 +49,4 @@ This conference is a great opportunity to listen to the voice of the Lord, to fo
 
 
 
+#Conversion #HolyGhost #Humility #JesusChrist #Listening #Obedience #Pride #Prayer

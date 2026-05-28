@@ -83,3 +83,4 @@ There is nothing that we are enduring that Jesus does not understand, and He wai
 
 
 
+#Adversity #Commandments #Endurance #Faith #Family #JosephSmith #JesusChrist #MissionaryWork #Obedience #Opposition #Pioneers

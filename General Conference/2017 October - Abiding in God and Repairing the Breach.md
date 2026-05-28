@@ -81,3 +81,4 @@ Our Father’s infinite love reaches out to us, to bring us back into His glory 
 
 [^11]: See [[Moroni 7.48|Moroni 7:48]].
 
+#Atonement #GodTheFather #JesusChrist #Love

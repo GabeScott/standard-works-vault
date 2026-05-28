@@ -137,3 +137,4 @@ I pray that as you ponder the many titles of a worthy priesthood holder, you wil
 
 [^14]: [[Ephesians 4.13|Ephesians 4:13]].
 
+#Discipleship #DivineNature #Healing #Service

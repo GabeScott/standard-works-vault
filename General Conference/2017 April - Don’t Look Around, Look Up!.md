@@ -67,3 +67,4 @@ I bear witness of Jesus Christ, that He is our Savior and Redeemer. When we foll
 
 [^8]: [[D&C 100.15|Doctrine and Covenants 100:15]].
 
+#Adversity #Conversion #FamilyHistory #MissionaryWork #Perspective #TempleWork

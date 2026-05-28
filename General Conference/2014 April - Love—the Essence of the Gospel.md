@@ -107,3 +107,4 @@ Beyond comprehension, my brothers and sisters, is the love of God for us. Becaus
 
 [^12]: Dale Carnegie, in, for example, Larry Chang, *Wisdom for the Soul* (2006), 54.
 
+#Forgiveness #Kindness #Love

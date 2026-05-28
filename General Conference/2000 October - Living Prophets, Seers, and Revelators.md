@@ -83,3 +83,4 @@ I bear witness of the saving power of the Atonement of Jesus Christ. I bear witn
 
 [^13]: [[Jacob 4.3|Jacob 4:3]].
 
+#JesusChrist #Obedience #Prophets #Testimony

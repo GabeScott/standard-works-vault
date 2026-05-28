@@ -53,3 +53,4 @@ All the effort and struggle and sorrow will be well worth it, for we will earn t
 
 
 
+#Adversity #JosephSmith

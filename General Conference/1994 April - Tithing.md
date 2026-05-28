@@ -101,3 +101,4 @@ I pray that each member of this church will qualify for the blessings promised a
 
 
 
+#JesusChrist #Tithing

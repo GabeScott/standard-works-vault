@@ -85,3 +85,4 @@ What is worthy or unworthy on the Sabbath day will have to be judged by each of 
 
 
 
+#Faith #Sabbath

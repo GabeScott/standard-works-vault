@@ -143,3 +143,4 @@ Remember the words of Jesus Christ when He said, “Do the things which ye have 
 
 [^18]: [[2 Nephi 31.12|2 Nephi 31:12]]; see also [[3 Nephi 27.21|3 Nephi 27:21]].
 
+#FinancialManagement #ScriptureStudy #Scriptures

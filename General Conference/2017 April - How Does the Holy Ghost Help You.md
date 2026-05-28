@@ -121,3 +121,4 @@ My dear brothers and sisters, old and young, I offer my witness of the glorious 
 
 [^11]: “The Still Small Voice,” *Children’s Songbook,* 107.
 
+#Adversity #Children #HolyGhost #Promptings #Worthiness

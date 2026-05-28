@@ -81,3 +81,4 @@ Moses never entered the promised land. Joseph Smith never saw Zion redeemed. Som
 
 
 
+#BookOfMormon #MissionaryWork #ScriptureStudy

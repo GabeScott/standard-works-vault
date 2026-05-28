@@ -127,3 +127,4 @@ I conclude with the rest of Jacob’s blessing: “Wherefore, may God raise you 
 
 [^28]: [[2 Nephi 10.25|2 Nephi 10:25]].
 
+#Agency #JesusChrist #PlanOfSalvation #Repentance

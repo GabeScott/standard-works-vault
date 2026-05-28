@@ -149,3 +149,4 @@ As an Apostle of the Lord Jesus Christ, I testify that “peaceable followers of
 
 [^30]: “Come, Ye Disconsolate,” *Hymns*, no. 115.
 
+#Adversity #Atonement #Discipleship #Joy #JesusChrist #Peacemaking #Preparation

@@ -121,3 +121,4 @@ This is His Church, restored through the Prophet Joseph Smith. I so testify, wit
 
 [^15]: [[Moroni 10.30|Moroni 10:30]].
 
+#ChurchCallings #HolyGhost #JosephSmith #JesusChrist #Prayer #Prophets #Revelation

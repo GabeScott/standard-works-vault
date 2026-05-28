@@ -141,3 +141,4 @@ This is the peace that can give each of us an inner tranquility when all about u
 
 
 
+#Preparation #Welfare

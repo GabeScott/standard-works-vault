@@ -159,3 +159,4 @@ If we can stand without shame, without hesitancy, without embarrassment, without
 
 
 
+#ChurchOrganization #JesusChrist #Testimony

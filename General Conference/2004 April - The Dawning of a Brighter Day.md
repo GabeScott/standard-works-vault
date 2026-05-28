@@ -118,3 +118,4 @@ May we live worthy of the glorious endowment of light and understanding and eter
 
 
 
+#Hope #Kindness #Restoration #Responsibility

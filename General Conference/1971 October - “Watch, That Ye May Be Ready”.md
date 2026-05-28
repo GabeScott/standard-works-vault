@@ -149,3 +149,4 @@ To this I testify in the name of Jesus Christ. Amen.
 
 
 
+#JesusChrist #MissionaryWork #Preparation

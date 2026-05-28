@@ -35,3 +35,4 @@ I know that he lives, and that he loves us, and that his hand is outstretched st
 
 
 
+#ScriptureStudy #Scriptures #Women #YoungWomen

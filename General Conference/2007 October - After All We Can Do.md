@@ -73,3 +73,4 @@ It is my humble prayer that the Lord may bless us to do “all we can do” in t
 
 
 
+#Endurance #Freedom #Repentance #Testimony

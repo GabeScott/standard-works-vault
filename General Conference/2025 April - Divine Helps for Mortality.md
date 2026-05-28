@@ -81,3 +81,4 @@ I have spoken of the many mortal helps our loving Father in Heaven has given to 
 
 [^10]: See [[Matthew 25.1|Matthew 25:1–2]][[Matthew 25.2|]].
 
+#Agency #Atonement #Commandments #Covenants #HolyGhost #JesusChrist #LightOfChrist #Ordinances #PlanOfSalvation

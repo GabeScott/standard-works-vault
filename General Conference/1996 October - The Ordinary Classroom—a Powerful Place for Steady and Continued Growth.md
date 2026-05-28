@@ -99,3 +99,4 @@ I pray that we will continue to hold on to one another through effective classro
 
 [^11]: “We are all in it together, all of us, and we have a great work to do. Every teacher can be a better teacher than he or she is today. Every officer can be a better officer than he or she is today. Every father can be a better father, every mother can be a better mother, every husband can be a better husband, every wife a better wife, every child a better child. We are on the road that leads to immortality and eternal life and today is a part of it. Let us never forget it” (Gordon B. Hinckley, quoted in *Church News,* 4 Nov. 1995, 2).
 
+#Education #HolyGhost #Ordinances #Scriptures #Teaching #Trust

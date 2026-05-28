@@ -115,3 +115,4 @@ May the Lord bless each of us in our efforts to serve and become true followers 
 
 [^22]: See [[Moroni 7.48|Moroni 7:48]].
 
+#ChurchCallings #JesusChrist #Service #Unity

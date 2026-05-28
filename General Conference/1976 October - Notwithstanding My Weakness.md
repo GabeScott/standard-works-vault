@@ -71,3 +71,4 @@ If we so live, we too can say in personal prospectus, “And I soon go to the pl
 
 
 
+#Patience #Self-esteem

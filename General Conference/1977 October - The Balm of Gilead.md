@@ -183,3 +183,4 @@ I bear witness of Him who is the Great Comforter and as one authorized to bear t
 
 
 
+#Evil #Forgiveness #Healing

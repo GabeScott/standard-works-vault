@@ -129,3 +129,4 @@ One of the greatest blessings of life and eternity is to be counted as one of th
 
 [^24]: [[D&C 59.23|D&C 59:23]].
 
+#Discipleship #Obedience #Sacrifice

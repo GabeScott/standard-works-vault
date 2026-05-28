@@ -81,3 +81,4 @@ I bear you my testimony and my witness of the reality of a loving Heavenly Fathe
 
 [^6]: [[2 Timothy 4.6|2 Timothy 4:6–8]][[2 Timothy 4.7|]][[2 Timothy 4.8|]].
 
+#Adversity #Atonement #Endurance

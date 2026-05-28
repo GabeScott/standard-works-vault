@@ -119,3 +119,4 @@ This I humbly pray in the name of Jesus Christ. Amen.
 
 
 
+#Courage #Obedience #Worldliness

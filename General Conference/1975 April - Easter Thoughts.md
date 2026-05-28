@@ -169,3 +169,4 @@ I know that through his suffering in Gethsemane and during his crucifixion he br
 
 
 
+#Atonement #Resurrection

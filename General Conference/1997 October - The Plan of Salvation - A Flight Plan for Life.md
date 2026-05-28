@@ -79,3 +79,4 @@ I know God lives, and I testify of Jesus Christ; He is God’s Only Begotten Son
 
 [^5]: *History of the Church,* 4:227.
 
+#Adversity #Atonement #Family #HolyGhost #Parenthood #PlanOfSalvation #Repentance

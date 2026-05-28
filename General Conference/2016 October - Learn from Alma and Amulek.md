@@ -165,3 +165,4 @@ Of this I testify and leave you my blessing as an Apostle of the Lord in the nam
 
 [^14]: See [[Alma 10.7|Alma 10:7]].
 
+#Activation #BookOfMormon #Leadership #Repentance #Service

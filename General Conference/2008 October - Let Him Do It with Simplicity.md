@@ -65,3 +65,4 @@ In our search to obtain relief from the stresses of life, may we earnestly seek 
 
 
 
+#Adversity #FinancialManagement #Morality #Preparation #Priorities #WordOfWisdom

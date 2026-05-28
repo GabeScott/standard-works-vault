@@ -185,3 +185,4 @@ I joyfully witness that God the Eternal Father is our Father. Jesus Christ is Hi
 
 [^40]: See [[D&C 19.23|Doctrine and Covenants 19:23]].
 
+#Apostasy #BookOfMormon #Pride

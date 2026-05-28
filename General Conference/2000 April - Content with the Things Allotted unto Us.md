@@ -91,3 +91,4 @@ How blessed we are that Alma’s words have been preserved for all of us. May we
 
 
 
+#Adversity #Atonement #Attitude #Conversion #Disabilities #HolyGhost #Poverty #Repentance #Sin

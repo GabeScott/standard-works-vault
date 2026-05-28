@@ -67,3 +67,4 @@ There are many around you who are confused and are seeking solutions to life’s
 
 [^6]: [[James 1.3|James 1:3–4]][[James 1.4|]].
 
+#Adversity #Character #Faith #Obedience #Peace #Prayer

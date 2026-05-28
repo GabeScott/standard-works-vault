@@ -97,3 +97,4 @@ May we seek the blessings of Christlike poise, not only to help ourselves in cha
 
 [^20]: [[Mark 4.40|Mark 4:40]].
 
+#Adversity #Atonement #Discipleship #DivineNature #JesusChrist #PlanOfSalvation

@@ -143,3 +143,4 @@ God bless us in performing this great service, I pray, in the name of Jesus Chri
 
 
 
+#Charity #Consecration #JesusChrist #Welfare #Work

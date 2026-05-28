@@ -43,3 +43,4 @@ I testify that if we shall look to the First Presidency and follow their counsel
 
 
 
+#FirstPresidency #Priesthood

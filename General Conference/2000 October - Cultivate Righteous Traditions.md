@@ -43,3 +43,4 @@ Humbled by the responsibility but joyous in the opportunity to preach the gospel
 
 
 
+#Charity #Covenants #Home #Love #Marriage #Obedience #Ordinances #Standards #Truth #Unity #Youth

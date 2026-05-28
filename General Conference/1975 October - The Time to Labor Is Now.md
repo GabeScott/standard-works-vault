@@ -135,3 +135,4 @@ As we enter into these sessions of this conference, may we invoke the blessings 
 
 
 
+#Abortion #Family #Loyalty #MissionaryWork #Morality #Work

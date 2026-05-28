@@ -85,3 +85,4 @@ Our Father’s patterns help us avoid deception. Look to the Lord and not to the
 
 [^18]: See [[Abraham 3.26|Abr. 3:26]].
 
+#Children #Disabilities #Faith #Family #HolyGhost #Humility #Marriage #Priesthood #Satan #Temples #Work #Women #Worthiness

@@ -109,3 +109,4 @@ To these things I testify, in the name of Jesus Christ, our Savior, amen.
 
 
 
+#Courage #Obedience #Repentance #Responsibility #Self-reliance

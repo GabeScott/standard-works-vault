@@ -91,3 +91,4 @@ I bear witness that this is Christ’s true Church. We are led by a prophet of G
 
 [^8]: Thomas S. Monson, “[Your Personal Influence](https://www.churchofjesuschrist.org/study/ensign/2004/05/your-personal-influence?lang=eng),” *Ensign* or *Liahona,* May 2004, 20.
 
+#Discipleship #JesusChrist #Leadership #Priesthood #Service

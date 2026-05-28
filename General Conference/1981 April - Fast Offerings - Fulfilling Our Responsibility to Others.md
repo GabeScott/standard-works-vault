@@ -135,3 +135,4 @@ May the Lord bless us to be wise and sound stewards in blessing the people with 
 
 
 
+#Fasting

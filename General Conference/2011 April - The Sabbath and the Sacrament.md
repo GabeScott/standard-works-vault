@@ -121,3 +121,4 @@ On this day before the Sabbath, as we begin this great conference, let us rememb
 
 [^18]: [[Psalms 23.5|Psalm 23:5]].
 
+#JesusChrist #Sabbath #Sacrament #Worship

@@ -113,3 +113,4 @@ I invite all of us today to center our lives on Jesus Christ and His teachings. 
 
 [^23]: See [[Hebrews 3.6|Hebrews 3:6]].
 
+#DivineNature #EternalLife #Endurance #JesusChrist

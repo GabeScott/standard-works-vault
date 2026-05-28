@@ -53,3 +53,4 @@ My heart is full of gratitude and great joy. Rejoice with me in bearing testimon
 
 
 
+#ChurchCallings #Consecration #JesusChrist #Priesthood #ReliefSociety #Sacrifice #Temples #VisitingTeaching

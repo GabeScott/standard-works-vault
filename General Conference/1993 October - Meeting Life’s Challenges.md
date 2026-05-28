@@ -147,3 +147,4 @@ He lives. He will sustain each of us. May we keep His commandments. May we ever 
 
 [^14]: [[John 16.33|John 16:33]].
 
+#Atonement #HolyGhost #JesusChrist

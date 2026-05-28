@@ -43,3 +43,4 @@ I testify, as President Hinckley recently said of missionary service, that “th
 
 
 
+#MissionaryWork #Preparation #Worthiness

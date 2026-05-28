@@ -31,3 +31,4 @@ Our Heavenly Father is mindful of each of us and our needs. May we be filled wit
 
 [^1]: *Teachings of Presidents of the Church: Joseph Smith* (2007), 444.
 
+#Adversity #ChurchGrowth #GeneralConference #Gratitude

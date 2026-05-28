@@ -232,3 +232,4 @@ As surely as I know that I am here and you are there, I know that Jesus is the C
 
 [^36]: [[John 14.27|John 14:27]].
 
+#Adversity #Apostasy #ChurchHistory #ChurchMembership #Commandments #Fear #GeneralConference #HolyGhost #JosephSmith #JesusChrist #Obedience #Ordinances #Peace #Prayer #Priesthood #Restoration #Satan #Scriptures #Sin

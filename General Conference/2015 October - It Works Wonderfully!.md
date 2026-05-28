@@ -173,3 +173,4 @@ This is my hope, my prayer, my testimony, and my blessing in the name of Jesus C
 
 [^18]: [[2 Corinthians 11.3|2 Corinthians 11:3]].
 
+#ChurchMembership #Discipleship #DivineNature #Grace #PlanOfSalvation #Truth

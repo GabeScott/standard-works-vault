@@ -93,3 +93,4 @@ I witness that “remission of sins \[through the Atonement\] bringeth meekness,
 
 [^18]: See Spencer W. Kimball, *The Teachings of Spencer W. Kimball,* ed. Edward L. Kimball (1982), 252.
 
+#Atonement #Covenants #Joy #JesusChrist #Mercy #Ordinances #PlanOfSalvation #PremortalExistence #Priorities #Temples

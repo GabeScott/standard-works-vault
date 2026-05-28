@@ -65,3 +65,4 @@ My dear brothers and sisters, I love you, and I pray for you. Please pray for me
 
 
 
+#Adversity #Family #Love

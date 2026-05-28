@@ -184,3 +184,4 @@ I testify that God lives, that Jesus is the Christ—the Master Healer—in the 
 
 [^35]: See [[Alma 11.43|Alma 11:43]]; [[Alma 40.23|40:23]].
 
+#Atonement #Conversion #Healing #JesusChrist #Repentance

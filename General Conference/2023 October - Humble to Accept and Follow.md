@@ -93,3 +93,4 @@ May we be humble to follow the counsel of our prophets and accept that only God 
 
 [^11]: [[D&C 112.10|Doctrine and Covenants 112:10]].
 
+#Humility #Pride #Prophets

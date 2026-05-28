@@ -53,3 +53,4 @@ I testify that the translation miracle of the Book of Mormon clearly evidences t
 
 
 
+#BookOfMormon #JosephSmith

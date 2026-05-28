@@ -71,3 +71,4 @@ I give you my witness that Jesus is the Christ, that He lives and loves us, and 
 
 [^9]: See Thomas S. Monson, in Conference Report, Oct. 1982, [[1982 October - “Run, Boy, Run!”.md|25–29]]; or *Ensign,* Nov. 1982, 19–21; *Scouting Handbook* (1997); see also note 8.
 
+#Activation #Priesthood

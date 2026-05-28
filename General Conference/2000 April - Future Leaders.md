@@ -43,3 +43,4 @@ I pray that you young people will develop a reverence for sacred things, a respe
 
 
 
+#Children #Commandments #HolyGhost #Home #JesusChrist #Morality #Prophets #Respect #Responsibility #Reverence #Teaching #Temples #Youth

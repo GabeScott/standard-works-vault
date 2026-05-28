@@ -71,3 +71,4 @@ As the scripture also teaches, such shepherds experience inexpressible joy. I be
 
 
 
+#MissionaryWork #Responsibility

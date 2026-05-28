@@ -131,3 +131,4 @@ May the Lord bless us in this great and divinely inspired welfare work, I humbly
 
 
 
+#Preparation #ReliefSociety #Welfare

@@ -71,3 +71,4 @@ God grant us to see what must be done in our own wards and stakes, I humbly pray
 
 
 
+#Preparation #Self-reliance

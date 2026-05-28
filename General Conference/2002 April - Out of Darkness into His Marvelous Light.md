@@ -175,3 +175,4 @@ In the name of Jesus Christ, amen.
 
 [^34]: [[D&C 109.73|D&C 109:73–74]][[D&C 109.74|]].
 
+#HolyGhost #JesusChrist #Obedience #Sin

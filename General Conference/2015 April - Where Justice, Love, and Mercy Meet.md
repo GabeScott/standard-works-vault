@@ -73,3 +73,4 @@ In the sacred name of the resurrected Lord Jesus Christ, amen.
 
 [^11]: “How Great the Wisdom and the Love,” *Hymns,* no. 195.
 
+#AdamAndEve #Atonement #Brotherhood #Fall #JesusChrist #Resurrection

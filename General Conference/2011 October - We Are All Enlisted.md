@@ -81,3 +81,4 @@ In the name of Jesus Christ, our Master, amen.
 
 [^11]: *Hymns,* no. 250.
 
+#MissionaryWork #Satan #Worthiness

@@ -185,3 +185,4 @@ His words in holy writ are sufficient: “Be still, and know that I am God.”[^
 
 [^15]: [[Psalms 46.10|Psalm 46:10]].
 
+#Conscience #FinancialManagement #Greed #Honesty #Morality #Patience #Peace #WordOfWisdom

@@ -83,3 +83,4 @@ I bear witness of a God who has such shoulders. And in the spirit of the holy ap
 
 [^18]: [[1 John 4.10|1 John 4:10–11]][[1 John 4.11|]].
 
+#GodTheFather #JesusChrist #Love #Morality

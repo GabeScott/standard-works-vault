@@ -69,3 +69,4 @@ I know that God lives. I know that Jesus is the Christ. I know that he guides th
 
 
 
+#Discipline #Fatherhood #Priesthood

@@ -35,3 +35,4 @@ We are engaged in the work of Almighty God. Jesus is the Christ! We are His humb
 
 [^3]: [[D&C 1.21|Doctrine and Covenants 1:21]].
 
+#MelchizedekPriesthood #Ministering #PriesthoodQuorums #Service

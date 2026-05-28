@@ -259,3 +259,4 @@ I know that as we come unto Christ, we can eventually “be perfected in him” 
 
 [^63]: See [[D&C 1.14|Doctrine and Covenants 1:14, 38]][[D&C 1.38|]]; [[D&C 43.1|43:1–7]][[D&C 43.2|]][[D&C 43.3|]][[D&C 43.4|]][[D&C 43.5|]][[D&C 43.6|]][[D&C 43.7|]]; [[D&C 107.91|107:91–92]][[D&C 107.92|]].
 
+#ChurchDoctrine #HolyGhost #Love #Prophets #Revelation #Teaching #Truth

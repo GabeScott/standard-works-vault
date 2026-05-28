@@ -85,3 +85,4 @@ Now, brethren, will you please remain standing and join with our chorus in singi
 
 [^13]: “Rise Up, O Men of God,” *Hymns,* no. 324.
 
+#Activation #Ministering #PriesthoodBlessings #Priesthood #Service

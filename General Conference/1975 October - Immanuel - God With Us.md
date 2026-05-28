@@ -53,3 +53,4 @@ It is my prayer that every young man may prepare himself to accept a mission cal
 
 
 
+#MissionaryWork #Spirituality

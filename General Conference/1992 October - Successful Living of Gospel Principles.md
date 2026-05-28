@@ -91,3 +91,4 @@ The only sure way to protect ourselves and our families from the onslaught of th
 
 
 
+#Commitment #Obedience

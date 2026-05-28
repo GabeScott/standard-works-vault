@@ -141,3 +141,4 @@ Because He always did those things which pleased His Father,[^30] and because He
 
 [^32]: [[Psalms 23.6|Psalm 23:6]].
 
+#Healing #JesusChrist #Repentance

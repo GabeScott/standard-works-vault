@@ -107,3 +107,4 @@ I leave you my blessing that you will be able to recognize the glorious opportun
 
 [^3]: [[D&C 84.39|Doctrine and Covenants 84:39]].
 
+#Duty #Preparation #Priesthood #Service #Work

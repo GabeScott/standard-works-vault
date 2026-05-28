@@ -61,3 +61,4 @@ May His inspiring example strengthen us against the pitfalls of flattery from wi
 
 [^4]: Jeffrey R. Holland, “The Call to Be Christlike,” *Ensign,* June 2014, 33; *Liahona,* June 2014, 35.
 
+#Courage #JesusChrist #PeerPressure #Unity

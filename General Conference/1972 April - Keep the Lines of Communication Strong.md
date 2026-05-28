@@ -115,3 +115,4 @@ May we always repair our sagging lines and fulfill our total obligations and thu
 
 
 
+#Communication #Obedience #Resurrection

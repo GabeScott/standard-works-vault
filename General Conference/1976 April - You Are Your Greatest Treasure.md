@@ -79,3 +79,4 @@ May God bless us and help us to understand this I humbly pray, in the name of Je
 
 
 
+#HolyGhost #IndividualWorth #PlanOfSalvation

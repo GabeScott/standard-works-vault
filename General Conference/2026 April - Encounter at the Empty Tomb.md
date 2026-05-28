@@ -173,3 +173,4 @@ My dear friends, let us walk in His way as joyful and constant disciples of our 
 
 [^20]: As we ponder these questions and act on this invitation, we could consider the many resources available today. We have precious access to the scriptures, including the Book of Mormon. We have the cherished words of latter-day prophets. Our Heavenly Father speaks through the Holy Ghost and has freely offered bountiful resources of inspiration and guidance. He invites us to enter His holy house to participate in sacred ordinances, make everlasting covenants, and walk with Him during our sojourn in this life.
 
+#Discipleship #Easter #JesusChrist #Resurrection #Testimony

@@ -117,3 +117,4 @@ Brothers and sisters, dear friends, let us not wait too long on *our* road to Da
 
 [^13]: [[John 20.29|John 20:29]].
 
+#Faith #HolyGhost #Service

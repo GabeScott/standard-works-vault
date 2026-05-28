@@ -45,3 +45,4 @@ Brethren, we’ve heard some wonderful messages here tonight. May the Lord bless
 
 
 
+#HolyGhost #Spirituality

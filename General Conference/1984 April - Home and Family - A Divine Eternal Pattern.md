@@ -52,7 +52,9 @@ The Father, perhaps continuing, might have said: “When you go to earth—
 
 Perhaps He continued, saying:
 
-11. “*Fathers* to be, you will learn what *true spiritual leadership* is mostly at home, not so much in the world.“*Mothers,* yours will be a sacred call unlike any other, *to raise these little children so that they will be like I am.* Unless you all become as little children, you will not be able to return home to me.”
+11. “*Fathers* to be, you will learn what *true spiritual leadership* is mostly at home, not so much in the world.
+
+“*Mothers,* yours will be a sacred call unlike any other, *to raise these little children so that they will be like I am.* Unless you all become as little children, you will not be able to return home to me.”
 
 12. *“Learn your duty from living prophets and from the scriptures.”*
 
@@ -72,7 +74,9 @@ Perhaps the Father continued, saying, “My children, there are also a number of
 
 Brothers and sisters, perhaps he concluded,
 
-6. “My children, don’t be too concerned about remembering these things. You will find that when these things are taught to you they will seem strangely familiar, as if you always knew them. You did, because you experienced it all here in your heavenly home.” (See [[1 Nephi 15.8|1 Ne. 15:8, 11]][[1 Nephi 15.11|]].)“You will suffer affliction with your children in allowing them to grow and develop, just as I have suffered affliction with you. (See [[D&C 133.52|D&C 133:52–53]][[D&C 133.53|]].) But don’t be afraid; I have given mine angels charge concerning you. Those sent from my very presence to be round about you, to bear you up. (See [[D&C 84.42|D&C 84:42, 88]][[D&C 84.88|]]; [[D&C 133.53|133:53]].) This is your opportunity to experience what we have taught you. Follow the promptings. We love you.”
+6. “My children, don’t be too concerned about remembering these things. You will find that when these things are taught to you they will seem strangely familiar, as if you always knew them. You did, because you experienced it all here in your heavenly home.” (See [[1 Nephi 15.8|1 Ne. 15:8, 11]][[1 Nephi 15.11|]].)
+
+“You will suffer affliction with your children in allowing them to grow and develop, just as I have suffered affliction with you. (See [[D&C 133.52|D&C 133:52–53]][[D&C 133.53|]].) But don’t be afraid; I have given mine angels charge concerning you. Those sent from my very presence to be round about you, to bear you up. (See [[D&C 84.42|D&C 84:42, 88]][[D&C 84.88|]]; [[D&C 133.53|133:53]].) This is your opportunity to experience what we have taught you. Follow the promptings. We love you.”
 
 Brothers and sisters, in conclusion may I say, where possible:
 
@@ -112,3 +116,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Family #Parenthood

@@ -93,3 +93,4 @@ I am a living witness of our Eternal Heavenly Father’s love and mercy. He live
 
 
 
+#Adversity #Honesty #Morality #Preparation #Priesthood #Temptation

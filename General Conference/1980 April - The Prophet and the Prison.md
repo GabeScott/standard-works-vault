@@ -46,7 +46,11 @@ What can we as priesthood members and leaders learn from President Kimball’s t
 
 2. He made others feel comfortable in his presence. He never talked down to anyone. He was always “one with” and not “one apart.” Do we know how to make our associates feel comfortable during our visits, or are they allowed to feel we are just trying to improve our percentages?
 
-3. He listened intently to the comments of his associates. Those about him knew they had his attention and his interest. I thought of the scripture found in [[Luke 2.46|Luke 2:46–47]][[Luke 2.47|]]: “After three days they found him in the temple, sitting in the midst of the doctors, both hearing them, and asking them questions.“And all that heard him were astonished at his understanding and answers.” In this case perhaps we are within our rights to paraphrase this quotation a little and say, “After a few minutes they found him in the prison, sitting in the midst of the prisoners, both hearing them and asking them questions.“And all that heard him were astonished at his capacity to ask and listen.”
+3. He listened intently to the comments of his associates. Those about him knew they had his attention and his interest. I thought of the scripture found in [[Luke 2.46|Luke 2:46–47]][[Luke 2.47|]]: “After three days they found him in the temple, sitting in the midst of the doctors, both hearing them, and asking them questions.
+
+“And all that heard him were astonished at his understanding and answers.” In this case perhaps we are within our rights to paraphrase this quotation a little and say, “After a few minutes they found him in the prison, sitting in the midst of the prisoners, both hearing them and asking them questions.
+
+“And all that heard him were astonished at his capacity to ask and listen.”
 
 4. He was courteous. He knows well the fifth point of the Boy Scout Law and has undoubtedly been practicing it for more than seventy-five years.
 
@@ -69,3 +73,4 @@ It is my hope and prayer that we will have the courage in our lives, homes, and 
 
 
 
+#JosephSmith #Kindness #Service

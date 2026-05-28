@@ -107,3 +107,4 @@ God bless you all, and I hope you realize that the Lord is speaking through his 
 
 
 
+#Prophecy #Prophets

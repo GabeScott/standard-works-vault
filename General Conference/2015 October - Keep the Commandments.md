@@ -73,3 +73,4 @@ My brethren, may we keep the commandments! Wonderful and glorious are the reward
 
 [^10]: [[Jeremiah 31.34|Jeremiah 31:34]].
 
+#Atonement #Commandments #Courage #HolyGhost #JesusChrist #Obedience #Repentance

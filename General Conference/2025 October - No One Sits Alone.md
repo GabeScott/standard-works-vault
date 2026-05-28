@@ -133,3 +133,4 @@ Covenant belonging deepens as we come to each other and to the Lord in His inn. 
 
 [^24]: Jedediah M. Grant, who served in the First Presidency with Brigham Young, reported a vision of the spirit world that included numerous kinds of beautiful flowers thriving together, perhaps as a metaphor for unity and beauty in diversity. “I have seen good gardens on this earth, but I never saw any to compare with those that were there,” he said. “I saw flowers of numerous kinds, and some with from fifty to a hundred different colored flowers growing upon one stalk.” He experienced “the beauty and glory of the spirit world, where the righteous spirits are gathered together” (“Remarks, at the Funeral of President Jedediah M. Grant, by President Heber C. Kimball,” *Deseret News*, Dec. 10, 1856, 317).
 
+#Belonging #Fellowshipping #Friendship #JesusChrist #Love

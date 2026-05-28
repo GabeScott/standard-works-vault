@@ -135,3 +135,4 @@ The Lord bless us, young brethren, to remember who we are, to control ourselves,
 
 
 
+#Attitude #Commitment #Courage #Dedication

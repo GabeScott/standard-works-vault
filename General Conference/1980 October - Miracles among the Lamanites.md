@@ -67,3 +67,4 @@ My brothers and sisters, we must do all that we have been counseled to do here i
 
 
 
+#MissionaryWork #NativeAmericans

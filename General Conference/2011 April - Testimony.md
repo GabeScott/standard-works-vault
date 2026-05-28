@@ -65,3 +65,4 @@ I know God our Heavenly Father lives and loves us. I know His uniquely special S
 
 
 
+#Atonement #Obedience #Repentance #Testimony #Trust #Youth

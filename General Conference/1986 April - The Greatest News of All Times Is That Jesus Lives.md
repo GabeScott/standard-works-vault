@@ -63,3 +63,4 @@ For these great blessings I humbly pray, in the name of Jesus Christ, amen.
 
 
 
+#MissionaryWork #Obedience

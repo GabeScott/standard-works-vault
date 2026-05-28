@@ -85,3 +85,4 @@ Why every member a missionary? Because that is what the Lord has asked us to do.
 
 [^7]: “The Things of Eternity—Stand We in Jeopardy?” *Ensign,* Jan. 1977, 3.
 
+#Fellowshipping #Joy #JesusChrist #Media #MissionaryWork

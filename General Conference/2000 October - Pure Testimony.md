@@ -163,3 +163,4 @@ I pray that you may do so and testify to the ends of the earth that the gospel o
 
 [^21]: In Conference Report, Apr. 2000, [[2000 April - My Testimony.md|88]]; or *Ensign,* May 2000, 71.
 
+#Duty #Faith #HolyGhost #Obedience #Prayer #ScriptureStudy #Testimony

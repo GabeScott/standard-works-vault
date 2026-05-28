@@ -103,3 +103,4 @@ I testify that God lives. I know that Jesus Christ lives and that He is our Savi
 
 [^10]: [[Moroni 7.46|Moroni 7:46–47]][[Moroni 7.47|]].
 
+#HolyGhost #JosephSmith #Prayer #ScriptureStudy #Testimony

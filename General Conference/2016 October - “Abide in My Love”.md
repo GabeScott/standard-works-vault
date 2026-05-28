@@ -169,3 +169,4 @@ Will you not love Him who first loved you?[^44] Then keep His commandments.[^45]
 
 [^48]: See [[John 15.10|John 15:10]].
 
+#Atonement #DivineNature #JesusChrist #Love #Obedience #Repentance

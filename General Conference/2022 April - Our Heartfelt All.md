@@ -139,3 +139,4 @@ I testify that this is true, as I also testify that Jesus Christ is our Master, 
 
 [^14]: [[D&C 64.33|Doctrine and Covenants 64:33]].
 
+#Balance #Consecration #Discipleship #Sacrifice #Service

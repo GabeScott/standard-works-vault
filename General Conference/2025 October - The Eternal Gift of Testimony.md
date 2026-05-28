@@ -173,3 +173,4 @@ Brothers and sisters, a testimony of Jesus Christ was never meant to be a tempor
 
 [^33]: See [[Moroni 10.30|Moroni 10:30]].
 
+#Agency #GodTheFather #HolyGhost #Testimony

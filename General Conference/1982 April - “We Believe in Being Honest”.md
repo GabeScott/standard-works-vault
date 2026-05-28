@@ -149,3 +149,4 @@ Humble obedience is the thing. It alone can save us. To this I testify, in the s
 
 
 
+#Honesty #Obedience

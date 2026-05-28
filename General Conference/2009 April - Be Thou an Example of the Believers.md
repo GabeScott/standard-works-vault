@@ -85,3 +85,4 @@ May each of us strive to be “an example of the believers.” May we live the g
 
 
 
+#Example #Goals #YoungWomen

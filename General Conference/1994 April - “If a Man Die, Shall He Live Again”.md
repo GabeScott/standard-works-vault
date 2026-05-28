@@ -48,7 +48,9 @@ Included in the cloud of witnesses or among the “infallible proofs” were hun
 
 - He was seen after the Crucifixion by “above five hundred brethren at once” ([[1 Corinthians 15.6|1 Cor. 15:6]]), according to Paul’s account.
 
-- Moreover, “the graves were opened; and many bodies of the saints which slept arose,“And came out of the graves after his resurrection, and went into the holy city, and appeared unto many” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]]).
+- Moreover, “the graves were opened; and many bodies of the saints which slept arose,
+
+“And came out of the graves after his resurrection, and went into the holy city, and appeared unto many” ([[Matthew 27.52|Matt. 27:52–53]][[Matthew 27.53|]]).
 
 Even after all of these eyewitnesses, there were the skeptics. Some regarded the words of the women as “idle tales” ([[Luke 24.11|Luke 24:11]]). Jesus chided the two disciples by saying, “O fools, and slow of heart to believe all that the prophets have spoken” ([[Luke 24.25|Luke 24:25]]). And he upbraided some “because they believed not them which had seen him \[earlier\] after he was risen” ([[Mark 16.14|Mark 16:14]]).
 
@@ -101,3 +103,4 @@ I bear solemn testimony that *we shall live again!* Such testimony is founded up
 
 
 
+#Death #JesusChrist #Resurrection

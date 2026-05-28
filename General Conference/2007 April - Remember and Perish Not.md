@@ -57,3 +57,4 @@ Coming unto Christ and being perfected in Him is, I believe, the ultimate purpos
 
 [^8]: See [[Moroni 10.32|Moroni 10:32–33]][[Moroni 10.33|]].
 
+#ChurchHistory

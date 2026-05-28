@@ -81,3 +81,4 @@ Of this I testify in the name of Jesus Christ. Amen.
 
 
 
+#Agency #Habits #Obedience

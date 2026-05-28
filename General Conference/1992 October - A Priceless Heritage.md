@@ -59,3 +59,4 @@ At the close of this great conference, and on behalf of my Brethren, I sincerely
 
 
 
+#Commitment #Endurance #Pioneers #Sacrifice

@@ -51,3 +51,4 @@ Accordingly, we dedicate, rededicate, and consecrate this sacred structure, and 
 
 
 
+#ChurchHistory #TempleSquare

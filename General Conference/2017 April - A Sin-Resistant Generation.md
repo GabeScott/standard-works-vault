@@ -115,3 +115,4 @@ I testify that Jesus Christ leads this Church. As you teach, lead, and love chil
 
 [^24]: See [[John 15.13|John 15:13]].
 
+#Children #Covenants #Discipleship #DivineNature #Parenthood #Repentance #Sin #Teaching

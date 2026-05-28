@@ -117,3 +117,4 @@ May this strengthen our faith in Jesus Christ and His Atonement, of which I test
 
 [^14]: Dallin H. Oaks, “[[2019 October - Two Great Commandments.md|Two Great Commandments]],” *Ensign* or *Liahona*, Nov. 2019, 73–74.
 
+#Commandments #Discipleship #Love #Neighbors

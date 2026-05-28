@@ -99,3 +99,4 @@ That we may follow our prophet’s plea, become converted, and then strengthen o
 
 
 
+#Commandments #Conversion #Example #Faith #JesusChrist #Obedience #Priesthood #Repentance #Scriptures #Temples #Testimony

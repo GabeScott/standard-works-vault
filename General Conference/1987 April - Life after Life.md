@@ -52,7 +52,9 @@ President Benson has spoken of one of these priceless records. The activities of
 
 ## To the Dead
 
-15. The postmortal ministry of the Lord continued in other realms. Jesus ministered unto the dead in the postearthly spirit world (see [[3 Nephi 23.9|3 Ne. 23:9–10]][[3 Nephi 23.10|]]). Peter testified that “the gospel \[was\] preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit” ([[1 Peter 4.6|1 Pet. 4:6]]; see also [[1 Peter 3.19|1 Pet. 3:19–21]][[1 Peter 3.20|]][[1 Peter 3.21|]]).John taught of this as well: “The dead shall hear the voice of the Son of God: and they that hear shall live” ([[John 5.25|John 5:25]]). In our day, additional scriptures have been added which attest to the ministry of the living Lord among the dead (see [[D&C 138.1|D&C 138]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.5|]][[D&C 138.6|]][[D&C 138.7|]][[D&C 138.8|]][[D&C 138.9|]][[D&C 138.10|]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]][[D&C 138.38|]][[D&C 138.39|]][[D&C 138.40|]][[D&C 138.41|]][[D&C 138.42|]][[D&C 138.43|]][[D&C 138.44|]][[D&C 138.45|]][[D&C 138.46|]][[D&C 138.47|]][[D&C 138.48|]][[D&C 138.49|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]][[D&C 138.53|]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]][[D&C 138.57|]][[D&C 138.58|]][[D&C 138.59|]][[D&C 138.60|]]).
+15. The postmortal ministry of the Lord continued in other realms. Jesus ministered unto the dead in the postearthly spirit world (see [[3 Nephi 23.9|3 Ne. 23:9–10]][[3 Nephi 23.10|]]). Peter testified that “the gospel \[was\] preached also to them that are dead, that they might be judged according to men in the flesh, but live according to God in the spirit” ([[1 Peter 4.6|1 Pet. 4:6]]; see also [[1 Peter 3.19|1 Pet. 3:19–21]][[1 Peter 3.20|]][[1 Peter 3.21|]]).
+
+John taught of this as well: “The dead shall hear the voice of the Son of God: and they that hear shall live” ([[John 5.25|John 5:25]]). In our day, additional scriptures have been added which attest to the ministry of the living Lord among the dead (see [[D&C 138.1|D&C 138]][[D&C 138.2|]][[D&C 138.3|]][[D&C 138.4|]][[D&C 138.5|]][[D&C 138.6|]][[D&C 138.7|]][[D&C 138.8|]][[D&C 138.9|]][[D&C 138.10|]][[D&C 138.11|]][[D&C 138.12|]][[D&C 138.13|]][[D&C 138.14|]][[D&C 138.15|]][[D&C 138.16|]][[D&C 138.17|]][[D&C 138.18|]][[D&C 138.19|]][[D&C 138.20|]][[D&C 138.21|]][[D&C 138.22|]][[D&C 138.23|]][[D&C 138.24|]][[D&C 138.25|]][[D&C 138.26|]][[D&C 138.27|]][[D&C 138.28|]][[D&C 138.29|]][[D&C 138.30|]][[D&C 138.31|]][[D&C 138.32|]][[D&C 138.33|]][[D&C 138.34|]][[D&C 138.35|]][[D&C 138.36|]][[D&C 138.37|]][[D&C 138.38|]][[D&C 138.39|]][[D&C 138.40|]][[D&C 138.41|]][[D&C 138.42|]][[D&C 138.43|]][[D&C 138.44|]][[D&C 138.45|]][[D&C 138.46|]][[D&C 138.47|]][[D&C 138.48|]][[D&C 138.49|]][[D&C 138.50|]][[D&C 138.51|]][[D&C 138.52|]][[D&C 138.53|]][[D&C 138.54|]][[D&C 138.55|]][[D&C 138.56|]][[D&C 138.57|]][[D&C 138.58|]][[D&C 138.59|]][[D&C 138.60|]]).
 
 ## To the Lost Tribes
 
@@ -66,7 +68,13 @@ After almost two thousand years, new witnesses to the resurrection of Jesus have
 
 18. Twelve years later, the Savior again revealed himself to Joseph Smith and to Sidney Rigdon. “We saw him,” they exclaimed, “even on the right hand of God; and we heard the voice bearing record that he is the Only Begotten of the Father” ([[D&C 76.23|D&C 76:23]]).
 
-19. On April 3, 1836 (151 years ago yesterday), with Oliver Cowdery in the Kirtland Temple, the Prophet Joseph saw the Master once more:“We saw the Lord standing upon the breastwork of the pulpit, before us; …“His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, even the voice of Jehovah, saying:“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father” ([[D&C 110.2|D&C 110:2–4]][[D&C 110.3|]][[D&C 110.4|]]).
+19. On April 3, 1836 (151 years ago yesterday), with Oliver Cowdery in the Kirtland Temple, the Prophet Joseph saw the Master once more:
+
+“We saw the Lord standing upon the breastwork of the pulpit, before us; …
+
+“His eyes were as a flame of fire; the hair of his head was white like the pure snow; his countenance shone above the brightness of the sun; and his voice was as the sound of the rushing of great waters, even the voice of Jehovah, saying:
+
+“I am the first and the last; I am he who liveth, I am he who was slain; I am your advocate with the Father” ([[D&C 110.2|D&C 110:2–4]][[D&C 110.3|]][[D&C 110.4|]]).
 
 Yes, the resurrection of Jesus Christ is one of the most carefully documented events in history. I have mentioned many of those appearances, but additional instances have been recorded.
 
@@ -121,3 +129,4 @@ Gratefully and positively, I affirm that there is life after life, first in the 
 
 
 
+#JesusChrist #PlanOfSalvation #Resurrection

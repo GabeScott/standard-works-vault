@@ -89,3 +89,4 @@ In the name of Jesus Christ, amen.
 
 [^9]: In Conference Report, Apr. 1977, [[1977 April - Revelation - The Word of the Lord to His Prophets.md|115]]; or *Ensign,* May 1977, 78.
 
+#Faith #HolyGhost #JesusChrist #MissionaryWork #Prophecy #Prophets #Restoration #Sacrifice #Testimony #Truth

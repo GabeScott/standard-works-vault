@@ -51,3 +51,4 @@ I pray that our faith may be sufficient for each of us to feel encircled in the 
 
 
 
+#Disabilities #JesusChrist #Love #Responsibility

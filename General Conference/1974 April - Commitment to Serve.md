@@ -35,3 +35,4 @@ President Kimball and your inspired counselors, President Benson and the special
 
 
 
+#Scriptures #Testimony

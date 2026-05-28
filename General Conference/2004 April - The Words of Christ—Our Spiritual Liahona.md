@@ -57,3 +57,4 @@ So we see, brethren and sisters, that the words of Christ can be a personal Liah
 
 
 
+#BookOfMormon #JesusChrist #Prophets #ScriptureStudy

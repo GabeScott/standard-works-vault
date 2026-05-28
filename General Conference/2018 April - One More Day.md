@@ -65,3 +65,4 @@ It is my prayer that we follow Him, that we believe Him, that we love Him, and t
 
 
 
+#Atonement #JesusChrist #PlanOfSalvation #Sacrifice

@@ -47,3 +47,4 @@ I testify that as you stand as a witness, obey the commandments, and press forwa
 
 
 
+#Courage #Faith #JesusChrist #Obedience

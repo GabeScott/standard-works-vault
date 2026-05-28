@@ -69,3 +69,4 @@ May we all be able to know and understand who we really are. May the Spirit we f
 
 
 
+#Covenants #DivineNature #Priesthood

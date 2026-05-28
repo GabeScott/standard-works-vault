@@ -133,3 +133,4 @@ My beloved sisters, I pray that the divine gifts in each of you may fully flower
 
 [^17]: [[D&C 25.1|D&C 25:1]].
 
+#AdamAndEve #DivineNature #Education #GodTheFather #IndividualWorth #PlanOfSalvation #ReliefSociety #TempleWork #Women

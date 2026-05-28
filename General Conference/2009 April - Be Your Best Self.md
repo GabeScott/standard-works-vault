@@ -115,3 +115,4 @@ The strength which we earnestly seek in order to meet the challenges of a comple
 
 [^10]: [[Joshua 24.15|Joshua 24:15]].
 
+#Blessings #Prayer #Priesthood #ScriptureStudy

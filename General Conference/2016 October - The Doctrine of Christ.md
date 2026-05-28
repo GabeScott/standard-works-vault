@@ -191,3 +191,4 @@ I testify that Jesus Christ is the Savior of the world and that His is the only 
 
 [^65]: [[Moroni 7.25|Moroni 7:25]].
 
+#Atonement #Baptism #Endurance #Faith #HolyGhost #JesusChrist #Repentance #Sacrament

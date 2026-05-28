@@ -34,7 +34,9 @@ This mortal linkage between Joseph Smith, the Prophet, and Jesus Christ, the Sav
 
 - Both were killed as the result of betrayals by erstwhile disciples.
 
-- Both were prayerful by nature. Before his earthly ministry began, the Savior spent forty days in the wilderness engaged in fervent fasting and prayer. And on the Mount of Transfiguration, in Gethsemane, on the cross, and on other occasions he engaged in fervent prayers to his Heavenly Father, pleading for guidance or assistance.Joseph Smith’s ministry actually began with the fervent prayer he offered in the Sacred Grove, which resulted in the Father and the Son appearing to him. Thereafter, his life was marked by repeated prayers offered for divine help in solving the problems he faced, whether great or small.
+- Both were prayerful by nature. Before his earthly ministry began, the Savior spent forty days in the wilderness engaged in fervent fasting and prayer. And on the Mount of Transfiguration, in Gethsemane, on the cross, and on other occasions he engaged in fervent prayers to his Heavenly Father, pleading for guidance or assistance.
+
+Joseph Smith’s ministry actually began with the fervent prayer he offered in the Sacred Grove, which resulted in the Father and the Son appearing to him. Thereafter, his life was marked by repeated prayers offered for divine help in solving the problems he faced, whether great or small.
 
 - Their births were foreseen long in advance. The Savior, according to the scriptures, was “Beloved and Chosen from the beginning” ([[Moses 4.2|Moses 4:2]]), even him whom God declared “should come in the meridian of time, who was prepared from before the foundation of the world” ([[Moses 5.57|Moses 5:57]]). Joseph of old, the son of Jacob, or Israel, prophesied that in the latter days a choice seer would be raised up: “And his name shall be called after me,” he prophesied, “and it shall be after the name of his father” ([[2 Nephi 3.15|2 Ne. 3:15]]), which is an ancient prophetic reference to Joseph Smith and his father, Joseph Smith, Sr.
 
@@ -59,3 +61,4 @@ Finally, I testify that through an unbroken chain, the prophetic keys and author
 
 
 
+#Authority #JosephSmith #JesusChrist #Prayer #Restoration

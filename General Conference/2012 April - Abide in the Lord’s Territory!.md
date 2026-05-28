@@ -47,3 +47,4 @@ My prayer, brothers and sisters, as we think about our covenants, is that we may
 
 
 
+#Agency #Covenants #Obedience

@@ -77,3 +77,4 @@ May we live our lives with order and seek to follow the sequence the Lord has ou
 
 
 
+#Faith #Learning #Ordinances #Spirituality

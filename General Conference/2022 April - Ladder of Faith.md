@@ -141,3 +141,4 @@ May we plant the seeds of faith deep in our hearts. May we nourish these seeds a
 
 [^28]: See Russell M. Nelson, “[[2020 October - Let God Prevail.md|Let God Prevail]],” *Ensign* or *Liahona*, Nov. 2020, 94.
 
+#Adversity #Faith #JesusChrist #Obedience #PlanOfSalvation

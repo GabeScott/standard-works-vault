@@ -131,3 +131,4 @@ I invite you to center your life on Jesus Christ and remember the foundational t
 
 [^40]: See [[D&C 84.36|Doctrine and Covenants 84:36–38]][[D&C 84.37|]][[D&C 84.38|]].
 
+#Agency #DivineNature #HeavenlyMother #HeavenlyParents #Love #Prophets #Repentance #Revelation #YoungWomen

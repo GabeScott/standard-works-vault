@@ -35,3 +35,4 @@ In the name of Jesus Christ, amen.
 
 
 
+#Dedication #Faith #Leadership #Prayer #Scriptures #YoungWomen

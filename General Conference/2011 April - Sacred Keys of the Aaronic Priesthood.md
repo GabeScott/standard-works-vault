@@ -32,11 +32,17 @@ Then I asked, “Knowing you are to teach the deacons their duties, do you know 
 
 Again we turned to the scriptures and found:
 
-1. A deacon is appointed to watch over and be a standing minister in the Church (see [[D&C 84.111|D&C 84:111]]).Because the family is the basic unit of the Church, the most important setting in which an Aaronic Priesthood holder can fulfill this duty is in his own home. He provides priesthood service to his father and mother as they lead the family. He also watches over his brothers and sisters, the young men of his quorum, and the other members of the ward.
+1. A deacon is appointed to watch over and be a standing minister in the Church (see [[D&C 84.111|D&C 84:111]]).
 
-2. A deacon assists the teacher in all his duties in the Church if occasion requires (see [[D&C 20.57|D&C 20:57]]).We determined that if a deacon is to assist with the teachers’ duties, he needs to know their duties. We looked in the scriptures and quickly identified over a dozen duties for the office of teacher (see [[D&C 20.53|D&C 20:53–59]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]]; [[D&C 84.111|84:111]]). What a powerful experience it would be for every young man—and his father, advisers, and all of us—to do exactly what this young man did: go to the scriptures and discover for ourselves what our duties are. I suspect that many of us will be surprised—and inspired—by what we find. Duty to God contains helpful summaries of Aaronic Priesthood duties and is a great resource for spiritual development. I urge you to consistently use it.
+Because the family is the basic unit of the Church, the most important setting in which an Aaronic Priesthood holder can fulfill this duty is in his own home. He provides priesthood service to his father and mother as they lead the family. He also watches over his brothers and sisters, the young men of his quorum, and the other members of the ward.
 
-3. Deacons and teachers are also to “warn, expound, exhort, and teach, and invite all to come unto Christ” ([[D&C 20.59|D&C 20:59]]; see [[D&C 20.46|verses 46 and 68]][[D&C 20.68|]] for priests).Many young men think that their missionary experience starts when they turn 19 and enter the missionary training center. We learn from the scriptures that it starts long before that. The Lord wants every Aaronic Priesthood holder to invite all to come unto Christ—beginning with his own family.
+2. A deacon assists the teacher in all his duties in the Church if occasion requires (see [[D&C 20.57|D&C 20:57]]).
+
+We determined that if a deacon is to assist with the teachers’ duties, he needs to know their duties. We looked in the scriptures and quickly identified over a dozen duties for the office of teacher (see [[D&C 20.53|D&C 20:53–59]][[D&C 20.54|]][[D&C 20.55|]][[D&C 20.56|]][[D&C 20.57|]][[D&C 20.58|]][[D&C 20.59|]]; [[D&C 84.111|84:111]]). What a powerful experience it would be for every young man—and his father, advisers, and all of us—to do exactly what this young man did: go to the scriptures and discover for ourselves what our duties are. I suspect that many of us will be surprised—and inspired—by what we find. Duty to God contains helpful summaries of Aaronic Priesthood duties and is a great resource for spiritual development. I urge you to consistently use it.
+
+3. Deacons and teachers are also to “warn, expound, exhort, and teach, and invite all to come unto Christ” ([[D&C 20.59|D&C 20:59]]; see [[D&C 20.46|verses 46 and 68]][[D&C 20.68|]] for priests).
+
+Many young men think that their missionary experience starts when they turn 19 and enter the missionary training center. We learn from the scriptures that it starts long before that. The Lord wants every Aaronic Priesthood holder to invite all to come unto Christ—beginning with his own family.
 
 Next, to help this young president understand that he and he alone was the presiding officer in the quorum, I suggested he read three times the first duty listed in [[D&C 107.85|Doctrine and Covenants 107:85]]. He read, “Preside over twelve deacons.” I asked, “What is the Lord telling you personally about your duty as president?”
 
@@ -79,3 +85,4 @@ I know these words are true, and I pray that each of us will have that same witn
 
 
 
+#AaronicPriesthood #Duty #Leadership #Priesthood

@@ -107,3 +107,4 @@ I testify that God the Father lives. You have made covenants with Him. He offers
 
 [^7]: [[Alma 13.12|Alma 13:12–13]][[Alma 13.13|]].
 
+#Covenants #Family #Priesthood #Service

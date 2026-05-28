@@ -167,3 +167,4 @@ Wilt Thou smile with favor upon us, we pray in the sacred name of our Lord Jesus
 
 
 
+#Commandments #Education #JesusChrist #MissionaryWork #Prayer #TempleSquare

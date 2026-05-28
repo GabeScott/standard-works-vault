@@ -55,3 +55,4 @@ The bishops’ responsibilities are heavy. However, with proper delegation and c
 
 
 
+#Leadership #Priesthood

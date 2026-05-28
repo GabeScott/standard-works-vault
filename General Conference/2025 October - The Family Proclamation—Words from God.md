@@ -135,3 +135,4 @@ Our Father in Heaven has provided the proclamation on the family to help guide u
 
 [^30]: [[Philippians 4.7|Philippians 4:7]].
 
+#DivineNature #Family #Marriage

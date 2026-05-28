@@ -199,3 +199,4 @@ Of this I testify in the name of our Redeemer and Savior, Jesus Christ, amen.
 
 [^11]: See LeGrand Richards, *A Marvelous Work and a Wonder, *rev. ed. (1966).
 
+#Agency #PlanOfSalvation

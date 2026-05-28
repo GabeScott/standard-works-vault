@@ -137,3 +137,4 @@ In the name of Jesus Christ. Amen.
 
 
 
+#PlanOfSalvation #Spirituality #Truth

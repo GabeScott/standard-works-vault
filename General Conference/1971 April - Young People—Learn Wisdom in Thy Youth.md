@@ -95,3 +95,4 @@ I didn’t say that, young people. The Lord did. And our purpose here is to teac
 
 
 
+#Obedience #Youth

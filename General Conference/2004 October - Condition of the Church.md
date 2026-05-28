@@ -47,3 +47,4 @@ And so, brothers and sisters, I might continue. Suffice it to say that I believe
 
 
 
+#ChurchGrowth #Education #Temples

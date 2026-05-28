@@ -155,3 +155,4 @@ May the Lord bless you in your untiring and righteous efforts to be numbered amo
 
 [^8]: “O God, the Eternal Father,” *Hymns,* no. 175.
 
+#Adversity #Charity #Family #Happiness #Joy #JesusChrist #Love #Marriage #Pride

@@ -161,3 +161,4 @@ Of this I testify—and of Jesus Christ as our Savior and our Redeemer—in the 
 
 [^21]: [[Psalms 23.1|Psalm 23:1]].
 
+#Adversity #Bullying #Compassion #JesusChrist #Kindness #Love #Unity

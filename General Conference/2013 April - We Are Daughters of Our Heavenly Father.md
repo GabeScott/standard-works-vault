@@ -73,3 +73,4 @@ Today as a daughter of God, I stand as a witness that He lives. Jesus is the Chr
 
 [^8]: See *Young Women Personal Progress,* 70.
 
+#DivineNature #Morality #Women

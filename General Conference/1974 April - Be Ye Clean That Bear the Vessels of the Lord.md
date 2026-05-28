@@ -119,3 +119,4 @@ May it be so, I humbly pray in the name of Jesus Christ. Amen.
 
 
 
+#Morality #Obedience #Priesthood

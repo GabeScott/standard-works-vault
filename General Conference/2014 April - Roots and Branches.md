@@ -147,3 +147,4 @@ I bear witness of the Savior’s atoning sacrifice and the certainty of the Fath
 
 [^30]: See [[Obadiah 1.21|Obadiah 1:21]].
 
+#FamilyHistory #Temples

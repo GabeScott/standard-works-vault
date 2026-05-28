@@ -193,3 +193,4 @@ The Book of Mormon is true! I so testify in the name of Jesus Christ, amen.
 
 [^48]: [[D&C 20.14|D&C 20:14]].
 
+#Atonement #BookOfMormon #Covenants #Family #JosephSmith #JesusChrist #Prophets #Testimony

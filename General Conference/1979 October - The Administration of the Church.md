@@ -193,3 +193,4 @@ We hope and pray always—every day—that the Church is being properly administ
 
 
 
+#ChurchOrganization #Leadership #Priesthood

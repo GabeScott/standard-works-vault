@@ -153,3 +153,4 @@ lds.org/media-library
 
 [^13]: [[Isaiah 58.8|Isaiah 58:8–9]][[Isaiah 58.9|]].
 
+#Blessings #Fasting #Service #Tithing

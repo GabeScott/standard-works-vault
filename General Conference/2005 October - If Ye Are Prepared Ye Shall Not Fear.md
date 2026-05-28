@@ -119,3 +119,4 @@ I have faith, my dear brethren, that the Lord will bless us and watch over us an
 
 
 
+#Faith #Obedience #Preparation #Priesthood #Safety #Self-reliance #Service

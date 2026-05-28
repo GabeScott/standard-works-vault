@@ -105,3 +105,4 @@ May the Lord bless each one of you to accomplish your goal in life, I pray in th
 
 
 
+#PlanOfSalvation #Temptation

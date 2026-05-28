@@ -101,3 +101,4 @@ May God bless and guide us aright; may we be blessed with the spiritual strength
 
 
 
+#Obedience #Spirituality

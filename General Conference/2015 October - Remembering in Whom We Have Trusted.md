@@ -99,3 +99,4 @@ Brothers and sisters, if you feel discouraged or wonder if you can ever get out 
 
 [^27]: [[2 Nephi 31.20|2 Nephi 31:20]].
 
+#JesusChrist #PlanOfSalvation #Repentance #Trust

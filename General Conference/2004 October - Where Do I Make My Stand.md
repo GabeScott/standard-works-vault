@@ -117,3 +117,4 @@ We have much reason to hope. Joy can be ours if we are willing to sacrifice all 
 
 [^21]: “Remarks,” *Deseret News,* May 31, 1871, 197.
 
+#Adversity #Faith #Perspective

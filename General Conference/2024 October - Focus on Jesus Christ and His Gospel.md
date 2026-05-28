@@ -95,3 +95,4 @@ He lovingly invites, “Come unto me, all ye that labour and are heavy laden, an
 
 [^18]: [[Matthew 11.28|Matthew 11:28]]; see also [[Matthew 11.29|verses 29–30]][[Matthew 11.30|]].
 
+#Adversity #Gospel #Joy #JesusChrist

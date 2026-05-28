@@ -183,3 +183,4 @@ To the truthfulness of these divine teachings concerning prayer and revelation, 
 
 
 
+#Family #Prayer #Spirituality

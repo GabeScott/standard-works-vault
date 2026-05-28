@@ -45,3 +45,4 @@ I add my witness to the many that have been borne from this pulpit: I know God l
 
 
 
+#Example #Faith #Service

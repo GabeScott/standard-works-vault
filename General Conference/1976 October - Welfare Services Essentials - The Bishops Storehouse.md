@@ -77,3 +77,4 @@ That this may be our goal, and that we may accomplish it, is my prayer in the na
 
 
 
+#Bishops #Welfare

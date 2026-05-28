@@ -171,3 +171,4 @@ I know that our Father in Heaven and Savior love you. Jesus Christ is the Savior
 
 [^46]: See [[2 Nephi 2.26|2 Nephi 2:26–28]][[2 Nephi 2.27|]][[2 Nephi 2.28|]].
 
+#Atonement #Covenants #Forgiveness #JesusChrist #Redemption #Repentance

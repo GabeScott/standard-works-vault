@@ -101,3 +101,4 @@ Just as the Lord knew Nephi, God knows us and loves us. This is our time; these 
 
 
 
+#HolyGhost #Testimony

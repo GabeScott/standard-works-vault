@@ -159,3 +159,4 @@ And I joyfully witness that the Father and the Son appeared to the boy Joseph Sm
 
 [^32]: “[The Restoration of the Fulness of the Gospel of Jesus Christ](https://www.churchofjesuschrist.org/study/scriptures/the-restoration-of-the-fulness-of-the-gospel-of-jesus-christ/a-bicentennial-proclamation-to-the-world?lang=eng&id=p9#p9),” Gospel Library.
 
+#BookOfMormon #Dispensations #FirstVision #JosephSmith #Priesthood #Restoration

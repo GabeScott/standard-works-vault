@@ -87,3 +87,4 @@ And so, watch the switches in your life, the small but important day-to-day deci
 
 
 
+#Morality #Obedience #Prayer #Priesthood #Youth

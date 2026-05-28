@@ -99,3 +99,4 @@ It takes effort. It takes self-control. It takes unselfishness. It requires the 
 
 
 
+#Abuse #ChurchGrowth #Example #Love #Marriage #Repentance

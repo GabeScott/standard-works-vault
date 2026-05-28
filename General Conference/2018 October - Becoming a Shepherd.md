@@ -113,3 +113,4 @@ When the day comes that we will kneel at the feet of our beloved Savior, having 
 
 [^10]: [[John 21.15|John 21:15]].
 
+#JesusChrist #Ministering #Service

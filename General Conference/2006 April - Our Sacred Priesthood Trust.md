@@ -141,3 +141,4 @@ May our Heavenly Father ever bless, ever inspire, and ever lead all who hold His
 
 [^10]: [[Ether 12.27|Ether 12:27]].
 
+#Example #Priesthood #Restoration

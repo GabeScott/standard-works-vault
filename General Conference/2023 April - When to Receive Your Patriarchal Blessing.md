@@ -81,3 +81,4 @@ I am so grateful for our Savior, Jesus Christ. This Easter Sunday I will focus o
 
 [^8]: Dallin H. Oaks, “Patriarchal Blessings,” *Worldwide Leadership Training Meeting: The Patriarch*, Jan. 8, 2005, 10.
 
+#Covenants #PatriarchalBlessings

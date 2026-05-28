@@ -96,3 +96,4 @@ In this unsettled world, may we settle in our hearts on this determination, I pr
 
 
 
+#Adversity #Atonement #Commitment

@@ -109,3 +109,4 @@ And “when thou hast eaten and art full, then thou shalt bless the Lord thy God
 
 
 
+#Faith #Pride #Priorities #Wealth

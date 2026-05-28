@@ -105,3 +105,4 @@ As we conclude this historic conference, I am pleased to testify to the world of
 
 [^18]: [[2 Peter 1.20|2 Pet. 1:20]].
 
+#Authority #Obedience #Priesthood #Prophets

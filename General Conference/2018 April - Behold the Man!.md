@@ -187,3 +187,4 @@ I leave you my testimony and blessing that as we “behold the man,” we will f
 
 [^19]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
+#Adversity #Atonement #Death #Discipleship #Easter #JesusChrist #Repentance #Resurrection

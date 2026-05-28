@@ -49,3 +49,4 @@ May we follow the counsel and example of the prophet and each day seek out those
 
 [^5]: Thomas S. Monson, in Conference Report, Oct. 2009, [[2009 October - What Have I Done for Someone Today.md|84]]; or *Ensign,* Nov. 2009, 86.
 
+#Conversion #Love #Service

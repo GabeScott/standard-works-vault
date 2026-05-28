@@ -87,3 +87,4 @@ I pray that the rich and wondrous blessings of the Lord may be poured out upon t
 
 
 
+#Commandments #DisciplinaryCouncils #Education #Humility #Leadership #MissionaryWork #Priesthood #Prophecy #Respect #Restoration #Responsibility #Teaching #Unity #Worthiness

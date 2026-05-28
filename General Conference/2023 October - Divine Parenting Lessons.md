@@ -121,3 +121,4 @@ As we partner with God through covenants and become His agents in the care of ou
 
 [^27]: [[2 Nephi 25.26|2 Nephi 25:26]].
 
+#Agency #Children #Discipleship #Parenthood #PatriarchalBlessings #Teaching #Testimony

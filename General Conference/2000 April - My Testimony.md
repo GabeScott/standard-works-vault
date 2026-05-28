@@ -145,3 +145,4 @@ Gratefully, and with love undiminished, I bear witness of these things in His Ho
 
 
 
+#Example #Friendship #Gratitude #JesusChrist #MissionaryWork #Satan #Temptation #Testimony #Youth

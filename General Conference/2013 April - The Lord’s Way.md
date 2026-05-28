@@ -42,7 +42,11 @@ In fact, God has the way to live,[^1] to love,[^2] to help,[^3] to pray,[^4] to 
 
 Along with the scriptures, some great sources for finding the Lord’s way are *True to the Faith, For the Strength of Youth,* and other teachings of the living apostles and prophets.
 
-1. For example, the Lord has taught us in the scriptures:“For my thoughts are not your thoughts, neither are your ways my ways, saith the Lord.“For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts” ([[Isaiah 55.8|Isaiah 55:8–9]][[Isaiah 55.9|]]).
+1. For example, the Lord has taught us in the scriptures:
+
+“For my thoughts are not your thoughts, neither are your ways my ways, saith the Lord.
+
+“For as the heavens are higher than the earth, so are my ways higher than your ways, and my thoughts than your thoughts” ([[Isaiah 55.8|Isaiah 55:8–9]][[Isaiah 55.9|]]).
 
 2. One of the evils of these last days is that “every man walketh in his own way” ([[D&C 1.16|D&C 1:16]]). In Proverbs we are warned to “be not wise in thine own eyes” and to “lean not unto thine own understanding” (see [[Proverbs 3.5|Proverbs 3:5–7]][[Proverbs 3.6|]][[Proverbs 3.7|]]).
 
@@ -119,3 +123,4 @@ Our Savior, Jesus Christ, is “the way, the truth, and the life” ([[John 14.6
 
 [^14]: See *Teachings of Presidents of the Church: Joseph Smith* (2007), 284.
 
+#GodTheFather #Prophets

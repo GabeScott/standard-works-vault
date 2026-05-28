@@ -81,3 +81,4 @@ I know that Jesus is the Christ, the Son of the living God. I know that. I know 
 
 
 
+#Commitment #Family

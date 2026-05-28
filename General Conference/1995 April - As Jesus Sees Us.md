@@ -27,3 +27,4 @@ As we strive to better understand how Jesus sees us and contemplate our own atte
 
 
 
+#Atonement #Covenants #JesusChrist #Standards

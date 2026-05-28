@@ -146,3 +146,4 @@ Our Heavenly Father lives and knows and loves each one of us. Jesus is the Chris
 
 [^11]: “Does the Journey Seem Long?” *Hymns,* no. 127.
 
+#Adversity #Dedication #Disabilities #Faith #GodTheFather #HolyGhost #Priorities #Prophets #Scriptures #Truth

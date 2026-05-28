@@ -102,3 +102,4 @@ I ask the Lord to bless us as we go to our homes, as we train our children, as w
 
 
 
+#Ordinances #Priesthood #Resurrection

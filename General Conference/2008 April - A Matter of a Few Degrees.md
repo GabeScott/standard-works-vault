@@ -145,3 +145,4 @@ I testify of our Heavenly Father, who knows and loves you. I bear witness of Jes
 
 [^22]: [[Isaiah 1.18|Isaiah 1:18]].
 
+#HolyGhost #Prophets #Repentance #Truth

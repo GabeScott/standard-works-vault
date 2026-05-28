@@ -79,3 +79,4 @@ My beloved brothers and sisters, I testify of the living reality of God the Eter
 
 
 
+#Covenants #HolyGhost #Ordinances #Sacrament

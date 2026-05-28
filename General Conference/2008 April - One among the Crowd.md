@@ -65,3 +65,4 @@ My dear brothers and sisters, I pray that each one of us can pass safely through
 
 [^13]: [[Matthew 21.42|Matthew 21:42]].
 
+#Courage #Faith #IndividualWorth #JesusChrist

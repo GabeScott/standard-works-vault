@@ -75,3 +75,4 @@ And so I leave this testimony with you. In the name of our Lord Jesus Christ. Am
 
 
 
+#Goals #JesusChrist #Scriptures

@@ -99,3 +99,4 @@ It is my prayer that we may do this, constantly, in the name of Jesus Christ, am
 
 
 
+#ChurchAttendance #JosephSmith #Prayer #Scriptures #Spirituality #Truth

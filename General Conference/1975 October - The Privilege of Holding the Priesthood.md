@@ -159,3 +159,4 @@ Now this comes from the doctrines we possess. The Lord has said, “I am the Alm
 
 
 
+#ArticlesOfFaith #Priesthood

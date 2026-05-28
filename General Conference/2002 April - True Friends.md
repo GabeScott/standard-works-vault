@@ -111,3 +111,4 @@ In the sacred name of Jesus Christ, amen.
 
 [^10]: [[Alma 7.11|Alma 7:11–12]][[Alma 7.12|]].
 
+#Example #Friendship #HolyGhost #Love

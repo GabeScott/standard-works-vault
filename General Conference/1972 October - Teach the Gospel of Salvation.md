@@ -165,3 +165,4 @@ Amen.
 
 
 
+#Family #Government #Obedience #Welfare

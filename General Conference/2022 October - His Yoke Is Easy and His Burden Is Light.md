@@ -119,3 +119,4 @@ Friends, let us remember that each person on this earth is a child of God[^23] a
 
 [^27]: See [[Matthew 11.28|Matthew 11:28–30]][[Matthew 11.29|]][[Matthew 11.30|]].
 
+#Adversity #Charity #Judging #JesusChrist #Love

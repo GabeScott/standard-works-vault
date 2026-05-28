@@ -101,3 +101,4 @@ Brothers and sisters, what we have witnessed and participated in today, a solemn
 
 [^6]: David B. Haight, “[[1994 October - Solemn Assemblies.md|Solemn Assemblies]],” *Ensign,* Nov. 1994, 14.
 
+#ChurchOrganization #FirstPresidency #Prophets #Teaching

@@ -47,3 +47,4 @@ I leave you my testimony that I know this is the restored Church of Jesus Christ
 
 
 
+#Attitude

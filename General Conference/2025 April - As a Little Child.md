@@ -87,3 +87,4 @@ In that same spirit of testimony, I bear witness that in his youth, Joseph Smith
 
 [^14]: See [[Revelation 1.5|Revelation 1:5]].
 
+#Children #Humility #JesusChrist #Purity

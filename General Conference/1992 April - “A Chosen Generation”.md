@@ -105,3 +105,4 @@ God bless you, I humbly pray, as I bear witness and testimony of these things in
 
 
 
+#Accountability #Commandments #Joy #Morality #Obedience #Spirituality #WordOfWisdom #Youth

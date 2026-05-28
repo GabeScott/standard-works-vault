@@ -92,3 +92,4 @@ I invite every one of you, wherever you may be as members of this church, to sta
 
 
 
+#Adversity #Attitude #ChurchGrowth #Commitment #Faith #JosephSmith #JesusChrist #MissionaryWork #Service #Standards

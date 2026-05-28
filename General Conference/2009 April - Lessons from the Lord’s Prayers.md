@@ -195,3 +195,4 @@ In our daily lives and in our own crucial hours, may we fervently apply these pr
 
 [^48]: [[D&C 65.5|D&C 65:5]].
 
+#Fasting #Humility #JesusChrist #Prayer

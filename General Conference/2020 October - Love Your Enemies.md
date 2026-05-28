@@ -105,3 +105,4 @@ Knowing that we are all children of God gives us a divine vision of the worth of
 
 [^14]: Henry John Temple, Viscount Palmerston, remarks in the House of Commons, Mar. 1, 1848; in Bartlett, *Bartlett’s Familiar Quotations,* 392; emphasis added.
 
+#Contention #Government #Laws #Love

@@ -117,3 +117,4 @@ He is our Lawgiver and Judge, the Redeemer of the world. At His Second Coming, â
 
 [^24]: [[2 Nephi 19.6|2 Nephi 19:6]]; see also [[Isaiah 9.6|Isaiah 9:6]].
 
+#Blessings #Fasting #JesusChrist #Prayer #Service #Welfare

@@ -121,3 +121,4 @@ I bear witness that this work is true, that God lives, that Jesus is the Christ,
 
 
 
+#Ordinances #TempleWork

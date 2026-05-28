@@ -147,3 +147,4 @@ Your personal testimony of light and truth will not only bless you and your post
 
 [^17]: See [[D&C 88.63|Doctrine and Covenants 88:63]].
 
+#GodTheFather #HolyGhost #JesusChrist #Testimony

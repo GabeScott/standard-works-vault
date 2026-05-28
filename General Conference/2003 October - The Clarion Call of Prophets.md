@@ -67,3 +67,4 @@ At their very core, the doctrines of The Church of Jesus Christ of Latter-day Sa
 
 
 
+#JesusChrist #Prophets #Teaching #Testimony

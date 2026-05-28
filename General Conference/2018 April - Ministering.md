@@ -27,3 +27,4 @@ The First Presidency and the Twelve are united in endorsing their messages. Grat
 
 [^1]: See [[Luke 10.27|Luke 10:27]].
 
+#Ministering

@@ -211,3 +211,4 @@ In the name of Jesus Christ, amen.
 
 [^29]: Myra Brooks Welch, “The Touch of the Master’s Hand,” *The Gospel Messenger,* Brethren Press, 26 Feb. 1921; see also *Best-Loved Poems of the LDS People,* comp. Jack Lyon, et al. \[1996\], 182–83.
 
+#Atonement #Attitude #Conscience #Evil #Joy #Justice #Ordinances #Peace #Repentance

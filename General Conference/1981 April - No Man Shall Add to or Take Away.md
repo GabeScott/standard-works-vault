@@ -59,3 +59,4 @@ May our vision not be so narrow that we would relegate revelation to only the an
 
 
 
+#Scriptures #Spirituality

@@ -143,3 +143,4 @@ This is the Lord’s work! It will roll on until all His purposes are fulfilled 
 
 
 
+#ChurchGrowth #JosephSmith #Opposition

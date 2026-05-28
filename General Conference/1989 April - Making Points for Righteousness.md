@@ -105,3 +105,4 @@ You priesthood leaders and fathers, you are the home-field coaches. Review these
 
 
 
+#MissionaryWork #Morality #Service #Spirituality #WordOfWisdom

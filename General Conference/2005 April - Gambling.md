@@ -117,3 +117,4 @@ May heaven’s blessings rest upon you, I humbly pray, as I leave you my testimo
 
 
 
+#Gambling #Morality #Sacrifice #Temptation #Tithing

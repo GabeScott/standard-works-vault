@@ -129,3 +129,4 @@ Let us dedicate ourselves to doing the Lord’s work to the best of our abilitie
 
 [^28]: [[Jacob 1.7|Jacob 1:7]].
 
+#Atonement #ChurchCallings #Commandments #Faith #Exodus #Gratitude #JosephSmith #JesusChrist #Obedience #Pioneers #PlanOfSalvation #Prophets #Service
